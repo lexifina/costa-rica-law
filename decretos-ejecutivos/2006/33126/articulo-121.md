@@ -1,0 +1,1 @@
+Artículo 121.—De las derogatorias: Este Reglamento reforma integralmente el Reglamento Autónomo de Organización y Servicio del Consejo de Seguridad Vial, acordado en sesión 953-90, Artículo VI del día 10 de enero de mil novecientos noventa y sus reformas.

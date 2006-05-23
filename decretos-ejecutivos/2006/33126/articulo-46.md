@@ -1,0 +1,1 @@
+Artículo 46.—Posibilidad de despido: Cuando la incapacidad fuere superior a los tres meses, el Consejo podrá ejercer el derecho al despido mediante decisión razonado de su órgano máximo, cancelando en tal caso el importe del preaviso y auxilio de cesantía que en derecho corresponda.

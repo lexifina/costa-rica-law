@@ -1,0 +1,1 @@
+Artículo 67.—De la póliza de riesgos en el trabajo: Todos los servidores del Consejo estarán protegidos contra los riesgos de trabajo, de conformidad con lo establecido en el Título IV del Código de Trabajo (Ley Riesgos del Trabajo y su Reglamento Nº 6727 del nueve de marzo de mil novecientos ochenta y dos).

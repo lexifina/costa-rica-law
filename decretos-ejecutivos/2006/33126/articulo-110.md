@@ -1,0 +1,1 @@
+Artículo 110.—Del procedimiento ante faltas leves: En cualquier falta leve, la amonestación verbal será aplicada por el Jefe inmediato una vez otorgada la audiencia para motivar el actuar del funcionario. Contra lo resuelto cabrá únicamente recurso de revocatoria dentro del tercer día ante la Dirección Ejecutiva. Se considera excluido este trámite del Procedimiento Formal.

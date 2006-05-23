@@ -1,0 +1,1 @@
+Artículo 118.—Del trámite ante la Asesoría Legal: En todo procedimiento tramitado ante la Asesoría Legal, corresponderá a la jefatura de la oficina designar formalmente y por resolución a el o los funcionarios que efectivamente le otorguen el curso al procedimiento. No aplicaría lo anterior, cuando por acuerdo de Junta Directiva se establezca el nombramiento.

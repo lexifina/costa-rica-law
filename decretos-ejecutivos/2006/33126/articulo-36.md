@@ -1,0 +1,1 @@
+Artículo 36.—Del error en el registro: Dejará de imponerse la sanción disciplinaria que corresponda al servidor que por error marcó la tarjeta de otro o registró el ingreso por otro, o aquel a quien se la marcaron, si informa del hecho a la Oficina de Recursos Humanos, dentro de la misma jornada de trabajo en que el hecho sucedió.

@@ -1,0 +1,1 @@
+Artículo 69.—De las medidas preventivas: El Consejo por medio de la Oficina de Recursos Humanos, está en la obligación de instruir, a los servidores en todo lo referente a la prevención de los riesgos del trabajo, según lo establecido por la Ley.

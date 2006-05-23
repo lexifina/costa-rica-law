@@ -1,0 +1,1 @@
+Artículo 117.—De la composición de órganos colegiados: Cuando se integren Órganos Colegiados para la instrucción del procedimiento, el número del mismo deberá ser siempre impar, que en ningún caso podrá sobrepasar de las cinco personas.

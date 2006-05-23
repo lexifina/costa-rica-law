@@ -1,0 +1,1 @@
+Artículo 41.—De la justificación del superior: Para casos muy calificados no contemplados en este Reglamento, queda a criterio del Jefe inmediato, justificar ausencias que no sean por enfermedad para efectos de evitar sanción disciplinaria, sin que ello signifique obligación de pago del salario.

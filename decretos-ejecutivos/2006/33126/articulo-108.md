@@ -1,0 +1,1 @@
+Artículo 108.—De la audiencia a la Dirección Financiera: En todo procedimiento donde exista perjuicio económico para el Consejo, se dará participación como testigo mediante audiencia a la Dirección Financiera desde el inicio del procedimiento, para que estime el monto del perjuicio sufrido y señale los aspectos que estime prudentes.

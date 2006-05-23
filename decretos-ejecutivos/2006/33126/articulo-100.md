@@ -1,0 +1,1 @@
+Artículo 100.—De las cuotas de responsabilidad: A efectos de determinar la existencia y el grado de la culpa o dolo de un funcionario en la actuación investigada, se estará sujeto a lo que al efecto se establece en el artículo 213 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 79.—Del deber de calificar: Todo superior está obligado a calificar anualmente los servicios de sus colaboradores. Para tales efectos, la Oficina de Recursos Humanos emitirá e implementará las metodologías correspondientes.

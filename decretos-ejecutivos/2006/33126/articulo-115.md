@@ -1,0 +1,1 @@
+Artículo 115.—Del recurso de apelación: Se deberá substanciar ante el Ministro de Obras Públicas y Transportes de acuerdo con el artículo 29 de la Ley de Administración Vial Nº 6324, en el evento de haber sido interpuesto en tiempo y forma. Se le otorgará al recurrente audiencia por el plazo de tres días para que comparezca a hacer valer sus derechos ante aquella instancia.

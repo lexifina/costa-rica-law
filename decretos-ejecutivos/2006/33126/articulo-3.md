@@ -1,0 +1,1 @@
+Artículo 3º—De la Independencia del Consejo: El Consejo es un órgano con desconcentración máxima, con personería jurídica propia y en razón de ello, es responsable directo de las consecuencias resultantes de las relaciones entre él y sus servidores.

@@ -1,0 +1,2 @@
+Artículo 50.—De pedimento de personal: En caso de inopia interna comprobada, la Institución procederá a llenar la vacante por el procedimiento previsto en los numerales 33 y 34 del Estatuto de Servicio Civil y 20 y 21 de su Reglamento.
+En caso de traslados a otras dependencias o Ministerios, debe procederse con lo dictado por la Autoridad Presupuestaria y contar con el consentimiento del máximo jerarca de la Institución mediante resolución.

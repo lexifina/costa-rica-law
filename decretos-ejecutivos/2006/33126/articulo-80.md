@@ -1,0 +1,1 @@
+Artículo 80.—Del período para calificar: Los superiores jerárquicos calificarán los servicios de sus colaboradores en la segunda quincena del mes de noviembre de cada año. Caso contrario, el servidor interesado podrá solicitar a su superior inmediato quien estará obligado a hacerlo, que realice su calificación, dentro de los quince días siguientes.

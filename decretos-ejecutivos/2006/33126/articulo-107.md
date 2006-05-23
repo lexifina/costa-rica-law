@@ -1,0 +1,1 @@
+Artículo 107.—Del procedimiento ante varios tipos de faltas: En todo procedimiento donde se estén conociendo varios tipos de faltas, se seguirá procedimiento por la que tenga mayor sanción en el evento de ser considerado culpable de los hechos que se imputan; no perdiendo la competencia el funcionario en caso de sólo encontrar culpabilidad por los hechos de menor sanción.

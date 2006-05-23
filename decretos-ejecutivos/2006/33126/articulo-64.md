@@ -1,0 +1,1 @@
+Artículo 64.—De los días feriados: Son hábiles para el trabajo todos los días del año menos los feriados y aquellos que el Poder Ejecutivo declare de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando ello no riña con la normativa legal existente y teniendo contenido presupuestario para la correspondiente indemnización.

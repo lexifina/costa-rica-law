@@ -1,0 +1,1 @@
+Artículo 57.—Del derecho al pago por la labor servida: Todo servidor tiene derecho a que se le retribuya por las funciones que le son requeridas y a negarse a cumplir obligaciones, cuando las mismas no le están siendo canceladas. Quedan exceptuadas de esta situación, eventos de urgencia o emergencia, debidamente constatados y dentro de un plazo razonable.

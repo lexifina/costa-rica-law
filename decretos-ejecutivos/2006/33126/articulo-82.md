@@ -1,0 +1,2 @@
+Artículo 82.—Del efecto de la calificación: La evaluación anual servirá, en cuanto reconocimiento a los buenos servidores, como factor a considerar para formación o capacitación, ascensos, concesiones de permisos, reducciones forzosas de personal y demás incentivos creados por la institución.
+En su aplicación deberán observarse las reglas contenidas en los artículos 41, 42, 43 y 44 y 44 BIS del Reglamento del Estatuto de Servicio Civil.

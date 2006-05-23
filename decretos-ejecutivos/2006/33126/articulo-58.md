@@ -1,0 +1,1 @@
+Artículo 58.—Del régimen de viáticos, y pasajes: Lo referente al pago de viáticos, gastos de viaje y pasaje, se regirá por las disposiciones vigentes que para esa materia dicte la Contraloría General de la República.

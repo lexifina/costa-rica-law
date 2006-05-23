@@ -1,0 +1,1 @@
+Artículo 20.—Del reconocimiento para obtener capacitación: Los funcionarios regulares del Consejo, tendrán el derecho de que se les brinde la capacitación y formación complementarias, mediante cursos, seminarios, becas y otros, para un mejor desempeño del puesto que ocupa, bajo las condiciones señaladas en el Reglamento respectivo.

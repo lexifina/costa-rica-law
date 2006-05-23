@@ -1,0 +1,1 @@
+Artículo 122.—Del respeto a los derechos constituidos de buena fe: El presente Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores al amparo de las disposiciones laborales del Ministerio de Obras Públicas y Transportes y de la legislación conexa.

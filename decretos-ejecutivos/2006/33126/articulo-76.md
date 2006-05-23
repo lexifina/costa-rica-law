@@ -1,0 +1,1 @@
+Artículo 76.—De las autorizaciones con fines docentes: Cuando se trate de permisos para atender labores docentes, se procederá conforme a lo establecido en el artículo 39 del Reglamento del Estatuto de Servicio Civil.

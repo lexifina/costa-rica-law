@@ -1,0 +1,1 @@
+Artículo 53.—Del periodo de prueba: En todos los casos de ascenso o traslado de un puesto a otro, podrá aplicarse el período de prueba establecido para garantizar el mejor servicio público, cumpliendo las determinaciones que dispone el artículo 24 del Reglamento del Estatuto de Servicio Civil.

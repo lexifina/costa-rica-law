@@ -1,0 +1,1 @@
+Artículo 40.—De la ausencia: Se considerará ausencia, la inasistencia a un día completo de trabajo y como media ausencia, la inasistencia a una fracción de la jornada. Dos ausencias de media jornada se considerarán como una ausencia. No se pagará el salario que corresponde a las ausencias, excepción hecho de los supuestos de ley y de este reglamento, debidamente justificados.

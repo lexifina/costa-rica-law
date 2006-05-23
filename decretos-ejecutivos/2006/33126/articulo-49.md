@@ -1,0 +1,1 @@
+Artículo 49.—De la normativa aplicable: Serán aplicables en lo que a esto respecta, las disposiciones que emita sobre el particular la Dirección General del Servicio Civil, el Consejo de Personal cuando se trate de funcionarios cubiertos por el Régimen Policial y las resoluciones emitidas por la Oficina de Recursos Humanos.
