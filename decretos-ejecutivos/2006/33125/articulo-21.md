@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que la oferta no fuera aprobada, la Dirección Ejecutiva lo comunicará a la Dirección Financiera ambas direcciones pertenecientes al Consejo de Seguridad Vial, quien deberá informar al interesado de dicha denegatoria, en un plazo de 3 días hábiles.

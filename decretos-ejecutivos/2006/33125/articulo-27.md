@@ -1,0 +1,1 @@
+Artículo 27.—El Consejo de Seguridad Vial ajustará la garantía de cumplimiento rendida por el ente recaudador, siempre que se apliquen ajustes tarifarios o por otra causa a criterio del mismo. En tal caso el Consejo de Seguridad Vial notificará al ente recaudador, otorgando a éste un plazo de un mes para ajustar el monto de la nueva garantía.

@@ -1,0 +1,1 @@
+Artículo 19.—La Asesoría Legal citada previo al análisis de los aspectos legales involucrados, procederá a confeccionar el contrato de servicios indicado y a solicitar previamente la rendición de garantía de cumplimiento respectiva, todo ello en un plazo de 5 días hábiles.

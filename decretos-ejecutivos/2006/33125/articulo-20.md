@@ -1,0 +1,1 @@
+Artículo 20.—Formalizado el contrato señalado en el artículo anterior, la Asesoría Legal citada remitirá copia del texto a las partes interesadas, con el fin de que se coordine lo necesario para poner en marcha el servicio.

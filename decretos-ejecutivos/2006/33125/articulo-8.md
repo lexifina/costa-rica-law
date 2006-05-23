@@ -1,0 +1,1 @@
+Artículo 8º—Es responsabilidad y obligación del ente recaudador, tener la infraestructura necesaria para la prestación de sus servicios, previa revisión de un funcionario autorizado por el Consejo de Seguridad Vial.

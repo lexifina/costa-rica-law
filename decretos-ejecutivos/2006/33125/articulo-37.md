@@ -1,0 +1,3 @@
+Artículo 37.—El pago de la comisión al ente recaudador, se deberá pactar según sea más conveniente a los intereses de la Institución, bajo uno de los siguientes sistemas:
+a) Rebajando la comisión directamente por parte del recaudador y depositando el resto a la orden del Consejo de Seguridad Vial, de acuerdo con lo establecido en este reglamento.
+b) Cancelándola mensualmente previa verificación por parte del COSEVI de los montos recaudados. El Departamento de Tesorería de la Dirección Financiera, una vez verificada la respectiva comisión, realizará el correspondiente traspaso de fondos a la cuenta que indicare el ente recaudador.

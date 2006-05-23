@@ -1,0 +1,1 @@
+Artículo 22.—En caso de que la Garantía de Cumplimiento sobrepase lo estipulado en el artículo 26, inciso 4 de este Reglamento, deberá contar con el debido refrendo por parte de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 7º—El Consejo de Seguridad Vial podrá rescindir los contratos de aquellos entes recaudadores que incumplan sus deberes contractuales y las disposiciones contempladas en el presente reglamento.

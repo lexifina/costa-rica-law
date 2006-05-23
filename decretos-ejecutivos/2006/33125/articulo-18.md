@@ -1,0 +1,1 @@
+Artículo 18.—Si la Dirección Ejecutiva citada aprueba las recomendaciones señaladas en el artículo anterior, solicitará a la Asesoría Legal del Consejo de Seguridad Vial, en un plazo no mayor a 5 días hábiles, la confección del contrato correspondiente enviando copia de dicha solicitud a la Dirección Financiera de esa misma institución.

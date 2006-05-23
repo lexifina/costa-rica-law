@@ -1,0 +1,1 @@
+Artículo 30.—La presentación de la garantía de cumplimiento se regirá por las disposiciones del artículo 34 de la Ley de Contratación Administrativa y artículo 35 del Reglamento General de Contratación Administrativa.

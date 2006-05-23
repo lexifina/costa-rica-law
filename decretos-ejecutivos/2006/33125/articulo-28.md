@@ -1,0 +1,1 @@
+Artículo 28.—El ente recaudador podrá rendir su garantía mediante depósito de bono de garantía de uno de los bancos del Sistema Bancario Nacional, depósito a plazo o dinero en efectivo. En aquellos casos en los cuales se ofrezca como garantía cualquier título valor, éste deberá efectuarse a nombre del Consejo de Seguridad Vial o bien endosarse debidamente a su favor.

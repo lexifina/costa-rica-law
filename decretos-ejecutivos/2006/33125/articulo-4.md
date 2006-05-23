@@ -1,0 +1,1 @@
+Artículo 4º—El recaudador contratado, ostentará la representación del Consejo de Seguridad Vial en el servicio que presta, por lo que debe tratar al usuario como un demandante de la prestación del servicio público.

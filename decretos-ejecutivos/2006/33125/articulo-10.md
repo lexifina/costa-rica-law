@@ -1,0 +1,1 @@
+Artículo 10.—Este Reglamento constituye parte integral del contrato, así como cualquier otro documento en los que se especifiquen procedimientos administrativos y técnicos para la operación del servicio de recaudación.

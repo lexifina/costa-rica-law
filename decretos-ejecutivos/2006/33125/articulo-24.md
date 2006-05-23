@@ -1,0 +1,1 @@
+Artículo 24.—El ente recaudador al momento de transmitir la nota de crédito que respalda los pagos cobrados, asume la responsabilidad de que los dineros hayan sido depositados en las cuentas corrientes, según se indica en el párrafo anterior.
