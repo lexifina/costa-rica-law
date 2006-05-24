@@ -14,3 +14,4 @@ Reglamento de Recolección y Manejo de Desechos Sólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
+| 2 | 2006-05-24 | Reglamento municipal 4 (2006-05-24) |

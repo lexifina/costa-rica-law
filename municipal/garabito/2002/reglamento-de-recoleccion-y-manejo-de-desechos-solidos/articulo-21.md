@@ -1,1 +1,2 @@
-Artículo 21.—La disposición de desechos voluminosos, se hará previo pago en la Tesorería Municipal, de los metros cúbicos a depositar, conforme a la tarifa que posea en vigencia la Municipalidad. No se permitirá el ingreso de desechos voluminosos al relleno respectivo sin el recibo correspondiente de pago.
+Artículo 21.—La disposición de desechos voluminosos, se hará previo pago en la tesorería municipal o caja auxiliar autorizada, de acuerdo al tonelaje transportado y cuyo costo (en colones por tonelada) dependerá de la tarifa vigente en su momento. No se permitirá el ingreso de desechos voluminosos al relleno respectivo sin el recibo correspondiente de pago.
+(Así reformado en sesión N° 4 del 24 de mayo de 2006)
