@@ -1,0 +1,2 @@
+Artículo 5º—Responsabilidad sobre el Sistema de Control Interno. El jerarca institucional y la Administración en general son responsables de establecer, mantener, mejorar y evaluar el Sistema de Control Interno, así mismo, es responsabilidad de éstos tomar las medidas necesarias para garantizar el efectivo funcionamiento de dicho sistema.
+El Sistema de Control Interno debe ser aplicable, completo, razonable, integrado y congruente con las competencias y atribuciones de JASEC.

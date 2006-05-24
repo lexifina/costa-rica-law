@@ -1,0 +1,1 @@
+Artículo 14.—Protección de Personal de Auditoría. La Institución es responsable de brindarle apoyo jurídico y técnico al personal de Auditoría Interna, en caso que éste se vea involucrado en algún conflicto legal en el cumplimiento de sus funciones, de esta manera la Institución cubrirá los costos totales del proceso hasta la resolución final.

@@ -1,0 +1,2 @@
+Artículo 58.—Deberes de la Auditoría Interna en cuanto al Seguimiento y Monitoreo. La Auditoría deberá valorar la calidad del funcionamiento del Sistema de Control Interno a lo largo del tiempo, para verificar que la administración se encuentre encauzada hacia la consecución de los objetivos organizacionales y tome las medidas correctivas pertinentes.
+Asimismo, deberá verificar que las recomendaciones propuestas hayan sido implementadas en el periodo de tiempo y espacio establecido.

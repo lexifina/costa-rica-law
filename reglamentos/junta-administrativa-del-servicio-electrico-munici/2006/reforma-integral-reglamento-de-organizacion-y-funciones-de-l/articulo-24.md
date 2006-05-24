@@ -1,0 +1,1 @@
+Artículo 24.—Cualidades y capacidades. Los funcionarios de Auditoría Interna deberán contar con habilidad para comunicarse tanto en forma verbal como escrita, así mismo poseer las cualidades necesarias para relacionarse de la mejor forma con el resto del personal de la organización, con la finalidad de lograr su colaboración en las investigaciones que emprenda la unidad.

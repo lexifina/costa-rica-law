@@ -1,0 +1,11 @@
+Artículo 31.—Deberes.—Los deberes del personal de Auditoría Interna de JASEC son:
+a) Elaborar un informe al final de cada investigación que realice la Auditoría Interna, en el cual, se debe incluir el dictamen emitido por el Auditor Interno donde se establecen las conclusiones a las que se llegó con la realización del estudio. Así mismo se debe exponer los hallazgos y ofrecer un listado de posibles recomendaciones para solucionarlos, las cuales deben estar fundamentadas legalmente con la finalidad de minimizar el riesgo de que se vuelvan a presentar ese tipo de anomalías en la Institución. La información contenida en dicho informe será calificada como confidencial, excepto para las partes involucradas, las cuales tendrán libre acceso a todos los documentos y pruebas que consten en el expediente administrativo.
+b) Controlar y evaluar el Sistema de Control Interno implementado por la administración así como proponer las respectivas medidas correctivas.
+c) Realizar investigaciones abarcando las diferentes unidades que conforman la estructura orgánica de JASEC, el orden en el cual se realizarán los diferentes estudios dependerá de las características y necesidades del área respectiva según la evaluación hecha previamente por los funcionarios de Auditoría Interna.
+d) Guardar confidencialidad respecto de la identidad de los ciudadanos que, de buena fe, presenten ante sus oficinas denuncias por actos de corrupción.
+e) Cumplir las competencias asignadas por ley.
+f) Colaborar en los estudios que la Contraloría General de la República de Costa Rica y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
+g) Administrar, de manera eficaz, eficiente y económica los recursos del proceso del que sea responsable.
+h) Cumplir su trabajo con el debido cuidado y la pericia que se esperan de un auditor interno razonablemente prudente y competente. El debido cuidado profesional no implica infalibilidad.
+i) Tener suficientes conocimientos para identificar los indicadores de fraude y de corrupción para actuar según corresponda, pero no es de esperar que tengan conocimientos similares a los de aquellas personas cuya responsabilidad principal, es la detección e investigación del fraude y la corrupción.
+j) Cumplir los otros deberes atinentes a su competencia

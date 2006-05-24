@@ -1,0 +1,1 @@
+Artículo 33.—Componentes del Plan Anual de Trabajo de Auditoría Interna. El Plan Anual de Actividades estará enfocado a abarcar actividades relacionadas con las áreas de Auditoría Financiero- Contable y Auditoría Técnico-Operativa y demás estudios extraordinarios de Auditoría.

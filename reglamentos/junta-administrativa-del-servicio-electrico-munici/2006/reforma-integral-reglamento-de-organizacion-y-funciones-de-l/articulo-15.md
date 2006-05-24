@@ -1,0 +1,1 @@
+Artículo 15.—Asignación de recursos. El jerarca es responsable de brindarle a la Auditoria Interna los recursos necesarios para que realice un oportuno, eficiente y eficaz cumplimiento del plan de trabajo, los cuales pueden ser de tipo humano, tecnológico, material, económico, de espacio físico, de transporte o de cualquier otra naturaleza.
