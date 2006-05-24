@@ -1,0 +1,1 @@
+Artículo 15.—Las tarjetas de estacionamientos deberán colocarse en lugares visibles de la parte inferior interna del parabrisas delantero, de forma que quede claramente visible a los inspectores la indicación del año, mes, día, hora y minutos de llegada al lugar de estacionamiento.

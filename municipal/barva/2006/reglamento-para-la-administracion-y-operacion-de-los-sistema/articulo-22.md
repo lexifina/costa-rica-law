@@ -1,0 +1,1 @@
+Artículo 22.—El personal del COLOSEVI por medio de los inspectores, tendrán a su cargo la vigilancia de este reglamento para el distrito central de Barva, los que están obligados a velar por la aplicación del mismo.

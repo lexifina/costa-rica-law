@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad mediante solicitud del COLOSEVI y en caso de conveniencia municipal, queda facultada para establecer zonas de carga y descarga, así como para delimitar su extensión y los horarios de funcionamiento.

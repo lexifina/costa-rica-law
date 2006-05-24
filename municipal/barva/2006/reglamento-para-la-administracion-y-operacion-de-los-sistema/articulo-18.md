@@ -1,0 +1,1 @@
+Artículo 18.—Los vehículos utilizados por personas con discapacidad y los destinados al transporte de estas personas deberán de utilizar también las boletas de estacionamiento, de lo contrario serán sancionados con el parte correspondiente.

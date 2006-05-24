@@ -1,0 +1,1 @@
+Artículo 4º—En la zona demarcada de amarillo donde no esté autorizado el uso de boletas, no se permitirá el estacionamiento de vehículos automotores. El conductor que estacione su vehículo irrespetando esta disposición, quedará sujeto a la multa correspondiente.

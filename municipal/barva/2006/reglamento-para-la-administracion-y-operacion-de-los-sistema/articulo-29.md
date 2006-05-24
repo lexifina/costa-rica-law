@@ -1,0 +1,1 @@
+Artículo 29.—Se autoriza el uso de estacionamiento permanente en zonas céntricas y no céntricas. La zona o espacio para estacionamiento permanente no podrá exceder de las medidas señaladas en el artículo siete de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 35.—Las tarifas a pagar por el uso de zonas o espacios para estacionamiento permanente se determinará de la siguiente manera:
+El valor por hora multiplicado por el número de horas del funcionamiento diario por el número de días habilitados dentro de cada mes, la suma establecida deberá ser cancelada mensualmente por adelantado, en las cajas recaudadoras de la Municipalidad de Barva. El incumplimiento del pago de una mensualidad autoriza a la Municipalidad para rescindir el contrato sin responsabilidad alguna.

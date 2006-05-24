@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad de Barva por medio de inspectores velará por el cumplimiento en el pago de la tasa establecida en este reglamento, quienes reportarán los vehículos que infrinjan la ley en caso necesario. El jefe de sección, nombrado por COLOSEVI pasará el respectivo parte o aviso, al departamento de tesorería de cada infracción cometida.

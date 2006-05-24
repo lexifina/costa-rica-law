@@ -1,0 +1,1 @@
+Artículo 24.—Para el mejor cumplimiento de este reglamento, la Municipalidad y la dirección de tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración. Los inspectores están investidos de autoridad para las actuaciones oficiales en ese respecto de acuerdo con lo establecido en la ley 3580 del 2 de noviembre de 1975.

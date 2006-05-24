@@ -1,0 +1,1 @@
+Artículo 16.—Los usuarios de este servicio podrán ocupar los lugares de estacionamiento, por el tiempo que hayan pagado y que así se indique en la tarjeta, de igual forma los usuarios podrán prolongarlo mediante la colocación de otras tarjetas, cuyo fin del período pagado coincida con el inicio del tiempo que indique la tarjeta siguiente.

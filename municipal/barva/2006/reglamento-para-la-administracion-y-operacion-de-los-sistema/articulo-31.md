@@ -1,0 +1,1 @@
+Artículo 31.—Los espacios de estacionamiento permanente podrán otorgarse a uno o más adjudicatarios por períodos que van desde un mes a un año, conforme con el interés de los solicitantes o la conveniencia municipal. La dependencia responsable podrá a su criterio prorrogar el plazo de adjudicación o renunciarlo si lo considera conveniente.

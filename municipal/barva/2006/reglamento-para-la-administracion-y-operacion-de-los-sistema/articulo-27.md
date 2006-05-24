@@ -1,0 +1,1 @@
+Artículo 27.—La Municipalidad de Barva, por medio de la sección a cuyo cargo esté la regulación de estacionamientos removerá todos aquellos obstáculos que sean ubicados en esta área, mismos que serán despojados en coordinación con la autoridad respectiva.

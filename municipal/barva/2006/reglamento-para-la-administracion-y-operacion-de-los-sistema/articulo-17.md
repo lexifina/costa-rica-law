@@ -1,0 +1,1 @@
+Artículo 17.—Las tarjetas se venderán en las cajas recaudadoras de la Municipalidad de Barva y en los establecimientos mercantiles autorizados por esta Municipalidad. Estos últimos o cualquier persona que compre un valor superior a los ¢5.000,00 en tarjetas, tendrá un 5% de descuento sobre el precio.

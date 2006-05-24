@@ -1,0 +1,1 @@
+Artículo 21.—Quedarán sujetos a correspondientes sanciones que indica la ley penal y el artículo diecinueve de este reglamento aquellos propietarios de vehículos que comentan alteraciones o fraudes en las tarjetas de estacionamiento.

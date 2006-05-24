@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE BARVA
+REGLAMENTO PARA LA ADMINISTRACIÓN Y OPERACIÓN
+DE LOS SISTEMAS DE ESTACIONAMIENTOS
+AUTORIZADOS EN LA CIUDAD DE BARVA
+La Municipalidad de Barva mediante el acuerdo Nº 404-06 del Concejo Municipal, tomado en su sesión ordinaria Nº 27-2006, celebrada en el Salón de Sesiones a las diecisiete horas con treinta minutos del día 08 de mayo de 2006, aprobó el siguiente reglamento, al cual, después de haber sido sometido a consulta pública no vinculante mediante su publicación en La Gaceta Nº 213 del lunes 1º de noviembre del 2004, no se le realizaron modificaciones.
+Cabe mencionar que mediante el oficio Nº 4905 (FOE-IP-160), de la División de Fiscalización Operativa y Evaluativa de la Contraloría General de la República, con fecha 06 de abril del 2006, aprobó la tarifa de ¢300,00 por hora, por el servicio de estacionamiento de vehículos en el casco del distrito primero de Barva.
+Artículo 1º—La Municipalidad, a través de la dependencia denominada Consejo Local de Seguridad Vial, COLOSEVI, designará y controlará las zonas en espacios públicos para que funjan como estacionamientos regulados bajo cobro, su ubicación deberá estar acorde con los lineamientos establecidos para el funcionamiento de la vialidad y el tráfico en el cantón. La asignación de los espacios y el control de los mismos deberá coordinarse con la dirección general de ingeniería de tránsito y la dirección de policía de tránsito del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 5º—Es prohibido el estacionamiento de vehículos particulares en las zonas oficiales. El conductor que estacione su vehículo irrespetando esta disposición, quedará sujeto a la multa correspondiente.

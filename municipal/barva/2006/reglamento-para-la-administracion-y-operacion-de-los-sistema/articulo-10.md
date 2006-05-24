@@ -1,0 +1,1 @@
+Artículo 10.—En las zonas donde no exista demarcación para el cobro del estacionamiento y no lo prohíba la ley de tránsito, el estacionamiento será gratuito. Tampoco se cobrará tasa por los espacios que ocupan paradas terminales o fijas de los servicios de transporte público, ni en los espacios libres que se requieran para la entrada a garajes.

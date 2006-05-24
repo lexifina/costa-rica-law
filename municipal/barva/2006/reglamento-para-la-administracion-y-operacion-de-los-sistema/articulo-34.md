@@ -1,0 +1,1 @@
+Artículo 34.—Las zonas oficiales, para discapacitados y las paradas del transporte público serán demarcadas bajo el criterio técnico de la ingeniería de tránsito del Ministerio de Obras Públicas y Transportes, previo acuerdo de la Municipalidad de Barva.

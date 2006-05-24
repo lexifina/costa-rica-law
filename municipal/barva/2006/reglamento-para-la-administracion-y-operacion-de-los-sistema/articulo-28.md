@@ -1,0 +1,1 @@
+Artículo 28.—Espacios y zonas para discapacitados. La Municipalidad de Barva, por medio de la sección a cuyo cargo esté la regulación de estacionamientos demarcará en cada cien metros al menos un espacio exclusivamente para estacionamiento de personas con discapacidad y los vehículos debidamente identificados para transportar a personas con discapacidad.

@@ -1,0 +1,1 @@
+Artículo 33.—Los adjudicatarios de espacios permanentes estarán obligados por su cuenta a demarcar con pintura blanca los espacios adjudicados conforme le indique la oficina encargada, a vigilar y controlar el uso de los espacios adjudicados y a colocar en lugar visible de la parte frontal del negocio la autorización extendida por la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 37.—Los derechos de zonas o espacios, podrán ser revocados cuando se consideren convenientes a los intereses de la Municipalidad, al interés público o cuando se compruebe que no se está dando el uso debido para la cual fue solicitado. La revocatoria de la adjudicación será comunicada debidamente justificada y por escrito al interesado.
