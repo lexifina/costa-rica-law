@@ -25,15 +25,9 @@ ii. Los fideicomisos y contratos de administración que emiten algún tipo de pa
 iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
 (*) C.—Tasas de Encaje
 Las tasas de Encaje Mínimo Legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-(*) 1 El 15,0% sobre la sumatoria de los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, así como sobre la sumatoria de las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración. .
+(*) 1. El 15,0% sobre la sumatoria de los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, así como sobre la sumatoria de las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración.
 (*) (Así reformado el numeral anterior en sesión N° 5276 del 26 de abril de 2006)
 2. El 15,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-16 de julio del 2005 | 13,5%
-16 de agosto del 2005 | 15,0%
-(*) (Así reformado el literal anterior en sesión N° 5235 del 15 de junio de 2005)
-3. El 15,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
 16 de julio del 2005 | 13,5%
@@ -60,10 +54,17 @@ CONTROL DE LA SITUACIÓN DE ENCAJE
 En el cálculo intervendrán todos los días de la quincena, para los fines de semana y días feriados se repite la información del último día hábil anterior.
 En el caso de operaciones denominadas en unidades de desarrollo, el monto requerido se obtendrá de aplicar la tasa de encaje mínimo legal vigente al promedio quincenal de los saldos de estos pasivos expresados en colones, conversión que se realizará utilizando el valor de la UD correspondiente a la fecha de constitución de la obligación sujeta a encaje.
 (*) (Así reformado el literal anterior en sesión N° 5276 del 26 de abril de 2006)
-(*) B. Las entidades que tienen operaciones sujetas a los requerimientos de encaje están obligadas a mantener en el Banco Central de Costa Rica, en forma de depósitos en cuenta corriente, un monto cuyo promedio quincenal no debe ser menor al encaje mínimo legal resultante de lo dispuesto en el Literal A. El control del encaje se realizará con base en el promedio quincenal de los depósitos en cuenta corriente al final del día, con un rezago de cinco días naturales, es decir, el promedio del depósito se empezará a computar el sexto día después de iniciada la quincena natural.
+(*) B. Las entidades que tienen operaciones sujetas a los requerimientos de encaje están obligadas a mantener en el Banco Central de Costa Rica, en forma de depósitos en cuenta corriente, un monto que no debe ser menor al encaje mínimo legal resultante de lo dispuesto en el literal A.
+El control del encaje contemplará los siguientes elementos:
+1) Se realizará con base en el promedio quincenal de los depósitos en cuenta corriente al final del día, con un rezago de cinco días naturales, es decir, el promedio del depósito se empezará a computar el sexto día después de iniciada la quincena natural.
+2) Además, durante todos y cada uno de los días del período de control del encaje (del día 6 al día 20 del mes t ó del día 21 del mes t al día 5 del mes t+1), el saldo al final del día de los depósitos en el Banco Central no deberá ser inferior al 90% del encaje mínimo legal requerido de la quincena anterior.
 En caso de que un intermediario opere custodias auxiliares de numerario (CAN), el saldo diario considerado para efectos de ese promedio quincenal tendrá dos componentes aditivos: el primero de ellos es el saldo de depósitos disponibles en el BCCR al final del día y, el segundo, es el promedio ponderado, por tiempo de permanencia a lo largo del horario bancario, de los depósitos en cuenta corriente cuya naturaleza responde al numerario que esos intermediarios financieros mantienen en las CAN.
 Se entiende por depósitos disponibles la diferencia entre el saldo de los depósitos en cuenta corriente en el BCCR menos aquellos que se originan en el numerario que esos intermediarios financieros mantienen en las CAN.
-(*) (Así reformado el literal anterior en sesión N° 5276 del 26 de abril de 2006)
+TRANSITORIO
+Para efectos de atender lo dispuesto en el punto 2 de este literal, aplicará la siguiente gradualidad:
+-A partir del seguimiento del encaje mínimo legal correspondiente a la segunda quincena del mes de junio del 2006, deberán mantener durante todos y cada uno de los días del período de control de encaje, al menos un 85% del encaje mínimo legal requerido de la quincena anterior.
+-A partir del seguimiento del encaje mínimo legal correspondiente a la segunda quincena del mes de setiembre del 2006 el porcentaje diario aumenta de un 85% a un 90%.
+(*) (Así reformado el literal anterior en sesión N° 5280 del 24 de mayo de 2006)
 (*) C. El control técnico de la situación de encaje de los intermediarios financieros y bursátiles corresponde, por su orden, a la Superintendencia General de Entidades Financieras y a la Superintendencia General de Valores. Las entidades sujetas al control de las precitadas Superintendencias, deberán enviar a su respectivo órgano supervisor, dentro de un plazo máximo de ocho días naturales siguientes al fin de cada una quincena natural, un estado que muestre su situación de encaje, de acuerdo con los procedimientos determinados por la Junta Directiva del Banco Central de Costa Rica.
 En dicha situación de encajes se deberá incluir, separadamente, la información relativa a los fideicomisos y comisiones de confianza que están sujetos al encaje, según los formatos establecidos por la respectiva Superintendencia.
 (*) (Así reformado el literal anterior en sesión N° 5276 del 26 de abril de 2006)
@@ -75,8 +76,16 @@ G. La SUGEF, la SUGEVAL y la SUPEN deberán informar a la Junta Directiva del Ba
 (*) (Así reformado este Capítulo II en sesión N° 4949 del 1° de abril de 1998)
 CAPITULO III
 Incumplimiento de los requisitos de encaje mínimo legal
-(*) A. Se entenderá por "insuficiencia en el encaje mínimo legal" aquella situación en la que el estado de encaje de una entidad muestre deficiencia en el promedio quincenal del depósito en cuenta corriente, con respecto al requerimiento promedio de encaje mínimo legal, según la metodología de cálculo indicada en los literales A y B del Capítulo II.
-(*) (Así reformado el literal anterior en sesión N° 5276 del 26 de abril de 2006)
+(*) A. Se entenderá por “insuficiencia en el encaje mínimo legal” cualesquiera de las siguientes situaciones:
+1) El estado de encaje muestre deficiencia en el promedio quincenal de depósito en cuenta corriente, con respecto al requerimiento promedio del encaje mínimo legal, según la metodología de cálculo indicada en el punto 1 del literal B del Capítulo II.
+2) No mantenga cada día del período de control del encaje (del día 6 al día 20 del mes t ó del día 21 del mes t al día 5 del mes t+1) en depósitos en el BCCR al menos un 90% del encaje mínimo legal requerido de la quincena inmediata anterior.
+En este último caso (punto 2) no se considerará desencaje si la entidad puede demostrar que el incumplimiento de ese porcentaje mínimo no implicó mantener un nivel de depósitos inferior al 15% que resultaría exigible del saldo de las operaciones sujetas a encaje para el día en el cual se presentó el incumplimiento.
+El monto de la insuficiencia en el encaje mínimo legal estará determinado por la sumatoria de la deficiencia en el promedio quincenal del depósito en cuenta corriente, según lo indicado en el punto 1 de este literal y, el monto de la insuficiencia diaria calculada según lo señalado en el punto 2 del presente literal.
+TRANSITORIO
+Para efectos del cumplimiento del punto 2 de este literal, aplicará la siguiente gradualidad:
+• A partir del seguimiento del encaje mínimo legal correspondiente a la segunda quincena del mes de junio del 2006, se entenderá por insuficiencia de encaje cuando no se mantenga cada día del período de control del encaje en depósitos en el BCCR al menos un 85% del encaje mínimo legal requerido de la quincena inmediata anterior.
+• A partir del seguimiento del encaje mínimo legal correspondiente a la segunda quincena del mes de setiembre del 2006 se entenderá por insuficiencia de encaje cuando no se mantenga cada día del período de control del encaje en depósitos en el BCCR al menos un 90% del encaje mínimo legal requerido de la quincena inmediata anterior.
+(*) (Así reformado el literal anterior en sesión N° 5280 del 24 de mayo de 2006)
 (*) B. Cuando se presente una insuficiencia en el encaje mínimo legal la Superintendencia General de Entidades Financieras y la Superintendencia General de Valores, según sea el caso, enviará una nota de apercibimiento al Gerente de la entidad infractora e informará inmediatamente, por escrito, a la Gerencia y a la Junta Directiva del Banco Central de Costa Rica, según lo dispuesto en el Artículo 67 de la Ley 7558. Esta última nota deberá contener toda la información pertinente al período, monto del desencaje y el detalle de la multa total a cobrar y venir acompañada por los atestados técnicos emanados del sistema informatizado encargado de mostrar las deficiencias quincenales en los encajes mínimos legales, así como de cualquier nota de descargo enviada por la entidad financiera desencajada y el respectivo criterio técnico de la Superintendencia competente.
 (*) (Así reformado el literal anterior en sesión N° 5276 del 26 de abril de 2006)
 C. Conocida la insuficiencia por parte de la Junta Directiva, el Director de la División Servicios Financieros del Banco Central de Costa Rica, o quien éste designe, procederá a debitar la cuenta de reserva de la entidad, (infractora o bien, generar la acción de cobro a dicha entidad en el caso que no tuviese cuenta de reserva por el total de la multa indicada por la Superintendencia correspondiente. Por tanto, la Superintendencia respectiva calculará la multa con base en la suma resultante de aplicar al monto del desencaje en la quincena de la insuficiencia en el encaje, una tasa de interés equivalente a la tasa cobrada en las operaciones de crédito de redescuento, de la siguiente manera:
