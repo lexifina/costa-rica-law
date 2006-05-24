@@ -1,0 +1,6 @@
+Artículo 47.—Requisitos para aprobar el curso. Los agentes de seguridad privados sujetos a la aplicación de la Ley y del presente Reglamento, cuando así se requiera deberán aprobar los cursos exigidos para cada modalidad de servicio, como requisito previa a su inscripción en la Dirección.
+Para aprobar el curso, el estudiante deberá cumplir con los siguientes requisitos:
+1. Matricularse en una entidad debidamente autorizada.
+2. Realizar y aprobar la prueba correspondiente de comprobación de conocimientos adquiridos que le aplicará la entidad autorizada o la Dirección en conjunto con la Escuela Nacional de Policía, con nota mínima de un setenta por ciento, dentro de una escala de uno a cien por ciento.
+La Escuela Nacional de Policía emitirá directrices para establecer la modalidad bajo la cual puede ser impartido el curso, así como en lo que respecta a la aplicación de la prueba dicha. Dicha directriz será publicada en el Diario Oficial La Gaceta en un plazo de sesenta días después de la entrada en vigencia del presente Reglamento.
+La Escuela Nacional de Policía, podrá modificar la directriz doce meses después de publicada la última, la cual entrará en vigencia un mes después, sin detrimento de los derechos adquiridos de buena fe.

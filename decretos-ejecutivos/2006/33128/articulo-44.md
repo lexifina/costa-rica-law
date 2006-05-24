@@ -1,0 +1,3 @@
+Artículo 44.—Plazo para resolver la solicitud. La Escuela Nacional de Policía resolverá en un plazo de treinta días, las solicitudes de autorización '6F renovación para impartir cursos a que hace referencia la Ley y este Reglamento.
+Dentro de este término prevendrá por una sola vez al interesado, sobre la presentación o complementación de cualquier requisito. Notificada la prevención, el interesado dispondrá de quince días para su presentación.
+Vencido este término sin que la empresa haya cumplido a cabalidad con la prevención que se le hiciera, se resolverá y comunicará lo pertinente dentro de los quince días siguientes.

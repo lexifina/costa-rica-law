@@ -1,0 +1,14 @@
+Artículo 80.—Plan operativo. Para poder prestar cada servicio, la empresa de seguridad deberá acreditar ante la empresa contratante su inscripción vigente en el registro de la Dirección, el listado de los agentes que participarán en el respectivo evento y su inscripción actualizada como tales, el plan operativo o de seguridad, el cual deberá contener los siguientes apartados:
+1. Detalle de las acciones de seguridad preventiva, de control de espectadores, filtros, control y revisiones en los puntos de accesos y salidas, recorridos de los agentes. Lo anterior, antes, durante y después de la actividad, indicar el nombre responsable del plan de seguridad, así como un número de teléfono donde localizarlo.
+2. Detalle de las acciones a emprender y los procedimientos a seguir en caso de peligro o emergencia, provocados por alteraciones del orden, incendios, fenómenos naturales y similares.
+3. Relación lógica, entre el plan operativo, cantidad de agentes y cantidad de participantes del evento.
+4. Listado total de agentes y cantidad de ellos que participarán en labores exclusivas de seguridad.
+5. Ubicación por medio de un croquis, funciones y responsabilidad de cada uno de los agentes de seguridad.
+6. Descripción detallada del equipo a utilizar por los agentes de seguridad, el cual deberá ser el legalmente permitido, tales como radios, cordones, varas policiales y otros. Descripción detallada
+de equipo auxiliar tal como plantas de electricidad, electrónico, comunicaciones y otros. Descripción del uniforme.
+7. Plan de seguridad perimetral, estableciendo las vías principales, alternas y de emergencia, así como una descripción detallada de las instalaciones y terreno donde se desarrollará la actividad.
+8. Croquis del lugar en donde se desarrollará el evento, indicando accesos, salidas, filtros, zonas de seguridad, salidas de emergencia, puestos de ventas, tarimas, colindancias físicas, naturales y artificiales, servicios sanitarios, vías principales y secundarias.
+9. Plan de contingencia contemplando las acciones de evacuación del sitio, acciones y procedimientos a seguir en casos de peligro o emergencia, y los sistemas de comunicación a utilizar para la prevención y para la movilización de las masas.
+10. Acciones a tomar en la implementación de filtros de seguridad, incluyendo los mecanismos de seguridad para evitar el ingreso de objetos punzo cortantes, armas de fuego, artefactos pirotécnicos y otros que puedan representar un riesgo para la seguridad de las personas y de las cosas.
+11. Detallar un plan de seguridad física que contemple las medidas a desarrollar en caso de una invasión de aficionados o infiltración de público a un determinado espacio por sectores no autorizados.
+12. En caso de eventos deportivos en los que se presuma la participación de grupos de aficionados organizados, el puesto de mando de la Fuerza Pública deberá contar con un registro de los mismos, proveído por los organizadores del evento.

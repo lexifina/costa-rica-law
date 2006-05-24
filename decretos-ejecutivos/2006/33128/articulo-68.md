@@ -1,0 +1,1 @@
+Artículo 68.—Uniforme y credencial. Los agentes de seguridad privada que brinden el servicio de respuesta a las llamadas de alarma, durante el desempeño de sus funciones usarán el uniforme y el distintivo de la empresa, registrado previamente ante la Dirección. De igual forma, portarán en un lugar visible la credencial extendida por la Dirección.

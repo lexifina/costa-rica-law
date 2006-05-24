@@ -1,0 +1,1 @@
+Artículo 85.—Encuentro de personas escondidas. El encuentro de personas escondidas debe ponerse al menos, con tres minutos de anticipación antes de la búsqueda, sin embargo, el instructor canino puede ordenar tiempo adicional para ese efecto.

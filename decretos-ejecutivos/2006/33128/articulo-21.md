@@ -1,0 +1,1 @@
+Artículo 21.—Facultades y atribuciones del secretario. La Comisión de Servicios de Seguridad Privados nombrará un secretario, quien tendrá las facultades y atribuciones señaladas en el numeral 14 del presente Reglamento.

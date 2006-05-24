@@ -1,0 +1,2 @@
+Artículo 38.—Plazo para una nueva prueba psicológica. En caso de que la prueba psicológica correspondiente declare que el solicitante no es apto para ejercer como agente de seguridad privada, ésta podrá ser realizada nuevamente dentro del término de dos años contados a partir de la fecha en que fue expedido el dictamen que contiene el resultado negativo.
+Si la Dirección lo estima pertinente, podrá consultar el dictamen psicológico aportado por el petente, ante el Colegio Profesional de Psicólogos.

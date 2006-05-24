@@ -1,0 +1,3 @@
+Artículo 16.—Actas de las sesiones. De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, de las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación, y el contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros de la Comisión.
+Las actas deberán ser firmadas por todos los miembros asistentes a la sesión.

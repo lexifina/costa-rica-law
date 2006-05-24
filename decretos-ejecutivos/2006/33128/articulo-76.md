@@ -1,0 +1,1 @@
+Artículo 76.—Del registro de vehículos. La Dirección llevará un registro de los vehículos utilizados como instrumento de seguridad para la custodia y transporte de valores. En dicho registro se deberá consignar el nombre de la empresa a la que pertenece el automotor, marca, año, número de placa, blindaje y demás características que la Dirección fije mediante directriz.

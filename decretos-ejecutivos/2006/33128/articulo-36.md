@@ -1,0 +1,2 @@
+Artículo 36.—Registro de firmas. La Dirección llevará un registro de firmas de los psicólogos habilitados para realizar las pruebas psicológicas, con base en la información remitida por el Colegio de Psicólogos. Para que la Dirección admita el dictamen de idoneidad mental emitido por el psicólogo autorizado, su firma deberá constar en el registro respectivo.
+La firma registrada y la rubricada en el dictamen de idoneidad mental deben ser iguales.

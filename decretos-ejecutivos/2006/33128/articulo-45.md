@@ -1,0 +1,3 @@
+Artículo 45.—Plazo de la autorización. La autorización para impartir los cursos a que hace referencia la Ley y este Reglamento, tendrá una vigencia de cinco años, y la misma podrá ser renovada por periodos iguales, salvo denegación mediante resolución fundada del Director de la Escuela Nacional de Policía.
+La autorización otorgada podrá ser revocada mediante resolución motivada, previo debido proceso, cuando el autorizado incumpla con lo dispuesto en la Ley o en el presente Reglamento.
+La Escuela Nacional de Policía comunicará a la Dirección, la autorización de cada entidad para realizar los cursos de capacitación establecidos, así como cualquier renovación o modificación sobre los mismos.

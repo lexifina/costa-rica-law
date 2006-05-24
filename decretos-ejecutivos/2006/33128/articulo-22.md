@@ -1,0 +1,1 @@
+Artículo 22.—Disposiciones aplicables a la Comisión de Servicios de Seguridad Privados. En lo que respecta a las sesiones de la Comisión de Servicios de Seguridad Privados, las actas de dichas sesiones, así como los recursos de revisión contra los acuerdos de la Comisión, les será aplicable lo dispuesto en los numerales 15, 16 y 17 del presente Reglamento.

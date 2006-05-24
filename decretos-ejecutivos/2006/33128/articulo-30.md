@@ -1,0 +1,2 @@
+Artículo 30.—Recursos. Si la solicitad de inscripción o renovación de licencia es rechazada o denegada por el Director, el solicitante podrá impugnar dicho acto dentro de los tres días siguientes a su notificación, interponiendo los recursos ordinarios establecidos en la Ley General de la Administración Pública.
+Tanto el recurso de revocatoria como el de apelación, deberán ser resueltos en el plazo de un mes, de conformidad, al artículo 261, inciso 2) de la Ley indicada.
