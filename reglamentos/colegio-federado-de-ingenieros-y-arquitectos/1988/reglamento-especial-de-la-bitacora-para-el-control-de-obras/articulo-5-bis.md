@@ -1,0 +1,3 @@
+Artículo 5-Bis:Antes de iniciarse cualquier construcción, el profesional responsable deberá dejar una razón de apertura en el Cuaderno de Bitácora, indicando expresamente la fecha en que da inicio la obra y dejando constancia de que se han cumplido con todos los requisitos legales para iniciar esa construcción.
+Esa razón de apertura también deberá ser firmada por todos aquellos profesionales del C.F.I.A., que hayan sido reportados como profesionales responsables, en las respectivas áreas del ejercicio profesional. El incumplimiento de esta obligación se considerará una violación de las obligaciones contenidas en el artículo 3 del Código de Ética Profesional del C.F.I.A.
+(Así adicionado en sesión N° 20 del 25 de mayo de 2006)
