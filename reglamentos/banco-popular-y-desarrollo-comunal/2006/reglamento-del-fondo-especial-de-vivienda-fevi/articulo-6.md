@@ -1,0 +1,3 @@
+Artículo 6º—Sobre las excepciones a la normativa crediticia del BPDC. Para otorgar crédito con fondos del FEVI, se podrán hacer las siguientes excepciones respecto al Reglamento General de Crédito del BPDC.
+a) Se puede dar crédito a personas físicas con historial crediticio externo nivel 3, siempre y cuando el cliente posea un historial crediticio nivel 1 ó 2 en el BPDC.
+b) Se permite que un cliente asalariado sin deducción de planilla adquiera un compromiso de hasta el 60% de su salario bruto. En el caso de clientes con ingresos propios, se permite un nivel de compromiso de hasta el 55% de su ingreso bruto. Para efectos del cálculo del compromiso aplican las condiciones establecidas en el Reglamento General de Crédito del BPDC.
