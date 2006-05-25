@@ -1,0 +1,3 @@
+Artículo 10.—De las tasas de interés. Para la fijación de las tasas de interés de los créditos, deberá considerarse lo siguiente:
+a) La tasa de interés del crédito podrá ser hasta 2 puntos superior a la tasa de interés activa vigente al momento de la formalización que rija en la línea o sublínea de crédito equivalente del BPDC.
+b) La Gerencia General del BPDC podrá ajustar y revisar las tasas de interés, dentro del rango establecido en el punto anterior, aspecto que deberá especificarse en el contrato de crédito de cada prestatario y deberá ser comunicado a la Junta Directiva Nacional en un lapso no mayor a los ocho días hábiles posteriores a la implementación.

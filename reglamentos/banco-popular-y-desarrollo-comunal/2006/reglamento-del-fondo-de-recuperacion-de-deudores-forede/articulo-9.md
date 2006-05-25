@@ -1,0 +1,1 @@
+Artículo 9º—Propósito de los préstamos. Los recursos crediticios canalizados a los prestatarios de manera directa por el FOREDE, se podrán destinar únicamente a las líneas de crédito personal y personal social establecidas en el Reglamento General de Crédito del BPDC.

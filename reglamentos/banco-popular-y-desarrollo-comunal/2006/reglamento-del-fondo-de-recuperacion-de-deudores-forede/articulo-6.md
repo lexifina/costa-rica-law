@@ -1,0 +1,1 @@
+Artículo 6º—De las garantías. Para los créditos otorgados con recursos FOREDE se podrán aceptar las mismas garantías y en las mismas condiciones establecidas en el Reglamento General de Crédito del BPDC.

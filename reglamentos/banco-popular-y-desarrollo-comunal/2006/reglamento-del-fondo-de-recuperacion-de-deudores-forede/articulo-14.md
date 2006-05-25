@@ -1,0 +1,1 @@
+Artículo 14.—Plazos. El plazo máximo del crédito será el establecido en el Reglamento General de Crédito del BPDC para crédito personal. La Gerencia General del BPDC podrá ajustar y revisar el plazo del crédito siempre que no sobrepase este límite.

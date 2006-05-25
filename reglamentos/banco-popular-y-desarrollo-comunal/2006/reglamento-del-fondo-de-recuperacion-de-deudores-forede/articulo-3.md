@@ -1,0 +1,1 @@
+Artículo 3º—Fuentes de los recursos. Las fuentes de recursos serán las estipuladas en el inciso b del artículo 40 LOBPDC y que se estipula en el Capítulo 5 del Reglamento General de Fondos Especiales.

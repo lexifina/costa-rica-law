@@ -1,0 +1,1 @@
+Artículo 4º—Sobre los sujetos de crédito del FOREDE. Para ser un sujeto de crédito de FOREDE, toda persona física debe ser una persona con un historial crediticio externo nivel 3, siempre y cuando posea un historial crediticio nivel 1 ó 2 en el BPDC, debiendo cumplir los demás requerimientos para ser sujeto de crédito, establecidos en el Reglamento General de Crédito del BPDC.
