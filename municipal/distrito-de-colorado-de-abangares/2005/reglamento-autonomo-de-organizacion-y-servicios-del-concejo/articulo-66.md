@@ -1,0 +1,1 @@
+Artículo 66.—La persona que denuncia hostigamiento sexual falso, podrá incurrir, cuando así se tipifique, un cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal.

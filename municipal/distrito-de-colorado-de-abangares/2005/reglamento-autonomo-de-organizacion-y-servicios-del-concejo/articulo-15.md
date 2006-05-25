@@ -1,0 +1,1 @@
+Artículo 15.—Se establece la Carrera Administrativa municipal, como medio de desarrollo y promoción humanos. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre los servidores y la administración municipal.

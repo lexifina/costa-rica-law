@@ -1,0 +1,1 @@
+Artículo 95.—La municipalidad podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y que no cause grave perjuicio a los trabajadores y deberá comunicarlo con un mínimo de tres días de anticipación.

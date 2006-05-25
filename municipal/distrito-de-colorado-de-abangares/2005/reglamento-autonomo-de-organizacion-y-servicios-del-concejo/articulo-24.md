@@ -1,0 +1,1 @@
+Artículo 24.—El Concejo Municipal para efectos de Reclutamiento y Selección de Personal, mantendrá actualizado un Manual, que fijará las pautas para garantizar los procedimientos, la uniformidad y los criterios de equidad que exige la normativa legal.

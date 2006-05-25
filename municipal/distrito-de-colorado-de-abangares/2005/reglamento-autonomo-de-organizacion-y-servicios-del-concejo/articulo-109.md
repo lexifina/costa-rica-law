@@ -1,0 +1,1 @@
+Artículo 109.—Se considerarán ausencias la inasistencia a un día completo de trabajo. La falta a una fracción de la jornada se computará como la mitad de una ausencia. La municipalidad no está obligada a pagar el salario por ausencias, salvo las excepciones por ley. Las ausencias por enfermedad deberán ser comprobadas mediante dictamen médico expedido por la CCSS o por el INS.

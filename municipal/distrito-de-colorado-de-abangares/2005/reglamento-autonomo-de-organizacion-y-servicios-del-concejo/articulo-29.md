@@ -1,0 +1,1 @@
+Artículo 29.—Todo funcionario (a) del Concejo Municipal de Colorado deberá pasar satisfactoriamente un periodo de prueba hasta de tres meses de servicio, contados a partir de la fecha de vigencia del acuerdo de su nombramiento.

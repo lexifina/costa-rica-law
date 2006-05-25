@@ -1,0 +1,1 @@
+Artículo 105.—Las amonestaciones verbales o escritas se deberán imponer dentro de los ocho días posteriores a aquel en que se cometió la falta o que los representantes patronales la conocieron, y la suspensión o despido en el transcurso del mes posterior al día en que se cometió la falta o los representantes patronales la conocieron.
