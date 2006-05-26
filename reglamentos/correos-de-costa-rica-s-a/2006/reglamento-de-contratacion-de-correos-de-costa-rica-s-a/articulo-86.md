@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Disposiciones finales
+Artículo 86.—De su entrada en vigencia. Conforme al artículo 12 inciso f) del Reglamento a la Ley Nº 7768 “Ley de Correos”, el presente Reglamento rige a partir de su publicación el Diario Oficial La Gaceta.

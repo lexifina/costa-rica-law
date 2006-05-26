@@ -1,0 +1,4 @@
+Artículo 5º—Del Registro de Proveedores. Durante el primer trimestre de cada año, Compras y Contrataciones invitará a todos los interesados a formar parte del Registro mediante la publicación de un anuncio en un diario de circulación nacional.
+Es entendido que en cualquier momento se permitirá la incorporación al Registro.
+Podrá participar en la contratación cualquier proveedor no registrado siempre y cuando cumpla con los requisitos y condiciones exigidos en la invitación o requerimiento.
+Quienes ya formen parte del Registro no se verán obligados a acreditar, documentalmente, ningún requisito relativo a la persona física o jurídica que participa, o las calidades o condiciones de la empresa, salvo en los casos de sustitución de personeros o de información adicional solicitada en el requerimiento.

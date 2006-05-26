@@ -1,0 +1,1 @@
+Artículo 70.—Arrendamiento de bienes muebles. Correos podrá tomar o dar en arriendo bienes muebles, equipo o maquinaria con opción de compra o sin ella, para lo cual deberá seguir los procedimientos de contratación especial, o general según corresponda, de acuerdo con el monto estimado.
