@@ -14,3 +14,4 @@ Reforma Reglamento de las Asambleas para la Elección de los Representantes de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-12 | la propia norma |
+| 2 | 2006-05-26 | Reglamento 0 (2006-05-26) |
