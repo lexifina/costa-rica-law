@@ -14,3 +14,4 @@ Reglamento de Servicios de Trabajadores de Comedores Escolares de las Institucio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-02-21 | la propia norma |
+| 2 | 2006-05-26 | Decreto Ejecutivo 33315 (2006-05-26) |
