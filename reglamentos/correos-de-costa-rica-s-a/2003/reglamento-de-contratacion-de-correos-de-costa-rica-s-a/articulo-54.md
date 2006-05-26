@@ -1,1 +1,0 @@
-Artículo 54.—Acceso al expediente. Una vez realizado el acto de apertura, se garantiza la posibilidad de acceso a los oferentes al expediente de la contratación, lo cual se adecuará a las posibilidades que a ese efecto se establezcan mientras se realizan los estudios respectivos.

@@ -1,1 +1,0 @@
-Artículo 36.—Verificación del régimen de prohibición. El Jefe de Compras y Contrataciones está obligado a verificar el cumplimiento y respeto del régimen de prohibiciones establecido en los artículos anteriores.
