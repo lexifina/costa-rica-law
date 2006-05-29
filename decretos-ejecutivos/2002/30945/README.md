@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Sistema Nacional de vigilancia 
 | --- | --- | --- |
 | 1 | 2003-01-27 | la propia norma |
 | 2 | 2006-02-07 | Decreto Ejecutivo 32980 (2006-02-07) |
+| 3 | 2006-05-29 | Decreto Ejecutivo 33214 (2006-05-29) |
