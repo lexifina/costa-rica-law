@@ -1,0 +1,1 @@
+Artículo 43.—Los cheques que se emitan con cargo al fondo de caja chica deberán ser girados a nombre de la persona encargada del manejo del Fondo, salvo que se trate de solicitudes de adelanto de dinero conforme lo dispuesto en el artículo siguiente.

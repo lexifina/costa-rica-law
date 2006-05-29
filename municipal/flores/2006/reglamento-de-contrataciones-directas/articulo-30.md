@@ -1,0 +1,1 @@
+Artículo 30.—En caso de contratos de arrendamiento, de servicios profesionales u otros similares de pagos periódicos, o en los que determine el Concejo Municipal, se omitirá la confección de la respectiva orden de compra. En estos supuestos, el pago se tramitará con la factura timbrada del adjudicatario.

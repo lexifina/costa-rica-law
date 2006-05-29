@@ -1,0 +1,1 @@
+Artículo 32.—Una vez cumplidos los términos de la contratación, el órgano competente gestionará con la Proveeduría los pagos correspondientes, sean totales o parciales. El Departamento de Tesorería confeccionará y entregará el cheque respectivo.

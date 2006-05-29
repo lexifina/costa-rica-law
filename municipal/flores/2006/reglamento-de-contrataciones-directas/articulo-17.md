@@ -1,0 +1,1 @@
+Artículo 17.—De conformidad al artículo 65 de la Ley de Contratación Administrativa, ninguna contratación de servicios ya sea técnica o profesional, generará relación de empleo público, con las excepciones señaladas en el artículo 67 de la misma ley.

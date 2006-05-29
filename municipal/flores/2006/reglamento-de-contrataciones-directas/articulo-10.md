@@ -1,0 +1,1 @@
+Artículo 10.—El órgano competente deberá analizar las distintas ofertas presentadas por los oferentes, para así elegir la que más convenga a los intereses de la Municipalidad. Para ello, podrá contar con la asesoría de cualquier otro órgano de la Municipalidad que estime necesario.

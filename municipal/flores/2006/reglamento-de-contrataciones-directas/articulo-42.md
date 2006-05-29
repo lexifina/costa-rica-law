@@ -1,0 +1,1 @@
+Artículo 42.—La solicitud de pago con fondos de caja chica la debe realizar el órgano competente en los términos fijados en los artículos 22 y 23 anteriores. Dicho órgano tendrá un plazo de tres días para demostrar el recibido de los bienes y servicios adquiridos, y efectuar la liquidación respectiva.

@@ -1,0 +1,1 @@
+Artículo 15.—Las contrataciones por servicios profesionales deben ser claras en cuanto a las condiciones, características, naturaleza del trabajo a realizar y el precio a contratar. Se entenderá que dichas contrataciones por servicios profesionales no son continuas ni permanentes.

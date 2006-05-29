@@ -1,0 +1,1 @@
+Artículo 31.—El órgano competente exigirá la garantía de cumplimiento al adjudicatario en los supuestos en que así lo determine el Alcalde Municipal, respetando los términos dispuesto en el artículo 35 del Reglamento General de Contratación Directa.

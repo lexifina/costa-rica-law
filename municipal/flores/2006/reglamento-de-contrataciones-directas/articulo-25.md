@@ -1,0 +1,1 @@
+Artículo 25.—Las distintas dependencias competentes programarán sus necesidades de bienes y servicios a más tardar el último día de mayo a la elaboración del presupuesto, de manera que los trámites de compra se realicen con el tiempo suficiente para adquirir los mismos en las mejores condiciones.

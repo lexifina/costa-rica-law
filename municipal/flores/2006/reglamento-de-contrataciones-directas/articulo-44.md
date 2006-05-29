@@ -1,0 +1,1 @@
+Artículo 44.—El Tesorero podrá hacer adelantos de dinero a cualquier funcionario de la Municipalidad para gastos de viaje. En este supuesto, el funcionario deberá presentar la liquidación de gastos dentro de los tres días hábiles siguientes de la gira o viaje.
