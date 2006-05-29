@@ -14,3 +14,4 @@ Reglamento al Régimen de dedicación Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-03 | la propia norma |
+| 2 | 2006-05-29 | Reglamento municipal 30 (2006-05-29) |
