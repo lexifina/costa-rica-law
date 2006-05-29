@@ -14,3 +14,4 @@ Reglamento de Sesiones, Acuerdos y Comisiones Municipales de la Municiplidad del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-03 | la propia norma |
+| 2 | 2006-05-29 | Reglamento municipal 4 (2006-05-29) |

@@ -1,2 +1,2 @@
-Artículo 15°—El uso de la palabra se concederá en el orden que fuera solicitada por un lapso máximo de tres minutos por tema en discusión. Cuando se solicite réplica, se permitirá una segunda intervención, la que en ningún caso será mayor a un minuto.
-Cuando lo considere pertinente, el Presidente del Concejo, requerirá que se concretice la intervención, en caso de renuncia retirará el uso de la palabra
+Artículo 15.—El uso de la palabra se concederá en el orden que fuera solicitada, por un lapso máximo de cinco minutos por tema en discusión. Cuando se solicite réplica, se permitirá una segunda intervención, la que en ningún caso será mayor a un minuto. Cuando lo considere pertinente, el presidente del concejo requerirá que se concretice la intervención, en caso de la renuncia retirará el uso de la palabra.
+(Así reformado mediante sesión 4 celebrada el 29 de mayo del 2006)
