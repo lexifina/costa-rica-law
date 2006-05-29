@@ -1,0 +1,9 @@
+Artículo 9º—Requisitos del expediente de crédito. Los expedientes de crédito deberán contener la siguiente información:
+a) Solicitud de crédito completa y firmada por el solicitante o por su legítimo apoderado.
+b) Copia de la cédula de identidad o de residencia del solicitante que se encuentre vigente, o del legítimo apoderado.
+Flujo de caja preparado y refrendado por un funcionario de la organización intermediaria, de una organización de apoyo al sector o del Banco, con indicación clara de la viabilidad financiera del proyecto, ya sea en el caso de emprendimientos o MYPES en funcionamiento. En el caso de operaciones de crédito con períodos de desembolso o de gracia mayores a un año, esos flujos deberán renovarse cada doce meses a partir de la fecha de constituida la operación.
+En el caso de proyectos nuevos, se deberá solicitar estudios que demuestren su viabilidad económica y financiera. Estos serán solicitados a criterio del órgano resolutivo y podrán ser preparados por una organización especializada en el apoyo al sector, previamente facultada, o por el funcionario autorizado del Banco.
+c) Un diagnóstico en el cual se especifique la situación actual de la unidad económica o en su defecto, los alcances de la idea de negocios en el caso de los emprendimientos. Deberá presentarse además un análisis del proyecto, así como las medidas de monitoreo y acompañamiento necesarias para su desarrollo y crecimiento.
+Este diagnóstico y la recomendación podrán ser elaborados por la incubadora de empresas, la organización intermediaria o el Banco.
+d) Toda documentación que de conformidad con este Reglamento acompañe la solicitud de crédito, debe tener no más de dos meses de expedida al momento de su recepción.
+e) Cualquier otro documento que el funcionario responsable del análisis considere indispensable.

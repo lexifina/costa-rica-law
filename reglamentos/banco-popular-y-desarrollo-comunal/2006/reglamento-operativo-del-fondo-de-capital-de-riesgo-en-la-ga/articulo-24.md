@@ -1,0 +1,2 @@
+Artículo 24.—Del uso del aval. Cuando un crédito avalado por el FOCARI no sea utilizado dentro de los dos meses contados desde la fecha de aprobación, el aval otorgado quedará sin efecto, circunstancia que deberá constar en el respectivo documento de crédito.
+En caso de créditos por desembolsos u otro tipo de condición, el órgano resolutivo, mediante resolución motivada, podrá ampliar ese plazo, de acuerdo con la solicitud que formule el prestatario.

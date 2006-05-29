@@ -1,0 +1,2 @@
+Artículo 19.—Tope de los préstamos. El monto de los préstamos directos otorgados por el Banco o aquellos atendidos por organizaciones intermediarias con recursos FOCARI, no podrán superar los USA $20.000 (veinte mil dólares estadounidenses).
+El monto de los préstamos que el Banco otorgue a las organizaciones intermediarias no podrá superar el monto establecido por la Dirección de Banca de Desarrollo para este tipo de intermediarios.

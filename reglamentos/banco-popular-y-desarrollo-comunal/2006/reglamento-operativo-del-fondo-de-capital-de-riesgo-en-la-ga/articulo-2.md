@@ -1,0 +1,22 @@
+Artículo 2º—Definiciones. Para los efectos de este Reglamento operativo, se establecen las siguientes definiciones:
+Actividad productiva: Toda actividad que combine dos o más factores de producción (tierra, capital, trabajo, conocimiento), con el objetivo de obtener un bien o servicio final, para ser vendido en un mercado determinado.
+Aval o fianza: Compromiso que asume una persona de pagar una obligación a cargo de otra.
+Banco: Banco Popular y de Desarrollo Comunal.
+Emprendedor: Es un individuo innovador, creador o transformador de nuevos métodos para penetrar o desarrollar mercados; de personalidad creativa, que trata de transformar sus posibilidades en oportunidades de negocios económicamente viables. Es una persona que percibe la oportunidad que ofrece el mercado y ha tenido la motivación, el impulso y la habilidad de movilizar o buscar recursos a fin de cumplir su objetivo.
+FOCARI: Es el fondo de capital de riesgo para la creación, fortalecimiento y desarrollo de empresas o proyectos productivos, compuesto por tres vertientes: créditos, avales, asistencia técnica y capacitación.
+Flujo de caja: Flujo de los ingresos y gastos esperados de proyectos que se vayan a financiar o avalar con recursos FOCARI, utilizado para determinar la factibilidad económica y financiera de un proyecto, mediante las técnicas financieras generalmente aceptadas.
+Incubadoras de empresas: Son entidades que procuran acelerar el proceso de creación, crecimiento y consolidación de empresas innovadoras a partir de las capacidades emprendedoras de los usuarios de sus servicios. Para efectos de este Reglamento se clasificarán en:
+a) Cerradas: Son aquellas en las que los usuarios se ubican físicamente en un mismo lugar y comparten la estructura logística y de apoyo que la incubadora les proporciona.
+b) Abiertas: Aquellas en las que la atención logística por parte de la incubadora se da de manera separada a cada usuario en sus propias instalaciones.
+Línea de crédito: Crédito revolutivo que se le aprueba a las organizaciones intermediarias y prestatarios directos, canalizados con recursos del FOCARI.
+Metodología de detección de emprendedores: Metodología utilizada para la detección de la capacidad y perfil de emprendedor de una persona que posea o pretenda poseer una empresa.
+Microfinanzas: Administración de cantidades reducidas de dinero, en segmentos de bajos ingresos, a través de una diversidad de productos de captación y colocación, mediante un sistema de funciones de intermediación que hacen circular el dinero en la economía.
+MYPES: Micro y pequeñas empresas pertenecientes al sector informal cuya diferenciación en cuanto a tamaño se establece siguiendo la clasificación de empresas establecida en el artículo 3 del Reglamento General a la Ley Nº 8262 de Fortalecimiento de las Pequeñas y Medianas Empresas.
+Organizaciones intermediarias: Organizaciones públicas o privadas formalmente constituidas y con reconocida experiencia, que el Banco Popular autorizará para actuar como Banca de Segundo Piso de conformidad con los requisitos que la Junta Directiva aprobará para tal fin.
+Órganos resolutivos: Los establecidos en el Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal para la concesión de créditos.
+Prestatarios directos: Clientes que el Banco atienda directamente con recursos del FOCARI.
+Recursos de Asistencia Técnica y Capacitación: Son recursos del FOCARI, destinados a una organización pública o privada, con el fin de brindarle acompañamiento y asesoría técnica, financiera, organizativa y cualquier otro que los prestatarios o potenciales prestatarios del FOCARI, requieran en ese ámbito.
+Sector informal: Segmento de unidades económicas constituidas o en proceso de constitución de una empresa, con proyectos económicamente viables, cuyos propietarios han superado la línea de subsistencia, pero que no son sujetos de crédito de conformidad con los requisitos estipulados en el Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal.
+Subproceso de Fondos Especiales: Subproceso encargado del manejo administrativo del FOCARI u otros Fondos Especiales que se llegara a crear, en concordancia con las funciones que se establezcan en este Reglamento y las que designe la Dirección de Banca de Desarrollo.
+Unidades económicas: MYPES.
+Unidad productiva de subsistencia: Microempresa de autoempleo cuyo ingreso neto le permite a su propietario únicamente adquirir la canasta básica establecida por el Instituto Nacional de Estadística y Censos (INEC).

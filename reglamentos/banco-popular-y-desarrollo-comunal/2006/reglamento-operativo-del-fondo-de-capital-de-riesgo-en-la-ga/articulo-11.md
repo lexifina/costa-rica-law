@@ -1,0 +1,1 @@
+Artículo 11.—De las garantías reales. Las garantías reales que otorguen a favor del Banco las organizaciones intermediarias o los prestatarios directos de recursos FOCARI, deberán cumplir con los aspectos y requisitos establecidos en el Reglamento General de Crédito del Banco Popular.

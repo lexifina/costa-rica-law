@@ -1,0 +1,3 @@
+Artículo 25.—De las comisiones. De aprobarse el aval respectivo, tanto los prestatarios directos del FOCARI como los atendidos por las organizaciones intermediarias deberán pagar las siguientes comisiones:
+a) Por la formalización de los avales, la cual será de hasta un 2% del monto del aval otorgado y se cobrará por una única vez de previo a la formalización.
+b) Por la administración de las garantías, que será de hasta un 2%, suma que se cobrará anualmente sobre el saldo vigente de la deuda, y de acuerdo con los procedimientos establecidos por la Dirección de Banca de Desarrollo, en cuanto a la forma y el tiempo para efectuar el cobro de la comisión.

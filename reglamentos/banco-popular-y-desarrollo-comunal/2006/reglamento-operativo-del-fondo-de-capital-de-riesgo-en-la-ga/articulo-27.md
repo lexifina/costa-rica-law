@@ -1,0 +1,2 @@
+Artículo 27.—Tope de los avales. Los avales para proyectos en funcionamiento no podrán superar el 80% del monto del crédito.
+En el caso de proyectos nuevos o ideas productivas, si al aplicar la metodología de detección de emprendedores se determina que solicitante cumple con los parámetros óptimos que se establezcan en esa materia, se podrá avalar hasta un 100% del crédito otorgado, sin que medie otro tipo de garantías.

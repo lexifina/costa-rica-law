@@ -1,0 +1,1 @@
+Artículo 26.—Del pago de las comisiones. Las comisiones a que se refiere el artículo anterior serán cobradas por el Banco o por la organización intermediaria, y deberán depositarse a favor del FOCARI, al momento de formalizado el aval o cuando corresponda de acuerdo con las políticas que se fijen para tal efecto.
