@@ -1,1 +1,3 @@
-Artículo 13.—Junto con la fórmula "Reintegro del Fondo", el encargado del Fondo deberá adjuntar todos los comprobantes de egreso (CAS!) que respalden las salidas de efectivo y los comprobantes que respalden el gasto.
+CAPÍTULO III
+De las liquidaciones y reintegro
+Artículo 13.—La Tesorería deberá preparar una liquidación de los gastos efectuados para solicitar los reintegros, cuando el gasto corresponda al menos con el 70% del total asignado. Para ello se utilizará la fórmula llamada “Reintegro del Fondo”. Asimismo, deberá preparar una liquidación el último día hábil de cada mes con la fórmula “Reintegro del Fondo”.

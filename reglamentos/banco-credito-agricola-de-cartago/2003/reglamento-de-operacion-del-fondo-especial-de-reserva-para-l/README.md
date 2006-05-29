@@ -14,3 +14,4 @@ Reglamento de Operación del Fondo Especial de Reserva para la Administración y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-13 | la propia norma |
+| 2 | 2006-05-29 | Reglamento 0 (2006-05-29) |

@@ -1,3 +1,11 @@
 CAPÍTULO II
 De la operación
-Artículo 8º—Todo pago efectuado con recursos del Fondo, deberá estar autorizado por el Coordinador del Área de Desarrollo Científico y Tecnológico y respaldado por el documento llamado "Comprobante de adelanto" (CA1), en el que se detallará la fecha, el nombre completo de la persona a quien se le dio el dinero, el monto en letras y números; así como el concepto por el que giró el dinero. Se deberá adjuntar el comprobante a los formularios indicados en el artículo 10. Esta fórmula debe estar debidamente firmada por el Coordinador del Área de Desarrollo Científico y Tecnológico y por el funcionario beneficiario, debe contar con la autorización del Coordinador Administrativo Financiero y firmada por el encargado de caja quien ejecutará la transacción. En el caso de que el usuario sea el Coordinador del Área de Desarrollo Científico y Tecnológico, este formulario deberá contar con la aprobación del Secretario Ejecutivo. Con la excepción de los gastos de viáticos a que se refiere el artículo 5, para montos superiores y cualquier otro gasto administrativo deberá contar además con la autorización previa del Secretario Ejecutivo.
+Artículo 8º—Todo pago efectuado con recursos del Fondo, deberá se presentado en el formulario “Liquidación de Gastos” y deberá contener lo siguiente:
+a. Reserva presupuestaria.
+b. Autorización del Coordinador del Área de Desarrollo Científico y Tecnológico.
+c. Debe estar respaldado por el documento llamado “Comprobante de adelanto”, en el que se detallará la fecha, el nombre completo de la persona; a quién se le dio el dinero, el monto en letras y números.
+d. La factura o el comprobante que respalde el gasto.
+e. Debe cumplir con lo que establece el artículo 10 de este Reglamento.
+f. Firmado por el Coordinador del Área Administrativa-Financiera.
+g. Firmado por la Tesorería, quien ejecutará la transacción.
+h. En el caso de que el usuario sea el Coordinador del Área de Desarrollo Científico y Tecnológico, este formulario deberá contar con la aprobación de la Secretaria Ejecutiva. Con la excepción de los gastos de viáticos a que se refiere el artículo 5.

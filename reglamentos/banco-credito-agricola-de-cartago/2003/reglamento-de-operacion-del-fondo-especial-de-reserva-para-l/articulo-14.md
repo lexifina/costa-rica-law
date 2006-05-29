@@ -1,1 +1,1 @@
-Artículo 14.—El Coordinador Administrativo y Financiero, solicitará a BANCRÉDITO, administrador del Fideicomiso Nº 25-02, reintegrar al Fondo los recursos utilizados una vez que haya recibido y revisado los documentos que justifiquen los desembolsos y la necesidad de reintegrar al fondo el monto gastado, que serán remitidos a BANCRÉDITO.
+Artículo 14.—Junto con la fórmula “Reintegro del Fondo”, la Tesorería deberá adjuntar todos los comprobantes de egreso que respalden las salidas de efectivo y los comprobantes que respalden el gasto.

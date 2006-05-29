@@ -1,4 +1,1 @@
-Artículo 9º—Todo documento que respalde la salida de efectivo del Fondo, compra de materiales, pago de servicios y otros, deberá cumplir con lo siguiente:
-a) Estar confeccionado en original a nombre del Fideicomiso 25-02 CONICIT/BANCRÉDITO.
-b) Indicar claramente los bienes, materiales o servicios que se han comprado o han recibido.
-c) No contener borrones, tachaduras, ni otro tipo de alteraciones que hagan dudar su legitimidad.
+Artículo 9º—Todo pago realizado por medio del Fondo de Caja Chica, debidamente autorizados por la Tesorería, no puede se superior al 20% del fondo. Para montos superiores, se deberá contar con la autorización previa de la Secretaría Ejecutiva. Se exceptúa el pago de viáticos a que se refiere el artículo 5.

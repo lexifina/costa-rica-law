@@ -1,1 +1,4 @@
-Artículo 11.—Todo adelanto de dinero, deberá ser liquidado en un plazo máximo de tres días hábiles posteriores a la finalización de la actividad que originó el gasto. El funcionario que tenga pendiente una liquidación no podrá solicitar otro anticipo hasta tanto no liquide el anterior.
+Artículo 11.—Se constituirá como respaldo de las salidas de efectivo del Fondo, los siguientes formularios, confeccionados para tal fin por la Contraloría General de la República.
+a) Liquidaciones de viáticos. Se utilizará exclusivamente para liquidar los gastos de viaje en el interior del país.
+b) Uso de transporte de servicio público. Se utilizará para declarar el uso de taxis, buses u otros medios de transporte.
+c) Otros formularios diseñados por la Contraloría General de la República que sean útiles y necesarios.
