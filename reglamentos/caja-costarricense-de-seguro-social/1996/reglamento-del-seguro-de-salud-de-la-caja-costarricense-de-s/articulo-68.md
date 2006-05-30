@@ -1,3 +1,3 @@
-Artículo 68º. Del cumplimiento de los salarios mínimos.
-Cuando los salarios consignados a los trabajadores en planillas sean inferiores a los que señale el Decreto de Salarios Mínimos vigente, la aceptación de las planillas por parte de la Caja no libera al patrono de su obligación de ajustar las cuotas correspondientes al monto de los salarios reales devengados, que en ningún caso serán inferiores a los salarios mínimos establecidos por el Decreto respectivo.
-Es entendido que en todo caso, la cotización mínima a pagar, será la que señale el articulo 63º de este Reglamento.
+Artículo 68.—Del cumplimiento de los salarios mínimos. Cuando los salarios o ingresos consignados a los trabajadores asalariados o independientes en planillas sean inferiores a los que señale el decreto de salarios mínimos vigente, la aceptación de las planillas por parte de la Caja no libera al patrono o trabajador independiente de su obligación de ajustar las cuotas correspondientes al monto de los salarios o ingresos reales devengados.
+Es entendido que, en todo caso, la cotización mínima por pagar será la que señale el artículo 63 de este Reglamento.
+(Así reformado mediante sesión N°8061 del 30 de mayo del 2006).
