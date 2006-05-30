@@ -14,3 +14,4 @@ Reglamento al Régimen de dedicación exclusiva del Banco Crédito Agrícola de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-25 | la propia norma |
+| 2 | 2006-05-30 | Reglamento 7938 (2006-05-30) |
