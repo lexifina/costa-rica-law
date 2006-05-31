@@ -14,3 +14,4 @@ Reglamento Registro y Control de Bienes Muebles de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-16 | la propia norma |
+| 2 | 2006-05-31 | Acuerdo 15 (2006-05-31) |

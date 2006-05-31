@@ -1,1 +1,2 @@
 Artículo 30.—Declaración previa para el desecho de bienes muebles o equipo. Para donar bienes muebles y equipo que ha sido desechado, debe haber una declaración previa de la unidad capacitada para dictaminarlo. Asimismo, se debe comunicar al Departamento de Proveeduría para que proceda a eliminarlo del inventario, lo cual no podrá completarse hasta que los activos hayan sido entregados a los beneficiarios.
+(Así reformado mediante acuerdo N° 15 del 31 de mayo del 2006)
