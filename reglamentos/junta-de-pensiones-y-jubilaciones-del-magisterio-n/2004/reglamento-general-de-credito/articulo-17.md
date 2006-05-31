@@ -1,4 +1,3 @@
-CAPÍTULO IV
-Análisis, formalización y cobro
-Artículo 17.—Formalización. El proceso de análisis de la solicitud presentada por el interesado, en cualquiera de las diferentes líneas, se iniciará cuando éste haya presentado, a satisfacción del Área de Crédito, la totalidad de los requisitos previamente definidos en este reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
-La responsabilidad de determinar la fecha de formalización de los préstamos otorgados, le corresponde al Departamento Financiero- Contable, el cual coordinará los trámites internos y externos que se requieran para los casos que así lo ameriten, tomando en consideración el flujo de efectivo y el número de solicitudes que se estén administrando simultáneamente.
+Artículo 17.—Sustitución de garantías. La Junta de Pensiones se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
+Cualquier sustitución de garantías debe ser aprobada expresamente por la Junta Directiva de la Institución, excepto lo concerniente a las líneas de crédito para gastos personales, salud y derechos sucesorios.
+(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 16 al 17 actual).

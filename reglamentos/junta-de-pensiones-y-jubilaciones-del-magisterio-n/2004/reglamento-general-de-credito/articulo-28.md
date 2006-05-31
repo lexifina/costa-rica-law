@@ -1,2 +1,2 @@
-Artículo 28.—Excepciones. Se podrán autorizar hasta un máximo de dos prórrogas de pago por sujeto de crédito. La primera será autorizada por la Dirección Ejecutiva y la segunda por la Junta Directiva, cada una de las cuales no podrá exceder un plazo superior a seis meses. Se autoriza a la Dirección Ejecutiva, para que en casos de excepción se solicite una fianza solidaria o garantía real de funcionarios activos del Magisterio Nacional, previa recomendación del estudio técnico elaborado por el Departamento Financiero.
-(Así reformado mediante sesión N°132 del 30 de noviembre del 2005).
+Artículo 28.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos, sin que por ello deba pagar suma adicional alguna.
+(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 27 al 28 actual).
