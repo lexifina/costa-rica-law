@@ -12,3 +12,4 @@ Regula Oficialía Mayor y Direccción General Administrativa de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-10-20 | la propia norma |
+| 2 | 2006-05-31 | Decreto Ejecutivo 33200 (2006-05-31) |
