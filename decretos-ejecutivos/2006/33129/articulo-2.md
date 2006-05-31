@@ -1,0 +1,1 @@
+Artículo 2º—Garantía. La garantía que debe rendir el funcionario obligado para ello, será por medio de una póliza de fidelidad suscrita con el Instituto Nacional de Seguros, misma que será con cargo a su propio peculio. Dicha póliza será a favor del Ministerio de Seguridad Pública.
