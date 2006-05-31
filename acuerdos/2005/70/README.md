@@ -15,3 +15,4 @@ Disposiciones para la entrega del Fondo de Capitalización Laboral (FCL)
 | --- | --- | --- |
 | 1 | 2005-12-19 | la propia norma |
 | 2 | 2006-01-23 | Acuerdo 72 (2006-01-23) |
+| 3 | 2006-05-31 | Acuerdo 76 (2006-05-31) |
