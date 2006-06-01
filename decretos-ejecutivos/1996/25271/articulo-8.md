@@ -1,2 +1,2 @@
-Artículo 8°—La Unidad Técnica de Recursos Humanos confeccionará un prontuario a efecto de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicios en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios, calidades del funcionario(a).
-(Así modificada nomenclatura por el artículo 1° del decreto ejecutivo N° 26144 del 12 de junio de 1997)
+Artículo 8°—*Departamento de Gestión del Potencial Humano confeccionará un prontuario a efecto de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicios en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios, calidades del funcionario(a).
+*(Modificada su denominación por el inciso 1 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)

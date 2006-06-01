@@ -3,5 +3,6 @@ La Asesoría Jurídica del Ministerio de Hacienda será la encargada de realizar
 El órgano director de procedimiento aplicará, para la averiguación de la verdad real de los hechos, el procedimiento ordinario contemplado en los artículos 308 y siguientes de la Ley General de la Administración Pública, estando sujeto a los plazos establecidos en la misma Ley.
 Terminado el procedimiento ordinario, el órgano director remitirá el expediente administrativo al Consejo de Personal quien resolverá en definitiva sobre la absolución, suspensión o destitución del servidor.
 Emitido el acto final de procedimiento, el Consejo de Personal remitirá el expediente al Ministro para que conozca, de oficio, recurso de apelación, contemplado en el artículo 84 de la Ley General de Policía.
-El expediente administrativo de absolución, sanción o destitución deberá constar en el expediente personal que, de cada servidor, llevará la Unidad Técnica de Recursos Humanos.
+El expediente administrativo de absolución, sanción o destitución deberá constar en el expediente personal que, de cada servidor, llevará el *Departamento de Gestión del Potencial Humano.
+*(Modificada su denominación por el inciso 1 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 33081 del 28 de febrero de 2006)

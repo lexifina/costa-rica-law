@@ -6,5 +6,5 @@ b) Nombre de la persona denunciada y lugar de trabajo.
 c) Indicación de las manifestaciones de acoso sexual que afecta a la persona denunciante.
 d) Fecha aproximada a partir de la cual ha sido víctima del acoso sexual.
 e) Firma de la persona denunciante y de quien recibe la denuncia.
-Durante los dos días hábiles siguientes a la presentación de la denuncia, corresponderá a la oficina que la recibió informar mediante oficio en sobre cerrado al Coordinador (a) de la Unidad Técnica de Recursos Humanos, al Ministro(a) de Hacienda y a la Defensoría de los Habitantes.
-(Así modificada nomenclatura por el artículo 1° y 2° del decreto ejecutivo N° 26144 del 12 de junio de 1997)
+Durante los dos días hábiles siguientes a la presentación de la denuncia, corresponderá a la oficina que la recibió informar mediante oficio en sobre cerrado al Coordinador (a) del *Departamento de Gestión del Potencial Humano, al Ministro(a) de Hacienda y a la Defensoría de los Habitantes.
+*(Modificada su denominación por el inciso 1 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
