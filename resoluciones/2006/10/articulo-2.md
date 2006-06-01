@@ -31,7 +31,7 @@ h) Cualesquiera otras que le asigne la Dirección General y la Subdirección Gen
 a) Desarrollar e implementar un Sistema de Planificación y Gerencia Tributaria acorde con las exigencias del entorno y la estructura funcional de la Dirección General de Tributación.
 b) Elaborar el manual de procedimientos del sistema de planificación y gerencia tributaria.
 c) Guiar la formulación del plan estratégico y de los planes operativos anuales emitidos por la Dirección General de Tributación.
-d) Elaborar, en coordinación con los niveles gerenciales, el Plan Anual de Capacitación de acuerdo con la detección de necesidades de capacitación y con fundamento en el conocimiento de los resultados de las evaluaciones de capacitación.
+d) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 e) Asegurar la planificación e integración de planes de control tributario de la Dirección General de Aduanas, Policía de Control Fiscal y Dirección General de Hacienda.
 f) Elaborar los anteproyectos de presupuestos ordinarios y extraordinarios con fundamento en el programa anual de necesidades de recursos materiales y de compras, que se deberá preparar en coordinación con los niveles gerenciales.
 g) Emitir directrices que permitan medir el desempeño de la organización.
@@ -41,9 +41,9 @@ j) Evaluar periódicamente la relevancia, ingerencia e información de los infor
 k) Desarrollar y administrar un programa de monitoreo de desempeño del empleado y de un sistema de apreciación a través del cual se habilite el desembolso de pagos de incentivos basados en estándares o evaluaciones del desempeño, en coordinación con la Unidad Técnica de Recursos Humanos del Ministerio de Hacienda.
 l) Evaluar y proponer los cambios que considere oportunos para adaptar la estructura organizativa y ocupacional de la Dirección General de Tributación.
 m) Dar seguimiento al cumplimiento de las disposiciones de los Informes de la Contraloría General de la República e informar oportunamente a la Dirección General cuando se presenten factores que puedan incidir negativamente en el cumplimiento de las actividades programadas para cumplir con estas disposiciones.
-n) Desarrollar y dirigir capacitaciones gerenciales.
+n) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 o) Proveer asesoría y asistencia técnica en lo relativo a planificación y gerencia tributaria.
-p) Formular y ejecutar estrategias de comunicación y capacitación.
+p) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 q) Realizar estudios económicos de la gestión tributaria.
 r) Desarrollar compilaciones estadísticas acompañadas por explicaciones analíticas concernientes a actividades tributarias, en coordinación con los directores de División.
 s) Cualesquiera otras que le asigne la Dirección General.
