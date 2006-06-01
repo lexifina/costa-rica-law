@@ -14,3 +14,4 @@ Reglamento de la Policía de Control Fiscal del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-06 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |

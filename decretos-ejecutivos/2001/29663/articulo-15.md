@@ -6,6 +6,6 @@ d) Colaborar con la Dirección en la elaboración del presupuesto operativo de l
 e) Apoyar a los coordinadores de otras Áreas de la Policía de Control Fiscal en la conducción de las operaciones de los procesos, para el logro de las metas y de los objetivos establecidos.
 f) Colaborar con la Dirección en la planificación, control y seguimiento de las necesidades de recursos materiales, financieros, tecnológicos y humanos, en coordinación con las Dependencias especializadas en la materia de este Ministerio.
 g) Realizar informes trimestrales dirigidos a la Dirección, sobre las labores realizadas, de conformidad con las disposiciones técnicas, las normas y los procedimientos legales establecidos.
-h) Diseñar, dirigir y coordinar el programa de actividades de capacitación de la Policía de Control Fiscal, en conjunto con la Unidad Técnica de Recursos Humanos del Ministerio de Hacienda.
+h) (Así derogado este inciso mediante el inciso 8 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 i) Coordinar con los entes internos del Ministerio de Hacienda la consecución de los recursos humanos, materiales, financieros y tecnológicos necesarios para el cumplimiento de las metas y objetivos establecidos.
 j) Realizar otras funciones que le encomiende la Dirección.
