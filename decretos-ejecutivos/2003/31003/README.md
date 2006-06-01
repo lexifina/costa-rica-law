@@ -14,3 +14,4 @@ Reglamento de Organización de la Dirección General de Presupuesto Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
