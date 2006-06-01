@@ -14,3 +14,4 @@ Reglamento de la organización de la dirección general de la contabilidad nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-13 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
