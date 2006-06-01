@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos del Ministerio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-14 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |

@@ -11,13 +11,17 @@ Artículo 4°—Definiciones y Abreviaturas: Para efecto del presente reglamento
 10) Ley: Ley de Transito por Vías Públicas y Terrestres, No 7331 y sus reformas.
 11) Ministerio: Ministerio de Hacienda.
 12) Normas Técnicas: Conjunto de enunciados de control interno relativos al uso y mantenimiento de vehículos, promulgados por la Contraloría General de la República, compilados en el Manual publicado en el Alcance No 7 a "La Gaceta" No 24 del 2 de febrero de 1996, sus modificaciones y reformas.
-13) Oficialía Mayor y Dirección Administrativa: Dependencia del Ministerio, supeditada del Viceministro de Ingresos, en la que se encuentra la Unidad Técnica de Aprovisionamiento y Servicios y dentro de esta el Proceso de Mantenimiento de Instalaciones Físicas y Control sobre el Uso de Vehículos Oficiales.
+13) *Dirección Administrativa y Financiera: Dependencia del Ministerio, supeditada del Viceministro de Ingresos, en la que se encuentra el *Departamento de Arquitectura y Servicios y dentro de este el Proceso de Mantenimiento de Instalaciones Físicas y Control sobre el Uso de Vehículos Oficiales.
+*(Modificada su denominación por el inciso 5 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 14) Policía Control Fiscal: Sección supeditada a las órdenes del Ministro de Ingresos, encargada de evitar la evasión fiscal y contrabando de mercaderías.
-15) Proceso de Mantenimiento de Instalaciones Físicas y Control sobre el Uso de Vehículos Oficiales ( PCVO.): Proceso encargado de la custodia, mantenimiento y buen uso de los vehículos del Ministerio de Hacienda, el cual pertenece a la Unidad de Aprovisionamiento y Servicios.
+15) Proceso de Mantenimiento de Instalaciones Físicas y Control sobre el Uso de Vehículos Oficiales ( PCVO.): Proceso encargado de la custodia, mantenimiento y buen uso de los vehículos del Ministerio de Hacienda, el cual pertenece al *Departamento de Arquitectura y Servicios.
+*(Modificada su denominación por el inciso 5 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 16) Proveeduría Nacional: Dependencia del Ministerio de Hacienda.
 17) Reglamento: Conjunto de disposiciones específicas aplicables a todos los vehículos que se indican en el artículo 1.
 18) Servicio de Transporte: El que preste el Ministerio a sus funcionarios durante el desempeño de sus funciones.
-19) U.T.R.F.: Unidad Técnica de Recursos Financieros, Unidad que pertenece a la Oficialía Mayor y Dirección Administrativa.
-20) U.T.A.S.: Unidad Técnica de Aprovisionamiento y Servicios, Unidad que pertenece a la Oficialía Mayor y Dirección Administrativa y dentro de la cual se ubica el P.C.V.O.
+19) U.T.R.F.: Departamento de Recursos Financieros, Departamento que pertenece a la Dirección Administrativa y Financiera.
+(Mediante el inciso 5 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006, se modifica la denominación de Unidad Técnica de Recursos Financieros a Departamento de Recursos Financieros, asimismo se modifica la denominación de Oficialía Mayor y Dirección Administrativa a Dirección Administrativa y Financiera).
+20) U.T.A.S.: Departamento de Arquitectura y Servicios, Departamento que pertenece a la Dirección Administrativa y Financiera y dentro del cual se ubica el P.C.V.O.
+(Mediante el inciso 5 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006, se modifica la denominación de Unidad Técnica de Aprovisionamiento y Servicios a Departamento de Arquitectura y Servicios, asimismo se modifica la denominación de Oficialía Mayor y Dirección Administrativa a Dirección Administrativa y Financiera).
 21) Unidad Central de Transportes: Cuando se hace referencia a la Unidad Central de Transportes, se debe de interpretar en forma genérica como la Unidad de Transportes Centralizada o Descentralizada de acuerdo al caso concreto.
 22) Vehículos del Ministerio: Toda la unidad motorizada de transporte de personas o de carga y de maquinaría pesada.

@@ -5,7 +5,8 @@ En uso de las facultades que les confieren los incisos 3) y 18) del artículo 14
 Considerando:
 1°—Que la Ley de Transito por Vías Públicas Terrestres, establece las regulaciones legales prioritarias en materia de clasificación de los vehículos del Estado, así como respecto a su utilización y controles.
 2°—Que el Ministerio de Hacienda posee vehículos automotores propiedad del Estado, sobre los cuales debe de velar por su correcto uso, control y mantenimiento.
-3°—Que debido a las características especiales del Ministerio de Hacienda, se ve en la obligación de contar con vehículos automotores en todo en país, siendo que el Control será ejercido desde la Unidad Técnica de Aprovisionamiento y Servicios.
+3°—Que debido a las características especiales del Ministerio de Hacienda, se ve en la obligación de contar con vehículos automotores en todo en país, siendo que el Control será ejercido desde el *Departamento de Arquitectura y Servicios .
+*(Modificada su denominación por el inciso 5 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 4°—Que es procedente legalmente por parte de las administraciones interesadas dentro de los parámetros fijados por la normativa indicada, emitir regulaciones adicionales que permitan el mejor uso de los bienes del Estado y clarifiquen la utilización de los mismos, para el cumplimiento de los servicios y fines públicos establecidos por ley.
 5°—Que con el fin de brindar un servicio público ágil. eficiente y eficaz, en la consecución de sus objetivos y dar un uso racional, a los vehículos. Por tanto,
 DECRETAN:
