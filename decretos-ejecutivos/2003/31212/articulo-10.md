@@ -1,1 +1,2 @@
-Artículo 10.—Nombramiento de los Delegados de los Trabajadores. Para la elección de los delegados de los trabajadores, se seguirá el procedimiento que establecerá la Unidad Técnica, vía directriz, el cual deberá contar con la aprobación de la Dirección General del Servicio Civil.
+Artículo 10.—Nombramiento de los Delegados de los Trabajadores. Para la elección de los delegados de los trabajadores, se seguirá el procedimiento que establecerá el *Departamento de Investigación y Formación Hacendaria vía directriz, el cual deberá contar con la aprobación de la Dirección General del Servicio Civil.
+*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)

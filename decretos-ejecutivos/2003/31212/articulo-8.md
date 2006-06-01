@@ -1,5 +1,6 @@
 Artículo 8º—Integración de la Comisión. La Comisión estará integrada por:
-a) El Coordinador General de la Unidad Técnica, o el facultado por éste, quien la presidirá.
+a) El Coordinador General del *Departamento de Investigación y Formación Hacendaria, o el facultado por éste, quien la presidirá.
+*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 b) Un representante de la Dirección General de Informática, quien será nombrado por el Director General de Informática.
 c) Un representante del Área de Ingresos, quien será nombrado por el Viceministro de Ingresos.
 d) Un representante del Área de Egresos, quien será nombrado por el Viceministro de Egresos.

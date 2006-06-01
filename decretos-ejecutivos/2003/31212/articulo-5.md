@@ -1,6 +1,8 @@
 CAPÍTULO II
-De la Unidad Técnica y la Comisión de Becas
-Artículo 5º—Competencias de la Unidad Técnica. Al Ministerio por medio de la Unidad Técnica le corresponderá:
+Del *Departamento de Investigación y Formación Hacendaria y la Comisión de Becas
+*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+Artículo 5º—Competencias del *Departamento de Investigación y Formación Hacendaria. Al Ministerio por medio del *Departamento de Investigación y Formación Hacendaria le corresponderá:
+*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
 a) Coordinar la concesión de becas o facilidades a fin de que los servidores del Ministerio participen en programas de capacitación y formación que se realicen en el país o en el extranjero y que tengan relación con las funciones del Ministerio.
 b) Preparar y publicar el cartel de convocatoria a concurso de las becas o facilidades disponibles.
 c) Seleccionar los candidatos y comunicarlo al organismo patrocinador cuando éste sea el que adjudica la beca o facilidad, o bien realizar el procedimiento de adjudicación cuando las becas o facilidades sean patrocinadas por el Ministerio.
