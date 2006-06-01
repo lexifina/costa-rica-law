@@ -5,18 +5,24 @@ En uso de las facultades que le confieren los artículos 84, 85, 86, 89, 90 y 91
 ACUERDA:
 Artículo único.—Integrar las siguientes Comisiones Permanentes Especiales y Especiales para la legislatura 2006-2007, de la siguiente manera:
 Comisión Permanente Especial para el
-control del Ingreso y del Gasto Público
+Control del Ingreso y del Gasto Público
 Barrantes Castro Luis Antonio
-Charpantier Brenes Silvia
+Charpantier Brénes Silvia
 Marín Monge Francisco
 Molina Gamboa Francisco
 Zamora Chaves Leda
+González Ramírez Hilda
+Sánchez Sibaja Jorge Eduardo
+(Así reformado el punto anterior por acuerdo N° 6 del 23 de mayo de 2006)
 Comisión Permanente Especial de Nombramientos
 Méndez Zamora Jorge
 Zomer Rezler Clara
 Molina Gamboa Francisco
 Vásquez Mora José Luis
 Maseey Mora Guyón
+Gutiérrez Gómez Carlos Manuel
+Nicolás Alvarado Xinia
+(Así reformado el punto anterior por acuerdo N° 6 del 23 de mayo de 2006)
 Comisión Permanente Especial de Ambiente
 Araya Monge Luis Carlos
 Ballestero Vargas Maureen

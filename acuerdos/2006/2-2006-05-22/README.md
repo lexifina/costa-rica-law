@@ -14,3 +14,4 @@ Integración de Comisiones Permanentes Especiales y Especiales para la legislatu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-01 | la propia norma |
+| 2 | 2006-06-01 | Acuerdo 6 (2006-05-23) |
