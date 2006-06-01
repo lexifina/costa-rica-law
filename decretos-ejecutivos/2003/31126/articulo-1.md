@@ -9,8 +9,8 @@ Considerando:
 Decretan:
 Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiversidad con los siguientes miembros:
 1. Miembros propietarios:
-a) Señor Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
-(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
+a) Jorge Rodríguez Quirós, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
 b) Señor Raúl Solórzano Soto, Director Superior del Sistema Nacional de Áreas de Conservación.
 c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
@@ -31,8 +31,8 @@ j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
 k) Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 2. Miembros suplentes:
-a) Señor Daniel León Núñez, representante del Viceministro del Ambiente y Energía.
-(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
+a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
 b) Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
