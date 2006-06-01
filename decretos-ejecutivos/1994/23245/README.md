@@ -14,3 +14,4 @@ Organización, Objetivos y Funciones de la Dirección General de Informática de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-19 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |

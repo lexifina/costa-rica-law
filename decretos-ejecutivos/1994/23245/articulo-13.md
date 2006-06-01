@@ -1,2 +1,2 @@
 Del Departamento Administrativo.
-Artículo 13.—Objetivo: Brindar apoyo a todas las unidades de la Dirección General a través de la centralización y administración de las acciones totales, racionalizando en forma eficiente la utilización de tos recursos humanos, financieros, materiales, activos en general, recepción y despacho de documentos y trabajos, asimismo atención al público y servicios en general.
+Artículo 13.—(Así derogado mediante el inciso 7 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
