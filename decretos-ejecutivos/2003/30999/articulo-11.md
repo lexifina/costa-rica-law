@@ -1,1 +1,2 @@
-Artículo 11.—La Unidad Técnica de Recursos Humanos será la encargada de ejecutar y velar por el fiel cumplimiento de las disposiciones del presente reglamento, quedando obligados todos los funcionarios de este Ministerio a observar y acatar los procedimientos que a tal efecto dictare.
+Artículo 11.—El *Departamento de Gestión del Potencial Humano será el encargado de ejecutar y velar por el fiel cumplimiento de las disposiciones del presente reglamento, quedando obligados todos los funcionarios de este Ministerio a observar y acatar los procedimientos que a tal efecto dictare.
+*(Modificada su denominación por el inciso 4 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)

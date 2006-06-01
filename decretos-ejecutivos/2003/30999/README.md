@@ -14,3 +14,4 @@ Reglamento de Zonaje para los Funcionarios del Ministerio de Hacienda.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-25 | la propia norma |
+| 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |

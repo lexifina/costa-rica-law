@@ -1,1 +1,2 @@
-Artículo 12.—El disfrute del zonaje será reconocido por la Unidad Técnica de Recursos Humanos, previo estudio al funcionario que lo solicite y regirá a partir de la fecha de nombramiento o traslado en que se configure la situación estipulada en el artículo 1° de este Decreto.
+Artículo 12.—El disfrute del zonaje será reconocido por el *Departamento de Gestión del Potencial Humano, previo estudio al funcionario que lo solicite y regirá a partir de la fecha de nombramiento o traslado en que se configure la situación estipulada en el artículo 1° de este Decreto.
+*(Modificada su denominación por el inciso 4 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
