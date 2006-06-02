@@ -1,2 +1,0 @@
-Artículo 97º- La violación de la confidencialidad de todo lo relacionado con los hechos que motivaron la denuncia y de lo acontecidoen el procedimiento, por parte de los funcionarios vinculados directa o indirectamente con este, será considerada una falta grave, y se sancionará de conformidad con el artículo 50 de este Reglamento.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24668 del 22 de setiembre de 1995)

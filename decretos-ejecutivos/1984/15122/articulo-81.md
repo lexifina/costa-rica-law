@@ -1,1 +1,0 @@
-Artículo 81.—Los contratos de aprendizaje que el Ministerio considere oportuno realizar, deberán formalizarse por escrito, de acuerdo con las disposiciones del Código de Trabajo, de la Ley Orgánica del Instituto Nacional de Aprendizaje y previa aprobación de dicha institución.

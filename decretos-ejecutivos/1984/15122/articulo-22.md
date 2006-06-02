@@ -1,1 +1,0 @@
-Artículo 22.—No interrumpirán la continuidad de la relación de servicio las licencias sin goce de salario, los descansos otorgados legalmente, las incapacidades debidamente justificadas, la prórroga o renovación inmediata de la prestación u otra causa análoga.

@@ -1,1 +1,0 @@
-Artículo 80.—Las licencias para estudios regirán únicamente por el tiempo necesario para concurrir a lecciones, debiendo el servidor asistir al trabajo durante los días o períodos libres que conceda el respectivo centro educativo.

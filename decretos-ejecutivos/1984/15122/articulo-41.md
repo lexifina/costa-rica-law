@@ -1,2 +1,0 @@
-Artículo 41.—El control de entrada y salida del tiempo destinado al almuerzo, queda bajo la responsabilidad de cada jefe inmediato, quien establecerá el medio de control para tal efecto, con aprobación del Departamento de Recursos Humanos del Ministerio de Cultura, Juventud y Deportes, de manera que no se ocasione menoscabo en la prestación del servicio, en el entendido que por tal motivo no podrá interrumpirse el mismo, o cerrarse la oficina.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 30873 del 18 de octubre de 2002)

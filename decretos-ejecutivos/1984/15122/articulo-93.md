@@ -1,2 +1,0 @@
-Artículo 93º- A más tardar dentro del mes siguiente a la presentación de la denuncia la Comisión deberá pronunciarse sobre su procedencia o improcedencia, y cuando lo amerite recomendar la sanción correspondiente. Contra lo resuelto por el jerarca cabrá Recurso de Revocatoria, el cual deberá plantearse dentro de los tres días hábiles siguientes a la notificación de lo resuelto, debiendo resolverse dicho recurso dentro de los ocho días hábiles siguientes a su presentación.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24668 del 22 de setiembre de 1995)

@@ -1,1 +1,0 @@
-Artículo 82.—El jefe inmediato y el Departamento de Personal, serán responsables de velar por el cumplimiento de las anteriores normas y no darán trámite a nuevas licencias para estudio sin antes verificar que el servidor se haya hecho acreedor a la misma, de conformidad con las prescripciones anteriores .

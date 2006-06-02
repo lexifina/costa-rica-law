@@ -1,1 +1,0 @@
-Artículo 71.—Las gestiones de los servidores, de acuerdo con el artículo anterior, deberán plantearse por escrito y resueltas en la misma forma; no obstante podrán hacerse verbalmente cuando así lo exija la urgencia de una resolución o cuando la menor importancia del asunto, justifique este procedimiento.

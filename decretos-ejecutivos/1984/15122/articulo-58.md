@@ -1,1 +1,0 @@
-Artículo 58.—Los despidos de los trabajadores amparados por el Régimen de Servicio Civil, se tramitarán conforme lo dispuesto por el Estatuto del Servicio Civil, su Reglamento y las disposiciones contenidas en este Reglamento.

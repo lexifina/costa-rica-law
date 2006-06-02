@@ -1,3 +1,0 @@
-Artículo 91º- La Comisión dará traslado a la persona denunciada, dentro de los tres días hábiles posteriores al conocimiento de la denuncia.
-En la citación se indicará claramente el o los hechos denunciados, nombre del o la denunciante, un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos, la posibilidad de asesorarse con abodada u abogado, y el derecho a tener acceso al expediente administrativo que con motivo de la denuncia se abra. Si el o la denunciante no ejerce su derecho de defensa, se continuará el procedimiento hasta el informe final.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24668 del 22 de setiembre de 1995)

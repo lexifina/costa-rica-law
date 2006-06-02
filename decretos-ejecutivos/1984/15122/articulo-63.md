@@ -1,2 +1,0 @@
-Artículo 63.—El servidor al que le ocurra accidente o riesgo del trabajo, deberá dar aviso a la mayor brevedad posible de tal hecho al Jefe del Departamento de Personal o a cualquiera de sus representantes en la institución.
-Si el servidor incumpliere esta obligación, podrá perder todo derecho a reclamar al INS, por concepto de agravaciones o complicaciones sobrevenidas por falta de asistencia oportuna.

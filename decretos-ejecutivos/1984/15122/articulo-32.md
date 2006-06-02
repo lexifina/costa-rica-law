@@ -1,3 +1,0 @@
-Artículo 32.—Los servidores regulares del Ministerio gozarán de todos los derechos y prerrogativas que concede el Estatuto de Servicio Civil, su Reglamento y el Código de Trabajo, éste último se aplicará en los casos en que corresponda, así como por ausencia de norma aplicable. Los servidores interinos u ocasionales gozarán como mínimo de las garantías sociales, señaladas por Ley.
-El Ministerio proporcionará, en la medida de sus posibilidades, el servicio de apoyo, tales como recursos auxiliares, equipos y otras ayudas técnicas que faciliten al servidor con algún tipo de discapacidad, desempeñar su labor.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 28272 del 2 de noviembre de 1999)
