@@ -1,0 +1,1 @@
+Artículo 20.—Para la presentación de un reclamo de este tipo, la propiedad y la persona reclamante donde se desarrolle la actividad, debe estar al día en todos sus compromisos municipales, tales como tasas, impuestos y contribuciones.

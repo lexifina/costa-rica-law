@@ -1,0 +1,2 @@
+Artículo 17.—Se toma como tarifa Institucional o Gobierno 2:
+Toda institución gubernamental, ONG o institución no comercial, que produzca entre 25 y 48 kgr de desechos ordinarios por semana y tengan una población usuaria entre 16 y 30 personas por día y que se ubiquen dentro del área de cobertura del servicio de recolección. En caso de no cumplirse las dos variables de forma conjunta, se ubicará el abonado en la categoría según su población usuaria

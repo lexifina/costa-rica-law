@@ -1,0 +1,1 @@
+Artículo 15.—Se toma como tarifa Comercial 7: Todo aquel comercio que produzca más de 241 kgr de desechos ordinarios por semana y realicen actividades comerciales donde laboren más de 16 empleados y que se ubiquen dentro del área de cobertura del servicio de recolección.

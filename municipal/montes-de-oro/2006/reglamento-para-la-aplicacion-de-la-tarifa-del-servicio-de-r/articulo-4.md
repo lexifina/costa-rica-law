@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad podrá realizar un estudio específico para cualquier usuario del servicio, donde se considere que la cantidad de desechos tradicionales generados por semana, sea diferente a la establecida en el rango de generación donde se clasificó originalmente, lo cual dará fundamento para el cambio automático de la categoría asignada.
