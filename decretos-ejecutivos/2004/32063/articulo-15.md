@@ -1,1 +1,0 @@
-Artículo 15.—Las subcomisiones de expertos realizarán las funciones para las cuales fueron nombradas por la Comisión, además brindarán un informe a la Comisión sobre el trabajo realizado, en el plazo y forma que la Comisión determine al efecto.
