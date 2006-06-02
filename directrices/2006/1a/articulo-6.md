@@ -1,0 +1,6 @@
+F) Determinación de los montos a pagar - casos especiales. Cuando presente las situaciones indicadas en el Apartado C la empresa realizará la estimación de los impuestos a liquidar, para lo cual debe presentar:
+• Estudio técnico emitido por un profesional o perito competente en la materia (Profesional acreditado ante el Colegio Federado de Ingenieros y Arquitectos), en el que se indique el Área en metros cuadrados de construcción de la obra y su valor actual.
+• Aportar fotocopia certificada o heliográfica de los planos constructivos de la obra, así como del plano catastrado.
+• Certificación emitida por un profesional o perito competente en la materia (Profesional acreditado ante el Colegio Federado de Ingenieros y Arquitectos), en la cual se indique el valor actual de la obra y los cálculos realizados para determinar el porcentaje utilizado por mano de obra en su construcción.
+• Para determinar el impuesto a liquidar, se toma el valor actual del bien inmueble, se le excluye el valor del terreno y el porcentaje por mano de obra y al remanente se le aplica la tasa actual del Impuesto General sobre las Ventas, el monto obtenido corresponderá al impuesto que debe liquidarse.
+• En caso de duda se solicitará el avalúo del bien inmueble a los peritos de la Dirección General de Tributación.

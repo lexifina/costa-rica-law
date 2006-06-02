@@ -1,0 +1,6 @@
+D) De los requisitos de la solicitud de liquidación. La empresa deberá presentar ante el Departamento de Fiscalización de Incentivos, los siguientes documentos ya sea tanto para los casos regulados en el Apartado B.1 como en el C:
+a) Petición formal suscrita por el representante legal, cuando se trate de personas jurídicas, con una clara exposición de los hechos que motivan la solicitud de liquidación de impuestos, en razón de la desafectación de la obra destinada a la actividad turística incentivada; así como, indicación del monto de impuestos que considera debe liquidarse, debiendo respaldar su indicación con la documentación pertinente, tal y como se estipula más adelante en la presente directriz, la cual debe ser aportada en el momento de presentarse la solicitud. Cuando se trate de personas físicas la solicitud debe estar firmada y autenticada en caso de no ser presentada personalmente; debiendo señalarse expresamente el medio que se utilizará para futuras notificaciones.
+b) Personería jurídica vigente.
+c) Fotocopia de la cedula jurídica y cédula de identidad del representante legal.
+d) Recomendación del Instituto Costarricense de Turismo.
+e) y aquellos que por la naturaleza propia del caso, defina la Dirección General de Hacienda deban presentarse, en concordancia con lo regulado en esta directriz.

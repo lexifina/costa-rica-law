@@ -1,0 +1,1 @@
+G) Intereses. En caso de cambio de uso y destino de bienes exonerados, indicados en el Apartado B.2 corresponderá además el cálculo de los intereses especiales regulados en el artículo 41 de la Ley Nº 7293, de 31 de marzo de 1992 "Ley Reguladora de todas las Exoneraciones Vigentes, su Derogatoria y sus Excepciones" y el Decreto Ejecutivo Nº 23862-H del 20 de diciembre de 1994.
