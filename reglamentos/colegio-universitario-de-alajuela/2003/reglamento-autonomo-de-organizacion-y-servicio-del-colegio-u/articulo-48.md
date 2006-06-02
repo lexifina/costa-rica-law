@@ -1,5 +1,6 @@
 Artículo 48.—La clasificación del funcionario docente se hará según los siguientes parámetros:
-1) Profesor I, quien no posea el grado mínimo de Bachiller Universitario, reclutado y seleccionado en virtud de inopia debidamente declarada en concurso público.
+1) Profesor 1: Quien no posea el grado mínimo de Bachiller Universitario, reclutado y seleccionado en virtud de inopia debidamente declarada en concurso público, conforme a los términos y requisitos establecidos en el artículo 28, párrafo segundo, del Reglamento de la Educación Superior Parauniversitaria (Decreto 30451-MEP). En tal caso, se dará preferencia al postulante que posea al menos el grado de Diplomado Parauniversitario.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 111 del 09 de junio del 2006)
 2) Profesor II, quien posea el grado académico de Bachiller Universitario, en la especialidad que se concursa.
 3) Profesor III, quien posea la condición de egresado de un plan de licenciatura, en la especialidad que se concursa.
 4) Profesor IV, a quien posea el grado de licenciatura, en la especialidad que se concursa y quien posea además del grado académico de Bachiller Universitario una maestría, ambas en la especialidad que se concursa.
