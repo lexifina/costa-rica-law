@@ -1,0 +1,3 @@
+MUTUAL ALAJUELA DE AHORRO Y PRÉSTAMO
+Mutual Alajuela de Ahorro y Préstamo comunica a sus clientes cuenta ahorrantes, que se ha modificado el artículo IV del Reglamento sobre Depósitos y Retiros de Ahorro Infantil y Juvenil, quedando de la siguiente manera: Artículo IV La apertura de las Cuentas de Ahorros.Para la apertura de una cuenta de ahorros, el menor de 18 años, deberá presentar la constancia de nacimiento o la identificación emitida por el Registro Civil en el que se pueda constatar su nombre completo y su edad. Además, deberá venir acompañado de al menos uno de sus padres o tutor debidamente inscrito ante el Registro Civil, quién deberá presentar su cédula de identidad.
+Alajuela, 26 de mayo del 2006.
