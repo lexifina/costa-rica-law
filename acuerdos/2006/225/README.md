@@ -14,3 +14,4 @@ Definen Zonas de Veda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-01 | la propia norma |
+| 2 | 2006-06-02 | Acuerdo 260 (2006-06-02) |
