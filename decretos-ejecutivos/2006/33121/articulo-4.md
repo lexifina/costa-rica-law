@@ -1,0 +1,1 @@
+Artículo 4º—Los integrantes del CONASPI deberán tener experiencia reconocida y sensibilidad para el trabajo con pueblos indígenas, preferiblemente en el ámbito de la salud pública, que provengan del ámbito institucional y académico, público y privado. Deberán disponer de tiempo y el apoyo institucional necesarios para ejercer eficazmente su labor en el CONASPI.
