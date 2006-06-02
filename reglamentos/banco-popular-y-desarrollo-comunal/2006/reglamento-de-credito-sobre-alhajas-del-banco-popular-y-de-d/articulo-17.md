@@ -1,0 +1,1 @@
+Artículo 17.—De la base del remate. El precio base del remate de las garantías será establecido considerando el capital inicial, los intereses adeudados, los gastos y comisiones, todo calculado al día del remate.

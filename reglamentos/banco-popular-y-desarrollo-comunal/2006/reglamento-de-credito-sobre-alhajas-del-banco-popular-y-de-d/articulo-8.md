@@ -1,0 +1,1 @@
+Artículo 8º—De la custodia. El Tesorero de cada oficina, o la persona asignada para los efectos por los funcionarios establecidos en el artículo 24 del presente Reglamento, será responsable de la custodia de las garantías junto con el expediente de respaldo.

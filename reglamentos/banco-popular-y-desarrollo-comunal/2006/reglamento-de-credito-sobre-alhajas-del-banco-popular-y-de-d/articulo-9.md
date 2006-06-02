@@ -1,0 +1,1 @@
+Artículo 9º—De la valoración. La valoración de las piezas de oro será individual para determinar su quilataje, peso y cualquier otra característica que se considere pertinente. Los diamantes se valorarán individualmente y se describirán por la cantidad de piedras y tamaño en puntos.

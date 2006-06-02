@@ -1,0 +1,1 @@
+Artículo 4º—De las garantías. Se recibirán como garantías las siguientes: oro y diamantes. No obstante lo anterior, la Gerencia General podrá establecer cualquier otro tipo de garantías afines, previa autorización de la Junta Directiva Nacional.

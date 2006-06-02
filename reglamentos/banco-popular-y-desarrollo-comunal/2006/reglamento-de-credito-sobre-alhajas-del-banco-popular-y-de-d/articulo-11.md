@@ -1,0 +1,3 @@
+Artículo 11.—Del retiro de los bienes. El retiro del bien sólo podrá hacerlo el obligado o quien adquirió el bien por medio de remate o compra directa, con la presentación de su documento de identidad, u otra persona con poder suficiente para dicho acto.
+Se dispondrá de tres días hábiles a partir del día siguiente del acto de cancelación para el retiro del bien, de lo contrario se procederá al cobro de la comisión que por concepto de bodegaje determine la Tabla 3 de Cargos y Comisiones.
+Si transcurridos tres meses de cancelada la operación, o de haberse adquirido el bien, este no hubiese sido retirado, el Banco podrá proceder a su venta directa.
