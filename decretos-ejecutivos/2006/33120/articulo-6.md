@@ -1,0 +1,1 @@
+Artículo 6º—Del Coordinador. La Comisión contará con un Coordinador que durará en su cargo durante un año, el cual debe ser elegido entre los representantes municipales ante la Comisión. De igual manera se nombrará un secretario de actas, y ambos podrán ser reelegidos por períodos iguales.
