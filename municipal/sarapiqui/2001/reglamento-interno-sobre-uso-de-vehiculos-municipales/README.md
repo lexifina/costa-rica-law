@@ -14,3 +14,4 @@ Reglamento Interno sobre Uso de Vehículos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-24 | la propia norma |
+| 2 | 2006-06-05 | Reglamento municipal 23 (2006-06-05) |
