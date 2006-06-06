@@ -1,0 +1,1 @@
+Artículo 6º—Todos los vehículos administrativos y de uso discrecional deberán rotularse con una leyenda que exprese la propiedad municipal de los mismos. Sujeto a la existencia de contenido presupuestario.

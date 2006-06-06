@@ -1,0 +1,1 @@
+Artículo 19.—El uso y transporte de vehículos municipales queda restringido al territorio nacional, salvo cuando exista mediante Acuerdo Municipal, autorización expresa del Concejo. En este último caso, se deberá cumplir con los trámites respectivos para la salida del país.

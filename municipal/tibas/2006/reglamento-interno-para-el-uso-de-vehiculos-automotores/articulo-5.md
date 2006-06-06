@@ -1,0 +1,1 @@
+Artículo 5º—Está terminantemente prohibido que en los vehículos de uso administrativo viajen personas ajenas a la municipalidad, o que siendo funcionario o empleado, no se justificara su propósito de trabajo; salvo los casos en que para ambas excepciones, el Alcalde Municipal haya extendido por escrito la justificación y el respectivo permiso.

@@ -1,0 +1,1 @@
+Artículo 27.—La unidad encargada del control sobre el uso y mantenimiento de vehículos, o a quien haga las funciones de ésta, deberá mantener al día un registro de daños, averías y reparaciones que permita conocer en todo momento el estado de los vehículos.

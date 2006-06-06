@@ -1,0 +1,3 @@
+CAPÍTULO III
+Adquisición y mantenimiento
+Artículo 24.—Adquisición. La adquisición de vehículos por compra, préstamo o cualquier otra forma deberá responder a una necesidad justificada. En cada caso se efectuará un análisis tendiente a determinar si se justifica la adquisición. Con base en las necesidades de transporte existentes a nivel institucional, en los recursos disponibles, y en la normativa vigente, se definirán los requerimientos de nuevos vehículos. La unidad encargada del control sobre el uso y mantenimiento de vehículos hará un estudio en el que se recomendarán por escrito cantidades y especificaciones técnicas a la máxima autoridad, quien en definitiva evaluará las necesidades.

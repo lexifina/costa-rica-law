@@ -1,0 +1,1 @@
+Artículo 18.—Todas las anotaciones, registros y documentación vinculada con el uso de vehículos automotores, deberá conservarse correctamente archivada durante el lapso de vigencia administrativa que se le otorgó.

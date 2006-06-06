@@ -1,0 +1,1 @@
+Artículo 9º—Cuando se realicen labores extraordinarias o se deba asistir a actos oficiales de la Municipalidad, fuera de horas de oficina, o bien en días no laborales, se requerirá la autorización escrita firmada por el Alcalde Municipal y otorgada con al menos un día de anticipación, lo cual debe constar en la bitácora de los Guardas Municipales.

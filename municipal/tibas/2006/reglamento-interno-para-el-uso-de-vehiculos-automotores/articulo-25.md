@@ -1,0 +1,1 @@
+Artículo 25.—Mantenimiento y reparaciones. Se deberá establecer, de acuerdo con el criterio de la unidad encargada del control sobre el uso y mantenimiento de vehículos, o a quien haga las funciones de ésta, un programa de mantenimiento preventivo de todos los vehículos y se velará por su cumplimiento.

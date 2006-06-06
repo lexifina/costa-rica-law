@@ -1,0 +1,1 @@
+Artículo 4º—Son vehículos de uso administrativo todos aquellos de propiedad municipal incluida la maquinaria pesada y los de recolección, destinados para el necesario traslado de empleados y funcionarios cuando se requiera prestar los servicios o efectuar alguna diligencia en el ejercicio de sus funciones, sin que estén exclusivamente al servicio de ninguna persona en particular.

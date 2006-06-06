@@ -1,0 +1,1 @@
+Artículo 16.—Se deberán realizar inventarios periódicos de todos los vehículos propiedad de la Municipalidad, debiendo llevarse un control minucioso de las herramientas, repuestos y piezas complementarias con que cuenta cada vehículo.
