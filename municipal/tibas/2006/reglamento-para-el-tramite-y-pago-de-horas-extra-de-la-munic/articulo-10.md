@@ -1,0 +1,1 @@
+Artículo 10.—Una vez recibida la solicitud del Departamento, la Unidad de Recursos Humanos en los siguientes tres hábiles trasladará la solicitud a la Jefatura, quien la pasará al Alcalde Municipal para su autorización.
