@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la designación de los delegados y delegadas por sector
+Artículo 11.—Nombramientos de delegados y delegadas. De conformidad con el presente Reglamento, todos los Sectores nombrarán sus delegados o delegadas propietarios o propietarias y suplentes a la Asamblea de Trabajadores y Trabajadoras por un período de cuatro años. Los delegados y delegadas deberán ser mayores de edad y figurar como copropietarios o copropietarias del Banco Popular al momento de la acreditación ante la Comisión. El requisito de la copropiedad no será aplicable a los delegados o delegadas del Sector de Trabajadores Independientes. Las delegaciones de cada Sector deberán estar conformadas por al menos un cincuenta por ciento de mujeres.

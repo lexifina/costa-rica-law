@@ -1,0 +1,1 @@
+Artículo 25.—Sector Trabajadores Independientes. Para los efectos de la celebración de la Asamblea del Sector Trabajadores Independientes, la Comisión solicitará a la Caja Costarricense de Seguro Social la información correspondiente sobre los trabajadores y trabajadoras independientes que cotizan para ese ente.

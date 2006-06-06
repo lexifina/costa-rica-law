@@ -1,0 +1,1 @@
+Artículo 26.—Sector Artesanos. Para los efectos de la celebración de la Asamblea del Sector Artesanos, la Comisión solicitará a la entidad correspondiente la información relacionada respecto a quiénes están afiliados y afiliadas a las distintas organizaciones de artesanos registradas como tales.

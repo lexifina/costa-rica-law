@@ -1,0 +1,3 @@
+Artículo 14.—Delegados y delegadas suplentes. Las personas suplentes sólo tendrán derecho a voz y voto cuando ejerzan la propiedad.
+Cuando les corresponda asumir sus funciones una vez integrada la Asamblea, deberán acreditarse de previo a la celebración de cada Asamblea Plenaria ante el Directorio de la Asamblea de Trabajadores y Trabajadoras.
+Las personas suplentes asistirán únicamente cuando deban suplir a los propietarios y propietarias y al ser acreditados y acreditadas, el Directorio calificará como justificada o injustificada la ausencia del titular. Lo resuelto por el Directorio en este caso tendrá apelación ante la Asamblea.

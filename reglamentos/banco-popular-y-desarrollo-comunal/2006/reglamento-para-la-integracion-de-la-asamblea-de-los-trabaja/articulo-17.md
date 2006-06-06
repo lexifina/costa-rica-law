@@ -1,0 +1,2 @@
+Artículo 17.—Sectores Solidarista y Sindical. Los delegados del Sector Solidarista, del Movimiento Sindical no Confederado y del Movimiento Sindical Confederado, se elegirán en asambleas de cada uno de esos sectores.
+En el caso del Sector Sindical no Confederado, junto con la lista de delegados, deberán presentar a la Comisión una certificación que indique que las organizaciones designantes no pertenecen a ninguna Confederación Sindical.

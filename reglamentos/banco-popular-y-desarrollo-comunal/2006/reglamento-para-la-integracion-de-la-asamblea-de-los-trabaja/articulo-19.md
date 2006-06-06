@@ -1,0 +1,3 @@
+Artículo 19.—Sector Colegios Profesionales. El nombramiento de los representantes del Sector Profesional corresponde a la Federación de Colegios Profesionales Universitarios de Costa Rica, de conformidad con el reglamento que emita dicha Federación.
+Cuando exista más de una federación de colegios profesionales universitarios de Costa Rica, deberá efectuarse una Asamblea de estas para la designación de los delegados y delegadas.
+Las impugnaciones de los interesados e interesadas sobre la designación de los delegados y delegadas propietarios y propietarias y suplentes serán resueltas en definitiva por la Federación de Colegios Profesionales Universitarios de Costa Rica.
