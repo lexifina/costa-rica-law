@@ -8,6 +8,8 @@ Artículo 3°—Para efectos de este reglamento, se adoptan las siguientes defin
 “Contrato de operaciones”. El contrato que deben suscribir los beneficiarios del régimen de zonas francas, con PROCOMER, en el cual se detallan sus derechos y obligaciones al amparo del régimen, con base en el acuerdo de otorgamiento del régimen.
 “Declaración Aduanera de Zona Franca”. El documento público que respaldará todo movimiento de ingreso y salida de materias y mercancías de las zonas francas.
 “Desperdicios”. Mercancías remanentes del proceso productivo.
+Ensamble: acoplamiento de componentes (piezas o partes, subconjuntos y conjuntos) que al ser integrados den como resultado un producto con características distintas de los componentes.
+(Así adicionado el párrafo anterior mediante el artículo 2 del decreto ejecutivo N°33204 del 06 de junio del 2006).
 “Gerencia General”. La Gerencia General de PROCOMER.
 “IMAS”. Instituto Mixto de Ayuda Social.
 “Junta Directiva”. La Junta Directiva de PROCOMER.
@@ -26,6 +28,8 @@ d) Las manufacturadas o productos elaborados requeridos y las muestras comercial
 “Parque Industrial de Zona Franca”. Cualquier Parque que sea administrado por una empresa que goce del Régimen de Zonas Francas en esa categoría.
 “Plantas satélites”. Las que se establezcan fuera del parque donde se ubica la planta principal de conformidad con lo dispuesto en el inciso ch) del artículo 18 de la Ley Nº 7210 y sus reformas.
 “PROCOMER”. La Promotora del Comercio Exterior de Costa Rica.
+PYME: micro, pequeña y mediana empresa, según los términos establecidos en el Reglamento General a la Ley N° 8262 de Fortalecimiento a Pequeñas y Medianas Empresas, Decreto Ejecutivo N° 30857-MEIC.
+(Así adicionado el párrafo anterior mediante el artículo 2 del decreto ejecutivo N°33204 del 06 de junio del 2006).
 “Régimen”. El régimen de zonas francas, que es el conjunto de incentivos y beneficios que otorga el Estado a aquellos que cumplan con los requisitos y obligaciones establecidas en la Ley Nº 7210 y sus reformas, este reglamento y demás normas aplicables.
 “Subproductos”. Los bienes que se obtienen en forma accesoria al proceso productivo principal.
 “Zona Franca”. El área delimitada sin población residente autorizada para que se establezcan en ella empresas acogidas al régimen de zonas francas.”

@@ -26,6 +26,7 @@ articulo-23.md
 articulo-24.md
 articulo-25.md
 articulo-25-bis.md
+articulo-25-ter.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
@@ -66,6 +67,8 @@ articulo-62.md
 articulo-63.md
 articulo-64.md
 articulo-65.md
+articulo-65-bis.md
+articulo-65-ter.md
 articulo-66.md
 articulo-66-bis.md
 articulo-67.md
@@ -100,4 +103,3 @@ articulo-3-transitorio.md
 articulo-4-transitorio.md
 articulo-5-transitorio.md
 articulo-6-transitorio.md
-articulo-25-ter.md
