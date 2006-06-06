@@ -1,9 +1,4 @@
-ARTICULO 411.- Declaración de inadmisibilidad
-Cuando la demanda haya sido presentada fuera de las hipótesis que la
-autorizan, sin observar las formalidades establecidas, o resultara
-manifiestamente infundada, el tribunal, de oficio, declarará su
-inadmisibilidad; sin perjuicio de la prevención correspondiente cuando se
-trate de errores formales.
-Tampoco será admisible plantear, por la vía de revisión, asuntos que
-ya fueron discutidos y resueltos en casación, salvo que se fundamenten en
-nuevas razones o nuevos elementos de prueba.
+Artículo 411.—Admisibilidad. Cuando la demanda haya sido presentada fuera de las hipótesis que la autorizan, o resulte manifiestamente infundada, el tribunal, de oficio, declarará su inadmisibilidad.
+El tribunal sustanciará la acción y se pronunciará sobre el fondo, aun cuando estime que en su redacción existen defectos. Si considera que estos le impiden, en forma absoluta, conocer del reclamo, le prevendrá a la parte su corrección, conforme al artículo 15 de este Código, puntualizándole los aspectos que deben ser aclarados y corregidos. Si los defectos no se corrigen, resolverá lo que corresponda.
+No será admisible plantear, por la vía de la revisión, asuntos que ya fueron discutidos y resueltos en casación, salvo que se fundamenten en nuevas razones o nuevos elementos de prueba.
+(Así reformado por el artículo 1° de la Ley N° 8503 del 28 de abril de 2006)

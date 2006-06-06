@@ -1,0 +1,23 @@
+Nº 8503
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+APERTURA DE LA CASACIÓN PENAL
+Artículo 1º—Modifícanse los artículos 15, 410, 411, 414, 447 y 449 del Código Procesal Penal. Los textos dirán:
+“Artículo 15.—Saneamiento de defectos formales. El tribunal o el fiscal que constate un defecto saneable en cualquier gestión, recurso o instancia de constitución de los sujetos del proceso, lo comunicará al interesado y le otorgará un plazo para corregirlo, el cual no será superior a cinco días. Si no se corrige en el plazo conferido, resolverá lo correspondiente.”
+“Artículo 410.—Formalidades de interposición. La revisión será interpuesta, por escrito, ante el Tribunal de Casación Penal correspondiente. Contendrá, la referencia concreta de los motivos en que se basa y las disposiciones legales aplicables. Se adjuntará, además, la prueba documental que se invoca, y se indicará, en su caso, el lugar o archivo donde ella está. Asimismo, deberán ofrecerse los elementos de prueba que acrediten la causal de revisión invocada.
+En el escrito inicial, deberá nombrarse a un abogado defensor. De no hacerlo, el tribunal lo prevendrá, sin perjuicio de nombrar a un defensor público, en caso de ser necesario.
+Artículo 411.—Admisibilidad. Cuando la demanda haya sido presentada fuera de las hipótesis que la autorizan, o resulte manifiestamente infundada, el tribunal, de oficio, declarará su inadmisibilidad.
+El tribunal sustanciará la acción y se pronunciará sobre el fondo, aun cuando estime que en su redacción existen defectos. Si considera que estos le impiden, en forma absoluta, conocer del reclamo, le prevendrá a la parte su corrección, conforme al artículo 15 de este Código, puntualizándole los aspectos que deben ser aclarados y corregidos. Si los defectos no se corrigen, resolverá lo que corresponda.
+No será admisible plantear, por la vía de la revisión, asuntos que ya fueron discutidos y resueltos en casación, salvo que se fundamenten en nuevas razones o nuevos elementos de prueba.”
+“Artículo 414.—Recepción de la prueba. El tribunal admitirá la prueba que estime útil para la resolución definitiva y comisionará a uno de sus integrantes para que la reciba. Para la recepción, se fijarán la hora y la fecha, y la diligencia se celebrará con la participación de los intervinientes que se presenten.
+Si el juez comisionado lo estima necesario, ordenará la recepción de prueba para mejor resolver.
+Cuando se haya recibido prueba oral, quien la haya recibido deberá integrar el tribunal en el momento de la decisión final.”
+“Artículo 447.—Trámite. El Tribunal de Casación podrá declarar inadmisible el recurso, si estima que la resolución no es recurrible, que el recurso ha sido interpuesto en forma extemporánea o que la parte no tiene el derecho de recurrir, en cuyo caso lo declarará así y devolverá las actuaciones al tribunal de origen.
+Si el recurso es admisible, el Tribunal lo sustanciará y se pronunciará sobre el fondo, aun cuando estime que en su redacción existen defectos. Si considera que estos le impiden, en forma absoluta, conocer del reclamo, le prevendrá a la parte su corrección, conforme al artículo 15 de este Código, puntualizándole los aspectos que deben aclararse y corregirse. Si los defectos no son corregidos, resolverá lo que corresponda.
+Si el recurso es admisible y no debe convocarse a una audiencia oral, ni se debe ordenar la recepción de pruebas, el Tribunal dictará sentencia. En caso contrario, esta deberá dictarse después de la audiencia y una vez recibida la prueba.”
+“Artículo 449.—Prueba en casación. Las partes podrán ofrecer la prueba, cuando el recurso se fundamente en un defecto de procedimiento y se discuta la forma en que fue llevado a cabo un acto, en contraposición a lo señalado en las actuaciones, en el acta o los registros del debate, o bien, en la sentencia.
+También es admisible la prueba propuesta por el imputado o en su favor, incluso la relacionada con la determinación de los hechos que se discuten, cuando sea indispensable para sustentar el reclamo que se formula y en los casos en que se autoriza en el procedimiento de revisión.
+El Ministerio Público, el querellante y el actor civil podrán ofrecer prueba esencial para resolver el fondo del reclamo, solo cuando antes haya sido rechazada, no haya sido conocida con anterioridad o esté relacionada con hechos nuevos.
+El Tribunal de Casación rechazará la prueba oral que sea manifiestamente improcedente o innecesaria; pero, si la estima indispensable, podrá ordenarla incluso de oficio.
+Cuando se haya recibido prueba oral, los que la hayan recibido deberán integrar el Tribunal en el momento de la decisión final.”
