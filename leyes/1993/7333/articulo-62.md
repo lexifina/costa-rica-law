@@ -1,20 +1,6 @@
 CAPITULO IX
 DE LOS MAGISTRADOS SUPLENTES
-ARTICULO 62.- La Corte contará, al menos, con treinta y siete
-Magistrados suplentes, de los que doce lo serán de la Sala
-Constitucional, nueve de la Sala Primera y ocho de cada una de las
-restantes serán nombrados por la Asamblea Legislativa en la segunda
-quincena del mes de mayo en el que se inicie el respectivo período -salvo
-el de los doce de la Sala Constitucional que lo será en la segunda
-quincena del mes de octubre en que finalice su período- y en la forma que
-indica la Constitución Política; durarán en sus funciones cuatro años,
-prestarán juramento ante la misma Asamblea, a la hora y día que esta
-designe y deberán reunir los requisitos que señala el artículo 159 de la
-Constitución Política, excepto el de rendir garantía.
-La Asamblea Legislativa deberá escoger a los Suplentes de entre las
-nóminas de cincuenta y de veinticuatro candidatos, en su caso, que sean
-propuestas por la Corte.
-Transitorio.- Los actuales Magistrados suplentes de la Sala
-Constitucional desempeñarán el cargo hasta tanto no tomen posesión los
-que habrá de nombrar la Asamblea, en octubre de 1993, para el período que
-se iniciará ese año.
+Artículo 62.—La Corte Suprema de Justicia tendrá, al menos, cuarenta y cuatro magistrados suplentes, de los cuales diez estarán asignados a cada una de las Salas de Casación y catorce a la Sala Constitucional. Serán nombrados por la Asamblea Legislativa, durarán en sus funciones cuatro años, prestarán juramento ante la misma Asamblea, y deberán reunir los requisitos exigidos a los titulares, excepto el de rendir garantía.
+Para la elección de los magistrados suplentes, cada una de las Salas de la Corte Suprema de Justicia convocará a un concurso público de antecedentes, con el fin de escoger a dos candidatos por cada plaza vacante. La nómina será sometida al conocimiento de la Corte Plena y, de ser aprobada, se enviará a la Asamblea, la cual realizará la designación correspondiente entre los nominados.
+Transitorio.—Todos los actuales magistrados suplentes continuarán desempeñando su cargo hasta completar su período. Los nuevos magistrados suplentes serán elegidos por el resto del período.
+(Así reformado por el artículo 4° de la Ley N° 8503 de 28 de abril de 2006).
