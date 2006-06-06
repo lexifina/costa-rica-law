@@ -1,8 +1,4 @@
-ARTICULO 447.- Trámite
-Si el tribunal de casación estima que el recurso o la adhesión no son
-admisibles, así lo declarará y devolverá las actuaciones al tribunal de
-origen.
-Si se declara admisible y no debe convocarse a una audiencia oral, ni
-debe ordenarse la recepción de pruebas, en la misma resolución dictará
-sentencia. En caso contrario, esta deberá dictarse después de la audiencia
-y de recibida la prueba.
+Artículo 447.—Trámite. El Tribunal de Casación podrá declarar inadmisible el recurso, si estima que la resolución no es recurrible, que el recurso ha sido interpuesto en forma extemporánea o que la parte no tiene el derecho de recurrir, en cuyo caso lo declarará así y devolverá las actuaciones al tribunal de origen.
+Si el recurso es admisible, el Tribunal lo sustanciará y se pronunciará sobre el fondo, aun cuando estime que en su redacción existen defectos. Si considera que estos le impiden, en forma absoluta, conocer del reclamo, le prevendrá a la parte su corrección, conforme al artículo 15 de este Código, puntualizándole los aspectos que deben aclararse y corregirse. Si los defectos no son corregidos, resolverá lo que corresponda.
+Si el recurso es admisible y no debe convocarse a una audiencia oral, ni se debe ordenar la recepción de pruebas, el Tribunal dictará sentencia. En caso contrario, esta deberá dictarse después de la audiencia y una vez recibida la prueba.
+(Así reformado por el artículo 1° de la Ley N° 8503 del 28 de abril de 2006)
