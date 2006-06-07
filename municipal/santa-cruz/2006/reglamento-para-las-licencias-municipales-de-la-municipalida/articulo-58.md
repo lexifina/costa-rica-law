@@ -1,0 +1,1 @@
+Artículo 58.—De previo a la ejecución o cumplimiento de cualquier resolución que ordene la suspensión temporal o permanente de una licencia, deberá haberse resuelto el procedimiento de acuerdo al principio del debido proceso que se garantiza a favor del administrado.

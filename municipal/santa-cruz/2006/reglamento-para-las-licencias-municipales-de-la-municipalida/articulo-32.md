@@ -1,0 +1,1 @@
+Artículo 32.—En ningún caso, las actividades temporales podrán desarrollarse después de las veinticuatro horas, en caso de que esto suceda, la Fuerza Pública o la Policía Municipal, podrá proceder inclusive por la fuerza a hacer cesar la actividad.

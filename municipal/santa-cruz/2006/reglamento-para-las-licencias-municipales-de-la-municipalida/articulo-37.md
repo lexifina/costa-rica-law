@@ -1,0 +1,1 @@
+Artículo 37.—Se establece como horario de funcionamiento de ventas ambulantes y ventas estacionarias, de las seis a las dieciocho horas no pudiendo realizarse la actividad fuera de dicho horario. En caso de que esto suceda, la Fuerza Pública, la Policía Municipal o el Departamento de inspección Municipal podrá proceder inclusive por la fuerza a hacer cesar la actividad.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la declaración jurada
+Artículo 48.—Los patentados, en el ejercicio pleno de los derechos que le otorga la licencia respectiva, tienen la obligación de declarar bajo la fe del juramento los ingresos brutos que genere la actividad lucrativa que desarrollan en el inmueble respectivo y de acuerdo a la patente que ejerzan. La información contenida en esta declaración debe ser la real de acuerdo a los mecanismos de control contable y financiero de la actividad del declarante. Por esta razón se presume como verdadera y manifestada de buena fe. Cualquier irregularidad que cometa el patentado en esta declaración podrá ser sancionada de acuerdo a la ley.

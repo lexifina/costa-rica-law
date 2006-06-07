@@ -1,0 +1,1 @@
+Artículo 71.—Es obligación del Departamento de Rentas el informar a los interesados sobre la vigencia de nuevos requisitos o bien la modificación de los ya existentes. El jefe de la sección deberá, anualmente, someter un informe al Concejo Municipal, con copia al Alcalde de los requisitos vigentes para cada actividad lucrativa que se desarrolle en el cantón.

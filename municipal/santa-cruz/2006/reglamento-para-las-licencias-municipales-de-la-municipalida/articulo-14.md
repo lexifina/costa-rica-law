@@ -1,0 +1,1 @@
+Artículo 14.—Cuando en un mismo establecimiento ejerzan actividades conjuntamente varias personas físicas o jurídicas o sociedades de hecho sujetas al pago del impuesto de patente, el monto de la imposición lo determinará la suma total del impuesto que corresponda a cada una individualmente.

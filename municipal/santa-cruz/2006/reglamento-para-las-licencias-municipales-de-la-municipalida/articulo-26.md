@@ -1,0 +1,1 @@
+Artículo 26.—El patentado podrá ceder, traspasar o renunciar al derecho que le fue otorgado mediante licencia Municipal a cualquier otra persona física o jurídica, siempre y cuando obtenga la previa autorización de la Autoridad Municipal y adicionalmente cumpla con los requisitos del artículo 45 del presente Reglamento.

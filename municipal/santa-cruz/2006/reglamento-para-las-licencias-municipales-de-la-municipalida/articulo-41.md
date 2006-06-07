@@ -1,0 +1,1 @@
+Artículo 41.—Quien desarrolle la actividad obligatoriamente portará durante el desempeño de sus labores la licencia en un lugar visible. No se aceptarán en su lugar el recibo de pago de la patente o copia de la licencia.

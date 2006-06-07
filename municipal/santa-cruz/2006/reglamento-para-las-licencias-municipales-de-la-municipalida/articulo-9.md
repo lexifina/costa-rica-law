@@ -1,0 +1,1 @@
+Artículo 9º—Para gravar cualquier actividad lucrativa recién establecida, por lo cual no pueda sujetarse al procedimiento impositivo de este, la Municipalidad podrá hacer una estimación por analogía u otros medios pertinentes. Esta imposición tendrá carácter provisional y deberá ser modificada con base en la primera declaración que corresponda efectuar al patentado.

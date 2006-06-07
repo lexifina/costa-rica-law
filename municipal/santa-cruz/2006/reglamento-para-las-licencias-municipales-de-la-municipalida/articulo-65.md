@@ -1,0 +1,1 @@
+Artículo 65.—Será sancionado con multa equivalente a tres salarios base, el propietario, administrador o responsable de un establecimiento que, con licencia suspendida continúe desarrollando la actividad. Se entiende por "salario base" el concepto usado en el artículo 2º de la Ley Nº 7337, de 5 de mayo de 1993.

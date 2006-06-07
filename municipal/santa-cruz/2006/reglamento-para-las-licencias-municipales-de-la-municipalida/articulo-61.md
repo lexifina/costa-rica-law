@@ -1,0 +1,1 @@
+Artículo 61.—Aquellos establecimientos comerciales, incluyendo los estacionarios y ambulantes, que se encuentren explotando una actividad lucrativa sin las licencias respectivas, serán objeto de cierre inmediato, notificándoles en el mismo momento del acto de cierre, toda vez que la actividad se estaría ejerciendo al margen de la ley.
