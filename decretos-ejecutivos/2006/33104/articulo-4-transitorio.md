@@ -1,0 +1,2 @@
+Transitorio cuarto: Transcurridos dos meses a partir de la publicación de este Decreto, la Secretaría empezará a sesionar con los representantes que hayan sido acreditados, y contarán con un mes adicional para acordar su organización interna, procedimientos de trabajo, convocatoria y acuerdos.
+Dado en la Presidencia de la República de Costa Rica.—San José, a los dos días del mes enero del dos mil seis.

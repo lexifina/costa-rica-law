@@ -1,0 +1,1 @@
+Transitorio tercero: Los Ministros y demás jerarcas, de las organizaciones contempladas en el artículo 2, contarán con un mes a partir de la publicación de este decreto, para realizar el nombramiento de sus representantes.

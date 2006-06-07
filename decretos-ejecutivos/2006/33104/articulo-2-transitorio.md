@@ -1,0 +1,1 @@
+Transitorio segundo: Los Ministerios responsables de la coordinación de cada Convenio, quedan obligados a elaborar un plan de acción de acuerdo a los mandatos que establecen los Convenios y la normativa nacional vigente.
