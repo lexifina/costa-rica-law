@@ -1,0 +1,1 @@
+Artículo 8º—Determinaciones no contempladas en las tablas. Los análisis y/o técnicas no contemplados en este reglamento se cobrarán de común acuerdo entre el laboratorio y el solicitante. Tal es el caso por ejemplo de los análisis físicos y químicos en polímeros, cueros y otros materiales.

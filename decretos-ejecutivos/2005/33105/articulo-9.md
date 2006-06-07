@@ -1,0 +1,5 @@
+Artículo 9º—Actualización de tarifas. El Colegio de Químicos publicará en el Diario Oficial La Gaceta las actualizaciones de las tarifas reguladas en este Reglamento, las cuales entrarán en vigencia a partir de su publicación.
+Las tarifas de análisis y demás servicios que tengan valor asignado e incluidos en este Reglamento serán ajustadas semestralmente en función del tipo de cambio respecto al dólar de los Estados Unidos de América. El porcentaje de aumento se regirá de acuerdo al siguiente cálculo:
+(b-a)/a x 100
+donde a = tipo de cambio correspondiente al primer día del semestre que concluye y b = tipo de cambio del último día del semestre que concluye.
+Adicionalmente, el Colegio de Químicos podrá realizar una revisión completa de las tarifas reguladas en este Reglamento al menos cada cinco años, de modo que si fruto de ese proceso se propusieran cambios en la estructura, contenido o base de cálculo de las tarifas, tales propuestas se harán llegar al Poder Ejecutivo para su aprobación y publicación mediante Decreto.

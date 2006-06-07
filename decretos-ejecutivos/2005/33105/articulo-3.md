@@ -1,0 +1,1 @@
+Artículo 3º—Servicios de análisis. Solamente los laboratorios químicos debidamente inscritos ante el Colegio de Químicos de Costa Rica, con permiso de funcionamiento y que cuenten con regente químico, podrán ofrecer los servicios de análisis químico.
