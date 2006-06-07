@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión estará integrada por profesionales con conocimiento y experiencia en la materia, capacidad de decisión, coordinación y negociación, y que mantengan un contacto permanente con los jerarcas de la institución que representan, de manera que el proceso que se genere en la Comisión de lugar a una agenda de trabajo debidamente programada y aplicada.

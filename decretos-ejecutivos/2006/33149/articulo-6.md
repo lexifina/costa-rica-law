@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión podrá invitar a representantes de diferentes sectores de la sociedad civil, organizaciones gubernamentales de la Administración Central y Descentralizada, a participar en sus procesos de trabajo.

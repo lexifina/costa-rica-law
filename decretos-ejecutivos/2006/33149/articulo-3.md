@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión sesionará en horas hábiles, al menos una vez al mes y, en forma extraordinaria, cuando sea convocada por la Presidencia de la Comisión y sus integrantes no percibirán dietas por la participación en sus sesiones.
