@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Zonaje realizará el estudio correspondiente para el reconocimiento de Zonaje al funcionario que lo solicite. Una vez aprobado el incentivo por parte de dicha Comisión, el Departamento de Recursos Humanos elaborará la respectiva acción de personal.
