@@ -1,1 +1,0 @@
-Artículo 27.—El Banco podrá autorizar la acumulación de los intereses durante el período de gracia o desembolso, cuando la actividad lo requiera y la garantía y capacidad de pago lo permitan, según los parámetros indicados en este Reglamento.

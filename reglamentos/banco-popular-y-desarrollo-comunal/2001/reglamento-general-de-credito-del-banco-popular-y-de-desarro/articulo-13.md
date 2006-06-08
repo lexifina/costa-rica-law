@@ -1,1 +1,0 @@
-Artículo 13.—Cuando un bien ofrecido en garantía se encuentre exento del pago de algún tipo de impuesto y pueda llegar a tener otros usos alternativos, se exigirá garantía adicional por el monto total de la exoneración.

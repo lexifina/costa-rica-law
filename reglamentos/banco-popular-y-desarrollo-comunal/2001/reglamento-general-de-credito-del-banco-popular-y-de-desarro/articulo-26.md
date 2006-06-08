@@ -1,3 +1,0 @@
-Artículo 26.—La Gerencia General queda autorizada para establecer plazos diferenciados por planes de inversión, líneas de crédito y operaciones particulares, en cuyo caso no podrán exceder los topes máximos establecidos en la Tabla número 2 de este Reglamento.
-Asimismo, queda autorizada la Gerencia General para establecer plazos y montos máximos diferenciados para líneas de crédito y planes de inversión, dentro de una misma línea de crédito, siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos.
-Para ambos casos se debe considerar el costo y origen de los recursos.

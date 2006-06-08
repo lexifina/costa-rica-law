@@ -1,2 +1,0 @@
-Transitorio.—(DEROGADO, en sesión N° 4177 de 18 de diciembre de 2003, publicada en La Gaceta No. 4 de 7 de enero de 2004).
-Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga todo reglamento que se le oponga, en especial el Reglamento General de Crédito aprobado por la Junta Directiva del Banco Popular en Sesión 3492 del 9 de junio de 1998 y publicado en La Gaceta del 20 de julio de 1998, salvo en lo que se refiere al Capítulo VII Subsección A-4: Pignoración, artículos 116 a 132 inclusive.

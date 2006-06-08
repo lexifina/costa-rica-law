@@ -1,1 +1,0 @@
-Artículo 35.—Toda resolución debe ser comunicada al solicitante en el lugar señalado por éste o personalmente en las oficinas del Banco con el texto íntegro de lo resuelto y con indicación de los recursos procedentes, del plazo dentro del cual deben ser interpuestos, y del órgano ante el cual se deben presentar.

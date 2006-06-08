@@ -1,2 +1,0 @@
-Artículo 39.—El importe del crédito se podrá girar a los acreedores o proveedores contra la presentación de los documentos probatorios, previa autorización por escrito del deudor.
-El deudor podrá también autorizar que con el crédito solicitado se cancelen o se pongan al día deudas de otros obligados con el Banco. Los montos financiados por este concepto se otorgarán en condiciones de crédito personal.

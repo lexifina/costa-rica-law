@@ -1,1 +1,0 @@
-Artículo 41.—En la financiación de proyectos, especialmente cuando se trate de crédito productivo, el Banco podrá exigir la constitución de un fideicomiso u otra modalidad de administración, si así lo considera necesario para salvaguardar sus intereses.

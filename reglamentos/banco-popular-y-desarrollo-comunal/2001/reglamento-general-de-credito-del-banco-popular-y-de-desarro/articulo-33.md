@@ -1,1 +1,0 @@
-Artículo 33.—Las solicitudes de crédito de las Sucursales así como cualquier modificación que se formule a préstamos aprobados en ellas y que se remitan a Oficinas Centrales para su resolución, deben incluir el planteamiento, análisis y recomendación, así como el criterio del Coordinador de la Oficina o del Gerente de la Sucursal.
