@@ -14,3 +14,4 @@ Reglamento de Zonaje e Incentivo por Regionalización de los Funcionarios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-09 | la propia norma |
+| 2 | 2006-06-08 | Acuerdo 1269 (2006-06-08) |
