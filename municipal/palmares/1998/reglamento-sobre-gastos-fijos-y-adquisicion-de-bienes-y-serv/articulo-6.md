@@ -1,1 +1,1 @@
-Artículo 6°—El Tesorero será la persona responsable de la Caja Chica y por medio de ella podrán adquirirse bienes y servicios, así como pagar viáticos y gastos de viaje.
+Artículo 6º—Se autoriza al Alcalde Municipal, para realizar compras y adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Palmares actúe como parte, hasta por la suma de un millón quinientos mil colones.

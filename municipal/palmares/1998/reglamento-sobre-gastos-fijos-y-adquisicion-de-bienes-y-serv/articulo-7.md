@@ -1,1 +1,1 @@
-Artículo 7°—Los montos de egreso de Caja Chica, serán fijados y autorizados por el Alcalde.
+Artículo 7º—Semestralmente rendirá el Alcalde Municipal un informe al Concejo Municipal, el cual contendrá los egresos que hubiese autorizado. Lo anterior de conformidad el artículo17, inciso f) y h), del Código Municipal.

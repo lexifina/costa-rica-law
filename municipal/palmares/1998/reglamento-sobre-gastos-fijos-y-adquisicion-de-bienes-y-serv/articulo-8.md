@@ -1,2 +1,3 @@
-Artículo 8°—Rige a partir de su publicación en el Diario Oficial.
-Palmares, 12 de noviembre de 1998
+CAPÍTULO II
+Procedimiento para las adquisiciones
+Artículo 8º—Para las Compras iguales o menores a los ¢100.000,00 colones se solicitará una única cotización, siempre y cuando se realice un estudio de mercado que demuestre la racionalidad del precio. En las compras superiores a ¢100.000,00 y hasta ¢1.500.000,00 se solicitarán 3 cotizaciones como mínimo, que deberán solicitarse en forma escrita, vía telefónica o por fax y quedar el comprobante de la invitación en el expediente respectivo. No será necesario y no es conveniente invitar siempre a las mismas empresas por lo que se recomienda estar variando a los proveedores, conforme a las empresas que estén en el registro de Proveedores que lleva la Municipalidad o en el mercado, esto por razones de una sana contratación.

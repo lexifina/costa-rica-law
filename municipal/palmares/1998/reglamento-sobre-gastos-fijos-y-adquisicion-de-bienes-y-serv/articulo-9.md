@@ -1,0 +1,1 @@
+Artículo 9º—En los supuestos de compras superiores a ¢1.500.000.00 de colones se aplicará lo dispuesto en el manual de procedimientos para compra directa de menor cuantía aprobado por la Administración siempre y cuando este manual no contravenga las disposiciones de la Ley de Contratación Administrativa,
