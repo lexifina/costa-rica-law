@@ -1,6 +1,7 @@
 CAPÍTULO XIX
 De la Unidad Técnica
-Artículo 67.—De la Unidad Técnica del Comité de Fideicomiso: Para el buen cumplimiento de los fines y objetivos de la Ley Nº 8147 y sus reformas, en su artículo 10°, inciso n), segundo párrafo, el Comité de Fideicomiso contará con una Unidad Técnica, según la aprobación de MIDEPLAN a la estructura organizacional del Comité de Fideicomiso y la desagregación de su Unidad Técnica, conforme se indica a continuación:
+Artículo 67.—De la Unidad Técnica del Fideicomiso: Para el efectivo cumplimiento de los fines y objetivos de la Ley Nº 8147 y sus reformas, el Fideicomiso contará con el soporte de una Unidad Técnica, constituida por el Fiduciario, en su condición de tal, cuyo costo operativo y de funcionamiento será cargado al presupuesto del Fideicomiso y su regulación, estructura, tareas, funciones y responsabilidades, se establecerán en el Contrato de Fideicomiso.
+(Asi reformado el párrafo anterior mediante el artículo 1 del decreto ejecutivo N°33189 del 08 de junio del 2006).
 Unidad Técnica:
 a) Apoyar al Comité de Fideicomiso en la ejecución de las labores de carácter técnico relacionadas con las funciones que le han sido asignadas por Ley Nº 8147 y sus reformas a dicho órgano.
 b) Organizar, dirigir, controlar, evaluar y ejecutar todos aquellos aspectos técnico-operativos relacionados con el Comité de Fideicomiso, con el fin de que sirvan de base para la buena gestión y cumplimiento de las funciones encomendadas por Ley Nº 8147 y sus reformas y Reglamento al Comité de Fideicomiso.

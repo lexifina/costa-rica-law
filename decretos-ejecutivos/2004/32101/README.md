@@ -16,3 +16,4 @@ Reglamento a la Ley No. 8147 y sus reformas, de creación del fideicomiso para l
 | 1 | 2005-01-12 | la propia norma |
 | 2 | 2005-07-07 | Decreto Ejecutivo 32562 (2005-07-07) |
 | 3 | 2005-08-23 | Decreto Ejecutivo 32677 (2005-08-23) |
+| 4 | 2006-06-08 | Decreto Ejecutivo 33189 (2006-06-08) |
