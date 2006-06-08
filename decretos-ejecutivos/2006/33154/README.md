@@ -14,3 +14,4 @@ Crea Programa de transferencia monetaria para promover mantenimiento de los y la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2006-06-08 | Decreto Ejecutivo 33203 (2006-06-08) |
