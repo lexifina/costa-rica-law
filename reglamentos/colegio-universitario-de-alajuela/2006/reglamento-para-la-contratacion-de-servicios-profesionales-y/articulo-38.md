@@ -1,0 +1,1 @@
+Artículo 38.—Aplicación de otra normativa. Para resolver los casos no contemplados en este reglamento, se aplicarán supletoriamente la Ley General de Control Interno (Ley Nº 8292), Ley de Administración Pública (Ley Nº 6227), Ley General de Administración Financiera de la República y Presupuestos Públicos (Ley Nº 8131).

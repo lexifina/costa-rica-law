@@ -1,0 +1,1 @@
+Artículo 25.—Del contratista. Es su obligación cumplir, con las especificaciones estipuladas en el contrato y demás documentos concernientes, según los términos de referencia y presentar los informes correspondientes de avance de resultados y el final.

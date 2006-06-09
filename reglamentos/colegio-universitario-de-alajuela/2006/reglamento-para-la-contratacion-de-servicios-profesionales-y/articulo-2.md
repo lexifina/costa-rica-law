@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. El alcance de la contratación de servicios profesionales y técnicos será de aplicación por parte de la Administración, únicamente para cubrir necesidades de excepcionalidad, ocasionales y solo se podrá realizar en plazos máximos de un año salvo que por la naturaleza especial del objeto de contratación requiera exceder ese plazo, lo cual deberá de ser expresa y plenamente autorizado por el Decano.
+Lo mismo se aplicará en el caso de que sea necesario prorrogar el plazo de contratación.

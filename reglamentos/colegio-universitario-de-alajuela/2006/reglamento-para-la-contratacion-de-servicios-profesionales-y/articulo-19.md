@@ -1,0 +1,1 @@
+Artículo 19.—Del refrendo del contrato. Todo contrato de estimación superior a los dos millones quinientos mil colones debe ser refrendado oportunamente por el Departamento de Asesoría Legal, posterior a la firma del Decano en su calidad de representante legal.

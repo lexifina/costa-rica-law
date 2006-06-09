@@ -1,0 +1,1 @@
+Artículo 39.—Sanciones. Cualquier infracción a las disposiciones contenidas en este reglamento dará lugar a la aplicación del régimen disciplinario a los funcionarios involucrados, según los artículos del 95 al 98 de la Ley de Contratación Administrativa y lo estipulado en el Reglamento Autónomo de Organización y Servicios del Colegio Universitario de Alajuela.

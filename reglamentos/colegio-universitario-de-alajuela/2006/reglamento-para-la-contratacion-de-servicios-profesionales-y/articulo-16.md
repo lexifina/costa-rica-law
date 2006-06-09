@@ -1,0 +1,1 @@
+Artículo 16.—Condiciones de contratación. Los trámites administrativos para la contratación de servicios profesionales y técnicos se realizarán por una única vez, con base en los términos de referencia establecidos por la unidad solicitante.

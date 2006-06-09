@@ -1,0 +1,1 @@
+Artículo 6º—Unidades solicitantes. El Consejo Directivo, Decano, y los Directores, serán los responsables de realizar las solicitudes para la “contratación de servicios profesionales y técnicos, su justificación y el establecimiento y especificación de los términos de referencia para la contratación de los servicios”.

@@ -1,0 +1,1 @@
+Artículo 21.—Del pago de la consultoría. Se realizará de conformidad con los términos y plazos establecidos en el contrato, previo informe de cumplimiento de la unidad ejecutora aval del Departamento de Proveeduría.

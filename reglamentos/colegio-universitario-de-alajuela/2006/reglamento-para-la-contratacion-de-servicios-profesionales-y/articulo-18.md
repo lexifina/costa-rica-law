@@ -1,0 +1,1 @@
+Artículo 18.—De la firma del contrato. Todo contrato debe estar debidamente firmado y autenticado con anterioridad a su ejecución por el contratista en calidad de oferente de un servicio profesional o técnico y el Decano como contratante, en su condición de representante legal de la Institución.

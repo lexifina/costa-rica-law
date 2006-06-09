@@ -1,0 +1,1 @@
+Artículo 29.—Decano o Consejo Directivo. Será el responsable de aprobar la contratación de la consultoría, según los criterios emitidos por la Comisión Técnica. El Decano si por el monto debe realizarse por contratación Directa y el Consejo Directivo en los otros casos.
