@@ -1,0 +1,1 @@
+Artículo 3º—El CUNA brinda un servicio gratuito de acceso y estacionamiento dentro de sus instalaciones y no asume responsabilidad alguna por los daños que puedan surgir a los vehículos, por vuelcos, colisiones, o los robos o sustracciones que puedan sobrevenir. El CUNA, tampoco será responsable por ninguna actuación que infrinja la Ley de Tránsito.

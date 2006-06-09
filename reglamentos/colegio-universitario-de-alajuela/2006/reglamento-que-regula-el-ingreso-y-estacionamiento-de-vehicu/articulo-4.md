@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de control interno, se podrán establecer niveles de acceso definidos según la relación con la Institución, especialmente en relación con los horarios, con el fin de no saturar las áreas de estacionamiento.

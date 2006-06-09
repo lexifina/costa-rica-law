@@ -1,0 +1,1 @@
+Artículo 23.—Cuando por necesidades de carácter académico o cuando autoridades de la Administración Superior así lo establezcan, se permitirá el acceso de vehículos sin la obligatoriedad del uso de la tarjeta a las áreas y en los horarios previamente definidos, siempre sujetos a los espacios disponibles en el área de visitantes.

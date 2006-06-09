@@ -1,0 +1,1 @@
+Artículo 16.—Todos los vehículos, sin excepción, deberán ser estacionados en posición de salida rápida, con vista frontal hacia la salida correspondiente, marcada para esos efectos por la comisión de seguridad y salud ocupacional designada por el CUNA.

@@ -1,0 +1,1 @@
+Artículo 21.—Los taxímetros que transportan personas con limitaciones físicas o dolencias que impidan su normal desplazamiento, podrán acceder lo más cerca posible de su destino. Lo anterior en uso de un criterio razonable de prioridad y conveniencia.

@@ -1,0 +1,1 @@
+Artículo 13.—El CUNA en virtud de los convenios o acuerdos existentes, podrá autorizar en forma expresa el ingreso de vehículos, por la vía establecida, limitando o facultando a los usuarios, al uso de espacios prefijados. Lo anterior en virtud de que siempre tendrán prioridad los miembros de la comunidad institucional, ello en virtud del número de espacios disponibles.

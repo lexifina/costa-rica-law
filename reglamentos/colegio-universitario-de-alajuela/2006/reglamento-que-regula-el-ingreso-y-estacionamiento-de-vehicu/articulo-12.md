@@ -1,0 +1,1 @@
+Artículo 12.—El usuario que permita que su tarjeta sea usada por otra persona, perderá su derecho de ingreso, se desactivará su tarjeta de inmediato y asumirá la responsabilidad por los efectos que su acción pudiese producir. El CUNA se reserva el derecho de tomar las acciones correspondientes dependiendo de los efectos que la violación de esta estipulación genere.

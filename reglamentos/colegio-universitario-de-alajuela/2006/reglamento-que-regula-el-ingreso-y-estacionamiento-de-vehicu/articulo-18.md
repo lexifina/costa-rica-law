@@ -1,0 +1,1 @@
+Artículo 18.—El irrespeto a lo establecido en los artículos anteriores acarrearán como sanción primaria una llamada de atención y en caso de reincidencia se le suspenderá al infractor el correspondiente derecho de ingreso a la institución.

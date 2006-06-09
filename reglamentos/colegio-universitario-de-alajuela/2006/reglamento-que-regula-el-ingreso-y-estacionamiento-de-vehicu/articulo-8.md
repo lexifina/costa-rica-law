@@ -1,0 +1,1 @@
+Artículo 8º—Las tarjetas de ingreso se expedirán a solicitud del interesado y son de carácter personal, intransferible a otras personas y corresponderán a un solo vehículo. Dichas tarjetas permitirán el ingreso de acuerdo al horario institucional correspondiente para cada usuario.
