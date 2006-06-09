@@ -1,0 +1,1 @@
+Artículo 26.—Una vez vencidos los plazos establecidos en el presente Reglamento, sin existir resolución, el recurrente podrá considerar desestimada su pretensión para los efectos legales correspondientes.

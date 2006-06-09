@@ -1,0 +1,1 @@
+Transitorio tercero: La aplicación de lo dispuesto en el artículo 10º, referente a la firma del inspector en el traslado de cargos, entrará a regir cuando lo disponga la Gerencia de la División Financiera, una vez que se realicen los ajustes y se adopten los controles administrativos necesarios, sin que para ello el plazo exceda de ocho meses.

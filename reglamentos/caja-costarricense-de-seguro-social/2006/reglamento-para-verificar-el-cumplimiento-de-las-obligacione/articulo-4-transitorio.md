@@ -1,0 +1,2 @@
+Transitorio cuarto: Los procedimientos de determinación en los cuales se haya efectuado el traslado de cargos antes de la entrada en vigencia del presente Reglamento, se continuarán tramitando y fenecerán con apego a lo dispuesto en el Reglamento aprobado por la Junta Directiva en el artículo 15º de la sesión N° 7485, celebrada el 5 de octubre del 2000, y publicado en La Gaceta N° 221 del 17 de noviembre del 2000.
+San José, 5 de junio del 2006

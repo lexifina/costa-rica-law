@@ -1,0 +1,1 @@
+Artículo 11.—En los casos que el patrono o trabajador independiente acepte los cargos por escrito, ello facultará a la administración para dictar el informe de inspección resolutivo, sin que sea necesario el cumplimiento del plazo para el descargo conferido en el artículo anterior de este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 22.—Los recursos se presentarán por escrito ante el jefe de sección o sucursal que dictó el informe de inspección con carácter resolutivo. Bajo pena de inadmisibilidad, deberán ser fundamentados expresando las razones y aportando u ofreciendo las pruebas pertinentes.
+El escrito deberá señalar lugar y medio para recibir notificaciones en alzada, dentro del perímetro establecido en el artículo 17º, cuando el órgano superior esté ubicado en otro lugar.
+En el caso de que el patrono o trabajador independiente indique como medio de notificación número facsimilar o cualquier otro medio electrónico, no aplica la limitación de que éste se encuentre dentro del perímetro administrativo establecido por la Caja.

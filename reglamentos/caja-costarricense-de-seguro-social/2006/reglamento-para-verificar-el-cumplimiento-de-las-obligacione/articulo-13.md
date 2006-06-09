@@ -1,0 +1,1 @@
+Artículo 13.—Finalizada la etapa señalada en el artículo anterior, se procederá al análisis de toda la prueba que consta en el expediente, de ser necesario, la administración podrá requerir prueba para mejor proveer, de previo al dictado del informe de inspección resolutivo.

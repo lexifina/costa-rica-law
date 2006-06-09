@@ -1,0 +1,1 @@
+Artículo 28.—Cualquier órgano involucrado en el procedimiento aquí establecido, podrá comisionar a otras oficinas de la Caja para recibir, evacuar y diligenciar las pruebas y actuaciones que estime necesarias.
