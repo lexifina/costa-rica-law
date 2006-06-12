@@ -14,3 +14,4 @@ Reglamento para el Trámite de Reclamos Administrativos (NOTA: El Banco de Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-06 | la propia norma |
+| 2 | 2006-06-12 | Reglamento 23 (2006-06-12) |
