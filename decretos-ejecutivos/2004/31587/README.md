@@ -14,3 +14,4 @@ Crea la Comisión Presidencial (COPRE)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-12 | la propia norma |
+| 2 | 2006-06-12 | Decreto Ejecutivo 33174 (2006-06-12) |
