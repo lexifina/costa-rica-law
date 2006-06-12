@@ -1,1 +1,0 @@
-Artículo 2º—A excepción del Presidente, los restantes miembros del Consejo de Administración aquí integrados, permanecerán en su cargo hasta por el plazo máximo equivalente al del nombramiento del Presidente de la República, pudiendo ser reelegidos.
