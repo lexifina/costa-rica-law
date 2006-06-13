@@ -1,0 +1,1 @@
+Artículo 2º—Los beneficios fiscales para la adquisición de combustibles, son aplicables exclusivamente a los vehículos que son propiedad de la Benemérita Asociación Cruz Roja Costarricense según lo estipulado en el artículo 1º de la Ley Nº 8451.
