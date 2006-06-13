@@ -1,0 +1,1 @@
+Artículo 14.—Información requerida por la normativa prudencial. La SUGEF debe poner a disposición de las entidades en forma oportuna la información de dominio público sobre sus deudores y fiadores necesaria para cumplir con la normativa prudencial vigente, según el Anexo.

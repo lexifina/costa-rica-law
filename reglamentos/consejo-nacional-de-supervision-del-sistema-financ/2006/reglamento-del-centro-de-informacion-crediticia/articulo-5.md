@@ -1,0 +1,2 @@
+Artículo 5º—Información de dominio público. Para efectos de este Reglamento, se considera información de dominio público aquella incluida en el Anexo, punto 1) “Variables incluidas en el reporte para la entidad sin autorización”.
+De acuerdo con lo establecido en el Artículo 133 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica la información indicada en el párrafo anterior puede ser consultada únicamente por las entidades o la persona a que se refiere esa información.

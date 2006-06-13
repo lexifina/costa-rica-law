@@ -1,0 +1,1 @@
+Artículo 13.—Inclusión y modificación de información en el padrón de personas. Toda solicitud de inclusión de personas o modificación de la información en el padrón de personas de la SUGEF debe tramitarse a través del CIC, previa verificación en el padrón de la SUGEF según lo indicado en el apartado A del Artículo 8 de este Reglamento.
