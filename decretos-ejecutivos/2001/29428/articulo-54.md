@@ -1,3 +1,3 @@
-Artículo 54.— De la comunicación del traslado. El Ministerio deberá comunicar al funcionario en el exterior con al menos tres meses de anticipación el acto administrativo mediante el cual se acuerde su traslado. Los funcionarios trasladados dentro del servicio interno deberán recibir comunicación con al menos un mes de anticipación, salvo que a juicio del Ministro haya motivos graves para establecer un plazo menor.
-La comunicación relativa al traslado deberá indicar siempre el nuevo puesto que ocupará el funcionario.
-(Así reformado el artículo anterior por el artículo 1° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+Artículo 54.—De la comunicación del traslado. El Ministerio deberá comunicar al funcionario en el exterior con al menos un mes de anticipación el acto administrativo mediante el cual se acuerde su traslado. Dicho mes podrá prorrogarse atendiendo las razones especiales de cada caso en particular.
+Lo anterior incluye los traslados acordados dentro del Servicio Interno, salvo que a juicio del Ministro haya motivos graves para establecer un plazo menor. En todo caso, la comunicación relativa al traslado deberá indicar siempre el nuevo puesto que ocupará el funcionario.
+(Así reformado mediante el artículo 7 del decreto ejecutivo N°33177 del 14 de junio del 2006).
