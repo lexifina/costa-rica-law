@@ -1,1 +1,0 @@
-Artículo 3°—En aquellos casos en que el funcionario afectado tenga dudas sobre la aplicabilidad de este acuerdo a una determinada actividad o situación, podrá solicitar una interpretación de parte del Señor Presidente de la República quién, a solicitud del interesado, emitirá interpretación razonada.
