@@ -1,0 +1,3 @@
+Artículo 2º—Autorízase al Programa Integral de Mercadeo Agropecuario (PIMA), para que condone el crédito contraído por Coopesilencio R. L., por la suma de doce millones quinientos sesenta mil quinientos dieciséis colones con cuarenta céntimos (¢12.560.516,40); esta suma corresponde al saldo por concepto de principal adeudado. Asimismo, se autoriza la condonación de los intereses corrientes y moratorios pendientes de pago y los que se generen hasta que se apruebe y se formalice la condonación de esta deuda.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de mayo del dos mil seis.
