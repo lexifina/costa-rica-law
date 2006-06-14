@@ -1,0 +1,2 @@
+Artículo 9º—Tarifa telefónica a reconocer: Mensualmente se reconocerá por uso de celular la suma de $30 o su equivalente en colones. El exceso en los límites establecidos deberá ser cancelado por el alcalde, vía deducción de planilla, previamente aceptado por este en el convenio de uso.
+La Tesorería Municipal será quien vele por un cabal uso de los celulares en cuanto al pago y reposición de dinero en caso de excedentes en la tarifa reconocida por esta Municipalidad.

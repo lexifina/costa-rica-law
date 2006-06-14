@@ -1,0 +1,1 @@
+Artículo 4º—Contrato: Para el uso de los teléfonos celulares, el alcalde deberá suscribir con la municipalidad un convenio, en el que se indicará la responsabilidad del funcionario en cuanto al uso del aparato.
