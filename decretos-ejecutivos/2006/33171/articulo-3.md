@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de cumplir con lo dispuesto en el artículo 19 del Código de Comercio, en la publicación en el Diario Oficial La Gaceta se hará constar que la denominación social de la empresa que se constituye, se hace de conformidad con lo dispuesto en el artículo 2 de este Decreto.

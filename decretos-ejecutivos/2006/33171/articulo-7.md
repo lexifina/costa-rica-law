@@ -1,0 +1,1 @@
+Artículo 7º—Las disposiciones de este Decreto no aplicarán a las sociedades en nombre colectivo y en comandita simple, o cualquiera otras entidades que en virtud de normativas especiales, requieran identificarse mediante razón social o una denominación específica.
