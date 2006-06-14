@@ -1,0 +1,1 @@
+Artículo 5º—Queda absolutamente prohibido las actividades y espectáculos masivos que puedan ocasionar daños a las áreas verdes, así mismo está prohibido dentro del parque el uso de todo tipo de juegos de mesa o mecánicos.

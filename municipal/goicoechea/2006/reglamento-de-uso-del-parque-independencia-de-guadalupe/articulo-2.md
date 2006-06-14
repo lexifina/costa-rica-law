@@ -1,0 +1,1 @@
+Artículo 2º—Toda actividad de carácter público (política, religiosa y afines) a realizarse en el Parque de la Independencia deberá contar con la respectiva licencia o permiso extendido por la oficina del Alcalde Municipal y presentar un croquis en el que se indique la distribución de las actividades respetándose en todo momento las zonas enzacatadas.

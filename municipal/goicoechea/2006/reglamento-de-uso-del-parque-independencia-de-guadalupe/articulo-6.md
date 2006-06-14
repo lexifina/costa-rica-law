@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad organizará al año tres actividades en el Parque Independencia, a saber la celebración del Aniversario del Cantón, la Semana Cívica y la Semana Cultural, para lo cual la administración debe igualmente velar por el mantenimiento del parque y cumplir con las mismas disposiciones del presente Reglamento.
