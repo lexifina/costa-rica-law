@@ -14,3 +14,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2006-06-14 | Decreto Ejecutivo 33178 (2006-06-14) |
