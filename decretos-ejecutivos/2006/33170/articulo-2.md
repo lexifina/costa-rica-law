@@ -1,0 +1,1 @@
+Artículo 2º—La creación de estos tipos de clase de puestos será temporal y tendrá una vigencia igual a los Convenios de Préstamo de Funcionarios que establece el Decreto Ejecutivo Nº 30544-MP-SP, sea hasta el 8 de mayo del 2010.
