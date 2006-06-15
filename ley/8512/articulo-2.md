@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase al Ministerio de Agricultura y Ganadería y al Comité Especial del Fideicomiso MAG-PIPA/BANCRÉDITO, para que instruya al Banco Crédito Agrícola de Cartago, banco fiduciario para realizar la venta directa del inmueble, basado en el valor del avalúo efectuado por la Dirección General de Tributación, del Ministerio de Hacienda.
