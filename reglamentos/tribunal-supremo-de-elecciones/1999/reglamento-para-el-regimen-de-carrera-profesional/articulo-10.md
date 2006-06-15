@@ -27,5 +27,5 @@ Un punto por cada año de experiencia docente universitaria o parauniversitaria,
 g)- Publicaciones efectuadas:
 g-1)- Cinco puntos por cada libro, hasta un máximo de 40 puntos.
 g-2)- Un punto por cada publicación realizada con carácter de ensayo, artículo, antología o compilación, hasta un máximo de 20 puntos.
-h)- Responsabilidad por el ejercicio profesional de la función electoral:
-A quienes cumplan con los requisitos que establece el presente reglamento, se les reconocerá un plus salarial equivalente al 18 % de su sueldo base.
+h)- Responsabilidad por el ejercicio profesional de la función electoral: A quienes cumplan con los requisitos que establece el presente reglamento, se les reconocerá un plus salarial equivalente al 18% de su sueldo base, con excepción del cargo de Director General del Registro Civil en cuyo caso el plus será de un 25% sobre su sueldo base.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 7 del 15 de junio del 2006).

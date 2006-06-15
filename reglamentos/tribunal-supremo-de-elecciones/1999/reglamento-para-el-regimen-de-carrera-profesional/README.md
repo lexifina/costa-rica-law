@@ -14,3 +14,4 @@ Reglamento para el Régimen de Carrera Profesional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-29 | la propia norma |
+| 2 | 2006-06-15 | Decreto TSE 7 (2006-06-15) |
