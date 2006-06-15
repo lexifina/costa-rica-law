@@ -1,0 +1,1 @@
+Artículo 3º—Autorizase al Banco Crédito Agrícola de Cartago y al Banco Popular y de Desarrollo Comunal, en su calidad de fiduciarios de los fideicomisos 05-99 PIPA/Bancrédito y 02-99-MTSS-PRONAMYPE/Banco Popular, respectivamente, para que efectúen los trámites de condonación que les ordenen los fideicomitentes indicados en esta Ley.
