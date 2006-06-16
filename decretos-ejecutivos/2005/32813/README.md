@@ -14,3 +14,4 @@ Fija salarios mínimos que regirán en todo el país a partir del 1° de enero d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-01 | la propia norma |
+| 2 | 2006-06-16 | Decreto Ejecutivo 33188 (2006-06-16) |
