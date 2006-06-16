@@ -1,2 +1,0 @@
-3º—En caso de que persista la suspensión de pagos y siempre que se haya autorizado la venta de los valores del emisor, el monto que se obtenga por esa venta será distribuido entre los inversionistas existentes a la fecha del aprovisionamiento en forma proporcional a su participación en esos valores, bajo la forma de nuevas participaciones en el fondo de inversión, y en consecuencia procederá a ir eliminando de las cuentas de orden los montos correspondientes a dichas ventas.
-San José, noviembre del 2003.—Intendente General de Valores.—
