@@ -1,0 +1,1 @@
+Artículo 17.—El Fondo estará sujeto a arqueos periódicos que deberá realizar la Contabilidad, la Auditoría Interna del CONICIT, así como por otros entes de control externo, como la Auditoría Externa y la Contraloría General de la República, cuando se requiera. La Tesorería estará obligada a brindar la información requerida para la realización de estos arqueos.

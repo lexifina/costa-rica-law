@@ -1,0 +1,1 @@
+Artículo 9º—Todo pago realizado por medio del Fondo de Caja Chica, debidamente autorizados por la Tesorería, no puede ser superior al 20% del fondo. Para montos superiores, se deberá contar con la autorización previa de la Secretaría Ejecutiva. Se exceptúa el pago de viáticos a que se refiere el artículo 5.
