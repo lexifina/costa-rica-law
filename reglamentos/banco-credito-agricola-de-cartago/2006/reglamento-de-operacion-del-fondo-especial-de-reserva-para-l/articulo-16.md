@@ -1,0 +1,1 @@
+Artículo 16.—BANCRÉDITO, en calidad de administrador del Fideicomiso 21-02, procederá a reintegrar los fondos en un plazo no mayor de tres días hábiles, contados a partir de la fecha de la solicitud a que se refiere el artículo 15.

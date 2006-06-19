@@ -1,0 +1,2 @@
+Artículo 18.—Al funcionario que incumpla con alguna de las disposiciones de este reglamento, y se le compruebe alguna anomalía relacionada con la administración o uso de fondos, se le aplicará en lo que corresponda lo estipulado en el Reglamento Autónomo de Organización y Servicios del CONICIT, capítulo IX, del régimen disciplinario, siempre en aplicación del debido proceso.
+Aprobado por el Comité Especial de Crédito en el acta 074, artículo I, celebrada el 29 de mayo del 2006.

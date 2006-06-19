@@ -1,0 +1,1 @@
+Artículo 15.—El Coordinador Administrativo y Financiero, solicitará a BANCRÉDITO, administrador del Fideicomiso 21-02, reintegrar al fondo los recursos utilizados una vez que haya recibido y revisado los documentos que justifiquen el desembolso.
