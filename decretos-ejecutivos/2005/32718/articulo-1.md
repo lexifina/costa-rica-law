@@ -10,4 +10,5 @@ Considerando:
 5º—Que mediante el oficio STAP-Circular-0496-05, del 7 de abril de 2005, se le comunicó al Instituto el gasto presupuestario máximo fijado para el año 2006.
 6º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Instituto para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Instituto Costarricense de Puertos del Pacífico (INCOP), el gasto presupuestario máximo fijado para el año 2006, establecido en el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 del 17 de marzo del 2005, y sus reformas, de manera que éste no podrá exceder la suma de ¢12.859.1 millones, en ese período.
+Artículo 1º—Modifícase para el Instituto Costarricense de Puertos del Pacífico (INCOP), el gasto presupuestario máximo fijado para el año 2006, establecido en el artículo 1º del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 del 17 de marzo del 2005, y sus reformas, de manera que éste no podrá exceder la suma de *¢26.859.1 millones, en ese período.
+*(Así reformado el monto anterior mediante el artículo 1° del decreto ejecutivo N° 33197 del 19 de junio del 2006)

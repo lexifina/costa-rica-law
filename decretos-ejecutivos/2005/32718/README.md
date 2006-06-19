@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense de Puertos del Pacífico (INCOP), el gasto p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-24 | la propia norma |
+| 2 | 2006-06-19 | Decreto Ejecutivo 33197 (2006-06-19) |
