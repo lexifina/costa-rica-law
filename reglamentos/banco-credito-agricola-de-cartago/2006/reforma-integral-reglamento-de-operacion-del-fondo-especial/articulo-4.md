@@ -1,0 +1,1 @@
+Artículo 4º—Los recursos del Fondo serán otorgados, por el Fideicomiso 25-02 suscrito entre CONICIT/BANCRÉDITO; refrendado por la Contraloría General de la República mediante oficio Nº 16485 del veinte de diciembre del dos mil dos.
