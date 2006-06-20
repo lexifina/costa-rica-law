@@ -13,3 +13,4 @@ Crea Consejo Nacional de Cáncer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-06 | la propia norma |
+| 2 | 2006-06-20 | Decreto Ejecutivo 33271 (2006-06-20) |
