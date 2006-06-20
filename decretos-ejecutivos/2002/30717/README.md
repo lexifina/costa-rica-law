@@ -14,3 +14,4 @@ Crea la Unidad de Apoyo y Asesoría al Control Interno del Ministerio de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-02 | la propia norma |
+| 2 | 2006-06-20 | Decreto Ejecutivo 33248 (2006-06-20) |

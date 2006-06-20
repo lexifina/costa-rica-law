@@ -1,1 +1,2 @@
-Artículo 2º—La Unidad formará parte del Departamento de Desarrollo Organizacional y Tecnológico, de la Dirección General de Planificación, por ser la dependencia encargada de llevar a cabo la formulación, monitoreo y evaluación de los planes, programas y proyectos en el Ministerio.
+Artículo 2º—La Unidad de Control Interno formará parte de la Dirección de Planificación del Ministerio de Trabajo y Seguridad Social, incorporándose como un Departamento más de la estructura orgánica que integra dicha Dirección, denominándose en adelante Departamento de Apoyo y Asesoría al Control Interno.
+(Así reformado mediante el artículo 1 del decreto ejecutivo N°33248 del 20 de junio del 2006).
