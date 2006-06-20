@@ -1,0 +1,1 @@
+Artículo 2º—Se derogan los Decretos 30798-MOPT publicado en La Gaceta N° 209 del 30 de octubre del 2002, Alcance N° 80 y 32385- MOPT publicado en La Gaceta 104 del 31 de mayo del 2005, quedando los mismo sin efecto ni valor alguno.
