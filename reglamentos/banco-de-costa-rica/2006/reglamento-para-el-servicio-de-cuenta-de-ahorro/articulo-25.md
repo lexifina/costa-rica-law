@@ -1,0 +1,4 @@
+Artículo 25.—Nombramiento de beneficiarios. En las cuentas de ahorro y con arreglo al artículo 183 de la Ley reguladora del mercado de valores, su titular puede nombrar beneficiarios para el caso de muerte, en la proporción que estime conveniente. Estos adquirirán la propiedad de los fondos una vez ocurrido su deceso.
+La proporción en que serán distribuidos los fondos entre los beneficiarios, deberá sumar el 100%, y de no establecerse proporciones deberá entenderse que todos son beneficiarios por partes iguales.
+A efecto de que el Banco pueda hacer efectivo el traslado de los fondos a los beneficiarios, éstos deberán demostrar el deceso del cuenta ahorrante, mediante la respectiva acta de defunción.
+Como la facultad de designar beneficiarios se deriva de una disposición legal expresa, el Banco no asumirá ninguna responsabilidad por la existencia de otros documentos que acrediten como herederos a personas diferentes a los beneficiarios designados.

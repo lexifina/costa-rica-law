@@ -1,0 +1,2 @@
+Artículo 6º—Condiciones especiales. Asimismo y atendiendo a las políticas que la regulan, el Banco establecerá condiciones especiales respecto de la tarjeta de débito, tales como: su dueño, límites de los montos disponibles u otros.
+En virtud de lo anterior y teniendo en consideración que la emisión de la tarjeta a nombre del menor es una decisión librada a voluntad exclusiva de sus padres, representantes o tutores, a quienes se les hará entrega del plástico y respectivo Pin, el Banco de Costa Rica queda relevado de toda responsabilidad por el uso que aquel haga de la misma.
