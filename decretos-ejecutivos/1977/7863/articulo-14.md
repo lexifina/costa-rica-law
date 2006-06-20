@@ -14,3 +14,5 @@ i) Suministrar al Consejo la información regular, exacta y completa que sea nec
 j) Proponer al Consejo normas generales de las políticas que debe llevarse adelante y que considere oportunas;
 k) Proponer al Consejo la creación de plazas y servicios indispensables para el buen funcionamiento del PIMA; y
 l) Desempeñar cualesquiera otras funciones que le asignen la ley y los reglamentos.
+m) Aprobar las contrataciones directas y las licitaciones restringidas, de conformidad con lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+(Así adicionado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33217 del 20 de junio del 2006).
