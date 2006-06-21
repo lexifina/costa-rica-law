@@ -1,0 +1,4 @@
+Artículo 9º—Del manejo de la información.
+9.1. El SFE creará y administrará una base de datos con información de organismos invertebrados de uso agrícola para darle soporte informático a la gestión del registro.
+9.2. El registrante de organismos invertebrados de uso agrícola podrá indicar cuáles datos corresponden a secretos industriales o comerciales. El SFE mediante resolución declarará como información confidencial toda aquella que considere según lo establecido por la legislación vigente.
+9.3. Los datos técnicos y los resultados de los ensayos de eficacia empleados para el registro de organismos invertebrados de uso agrícola, no pueden ser utilizados para el registro de otro producto, salvo que se trate del mismo titular del registro o un tercero autorizado por el titular del registro.
