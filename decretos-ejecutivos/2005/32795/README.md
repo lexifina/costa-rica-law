@@ -14,3 +14,4 @@ Resolución N° 146-2005 (COMIECO-XXXII): Reglamento Centroamericano sobre el Or
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-07 | la propia norma |
+| 2 | 2006-06-21 | Decreto Ejecutivo 33263 (2006-06-21) |

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32795
+(Este decreto fue Derogado por el artículo 36 de la Resolución N° 156-2006 (COMIECO-EX), la cual fue aprobada por decreto ejecutivo N° 33263 del 21 de junio de 2006)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE COMERCIO EXTERIOR
 De conformidad con las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; el artículo 28, párrafo 2, inciso b) de la Ley 6227, Ley General de la Administración Pública del 02 de mayo de 1978; el artículo V del Tratado General de Integración Económica Centroamericana; Ley 3150 del 13 de septiembre de 1963 y los artículos 1, 7, 36, 37, 38, 39 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley 7629 del 26 de septiembre de 1996.
