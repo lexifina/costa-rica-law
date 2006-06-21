@@ -6,3 +6,5 @@ d) Autorizar las inversiones en los instrumentos elegibles, de acuerdo con esta 
 e) Otorgar el reconocimiento de "banco extranjero de primer orden" a las entidades que cumplan con los requisitos establecidos en las "Normas para el reconocimiento de Bancos Extranjeros de Primer Orden".
 f) Hacer de conocimiento de la Junta Directiva del Banco Central, las decisiones tomadas en virtud de las facultades antes señaladas.
 g) Ejercer las demás atribuciones que le confiera la Junta Directiva del Banco Central.
+*g) Decidir la conveniencia de mantener o liquidar anticipadamente una posición en caso que se presente una pérdida de requisitos de inversión. Para esto, utilizará información aportada por los Departamento de Administración de Activos y Pasivos y de Análisis y Control de Riesgos.
+*(NOTA: Este inciso fue adicionado mediante sesión Nº 5284 del 21 de junio de 2006)
