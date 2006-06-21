@@ -1,0 +1,2 @@
+Artículo 5º—Modificar el artículo 48 del Reglamento del Estatuto de Servicio Exterior de la República, Decreto Ejecutivo N° 29428-RE del 30 de marzo del 2001 y sus reformas, para que en lo sucesivo se lea como sigue:
+“Artículo 48.—Permanencia en una misma Sede. En ningún caso, los funcionarios del Servicio Exterior permanecerán menos de dos ni más de cuatro años continuos en una misma sede, con las salvedades que se indican en el párrafo primero del artículo 44, en cuanto al mínimo; y en cuanto al máximo, con la autorización expresa que contempla el artículo anterior.”
