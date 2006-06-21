@@ -15,3 +15,4 @@ Estructura Organizativa de la Dirección General de Tributación
 | --- | --- | --- |
 | 1 | 2006-03-09 | la propia norma |
 | 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
+| 3 | 2006-06-21 | Resolución 16 (2006-06-21) |

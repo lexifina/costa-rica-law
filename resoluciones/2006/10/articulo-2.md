@@ -31,7 +31,7 @@ h) Cualesquiera otras que le asigne la Dirección General y la Subdirección Gen
 a) Desarrollar e implementar un Sistema de Planificación y Gerencia Tributaria acorde con las exigencias del entorno y la estructura funcional de la Dirección General de Tributación.
 b) Elaborar el manual de procedimientos del sistema de planificación y gerencia tributaria.
 c) Guiar la formulación del plan estratégico y de los planes operativos anuales emitidos por la Dirección General de Tributación.
-d) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+d) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006 y posteriormente se volvió a derogar mediante el artículo 1 de la resolución DGT-16 del 21 de junio del 2006).
 e) Asegurar la planificación e integración de planes de control tributario de la Dirección General de Aduanas, Policía de Control Fiscal y Dirección General de Hacienda.
 f) Elaborar los anteproyectos de presupuestos ordinarios y extraordinarios con fundamento en el programa anual de necesidades de recursos materiales y de compras, que se deberá preparar en coordinación con los niveles gerenciales.
 g) Emitir directrices que permitan medir el desempeño de la organización.
@@ -41,9 +41,9 @@ j) Evaluar periódicamente la relevancia, ingerencia e información de los infor
 k) Desarrollar y administrar un programa de monitoreo de desempeño del empleado y de un sistema de apreciación a través del cual se habilite el desembolso de pagos de incentivos basados en estándares o evaluaciones del desempeño, en coordinación con la Unidad Técnica de Recursos Humanos del Ministerio de Hacienda.
 l) Evaluar y proponer los cambios que considere oportunos para adaptar la estructura organizativa y ocupacional de la Dirección General de Tributación.
 m) Dar seguimiento al cumplimiento de las disposiciones de los Informes de la Contraloría General de la República e informar oportunamente a la Dirección General cuando se presenten factores que puedan incidir negativamente en el cumplimiento de las actividades programadas para cumplir con estas disposiciones.
-n) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+n) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006 y posteriormente se volvió a derogar mediante el artículo 1 de la resolución DGT-16 del 21 de junio del 2006).
 o) Proveer asesoría y asistencia técnica en lo relativo a planificación y gerencia tributaria.
-p) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+p) (Así derogado este inciso mediante el inciso 10 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006 y posteriormente se volvió a derogar mediante el artículo 1 de la resolución DGT-16 del 21 de junio del 2006).
 q) Realizar estudios económicos de la gestión tributaria.
 r) Desarrollar compilaciones estadísticas acompañadas por explicaciones analíticas concernientes a actividades tributarias, en coordinación con los directores de División.
 s) Cualesquiera otras que le asigne la Dirección General.
@@ -118,7 +118,8 @@ B- División de Recaudación: Esta División estará integrada por las Subdirecc
 i) Registro y Validación de la Información Tributaria
 ii) Procesamiento y Control de Información Tributaria
 iii) Control de Cobranzas
-Además, tendrá adscrita el Área de Documentación y Archivo.
+Además, tendrá adscrita el Área de Documentación y Archivo a cargo de las funciones de custodia, registro y validación de los documentos, bajo los lineamientos, seguimiento y control de las subdirecciones Registro y Validación de la Información Tributaria y Procesamiento y Control de Información Tributaria, según se cita explícitamente en las funciones propias de estas subdirecciones.
+(Así reformado el párrafo anterior mediante el artículo 5 de la resolución DGT-16 del 21 de junio del 2006).
 i. La Subdirección de Registro y Validación de Información Tributaria será competente de:
 a) Definir los planes anuales y programas en concordancia con las metas de la Dirección General y las políticas institucionales.
 b) Elaborar los procedimientos para mantener actualizada y depurada la cuenta corriente de los contribuyentes, declarantes o responsables.
@@ -286,7 +287,8 @@ a) Establecer las disposiciones generales de valoración para el uso común de l
 b) Mantener coordinación estricta con las municipalidades y el Catastro Nacional, para desarrollar la valoración de forma óptima.
 c) Suministrar a las municipalidades los métodos de depreciación, las tasas de vida útil totales y estimadas, los valores de las edificaciones según los tipos, los métodos para valorar terrenos, factores técnicos y económicos en cuanto a topografía, ubicación, descripción, equipamiento urbano y servicios públicos del terreno.
 d) Analizar la calidad de los avalúos realizados por las municipalidades, con el objeto de aplicar las correcciones necesarias. Se crean dos coordinadores de grupo, denominados grupo Este y grupo Oeste.
-ii. La Subdirección de Valoraciones Administrativas y Tributarias será competente de:
+ii. La Subdirección de Valoración de Bienes será competente de:
+(Así reformado el inciso anterior mediante el artículo 2 de la resolución DGT-16 del 21 de junio del 2006).
 a) Elaborar directrices, normas, procedimientos y metodologías para llevar a cabo los avalúos de bienes que por ley competan a la Dirección General de Tributación.
 b) Elaborar el Plan Anual de Valoración de Bienes
 c) Velar porque las valoraciones se realicen con objetividad e imparcialidad.
@@ -300,11 +302,9 @@ iii- La Subdirección de Investigaciones y Estudios Económicos será competente
 a) Elaborar normas, manuales y métodos para la ejecución de las diferentes funciones en la que se involucre el uso y manejo de la información sobre valores de bienes con fines fiscales.
 b) Coordinar los procesos de suministro y transferencia de información entre las distintas instituciones involucradas.
 c) Elaborar y analizar las informaciones estadísticas relativas a los bienes muebles e inmuebles.
-d) Coordinar con las municipalidades el suministro de la información sobre valores de bienes inmuebles, que permita el uso a esta Dirección General para la aplicación del Impuesto de Traspaso y para fines de fiscalización de otros impuestos que administra la
-Dirección General de Tributación.
+d) Coordinar con las municipalidades el suministro de la información sobre valores de bienes inmuebles, que permita el uso a esta Dirección General para la aplicación del Impuesto de Traspaso y para fines de fiscalización de otros impuestos que administra la Dirección General de Tributación.
 e) Coordinar con el Registro Público y el Catastro Nacional el suministro de la Información de trascendencia tributaria en materia de valoración de bienes.
-f) Analizar las solicitudes de desarrollos informáticos presentadas tanto por los funcionarios del ONT como por los funcionarios de las Áreas de valoración del
-país.
+f) Analizar las solicitudes de desarrollos informáticos presentadas tanto por los funcionarios del ONT como por los funcionarios de las Áreas de valoración del país.
 g) Coordinar con otras Divisiones los aspectos relacionados con opciones informáticas a desarrollar o modificar, relacionadas con la valoración de bienes.
 h) Elaborar los lineamientos de programas y de requerimientos o modificaciones a las opciones informáticas disponibles y de nuevas opciones a desarrollar.
 i) Verificar y aprobar las solicitudes de los desarrollos informáticos en materia de valoración.
@@ -348,19 +348,22 @@ h) Participar en la evaluación del cumplimiento de las metas asignadas a cada u
 i) Brindar apoyo y asesoría a la gerencia, subgerencias y coordinaciones de la administración tributaria.
 j) Colaborar en la instrucción de los casos que pudieran implicar posibles medidas disciplinarias contra funcionarios de la administración tributaria.
 k) Cualesquiera otras que asigne la Gerencia General.
-La Subgerencia de Recaudación estará constituida por las siguientes áreas, en cada una de las cuales se nombrará un coordinador:
+*La Subgerencia de Recaudación estará constituida por las siguientes áreas, en cada una de las cuales se nombrará un coordinador:
 a) Cobro Administrativo
 b) Cobro Coactivo
 c) Devoluciones
 d) Compensación y Actualización de Cuenta
-e) Impuestos Bienes Muebles e Inmuebles
-La Subgerencia de Recaudación, además de las labores propias de recaudación, deberá confeccionar los proyectos de resolución, sobre materia sancionadora de su competencia y las solicitudes de devolución de tributos administrados por la Dirección General de Tributación y conocer de los recursos de revocatoria interpuestos contra este tipo de actos administrativos, así como trasladar los recursos de apelación para ante el Tribunal Fiscal Administrativo de acuerdo a la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por la División de Recaudación. En general, deberá asumir la totalidad de los actos del debido proceso, emisión de la resolución y la atención de recursos que se deriven de los actos propios de su función.
-La Subgerencia de Gestión estará constituida por las siguientes áreas, en cada una de las cuales se nombrará un coordinador:
+e) Área resolutiva
+La Subgerencia de Recaudación, además de las labores propias de recaudación, deberá confeccionar los proyectos de resolución, sobre materia sancionadora de su competencia, sobre las solicitudes de devolución de créditos con concepto de pagos en exceso de tributos, pagos a cuenta, sanciones e intereses, administrados por la Dirección General de Tributación y conocer de los recursos de revocatoria interpuestos contra este tipo de actos administrativos, así como trasladar los recursos de apelación para ante el Tribunal Fiscal Administrativo de acuerdo a la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por la División de Recaudación. En general, deberá asumir la totalidad de los actos del debido proceso, emisión de la resolución y la atención de recursos que se deriven de los actos propios de su función.
+*(Así reformada la Subgerencia de Recaudación mediante el artículo 3 de la resolución DGT-16 del 21 de junio del 2006)
+*La Subgerencia de Gestión estará constituida por las siguientes áreas, en cada una de las cuales se nombrará un coordinador:
 a) Registro de Contribuyentes
 b) Información y Asistencia al Contribuyente
 c) Control de Cumplimiento Extensivo Formal
 d) Control de Cumplimiento Extensivo Material
+e) Área resolutiva
 La Subgerencia de Gestión, además de las labores propias de gestión, deberá confeccionar los proyectos de resolución referentes a liquidaciones previas y de imposición de sanciones administrativas de su competencia, de acuerdo a la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por la División de Gestión, y conocer de los recursos de revocatoria interpuestos contra este tipo de actos administrativos, así como trasladar los recursos de apelación para ante el Tribunal Fiscal Administrativo. En general, deberá asumir la totalidad de los actos del debido proceso, emisión de la resolución y la atención de recursos que se deriven de los actos propios de su función.
+*(Así reformada la Subgerencia de Gestión mediante el artículo 4 de la resolución DGT-16 del 21 de junio del 2006)
 La Subgerencia de Fiscalización estará constituida por siete grupos de fiscalización, dos de los cuales tendrán a su cargo la fiscalización de las grandes empresas territoriales, uno se encargará de la fase resolutiva y los restantes, de la fiscalización de los demás contribuyentes adscritos a esta administración. Para cada uno de estos grupos se nombrará un coordinador.
 La Subgerencia de Fiscalización, además de las labores propias de fiscalización, deberá confeccionar los proyectos de resolución de impugnaciones a los traslados de cargos y conocer de los recursos de revocatoria interpuestos contra las resoluciones determinativas o sancionadoras, así como trasladar los recursos de apelación para ante el Tribunal Fiscal Administrativo, de acuerdo a la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por la División de Fiscalización.
 En general, deberá asumir la totalidad de los actos del debido proceso, emisión de la resolución y la atención de recursos que se deriven de los actos propios de su función.
