@@ -13,3 +13,4 @@ Lineamientos para el mejoramiento continuo de la gestión del Consejo Superior d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-01 | la propia norma |
+| 2 | 2006-06-21 | Circular 91 (2006-06-21) |
