@@ -1,0 +1,1 @@
+Artículo 24.—Terminación de la relación estatutaria. Si al producirse la terminación de la relación estatutaria se determina que se han girado sumas de más, el Departamento Financiero deberá proceder de acuerdo a lo estipulado en los artículos 7, inciso b) y 28 de presente Reglamento.

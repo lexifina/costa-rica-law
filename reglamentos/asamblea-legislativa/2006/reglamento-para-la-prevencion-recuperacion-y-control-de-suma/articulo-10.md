@@ -1,0 +1,2 @@
+Artículo 10.—Devolución de una suma pagada de más. Una vez que el Departamento de Recursos Humanos haya determinado el pago de una suma de dinero que no corresponde, instruirá al funcionario o exfuncionario para que proceda a la devolución de dicha suma, según lo establecido en este Reglamento, ya sea por entero de gobierno en un banco del Sistema Bancario Nacional o el monto exacto, en efectivo, en el Área de Custodia y Entrega de Valores del Departamento Financiero.
+El Departamento Financiero entregará copia del entero de gobierno o comprobante de pago a Recursos Humanos.

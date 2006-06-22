@@ -1,0 +1,1 @@
+Artículo 9º—Comunicación de suma pagada de más. Todo funcionario o exfuncionario de la Institución deberá comunicarse de inmediato con el Departamento de Recursos Humanos cuando tenga conocimiento de que sin razón se le ha girado y depositado una suma de dinero que no le corresponde.
