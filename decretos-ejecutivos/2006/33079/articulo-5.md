@@ -1,8 +1,0 @@
-Artículo 5º—Objetivos del presente Decreto. Los objetivos principales del presente Decreto son:
-a. Facilitar a las Instituciones Públicas encargadas de la administración y ejecución de programas, servicios y beneficios para la atención de la pobreza, en la selección de potenciales beneficiarios.
-b. Legitimar el uso del SIPO como instrumento base y uniforme para la calificación y selección de la población en condiciones de pobreza por parte de todas las instituciones públicas relacionadas con la prestación de servicios y beneficios a dicha población.
-c. Facilitar el acceso e ingreso a la información socioeconómica y demográfica que brinda el SIPO por parte de las diferentes instituciones públicas, respetando el derecho de información y privacidad, de manera que sea factible realizar diagnósticos y otros estudios específicos sobre la población demandante de los programas y proyectos sociales, así como apoyar la formulación de las políticas de Estado orientadas a la superación de la pobreza.
-d. Poner a disposición de los programas sociales información socioeconómica de las personas y familias en condición de pobreza.
-e. Procurar la confiabilidad, validez, veracidad y consistencia de la información relacionada con la población destinataria de los programas sociales por medio del intercambio de información entre las instituciones.
-f. Ofrecer una calificación técnica, objetiva y uniforme de las personas y familias registradas y demandantes de los servicios institucionales, con base en los métodos de calificación de pobreza contenidos en el sistema.
-g. Suministrar a las diversas instituciones, información desagregada a nivel nacional, por región, provincia, cantón, distrito, barrio y caserío.

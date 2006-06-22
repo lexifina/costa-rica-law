@@ -1,1 +1,0 @@
-Artículo 16.—Utilización del SIPO. La utilización del SIPO se regirá por este Decreto y por las disposiciones que al efecto emita el Instituto Mixto de Ayuda Social para dicho sistema. La obtención de la licencia de utilización del sistema correrá por cuenta de la Institución interesada.

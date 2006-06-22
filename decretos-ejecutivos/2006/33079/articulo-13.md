@@ -1,2 +1,0 @@
-Artículo 13.—Seguimiento del plan interinstitucional. Corresponderá al Sistema Nacional de Evaluación (SINE) dar seguimiento al cumplimiento del Plan Interinstitucional para la actualización y fortalecimiento de la base de datos del SIPO.
-Para tal fin, el IMAS presentará bimensualmente un informe ante el SINE sobre el avance y el cumplimiento de las obligaciones de las Instituciones participantes.

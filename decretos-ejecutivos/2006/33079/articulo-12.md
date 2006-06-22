@@ -1,3 +1,0 @@
-Artículo 12.—Coordinación del plan interinstitucional. Corresponderá al IMAS coordinar, capacitar, apoyar y supervisar la labor de los funcionarios designados por las Instituciones participantes. Las instituciones participantes estarán sometidas a las directrices que, sobre el funcionamiento del sistema, emita el IMAS.
-Para tal efecto, el IMAS designará un funcionario responsable de coordinar la labor a nivel nacional y de rendir cuentas, ante la Presidencia Ejecutiva del IMAS.
-La coordinación regional del Plan Interinstitucional para la Actualización y Fortalecimiento de la base de datos del SIPO estará a cargo de los funcionarios que ocupen las Gerencias Regionales del IMAS.

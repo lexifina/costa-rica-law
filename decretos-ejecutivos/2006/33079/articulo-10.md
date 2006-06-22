@@ -1,2 +1,0 @@
-Artículo 10.—Plan interinstitucional para la actualización y fortalecimiento de la base de datos del SIPO. Se establece el Plan Interinstitucional para la actualización y Fortalecimiento de la base de datos del SIPO.
-Dicho Plan tendrá como objetivo fundamental realizar aplicaciones masivas de Fichas de Información Social a todas las familias en condiciones de pobreza del país, mediante la participación conjunta de las Instituciones que hayan suscrito convenio con el IMAS.

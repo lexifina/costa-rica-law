@@ -1,2 +1,0 @@
-Artículo 17.—Simplificación de trámites. Las instituciones que otorguen beneficios a la población en condición de pobreza, deberán adoptar las medidas correspondientes y los mecanismos de coordinación interinstitucional que sean necesarios a efectos de que se exima a los beneficiarios de la presentación de documentos que posea otra entidad u órgano público.
-Vigencia.—Rige a partir de su publicación.

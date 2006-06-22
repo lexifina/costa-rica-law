@@ -1,2 +1,0 @@
-Artículo 11.—Designación interinstitucional de funcionarios. Para la ejecución del Plan Interinstitucional para el Mantenimiento y Fortalecimiento de la base de datos del SIPO, las Instituciones participantes designarán funcionarios en los niveles regionales responsables de aplicar y digitar Fichas de Información Social.
-Corresponderá a dichas Instituciones adoptar las previsiones necesarias, a efecto que a dichos funcionarios se les dote de las herramientas requeridas para que realicen su labor.

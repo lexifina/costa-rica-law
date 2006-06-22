@@ -1,1 +1,0 @@
-Transitorio III.—Se establece un plazo de un año a partir de la aprobación del Plan de Trabajo mencionado en el Transitorio anterior para que el IMAS evalúe los resultados de su implementación y adopte las medidas correctivas correspondientes.
