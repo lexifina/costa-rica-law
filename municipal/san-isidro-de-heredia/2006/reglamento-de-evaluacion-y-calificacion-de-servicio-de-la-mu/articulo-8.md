@@ -1,0 +1,23 @@
+Artículo 8º—Aspectos Administrativos
+a) Cuando el funcionario obtiene una evaluación determinada deficiente durante dos períodos consecutivos se acordará el proceso disciplinario para su despido.
+b) El reconocimiento del mérito no podrá obtenerlo aquel funcionario que en un año haya estado incapacitado por más de seis meses, o bien que hubiere gozado de un permiso sin goce de salario por más de seis meses.
+c) Tanto el servidor como el Coordinador inmediato o el superior de éste, en caso de que participe en el proceso de evaluación, deberán firmar con su puño y letra los originales de los formularios de evaluación, no se permitirán el uso de facsímiles para éste propósito.
+d) La ausencia de la firma del Coordinador invalidará la evaluación del desempeño, por lo cual éste será responsable por los perjuicios que tal omisión cause al servidor.
+e) La ausencia de la firma del servidor hará presumir que éste no recibió el resultado de la evaluación del desempeño. Sin embargo si la omisión obedece a que el servidor se negó a firmar, el Director (a) deberá indicarlo así, en el apartado de observaciones y además.
+f) Deberá de registrar el hecho en un acta avalada por su firma y la de por lo menos dos testigos con sus respectivas calidades.
+g) Cuando el Director (a) inmediato no cumpla con su deber de evaluarlo, de acuerdo con el Código Municipal, el servidor deberá de registrar el hecho en un acta avalada por su firma y la de por lo menos dos testigos.
+h) Si el servidor se niega a asistir a la entrevista a la que fue convocado, para definir el resultado de la evaluación, el Director (a) deberá de seguir el mismo procedimiento descrito en el punto e). Siempre que haya renuncia del servidor en participar en la entrevista de evaluación o en aquella efectuada como consecuencia de la disconformidad de éste, el proceso de evaluación no se invalidará, sino que será continuado en forma exclusiva o unilateral por el Director (a) o el superior, si fuere el caso.
+i) En vista de que el formulario de evaluación del desempeño es un documento oficial de gran trascendencia para las distintas acciones legales o técnicas del proceso de administración de recursos humanos, debe ser llenado y manejado en forma cuidadosa. Deberá de estar exento de alteraciones, roturas, correcciones o tachaduras que hagan dudar de la autenticidad de los datos en él contenidos. Los datos personales del funcionario deberán de ser llenados a máquina, no así los siguientes.
+j) En caso de que el formulario no haya sido llenado correctamente, la Unidad de Recursos Humanos, lo devolverá al Coordinador inmediato para que lo llene en forma debida, para lo cual le dará un plazo de dos días, desde el momento que se le devuelve el formulario.
+k) Cuando el Director (a) por alguna razón no se encuentre laborando, la evaluación la realizará el superior del Coordinador inmediato.
+l) Una vez devueltas las evaluaciones ya revisadas por la Unidad de Recursos Humanos, cada Director(a) deberá de entregar el original a los funcionarios en un tiempo que no podrá exceder de tres días hábiles.
+m) El plazo para que el funcionario (a) en caso de disconformidad, presente sus objeciones a su Director(a), es de tres días hábiles siguiente a la comunicación del resultado.
+n) El plazo para que el Director (a) convoque a una nueva entrevista, en el caso de que el funcionario haya manifestado por escrito su disconformidad será de tres días hábiles, posterior a la fecha en que éste haya presentado la misma.
+o) El plazo para que el Director (a), en caso de mantenerse la disconformidad luego de la nueva entrevista y traslade la misma el Alcalde (sa), es el día hábil siguiente después de haber manifestado el servidor su disconformidad.
+p) El plazo para que el Alcalde (sa) convoque a las partes, será de tres días hábiles después de haber recibido el formulario de evaluación.
+q) El plazo para que el Alcalde (sa) envíe el formulario de evaluación el Director (a) del funcionario, será un día hábil después de haberse realizado la entrevista.
+r) El plazo para que el Director (a) remita los formularios a la Unidad de Recursos Humanos será de tres días hábiles posteriores a la fecha de evaluación.
+s) En caso de que el funcionario al que se le debe aplicar la evaluación este ausente por los siguientes casos: permiso con o sin goce de salario, incapacitado o vacaciones se les realizara la prueba en el momento que ingrese nuevamente y de acuerdo al tiempo que haya laborado.
+t) Se deberá remitir un resumen escrito a la Unidad de Recursos Humanos del resultado de la evaluación de todos los funcionarios detallando la siguiente información:
+• Nombre y apellidos completos del funcionario.
+• El puntaje y la calificación final de la evaluación.

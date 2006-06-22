@@ -1,0 +1,1 @@
+Artículo 9º—Marco Legal. El marco legal es la Base jurídica con la que se rige la realización de la evaluación y clasificación del servicio según el Código Municipal; en su Título V, Capítulo VI Evaluación y Calificación del Servicio.
