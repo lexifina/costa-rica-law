@@ -1,4 +1,5 @@
-Artículo 25.—La Oficialía Mayor estará a cargo del Oficial Mayor, a quien corresponderá:
+Artículo 25.—La Oficialía Mayor estará a cargo del Oficial Mayor y Director Administrativo, a quien corresponderá
+(Así reformado el párrafo anterior mediante el artículo 1 del decreto ejecutivo N°33183 del 23 de junio del 2006).
 a) Dirigir la elaboración de los anteproyectos y proyectos del presupuesto institucional.
 b) Optimizar y reforzar los recursos informáticos actuales y requeridos en la Institución.
 c) Administrar el programa de reclutamiento y selección de personal de la Institución.
