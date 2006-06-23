@@ -16,3 +16,4 @@ Manual de Procedimientos Aduaneros (SIA) (Contiene Ingreso de Mercancías, Vehí
 | 1 | 2000-10-12 | la propia norma |
 | 2 | 2000-10-13 | Resolución 205 (2000-10-13) |
 | 3 | 2000-12-07 | Resolución 256 (2000-12-07) |
+| 4 | 2006-06-23 | Resolución 445 (2006-06-23) |
