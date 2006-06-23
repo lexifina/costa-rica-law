@@ -14,3 +14,4 @@ Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Fu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-29 | la propia norma |
+| 2 | 2006-06-23 | Decreto Ejecutivo 33196 (2006-06-23) |
