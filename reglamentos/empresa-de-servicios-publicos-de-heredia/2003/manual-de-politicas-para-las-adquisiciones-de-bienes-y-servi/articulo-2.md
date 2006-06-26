@@ -1,1 +1,0 @@
-2º—Los plazos y términos establecidos en el presente manual de políticas, son de acatamiento general y se entenderán como días hábiles. Por conveniencia u oportunidad se podrán ampliar, sin que importe responsabilidad alguna a la Empresa.

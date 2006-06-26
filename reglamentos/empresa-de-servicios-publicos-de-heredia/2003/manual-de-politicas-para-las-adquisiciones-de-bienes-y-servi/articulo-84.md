@@ -1,1 +1,0 @@
-84.—En caso de incumplimiento del contratista, la ESPH podrá resolver sus relaciones contractuales, de previo a la audiencia que se conferirá al interesado, la ESPH deberá verificar preliminarmente las causales de la resolución y acreditarlas en el expediente que se levantará al efecto.

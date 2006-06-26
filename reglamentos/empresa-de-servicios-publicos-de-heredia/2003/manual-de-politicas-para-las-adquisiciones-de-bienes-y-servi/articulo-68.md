@@ -1,1 +1,0 @@
-68.—En caso de fuerza mayor o caso fortuito, debidamente acreditadas por el contratista, podrá la Gerencia General autorizar la prórroga del plazo de ejecución del contrato, por el término prudencial que se requiera.
