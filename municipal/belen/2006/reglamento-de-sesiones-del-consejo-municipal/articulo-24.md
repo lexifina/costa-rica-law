@@ -1,0 +1,1 @@
+Artículo 24.—Convocatoria a sesiones extraordinarias: A las sesiones extraordinarias se convocará a las y los regidores propietarios y suplentes, y a las y los síndicos propietarios y suplentes, y se conocerán exclusivamente los asuntos indicados en la convocatoria.

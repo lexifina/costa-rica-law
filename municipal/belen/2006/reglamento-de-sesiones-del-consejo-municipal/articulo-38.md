@@ -1,0 +1,1 @@
+Artículo 38.—Asuntos de trámite urgente: La Presidencia Municipal, calificará los asuntos de trámite urgente y notificará a la secretaria para que los incluya en el Orden del Día. En sesión podrán incluirse los de trámite urgente por iniciativa de la Presidencia o de uno o más regidores, por acuerdo de dos terceras partes de los miembros presentes.

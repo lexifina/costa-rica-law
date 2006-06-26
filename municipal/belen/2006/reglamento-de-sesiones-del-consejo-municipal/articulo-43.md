@@ -1,0 +1,1 @@
+Artículo 43.—Mociones de orden: Son mociones de orden las que se presenten para orientar el desarrollo de la sesión, el debate, para alterar el orden del día y aquellas que la Presidencia califique como tales. En este último caso si algún regidor (a) tuviere opinión contraria al criterio de la Presidencia, podrá apelar ante el Concejo y este decidirá por simple mayoría de votos.

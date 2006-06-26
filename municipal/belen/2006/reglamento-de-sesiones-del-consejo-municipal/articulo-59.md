@@ -1,0 +1,1 @@
+Artículo 59.—Atención de Audiencias: La secretaria remitirá a la Presidencia del Concejo la lista que contenga el orden de las solicitudes de audiencia presentadas por los particulares. La Presidencia decidirá el orden de atención, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

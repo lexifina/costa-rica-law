@@ -1,0 +1,1 @@
+Artículo 58.—Remisión a la Alcaldía: Cuando el objeto de la solicitud de la audiencia fuere de competencia de la Alcaldía, la Presidencia ordenará a la secretaria remitir el memorial presentado a dicho funcionario(a), para que le dé el trámite correspondiente. La secretaria lo hará del conocimiento de las personas interesadas.

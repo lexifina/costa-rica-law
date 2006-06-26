@@ -1,0 +1,1 @@
+Artículo 39.—Audiencias Públicas: El Concejo recibirá un máximo de tres audiencias las primeras y terceras sesiones ordinarias de cada mes, en las que, quienes la hayan solicitado, tendrán 20 minutos para hacer su exposición.

@@ -1,0 +1,1 @@
+Artículo 10.—De la Secretaría del Concejo: El Concejo Municipal contará con una Secretaría, nombrada por él mismo, este ejercerá sobre la Secretaría las potestades de dirección, control y fiscalización conforme el ordenamiento jurídico le permita.
