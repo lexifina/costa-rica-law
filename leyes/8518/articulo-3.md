@@ -1,0 +1,1 @@
+Artículo 3º—La Asociación Manos Unidas de Grecia no podrá traspasar, vender, arrendar, ni gravar el inmueble donado; solo se le autoriza darlo en garantía ante instituciones del Estado, para que financie la construcción de edificaciones que cumplan el objetivo indicado.
