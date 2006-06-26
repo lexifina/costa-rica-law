@@ -83,26 +83,25 @@ de carbonato de calcio (CaCO3).
 8. EMPAQUE
 8.1 El empaque del cemento debe cumplir con las siguientes disposiciones:
 8.1.1 El cemento debe estar seco y ser empacado en bolsas o sacos en presentaciones que no excedan los 50 kg, por razones ergonómicas y de salud ocupacional. Los empaques deben estar hechos de papel Kraft u otro material adecuado, que tengan las indicaciones señaladas en el presente reglamento técnico.
-9. ETIQUETADO
-9.1 El etiquetado en el empaque del cemento debe cumplir con las siguientes disposiciones:
-9.1.1 El empaque debe indicar:
-A. El nombre "CEMENTO".
-B. El tipo de cemento y la modificación en alguno de sus componentes si hubiere. (Tipo I-RTCR, MPRTCR, UG-RTCR, MS-RTCR, TIPO I-RTCR/AR, MP-RTCR/AR)
-C. La resistencia 28 días en Mpa. De ser un cemento de alta resistencia inicial "AR" se indica la resistencia a un día.
-D. La aplicación recomendada.
-9.1.2 Se debe especificar la lista de componentes por orden decreciente. La cual debe ir encabezada o precedida por un título que incluya o consista de la palabra "Componente".
-9.1.3 La etiqueta debe portar una indicación del contenido neto del producto y deberá declararse en unidades del S.I. (Sistema Internacional de Unidades).
-9.1.4 Deberá indicarse el nombre y la dirección del fabricante.
-Cuando el producto es importado se deberá incluir adicional a los datos del fabricante, el nombre y la dirección del importador y el número de registro que se le asigne en el Registro de Importadores y Productores.
-9.1.5 Deberá indicarse el país de origen. Cuando el producto se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
-9.1.6 El cemento deberá ser comercializado dentro de los 45 días después de la fecha de empaque; por ello deberá llevar grabada o marcada de cualquier modo, pero de forma indeleble, la fecha de empaque y envasado.
-9.1.7 Los datos que deben aparecer en la etiqueta, en virtud de este reglamento técnico, deberán indicarse con caracteres claros, ostensiblemente visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra y uso. El nombre y contenido neto del producto deberán aparecer en un lugar prominente y en el mismo campo o espacio de visión.
-9.1.8 La etiqueta deberá redactarse en idioma español. Cuando el idioma en que esté redactada no sea el español, deberá emplearse una etiqueta complementaria, que contenga la información obligatoria en éste idioma.
-9.1.9 Las declaraciones de propiedades deben ser verificables y no suscitar dudas sobre la inocuidad de productos similares o causar el miedo del consumidor. Las declaraciones de propiedades sin significado, los comparativos y superlativos, inducen a error, por lo que no deben utilizarse.
-9.1.10 Cuando se trate de producto importado, debe indicar el número de registro que se le asigne, de acuerdo al decreto ejecutivo correspondiente. El número de registro se deberá indicar en el plazo establecido en el artículo 6°, Transitorio II de este reglamento.
-9.2 Etiquetado de la presentación a granel.
-9.2.1 Las indicaciones arriba mencionadas deberán especificarse en un documento de referencia que se le entregue al cliente junto con la factura.
-9.2.2 El granel no tiene empaque, por lo que la fecha de comercialización no debe exceder la fecha de producción, que se deberá hacer constar en una declaración jurada de producción emitida por el productor o importador y deberá contener lo establecido en el numeral 8 de este reglamento. Esta declaración jurada aplica tanto para la producción nacional como para la importación del producto.
+*9. Etiquetado
+9.1 Generalidades del etiquetado:
+9.1.1 Los datos que deben aparecer en la etiqueta, en virtud de este reglamento técnico, deberán indicarse con caracteres claros, ostensiblemente visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra y uso. El nombre y contenido neto del producto deberán aparecer en un lugar prominente y en el mismo campo o espacio de visión.
+9.1.2 La etiqueta deberá redactarse en idioma español. Cuando el idioma en que esté redactada no sea el español, deberá emplearse una etiqueta complementaria, que contenga la información obligatoria en éste idioma.
+9.2 El etiquetado en el empaque del cemento debe contener:
+9.2.1 Los requisitos de etiquetado para productos peligrosos, establecidos en el Anexo Nº 4 del Reglamento para el Registro de Productos Peligrosos y sus reformas, Decreto Ejecutivo Nº 28113-S del 10 de setiembre de 1999.
+9.2.2 Además de las disposiciones de etiquetado del apartado anterior, deberá cumplir con los siguientes requisitos:
+9.2.2.1 El nombre “CEMENTO”.
+9.2.2.2 El tipo de cemento y la modificación en alguno de sus componentes si hubiere. (Tipo IRTCR,MP-RTCR, UG-RTCR, MS-RTCR, TIPO I-RTCR/AR, MP-RTCR/AR).
+9.2.2.3 La resistencia 28 días en Mpa. De ser un cemento de alta resistencia inicial “AR” se indica la resistencia a un día.
+9.2.3 Lista de ingredientes en orden decreciente. La cual debe ir encabezada o precedida por un título que incluya o consista de la palabra “Ingredientes”.
+9.2.4 Dirección del fabricante o importador.
+9.2.5 País de origen. Cuando el producto se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
+9.2.6 Fecha de empaque y envasado. (El cemento deberá ser comercializado dentro de los 45 días después de la fecha de empaque.)
+9.2.7 Número de registro que se le asigne en el Registro de Importadores y Productores de Cemento.
+9.3 Etiquetado de la presentación a granel.
+9.3.1 Las indicaciones arriba mencionadas deberán especificarse en un documento de referencia que se le entregue al cliente junto con la factura.
+9.3.2 El granel no tiene empaque, por lo que la fecha de comercialización no debe exceder la fecha de producción, que se deberá hacer constar en una declaración jurada de producción emitida por el productor o importador y deberá contener lo establecido en el numeral 8 de este reglamento. Esta declaración jurada aplica tanto para la producción nacional como para la importación del producto.
+*(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33229 del 26 de junio del 2006).
 10. BIBLIOGRAFÍA
 10.1 Brasil. ABNT. EB 758 Ciminto Portland pozolanico. Brasil, 1974.
 10.2 Costa Rica. Ministerio de Economía, Industria y Comercio. Norma oficial para cemento Portland Tipo I. San José, Costa Rica: Imprenta Nacional, 1979.
