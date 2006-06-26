@@ -1,1 +1,0 @@
-Artículo 30.—El ingreso que se perciba por la prestación del servicio de agua, se destinará para la operación, mantenimiento, mejoramiento, monitoreo y administración del sistema de abastecimiento de agua potable, quedando por ello obligada la Municipalidad a llevar cuentas separadas de dichos fondos.
