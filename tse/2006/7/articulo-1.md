@@ -1,0 +1,9 @@
+Nº 7-2006
+Con fundamento en los artículos 99 y 102.9 de la Constitución Política de la República de Costa Rica y lo dispuesto en la Ley N° 4519 del 24 de diciembre de 1969, denominada Ley de Salarios y Régimen de Méritos del Tribunal Supremo de Elecciones y del Registro Civil,
+Considerando:
+I.—Que el artículo Nº 10 del Reglamento para el Régimen de Carrera Profesional en el Tribunal Supremo de Elecciones contempla, en su inciso h), el reconocimiento de un incentivo denominado "Responsabilidad por el ejercicio profesional de la función electoral", el cual se aplica para todos los funcionarios que cumplan los requisitos que establece dicha reglamentación y consiste en un plus salarial equivalente al 18% del respectivo sueldo base.
+II.—Que el Tribunal Supremo de Elecciones, en su sesión Nº 134- 2006, del 6 de junio del 2006, tomando en consideración las especiales funciones que la Constitución, la Ley Orgánica y el Código Electoral establecen para el cargo de Director General del Registro Civil, estimó procedente reconocer en dicho puesto los altos niveles de responsabilidad que le son inherentes y el calificado grado de la consecuencia del error, motivo por el cual resolvió aumentar para este cargo el reconocimiento por la responsabilidad en el ejercicio profesional de la función electoral a un 25% sobre el salario base.
+DECRETA:
+Artículo 1º—Modifíquese el inciso h), del artículo 10 del Reglamento para el Régimen de Carrera Profesional, aprobado el 12 de octubre de 1999, y publicado en La Gaceta N° 210 del 29 de octubre de 1999, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 10.—(…)
+h) Responsabilidad por el ejercicio profesional de la función electoral: A quienes cumplan con los requisitos que establece el presente reglamento, se les reconocerá un plus salarial equivalente al 18% de su sueldo base, con excepción del cargo de Director General del Registro Civil en cuyo caso el plus será de un 25% sobre su sueldo base".
