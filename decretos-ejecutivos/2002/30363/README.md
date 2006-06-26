@@ -15,3 +15,4 @@ Reglamento Orgánico y Operativo del Tribunal Registral Administrativo
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
 | 2 | 2003-10-08 | Decreto Ejecutivo 31464 (2003-10-08) |
+| 3 | 2006-06-26 | Decreto Ejecutivo 33279 (2006-06-26) |
