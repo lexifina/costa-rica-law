@@ -1,0 +1,1 @@
+Artículo 6º—Identificación: Todos los vehículos municipales, deberán portar placa oficial, y tener al día los marchamos y seguros obligatorios y voluntarios respectivos, igualmente deberán estar rotulados en forma visible con la leyenda "Municipalidad de Barva Uso Oficial o algún otro símbolo distintivo del cantón de forma permanente.

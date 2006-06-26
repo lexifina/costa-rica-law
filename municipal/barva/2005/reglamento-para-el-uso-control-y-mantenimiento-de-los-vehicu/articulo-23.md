@@ -1,0 +1,1 @@
+Artículo 23.—Uso de combustibles y lubricantes: La Alcaldía municipal autorizará las cuotas de combustible y lubricantes que pueda utilizar cada vehículo, conforme los programas de trabajo por cumplir. Cuando la cuota asignada no sea suficiente podrá autorizar una cuota adicional, una vez hechos los estudios del caso.

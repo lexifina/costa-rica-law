@@ -1,0 +1,1 @@
+Artículo 28.—El medio de transporte y/o tipo de vehículo a usar en una gestión o servicio, estará en función de la necesidad del servicio, de tal manera que se busque economizar los recursos de la Municipalidad.
