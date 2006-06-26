@@ -1,0 +1,1 @@
+Artículo 25.—Autorízase a la Dirección de Asignaciones Familiares para que condone las obligaciones pendientes del INVU, hasta por el valor de cada uno de los terrenos segregados y donados en la presente Ley, según avalúos que realicen los peritos de la Dirección General de Tributación.
