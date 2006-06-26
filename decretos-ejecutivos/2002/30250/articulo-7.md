@@ -1,3 +1,0 @@
-Artículo 7º—Información adjunta que se debe presentar:
-a- Si en el índice se informa el otorgamiento, modificación o revocatoria de un testamento se adjuntará la ficha descriptiva, que facilita el Departamento Archivo Notarial y copia de la escritura matriz o testimonio firmado por el Notario, con el fin de actualizar el registro de testamentos.
-b- Si en el índice se informa el otorgamiento de una escritura en la cual se rescinde, modifica o adiciona otra y el tomo de protocolo de la principal se encuentra depositado en el Archivo Notarial, se enviará nota separada junto con el índice indicando todos los datos de ambas escrituras con el fin de consignar la nota marginal de referencia.

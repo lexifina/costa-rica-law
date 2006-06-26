@@ -1,4 +1,0 @@
-Artículo 6º—Corrección de errores:
-a- Una vez que el índice haya sido recibido por el Archivo Notarial, no se devolverá por ningún motivo.
-b- Una vez reportado en el índice de escrituras que una escritura no es válida no se podrá variar esa información, ni viceversa.
-c- Se consideran errores materiales los siguientes: el número de quincena, de tomo, de folio, de escritura, nombre del Notario y número de carné del Colegio de Abogados, apellidos invertidos de comparecientes, así como, comunicar una escritura que por su fecha de otorgamiento no corresponda a la quincena en que se informó. Estos errores se corregirán a través de una carta dirigida al Archivo Notarial señalando claramente el error que se corrige y a qué índice corresponde, o por nota al pie del índice respectivo para lo cual el Notario deberá apersonarse al Archivo Notarial para consignarla. Se corregirán por quincenas separadas.
