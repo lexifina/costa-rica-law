@@ -1,0 +1,1 @@
+Artículo 3º—Créase la Red Interinstitucional de Apoyo a las Familias (RIAF), como instancia de deliberación, concertación y coordinación entre el Poder Ejecutivo, las instituciones descentralizadas del Estado y las organizaciones representativas de la comunidad relacionadas con la materia, para la concreción de las acciones que deban derivarse de los acuerdos del CONADAF.

@@ -1,0 +1,2 @@
+Artículo 10.—La RIAF estará conformada por todas las instancias integradas al CONADAF, más aquellas, que de conformidad con su mandato legal y pertinencia respecto de las familias o algunos de sus miembros, sea convocada por el Consejo o su coordinación, también formarán parte de la Red, las organizaciones de la sociedad civil relacionadas con la materia y acreditadas ante el PANI.
+De igual manera se procurará la participación de representantes de los gobiernos locales.

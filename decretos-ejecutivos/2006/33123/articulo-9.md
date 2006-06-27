@@ -1,0 +1,1 @@
+Artículo 9º—El CONADAF podrá constituir y autorizar el funcionamiento de comisiones especiales de trabajo, tanto permanentes como temporales con fines específicos y participación de representantes de otras entidades públicas y organizaciones no gubernamentales debidamente acreditadas. Estas comisiones deberán rendir sus informes en el plazo que al efecto se acuerde.

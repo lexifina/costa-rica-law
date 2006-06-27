@@ -1,0 +1,1 @@
+Artículo 7º—El CONADAF será coordinado en forma permanente por la Presidencia Ejecutiva del PANI y ahí se ubicará su sede y en su ausencia será sustituida por un subcoordinador nombrado del seno del Consejo mediante acuerdo de simple mayoría, cada año.
