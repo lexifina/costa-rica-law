@@ -1,2 +1,2 @@
-Artículo 4º—Se autoriza el establecimiento de una Caja Chica General con capacidad para administrar recursos por un monto de seiscientos mil colones (¢600.000,00), dos Fondos de Boletería por cien mil colones (¢100.000,00) cada uno de Sala Principal, un Fondo de Boletería de la Sala Vargas Calvo por cien mil colones (¢100.000,00), un Fondo de Recuerdos (Souvenir) por cien mil colones (¢100.000,00), y una Caja Chica de Escenario por seiscientos mil colones (¢600.000,00).
-(Así reformado mediante sesión N°04 del 05 de abril del 2006).
+Artículo 4º—Se autoriza el establecimiento de una Caja Chica General con capacidad para administrar recursos por un monto de un millón de colones (¢1.000.000,00). Al igual el fondo del escenario será hasta de un millón de colones.
+(Así reformado mediante sesión N° 09 del 27 de junio del 2006)
