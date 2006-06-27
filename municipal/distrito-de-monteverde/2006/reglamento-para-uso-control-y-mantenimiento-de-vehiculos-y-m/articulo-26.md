@@ -1,0 +1,1 @@
+Artículo 26.—Prohibición de arreglos extrajudiciales. Ningún conductor está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos institucionales, únicamente, debe indicarle al particular que se apersone o se comunique con la Intendencia para efectuar las gestiones correspondientes.

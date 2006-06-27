@@ -1,0 +1,1 @@
+Artículo 35.—El precio del arrendamiento se fijará por horas, con las tarifas que acuerde el Concejo Municipal previo estudio técnico de costos remitido por la Intendencia. Las tarifas se aumentarán semestralmente en forma automática conforme con el aumento de costo de vida.

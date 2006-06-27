@@ -1,0 +1,1 @@
+Artículo 12.—Atención de solicitudes de transporte. La atención de los servicios de transporte será tramitada de acuerdo con el orden de presentación de las solicitudes, salvo aquellos casos de urgencia en los que, a juicio de la Intendencia, pueda variarse el orden.
