@@ -1,0 +1,19 @@
+N° 33095
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LOS MINISTROS DE LA PRESIDENCIA;
+DE HACIENDA Y DE JUSTICIA
+En el ejercicio de las facultades y atribuciones conferidas por los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; y con fundamento en lo establecido en la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas, Ley N° 3022 del 27 de agosto de 1962, Ley N° 7293 del 31 de marzo de 1992, publicada en La Gaceta N° 66 del 3 de abril de 1992, Decreto Ejecutivo N° 30200- MOPT-H-J del 30 de diciembre de 2001, publicado en La Gaceta N° 53 del 15 de marzo de 2002.
+Considerando:
+I.—Que mediante Decreto Ejecutivo N° 30200-MOPT-H-J del 30 de diciembre de 1992, publicado en La Gaceta N° 53 del 15 de marzo de 2002, se emite el Reglamento sobre el Trámite de Exoneraciones y Control del Uso de Vehículos, Maquinaria y Equipo Exonerados para Proyectos de Obras Públicas.
+II.—Que para el Ministerio de Hacienda se hace indispensable, regular no solo el uso de bienes exentos en los proyectos que desarrolla el Ministerio de Obras Públicas y Transportes, sino en todos aquellos proyectos que desarrollen todas las Instituciones del Estado.
+III.—Que en diversos estudios de fiscalización de incentivos realizados por la Dirección General de Hacienda conforme la competencia otorgada por su Ley de Creación N° 3022 del 27 de agosto de 1962 y la Ley N° 7293 del 31 de marzo de 1992 del 31 de marzo de 1992, publicada en La Gaceta Nº 66 del 3 de abril de 1992, se ha determinado un uso distinto al previsto en la ley que concede la exención, para ciertos bienes exonerados a empresas constructoras, siendo necesario implementar registros adecuados para el control de dichos bienes tanto en las instituciones involucradas como en la propia empresa beneficiaria, principalmente respecto al uso de vehículos exonerados.
+IV.—Que la Contraloría General de la República dispuso en relación con el Ministerio de Obras Públicas y Transportes la elaboración de un reglamento sobre el uso de vehículos, maquinaria y equipo exonerado a empresas constructoras, que posibilite entre otros aspectos, contar con un instrumento administrativo y legal que permita regular aspectos relevantes sobre el otorgamiento, uso, control y registro de los citados bienes, esa disposición se cumplió con la emisión del Decreto Ejecutivo N° 30200-MOPT-H-J, del 30 de diciembre de 2001, publicado en La Gaceta N° 53 del 15 de marzo de 2002. No obstante, los objetivos de la citada disposición son de aplicación a otras áreas del Sector Público beneficiadas con exenciones.
+V.—Que el artículo 42 de la Ley Nº 7293 del 31 de marzo de 1992, publicada en La Gaceta N° 66 del 3 de abril de 1992 faculta a la Dirección General de Hacienda para emitir directrices en materia de exenciones a los órganos recomendadores de éstas. Asimismo dicha normativa, establece la responsabilidad de estos órganos en las funciones de control sobre el correcto uso y destino de los bienes exonerados en virtud de su recomendación. Por tanto,
+DECRETAN:
+Ampliación a todo el Sector Público del Ámbito
+de Aplicación del Decreto Ejecutivo 30200-MOPT-H-J,
+Reglamento Sobre el Trámite de Exoneraciones y Control
+del Uso de Vehículos, Maquinaria y Equipo Exonerados
+para Proyectos de Obras Públicas
+CAPÍTULO ÚNICO
+Artículo 1º—Se hacen extensivas las regulaciones contenidas en el Decreto Ejecutivo N° 30200-MOPT-H-J del 30 de diciembre de 2001, publicado en La Gaceta N° 53 del 15 de marzo de 2002, a todas aquellas instituciones públicas del Poder Ejecutivo, Legislativo y Judicial, sus órganos y entes adscritos, instituciones autónomas y semiautónomas y municipalidades, que utilicen bienes exentos para la construcción de obras públicas, así como a las empresas constructoras o consultoras respectivas. Para tal efecto, cuando el citado decreto se refiera al “MOPT y sus Órganos con Desconcentración Máxima”, se debe entender “Entidad Competente”.

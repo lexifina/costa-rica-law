@@ -1,0 +1,1 @@
+Artículo 2º—Se define “Entidad Competente” como la dependencia pública del Poder Ejecutivo, Poder Legislativo, Poder Judicial, Instituciones Descentralizadas y Municipalidades que hayan contratado o contraten obras, y que en su realización se utilicen vehículos, maquinaria y equipos importados o comprados en el mercado local exonerados de impuestos al amparo de leyes especiales.
