@@ -1,0 +1,1 @@
+Artículo 5º—Toda aquella ONG que pretenda obtener la precalificación de idoneidad para administrar fondos públicos, deberá inscribirse en el registro de precalificación que al efecto lleva la Secretaría Municipal. La ONG cumplirá este requisito por medio de simple nota escrita, conteniendo las calidades de la organización y de sus integrantes.
