@@ -1,0 +1,2 @@
+Artículo 16.—Monto mínimo para realizar arreglos de pago. De proceder el arreglo de pago la cantidad a pagar para formalizarlo se realizara con el cincuenta por ciento de la cantidad adeudada, la cual incluye el monto e intereses, por el sujeto pasivo, solo en casos excepcionales se permitirá un monto mínimo.
+Los casos excepcionales son casos debidamente estudiados y calificados por la Unidad de Gestión de Cobro y que en realidad ameriten el arreglo por la condición socioeconómica.
