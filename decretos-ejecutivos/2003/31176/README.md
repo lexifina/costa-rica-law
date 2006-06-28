@@ -15,3 +15,4 @@ Reglamento de Creación de Canon Ambiental por Vertidos.
 | --- | --- | --- |
 | 1 | 2005-01-01 | la propia norma |
 | 2 | 2005-01-01 | Decreto Ejecutivo 31858 (2004-06-02) |
+| 3 | 2006-06-28 | SINALEVI (sin norma nombrada) |
