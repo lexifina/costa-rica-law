@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión Nacional sobre Incendios Forestales (CONIFOR) estará bajo la dirección y coordinación de la Dirección Superior del SINAC, quien aprobará, apoyará y supervisará las acciones que en materia de manejo del fuego sean necesarias de ejecutar a nivel nacional.
