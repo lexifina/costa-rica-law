@@ -1,0 +1,2 @@
+Artículo 24.—Cuando un profesional se retire, renuncie, gestione un permiso o sea suspendido en forma temporal o se rescinda su contrato con el INS, deberá rendir un informe detallado del estado en que se encuentran las inscripciones o escrituras a su cargo. De encontrarse algún trámite pendiente de inscripción deberá concluirlo.
+La estructura y forma de presentación de dichos informes deberá responder a los parámetros que establezca la unidad usuaria, y podrán ser presentados en forma física, magnética o electrónica.

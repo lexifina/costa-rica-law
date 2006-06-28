@@ -1,0 +1,1 @@
+Artículo 37.—Independientemente del Régimen Sancionatorio establecido en este Reglamento, el INS puede instaurar las acciones o diligencias que estime convenientes ante los órganos jurisdiccionales o administrativos correspondientes, en demanda del resarcimiento de los daños y perjuicios ocasionados por éste o por su actividad profesional.

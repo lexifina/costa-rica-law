@@ -1,0 +1,1 @@
+Artículo 36.—Si el notario fuese suspendido en el ejercicio de su profesión o si se declarare la resolución de su contrato con el INS y tuviere inscripciones a su cargo deberá concluirlos con la mayor diligencia.

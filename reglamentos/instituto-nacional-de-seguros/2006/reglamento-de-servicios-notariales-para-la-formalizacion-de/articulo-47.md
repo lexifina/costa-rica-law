@@ -1,0 +1,1 @@
+Artículo 47.—En cuanto a los aspectos operativos y de ejecución de los trámites encomendados a los notarios, este Reglamento podrá ser complementado con las Disposiciones de Gerencia del INS en relación con los Servicios Notariales.

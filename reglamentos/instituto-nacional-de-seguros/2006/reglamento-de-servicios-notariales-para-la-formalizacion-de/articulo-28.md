@@ -1,0 +1,1 @@
+Artículo 28.—En caso de incumplimiento de cualquier obligación o deber por parte de los notarios contratados, en la realización del trámite encomendado, el Departamento de Créditos o la Sucursal, remitirá el caso a la Proveeduría para que inicie el procedimiento administrativo y determine la procedencia de aplicar la sanción correspondiente.
