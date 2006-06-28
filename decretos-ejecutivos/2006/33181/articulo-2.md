@@ -1,0 +1,1 @@
+Artículo 2º—La utilidad neta de la Lotería Instantánea se obtiene de deducir de la utilidad bruta, los costos directos e indirectos, por concepto de los gastos de administración y comercialización y las sumas que la Junta crea necesario destinar a programas sociales.
