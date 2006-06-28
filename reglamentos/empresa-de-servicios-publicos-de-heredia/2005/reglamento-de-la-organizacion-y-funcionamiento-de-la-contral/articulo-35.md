@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Comunicación de resultados
+Artículo treinta y cinco.—Los informes de Contraloría versarán sobre diversos asuntos de su competencia, así como sobre asuntos de los que pueden derivarse posibles responsabilidades para funcionarios, exfuncionarios de la Empresa y sus subsidiarias y terceros. Cuando de un estudio se deriven recomendaciones sobre asuntos de responsabilidad y otras materias, la Contraloría deberá comunicarlas en informes independientes para cada materia.
+Los hallazgos, las conclusiones y recomendaciones de los estudios realizados por la Contraloría Interna, deberán comunicarse oficialmente, mediante informes a la Junta Directiva o a los funcionarios de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones.

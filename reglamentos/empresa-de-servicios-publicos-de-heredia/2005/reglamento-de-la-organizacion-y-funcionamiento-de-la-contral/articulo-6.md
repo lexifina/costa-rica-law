@@ -1,0 +1,1 @@
+Artículo sexto.—El Contralor será nombrado por tiempo indefinido por la Junta Directiva y responderá ante ella en el desempeño de sus funciones. Sólo podrá ser removido de su cargo por justa causa, conforme con el dictamen favorable de la Contraloría General de la República, según lo establece el artículo 15 de la Ley Nº 7428.

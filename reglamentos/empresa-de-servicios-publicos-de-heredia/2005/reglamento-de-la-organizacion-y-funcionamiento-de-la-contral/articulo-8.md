@@ -1,0 +1,1 @@
+Artículo octavo.—El Contralor tendrá asignado un vehículo de uso discrecional, el cual no contará con restricciones en cuanto a combustible, horario de operación, recorrido, ni marcas visibles que lo identifiquen, características que asumirá, bajo su estricto criterio, de conformidad con el artículo Nº 255 de la Ley Nº 7331.

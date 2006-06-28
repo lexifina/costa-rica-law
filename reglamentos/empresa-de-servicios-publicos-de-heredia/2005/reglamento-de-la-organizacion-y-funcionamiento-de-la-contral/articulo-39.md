@@ -1,0 +1,2 @@
+Artículo treinta y nueve.—El Contralor antes de emitir el informe definitivo, convocará a los responsables del nivel administrativo de la unidad auditada, a una conferencia final en la que se discutirán los resultados del trabajo de auditoría (deficiencias, conclusiones y recomendaciones).
+Esta entrevista deberá quedar documentada en un acta firmada por los responsables administrativos, por el Contralor y por el Auditor presentes en esta reunión.

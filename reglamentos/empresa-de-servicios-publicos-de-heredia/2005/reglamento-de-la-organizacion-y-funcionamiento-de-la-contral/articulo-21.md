@@ -1,0 +1,1 @@
+Artículo veintiuno.—Los funcionarios de la Contraloría ejecutarán sus atribuciones con total independencia funcional y de criterio respecto de la Junta Directiva y de los demás órganos de la administración activa, razón por la cual el personal de la Contraloría no podrá ser empleado ni ejercer funciones de ninguna unidad administrativa de la Empresa.

@@ -1,0 +1,1 @@
+Artículo treinta y ocho.—El informe final deberá cumplir con los requisitos establecidos en el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, publicado en La Gaceta Nº 246 del 16/12/2004.
