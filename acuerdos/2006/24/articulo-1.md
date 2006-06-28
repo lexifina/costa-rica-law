@@ -1,0 +1,12 @@
+Nº 024.—San José, 17 de julio del 2006
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En ejecución de lo dispuesto por el Consejo de Gobierno en el único acuerdo que consta en el artículo segundo del acta de la sesión ordinaria número ocho, celebrada el veintiocho de junio del dos mil seis.
+ACUERDAN:
+Nombrar ante la Junta Directiva del Instituto Nacional de Aprendizaje (INA), a:
+1. Francisco Morales Hernández, cédula 2-205-275, en representación del Ministerio de Trabajo y Seguridad Social, a partir del 28 de junio del 2006 y por el resto del período legal correspondiente (hasta el 8 de mayo del 2010).
+2. Alejandrina Mata Segreda, cédula 1-394-218, en representación de Ministerio de Educación Pública, a partir del 28 de junio del 2006 y por el resto del período legal correspondiente (hasta el 8 de mayo del 2010).
+3. Olga Cole Beckford, cédula 7-037-601, en representación del sector Cooperativo; elegida de terna integrada por los señores (as) Olga Cole Beckford, cédula 7-037-601, Allin Jiménez Céspedes, cédula 2-308-591 e Ivannia Quesada Villalobos, cédula 2-0500-237, que para el efecto envió el señor Víctor H. Morales Zapata, Secretario Ejecutivo del Consejo Nacional de Cooperativas, a partir del 28 de junio del 2006 y por el resto del período legal correspondiente (hasta el 8 de mayo del 2014).
+4. Eduardo Rojas Gómez, cédula 1-792-160, en representación del Sector Solidarista; elegido de terna integrada por los señores Eduardo Rojas Gómez, Luis Diego Jara Hernández y Arturo Barboza Berrocal, remitida por los señores Enrique Acosta Granados, Presidente del Movimiento Solidarista Costarricense; Pbro. Claudio Solano Cerdas, Director de la Escuela Social Juan XXIII y Fernando Román Carvajal, Presidente de la Federación Costarricense de Asociaciones Solidaristas de Empleados Públicos, a partir del 28 de junio del 2006y por el resto del período legal correspondiente (hasta el 8 de mayo del 2014).
+5. Luis Fernando Monge Rojas, cédula 1-522-397; en representación del sector Agropecuario; elegido de terna integrada por los señores Carlos Lizama Hernández, cédula 8-057-990; José Manuel Hernando Echeverría, cédula 1-607-514 y Luis Fernando Monge Rojas, cédula 1-522-397, remitida por el señor Rafael Carrillo L., Presidente de la Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada, a partir del 28 de junio del 2006 y por el resto del período legal correspondiente (hasta el 8 de mayo del 2014).
+Acuerdo declarado firme por unanimidad.
