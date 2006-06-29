@@ -1,0 +1,1 @@
+Artículo 3º—La asignación de los lotes, resultado de la segregación que realizará el Concejo Municipal del distrito de Cervantes de Alvarado, se ejecutará previa aprobación de los estudios socioeconómicos a los que se someterán los beneficiarios, de acuerdo con los parámetros aplicados por el Ministerio de Vivienda y Asentamientos Humanos.
