@@ -14,3 +14,4 @@ Comisión Consultora de Visas Restringidas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-19 | la propia norma |
+| 2 | 2006-06-29 | Decreto Ejecutivo 33285 (2006-06-29) |
