@@ -14,3 +14,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-30 | la propia norma |
+| 2 | 2006-06-29 | Decreto Ejecutivo 33210 (2006-06-29) |
