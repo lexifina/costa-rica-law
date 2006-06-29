@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase al Instituto de Desarrollo Agrario para que levante las limitaciones existentes en los inmuebles descritos en el artículo anterior, con el fin de que el Concejo Municipal del distrito de Cervantes pueda traspasar el dominio de sus predios.
