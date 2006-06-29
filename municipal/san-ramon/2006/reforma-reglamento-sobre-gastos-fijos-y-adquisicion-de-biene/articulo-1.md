@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SAN RAMÓN
+Que el Concejo Municipal de San Ramón en la sesión extraordinaria N° 7 del 26 de mayo del 2006 aprobó en forma definitiva mediante acuerdos Nos. 07 y 08, lo siguiente:
+Acuerdo N° 07: Modificar el artículo 2º del aumento sobre Gastos Fijos y Adquisición de Bienes y Servicios de competencia del Alcalde Municipal, de manera que se autoriza realizar compras o adquisiciones de bienes y servicios así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de San Ramón actúe como parte hasta por la suma de ¢2.000.000,00 (dos millones de colones).
+Acuerdo N° 08: Modificar el artículo 2º del Reglamento Sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competencia del Alcalde, de manera que se autoriza al Alcalde Municipal para que las órdenes de compra de emulsión asfáltica y lastre en sus diferentes categorías sean hasta por la suma de ¢2.500.000,00 (dos millones quinientos mil colones)
