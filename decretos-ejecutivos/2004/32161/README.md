@@ -14,3 +14,4 @@ Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-29 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
