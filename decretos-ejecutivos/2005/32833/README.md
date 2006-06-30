@@ -14,3 +14,4 @@ Reglamento General de Cementerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-19 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
