@@ -13,3 +13,4 @@ Reglamento Permiso Sanitario Sintetizadoras Reenvasadoras AgroquímicosFormulado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-05 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
