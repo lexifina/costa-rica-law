@@ -1,14 +1,2 @@
-ARTÖCULO 3§.-El permiso sanitario de funcionamiento ser
-otorgado
-por el Ministerio de Salud, debiendo ser renovado anualmente y
-ser
-concedido conforme cumpla con los siguientes requisitos:
-a) Solicitud en papel com£n autenticada por un abogado, si no
-se
-presentara personalmente.
-b) Nombre y direcci¢n del due¤o y raz¢n social.
-c) Ubicaci¢n del establecimiento.
-d) Persona responsable del establecimiento.
-e) Descripci¢n material del establecimiento. Se deber cumplir
-en la
-misma, los requisitos que se¤alen los art¡culos siguientes.
+Artículo 3º—: El permiso sanitario de funcionamiento deberá solicitarse en el Área Rectora de Salud respectiva, conforme loestablece el “Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud”, presentando la solicitud en el formulario unificado establecido para tal fin, y cumpliendo dicha normativa en cuanto a la renovación de los permisos respectivos. En el caso de los establecimientos de estética y cosmetología que aplican en sus actividades procedimientos invasivos deben solicitar el tramite de habilitación en las Áreas Rectoras de Salud, conforme lo establecido por la Dirección de Servicios de Salud.
+(Así reformado mediante el artículo 80 del decreto ejecutivo N° 33240 del 30 de junio del 2006).

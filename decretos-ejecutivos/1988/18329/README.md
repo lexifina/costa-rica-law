@@ -13,3 +13,4 @@ Reglamento de Barberías, Peluquerías, Salones de Belleza y Afines
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-08 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
