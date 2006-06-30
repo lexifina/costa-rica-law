@@ -14,3 +14,4 @@ Reforma Reglamento sobre Rellenos Sanitarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-13 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
