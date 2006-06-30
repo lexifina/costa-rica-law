@@ -15,3 +15,4 @@ Reglamento sobre el Manejo y Control de Gallinaza y Pollinaza
 | --- | --- | --- |
 | 1 | 2000-12-18 | la propia norma |
 | 2 | 2002-04-02 | Decreto Ejecutivo 30293 (2002-04-02) |
+| 3 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
