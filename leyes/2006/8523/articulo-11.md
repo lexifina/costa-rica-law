@@ -1,0 +1,1 @@
+Artículo 11.—Notificación de toda resolución. Toda resolución dictada por la Municipalidad deberá notificársele al contribuyente, con las observaciones o los cargos que se le formulen y las infracciones que se estime ha cometido, de acuerdo con el procedimiento que al efecto establece el Código de Normas y Procedimientos Tributarios en el artículo 137.
