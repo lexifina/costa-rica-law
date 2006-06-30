@@ -1,0 +1,1 @@
+Artículo 6º—Principio de igualdad. Será obligación de todo funcionario de la Asamblea Legislativa brindar un trato equitativo y no discriminatorio a todas las personas con discapacidad, sean funcionarias o usuarias.

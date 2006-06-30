@@ -1,0 +1,11 @@
+Artículo 12.—Funciones. Para cumplir su cometido, de acuerdo con la Ley Nº 7600 Igualdad de Oportunidades para las Personas con Discapacidad y las políticas institucionales en materia de discapacidad, la CIMAD cumplirá las siguientes funciones:
+a) Promover y fiscalizar el proceso de formulación, ejecución y evaluación de la política institucional en materia de discapacidad.
+b) Recomendar a la administración de la Asamblea Legislativa, la eliminación de acciones o disposiciones que promuevan la discriminación, dificulten la accesibilidad o impidan la participación ciudadana de personas con discapacidad en los programas o servicios que brinde la Institución.
+c) Consultar a miembros de la población con discapacidad, tanto interna como externa, acerca de las políticas y directrices en dicha materia que podrían implementarse en la Institución; mediante los mecanismos técnicos pertinentes.
+d) Promover y fiscalizar que las unidades administrativas de la Asamblea Legislativa tomen las medidas necesarias, a fin de brindar el apoyo que los funcionarios con discapacidad requieran para el desempeño de sus funciones; asimismo, las facilidades necesarias para el acceso de personas con discapacidad a los servicios institucionales.
+e) Velar porque la información que se brinda tanto a los funcionarios como a los administrados sea accesible y comprensible para la población con discapacidad.
+f) Procurar un manejo adecuado de la imagen de la población con discapacidad, en el lenguaje empleado en cualquier tipo de información que se difunda.
+g) Colaborar con todos los departamentos y dependencias institucionales para que el tema de la discapacidad sea considerado en los asuntos propios de la unidad administrativa de que se trate.
+h) Consultar a personas con discapacidad y a organizaciones no gubernamentales que trabajan en la materia, acerca de las políticas en discapacidad que se piense implementar en la Asamblea Legislativa, así como sobre las iniciativas de ley que las afecten directa o indirectamente.
+i) Revisar y evaluar anualmente las políticas institucionales en materia de discapacidad las políticas de la Asamblea Legislativa, e informar de ellas tanto al Director Ejecutivo como al Consejo Nacional de Rehabilitación y Educación Especial (CNREE) como ente rector en
+el ramo.

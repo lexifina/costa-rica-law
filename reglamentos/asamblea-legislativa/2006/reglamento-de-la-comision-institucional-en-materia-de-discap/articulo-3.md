@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito. La CIMAD velará porque la Asamblea Legislativa considere en todas las políticas y acciones que desarrolla, la igualdad de oportunidades en cuanto a la participación ciudadana y la plena accesibilidad de las personas con discapacidad, sean funcionarios o usuarios de los servicios del Primer Poder de la República.

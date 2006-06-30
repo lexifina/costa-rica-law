@@ -1,0 +1,2 @@
+Artículo 17.—Disponibilidad de tiempo. Los miembros de la CIMAD deberán asistir a las sesiones y atender diligencias o actividades propias de la Comisión; para ello, deberán disponer del tiempo necesario.
+La División Administrativa gestionará, en la dependencia para la cual labora el funcionario miembro de la CIMAD, un permiso permanente de diez horas laborales al mes, a fin de asegurar el trabajo efectivo de todos los miembros de la CIMAD, sin perjuicio del cumplimiento de las funciones propias del cargo que el funcionario desempeñe en la Institución.

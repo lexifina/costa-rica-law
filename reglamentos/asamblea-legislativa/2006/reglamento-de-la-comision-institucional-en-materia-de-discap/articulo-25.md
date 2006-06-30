@@ -1,0 +1,1 @@
+Artículo 25.—Normativa supletoria. Para lo no contenido en el presente reglamento, la CIMAD se regirá supletoriamente por lo dispuesto en la Ley Nº 7600, Igualdad de oportunidades para las personas con discapacidad, su Reglamento (decreto 26831 MP, publicado en La Gaceta del 20 de abril de 1998) y la Directriz Presidencial Nº 27 para las instituciones públicas.

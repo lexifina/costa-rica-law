@@ -1,0 +1,12 @@
+Artículo 19.—Funciones. Como ejecutora de los acuerdos emanados del seno de la CIMAD, la Unidad de Discapacidad tendrá las siguientes funciones:
+a) Velar por el cumplimiento de los derechos de las personas con discapacidad en el ámbito institucional.
+b) Realizar un estudio detallado de los alcances y resultados de la aplicación del Plan Institucional en Materia de Discapacidad, desde la fecha de creación de la Comisión. El propósito es reactivar y fortalecer las políticas institucionales o áreas que lo requieran, para el cumplimiento de la Ley Nº 7600, Igualdad de oportunidades para las personas con discapacidad.
+c) Promover que el personal de la Institución participe en programas de sensibilización y capacitación tendientes a incrementar los conocimientos sobre temas de discapacidad, a fin de mejorar la calidad de la atención y los servicios que presta la Asamblea Legislativa.
+d) Coordinar con el CNREE el establecimiento de programas de acción tendientes a garantizar que el espacio físico de la Institución sea cada vez más accesible para quienes presentan una discapacidad.
+e) Coordinar la ejecución de talleres, cursos, seminarios y charlas que sensibilicen y capaciten a los funcionarios legislativos en materia de discapacidad.
+f) Promover que, en el proceso de formación del ordenamiento jurídico del país, se les consulte al CNREE y a otros entes estatales y privados, así como las ONG de personas con discapacidad, sobre los posibles alcances de normas nuevas, con el fin de que estas respondan, en la medida de lo posible, a la realidad de las personas con discapacidad.
+g) Elaborar estrategias para que los servicios de información y documentación de la Asamblea Legislativa sean accesibles a diferentes grupos de personas con discapacidad.
+h) Garantizar, mediante la instalación de sistemas y tecnologías apropiados, que las personas con deficiencias visuales, auditivas o de comprensión tengan acceso a la información pública y a los servicios de la Institución.
+i) Ejecutar los planes, los presupuestos y las políticas que la Asamblea Legislativa establezca por medio de la CIMAD.
+j) Apoyar la gestión legislativa a favor de la accesibilidad de las personas con discapacidad, promoviendo que en la Asamblea Legislativa se monitoreen con especial interés las iniciativas de ley que puedan ser susceptibles de afectar los derechos y los intereses de las personas con discapacidad.
+k) Apoyar la gestión interinstitucional en otras comisiones de discapacidad, así como de las ONG existentes en dicha materia.
