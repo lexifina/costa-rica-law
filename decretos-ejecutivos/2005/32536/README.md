@@ -14,3 +14,4 @@ Exoneran del pago del servicio autorizado según lo estipulado en el artículo 4
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-09 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
