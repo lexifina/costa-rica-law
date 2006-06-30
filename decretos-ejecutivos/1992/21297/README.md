@@ -14,3 +14,4 @@ Reglamento para el Manejo de Lodos Procedentes de Tanques Sépticos
 | --- | --- | --- |
 | 1 | 1992-06-15 | la propia norma |
 | 2 | 1992-06-15 | SINALEVI (sin norma nombrada) |
+| 3 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
