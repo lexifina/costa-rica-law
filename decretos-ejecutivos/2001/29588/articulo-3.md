@@ -62,7 +62,8 @@ Media canal: Cada una de las dos partes en que se divide longitudinalmente el ca
 Médico Veterinario Inspector: Profesional en Medicina Veterinaria incorporado al Colegio de Médicos Veterinarios, que tiene bajo su responsabilidad la dirección técnica y sanitaria de los establecimientos aquí regulados, abarcando las funciones que este reglamento y otras que la legislación relacionada le asigne.
 Médico Veterinario Oficial: Médico Veterinario funcionario del MAG o del MS.
 Pediluvio: Pileta dotada de una solución desinfectante utilizada para desinfección de botas.
-Permiso Sanitario de Funcionamiento: Documento oficial emitido conjuntamente por el MAG y MS autorizando el funcionamiento u operación de aquellos establecimientos que sacrifiquen, procesen, embutan, empaquen o almacenen productos cárnicos.
+Permiso Sanitario de Funcionamiento: Certificado que emite el Ministerio de Salud, autorizando el funcionamiento de aquellos establecimientos que sacrifiquen animales, procesen, embuten, empaquen, almacenen y expendan carnes y productos cárnicos.
+(Así reformado el párrafo anterior mediante el artículo 77 del decreto ejecutivo N° 33240 del 30 de junio del 2006).
 Producto cárnico: Carne y sus derivados.
 Propietario o administrador: En relación con los establecimientos, aquí regulados, es toda persona que sea responsable legal del establecimiento.
 Rendering: Conjuntos de instalaciones y equipos utilizados para el aprovechamiento industrial de decomisos y desechos destinados a la alimentación animal.

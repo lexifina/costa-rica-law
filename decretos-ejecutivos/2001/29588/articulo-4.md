@@ -1,3 +1,4 @@
 CAPÍTULO III
 Disposiciones generales
-Artículo 4º—Las autoridades competentes que ejecutarán lo dispuesto en el presente reglamento serán el MAG y el MS a través de las Direcciones de Salud Animal y de Protección al Ambiente Humano.
+Artículo 4º—La autoridad competente que ejecutará lo dispuestoen el presente reglamento será el Ministerio de Salud a través de las Áreas Rectoras de Salud.
+(Así reformado mediante el artículo 77 del decreto ejecutivo N° 33240 del 30 de junio del 2006).

@@ -14,3 +14,4 @@ Reglamento Sanitario y de Inspección Veterinaria de Mataderos, Producción y Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-22 | la propia norma |
+| 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
