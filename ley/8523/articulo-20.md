@@ -1,0 +1,1 @@
+Artículo 20.—Cese de actividad. Cuando el patentado decide dejar de explotar la actividad debe comunicarlo formalmente por escrito al Departamento de Patentes, adjuntar copia del recibo de patente al día y copia de la cédula. En caso de las personas jurídicas, autenticada por un abogado.
