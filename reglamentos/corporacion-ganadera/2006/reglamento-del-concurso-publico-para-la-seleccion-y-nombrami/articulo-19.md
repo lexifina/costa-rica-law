@@ -1,0 +1,1 @@
+Artículo 19.—Del período de prueba. Una vez nombrado el Auditor Interno, estará sujeto a un período de prueba de 3 meses. Concluido ese período de prueba la Junta Directiva procederá a comunicar a la Contraloría General de la República, su conformidad o disconformidad con el desempeño del funcionario nombrado.

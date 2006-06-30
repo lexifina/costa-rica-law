@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas. De previo a realizar el procedimiento del Concurso Público que aquí se regula, se requiere la designación expresa de la Junta Directiva de una Comisión para la Contratación del Auditor Interno de la Corporación Ganadera competente para el procedimiento del Concurso Público que aquí se reglamenta.

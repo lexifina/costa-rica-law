@@ -1,0 +1,1 @@
+Artículo 6º—Sobre la recepción de las ofertas. Se recibirán ofertas solamente de aquellos interesados que demuestren poseer los requisitos establecidos para el puesto en concurso, las mismas deben ser presentadas en forma personal e impresa mediante fax, correo, o correo electrónico.
