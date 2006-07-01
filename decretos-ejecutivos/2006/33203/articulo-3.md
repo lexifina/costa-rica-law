@@ -1,0 +1,2 @@
+Artículo 3º—Definición de la población objetivo del Programa. La población objetivo del Programa está constituida por familias en condición de pobreza con adolescente entre los 13 a 17 años.
+Para efectos de la fase piloto se seleccionarán al menos 3.500 adolescentes entre los 13 y 17 años, que estén cursando de sétimo a noveno año y que asistan a centros educativos definidos en función de criterios de concentración de pobreza.
