@@ -1,0 +1,1 @@
+Artículo 4º—Se aplicará un ajuste en la Escala de Sueldos de la Administración Pública, según la determinación que realice la Dirección General de Servicio Civil, con el fin de reestablecer el porcentaje de anualidad que existía antes del ajuste técnico del 9,81% que afectó a los estratos operativo, calificado y técnico.
