@@ -1,0 +1,1 @@
+Artículo 8º—Del registro de firmas. El Departamento de Administración de Tesorería estará obligado a mantener un registro de firmas actualizado, de los funcionarios autorizados a firmar los formularios contemplados en este Reglamento, de acuerdo con el registro de actualización que para estos efectos remita anualmente la Gerencia de Administración y Finanzas.

@@ -1,0 +1,1 @@
+Artículo 23.—Del incumplimiento de los pagos. No se tramitarán pagos de bienes y servicios, que incumplan con los lineamientos y requisitos establecidos en el presente Reglamento y en las directrices emitidas.

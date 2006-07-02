@@ -1,0 +1,1 @@
+Artículo 35.—De las sanciones al cajero. Cuando el cajero o encargado del Fondo de Caja Chica incumplieran lo estipulado en los artículos 10, 13, 15, 16, 17, 22 y 32 se le aplicarán las sanciones en el orden indicado en el artículo 34 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 30.—De la codificación contable. La codificación contable de las liquidaciones de Caja Chica será responsabilidad del encargado de aprobación del contenido presupuestario de cada centro de costo de conformidad con el "Manual descriptivo de cuentas objeto de gasto", emitido por el Departamento de Contaduría.

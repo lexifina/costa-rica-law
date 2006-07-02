@@ -1,0 +1,1 @@
+Artículo 18.—De la validación de los gastos. Los encargados y revisores de fondos, deberán velar porque los adelantos, las liquidaciones y los reintegros se ajusten a los lineamientos y requisitos establecidos en el presente Reglamento y en las directrices emitidas.

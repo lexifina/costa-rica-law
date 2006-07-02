@@ -1,0 +1,1 @@
+Artículo 11.—Del arqueo a los fondos. El Departamento de Administración de Tesorería estará facultado para efectuar arqueos sorpresivos a todos los fondos existentes en la Empresa, cuando lo consideren conveniente y de acuerdo con sus posibilidades.
