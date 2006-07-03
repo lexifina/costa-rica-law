@@ -9,10 +9,12 @@ DECRETAN:
 Artículo 1º—Modifíquese el artículo 1 punto 1 incisos a), i) y punto 2 incisos a), c), i) del Decreto Nº 31126-MINAE; para que en su defecto se lea:
 1. Miembros propietarios:
 a) Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
-i) Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+i) Nancy Zamora Cervantes, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
 2) Miembros suplentes:
 a. Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
 c. Nevio Bonilla Morales, representante del Ministro de Agricultura y Ganadería.
 (Así reformados el inciso anterior por el artículo 2° del Decreto Ejecutivo N° 32803 del 4 de Noviembre del 2005)
-i) Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
