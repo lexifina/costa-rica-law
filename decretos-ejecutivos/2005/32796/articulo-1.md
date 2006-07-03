@@ -11,4 +11,5 @@ Considerando:
 6º—Que mediante el oficio STAP-CIRCULAR-0496-05 de 7 de abril de 2005, se comunicó a la Junta el gasto presupuestario máximo fijado para el año 2006.
 7º—Que para que la Junta pueda incorporar los recursos extraordinarios, es necesario modificar el gasto presupuestario máximo asignado a la citada entidad. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, el gasto presupuestario máximo del 2006, establecido en el Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005, de manera que éste no podrá exceder la suma de ¢22.133,35 millones en ese período.
+Artículo 1º—Modifícase para la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, el gasto presupuestario máximo del 2006, establecido en el Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005, de manera que éste no podrá exceder la suma de ¢ * 25.856.65 millones (veinticinco millones ochocientos cincuenta y seis punto sesenta y cinco colones) en ese período.
+*(Así reformado el monto anterior mediante el artículo 1 del decreto ejecutivo N°33207 del 03 de julio del 2006)
