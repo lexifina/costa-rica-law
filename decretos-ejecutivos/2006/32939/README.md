@@ -14,3 +14,4 @@ Modifica al Teatro Nacional, el gasto presupuestario máximo fijado para el año
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-22 | la propia norma |
+| 2 | 2006-07-03 | Decreto Ejecutivo 33235 (2006-07-03) |
