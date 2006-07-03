@@ -1,4 +1,3 @@
-Artículo 6º—Límites de crédito. El límite de crédito por actividad económica será establecido dentro de la política crediticia.
-El monto total de los financiamientos (saldos por crédito, conversión, participación asociativa y otros) por Organismo Cooperativo, no deben sobrepasar el 10% del patrimonio del Infocoop ni el 20% del presupuesto anual de colocaciones. Excepcionalmente, considerando criterios de impacto social y sostenibilidad institucional, la Junta Directiva valorará la posibilidad de autorizar que se sobrepase estos límites.
-Los créditos que otorgue el INFOCOOP no podrán ser superiores, en conjunto; hasta once veces el patrimonio de cada organismo cooperativo. Dentro del Patrimonio no se incluirá el capital suscrito cuando exista, solo el capital pagado.
-(Así reformado el párrafo tercero en sesión N° 3450 del 13 de junio del 2005)
+Artículo 6º—Los límites de crédito. El límite de crédito de la actividad económica será establecido dentro de la política crediticia.
+El monto total de los créditos por organismo cooperativo no debe sobrepasar el 10% del patrimonio del INFOCOOP, ni el 20% del presupuesto anual de colocaciones. Excepcionalmente, considerando criterios de impacto social y sostenibilidad institucional, la Junta Directiva valorará la posibilidad de que se sobrepasen estos límites. Los créditos que otorgue el INFOCOOP no podrán ser superiores, en conjunto, hasta once veces el capital social pagado de cada organismo cooperativo.
+(Así reformado por el artículo 28 de la sesión N° 3556 del 3 de julio de 2006)
