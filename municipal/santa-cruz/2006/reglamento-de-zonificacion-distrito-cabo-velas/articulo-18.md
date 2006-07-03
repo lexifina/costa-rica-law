@@ -1,0 +1,1 @@
+Artículo 18.—Investigación limitada. Los propietarios de las áreas, en esta normativa reguladas, no propiciarán ni promoverán el uso de sus instalaciones para proyectos de “investigación” que conlleven, entre otros la manipulación de las tortugas baula en cualquier estado de su desarrollo.

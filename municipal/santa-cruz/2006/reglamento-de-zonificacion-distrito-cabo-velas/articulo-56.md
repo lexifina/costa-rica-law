@@ -1,0 +1,1 @@
+Artículo 56.—Actividades que se incentivan. La posibilidad de realizar actividades propias del ecoturismo vinculadas a la presencia del estero y el Refugio de Fauna de Tamarindo, como por ejemplo, organización de visitas en las que los guías sean habitantes del pueblo de Matapalo.

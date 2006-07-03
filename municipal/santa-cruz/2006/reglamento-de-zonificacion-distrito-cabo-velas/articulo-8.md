@@ -1,0 +1,2 @@
+Artículo 8º—Reserva de zonas verdes. Las nuevas urbanizaciones tendrán que reservar un mínimo de veinte por ciento de áreas verdes, preferiblemente dirigidas hacia el área del parque.
+Sólo se autorizarán edificaciones diseñadas para casas de habitación o viviendas turísticas recreativas. Para el caso de pequeños hoteles o bed and breakfast de menos de veinte habitaciones, los mismos se construirían según los lineamientos de cobertura de construcción que para el efecto se anotan.

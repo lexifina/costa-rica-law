@@ -1,0 +1,4 @@
+Artículo 33.—Aguas servidas. Para el tratamiento de las aguas servidas este reglamento autoriza únicamente, según corresponda, plantas de tratamiento de aguas residuales o el funcionamiento de tanques sépticos ‘dobles’.
+Los drenajes pluviales, en general, podrán conducirse hacia las quebradas, siempre y cuando se mitigue el impacto de las aguas a las quebradas y de éstas al océano.
+Ningún pozo privado de agua potable podrá construirse a una distancia menor de 50 metros de los subdrenajes de tanques sépticos. Debe solicitarse al Ministerio de Salud que analice la potabilidad del agua que se extrae de los pozos existentes.
+En la línea de frente de la construcción, no se podrán construir vallas sólidas. Se excluye de esta disposición el caso de los muros de retención necesarios en obras declaradas de interés público por razón de emergencia.

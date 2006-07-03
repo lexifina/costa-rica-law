@@ -1,0 +1,1 @@
+Artículo 29.—Piscinas. Las piscinas que se construyan en las propiedades reguladas en este reglamento deberán poseer un sistema de purificación de agua de tipo ionizante u otro de bajo consumo de químicos que pudieren impactar el hábitat que se quiere resguardar.

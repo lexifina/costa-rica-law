@@ -1,0 +1,1 @@
+Artículo 23.—Retiros. Desde la línea de propiedad colindante con la zona inalienable de los cincuenta metros públicos, se deberá respetar un retiro de quince metros desde la línea de propiedad para empezar las construcciones en alturas que superen un metro de alto.

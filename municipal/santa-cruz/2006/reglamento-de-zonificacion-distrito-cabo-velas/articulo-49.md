@@ -1,0 +1,3 @@
+Artículo 49.—Iluminación. Los aparatos de iluminación colocados en sitios visibles desde la playa, no podrán estar orientados hacia el mar y de tratarse de bombillos a los lados de senderos, estos tendrán una potencia máxima de hasta 35 vatios y no podrán ubicarse a más de ochenta y cinco centímetros de altura.
+Asimismo, las construcciones colindantes con el área de “barrera vegetal o verde”, próximas a las playas de anidación, tendrán sus zonas de estacionamiento de vehículos y garajes, orientados y ubicados de tal manera que las luces de los automotores no se dirijan hacia las playas.
+Esta normativa promoverá la instalación de sistemas especiales de iluminación internacionalmente aceptados para proteger las tortugas.

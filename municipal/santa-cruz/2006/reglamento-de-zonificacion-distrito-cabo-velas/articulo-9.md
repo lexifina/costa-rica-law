@@ -1,0 +1,1 @@
+Artículo 9º—Zonas comerciales. De las fincas ubicadas en las zonas colindantes a los habitats de mayor desove, solo se autorizará el veinte por ciento de las áreas urbanizables, para destinarlas al uso comercial de bajo impacto, como restaurantes, sodas, Bed and Breakfast, pequeñas tiendas de souvenirs entre otros.

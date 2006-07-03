@@ -1,0 +1,1 @@
+Artículo 32.—Estacionamientos y garajes. Las construcciones colindantes con la playa de anidación tendrán sus zonas de estacionamiento de vehículos y garajes, en sitios donde las luces de los automotores no se ubiquen u orienten hacia la zona pública.

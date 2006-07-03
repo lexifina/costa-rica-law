@@ -1,0 +1,1 @@
+Artículo 16.—Restricción de ingreso. Conforme lo determinen las autoridades del Ministerio de Ambiente y Energía, durante la temporada de desove, se restringirá el ingreso de visitantes a las playas de anidación situadas en el Parque Nacional.
