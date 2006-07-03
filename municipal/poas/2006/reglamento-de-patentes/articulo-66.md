@@ -1,0 +1,1 @@
+Artículo 66.—La Administración Tributaria con resolución debidamente razonada y circunstanciada se reservan el derecho de poder otorgar licencias (patentes) municipales temporales a beneficio social, religioso, educativo, deportivo o cultural debidamente justificado y siempre cumpliéndose lo dispuesto en los artículos 28, 29 y 30 del presente Reglamento.

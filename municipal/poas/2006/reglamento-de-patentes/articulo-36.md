@@ -1,0 +1,1 @@
+Artículo 36.—La licencia municipal temporal de venta ocasional no podrá ser trasmitido a terceros por ninguna figura contractual y deberá ser operado por la persona que se acredite como titular del permiso.

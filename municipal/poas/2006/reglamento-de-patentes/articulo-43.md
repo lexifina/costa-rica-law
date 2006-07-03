@@ -1,0 +1,1 @@
+Artículo 43.—Las personas físicas o jurídicas que se definen en el artículo 37 de este Reglamento, se dediquen a brindar estos servicios a los ciudadanos o ellos cuenten con su propio sistema musical de karaoke, discomóvil, conjunto musical o similares deberán contar con la licencia municipal de acuerdo con el artículo 79 del Código Municipal y este Reglamento.

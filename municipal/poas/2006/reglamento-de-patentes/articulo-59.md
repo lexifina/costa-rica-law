@@ -1,0 +1,1 @@
+Artículo 59.—La Administración Tributaria se reserva el derecho de otorgar los puestos para una misma actividad según criterio. Además, el derecho y el diseño será el que la Administración Tributaria apruebe y será de carácter obligatorio.

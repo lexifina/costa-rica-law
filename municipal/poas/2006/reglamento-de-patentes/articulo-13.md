@@ -1,0 +1,2 @@
+Artículo 13.—La recalificación de oficio efectuada por la Administración Tributaria deberá ser notificada por esta al contribuyente de conformidad con el artículo 3°, inciso d), de este Reglamento.
+La información suministrada por el contribuyente a la Municipalidad, tiene carácter confidencial a que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios. Esta información se brindará únicamente al patentado, a la persona autorizada por él o por requerimiento de cualquier Juez de la República.

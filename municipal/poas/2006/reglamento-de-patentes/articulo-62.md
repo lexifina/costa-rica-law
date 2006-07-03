@@ -1,0 +1,1 @@
+Artículo 62.—Queda terminantemente prohibido la cesión, donación, venta o cualquier forma de traspaso de los puestos estacionarios y sus licencias. Al que se le comprobare tal negociación se le cancelará de inmediato la licencia (patente) municipal.

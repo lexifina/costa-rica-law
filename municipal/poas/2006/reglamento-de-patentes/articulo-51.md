@@ -1,0 +1,1 @@
+Artículo 51.—Contra la resolución que deniegue o apruebe la solicitud del permiso podrá interponerse los recursos ordinarios que se establecen en el párrafo primero del artículo 14 de este Reglamento.

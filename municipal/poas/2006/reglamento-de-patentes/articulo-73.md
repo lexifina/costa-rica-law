@@ -1,0 +1,1 @@
+Artículo 73.—Las resoluciones de la Administración Tributaria que ordenen la caducidad de la licencia por falta de pago, no tendrá recurso alguno y su tramitación no admitirá prueba en contrario salvo la excepción del pago.

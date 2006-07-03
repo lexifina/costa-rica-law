@@ -1,0 +1,11 @@
+Artículo 26.—Para realizar traspasos de licencia se requiere:
+a. Formulario de solicitud de traspaso o cesión de licencia municipal: El cual debe ser firmado por el cedente (quien traspasa) y el cesionario (adquiriente) de la patente, cumpliendo con todo lo establecido en dicho formulario.
+b. Copia por ambos lados de la cédula de identidad del solicitante y del propietario de local comercial o de la propiedad, del representante legal respectivo (según sea el caso) o certificación de personería jurídica si es sociedad. Si es extranjero, presentar copia de la cédula de residencia debidamente certificada y al día a efecto de verificar la condición del solicitante (vigentes).
+c. Timbres fiscales: Por 100 colones fiscal y 50 abogados. (Código Fiscal).
+d. Copia del contrato de arrendamiento: Suscrito entre el solicitante de la licencia municipal y el dueño del bien inmueble; en caso de sociedades el contrato deberá ser suscrito por el representante legal en representación de la sociedad. La actividad que se ha de desarrollar debe estar acorde con lo permitido en el contrato y la ley, y debe estar debidamente autenticado por un abogado. Este requisito se aplica en caso de que la propiedad donde se va ha desarrollar la actividad no sea propiedad del dueño del negocio.
+Trámites que no deben ser aportados por el administrado, pero serán verificados internamente en el expediente existente:
+- Copia de la Póliza de Riesgos de Trabajo del Instituto Nacional de Seguros INS: En caso de tener empleados debe presentar fotocopia del contrato del INS, y recibo cancelado o en su defecto debe presentar la constancia de exoneración de la misma. (Ley Nº 6727 de Riesgos de Trabajo en su artículo 202 y sus reformas). En ambos casos (póliza o exoneración), los documentos deben ser emitidos a nombre del patentado.
+- Copia del permiso de funcionamiento sanitario Decreto Nº 30465-S del (Actividades tipo A-B1-B2-C), extendido por el Ministerio de Salud.
+- Certificado del uso de suelo.
+- Permiso de construcción en caso de que las licencias municipales funcionen en lugares de reciente construcción; por parte del Departamento de Control y Planificación Urbana.
+- Cumplir con los artículos 22, 23 y 24 de este Reglamento.

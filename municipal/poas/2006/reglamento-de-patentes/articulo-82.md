@@ -1,0 +1,1 @@
+Artículo 82.—Ningún establecimiento dedicado exclusivamente a la venta de licores, puede vender tales productos a los menores de edad. La violación de esta disposición, se entenderá como falta muy grave.
