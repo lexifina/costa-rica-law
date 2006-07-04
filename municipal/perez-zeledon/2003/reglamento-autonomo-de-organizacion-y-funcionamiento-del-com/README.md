@@ -14,3 +14,4 @@ Reglamento autónomo de organización y funcionamiento del comité cantonal de d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-03 | la propia norma |
+| 2 | 2006-07-04 | Reglamento municipal 10 (2006-07-04) |

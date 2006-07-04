@@ -12,6 +12,7 @@ h) Integrar las comisiones que se consideren necesario para el desarrollo de sus
 i) Firmar conjuntamente con el tesorero los cheques contra las cuentas del Comité, previo acuerdo de pago de la Junta Directiva, según las normas que al respecto establezca el Comité.
 j) Supervisar las diferentes comisiones y asistir a las reuniones de éstas cuando lo considere oportuno, teniendo voz.
 k) Supervisar las labores de los jerarcas del Comité.
-l) Proveer lo necesario a fin de que el 30 de julio de cada año el plan anual y el proyecto de presupuesto, respectivamente, del Comité, sean remitidos al Concejo para su autorización.
+l) Proveer lo necesario a fin de que en la primera semana del mes de julio de cada año el plan anual y el proyecto de presupuesto, respectivamente, del Comité, sean remitidos al Concejo para su autorización.
+(Así reformado el inciso anterior mediante sesión N° 010 de 04 de julio de 2006)
 m) Cualesquiera otras que asignen las Leyes y Reglamentos en su condición de representante judicial y extrajudicial del Comité.
 n) Rendir respectiva póliza de fidelidad.

@@ -1,5 +1,6 @@
 Artículo 22.—Funciones del secretario. Son funciones del secretario las que se detallan enseguida:
-a) Fiscalizar y realizar las labores de secretaría.
+a) Realizar las labores de secretaría.
+(Así reformado el inciso anterior mediante sesión N° 010 de 04 de julio de 2006)
 b) Llevar al día las actas de las sesiones de Junta Directiva.
 c) Firmar conjuntamente con el Presidente las actas de las sesiones.
 d) Redactar y firmar correspondencia y demás comunicados, según los acuerdos tomados por el Comité, salvo que el acuerdo indique que debe ir también la firma del Presidente.
