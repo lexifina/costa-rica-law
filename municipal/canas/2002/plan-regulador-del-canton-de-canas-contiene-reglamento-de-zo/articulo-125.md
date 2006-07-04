@@ -1,1 +1,1 @@
-Artículo 125.—Líneas de transmisión a alta tensión. La zona de no construcción será de 150 metros a cada lado del centro de la línea. Dicha zona se mantendrá o modificará, únicamente cuando estudios científicos avalados por la Organización Mundial de la Salud demuestren que no existe riesgo a la salud humana, por la contaminación electromagnética generada por estas líneas.
+Artículo 125.—Líneas de transmisión a alta tensión. La zona de no construcción será la establecida por el ICE para cada caso y se encuentran graficadas el plano de zonificación.

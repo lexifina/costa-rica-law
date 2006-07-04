@@ -1,2 +1,1 @@
-Artículo 50.—Para los efectos de este Reglamento las Zonas de Hábitat Residencial se definen con fundamento en la densidad neta o inmobiliaria, que es la relación entre el número de viviendas y el área destinada a este uso con sus respectivos patios, infraestructura y servicios conexos, definidas según el Plano de Uso del Suelo, de la siguiente manera:
-Zona de hábitat residencial. (H0).
+Artículo 50.—Para los efectos de este Reglamento las Zonas de Hábitat Residencial se definen con fundamento en la densidad neta o inmobiliaria, que es la relación entre el número de viviendas y el área destinada a este uso con sus respectivos patios, infraestructura y servicios conexos, definidas según el Plano de Zonificación de la siguiente manera:

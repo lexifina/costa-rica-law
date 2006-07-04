@@ -1,2 +1,2 @@
-Artículo 81.—Delimitación espacial y generalidades. La zona de actividades industriales acuícolas, es aquella que tiene requerimientos especiales de ubicación y utiliza infraestructura especial, por lo que genera transporte pesado y probable contaminación con humos, ruidos, olores y en general ocupa gran espacio y grandes cantidades de agua.
-El contenido de esta zona está circunscrito al concepto del término "industria" esbozado en el capítulo de definiciones del presente Reglamento.
+Artículo 81.—Delimitación espacial y generalidades. La Zona de Actividades Industriales Acuícolas, es aquella que tiene requerimientos especiales de ubicación y utiliza infraestructura especial, por lo que genera transporte pesado y probable contaminación con humos, ruidos, olores y en general ocupa gran espacio y grandes cantidades de agua.
+El contenido de esta zona está circunscrito al concepto del término “industria” esbozado en el capítulo de definiciones del presente reglamento.

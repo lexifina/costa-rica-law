@@ -1,1 +1,7 @@
-Artículo 144.—Comisión Consultiva Cantonal. De conformidad con lo estipulado en el artículo 20 del presente Reglamento, en lo que respecta a la participación comunal, la Comisión Consultiva Cantonal estará formada por siete miembros, uno de los cuales será un regidor municipal quien la presidirá y otro un representante del SENARA, y cinco vecinos o representantes de instituciones interesadas, los cinco miembros se escogerán por el Consejo Municipal, conforme a ternas que envíen las diferentes organizaciones de interés social o sin fines de lucro o instituciones, que operen en los distintos distritos del Cantón.
+TÍTULO IV
+Medidas particulares de publicidad
+y comisión consultiva cantonal
+Disposiciones finales y transitorias
+CAPÍTULO PRIMERO
+Medidas particulares de publicidad y Comisión Consultiva
+Artículo 144.—Medidas particulares de publicidad. A los efectos de la implementación y ejecución de las disposiciones establecidas en el presente Reglamento, la Municipalidad a través de la Dirección de Ordenamiento Territorial, deberá publicitar su contenido por medios idóneos en todo el cantón, así como los proyectos de reforma o modificación de éste, garantizando con ello la posibilidad de participación ciudadana, en la formación de la voluntad y fiscalización del cumplimiento de las disposiciones contenidas en él.

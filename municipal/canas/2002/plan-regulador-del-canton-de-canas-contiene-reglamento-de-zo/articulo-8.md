@@ -1,4 +1,4 @@
 Artículo 8º—En materia de las acciones territoriales, urbanas y rurales, para fin de ordenamiento y aplicación del P.R., la Municipalidad tendrá derecho de prioridad para adquirir terrenos o inmuebles cuando un propietario hubiere declarado su intención de enajenarlo, siempre y cuando se declare de previo, un bien de utilidad o interés público. Para los fines indicados, bajo la aplicación de un concepto de preeminencia social, intermedio entre la adquisición amable y la expropiación, permitiendo respecto del propietario la venta del bien y respecto de la colectividad, la adquisición a un precio no especulativo, con el objeto de:
-· Permitir a la Municipalidad la adquisición de los terrenos, áreas o zonas donde se desee manejar la expansión urbana para una acción determinada;
-· Permitir la adquisición progresiva de los terrenos, áreas o zonas con fines de interés público o bien para garantizar que no se afecte el suelo a usos no compatibles.
-· Permitir la intervención municipal ante la evolución desproporcionada o injustificada de los valores y precios de bienes inmobiliarios.
+Permitir a la Municipalidad la adquisición de los terrenos, áreas o zonas donde se desee manejar la expansión urbana para una acción determinada.
+Permitir la adquisición progresiva de los terrenos, áreas o zonas confines de interés público o bien para garantizar que no se afecte el suelo a usos no compatibles.
+Permitir la intervención municipal ante la evolución desproporcionada o injustificada de los valores y precios de bienes inmobiliarios.

@@ -1,6 +1,6 @@
 Artículo 72.—Sin perjuicio de lo anteriormente establecido, se aceptará el establecimiento dentro de esta zona, de empresas dedicadas a actividades y servicios auxiliares, complementarias usualmente de otras empresas industriales, tales como, agencias bancarias, estaciones de servicio, empresas de transportes, restaurantes, depósitos de mercancías destinados a la distribución nacional e internacional.
 Igualmente en esta zona pueden desarrollarse las siguientes actividades:
-a) Emplazamiento de oficinas, en donde la superficie de cobertura en concreto no exceda, por inmueble, los 200 metros cuadrados, o que represente el espacio necesario accesorio de una empresa establecida en la zona.
-b) Emplazamiento de equipamientos de interés colectivo o de servicio público donde la superficie de cobertura en concreto no exceda por inmueble, los 200 metros cuadrados.
-El aumento de estas superficies deberá ser autorizado por la Dirección de Ordenamiento Territorial y Urbanismo, siempre y cuando dicha solicitud de visado esté debidamente motivada y justificada por razones sociales o económicas y siempre y cuando las condiciones locales le permitan dicha expansión, sin que signifique una reducción o vaya a perjudicar la función principal.
-En todo caso, el aumento de la superficie podrá ser extendido desde los 200 hasta 1 000 metros cuadrados, como máximo.
+a) Emplazamiento de oficinas, en donde la superficie de cobertura en concreto no exceda, por inmueble, los 200 m², o que represente el espacio necesario accesorio de una empresa establecida en la zona.
+b) Emplazamiento de equipamientos de interés colectivo o de servicio público donde la superficie de cobertura en concreto no exceda por inmueble, los 200 m².
+El aumento de estas superficies deberá ser autorizado por la COTU, siempre y cuando dicha solicitud de visado esté debidamente motivada y justificada por razones sociales o económicas y siempre y cuando las condiciones locales le permitan dicha expansión, sin que signifique una reducción o vaya a perjudicar la función principal.
+En todo caso, el aumento de la superficie podrá ser extendido desde los 200 hasta 1.000 m² como máximo.

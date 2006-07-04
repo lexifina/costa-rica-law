@@ -1,1 +1,1 @@
-Artículo 27.—Destinos. Los destinos son los fines públicos en materia de infraestructura, equipamiento, protección civil, vialidad y transporte, a los que pueden dedicarse las áreas y perímetros comprendidos en el programa y proyectos del Plan de Ordenamiento Territorial de la Municipalidad.
+Artículo 27.—Destinos. Los destinos son los fines públicos en materia de infraestructura, equipamiento, protección civil, vialidad y transporte, a los que pueden dedicarse las áreas y perímetros comprendidos en el programa y proyectos del P.R.

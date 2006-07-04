@@ -1,3 +1,2 @@
-Artículo 150.—Publicación. El presente Reglamento así como los planos de zonificación y vialidad deberán ser publicados en el Diario Oficial La Gaceta.
-(Ver Mapas en Gaceta No. 7 de 10 de enero de 2003, páginas 53 a 58.)
-(Ver Fe de Erratas publicada en La Gaceta No. 128 de 04 de julio de 2003, en la cual se publicó un mapa que se omitió en la publicación supra citada.)
+Artículo 150.—Régimen de responsabilidad común. La aplicación de las anteriores medidas administrativas no enerva o excluyen las responsabilidades personales de orden civil y penal que pudiera generarse en contra del infractor.
+Serán acreedores a dichas sanciones tanto los infractores como los funcionarios municipales que toleren o permitan por acción u omisión la violación a las disposiciones del presente Reglamento.

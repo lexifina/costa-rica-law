@@ -1,9 +1,1 @@
-CAPÍTULO SEGUNDO
-Disposiciones finales
-Artículo 146.—Infracciones. La infracción a las normas del presente Reglamento dará lugar a la Municipalidad para la aplicación de las siguientes medidas administrativas:
-Clausura del local.
-Procederá cuando se instalen, realicen o desarrollen actividades en edificios o construcciones ya existentes que impliquen un uso que no concuerde con la zonificación indicada
-Suspensión de obra.
-Procederá contra toda obra que se ejecute en contravención de la zonificación establecida o por incumplimiento de los requisitos de orden técnico y administrativos exigidos para la misma, pudiendo disponer para estos efectos del auxilio de la fuerza pública.
-La misma se mantendrá en todos sus efectos hasta tanto el infractor no se ajuste o cumpla las previsiones normativas comprendidas en el Presente Reglamento o las disposiciones aplicables al caso concreto.
-En caso de riesgo inminente a la seguridad de las personas y bienes por la naturaleza o estado de la construcción, Remodelación u otro de edificaciones, podrá la Municipalidad previa valoración de dicha circunstancia, ordenar la demolición o destrucción de la obra por cuenta y cargo del infractor. En caso de renuencia la Municipalidad podrá realizar dicha acción con personal municipal y proceder ejecutoramente al cobro de los costos o gastos incurridos.
+Artículo 146.—Comisión Ordenamiento Territorial y Urbanismo. De conformidad con lo estipulado en el artículo 20 del presente Reglamento, en lo que respecta a la participación comunal, la COTU estará formada por siete miembros, uno de los cuales será un regidor municipal quien la presidirá y otro un representante del SENARA, y cinco vecinos o representantes de instituciones interesadas, los cinco miembros se escogerán por el Consejo Municipal, conforme a ternas que envíen las diferentes organizaciones de interés social o sin fines de lucro o instituciones, que operen en los distintos distritos del Cantón.

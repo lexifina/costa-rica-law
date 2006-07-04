@@ -1,1 +1,2 @@
-Artículo 39.—Requisitos e indicadores constructivos. Los requisitos e indicadores constructivos de dosificación de uso del suelo son las condiciones que se le fijan a una construcción que se quiere realizar en un lote o sitio determinado. El profesional responsable deberá cumplir con las normas y prescripciones derivadas del presente Reglamento para que el proyecto sea aprobado.
+Artículo 39.—Requisitos e indicadores constructivos. Los requisitos e indicadores constructivos son las condiciones que se le fijan a una construcción que se quiere realizar en un lote o sitio determinado.
+El profesional responsable deberá cumplir con las normas y prescripciones derivadas del presente Reglamento para que el proyecto sea aprobado.

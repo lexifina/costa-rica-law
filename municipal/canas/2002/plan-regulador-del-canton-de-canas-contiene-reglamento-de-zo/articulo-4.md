@@ -1,1 +1,1 @@
-Artículo 4º—La existencia de la Dirección de Ordenamiento Territorial y Urbanismo de la Municipalidad presupone la posibilidad de relaciones con los sistemas institucionales, de manera que surge la necesidad de coordinar y compatibilizar con los programas institucionales y sectoriales del Poder Ejecutivo.
+Artículo 4º—La existencia de la COTU presupone la posibilidad de relaciones con los sistemas institucionales, de manera que debe coordinar y compatibilizar con los programas institucionales y sectoriales del Poder Ejecutivo.

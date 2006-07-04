@@ -1,1 +1,1 @@
-Artículo 13.—Vías de comunicación. Las acciones y trabajos que tengan por objeto la creación o modificación de vías de comunicación tal y como se han considerado o establecido en el presente plan regulador, deberán ser sometidas a consideración y aprobación de las entidades competentes.
+Artículo 13.—Vías de comunicación. Las acciones y trabajos que tengan por objeto la creación o modificación de vías de comunicación tal y como se han considerado o establecido en el presente P.R., deberán ser sometidas a consideración y aprobación de las entidades competentes.

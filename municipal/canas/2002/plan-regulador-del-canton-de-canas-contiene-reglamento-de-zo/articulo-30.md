@@ -1,1 +1,1 @@
-Artículo 30.—Calificación de usos. La calificación de usos se hará con base a lo estipulado en el Decreto Nº 304655-S Reglamento General para el Otorgamiento de Permisos de Funcionamiento por parte del Ministerio de Salud.
+Artículo 30.—Calificación de las actividades. La calificación de las actividades la hará el Ministerio de Salud.
