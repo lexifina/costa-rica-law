@@ -1,0 +1,1 @@
+Artículo 6º—Una vez inscritos los candidatos, el Tribunal los convocará a una reunión de información general, y evacuación de consultas. La asistencia a esta reunión es obligatoria para el candidato, salvo que motivos de fuerza mayor debidamente acreditados le impidan la asistencia, en cuyo caso deberá acreditarse un representante.

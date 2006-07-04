@@ -1,0 +1,1 @@
+Artículo 25.—Será declarado representante en cada sector el candidato que obtenga simple mayoría de los votos emitidos. Los votos nulos o en blanco no serán tomados en cuenta a favor de ningún candidato.

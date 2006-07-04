@@ -1,0 +1,1 @@
+Artículo 26.—En caso de empate se repetirá la votación ocho días naturales después, únicamente entre quienes obtuvieron por igual el mayor mismo número de votos. Si persistiere el empate el TECUNA procederá a la elección del representante mediante rifa con la presencia de los candidatos.

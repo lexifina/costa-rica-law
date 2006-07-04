@@ -1,0 +1,2 @@
+Artículo 28.—El escrutinio final de los votos lo hará el TECUNA, con la presencia de los fiscales de cada candidato. Una vez contados los votos, levantará el acta respectiva debidamente firmada, la que se enviará al Consejo Directivo del CUNA para lo que proceda.
+La declaratoria oficial como integrante del Consejo se llevará a cabo ocho días naturales después de las elecciones en una ceremonia especial donde se hará entrega de las credenciales correspondientes.

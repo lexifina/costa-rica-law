@@ -1,0 +1,1 @@
+Artículo 8º—No podrán ser candidatos ni electos como miembros del Consejo Directivo los siguientes funcionarios: el Auditor Interno, el Asesor Legal, el Secretario de Actas del Consejo Directivo ni el Decano.

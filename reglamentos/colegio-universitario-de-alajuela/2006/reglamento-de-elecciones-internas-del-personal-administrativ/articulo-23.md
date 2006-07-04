@@ -1,0 +1,1 @@
+Artículo 23.—Todo elector del CUNA tendrá derecho solo a un voto. Los funcionarios o empleados que desempeñen funciones en más de un sector (sector docente y docente administrativo, o sector administrativo), serán incluidos dentro del padrón del sector donde tenga una mayor jornada laboral.
