@@ -14,3 +14,4 @@ Resolución N° 149-2005: Reglamento Técnico Centroamericano (RTCA 01.01.01:05)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-10 | la propia norma |
+| 2 | 2006-07-05 | Decreto Ejecutivo 33222 (2006-07-05) |
