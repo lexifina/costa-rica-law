@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Sobre multas y sanciones
+Artículo 37.—Caso de incumplimiento de las obligaciones establecidas en este reglamento, referentes a la separación, recolección y acumulación para el transporte y la disposición final de los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones de construcción, agrícolas, ganaderas, industriales, comerciales y turísticas, mediante los sistemas de disposición final existentes, se aplicará trimestralmente la sanción o multa establecida en el artículo setenta y seis inciso c del Código Municipal, que corresponde a cien colones por metro cuadrado del área total de la propiedad.

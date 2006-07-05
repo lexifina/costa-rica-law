@@ -1,0 +1,1 @@
+Artículo 30.—Los desechos hospitalarios infecciosos y peligrosos deberán ser incinerados, sometidos a autoclave o microondas para su esterilización, o a otra tecnología equivalente aprobada por la entidad competente, cumpliendo con los requisitos legales vigentes.

@@ -1,0 +1,1 @@
+Artículo 2º—Todos los habitantes del cantón, y las personas jurídicas públicas y privadas con actividades en el mismo, tienen el derecho y el deber de participar en la prevención, mitigación, control y restauración del ambiente, siguiendo pautas ambientalmente adecuadas en el manejo de los desechos.
