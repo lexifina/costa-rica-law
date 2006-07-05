@@ -21,3 +21,4 @@ Reglamento de Operación del Comité y Subcomités de Licitaciones
 | 6 | 2003-03-04 | Reglamento 11195 (2003-03-04) |
 | 7 | 2004-05-27 | Reglamento 11263 (2004-05-27) |
 | 8 | 2005-11-14 | Reglamento 11353 (2005-11-14) |
+| 9 | 2006-07-05 | Reglamento 0 (2006-07-05) |
