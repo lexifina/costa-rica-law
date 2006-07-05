@@ -14,3 +14,4 @@ Reforma Reglamento de Registro de Control de Bienes Muebles de la Asamblea Legis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-22 | la propia norma |
+| 2 | 2006-07-05 | Acuerdo 22 (2006-07-05) |

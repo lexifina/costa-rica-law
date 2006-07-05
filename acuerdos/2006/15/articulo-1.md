@@ -4,8 +4,10 @@ DE LA REPÚBLICA DE COSTA RICA
 De conformidad con la disposición adoptada en la sesión Nº 7-2006, celebrada por el Directorio Legislativo el 31 de mayo de 2006
 SE ACUERDA:
 Con el propósito de descongestionar la agenda del Directorio Legislativo, modificar el capítulo VI, del Reglamento de Registro de Control de Bienes Muebles de la Asamblea Legislativa, correspondiente a la donación de bienes muebles en desuso y equipo desechado, para que se lea de la siguiente manera:
-“Artículo 28.—Beneficiarlo o donatario. La Administración podrá promover donaciones de bienes muebles en desuso o equipo desechado, únicamente cuando esté contemplado en la ley constitutiva del beneficiario o donatario.
-Lo anterior en el entendido de que la totalidad de las donaciones que se realicen deberá encauzarse a las Juntas de Educación de los centros educativos y cuando se presenten casos excepcionales, deberán ser elevados a conocimiento del Directorio Legislativo para su aprobación.
+*“Artículo 28.—Beneficiario o donatario. La administración podrá promover donaciones de bienes muebles en desuso o equipo desechado, únicamente cuando esté contemplado en la ley constitutiva del beneficiario o donatario.
+Lo anterior en el entendido de que la totalidad de las donaciones que se realicen deberá encauzarse a las Juntas de Educación de los centros educativos, para lo cual se dará prioridad a las escuelas con menor índice de desarrollo.
+Cuando se presenten casos excepcionales, deberán ser elevados a conocimiento del Directorio Legislativo para su aprobación.
+*(Así reformado mediante acuerdo N°22 del 05 de julio del 2006).
 Artículo 29.—Concepto de bienes muebles en desuso. Se consideran bienes muebles en desuso los obsoletos, faltos de repuestos o los descontinuados por sus fabricantes, previa calificación de la Unidad de Mantenimiento u otra unidad con capacidad de realizarla.
 Antes de proceder a la donación, la Unidad de Mantenimiento o la unidad con capacidad técnica para hacerlo, analizará la conveniencia de utilizar sus partes como repuestos.
 Artículo 30.—Declaración previa para el desecho de bienes muebles o equipo. Para donar bienes muebles y equipo que ha sido desechado, debe haber una declaración previa de la unidad capacitada para dictaminarlo. Asimismo, se debe comunicar al Departamento de Proveeduría para que proceda a eliminarlo del inventario, lo cual no podrá completarse hasta que los activos hayan sido entregados a los beneficiarios.
