@@ -1,0 +1,12 @@
+CIRCULAR Nº 92-2006
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 166 del 8 de agosto de 2014, y publicada en el Boletín Judicial N° 170 del 4 de setiembre de 2014)
+(Nota de Sinalevi: Esta circular fue reiterada mediante sesión N° 5-14 del 10 de febrero del 2014, publicada en el Boletín Judicial N° 56 del 20 de marzo del 2014 mediante circular N° 36-2014 del 26 de febrero del 2014)
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular Nº 99 del 26 de julio de 2010, y publicada en el Boletín Judicial Nº 155 del 11 de agosto de 2010)
+ASUNTO: Sobre la atención al público en el horario comprendido después de las 12:00 horas y de las 4:30 p. m.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 40-06, celebrada el 6 de junio del año en curso, artículo XLIX, dispuso comunicarles que para asegurar una eficiente prestación del servicio en caso de que la afluencia del público o complejidad de sus trámites lo justifique, se recomienda que cada despacho refuerce el personal dedicado a la atención al público hasta una hora antes del cierre de cada audiencia, con el fin de que todas las personas usuarias que hayan ingresado con anterioridad al cierre y se encuentren a la espera de ser atendidas, efectivamente lo sean.
+En el caso de que, pese a que se haya tomado esta medida, personas que ingresaron con anterioridad, permanezcan sin atender al momento del cierre, si es a la hora del almuerzo, deberá el juez coordinador o tramitador, según corresponda, autorizar a un servidor para que continúe brindando el servicio por el tiempo estrictamente necesario, debiendo quien fue asignado, disfrutar de su hora de almuerzo, en cuanto termine la labor.
+Si se tratara del cierre de la segunda audiencia, los jueces del despacho deben garantizar igualmente que se brinde la atención a las personas que esperan recibir el servicio, solicitando la colaboración a alguno de los servidores del despacho a efecto de concluir con la atención de esos usuarios que ingresaron con anterioridad o bien procediendo el juzgador(a) a brindarla, en el cumplimiento de las responsabilidades inherentes a su puesto (Acuerdo de Corte Plena del 4 de enero de 1999, artículo VIII).
+Los despachos que utilizan el sistema de atención por ficha respetarán para su entrega el horario de oficina, de tal modo que no podrán negar su entrega y atención al usuario conforme a las reglas anteriores.
+San José, 22 de junio del 2006.
