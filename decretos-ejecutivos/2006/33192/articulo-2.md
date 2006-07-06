@@ -1,0 +1,1 @@
+Artículo 2º—Que INCOPESCA deberá presentar en un plazo no mayor a 30 días naturales contados a partir de la vigencia de esta regulación, ante las instancias administrativas y competentes del IMAS, el listado de pescadores sujeto a las restricciones y condiciones de veda para el Golfo de Nicoya, a fin de que se les otorgue el subsidio económico correspondiente.
