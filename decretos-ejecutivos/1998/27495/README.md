@@ -14,3 +14,4 @@ Declara e incorpora al Patrimonio Histórico-Arquitectónico de Costa Rica la Ig
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-17 | la propia norma |
+| 2 | 2006-07-06 | Decreto Ejecutivo 33341 (2006-07-06) |
