@@ -28,6 +28,21 @@ Concesión de préstamos
 - Consejo Técnico Asistencia Médico Social (CTAMS) - Transferencia al INCIENSA según Ley Nº 7851 Ley General de Distribución de Loterías y sus Reformas.
 - Dirección General de Aviación Civil – Transferencia al Instituto Meteorológico Nacional según Ley Nº 5222.
 - Editorial Costa Rica - Impresión y encuadernación. Derechos de autor en el Programa Producción y Difusión. Pago de comisiones por ventas.
+- Escuela de Ganadería:
+NOTA: Mediante el artículo 1° del decreto ejecutivo N° 33266 del 6 de julio del 2006, se “adiciona a las exclusiones específicas los siguientes rubros que se ubican dentro de la partida “Bienes para la producción y comercialización”, subpartidas “Materia prima” y “Otros bienes para la producción y comercialización” de la clasificación por objeto del gasto del presupuesto de la Escuela de Ganadería:
+Acemite de trigo | Grasa amarilla
+Áureo SP-250 | Harina de soya
+Azúcar | Leche
+Bolsas | Leche en polvo
+Cajas de cartón | Lisina sintética
+Carbonato de calcio | Maíz amarillo
+Cascarilla de soya | Melaza
+Condimentos | Metionina sintética
+Cultivos lácteos | Sal común
+Destilados de maíz | Semolina de arroz
+Etiquetas | Topping
+Fosfato dicálcico granulado | Químicos para desinfección de
+Fundas para embutidos | Plantas agroindustriales
 - Fábrica Nacional de Licores (FANAL) - Materia Prima. Impuesto IDA. Impuesto IFAM. Transferencia al IAFA según Ley Nº 5152 y sus reformas, Ley Orgánica del Ministerio de Salud. Transferencia al CNP, por Margen de Comercialización y por Utilidad Neta y Ventas Proyectadas según Ley Nº 6050 Reforma Ley Orgánica del Consejo Nacional de Producción.
 - Fondo de Parques Nacionales - Transferencias al Parque Nacional Manuel Antonio, Ley Nº 5100 y sus reformas, Ley que declara Parque Nacional Playas Manuel Antonio.
 - Fondo de Vida Silvestre - Transferencias a Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO) Ley Nº 7317 y sus reformas, Ley de Conservación de la Vida Silvestre.
