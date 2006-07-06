@@ -1,0 +1,1 @@
+Artículo 2º—Desaféctase del uso público el lote que se segrega en el artículo 1 de esta Ley, y se autoriza a la Municipalidad de Paraíso para que lo done a la Asociación de Mujeres para el Trabajo y el Desarrollo Comunal, cédula de persona jurídica Nº 3-002-092164.
