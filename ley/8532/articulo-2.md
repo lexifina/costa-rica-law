@@ -1,0 +1,1 @@
+Artículo 2º—El terreno por segregar y donar se ubica en el distrito de Barranca, cantón I, provincia de Puntarenas. Linda al norte, con las Temporalidades de la Iglesia Católica, Diócesis de Puntarenas; y al sur, el este y el oeste, con la Municipalidad de Puntarenas, según el plano catastrado Nº P-854052-2003.

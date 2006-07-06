@@ -1,0 +1,1 @@
+Artículo 3º—Esta segregación y donación se realizan con el fin de que el Instituto Profesional de Educación Comunitaria de Puntarenas, Fray Casiano de Madrid, pueda construir su planta física y demás infraestructura tendiente a mejorar el servicio que brinda.
