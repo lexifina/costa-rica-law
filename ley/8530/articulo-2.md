@@ -1,0 +1,1 @@
+Artículo 2º—El terreno será utilizado para construir la sede del Centro Agrícola Cantonal de Sarapiquí; para tales efectos, se autoriza a la Municipalidad de Sarapiquí y a las instituciones del Estado para que realicen donaciones en apoyo del proyecto constructivo.
