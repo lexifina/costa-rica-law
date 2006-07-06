@@ -14,3 +14,4 @@ Declara Patrimonio Histórico Inmueble propiedad de la Municipalidad de Santo Do
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-28 | la propia norma |
+| 2 | 2006-07-06 | Decreto Ejecutivo 33337 (2006-07-06) |
