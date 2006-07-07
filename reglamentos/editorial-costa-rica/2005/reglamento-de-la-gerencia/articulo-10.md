@@ -1,0 +1,1 @@
+Artículo 10.—El Gerente podrá delegar en un miembro del personal de la Editorial aquellas atribuciones que no comprometan el ejercicio ineludible de la representación legal de la Editorial, sin embargo, será responsable por las acciones que realice su representante.

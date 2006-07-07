@@ -1,0 +1,1 @@
+Artículo 14.—Cualquier asunto en el que deba intervenir el Gerente en el ejercicio de sus funciones y que no esté normado explícitamente en el presente Reglamento, deberá ser planteado y resuelto por el Consejo Directivo de la Editorial Costa Rica.

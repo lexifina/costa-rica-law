@@ -1,0 +1,1 @@
+Artículo 12.—El Gerente está obligado a llevar a cabo las contrataciones relacionadas con la edición de obras, así como a determinar la planificación de las reediciones correspondientes con la aprobación previa del Consejo.

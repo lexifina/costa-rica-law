@@ -1,0 +1,1 @@
+Artículo 11.—El Gerente está facultado para proponer al Consejo las pautas generales que debe seguir la Editorial, incluyendo los objetivos generales, específicos y metas para cada ciclo presupuestario.

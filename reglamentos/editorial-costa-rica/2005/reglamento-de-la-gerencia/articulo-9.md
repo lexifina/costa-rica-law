@@ -1,0 +1,1 @@
+Artículo 9º—El Gerente atenderá las relaciones con los autores, los personeros de las instituciones públicas y privadas, de acuerdo con la política institucional definida por el Consejo. Atenderá, además, las relaciones de la Editorial con el público y dará a los medios de comunicación colectiva las informaciones que estime pertinentes sobre las actividades de la Editorial.
