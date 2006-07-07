@@ -1,3 +1,9 @@
 CAPITULO II
 De la relación de servicio
-Artículo 10.—Con el propósito de demostrar su idoneidad, todo aspirante a un puesto, deberá ajustarse al procedimiento técnico de reclutamiento y selección establecido en los manuales y disposiciones vigentes en esta materia en la Institución, y cumplir los requisitos del perfil institucional y el específico de su cargo.
+Artículo 10.—La relación de servicio que vincula a los funcionarios con la Contraloría General de la República comprende los siguientes tipos de cargos:
+a) Dirección Superior
+b) Confianza
+c) Gerencial
+d) Regular
+e) Servicios Especiales
+(Así reformado mediante resolución R-SC-04 del 7 de julio de 2006)

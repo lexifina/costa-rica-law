@@ -1,5 +1,6 @@
-CAPITULO XII
+(*)CAPITULO XIII
 De las prohibiciones
+(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XII al XIII actual)
 Artículo 83.—Está prohibido a los funcionarios de la Contraloría:
 a) Distraer tiempo de sus horas de Oficina para dedicarlos a asuntos ajenos a la Institución.
 b) Recibir, en forma abusiva, en horas de Oficina visitas o llamadas telefónicas particulares.

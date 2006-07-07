@@ -1,5 +1,6 @@
-CAPITULO XV
+(*)CAPITULO XVI
 Del hostigamiento sexual
+(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XV al XVI actual)
 Artículo 111.—Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoca efectos perjudiciales en los siguientes casos:
 a) Condiciones materiales de empleo.
 b) Desempeño y cumplimiento en la prestación de servicios.

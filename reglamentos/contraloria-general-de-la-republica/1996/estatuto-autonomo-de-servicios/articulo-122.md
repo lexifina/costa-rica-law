@@ -1,5 +1,6 @@
-"CAPITULO XVII
+CAPITULO XVIII
 De la reorganización y supresión de plazas
+(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XVII al XVIII actual)
 Artículo 122.—La supresión de plazas y la consecuente finalización de la relación de servicio de sus titulares, únicamente procederá por reorganización y deberá ajustarse al siguiente procedimiento:
 i. elaboración de un estudio técnico que determine la necesidad de la reorganización y de la supresión de la plaza como parte de aquella;
 ii. el acto de traslado de la posible supresión de plaza será emitido mediante resolución motivada del Contralor General;

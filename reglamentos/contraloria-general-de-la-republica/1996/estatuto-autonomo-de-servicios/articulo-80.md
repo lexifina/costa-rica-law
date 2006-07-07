@@ -1,5 +1,6 @@
-CAPITULO XI
+(*)CAPITULO XII
 De las obligaciones
+(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XI al XII actual)
 Artículo 80.—Son obligaciones de los servidores:
 a) Cumplir con la jomada de trabajo que este Estatuto establece.
 b) Asistir puntualmente a su trabajo todos los días hábiles.
