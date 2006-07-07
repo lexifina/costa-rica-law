@@ -1,3 +1,7 @@
-Reorganizaciones estructurales:
-Artículo 14.- Se entenderá por reorganización estructural la creación o supresión de unidades administrativas, así como la transformación de las mismas. La Contraloría General de la República, la Autoridad Presupuestaria, La Dirección General de Presupuesto del Ministerio de Hacienda no tramitarán presupuestos ni modificaciones presupuestarias de aquellos entes públicos que lleven a cabo reorganizaciones estructurales no autorizadas por MIDEPLAN. Las instituciones públicas quedan obligadas a remitir trimestralmente el reporte de avance sobre el procedimiento de implementación de las recomendaciones organizativas o estructurales emitidas por MIDEPLAN.
-(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 13 al 14 actual del artículo)
+Área de Cooperación Internacional Artículo 14.—Área de Cooperación Internacional. Sus funciones son:
+a) Apoyar al Despacho para que la asignación de los distintos tipos de recursos externos que se canalizan hacia el Sector Público, o por medio de él, sean utilizados en forma eficiente y respetando las prioridades establecidas en el Plan Nacional de Desarrollo. Ningún Ministerio ni organismo autónomo o semiautónomo podrá iniciar trámites para obtener cooperación internacional, sin la autorización previa de MIDEPLAN, de manera que se garantice desde el inicio, que la cooperación se dirija hacia esas prioridades. La aprobación definitiva de los proyectos deberá contar también con la aprobación de MIDEPLAN.
+b) Diseñar planes de cooperación externa, de manera que se maximice el potencial del desarrollo nacional.
+c) Para la ejecución de sus funciones esta Área tendrá las siguientes unidades:
+i) Unidad de Cooperación Bilateral
+ii) Unidad de Cooperación Multilateral
+(Así adicionado mediante el artículo 3° del decreto ejecutivo N°33206 del 07 de julio del 2006).

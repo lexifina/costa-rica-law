@@ -1,3 +1,6 @@
-Artículo 15.- Se deroga el Decreto Ejecutivo Nº 17592-PLAN de 8 de junio de 1987 y cualquier otra norma que se le oponga.
-Este reglamento rige a partir del día dieciocho de mayo de mil novecientos noventa y cuatro.
-(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 14 al 15 actual del artículo)
+Reorganizaciones estructurales:
+Artículo 15.- Se entenderá por reorganización estructural la creación o supresión de unidades administrativas, así como la transformación de las mismas. La Contraloría General de la República, la Autoridad Presupuestaria, La Dirección General de Presupuesto del Ministerio de Hacienda no tramitarán presupuestos ni modificaciones presupuestarias de aquellos entes públicos que lleven a cabo reorganizaciones estructurales no autorizadas por MIDEPLAN. Las instituciones públicas quedan obligadas a remitir trimestralmente el reporte de avance sobre el procedimiento de implementación de las recomendaciones organizativas o estructurales emitidas por MIDEPLAN.
+(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 13 al 14 actual del artículo).
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N°33206 del 07 de julio del 2006, que lo traspasó del antiguo 14 al 15 actual del artículo).
+(NOTA: Mediante el artículo 2 del decreto ejecutivo N° 33555 del 21 de diciembre de 2006, “Fortalecimiento del Instituto Nacional de Seguros", se excluye al INS de la materia de recursos humanos y reorganización institucional)
+(NOTA: Mediante el artículo 3 del decreto ejecutivo N° 33619 del 20 de febrero de 2007, “Fortalecimiento del Instituto Costarricense de Electricidad y sus Empresas", se excluye al ICE y sus empresas de la materia de recursos humanos y reorganización institucional)
