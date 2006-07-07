@@ -1,0 +1,1 @@
+Artículo 19.—Tan solo se formalizarán en documento simple las contrataciones que por su trascendencia económica o por la necesidad de especificar las obligaciones de las partes, hagan conveniente la existencia de un contrato escrito. En los demás casos la orden de compra, servirá como instrumento de ejecución contractual.

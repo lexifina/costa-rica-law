@@ -1,0 +1,1 @@
+Artículo 34.—Los proveedores inscritos en el Registro objeto del presente Reglamento, no están obligados a solicitar nuevamente su incorporación, sino que será suficiente con que renueven aquellos documentos legales vencidos y notifiquen cualquier cambio.

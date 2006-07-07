@@ -1,0 +1,1 @@
+Artículo 33.—Los proveedores incluidos en el Registro quedan obligados a comunicar a la Sección de Proveeduría de todo cambio que se presente en sus datos, descripción y característica de los bienes y servicios.

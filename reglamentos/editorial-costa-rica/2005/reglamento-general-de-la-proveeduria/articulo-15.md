@@ -1,0 +1,1 @@
+Artículo 15.—En los demás procedimientos de contratación, la adjudicación estará a cargo del Gerente, previa autorización del Consejo Directivo y contando con la recomendación positiva del Comité de Adquisiciones y Adjudicaciones y del jefe del departamento al cual va dirigido el bien o servicio.

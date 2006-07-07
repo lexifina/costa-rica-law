@@ -1,0 +1,1 @@
+Artículo 31.—Se excluirán del Registro de Proveedores aquellas personas físicas o jurídicas que, en forma reiterada, no respondan al llamado a concursar en los distintos procedimientos de contratación. Previamente, se le informará al proveedor registrado tal decisión.
