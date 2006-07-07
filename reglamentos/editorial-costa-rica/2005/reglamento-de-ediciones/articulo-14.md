@@ -1,0 +1,1 @@
+Artículo 14.—En caso de las obras por encargo se solicitará un plan de trabajo con el debido cronograma y se pagará bajo la modalidad de pago de honorarios con un adelanto del 30% (treinta por ciento) del monto total en el acto de firma del contrato y el 70% (setenta por ciento) restante a satisfacción del Consejo.

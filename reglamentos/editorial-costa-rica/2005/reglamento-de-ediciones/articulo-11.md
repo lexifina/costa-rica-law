@@ -1,0 +1,1 @@
+Artículo 11.—El autor de toda obra antológica deberá incluir un texto de análisis, elaborado por el propio antologador. Por su trabajo percibirá un 7% (siete por ciento) de derechos de autor en cualquier edición, excepto cuando se trate de una obra por encargo.

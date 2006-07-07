@@ -1,0 +1,1 @@
+Artículo 4º—El Departamento Financiero llevará un expediente de cada obra con el detalle de los costos del proceso de edición, así como una copia del contrato de edición, con el fin de determinar los respectivos derechos patrimoniales.

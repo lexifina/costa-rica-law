@@ -1,0 +1,1 @@
+Artículo 8º—El procedimiento de edición se iniciará con la aprobación de la obra por parte del Consejo, luego de lo cual la Gerencia procederá a firmar un contrato de edición según lo establecido en el Capítulo VI del presente reglamento.

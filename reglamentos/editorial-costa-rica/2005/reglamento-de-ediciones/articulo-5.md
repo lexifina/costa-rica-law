@@ -1,0 +1,1 @@
+Artículo 5º—La Gerencia mantendrá un expediente debidamente ordenado alfabéticamente de acuerdo al primer apellido del autor, el cual se inicia desde el momento en que se aprueba la edición, y contendrá el acuerdo del Consejo Directivo de aprobación de la obra, el contrato, correspondencia, estados de cuenta, informaciones publicadas sobre el autor o su obra, etc.
