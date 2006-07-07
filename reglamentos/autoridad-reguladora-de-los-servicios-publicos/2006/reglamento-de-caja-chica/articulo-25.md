@@ -1,0 +1,1 @@
+Artículo 25.—Los funcionarios del área funcional de Tesorería no entregarán vales de caja chica a nombre de un funcionario, si este tiene pendiente la liquidación de uno anterior. No podrá extenderse más de un vale a nombre de un mismo funcionario en forma simultánea.
