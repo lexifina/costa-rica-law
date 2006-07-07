@@ -1,0 +1,1 @@
+Artículo 3º—MIDEPLAN brindará la metodología que incluirá el marco orientador de políticas y la guía para la elaboración de las propuestas sectoriales a ser propuestos por los Ministros rectores de sector.

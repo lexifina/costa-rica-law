@@ -1,0 +1,1 @@
+Artículo 2º—Los ministros, presidentes ejecutivos y demás jerarcas institucionales asumirán como prioritarias las actividades relacionadas con la elaboración del Plan Nacional de Desarrollo, así como la asignación de los recursos para el cumplimiento de las metas establecidas en el PND.

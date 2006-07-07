@@ -1,0 +1,1 @@
+Artículo 11.—En el marco de los Compromisos Internacionales asumidos por el país, en la Declaración del Milenio del 2000, aquellas instituciones que tengan la responsabilidad en el cumplimiento de los Objetivos de Desarrollo del Milenio, deberán incluir las acciones con sus correspondientes metas en los planes sectoriales.

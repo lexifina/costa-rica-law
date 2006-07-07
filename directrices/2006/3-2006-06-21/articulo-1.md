@@ -1,0 +1,15 @@
+Nº 003-MIDEPLAN
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+En uso de las facultades establecidas en los artículos 130, 140, incisos 3), 8) y 20) de la Constitución Política; 1, 25.1, 26 inciso b) 27.1, 98, 99, 100, de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978.
+Considerando:
+I.—Que el Plan Nacional de Desarrollo (PND) es el marco orientador que define los objetivos que normarán la acción del Gobierno de la República para promover el desarrollo del país. El PND establece de manera vinculante para las entidades públicas, los ministerios y demás órganos, las políticas y objetivos a nivel sectorial y regional.
+II.—Que los ministerios, las instituciones descentralizadas y demás órganos, creados al amparo de los artículos 188 y 189 de la Constitución Política constituyen el conjunto de la Administración Pública, que debe operar bajo la dirección política del Poder Ejecutivo, según lo establecido en el artículo 140, inciso 8) de la misma Constitución, de manera que sus actividades y recursos legalmente asignados constituyan un conjunto de esfuerzos que se canalicen unitaria e integralmente a la solución de los problemas del país.
+III.—Que para lograr la unidad e integralidad de visión y acción de todos esos ministerios y órganos, el Poder Ejecutivo ordenará sus actividades, fijando las metas y los recursos necesarios para lograrlas.
+IV.—Que el PND según lo establecido en el artículo 4º de la Ley Nº 8131 Administración Financiera de la República y Presupuestos Públicos, es el marco orientador de los planes anuales operativos y el presupuesto anual de las instituciones, y tiene el propósito de sustentar el mandato constitucional que corresponde al Presidente de la República en cuanto a dirigir, planificar, coordinar, organizar, controlar y evaluar, los objetivos, políticas, programas y proyectos estratégicos para el desarrollo integral del país. En este sentido el PND, constituye un instrumento que los ministros han de utilizar para la dirección política superior que como órganos rectores de cada sector de actividad, actuando conjuntamente con el Presidente de la República, están llamados a lograr en las instituciones públicas, según su autonomía constitucional o legal.
+V.—Que con base en lo señalado en el artículo 4º de la Ley Nº 5525, el PND de Desarrollo debe ser elaborado por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), en concurso con las restantes instituciones del Sistema Nacional de Planificación y aprobado por la Presidencia de la República.
+VI.—Que es responsabilidad del MIDEPLAN asegurar el funcionamiento del Sistema Nacional de Planificación. Por tanto, se emite la siguiente directriz:
+Dirigida a los Ministros Rectores del Sector, y a los jerarcas de Ministerios, Instituciones descentralizadas y demás órganos del sector público.
+De los términos generales del Plan Nacional de Desarrollo 2006- 2010.
+Artículo 1º—El (MIDEPLAN) es el responsable de dirigir y coordinar la participación de los diversos órganos y entes públicos y empresas del Estado en la formulación, ajustes y actualizaciones del PND,

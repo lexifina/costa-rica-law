@@ -1,0 +1,1 @@
+Artículo 8º—Las acciones estratégicas, deben estar ordenadas de acuerdo con las prioridades asignadas por cada Ministro rector de forma tal que se facilite la asignación de los recursos, el seguimiento, evaluación y verificación de resultados. Las actividades de carácter rutinario u operativo de las instituciones, no serán consideradas en el PND.

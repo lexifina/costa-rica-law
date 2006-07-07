@@ -1,0 +1,2 @@
+Artículo 12.—Los Ministros rectores de cada sector remitirán al MIDEPLAN los informes periódicos y finales de seguimiento y evaluación sobre la ejecución del PND, de conformidad con lo establecido en los artículos 52, 55 y 56, de la Ley Nº 8131 Administración Financiera de la República y Presupuestos Públicos.
+Emitida en la Presidencia de la República, San José a los veintiún días del mes de junio del 2006.
