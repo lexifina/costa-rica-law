@@ -35,6 +35,11 @@ articulo-30.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
+articulo-33-bis.md
+articulo-33-ter.md
+articulo-33-quater.md
+articulo-33-quinquies.md
+articulo-33-sexies.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
