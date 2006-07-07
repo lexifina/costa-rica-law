@@ -1,0 +1,1 @@
+Artículo 12.—Prohibiciones del cambio de dineros o valores: Bajo ninguna circunstancia el encargado de la Caja Chica, podrá cambiar con dinero de ésta, cheques personales o de terceras personas. Tampoco podrá mezclar los dineros de la caja chica con dineros personales, ni hacer vales a su favor.

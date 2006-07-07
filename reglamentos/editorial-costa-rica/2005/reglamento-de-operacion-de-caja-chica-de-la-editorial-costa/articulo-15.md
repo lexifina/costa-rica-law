@@ -1,0 +1,2 @@
+Artículo 15.—Prohibiciones para el adelanto de dineros: El responsable del manejo del fondo, no debe dar trámite a un nuevo adelanto, si existe una boleta pendiente por liquidar a cargo del departamento o sección solicitante.
+En caso de que el tiempo establecido en el artículo 18 no sea respetado por algún funcionario, el encargado de la caja chica deberá reportar la situación al Gerente por medio de un oficio con copia al Departamento Financiero, para que se tomen las medidas correctivas necesarias.

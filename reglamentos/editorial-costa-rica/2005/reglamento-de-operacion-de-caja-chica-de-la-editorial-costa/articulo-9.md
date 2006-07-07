@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad del control: La responsabilidad del control de los fondos de Caja Chica le compete al Jefe del Departamento Financiero, quién será responsable de la correcta operación y uso de esos fondos ante la Gerencia. Además comunicará por escrito al responsable del fondo de Caja Chica de las responsabilidades establecidas por el presente reglamento.
