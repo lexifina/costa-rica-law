@@ -1,0 +1,1 @@
+Artículo 2º—En todo el texto del Reglamento a la Ley Nº 8147 y sus reformas, Decreto Ejecutivo Nº 32101-MAG, deberá leerse correctamente en lugar de “Unidad Técnica del Comité de Fideicomiso”, “Unidad Técnica del Fideicomiso”.
