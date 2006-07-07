@@ -1,0 +1,1 @@
+Artículo 10.—La Editorial entregará, para fines de consulta e información general, un ejemplar de cada obra, para que se integre a la biblioteca de la oficina de Producción Editorial. Dichos ejemplares permanecerán siempre en dicha oficina y se prohíbe expresamente su salida de la Editorial.

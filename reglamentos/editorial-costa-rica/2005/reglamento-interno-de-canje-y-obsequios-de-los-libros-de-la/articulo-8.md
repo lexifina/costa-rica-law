@@ -1,0 +1,1 @@
+Artículo 8º—La Editorial entregará a cada autor, 30 ejemplares de cada edición, en forma gratuita y 15 ejemplares en casos de reediciones o reimpresiones, de conformidad con las respectivos contratos de edición.

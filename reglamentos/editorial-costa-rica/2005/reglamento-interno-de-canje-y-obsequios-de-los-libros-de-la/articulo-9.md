@@ -1,0 +1,1 @@
+Artículo 9º—La Editorial entregará al jefe de Producción Editorial o al Director de la Edición, según el caso, un ejemplar de cada obra publicada bajo su supervisión, como parte de su curriculum profesional. Igualmente, al autor de la portada y de las ilustraciones interiores.

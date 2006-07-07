@@ -1,0 +1,1 @@
+Artículo 6º—En los casos de libros de promoción dirigidos a los medios de comunicación, el envío deberá incluir una nota de prensa donde se describan, además de las características particulares de la obra, una pequeña reseña biográfica del autor.

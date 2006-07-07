@@ -1,0 +1,1 @@
+Artículo 2º—Si a tenor del convenio mencionado en el numeral anterior, la Editorial patrocinare concursos a nivel escolar, sea de primaria o secundaria, podrá obsequiar como parte de la premiación, lotes de libros con un máximo de 10 obras relacionadas con el tema o el género del concurso.
