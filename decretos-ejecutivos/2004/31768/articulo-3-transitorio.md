@@ -1,3 +1,0 @@
-Transitorio III.—En un plazo no mayor de treinta días posteriores a la publicación de este Decreto, las unidades administrativas denominadas Consejos Sociales Regionales (COSORES), creadas al amparo del Consejo Social de la presente Administración, pasarán a integrar y constituir los Consejos Regionales que por el presente Decreto se establecen, para lo cual los jerarcas de MIDEPLAN y del Consejo Social establecerán los mecanismos pertinentes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31781 de 3 de mayo de 2004, el cual sustituyó la frase "a la firma" por la frase "a la publicación")
-Dado en la Presidencia de la República.—San José, a los veintiséis días del mes de marzo del dos mil cuatro.

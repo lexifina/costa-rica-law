@@ -1,1 +1,0 @@
-Transitorio II.—Los Ministerios y los demás entes gubernamentales que no cuenten con una estructura regional, podrán designar funcionarios para que formen parte de los diferentes órganos de la estructura regional creada mediante este Decreto, cuando así sea requerido por el Poder Ejecutivo.

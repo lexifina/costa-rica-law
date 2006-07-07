@@ -1,7 +1,0 @@
-Artículo 5º—Corresponderá a los Consejos Regionales:
-a) Establecer y facilitar mecanismos de coordinación interinstitucional para la ejecución de los planes mencionados en el artículo 1º de este Decreto.
-b) Definir proyectos de interés común para la Región, que favorezcan el desarrollo regional, la superación de la pobreza, la generación de producción y empleo y, en general, el cumplimiento de los objetivos y las metas de los Planes Gubernamentales citados.
-c) Proponer actividades, proyectos o programas, de carácter público o privado, que contribuyan con los fines de los Planes Gubernamentales citados.
-d) Mantenerse vigilantes del cumplimiento de las responsabilidades y compromisos de cada Ministerio o entidad gubernamental en el esfuerzo por la superación de la pobreza y en el acatamiento de lo dispuesto en los planes mencionados en el artículo 1 de este Decreto.
-e) Fomentar la participación ciudadana en el esfuerzo para la ejecución del Plan para la Superación de la Pobreza, incorporando los principios de rendición de cuentas y transparencia en la gestión pública.
-f) Las demás que le asigne el MIDEPLAN. El Presidente de la República, el Consejo de Gobierno y los Consejos Social, Económico y Ambiental de Gobierno podrán sugerir al MIDEPLAN el establecimiento de otras funciones a los Consejos Regionales en beneficio de los esfuerzos comunes para el desarrollo regional y la superación de la pobreza.
