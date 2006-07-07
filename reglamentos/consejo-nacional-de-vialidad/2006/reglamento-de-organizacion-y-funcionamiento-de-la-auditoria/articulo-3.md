@@ -1,0 +1,1 @@
+Artículo 3º—La Auditoría Interna y el Control Interno. La Auditoría Interna es parte del Sistema de Control Interno del Consejo Nacional de Vialidad, por lo tanto le compete evaluar y mejorar el cumplimiento, la suficiencia y la validez de dicho Sistema.

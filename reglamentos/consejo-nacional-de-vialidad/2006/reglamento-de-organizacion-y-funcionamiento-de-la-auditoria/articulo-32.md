@@ -1,0 +1,2 @@
+Artículo 32.—Responsabilidad de la Administración de la implantación de recomendaciones. La Administración será la responsable de la efectiva, eficiente y oportuna implantación de todas las recomendaciones emitidas por la Auditoría Interna y que fueron aceptadas por la misma.
+En caso de que las recomendaciones por su alcance y complejidad requieran la realización de una serie de actividades en el tiempo para su consecución, éstas deberán estar contempladas dentro del plan anual operativo.

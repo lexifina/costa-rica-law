@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los postulados básicos de la auditoría interna
+Artículo 6º—Concepto Funcional. La Auditoría Interna es la actividad independiente, objetiva y asesora, que tiene como propósito fundamental proporcionar seguridad en la validez y mejoramiento de las operaciones del CONAVI, mediante la práctica de un enfoque sistemático y profesional que le permite fiscalizar, mejorar el cumplimiento y la efectividad de los procesos de gestión de riesgo, del control y dirección. Debe proporcionar a la ciudadanía una garantía razonable de que la actuación del Jerarca y demás servidores de la Institución se realiza con apego a sanas prácticas y al marco jurídico y técnico aplicable.

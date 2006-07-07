@@ -1,0 +1,1 @@
+Artículo 41.—De la discrecionalidad de la información en el proceso de investigación. No se podrá suministrar información, documentos y otras evidencias de las investigaciones que realice la Auditoría Interna, cuyos resultados puedan derivar responsabilidades civiles, administrativas o penales, hasta tanto no se haya concluido con el estudio.

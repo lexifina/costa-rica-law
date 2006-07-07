@@ -1,0 +1,1 @@
+Artículo 40.—Sobre la presentación del informe. El informe de la Relación de Hechos será presentado al Consejo de Administración, para que disponga de acuerdo con la normativa vigente el inicio del respectivo procedimiento administrativo. En caso de que las faltas tuvieran connotaciones penales se le recomendará su remisión al Ministerio Público.

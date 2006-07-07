@@ -1,0 +1,1 @@
+Artículo 43.—Acceso a los presuntos responsables y a sus abogados. Una vez concluida la investigación y presentado el informe de Relación de Hechos, los presuntos involucrados y sus abogados tendrán irrestricta participación y garantía plena a los derechos de defensa, en los procedimientos administrativos o jurisdiccionales.

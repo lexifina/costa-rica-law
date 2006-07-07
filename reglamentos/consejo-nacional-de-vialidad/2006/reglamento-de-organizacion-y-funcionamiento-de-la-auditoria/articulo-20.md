@@ -1,0 +1,2 @@
+Artículo 20.—Capacitación a los funcionarios de la Auditoría Interna. La capacitación profesional continua debe perfeccionar y actualizar los conocimientos, aptitudes y otras competencias de los funcionarios de la Auditoría Interna y el Auditor será responsable de dar seguimiento adecuado al plan de mejoramiento.
+Cada año la auditoría interna preparará un programa de capacitación y entrenamiento para sus funcionarios, el cual será incluido en el presupuesto ordinario.

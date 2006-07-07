@@ -1,0 +1,1 @@
+Artículo 9º—Visión. La Auditoría Interna se proyecta como una Unidad que enfoca su esfuerzo en garantizar razonablemente los procesos de control, gestión de riesgos y dirección del CONAVI, mediante su constante actualización y mejoramiento.
