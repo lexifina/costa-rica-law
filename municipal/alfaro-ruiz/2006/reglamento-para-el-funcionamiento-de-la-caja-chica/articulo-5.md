@@ -1,0 +1,1 @@
+Artículo 5º—El límite máximo para la compra de bienes y servicios se establece en el valor igual a las 20 horas del salario mínimo del peón, sin que se requiera orden de compra. En casos excepcionales, la Alcaldía Municipal o el jefe de Tesorería podrán autorizar compras y pagos de facturas mayores hasta un máximo equivalente a 25 horas del salario mínimo del peón.

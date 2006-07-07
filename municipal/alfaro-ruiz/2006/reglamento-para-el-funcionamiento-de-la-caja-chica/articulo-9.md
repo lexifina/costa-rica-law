@@ -1,0 +1,1 @@
+Artículo 9º—Para tal efecto el jefe de Tesorería preparará el detalle de los egresos realizados, clasificados por cuenta de presupuesto y adjuntar a dicho detalle los originales de los comprobantes de caja chica o recibos originales con que cuenta, para que proceda a solicitar al Departamento de Contabilidad la emisión del cheque a nombre de la persona encargada de la caja chica.
