@@ -1,0 +1,1 @@
+Artículo 20.—Del cobro del excedente: Si el cobro reportado por el ICE excede el monto autorizado en el convenio, el Proceso Financiero le informará por escrito al funcionario y lo comunicará al Departamento de Recursos Humanos para que realice la deducción automática por medio de la planilla.
