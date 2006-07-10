@@ -14,3 +14,4 @@ Directriz sobre Orientaciones para la Operación del Sistema Específico de Valo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-01 | la propia norma |
+| 2 | 2006-07-10 | Acuerdo 89 (2006-07-10) |
