@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Educación Pública podrá incluir, en el calendario escolar y en los programas de estudio de primero y segundo ciclos, la fecha indicada en el artículo 1 de esta Ley, con el fin de que en todos los centros educativos del país se celebre el Día Nacional del Pescador.
