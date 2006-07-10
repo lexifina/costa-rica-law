@@ -1,0 +1,1 @@
+Artículo 3º—Resolución contractual. RACSA podrá resolver de pleno derecho el servicio, sin responsabilidad alguna de su parte, si el cliente incumpliera cualquiera de las obligaciones estipuladas en la solicitud de servicio.

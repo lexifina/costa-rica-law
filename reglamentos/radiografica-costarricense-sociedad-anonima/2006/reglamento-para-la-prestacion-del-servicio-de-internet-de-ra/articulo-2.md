@@ -1,0 +1,1 @@
+Artículo 2º—Rescisión. RACSA se reserva el derecho de rescindir el servicio en el evento que por situaciones técnicas, tecnológicas, comerciales o estratégicas se vea compelida a no continuar la prestación del mismo, para lo cual deberá comunicar al cliente con al menos sesenta días naturales de anticipación a la conclusión del servicio.
