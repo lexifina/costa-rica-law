@@ -1,0 +1,1 @@
+Artículo 21.—Prohibición de arreglos extrajudiciales. Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales, en caso de accidentes con vehículos de uso municipal, únicamente debe indicarle al particular que se apersone a se comunique con la proveeduría a la alcaldía municipal, para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 26.—Disposiciones varias. Para lo no previsto en este Reglamento, la Alcaldía Municipal resolverá las situaciones que se presenten mediante resoluciones concretas o circulares de carácter general, todo sin perjuicio de posteriores modificaciones, aclaraciones o ratificaciones a este Reglamento.

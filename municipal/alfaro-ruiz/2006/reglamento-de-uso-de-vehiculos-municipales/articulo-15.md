@@ -1,0 +1,1 @@
+Artículo 15.—Seguridad en el estacionamiento. Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales y equipos que transporte.

@@ -1,0 +1,1 @@
+Artículo 27.—Cumplimiento de la normativa. Es responsabilidad exclusiva de cada conductor de la Municipalidad como tal, en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata ordenes que contravengan estas disposiciones, asumirá las consecuencias que esta acción conlleve.

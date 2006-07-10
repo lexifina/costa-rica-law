@@ -1,0 +1,1 @@
+Artículo 11.—Protección a los choferes. La Municipalidad otorgará como protección a los choferes en el ejercicio de sus labores, las pólizas de riesgos del trabajo y las relativas a vehículos, según las disposiciones de la Ley de Tránsito.

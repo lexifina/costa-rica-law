@@ -1,0 +1,1 @@
+Artículo 28.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el Reglamento Interno, Código de Trabajo, este Reglamento y Leyes Conexas.

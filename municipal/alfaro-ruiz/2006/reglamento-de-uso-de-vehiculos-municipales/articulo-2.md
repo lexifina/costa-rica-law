@@ -1,0 +1,1 @@
+Artículo 2º—Asignación de vehículos. La asignación de vehículos para uso discrecional o administrativo, lo será únicamente con la finalidad de brindar un mejor servicio y en ningún caso debe ser considerado como un beneficio, mejora salarial, salario en especie o en alguna forma como parte del contrato laboral, ni dará lugar a derechos adquiridos a favor del funcionario.
