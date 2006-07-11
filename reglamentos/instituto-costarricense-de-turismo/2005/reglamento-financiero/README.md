@@ -14,3 +14,4 @@ Reglamento Financiero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-14 | la propia norma |
+| 2 | 2006-07-11 | Reglamento 5420 (2006-07-11) |
