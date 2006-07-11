@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Justicia contará con un Viceministro Técnico y un Viceministro Político, los cuales serán superiores jerárquicos subordinados y colaboradores obligados del Ministro de Justicia.

@@ -1,0 +1,2 @@
+Artículo 6º—El Ministerio de Justicia tendrá un Oficial Mayor que tendrá bajo su cargo la responsabilidad de colaborar y participar, de acuerdo con las directrices del Ministro y del Viceministro Técnico, en la elaboración y desarrollo de las políticas institucionales y en la ejecución de sus programas.
+Esto sin perjuicio de otras funciones que el Ministro de Justicia o los Viceministros le encomienden o deleguen.

@@ -1,0 +1,2 @@
+Artículo 4º—El Viceministro Político tendrá bajo su responsabilidad la coordinación del adecuado desarrollo de la actividad de la Dirección de Resolución Alternativa de Conflictos, la Dirección Nacional de Prevención de la Violencia y el Delito, el Consejo Nacional de Espectáculos Públicos y Afines y la Junta Administrativa de los Centros Cívicos.
+Esto sin perjuicio de otras funciones que el Ministro de Justicia le encomiende o delegue.

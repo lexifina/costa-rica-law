@@ -1,0 +1,2 @@
+Artículo 3º—El Viceministro Técnico tendrá bajo su responsabilidad la coordinación del adecuado desarrollo de la actividad de la Administración Central del Ministerio de Justicia, la Dirección General de Adaptación Social, el Patronato de Construcciones, Instalaciones y Adquisición de Bienes, y el Registro Nacional. Asimismo, será el superior jerárquico inmediato de todo el personal del Ministerio de Justicia.
+Esto sin perjuicio de otras funciones que el Ministro de Justicia le encomiende o delegue.

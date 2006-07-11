@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderán a ambos Viceministros, dentro del ámbito de sus competencias, ejercer las funciones previstas en el numeral 48 de la Ley General de la Administración Pública. El Viceministro Técnico sustituirá en sus ausencias temporales al Ministro de Justicia, cuando así lo disponga el Presidente de la República.

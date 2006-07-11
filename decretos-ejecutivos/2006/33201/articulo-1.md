@@ -1,0 +1,13 @@
+Nº 33201
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+En uso de las facultades previstas en los artículos 140, inciso 18, de la Constitución Política, 47 de la Ley General de la Administración Pública, y 8 del Reglamento Orgánico del Poder Ejecutivo.
+Considerando:
+1º—Que el Ministerio de Justicia es una institución compleja bajo cuya competencia se ubican diversas instituciones, tales como la Dirección General de Adaptación Social, el Registro Nacional, el Consejo de Espectáculos Públicos y afines, la Dirección Nacional de Prevención del Delito y la Violencia, la Dirección de Resolución Alternativa de Conflictos, la Administración Central del Ministerio, además del Ilanud y la Procuraduría General de la República.
+2º—Que vista la complejidad de la Institución, resulta indispensable que el Ministerio cuente con dos Viceministros a efecto de coordinar y dirigir los procesos institucionales. En este sentido, el interés público exige la creación de un Viceministro Político que, bajo la dirección del Ministro, coordine con los órganos competentes el desarrollo de los proyectos dirigidos a prevenir el delito y la violencia social. Asimismo, se requiere de un Viceministro Técnico que coordine los programas necesarios para fortalecer el Registro Nacional y la Dirección General de Adaptación Social.
+3º—Que el numeral 140, inciso 18, de la Constitución Política, establece como reserva constitucional la potestad del Poder Ejecutivo de darse la organización que mejor convenga al interés público. Asimismo los artículos 47 de la Ley General de la Administración Pública y 8 del Reglamento Orgánico del Poder Ejecutivo, Decreto Nº 33151-MP del 18 de mayo del 2006, faculta al Presidente de la República para nombrar viceministros que sean necesarios para el mejor funcionamiento de los Ministerios.
+4º—Que dada la naturaleza de la Procuraduría General de la República - órgano superior consultivo técnico jurídico de la Administración Pública - y del Instituto Latinoamericano para la Prevención del Delito y el Tratamiento del Delincuente (ILANUD) - órgano creado por acuerdo aprobado por Ley con la Naciones Unidas -, se estima conveniente al interés público, que sea el Ministro de Justicia el jerarca que coordine, en materia administrativa, lo necesario con dichos órganos. Por tanto:
+DECRETAN:
+Reglamento de los Órganos Jerárquicos Superiores
+del Ministerio de Justicia
+Artículo 1º—El Ministro de Justicia será el órgano jerárquico superior del Ministerio de Justicia y le corresponderá exclusivamente el ejercicio de las potestades previstas en el numeral 28 de la Ley General de la Administración Pública y cualquier otra que el Ordenamiento Jurídico establezca.
