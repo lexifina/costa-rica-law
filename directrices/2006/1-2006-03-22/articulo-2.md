@@ -1,0 +1,3 @@
+Artículo 2º—Registro de las operaciones. Las instituciones del Sector Público deben registrar todas las operaciones bajo el criterio de partida doble, por lo que en ningún caso deben compensarse las partidas de activo, y pasivo del Balance de Situación, ni las de gastos e ingresos que componen el estado económico - patrimonial, ni los gastos e ingresos que componen el estado de ejecución presupuestal.
+Los elementos que integran las partidas del activo y el pasivo, deben valorarse separadamente.
+En virtud de que las operaciones responden al principio universal de causa y efecto, obliga, para su cuantificación, al registro por partida doble.
