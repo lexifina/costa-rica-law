@@ -1,0 +1,1 @@
+Artículo 3º—Derogatorias. Deróguese el Decreto Nº 17815-H del 20 de octubre de 1987 y los incisos c) y d), del artículo 20 del Decreto Nº 31212-H denominado “Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministerio de Hacienda” publicado en el Alcance Nº 33 a La Gaceta Nº 119 del 23 de junio del 2003.
