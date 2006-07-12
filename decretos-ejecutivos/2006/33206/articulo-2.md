@@ -1,0 +1,1 @@
+Artículo 2º—Creación del “Área de Cooperación Internacional” del Ministerio de Planificación Nacional y Política Económica. Créase el Área de Cooperación Internacional dentro de la estructura operativa del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).

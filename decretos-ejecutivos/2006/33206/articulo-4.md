@@ -1,0 +1,1 @@
+Artículo 4º—Derogatorias al “Reglamento General del Ministerio de Planificación Nacional y Política Económica”. Deróganse los acápites ii) y vi) del inciso d) del artículo 8º y el inciso a) del artículo 12 del Decreto Ejecutivo Nº 23323-PLAN del 17 de mayo de 1994.
