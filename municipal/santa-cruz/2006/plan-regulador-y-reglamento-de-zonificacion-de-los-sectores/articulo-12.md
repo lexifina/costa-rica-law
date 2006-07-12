@@ -1,0 +1,16 @@
+Artículo 12.—Observaciones generales
+1) El interesado en desarrollar obras de infraestructura dentro de las concesiones, deberá cumplir con los requisitos establecidos en el “Reglamento para el Trámite de Visado de Planos para la Construcción de Edificaciones en la Zona Marítimo Terrestre”, publicado en La Gaceta Nº 36 del martes 20 de febrero, 2001.
+2) Una vez aprobado el anteproyecto por el ICT, el interesado deberá elaborar los planos constructivos de las obras de infraestructura e instalaciones, en las cuales deberá cumplir con las normas establecidas al respecto por el INVU, ICT y el Ministerio de Salud. Además, deberá presentar el EsIA aprobado por la SETENA.
+3) Salvo que no exista otra alternativa, no se permitirá la descarga en la playa de aguas pluviales canalizadas o entubadas. Si esto fuera inevitable, deberá garantizarse que no habrá erosión en la playa por efecto de estas descargas.
+4) Los drenajes pluviales en general, deberán conducirse hacia las quebradas o a las zonas verdes de conservación.
+5) Los pozos en caso de construirse deberán hacerse en sitios justificados en estudios especializados y aprobaciones pertinentes.
+6) En la línea de frente de la construcción no se podrán construir vallas sólidas con una altura mayor de 1 m. Sobre esta altura se podrá colocar verjas que permitan una buena visibilidad, esto sólo en las zonas donde esto es permisible, se excluyen de la norma los muros de retención.
+7) Ninguna vía pública podrá permitir el acceso de vehículos motorizados a la playa.
+8) No se podrán colocar ni almacenar materiales de construcción o excavación en la Zona Pública. No se permitirá la extracción de materiales en ningún espacio de la Zona Marítimo – Terrestre, las remociones para construcción deben ser mínimas y convenientemente redistribuidas.
+9) No se permitirán obras de relleno y de ser posible las construcciones deben hacerse en la época seca, para evitar la erosión de terrenos inestables.
+10) Para los sistemas individuales o colectivos de aguas negras, es necesario presentar para el visado correspondiente los diseños respectivos y las pruebas de infiltración, estos deben ser “limpios” esto dentro de normas biológicas.
+11) En ningún caso se aceptarán drenajes en zonas de relleno cercanas a cauces naturales o en las inmediaciones de la playa.
+12) Aquellos lotes que tengan colindancias con ríos, quebradas, cárcavas o escorrentías permanentes, deberán de presentar el alineamiento de los mismos dado por la Dirección de Urbanismo del INVU antes de iniciar cualquier construcción.
+13) Para el aprovechamiento de terrenos con pendientes mayores al 30%, por vía de excepción se permitirá la construcción de instalaciones siempre que se justifique técnicamente y que por el tipo de construcción, no requieran terraceos. Asimismo, son necesarios los estudios geotécnicos que indiquen la estabilidad de los suelos a utilizar (según Reglamento de Control Nacional de Fraccionamiento y Urbanizaciones III.3.2.9.). Todo desarrollo necesita de la aprobación de la viabilidad ambiental del proyecto por parte de la SETENA.
+(NOTA DE SINALEVI: Ver mapa en la página N° 45 a La Gaceta impresa N° 134 del 12 de julio del 2006)
+Santa Cruz, 30 de junio del 2006.
