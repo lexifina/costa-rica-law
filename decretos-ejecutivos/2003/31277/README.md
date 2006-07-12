@@ -14,3 +14,4 @@ Crea la Comisión Interinstitucional de Desalojos (CID).
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-07 | la propia norma |
+| 2 | 2006-07-12 | Decreto Ejecutivo 33228 (2006-07-12) |
