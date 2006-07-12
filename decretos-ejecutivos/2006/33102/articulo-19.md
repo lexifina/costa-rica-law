@@ -1,0 +1,1 @@
+Artículo 19.—Costo del servicio: El costo del servicio de inscripción en el Registro de Importadores, será de acuerdo a lo establecido en el respectivo Decreto Ejecutivo sobre el Cobro de Servicios que al efecto emite el Ministerio de Agricultura y Ganadería.

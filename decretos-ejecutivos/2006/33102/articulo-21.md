@@ -1,0 +1,1 @@
+Artículo 21.—Toma de muestras y análisis: Conforme las regulaciones existentes, la Dirección de Salud Animal y Producción Pecuaria establecerá, según la condición sanitaria existente en el país de origen, el muestreo, las pruebas y análisis requeridos, que deban realizarse a los productos o animales importados vivos, en procura de salvaguardar la salud pública y animal.

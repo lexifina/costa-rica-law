@@ -1,0 +1,1 @@
+Artículo 11.—Obligación de cumplir: Todo establecimiento, una vez aprobado, deberá mantenerse en el cumplimiento de las directrices u órdenes que emita la Dirección de Salud Animal a través del Departamento de Cuarentena Animal y cumplir con las recomendaciones e instrucciones que sean emitidas por los Médicos Veterinarios Oficiales en sus correspondientes visitas de inspección.

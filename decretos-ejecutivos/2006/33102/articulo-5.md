@@ -1,0 +1,1 @@
+Artículo 5º—Vigencia de la inscripción: La inscripción en el Registro, tendrá una vigencia de un año a partir de la fecha de emisión. Vencido el plazo, las personas físicas o jurídicas inscritas no podrán realizar gestiones relacionadas con la importación hasta que se proceda a la renovación de la inscripción.

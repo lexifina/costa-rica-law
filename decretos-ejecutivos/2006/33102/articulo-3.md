@@ -1,0 +1,1 @@
+Artículo 3º—Del Registro: Créase el Registro de importadores de animales, productos, subproductos y derivados de origen animal, frescos o congelados, sin procesar o mínimamente procesados destinados para consumo humano y/o uso industrial.

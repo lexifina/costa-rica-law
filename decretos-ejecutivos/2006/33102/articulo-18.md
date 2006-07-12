@@ -1,0 +1,1 @@
+Artículo 18.—Sanciones: Las sanciones establecidas en este Decreto se aplicarán independientemente de las acciones civiles o penales que puedan establecerse contra quien o quienes hayan incurrido en la falta.

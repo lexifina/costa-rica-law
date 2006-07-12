@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de inscribirse: Toda persona, física o jurídica, que importe animales, productos, subproductos y derivados de origen animal, frescos o congelados, sin procesar o mínimamente procesados destinados para consumo humano y/o uso industrial, deberá previamente, estar inscrito en este Registro.
