@@ -1,0 +1,1 @@
+Artículo 50.—Incorporación del conocimiento sobre controles. Los funcionarios de la Auditoría Interna coadyuvarán con el SERVI mediante la incorporación de los conocimientos de los controles obtenidos de los trabajos, mediante los productos de los servicios de fiscalización.

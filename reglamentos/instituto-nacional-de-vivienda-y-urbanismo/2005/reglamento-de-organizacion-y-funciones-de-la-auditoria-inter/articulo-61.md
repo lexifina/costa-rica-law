@@ -1,0 +1,1 @@
+Artículo 61.—Objetivos de los servicios preventivos. Los objetivos del trabajo de los servicios preventivos deberán considerar los procesos de valoración del riesgo, control y de dirección y deben proporcionar una seguridad razonable de que no se dejan por fuera situaciones de importancia relativa.

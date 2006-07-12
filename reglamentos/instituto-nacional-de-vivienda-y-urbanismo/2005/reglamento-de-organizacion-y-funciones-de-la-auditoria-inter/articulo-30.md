@@ -1,0 +1,1 @@
+Artículo 30.—Evaluaciones externas. El auditor interno deberá gestionar la realización de evaluaciones externas, tales como revisiones de aseguramiento de calidad, conforme a los recursos disponibles, por un revisor o equipo de revisión calificado e independiente, proveniente de fuera de la organización.

@@ -1,0 +1,1 @@
+Artículo 35.—Administración de los recursos. El auditor interno deberá asegurarse de que los recursos de la Auditoría Interna sean adecuados, suficientes y efectivamente asignados para cumplir con su plan de trabajo. Si hay serias limitaciones , deberá fundamentar esta situación ante la Junta Directiva para su oportuna atención.

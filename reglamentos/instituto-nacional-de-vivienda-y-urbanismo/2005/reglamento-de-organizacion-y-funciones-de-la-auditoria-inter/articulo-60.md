@@ -1,0 +1,1 @@
+Artículo 60.—Probabilidad de errores e irregularidades. El auditor interno deberá considerar la posibilidad de errores, irregularidades, incumplimientos y otras exposiciones materiales al desarrollar los objetivos del trabajo.

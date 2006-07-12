@@ -1,0 +1,1 @@
+Artículo 66.—Asignación de recursos para el trabajo. Los funcionarios de la Auditoría Interna deberán determinar los recursos adecuados para lograr los objetivos del trabajo. Los recursos para cada trabajo se deberán asignar con base en una evaluación de la naturaleza y complejidad de cada tarea. Las restricciones de tiempo y los recursos disponibles.

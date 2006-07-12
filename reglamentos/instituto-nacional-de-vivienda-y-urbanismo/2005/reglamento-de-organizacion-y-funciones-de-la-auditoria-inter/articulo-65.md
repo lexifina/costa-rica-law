@@ -1,0 +1,1 @@
+Artículo 65.—Suficiencia del alcance. Al valorar la realización de una asesoría o advertencia, el auditor interno deberá asegurar que el alcance del trabajo sea suficiente para cumplir los objetivos que se pretenden con ella.

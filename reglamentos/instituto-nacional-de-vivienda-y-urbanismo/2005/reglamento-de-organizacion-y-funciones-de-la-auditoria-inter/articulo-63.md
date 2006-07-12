@@ -1,0 +1,1 @@
+Artículo 63.—Asuntos a tener en cuenta en el alcance del trabajo. El alcance debe tener en cuenta los sistemas, registros, equipos, materiales, el personal y la ubicación física de las propiedades o lugares a incluir y otros relevantes, incluso los que se encuentren bajo control de terceros.

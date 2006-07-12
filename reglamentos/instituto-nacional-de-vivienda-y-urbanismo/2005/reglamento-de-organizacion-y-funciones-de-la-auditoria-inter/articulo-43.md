@@ -1,0 +1,1 @@
+Artículo 43.—Incorporación del conocimiento sobre riesgo. Los funcionarios de la Auditoría Interna coadyuvarán con el SEVRI mediante la incorporación de los conocimientos del riesgo obtenidos en los trabajos, mediante los productos de los servicios de fiscalización.

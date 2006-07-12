@@ -1,0 +1,1 @@
+Artículo 37.—Coordinaciones internas y externas efectivas. El auditor interno deberá coordinar a lo interno de la institución la realización de los servicios de la actividad de Auditoría Interna, así como compartir información y coordinar actividades con la CGR, los contadores públicos que se contraten y con los órganos judiciales, para minimizar la duplicación de esfuerzos.

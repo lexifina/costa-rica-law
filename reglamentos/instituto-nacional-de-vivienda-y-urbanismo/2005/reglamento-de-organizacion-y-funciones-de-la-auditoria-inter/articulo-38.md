@@ -1,0 +1,3 @@
+Artículo 38.—Informes a la Junta Directiva. El auditor interno deberá informar al menos anualmente a la Junta Directiva sobre la actividad desplegada por su unidad en lo referido a propósito, autoridad, responsabilidad y desempeño de su plan.
+El informe también deberá incluir el estado de las recomendaciones de la Auditoría Interna, así como la de los contadores públicos y las disposiciones de la CGR. y otras instituciones competentes cuando sean de su conocimiento.
+El informe contendrá asuntos relevantes sobre exposición al riesgo, cuestiones de control, de los procesos de dirección y otros necesarios o requeridos para el buen funcionamiento de la organización.

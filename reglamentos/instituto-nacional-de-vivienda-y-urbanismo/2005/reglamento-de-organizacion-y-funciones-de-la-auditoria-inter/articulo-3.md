@@ -1,0 +1,3 @@
+Artículo 3º—Concepto de Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al INVU, puesto que ha sido creada para validar y mejorar sus operaciones.
+Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección como entidad sujeta a la Ley General de Control Interno (LGCI).
+La Auditoría Interna proporciona a la ciudadanía, una garantía razonable de que la actuación de la Junta Directiva del Instituto y del resto de la Administración, se ejecuta conforme al marco legal y técnico y a las prácticas sanas.

@@ -1,0 +1,1 @@
+Artículo 44.—Control. La actividad de la Auditoría Interna deberá coadyuvar con el instituto en el mantenimiento de controles efectivos, mediante la fiscalización de la eficacia, economía y legalidad de dichos controles y promover su mejora continua.

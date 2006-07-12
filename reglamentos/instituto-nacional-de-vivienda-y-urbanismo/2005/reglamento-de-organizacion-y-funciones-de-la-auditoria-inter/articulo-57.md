@@ -1,0 +1,1 @@
+Artículo 57.—Planificación de un trabajo de asesoría. El auditor interno establecerá un entendimiento con la Junta Directiva respecto de los objetivos, el alcance, las responsabilidades respectivas y demás expectativas de los servicios de asesoría que se requieran. En el caso de trabajos significativos este entendimiento debe constar por escrito.

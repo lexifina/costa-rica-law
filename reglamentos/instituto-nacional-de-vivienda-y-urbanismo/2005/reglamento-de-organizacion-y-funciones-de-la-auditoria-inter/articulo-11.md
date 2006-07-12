@@ -1,0 +1,4 @@
+Artículo 11.—Áreas de trabajo. La Auditoría Interna dividirá en seis áreas funcionales de trabajo el quehacer institucional, a saber: 1) Administrativa; 2) Financiera-Contable; 3) Vivienda; 4) Ahorro y Préstamo; 5) Planificación Urbana y, 6) Función de Información.
+Para el desarrollo de estas actividades, se deberá dotar a la Auditoría Interna de los recursos humanos necesarios, para el cumplimiento de los trabajos en las distintas áreas de especialización.
+En ocasiones en las que la Auditoría Interna no disponga de algún recurso especializado, ni pueda ser suplido temporalmente por la Administración, lo podrá contratar en forma externa.
+A la Auditoría Interna se le dotará del mobiliario y equipo de oficina, equipo y programas de cómputo, equipo de comunicaciones y demás materiales necesarios, para su correcto funcionamiento.

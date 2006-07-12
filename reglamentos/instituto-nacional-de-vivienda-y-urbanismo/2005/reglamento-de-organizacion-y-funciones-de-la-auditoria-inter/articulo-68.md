@@ -1,0 +1,1 @@
+Artículo 68.—Programas de trabajos completos y aprobados. Los programas de trabajo deberán contener los procedimientos para identificar, analizar, evaluar y registrar información durante la tarea. El programa de trabajo deberá ser aprobado con anterioridad a su ejecución por el responsable dentro de la Auditoría Interna.

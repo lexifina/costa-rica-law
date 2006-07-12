@@ -1,0 +1,1 @@
+Artículo 52.—Evaluación de los programas y actividades para promocionar la ética. La actividad de la Auditoría Interna deberá fiscalizar el diseño, implantación y eficacia de los objetivos, programas y actividades del INVU relacionados con la ética.
