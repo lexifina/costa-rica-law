@@ -1,0 +1,1 @@
+Artículo 3º—En los casos en que la institución no cuente con los mapas que brinden la información de alineamientos, se deberá diseñar y ejecutar un plan de acción, con el objetivo de lograr su elaboración y digitalización.

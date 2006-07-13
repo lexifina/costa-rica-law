@@ -1,0 +1,4 @@
+Artículo 4º—A más tardar en 15 días naturales después de publicada esta directriz en el Diario Oficial La Gaceta, las instituciones antes citadas deberán de tener concluido el inventario de los mapas e informarán al Ministro de Economía, Industria y Comercio los resultados obtenidos.
+Para oficializar y poner a disposición de los administrados los mapas digitales existentes, las citadas instituciones contarán con un plazo de 30 días naturales a partir de publicada esta directriz en el Diario Oficial.
+El Plan de Acción con la información requerida en el inciso 2.c del artículo 2º y en el artículo 3º anteriores deberá ser presentado al Ministro de Economía, Industria y Comercio 30 días naturales después de la publicación de esta directriz.
+El Ministro indicado presentará al Presidente de la República un informe con sus conclusiones y recomendaciones.
