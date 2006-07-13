@@ -1,0 +1,7 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+A.J.D.I.P.1286-2006.—Puntarenas, a los treinta días del mes de junio del 2006.
+Considerando:
+1º—Que de conformidad con la Ley Nº 7384, Ley de Creación del INCOPESCA y la Ley Nº 8436, Ley de Pesca y Acuicultura, es atribución y competencia del INCOPESCA regular, extender, suspender y cancelar las autorizaciones para la modificación de medidas o la sustitución de embarcaciones y/o sus motores, a fin de normar el aprovechamiento racional de los recursos pesqueros y mantener su sostenibilidad.
+2º—Que en procura de una sano equilibrio entre producción y comercialización de la sardina (Opisthonema libértate, O. Medirastre y O. bulleri) destinada para el consumo humano y/o carnada en el mercado interno y siendo que en los últimos años se ha venido observando una drástica disminución en las capturas y los desembarques de este recurso pesquero, se ha considerado oportuno y conveniente establecer algunas limitaciones técnicas y restricciones relacionadas con la autorización para la sustitución de aquellas embarcaciones dedicadas a la extracción de este recurso pesquero con redes de cerco. Por tanto:
+SE ACUERDA:
+Artículo 1º—El INCOPESCA podrá autorizar la modificación de medidas o la sustitución de aquellas embarcaciones y/o sus motores, con Licencia de Pesca Comercial vigente o inactivas y dedicadas a la extracción de la sardina, con red de cerco.

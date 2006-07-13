@@ -1,0 +1,1 @@
+Artículo 3º—En el caso de que lo que se quiere es sustituir la embarcación, la embarcación sustituída podrá tener una eslora menor, igual o mayor a la que se pretende sustituir, pero de ninguna manera podrá superar los 24 metros de eslora y un Tonelaje Neto de 35.
