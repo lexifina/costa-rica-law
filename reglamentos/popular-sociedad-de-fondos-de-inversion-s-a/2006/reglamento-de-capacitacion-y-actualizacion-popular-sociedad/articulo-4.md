@@ -1,0 +1,1 @@
+Artículo 4º—De la planificación en materia de capacitación y actualización. La Gerencia y Jefaturas de SAFI, en coordinación con el responsable de la ejecución del Plan de Capacitación serán quienes llevarán a cabo la función de planificación, control y evaluación de todas las actividades de capacitación y actualización que se realicen conforme a los requerimientos de SAFI.

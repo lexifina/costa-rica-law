@@ -1,0 +1,1 @@
+Artículo 17.—Financiamiento. Para financiar el Programa de Capacitación y Actualización, SAFI destinará, del presupuesto ordinario de la Institución, los recursos necesarios para desarrollar el Plan Anual de Capacitación y Actualización, pudiendo ser excepcionalmente incrementado, previa aprobación de la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 11.—Suspensión de la capacitación y actualización. Las actividades de capacitación y actualización podrán suspenderse sin responsabilidad para el empleado en situaciones de caso fortuito o fuerza mayor, debidamente justificadas ante la Gerencia, quien de manifestarse conforme con la justificación ofrecida, extenderá una nota de finiquito de la responsabilidad del empleado.
+Será igualmente causa de suspensión de la capacitación cualquiera de las causas que producen la suspensión de los contratos de trabajo según el Reglamento Interior de Trabajo de SAFI.

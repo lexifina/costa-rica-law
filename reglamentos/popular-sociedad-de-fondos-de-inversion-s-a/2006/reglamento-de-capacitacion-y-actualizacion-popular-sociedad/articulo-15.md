@@ -1,0 +1,2 @@
+Artículo 15.—Plan de capacitación y actualización. El Plan de Capacitación y Actualización será anual y la responsabilidad de su elaboración corresponderá al responsable del proceso de capacitación y actualización, contando con la participación de todas las jefaturas en la determinación de las necesidades de capacitación y actualización. El Plan deberá contar con el visto bueno de la Gerencia y ser aprobado por la Junta Directiva.
+La SAFI podrá solicitar colaboración a la Dirección de Desarrollo Humano del Banco, quien deberá asumir las responsabilidades del proceso.

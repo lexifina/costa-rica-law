@@ -1,0 +1,1 @@
+Artículo 18.—Del personal de Auditoría. Los requerimientos de capacitación y actualización de los empleados de la Auditoría, así como la asignación y programación de dichas actividades, serán responsabilidad del Auditor Interno, previa aprobación de la Junta Directiva.
