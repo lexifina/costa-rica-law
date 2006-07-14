@@ -1,0 +1,1 @@
+Artículo 5º—Las facturas por materiales o servicios que se cancelen por Caja Chica deberán adjuntarse a los cheques de Reintegro de Gastos por Caja Chica. Se prohíbe el fraccionamiento de las compras para acondicionarla a la sumas máximas permitidas.

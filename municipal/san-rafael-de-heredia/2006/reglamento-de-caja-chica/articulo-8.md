@@ -1,0 +1,1 @@
+Artículo 8º—Si el funcionario o el directivo designado como responsable de la Caja Chica cesa en sus funciones, deberá rendir cuenta sobre la Caja Chica ante el Tesorero del Comité o el Presidente, antes de la finalización de sus funciones.
