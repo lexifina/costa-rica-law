@@ -1,0 +1,1 @@
+Artículo 14.—La Tesorería a su cargo la responsabilidad de constituir y mantener actualizado el Registro de Proveedores. Esta Sección invitará, al menos una vez al año, a todos los interesados a inscribirse o a actualizar su información en el Registro de Proveedores.

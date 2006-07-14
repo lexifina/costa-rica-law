@@ -1,0 +1,5 @@
+Artículo 8º—La competencia entre la Tesorería y la Junta Directiva se distribuirá en razón del monto de la contratación administrativa, que se establece con base en el monto de referencia. Para los efectos de éste Reglamento, el monto de referencia es el máximo que defina por período, la Contraloría General de la República, para las contrataciones directas, de manera que los criterios de atribución de competencia son los siguientes:
+La Tesorería adjudicará contrataciones directas hasta el monto de cien mil colones sin céntimos.
+La Junta Directiva adjudicará contrataciones directas hasta el monto de quinientos mil colones sin céntimos.
+Para montos superiores y hasta un millón quinientos mil colones sin céntimos, se debe realizar un Concurso de Ofertas Interno, que adjudicará la misma Junta Directiva.
+Para montos superiores a un millón quinientos mil colones, se seguirán las disposiciones de la Contraloría General de la República sobre las licitaciones por Registro y Licitaciones Publicas, según corresponda.

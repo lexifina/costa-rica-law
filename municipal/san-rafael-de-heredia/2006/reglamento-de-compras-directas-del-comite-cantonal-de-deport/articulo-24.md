@@ -1,0 +1,1 @@
+Artículo 24.—La orden de compra será firmada, según corresponda, por el Presidente y el Tesorero del Comité Cantonal. Las órdenes de compra deberán ser impresas con numeración consecutiva. La Tesorería deberá llevar un control de las órdenes de compra utilizadas, con la indicación del monto, objeto, saldo y estado de la contratación.

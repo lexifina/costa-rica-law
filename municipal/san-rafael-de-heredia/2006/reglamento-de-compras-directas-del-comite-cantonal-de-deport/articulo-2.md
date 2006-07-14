@@ -1,0 +1,1 @@
+Artículo 2º—Las contrataciones directas estarán bajo la dirección y supervisión de la Junta Directiva del Comité Cantonal, quienes serán los responsables de nombrar a la persona encargada de llevar a cabo los procedimientos de contratación, en coordinación con los demás.
