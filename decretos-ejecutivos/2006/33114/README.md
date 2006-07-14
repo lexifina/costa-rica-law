@@ -14,3 +14,4 @@ Reglamento para el Reajuste de Precios en los Contratos de Obra Pública de Cons
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-17 | la propia norma |
+| 2 | 2006-07-14 | Decreto Ejecutivo 33218 (2006-07-14) |

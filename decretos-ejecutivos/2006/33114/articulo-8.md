@@ -7,3 +7,5 @@ U Representa el monto de la utilidad incluida en el contrato.
 DR Representa los días de atrasos en el inicio o suspensión de ejecución de la obra.
 TBP Representa la tasa básica pasiva del BCCR.
 Para el resto de la ejecución contractual, y cuando varíen los costos que conforman el precio del contrato, se aplicará lo dispuesto en los artículos 18 y 19 de este Reglamento para el reajuste de precios según el tipo de obra.
+El reconocimiento de reajuste a la utilidad del contrato debe ser proporcional al monto de la obra pendiente por realizar.
+(Así adicionado el párrafo anterior por el artículo 5 del decreto ejecutivo N° 33218 del 14 de julio de 2006)

@@ -1,5 +1,6 @@
 Artículo 19.—Fórmula de reajuste de precios de obras de ingeniería civil. La Administración Contratante empleará para el cálculo del reajuste de precios, en que los precios hayan sido contratados en colones costarricenses, la siguiente fórmula de conformidad con lo establecido en la estructura de precios del contrato de obras de ingeniería civil:
-[imagen]
+*Ver fórmula en página N° 8 a La Gaceta N° 94 del 17 de mayo de 2006.
+(*Esta fórmula fue reformada por el artículo 2° del decreto ejecutivo N° 33218 del 14 de julio de 2006)
 En donde,
 RP Representa el monto total de reajuste de precios periódica.
 EPA Representa el monto de la estimación periódica del avance.
