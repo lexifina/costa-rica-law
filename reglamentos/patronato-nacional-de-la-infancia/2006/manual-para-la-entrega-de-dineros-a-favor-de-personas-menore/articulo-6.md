@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que los documentos aportados por el solicitante no resulten idóneos para comprobar su identidad, o tratándose de representantes, no permitan tener por demostrada tal representación, el representante legal de la oficina local, mediante resolución fundamentada denegará el giro de los fondos y ordenará el archivo de la gestión.

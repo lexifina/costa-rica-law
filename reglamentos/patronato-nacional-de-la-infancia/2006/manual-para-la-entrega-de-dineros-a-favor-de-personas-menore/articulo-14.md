@@ -1,0 +1,1 @@
+Artículo 14.—El Patronato Nacional de la Infancia coordinará con las demás instituciones del estado para que los recursos de los que sean beneficiarios personas menores de edad que cuenten con representantes legales, les sean girados directamente a dichos representantes, toda vez que la administración de dichos fondos no es competencia del PANI.

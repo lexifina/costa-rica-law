@@ -1,0 +1,1 @@
+Artículo 10.—Será responsabilidad del Departamento Financiero Contable llevar un control detallado de cada una de las cuentas existentes en el Fondo de Bienes de Menores, así como mantener un archivo de los expedientes de los beneficiarios activos y pasivos.

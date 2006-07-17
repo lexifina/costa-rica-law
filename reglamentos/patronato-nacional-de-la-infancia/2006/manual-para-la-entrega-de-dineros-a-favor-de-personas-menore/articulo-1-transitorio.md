@@ -1,0 +1,3 @@
+TRANSITORIO:
+A efecto de cumplir con las disposiciones de la Contraloría General de la República y recomendaciones de la Auditoría Interna de la institución, a partir de la publicación de este manual y por un plazo de seis meses las oficinas locales deberán emprender una labor intensa de ubicación de los beneficiarios con domicilio conocido que correspondan a su jurisdicción, debiendo además facilitar la entrega del cheque respectivo en la oficina o en el domicilio del beneficiario, previo el cumplimiento de los demás requisitos aplicables establecidos en este manual. Esta labor la realizarán a partir de las listas que remita el Departamento Financiero Contable, las cuales deben contener todos los datos conocidos del beneficiario.
+San José, 6 de julio del 2006.

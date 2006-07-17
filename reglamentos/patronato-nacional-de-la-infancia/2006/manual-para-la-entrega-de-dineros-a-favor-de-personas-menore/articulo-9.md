@@ -1,0 +1,2 @@
+CONTROL DE FONDOS:
+Artículo 9º—El Departamento Financiero Contable, mantendrá los recursos del Fondo de Bienes de Menores invertidos de conformidad con las políticas de inversiones financieras aplicables para las entidades públicas. Dichas inversiones se realizarán bajo condiciones y plazos que garanticen la disponibilidad de recursos, a efecto de entregar de manera oportuna los giros aprobados en razón del procedimiento establecido en este manual.

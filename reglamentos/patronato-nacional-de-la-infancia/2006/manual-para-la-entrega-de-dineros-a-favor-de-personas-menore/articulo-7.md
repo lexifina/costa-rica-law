@@ -1,0 +1,1 @@
+Artículo 7º—En aquellos casos en que la oficina local ha avalado y solicitado el giro de los fondos y una vez recibida la documentación señalada en el artículo quinto por parte del Departamento Financiero Contable, este Departamento sin más trámite procederá a la ejecución de lo solicitado.
