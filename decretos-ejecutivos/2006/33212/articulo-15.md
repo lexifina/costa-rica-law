@@ -1,0 +1,1 @@
+Artículo 15.—Registro de documentos. El coordinador del subcomité llevará un registro de la documentación en el que incluirá la fecha de recepción, la fecha de circulación impresa por el Comité respectivo del Codex Alimentarius y la fecha del vencimiento para presentar las observaciones ante el Comité Nacional.

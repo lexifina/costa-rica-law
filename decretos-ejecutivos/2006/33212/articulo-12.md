@@ -1,0 +1,1 @@
+Artículo 12.—Elección del coordinador. Al momento de constituir el subcomité, la Secretaria Técnica, nombrará un coordinador de acuerdo a su idoneidad para el manejo del tema, el cual deberá ser avalado por el Comité Nacional en la siguiente sesión ordinaria.

@@ -1,0 +1,1 @@
+Artículo 20.—Aprobación de la posición país por parte del Comité Nacional. Para efectos del presente reglamento se considerará que la aprobación de la posición país por parte del Comité Nacional deberá ser alcanzada cumpliendo con lo estipulado en el artículo 17 de este reglamento.

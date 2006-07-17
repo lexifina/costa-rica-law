@@ -1,0 +1,1 @@
+Artículo 7º—Constitución de los subcomités. Los subcomités serán constituidos por la Secretaría Técnica, a iniciativa de los sectores productivos o por alguno de los miembros del Comité Nacional. Su constitución se someterá a aprobación del Comité Nacional del Codex, reunida en sesión ordinaria. La creación se hará constar en el acta de dicha sesión.

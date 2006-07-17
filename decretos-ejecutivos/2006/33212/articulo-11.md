@@ -1,0 +1,9 @@
+Artículo 11.—Obligaciones de los miembros. Todos los miembros de los subcomités, tendrán las siguientes obligaciones:
+a. Mantener una participación activa dentro del subcomité, lo cual incluye entre otros aspectos: aportar fundamento técnico a las normas y otros documentos que estén siendo estudiados por el subcomité respectivo, y proponer la elaboración de normas que el país requiera.
+b. Analizar los proyectos de normas, directrices u otros documentos generados por el Comité del Codex respectivo, o los que le sean enviados por la Secretaría Técnica, en apego a los intereses del país, a los derechos de los consumidores y del comercio equitativo de alimentos.
+c. Realizar las observaciones pertinentes a los documentos indicados en el inciso anterior, cuando se requiera, en los plazos que haya definidoel coordinador del subcomité, con el fin de cumplir con el plazo establecido en el artículo 9º, inciso d).
+d. Asistir a las reuniones de trabajo que sean convocadas por el coordinador del subcomité.
+e. Mantener una actitud objetiva que no obedezca a intereses particulares.
+f. Asistir a las reuniones internacionales de Codex, cuando el Comité Nacional lo haya así designado, cumpliendo a cabalidad con las sesiones de trabajo establecidas en la agenda de las mismas; exponiendo y defendiendo la posición país aprobada por dicho Comité. Una vez finalizada la Reunión Internacional, el delegado tendrá 10 días hábiles, para remitir a la Secretaría Técnica el Proyecto de Informe que es entregado a cada participante el último día de la reunión, esto con el fin de conocer los resultados y comprobar que la posición aprobada por el Comité Nacional fue la que se expuso durante la reunión Internacional.
+g. Seguir las reglas para la elaboración de trabajos técnicos que defina el coordinador del subcomité.
+h. Otras que le asigne el Comité Nacional.
