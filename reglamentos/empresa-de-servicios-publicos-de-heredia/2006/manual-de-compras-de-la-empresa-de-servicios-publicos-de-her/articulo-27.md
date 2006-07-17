@@ -1,0 +1,32 @@
+CAPÍTULO VII
+De la clasificación del régimen de compras
+27.—Las compras, en la medida de lo posible, deberán hacerse de acuerdo con lo programado; para cumplir con las necesidades de la E.S.P.H. S. A. y con apego al siguiente régimen:
+a) Compras directas: Serán autorizadas por los líderes de unidades, sin requerir su presentación ante la Comisión. La Unidad de Adquisiciones y Almacenamiento, tramitará las compras directas, conforme a la clasificación que a continuación se detalla:
+I. Para satisfacer la necesidad de servicios públicos, no será necesario el respaldo de una cotización.
+II. En las compras de hasta mil quinientos dólares (US $ 1.500,00) será necesario el respaldo de una cotización.
+III. Las compras de mil quinientos un dólar (US $ 1.501,00), hasta cuatro mil dólares (US $ 4.000,00), se deben respaldar con dos cotizaciones o en su defecto haber demostrado que se efectuaron tres invitaciones.
+IV. Las compras de cuatro mil un dólar (US $ 4.001,00) a veinte mil dólares (US $ 20.000,00), se deben respaldar con tres cotizaciones o en su defecto haber demostrado que se efectuaron cuatro invitaciones.
+V. La contratación de servicios profesionales hasta tres mil dólares (US $ 3.000,00), como monto máximo de contratación y para cada evento debidamente justificado, se respaldará con al menos una cotización.
+VI. Las reparaciones mecánicas de los vehículos, se llevarán a cabo con una sola cotización, en caso de enderezado y pintura con un mínimo de dos cotizaciones.
+b) Compras secundarias: Compras superiores a veinte mil un dólares (US $ 20.001,00) y menores o iguales a sesenta mil dólares (US $ 60.000,00), requerirán un mínimo de cinco invitaciones y serán adjudicadas por el Director correspondiente. Los plazos que regirán el trámite de contratación son los siguientes:
+i. El plazo para recibir ofertas, es de un mínimo de tres días hábiles, según la especificación indicada en el cartel.
+ii. El plazo para recomendar y adjudicar, será de hasta cuarenta y cinco días hábiles, salvo prórroga justificada.
+c) Compras primarias: Compras superiores a sesenta mil un dólares (US $ 60.001,00) y menores o iguales a ciento veinte mil dólares (US$ 120.000,00), requerirán un mínimo de cinco invitaciones y serán adjudicadas por la Gerencia General, previo informe de la Comisión Asesora de Contrataciones. Los plazos que regirán el trámite de contratación son los siguientes:
+i. El plazo para recibir ofertas, es de un mínimo de tres días hábiles, según la especificación indicada en el cartel.
+ii. El plazo para recomendar y adjudicar, será hasta de cuarenta y cinco días hábiles después de la apertura, salvo prórroga justificada.
+iii. En caso de no existir como mínimos cinco oferentes en el Registro de Proveedores, se hará la invitación en un diario de circulación nacional.
+d) Compras mayores: Aquellas compras superiores a ciento veinte mil dólares (US $120.000,00), requerirán un mínimo de cinco invitaciones a proveedores y serán adjudicadas por la Junta Directiva de la E.S.P.H. S. A., previo informe de la Comisión Asesora de Contrataciones y del aval de la Gerencia General. Los plazos que regirán el trámite de contratación son los siguientes:
+i. El plazo para recibir ofertas, es de un mínimo de cinco días hábiles, según la especificación indicada en el cartel.
+ii. El plazo para recomendar y adjudicar, será de hasta sesenta días hábiles después de la apertura de las ofertas, salvo prórroga justificada.
+iii. En caso de no existir como mínimos cinco oferentes en el Registro de Proveedores, se hará la invitación en un diario de circulación nacional.
+e) Compras especiales: Son compras de excepción que debe realizar la Empresa de Servicios Públicos de Heredia S. A., para la satisfacción de necesidades empresariales. Estas compras no requieren la celebración de concurso previo; pero deberán reunir los siguientes requisitos:
+i. Nota de justificación, presentado por la unidad interesada, ante la Unidad de Adquisiciones.
+ii. La Unidad de Adquisiciones y Almacenamiento, elevará el referido informe ante la Comisión Asesora de Contrataciones, para su conocimiento incluyendo las cotizaciones respectivas, costo, antecedentes, beneficios y conveniencia, se aceptará con una cotización cuando es proveedor único.
+iii. Adjudicación por parte de la Gerencia General o la Junta Directiva, según el monto correspondiente.
+f) Compras por extensión: Serán aquellas compras que por motivo de oportunidad o conveniencia, la E.S.P.H. S. A., podrá realizar a un mismo oferente cuando en un proceso anterior, ya le haya sido adjudicado un concurso y las condiciones pactadas en su momento se mantengan en su totalidad, tales como: plazo, precio unitario, tiempo de entrega, etc. Estas compras podrán ser hasta por un monto igual a la adjudicación original y serán autorizadas, según los montos establecidos en este Manual de Políticas para la adquisición de bienes y servicios vigente.
+g) Compras por internet: En casos especiales a juicio de la Gerencia General, cuando la naturaleza del artículo o la urgente necesidad de adquirirlo lo requieran, podrá la administración hacer uso de medios electrónicos para el cumplimiento de los fines contemplados en ese manual, guardando al efecto como mínimo las siguientes seguridades.
+a. Las invitaciones de cotización deberán realizarse con entidades o sujetos que encuentren debidamente incorporados en el registro de Proveedores de la Empresa.
+b. Todas las transacciones deberán ejecutarse mediante “órdenes de compra” y bajo la condición de que, su pago no se hará efectivo sino, hasta el momento de la entrega a satisfacción de la Empresa, del artículo respectivo; y tratándose de servicios, una vez ejecutados de conformidad con el respectivo contrato.
+c. Cuando el oferente sea una entidad extranjera que no cuente con representación en el país, esta deberá garantizar la calidad, identidad del objeto de la transacción, plazo de entrega; tanto como reenvío en su caso al lugar de procedencia, a satisfacción de la Empresa.
+d. En todo caso, se advertirá al proveedor de que la propuesta se hace en concurso abierto, reservándose la empresa el derecho de seleccionar la oferta más favorable o de negociar las ofertas.
+e. Sin perjuicio del sistema de concurso abierto podrá la Administración utilizar el método de subasta electrónica, con apego en lo que sea compatible a los requisitos que anteceden y en general a las normativas de este manual.

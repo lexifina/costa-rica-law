@@ -1,0 +1,1 @@
+98.—La E.S.P.H. S. A., establecerá en los documentos de contratación, alternativas que contemplen el financiamiento, la operación y otras iniciativas que contribuyan con el mejoramiento de las ofertas y el logro de los objetivos.

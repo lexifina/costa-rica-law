@@ -1,0 +1,1 @@
+126.—Todo contrato debe ser firmado en tres originales, una de las cuales se entrega al contratista, la otra se custodiará en la Unidad de Asuntos Jurídicos y otra para la Unidad de Adquisiciones y Almacenamiento; y una copia del original para la unidad interesada.

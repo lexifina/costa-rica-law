@@ -1,0 +1,1 @@
+75.— Los derechos y las obligaciones del oferente, surgidas con motivo razón o consecuencia de la adjudicación, no podrán cederse a un tercero, sin la autorización previa y expresa de la E.S.P.H. S. A., por medio de acto debidamente razonado.

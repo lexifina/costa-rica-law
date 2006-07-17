@@ -1,0 +1,1 @@
+70.—Si se demuestra el incumplimiento por parte del oferente y la E.S.P.H. S. A., decide dar por terminado el contrato, esta hará efectiva la ejecución de las garantías correspondientes, a reserva del derecho de demandar el reconocimiento de daños y perjuicios adicionales, en su caso.

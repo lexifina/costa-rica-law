@@ -1,0 +1,5 @@
+46.—Los plazos que regirán el trámite de la modalidad de concurso de antecedentes son los siguientes:
+a) El plazo para recibir los sobres es de hasta 45 días hábiles. Este plazo podrá reducirse cuando el concurso se restrinja al ámbito nacional.
+b) El plazo para el establecimiento del orden de prelación, será hasta 30 días hábiles.
+c) Los sobres que contendrán las ofertas, serán abiertos en sesión pública convocada por la E.S.P.H. S. A., en presencia de los oferentes que hayan asistido al acto.
+d) La Unidad de Adquisiciones y Almacenamiento, deberá constatar que en el momento de la apertura, los sobres estén debidamente cerrados. Una vez abiertos; será responsable de la distribución de las ofertas en los siguientes términos: copia a la Unidad de Asuntos Jurídicos, la oferta técnica a la Unidad solicitante del concurso y los documentos de solvencia cuando se soliciten, a la Dirección de Apoyo Administración Financiera Contable. Asimismo será el responsable del análisis de la oferta económica, cuando ésta se presente en sobre separado; de lo contrario, esta también será analizada por la Unidad solicitante.

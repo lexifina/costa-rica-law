@@ -1,0 +1,1 @@
+3º—No se deberá fragmentar la adquisición de bienes y servicios con el único propósito de variar el procedimiento de contratación. Otros propósitos de orden empresarial, tales como necesidad o conveniencia podrían justificar las compras parciales.

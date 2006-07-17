@@ -1,0 +1,1 @@
+93.—El análisis de las ofertas y la valoración para contratar, estará en función de las mejores alternativas que a criterio de la E.S.P.H. S. A., ofrezcan los participantes para la satisfacción oportuna de la necesidad, así como el potenciamiento de las oportunidades que genere el proyecto. No existirá en estos casos una metodología de valoración previa.

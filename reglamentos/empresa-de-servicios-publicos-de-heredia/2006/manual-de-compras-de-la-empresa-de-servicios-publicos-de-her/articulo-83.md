@@ -1,0 +1,1 @@
+83.—Los artículos comprados por la E.S.P.H. S. A., o donados por particulares, serán entregados en el almacén. A excepción de los casos que por razones de conveniencia se autorice a ingresar en otro lugar, quedando para tal efecto los documentos que respaldan la recepción.

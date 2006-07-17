@@ -1,0 +1,1 @@
+2º—Los plazos y términos establecidos en el presente Manual de Políticas, son de acatamiento general y se entenderán como días hábiles. Por conveniencia u oportunidad se podrán ampliar, sin responsabilidad alguna para la E.S.P.H. S. A.

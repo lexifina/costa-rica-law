@@ -1,0 +1,1 @@
+103.—De previo a cualquier venta, la Unidad de Adquisiciones y Almacenamiento deberá contar con un criterio técnico emitido por el Director de quién están a cargos estos materiales, equipo y bienes, estableciendo por escrito su aprobación y recomendación para que tales materiales, equipo y bienes se puedan vender.

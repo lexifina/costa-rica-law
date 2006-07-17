@@ -1,0 +1,1 @@
+120.—Una vez elaborado el documento contractual, la Unidad de Asuntos Jurídicos será responsable de enviar un “Borrador” del contrato al adjudicatario, a la Unidad de Adquisiciones y Almacenamiento y a la Unidad solicitante. Para establecer observaciones específicas con su responsabilidad.
