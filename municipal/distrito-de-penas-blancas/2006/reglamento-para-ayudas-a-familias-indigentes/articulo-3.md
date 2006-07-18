@@ -1,0 +1,1 @@
+Tercera: Estas ayudas serán autorizadas por el Intendente Municipal, previa investigación de su parte, de cada uno de los casos, o bien, por recomendación de los miembros del Concejo Municipal o de la comisión Municipal de Asuntos Sociales.

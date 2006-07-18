@@ -1,0 +1,1 @@
+Quinta: Con el propósito de reducir costos en la adquisición de materiales, se podrá comprar los mismos en cantidades razonables; de acuerdo a las disponibilidades presupuestarias para luego ser distribuidas entre familias que califiquen de acuerdo a lo establecido en este reglamento.

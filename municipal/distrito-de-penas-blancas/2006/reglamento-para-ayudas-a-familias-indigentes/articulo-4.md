@@ -1,0 +1,1 @@
+Cuarta: Para efecto de este tipo de colaboración, las ayudas podrán otorgarse en dinero efectivo o en materiales, las ayudas serán sin acuerdo del Concejo por un monto no inferior a ¢25.000 y más de esto deberá adjuntársele un acuerdo del Concejo Municipal.
