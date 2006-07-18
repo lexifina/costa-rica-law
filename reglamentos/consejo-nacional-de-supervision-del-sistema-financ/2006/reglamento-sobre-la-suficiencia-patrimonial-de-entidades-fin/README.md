@@ -15,3 +15,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | --- | --- | --- |
 | 1 | 2006-07-18 | la propia norma |
 | 2 | 2006-07-18 | Reglamento 569 (2006-04-06) |
+| 3 | 2006-07-18 | Reglamento 588 (2006-07-13) |
