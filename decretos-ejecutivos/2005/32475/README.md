@@ -15,3 +15,4 @@ Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio
 | --- | --- | --- |
 | 1 | 2005-07-29 | la propia norma |
 | 2 | 2005-08-03 | Decreto Ejecutivo 32590 (2005-08-03) |
+| 3 | 2006-07-18 | Decreto Ejecutivo 33286 (2006-07-18) |
