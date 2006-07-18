@@ -4,5 +4,5 @@ b) El Teatro 1887 corresponderá cederlo para su uso a la Compañía Nacional de
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32768 del 24 de octubre de 2005).
 c) El Teatro de la Danza será cedido a la Compañía Nacional de Danza, así como las salas en las que se ubica dicho programa.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32768 del 24 de octubre de 2005).
-d) El espacio conocido como Colegio Costa Rica que incluye el área denominada “Las Torres”, estará a cargo del programa ministerial del mismo nombre.
+d) (Así Derogado por el artículo 2° del decreto ejecutivo N° 33346 del 18 de julio de 2006)
 e) El resto de las instalaciones ubicadas en el CENAC no indicadas en los incisos anteriores, serán cedidas en préstamo por la Comisión establecida en el artículo 5º del presente reglamento.
