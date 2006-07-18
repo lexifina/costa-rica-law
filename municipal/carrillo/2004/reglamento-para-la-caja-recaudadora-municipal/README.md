@@ -15,3 +15,4 @@ Reglamento para la caja recaudadora municipal
 | --- | --- | --- |
 | 1 | 2004-08-25 | la propia norma |
 | 2 | 2005-10-04 | Reglamento municipal 40 (2005-10-04) |
+| 3 | 2006-07-18 | Reglamento municipal 29 (2006-07-18) |

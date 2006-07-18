@@ -1,1 +1,2 @@
-Artículo 10.—Todo Cajero (a) que funcione como tal en una Caja Recaudadora de la Municipalidad de Carrillo, cerrará la caja delante del Tesorero (a) Municipal y posteriormente éste o ésta revisará el cierre del cajero (a).
+Artículo 10.—Los (las) encargados de la plataforma de servicios financieros municipales(a) que laboren en función de recaudación de la Municipalidad de Carrillo, cerrará la caja delante del tesorero (a) municipal y posteriormente este o esta revisará el cierre diario realizado.
+(Así reformado mediante sesión N° 29 del 18 de julio del 2006).
