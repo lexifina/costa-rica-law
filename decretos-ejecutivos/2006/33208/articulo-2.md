@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección Administrativa y Financiera estará a cargo de un (a) Director(a) cuyo puesto estará sometido a las disposiciones contenidas en el artículo 4 inciso g) del Estatuto del Servicio Civil, el Reglamento Autónomo de Servicios del Ministerio de Hacienda y a las que emita la Secretaría Técnica de la Autoridad Presupuestaria.
