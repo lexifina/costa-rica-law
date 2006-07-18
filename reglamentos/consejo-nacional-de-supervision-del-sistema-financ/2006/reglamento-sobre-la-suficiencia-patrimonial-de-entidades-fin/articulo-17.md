@@ -1,0 +1,1 @@
+Artículo 17.—Ponderación al noventa por ciento. Se ponderan al noventa por ciento los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 5 según el Anexo.

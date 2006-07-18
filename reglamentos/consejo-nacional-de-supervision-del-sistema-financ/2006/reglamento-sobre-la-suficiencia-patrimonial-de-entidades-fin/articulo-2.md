@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las disposiciones establecidas en este Reglamento son aplicables a las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras (en adelante “la SUGEF”), excepto casas de cambio.

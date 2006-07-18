@@ -1,0 +1,1 @@
+Artículo 23.—Requerimiento patrimonial por riesgo de precio. El requerimiento patrimonial por riesgo de precio es igual al Ver calculado con corte al último día de cada mes multiplicado por un factor de corrección de seis.

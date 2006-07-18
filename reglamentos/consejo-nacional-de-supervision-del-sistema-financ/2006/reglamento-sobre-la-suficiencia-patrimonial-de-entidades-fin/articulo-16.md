@@ -1,0 +1,1 @@
+Artículo 16.—Ponderación al setenta y cinco por ciento. Se ponderan al setenta y cinco por ciento los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 4 según el Anexo.

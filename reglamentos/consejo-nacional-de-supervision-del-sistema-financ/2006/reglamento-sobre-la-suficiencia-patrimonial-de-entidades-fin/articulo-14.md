@@ -1,0 +1,1 @@
+Artículo 14.—Ponderación al veinticinco por ciento. Se ponderan con veinticinco por ciento los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 2 según el Anexo.

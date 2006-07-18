@@ -1,0 +1,1 @@
+Artículo 22.—Cálculo del valor en riesgo. Para determinar el riesgo de precio de la cartera de inversiones definida en el artículo anterior se debe utilizar la metodología de “valor en riesgo (VeR)” definida en los Lineamientos Generales.
