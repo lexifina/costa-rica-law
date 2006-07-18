@@ -14,3 +14,4 @@ Créase Colegio de Costa Rica como una instancia cultural encargada de desarroll
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-09 | la propia norma |
+| 2 | 2006-07-18 | Decreto Ejecutivo 33346 (2006-07-18) |
