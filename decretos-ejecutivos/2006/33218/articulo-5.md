@@ -1,0 +1,2 @@
+Artículo 5º—Adiciónese un último párrafo al artículo 8º "Reajuste a la utilidad del contrato", del Decreto Ejecutivo Nº 33114-MEIC del dieciséis de marzo de dos mil seis, publicado en La Gaceta Nº 94 del diecisiete de mayo del dos mil seis, para que se lea de la siguiente manera:
+"El reconocimiento de reajuste a la utilidad del contrato debe ser proporcional al monto de la obra pendiente por realizar"
