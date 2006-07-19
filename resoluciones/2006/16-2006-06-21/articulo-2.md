@@ -1,1 +1,0 @@
-Artículo 2º—Modifíquese el inciso ii., en la parte descriptiva de funciones del apartado E- Órgano de Normalización Técnica (ONT) del punto 4) Divisiones, del artículo 2° de la resolución Nº DGT-10 de esta Dirección, del 24 de febrero del 2006, para que diga: “La Subdirección de Valoración de Bienes será competente de:”
