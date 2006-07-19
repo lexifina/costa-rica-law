@@ -1,0 +1,1 @@
+Artículo 2º—Variar la numeración de los capítulos para que el Capítulo III inicie a partir del artículo 16 y hasta el artículo 25 y se titule "Del Régimen Salarial", de modo que se corra sucesivamente la numeración del resto de capítulos, quedando el último capítulo como el número XIX.
