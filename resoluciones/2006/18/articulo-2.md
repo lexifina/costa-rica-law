@@ -1,0 +1,1 @@
+Artículo 2º—Derogatorias. Se deroga la resolución Nº 10-2006, de las 8:00 horas del día 24 de febrero del 2006, publicada en La Gaceta Nº 49 de 9 de marzo del 2006 y su reforma que es la resolución Nº 16-2006 de las 9:00 horas del 21 de junio del 2006 publicada en La Gaceta Nº 126 del 30 de junio del 2006.
