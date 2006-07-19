@@ -14,3 +14,4 @@ Reglamento para la Contratación de Servicios Profesionales y Técnicos del Cole
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-09 | la propia norma |
+| 2 | 2006-07-19 | Acuerdo 2226 (2006-07-19) |
