@@ -14,3 +14,4 @@ Normas para el Reconocimiento de Institución que normalmente se dedica a efectu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-25 | la propia norma |
+| 2 | 2006-07-19 | Reglamento 5287 (2006-07-19) |
