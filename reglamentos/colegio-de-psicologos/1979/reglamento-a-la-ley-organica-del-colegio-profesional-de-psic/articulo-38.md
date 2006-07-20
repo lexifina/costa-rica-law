@@ -1,0 +1,1 @@
+Artículo 38.—En caso de renuncia o de muerte de un miembro de la Junta Directiva será sustituido conforme al artículo 30 de la Ley Orgánica, mientras tanto no se haya efectuado la reposición por la Asamblea General.

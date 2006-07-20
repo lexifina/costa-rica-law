@@ -1,0 +1,1 @@
+Artículo 30.—Las actas de las sesiones de la asamblea serán redactadas por el secretario y suscritas por éste y el presidente, a más tardar dentro de los quince días posteriores a la sesión respectiva. Al inicio de cada sesión se leerá y aprobará o modificará acta de la asamblea anterior.

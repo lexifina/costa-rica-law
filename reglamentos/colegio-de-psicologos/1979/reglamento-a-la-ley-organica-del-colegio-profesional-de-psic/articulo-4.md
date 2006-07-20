@@ -1,0 +1,1 @@
+Artículo 4º—El rechazo de una solicitud de inscripción o de autorización a que se refiere el artículo 5º, de la Ley orgánica podrá ser objeto de los recursos de revocatoria y de apelación ante la Asamblea General dentro del quinto día hábil.

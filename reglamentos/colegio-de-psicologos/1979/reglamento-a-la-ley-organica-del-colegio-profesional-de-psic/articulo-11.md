@@ -1,0 +1,1 @@
+Artículo 11.—Los profesionales extranjeros contratados por las universidades costarricenses para la docencia psicológica quedan excluidos de la prohibición señalada en el artículo 9º, sin embargo, para que puedan ejercer su profesión fuera de sus contratos requerirán cumplir los requisitos de este Reglamento y de la Ley Orgánica.

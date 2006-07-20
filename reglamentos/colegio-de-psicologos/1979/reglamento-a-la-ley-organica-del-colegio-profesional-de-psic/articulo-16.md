@@ -1,0 +1,1 @@
+Artículo 16.—La Asamblea General es el órgano superior del Colegio y está integrada por todos los miembros colegiados, que estén al día con sus pagos, y se identifiquen con su carné vigente o cédula de identidad.

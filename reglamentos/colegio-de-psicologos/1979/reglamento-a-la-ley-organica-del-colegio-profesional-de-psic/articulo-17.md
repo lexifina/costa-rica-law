@@ -1,0 +1,1 @@
+Artículo 17.—La asamblea se reunirá, ordinariamente una vez al año, dentro de los primeros quince días del mes de diciembre. La asamblea podrá celebrar reuniones extraordinarias para tratar asuntos específicos que requieran su decisión. La convocatoria para reunión ordinaria o extraordinaria se realizará de acuerdo a lo estipulado por el artículo 16 de la Ley Orgánica.

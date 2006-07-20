@@ -1,0 +1,2 @@
+Artículo 46.—El producto del Timbre del Colegio será destinado a la creación del Fondo de Mutualidad, que se administrará en forma separada de los fondos corrientes de la Institución.
+El fondo será destinado a los fines que señala el artículo 33 de la Ley Orgánica. En caso de muerte de un colegiado se girará al beneficiario designado o en su defecto a los herederos legales la suma de ¢10.000,00 o el monto que se encuentre depositado en el momento en que se haga el reclamo en el caso de que éste no alcance aquella suma.

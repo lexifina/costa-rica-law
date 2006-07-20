@@ -1,0 +1,2 @@
+Artículo 13.—En ningún caso los estudiantes podrán realizar prácticas que no estén programadas y debidamente supervisadas ni cobrar por sus servicios, so pena de incurrir en ejercicio ilegal de la profesión.
+Tampoco podrán ser utilizadas las prácticas para generar honorarios en favor de colegiados. Únicamente podrán percibirse beneficios económicos de dichas prácticas por instituciones estatales sin fines de lucro.
