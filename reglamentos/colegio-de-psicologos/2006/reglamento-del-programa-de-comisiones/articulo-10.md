@@ -1,0 +1,1 @@
+Artículo 10.—Sesiones. La comisión establecerá el cronograma de reuniones de tal manera que se facilite el cumplimiento de sus objetivos. Una vez acordado el cronograma de reuniones, el mismo debe ser comunicado formalmente a la Junta Directiva del Colegio.

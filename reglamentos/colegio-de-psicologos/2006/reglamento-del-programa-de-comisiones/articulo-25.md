@@ -1,0 +1,1 @@
+Artículo 25.- Aprobación del Presupuesto. Cada Comisión deberá presentar para su aprobación ante la Junta Directiva, anualmente y con la propuesta de plan de trabajo respectiva, la propuesta de presupuesto correspondiente.

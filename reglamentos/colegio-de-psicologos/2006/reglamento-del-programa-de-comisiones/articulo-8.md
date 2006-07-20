@@ -1,0 +1,2 @@
+Artículo 8º—Composición de la comisión. Las comisiones estarán conformadas al menos por tres personas, salvo lo establecido en el artículo 2º del Reglamento de Incorporación y Cambio de Grado, del Colegio Profesional de Psicólogos de Costa Rica. Podrán participar tantas personas como se considere pertinente, según el ámbito de acción de la comisión.
+Todas las personas que conforman la comisión deben ser juramentadas por la Junta Directiva.

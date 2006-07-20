@@ -1,0 +1,1 @@
+Artículo 27.—Ingresos extraordinarios. Los ingresos generados por las actividades que las comisiones realicen, serán considerados como ingresos extraordinarios del Colegio y formaran parte del patrimonio y fondos del Colegio.

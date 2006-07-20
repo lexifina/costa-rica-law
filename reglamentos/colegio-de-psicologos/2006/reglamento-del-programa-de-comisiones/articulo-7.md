@@ -1,0 +1,1 @@
+Artículo 7º—Inscripción. Los/las colegiadas que se interesen por trabajar en comisiones, se inscribirán formalmente, ya sea durante las sesiones de Asamblea General, o bien, mediante solicitud escrita a la Junta Directiva.

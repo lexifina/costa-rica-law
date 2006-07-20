@@ -1,0 +1,1 @@
+Artículo 21.—Exoneración de pago en actividades. Las y los participantes en las comisiones, tendrán derecho a la participación gratuita en las actividades organizadas por la comisión. En otros eventos realizados por el Colegio, podrán ser exonerados del pago respectivo, según acuerdo previo de Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 22.—Reglamentación institucional. Las y los miembros de comisión, deberán cumplir con lo estipulado en la Ley Orgánica del Colegio, su Reglamento, el Código de Ética y demás normativa vigente.
