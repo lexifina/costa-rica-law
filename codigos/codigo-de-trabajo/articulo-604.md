@@ -1,1 +1,7 @@
-ARTICULO 604.- ANULADO por Resolución de la Sala Constitucional Nº 3565-97 de las 15:36 horas del 25 de junio de 1997.
+Artículo 604.—En materia laboral, la prescripción se interrumpirá además por las siguientes causales:
+a) La negativa del patrono a entregarle al trabajador la carta de cesación del contrato de trabajo, en los términos del artículo 35 de este Código, a partir del momento en que este lo solicite por escrito. Si el contrato de trabajo es verbal o si al trabajador por su condición física, mental o cognoscitiva, le es imposible solicitar por sí mismo y en forma escrita dicha carta, podrá solicitarla verbalmente o por su medio de comunicación habitual, ante dos testigos.
+b) La interposición, por parte del trabajador, de la correspondiente solicitud de diligencia de conciliación laboral administrativa ante el Ministerio de Trabajo.
+c) En casos de reclamos contra el Estado o sus instituciones, a partir del momento en el que al trabajador se le notifique la resolución que da por agotada la vía administrativa, en los términos que dispone el inciso a) del artículo 402 de este Código.
+d) En el caso de acciones derivadas de riesgos del trabajo, la interposición del reclamo respectivo en sede administrativa ante el INS.
+e) Mientras se encuentre laborando a las órdenes de un mismo patrono.
+(Nota de Sinalevi: Mediante Resolución de la Sala Constitucional Nº 3565-97 de las 15:36 horas del 25 de junio de 1997, el presente artículo fue anulado. Posteriormente mediante el artículo 2 de la ley N° 8520 del 20 de junio del 2006, fue adicionado)
