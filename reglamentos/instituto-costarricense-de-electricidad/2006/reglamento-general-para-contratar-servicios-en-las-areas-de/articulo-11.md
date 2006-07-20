@@ -1,0 +1,4 @@
+Artículo 11.—Recurso contra los actos de adjudicación de las Contrataciones Específicas.
+11.1) El oferente podrá interponer ante la Administración recurso de revocatoria debidamente fundamentado, en contra de las adjudicaciones que se realicen al amparo del Registro de Elegibles.
+En contra del acto de adjudicación, podrá interponerse recurso de revocatoria ante la Dirección de Proveeduría, dentro de los cinco días hábiles siguientes a su comunicación. Éste deberá ser resuelto por dicha dependencia dentro de los 10 días hábiles siguientes a su presentación y dará por agotada la vía administrativa.
+Procederá recurso de objeción contra el cartel, el cual debe interponerse dentro del primer tercio de tiempo para entregar ofertas ante la Unidad Estratégica de Negocio respectiva. Dicha UEN contará con un plazo de tres días hábiles para resolver el recurso.
