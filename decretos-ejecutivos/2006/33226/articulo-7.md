@@ -1,0 +1,1 @@
+Artículo 7º—Podrán pagarse Servicios Ambientales en la modalidad de protección en fincas amparadas al derecho de posesión, según lo establecido en el Decreto Ejecutivo 31633-MINAE del 26 de enero del 2004.

@@ -1,0 +1,17 @@
+Artículo 3º—Las áreas prioritarias para el trámite de las presolicitudes del año 2006 en las diferentes modalidades serán las siguientes:
+1. Proyectos de Reforestación: Se establecen como prioritarias para la ejecución de proyectos de reforestación las áreas sin bosque con los siguientes criterios:
+a) Se dará prioridad a los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales (clases de capacidad de uso III, IV, V y VI de la metodología oficial establecida en el Manual para la determinación de la capacidad de uso de las tierras de Costa Rica, Decreto Ejecutivo N° 23214- MAG-MIRENEM).
+b) Sitios donde haya un alto potencial de bloques de plantación, dando especial prioridad a los proyectos que utilicen material genético mejorado.
+c) Se podrán incluir áreas en donde se ejecutaron proyectos de reforestación financiados por medio de incentivos y que hayan cumplido con los planes de manejo aprobados.
+d) Para los proyectos de reforestación con especies nativas, establecidos como prioritarios y contenidos en los decretos de vedas y especies amenazadas o en peligro de extinción, (Decreto N° 25663-MINAE y Decreto N° 25700-MINAE y sus reformas), se establece como prioritario todo el país. Se podrán acoger a esta modalidad de Pago por servicios ambientales, las estrategias de conservación para especies propuestas en los citados decretos o sus modificaciones que presenten entes de investigación, y que cumplan con los requisitos establecidos en el manual de procedimientos vigente al momento de presentar los proyectos.
+e) Dentro de las áreas indicadas en los puntos a), b), c), y d) anteriores, se dará prioridad a las ubicadas en los cantones con Índice de Desarrollo Social (IDS) menor al 40% según la determinación realizada por MIDEPLAN en el 2001.
+2. Proyectos de reforestación en pastos y potreros mediante regeneración natural.
+a) Los proyectos de reforestación mediante regeneración natural en pastos y potreros se podrán realizar solo en áreas definidas como tierras Kyoto, que no tenían cobertura forestal antes del 31 de diciembre de 1989, que se ubiquen en las Regiones Chorotega, Pacífico Central y Brunca del país según la regionalización administrativa de MIDEPLAN.
+3. Proyectos de Protección de Bosques. Se establecen como prioritarias para la ejecución de proyectos de protección de bosque las áreas con los siguientes criterios:
+a) Para el trámite de proyectos de protección, se dará prioridad aquellos ubicados en corredores biológicos reconocidos oficialmente hasta el año 2003 por el SINAC.
+b) Proyectos de protección que cumplan con lo establecido en el punto anterior que tengan contratos vencidos de años anteriores.
+c) Áreas de bosque que tengan como función la protección del recurso hídrico.
+d) Áreas privadas dentro de las áreas silvestres protegidas cualquiera que sea su categoría de manejo.
+e) Dentro de las áreas indicadas en los puntos a), b), c), y d) anteriores, se dará prioridad a las ubicadas en los cantones con Índice de Desarrollo Social (IDS) menor al 40% según la determinación realizada por MIDEPLAN en el 2001.
+4. Proyectos de Sistemas Agroforestales. Se dará prioridad a proyectos tramitados por organizaciones que cumplan con los requisitos establecidos en el Manual de Procedimientos del 2006.
+En cada una de las Oficinas Subregionales del SINAC y Regionales del FONAFIFO, se mantendrá un mapa con las áreas prioritarias para ubicar las fincas que apliquen al Programa Pago de Servicios Ambientales.
