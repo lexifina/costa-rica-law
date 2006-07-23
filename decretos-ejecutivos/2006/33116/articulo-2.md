@@ -1,0 +1,1 @@
+Artículo 2º—Se debe restringir la comercialización e internamiento al país de la coliflor que no cumpla con las exigencias relativas a pudrición, según lo establecido en la Tabla 1, del apartado 5 de disposiciones sobre tolerancias.

@@ -1,0 +1,1 @@
+Artículo 5º—Cualquier medida técnica que se ordene, debe estar debidamente sustentada y cumplirse, según sea el caso, con el debido proceso establecido en la Ley General de la Administración Pública y sus reformas, Nº 6227, o en los procedimientos contemplados en los artículos 80 y 81 de la Ley de Protección Fitosanitaria y sus reformas, Nº 7664.
