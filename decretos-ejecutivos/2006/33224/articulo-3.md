@@ -1,0 +1,1 @@
+Artículo 3º—Verificación de información. Una vez publicadas las modificaciones al presupuesto vigente referidas en los artículos anteriores, la Dirección General de Presupuesto Nacional y la Dirección de Crédito Público, verificarán que las mismas sean consistentes con la certificación emitida al efecto por la Contabilidad Nacional del Ministerio de Hacienda.
