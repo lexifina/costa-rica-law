@@ -1,0 +1,3 @@
+Artículo 21.—Resolución final del Órgano. Finalizada la investigación, el Órgano Director del Proceso elaborará un informe debidamente fundamentado, que comunicará en un plazo máximo de siete días hábiles a la Comisión Mixta de Relaciones Laborales.
+El informe del Órgano Director del Proceso solo se referirá a la valoración de la prueba, toda vez que le corresponde a la Comisión Mixta de Relaciones Laborales recomendar a la Gerencia General la sanción disciplinaria, con carácter de no vinculante, para los funcionarios de su nombramiento.
+La recomendación de la Comisión Mixta de Relaciones Laborales se dirigirá a la Junta Directiva General, cuando se trate de asuntos de funcionarios de nombramiento de este Órgano.

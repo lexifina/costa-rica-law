@@ -1,0 +1,4 @@
+Artículo 6º—Adscripción, recursos, excusas y recusaciones. Los Órganos nombrados por la Gerencia General estarán adscritos a la Dirección de Recursos Humanos. Los recursos que procedan y que se planteen contra las resoluciones de estos Órganos Directores del Procedimiento, serán elevados para su conocimiento y resolución del Gerente General.
+Cuando los Órganos Directores han sido nombrados por la Junta Directiva, cualquier recurso en relación a éstos los resolverá el Órgano Colegiado.
+Serán motivos de separación de los miembros designados, los mismos de impedimento y recusación que se establecen en los artículos 49 y siguientes del Código Procesal Civil. En caso de presentarse alguno de los supuestos previstos en dicha normativa, se procederá a nombrar los sustitutos correspondientes.
+Igual situación prevalece para los miembros de la Comisión Mixta de Relaciones Laborales.
