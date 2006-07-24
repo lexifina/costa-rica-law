@@ -1,0 +1,1 @@
+Artículo 29.—De la reincorporación. El profesional retirado temporalmente se tendrá automáticamente por reincorporado al vencer el plazo de su retiro, o antes si así lo solicitare por escrito. La persona retirada indefinidamente podrá, en cualquier momento, solicitar formalmente y por escrito su reincorporación.

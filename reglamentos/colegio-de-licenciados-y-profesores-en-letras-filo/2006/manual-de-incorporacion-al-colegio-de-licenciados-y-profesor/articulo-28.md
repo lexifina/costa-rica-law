@@ -1,0 +1,1 @@
+Artículo 28º—De los efectos del retiro. El retiro temporal o indefinido lleva implícita la renuncia a los servicios y beneficios que brinda el Colegio, al ejercicio de la profesión, a los concursos del Servicio Civil, a los beneficios de Carrera Profesional y Dedicación Exclusiva y al disfrute del Fondo de Mutualidad y Subsidios.

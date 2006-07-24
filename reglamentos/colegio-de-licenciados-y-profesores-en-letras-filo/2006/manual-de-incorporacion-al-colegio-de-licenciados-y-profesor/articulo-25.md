@@ -1,0 +1,1 @@
+Artículo 25.—Del número de colegiado y del libro Consecutivo de Colegiados. Se llevará un libro llamado "Consecutivo de Colegiados", que estará a cargo de la Oficina de Incorporación y bajo la custodia del Secretario(a). Los libros agotados se trasladarán a la Unidad de Archivo, la cual será responsable de su custodia.

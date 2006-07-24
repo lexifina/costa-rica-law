@@ -1,0 +1,1 @@
+Artículo 2º—De los derechos y deberes del colegiado. Los miembros que integren el Colegio tendrán los derechos y deberes que les otorguen la Ley Orgánica, el Reglamento General, este Manual, el Código de Ética, los acuerdos tomados por la Asamblea General, los acuerdos de Junta Directiva, y los demás reglamentos del Colegio.

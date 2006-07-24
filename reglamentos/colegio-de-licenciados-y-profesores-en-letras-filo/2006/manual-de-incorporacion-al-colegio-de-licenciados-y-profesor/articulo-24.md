@@ -1,0 +1,1 @@
+Artículo 24.—De la foliación de los documentos. Los documentos contenidos en el expediente del colegiado serán foliados siguiendo el orden que se establece en el artículo anterior, iniciando con el número 1, luego se rotulará el fólder con los apellidos y nombres del profesional, así como sus números de cédula y carné.

@@ -1,0 +1,1 @@
+Artículo 21.—De la notificación de incorporación o reincorporación. Respecto a la resolución de la solicitud de incorporación, la Oficina de Incorporación le comunicará al solicitante, por el medio legal que corresponda, el acuerdo tomado por la Junta Directiva. De ser rechazada dicha solicitud no se devolverá el monto pagado por derechos de incorporación.

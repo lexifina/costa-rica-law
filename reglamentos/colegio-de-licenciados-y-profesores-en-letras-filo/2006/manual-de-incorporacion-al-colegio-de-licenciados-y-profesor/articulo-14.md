@@ -1,0 +1,1 @@
+Artículo 14.—Del plazo de la resolución. Toda solicitud de incorporación, reincorporación y retiro temporal o indefinido será resuelta por la Junta Directiva dentro de los 30 días hábiles después de recibida la recomendación del Fiscal.
