@@ -1,0 +1,1 @@
+Artículo 2º—JAPDEVA subsidiará a sus trabajadores el costo de servicio de restaurante que brinde las sodas, por un monto equivalente al cien por ciento (100%) de los precios que se establezcan, con el fin de dar cumplimiento a lo establecido en el artículo 64 de la Convención Colectiva de Trabajo.

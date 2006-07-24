@@ -1,0 +1,1 @@
+Artículo 21.—Mientras las instalaciones para el servicio de soda estén ubicadas en el muelle alemán, la administración deberá '70roveer en la medida de lo posible un servicio de transporte bien estructurado que garantice un seguro acceso a la soda así como el retorno de los trabajadores a los centros de trabajo.

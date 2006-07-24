@@ -1,0 +1,5 @@
+Artículo 6º—La Comisión Bipartita de Sodas tendrá como finalidad primordial la fiscalización del servicio de restaurante que brindan los concesionarios escogidos mediante el procedimiento de contratación administrativa que corresponda. Para el cumplimiento de este fin tendrá los siguientes deberes:
+1. Verificar la forma de conservación, preparación y manipulación de los alimentos, a efectos de comprobar el cumplimiento de todas las normas de higiene y salud que señalen las autoridades gubernamentales en esta materia. Para el cumplimiento de esta obligación, podrán ingresar a cualquiera de las sodas, cuando así lo juzguen conveniente (tanto la comisión como la subcomisión de sodas).
+2. Atender y conformar expediente para cada una de las quejas que los usuarios sometan a su conocimiento y remitirlo a la administración activa para su resolución según corresponda.
+3. Crear las subcomisiones que estime convenientes, en el entendido de que las mismas serán conformadas con los mismos miembros de la comisión.
+4. Cualquier otra obligación que le asigne este Reglamento.

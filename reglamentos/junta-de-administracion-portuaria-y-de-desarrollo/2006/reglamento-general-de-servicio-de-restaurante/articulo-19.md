@@ -1,0 +1,1 @@
+Artículo 19.—Para la imposición de sanciones conforme al artículo anterior, la Comisión Bipartita de Sodas levantará un expediente al efecto y lo trasladará a la Unidad de Recursos Humanos para su recomendación de resolución, garantizando al concesionario el derecho al debido proceso y a la defensa.

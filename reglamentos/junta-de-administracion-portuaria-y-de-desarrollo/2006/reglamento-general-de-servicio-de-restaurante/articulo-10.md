@@ -1,0 +1,1 @@
+Artículo 10.—Canje de leche. El trabajador podrá canjear el servicio de alimentación por la cantidad de cartones de leche cuyo valor coincida con el valor del alimento dejado de consumir. En caso de que quede un saldo, esta diferencia se acumulará a favor del funcionario hasta que complete el valor de un cartón de leche adicional.

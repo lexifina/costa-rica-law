@@ -1,0 +1,1 @@
+Artículo 22.—Para efectos de lograr una eficiente supervisión por parte de la Comisión de Sodas, tanto la Administración Portuaria como la de Desarrollo y las oficinas en San José, deberán facilitar copia de los contratos y mantener informados a la Comisión de Sodas de cualquier gestión administrativa relacionada con el servicio de sodas.

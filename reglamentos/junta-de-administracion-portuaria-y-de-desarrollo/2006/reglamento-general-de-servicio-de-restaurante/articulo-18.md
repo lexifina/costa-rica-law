@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier incumplimiento a las disposiciones contractuales debidamente demostrado conforme a las reglas del debido proceso y garantizando el derecho de defensa del contratista, podrá dar lugar a la imposición de sanciones, conforme la gravedad de la anomalía, en los términos establecidos en los artículos 99 y 100 de la Ley de Contratación Administrativa.

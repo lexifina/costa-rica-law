@@ -1,0 +1,1 @@
+Artículo 7º—Todas las quejas y observaciones sobre la calidad y/o cantidad de los alimentos servidos, así como la atención del servicio de restaurante en las sodas, deberán presentarse por escrito a la Comisión Bipartita de Sodas.
