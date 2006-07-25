@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con la Resolución Nº 48-94 (Consejo-XII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 15% incluyan el gravamen del 1% de la Ley 6946, a los incisos arancelarios 2710.11.51 y 2710.11.59 se les debe aplicar un DAI de 14%.
