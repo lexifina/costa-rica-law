@@ -147,6 +147,7 @@ articulo-146.md
 articulo-147.md
 articulo-148.md
 articulo-149.md
+articulo-149-bis.md
 articulo-150.md
 articulo-151.md
 articulo-152.md
@@ -164,3 +165,4 @@ articulo-163.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
+articulo-4-transitorio.md

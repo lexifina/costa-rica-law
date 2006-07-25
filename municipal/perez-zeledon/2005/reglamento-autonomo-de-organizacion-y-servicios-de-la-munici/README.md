@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Pérez 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-07 | la propia norma |
+| 2 | 2006-07-25 | Reglamento municipal 13 (2006-07-25) |
