@@ -18,3 +18,4 @@ Reglamento Orgánico de la Junta de Protección Social
 | 3 | 2004-03-23 | Decreto Ejecutivo 31822 (2004-03-23) |
 | 4 | 2004-10-22 | Decreto Ejecutivo 32142 (2004-10-22) |
 | 5 | 2005-07-15 | Decreto Ejecutivo 32641 (2005-07-15) |
+| 6 | 2006-07-26 | Decreto Ejecutivo 33436 (2006-07-26) |

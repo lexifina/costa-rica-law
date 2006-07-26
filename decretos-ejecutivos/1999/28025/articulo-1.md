@@ -1,11 +1,15 @@
+(Derogado)
 No 28025-MTSS-MP
-EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE LA PRESIDENCIA Y DE TRABAJO Y SEGURIDAD SOCIAL
+(Este decreto fue derogado por el artículo 40 del “Reglamento Orgánico de la Junta de Protección Social”, aprobado mediante decreto ejecutivo N° 33436 del 26 de julio de 2006)
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE TRABAJO
+Y SEGURIDAD SOCIAL
 En uso de las facultades que les confieren los incisos 18 y 20 del artículo 140 de la Constitución Política y el artículo 25, inciso 1) de la Ley General de la Administración Pública:
 Considerando:
 1° —Que la Junta de Protección Social de San José es un ente descentralizado con personería jurídica propia.
 2° —Que el Reglamento Orgánico de la Junta de Protección Social de San José, es el instrumento legal vigente que dicta las pautas a seguir para el gobierno de las diferentes dependencias de la institución.
 3° —Que la Junta de Protección Social de San José, es considerada por el Gobierno de la República como una de las instituciones pilares para el desarrollo de programas de reactivación social y para ello, considera necesario efectuar modificaciones e inclusiones a la reglamentación vigente con el fin de ajustaría a los propósitos que se pretenden dar. Por tanto,
-decretan:
+Decretan:
 REGLAMENTO ORGÁNICO DE LA JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
 CAPITULO I
 De la Junta Directiva
