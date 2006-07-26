@@ -1,0 +1,2 @@
+Artículo 8º—De la inscripción de las tierras adquiridas. Una vez realizada la autorización de pago, MINAE contará con un plazo máximo de un mes para coordinar con la Procuraduría el traspaso del bien al Estado de aquellas tierras adquiridas por compra directa o por proceso de expropiación al Ministerio de Ambiente y Energía para que inicie el proceso especial de expropiación.
+Quepos, 7 de julio del 2006
