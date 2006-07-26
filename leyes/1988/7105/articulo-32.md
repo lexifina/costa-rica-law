@@ -6,7 +6,7 @@ secretario, dos vocales y un fiscal. Habrá dos suplentes que serán
 llamados a sustituir a aquellos miembros que se separen temporal o
 definitivamente antes del cese de sus funciones, excepto al presidente y
 al vicepresidente. La Junta Directiva será integrada, preferentemente,
-por lo menos con un miembro activo de cada especialización profesional en
+por lo menos con un miembro de cada especialización profesional en
 Ciencias Económicas de las aceptadas por el Colegio.
 La elección de los miembros de la Junta Directiva se hará por simple
 mayoría, en forma independiente para el presidente, el vicepresidente y el
@@ -18,3 +18,4 @@ empate, la decisión corresponderá a la suerte.
 Los miembros de la Junta Directiva durarán dos años en funciones y
 podrán ser reelegidos por un período igual, en forma consecutiva. Su
 renovación se hará preferentemente en forma parcial.
+(Así reformado mediante resolución de la Sala Constitucional N° 10975-06, de las 18:07 horas.)
