@@ -15,3 +15,4 @@ Reglamento general del Colegio Profesionales en Ciencias Económicas de Costa Ri
 | --- | --- | --- |
 | 1 | 1990-11-05 | la propia norma |
 | 2 | 1990-11-05 | SINALEVI (sin norma nombrada) |
+| 3 | 2006-07-26 | SINALEVI (sin norma nombrada) |

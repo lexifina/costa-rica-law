@@ -1,1 +1,2 @@
-ARTICULO 33.- Las sesiones de Asamblea General serán serán privadas. Podrán asistir, con derecho únicamente a voz, los miembros asociados, temporales y honorarios. El Presidente tomará las debidas medidas a fin de que ejerzan el derecho a voto solo los miembros activos.
+ARTICULO 33.- Las sesiones de Asamblea General serán serán privadas.
+(Así reformado por resolución de la Sala Constitucional N° 10975-06, de las 18:07 horas.)
