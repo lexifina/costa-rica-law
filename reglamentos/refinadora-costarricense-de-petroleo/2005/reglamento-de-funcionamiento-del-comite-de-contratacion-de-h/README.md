@@ -14,3 +14,4 @@ Reglamento de funcionamiento del comité de contratación de hidrocarburos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-09 | la propia norma |
+| 2 | 2006-07-26 | Reglamento 4065 (2006-07-26) |
