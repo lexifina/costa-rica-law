@@ -20,3 +20,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 5 | 2002-10-22 | Reglamento 355 (2002-10-22) |
 | 6 | 2002-12-19 | Reglamento 346 (2002-12-19) |
 | 7 | 2006-04-06 | Reglamento 569 (2006-04-06) |
+| 8 | 2006-07-26 | SINALEVI (sin norma nombrada) |
