@@ -25,3 +25,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | 10 | 2005-07-05 | Acuerdo 110 (2005-07-05) |
 | 11 | 2006-01-17 | Acuerdo 114 (2006-01-17) |
 | 12 | 2006-05-23 | Acuerdo 119 (2006-05-23) |
+| 13 | 2006-07-27 | Acuerdo 122 (2006-07-27) |
