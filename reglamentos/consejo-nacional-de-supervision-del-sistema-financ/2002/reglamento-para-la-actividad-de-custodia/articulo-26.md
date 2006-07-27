@@ -1,2 +1,0 @@
-Artículo 26.—Conservación de la información. Las entidades de custodia conservarán la información de sus registros y respectivos movimientos, así como la documentación probatoria pertinente por un plazo no inferior a cinco años.
-(Así modificada su numeración en sesión ordinaria Nº 410 de 13 de enero de 2004, publicada en La Gaceta N° 20 de 29 de enero de 2004, que adicionó los artículo 19 y 20, ordenando correr la numeración, por lo que este artículo pasó del N° 24 al N° 26.)
