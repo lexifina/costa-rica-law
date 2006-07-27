@@ -1,2 +1,0 @@
-Artículo 10º- El Banco podrá adquirir valores de emisores domiciliados en el país y denominados en colones costarricenses o en dólares de los Estados Unidos de América. Para realizar inversiones en valores de emisores domiciliados fuera del país o para adquirir valores denominados en otras monedas, deberá contarse con la autorización de la Junta Directiva Nacional.
-* NOTA: Según lo estipulado en el Acuerdo de Sesión Nº 3987 del 16 de abril del 2002, al derogarse el artículo 3 este artículo 10 pasa a ser 9.
