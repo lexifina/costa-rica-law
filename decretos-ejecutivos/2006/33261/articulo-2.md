@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a la administración pública central, a las instituciones y a las empresas del Estado para que, brinden las facilidades y la cooperación requeridas en la realización de las actividades que se llevarán a cabo en Costa Rica con motivo de la Presidencia Pro Tempore de Costa Rica en el Sistema de la Integración Centroamericana (SICA).
