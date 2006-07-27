@@ -1,0 +1,1 @@
+Artículo 19.—Cesión de los certificados de participación asociativa. El INFOCOOP podrá transferir total o parcialmente su participación al organismo cooperativo en forma parcial o total. En tal caso el organismo cooperativo reintegrará al INFOCOOP el valor presente de la inversión cuyo cálculo se realizará con base en el plazo establecido en el respectivo estudio técnico.

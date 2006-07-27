@@ -1,0 +1,1 @@
+Artículo 4º—La participación del INFOCOOP como asociado en los organismos cooperativos, podrá realizarse cuando de conformidad con el estudio técnico respectivo, se haya evaluado y determinado que dicho de esquema de apoyo institucional es necesario para el logro de los objetivos del proyecto, los cuales deben de ser consistentes con los fines y objetivos del INFOCOOP.
