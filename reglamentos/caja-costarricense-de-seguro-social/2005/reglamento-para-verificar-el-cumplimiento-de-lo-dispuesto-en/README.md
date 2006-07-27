@@ -14,3 +14,4 @@ Reglamento para verificar el cumplimiento de lo dispuesto en el Artículo 13 "Ga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-30 | la propia norma |
+| 2 | 2006-07-27 | Reglamento 8077 (2006-07-27) |
