@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad de Leyes y Decretos del Ministerio de la Presidencia no tramitará decreto ejecutivo alguno ni proyecto de ley que contemple medidas de organización y reorganización que no hayan sido aprobadas por el Ministerio de Planificación Nacional y Política Económica.
