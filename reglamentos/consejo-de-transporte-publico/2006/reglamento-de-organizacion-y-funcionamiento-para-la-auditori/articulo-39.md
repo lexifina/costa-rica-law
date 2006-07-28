@@ -1,0 +1,1 @@
+Artículo 39.—Apoyo a evaluaciones o Auditorías Externas. La Auditoría Interna servirá de apoyo para las Evaluaciones y Auditorías Externas, las cuales son realizadas por la Contraloría GR y por empresas de Auditoría Externa contratadas por el Consejo.

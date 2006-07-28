@@ -1,0 +1,1 @@
+Artículo 84.—Plan Anual Operativo. Dicho documento estará orientado según el Plan de Trabajo Anual basado en la determinación del nivel de riesgo de las actividades que se realizarán de acuerdo con el ciclo de Auditoría, la vinculación del presupuesto y las disposiciones que ha emitido la Contraloría GR para con las Auditorías Internas.

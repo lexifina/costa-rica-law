@@ -1,0 +1,1 @@
+Artículo 42.—Comportamiento de los servidores de Auditoría. Los funcionarios de Auditoría Interna desempeñarán sus funciones de modo que su labor sea medio de mejoramiento y funcionamiento general del Consejo. Por ello actuarán con buen trato verbal, tacto y cortesía en el desempeño de sus funciones, sin que por ello se deje de manejar la objetividad del trabajo.

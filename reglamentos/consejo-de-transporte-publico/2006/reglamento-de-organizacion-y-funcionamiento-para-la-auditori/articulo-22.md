@@ -1,0 +1,1 @@
+Artículo 22.—Restricciones. El Auditor Interno y sus titulares subordinados no podrán ejercer profesiones liberales fuera de su cargo, salvo en asuntos estrictamente personales. Tampoco podrán ser miembros de la Junta Directiva, comisiones de trabajo o similares, pero podrán participar en ellas en calidad de asesores, cuando así se considere necesario.

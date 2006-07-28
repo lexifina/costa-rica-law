@@ -1,0 +1,1 @@
+Artículo 30.—Áreas de Auditoría. La Auditoría Interna del Consejo, para el desempeño de sus funciones, se divide en 3 áreas, el Área Administrativa, el Área Operativa y el Área de Staff; las mismas deberán contar con personal especializado y reunir las condiciones de idoneidad profesional requerida para ejercer sus funciones.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la ejecución de la auditoría
+Artículo 50.—Normativas para la ejecución del trabajo. Todas las intervenciones, exámenes o pruebas que realice la Auditoría se harán al amparo de las Normas Internacionales de Auditoría, Ley General de Control Interno, el Manual de Normas Generales de Control Interno para la Contraloría GR y las entidades y órganos sujetos a su fiscalización y el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público, los Manuales Específicos emitidos o que a futuro emita el ente Contralor y las Normas para el Ejercicio Profesional de la Auditoría Interna y demás normativas emitidas o que a futuro emita el Instituto de Auditores Internos de Costa Rica y el Colegio de Contadores Públicos de Costa Rica.

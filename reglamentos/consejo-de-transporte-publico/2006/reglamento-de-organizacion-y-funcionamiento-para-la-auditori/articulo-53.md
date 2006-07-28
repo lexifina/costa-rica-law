@@ -1,0 +1,1 @@
+Artículo 53.—Pericia y debido cuidado profesional. Las personas asignadas a cada trabajo deberán poseer, en conjunto, los conocimientos, técnicas y otras competencias para desempeñar el trabajo adecuadamente.

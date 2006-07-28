@@ -1,0 +1,1 @@
+Artículo 87.—Modificaciones presupuestarias. No podrán hacerse modificaciones presupuestarias que afecten los recursos asignados al desarrollo de las actividades de la Auditoría Interna, sin contarse con el consentimiento del Auditor Interno.

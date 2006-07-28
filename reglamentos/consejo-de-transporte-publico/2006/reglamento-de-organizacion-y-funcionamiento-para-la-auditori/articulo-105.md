@@ -1,0 +1,1 @@
+Artículo 105.—Aprobación del programa de capacitación. Cada año la Auditoría Interna preparará un programa de capacitación y entrenamiento para sus funcionarios, el cual será incluido en el presupuesto ordinario y sometido a la aprobación de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 69.—Responsabilidades. El Auditor Interno o el Oficial de Auditoría asignado a un área de trabajo, son los responsables, en ese orden, del correcto cumplimiento de las funciones encomendadas a la Auditoría Interna. El Auditor Interno podrá delegar autoridad y exigir responsabilidad.

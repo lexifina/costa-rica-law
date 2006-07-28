@@ -1,0 +1,1 @@
+Artículo 98º—Ámbito de Competencia. La Auditoría del Consejo de Transporte Público dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública y lo regulado por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422.

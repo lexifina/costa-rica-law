@@ -1,0 +1,1 @@
+Artículo 81.—Cualidades de la comunicación. Las comunicaciones deben ser precisas, objetivas, claras, concisas, constructivas, completas y oportunas. Si una comunicación final contiene un error u omisión significativos, el Auditor Interno debe comunicar la información corregida a todas las partes que recibieron la comunicación original.

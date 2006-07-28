@@ -1,0 +1,1 @@
+Artículo 36.—Recursos. La Auditoría Interna deberá contar con los recursos humanos, materiales, de transporte, tecnológicos, asesoría técnica, capacitación para el desarrollo profesional de sus funcionarios e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones; de conformidad con el artículo 27 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad sobre el sistema de control interno. La Administración Activa del Consejo, es responsable de establecer, mantener y perfeccionar el sistema de control interno, y la imputación de esa responsabilidad, en lo personal, corresponde a los respectivos jerarcas, según cada estructura organizativa.

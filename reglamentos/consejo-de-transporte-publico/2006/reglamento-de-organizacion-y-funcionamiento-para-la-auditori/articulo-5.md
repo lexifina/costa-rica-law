@@ -1,0 +1,1 @@
+Artículo 5º—Servicios de auditoría. Se realizan distintos tipos de auditoría: operativa, preventiva, administrativa, interna, financiera, de control, y según informe; incluidos los estudios especiales de auditoría.
