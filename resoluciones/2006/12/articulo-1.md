@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 012-SC.—San José, 13 de julio del 2006
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-175-2006, se modifica la Resolución DG-063-2006 del 15 de marzo del 2006, particularmente el artículo 1, se excluya la clase Técnico en Informática 2 y se incluya la clase Técnico de Informática 4. También se modifica su homologa la DG-063-2006 del 15 de marzo del 2006, particularmente el artículo 2 para se excluyan varias clases institucionales de puesto. Además, se modifica la Resolución DG-063-2006 del 15 de marzo del 2006, particularmente el artículo 2, para que se incluyan varias clases institucionales de puesto.
+DG-176-2006, se modifica su homologa la DG-065-98 que aprueba el Manual Institucional de Clases del Ministerio de Ambiente y Energía y sus reformas, con el fin de eliminar las atinencias académicas de la clase Contralor Ambiental del MINAE y se modifica la Resolución DG-069- 2006 en el que se aprueba las especialidades para los diferentes puestos del MINAE, creando la atinencia académica de la clase Contralor Ambiental del MINAE (G. de E.).
+DG-179-2006, se modifica el anexo del artículo 2º de la Resolución DG-221-2004, específicamente el apartado “Ubicación” de la especialidad Forestal.
+DG-180-2006, se modifica el artículo 1º de su homologa la DG-173-2001 en lo referente al contenido de la Clase Coordinador de Proceso de Catastro Nacional particularmente en cuanto al aparte Naturaleza de la Clase.
+DG-183-2006, se modifica el artículo 1º de la Resolución DG-055- 97 del 5 de junio de 1997, que contiene el Manual de Clases Anchas para el Régimen de Servicio Civil, en lo que se refiere a la clase denominada Analista de Sistemas de Información 2 y 3.
