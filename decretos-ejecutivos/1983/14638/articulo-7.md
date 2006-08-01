@@ -1,2 +1,0 @@
-Artículo 7°-La Dirección General de Servicio Civil y la Oficina Técnica Mecanizada no tramitarán acciones de personal en las que se propongan nombramientos con base en las excepciones establecidas en el artículo 4° anterior, si dichas acciones no tienen el "visto bueno" de la Comisión de Recursos Humanos.
-Se excluyen de dicho "visto bueno" las acciones de personal referidas a los incisos a), b) y c) del citado artículo 4°.

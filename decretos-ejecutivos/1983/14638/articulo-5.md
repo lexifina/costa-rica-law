@@ -1,2 +1,0 @@
-Artículo 5°-Las prórrogas de nombramientos interinos en plazas vacantes cesarán en el momento que calificado el servidor interino, no alcanzare Jugar' en la terna respectiva. La Dirección General de Servicio Civil dispondrá del plazo no mayor de 6 meses después de la vigencia de este decreto para calificar a los servidores interinos.
-Se podrá prorrogar el nombramiento de personal interino mientras dure el permiso concedido al titular del puesto y sólo cuando se trate de permisos concedidos en el año 1982.
