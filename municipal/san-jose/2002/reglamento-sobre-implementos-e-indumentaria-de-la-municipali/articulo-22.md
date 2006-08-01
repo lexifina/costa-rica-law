@@ -1,1 +1,0 @@
-Artículo 22.—Todo trabajador deberá informar a su jefe inmediato de cualquier daño, imprudencia, negligencia, error, deficiencia, anomalía o falta, que descubra en el cumplimiento de sus funciones o con ocasión de ésta, en la indumentaria, equipo, maquinaria y herramienta, que haya sido cometido por funcionarios o cualquier persona ajena a la institución municipal.

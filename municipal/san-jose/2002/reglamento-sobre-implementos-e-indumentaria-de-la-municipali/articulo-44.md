@@ -1,1 +1,0 @@
-Artículo 44.—Este reglamento rige a partir de la fecha de su aprobación, pero para su ejecución, corresponde al señor Alcalde Municipal, distribuir un ejemplar del mismo a cada trabajador de la Institución, por lo menos con quince días de anticipación, a su aplicación.

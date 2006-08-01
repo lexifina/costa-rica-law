@@ -1,1 +1,0 @@
-Artículo 32.—La valoración de toda falta en que incurriesen los funcionarios, atenderá para la sanción correspondiente los Principios de Derecho, de casualidad-objetiva y psicológica y de proporcionalidad.

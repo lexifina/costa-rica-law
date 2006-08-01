@@ -1,6 +1,0 @@
-Artículo 40.—Respecto del servidor que incurra en las causales tipificadas como faltas graves en el artículo 81 del Código de Trabajo, sin perjuicio de cualquier otra prevista en las leyes y reglamentos de orden estatutario, laborales, podrá acordarse el despido sin responsabilidad patronal cuando:
-- Se apodere, destruya, inutilice, facilite, transfiera o retenga cualquier maquinaria, herramienta y/o equipo propiedad de la Municipalidad debidamente comprobados.
-- Dañe los aparatos, máquinas, herramienta y/o equipo o los accesorios de las mismas con cualquier propósito.
-- Facilite el uso de la herramienta, maquinaria, equipo y/o indumentaria a funcionarios no autorizados para su uso y/o particulares a cualquier título.
-- Ocultar o destruir información, que contenga registros de la entrega de indumentaria, herramienta, maquinaria y/o equipo, soportes magnéticos y otros medios de trascendencia para la Municipalidad, siempre y cuando los mismos no estén deshabilitados para su uso.
-- La amonestación verbal por primera vez-de la cual se dejará constancia por escrito -, será efectuada por el superior jerárquico del infractor, quien lo hará del conocimiento de la Dirección de Recursos Humanos, para lo que corresponde al plazo de reincidencia.

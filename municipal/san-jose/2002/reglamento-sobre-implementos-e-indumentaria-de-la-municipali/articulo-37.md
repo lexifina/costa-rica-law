@@ -1,2 +1,0 @@
-Artículo 37.—Se sancionará la primera vez, con suspensión sin goce de salario, por tres días, al Jefe que no reporte la permanencia, llegada y/o desapoderamiento por cualquier de sus subalternos, de la indumentaria y/o maquinaria y herramienta que le haya sido entregada por la Institución.
-Suspensión sin goce de salario por cinco días: Cuando por segunda vez, incumpla lo dispuesto en el párrafo anterior y despido sin responsabilidad patronal, cuando por tercera vez incurra en la misma falta.

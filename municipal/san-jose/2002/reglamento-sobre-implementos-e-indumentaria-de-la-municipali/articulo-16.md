@@ -1,1 +1,0 @@
-Artículo 16.—Cada jefatura será responsable de velar que cada uno de sus trabajadores cuenten con los equipos, maquinarias y herramientas suficientes para el buen desenvolvimiento de sus funciones; como de que cumplan con las medidas de seguridad ocupacional.

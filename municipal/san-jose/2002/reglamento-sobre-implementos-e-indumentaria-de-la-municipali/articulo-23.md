@@ -1,1 +1,0 @@
-Artículo 23.—Los trabajadores que hayan recibido bienes, deben responder ante la Municipalidad, por todos los daños y perjuicios que cause por culpa o dolo a la indumentaria, equipo, maquinaria y herramienta; aunque no haya producido daño alguno a terceros en los términos establecidos en el Título Sétimo del Libro Primero de la Ley General de la Administración Pública.

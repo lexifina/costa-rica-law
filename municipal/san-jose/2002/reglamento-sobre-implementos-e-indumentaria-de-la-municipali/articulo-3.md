@@ -1,1 +1,0 @@
-Artículo 3º—El uso de equipo y/o indumentaria proporcionado por la Municipalidad, es de uso obligatorio para todos aquellos trabajadores que los reciban, consecuentemente quienes lo reciben, salvo casos excepcionalmente calificados no podrá dejar de usarlos.

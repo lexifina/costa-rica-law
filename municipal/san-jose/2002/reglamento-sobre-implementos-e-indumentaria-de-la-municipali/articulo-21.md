@@ -1,2 +1,0 @@
-OBLIGACIONES DEL TRABAJADOR
-Artículo 21.—Todo trabajador, que se le haga entrega de equipo, maquinaría o herramientas que se le faciliten para la prestación del servicio, deberá conservarlos en buen estado, brindándoles el mantenimiento respectivo; en el entendido de que no será responsable por su desgaste o deterioro normal, ni por daños debidos a caso fortuito o fuerza mayor, sin perjuicio de la obligación dar aviso inmediato a su supervisor jerárquico correspondiente, como de cualquier avería o menoscabo que sufran dichos bienes.
