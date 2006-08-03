@@ -1,0 +1,1 @@
+Artículo 2º—Será competencia de la Oficina de Planificación Institucional coordinar los procesos de planificación institucionales, así como la formulación y evaluación sistemática de los planes estratégicos, operativos y proyectos, de tal manera que se cuente con la información necesaria para la oportuna toma de decisiones en el Ministerio de Justicia.
