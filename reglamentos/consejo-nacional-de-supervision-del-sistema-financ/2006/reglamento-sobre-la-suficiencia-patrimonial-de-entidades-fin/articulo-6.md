@@ -1,6 +1,7 @@
-Artículo 6º—Capital primario. El capital primario se determina como el monto que resulta de la suma de los elementos indicados en los incisos del a) al e), menos los elementos indicados en los incisos f) y g) de este Artículo:
+Artículo 6º-Capital primario. El capital primario se determina como el monto que resulta de la suma de los elementos indicados en los incisos del a) al e), menos los elementos indicados en los incisos f) y g) de este Artículo:
 a) El capital pagado ordinario, neto de acciones adquiridas por la propia entidad, o los certificados de aportación menos el monto máximo que puede destinarse para cubrir el retiro de los aportes hechos por parte de los asociados para el caso de las cooperativas de ahorro y crédito, al concluir cada ejercicio económico;
-b) El capital pagado preferente de carácter perpetuo con cláusula de dividendo no acumulativo y neto de acciones adquiridas por la propia entidad;
+b) El capital pagado preferente de carácter perpetuo o redimible a opción de la entidad emisora, con cláusula de dividendo no acumulativo y neto de acciones adquiridas por la propia entidad;
+(Así reformado el inciso anterior en sesión N° 594 del 3 de agosto de 2006)
 c) El capital donado;
 d) Las primas en la colocación de acciones netas de descuentos;
 e) La reserva legal;
