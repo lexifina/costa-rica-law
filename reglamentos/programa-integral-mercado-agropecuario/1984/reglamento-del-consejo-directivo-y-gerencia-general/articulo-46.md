@@ -1,5 +1,1 @@
-Artículo 46.—Comunicación de resultados: Las observaciones, sugerencias, conclusiones y recomendaciones de la Auditoria no son vinculantes hasta que la Gerencia y las jefaturas o el Consejo Directivo las acojan o las tengan como base para un acto o decisión.
-La Gerencia y las jefaturas o el Consejo Directivo según corresponda deben pronunciarse sobre la aceptación o rechazo de las recomendaciones de la Auditoría. En primer caso, la Gerencia deberá indicar el responsable de ejecutarlas y señalar un plazo prudencial para su cumplimiento. En caso de rechazo o aceptación parcial, la Gerencia debe justificar su decisión por escrito.
-La misión sobre una recomendación se considera un rechazo injustificado que la Auditoría debe denunciar a. Consejo Directivo.
-En todo caso, la Auditoría está facultada para dar seguimiento a la implantación y ejecución de las recomendaciones aceptadas y debe hacer un informe periódico al Consejo Directivo.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 721 de 24 de setiembre de 1986, publicada en La Gaceta N° 241 de 19 de diciembre de 1986.)
+Artículo 46.— (Derogado mediante Sesión Nº 2515 del 3 de agosto del 2006)

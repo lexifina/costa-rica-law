@@ -1,4 +1,1 @@
-Artículo 39.—Nombramiento y remoción del Auditor: El Auditor es un funcionario de confianza cuyo nombramiento, régimen disciplinario y remoción corresponde al Consejo Directivo.
-El Consejo Directivo elegirá al Auditor con base en concurso público o privado. El Auditor deberá ser graduado de una carrera universitaria en Administración de Empresas o Contaduría, estar incorporado como Contador Público Autorizado y tener experiencia en la dirección de labores de auditoría interna o externa.
-La remoción del Auditor requiere la aprobación de la Contraloría General de la República; y el acuerdo respectivo deberá ser emitido cuando se demuestre que ha incumplido sus deberes o incurrido en falla o causal que lo amerite según las leyes y reglamentos aplicables.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 721 de 24 de setiembre de 1986, publicada en La Gaceta N° 241 de 19 de diciembre de 1986.)
+Artículo 39.— (Derogado mediante Sesión Nº 2515 del 3 de agosto del 2006)

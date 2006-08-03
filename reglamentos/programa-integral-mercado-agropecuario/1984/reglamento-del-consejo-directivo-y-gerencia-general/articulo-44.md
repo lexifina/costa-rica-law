@@ -1,4 +1,1 @@
-Artículo 44.—Ejecución de labores: La Auditoría debe ejecutar su trabajo de acuerdo con el Manual sobre Normas Técnicas de Auditoria de la Contraloría General de la República, el Manual para el Ejercicio de la Auditoría Interna; las normas principios y procedimientos adoptados por el Colegio de Contadores Públicos que sean aplicables.
-Tienen la potestad de utilizar según las circunstancias, la técnica de auditoria que satisfaga en mejor forma las necesidades de los exámenes y verificaciones que lleve a cabo.
-Se debe formular y mantener actualizado y en uso un Manual de Procedimientos de Auditoría que defina las características y procesos de auditoría aplicables en la Institución.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 721 de 24 de setiembre de 1986, publicada en La Gaceta N° 241 de 19 de diciembre de 1986.)
+Artículo 44.— (Derogado mediante Sesión Nº 2515 del 3 de agosto del 2006)
