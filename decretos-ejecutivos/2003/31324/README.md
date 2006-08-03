@@ -14,3 +14,4 @@ Plan Nacional de Desarrollo del Ministerio de Planificación Nacional y Polític
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-21 | la propia norma |
+| 2 | 2006-08-03 | Decreto Ejecutivo 33342 (2006-08-03) |
