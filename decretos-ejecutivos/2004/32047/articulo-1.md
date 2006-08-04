@@ -10,8 +10,10 @@ DECRETAN:
 Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos d) y e) y punto 2, incisos e) y k) del Decreto Nº 31126-MINAE, para que en su defecto se lea:
 1. Miembros propietarios:
 d) Fanny Levin Picado, representante de la Ministra de Salud.
+(Así reformado el inciso anterior por el artículo 3 del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
 e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 2. Miembros suplentes:
-e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
+e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
 k. Pablo Sibar Sibar, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
-(Así reformado el punto punto 1, inciso d) y 2, inciso k) por Artículo 3 del Decreto Ejecutivo 32803 del 4 de noviembre del 2005)
+(Así reformado el inciso por artículo 3 del Decreto Ejecutivo 32803 del 4 de noviembre del 2005)
