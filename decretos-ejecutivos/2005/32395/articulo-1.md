@@ -10,5 +10,5 @@ Considerando:
 5°—Que mediante STAP No 0467-05 del 6 de abril del 2005, se le comunicó al Teatro Popular Mélico Salazar, el gasto presupuestario máximo fijado para el año 2006.
 6°—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Teatro Popular Mélico Salazar para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1°—Modifícase el gasto presupuestario máximo del año 2006 establecido al Teatro Popular Mélico Salazar, en el artículo 1° del Decreto Ejecutivo No 32270-H, y sus reformas, publicado en La Gaceta N° 54, del 17 de marzo del 2005, fijándolo en ¢*929.60 millones.
-(Así reformado el monto anterior por el artículo 1° del Decreto Ejecutivo N° 32745 del 18 de octubre de 2005).
+Artículo 1°—Modifícase el gasto presupuestario máximo del año 2006 establecido al Teatro Popular Mélico Salazar, en el artículo 1° del Decreto Ejecutivo No 32270-H, y sus reformas, publicado en La Gaceta N° 54, del 17 de marzo del 2005, fijándolo en ¢1.039.600.000 millones (mil treinta y nueve millones seiscientos mil colones) para ese período.
+(Así reformado el monto anterior por el artículo 1° del Decreto Ejecutivo N° 33290 del 4 de agosto del 2006).

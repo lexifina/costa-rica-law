@@ -15,3 +15,4 @@ Reforma Directrices de política presupuestaria para las entidades públicas, mi
 | --- | --- | --- |
 | 1 | 2005-06-06 | la propia norma |
 | 2 | 2005-10-18 | Decreto Ejecutivo 32745 (2005-10-18) |
+| 3 | 2006-08-04 | Decreto Ejecutivo 33290 (2006-08-04) |
