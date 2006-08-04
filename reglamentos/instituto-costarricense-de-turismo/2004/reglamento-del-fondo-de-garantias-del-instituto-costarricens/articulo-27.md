@@ -1,2 +1,4 @@
-Artículo 27.—Informes anuales. La Junta Administradora rendirá, a más tardar el 15 de junio de cada año en asamblea general ordinaria, un informe con los resultados del periodo anterior y los Estados Financieros auditados al 31 de diciembre del año anterior, cuando corresponda.
-(Así reformado en sesión N° 5400 del 14 de febrero del 2006)
+Artículo 27.—De los Registros. La contabilidad del Fondo deberá llevarse de conformidad con los Principios de Contabilidad Generalmente Aceptados y las Normas Internacionales de Contabilidad. Deberán llevarse los registros o cuentas mayores y auxiliares, que sean necesarios para determinar en forma oportuna, la situación financiera mensual y anual del Fondo en general y de cada afiliado en particular. Deberá llevar como mínimo las cuentas con saldos individuales de cada afiliado, que incluyan por separado:
+a) Aporte patronal
+b) Aporte laboral
+c) Ingresos por intereses generados por los aportes al Fondo.

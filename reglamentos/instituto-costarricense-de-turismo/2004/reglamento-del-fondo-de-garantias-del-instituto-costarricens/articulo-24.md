@@ -1,3 +1,1 @@
-CAPÍTULO VII
-Fiscalización y Contabilidad del Fondo
-Artículo 24.—Fiscalización. La Administración y la contabilidad del Fondo estarán sujetas a las intervenciones que la Auditoría Interna estime pertinentes, de conformidad con el artículo 35 de la Ley Orgánica del Instituto y la Junta deberá contratar una auditoría externa cuando menos cada dos años.
+Artículo 24.—Liquidación anual de excedentes y del aporte laboral. Los intereses que generen los préstamos a los afiliados y los que se reciban de las inversiones que realice el Fondo, se registrarán como ingresos ordinarios del Fondo y se liquidarán como excedentes en forma anual, conjuntamente con el aporte laboral, con corte al 30 de mayo de cada año. En Asamblea General Ordinaria se declararán los excedentes y se acordará su distribución. El pago de los excedentes y la devolución del aporte laboral se harán cuando máximo, a más tardar el 30 de junio de cada año.

@@ -1,1 +1,4 @@
-Artículo 29.—Del trámite de los beneficios. La Junta Administradora establecerá el trámite a seguir en las solicitudes y la documentación, para hacer efectivos los beneficios comprendidos en este Reglamento, siendo obligación de todos los afiliados acatar dichas disposiciones.
+CAPÍTULO VIII
+Otras Disposiciones
+Artículo 29.—Del lugar de pago de los beneficios. Todo pago por concepto de los beneficios que establece este Reglamento se efectuará en las oficinas del Instituto al afiliado o al beneficiario, dejando constancia de recibido en el cheque correspondiente.
+En caso de que la persona interesada estuviera imposibilitada para recibir los beneficios que le corresponden, la Junta podrá autorizar el pago, a la quien tenga facultad recibirlo.
