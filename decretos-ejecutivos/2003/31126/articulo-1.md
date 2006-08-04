@@ -38,8 +38,8 @@ b) Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacio
 c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 d) Señor Jorge Mena Arce, representante del Ministro de Salud.
-e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
-(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
+e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
 f) Félix Díaz Rivera, representante de la Asociación Mesa Nacional Campesina.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006).
 g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
