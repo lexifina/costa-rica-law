@@ -1,5 +1,6 @@
 (Anulada)
 Nº 8136
+(Anulada esta ley mediante resolución de la Sala Constitucional N° 011346-2006, de las nueve horas con cincuenta minutos, del cuatro de agosto del 2006.)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 Decreta:
