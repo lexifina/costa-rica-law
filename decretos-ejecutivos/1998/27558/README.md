@@ -16,3 +16,4 @@ Reglamento a Ley de Desarrollo Social y Asignaciones Familiares
 | 1 | 1999-01-01 | la propia norma |
 | 2 | 1999-04-14 | Decreto Ejecutivo 27794 (1999-04-14) |
 | 3 | 2005-04-14 | Decreto Ejecutivo 32330 (2005-04-14) |
+| 4 | 2006-08-04 | Decreto Ejecutivo 33309 (2006-08-04) |
