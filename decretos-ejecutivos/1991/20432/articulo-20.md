@@ -1,1 +1,0 @@
-Artículo 20.—Las diferencias en criterios socioeconómicos que existieran entre los órganos del Sistema serán resueltos por el Ministro de MIDEPLAN y en caso de un conflicto entre un órgano del Sistema y MIDEPLAN, por el Presidente de la República.

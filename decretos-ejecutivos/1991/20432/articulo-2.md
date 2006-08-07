@@ -1,1 +1,0 @@
-Artículo 2°—Corresponderá al Gobierno por medio de los ministros propiciar, dirigir y coordinarla participación de los funcionarios de las instituciones centralizadas y descentralizadas en las disposiciones organizativas del presente Decreto.

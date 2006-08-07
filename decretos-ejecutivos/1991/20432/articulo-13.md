@@ -1,1 +1,0 @@
-Artículo 13.—Los Vicepresidentes de los Consejos Regionales de Desarrollo tendrán además de sus funciones regulares como miembro de la Junta Directiva, la de sustituir y asumir las responsabilidades del Presidente en caso de ausencia de éste.
