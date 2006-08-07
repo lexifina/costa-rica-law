@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+El Concejo Municipal de Santa Bárbara de Hereda, mediante acuerdo Nº 57-06, tomado en la sesión ordinaria Nº 4, artículo Nº 4º, celebrada el día 23 de mayo del 2006, acuerda adherirse a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el alcance 48, de La Gaceta Nº 243, del 16 de diciembre del 2005, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda para efectos del cálculo de los valores de las construcciones, instalaciones y obras complementarias con el objeto del cobro del impuesto sobre bienes inmuebles, todo conforme a la Ley 7509 y sus reformas.
+Santa Bárbara de Heredia, 24 de julio del 2006.
