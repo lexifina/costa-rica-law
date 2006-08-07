@@ -1,0 +1,1 @@
+Artículo 52.—Para efecto de la aplicación de los artículos 50 y 51 toda persona física o jurídica está obligada a prestar la colaboración necesaria a los funcionarios del Ministerio autorizados. Además la Junta podrá solicitar el apoyo de funcionarios del Instituto Costarricense sobre Drogas si así lo considera necesario.

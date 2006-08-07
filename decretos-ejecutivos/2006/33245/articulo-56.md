@@ -1,0 +1,1 @@
+Artículo 56.—Los regentes farmacéuticos autorizados que laboren en los laboratorios que fabriquen estupefacientes y psicotrópicos, deberán presentar un informe mensual de producción ante la Dirección.

@@ -1,0 +1,1 @@
+Artículo 43.—Los interesados en la importación, exportación y tránsito por el territorio nacional de estupefacientes ó psicotrópicos, requerirán de la licencia respectiva que los acredite para el desarrollo de dicha actividad.

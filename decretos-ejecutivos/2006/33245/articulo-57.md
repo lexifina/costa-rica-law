@@ -1,0 +1,1 @@
+Artículo 57.—La Junta delegará en la Dirección las inspecciones y verificaciones de los inventarios de las existencias de estupefacientes en el establecimiento farmacéutico autorizado para su depósito, por lo menos una vez cada semestre, sin perjuicio de hacerlo cuando lo considere necesario.

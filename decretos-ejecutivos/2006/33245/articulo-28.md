@@ -1,0 +1,1 @@
+Artículo 28.—Para los efectos del artículo 26 el Colegio de Farmacéuticos de Costa Rica deberá enviar la nómina actualizada de los regentes farmacéuticos, así como el nombre y ubicación de los establecimientos en los cuales ejercen su regencia a solicitud de la Dirección.

@@ -1,0 +1,1 @@
+Artículo 29.—Para prescribir y dispensar estupefacientes y psicotrópicos, las personas profesionales en medicina, odontología, veterinaria y farmacia, según corresponda, deberán previamente registrar sus firmas en la Dirección, la cual mantendrá registros actualizados para su control.

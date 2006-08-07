@@ -1,0 +1,1 @@
+Artículo 47.—Se decomisará toda mercadería que contenga estupefacientes o psicotrópicos, que haya sido importada sin el permiso y la autorización de la Junta, o que no se ajuste a lo estipulado en este Reglamento. Asimismo, será objeto de decomiso las mercaderías de esta naturaleza cuyo manejo no se ajuste a lo establecido en la normativa vigente.

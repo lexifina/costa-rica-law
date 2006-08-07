@@ -1,0 +1,1 @@
+Artículo 38.—Será responsabilidad de la Junta proponer la normativa para regular el uso de las drogas psicotrópicas y estupefacientes en concordancia con la legislación vigente. La Junta deberá revisar periódicamente la lista de estupefacientes y psicotrópicos, y quedará a su criterio la inclusión de nuevas drogas.

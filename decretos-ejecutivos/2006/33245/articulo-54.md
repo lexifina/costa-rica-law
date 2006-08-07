@@ -1,0 +1,1 @@
+Artículo 54.—Los regentes farmacéuticos autorizados que laboren en aquellas farmacias que manejan estupefacientes y psicotrópicos, presentarán a la Dirección informes mensuales o trimestrales, respectivamente, del movimiento de estas sustancias.
