@@ -1,5 +1,5 @@
 ANEXO 12
-REQUISITOS MINIMOS PARA LA ELABORACI6N DEL ESTUDIO
+REQUISITOS MINIMOS PARA LA ELABORACION DEL ESTUDIO
 TECNICO PARA EL PAGO DE LOS SERVICIOS AMBIENTALES
 DE PROTECCION DEL BOSQUE
 1.DESCRIPCION GENERAL
@@ -28,5 +28,6 @@ DE PROTECCION DEL BOSQUE
 1.8.2. Coordenadas horizontales (Proyección Lambert).
 1.9. Copia del plano catastrado certificado por notario publico
 y ubicación en la hoja cartográfica 1:50.000 (este ultimo requisito en caso de que el piano catastrado no cuente con la cuadricula de ubicación respectiva).
-1.10. Instalación de letreros preventivos (rotulaci6n).
-Nota: Adjuntar al estudio técnico el respectivo contrato de regencia vigente. Adjuntar la certificación de área efectiva de PSA.
+1.10. Instalación de letreros preventivos (rotulación). El rótulo debe contener nombre del beneficiario(a), modalidad, área PSA sometida y Nº de Contrato Forestal.
+Nota: Adjuntar al estudio técnico el respectivo contrato de regencia vigente. Para contratos de regencia de ONG´s debe incluir listado de beneficiarios (as) sellado por el Colegio de Ingenieros Agrónomos. Adjuntar la certificación de área efectiva de PSA en papel sellado y timbres respectivos, según el Anexo 15 del Manual PSA 2005 y los criterios incluidos en este manual.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).

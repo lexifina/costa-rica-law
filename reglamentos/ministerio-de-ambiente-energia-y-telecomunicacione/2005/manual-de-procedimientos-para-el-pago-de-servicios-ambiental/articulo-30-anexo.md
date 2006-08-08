@@ -18,11 +18,10 @@ __________________________________________________
 __________________________________________________
 __________________________________________________
 3. OBSERVACIONES DE CAMPO:
-3.1. Estado del Sistema Agroforestal: (Se debe indicar el vigor, crecimiento y desarrollo de la especie forestal cultivada, estado del cultivo agronómico. Dependiendo del tipo de SAF establecido indicar en que se usa el follaje producido, estimación de la producción de leña, estado y especies de las cercas vivas, cobertura y distribución de los árboles dispersos, protección del ramoneo).
-_________________________________________________
-_________________________________________________
-_________________________________________________
-3.2. Estado .tosanitario: (Indicar la presencia de insectos o patógenos perjudiciales para los árboles plantados en el SAF).
+3.1. Estado del Sistema Agroforestal: (Se debe indicar el vigor, crecimiento y desarrollo de la especie forestal cultivada indicando nombre común y científico de la especie y el estado del cultivo agronómico). Dependiendo del tipo de SAF establecido indicar en que se usa el follaje producido, estimación de la producción de leña, estado y especies de las cercas vivas, cobertura y distribución de los árboles dispersos, protección del ramoneo).
+Nota: En caso de estudios conjuntos, deberá aportar informe por cada beneficiario. El informe de regencia debe presentarse en papel de seguridad.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
+3.2. Estado fitosanitario: (Indicar la presencia de insectos o patógenos perjudiciales para los árboles plantados en el SAF).
 _________________________________________________
 _________________________________________________
 _________________________________________________

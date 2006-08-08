@@ -17,10 +17,9 @@ __________________________________________________
 __________________________________________________
 __________________________________________________
 3. OBSERVACIONES DE CAMPO:
-3.1. Estado de la plantación forestal: (Se debe indicar área por especie reforestada, vigor, crecimiento y desarrollo de la especie), o regeneración natural en sitios en vías de recuperación. En proyectos multietapas se debe elaborar un informe de regencia por cada etapa de reforestación.
-_________________________________________________
-_________________________________________________
-_________________________________________________
+3.1. Estado de la plantación forestal: (Se debe indicar área por especie reforestada indicando nombre común y científico, vigor, crecimiento y desarrollo de la especie), o regeneración natural en sitios en vías de recuperación o indicar estado del recurso incluido en proyectos en Tierras Kyoto. En proyectos multietapas se debe elaborar un informe de regencia por cada etapa de reforestación. En proyectos con bloques con varias especies, indicar área promedio por cada especie.
+Nota: En caso de estudios conjuntos, deberá aportar informe por cada beneficiario. El informe de regencia debe presentarse en papel de seguridad.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 3.2. Estado .tosanitario: (Indicar la presencia de insectos o patógenos perjudiciales para la plantación forestal).
 _________________________________________________
 _________________________________________________

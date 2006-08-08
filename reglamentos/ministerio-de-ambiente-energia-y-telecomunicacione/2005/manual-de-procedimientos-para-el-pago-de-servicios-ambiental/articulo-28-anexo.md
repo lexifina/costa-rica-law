@@ -52,4 +52,5 @@ O REPRESENTANTE LEGAL
 cc. Administración Forestal del Estado
 Colegio de Ingenieros Agrónomos
 Regente
-NOTA: En caso de estudios conjuntos, deberá aportar informe por cada beneficiario
+Nota: En caso de estudios conjuntos, deberá aportar un informe por cada beneficiario. El informe de regencia debe presentarse en papel de seguridad.
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).

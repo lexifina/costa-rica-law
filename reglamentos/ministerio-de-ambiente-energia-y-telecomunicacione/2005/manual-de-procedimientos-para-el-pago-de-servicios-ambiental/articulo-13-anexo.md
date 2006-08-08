@@ -33,7 +33,8 @@ Objetivos y naturaleza del Estudio Técnico.
 3. CONDICIONES FISICAS Y ECOLOGICAS
 3.1. Topografía.
 3.2. Suelos.
-3.2.1. Descripción de campo en cuanto a profundidad, textura, pedregosidad y rocosidad, drenaje superficial e interno hasta un metro de profundidad, riesgos de inundación.
+3.2.1. Descripción de campo en cuanto a profundidad, textura, pedregosidad y rocosidad, drenaje superficial e interno hasta un metro de profundidad, riesgos de inundación. Se anexa el estudio suelos de las fincas sometidas a PSA.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 3.3. Clima.
 3.3.1. Precipitación (distribución anual-meses secos).
 3.3.2. Temperatura.
@@ -50,19 +51,24 @@ Descripción de red de drenajes naturales, ríos, quebradas, embalses, suampos, 
 5.1. Ubicación del área a reforestar, por etapas y por especie según corresponda. Procedencia de material vegetativo por especie (cuadro).
 Para plantaciones por establecer se exigirá el uso de semilla certificada para aquellas especies en que exista semilla disponible para cubrir la demanda total del país. Para esto la Oficina Nacional de Semillas mantendrá informada al FONAFIFO, los regentes forestales y el sector forestal de la disponibilidad de este material.
 . 5.2 Densidad de plantación según bloque o especie.
-(La densidad mínima a establecer en una plantación es de 800 árboles por hectárea, únicamente se aceptaran densidades menores cuando se pueda demostrar fehacientemente que el material vegetativo a utilizar cuenta con un grado de mejora genética, que justifique una densidad menor).
-Para plantaciones establecidas mediante otros métodos, se exigirá un mínimo de 800 árboles por hectárea, con al menos 3 metros de altura, con condiciones fenotipicas de los mejores individuos (fuste recto, copa completa, sin problemas fitosanitarios, un rebrote por tocón) y se debe detallar las actividades de manejo aplicado a estas plantaciones. La certificación del regente debe indica la densidad, fecha estimada de plantación y condiciones fenotipicas de los mejores individuos e incluir los siguientes aspectos:
-· Aplica solo para la especie melina:
-· Plantaciones en donde se certifique material genético adecuado en la plantación original.
-· Cosechas certificadas superiores al promedio nacional (mas de 100 m3 en la cosecha).
-· Certificación que al menos 200 árboles de la primera cosecha fueron de clase 1.
-· Descripción de la preparación del terreno según bloque.
+(La densidad mínima a establecer en una plantación es de 800 árboles por hectárea, únicamente se aceptarán densidades menores cuando se pueda demostrar fehacientemente que el material vegetativo a utilizar cuenta con un grado de mejora genética, que justifique una densidad menor).
+Para plantaciones establecidas mediante otros métodos, se exigirá un mínimo de 800 árboles por hectárea, con una altura promedio de un metro de altura, con condiciones fenotípicas de los mejores individuos (fuste recto, copa completa, sin problemas fitosanitarios, un rebrote por tocón o regeneración natural) y se debe detallar las actividades de manejo aplicado a estas plantaciones. La certificación del regente debe indica la densidad, fecha estimada de plantación y condiciones fenotípicas de los mejores individuos e incluir los siguientes aspectos:
+• Aplica solo para la especie melina (Gmelina arborea).
+• Plantaciones en donde se certifique material genético adecuado en la plantación original.
+• Cosechas certificadas superiores al promedio nacional (más de 100 m3 en la cosecha).
+• Certificación que al menos 200 árboles de la primera cosecha fueron de clase 1.
+• Descripción de la preparación del terreno según bloque.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 5.3 Programación de actividades silviculturales (chapeas, rodajeas, selección de individuos podas, raleos) hasta el tumo de cosecha según especie. Con una programación trimestral durante los primeros dos anos, semestral para los tres anos siguientes y anual hasta el final del tumo, para cada especie.
 5.4 Descripción de la regeneración natural en sitios en vías de recuperación de bosque, considerando los siguientes parámetros:
+(Así reformado el inciso anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 5.4.1.Sitio en abandono al menos con un ano y libre de pastoreo.
 5.4.2.Área mínima considerada en sitios en vías de recuperación es de 2 hectáreas.
-5.4.3.Regeneración natural mínima de 1240 brinzales de especies comerciales por hectárea o/y 720 latizales comerciales por hectáreas, dependiendo de la edad de iniciado el proceso de regeneración natural. Las especies aceptadas en sitios en vías de recuperación, así como, las definiciones de estos tipos de vegetación indicadas en el anexo 32. No se cuantificaran en estos tipos de vegetación, los árboles y palmas remanentes de bosque primario ni tocones con rebrotes múltiples. La densidad de árboles remanentes no debe sobrepasar los 5 individuos por hectárea. Descripción de labores de manejo.
-5.4.4. Certificación indicando densidad de brinzales o/ y latizales comerciales, especies aceptadas según manual, edad estimada de iniciado el proceso de regeneración natural, sin problemas fitosanitarios y con características fenotipicas como: fuste recto y copas completas, remanencia (anexo 32).
+5.4.3.Regeneración natural mínima de 1240 brinzales de especies comerciales por hectárea o/y 720 latizales comerciales por hectáreas, dependiendo de la edad de iniciado el proceso de regeneración natural. Las especies aceptadas en sitios en vías de recuperación, así como, las definiciones de estos tipos de vegetación indicadas en el anexo 32. No se cuantificarán en estos tipos de vegetación, los árboles y palmas remanentes de bosque primario ni tocones con rebrotes múltiples. La densidad de árboles remanentes no debe sobrepasar los 5 individuos por hectárea. Descripción de labores de manejo.
+En proyectos de regeneración natural en pastos y potreros, que se podrán realizar solo en áreas definidas como Tierras Kyoto, que hayan sido deforestadas antes del 31 de diciembre de 1989 y que se ubiquen en las Regiones Chorotega, Pacífico Central y Brunca del país según la regionalización administrativa de MIDEPLAN, se incluye descripción del recurso.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
+5.4.4. Certificación indicando densidad de brinzales o/y latizales comerciales, especies aceptadas según manual, edad estimada de iniciado el proceso de regeneración natural, sin problemas fitosanitarios y con características fenotípicas como: fuste recto y copas completas, remanencia (anexo 32). Indicar condiciones del recurso en los proyectos incluidos en Tierras Kyoto. La certificación del regente forestal debe indica la densidad, fecha estimada de plantación, condiciones fenotípicas de la plantación en plantaciones establecidas mediante otros métodos. Certificando además, el material genético de la especie la cosecha superior al promedio nacional y calidad de la primera cosecha.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 5.5. En proyectos de reforestación multietapas, se considera los siguientes parámetros:
 5.5.1. Área total de proyecto no supera los trescientas hectáreas por ano.
 5.5.2. Cronograma de actividades indicando el área a plantar anual durante los cinco anos y su plan de manejo por cada etapa.
@@ -72,7 +78,9 @@ Para plantaciones establecidas mediante otros métodos, se exigirá un mínimo d
 Los puntos siguientes, solo deberán presentarse para zonas de
 mediano o alto riesgo.
 6.2. Establecimiento de cortafuegos artificiales.
-6.3. Instalación de letreros preventivos (rotulación).
+6.3.Instalación de letreros preventivos (rotulación). El rótulo debe contener nombre del beneficiario(a), modalidad, área PSA sometida y Nº de Contrato Forestal.
+Nota: Adjuntar al estudio técnico el respectivo contrato de regencia vigente. Para contratos de regencia de ONG´s debe incluir listado de beneficiarios (as) sellado por el Colegio de Ingenieros Agrónomos. Adjuntar la certificación de área efectiva de PSA en papel de sellado y timbres respectivos, según el Anexo 15 del Manual PSA 2005 y los criterios incluidos en este manual.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 6.4. Otros según criterio del técnico.
 7. PLANDEPREVENCIONCONTRAPLAGASYENFERMEDADES FORESTALES
 Programación de actividades preventivas y de control de plagas enfermedades en las diferentes etapas de desarrollo del proyecto de reforestación (vivero, establecimiento, desarrollo y aprovechamiento).

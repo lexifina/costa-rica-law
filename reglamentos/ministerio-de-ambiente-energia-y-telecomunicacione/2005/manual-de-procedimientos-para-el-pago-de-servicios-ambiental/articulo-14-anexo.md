@@ -34,7 +34,8 @@ Red de caminos actuales y por establecer (ubicación aproximada en el piano de l
 3. CONDICIONES FISICAS Y ECOLOGICAS
 3.1. Topografía.
 3.2. Suelos.
-3.2.1.Descripción de campo en cuanto a profundidad, textura, pedregosidad y rocosidad, drenaje superficial e interno o hasta un metro de profundidad, riesgos de inundación.
+3.2.1.Descripción de campo en cuanto a profundidad, textura, pedregosidad y rocosidad, drenaje superficial e interno hasta un metro de profundidad, riesgos de inundación. Se anexa estudio de suelos de las fincas con proyectos SAF superiores a 1000 árboles por finca.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 3.3. Clima.
 3.3.1. Precipitación (distribución anual-meses secos).
 3.3.2. Temperatura.
@@ -46,7 +47,8 @@ Red de caminos actuales y por establecer (ubicación aproximada en el piano de l
 3.4.2. Uso actual y anterior (cultivos, pastoreo, bosque, otros).
 3.4.3. Capacidad de uso del suelo.
 4. DESCRIPCION DEL PROYECTO
-4.1. Tipo de SAF a establecer (especies de árboles, densidades por ha o km, numero de árboles total y por especie), debe indicarse cuales de los tipos de SAF son los que se van a establecer en el sitio, ya sean de árboles maderables o árboles de uso múltiple (AUM) con cultivos perennes, árboles maderables en hileras, cortinas rompevientos, plantaciones en bloque de menos de una hectárea (ver anexo 1). Se debe incluir una descripción del componente agropecuario.
+4.1. Tipo de SAF a establecer (especies de árboles, densidades por ha o km, número de árboles total y por especie), debe indicarse cuáles de los tipos de SAF son los que se van a establecer en el sitio, ya sean de árboles maderables o árboles de uso múltiple (AUM) con cultivos perennes, árboles maderables en hileras, cortinas rompevientos, plantaciones en bloque de menos de una hectárea (ver anexo 1). Se debe incluir una descripción del componente agropecuario. Se debe agregar descripción de los cultivos perennes permitidos en SAF, tales como: café, cacao, plátano, cítricos, palmito, palma aceitera y pasto. Incorporar la variedad de cultivos, distanciamientos y densidad de siembra (árboles y cultivos) y calendario de actividades.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 4.2. Descripción y ubicación del SAF por etapas y por especie según corresponda (presentar mapa de etapas de plantación).
 4.3. Material vegetativo, se exigirá el uso de semilla certificada para aquellas especies en que exista semilla disponible para cubrir la demanda total del país. Para esto la Oficina Nacional de Semillas mantendrá informada a la Administración Forestal del Estado, los regentes forestales y el sector forestal de la disponibilidad de este material.
 4.4. Justificación de la (s) especie (s).
@@ -62,7 +64,9 @@ Los puntos siguientes, solo deberán presentarse para zonas de mediano o alto ri
 5.3. Establecimiento de cortafuegos artificiales.
 5.4. Tratamiento del combustible residual, producto de desechos
 del SAF por prácticas silviculturales (limpias, podas y firaleos).
-5.5. Instalación de letreros preventivos (rotulación).
+5.5. Instalación de letreros preventivos (rotulación). El rótulo debe contener nombre del beneficiario(a), modalidad, árboles SAF sometidos y Nº de Contrato Forestal.
+Nota: Adjuntar al estudio técnico el respectivo contrato de regencia vigente. Para contratos de regencia de ONG´s debe incluir listado de beneficiarios (as) sellado por el Colegio de Ingenieros Agrónomos. Adjuntar la certificación de área efectiva de PSA en papel de sellado y timbres respectivos, según el Anexo 15 del Manual PSA 2005 y los criterios incluidos en este manual.
+(Así reformado el punto anterior y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
 6. PLAN DE PREVENCIÓN CONTRA PLAGAS Y ENFERMEDADES FORESTALES
 Programación de actividades preventivas y de control de plagas y enfermedades en las diferentes etapas de desarrollo del estudio técnico (vivero, establecimiento, mantenimiento y labores silviculturales).
 7. SEGUIMIENTO DEL PLAN

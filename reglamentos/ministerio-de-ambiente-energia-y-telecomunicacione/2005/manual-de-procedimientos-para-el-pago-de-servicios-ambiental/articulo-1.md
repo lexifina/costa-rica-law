@@ -12,4 +12,5 @@ DE FINANCIAMIENTO FORESTAL
 emite el siguiente:
 MANUAL DE PROCEDIMIENTOS PARA
 EL PAGO DE SERVICIOS AMBIENTALES
-1º—Objetivo. Establecer los procedimientos que se aplicarán en el Pago de los Servicios Ambientales (PSA) generados por los bosques y plantaciones forestales del país, mediante el fomento de las actividades de reforestación, protección de la cobertura boscosa y plantación de árboles forestales en sistemas agroforestales (SAF), pagados con recursos provenientes del Presupuesto Nacional, de los Proyectos Ecomercados y Forestal Huetar Norte; y de cualquier otro donante o inversionista que no establezca condiciones diferentes, a las establecidas en este Manual.
+1º—Objetivo. Establecer aclaraciones y procedimientos que se aplicarán en el trámite de Pago de los Servicios Ambientales (PSA) generados por los bosques y plantaciones forestales del país, mediante el fomento de las actividades de reforestación, protección de la cobertura boscosa y plantación de árboles forestales en sistemas agroforestales (SAF), pagados con recursos provenientes del Presupuesto Nacional y de cualquier otro donante o inversionista que no establezca condiciones diferentes.
+(Así reformado y publicado en La Gaceta N° 151 del 8 de agosto del 2006).
