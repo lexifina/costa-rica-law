@@ -1,1 +1,0 @@
-Artículo 19.—Del refrendo del contrato. Todo contrato de estimación superior a los cuatro millones de colones debe ser refrendado oportunamente por el Departamento de Asesoría Legal, posterior a la firma del representante legal de la Asamblea Legislativa.

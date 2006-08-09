@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El alcance de la contratación de servicios profesionales y técnicos será de aplicación por parte de la Administración, únicamente para cubrir necesidades de excepcionalidad, ocasionales y solo se podrá realizar en plazos máximos de un año sin renovación y sin que excedan el plazo constitucional en que se aprueban.

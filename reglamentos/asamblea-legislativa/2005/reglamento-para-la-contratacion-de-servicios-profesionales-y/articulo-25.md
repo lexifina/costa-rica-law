@@ -1,1 +1,0 @@
-Artículo 25.—Del contratista. Cumplir, con las especificaciones estipuladas en el contrato según los términos de referencia y presentar los informes correspondientes de avance de resultados y el final.
