@@ -1,2 +1,0 @@
-Artículo 7°—Para los efectos de este Reglamento, los reportes de laboratorio de análisis de aguas residuales deberán provenir de Laboratorios Habilitados por el Ministerio de Salud en los ensayos respectivos, de acuerdo con la legislación vigente (artículo 8 de la Ley No 7472, decreto que emite las Normas 45000 y decreto No 24662-MEIC-S-MAG-MIRENEM-MOPT-PLAN del 27 de setiembre de 1995 "Sistema Nacional de la Calidad").
-(Reformado por Artículo 1° del Decreto Ejecutivo N° 28290 del 20 de octubre de 1999)

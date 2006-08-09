@@ -1,1 +1,0 @@
-Artículo 39.—Se prohibe el vertido de lodos provenientes de sistemas de tratamiento de aguas residuales y de tanques sépticos a los cuerpos de agua. Para estos efectos regirán las disposiciones que al respecto emita el Ministerio de Salud.

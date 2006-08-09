@@ -1,1 +1,0 @@
-Artículo 26.—Cualquier agua residual de tipo especial que sea vertida en un alcantarillado sanitario, deberá cumplir con los límites contenidos en la Tabla 5 del Apéndice, la cual forma parte integrante de este Reglamento.

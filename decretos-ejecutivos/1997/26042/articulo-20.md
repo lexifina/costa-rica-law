@@ -1,1 +1,0 @@
-Artículo 20.—Para la vigilancia de los vertidos de aguas residuales de tipo especial, las frecuencias mínimas de muestreo y análisis serán las establecidas en la Tabla 3 del Apéndice, que es parte integral del presente Reglamento.

@@ -1,1 +1,0 @@
-Transitorio 1°—Durante el período de seis meses a partir de la fecha de publicación del presente Reglamento, todo ente generador con excepción de las viviendas, deberá presentar su primer reporte operacional ante las entidades indicadas en el artículo 4.

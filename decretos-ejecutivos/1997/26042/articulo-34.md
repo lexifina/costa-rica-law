@@ -1,1 +1,0 @@
-Artículo 34.—Los proyectos de reúsos no especificados en el artículo anterior serán analizados y aprobados en cada caso particular por la División de Saneamiento Ambiental del Ministerio de Salud y el Ministerio del Ambiente y Energía.

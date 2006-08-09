@@ -1,1 +1,0 @@
-Artículo 40.—Se prohibe el vertido en cuerpos de agua o en cualquier sistema de alcantarillado, de materia que pudiera obstaculizar en forma significativa el flujo libre del agua, formar vapores o gases tóxicos, explosivos o de mal olor, o que pudieran deteriorar los materiales y equipos que conforman dicho sistema. Se prohibe también la inyección de gases.

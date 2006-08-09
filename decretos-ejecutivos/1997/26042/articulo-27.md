@@ -1,2 +1,0 @@
-Artículo 27.—Las aguas residuales de tipo ordinario que se viertan en un cuerpo receptor, deberán cumplir con los límites contenidos en la Tabla 6 del Apéndice, la cual forma parte integrante de este Reglamento. Además de esto, las concentraciones de Demanda Bioquímica de Oxígeno (DBO^ 20) y de Sólidos Suspendidos Totales (SST) no podrán superar los 50 mg/l.
-(Así reformado por Artículo 1° del Decreto Ejecutivo N° 26367 del 21 de agosto de 1997)

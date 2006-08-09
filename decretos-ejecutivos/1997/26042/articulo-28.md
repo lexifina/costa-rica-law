@@ -1,1 +1,0 @@
-Artículo 28.—Las aguas residuales de hospitales, clínicas y otros centros de salud deberán cumplir, además de lo especificado en el artículo anterior, con un número mas probable de coliformes fecales no mayor de 1000 por cada 100 mi de muestra.

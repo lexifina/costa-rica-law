@@ -1,1 +1,0 @@
-Artículo 23.—La División de Saneamiento Ambiental del Ministerio de Salud, el Ministerio del Ambiente y Energía y el Instituto ' Costarricense de Acueductos y Alcantarillados, de común acuerdo, podrán exigir mayores frecuencias o muestras más representativas, cuando a su Juicio éstas sean necesarias para la evaluación de casos concretos.
