@@ -1,1 +1,1 @@
-Artículo 14.-El grado de Oficial corresponderá a los primeros secretarios, cónsules generales sin rango diplomático y otras personalidades de categoría equivalente.
+Artículo 14.--(Derogado por el artículo 2° del decreto ejecutivo N° 33317 del 9 de agosto de 2006)

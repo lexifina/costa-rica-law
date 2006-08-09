@@ -1,2 +1,1 @@
-Artículo 18.—Los Embajadores extranjeros residentes que terminen su misión en la República y hubieren desempeñado sus funciones en Costa Rica de modo honroso y distinguido por más de tres años consecutivos, deberán ser considerados preferentemente por el Consejo para recibir la orden en la categoría correspondiente.
-(Así reformado por artículo 1° del decreto ejecutivo N° 31749 de 20 de abril de 2004).
+Artículo 18.—(Derogado por el artículo 2° del decreto ejecutivo N° 33317 del 9 de agosto de 2006)

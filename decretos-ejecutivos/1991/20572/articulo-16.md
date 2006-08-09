@@ -1,1 +1,2 @@
-Artículo 16.-En los casos en que se conceda la Orden a personas que no figuren en las categorías enumeradas o no desempeñen funciones públicas, el Consejo de la Orden, al recomendar el otorgamiento, señalará también el grado en que la distinción deba ser conferida, el cual no podrá ser superior al de Gran Cruz.
+Artículo 16.—En los casos en que se conceda la Orden a personas que no figuren en las categorías enumeradas o no desempeñen funciones públicas, el Consejo de la Orden, al recomendar el otorgamiento, señalará también el grado en que la distinción debe ser conferida, el cual no podrá ser superior al de Gran Cruz Placa de Plata.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33317 del 9 de agosto de 2006)
