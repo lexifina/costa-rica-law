@@ -18,3 +18,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 3 | 2006-01-25 | Resolución 16 (2006-01-25) |
 | 4 | 2006-02-01 | Resolución 21 (2006-02-01) |
 | 5 | 2006-02-16 | Resolución 117 (2006-02-16) |
+| 6 | 2006-08-09 | Resolución 579 (2006-08-09) |
