@@ -29,4 +29,4 @@ necesidades del p£blico usuario
 de los servicios.
 Por tanto,
 DECRETAN:
-ARTÍCULO 1° Cuando por falta de equipo, debidamente comprobado, una empresa costarricense se vea precisada a arrendar temporalmente una aeronave de matr¡cula extranjera, la Direcci¢n General de Aviaci¢n Civil podr autorizar el empleo de tal aeronave para fines de transporte p£blico de pasajeros y carga fuera del pa¡s, para lo cual le conceder un permiso provisional que se otorgar hasta por un t‚rmino m ximo de seis meses, prorrogable a juicio del Consejo T‚cnico de Aviaci¢n Civil, pero siempre en el entendido de que la tripulaci¢n sea costarricense.
+ARTÍCULO 1° Anulado. (Anulado mediante resolución de la Sala Constitucional N° 11560-06, de las quince horas con veintiocho minutos del nueve de agosto del 2006.)

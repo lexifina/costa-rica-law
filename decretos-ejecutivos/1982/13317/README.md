@@ -13,3 +13,4 @@ Disposiciones relativas al Transporte de Carga y Pasajeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-02-19 | la propia norma |
+| 2 | 2006-08-09 | SINALEVI (sin norma nombrada) |
