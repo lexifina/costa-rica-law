@@ -1,0 +1,1 @@
+Artículo 2º—Deróganse los artículos 13, 14, 15 y 18 del Decreto Ejecutivo Nº 20572-RREE del 11 de julio de 1991, y se efectúan los ajustes correspondientes para que se mantenga la correlación numérica normal.
