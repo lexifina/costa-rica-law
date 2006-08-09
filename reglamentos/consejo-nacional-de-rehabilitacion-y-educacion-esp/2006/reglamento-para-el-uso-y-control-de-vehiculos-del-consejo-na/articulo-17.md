@@ -1,0 +1,4 @@
+Artículo 17.—Distribución de los vehículos. Para efectuar la distribución y asignación de vehículos con conductor asignado de manera equitativa y acorde a las necesidades institucionales, se establece una reunión de coordinación entre el Encargado de Transportes y los Coordinadores de Equipo del Departamento Técnico.
+Dicha reunión se realizará mensualmente para analizar las solicitudes de transporte para el mes siguiente y asignará los vehículos disponibles de acuerdo a las cuotas preestablecidas para cada programa.
+Una vez realizada la distribución el Encargado de Transportes elaborará el rol de vehículos definitivo, el cual será comunicado a todos los Equipos institucionales.
+Los ajustes y cambios que se originan en el rol establecido, tales como: cambios de ruta, de fecha, de usuario, de responsable de la gira, de horario, de tipo de vehículo, de conductor, y otros, serán atendidos y ejecutados por el Encargado de Transportes.

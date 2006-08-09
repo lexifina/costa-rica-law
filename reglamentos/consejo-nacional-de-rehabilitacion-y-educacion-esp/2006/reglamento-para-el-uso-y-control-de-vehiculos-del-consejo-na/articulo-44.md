@@ -1,0 +1,1 @@
+Artículo 44.—Previo a emitir la autorización que faculte a un funcionario a conducir los vehículos del CNREE este debe firmar un documento en el cual manifieste que conoce y acepta las disposiciones del presente Reglamento.

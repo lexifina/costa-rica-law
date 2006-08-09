@@ -1,0 +1,1 @@
+Artículo 4º—Los vehículos del CNREE serán de uso administrativo general y estarán destinados a ofrecer servicios de transporte a los funcionarios de la institución, miembros de Junta Directiva o terceros, para el desarrollo normal y eficiente de sus funciones. No se asignarán vehículos de uso discrecional a ningún funcionario.

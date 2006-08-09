@@ -1,0 +1,1 @@
+Artículo 18.—Agrupación de solicitudes. Con la finalidad de lograr un mayor aprovechamiento de los recursos de la institución el Encargado de Transportes podrá agrupar en un mismo viaje varias giras de diferentes funcionarios o dependencias para un mismo lugar o ruta.

@@ -1,0 +1,1 @@
+Artículo 6º—Todos los vehículos de la institución deben guardar uniformidad en el color y deberán circular con las debidas condiciones de seguridad. No se debe colocar ningún tipo de adorno o afiche tanto en el exterior como en el interior del vehículo.

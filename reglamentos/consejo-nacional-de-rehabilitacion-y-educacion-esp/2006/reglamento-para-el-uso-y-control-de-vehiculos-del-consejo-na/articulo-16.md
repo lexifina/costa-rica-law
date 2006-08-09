@@ -1,0 +1,1 @@
+Artículo 16.—El Jefe de la Unidad solicitante es la persona responsable de verificar que el objeto de la gira esté acorde con las políticas de la sana administración y en apego a la reglamentación vigente.

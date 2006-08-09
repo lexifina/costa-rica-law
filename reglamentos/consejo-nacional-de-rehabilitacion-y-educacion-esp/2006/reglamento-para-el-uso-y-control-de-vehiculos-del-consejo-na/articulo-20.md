@@ -1,0 +1,1 @@
+Artículo 20.—Salida de los vehículos fuera del país. Bajo circunstancias extraordinarias en que se requiera que un vehículo circule fuera del territorio nacional, previamente deberá existir autorización escrita, debidamente aprobada por la Junta Directiva institucional. En tales casos se designará un funcionario responsable de la utilización del vehículo.

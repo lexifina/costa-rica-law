@@ -1,0 +1,1 @@
+Artículo 11.—De la adquisición de los vehículos. El Encargado de Transportes determinará, con base en las necesidades de transporte existentes a nivel institucional, los requerimientos de nuevos vehículos para satisfacer la demanda de servicios del CNREE.

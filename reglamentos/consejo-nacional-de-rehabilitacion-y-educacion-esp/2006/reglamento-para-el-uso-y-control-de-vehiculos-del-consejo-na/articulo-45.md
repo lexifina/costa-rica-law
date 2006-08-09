@@ -1,0 +1,1 @@
+Artículo 45.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo con lo establecido en el Reglamento Interno de Trabajo del CNREE y el la legislación vigente en materia laboral.

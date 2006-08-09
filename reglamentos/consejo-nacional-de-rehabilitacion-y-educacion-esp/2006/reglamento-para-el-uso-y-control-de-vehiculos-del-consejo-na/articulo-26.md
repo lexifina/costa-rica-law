@@ -1,0 +1,1 @@
+Artículo 26.—Personas autorizadas para conducir vehículos del CNREE. Únicamente están autorizados para conducir vehículos del CNREE los funcionarios que ocupen puestos de chofer, y aquellos funcionarios autorizados por el Encargado de Transportes en conjunto con la Dirección Ejecutiva de la Institución, o en su defecto con el Jefe del Departamento Administrativo.

@@ -1,0 +1,1 @@
+Artículo 32.—Jornada de los choferes. De acuerdo con lo dispuesto por la legislación laboral costarricense la jornada ordinaria más la jornada extraordinaria de los choferes no puede ser superior a doce horas, salvo casos demostrables de fuerza mayor.

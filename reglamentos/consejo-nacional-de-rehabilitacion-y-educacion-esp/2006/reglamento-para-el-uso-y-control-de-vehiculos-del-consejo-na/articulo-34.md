@@ -1,0 +1,1 @@
+Artículo 34.—Prohibición de realizar arreglos extrajudiciales. Ningún chofer o conductor del CNREE se encuentra facultado para realizar arreglos extrajudiciales en caso de accidentes con vehículos de la institución.
