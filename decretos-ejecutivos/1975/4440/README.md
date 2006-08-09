@@ -16,3 +16,4 @@ Reglamento para la Operación del Registro Aeronáutico Costarricense
 | 1 | 1975-01-21 | la propia norma |
 | 2 | 1975-01-21 | SINALEVI (sin norma nombrada) |
 | 3 | 2001-11-09 | SINALEVI (sin norma nombrada) |
+| 4 | 2006-08-09 | SINALEVI (sin norma nombrada) |
