@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de los fondos fijos de Caja Chica del Institut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-03 | la propia norma |
+| 2 | 2006-08-10 | Acuerdo 11 (2006-08-10) |
