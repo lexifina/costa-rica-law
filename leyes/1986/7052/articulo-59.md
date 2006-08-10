@@ -1,37 +1,8 @@
-Artículo 59.-Las familias que cuenten entre sus miembros
-con una o más personas que sufran impedimento físico total y
-permanente, cuyos ingresos sean iguales o inferiores a dos
-salarios mínimos de un obrero no especializado de la industria
-de la construcción y los que no tengan vivienda propia o
-teniéndola requieran repararla o mejorarla, tendrán derecho a
-recibir un bono familiar y medio a fin de compensar esta
-disminución. Para reparaciones o mejoras, se accederá al bono
-familiar en la forma proporcional que indique el reglamento
-correspondiente. La Caja Costarricense de Seguro Social será la
-encargada de dictaminar sobre el estado físico de la persona. El
-Banco dará prioridad a este tipo de casos.
-Igual derecho tendrán quienes por su condición de adultos
-mayores no puedan realizar labores que les permitan el sustento
-o no posean núcleo familiar que pueda brindárselo. En este caso
-también se aplicarán las regulaciones relativas al salario
-mínimo, así como al monto y las condiciones del bono
-establecidas en el párrafo anterior.
-Previa autorización de la Junta Directiva, en cada caso, el
-BANHVI podrá destinar hasta un veinte por ciento (20%) de los
-ingresos anuales del FOSUVI, a subsidiar, mediante las entidades
-autorizadas del Sistema Financiero Nacional para la Vivienda, la
-adquisición, segregación, adjudicación de terrenos y obras de
-urbanización y construcción necesarias en proyectos de
-erradicación de tugurios y asentamientos en precario para las
-familias de ingreso mínimo. El BANHVI establecerá las
-condiciones y los mecanismos para otorgar este subsidio y deberá
-permitir, finalmente, la individualización de los subsidios
-según lo dispuesto en este capítulo.
-Además, la Junta Directiva podrá destinar parte de esos recursos
-a la realización de proyectos de construcción de vivienda,
-para lograr la participación de interesados debidamente organizados en cooperativas,
-asociaciones específicas, asociaciones de desarrollo o asociaciones solidaristas,
-así como para atender problemas de vivienda ocasionados por situaciones
-de emergencia o extrema necesidad."
-(Así reformado por el artículo 1, inciso f) de la Ley No. 7950 de 7 de
-diciembre de 1999 y adicionado su último párrafo por el artículo 2 de la Ley N° 8021 del 5 de setiembre del 2000).
+Artículo 59.-Las familias que, entre sus miembros, cuenten con una o más personas con discapacidad total y permanente, y cuyos ingresos sean iguales o inferiores a un salario y medio mínimo de un obrero no especializado de la industria de la construcción y las que no tengan vivienda propia o, teniéndola, requieran repararla o mejorarla, tendrán derecho a recibir un bono familiar y medio, a fin de compensar esta disminución. Para reparaciones o mejoras, tendrán acceso al bono familiar en la forma proporcional que indique el reglamento correspondiente. La Caja Costarricense de Seguro Social será la encargada de dictaminar sobre la discapacidad total y permanente de la persona. El Banco dará prioridad a este tipo de casos.
+Igual derecho tendrán quienes, por su condición de adultos mayores, no puedan realizar labores que les permitan el sustento o no posean núcleo familiar que pueda brindárselo. En este caso, también se aplicarán las regulaciones relativas al salario mínimo, así como al monto y las condiciones del bono establecidas en el párrafo anterior. La calificación de estos beneficiarios le corresponderá al Consejo Nacional de la Persona Adulta Mayor (Conapam).
+Previa autorización debidamente motivada de la Junta Directiva, con fundamento en el estudio técnico correspondiente, en cada caso, el Banco Hipotecario de la Vivienda (Banhvi) podrá destinar hasta un cuarenta por ciento (40%) de los ingresos anuales del Fondo de Subsidios para la Vivienda (Fosuvi), para subsidiar, mediante las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, la adquisición, segregación, adjudicación de terrenos, obras de urbanización, mejoras, construcción de viviendas, en caso de proyectos individuales o colectivos de erradicación de tugurios y asentamientos en precario, localizados en zonas rurales o urbanas, para las familias cuyos ingresos sean iguales o inferiores a un salario mínimo y medio de un obrero no especializado de la industria de la construcción o que hayan sido declarados en estado de emergencia.
+El Banhvi establecerá las condiciones y los mecanismos para otorgar este subsidio y deberá permitir, finalmente, la individualización de los subsidios, según lo dispuesto en este capítulo, así como establecer claramente los costos de administración de este tipo de programas por parte de las entidades autorizadas, dada su complejidad, que en ningún caso serán superiores a un cinco por ciento (5%) del monto total del proyecto.
+El Banhvi evaluará, anualmente, el destino de los fondos e implementará los mecanismos de control y fiscalización, con un sistema integral de evaluación de riesgos, suficientes y necesarios para garantizar que los recursos destinados a este Fondo sean empleados de acuerdo con los principios de equidad, justicia y transparencia. Además, estará obligado a cumplir la normativa de calidad vigente.
+El incumplimiento de lo descrito en el párrafo anterior implicará la realización de las gestiones para aplicar las sanciones administrativas y penales que correspondan, tanto a los incumplidores de la presente norma como a los responsables de hacerla cumplir.
+Además, la Junta Directiva podrá destinar parte de esos recursos a la realización de proyectos de construcción de vivienda, para lograr la participación de interesados debidamente organizados en cooperativas, asociaciones específicas, asociaciones de desarrollo o asociaciones solidaristas, así como para atender problemas de vivienda ocasionados por situaciones de emergencia o extrema necesidad.
+(Así reformado mediante el artículo único de la Ley N° 8534 del 20 de julio del 2006)
