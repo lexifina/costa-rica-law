@@ -14,3 +14,4 @@ Reglamentos Técnicos Centroamericanos (Resolución No. 142.2005 (COMIECO XXXII)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-26 | la propia norma |
+| 2 | 2006-08-10 | Decreto Ejecutivo 33427 (2006-08-10) |
