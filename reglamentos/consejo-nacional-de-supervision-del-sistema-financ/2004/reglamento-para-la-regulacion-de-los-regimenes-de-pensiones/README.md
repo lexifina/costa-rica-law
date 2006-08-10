@@ -15,3 +15,4 @@ Reglamento para la regulación de los regímenes de pensiones creados por Leyes 
 | --- | --- | --- |
 | 1 | 2004-04-19 | la propia norma |
 | 2 | 2006-03-02 | Reglamento 562 (2006-03-02) |
+| 3 | 2006-08-10 | Reglamento 596 (2006-08-10) |
