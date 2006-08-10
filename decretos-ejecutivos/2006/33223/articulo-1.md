@@ -19,8 +19,8 @@ Con fundamento en los artículos 1º, 3º, 6º, 7º, 12, 13, 15, 22 y 23 del Con
 RESUELVE:
 1º—Aprobar las modificaciones al Arancel Centroamericano de Importación, en la partida arancelaria 2704.00.90 -- Otros, en la forma siguiente:
 Código | Descripción | GU | ES | HO | NI | CR
-2704.00.90 | - Otros | 5 | 0* | 0 | 0 | 0
-* Para El Salvador es Parte III
+2704.00.90 | - Otros | 0 | 0* | 0 | 0 | 0
+(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 33310 del 10 de agosto del 2006.)
 2º—La presente Resolución entrará en vigor 30 días después de la presente fecha y será publicada por los Estados Parte.
 San José, Costa Rica, 16 de junio del 2006
 Marco Vinicio Ruiz Eduardo Ayala Grimaldi

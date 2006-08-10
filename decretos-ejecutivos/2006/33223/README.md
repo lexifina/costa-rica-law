@@ -14,3 +14,4 @@ Pone en vigencia la Resolución N° 163-2006 (COMIECO-XXXVI) Modifica Arancel Ce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-25 | la propia norma |
+| 2 | 2006-08-10 | Decreto Ejecutivo 33310 (2006-08-10) |
