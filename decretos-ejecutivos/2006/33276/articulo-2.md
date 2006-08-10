@@ -1,0 +1,1 @@
+Artículo 2º—Instar a las instituciones de la administración centralizada y descentralizada a cooperar y a brindar dentro del marco legal de sus competencias, el apoyo logístico y material, con el fin de contribuir a tan importante actividad en beneficio de la niñez y adolescencia en alto grado de vulnerabilidad.
