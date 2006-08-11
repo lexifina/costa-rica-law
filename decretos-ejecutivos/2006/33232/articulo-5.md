@@ -1,0 +1,1 @@
+Artículo 5º—En caso de que el propietario tome la decisión de cambiar el destino del refugio en el área que corresponde a su finca, deberá notificar al Área de Conservación Tempisque con un año de anticipación por lo menos para hacer los trámites correspondientes.

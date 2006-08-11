@@ -1,0 +1,1 @@
+Artículo 2º—El manejo de la vida silvestre estará sujeto tanto a la legislación y políticas existentes en el SINAC, como al Plan de Manejo aprobado por el Área de Conservación Tempisque, quien supervisará su ejecución y emitirá disposiciones técnicas y científicas que deberán seguir los propietarios del sector privado y los usuarios del sector estatal.

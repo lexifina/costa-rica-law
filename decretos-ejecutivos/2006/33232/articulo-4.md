@@ -1,0 +1,1 @@
+Artículo 4º—El inmueble de la sociedad Arío Sociedad Anónima estará sometido a la categoría de Refugio Nacional de Vida Silvestre durante un período de diez años prorrogables por períodos iguales, para lo cual el propietario deberá solicitarlo con tres meses de antelación a la finalización de dicho período.

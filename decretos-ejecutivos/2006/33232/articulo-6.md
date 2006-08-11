@@ -1,0 +1,1 @@
+Artículo 6º—Créase el Consejo Local del Refugio Nacional de Vida Silvestre Mixto Caletas-Arío, con el objeto de propiciar el manejo integral y sostenible de los recursos naturales en dicha área silvestre.
