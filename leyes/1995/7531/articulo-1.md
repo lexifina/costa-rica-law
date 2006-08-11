@@ -19,7 +19,10 @@ Las pensiones y las jubilaciones otorgadas por los regímenes mencionados en los
 Las pensiones y las jubilaciones cuyos derechos se adquieran durante la vigencia de esta ley, se regirán por lo dispuesto para el Régimen transitorio de reparto o para el Régimen de capitalización, según el caso.
 Los funcionarios que cumplan con los requisitos para adquirir el derecho a la pensión ordinaria según lo establecía el texto anterior, consagrado por la Ley No. 7268, del 14 de noviembre de 1991, dentro de los dieciocho meses posteriores a la promulgación de la presente ley, podrán pensionarse al amparo de las disposiciones establecidas en el mencionado texto.
 Quienes al 13 de enero de 1997 hayan servido durante diez años consecutivos o quince alternos en zona incómoda e insalubre, con horario alterno, en enseñanza especial o educación de adultos, en primaria y secundaria, tendrán como derecho adquirido cuatro meses por cada año laborado en tales condiciones, sin exceder de cinco años, a efecto de completar el tiempo necesario para jubilarse.
-(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+Quienes, al 18 de mayo de 1993 o al 13 de enero de 1997, hayan servido al menos durante veinte años en el Magisterio Nacional, mantendrán el derecho de pensionarse o jubilarse al amparo de la Ley Nº 2248, de 5 de setiembre de 1958, y sus reformas, y a tenor de la Ley Nº 7268, de 14 de noviembre de 1991, y sus reformas, respectivamente.
+Asimismo, quienes a las fechas referidas en el párrafo anterior no alcancen los veinte años de servicio y hayan operado su traslado al Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social, no podrán obtener los beneficios establecidos en el presente artículo.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999 y posteriormente adicionados los dos últimos párrafos mediante el artículo único de la Ley N° 8536 de 27 de julio de 2006).
+(NOTA: Ver artículos transitorios I y II de la Ley N° 8536 del 27 de julio del 2006).
 TITULO II
 Régimen de capitalización
 CAPITULO I
