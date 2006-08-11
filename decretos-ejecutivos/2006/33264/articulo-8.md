@@ -1,0 +1,1 @@
+Artículo 8°—De las sanciones aplicables al Gestor Interesado de los Servicios Públicos de la Terminal de Puerto Caldera. Al Gestor Interesado de los Servicios Públicos de la Terminal de Puerto Caldera le serán aplicables las sanciones establecidas en el Título X de la Ley General de Aduanas.

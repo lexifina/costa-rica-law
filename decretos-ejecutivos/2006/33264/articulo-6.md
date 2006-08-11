@@ -1,0 +1,1 @@
+Artículo 6°—Responsabilidad del Gestor Interesado de los Servicios Públicos de la Terminal de Puerto Caldera. El Gestor Interesado de los Servicios Públicos de la Terminal de Puerto Caldera asumirá las responsabilidades descritas en el artículo 31 de la Ley General de Aduanas y aquellas que determine su Reglamento.

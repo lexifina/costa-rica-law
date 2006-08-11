@@ -1,0 +1,1 @@
+Artículo 13.—Mercancías de importación que excedan el plazo de permanencia en la Terminal Portuaria. Excedido el plazo de los quince días de permanencia de las mercancías en la Terminal Portuaria, sin que hayan sido destinadas a un régimen aduanero, aplicarán las disposiciones del inciso a) del articulo 56 de la Ley General de Aduanas y 188 y siguientes de su Reglamento.

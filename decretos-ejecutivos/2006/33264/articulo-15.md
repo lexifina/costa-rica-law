@@ -1,0 +1,1 @@
+Artículo 15.—Recepción de bultos o elementos de transporte dañados, saqueados o deteriorados. En caso de bultos o elementos de transporte con señales de daño, saqueo o deterioro, el Gestor Interesado procederá conforme con lo indicado en los artículos 82 de la Ley General de Aduanas y 231 de su Reglamento.
