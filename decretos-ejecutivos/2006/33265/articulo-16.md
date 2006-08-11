@@ -1,0 +1,1 @@
+Artículo 16.—Control Aduanero. El Concesionario de Obra Pública con Servicios Públicos para la Construcción y Operación de la Terminal Granelera de Puerto Caldera estará sujeto al control y fiscalización que ejercerá la autoridad aduanera en el ejercicio de sus atribuciones funciones y de control aduanero establecidas en la Ley General de Aduanas y su Reglamento.
