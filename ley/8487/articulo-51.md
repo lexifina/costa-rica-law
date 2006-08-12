@@ -1,0 +1,1 @@
+Artículo 51.—La Dirección General podrá otorgar visa múltiple, la cual dará al beneficiario derecho a ingresar al país las veces que considere necesario, en el plazo y bajo las condiciones determinadas en el Reglamento de la presente Ley y según lo dispuesto por las directrices generales de visas de ingreso y permanencia para no residentes.

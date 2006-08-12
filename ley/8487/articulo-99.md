@@ -1,0 +1,1 @@
+Artículo 99.—La Dirección General podrá otorgar la autorización de permanencia respectiva, al estudiante extranjero que cumpla los requisitos establecidos para los estudiantes por el Reglamento a la presente Ley. Asimismo, a solicitud de parte, podrá autorizarse el ingreso de su núcleo familiar, cuyos miembros no podrán dedicarse a actividades remuneradas ni lucrativas.

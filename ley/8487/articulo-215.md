@@ -1,0 +1,1 @@
+Artículo 215.—El tribunal de casación penal deberá dictar el fallo correspondiente en el plazo de ley. Firme la orden de expulsión, se procederá a su inmediata ejecución y la persona extranjera deberá abandonar el territorio nacional y perderá, en favor del Estado, la garantía rendida.

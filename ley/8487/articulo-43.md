@@ -1,0 +1,1 @@
+Artículo 43.—Las personas extranjeras que gocen de permanencia migratoria legal bajo la categoría de residentes, no requerirán visa para ingresar al país, siempre que comprueben dicha condición migratoria.

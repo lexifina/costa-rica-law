@@ -1,0 +1,1 @@
+Artículo 240.—La Contraloría General de la República será el órgano competente para examinar el presupuesto de la Dirección General y sus modificaciones, para su aprobación, y supervisar el monto original del fondo, sus incrementos y las erogaciones que se realicen.
