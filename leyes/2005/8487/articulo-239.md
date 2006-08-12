@@ -1,0 +1,1 @@
+Artículo 239.—Para manejar el Fondo específico, la Tesorería Nacional del Ministerio de Hacienda autorizará la apertura de una cuenta corriente, que se denominará Fondo específico de la Dirección General de Migración y Extranjería.

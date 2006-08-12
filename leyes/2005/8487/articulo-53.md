@@ -1,0 +1,1 @@
+Artículo 53.—El Reglamento de la presente Ley establecerá los requisitos y procedimientos para el otorgamiento de visas de ingreso, sin que para estos efectos sea aplicable lo dispuesto en el título XII de la presente Ley, así como los casos en que se deba realizar un depósito de garantía previo al otorgamiento de la visa.

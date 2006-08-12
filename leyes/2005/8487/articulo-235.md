@@ -1,0 +1,1 @@
+Artículo 235.—Los dineros se depositarán en una cuenta especial autorizada por la Tesorería Nacional del Ministerio de Hacienda, bajo el rubro Fondo Especial de la Dirección General de Migración y Extranjería.

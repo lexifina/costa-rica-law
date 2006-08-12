@@ -1,0 +1,1 @@
+Artículo 217.—Cuando, por antecedentes personales, pueda presumirse que la persona extranjera intentará eludir el procedimiento de expulsión, el Ministerio de Gobernación y Policía podrá dictar cualquiera de las medidas cautelares previstas en el artículo 208 de esta Ley.

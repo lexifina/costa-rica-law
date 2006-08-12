@@ -1,0 +1,1 @@
+Artículo 65.—Las personas extranjeras autorizadas para permanecer en el país, acreditarán su condición migratoria legal, con un documento que emitirá la Dirección General, salvo el caso de los no residentes, que lo harán mediante el comprobante de control de ingreso, según lo determine el Reglamento de la presente Ley.

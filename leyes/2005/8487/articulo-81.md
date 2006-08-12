@@ -1,0 +1,1 @@
+Artículo 81.—La persona residente temporal tendrá la obligación de abandonar el territorio nacional, una vez finalizado el plazo de permanencia autorizado, salvo que medie un cambio de categoría o una prórroga, según lo determinen la presente Ley y su Reglamento.

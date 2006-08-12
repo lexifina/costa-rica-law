@@ -1,0 +1,1 @@
+Artículo 16.—La Policía de Migración y Extranjería tendrá jurisdicción en todo el territorio de la República. Sus integrantes estarán habilitados para ejercer sus funciones las veinticuatro horas del día y tendrán fe pública para efectos de notificación, citación y confección de actas, para todos los propósitos de la aplicación de la presente Ley y su Reglamento.

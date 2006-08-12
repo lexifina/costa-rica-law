@@ -1,6 +1,6 @@
 # Ley de Residentes Pensionados y Residentes Rentistas
 
-Ley N° 4812 del 1971-07-28. SINALEVI, ficha 4099: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4099&param2=4340&param3=1>.
+Ley N° 4812 del 1971-07-28. SINALEVI, ficha 4099: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4099&param2=4341&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 6 | 1992-04-03 | SINALEVI | 1983-08-10 |
 | 3 de 6 | 1992-04-03 | Ley 6975 | 1984-11-30 |
 | 4-5 de 6 | 1992-04-03 | SINALEVI | 1992-03-31 |
+| 6 de 6 | 2006-08-12 | Ley 8487 | 2005-11-22 |

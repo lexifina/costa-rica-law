@@ -1,0 +1,1 @@
+Artículo 91.—Las categorías especiales no generarán derechos de permanencia definitiva, salvo las de refugiados, asilados y apátridas, que se regirán por los instrumentos internacionales vigentes debidamente aprobados por Costa Rica.

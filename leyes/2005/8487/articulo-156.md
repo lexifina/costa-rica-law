@@ -1,0 +1,1 @@
+Artículo 156.—Cuando las circunstancias lo requieran, la Dirección General podrá ejercer control migratorio sobre los medios de transporte local, las empresas o agencias propietarias, representantes, explotadoras o consignatarias de transporte internacional, para determinar la condición migratoria de las personas extranjeras que viajen en ellos.

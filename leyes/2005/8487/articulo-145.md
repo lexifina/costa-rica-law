@@ -1,0 +1,1 @@
+Artículo 145.—Ningún medio de transporte internacional podrá salir del país sin la autorización expresa de la Dirección General, previo control migratorio y cumplimiento de los requisitos de egreso, por parte de los pasajeros y su personal.

@@ -1,0 +1,1 @@
+Artículo 220.—No cabe recurso alguno contra los actos de trámite dictados en razón de un procedimiento administrativo, contra las resoluciones que denieguen el ingreso de una persona extranjera al país, contra la orden de rechazo ni contra las deportaciones ordenadas con fundamento en los incisos a), b) y d) del artículo 179.

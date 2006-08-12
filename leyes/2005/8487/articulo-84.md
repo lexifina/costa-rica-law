@@ -1,0 +1,5 @@
+Artículo 84.—Para los efectos de otorgamiento de la visa y el plazo de permanencia, en la subcategoría de estancia se encontrarán las siguientes personas:
+a. Las de especial relevancia en los ámbitos científico, profesional, religioso, cultural, deportivo, económico o político que, en función de su especialidad, sean invitadas por los Poderes del Estado o las instituciones públicas o privadas o por las universidades o los colegios universitarios.
+b. Quienes sean agentes de negocios, agentes viajeros o delegados comerciales que ingresen para atender asuntos vinculados con las actividades de las empresas o sociedades que representen, siempre que en el país no devenguen el pago de salarios u honorarios, y no requieran para realizar sus actividades residir en territorio nacional.
+c. Quienes se desempeñen como reporteros, camarógrafos y demás personal de los medios de comunicación social que ingresen al país para cumplir funciones de su especialidad y no devenguen el pago de salario en el país.
+d. Las personas que requieran tratamiento médico especializado en un centro hospitalario reconocido.

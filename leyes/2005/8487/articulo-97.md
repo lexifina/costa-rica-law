@@ -1,0 +1,1 @@
+Artículo 97.—Los trabajadores de ocupación específica podrán permanecer en el país por el plazo, los términos, las condiciones y el contratante o empleador que se determine en la autorización de la Dirección General.

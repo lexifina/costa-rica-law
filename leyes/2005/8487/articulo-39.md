@@ -1,0 +1,1 @@
+Artículo 39.—El Reglamento de esta Ley determinará los documentos atinentes a comprobar la condición migratoria, así como los procedimientos para obtener cada categoría y su otorgamiento, así como la renovación de los documentos correspondientes.

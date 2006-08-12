@@ -1,0 +1,1 @@
+Artículo 106.—La persona refugiada debidamente reconocida, podrá ejercer cualquier tipo de actividad laboral remunerada o lucrativa, por cuenta propia o en relación de dependencia, con estricto apego a lo dispuesto en el ordenamiento jurídico.

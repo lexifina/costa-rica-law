@@ -1,0 +1,1 @@
+Artículo 192.—Autorizase el uso de medios electrónicos para las notificaciones, de acuerdo con lo que estipule al efecto el Reglamento de la presente Ley. Cuando la notificación sea realizada por un funcionario público, este gozará de fe pública para todos los efectos legales.

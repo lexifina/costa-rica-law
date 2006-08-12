@@ -1,0 +1,1 @@
+Artículo 104.—Entiéndase por asilo la protección que se otorgue a la persona extranjera, que lo solicite, con el objeto de salvaguardar su vida, su libertad o su integridad personal, en razón de ser perseguida por motivos políticos o por otros conexos.
