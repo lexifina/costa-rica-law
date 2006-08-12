@@ -1,0 +1,1 @@
+Artículo 67.—De solicitarse el ingreso o la permanencia de una persona extranjera, en razón de matrimonio con una persona costarricense celebrado mediante poder, deberá demostrarse, obligatoria y fehacientemente, la convivencia conyugal. Además, en caso de que se solicite residencia, dicho matrimonio deberá estar debidamente inscrito ante el Registro Civil de Costa Rica.

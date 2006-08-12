@@ -1,0 +1,1 @@
+Artículo 198.—Tratándose de peticiones para optar por la residencia permanente o temporal, estas normas deberán ser observadas por los agentes migratorios en el exterior, en los casos en que la presentación de la solicitud deba ser desde el extranjero, según la presente Ley, su Reglamento y la política migratoria.

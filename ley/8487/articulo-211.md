@@ -1,0 +1,1 @@
+Artículo 211.—La deportación ordenada en virtud de lo establecido en el inciso d) del artículo 179 de la presente Ley, no estará sujeta a un procedimiento administrativo adicional al realizado para la conminación de la persona extranjera.

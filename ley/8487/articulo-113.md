@@ -1,0 +1,1 @@
+Artículo 113.—Para el reconocimiento de refugio y asilo, el procedimiento será determinado vía reglamento; para el efecto, se exceptúa la aplicación de los procedimientos administrativos determinados por la presente Ley.

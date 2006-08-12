@@ -1,0 +1,1 @@
+Artículo 175.—La Dirección General y las autoridades del Ministerio de Trabajo y Seguridad Social deberán verificar, coordinar o, en su caso, denunciar cualquier anomalía o incumplimiento en la contratación de personas extranjeras, relacionada con su condición migratoria.

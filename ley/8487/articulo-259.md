@@ -1,0 +1,1 @@
+Artículo 259.—Todos los estudios y las recomendaciones dispuestos en la presente Ley por inopia laboral o de otra índole, deberán emitirse con base en investigaciones de exclusivo carácter técnico, para lo cual podrán gestionar la participación de equipos interdisciplinarios de otras instituciones públicas que garanticen la actualidad y veracidad de la información.

@@ -1,0 +1,1 @@
+Artículo 223.—Los recursos de revocatoria o apelación, cuando procedan, deberán interponerse dentro del término de tres días hábiles contados a partir de la notificación respectiva, ante la Dirección General. En este acto, se ofrecerá toda la prueba que se estime pertinente, sin posibilidad de ofrecer más prueba en otro momento.

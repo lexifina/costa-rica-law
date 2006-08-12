@@ -1,0 +1,1 @@
+Artículo 2º—Declárase de interés público, como parte esencial de la seguridad pública, todo lo relativo a la materia migratoria, incluso la presente Ley, así como los decretos, los reglamentos, las directrices, las políticas y los acuerdos de alcance general que se emitan al efecto.

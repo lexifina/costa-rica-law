@@ -1,0 +1,1 @@
+Artículo 56.—Por razones actuales de seguridad pública y de salud pública, debidamente fundamentadas, el Poder Ejecutivo podrá imponer restricciones de ingreso a determinada persona extranjera o grupo extranjero.
