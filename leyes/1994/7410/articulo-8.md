@@ -14,4 +14,7 @@ k) Mantener actualizados los registros de armas, explosivos y equipos indispensa
 l) Llevar los libros de registro necesarios, en los que constarán: las operaciones policiales, los responsables de esas actividades, la nómina completa del personal que intervenga en cada operativo, patrullaje o acción policial, los datos personales, las horas de ingreso y egreso de los detenidos, así como otros datos que sirvan para el adecuado control de esas operaciones.
 m) Levantar y mantener actualizados los registros de armas, propiedad de particulares, permitidas por ley y otorgar los permisos para portar armas.
 n) Controlar el manejo de explosivos para usos industriales mineros o recreativos.
-ñ) Las demás atribuciones señaladas en la Constitución Política, los tratados internacionales, las leyes y sus reglamentos.
+ñ). Actuar según el principio de cooperación y auxilio recíprocos, para el cumplimiento de lo establecido en la Ley General de Migración y Extranjería y su Reglamento.
+(Así adicionado el inciso anterior por el artículo 262 de la Ley de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005)
+o) Las demás atribuciones señaladas en la Constitución Política, los tratados internacionales, las leyes y sus reglamentos.
+(Corrida la numeración del inciso anterior por el artículo 262 de la Ley de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005, que lo traspaso del antiguo inciso ñ) al inciso o) actual)
