@@ -1,0 +1,1 @@
+Artículo 6º—El Colegio podrá ampliar la nómina de especialidades detalladas en el artículo 4º de este Reglamento mediante la aprobación de la Junta Directiva o la Asamblea General, previo estudio y análisis de la Comisión de Especialidades.

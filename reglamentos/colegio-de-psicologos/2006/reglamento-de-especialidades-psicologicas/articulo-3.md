@@ -1,0 +1,4 @@
+Artículo 3º—Para los efectos de lo dispuesto en el artículo anterior se definen tres conceptos básicos en este Reglamento:
+a. Especialidad: Rama o área de aplicación de la psicología en la cual se mantiene una especial dedicación, con una trayectoria y aporte reconocidos y se ha profundizado en conocimientos, así como en el desarrollo de destrezas y habilidades para el ejercicio de la misma.
+b. Subespecialidad: Ámbito teórico, técnico o de aplicación atinente a una especialidad determinada en el que se cuenta con una formación y atestados profesionales particulares.
+c. Especialista: Profesional en psicología, con grado mínimo de licenciatura, incorporado al Colegio, que se ha hecho acreedor al reconocimiento de especialista en un área determinada de la profesión con fundamento en sus atestados académicos, experiencia profesional y aportes reconocidos.

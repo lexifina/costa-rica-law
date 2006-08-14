@@ -1,0 +1,1 @@
+Artículo 24.—Toda solicitud de constitución de una nueva especialidad debe ser acompañada de información sobre las características de la misma, definiciones, objetivos, ámbitos de trabajo, conocimientos y habilidades requeridas.

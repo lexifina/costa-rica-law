@@ -1,0 +1,1 @@
+Artículo 7º—El Colegio por medio de la Comisión de Especialidades y la aprobación de la Junta Directiva contará con una nómina de subespecialidades, la cual podrá actualizar y ampliar de acuerdo con la oferta académica nacional e internacional y conforme lo requiera el desarrollo de la disciplina y el ejercicio profesional de la especialidad.

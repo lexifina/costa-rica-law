@@ -1,0 +1,1 @@
+Artículo 8º—Los colegiados (as) sólo podrán acceder al reconocimiento de dos especialidades, en tanto cumplan con los requisitos reglamentados para ellas. Pero si podrán acceder al reconocimiento de una o más sub-especialidades dentro de una especialidad.
