@@ -15,3 +15,4 @@ Reglamento de Sesiones, Acuerdos y Comisiones Municipales de la Municiplidad del
 | --- | --- | --- |
 | 1 | 1999-09-03 | la propia norma |
 | 2 | 2006-05-29 | Reglamento municipal 4 (2006-05-29) |
+| 3 | 2006-08-14 | Reglamento municipal 15 (2006-08-14) |
