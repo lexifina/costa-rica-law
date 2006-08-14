@@ -1,1 +1,0 @@
-3.-EI fondo se mantendrá en dinero en efectivo y servirá para atender exclusivamente la adquisición de servicios y artículos en situaciones de verdadera urgencia, y aquellos que por su naturaleza y monto se exceptúan de los trámites de la orden de compra y de la cancelación directa por medio de cheque.

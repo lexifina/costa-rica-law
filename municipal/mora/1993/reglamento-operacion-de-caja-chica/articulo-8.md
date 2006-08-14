@@ -1,1 +1,0 @@
-8.-Cumplidas las formalidades señaladas en los puntos N° 6 y N° 7 el tesorero entrega el dinero a quien corresponda, se reserva el original del Comprobante y remite copia al Ejecutivo. Una vez realizada la compra o prestado el servicio el tesorero soIicita a la persona que la realizó los justificantes originales cancelados.
