@@ -1,0 +1,1 @@
+Artículo 2º—Las votaciones tendrán lugar en todo el territorio nacional, sin interrupción, desde las seis hasta las dieciocho horas del día supra indicado, según lo que prescribe el artículo 102 del Código Electoral.

@@ -1,0 +1,5 @@
+Nº 8-2006
+EL TRIBUNAL SUPREMO DE ELECCIONES
+En cumplimiento de las atribuciones que le confieren los artículos 9º, 99 y 102, inciso 1) de la Constitución Política; 97 del Código Electoral; 14, 54 y 55 del Código Municipal, y 6 y 7 de la Ley General de Concejos Municipales de Distrito,
+DECRETA:
+Artículo 1º—Se convoca a todos los ciudadanos inscritos en el Departamento Electoral del Registro Civil como electores para que - ejerciendo el derecho constitucional al sufragio en votación Obligatoria, Directa y Secreta - concurran a las respectivas Juntas Receptoras de Votos el domingo 3 de diciembre del año dos mil seis, con el fin de que procedan a elegir Alcaldes propietarios y suplentes, Síndicos propietarios y suplentes, Miembros propietarios y suplentes de los Concejos de Distrito y de los Concejos Municipales de Distrito en los lugares que corresponda, así como a los Intendentes de este último órgano, para el período legal que se iniciará el próximo cinco de febrero del dos mil siete y que concluirá el seis de febrero del dos mil once.

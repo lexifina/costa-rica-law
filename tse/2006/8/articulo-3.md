@@ -1,0 +1,1 @@
+Artículo 3º—De conformidad con lo que establece el artículo 14 del Código Municipal, para cada una de las ochenta y un municipalidades del país se elegirán un Alcalde propietario y dos Alcaldes suplentes.
