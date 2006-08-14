@@ -1,2 +1,1 @@
 Artículo 55.—Los Agentes Independientes específica y expresamente autorizados, podrán realizar trámites de traslado o aceptación de riesgos de seguro a nombre y por cuenta del Instituto, todo de conformidad con los requisitos, límites y condiciones establecidas en el Capítulo IV de este Reglamento, cuyas normas y principios les serán plenamente aplicables.
-(Así adicionado y publicado en La Gaceta N° 176 del 13 de setiembre del 2000).

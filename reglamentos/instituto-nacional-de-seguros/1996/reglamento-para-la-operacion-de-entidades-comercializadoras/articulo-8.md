@@ -1,1 +1,1 @@
-Artículo 8°—El contrato con las agencias comercializadoras tendrá una vigencia de dos años, pudiendo prorrogarse por convenio de partes.
+Artículo 8º—El contrato con las Agencias Comercializadoras tendrá una vigencia de dos años, pudiendo prorrogarse por convenio de partes.

@@ -1,1 +1,1 @@
-Artículo 7°—De acuerdo con lo dispuesto en el artículo 3 de la Ley General de la Administración Pública, la relación entre el Instituto, las agencias comercializadoras, sus apoderados y agentes será estrictamente de carácter mercantil, de acuerdo con lo regulado en el Código de Comercio.
+Artículo 7º—De acuerdo con lo dispuesto en el artículo 3 de la Ley General de la Administración Pública, la relación entre el Instituto, las agencias comercializadoras, sus apoderados y agentes será estrictamente de carácter mercantil, de acuerdo con lo regulado en el Código de Comercio.

@@ -1,1 +1,1 @@
-Artículo 32.—La contratación de agencias comercializadoras se realizará con absoluto respeto de los principios de publicidad, libre acceso e igualdad de participación, que rigen la contratación administrativa.
+Artículo 32.—La contratación de Agencias Comercializadoras se realizará con absoluto respeto de los principios de publicidad, libre acceso e igualdad de participación, que rigen la contratación administrativa.

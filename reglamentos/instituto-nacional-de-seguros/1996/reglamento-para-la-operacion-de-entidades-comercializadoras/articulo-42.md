@@ -1,3 +1,2 @@
 Artículo 42.—Queda prohibido a la entidad comercializadora autorizada, informar, publicitar o de cualquier forma insinuar o dar a entender al cliente, al asegurado o al mercado, que se encuentra autorizada para aceptar riegos por cuenta propia, o que en los trámites aquí regulados actúa por sí misma.
 La falta a esta prohibición se considerará incumplimiento grave y ameritará la resolución unilateral del contrato suscrito entre el Instituto y la entidad comercializadora.
-(Así adicionado mediante acuerdo N° XIV tomado en la sesión N° 8189 del 1 de junio de 1998).

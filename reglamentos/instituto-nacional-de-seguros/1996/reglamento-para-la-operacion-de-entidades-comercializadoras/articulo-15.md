@@ -1,2 +1,2 @@
-Artículo 15.—El Instituto no será responsable por la suspensión, cancelación, resolución o terminación del contrato con la agencia comercializadora cuando se fundamente en las causas expresamente establecidas en el contrato, en este reglamento o en la ley.
-La cancelación de la autorización para operar como agencia comercializadora, implicará automáticamente el ejercicio de la potestad institucional de redistribuir o asumir la cartera de clientes atendidos por esa comercializadora.
+Artículo 15.—El Instituto no será responsable por la suspensión, cancelación, resolución o terminación del contrato con la Agencia Comercializadora cuando se fundamente en las causas expresamente establecidas en el contrato, en este reglamento o en la ley.
+La cancelación de la autorización para operar como Agencia Comercializadora, implicará automáticamente el ejercicio de la potestad institucional de redistribuir o asumir la cartera de clientes atendidos por esa Comercializadora.

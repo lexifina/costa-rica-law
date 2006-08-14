@@ -1,2 +1,3 @@
-Artículo 27.—Con el objeto de evitar la concentración del riesgo moral en la actividad de la agencia comercializadora, no podrá ésta conformar su cartera en más de un 25% de los montos asegurados, por bienes propiedad de sus socios, o por bienes propiedad de entidades donde los socios de la agencia posean más del 25% del capital social, considerados conjuntamente.
-La agencia comercializadora no podrá concentrar sus operaciones en la atención de un sólo grupo económico de empresas.
+Artículo 27.—Aseguramiento de Bienes del Intermediario; Ningún intermediario podrá concentrar sus operaciones en una proporción mayor a un 25% en la atención de su propio u otro Grupo Económico de Empresa.
+Las carteras de las comercializadoras no podrán conformarse en más de un 25% con los montos asegurados, por bienes propiedad de sus socios, o por bienes propiedad de entidades donde los socios de la empresa intermediaria en la venta de seguros, posean más del 25% del capital social, considerados conjuntamente.
+En el mes de setiembre de cada año, junto con el Plan Anual de Ventas, todos los intermediarios deberán presentar una declaración jurada respecto al cumplimiento de la norma.

@@ -4,4 +4,3 @@ B) No haber sido apercibida o sancionada la entidad, sus representantes o agente
 C) Contar con garantía suficiente, según determinación que hará la Gerencia, para responder ante el Instituto por los probables incumplimientos, errores, omisiones, negligencias o impericias de los representantes, agentes o empleados de la entidad comercializadora, con ocasión de la facultad y los trámites aquí normados.
 La entidad comercializadora será solidariamente responsable con su agente acreditado frente al Instituto y su cliente, por el incumplimiento de los trámites y formalidades establecidas para el traslado o aceptación de riesgos.
 D) Contar con los controles administrativos, técnicos y los recursos idóneos, para ejecutar adecuadamente los trámites de traslado o aceptación de riesgos, previa determinación y evaluación realizada por el Instituto.
-(Así adicionado mediante acuerdo N° XIV tomado en la sesión N° 8189 del 1 de junio de 1998).

@@ -1,1 +1,1 @@
-Artículo 28.—A efecto de solucionar en forma expedita sus controversias o diferendos, el Instituto y la agencia comercializadora podrán incluir una cláusula compromisoria arbitral en el contrato que suscriban.
+Artículo 28.—A efecto de solucionar en forma expedita sus controversias o diferendos, el Instituto y la Agencia Comercializadora podrán incluir una cláusula compromisoria arbitral en el contrato que suscriban.
