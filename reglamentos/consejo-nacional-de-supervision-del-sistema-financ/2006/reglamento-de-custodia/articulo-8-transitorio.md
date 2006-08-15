@@ -1,0 +1,2 @@
+Transitorio VIII.—Fideicomiso de garantías de operaciones de reporto tripartito y mercado de liquidez. Por un plazo de dieciocho meses a partir de la entrada en vigencia del presente Reglamento, la Central de Valores, S. A. (CEVAL) puede custodiar el fideicomiso de garantías de operaciones de reporto tripartito y mercado de liquidez y actuar como entidad adherida al Sistema de Anotación en Cuenta, para el registro de los valores anotados en este sistema, que formen parte del fideicomiso.
+__

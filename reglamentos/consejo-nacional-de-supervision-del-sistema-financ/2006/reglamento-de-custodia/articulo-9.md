@@ -1,0 +1,5 @@
+Artículo 9º—Desinscripción de una entidad de custodia. La desinscripción de una entidad de custodia está sujeta a un régimen de autorización previa de la Superintendencia General de Valores, de conformidad con los siguientes requisitos:
+a) Solicitud formal de desinscripción firmada por el representante legal de la entidad de custodia, la cual debe indicar las razones que motivan la decisión de desinscripción.
+b) Copia certificada notarialmente del acuerdo de Junta Directiva por el que se decidió la desinscripción.
+c) Plan de traspaso de los valores custodiados a otras entidades de custodia autorizadas, de acuerdo con los requerimientos establecidos por el Superintendente mediante acuerdo de alcance general. Adicionalmente, el Superintendente podrá requerir información o documentación adicional indispensable para la acreditación del adecuado traslado de los valores custodiados.
+Para la desinscripción de las entidades de depósito locales se solicitan los mismos requisitos que para la desinscripción de las entidades de custodia, en lo que resulten aplicables.

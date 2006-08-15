@@ -1,0 +1,19 @@
+CONSEJO NACIONAL DE SUPERVISIÓN
+DEL SISTEMA FINANCIERO
+REGLAMENTO DE CUSTODIA
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo 13 del Acta de la Sesión 593-2006, celebrada el 27 de julio del 2006,
+considerando que:
+1. De conformidad con el Artículo 136 de la Ley Reguladora del Mercado de Valores, corresponde a la Superintendencia General de Valores, emitir las normas que regulen las obligaciones, responsabilidades, requisitos para la prestación del servicio y demás disposiciones relacionadas con el funcionamiento de la actividad de custodia.
+2. Se estimó necesario realizar una revisión integral del actual Reglamento para la actividad de custodia, con el fin de precisar y aclarar su alcance; así como de redefinir las obligaciones y responsabilidades de las entidades de custodia y entidades de depósito, dada su importancia para la protección de los intereses de los inversionistas.
+3. Hasta tanto no entre en funcionamiento un sistema de anotación en cuenta para la administración del registro contable de los valores de emisores privados, así como de la deuda pública, las entidades de depósito deben mantener un registro centralizado de los valores autorizados para la negociación en bolsa en el mercado de valores costarricense.
+4. Los cambios propuestos deben responder a la realidad y a las necesidades del mercado de valores costarricense, de manera que se pueda identificar una clara separación entre la función de custodia y las funciones de gestión de carteras y de intermediación bursátil. Asimismo, deben llenarse vacíos regulatorios existentes en la normativa actual.
+5. Uno de los principios establecidos por el IOSCO para la adecuada administración de las figuras de inversión colectiva, es la separación de sus activos frente a los activos de la sociedad administradora.
+6. Es necesario exigir a las sociedades administradoras de fondos de inversión la designación de una entidad de custodia, tanto para los valores como para el efectivo asociado a estos valores. Así como de incrementar los recursos propios exigibles, para el caso de los fondos de inversión, si el custodio designado no cuenta con el capital mínimo exigido a un banco.
+7. Es importante establecer los requerimientos mínimos que deben cumplir las entidades de depósito o custodia internacional cuando suscriban contratos con las entidades de custodia costarricenses en materia de valores extranjeros. dispuso: aprobar el “Reglamento de Custodia”, de acuerdo con el texto que se copia de inmediato:
+REGLAMENTO DE CUSTODIA
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto y definición. El presente reglamento regula la actividad de custodia de valores, así como los requisitos de funcionamiento, obligaciones y responsabilidades de las entidades que presten este servicio y de las entidades de depósito.
+Para los efectos de este Reglamento, se entiende por custodia el servicio que presta una entidad, para el cuidado y conservación de valores y el efectivo relacionado con estos, así como el registro de su titularidad; con la obligación de devolver al titular, valores del mismo emisor, de la misma especie y las mismas características de los que le fueron entregados para su custodia. Esta responsabilidad no resulta afectada por el hecho de que delegue a un tercero, una parte o la totalidad de sus funciones, según los términos dispuestos en los Artículos 6 y 7 de este Reglamento.
+La custodia puede incluir el servicio de administración de los derechos patrimoniales y políticos relacionados con los valores en custodia.
+Por otra parte, para efectos de este Reglamento, las entidades de depósito son aquellas responsables de prestar a las entidades de custodia, el servicio de depósito centralizado de valores físicos y de registro de valores representados por medio de macrotítulo, en tanto no se realice un proceso de desmaterialización y contabilización mediante anotación electrónica en cuenta de estos valores.

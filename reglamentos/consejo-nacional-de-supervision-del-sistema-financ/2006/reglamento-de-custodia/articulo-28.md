@@ -1,0 +1,1 @@
+Artículo 28.—Ejecución de instrucciones. Las entidades de depósito, de conformidad con los procedimientos y plazos establecidos por ellas, deben realizar las inscripciones y traspasos de titularidad sobre los valores registrados, así como de los movimientos que los afecten, de acuerdo con las instrucciones emitidas por las entidades de custodia.

@@ -1,0 +1,1 @@
+Transitorio III.—Designación de una entidad de custodia. Las sociedades administradoras de fondos de inversión cuentan con un plazo de dos meses contados a partir de la entrada en vigencia de este Reglamento para designar una entidad de custodia y la apertura de cuentas corrientes independientes para los fondos de inversión que administren.

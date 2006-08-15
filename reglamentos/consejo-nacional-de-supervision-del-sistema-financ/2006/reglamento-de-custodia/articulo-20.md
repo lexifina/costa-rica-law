@@ -1,0 +1,1 @@
+Artículo 20.—Estado de cuenta. Las entidades de custodia deben remitir estados de cuenta a los titulares, con la periodicidad, contenido y dentro del plazo que determine el Superintendente mediante acuerdo de alcance general.

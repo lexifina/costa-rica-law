@@ -1,0 +1,3 @@
+Artículo 15.—Confirmación de asignación de contratos. Las entidades de custodia son las responsables de confirmar o rechazar las asignaciones de contratos generados por la ejecución de las órdenes de transacción, de acuerdo con las instrucciones giradas por los titulares o el ordenante.
+En el caso de las carteras individuales, los titulares pueden facultar a las entidades de custodia la confirmación de los contratos sin requerir instrucciones, facultad que debe indicarse expresamente en el contrato de custodia respectivo; en tanto que para las carteras colectivas se requiere de una instrucción directa del gestor de cartera.
+Una vez que las entidades de custodia den por confirmadas las asignaciones de contratos, serán responsables por la liquidación de dichos contratos.
