@@ -569,7 +569,7 @@ definiciones presupuestarias (ingresos y egresos) y a la presentación
 formal del presupuesto. Las anteriores instituciones deben presupuestar
 todos los ingresos y egresos (incluidos los gastos de capital) cualquiera
 que sea su naturaleza para el mismo propósito.
-Sexagesimotercera: Se autoriza al Poder Ejecutivo para que se traspase a la Unión Nacional de Cooperativas (UNACOOP) la finca sin inscribir, que es el mercado de verduras y legumbres, abarrotes y mercancías en general que administra UNACOOP para beneficio de las cooperativas que la forman. Dicho traspaso se exime de derechos de Registro y del pago de los impuestos y especies fiscales a que están sujetas las demás inscripciones registrales.
+Sexagesimotercera: (Anulado mediante resolución de la Sala Constitucional N° 12018-06 de las 16: 31 horas.
 Sexagesimocuarta: Quedarán excluidos del régimen de Servicio Civil
 únicamente aquellos empleados y funcionarios a a que se refiere el propio
 Estatuto de Servicio Civil y leyes específicas.
