@@ -10,6 +10,8 @@ e) La Caja Costarricense de Seguro Social (CCSS).
 El Programa se organiza en torno a la siguiente estructura:
 a) Órgano Decisor de alto nivel: Responsable de las decisiones de política general del Programa, conformado por el Rector del Sector Social y Lucha Contra la Pobreza, MEP, IMAS, INA, DESAF y CCSS. Se reúne cada seis meses de manera ordinaria y de forma extraordinaria cada vez que el Rector lo considere necesario.
 b) Panel técnico: Conformado por personal técnico profesional designado por los jerarcas de las instituciones antes mencionadas, y que tendrá como función emitir los criterios técnicos requeridos para la toma de decisiones. Se reúne regularmente una vez al mes.
-c) Unidad ejecutora: Vela por la adecuada implementación del programa y controla el cumplimiento de las distintas responsabilidades asignadas a las instituciones participantes, así como el seguimiento, monitoreo y evaluación del Programa. Esta unidad es de funcionamiento permanente.
+c) Unidad de Gestión: Vela por la adecuada implementación del programa y controla el cumplimiento de las distintas responsabilidades asignadas a las instituciones participantes, así como el seguimiento, monitoreo y evaluación del Programa.
+Esta unidad es de funcionamiento permanente.
+(Así reformado el acápite anterior mediante el artículo 1° del decreto ejecutivo N° 33303 del 16 de agosto del 2006).
 3) Secretaría Técnica del Programa
 El Despacho del Viceministro de Desarrollo Social y Lucha Contra la Pobreza asume las funciones de Secretaría Técnica del Programa.

@@ -14,3 +14,4 @@ Reglamento de Operación Fase Piloto Julio-Diciembre 2006, Programa transferenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-01 | la propia norma |
+| 2 | 2006-08-16 | Decreto Ejecutivo 33303 (2006-08-16) |

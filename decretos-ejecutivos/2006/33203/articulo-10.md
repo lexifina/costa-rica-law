@@ -1,12 +1,15 @@
 Artículo 10.—Responsabilidades de las instituciones integrantes en la ejecución del Programa. Para una adecuada operación del Programa se establecen las siguientes responsabilidades institucionales:
 1) El Ministerio de Educación Pública (MEP):
-a) Coordina y colabora con la UE en logística de implementación del Programa.
-b) Certifica corresponsabilidades de asistencia y aprobación de acuerdo con los cronogramas establecidos por la UE.
+a) Coordina y colabora con la UG en logística de implementación del Programa.
+(Así reformado el acápite anterior mediante el artículo 1° del decreto ejecutivo N° 33303 del 16 de agosto del 2006).
+b) Certifica corresponsabilidades de asistencia y aprobación de acuerdo con los cronogramas establecidos por la UG.
+(Así reformado el acápite anterior mediante el artículo 1° del decreto ejecutivo N° 33303 del 16 de agosto del 2006).
 c) Ejecuta acciones de mejoramiento de la calidad de la oferta educativa.
 d) Otras que defina y recomiende el Panel Técnico.
 2) El Instituto Mixto de Ayuda Social (IMAS):
 a) Aplica la Ficha de Información Social (FIS), procesa y asigna puntaje a las familias postulantes.
-b) Emite listado de Elegibles y lo remite a la UE.
+b) Emite listado de Elegibles y lo remite a la UG.
+(Así reformado el acápite anterior mediante el artículo 1° del decreto ejecutivo N° 33303 del 16 de agosto del 2006).
 c) Gira a los titulares de las familias beneficiarias los recursos captados de FODESAF o bien ejecuta con recursos propios.
 3) El Instituto Nacional de Aprendizaje (INA):
 a) Ejecuta acciones de oferta complementaria.
@@ -15,7 +18,8 @@ b) Armoniza sus programas de becas para evitar duplicidades con el presente prog
 a) Participa en el diseño, y ejecuta acciones de atención primaria de la salud en las que deberían participar las familias beneficiarias como parte de sus corresponsabilidades.
 b) Apoya en la aplicación de la Ficha de Información Socioeconómica (FIS) a las familias postulantes.
 c) Otras que defina y recomiende el Panel Técnico.
-5) Unidad Ejecutora (UE):
+5) Unidad de Gestión (UG):
 a) Es responsable de la implementación del Programa.
 b) Armonizar y coordinar las acciones interinstitucionales para el adecuado cumplimiento de los objetivos establecidos.
 c) Da seguimiento, monitorea y evalúa el Programa.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33303 del 16 de agosto del 2006).
