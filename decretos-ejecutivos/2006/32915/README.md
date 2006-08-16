@@ -14,3 +14,4 @@ Reglamento de Becas de la Junta de Desarrollo Regional de la Zona Sur de la prov
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-26 | la propia norma |
+| 2 | 2006-08-16 | Decreto Ejecutivo 33320 (2006-08-16) |
