@@ -14,3 +14,4 @@ Implantación del Reglamento General sobre Sociedades Administradoras y Fondos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-16 | la propia norma |
+| 2 | 2006-08-16 | Acuerdo 121 (2006-07-27) |
