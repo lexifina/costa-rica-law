@@ -1,0 +1,1 @@
+Artículo 9º—Preselección de personal: Por razones de oportunidad y conveniencia esta Municipalidad se reserva el derecho de solicitar información para efectos de preseleccionar y tener información actual y vigente de posibles candidatos a formar parte del cuerpo municipal.

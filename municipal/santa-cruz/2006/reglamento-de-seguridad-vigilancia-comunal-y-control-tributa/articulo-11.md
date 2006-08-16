@@ -1,0 +1,1 @@
+Artículo 11.—Cuando lo requiera la Administración superior los policías municipales se someterán a exámenes psicológicos y sanguíneos (dopim), aplicando las sanciones graves que indica el presente Reglamento en caso de ser positivo.
