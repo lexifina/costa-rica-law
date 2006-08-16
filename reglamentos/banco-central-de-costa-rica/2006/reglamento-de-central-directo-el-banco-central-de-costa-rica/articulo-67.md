@@ -1,0 +1,1 @@
+Artículo 67.—La información relacionada con los términos y condiciones financieras de los instrumentos ofrecidos puede ser consultada por los inversionistas en Central Directo; no obstante, el BCCR podrán realizar campañas publicitarias o crear los mecanismos de comunicación y divulgación que considere necesarios para promocionar su oferta en el mercado al cual se dirige.

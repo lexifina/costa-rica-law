@@ -1,0 +1,1 @@
+Artículo 18.—Como parte del trámite de suscripción, Central Directo enviará al inversionista solicitante una notificación a su dirección de correo electrónico confirmando el resultado final de la solicitud.

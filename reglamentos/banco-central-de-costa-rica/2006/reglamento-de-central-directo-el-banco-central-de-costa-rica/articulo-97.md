@@ -1,0 +1,1 @@
+Artículo 97.—Para que un inversionista pueda disfrutar de la exención del impuesto sobre la renta que establece la Ley 7092, tiene que estar acreditado como una persona exenta por la Dirección General de Tributación, conforme con el catálogo de personas exentas que publica esa dependencia mediante el sitio Web del Ministerio de Hacienda.

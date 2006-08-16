@@ -1,0 +1,2 @@
+Artículo 33.—El inversionista es quien decide la composición de su clave de acceso, ya sea durante el trámite de suscripción, cada vez que desee modificarla, por caducidad o cuando deba cambiarla por olvido; en este último caso, debe sujetarse a los procedimientos operativos establecidos por el BCCR para su reposición, los cuales pueden consultarse en Central Directo.
+Durante los dos días naturales siguientes a la modificación de su clave, el inversionista no podrá realizar un nuevo cambio de clave.

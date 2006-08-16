@@ -1,0 +1,1 @@
+Artículo 34.—Por razones de seguridad, Central Directo valida que la clave de acceso registrada por el inversionista cumple con las condiciones de estructura y longitud establecidas. Dichas condiciones están basadas en buenas prácticas internacionales y podrán considerar el uso de combinaciones de letras mayúsculas, minúsculas, números y caracteres especiales.

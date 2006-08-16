@@ -1,0 +1,1 @@
+Artículo 63.—Las comisiones a cargo del inversionista se cobrarán contra su CCI en el momento en que confirma el envío del movimiento de fondos y, cuando el cobro corresponda realizarlo en colones, se calculará al tipo de cambio que establezca el Reglamento del Sistema de Pagos para esos propósitos.

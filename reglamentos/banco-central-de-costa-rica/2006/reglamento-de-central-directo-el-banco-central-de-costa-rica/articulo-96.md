@@ -1,0 +1,1 @@
+Artículo 96.—El BCCR es responsable de la recaudación de los impuestos y los trasladará al Ministerio de Hacienda de conformidad con las disposiciones que para esos efectos establece el Código de Normas y Procedimientos Tributarios (Ley Nº 4755, del 3 de mayo de 1971).

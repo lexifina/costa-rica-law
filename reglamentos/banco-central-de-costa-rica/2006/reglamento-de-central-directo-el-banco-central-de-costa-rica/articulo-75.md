@@ -1,0 +1,1 @@
+Artículo 75.—Cuando el inversionista registre una orden de inversión, podrá especificar si desea calendarizar el pago de los vencimientos, de forma tal que en la fecha de vencimiento Central Directo transfiera automáticamente las sumas vencidas a la CC que seleccione para el pago. Esta condición puede ser modificada por el inversionista mientras la inversión se mantenga vigente.

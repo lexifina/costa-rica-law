@@ -1,0 +1,1 @@
+Artículo 56.—Además de los movimientos que realice desde Central Directo para trasladar fondos de su CC a la CCI, el inversionista puede ordenar desde su entidad financiera movimientos de fondos utilizando los servicios TFT y CDD, disponibles en todas las entidades asociadas al SINPE.
