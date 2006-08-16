@@ -1,0 +1,12 @@
+Artículo 3º—Del Comité de Riesgos. El Comité de riesgos es el órgano responsable de analizar las políticas, metodologías, límites e indicadores para una efectiva gestión de riesgo, que le proponga el Gestor de Riesgo, ya sea por iniciativa de este, por comisión expresa del comité o por las directrices emitidas por los órganos de regulación. Compete a este Comité remitir y someter a aprobación dichas políticas por parte de la Junta Directiva de Popular Fondos.
+Aprobará los procedimientos a seguir para implementar las políticas, directrices y metodologías determinadas y aprobadas. También velará porque las distintas áreas de Popular fondos estén ejecutando correctamente la estrategia de gestión aprobada en materia de riesgo para la institución y la administración de los fondos de inversión.
+El Gestor de Riesgo de Popular Fondos deberá controlar que las políticas y procedimientos estén en concordancia con la normativa aprobada.
+El Comité estará integrado por los siguientes miembros:
+a) El Gerente de Popular Fondos, quien lo presidirá y en caso de empate, ejercerá el doble voto.
+b) El Jefe del Departamento Financiero de Popular Fondos, quien será su Vicepresidente y sustituirá al Presidente en caso de ausencia.
+c) El Gestor de Riesgos de Popular Fondos, quien será su Secretario.
+d) El Coordinador del Proceso de Gestión de riesgo del Banco Popular y de Desarrollo Comunal, o su delegado, quien debe ser funcionario del Área de Gestión de Riesgo del Banco Popular.
+El Administrador de Portafolio de Popular Fondos asistirá con derecho a voz, pero sin voto. El único miembro que puede delegar es el indicado en el inciso d) anterior.
+El quórum para sesionar quedará conformado por tres de los miembros, siempre y cuando se cuente con la asistencia del Coordinador del Proceso de Gestión de Riesgo del Banco Popular y de Desarrollo Comunal, o su delegado.
+El Comité revisará y coordinará periódicamente las acciones correspondientes que realiza la institución para cumplir con el debido control interno operativo, y colaborará con la alta administración en el cumplimiento del buen gobierno corporativo, con base en lo establecido en el artículo 15 del Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular y de Desarrollo Comunal, para la implementación de las políticas establecidas a nivel corporativo.
+El Comité de Riesgos coordinará las acciones correspondientes con el Proceso de Administración del Riesgo del Banco Popular y de Desarrollo Comunal para la implementación de las políticas establecidas a nivel corporativo.

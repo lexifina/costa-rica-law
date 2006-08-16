@@ -1,0 +1,3 @@
+Artículo 9º—Actas. El Comité de Riesgo llevará un libro de actas, físico o electrónico, debidamente legalizado, en el cual se consignen los acuerdos tomados y las justificaciones técnicas que motivaron esos acuerdos.
+El Gestor de Riesgo fungirá como secretario técnico del Comité, para lo cual tomará nota de lo comentado en el Comité de forma tal que a más tardar cinco días hábiles después lo hará circular mediante correo electrónico para que se hagan correcciones y observaciones correspondientes.
+De esta forma en la siguiente reunión se procederá a su aprobación final y firma. Las actas deben ser firmadas por todos los miembros presentes.
