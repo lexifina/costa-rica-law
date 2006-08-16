@@ -1,0 +1,6 @@
+Artículo 2º—Normativa reglamentaria que no da derecho a reembolso. De conformidad con el Reglamento general sobre Sociedades Administradoras y Fondos de Inversión, la implantación de la siguiente normativa no da derecho a reembolso:
+a) La suspensión del cobro de aquellas comisiones pagadas directamente por el inversionista, reveladas en el prospecto que sean diferentes a las comisiones de entrada y salida.
+b) El cumplimiento de los fondos del mercado de dinero del plazo promedio de vencimiento de la cartera de valores de 90 días dispuesto en el inciso b) del artículo 55, y el porcentaje máximo de endeudamiento del 10% establecido en el artículo 44 del Reglamento.
+c) La aplicación de cambios en la política de inversión en los fondos del mercado de dinero que les permita invertir hasta un 15% del total de activos en valores cuyos días al vencimiento se encuentren entre 360 y 540 días, según lo dispuesto en el inciso a) del artículo 55 del Reglamento.
+d) La indicación del nombre de la entidad responsable de llevar el libro oficial que acredita la titularidad de los inversionistas, de conformidad con lo establecido en el párrafo tercero del artículo 31 del Reglamento
+e) Por otras disposiciones reglamentarias que no cuenten con transitorios o que no estén referidas en otro artículo de este acuerdo.
