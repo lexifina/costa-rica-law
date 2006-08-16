@@ -15,3 +15,4 @@ Normas para el reconocimiento de bancos extranjeros de primer orden
 | --- | --- | --- |
 | 1 | 2004-08-19 | la propia norma |
 | 2 | 2005-09-28 | Reglamento 5248 (2005-09-28) |
+| 3 | 2006-08-16 | Reglamento 5291 (2006-08-16) |
