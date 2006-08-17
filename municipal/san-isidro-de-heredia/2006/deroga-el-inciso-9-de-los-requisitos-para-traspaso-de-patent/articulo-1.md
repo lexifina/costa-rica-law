@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SAN ISIDRO DE HEREDIA
+El Concejo Municipal de San Isidro de Heredia, en sesión ordinaria 51-2006, del 7 de agosto de 2006, mediante acuerdo N° 996-2006 por unanimidad y definitivamente aprobado, con dispensa de trámite de Comisión, aprobó derogar el inciso 9) de los Requisitos para Traspaso de Patentes de Licores, de la Municipalidad de San Isidro de Heredia, el cual fuera aprobado mediante acuerdos 414 y 415-2002 de sesión ordinaria 192- 2002 del 6 de junio de 2002 y publicados en el Diario Oficial La Gaceta Nº 120 del 24 de junio de 2002. Rige a partir de su publicación.
+San Isidro de Heredia, 8 de agosto de 2006.
