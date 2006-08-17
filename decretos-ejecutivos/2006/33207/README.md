@@ -14,3 +14,4 @@ Modifica a la Junta de Administración Portuaria y de Desarrollo Económico de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-13 | la propia norma |
+| 2 | 2006-08-17 | Decreto Ejecutivo 33330 (2006-08-17) |
