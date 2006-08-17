@@ -1,0 +1,1 @@
+17.—Todo pago que se ordene debe hacerse contra la documentación de respaldo (orden de compra, contrato u orden de pago por servicios) y en ella se deberá acreditar el nombre del funcionario que lo ordenó e inserte la firma del mismo como respaldo del gasto ordenado; según lo establece el artículo 106 del Código Municipal.
