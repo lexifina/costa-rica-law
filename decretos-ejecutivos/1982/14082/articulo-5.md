@@ -1,5 +1,6 @@
 Artículo 5º.-Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
-1) Canasta básica alimentaria y de bienes esenciales para la educación:
+1) Canasta básica alimentaria y de bienes esenciales para la educación(*):
+(*)(Nota de Sinalevi: Mediante resolución RES-DGA-363 del 17 de noviembre del 2010, se estableció que: “…1. En aplicación del artículo 5 del Decreto Ejecutivo Nº 14082-H,” en los incisos 1) “Canasta básica alimentaria y de bienes esenciales para la educación, se elimina el 13% del Impuesto General sobre las Ventas en el Arancel automatizado, al inciso arancelario 1902.30.00.00, por tratarse de pastas alimenticias sin rellenar…”)
 I.- (*)Canasta Básica tributaria
 Los siguientes productos de panadería que contengan levadura:
 Pan baguette
@@ -267,6 +268,8 @@ Palmito fresco, excepto el enlatado o envasado
 (Así adicionada la mercancía anterior por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Plantas vivas y productos de la floricultura de las partidas SAC06.03 y 06.04, excepto los arreglos, centros de mesa, ofrendas florales y artículos similares
 (Así adicionada la mercancía anterior por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Preparaciones alimenticias, en polvo o en bebidas, para una nutrición completa y balanceada, del tipo para régimen especial según la norma Codex Alimentarius, excepto del tipo hidratantes, energéticas, restituyentes, isotónicas, de minerales o similares usualmente para deportistas u otro.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 33325 del 17 de agosto de 2006)
 II. Bienes esenciales para la Educación
 Diccionario
 Enciclopedia
