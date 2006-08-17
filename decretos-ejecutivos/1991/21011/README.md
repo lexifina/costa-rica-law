@@ -13,3 +13,4 @@ Crea Comisión Nacional Educación Turística y Hotelera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-02-13 | la propia norma |
+| 2 | 2006-08-17 | Decreto Ejecutivo 33378 (2006-08-17) |
