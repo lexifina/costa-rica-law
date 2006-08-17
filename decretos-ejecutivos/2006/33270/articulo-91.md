@@ -1,0 +1,1 @@
+Artículo 91.—Corresponde al Departamento de Recursos Humanos o a los Encargados Auxiliares, cuando así se haya acordado, la emisión de constancias o certificaciones de tipo laboral que requieran sus empleados o las diferentes Direcciones o Departamentos del Ministerio, en el ejercicio propio de sus funciones.

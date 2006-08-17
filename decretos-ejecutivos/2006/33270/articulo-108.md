@@ -1,0 +1,1 @@
+Artículo 108.—Contra la resolución final que se dicte cabrá el Recurso de Reposición, el cual deberá interponerse ante el Despacho del Ministro (a) de Cultura, Juventud y Deportes o del jerarca que corresponda en el caso de órganos desconcentrados, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro del término legal correspondiente.

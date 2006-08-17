@@ -1,0 +1,2 @@
+Artículo 76.—No obstante lo estipulado en otros artículos de este capítulo, las licencias para estudios podrán ser denegadas libremente, sin responsabilidad para el Ministerio y sin que situaciones similares o sucedidas con anterioridad puedan considerarse como derechos adquiridos.
+El Jefe inmediato y el Departamento de Recursos Humanos, serán responsables de velar por el cumplimiento de las anteriores normas y no darán trámite a nuevas licencias para estudio, sin antes verificar que el servidor se haya hecho acreedor a la misma.

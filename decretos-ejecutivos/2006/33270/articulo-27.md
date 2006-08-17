@@ -1,0 +1,1 @@
+Artículo 27.—El Ministerio podrá permitir que, en sus instalaciones, los servidores realicen actividades conmemorativas fuera de la jornada laboral, en los Días de la Madre y del Padre, así como en los días asignados a las diversas profesiones u oficios, observando siempre las normas de decoro, es decir, sin ingerir bebidas alcohólicas y preservando las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 4º—Los Directores, Jefes de Departamento y en general, todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración y supervisión de personal son responsables ante el Ministro, los Viceministros y el Oficial Mayor, de velar por la correcta aplicación de todas las disposiciones de este Reglamento.

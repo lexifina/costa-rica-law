@@ -1,0 +1,1 @@
+Artículo 139.—Será también causa de finalización de la relación laboral con el Ministerio, cuando el servidor incurra en causal de despido, sea inhabilitado para el desempeño de cargos públicos, decretado por sentencia firme de Autoridad Competente o se resuelva la nulidad de su nombramiento.

@@ -1,0 +1,1 @@
+Artículo 54.—Se considerará abandono de trabajo, cuando el servidor hace dejación dentro de la jornada de trabajo, de la labor. Para efectos de calificar el abandono no es necesario que el trabajador salga del lugar donde presta sus servicios, sino bastará que de manera injustificada abandone la labor que le ha sido asignada.

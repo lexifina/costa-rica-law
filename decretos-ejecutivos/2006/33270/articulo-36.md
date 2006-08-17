@@ -1,0 +1,1 @@
+Artículo 36.—No podrán concederse permisos para trabajar menos de la jornada ordinaria, diaria o semanal, salvo por motivo de estudios en la forma establecida en este Reglamento o en otras disposiciones legales.

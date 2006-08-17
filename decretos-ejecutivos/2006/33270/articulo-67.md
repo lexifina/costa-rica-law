@@ -1,0 +1,1 @@
+Artículo 67.—Las licencias sin goce de salario hasta por un mes podrán concederse mediante resolución interna firmada por el Ministro o el máximo jerarca de los órganos desconcentrados, mientras que las licencias mayores de un mes podrán concederse con apego a las disposiciones contempladas en el artículo 33 del Reglamento al Estatuto del Servicio Civil.

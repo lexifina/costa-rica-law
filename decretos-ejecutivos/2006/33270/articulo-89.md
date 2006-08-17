@@ -1,0 +1,1 @@
+Artículo 89.—En caso de recargo de funciones, el servidor devengará el salario base correspondiente a la categoría del puesto que se le recargue; todo de conformidad con lo dispuesto en el 22 bis del Reglamento del Estatuto de Servicio Civil.

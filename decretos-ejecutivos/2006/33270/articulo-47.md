@@ -1,0 +1,1 @@
+Artículo 47.—Cuando no funcione el sistema electrónico de registro de asistencia a labores en alguno de los lugares de prestación de servicios, el Jefe del Departamento de Recursos Humanos indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.

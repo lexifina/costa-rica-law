@@ -1,0 +1,1 @@
+Artículo 133.—El despido sin responsabilidad patronal de los servidores excluidos del Régimen de Servicio Civil, se hará de conformidad con el Procedimiento Administrativo dispuesto en Libro Segundo de la Ley General de la Administración Pública, observando el término señalado en al artículo anterior.

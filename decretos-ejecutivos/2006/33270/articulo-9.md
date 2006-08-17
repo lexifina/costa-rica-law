@@ -1,0 +1,2 @@
+Artículo 9º—Son servidores del Ministerio los nombrados con sujeción al Régimen de Servicio Civil sean regulares o interinos, los excluidos de dicho Régimen y los empleados de confianza, los cuales deben ser investidos mediante acto válido y eficaz de nombramiento que ha de cumplir los requisitos legales pertinentes.
+El Ministerio y su máximo jerarca en el nombramiento de sus servidores, debe garantizar igualdad de oportunidades a aquellas personas con algún tipo de discapacidad.

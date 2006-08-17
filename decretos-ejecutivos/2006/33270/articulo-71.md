@@ -1,0 +1,1 @@
+Artículo 71.—Las licencias que se otorguen para la capacitación y formación de los servidores, se regirán por lo dispuesto en el Decreto Ejecutivo Nº 28413-C de 6 de enero del 2001, publicado en La Gaceta Nº 22 de 1º de febrero del 2000, Reglamento de Becas y Facilidades de Capacitación y Desarrollo del Recurso Humano del Ministerio de Cultura, Juventud y Deportes.

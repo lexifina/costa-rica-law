@@ -1,0 +1,1 @@
+Artículo 10.—Los nombramientos de los servidores que se efectúen con sujeción al Régimen de Servicio Civil, se entenderán por tiempo indefinido. Los nombramientos a que se refiere los incisos 10), 11) y 12) del artículo segundo de este Reglamento, se realizarán por el período que la normativa jurídica, así lo indique.

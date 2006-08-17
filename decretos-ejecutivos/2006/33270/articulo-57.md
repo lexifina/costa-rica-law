@@ -1,0 +1,1 @@
+Artículo 57.—Como regla general, la remuneración durante las vacaciones será de acuerdo con el salario correspondiente asignado en la Ley de Salarios de la Administración Pública o en la Ley de Presupuesto, vigente a la fecha en que el servidor disfruta del descanso anual.

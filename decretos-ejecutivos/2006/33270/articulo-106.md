@@ -1,0 +1,1 @@
+Artículo 106.—Dicho procedimiento deberá concluir con acto final emitido por el Ministro (a) de Cultura, Juventud y Deportes o el máximo jerarca del Órgano Desconcentrado, según se trate, en un término no mayor a dos meses, contado a partir del día de interposición de la denuncia.
