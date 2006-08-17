@@ -1,0 +1,1 @@
+Artículo 5º—La confidencialidad deberá ser observada siempre, a menos que se obtenga autorización del cliente expresa y concreta para revelarla, o si hay una solicitud de las Autoridades Competentes legalmente.

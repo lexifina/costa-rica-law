@@ -1,0 +1,1 @@
+Artículo 20.—La competencia profesional requiere un alto nivel de educación general, seguido por educación específica, entrenamiento, y el cumplimiento de un período de experiencia en el trabajo propio de la contaduría pública.

@@ -1,0 +1,1 @@
+Artículo 50.—Si el cliente o empleador no corrige el error, el Contador Público Autorizado debe salvar su responsabilidad no representando más al cliente o considerar la continuación de sus servicios a la luz de sus responsabilidades profesionales y éticas.

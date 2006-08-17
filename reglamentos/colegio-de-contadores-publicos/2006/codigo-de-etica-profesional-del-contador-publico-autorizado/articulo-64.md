@@ -1,0 +1,1 @@
+Artículo 64.—Ningún miembro que participe en Comisiones de Trabajo, Junta Directiva, Comité Consultivo Permanente, Tribunal de Honor o representación de comisiones por Asamblea, utilizará su posición para influenciar a otras comisiones para sacar provecho en beneficio propio o de un tercero, o sacar ventaja frente a otros colegas o empresas.

@@ -1,0 +1,1 @@
+Artículo 61.—El Contador Público Autorizado que ocuparé un puesto en la Junta Directiva velará por los intereses de la sociedad y de sus agremiados, sin promoverse para fines personales. No hará alusión a sus facultades que promuevan alguna deslealtad por el encargo dado.

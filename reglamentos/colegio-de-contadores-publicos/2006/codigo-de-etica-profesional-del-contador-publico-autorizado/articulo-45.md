@@ -1,0 +1,1 @@
+Artículo 45.—No debe dar a un cliente o empleador la seguridad de que su declaración de impuestos o el consejo fiscal ofrecidos sean indiscutibles, por el contrario, debe hacer conciencia de las limitaciones del consejo fiscal y de los servicios dados, para que no se malinterprete la expresión de una opinión como la veracidad de un hecho.

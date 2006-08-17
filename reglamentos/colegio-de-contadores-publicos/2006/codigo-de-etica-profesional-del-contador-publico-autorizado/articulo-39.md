@@ -1,0 +1,1 @@
+Artículo 39.—El Contador Público Autorizado debe cumplir con el Arancel mínimo de Honorarios Profesionales que se encuentre vigente. No deben facturarse servicios utilizando un arancel menor al estipulado, el hacerlo se reputará competencia desleal para efectos sancionatorios.

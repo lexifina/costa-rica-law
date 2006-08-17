@@ -1,0 +1,1 @@
+Artículo 15.—Los Contadores Públicos Autorizados en cargos de auditoría interna deben realizar sus revisiones con la mayor imparcialidad y observando las normas de auditoría interna, y si lo hacen en la Auditoria Interna para el Sector Público también deben observar las Normas legales vigentes y las disposiciones emitidas por la Contraloría General de la República.

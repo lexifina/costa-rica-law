@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Competencia profesional
+Artículo 19.—El Contador Público Autorizado debe de abstenerse de ofrecer sus servicios profesionales en aquellas áreas en que no tenga suficiente experiencia o competencia profesional para llevarlas a cabo, a menos que obtenga consejo y asistencia adecuada que lo haga capaz de ejecutar los servicios ofrecidos. En cuanto a la participación de personal especializado para desarrollar el trabajo, es entendido que el Contador Público Autorizado asumirá la responsabilidad respecto a la capacidad y competencia del especialista y deberá informarlo así a su cliente.
