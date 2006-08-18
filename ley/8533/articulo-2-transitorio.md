@@ -1,0 +1,1 @@
+Transitorio II.—Dentro de los sesenta días calendario contados a partir de la entrada en vigencia de la presente Ley, a sus disposiciones deberán ajustarse las ferias del agricultor establecidas y los entes autorizados para entregar carnés.

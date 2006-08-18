@@ -1,0 +1,1 @@
+Artículo 26.—El comité regional podrá intervenir cualquier feria de su respectiva región cuando se determinen anomalías graves en su administración; además, cuando las circunstancias lo ameriten, previo cumplimiento de los principios del debido proceso, podrá revocar la autorización para administrar la feria y asignar su administración a otro ente administrador.

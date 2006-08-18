@@ -1,0 +1,1 @@
+Artículo 32.—Los carnés se extenderán conforme a la estacionalidad y el ciclo de los cultivos. Sin embargo, en ningún caso, el carné se otorgará con una vigencia superior a seis meses, y podrá ser renovado por un período similar.
