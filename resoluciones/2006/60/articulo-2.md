@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución N° 122-05 de las quince horas del día seis de diciembre de dos mil cinco de la Dirección General del Hacienda, publicada en La Gaceta N° 49 del nueve de marzo de 2006.
