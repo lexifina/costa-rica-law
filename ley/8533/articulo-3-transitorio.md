@@ -1,0 +1,1 @@
+Transitorio III.—Todas las autorizaciones otorgadas para operar ferias, así como los carnés que hayan sido emitidos con anterioridad a la promulgación de la presente Ley, continuarán vigentes, siempre que se hayan otorgado conforme a la normativa que se encontraba vigente. No obstante, para renovarlos deberán ajustarse a lo aquí estipulado.

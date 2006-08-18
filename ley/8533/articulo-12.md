@@ -1,0 +1,1 @@
+Artículo 12.—Los precios de venta de los productos agropecuarios contemplados en la lista de precios de referencia para ferias, serán publicados semanalmente por el CNP. La metodología para elaborar esta lista será establecida por el CNP para cada producto. Esta lista de referencia regirá para todas las ferias del país.
