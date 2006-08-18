@@ -1,0 +1,1 @@
+Artículo 13.—El CNP, por medio del Programa de Reconversión Productiva, previa autorización de su Junta Directiva, y de conformidad con la normativa que rige la materia, podrá financiar a las organizaciones participantes en el Programa Nacional de Ferias del Agricultor, con la exclusiva finalidad de mejorar dichas ferias.

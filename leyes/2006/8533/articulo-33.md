@@ -1,0 +1,1 @@
+Artículo 33.—Si la producción lo amerita, podrán extenderse hasta dos carnés de vendedor auxiliar por finca, que los faculten para participar en un solo espacio por feria; sin embargo, podrán asistir a diferentes ferias.

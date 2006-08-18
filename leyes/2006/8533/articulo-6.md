@@ -1,0 +1,1 @@
+Artículo 6º—Los pequeños y medianos productores que no puedan asistir directamente a comercializar sus productos a las ferias del agricultor, podrán hacerlo por medio de una organización de productores sin fines de lucro, de la zona, autorizada previamente para tales efectos por el respectivo ente emisor de carnés.

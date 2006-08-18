@@ -1,0 +1,4 @@
+Artículo 36.—Cumplidos por parte de las organizaciones los requisitos establecidos en el Reglamento de la presente Ley, podrán otorgárseles los carnés de vendedores auxiliares a los cuales se hagan acreedores.
+Sin embargo, a una misma organización, solo se le permitirá participar hasta en un máximo del veinte por ciento (20%) del total de ferias del agricultor existentes en el territorio nacional, ello de acuerdo con su capacidad de producción y comercialización.
+Para la asignación de estos carnés, deberá dárseles prioridad a las organizaciones que integran a productores que, por condiciones socioeconómicas o de difícil acceso poblacional, se encuentren imposibilitadas para vender sus productos directamente en las ferias del agricultor.
+Los carnés únicamente podrán ser usados por asociados o empleados de la organización.

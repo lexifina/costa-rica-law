@@ -1,0 +1,8 @@
+SECCIÓN II
+Cuotas de participación en ferias del agricultor e inspección a fincas
+Artículo 27.—Con el asesoramiento del CNP y la Junta Nacional de Ferias del Agricultor, el comité regional correspondiente establecerá el monto de la cuota que los entes administradores de ferias podrán cobrar por concepto de participación en las ferias. Para fijarla, únicamente se tomarán en cuenta los siguientes rubros, con base en los estudios que, para tales efectos, deberán presentar los entes administradores:
+a) Los costos operativos y administrativos por la operación de la feria.
+b) Las necesidades inmediatas de inversión para el mejoramiento y la modernización del Programa, de conformidad con el respectivo plan de inversión.
+Una vez liquidados los gastos operativos, los recursos provenientes de las cuotas deberán destinarse, única y exclusivamente, a reinvertirse en el mejoramiento y la modernización de las ferias que los generan, salvo lo dispuesto en el artículo siguiente; se prohíbe a los entes administradores asignarlos a fines distintos de los establecidos en esta Ley. El incumplimiento de esta disposición será causal de revocatoria de la administración de la feria, previa aplicación del debido proceso.
+La cuota se revisará anualmente con el fin de determinar si es necesario modificarla; pero, extraordinariamente podrá ser estudiada cuando las circunstancias así lo ameriten.
+Asimismo, los comités regionales, con el asesoramiento del CNP y la Junta Nacional de Ferias del Agricultor, establecerán, bajo parámetros técnicos y económicos, el monto que los entes emisores podrán cobrar para cubrir los costos de la emisión del carné respectivo y de las inspecciones a las fincas.

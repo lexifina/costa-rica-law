@@ -1,0 +1,2 @@
+Artículo 21.—Créase un comité regional por cada región. Su constitución se efectuará mediante la celebración de una asamblea general constitutiva, en la que se aprobarán los estatutos del comité regional y se elegirá a su junta directiva.
+Una vez efectuada la asamblea, constituido el comité regional y nombrada su junta directiva, se levantará un acta, de conformidad con el artículo 15 de la presente Ley, y se procederá a la inscripción en el Registro de Organizaciones Sociales, del Ministerio de Trabajo y Seguridad Social.

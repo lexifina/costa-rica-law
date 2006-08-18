@@ -1,0 +1,3 @@
+Artículo 31.—Para obtener el carné, toda organización de productores o productor individual deberá presentar su solicitud ante cualquiera de los entes emisores de su región y sector productivo.
+Los carnés de identificación para cada participante serán entregados previa inspección de la finca y pago de la cuota respectiva por concepto de dicha inspección, así como la correspondiente emisión del carné.
+Cuando se trate de individuos solicitantes se exigirán los requisitos necesarios para determinar que verdaderamente sean productores de la zona; en caso contrario, la solicitud será denegada. De la misma manera se procederá cuando se demuestre la falta de veracidad en la información suministrada.

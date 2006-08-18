@@ -1,0 +1,1 @@
+Artículo 23.—A los miembros de las juntas directivas de los comités regionales y a sus familiares, les serán aplicables las prohibiciones y limitaciones señaladas en el artículo 17 de la presente Ley.

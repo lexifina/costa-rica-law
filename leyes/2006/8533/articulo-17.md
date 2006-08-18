@@ -1,0 +1,2 @@
+Artículo 17.—La Junta Nacional de Ferias del Agricultor no podrá estar integrada por personas que tengan entre sí parentesco, por consanguinidad o afinidad, incluso hasta el tercer grado; tampoco, por empleados de la Junta, quienes sean familiares de los miembros, por consanguinidad o afinidad, incluso hasta el segundo grado.
+Ningún miembro de la Junta podrá ser, a la vez, empleado de dicha entidad, ni recibir dádivas, directa ni indirectamente. Además, se les prohíbe venderle servicios a la Junta.
