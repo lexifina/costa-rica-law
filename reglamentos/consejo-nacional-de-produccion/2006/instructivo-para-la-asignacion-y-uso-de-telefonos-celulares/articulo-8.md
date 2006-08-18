@@ -1,0 +1,3 @@
+Artículo 8º—Tarifa a reconocer. En el caso del Administrador y Subadministrador, se cubrirá el monto total de la facturación por el uso, en funciones propias del cargo, del servicio celular propiedad de la FANAL.
+De igual forma se le reconocerá a aquellos funcionarios a los que se les asigne el servicio celular propiedad de FANAL, el monto total de la facturación por el uso del servicio celular en funciones propias del cargo.
+En caso de que se demuestre que el funcionario ha realizado un uso indebido del servicio celular, la Administración procederá a revocar la asignación del mismo, sin perjuicio de las responsabilidades administrativa disciplinaria, civil y penal en que haya incurrido el funcionario.

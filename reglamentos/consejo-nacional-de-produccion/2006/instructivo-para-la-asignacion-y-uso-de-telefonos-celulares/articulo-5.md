@@ -1,0 +1,1 @@
+Artículo 5º—En los casos indicados en el artículo 3º del presente Reglamento, el aparato celular y sus accesorios, se entregará bajo previa formalización de un convenio entre la Administración y el funcionario; que se utilizará para tales efectos y que deberá tramitarse en el Departamento Administrativo.

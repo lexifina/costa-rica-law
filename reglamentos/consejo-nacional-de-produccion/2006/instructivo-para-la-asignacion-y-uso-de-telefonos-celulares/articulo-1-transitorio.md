@@ -1,0 +1,1 @@
+Transitorio I.—Una vez publicado este Instructivo en el Diario Oficial La Gaceta; la asignación vigente de servicios celulares, será revisada por el Administrador, Subadministrador, con la finalidad de actualizar o revocar las asignaciones que se consideren necesarias, sin ninguna responsabilidad para la Administración.

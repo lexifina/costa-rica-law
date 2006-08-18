@@ -1,0 +1,1 @@
+Artículo 17.—Sanciones administrativas. Al funcionario que incumpla el presente Instructivo, le será aplicable, lo que a sanciones indica la Ley Contra La Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422.

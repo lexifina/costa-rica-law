@@ -1,0 +1,1 @@
+Artículo 16.—Responsabilidad de la Administración Activa. Corresponderá a los Jefes de los Departamentos Financiero y Administrativo, velar por el adecuado, proporcional y racional cumplimiento de las normas contenidas en el presente Instructivo y cualesquiera otras que supletoriamente le sean aplicables en la materia.

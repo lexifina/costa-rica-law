@@ -1,0 +1,1 @@
+Artículo 11.—Condiciones de uso exclusivo. El servicio celular propiedad de FANAL, que se asigne de acuerdo con el artículo 3°, es de uso exclusivo del titular a quien se le asignó para atender y realizar llamadas relativas al cumplimiento de las funciones propias del cargo que funge en FANAL.
