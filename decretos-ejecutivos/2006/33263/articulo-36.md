@@ -1,0 +1,1 @@
+Artículo 36.—Derogatoria. Se deroga el Reglamento Centroamericano sobre el Origen de las Mercancías, aprobado mediante Resolución Nº 146- 2005 (COMIECO XXXII) del Consejo de Ministros de Integración Económica del 26 de setiembre del 2005; así como cualquier otra disposición que se oponga al presente Reglamento, salvo lo regulado en el Artículo siguiente.

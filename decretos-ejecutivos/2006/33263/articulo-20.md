@@ -1,0 +1,10 @@
+Artículo 20.—Obligaciones respecto a las importaciones.
+1. El importador que solicite libre comercio para una mercancía deberá:
+a) presentar, en el momento de realizar la importación definitiva, el Formulario Aduanero, en caso contrario el importador deberá pagar los derechos arancelarios correspondientes;
+b) presentar, sin demora, una declaración de corrección y pagar, cuando proceda, los derechos arancelarios a la importación correspondiente, cuando tenga motivos para creer que la Certificación de Origen contenida en el Formulario Aduanero, que ampara la importación definitiva, contiene información incorrecta. No se aplicará sanción alguna al importador que presente una declaración de corrección, siempre que la Autoridad competente de la Parte importadora no haya iniciado un procedimiento de verificación de origen de conformidad con este Reglamento; y,
+c) proporcionar copia de la Certificación de Origen contenida en el Formulario Aduanero cuando lo solicite su Autoridad competente.
+2. Cuando por cualquier causa una importación proveniente de una de las Partes no se hubiere realizado al amparo del régimen de libre comercio, siendo la mercancía de que se trate originaria, el importador podrá, dentro del plazo de un (1) año, contado a partir de la fecha de la importación, solicitar la devolución de los derechos arancelarios a la importación pagados, siempre que la solicitud vaya acompañada de:
+a) una declaración por escrito, manifestando que la mercancía calificaba como originaria al momento de la importación;
+b) la Certificación de Origen contenida en el Formulario Aduanero; y,
+c) cualquier otra documentación relacionada con la importación de la mercancía, según lo requiera la Parte importadora.
+3. El importador deberá conservar durante un período mínimo de cinco (5) años, contado a partir de la fecha de la importación, la Certificación de Origen contenida en el Formulario Aduanero y toda la demás documentación relativa a la importación requerida por la Parte importadora.
