@@ -1,0 +1,1 @@
+Artículo 2º—El pago de las dietas a los miembros del Consejo Nacional de Migración, queda sujeto al presupuesto de la Dirección General de Migración y Extranjería y a la asistencia de cada miembro a las sesiones, previo control establecido al efecto.
