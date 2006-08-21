@@ -1,0 +1,2 @@
+Artículo 30.—Cuando el usuario no efectúe la entrega de documentos prestados en la fecha y hora de vencimiento establecidos, el Archivo Central procederá a solicitar la entrega de los mismos en forma escrita para dentro de los dos días siguientes al recibido de la nota, vencido el término del nuevo plazo, sin que el funcionario haga entrega de la documentación, se remitirá el caso a la Alcaldía Municipal para las medidas correctivas del caso.
+(Así adicionado en sesión N° 34 del 21 de agosto de 2006)

@@ -14,3 +14,4 @@ Reglamento del Archivo Central de la Municipalidad de Sarapiquí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-01 | la propia norma |
+| 2 | 2006-08-21 | Reglamento municipal 34 (2006-08-21) |
