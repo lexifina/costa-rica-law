@@ -1,1 +1,1 @@
-Artículo 5º—Suspensión de los servicios financieros brindados por Internet. Si por algún motivo la sociedad administradora suspende en forma temporal o indefinida una parte o la totalidad de la información, servicios u otras facilidades que se ofrecen en el sitio Web, esta deberá informar mediante comunicado de hecho relevante dicha situación, así como la fecha estimada en que se espera reestablecer el servicio.
+Artículo 5º—(Así derogado mediante acuerdo SGV-A-124 del 22 de agosto del 2006).

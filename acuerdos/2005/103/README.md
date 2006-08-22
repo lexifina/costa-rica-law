@@ -14,3 +14,4 @@ Instrucciones para la Publicación de Información Referente a Fondos de Inversi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-30 | la propia norma |
+| 2 | 2006-08-22 | Acuerdo 124 (2006-08-22) |
