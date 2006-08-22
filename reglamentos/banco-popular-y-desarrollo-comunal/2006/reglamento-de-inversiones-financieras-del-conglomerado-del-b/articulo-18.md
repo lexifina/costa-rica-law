@@ -1,0 +1,1 @@
+Artículo 18.—Valores autorizados. Las inversiones podrán realizarse en valores representados por medio de macrotítulos desmaterializados, títulos físicos o anotaciones electrónicas en cuenta; deberán ser custodiados internamente por el Banco o en una Central de Valores, todo según lo establecido en las disposiciones indicadas en el artículo 2º de este Reglamento.

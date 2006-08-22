@@ -1,0 +1,6 @@
+Artículo 13.—Operaciones de liquidez. El Banco y sus sociedades por medio del Proceso de Tesorería podrán realizar operaciones en el mercado interbancario y en los mercados de liquidez con el fin de realizar la colocación de recursos y el calce de obligaciones de los flujos de entradas y salidas de efectivo, por medio de:
+a) La adquisición de valores en ventanilla emitidos por el Banco Central de Costa Rica, Ministerio de Hacienda, entidades públicas, bancos privados, mutuales o cuando se trate de operaciones a través de una bolsa y la entidad emisora sea un Banco del sector público, o un banco privado perteneciente a un Grupo Financiero cuyo patrimonio sea mayor a $75 millones.
+b) Operar directamente en mercados interbancarios y bursátiles.
+c) Adquirir productos de liquidez que ofrezca el mercado nacional, de acuerdo a estrategias que el Comité considere fortalecen su gestión.
+d) Adquirir productos de liquidez que ofrezca el Tesoro Nacional del Gobierno de los Estados Unidos de América y los gobiernos del G 7 y sus bancos centrales.
+El Proceso de Tesorería llevará a cabo la gestión y negociación correspondiente a estos instrumentos, para lo cual deberá de informar y justificar en la sesión inmediata del Comité, de inversiones ejecutadas.

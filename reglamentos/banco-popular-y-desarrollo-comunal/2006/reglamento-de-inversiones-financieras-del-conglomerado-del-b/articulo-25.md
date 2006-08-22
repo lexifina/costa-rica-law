@@ -1,0 +1,2 @@
+Artículo 25.—Exceso de límites. El Comité podrá variar los límites establecidos en el presente Reglamento hasta en diez puntos porcentuales sobre el límite aprobado.
+Los motivos que justifican dicha modificación deberán quedar debidamente sustentados en el acta de la sesión correspondiente. Salvo autorización de la Junta Directiva, dicha modificación no podrá mantenerse por un plazo mayor de un mes, ni reiterarse de no haber transcurrido tres meses después del cese de tal modificación.

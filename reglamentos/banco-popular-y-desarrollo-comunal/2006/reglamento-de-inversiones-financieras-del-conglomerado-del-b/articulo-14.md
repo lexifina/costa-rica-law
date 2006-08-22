@@ -1,0 +1,1 @@
+Artículo 14.—Colocación en Portafolios de Inversión. El Banco y sus sociedades, podrán colocar recursos en Portafolios de Inversión siempre y cuando los parámetros y cláusulas estipuladas en los respectivos Prospectos cumplan con los parámetros establecidos en este Reglamento y en las disposiciones aprobadas por la Junta Directiva de cada Sociedad.
