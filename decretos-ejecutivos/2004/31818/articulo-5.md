@@ -1,1 +1,0 @@
-Artículo 5º—Cuando la Comisión Técnica lo considere necesario y/o pertinente, podrá invitar a los representantes de otras organizaciones públicas y privadas, nacionales o internacionales, vinculadas con el ambiente y los sectores energéticos y agropecuarios y/o involucrados en la gestión de fuentes alternativas de combustibles.
