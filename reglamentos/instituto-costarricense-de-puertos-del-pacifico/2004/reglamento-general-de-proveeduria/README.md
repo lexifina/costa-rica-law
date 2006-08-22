@@ -15,3 +15,4 @@ Reglamento General de Proveeduría
 | --- | --- | --- |
 | 1 | 2004-09-23 | la propia norma |
 | 2 | 2005-03-09 | Reglamento 3283 (2005-03-09) |
+| 3 | 2006-08-22 | Reglamento 3368 (2006-08-22) |
