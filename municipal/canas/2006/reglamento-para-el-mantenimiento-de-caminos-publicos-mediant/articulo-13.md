@@ -1,0 +1,1 @@
+Artículo 13.—Una vez finalizada la obra se requerirá la presentación de un informe final por parte del(a) Alcalde(sa) Municipal y el representante legal de la organización quienes deberán sucintamente hacer referencia a los trabajos realizados y presentarlo al Concejo Municipal en un máximo de tiempo de quince (15) días hábiles.

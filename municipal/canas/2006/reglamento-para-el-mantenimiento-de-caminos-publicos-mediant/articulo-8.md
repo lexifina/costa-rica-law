@@ -1,0 +1,1 @@
+Artículo 8º—Una vez recibida la solicitud, el Alcalde (sa) Junto con el Ingeniero tomará en cuenta la valorización disponible de maquinaria sin que se descuiden otros proyectos que en su momento se estén ejecutando dentro del plan operativo de la Junta Vial Cantonal de dicho período.

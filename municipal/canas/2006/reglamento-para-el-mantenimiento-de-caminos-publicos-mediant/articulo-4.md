@@ -1,0 +1,1 @@
+Artículo 4º—Bajo la modalidad de ejecución de obras participativa se deberá respetar el plan anual de intervención establecido por la Junta Vial Cantonal, por lo que en caso de emergencia mediante autorización administrativa debidamente motivada, se podrá alterar dicho orden.

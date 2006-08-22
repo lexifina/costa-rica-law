@@ -1,0 +1,1 @@
+Artículo 2º—Únicamente se podrá suscribir convenios de mantenimiento, tratándose de caminos públicos, los cuales deberán ser debidamente identificados por Unidad Técnica de la Junta Vial Cantonal de Guácimo mientras la misma se encuentre vigente, o en su defecto por la comisión especial que el Concejo Municipal designe al efecto.

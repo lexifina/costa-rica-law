@@ -1,0 +1,1 @@
+Artículo 3º—Bajo la modalidad participativa en el mantenimiento de caminos, únicamente se podrá cubrir por parte de las organizaciones comunales el pago real de horas extras a los operarios municipales y el pago de consumo de combustible, de conformidad con lo establecido en el artículo 78 del Código Municipal.

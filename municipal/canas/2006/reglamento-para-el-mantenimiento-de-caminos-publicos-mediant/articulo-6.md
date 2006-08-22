@@ -1,0 +1,1 @@
+Artículo 6º—Únicamente se suscribirán convenios con organizaciones con personería jurídica propia y Comité de Desarrollo Comunal adscritos a las Asociaciones de Desarrollo o reconocidos por el Concejo Municipal.
