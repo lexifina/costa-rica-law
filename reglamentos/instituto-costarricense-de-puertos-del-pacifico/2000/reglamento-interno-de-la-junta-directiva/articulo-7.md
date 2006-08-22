@@ -1,5 +1,5 @@
-Artículo 7º—La Junta Directiva se reunirá al menos una vez a la semana, fijándose el día martes a las 9:00 horas para tal efecto, reuniéndose alternativamente en San José y Puerto Caldera. Sin embargo, queda facultado el Presidente Ejecutivo para variar el día, la hora y el lugar, siempre y cuando las circunstancias así lo ameriten.
-(Así reformado el párrafo anterior mediante sesión N°3348 del 18 de mayo del 2006).
+Artículo 7º—La Junta Directiva se reunirá al menos una vez a la semana, fijándose el día martes a las 9:00 horas en Puerto Caldera. Sin embargo, queda facultado el Presidente Ejecutivo para variar el día, la hora y el lugar, siempre y cuando las circunstancias así lo ameriten.
+(Así reformado el párrafo anterior mediante Sesión N°3368 del 22 de agosto del 2006).
 La agenda contendrá al menos lo siguiente:
 1) Discusión y aprobación del acta de la Sesión anterior.
 2) Correspondencia.
