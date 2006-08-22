@@ -7,5 +7,6 @@ d) Garantía del objeto ofrecido.
 e) Plazo de entrega.
 f) Y cualquier otra que Correos considere necesaria
 Vencido el plazo indicado en la invitación se procederá con la formulación del cuadro comparativo de factores de valoración de las ofertas recibidas.
-Cuando involucre un monto superior a un millón de colones, la oferta deberá presentarse en sobre cerrado, la apertura deberá ser registrada en un acta que se levante al efecto, que será suscrita por el Jefe de Compras y Contrataciones y un Asesor del Departamento Legal.
+Cuando involucre un monto superior a cuatro millones seiscientos mil colones, la oferta deberá presentarse en sobre cerrado, la apertura deberá ser registrada en un acta que se levante al efecto, que será suscrita por el Jefe de Compras y Contrataciones y un Asesor del Departamento Legal.
 Además de los proveedores invitados podrán participar en el procedimiento de contratación cualquier otro proveedor interesado, siempre y cuando formalice su inscripción en el Registro de Proveedores de Correos.
+(Así reformado mediante sesión Nº 715 del 22 de agosto del 2006)

@@ -15,3 +15,4 @@ Reglamento de Contratación de Correos de Costa Rica S.A.
 | --- | --- | --- |
 | 1 | 2006-05-26 | la propia norma |
 | 2 | 2006-07-20 | Reglamento 707 (2006-07-20) |
+| 3 | 2006-08-22 | Reglamento 715 (2006-08-22) |

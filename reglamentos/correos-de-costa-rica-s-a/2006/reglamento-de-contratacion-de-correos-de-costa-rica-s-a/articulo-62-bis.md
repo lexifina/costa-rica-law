@@ -1,0 +1,8 @@
+Artículo 62 bis.—Contratación por excepción. Se considera contratación por excepción aquella que puede ser objeto de negociación directa entre Correos y el proveedor respectivo sin sujeción a concurso, cuando sea el único medio de satisfacer los intereses de Correos.
+Son modalidades de Contratación por excepción las siguientes:
+Proveedor único: Cuando el objeto a contratar solo pueda ser adquirido a través de un único oferente, el cual debe ser visto no desde el punto de vista del bien o servicio sino de la perspectiva de la necesidad a satisfacer por parte de Correos.
+Proveedor exclusivo: Aquella circunstancia en donde solamente existe una persona física o jurídica que tenga la exclusividad por la naturaleza del objeto a contratar, de brindar un bien, obras o servicios.
+Extrema urgencia: Situación apremiante en la cual se tiene que atender la adquisición de un bien o servicio a fin de evitar lesiones al interés de Correos.
+Caso fortuito o fuerza mayor: Aquel acontecimiento proveniente de la naturaleza o del hombre que no ha podido preverse o que aún cuando pueda ser previsto resulta inevitable.
+La determinación de la aplicación de la Contratación por Excepción será competencia de la Gerencia General cuando el monto sea inferior a cien millones de colones o la Junta Directiva cuando el monto sea superior a cien millones de colones. En todo caso deberá adjuntarse una justificación técnica debidamente razonada y documentada, por parte de la unidad solicitante, bajo su responsabilidad.
+(Así adicionado mediante sesión Nº 715 del 22 de agosto del 2006)
