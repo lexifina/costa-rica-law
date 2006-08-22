@@ -1,2 +1,1 @@
-Artículo 3°—Requisitos mínimos del equipo de hardware. El equipo de hardware con que cuente la Sociedad deberá permitir el adecuado funcionamiento del sistema de administración de fondos, de conformidad con los lineamientos mínimos que se exponen en el artículo siguiente.
-Además deberá permitir la conexión al sistema ingresador de la SUGEVAL, como se especifica en el Manual de Normas y Procedimientos para la Administración del Sistema Ingresador y de Transmisión de Información Financiera periódica a SUGEVAL.
+Artículo 3°—(Así derogado mediante acuerdo SGV-A-124 del 22 de agosto del 2006).

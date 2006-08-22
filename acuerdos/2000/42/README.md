@@ -14,3 +14,4 @@ Instrucciones sobre los recursos humanos y operacionales que deberán cumplir la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2006-08-22 | Acuerdo 124 (2006-08-22) |
