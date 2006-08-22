@@ -1,1 +1,0 @@
-Artículo 7º—A partir del 1º de enero del 2005 se deberán comercializar todas las gasolinas mezcladas con etanol anhidro, destilado nacionalmente y producido utilizando materias primas locales, con las proporciones de mezcla que fije el Poder Ejecutivo.

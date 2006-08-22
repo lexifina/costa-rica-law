@@ -1,1 +1,0 @@
-Artículo 8º—Para el cumplimiento del artículo anterior, se solicita a RECOPE y a ARESEP, en el marco de sus competencias, que tomen las medidas necesarias para la distribución y comercialización de todas las gasolinas mezcladas con etanol anhidro, según lo establecido en el presente Decreto Ejecutivo.
