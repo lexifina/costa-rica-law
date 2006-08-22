@@ -1,0 +1,1 @@
+Artículo 8º—Del seguro familiar. Los familiares del asegurado voluntario tienen derecho a la protección del Seguro Familiar, conforme las normas que al efecto se señalan en el Reglamento del Seguro de Salud.

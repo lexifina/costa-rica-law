@@ -1,0 +1,2 @@
+Artículo 11.—De los ingresos mínimos de referencia y los porcentajes de contribución. Los ingresos mínimos de referencia y los porcentajes de contribución para los asegurados voluntarios, sean éstos cotizantes individuales o por convenios colectivos de aseguramiento, serán establecidos periódicamente por la Junta Directiva de la Caja.
+El nuevo ingreso que resultare en ningún caso podrá ser inferior al mínimo establecido, según la categoría que corresponda.

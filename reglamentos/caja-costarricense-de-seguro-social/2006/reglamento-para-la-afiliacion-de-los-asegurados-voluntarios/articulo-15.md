@@ -1,0 +1,1 @@
+Artículo 15.—De las revisiones periódicas. Periódicamente, con base en los mejores criterios técnicos y actuariales, la Junta Directiva de la Caja, hará revisión de los ingresos mínimos de referencia y los porcentajes de contribución de este Seguro y establecerá las adecuaciones necesarias.

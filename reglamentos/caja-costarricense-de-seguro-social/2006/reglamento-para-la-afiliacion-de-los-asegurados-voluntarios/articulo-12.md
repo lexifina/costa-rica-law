@@ -1,0 +1,1 @@
+Artículo 12.—De los beneficios. Los asegurados voluntarios al día en el pago de cuotas, tienen derecho a las prestaciones que otorga el Seguro de Salud, excepto el pago de incapacidades y licencias por concepto de enfermedad y maternidad.
