@@ -14,3 +14,4 @@ Modifica al Consejo Nacional de Producción, el gasto presupuestario máximo del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-04 | la propia norma |
+| 2 | 2006-08-23 | Decreto Ejecutivo 33367 (2006-08-23) |

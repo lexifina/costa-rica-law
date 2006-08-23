@@ -11,4 +11,5 @@ Considerando:
 5º—Que por medio del oficio STAP-CIRCULAR-0496-05 de 7 de abril de 2005, se comunicó al Consejo Nacional de Producción el gasto presupuestario máximo fijado para el año 2006.
 6º—Que por lo anterior, se hace necesario el aumento del gasto presupuestario máximo fijado para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Consejo Nacional de Producción el gasto presupuestario máximo fijado para el año 2006, establecido según el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que éste no podrá exceder la suma de ¢ 11.040,7 millones en ese período.
+Artículo 1º—Modifícase para el Consejo Nacional de Producción el gasto presupuestario máximo fijado para el año 2006, establecido según el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que éste no podrá exceder la suma de ¢11.599.200.000 (once mil quinientos noventa y nueve millones doscientos mil colones) en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33367 del 23 de agosto del 2006).
