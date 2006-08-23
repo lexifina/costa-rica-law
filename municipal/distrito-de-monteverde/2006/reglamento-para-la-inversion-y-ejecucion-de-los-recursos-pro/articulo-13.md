@@ -1,0 +1,1 @@
+Artículo 13.—Regulaciones supletorias: En materia parlamentaria, debates y otras situaciones no previstas en el presente capítulo o en disposiciones municipales internas aplicables a la Junta Vial Distrital, regirá en lo conducente estipulado por la Ley General de Administración Pública para la regulación de los órganos colegiados.

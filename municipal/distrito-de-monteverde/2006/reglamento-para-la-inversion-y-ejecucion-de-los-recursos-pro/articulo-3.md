@@ -1,0 +1,3 @@
+CAPITULO II
+Inversión Pública en la Red Vial Distrital
+Artículo 3º—Destino de los recursos: El Concejo Municipal de Distrito, a propuesta de la Junta Vial Distrital, destinará los fondos públicos asignados exclusivamente a las mejoras, reparación y mantenimiento de los caminos vecinales del distrito y de conformidad con la aplicación indicada en la norma jurídica que originó los recursos. Entratándose de partidas específicas queda prohibido el uso de recursos en gastos corrientes u operativos. La determinación específica de los proyectos, servicios u obras viales se realizará considerando los parámetros de población beneficiada, extensión de los caminos a intervenir y pobreza de su comunidad.
