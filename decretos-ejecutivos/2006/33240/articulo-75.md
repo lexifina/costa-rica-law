@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las modificaciones y reformas a otros Reglamentos
+Artículo 75.—Modificaciones en los reglamentos que hagan alusión a las siguientes dependencias. En lo sucesivo, en todo aquel Reglamento que señale que el otorgamiento de los P.S.F., autorizaciones y controles están a cargo de la “División de Saneamiento Ambiental”, “Ingeniería Sanitaria”,”Control Ambiental”, “Departamento de Sustancias Tóxicas”, “Departamento de Seguridad e Higiene Industrial” o “Dirección de Protección al Ambiente Humano” y que no hallan sido consignados en el presente decreto, se entenderá que la atención de dicho trámite le corresponde únicamente a las A.R.S en cuya jurisdicción se encuentra el establecimiento o se desarrolle la actividad.

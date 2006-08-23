@@ -1,0 +1,1 @@
+Artículo 7º—Actividades o establecimientos no incluidos en la Tabla de Clasificación: Cuando se requiera incluir, modificar o clasificar actividades o establecimientos que no están dentro de la tabla indicada enel artículo anterior, le corresponderá a la Unidad Técnica Especializada de la D.P.A.H. elaborar un informe técnico que permita la reforma al presente Reglamento.

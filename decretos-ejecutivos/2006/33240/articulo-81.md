@@ -1,0 +1,2 @@
+Artículo 81.—Reforma al Reglamento de Manejo y Control de la Gallinaza y Pollinaza. Refórmese el artículo 17 del Decreto 29145-MAGS- MINAE de 28 de agosto del 2000 “Reglamento de Manejo y Control de la Gallinaza y Pollinaza”, publicado en La Gaceta Nº 242 de 18 de diciembre del 2000, para que en lo sucesivo se lea así:
+“Artículo 17.—Procesador tipo A: Deberá solicitar el permiso sanitario de funcionamiento ante el Área Rectora de Salud correspondiente. El permiso será otorgado por un periodo de cinco años.”

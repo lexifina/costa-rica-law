@@ -1,0 +1,1 @@
+Artículo 17.—Vigencia del permiso: El P.S.F. otorgado a los establecimientos o actividades clasificadas en los grupos A, B y C tendrá una vigencia de 5 años; a excepción de aquellos casos indicados en el Transitorio I de este Reglamento.

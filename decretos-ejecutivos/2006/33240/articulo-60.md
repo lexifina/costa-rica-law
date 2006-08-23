@@ -1,0 +1,1 @@
+Artículo 60.—Inspecciones de control y vigilancia: El Ministerio efectuará inspecciones de control y vigilancia a todos los establecimientos que se les ha otorgado PSF, indistintamente del grupo al que pertenezcan, ya sea en forma programada, por denuncia, cuando se requiera, o de acuerdo a muestreo selectivo, dando especial énfasis a las actividades de alto riesgo.

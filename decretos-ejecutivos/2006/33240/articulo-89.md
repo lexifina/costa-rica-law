@@ -1,0 +1,1 @@
+Artículo 89.—Derogatorias. Deróguese el Decreto Ejecutivo Nº 30465-S del 9 de mayo del 2002, publicado en La Gaceta Nº 102 del 29 de mayo del 2002,”Reglamento General para el Otorgamiento de Permisos de Funcionamiento por parte del Ministerio de Salud”, y sus reformas.

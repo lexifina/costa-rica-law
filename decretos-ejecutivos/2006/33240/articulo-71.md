@@ -1,0 +1,3 @@
+Artículo 71.—Direcciones Regionales de Salud: Corresponde a las D.R.S. vigilar, controlar, evaluar y ejecutar las acciones necesarias que garanticen que las A.R.S. apliquen los procedimientos, normas y legislación en materia de P.S.F.
+Las D.R.S. remitirán trimestralmente el listado de P.S.F. otorgados en las A.R.S., sean estos de primera vez, renovados, revocados, denegados y anulados; con el fin de alimentar el Sistema de Información de Registro de P.S.F. otorgados por el Ministerio.
+El listado de P.S.F. de las empresas que registran o importan productos (medicamentos, cosméticos, alimentos, sustancias peligrosas, equipo ymaterial biomédico) se deberá comunicar a la D.R.C. en un plazo máximo de cinco días hábiles después de otorgado dicho permiso.

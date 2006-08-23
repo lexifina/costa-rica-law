@@ -1,0 +1,2 @@
+Artículo 18.—Establecimientos con varias actividades: En el caso de establecimientos pertenecientes a una misma persona física o jurídica donde se llevan a cabo varias actividades, el Ministerio otorgará un único certificado de P.S.F., el cual tendrá la vigencia que señale la actividad principal.
+Cuando se desarrollen actividades reguladas por el Ministerio de carácter secundario, la vigencia del permiso será siempre la que señale la actividad principal y le corresponderá al Ministerio aplicar la norma específica en materia de ubicación control y vigilancia.

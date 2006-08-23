@@ -1,0 +1,4 @@
+SECCIÓN II
+De procedimiento para solicitar la modificación de un permiso
+sanitario de funcionamiento otorgado por el Ministerio
+Artículo 49.—Modificación de condiciones del permiso: En el caso que un permisionario cuyo establecimiento esté funcionando debidamente, requiera ampliar, variar, o cambiar procesos, operaciones, tareas, materia prima, o productos que impliquen una modificación de las condiciones originales bajo las cuales se otorgó el P.S.F.; deberá solicitar por escrito al Ministerio autorización para realizar dicha modificación. En virtud de lo anterior, el Ministerio se reserva el derecho de solicitarle al interesado los requisitos legales o técnicamente fundamentados que estime convenientes,conforme al tipo de modificación que realizará, a la información que suministre el interesado como descripción del proyecto, y la evaluación que realice el personal técnico o profesional del propio Ministerio.

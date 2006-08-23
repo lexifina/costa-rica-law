@@ -1,0 +1,1 @@
+Artículo 66.—Resolución o Informe Técnico: La emisión de un certificado de P.S.F. debe estar justificado previamente, mediante una resolución o informe técnico. El número de resolución debe indicarse claramente dentro del certificado del P.S.F. que se otorga al interesado, dado que en este documento se establecen las condiciones bajo las cuales se extiende dicho permiso.

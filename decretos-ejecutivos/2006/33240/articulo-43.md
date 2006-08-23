@@ -1,0 +1,1 @@
+Artículo 43.—Vigencia del Permiso Provisional: Los P.S.F. Provisionales no podrán emitirse por un plazo superior al aprobado en el cronograma de ejecución de las actividades. El PSF Provisional solo podrá ser otorgado por una vez y durante su vigencia el permisionario deberá poner a derecho su actividad o establecimiento, cumpliendo con el cronograma de mejoras.

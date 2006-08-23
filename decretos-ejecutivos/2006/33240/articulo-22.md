@@ -1,0 +1,1 @@
+Artículo 22.—Profesional responsable de la revisión de los Planes: La revisión de los Planes de Salud Ocupacional y de Atención de Emergencias y el Plan de Manejo de desechos será realizada por personal técnico o profesional del A.R.S. o en su defecto de la DRS, quien emitirá la respectiva resolución o informe técnico.

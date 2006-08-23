@@ -1,0 +1,2 @@
+Artículo 37.—Órdenes sanitarias pendientes: A ningún permisionario se le concederá o renovará el P.S.F. cuando existan órdenes sanitarias que estén pendientes de cumplimiento, o denuncias o quejas sin resolver, previa verificación en expediente o inspección en sitio que demuestre el incumplimiento de lo ordenado por la autoridad de salud.
+En este caso, se procederá a la clausura inmediata del establecimiento, de conformidad con lo dispuesto en la Ley General de Salud.

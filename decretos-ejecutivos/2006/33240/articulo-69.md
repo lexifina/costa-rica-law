@@ -1,0 +1,1 @@
+Artículo 69.—Trámites interno del Ministerio: Para el trámite de habilitaciones, permisos, o autorizaciones, que requieran tanto la D.S.S. como la D.R.C., deberán efectuar las coordinaciones respectivas con las D.R.S. y A.R.S., según corresponda.

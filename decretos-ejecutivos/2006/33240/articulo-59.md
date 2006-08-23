@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Verificación, control y vigilancia
+Artículo 59.—Inspección de verificación. Todos los establecimientos y actividades a las cuales se les ha otorgado el P.S.F. según el presente Reglamento, indistintamente del Grupo de Riesgo al que pertenezcan, serán sujetos de inspección posterior al otorgamiento del P.S.F. la cual efectuará la autoridad de salud, con la finalidad de verificar las condiciones físico sanitarias que fueron declaradas bajo juramento.
+En el caso de comprobarse que el establecimiento o actividad no cumple con los requisitos establecidos en el presente Reglamento y con lo declarado bajo fe de juramento, el Ministerio procederá a ordenar la cancelación del permiso otorgado, procediendo al clausura del establecimiento o actividad, tal y como lo prevé la Ley General de Salud.

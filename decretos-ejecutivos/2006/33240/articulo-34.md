@@ -1,0 +1,1 @@
+Artículo 34.—Solicitudes presentadas luego del vencimiento: El permisionario que no renueve el P.S.F. antes de su vencimiento, queda obligado a la tramitación de una solicitud de P.S.F. por primera vez, cumpliendo con lo que señale la normativa vigente al momento de presentar dicha solicitud.

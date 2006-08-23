@@ -1,0 +1,1 @@
+Artículo 47.—Vigencia del nuevo certificado: Los nuevos certificados de P.S.F. que se otorguen en virtud de las modificaciones, cambios, o reposiciones señaladas en este Capítulo deberán emitirse a partir de la fecha en que se solicitan nuevamente y respetar la vigencia determinada en los certificados originales.

@@ -1,0 +1,1 @@
+Artículo 63.—Actividades de riesgo: Aquellas actividades de servicio o comercio que estén reguladas por Ley o Reglamento y que según esas normativas sean consideradas de riesgo, no podrán ser desarrolladas en casas de habitación.

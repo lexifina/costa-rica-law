@@ -1,0 +1,6 @@
+Artículo 77.—Reforma al Reglamento Sanitario y de Inspección Veterinaria de mataderos, Producción y Procesamiento de Carnes. Refórmense la definición de Permiso Sanitario de Funcionamiento y los artículos 4 y 11 del decreto 29588-MAG-S, de 28 de mayo del 2001”Reglamento Sanitario y de Inspección Veterinaria de Mataderos,Producción y Procesamiento de Carnes”, publicado en La Gaceta Nº 120 del 22 de junio del 2001, para que lo sucesivo se lean así:
+“Permiso Sanitario de Funcionamiento: Certificado que emite el Ministerio de Salud, autorizando el funcionamiento de aquellos establecimientos que sacrifiquen animales, procesen, embuten, empaquen, almacenen y expendan carnes y productos cárnicos.”
+(...)
+“Artículo 4º—La autoridad competente que ejecutará lo dispuestoen el presente reglamento será el Ministerio de Salud a través de las Áreas Rectoras de Salud.”
+(...)
+“Artículo 11.—Las solicitudes de permiso sanitario de funcionamiento por primera vez o de renovación deberán presentarseen el formulario unificado que para tal fin entrega el Ministerio de Salud. El permiso sanitario de funcionamiento tendrá una validez de cinco años. La solicitud de renovación deberá presentarse un mes antes de su vencimiento.”

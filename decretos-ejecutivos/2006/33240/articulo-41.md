@@ -1,0 +1,1 @@
+Artículo 41.—Informes de avances: En los casos en que técnica ylegalmente sea necesario, el Ministerio ordenará la presentación de informesde los avances del proyecto o cumplimiento del cronograma, como medidas de control. La periodicidad de la presentación de estos informes la definirá la autoridad de salud, considerando la complejidad del caso o la particularidad del mismo.
