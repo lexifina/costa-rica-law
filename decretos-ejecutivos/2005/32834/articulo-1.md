@@ -14,4 +14,5 @@ de trabajo de Archivo Intermedio; mejoras en el acceso de las diferentes áreas 
 8º—Que mediante el oficio STAP-0453-05 de 04 de abril de 2005, se comunicó a la Junta Administrativa del Archivo Nacional el gasto presupuestario máximo fijado para el año 2006.
 9º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado a la Junta Administrativa del Archivo Nacional para el año 2006. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase a la Junta Administrativa del Archivo Nacional el gasto presupuestario máximo para el año 2006, establecido según el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005, de manera que éste no podrá exceder la suma de ¢676,94 millones durante ese período.
+Artículo 1º—Modifícase a la Junta Administrativa del Archivo Nacional el gasto presupuestario máximo para el año 2006, establecido según el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005, de manera que éste no podrá exceder la suma de ¢762.440.000 colones (setecientos sesenta y dos millones cuatrocientos cuarenta mil colones) durante ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33354 del 23 de agosto del 2006).

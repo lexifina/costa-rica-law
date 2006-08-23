@@ -14,3 +14,4 @@ Reforma a la Junta Directiva del Archivo Nacional el gasto presupuestario máxim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-01 | la propia norma |
+| 2 | 2006-08-23 | Decreto Ejecutivo 33354 (2006-08-23) |
