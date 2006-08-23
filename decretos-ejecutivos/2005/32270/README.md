@@ -56,3 +56,4 @@ Directrices de política presupuestaria para las entidades públicas, ministerio
 | 41 | 2006-07-25 | Decreto Ejecutivo 33292 (2006-07-25) |
 | 42 | 2006-08-04 | Decreto Ejecutivo 33290 (2006-08-04) |
 | 43 | 2006-08-23 | Decreto Ejecutivo 33353 (2006-08-23) |
+| 44 | 2006-08-23 | Decreto Ejecutivo 33354 (2006-08-23) |
