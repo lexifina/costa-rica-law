@@ -15,6 +15,8 @@ a) Para todas las entidades, según corresponda:
 13. Recursos orientados a proyectos y programas en apoyo a la Ley Nº 7600 Ley de Igualdad de Oportunidades para las Personas con Discapacidad.
 14. Canon Autoridad Reguladora de los Servicios Públicos (ARESEP).
 15. Recursos que transfieran las entidades públicas al Instituto Costarricense del Deporte y la Recreación (ICODER) Ley Nº 7800 Ley de ICODER, para la realización de los Juegos Deportivos Nacionales.
+16.—Recursos provenientes del Fondo de Desarrollo Social y Asignaciones Familiares que reciben las instituciones para su uso en diversos programas sociales.
+(Así adicionado el acápite anterior por el artículo 1° del decreto ejecutivo N° 33351 del 24 de agosto de 2006)
 b) Adicionalmente, se excluye para las siguientes:
 ENTIDAD-CONCEPTO
 - Colegio Universitario para el Riego y el Desarrollo del Trópico Seco -Tarifa de Riego (Canon al SENARA).
