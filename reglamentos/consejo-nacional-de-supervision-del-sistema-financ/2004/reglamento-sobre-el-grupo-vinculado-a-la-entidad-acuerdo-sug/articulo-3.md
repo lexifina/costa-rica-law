@@ -1,5 +1,5 @@
-Artículo 3º—Alcance
-Las disposiciones establecidas en este Reglamento son aplicables a las operaciones activas con personas de derecho privado otorgadas por:
+Artículo 3º—Alcance. Las disposiciones establecidas en este Reglamento son aplicables a las operaciones activas sujetas a los límites de crédito según el Anexo 2 realizadas por:
 a) Las entidades financieras supervisadas por la SUGEF.
 b) Los grupos y conglomerados financieros supervisados por la SUGEF.
-c) Los fideicomisos y fondos de administración que las entidades indicadas en el inciso a) utilicen para la realización de actividades de intermediación financiera, según lo estipulado en el párrafo final del artículo 116 de la Ley Nº 7558, Ley Orgánica del Banco Central de Costa Rica.
+c) Las empresas integrantes de los grupos y conglomerados financieros supervisados por la SUGEF únicamente en lo referente a las operaciones activas sujetas a límites de crédito realizadas entre ellas mismas.
+(Así reformado en sesión N° 598 del 24 de agosto de 2006)

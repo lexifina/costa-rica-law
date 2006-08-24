@@ -14,3 +14,4 @@ Reglamento sobre el Grupo Vinculado a la Entidad (Acuerdo SUGEF 4-04).
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-19 | la propia norma |
+| 2 | 2006-08-24 | Reglamento 598 (2006-08-24) |
