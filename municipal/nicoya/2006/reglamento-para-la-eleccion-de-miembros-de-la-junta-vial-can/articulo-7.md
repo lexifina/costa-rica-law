@@ -1,0 +1,1 @@
+Artículo 7º—Se crea un órgano electoral ad-hoc que tendrá a su cargo la coordinación del proceso de escogencia de los candidatos a integrar la Junta Vial Cantonal y que estará conformado por quienes ocupen los cargos de Presidente y Vicepresidente del Concejo Municipal, Alcaldía Municipal y Auditoría interna.
