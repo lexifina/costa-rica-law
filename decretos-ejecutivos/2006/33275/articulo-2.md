@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar en sustitución del señor Adolfo Gutiérrez Jiménez, al señor José Joaquín Soto Chavarría, cédula de identidad número 2-236- 166 como representante propietario del Sector Empresarial ante el Consejo Nacional de Salarios.
