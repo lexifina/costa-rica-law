@@ -14,3 +14,4 @@ Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-18 | la propia norma |
+| 2 | 2006-08-24 | Acuerdo 4 (2006-08-24) |
