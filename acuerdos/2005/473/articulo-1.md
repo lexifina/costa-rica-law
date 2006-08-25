@@ -58,9 +58,9 @@ Depósito por alquiler de red de arrastre | Alquiler | 15.000,00
 Concepto Venta de bienes acuícolas | Unidad de medida * | Montos a cobrar ¢
 OTROS DERECHOS ACUICOLAS (por año o por trámite) | * |
 Carné de acuicultor para venta en Feria del Agricultor (Venta Directa o Auxiliar) | Carné | 9.500,00
-Autorización de proyectos acuícolas(hasta 10000 metros cuadrados) | Costos fijos (A)= ¢3.500.00% derecho cultivo (B) = ¢0.10% Costo por m2 por derecho cultivo (A*B) Tarifa= A + (A*B) * m2 de espejo de agua
-Autorización de proyectos acuícolas(más de una hectárea) hectárea | Costos fijos (A)= ¢3.500,00 Costo autorización primera (B)= ¢35.000,00 TARIFA= B + (A) * cada hectárea o fracción adicionales de espejo de agua
-Autorización de proyectos acuícolas(jaulas flotantes en aguas marinas o continentales) | Costos fijos (A)= ¢3.500,00 % derecho cultivo (B) = ¢0,10% Costo por m3 por derecho cultivo (A*B) TARIFA= A + (A*B) * m3
+Autorización de proyectos acuícolas(hasta 10000 metros cuadrados) | Costos fijos (A)= ¢3.500,00 Porcentaje por derecho cultivo (B) = 0.10% Costo por m² por derecho cultivo (A* B) = ¢3,50 TARIFA= A + (A*B) * m² de espejo de agua (Así reformado mediante acuerdo AJDIP/381 del 25 de agosto de 2006)
+Autorización de proyectos acuícolas(más de una hectárea) | Costos fijos (A)= ¢3.500,00 Costo autorizac. primera hectárea (B)= ¢35.000,00 TARIFA= B + (A) * cada hectárea o fracción adicionales de espejo de agua (Así reformado mediante acuerdo AJDIP/381 del 25 de agosto de 2006)
+Autorización de proyectos acuícolas(jaulas flotantes en aguas marinas o continentales) | Costos fijos (A)= ¢3.500,00 Porcentaje por derecho cultivo (B) = 0.10% Costo por m³ por derecho cultivo (A*B)= ¢3,50 TARIFA= A + (A*B) * m³ (Así reformado mediante acuerdo AJDIP/381 del 25 de agosto de 2006)
 LICENCIA PARA PESCA COMERCIAL (por año o por trámite) | * |
 Pesca Comercial Pequeña Escala | Licencia | 9.500,00
 Pesca Comercial Mediana Escala | Licencia | 28.500,00

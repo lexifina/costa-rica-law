@@ -16,3 +16,4 @@ Aprueba Tarifas que se Cobrarán por la Venta de Bienes y Servicios
 | 1 | 2006-01-01 | la propia norma |
 | 2 | 2006-01-01 | Acuerdo 603 (2005-12-13) |
 | 3 | 2006-03-24 | Acuerdo 153 (2006-03-24) |
+| 4 | 2006-08-25 | Acuerdo 381 (2006-08-25) |
