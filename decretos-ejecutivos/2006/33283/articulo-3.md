@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónase un inciso n) al artículo 34 del Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo N° 29606-HCOMEX del 18 de junio del 2001, publicado en el Diario Oficial La Gaceta N° 121 del 25 de junio del 2001, cuyo texto dirá:
+“n) Dar uso adecuado a los vehículos ingresados al amparo del Régimen y acatar las disposiciones que establece el presente reglamento sobre el particular.”
