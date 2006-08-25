@@ -1,0 +1,14 @@
+CAPÍTULO V
+En cuanto a la protección contra la lluvia
+Artículo 11.—Para el uso de las capas, paraguas y sombrillas que la Municipalidad suministrará a los trabajadores, se tendrá en consideración lo siguiente:
+a) Al personal con cargo de trabajador manual, de las dependencias de Aseo de Vías, Hidrología, Mantenimiento y Construcción de Obras, Mantenimiento de Edificios, Desarrollo Humano, Parques, Mantenimiento de Vías, Recolección de Desechos Sólidos, Mercados, Cementerios y Maquinaria y Equipo, se les proporcionará una capa de dos piezas de material impermeable de primera calidad color amarillo.
+b) A los funcionarios con cargos de chóferes de vehículos pesados; trabajadores especializados y operadores de equipo pesado, se les dotará de una capa de dos piezas color azul.
+c) A los trabajadores con cargo de inspectores, se les dotará de una capa en la forma siguiente: Ambiente: Capa para moto de tres piezas; Aseo de Vías, capa de dos piezas; Personal: Capa de moto de tres piezas, Urbanismo, Comercio Informal y Patentes, capa de una, dos y tres piezas según corresponda; Comercio Informal, capa de tres y dos piezas según corresponda; Patentes, capa de dos o tres piezas, según corresponda.
+d) A los supervisores de Aseo de Vías: de dos piezas; a los supervisores de Mantenimiento y Construcción de Obras; Mantenimiento y Construcción de Vías; Parques e Hidrología, capa de una o dos piezas según corresponda, color negro.
+e) Al personal de la Guardia Municipal, capa: De una o dos piezas, según conveniencia color negro
+f) Al Personal de la Policía Municipal: Policías, capa de una o dos piezas, ciclistas y motorizados, capa dos piezas y tres piezas color azul, según conveniencia.
+g) Al personal con cargo de compradores del Departamento de Proveeduría se les dotará de paraguas, excepto al motorizado que se le dotará de una capa de tres piezas color azul.
+h) Al personal de Estacionómetros: Al personal masculino motorizado capa de moto de tres piezas color azul, al resto, capa de una sola pieza o dos piezas color azul, según conveniencia, al personal femenino capas de una sola pieza tipo gabardina color negro.
+i) A los trabajadores misceláneos, capas de una sola pieza color azul; a los Boleteros capas de dos o una pieza según conveniencia colora zul; a las mujeres con cargo de misceláneas, capas de una sola pieza tipo gabardina color negro.
+j) Al personal femenino de Parques se les dotará de una capa de una sola pieza tipo gabardina color verde musgo.
+k) A los trabajadores con cargo de Notificadores, Bodegueros y Auxiliares de Bodega del Almacén Municipal; trabajadores que realicen trabajo de campo de la Sección de Estudios Básicos; al personal de Seguridad e Higiene Ocupacional masculino capas de uno, dos o tres piezas color azul según corresponda, al personal femenino capas de una sola pieza tipo gabardina color negro.

@@ -1,0 +1,1 @@
+Artículo 15.—Todo trabajador, deberá cumplir con las medidas de seguridad correspondientes; pero además deberá de realizar todo lo pertinente para que cuente con los mecanismos de prevención y reducción del riesgo laboral.

@@ -1,0 +1,1 @@
+Artículo 3º—El uso de la indumentaria, calzado, implementos y el equipo de seguridad ocupacional proporcionado por la Municipalidad, es de uso obligatorio para todos aquellos trabajadores que lo reciban, consecuentemente quienes los reciban, salvo casos excepcionalmente calificados.

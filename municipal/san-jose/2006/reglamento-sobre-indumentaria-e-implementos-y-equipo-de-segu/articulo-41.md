@@ -1,0 +1,1 @@
+Artículo 41.—Una vez puesto en ejecución este Reglamento, será la Dirección de Recursos Humanos el ente que regule, controle y supervise el fiel cumplimiento en todas sus partes del presente Reglamento.

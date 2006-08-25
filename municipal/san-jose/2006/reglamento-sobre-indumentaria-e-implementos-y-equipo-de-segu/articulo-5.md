@@ -1,0 +1,1 @@
+Artículo 5º—La aplicación de este Reglamento corresponde al Alcalde Municipal y a las demás jefaturas y funcionarios que deben velar por ello y rige para todos funcionarios municipales receptores de este beneficio.

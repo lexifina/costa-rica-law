@@ -1,0 +1,1 @@
+Artículo 21.—Los encargados de la entrega de equipos deben mantener actualizados los vales por indumentaria, implementos y equipo de seguridad ocupacional y otros, así como de la maquinaria y herramienta que están bajo su administración.

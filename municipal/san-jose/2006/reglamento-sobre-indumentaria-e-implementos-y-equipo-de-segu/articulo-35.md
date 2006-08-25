@@ -1,0 +1,1 @@
+Artículo 35.—Las sanciones escritas en este capítulo serán aplicados por el Despacho del Alcalde, a través de la Dirección de Recursos Humanos, conforme al procedimiento que establece la Convención Colectiva y el artículo 150 del Código Municipal.

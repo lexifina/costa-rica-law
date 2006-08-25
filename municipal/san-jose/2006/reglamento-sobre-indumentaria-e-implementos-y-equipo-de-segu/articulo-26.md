@@ -1,0 +1,1 @@
+Artículo 26.—Las muestras que sean adjudicadas permanecerán en la Unidad de Seguridad e Higiene hasta que ingresen los artículos al Almacén Municipal y así verificar que los artículos corresponden a las muestras presentadas.
