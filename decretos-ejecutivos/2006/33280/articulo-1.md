@@ -1,0 +1,15 @@
+Nº 33280
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+De conformidad con las atribuciones que les conceden los incisos 3) y 18), de los artículos 140 y 146 de la Constitución Política, los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2), acápite b), de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y la “Ley de Simplificación y Eficiencia Tributarias”, Nº 8114 de 4 de julio del 2001.
+Considerando:
+I.—Que la Ley Nº 8114 de 4 de julio del 2001, “Ley de Simplificación y Eficiencia Tributarias”, publicada en el Alcance Nº 53 a La Gaceta Nº 131 de 9 de julio del 2001, establece en el artículo 9° y siguientes, un impuesto específico sobre las bebidas envasadas sin contenido alcohólico.
+II.—Que el Poder Ejecutivo mediante Decreto N° 29643-H de 10 de julio del 2001, publicó en La Gaceta Nº 138 del 18 de julio del 2001, el “Reglamento a la Ley de Simplificación y Eficiencia Tributarias”.
+III.—Que en el decreto citado en el considerando anterior, no se dejó previsto la opción de no pagar el impuesto por parte de las empresas fabricantes de bebidas envasadas sin contenido alcohólico, cuando importen producto terminado a granel y que constituya materia prima, para ser procesado y envasado, y posteriormente comercializarlo en el mercado nacional.
+IV.—Que los impuestos específicos al consumo, tienen la característica de ser monofásicos, y no admiten créditos por lo pagado en etapas anteriores, siendo la intención del legislador de gravar en una etapa las bebidas no alcohólicas envasadas.
+V.—Que para el pago del impuesto a las bebidas sin contenido alcohólico se definieron dos hechos generadores, en la importación o en la producción local, de tal manera que si a una empresa fabricante se le grava el producto en la importación, no tiene la posibilidad de acreditarse el impuesto pagado en aduanas, cuando presente la declaración sobre el producto envasado destinado al mercado nacional.
+VI.—Que para resolver el problema que se indica en el considerando anterior, la autoridad aduanera verificará que los fabricantes o envasadores estén registrados ante la administración tributaria, como contribuyentes de este impuesto, de tal forma que el mismo sea pagado cuando el hecho generador sea en la producción local. Por tanto,
+DECRETAN:
+Artículo 1º—Adiciónase un párrafo al final del artículo 4° del Decreto Ejecutivo Nº 29643-H, “Reglamento a la Ley de Simplificación y Eficiencia Tributarias”, del 10 de julio del 2001 publicado en el Diario Oficial La Gaceta Nº 138 del 18 de julio del 2001, para que en lo sucesivo se lea:
+“(…)
+Aquellas personas que importen bebidas no alcohólicas que constituyan materia prima o producto a granel, sujetas al impuesto específico, para ser industrializado o envasado, deben estar inscritos como contribuyentes de este impuesto ante la Dirección General de Tributación, a efecto de no pagar el impuesto específico a las bebidas no alcohólicas en el momento de su importación, debido a que será pagado en las ventas a nivel de fábrica”.
