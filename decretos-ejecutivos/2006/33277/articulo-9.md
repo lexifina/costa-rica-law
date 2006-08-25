@@ -1,0 +1,2 @@
+Artículo 9°—El Ministro de Gobernación y Policía podrá asignar vehículos a departamentos o direcciones propios de la cartera.
+En estos casos debe la Sección de Transportes, coordinar los mecanismos de control con las unidades a las cuales se le asigno vehículo, a fin de llevar los controles, cumplir con las funciones asignadas en este Reglamento y solicitar la información que considere necesario donde se motive y justifique el uso del vehículo.
