@@ -15,10 +15,10 @@ DEL REGLAMENTO GENERAL SOBRE
 SOCIEDADES ADMINISTRADORAS
 Y FONDOS DE INVERSIÓN
 Artículo 1º—Normativa reglamentaria que da derecho a reembolso. De conformidad con el Reglamento general sobre Sociedades Administradoras y Fondos de Inversión, la implantación de la siguiente normativa da derecho a reembolso:
-a) La incorporación de la compensación por reembolso anticipado para los fondos que no sean del mercado de dinero, de conformidad con lo dispuesto en el artículo 61 del Reglamento. Esta disposición solo aplica para los fondos que no cuenten en su prospecto con un esquema de comisiones de salida que se equipare con los lineamientos mínimos de la compensación por reembolso anticipado.
-b) La asignación al fondo de los costos que tengan relación directa con el mantenimiento y administración de los activos que formen parte de su cartera, según lo establecido en el párrafo tercero del artículo 39 del Reglamento. Esta disposición solo aplica para los costos que no se encuentran revelados en el prospecto vigente a la emisión de este acuerdo.
-c) La modificación de la política de administración y control de liquidez de los fondos de inversión abiertos, según lo dispuesto en el artículo 56 del Reglamento.
-d) Si se establece un límite máximo a la concentración en un solo inversionista, según lo dispuesto en el artículo 57 del Reglamento.
-e) Si se incorpora un límite concentración en una misma emisión o valor, según lo dispuesto en el artículo 58, que modifiquen las disposiciones reveladas en el prospecto vigente a la emisión de este acuerdo.
-f) Se disponga de un límite a la suscripción de nuevas participaciones, según lo dispuesto en el artículo 60 del Reglamento.
-g) Si se produce un cambio en la política de inversión. La determinación de si el fondo es diversificado o no, de conformidad con el artículo 52 del Reglamento.
+a) La asignación al fondo de los costos que tengan relación directa con el mantenimiento y administración de los activos que formen parte de su cartera, según lo establecido en el párrafo tercero del artículo 39 del Reglamento. Esta disposición solo aplica para los costos que no se encuentran revelados en el prospecto vigente a la emisión de este acuerdo.
+b) La modificación de la política de administración y control de liquidez de los fondos de inversión abiertos, según lo dispuesto en el artículo 56 del Reglamento.
+c) Si se establece un límite máximo a la concentración en un solo inversionista, según lo dispuesto en el artículo 57 del Reglamento.
+d) Si se incorpora un límite concentración en una misma emisión o valor, según lo dispuesto en el artículo 58, que modifiquen las disposiciones reveladas en el prospecto vigente a la emisión de este acuerdo.
+e) Se disponga de un límite a la suscripción de nuevas participaciones, según lo dispuesto en el artículo 60 del Reglamento.
+f) Si se produce un cambio en la política de inversión. La determinación de si el fondo es diversificado o no, de conformidad con el artículo 52 del Reglamento.
+(Así reformado mediante acuerdo SGV-A-125 del 28 de agosto del 2006).
