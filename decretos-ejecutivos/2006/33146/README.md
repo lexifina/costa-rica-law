@@ -14,3 +14,4 @@ Principios Éticos de los Funcionarios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-31 | la propia norma |
+| 2 | 2006-08-28 | Decreto Ejecutivo 33335 (2006-08-28) |
