@@ -1,0 +1,29 @@
+Nº 33286
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; inciso 2.b) del artículo 28 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; artículo 25 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, Ley Nº 6986 del 3 de mayo de 1985, artículo 1° del Reglamento Centroamericano sobre Prácticas Desleales de Comercio, Decreto Ejecutivo Nº 24868-MEIC del 19 de diciembre de 1995, artículo 1° del Reglamento Centroamericano sobre Medidas de Salvaguardia, Decreto Ejecutivo N° 25242- MEIC, del 31 de mayo de 1996 y artículo 2º de la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054, del 14 de junio de 1977.
+Considerando:
+1º—Que los mecanismos de defensa comercial contemplados por las negociaciones comerciales ante la Organización Mundial del Comercio, y demás Tratados de Libre Comercio, entendiéndose por ellos el uso de medidas antidumping, derechos compensatorios, y medidas de salvaguardia, son parte esencial de la política comercial del país.
+2º—Que el uso de estos mecanismos de defensa comercial por su complejidad puede resultar de difícil acceso a todo el parque empresarial costarricense y es conveniente dejarlos como un último recurso a emplear, siendo conveniente explorar otros mecanismos incluyendo pero no limitadoa la cooperación institucional de forma que se proteja no sólo a los productores nacional sino también a los comerciantes contra toda práctica ilícita que distorsione el mercado.
+3º—Que es conveniente que la Defensa Comercial del país este a cargo de una entidad fortalecida que asuma funciones más dinámicas en el control de las malas prácticas comerciales incluyendo las anomalías en los precios de importación, y violaciones a otras normas del ordenamiento jurídico costarricense.
+4º—Que conforme lo establece el artículo 13 del Decreto Ejecutivo N° 32475, publicado en La Gaceta N° 146 del 29 de julio del 2005 “Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, en lo sucesivo MEIC, el Departamento de Prácticas de Comercio Desleal y Medidas de Salvaguardia, es el encargado, dentro de la estructura orgánica del MEIC, de asesorar e instruir los procedimientos en materia de dumping, subsidios e imposición de medidas de salvaguardia. Esto conforme lo establecen los Reglamentos Centroamericanos de Prácticas Desleales de Comercio y Medidas de Salvaguardia.
+5º—Que es impostergable la necesidad de que las acciones que ha venido desarrollando el Departamento de Prácticas de Comercio Desleal y Medidas de Salvaguardia se enmarquen dentro de una política comercial nacional que permita unir los esfuerzos tanto del sector público como privado, con la finalidad de promover el comercio leal, la producción y la competitividad en el mercado costarricense.
+6º—Que por lo anterior la Administración se ve en la necesidad de ampliar el campo de acción de dicho Departamento en materia de Defensa Comercial. Por tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 13 del Decreto Ejecutivo Nº 32475-MEIC, publicado en La Gaceta N° 146 del 29 de julio del 2005 “Reglamento a la Ley Orgánica del MEIC, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 13.—Del Departamento de Prácticas de Comercio Desleal y Medidas de Salvaguardia. Este Departamento tendrá en materia de comercio desleal, medidas de salvaguardias y en transparencia comercial las siguientes funciones:
+a) Asesorar al Despacho Ministerial y demás instancias del Ministerio en materia de dumping, subsidios e imposición de medidas de salvaguardia.
+b) Asesorar a los sectores productivos nacionales sobre el funcionamiento de la Dirección.
+c) Orientar a los interesados sobre el adecuado uso de los mecanismos internacionales de protección contra las prácticas de comercio desleal y para la imposición de medidas de salvaguardia.
+d) Asesorar a los interesados sobre la apropiada presentación de denuncias y recabación de la prueba pertinente.
+e) Recibir y tramitar las denuncias sobre prácticas de comercio desleal, sea en la modalidad de dumping o subvenciones.
+f) Recibir y tramitar las peticiones para la imposición de medidas de salvaguardia.
+g) Realizar los estudios pertinentes para determinar la procedencia de las denuncias de prácticas de comercio desleal o la necesidad de imponer medidas de salvaguardia.
+h) Desarrollar acciones dirigidas a garantizar que el comercio en Costa Rica se realice de forma leal y en respeto a las normas nacionales e internacionales.
+i) Coordinar esfuerzos entre el Gobierno y el sector privado para promover el desarrollo económico nacional que permitan fortalecer al productor y al comerciante nacional frente a
+distorsiones comerciales, así como fomentar la competitividad comercial.
+j) Atender y resolver las peticiones del sector privado de investigar eventuales y posibles distorsiones comerciales que afecten el buen funcionamiento del mercado.
+k) Coordinar acciones con el sector privado facilitándole información no confidencial que permita ayudar a la Administración Pública a identificar posibles actividades anormales en el mercado, que pueda abarcar pero no limitada a defraudación fiscal, comercio desleal, contrabando, violación de normas técnicas, y competencia desleal.
+l) Realizar investigaciones preliminares para determinar las acciones a seguir cuando se detecten posibles anomalías.
+m) Solicitar la intervención de los entes públicos competentes para investigar y sancionar según la situación detectada.
+n) Integrar grupos de trabajo ad-hoc entre el sector privado y los entes públicos competentes con la finalidad de atender necesidades de dicho sector, disponiendo acciones conjuntas para enfrentar aquellos problemas que afecten la transparencia comercial.”
