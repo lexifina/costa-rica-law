@@ -48,13 +48,10 @@ j) Anexos.
 * 3.5 Clasificación de ingresos y egresos. Los ingresos y egresos deberán clasificarse y presentarse conforme con los formatos que se incluyen en los anexos Nº 1 y 2, sin perjuicio de que internamente se lleven registros más desagregados. Para los ingresos se utilizará la clasificación económica y, en el caso de los gastos, se clasificarán según su objeto.
 * NOTA DE SINALEVI: La Contraloría General de la República, mediante Resolución No. 41 de 23 de mayo de 2005, modifica el punto 3.5, al disponer lo siguiente: " En lo que respecta a la Directrices Generales para la presentación de los documentos presupuestarios de los Fideicomisos cuyos presupuestos deben ser aprobados por la Contraloría General de la República Nº D-3-2002- CO-DFOE, se modifica en lo pertinente al punto 3.5.
 IV. AJUSTES AL PRESUPUESTO.
-4.1 Posibilidad de efectuar ajustes al presupuesto. Se podrá efectuar ajustes a las asignaciones de ingresos o egresos consignadas en el presupuesto aprobado por la Contraloría General de la República, en virtud de circunstancias que no hayan sido previstas cuando ese presupuesto fue formulado.
-4.2 Presupuestos extraordinarios. Los ajustes necesarios para la incorporación de ingresos adicionales o la disminución de éstos se efectuarán mediante un presupuesto extraordinario. El documento correspondiente debe someterse a aprobación previa de la Contraloría General de la República.
-4.3 Modificaciones presupuestarias. Los aumentos y disminuciones en el monto de las partidas de egresos (traslado de recursos entre partidas) y que no afectan el monto total del presupuesto, se efectuará mediante una modificación presupuestaria, las cuales se adjuntarán a los informes de ejecución presupuestaria a que se refiere la sección V de este documento.
-4.4 Requisitos. Los presupuestos extraordinarios y las modificaciones deberán cumplir los siguientes requisitos:
-a) Contar con la aprobación del órgano que sea legal y contractualmente competente para tal efecto.
-b) Observar los requisitos que se indican en la sección IV de esta normativa que procedan.
-c) Utilizar los formatos que se incluyen en los anexos Nº 3 y 4, según corresponda.
+4.1 (Derogado mediante Resolución de la Contraloría General de la República Nº CO-67-2000 del 25 de agosto del 2006)
+4.2 (Derogado mediante Resolución de la Contraloría General de la República Nº CO-67-2000 del 25 de agosto del 2006)
+4.3 (Derogado mediante Resolución de la Contraloría General de la República Nº CO-67-2000 del 25 de agosto del 2006)
+4.4 (Derogado mediante Resolución de la Contraloría General de la República Nº CO-67-2000 del 25 de agosto del 2006)
 V. EJECUCIÓN DEL PLAN-PRESUPUESTO Y LIQUIDACIÓN PRESUPUESTARIA.
 5.1 Ejecución del presupuesto. El presupuesto se deberá ejecutar de conformidad con lo siguiente:
 a) Realizarse de acuerdo con los objetivos y metas del plan y las normas legales y contractuales vigentes que rigen el fideicomiso.
