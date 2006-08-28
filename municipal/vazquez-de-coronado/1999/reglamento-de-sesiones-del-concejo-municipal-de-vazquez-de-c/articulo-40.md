@@ -1,1 +1,1 @@
-Artículo 40.—Los asuntos trasladados por el Concejo Municipal a las comisiones deberán resolverse en el término de quince días, salvo situaciones especiales que requieran más tiempo, debiendo consignarse en los respectivos informes.
+Artículo 40.—En cualquier momento el Concejo podrá crear las Comisiones Especiales, ya sean Temporales o Permanentes, que considere necesarias. La integración de estas comisiones corresponderá a la Presidencia.

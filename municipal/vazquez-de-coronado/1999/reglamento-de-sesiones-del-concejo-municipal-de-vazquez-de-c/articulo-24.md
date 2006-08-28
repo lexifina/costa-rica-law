@@ -1,3 +1,1 @@
-CAPITULO II
-•De los acuerdos y las votaciones
-Artículo 24.—Los acuerdos municipales serán tomados por simple mayoría de los votos, salvo casos en que de conformidad con la ley se requiera de mayoría calificada.
+Artículo 24.—Finalizada la discusión de un asunto, la Presidencia dará un término prudencial para recibir la votación correspondiente. Los y las regidoras deberán dar su voto en sentido afirmativo o negativo; solo se admitirán las abstenciones reguladas en la ley. El Regidor que razone su voto negativo deberá circunscribirse al tema objeto de la votación y no podrá emplear más de tres minutos.

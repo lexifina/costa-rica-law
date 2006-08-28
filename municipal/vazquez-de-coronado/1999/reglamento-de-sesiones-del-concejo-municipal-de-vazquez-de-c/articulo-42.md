@@ -1,1 +1,1 @@
-Artículo 42.—Los funcionarios municipales deberán asistir a las sesiones del Concejo Municipal a que fueren convocados, sin que por ello puedan cobrar remuneración alguna.
+Artículo 42.—Al momento de integrar las Comisiones, la Presidencia observará el Principio de Balance Político, para lo cual procurará que en ellas queden representadas todas las fracciones que integran el Concejo.

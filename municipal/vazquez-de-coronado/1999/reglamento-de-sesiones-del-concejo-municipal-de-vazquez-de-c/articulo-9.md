@@ -1,1 +1,2 @@
-Artículo 9.—Las sesiones del Concejo Municipal deberán iniciarse dentro de los quince minutos siguientes de la hora señalada al efecto, conforme el reloj de despacho. Pasados los quince minutos anteriores, sino hubiera quórum se dejara constancia en el libro de actas y se consignará el nombre de los regidores presentes.
+Artículo 9º—El o la Concejal que llegare después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, perderá el derecho a incorporarse a la misma y la dieta que le corresponda.
+El o la Concejal suplente que sustituyere a un propietario por el motivo anterior podrá permanecer durante la sesión ejerciendo los derechos que le corresponden a quien sustituya y recibirá la dieta designada al mismo.

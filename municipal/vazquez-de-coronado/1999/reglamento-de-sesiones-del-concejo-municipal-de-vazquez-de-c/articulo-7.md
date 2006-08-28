@@ -1,2 +1,2 @@
-Artículo 7.—La convocatoria podrá ser por los siguientes medios:
-a) Personalmente al funcionario o en casa de habitación, en uno u otro caso firmara la persona que reciba la notificación debiendo la autoridad o el funcionario notificador hacerlo constar en el acta de la notificación, b) A los teléfonos que ha señalado el regidor, síndico o concejal, debiéndose en este caso siempre personalmente, c) Vía telefax, al número reportado por el Regidor y Síndico.
+Artículo 7º—Las sesiones del Concejo Municipal deberán iniciarse a la hora exacta programada, pero en caso de no contarse con quórum para ese momento, se podrá iniciar dentro de los quince minutos siguientes de la hora señalada al efecto; todo conforme al reloj del Salón de Sesiones.
+Pasados los quince minutos anteriormente indicados sin que se logre integrar quórum la sesión no se llevará a cabo, se dejará constancia en el libro de actas y se consignará el nombre de los y las concejales presentes.

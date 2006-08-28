@@ -1,1 +1,1 @@
-Artículo 39.—Las Comisiones deberán presentar ante el Concejo Municipal respectivo su plan de trabajo en el mes calendario siguiente de ser debidamente nombradas.
+Artículo 39.—Los integrantes de las Comisiones Permanentes deberán cumplir con los requisitos que señala la Ley y durarán en sus funciones un año contado a partir de la fecha de su juramentación.

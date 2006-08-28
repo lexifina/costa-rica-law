@@ -1,1 +1,1 @@
-Artículo 30.—En cualquier momento del debate podrán presentarse mociones de orden con relación al asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo Municipal.
+Artículo 30.—Las actas de las sesiones del Concejo deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales lo impidan, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente. No será posible hacer aprobación de actas en sesiones extraordinarias.

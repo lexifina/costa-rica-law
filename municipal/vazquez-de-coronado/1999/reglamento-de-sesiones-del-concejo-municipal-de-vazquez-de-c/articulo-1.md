@@ -3,6 +3,7 @@ Se acuerda 99-84-18 aprobar el Reglamento de Sesiones del Concejo Municipal de V
 CONCEJO MUNICIPAL
 MUNICIPALIDAD VÁZQUEZ DE CORONADO
 REGLAMENTO DE SESIONES DE LOS CONCEJOS
-CAPITULO I
-De las sesiones, sede y quórum
-Artículo 1.—El Concejo Municipal del Cantón Vázquez de Coronado con las atribuciones que le concede el Código Municipal, establece el siguiente Reglamento de Sesiones y Acuerdos, aplicable a este Concejo Municipal.
+NOTA DE SINALEVI: Este Reglamento fue reformado y reproducido su texto en forma íntegra, por el Concejo Municipal, mediante acuerdo tomado en la sesión ordinaria 018 celebrada el lunes 28 de agosto de 2006, Acuerdo 2006-018-033, por lo que se transcribe a continuación:
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—El presente Reglamento regula las sesiones del Consejo Municipal Vázquez de Coronado y los órganos que le apoyan en su función, como sus Comisiones y los Consejos de Distrito.

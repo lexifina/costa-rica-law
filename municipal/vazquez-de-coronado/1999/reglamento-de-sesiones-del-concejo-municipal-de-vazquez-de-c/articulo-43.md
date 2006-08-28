@@ -1,1 +1,1 @@
-Articulo 43.—El presente reglamento deroga cualquier otro reglamento o disposición reglamentaria o acuerdo municipal que se le oponga. Ante cualquier reforma al Código Municipal, éste reglamento se ajustara a la misma modificación.
+Artículo 43.—La competencia de las Comisiones se dirige a dictaminar los casos que le han sido trasladados por el Concejo previamente por vía de acuerdo y lo que se considere agregar como comisión.

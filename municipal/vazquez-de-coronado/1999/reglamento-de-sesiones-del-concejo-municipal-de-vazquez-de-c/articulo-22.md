@@ -1,1 +1,1 @@
-Artículo 22.—Cuando concurrieren al Concejo Municipal miembros de los Supremos Poderes, invitados especiales, representantes de Organismos Oficiales y Extranjeros, representantes de instituciones autónomas o semi-autónomas, se les recibirá en el salón de sesiones respectivo, a la hora fijada al efecto e inmediatamente después del saludo de rigor se les concederá el uso de la palabra.
+Artículo 22.—Los acuerdos serán tomados por mayoría simple de votos, salvo casos en que de conformidad con la ley se requiera de mayoría diferente.

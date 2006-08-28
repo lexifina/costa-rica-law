@@ -1,2 +1,3 @@
-Artículo 33.—El Presidente del Concejo Municipal concederá el uso de la palabra en el orden en que se lo soliciten los propietarios (regidores, síndicos o concejales). Los suplentes podrán hacer uso de la palabra después de que la solicite un propietario, cediendo este su tiempo, el tiempo de exposición máximo en todos los casos será de tres minutos.
-El regidor que cede su tiempo debe haber solicitado de previo el uso de la palabra. Se podrá conceder prórroga mediante moción de orden o por medio de otro propietario o concejal cediendo su tiempo. El Presidente podrá pedir a los expositores que se concreten al punto en debate y en caso de renuencia podrá retirar el uso de la palabra.
+SECCIÓN TERCERA
+De las sesiones ordinarias
+Artículo 33.—Las sesiones ordinarias del Concejo se celebrarán como mínimo una vez por semana, en el horario fijado por el mismo mediante acuerdo que será publicado en el Diario Oficial La Gaceta.

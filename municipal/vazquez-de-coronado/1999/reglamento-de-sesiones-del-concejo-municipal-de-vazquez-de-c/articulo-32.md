@@ -1,1 +1,1 @@
-Artículo 32.—Presentada la moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la soliciten, sin que pueda exceder de tres minutos cada intervención.
+Artículo 32.—De toda sesión se generará una grabación por medios electrónicos, la cual se mantendrá a disposición de cualquier persona en la Secretaria por el plazo de un año contado a partir de la fecha de celebración de la sesión a la que corresponde. Pasado ese plazo la grabación podrá ser destruida.

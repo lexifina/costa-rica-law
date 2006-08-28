@@ -1,3 +1,1 @@
-CAPITULO III
-De las votaciones
-Artículo 34.—Al dar por discutido un asunto, el Presidente del Concejo Municipal dará un término prudencial para recibir la votación correspondiente procurando que ésta se realice cuando todos los regidores presentes estén en el salón de sesiones. Los regidores o concejales deberán dar su voto necesariamente en sentido afirmativo y negativo. No caben las abstenciones.
+Artículo 34.—Cuando un día que corresponda sesionar ordinariamente coincida con días feriados o de asueto, el Concejo sesionará en el día hábil inmediatamente posterior. En cualquier otro caso que deba trasladarse la sesión ordinaria fuera del horario previamente definido, será necesario realizar publicación en el Diario Oficial La Gaceta.

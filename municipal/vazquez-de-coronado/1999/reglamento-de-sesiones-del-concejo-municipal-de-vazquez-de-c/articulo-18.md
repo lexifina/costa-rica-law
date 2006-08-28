@@ -1,1 +1,1 @@
-Artículo 18.—Los dictámenes de comisiones serán incluidos en el orden del día siguiendo el orden en que fueron presentados a la secretaria, para ese efecto la secretaria, al recibir los dictámenes, consignara al pie de ellos la fecha y la hora de presentación.
+Artículo 18.—Son mociones de orden las que se presentan para: a) Regular el debate; b) Prorrogar el uso de la palabra; c) Alterar el orden del día para incluir un asunto; d) Para que se posponga el conocimiento de un asunto que se anotó en el orden del día.

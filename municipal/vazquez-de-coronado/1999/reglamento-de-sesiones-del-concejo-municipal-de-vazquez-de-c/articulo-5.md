@@ -1,3 +1,3 @@
-Artículo 5.—El Concejo Municipal podrá celebrar las sesiones extraordinarias que se requieren y a ellas deberán ser convocados todos sus miembros.
-Deberá convocarse por lo menos con veinticuatro horas de anticipación y el objeto de la sesión se señalara mediante acuerdo municipal o según el inciso k) del artículo 17.
-En las sesiones extraordinarias solo podrán conocerse los asuntos incluidos en la convocatoria, además los que, por unanimidad, acuerden conocer los miembros del Concejo Municipal.
+SECCIÓN PRIMERA
+Disposiciones generales a todo tipo de sesión
+Artículo 5º—Las sesiones del Concejo deberán efectuarse en el Salón de Sesiones ubicado en el edificio sede de la Municipalidad, salvo cuando el consejo decida sesionar en uno de los distritos del cantón. El concejo decidirá día, lugar y hora de las sesiones que se puedan efectuar en los distritos, comunicándole a los munícipes con no menos de quince días naturales de anticipación; publicitará mediante un medio de comunicación colectivo, la hora, fecha, lugar y agenda de la sesión. Se podrá contar con la ayuda de los Consejos de Distrito, Asociaciones de Desarrollo y otros grupos organizados voluntarios, para informar sobre la visita del Consejo al distrito que corresponda. Los asuntos a tratar serán exclusivamente los relativos a intereses del distrito.

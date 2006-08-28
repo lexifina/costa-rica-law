@@ -1,1 +1,1 @@
-Artículo 15.—Las sesiones del Concejo se desarrollarán conforme al orden del día previamente elaborado, el cual podrá modificarse o alterarse mediante acuerdo aprobado por dos terceras partes de los miembros presentes.
+Artículo 15.—Cuando concurrieren al Concejo Municipal invitados especiales, se les recibirá en el Salón de Sesiones a la hora fijada al efecto e inmediatamente después del saludo de rigor, se les concederá el uso de la palabra.

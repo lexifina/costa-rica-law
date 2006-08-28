@@ -1,1 +1,3 @@
-Artículo 4.—Las sesiones del Concejo Municipal deberán efectuarse en el local sede de la municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad.
+CAPÍTULO II
+De las sesiones del concejo
+Artículo 4º—El Concejo sesionará de forma solemne, ordinaria o extraordinaria de la forma en que lo dispone la Ley. Será solemne la sesión del día primero de mayo, ordinaria una por semana y extraordinaria cuando así se disponga convocar.

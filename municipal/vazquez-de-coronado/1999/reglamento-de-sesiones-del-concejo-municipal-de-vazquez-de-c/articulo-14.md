@@ -1,1 +1,1 @@
-Artículo 14.—Las sesiones del Concejo Municipal Colegiado serán públicas, en caso de seguridad pueden ser privados con acuerdo de mayoría calificada.
+Artículo 14.—La Presidencia no dará curso o declarará fuera de orden las proposiciones o mociones que resulten improcedentes, o que tiendan a dilatar u obstruir el curso normal del debate o la resolución de un asunto.

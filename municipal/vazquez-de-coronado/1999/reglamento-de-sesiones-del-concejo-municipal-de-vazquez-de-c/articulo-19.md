@@ -1,1 +1,1 @@
-Artículo 19.—El Presidente del Concejo Municipal, calificará los asuntos de trámite y ordenará a la Secretaria incluirlos en el Orden del Día. En sesión podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o de uno o más regidores.
+Artículo 19.—Presentada la moción de orden, se concederá el uso de la palabra en primer término al o la proponente y luego a los o las concejales que la soliciten, sin que pueda exceder de tres minutos cada intervención.

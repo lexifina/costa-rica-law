@@ -1,3 +1,1 @@
-Artículo 48.—Rige a partir de su publicación en el Diario Oficial "La Gaceta".
-(Así corrida su numeración mediante sesión N° 171 de 17 de mayo de 2001, que lo pasó del anterior artículo 44 al 48 actual).
-Vázquez de Coronado, 5 de octubre de 1999.
+Artículo 48.—Las Comisiones emitirán un dictamen de los asuntos que le son trasladados por el Concejo en un plazo no mayor de quince días naturales, salvo que en el acuerdo de traslado se les otorgara un plazo mayor. De obtener una prórroga en el plazo para la emisión del dictamen correspondiente, la Comisión deberá solicitarla de forma escrita el Concejo de previo a que se venza el originalmente otorgado.
