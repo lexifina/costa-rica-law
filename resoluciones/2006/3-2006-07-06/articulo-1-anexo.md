@@ -135,7 +135,8 @@ Fundación rehabilitación y desarrollo (FUNREDES)
 Fundación Nacional Pro Clínica del Dolor y cuidados paleativos del
 Hospital Calderón Guardia
 Asociación Cultural y de Bienestar Social 1990 1/ Privadas que administran fondos públicos
-ÁREA SERVICIOS PÚBLICOS GENERALES
+ÁREA *SERVICIOS PÚBLICOS GENERALES Y AMBIENTALES.
+*(Modificada su denominación por resolución R-CO-68 del 28 de agosto de 2006)
 Asamblea Legislativa
 Contraloría General de la República
 Dirección General de Servicio Civil
