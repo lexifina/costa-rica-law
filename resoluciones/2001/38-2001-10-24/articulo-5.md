@@ -1,1 +1,0 @@
-Artículo 5° —Tratándose de una retención o percepción indebida se reconocerá el crédito con la comprobación del ingles o efectivo al Fisco de la retención o percepción por parte del agente, conforme al artículo 2° de esta resolución.
