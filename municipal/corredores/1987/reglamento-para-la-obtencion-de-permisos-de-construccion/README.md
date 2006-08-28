@@ -14,3 +14,4 @@ Reglamento para la Obtención de Permisos de Construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-22 | la propia norma |
+| 2 | 2006-08-28 | Reglamento municipal 34 (2006-08-28) |
