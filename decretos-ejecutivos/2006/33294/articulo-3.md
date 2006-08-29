@@ -1,0 +1,1 @@
+Artículo 3º—Derogar el artículo 12 del Decreto Ejecutivo N° 32475- MEIC, publicado en La Gaceta N° 146 del 29 de julio del 2005 “Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio”, Ley N° 6054 del 14 de junio de 1977.
