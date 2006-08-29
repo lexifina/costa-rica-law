@@ -1,1 +1,0 @@
-Artículo 4º—Designación de funcionarios del Tribunal. El Tribunal podrá designar, además, como miembro extraordinario de una Junta Receptora de Votos, independientemente del lugar en que ésta funcione, a cualquiera de sus servidores, previa juramentación la cual podrá verificarse aún el mismo día de las elecciones.

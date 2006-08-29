@@ -1,1 +1,0 @@
-Artículo 5º—Prohibición. Una vez juramentados, los miembros extraordinarios de las Juntas Receptoras de Votos pasan a ser funcionarios electorales, por tanto, no pueden realizar ningún tipo de ostentación partidista en el desempeño de sus funciones.

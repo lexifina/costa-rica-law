@@ -1,1 +1,0 @@
-Artículo 3º—Juramentación e instalación. Los miembros extraordinarios designados serán instalados y juramentados por los Asesores Electorales o los Delegados ad honorem del Tribunal en coordinación con dicho Asesor.
