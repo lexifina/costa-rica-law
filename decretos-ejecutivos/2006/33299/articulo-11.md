@@ -1,0 +1,4 @@
+Artículo 11.—Modificación en caso de contratos de obra. La modificación que de aquellos contratos de obra, se realice al amparo de los artículos 12 de la Ley de Contratación Administrativa y 14 de su Reglamento, que hayan sido refrendados previamente por la Contraloría General de la República, sólo requerirán la aprobación interna de la Asesoría Jurídica, conforme las siguientes reglas:
+1) Si el monto total de la contratación es inferior a ¢700.000.000,00 (setecientos millones de colones), cuando el monto de la modificación no supere el 5% (cinco por ciento) del total adjudicado.
+2) Si el monto total de la contratación es igual o superior a ¢700.000.000(setecientos millones de colones), cuando el monto de la modificación no supere los ¢35.000.000 (treinta y cinco millones de colones).
+Para estos casos, la Asesoría Jurídica del Ministerio, aplicará las disposiciones previstas en el artículo 9 anterior.

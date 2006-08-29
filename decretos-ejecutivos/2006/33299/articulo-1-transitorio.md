@@ -1,0 +1,2 @@
+Transitorio único.—Las contrataciones en trámite de aprobación interna al momento de la publicación del presente reglamento, no se encontrarán sujetas a los plazos establecidos en éste, sino que aplicará para aquellas que ingresen por primera vez a la Asesoría Jurídica, posterior a su publicación en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República.—San José, a los veintisiete días del mes de junio del dos mil seis.

@@ -1,0 +1,2 @@
+Artículo 13.—Eficacia contractual. La aprobación interna por parte de la Asesoría Jurídica otorga al documento contractual que se trate, la eficacia necesaria para surtir efectos jurídicos. De manera tal que toda contratación o modificación a ésta no podrá ser ejecutada hasta tanto no cuente con la aprobación interna.
+Todo sin perjuicio de la sanción de nulidad absoluta que recaería sobre ella en caso contrario y a las responsabilidades que podrían recaer sobre el servidor que así lo permita.

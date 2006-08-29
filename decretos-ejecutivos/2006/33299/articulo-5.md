@@ -1,0 +1,2 @@
+Artículo 5º—Formalización contractual. La aprobación interna o visto bueno según corresponda brindar a la Asesoría Jurídica, sólo se efectuará sobre contrataciones debidamente formalizadas en documento firmado por las partes involucradas, previa acreditación del cumplimiento de los requisitos establecidos por el ordenamiento jurídico así como el presente reglamento.
+Queda absolutamente prohibido brindar aprobaciones internas en documentos que no revistan la naturaleza de un contrato formal.
