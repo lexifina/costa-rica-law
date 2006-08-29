@@ -1,1 +1,2 @@
-Artículo 8.—Concluido el proceso electoral, los auxiliares recibirán estipendio que fije el Tribunal en cada elección para renumerar sus vicios. Sin perjuicio de esa suma fija, el Tribunal podrá excepcionalmente acordar, a propuesta del encargado del programa de auxiliares electorales, el pago de viáticos en favor de aquellos auxiliares que deben efectuar largos traslados para cumplir con sus deberes.
+Artículo 8º—Concluido el proceso electoral, los Auxiliares recibirán la suma fija que disponga el Tribunal para compensar los gastos en que incurran por concepto de alimentación y transporte, tanto el día de las elecciones, como durante las jornadas de capacitación y de preparación de las votaciones.
+(Así reformado por el artículo 4° del DTSE N° 9 del 29 de agosto de 2006)
