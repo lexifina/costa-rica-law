@@ -1,2 +1,0 @@
-Artículo 8º—Del traslado de los bienes. Los funcionarios del Instituto que trasladen bienes decomisados, deberán contar con la autorización del Director General o el Coordinador de la Unidad de Administración de Bienes, previa valoración de las imposibilidades establecidas en el artículo siguiente.
-El Instituto facilitará a sus funcionarios los medios idóneos para el correcto traslado de los bienes.

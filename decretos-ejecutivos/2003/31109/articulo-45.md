@@ -1,1 +1,0 @@
-Artículo 45.—Clases de comisos. La Unidad de Administración de Bienes deberá gestionar ante los distintos despachos judiciales todas las acciones establecidas en la Ley N° 8204 para el comiso definitivo de bienes.

@@ -1,2 +1,0 @@
-Artículo 16.—De la unidad de Asesoría Legal. Tal y como lo establece el artículo 144 inc. f) de la Ley Nº 8204, la Unidad de Asesoría Legal podrá coordinar con la Unidad de Administración de Bienes todas las acciones legales concernientes con la correcta administración y utilización de los bienes decomisados.
-Esta Unidad emitirá los criterios de legalidad por medio del cual se determine la posibilidad jurídica de aprobar el préstamo de bienes a las distintas instituciones solicitantes.

@@ -1,2 +1,0 @@
-Artículo 43.—Control de donaciones. La Unidad de Administración de Bienes deberá asegurarse de que los bienes donados fueron destinados para los propósitos requeridos. Para ello dará un seguimiento durante el año inmediato siguiente a la entrega de los bienes o recursos.
-En caso de incumplimiento por parte de la institución beneficiada, la misma no podrá gestionar ningún trámite de donación ante el ICD por un plazo de cuatro años.

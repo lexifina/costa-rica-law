@@ -1,1 +1,0 @@
-Artículo 26.—Plazo máximo. Los convenios de emergencia contarán con un plazo máximo de hasta un mes. Este plazo podrá ampliarse por un mes más, si la entidad justifica esa necesidad y el bien se encuentra en similares condiciones, para lo cual se hará la respectiva adenda al primer convenio, previa aprobación del Consejo Directivo.

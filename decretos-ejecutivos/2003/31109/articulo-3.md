@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la recepción de bienes decomisados
-Artículo 3º—Del Depósito Judicial. Salvo las excepciones establecidos en el presente Reglamento, el Instituto asumirá, de forma inmediata y exclusiva, el depósito judicial de todos los bienes muebles e inmuebles, vehículos, instrumentos, equipos, valores, dinero y demás objetos que sean utilizados, por personas físicas o jurídicas, en la comisión de los delitos previstos en la Ley Nº 8204, una vez que la autoridad judicial ordene, como medida cautelar, el respectivo decomiso. Asimismo, asumirá en depósito judicial las acciones, aportes de capital y la hacienda de personas jurídicas que sean vinculadas con la comisión de aquellos delitos.

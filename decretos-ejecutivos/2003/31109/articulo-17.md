@@ -1,3 +1,0 @@
-CAPÍTULO V
-Asignación o Préstamo de Bienes
-Artículo 17. De la responsabilidad del Instituto en la utilización de los bienes. El Instituto deberá utilizar los bienes en decomiso, tomando en consideración las consecuencias y responsabilidades que acarrea su condición de depositario judicial y bajo este criterio deberá recibir, asegurar, custodiar, cuidar, mantener e inspeccionar el uso de dichos bienes, hasta tanto no se haya ordenado su comiso; de modo que ante una eventual devolución, puedan ser entregados en similares condiciones a las que fueron recibidos, salvo caso fortuito, fuerza mayor, desgaste o deterioro normal de los mismos.

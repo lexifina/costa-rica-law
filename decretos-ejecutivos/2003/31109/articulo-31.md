@@ -1,2 +1,0 @@
-Artículo 31.—Devolución de dineros. Tratándose de entrega de dinero, la Unidad Administrativa procederá conforme lo ordena la autoridad judicial competente, sea, girando el cheque correspondiente a la orden del beneficiario o realizando el depósito de fondos a favor de la cuenta del Poder Judicial que se indique.
-El Instituto solamente podrá hacer entrega de dinero a las personas que la autoridad judicial competente autorice mediante resolución.

@@ -1,2 +1,0 @@
-Artículo 5º—Inventario de automotores. Los funcionarios del Instituto, debidamente autorizados, deberán inventariar, de previo a trasladar los bienes, todos los automotores que reciben en depósito judicial, dicha labor deberá detallar todos los accesorios, herramientas, equipos y demás extras que no se indiquen en la respectiva acta de depósito judicial. Además se constatará por escrito su estado físico, sea rayones, golpes y demás.
-El inventario deberá ser firmado por el funcionario que lo elaboró y un testigo presencial ajeno al Instituto.
