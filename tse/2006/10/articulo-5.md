@@ -1,0 +1,1 @@
+Artículo 5º—La persona que sea designada en un cargo calificado como de confianza y que tenga un puesto en propiedad en la institución, mantendrá dicha propiedad, si manifiesta su interés en que le sea concedida concomitante la respectiva licencia.
