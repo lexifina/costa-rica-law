@@ -1,0 +1,2 @@
+Artículo 3º—Las instituciones deberán destinar los recursos necesarios que permitan implementar dicho clasificador.
+Las instituciones que estén en capacidad de efectuar los ajustes pertinentes en sus sistemas presupuestarios lo pondrán en vigencia a partir de los presupuestos que rigen en el año 2007. Sin embargo, la obligatoriedad de implementar dicho clasificador regirá a partir del ejercicio presupuestario del año 2008.
