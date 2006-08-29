@@ -1,0 +1,1 @@
+Artículo 5º—Recibo de denuncia. La auditoria interna recibirá las denuncias en las oficinas centrales del INCOPESCA, o en cualquiera de las direcciones o oficinas regionales, las cuales deberán venir dirigidas directamente hacia la auditoria interna. El auditor interno valorará la admisibilidad de las denuncias presentadas.

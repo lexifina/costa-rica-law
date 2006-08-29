@@ -1,0 +1,1 @@
+Artículo 12.—La atención de denuncias trasladadas por la Contraloría General de la República. La Auditoría Interna atenderá de acuerdo con su plan de trabajo las denuncias que le sean remitidas por el ente contralor, no obstante, de acuerdo con el contenido de estas podrá dar prioridad a su atención en el menor tiempo posible.
