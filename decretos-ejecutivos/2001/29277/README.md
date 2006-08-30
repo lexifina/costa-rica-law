@@ -15,3 +15,4 @@ Declara Refugio Nacional de Vida Silvestre el área comprendida por la Isla San 
 | --- | --- | --- |
 | 1 | 2001-02-12 | la propia norma |
 | 2 | 2005-02-25 | Decreto Ejecutivo 32349 (2005-02-25) |
+| 3 | 2006-08-30 | Decreto Ejecutivo 33327 (2006-08-30) |
