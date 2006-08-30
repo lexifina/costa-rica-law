@@ -1,0 +1,1 @@
+Artículo 33.—Con respecto a los demás recursos de presupuestos públicos participativos, tales como fondo para carreteras o fondo para Agenda Mujeres, tendrá el Alcalde Municipal la potestad para efectuar las asignaciones correspondientes en mesas de concertación con actores sociales colectivos o individuales.

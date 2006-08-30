@@ -1,0 +1,1 @@
+Artículo 35.—El quórum para la sesión se formará con tres concejales, entre los cuales siempre deberá estar presente el Presidente o Vicepresidente. La presidencia del Concejo de Distrito la ejerce el Síndico Propietario y en su ausencia será sustituido por el Síndico Suplente, en ausencia de ambos la Presidencia corresponderá al Vicepresidente.

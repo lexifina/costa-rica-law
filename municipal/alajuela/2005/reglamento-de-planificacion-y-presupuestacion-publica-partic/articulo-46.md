@@ -1,0 +1,2 @@
+Anomalías
+Artículo 46.—Si una organización comete alguna anomalía en la fase de ejecución del proyecto, el caso será remitido a Auditoría Interna por parte del Subproceso Promoción del Desarrollo Social, para que realice el estudio correspondiente. La organización a cargo del proyecto no podrá continuarla obra hasta que no haya un pronunciamiento interno y sean acatadas las recomendaciones brindadas. Además, durante el tiempo que se realiza la investigación, no se le girarán recursos a la organización hasta no se aclare la situación.

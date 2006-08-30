@@ -1,0 +1,1 @@
+Artículo 58.—Las transferencias de recursos a sujetos privados que superen los montos establecidos en el Reglamento sobre el refrendo de las contrataciones de la Administración Pública, publicado en La Gaceta Nº 28 del 9 de febrero del 2000, serán sometidas a refrendo del Proceso Servicios Jurídicos o de la Contraloría General de la República según corresponda.

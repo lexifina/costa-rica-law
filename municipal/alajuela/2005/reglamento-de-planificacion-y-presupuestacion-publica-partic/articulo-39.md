@@ -1,0 +1,1 @@
+Artículo 39.—En caso de que la Municipalidad sea proponente de proyecto, y con el objetivo de acompañar el proceso de planificación y presupuestación pública participativa, ésta nombrará un representante ante el Concejo de Distrito con el fin de que integre el Concejo de Distrito Ampliado.

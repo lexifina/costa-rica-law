@@ -1,0 +1,1 @@
+Artículo 54.—El incumplimiento de la incorporación de los grupos poblacionales descritos en el artículo anterior, o la no ejecución de los mismos por parte de la comunidad y de la Unidad Ejecutora del Proyecto, implicará la exclusión por parte de la Administración Municipal de otorgar cualquier aporte a futuro

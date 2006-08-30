@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros del Equipo Operativo Institucional deberán ser capacitados cada vez que inicie un proceso de Planificación o Presupuestación Pública Participativa, lo que evitará incoherencias en la metodología que se aplicará.

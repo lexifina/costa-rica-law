@@ -1,0 +1,1 @@
+Artículo 5.—Los procesos de Planificación y Presupuestación Pública Participativa se llevarán a cabo conforme el presente reglamento y según los procedimientos establecidos en el Manual del Proyecto de Desarrollo Local de Base Participativa.

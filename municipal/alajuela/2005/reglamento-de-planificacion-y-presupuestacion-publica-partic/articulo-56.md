@@ -1,0 +1,1 @@
+Artículo 56.—En caso de que los recursos asignados sean menores a los indicados en el presupuesto presentado por el sujeto privado, se solicitará que el proyecto sea ejecutado por etapas o bien, que la comunidad aporte la diferencia requerida para cubrir la totalidad de los costos.

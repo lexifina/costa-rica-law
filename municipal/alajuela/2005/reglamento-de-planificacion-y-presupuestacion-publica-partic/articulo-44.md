@@ -1,0 +1,1 @@
+Artículo 44.—Si el Concejo de Distrito tiene interés en cambiar un proyecto, deberá cumplir previamente con el procedimiento establecido para la Sesión Extraordinaria Ampliada. Por tanto, deberán invitar a todos los que participaron en la primer sesión, y realizarla de acuerdo con los lineamientos ya establecidos.

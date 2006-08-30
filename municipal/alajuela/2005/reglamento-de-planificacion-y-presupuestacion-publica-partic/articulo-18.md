@@ -1,0 +1,1 @@
+Artículo 18.—La elección de los representantes de los sectores público, privado y comunal, serán elegidos popularmente por miembros de sus sectores en votación pública por mayoría simple. Serán electos por un período de dos años, con posibilidad de ser reelegidos por una única vez.

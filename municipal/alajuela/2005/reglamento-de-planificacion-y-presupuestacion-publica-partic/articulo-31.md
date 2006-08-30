@@ -1,0 +1,1 @@
+Artículo 31.—Para realizar una distribución proporcional y justa entre los distritos, se tomarán en cuenta los siguientes criterios: índice de cobrabilidad, índice de desarrollo, cantidad de habitantes y extensión territorial.
