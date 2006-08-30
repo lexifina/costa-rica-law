@@ -1,4 +1,0 @@
-Artículo 25: Regulación de la Posición Autorizada en Divisas
-La posición autorizada en divisas (definida en el Artículo 6 de este Reglamento) de las Casas de Cambio, podrá oscilar entre el cero y el ciento por ciento del monto de la garantía exigida. La información sobre la garantía será suministrada por la SUGEF. La posición autorizada en divisas podrá variar diariamente hasta un margen máximo de medio por ciento (½%) con respecto al saldo del día anterior.
-Modificado por la Junta Directiva del Banco Central de Costa Rica, mediante Artículo 7, del Acta de la Sesión 5091-2001, celebrada el 3 de octubre del 2001. Publicado en el Diario Oficial “La Gaceta” 197, del 12 de octubre del 2001.
-Modificado por la Junta Directiva del Banco Central de Costa Rica, mediante Artículo 1, del Acta de la Sesión 5091-2001, celebrada el 3 de octubre del 2001. Publicado en el Diario Oficial “La Gaceta” 197, del 12 de octubre del 2001.

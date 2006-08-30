@@ -1,3 +1,0 @@
-Artículo 29: Procedimiento Previo
-Cuando se presente una infracción a las disposiciones legales o reglamentarias en materia cambiaria, y demás regulaciones o recomendaciones que en dicha materia dicten el Banco Central de Costa Rica o la Superintendencia General de Entidades Financieras (SUGEF), ésta última elaborará un informe que contendrá el criterio técnico sobre lo sucedido y sobre las alegaciones de descargo que haya hecho la entidad infractora en su defensa.
-Reformado en la Sesión 4961-98, Artículo 12, celebrada el 24 de junio de 1998. Publicado en el Diario Oficial "La Gaceta" 143, del 24 de julio de 1998.

@@ -1,3 +1,0 @@
-Artículo 22: Autorización
-a) Las sociedades mercantiles constituidas conforme al Artículo anterior deberán solicitar por escrito ante la SUGEF la autorización para que se le permita participar en el Mercado Cambiario. La SUGEF deberá rendir ante la Junta Directiva del Banco Central de Costa Rica su opinión al respecto, para que dicho Cuerpo Colegiado tome la decisión correspondiente. Para cumplir con este cometido la SUGEF podrá solicitar a los interesados toda la información financiera y de cualesquiera otra índole que requiera.
-Dichas sociedades deberán manifestar su aceptación a someterse a la fiscalización y supervisión por parte de la SUGEF.

@@ -1,4 +1,0 @@
-Artículo 4: Margen de Intermediación Cambiaria
-El margen de intermediación cambiaria, definido como la diferencia entre el tipo de cambio de compra y venta, será determinado por las entidades autorizadas para participar en el Mercado Cambiario.
-De conformidad con el Artículo 97 de la Ley Orgánica del Banco Central de Costa Rica, por cada dólar vendido, las entidades autorizadas deberán trasladar, a más tardar el día hábil siguiente, un 10% del margen de intermediación cambiaria promedio ponderado por el total de transacciones efectuadas por cada una de la entidades durante el día. El resto corresponderá a la entidad vendedora.
-Modificado por la Junta Directiva del Banco Central de Costa Rica, mediante Artículo 13, de la Sesión 5021-2000, celebrada el 19 de enero del 2000. Publicado en el Diario Oficial "La Gaceta" 46, del 6 de marzo del 2000.

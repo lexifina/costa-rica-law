@@ -1,2 +1,0 @@
-Artículo 7: Fiscalización
-La SUGEF fiscalizará directamente o por medio de otra entidad que autorice expresamente, las operaciones de las entidades financieras, los puestos de bolsa y los otros entes o empresas que participen en el mercado de cambios y verificará el cumplimiento de la Ley y de este Reglamento, pudiendo para tal efecto realizar las inspecciones que considere oportunas, así como requerir todos los informes que sean necesarios.

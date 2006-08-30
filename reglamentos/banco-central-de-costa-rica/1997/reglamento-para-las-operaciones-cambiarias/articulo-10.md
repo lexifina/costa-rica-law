@@ -1,2 +1,0 @@
-Artículo 10: Referencia de Conversión
-Las entidades interesadas en vender al Banco Central de Costa Rica las divisas contempladas en el Artículo 8 deberán utilizar los tipos de cambio de esas monedas con respecto al dólar de los Estados Unidos, los cuales serán suministrados diariamente por el Banco Central de Costa Rica. Para la conversión a colones deberán aplicar el tipo de cambio de referencia correspondiente al día de la operación.
