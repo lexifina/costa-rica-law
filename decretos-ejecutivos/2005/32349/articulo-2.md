@@ -86,3 +86,4 @@ Punto (64) que coincide con el margen derecho del río Guacimal, continuando agu
 218600 N - 442700 E (76)
 218850 N - 443200 E (77)
 Punto (77) que coincide con la desembocadura del estero Pelusa de coordenadas 219900 N - 443400 (78). De aquí toma una línea recta con rumbo suroeste hasta alcanzar el punto inicial de la presente descripción del Humedal del estero de Puntarenas y manglares asociados de coordenadas 217 923 N - 442977 E (1).
+(NOTA DE SINALEVI: Mediante el artículo 2 del decreto ejecutivo Nº 33327 del 30 de agosto de 2006, se rectifica, delimita y se amplía el área del Humedal Estero Puntatenas y Manglares Asociados, así mismo ver los artículos 3, 4, 5 y 6 de dicho decreto)
