@@ -1,0 +1,1 @@
+Artículo 4º—Las renovaciones o permisos otorgados conforme al presente Acuerdo, serán bajo responsabilidad de los funcionarios indicados, debiendo rendir un informe mensual a la Junta Directiva y a la Presidencia Ejecutiva de los servicios que hubieren tramitado y firmado.

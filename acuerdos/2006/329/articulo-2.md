@@ -1,0 +1,1 @@
+Artículo 2º—Quedan exceptuadas de dicha posibilidad las solicitudes o licencias de pesca por primera vez o de cambio de propietario, las cuales continuarán siendo firmadas por el Presidente Ejecutivo, basadas en su respectiva resolución.

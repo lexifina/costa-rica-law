@@ -1,0 +1,1 @@
+Artículo 3º—Los requerimientos en cuanto al cumplimiento de requisitos para las licencias, permisos o autorizaciones indicados en el artículo 1 del presente acuerdo, se regirán de conformidad con lo establecido en el Acuerdo AJDIP/238-2002, publicado en La Gaceta Nº 192 del 7 de octubre del año 2002 y demás regulaciones en la materia.
