@@ -1,0 +1,1 @@
+Artículo 34.—En caso de que la Auditoría Social detecten irregularidades, éstas solo pueden ser canalizadas a través de los órganos de control interno y externo de la Administración Pública, quienes analizarán si procede instrumentar algún procedimiento y aplicar las sanciones de conformidad con lo consagrado en el marco jurídico regulatorio.

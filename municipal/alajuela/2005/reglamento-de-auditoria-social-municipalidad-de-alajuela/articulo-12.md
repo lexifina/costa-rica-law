@@ -1,0 +1,1 @@
+Artículo 12.—Los Concejos de Distrito convocarán a una asamblea distrital para elegir a quienes integrarán la Auditoría. A partir de esta convocatoria se abrirá un período de dos semanas para la recepción de postulaciones, las cuales deben cumplir con el perfil definido en el artículo 9.

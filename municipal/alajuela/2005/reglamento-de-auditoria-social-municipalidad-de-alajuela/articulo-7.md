@@ -1,0 +1,1 @@
+Artículo 7º—La Auditoría Social Distrital estará conformada por representantes de diversos sectores sociales, gremiales, comunitarios, profesionales, sindicatos, iglesias, cooperativas, organizaciones juveniles y la empresa privada organizada.

@@ -1,0 +1,1 @@
+Artículo 27.—En caso de que un miembro de la Auditoría, en el uso de su derecho quisiera hacer proselitismo político electoral, el mismo deberá renunciar al cargo ante la Auditoría y de forma escrita.

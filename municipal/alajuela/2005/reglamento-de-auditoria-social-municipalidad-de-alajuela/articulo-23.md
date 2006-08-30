@@ -1,0 +1,1 @@
+Artículo 23.—La Auditoría Social Distrital deberá elaborar un Plan de Acción en donde desarrollará un cronograma de las actividades a realizar, lo que pretende lograr y como lo evaluará. Este Plan deberá crearse en las dos semanas posteriores a la conformación de la Auditoría.

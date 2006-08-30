@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros de la Auditoría Social Distrital serán elegidos popularmente por las organizaciones de base en votación secreta por mayoría simple durante la primera semana de abril. Serán electos por un período de dos años, con posibilidad de ser reelegidos.

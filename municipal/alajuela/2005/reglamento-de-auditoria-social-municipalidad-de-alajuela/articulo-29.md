@@ -1,0 +1,1 @@
+Artículo 29.—Ante una renuncia o exclusión de un miembro de la Auditoría Social, podrá ser sustituido por otra persona según el acta de día de la elección, quien por sucesión presente la mayor cantidad de votos.

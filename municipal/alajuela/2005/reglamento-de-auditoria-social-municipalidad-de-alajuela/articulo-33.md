@@ -1,0 +1,1 @@
+Artículo 33.—Quien audita debe contar con herramientas sistematizadas para la búsqueda, gestión, recepción, uso, evaluación y difusión de actos administrativos y documentos públicos, y debe hacer un manejo confidencial de la información.
