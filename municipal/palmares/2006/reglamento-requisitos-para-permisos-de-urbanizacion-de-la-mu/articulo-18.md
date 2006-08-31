@@ -1,0 +1,3 @@
+Artículo 18.—Todo lo no contemplado en este Reglamento, se regirá por la Ley de Planificación Urbana, Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, Ley de Construcciones, Ley General de Caminos Públicos, Reglamento de Construcciones, Ley de Catastro, Reglamento a la Ley del Catastro y Leyes conexas relacionadas con los procesos de Urbanización.
+El Concejo Municipal de Palmares publica en La Gaceta el presente proyecto de Reglamento, para someterlo a consulta pública no vinculante, por un plazo mínimo de diez días hábiles, luego del cual se pronunciará sobre el fondo del asunto.
+Palmares, 8 de junio del 2006.

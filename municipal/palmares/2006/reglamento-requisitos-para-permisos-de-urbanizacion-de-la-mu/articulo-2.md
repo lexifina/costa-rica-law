@@ -1,0 +1,1 @@
+Artículo 2º—Quien no respetare las disposiciones que contiene el presente Reglamento, dará lugar a que la Municipalidad ordene la demolición de lo construido, corriendo los gastos por cuenta del dueño de la propiedad.
