@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad en todo caso se reservará el derecho de adjudicar sus contrataciones por líneas, atendiendo a las características propias de los suministros que adquiera y la naturaleza de la contratación.

@@ -1,0 +1,1 @@
+Artículo 6º—Todo pago por concepto de ordenes de compra y pagos por servicios no personales, se efectuarán mediante cheque, excepto aquellos que se realicen a través de caja chica, de acuerdo con las normas que dicte la Municipalidad, a través del reglamento que emita al efecto, según lo consignado en el artículo 109 del Código Municipal.

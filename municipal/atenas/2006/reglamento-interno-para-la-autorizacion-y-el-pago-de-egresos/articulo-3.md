@@ -1,0 +1,1 @@
+Artículo 3º—Las referencias a los montos aprobados por la Contraloría General de la República, consignada en el artículo uno de este Reglamento, se entenderá actualizada conforme se produzcan las modificaciones a los umbrales de la contratación administrativa, de conformidad con la legislación vigente.

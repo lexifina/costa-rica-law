@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Concejo Municipal por la vía del acuerdo municipal y con base en lo dispuesto en el artículo 13, inciso e) del Código Municipal, autorizar los egresos de la Municipalidad, cuado estos superan la suma autorizada en el artículo anterior.
