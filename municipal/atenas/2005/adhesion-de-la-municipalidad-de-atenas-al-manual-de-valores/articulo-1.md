@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE ATENAS
+Se acuerda: El Concejo Municipal de Atenas en sesión ordinaria Nº doscientos sesenta y nueve, celebrada el 22 de diciembre del 2005, con el fin de que sea utilizada en valoraciones de construcciones de todo tipo, acuerda adherirse a la publicación del documento. Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Nº 48 A, de La Gaceta 243 del 16 de diciembre del 2005, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda.
