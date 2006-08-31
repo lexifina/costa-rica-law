@@ -1,0 +1,1 @@
+Artículo 4º—Para lograr una eficiente y adecuada gestión, la Comisión podrá hacerse asesorar técnicamente por otras instituciones, organismos o personas con experiencia en el tema como otros Colegios Profesionales, Organismos Internacionales, universidades u otras instancias necesarias.

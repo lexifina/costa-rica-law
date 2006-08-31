@@ -1,0 +1,3 @@
+Artículo 7º—Sesiones y quórum. La Comisión sesionará ordinariamente una vez al mes y extraordinariamente cada vez que sea convocada por su coordinador. El quórum para sesionar válidamente será de la mayoría absoluta de sus integrantes y los acuerdos serán adoptados
+por mayoría simple de los miembros presentes.
+Si no hubiere quórum, la Comisión podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.

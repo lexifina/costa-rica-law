@@ -1,0 +1,4 @@
+Artículo 10.—Actas. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, el contenido de los acuerdos, la forma y resultado de la votación.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en el respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros de la Comisión.
+Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente.
+Los miembros de la Comisión podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en al caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
