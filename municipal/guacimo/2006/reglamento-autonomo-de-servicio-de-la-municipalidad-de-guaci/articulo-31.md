@@ -1,0 +1,1 @@
+Artículo 31.—Las sanciones descritas en este capítulo, serán aplicadas por el Alcalde a través de la Oficina de Personal o persona debidamente autorizada, conforme al procedimiento que establece el artículo 150 del Código Municipal en el caso de sanciones que conlleve la posibilidad de suspensión o despido, y de forma directa en el caso de amonestaciones verbales y por escrito.
