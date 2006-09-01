@@ -1,0 +1,1 @@
+Artículo 14.—Sitio alterno. Las entidades deben definir alternativas de procesamiento alterno o un sitio alterno de procesamiento, con el fin de proveer las necesidades de recuperación inmediatas y garantizar la operativa normal del negocio, ante algún eventual desastre.

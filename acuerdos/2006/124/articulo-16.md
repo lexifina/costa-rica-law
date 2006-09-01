@@ -1,0 +1,1 @@
+Artículo 16.—Advertencias y leyendas. La página Web debe contar con advertencias y leyendas para que el inversionista conozca con claridad acerca del producto en el cual invierte o desea invertir, según la legislación, reglamentación o normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 8º—Políticas y procedimientos para la entrada, procesamiento y salida de datos. Las entidades deben contar con políticas y procedimientos relacionados con la captura, actualización, procesamiento, almacenamiento y salida de los datos, de manera que asegure que estos permanezcan íntegros, completos, precisos y válidos.

@@ -1,0 +1,19 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+SGV-A-124.—Superintendencia General de Valores.—Despacho del Superintendente. A las nueve horas del veintidós de agosto del dos mil seis.
+Considerando que:
+I) Una inadecuada administración del riesgo operativo en el área de tecnología de información de los sujetos fiscalizados por la Superintendencia General de Valores (SUGEVAL), puede repercutir negativamente en el patrimonio de los inversionistas, en la propia entidad fiscalizada y en el desarrollo del mercado de valores costarricense.
+II) La gestión del riesgo operativo es responsabilidad de cada una de las entidades fiscalizadas. No obstante, le compete a la SUGEVAL garantizar la protección de los legítimos intereses y derechos de los inversionistas y del mercado de valores en general. En razón de lo anterior, resulta indispensable la determinación de ciertos requerimientos mínimos de tecnología de información que deban ser atendidos de manera uniforme para la gestión del riesgo en el área de tecnología de la información (TI).
+III) El desarrollo de servicios financieros de consulta o transaccionales a través de Internet forma parte de las estrategias institucionales tendientes a facilitar a los inversionistas sus operaciones.
+IV) Según el artículo 3, inciso e), del Reglamento General sobre Sociedades Administradoras de de Fondos de Inversión, para el otorgamiento de la autorización correspondiente es indispensable que las Sociedades Administradoras cuenten con “Documentación de la estructura organizativa y el recurso humano y tecnológico que le permita a la sociedad brindar sus servicios de manera adecuada, de conformidad con los lineamientos establecidos por el Superintendente”.
+V) De conformidad con el artículo 58, inciso a), de la Ley Reguladora del Mercado de Valores, los puestos de bolsa están obligados a
+“Cumplir las disposiciones de esta ley y sus reglamentos y acatar los acuerdos de la Superintendencia”.
+VI) Es indispensable que los Puestos de Bolsa cumplan con ciertos estándares mínimos de tecnología de la información (TI) que garanticen la integridad, seguridad, auditabilidad y disponibilidad de la información y de los servicios ofrecidos.
+VII) De conformidad con lo dispuesto en el artículo 8 inciso j) de la Ley Reguladora del Mercado de Valores, le corresponde al Superintendente adoptar todas las acciones necesarias para el cumplimiento efectivo de las funciones de regulación, supervisión y fiscalización atribuidas legalmente a la Superintendencia.
+VIII) El presente Acuerdo fue sometido a consulta de conformidad con el Artículo 361 de la Ley General de Administración Pública.
+Por tanto acuerda:
+SGV-A-124. ACUERDO SOBRE REQUERIMIENTOS MÍNIMOS
+DE TECNOLOGÍA DE LA INFORMACIÓN (TI)
+PARA LAS SOCIEDADES ADMINISTRADORAS
+DE FONDOS DE INVERSIÓN (SAFI)
+Y PUESTOS DE BOLSA (PB)
+Artículo 1º—Objetivo. Las Sociedades Administradoras de Fondos de Inversión y los Puestos de Bolsa, en adelante las entidades, deben contar con sistemas de Tecnología de Información (TI) que garanticen la integridad, seguridad, auditabilidad y disponibilidad de la información y de los servicios ofrecidos, independientemente del medio de comunicación electrónico que se utilice, ya sea público o privado. El diseño y funcionamiento de los sistemas de TI son responsabilidad de las entidades y deben estructurarse de forma tal que cumplan, al menos, con los requerimientos que se detallan en este Acuerdo.

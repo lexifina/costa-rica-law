@@ -1,0 +1,3 @@
+SECCIÓN VI
+Continuidad de las operaciones
+Artículo 12.—Políticas y procedimientos para el respaldo y recuperación de información. Las entidades deben establecer y mantener actualizadas políticas y procedimientos para el respaldo y recuperación de la información que, como mínimo, consideren la periodicidad, custodia, bitácoras y verificación de los datos respaldados. Estas políticas y procedimientos deben permitir asegurar que las funciones y servicios de las entidades puedan seguir funcionando durante períodos de emergencia causados por desperfectos en los equipos, pérdida de información u otras situaciones similares.
