@@ -1,0 +1,1 @@
+Artículo 4°—Las sesiones de la Comisión Consultora de Visas Restringidas se realizaran durante la jornada ordinaria laboral y sus miembros no devengaran dietas. La Dirección General de Migración y Extranjería deberá disponer de un lugar cómodo y seguro para la celebración de sus sesiones, y designara el equipo y personal de apoyo necesario para que este realice sus funciones.
