@@ -1,0 +1,1 @@
+Articulo 8º—En caso de que el contribuyente no impugnare dentro del plazo señalado en el artículo anterior, la Unidad de Patentes hará exigible al contribuyente responsable el pago del tributo dentro de los quince días hábiles inmediatos siguientes, transcurrido el tiempo indicado quedará expedida la vía ejecutiva a favor de esta Administración Tributaria Municipal.

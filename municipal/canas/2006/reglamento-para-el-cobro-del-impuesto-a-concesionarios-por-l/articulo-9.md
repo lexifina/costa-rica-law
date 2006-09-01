@@ -1,0 +1,1 @@
+Artículo 9º—Pago del impuesto. El impuesto correspondiente será cancelado en la Tesorería Municipal, a más tardar el último día del mes en que se presente la declaración, siempre que esta se presente dentro del período que establece la ley.
