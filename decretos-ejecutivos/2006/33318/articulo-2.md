@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Instituto Mixto de Ayuda Social establecer los mecanismos de control correspondientes a fin de asegurar el cumplimiento de los objetivos del programa y establecer las medidas necesarias para facilitar el acceso de la población beneficiaria al Programa.
