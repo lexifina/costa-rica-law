@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 02 del “Reglamento de Servicios de Trabajadores de Comedores Escolares”, Decreto número 15195-E del 30 de enero de 1984, para que en lo sucesivo disponga lo siguiente:
+“Artículo 2º—Este Reglamento será de acatamiento obligatorio en todos los establecimientos educativos oficiales del Ministerio de Educación Pública, donde funcione el servicio del comedor escolar que brinda la División de Alimentación y Nutrición del Escolar y del Adolescente (DANEA).”
