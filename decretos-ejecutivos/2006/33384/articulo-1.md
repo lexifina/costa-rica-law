@@ -1,0 +1,16 @@
+Nº 33384
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+De conformidad con las atribuciones que conceden los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), y 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas, Ley N° 3022 del 27 de agosto de 1962, Ley Nº 3493 del 29 de enero de 1965 y sus reformas, el Código de Normas y Procedimientos Tributarios, Ley Nº 4755 del 3 de mayo de 1971 y sus reformas.
+Considerando:
+I.—Que mediante Ley Nº 3022 del 27 de agosto de 1962, se crea la Dirección General de Hacienda, como organismo técnico especializado y asesor obligado del Ministerio del ramo en materia fiscal.
+II.—Que mediante Ley Nº 2393 del 11 de julio de 1959, reformada por Ley Nº 3493 del 29 de enero de 1965, se crea la Oficina de Cobros Judiciales dependiente de la Dirección General de Hacienda.
+III.—Que mediante Decreto Ejecutivo Nº 25764-H del 3 de enero de 1997, publicado en La Gaceta Nº 19 de 28 de enero de 1997, se traslada la Oficina de Cobros Judiciales a la Dirección General de Tributación, argumentándose lo siguiente:
+“Que el Código de Normas y Procedimientos Tributarios (Ley Nº 4755 del 3 de mayo de 1971), en su artículo 166 deroga tácitamente todas aquellas normas legales que establecen la pertenencia de la Oficina de Cobros a la Dirección General de Hacienda, y en su lugar establece que dicha Oficina pertenece en forma genérica al Ministerio de Hacienda, por lo que puede estar bajo cualquier Dependencia Ministerial que se considere conveniente”.
+IV.—Que el artículo 166 del Código de Normas y Procedimientos Tributarios, del 3 de mayo de 1971 y sus reformas, a la letra señala:
+“La oficina de Cobros del Ministerio de Hacienda debe cobrar los impuestos, tasas, contribuciones, derechos fiscales, rentas por arrendamiento de bienes del Poder Central no sujetos a leyes especiales, y de toda clase de créditos a favor de éste, mediante el procedimiento instituido por la Ley N. 2393 de 11 de julio de 1959, reformada por ley Nº 3493 de 29 de enero de 1965 y por las disposiciones de este Título”.
+V.—Que en respeto al principio de la jerarquía de las normas, consagrado en el numeral 6 de nuestra Carta Magna y el artículo 6 de la Ley General de la Administración Pública, las disposiciones de la Ley Nº 3493 del 29 de enero de 1965 y sus reformas, deben prevalecer sobre cualquier precepto normativo de rango inferior, en relación con la ubicación o pertenencia de la Oficina de Cobros Judiciales.
+VI.—Que una vez que una instancia administrativa ha cumplido con el proceso cobratorio administrativo y procede a enviar el caso para ser tramitado en sede judicial, a través de la certificación de la deuda, ésta adquiere la naturaleza de adeudo a favor del Estado, indistintamente de su origen.
+VII.—Que es necesario fortalecer la gestión cobratoria en sede judicial sobre aquellos adeudos a favor del Estado, así como el control sobre la gestión cobratoria realizada en sede administrativa por las diferentes instancias gubernamentales. Por tanto,
+DECRETAN:
+Artículo 1º—Deróguese el Decreto Ejecutivo Nº 25764-H del 3 de enero de 1997, publicado en La Gaceta Nº 19 de 28 de enero de 1997.

@@ -1,0 +1,1 @@
+Artículo 2º—Ordenar el traslado de la Oficina de Cobros Judiciales del Ministerio de Hacienda de la Dirección General de Tributación a la Dirección General de Hacienda, en aplicación de lo dispuesto en la Ley Nº 3493 de 29 de enero de 1965.
