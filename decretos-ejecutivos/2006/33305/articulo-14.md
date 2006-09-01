@@ -1,0 +1,3 @@
+Artículo 14.—Desempate en la preferencia. En un proceso de contratación administrativa donde los oferentes de bienes o servicios posean condiciones iguales o equiparables en cuanto a la calidad, abastecimiento y precio, de conformidad con el artículo 20 de la Ley Nº 8262 del 2 de mayo del 2002, se establece como mecanismo de desempate para la adjudicación de la oferta el siguiente:
+a. Preferirán a las PYMES de Producción Nacional.
+b. Cuando existan dos o más PYMES de producción nacional, la Administración aplicará los parámetros de desempate definidos en el cartel, para lo cual podrá considerar aquellos criterios cualitativos o cuantitativos inherentes a las PYMES que el MEIC establezca.

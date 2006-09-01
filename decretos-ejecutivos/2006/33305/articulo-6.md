@@ -1,0 +1,1 @@
+Artículo 6º—Calidad. Los bienes y servicios ofertados al Estado, deberán cumplir con los requisitos y especificaciones descritos en el cartel o pliego de condiciones. Estos requisitos se establecerán en concordancia con los reglamentos técnicos, las normas, o en su defecto los requisitos propios indispensables para cada bien o servicio que determine la Institución.

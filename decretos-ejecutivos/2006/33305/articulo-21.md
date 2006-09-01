@@ -1,0 +1,1 @@
+Artículo 21.—Registro. Aquellas PYMES costarricenses que deseen ser oferentes de bienes y servicios de las Instituciones o Dependencias de la Administración, y recibir el trato establecido en el artículo 20 de la Ley Nº 8262 del 2 de mayo del 2002, deberán estar registradas en el Registro Nacional de PYMES Proveedores de la Administración en Compra RED.

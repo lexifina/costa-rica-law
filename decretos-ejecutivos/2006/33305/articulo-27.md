@@ -1,0 +1,1 @@
+Artículo 27.—Suministro de datos e información falsa. La alteración o suministro de información falsa referida a la aplicación de las medidas previstas en el presente Reglamento, se denunciará ante los órganos competentes.

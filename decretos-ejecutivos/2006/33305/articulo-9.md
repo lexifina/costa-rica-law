@@ -1,0 +1,1 @@
+Artículo 9º—Diferencia en el precio de comparación. En todos aquellos casos en el que el precio equivalente (Peq), calculado de conformidad con el artículo 8 anterior, sea menor al valor total cotizado por el oferente, se utilizará este último para efectos de la comparación de precios.

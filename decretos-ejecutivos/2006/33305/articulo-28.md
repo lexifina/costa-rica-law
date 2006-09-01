@@ -1,0 +1,1 @@
+Artículo 28.—Consulta al MEIC. Para aquellos casos en que exista discrepancia o duda con respecto a la forma en que se debe de aplicar el presente Reglamento, la entidad compradora o el oferente deberá efectuar la consulta a la DIGEPYME, la cual deberá ser respondida en un plazo no mayor de 10 días hábiles.

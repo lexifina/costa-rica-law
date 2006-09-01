@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Evaluación y control
+Artículo 25.—Informe trimestral de compras. Cada una de las Instituciones o Dependencias de la Administración, elaborará un informe trimestral en donde se detalle la cantidad, monto y procedimiento realizado de los bienes o servicios adquiridos a las empresas PYMES. Este informe se registrará en Compra Red con la información y el formato que ahí se indique. Para todas aquellas Instituciones que utilicen Compra Red para realizar sus procedimientos de contratación administrativa, este informe será generado directamente por el sistema. El Ministerio de Economía, Industria y Comercio obtendrá del citado sistema, la información que requiera para la respectiva evaluación de la participación de las PYMES en las compras del Estado.
