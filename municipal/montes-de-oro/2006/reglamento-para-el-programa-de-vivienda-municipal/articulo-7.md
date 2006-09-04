@@ -1,0 +1,1 @@
+7º—El monto del préstamo deberá cancelarse mediante 120 cuotas mensuales, con un interés fijo del 1.5% mensual, y un interés de mora correspondiente a la tasa básica pasiva que dicte el Banco Central, para ese efecto.

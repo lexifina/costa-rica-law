@@ -1,0 +1,1 @@
+15.—La Municipalidad emitirá el cheque a favor del deudor y tendrá la facultad de realizar la inspección correspondiente, a fin de comprobar la inversión del crédito en la obra descrita en la solicitud

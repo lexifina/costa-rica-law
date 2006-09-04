@@ -1,0 +1,1 @@
+10.—El Departamento de Rentas y Cobranzas llevará un expediente de cada préstamo del programa de Vivienda Municipal, donde se establezca el monto inicial del préstamo, los abonos mensuales, el saldo respectivo y la fecha a que se encuentra paga la obligación.

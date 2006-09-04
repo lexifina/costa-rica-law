@@ -1,0 +1,1 @@
+3º—El deudor y sus dos fiadores deberán llenar una letra de cambio como garantía de pago, y un contrato donde se especifiquen las condiciones del crédito, firmado por el Alcalde Municipal. Este documento quedará en custodia Municipal, bajo el Departamento de Rentas y Cobranzas y se le adjuntarán los timbres de Ley.
