@@ -1,0 +1,1 @@
+Artículo 24.—Para la consideración y resolución del préstamo de las instalaciones, los interesados deberán presentar al equipo base del Comité ,la solicitud por escrito al menos ocho días hábiles antes de la realización del evento, esta deberá llevar un currículo del grupo o persona, una descripción del evento y alcances del mismo.

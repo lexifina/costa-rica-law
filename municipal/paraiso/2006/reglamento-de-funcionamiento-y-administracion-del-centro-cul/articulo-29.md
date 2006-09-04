@@ -1,0 +1,1 @@
+Artículo 29.—Cualquier daño en el equipo o infraestructura que se realice, deberá ser pagada por la persona o grupo responsable de la actividad con base a una tabla de depreciación de activos del Centro Cultural Paraiseño.

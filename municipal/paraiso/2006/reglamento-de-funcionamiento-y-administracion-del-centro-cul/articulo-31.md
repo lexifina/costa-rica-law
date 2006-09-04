@@ -1,0 +1,1 @@
+Artículo 31.—El control de los fondos que ingresen por ese rubro estará a cargo del tesorero, quien emitirá un informe inmediato al equipo base del Comité. De manera semestral se presentará al Comité en pleno y anualmente a la Auditoría Municipal.
