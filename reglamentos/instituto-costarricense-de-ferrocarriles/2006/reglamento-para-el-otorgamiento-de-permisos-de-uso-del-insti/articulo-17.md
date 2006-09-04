@@ -1,0 +1,3 @@
+Artículo 17.—Únicamente podrán otorgarse convenios con contraprestación en los siguientes supuestos:
+a) Cuando particulares colindantes con el derecho de vía soliciten permiso únicamente para el cuidado, mantenimiento y limpieza, de la trocha, sin que ello autorice en forma alguna al levantamiento de cerca, construcción o caseta alguna.
+b) Cuando sean otorgados a otras instituciones estatales, y estas asuman el mantenimiento y labores de restauración respecto al inmueble y siempre que el monto del canon según avalúo no sume anualmente un monto mayor a los cien mil colones, y la contraprestación que se encuentre detallada sea equiparable al beneficio que obtendría la el ente permisionario.

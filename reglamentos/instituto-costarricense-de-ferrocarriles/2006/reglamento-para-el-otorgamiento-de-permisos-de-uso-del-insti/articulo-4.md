@@ -1,0 +1,1 @@
+Artículo 4º—La CPUI se reunirá una vez por semana el día que ella misma establezca por simple mayoría, y respecto a su funcionamiento se regirá por lo establecido por el Capítulo 3º, artículos 49 al 58 de la Ley Nº 6227 de 2 de mayo de 1978 Ley General de la Administración Pública.
