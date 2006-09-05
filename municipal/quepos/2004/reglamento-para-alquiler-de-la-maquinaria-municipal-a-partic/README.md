@@ -14,3 +14,4 @@ Reglamento para alquiler de la maquinaria municipal a particulares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-07 | la propia norma |
+| 2 | 2006-09-05 | Reglamento municipal 27 (2006-09-05) |
