@@ -1,0 +1,1 @@
+Artículo 26.—Para el préstamo de los documentos en el Archivo Central, tanto para funcionarios como también a particulares, se deben cumplir con los requisitos que los funcionarios solicitarán en el área de consulta del Archivo Central, según lo indique el Manual de Procedimientos correspondiente.

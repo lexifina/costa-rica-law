@@ -1,0 +1,1 @@
+Artículo 15.—El Consejo Nacional de Vialidad deberá dotar de un espacio que reúna las condiciones adecuadas para las labores del Archivo Central, equipo técnico y mobiliario que permita el cumplimiento adecuado de las funciones archivísticas.

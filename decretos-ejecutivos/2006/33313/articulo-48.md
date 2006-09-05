@@ -1,0 +1,1 @@
+Artículo 48.—Los documentos recibidos y producidos por el Consejo Nacional de Vialidad, independientemente de su clase documental, así como el material intelectual producido por sus funcionarios como parte de sus labores para el Consejo Nacional de Vialidad, serán considerados como parte del patrimonio del Consejo Nacional de Vialidad.

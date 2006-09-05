@@ -1,0 +1,1 @@
+Artículo 36.—Para la eliminación de documentos deberá levantarse un acta con información sobre los documentos que han sido eliminados y esta deberá ser aprobada por el Archivo Central y por el Comité Institucional de selección y Eliminación.

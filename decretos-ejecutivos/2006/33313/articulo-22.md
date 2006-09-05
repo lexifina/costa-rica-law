@@ -1,0 +1,1 @@
+Artículo 22.—No se aceptarán remisiones de documentos que no cumplan con lo indicado en los artículos 20 y 21 del presente Reglamento, además se recibirá solamente la documentación que haya cumplido con su vigencia administrativa- legal, según las tablas de plazos de conservación de cada uno de las direcciones o unidades.

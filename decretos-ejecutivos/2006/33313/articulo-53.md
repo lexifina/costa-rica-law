@@ -1,0 +1,1 @@
+Artículo 53 - Transitorio Único. El Archivo Central no recibirá documentos de las Directrices o unidades, hasta tanto no se den las condiciones en las instalaciones que permitan una buena conservación de los documentos

@@ -1,0 +1,1 @@
+Artículo 29.—Se podrán hacer reproducciones de los documentos mientras el Consejo Nacional de Vialidad no haya declarado lo contrario, o mientras el Archivista no indique oposición a favor de la conservación de los mismos.

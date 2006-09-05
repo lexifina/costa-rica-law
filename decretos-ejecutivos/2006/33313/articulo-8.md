@@ -1,0 +1,1 @@
+Artículo 8º—Los (as) Directores (as) y Jefes de los unidades del Consejo Nacional de Vialidad, serán los responsables de la custodia, ordenación, clasificación y organización de los documentos de sus respectivas oficinas.

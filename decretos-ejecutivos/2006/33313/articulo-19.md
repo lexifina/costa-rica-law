@@ -1,0 +1,1 @@
+Artículo 19.—Para la descripción de los documentos del Sistema Institucional de Archivos del Consejo Nacional de Vialidad se utilizarán instrumentos descriptivos tales como: inventarios, registros, tablas de plazos de conservación y listas de remisión.

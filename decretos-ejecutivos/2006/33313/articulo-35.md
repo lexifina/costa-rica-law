@@ -1,0 +1,1 @@
+Artículo 35.—Los encargados de los archivos de Gestión son los responsables de levantar la información requerida en el formulario de las tablas de plazos de conservación, todo esto con la asesoría del Archivo Central.

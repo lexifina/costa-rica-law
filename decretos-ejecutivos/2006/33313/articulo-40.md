@@ -1,0 +1,1 @@
+Artículo 40.—Todo aquel usuario del Archivo Central o funcionario del Consejo Nacional de Vialidad a quien se le comprobare, que por descuido o intención, dañe, elimine, altere, sustraiga, oculte o disponga de cualquier uso de los documentos que interfiera con la accesibilidad de la información, se sancionará de acuerdo con la normativa vigente.

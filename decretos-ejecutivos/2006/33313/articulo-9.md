@@ -1,0 +1,1 @@
+Artículo 9º—Con el objetivo de que el Sistema Institucional de Archivos pueda cumplir con las disposiciones del presente Reglamento, en cuanto a la organización de los documentos, todas las unidades y dependencias del Consejo Nacional de Vialidad deben prestar la colaboración que se solicite por parte de esa unidad.

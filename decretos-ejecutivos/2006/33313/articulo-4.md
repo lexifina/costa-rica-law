@@ -1,0 +1,1 @@
+Artículo 4º—El Personal del Archivo Central. El Archivo Central estará a cargo de un profesional en Archivística, además de los técnicos y asistentes necesarios para el cumplimiento de sus objetivos y funciones.

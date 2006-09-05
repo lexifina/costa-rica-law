@@ -1,0 +1,1 @@
+Artículo 28.—Los usuarios del Sistema Institucional de Archivos del Consejo Nacional de Vialidad no podrán fumar, beber o comer en el área de consulta del Archivo Central; tampoco se permitirá rayar, calcar, cortar, doblar, arrugar, perforar o escribir sobre los documentos.

@@ -1,0 +1,1 @@
+Artículo 21.—Los Encargados (as) de los Archivos de Gestión deberán enviar los documentos al Archivo Central debidamente organizados, numerados, acompañados de una lista de remisión y en unidades de conservación rotuladas, todo según se establezca en el manual de procedimiento.

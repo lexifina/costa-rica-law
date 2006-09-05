@@ -1,0 +1,1 @@
+Artículo 49.—El Archivo Central, en coordinación con comités auxiliares, promoverá exposiciones, conferencias y seminarios con el fin de acercar el archivo a los ciudadanos y darlo a conocer especialmente a estudiantes e investigadores.

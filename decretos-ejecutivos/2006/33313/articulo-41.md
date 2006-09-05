@@ -1,0 +1,1 @@
+Artículo 41.—Si dentro de la investigación que se llevare a cabo en el procedimiento administrativo, se logra determinar la eventual violación a la normativa penal, la Dirección Ejecutiva deberá poner la respectiva denuncia ante las autoridades judiciales.
