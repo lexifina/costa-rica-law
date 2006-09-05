@@ -1,0 +1,1 @@
+Artículo 12.—De la ratificación de la Denuncia. Instalado el Órgano Director, procederá a comunicar de inmediato al denunciante o la denunciante, que cuenta con tres días hábiles para que ratifique, aclare o amplíe la denuncia, lo cual podrá hacer en forma verbal o escrita.

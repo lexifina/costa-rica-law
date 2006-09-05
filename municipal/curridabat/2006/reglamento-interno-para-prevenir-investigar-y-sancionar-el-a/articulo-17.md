@@ -1,0 +1,3 @@
+Artículo 17.—De los recursos contra la resolución. La resolución final tendrá Recurso de Reconsideración ante el Alcalde o Alcaldesa Municipal, y deberá ser interpuesto dentro de los tres días hábiles siguientes a la notificación de la resolución.
+Resuelto el Recurso de Reconsideración se tienen por agotada la Vía Administrativa.
+Una vez agotada la Vía Administrativa, o si los procedimientos no se hubieren cumplido por motivos que no se le pueden imputar a la persona ofendida, la denuncia por hostigamiento sexual se podrá presentar ante los tribunales de la jurisdicción laboral, los cuales son competentes para conocerlas.
