@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno y los funcionarios de la Auditoría Interna de la Municipalidad de Curridabat, estarán en el deber de observar las prohibiciones establecidas en el Artículo 34 de la Ley General de Control Interno.

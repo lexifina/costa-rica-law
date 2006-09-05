@@ -1,0 +1,2 @@
+Artículo 23.—Los informes de auditoría o estudios especiales de auditoría constarán fundamentalmente, de los cuatro siguientes capítulos: “Introducción”, “Resultados”, “Conclusiones” y “Recomendaciones”, que se subdividirán en secciones de acuerdo a las necesidades de exposición.
+Sin embargo, los memorandos no necesariamente deben ordenarse de acuerdo con la división mencionada, siempre y cuando la excepción no vaya en demérito de la concisión, exactitud, objetividad, y claridad de la información.

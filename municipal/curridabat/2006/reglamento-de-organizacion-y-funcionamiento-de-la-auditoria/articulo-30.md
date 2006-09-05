@@ -1,0 +1,1 @@
+Artículo 30.—El Auditor Interno de la Municipalidad de Curridabat, podrá proponer las modificaciones que considere oportunas al presente reglamento de conformidad con la Ley General de Control Interno.

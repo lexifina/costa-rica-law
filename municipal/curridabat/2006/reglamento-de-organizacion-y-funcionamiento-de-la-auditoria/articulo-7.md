@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización
+Artículo 7º—La Unidad de Auditoría Interna estará a cargo de un Auditor, quién deberá ser Contador Público, preferiblemente incorporado al Colegio de Contadores Públicos de Costa Rica y deberá satisfacer los requisitos establecidos en los “lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor internos”, publicados en La Gaceta N° 205 del 24 de octubre de 2003. Además, deberá conocer las disposiciones legales que rigen el Régimen Municipal y la Administración Pública, y cumplir con los requisitos que establece el manual descriptivo de puestos de la Municipalidad de Curridabat.

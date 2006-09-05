@@ -1,0 +1,1 @@
+Artículo 8º—El nombramiento del Auditor Interno será por tiempo indefinido y lo hará el Concejo Municipal, conforme lo establecido en el artículo 52 del Código Municipal, y 24 de la Ley General de Control interno, en observancia con los lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor internos.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del objeto, competencias, deberes, potestades y prohibiciones
+Artículo 12.—El Objeto fundamental de la Unidad de Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración para que alcance sus metas y objetivos institucionales, con mayor eficiencia, eficacia y economicidad, mediante la práctica de un enfoque sistemático y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control de los procesos de dirección, proporcionándole en forma oportuna información, análisis, comentarlos y recomendaciones sobre las operaciones que examina.
