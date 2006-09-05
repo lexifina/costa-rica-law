@@ -1,0 +1,2627 @@
+Nº 33329
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y su Reglamento, el Decreto Ejecutivo Nº 32988-HMP-PLAN de 31 de enero de 2006, y la Ley Nº 8490, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2006 de 15 de diciembre de 2005 y sus reformas.
+Considerando:
+1º—Que el inciso b) del artículo 45 de la Ley Nº 8131, publicada en La Gaceta Nº 198 de 16 de octubre de 2001, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo artículo, de acuerdo con la reglamentación que se dicte para tal efecto.
+2º—Que mediante el Decreto Ejecutivo Nº 32988-H-MP-PLAN, publicado en La Gaceta Nº 74 de 18 de abril de 2006, se establece la normativa técnica, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3º—Que el artículo 61 del Decreto Ejecutivo Nº 32988-H-MP-PLAN, autoriza para que mediante decreto ejecutivo elaborado por el Ministerio de Hacienda, se realicen traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratare, sin modificar el monto total de los recursos asignados al programa.
+4º—Que los Órganos del Gobierno de la República incluidos en el presente decreto han solicitado la confección del mismo, cumpliendo en todos sus extremos con lo dispuesto en la normativa técnica y legal vigente.
+5º—Que se hace necesario realizar la presente modificación, en razón de reordenar las asignaciones presupuestarias incluidas en la Ley Nº 8490, publicada en el Alcance Nº 49 a La Gaceta Nº 253 de 30 de diciembre de 2005 a la luz de las nuevas necesidades de las instituciones, mismas que exigen su flexibilización a efectos de cumplir con las metas y objetivos institucionales y programáticos para el ejercicio. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase el artículo 2º de la Ley Nº 8490, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2006, publicada en el Alcance Nº 49 a La Gaceta Nº 253 de 30 de diciembre de 2005, en la forma que se indica a continuación:
+REBAJAR
+TÍTULO: 205
+MINISTERIO DE SEGURIDAD PÚBLICA
+Programa: 107-00
+SEGURIDAD CIUDADANA
+REGISTRO CONTABLE: 205-107-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 760.898.810
+00101 001 1111 1310 SUELDOS PARA CARGOS FIJOS 607.553.500
+00302 001 1111 1310 RESTRICCIÓN AL EJERCICIO
+LIBERAL DE LA PROFESIÓN 50.000.000
+00304 001 1111 1310 SALARIO ESCOLAR 103.345.310
+Total Rebaja
+del Programa: 107-00 760.898.810
+Total Rebaja del Título: 205 760.898.810
+TÍTULO: 209
+MINIST. DE OBRAS PUBL. Y TRANSP
+Programa: 331-00
+TRANSPORTE TERRESTRE
+Subprograma/Proyecto: 01
+TRANSPORTE TERRESTRE
+Registro Contable: 209-331-01
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 4.000.000
+00304 001 1111 2151 SALARIO ESCOLAR 4.000.000
+Total Rebaja
+del Subprograma/Proyecto: 331-01 4.000.000
+Subprograma/Proyecto: 02
+TRIBUNAL ADMINISTRATIVO DE TRANSPORTES
+Registro Contable: 209-331-02
+0 REMUNERACIONES 9.400.000
+00101 001 1111 1320 SUELDOS PARA CARGOS FIJOS 4.000.000
+00105 001 1111 1320 SUPLENCIAS 4.500.000
+00304 001 1111 1320 SALARIO ESCOLAR 900.000
+Total Rebaja
+del Subprograma/Proyecto: 331-02 9.400.000
+Total Rebaja
+del Programa: 331-00 13.400.000
+Total Rebaja
+del Título: 209 13.400.000
+TÍTULO: 211
+MINISTERIO DE SALUD
+Programa: 622-00
+DIRECCIÓN Y CONDUCCIÓN EN SALUD
+Subprograma/Proyecto: 07
+NIVEL REGIONAL
+Registro Contable: 211-622-07
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 9.000.000
+00302 001 1111 3230 RESTRICCIÓN AL EJERCICIO
+LIBERAL DE LA PROFESIÓN 9.000.000
+Total Rebaja
+del Subprograma/Proyecto: 622-07 9.000.000
+Total Rebaja
+del Programa: 622-00 9.000.000
+Programa: 625-00
+NUTRICIÓN Y DESARROLLO INFANTIL
+Registro Contable: 211-625-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 22.000.000
+00103 001 1111 3230 SERVICIOS ESPECIALES 22.000.000
+Total Rebaja
+del Programa: 625-00 22.000.000
+Total Rebaja
+del Título: 211 31.000.000
+TÍTULO: 213
+MINIST. DE CULT. JUVENT. Y DEP.
+Programa: 753-00
+GESTIÓN Y DESARROLLO CULTURAL
+Registro Contable: 213-753-00
+6 TRANSFERENCIAS CORRIENTES 590.000.000
+60102 TRANSFERENCIAS CORRIENTES
+A ÓRGANOS DESCONCENTRADO 590.000.000
+60102 280 1310 3320 230 MUSEO DE ARTE COSTARRICENSE
+(PARA EL DESARROLLO DEL
+PROYECTO CENTRO CULTURAL
+LA ADUANA).
+Ced. Jur.:3-007-061000-18 590.000.000
+Total Rebaja
+del Programa: 753-00 590.000.000
+Total Rebaja
+del Título: 213 590.000.000
+TÍTULO: 219
+MINIST. DE AMBIENTE Y ENERGÍA
+Programa: 879-00
+ACTIVIDADES CENTRALES
+Registro Contable: 219-879-00
+0 REMUNERACIONES 13.000.000
+00101 001 1111 2260 SUELDOS PARA CARGOS FIJOS 3.141.772
+00304 001 1111 2260 SALARIO ESCOLAR 358.228
+00399 001 1111 2260 OTROS INCENTIVOS SALARIALES 9.500.000
+Total Rebaja
+del Programa: 879-00 13.000.000
+Total Rebaja
+del Título: 219 13.000.000
+Total Rebajar 1.408.298.810
+AUMENTAR
+TÍTULO: 205
+MINISTERIO DE SEGURIDAD PUBL.
+Programa: 107-00
+SEGURIDAD CIUDADANA
+Registro Contable: 205-107-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 760.898.810
+00399 001 1111 1310 OTROS INCENTIVOS SALARIALES 760.898.810
+Total Aumento
+del Programa: 107-00 760.898.810
+Total Aumento
+del Título: 205 760.898.810
+TÍTULO: 209
+MINIST. DE OBRAS PUBL. Y TRANSP.
+Programa: 331-00
+TRANSPORTE TERRESTRE
+Subprograma/Proyecto: 02
+TRIBUNAL ADMINISTRATIVO DE TRANSPORTES
+Registro Contable: 209-331-02
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 13.400.000
+00301 001 1111 1320 RETRIBUCIÓN POR AÑOS
+SERVIDOS 6.500.000
+00302 001 1111 1320 RESTRICCIÓN AL EJERCICIO
+LIBERAL DE LA PROFESIÓN 6.900.000
+Total Aumento
+del Subprograma/Proyecto: 331-02 13.400.000
+Total Aumento
+del Programa: 331-00 13.400.000
+Total Aumento
+del Título: 209 13.400.000
+TÍTULO: 211
+MINISTERIO DE SALUD
+Programa: 622-00
+DIRECCIÓN Y CONDUCCIÓN EN SALUD
+Subprograma/Proyecto: 06
+VIGILANCIA DE LA SALUD
+Registro Contable: 211-622-06
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 9.000.000
+00301 001 1111 3230 RETRIBUCIÓN POR AÑOS SERVIDOS 2.000.000
+00302 001 1111 3230 RESTRICCIÓN AL EJERCICIO LIBERAL
+DE LA PROFESIÓN 4.500.000
+00399 001 1111 3230 OTROS INCENTIVOS SALARIALES 2.500.000
+Total Aumento
+del Subprograma/Proyecto: 622-06 9.000.000
+Total Aumento
+del Programa: 622-00 9.000.000
+Programa: 625-00
+NUTRICIÓN Y DESARROLLO INFANTIL
+Registro Contable: 211-625-00
+0 REMUNERACIONES 22.000.000
+00399 001 1111 3230 OTROS INCENTIVOS SALARIALES 22.000.000
+Total Aumento
+del Programa: 625-00 22.000.000
+Total Aumento
+del Título: 211 31.000.000
+TÍTULO: 213
+MINIST. DE CULT. JUVENT. Y DEP.
+Programa: 753-00
+GESTIÓN Y DESARROLLO CULTURAL
+Registro Contable: 213-753-00
+7 TRANSFERENCIAS DE CAPITAL 590.000.000 70102 TRANSF. DE CAPITAL A ÓRGANOS DESCONCENTRADOS 590.000.000 70102 280 2310 3320 230 MUSEO DE ARTE COSTARRICENSE.
+(PARA EL DESARROLLO DEL
+PROYECTO CENTRO CULTURAL
+LA ADUANA).
+Ced. Jur.:3-007-061000-18 590.000.000
+Total Aumento
+del Programa: 753-00 590.000.000
+Total Aumento
+del Título: 213 590.000.000
+TÍTULO: 219
+MINIST. DE AMBIENTE Y ENERGÍA
+Programa: 879-00
+ACTIVIDADES CENTRALES
+Registro Contable: 219-879-00
+0 REMUNERACIONES 13.000.000
+00301 001 1111 2260 RETRIBUCIÓN POR AÑOS SERVIDOS 13.000.000
+Total Aumento
+del Programa: 879-00 13.000.000
+Total Aumento
+del Título: 219 13.000.000
+Total Aumentar 1.408.298.810
+REBAJAR
+205-MINISTERIO DE SEGURIDAD PUBL.
+RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2006
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+205.107 SEGURIDAD CIUDADANA
+205.107-00.01 UNIDAD DE DIRECCIÓN
+(FUERZA PÚBLICA) 419.619.700
+205.107-00.01.0001 UNIDAD DE DIRECCIÓN
+(FUERZA PÚBLICA) 2.258.100
+4930 1 DIREC. GRAL. DE LA
+FUERZA PÚBLICA
+(3,0 meses) (e)
+(Puesto: 4240) 580.350 1.741.050
+4111 1 DELEGADO DEPARTAMENTAL
+(3,0 meses) (e)
+(Puesto: 41510) 172.350 517.050
+205.107-00.01.0002 UNIDAD DE DIRECCIÓN (GUARDIA CIVIL) 46.951.800 6519 1 INSPECTOR GRAL.
+DE REGIONES
+(5,0 meses) (e)
+(Puesto: 7269) 453.350 2.266.750
+7575 1 JEFE REGIONAL 1
+(1,0 mes) (e)
+(Puesto: 109986) 415.750 415.750
+7582 1 JEFE REGIONAL 8
+(1,0 mes) (e)
+(Puesto: 14128) 415.750 415.750
+7584 1 JEFE REGIONAL 10
+(3,0 meses) (e)
+(Puesto: 107273) 415.750 1.247.250
+7585 1 JEFE REGIONAL 11
+(2,0 meses) (e)
+(Puesto: 6035) 415.750 831.500
+13862 1 SUBDIRECTOR GENERAL
+(6,0 meses) (e)
+(Puesto: 4532) 229.150 1.374.900
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 11740) 182.050 182.050
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 52144) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 53059) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 53291) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 53466) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 53662) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 53900) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 54284) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 54317) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 54413) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 61336) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 72327) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53202) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53230) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53330) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53331) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53485) 144.150 288.300
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53722) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53735) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 53777) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54088) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54116) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54133) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54323) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54377) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 54492) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 61081) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 72271) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 72304) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 53463) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 53528) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 53661) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 53793) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 54301) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 54465) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 61150) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 61155) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 61258) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 61296) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 65185) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 71796) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 71881) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 72249) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 54134) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 54140) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 53218) 144.150 720.750
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 53361) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 53761) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 53781) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 61163) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 62551) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 65071) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 72250) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 50078) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 50297) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 50377) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 52942) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53228) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53399) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53401) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53537) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53541) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 53923) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 54290) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 54449) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 54450) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 54458) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61098) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61243) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61353) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61531) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61551) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 61569) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 65192) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 71074) 144.150 864.900
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 72173) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 72198) 144.150 864.900
+205.107-00.01.0003 OFICINA PLANES
+Y OPERACIONES 1.109.950
+6910 1 JEFE 3
+(1,0 mes) (e)
+(Puesto: 47027) 236.650 236.650
+10207 1 OFICIAL DE ENLACE
+(6,0 meses) (e)
+(Puesto: 41368) 145.550 873.300
+205.107-00.01.0005 SECCIÓN OPERATIVA (G.C.) 153.139.650
+3057 1 CAPITÁN DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 7884) 329.350 329.350
+3057 1 CAPITÁN DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 8699) 329.350 658.700
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4488) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5562) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5688) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6089) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7873) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7875) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7896) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8697) 329.350 1.976.100
+10301 1 OFIC. JEFE PROTEC.
+PRESIDENCIAL
+(6,0 meses) (e)
+(Puesto: 5653) 282.250 1.693.500
+240 1 AGENTE DE CATEGORÍA 2
+(1,0 mes) (e)
+(Puesto: 8221) 183.650 183.650
+240 1 AGENTE DE CATEGORÍA 2
+(5,0 meses) (e)
+(Puesto: 8184) 183.650 918.250
+235 1 AGENTE DE CATEGORÍA 1
+(6,0 meses) (e)
+(Puesto: 8226) 182.750 1.096.500
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 8820) 182.050 182.050
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 11708) 182.050 182.050
+269 1 AGENTE DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 8259) 182.050 364.100
+13556 1 SEGUNDO COMANDANTE
+(1,0 mes) (e)
+(Puesto: 4535) 175.850 175.850
+13556 1 SEGUNDO COMANDANTE
+(3,0 meses) (e)
+(Puesto: 4246) 175.850 527.550
+13964 1 SUBJEFE 1
+(1,0 mes) (e)
+(Puesto: 100347) 165.250 165.250
+9969 1 OFICIAL A
+(1,0 mes) (e)
+(Puesto: 78699) 161.950 161.950
+1136 1 ASISTENTE
+(6,0 meses) (e)
+(Puesto: 3894) 153.650 921.900
+15839 1 TENIENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 94345) 152.850 152.850
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+15839 1 TENIENTE DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 94291) 152.850 764.250
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5197) 152.850 917.100
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5490) 152.850 917.100
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6442) 152.850 917.100
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6456) 152.850 917.100
+4065 1 DELEGADO
+CANTONAL 2
+(3,0 meses) (e)
+(Puesto: 40397) 150.250 450.750
+4065 1 DELEGADO
+CANTONAL 2
+(3,0 meses) (e)
+(Puesto: 41513) 150.250 450.750
+4065 1 DELEGADO
+CANTONAL 2
+(6,0 meses) (e)
+(Puesto: 40394) 150.250 901.500
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 41613) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 42033) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 40537) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40467) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40474) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40510) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40521) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41538) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41550) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41572) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41615) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42047) 146.950 881.700
+12774 1 SARGENTO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 4256) 146.850 146.850
+12774 1 SARGENTO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 48805) 146.850 293.700
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 4601) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7671) 146.850 440.550
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 48711) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 48821) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 7111) 146.850 587.400
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4543) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4574) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5493) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5523) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5532) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5549) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5944) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6338) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6349) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6721) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7462) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 13936) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48635) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48682) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48757) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48802) 146.850 881.100
+2887 1 CABO POLICÍA
+(1,0 mes) (e)
+(Puesto: 6386) 145.550 145.550
+2887 1 CABO POLICÍA
+(1,0 mes) (e)
+(Puesto: 48999) 145.550 145.550
+2887 1 CABO POLICÍA
+(3,0 meses) (e)
+(Puesto: 5978) 145.550 436.650
+2887 1 CABO POLICÍA
+(3,0 meses) (e)
+(Puesto: 16949) 145.550 436.650
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 5982) 145.550 727.750
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 4365) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5184) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5228) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5623) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5705) 145.550 873.300
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 6732) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 7116) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 7282) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 7681) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 17037) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 17075) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48941) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48945) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48947) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 92046) 145.550 873.300
+6132 1 GUARDIA DE
+UNIDAD DE APOYO 2
+(6,0 meses) (e)
+(Puesto: 41915) 145.550 873.300
+12485 1 RADIOPERADOR
+(3,0 meses) (e)
+(Puesto: 78610) 145.550 436.650
+12485 1 RADIOPERADOR
+(6,0 meses) (e)
+(Puesto: 8647) 145.550 873.300
+12485 1 RADIOPERADOR
+(6,0 meses) (e)
+(Puesto: 16172) 145.550 873.300
+12485 1 RADIOPERADOR
+(6,0 meses) (e)
+(Puesto: 92006) 145.550 873.300
+6144 1 GUARDIA
+ESPECIALIZADO 1
+(1,0 mes) (e)
+(Puesto: 92616) 144.950 144.950
+5182 1 ENCARGADO
+(6,0 meses) (e)
+(Puesto: 83808) 144.750 868.500
+6195 1 GUARDIA INTERIOR
+(2,0 meses) (e)
+(Puesto: 4455) 144.150 288.300
+6195 1 GUARDIA INTERIOR
+(2,0 meses) (e)
+(Puesto: 5770) 144.150 288.300
+6195 1 GUARDIA INTERIOR
+(6,0 meses) (e)
+(Puesto: 78292) 144.150 864.900
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 40652) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 40746) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 41792) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 86426) 144.150 144.150
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 763) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 40848) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 83576) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 86593) 144.150 288.300
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 40677) 144.150 432.450
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 41235) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 41237) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 41287) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 41657) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 83608) 144.150 432.450
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 40741) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 41673) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 42101) 144.150 576.600
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 40630) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 40667) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 40805) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 41214) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 83496) 144.150 720.750
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 40774) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 40830) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41245) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41699) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41822) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 86548) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 96017) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 96036) 144.150 864.900
+11176 1 POLICÍA MONTADA
+(6,0 meses) (e)
+(Puesto: 6109) 144.150 864.900
+11176 1 POLICÍA MONTADA
+(6,0 meses) (e)
+(Puesto: 6273) 144.150 864.900
+11176 1 POLICÍA MONTADA
+(6,0 meses) (e)
+(Puesto: 93588) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 4788) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 4904) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 5849) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 87280) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 93561) 144.150 144.150
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 94426) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 94470) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 108798) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 4396) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 4663) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 4966) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5035) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5131) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5159) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5306) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5416) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5746) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5803) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5840) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 6801) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 6839) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 6943) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 6974) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7061) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7136) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7150) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7225) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7335) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7343) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7362) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7375) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7412) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7530) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7615) 144.150 288.300
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7696) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7832) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 7978) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 49049) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78114) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78136) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78210) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78316) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78350) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78360) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78393) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78410) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 92078) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 92114) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 94241) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 98227) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 98247) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 4341) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 4578) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 4698) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5160) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5265) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5285) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5457) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7064) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7089) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7132) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7146) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7153) 144.150 432.450
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7210) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7542) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7640) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 78346) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 92135) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 94299) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 4332) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 4938) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 5244) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 7051) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 7218) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 47070) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 87277) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 93607) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 5142) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 5380) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 5862) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 6753) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 6808) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 7259) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 7267) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 7294) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 7512) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 78235) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 94352) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4358) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4917) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5126) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5256) 144.150 864.900
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5779) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6834) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6977) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6981) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7130) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7215) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7241) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7361) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7502) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7528) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7570) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7753) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7916) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 17906) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 17978) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 92125) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 93526) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94261) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94268) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94435) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 98320) 144.150 864.900
+10598 1 OFICINISTA 1
+(1,0 mes)
+(Puesto: 4023) 133.550 133.550
+16140 1 TRABAJADOR
+ESPECIALIZADO 1
+(3,0 meses)
+(Puesto: 47105) 132.050 396.150
+16140 1 TRABAJADOR
+ESPECIALIZADO 1
+(5,0 meses)
+(Puesto: 5094) 132.050 660.250
+205.107-00.01.0006 DPTO. GUARDIA
+PRESIDENCIAL 1.369.450
+4655 1 DIRECTOR DE
+SEGURIDAD
+(3,0 meses) (e)
+(Puesto: 1409) 213.750 641.250
+303 1 AGENTE DE
+SEGURIDAD
+(1,0 mes) (e)
+(Puesto: 78130) 182.050 182.050
+303 1 AGENTE DE
+SEGURIDAD
+(3,0 meses) (e)
+(Puesto: 1397) 182.050 546.150
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+205.107-00.01.0007 DIRECCIÓN
+(CENTRO DE
+INF. POL.) 2.078.750
+7745 1 JEFE CTRO. INFORM.
+FZA. PÚBLICA
+(5,0 meses) (e)
+(Puesto: 8151) 415.750 2.078.750
+205.107-00.01.0009 SECC. DE OPERACIONES
+(C.I.F.P.) 2.165.050
+240 1 AGENTE DE
+CATEGORÍA 2
+(6,0 meses) (e)
+(Puesto: 8206) 183.650 1.101.900
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 8265) 182.050 182.050
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48667) 146.850 881.100
+205.107-00.01.0010 SECCIÓN DE
+ARCHIVO POLICIAL 1.096.500
+10139 1 OFICIAL DE ARCHIVO
+(6,0 meses) (e)
+(Puesto: 86357) 182.750 1.096.500
+205.107-00.01.0011 SECCIÓN
+RADIOTÉCNICA 852.950
+15098 1 TÉCNICO DE
+RADIOENLACES 2
+(4,0 meses)
+(Puesto: 47287) 179.850 719.400
+10598 1 OFICINISTA 1
+(1,0 mes)
+(Puesto: 1815) 133.550 133.550
+205.107-00.01.0012 SEC. CENTRAL DE
+COMUNICACIONES 1.791.000
+12502 1 RADIOPERADOR 1
+(6,0 meses) (e)
+(Puesto: 94504) 152.850 917.100
+14692 1 TÉCNICO 2
+(6,0 meses)
+(Puesto: 47302) 145.650 873.900
+205.107-00.01.0013 SECCIÓN
+EMERGENCIAS 911 917.100
+12502 1 RADIOPERADOR 1
+(6,0 meses) (e)
+(Puesto: 94503) 152.850 917.100
+205.107-00.01.0014 SECCIÓN TELEFÓNICA 124.850
+16344 1 TRABAJADOR
+MISCELÁNEO 1
+(1,0 mes)
+(Puesto: 49105) 124.850 124.850
+205.107-00.01.0016 DIRECCIÓN
+(RESERVA F.P.) 1.012.650
+9935 1 OFICIAL
+(6,0 meses) (e)
+(Puesto: 4386) 144.750 868.500
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 5061) 144.150 144.150
+205.107-00.01.0020 SEC. DE
+MANTENIMIENTO
+(RADIOPAT.) 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48654) 146.850 881.100
+205.107-00.01.0021 SEC. OPERACIONAL
+(RADIOPATRULLAS) 48.616.500
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5170) 329.350 1.976.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 49120) 329.350 1.976.100
+11227 1 PRIMER COMANDANTE
+(5,0 meses) (e)
+(Puesto: 6041) 191.750 958.750
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 8625) 182.050 182.050
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12774 1 SARGENTO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 5957) 146.850 293.700
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5542) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 5947) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 48578) 146.850 440.550
+12774 1 SARGENTO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 48591) 146.850 734.250
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 4499) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8692) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8707) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48607) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48643) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48645) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48646) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48656) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48673) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48680) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48681) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48698) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48714) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48715) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48727) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48731) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48780) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 48781) 146.850 881.100
+2887 1 CABO POLICÍA
+(3,0 meses) (e)
+(Puesto: 78118) 145.550 436.650
+2887 1 CABO POLICÍA
+(4,0 meses) (e)
+(Puesto: 6004) 145.550 582.200
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 5993) 145.550 727.750
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 6385) 145.550 727.750
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 6405) 145.550 727.750
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 48953) 145.550 727.750
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 49027) 145.550 727.750
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 4367) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 4525) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5563) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5576) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5610) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5619) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5987) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 6384) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 6427) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 16112) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 47056) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48877) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48890) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48895) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48900) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48906) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48926) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48954) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48961) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 48968) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 49004) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 49050) 145.550 873.300
+6144 1 GUARDIA
+ESPECIALIZADO 1
+(1,0 mes) (e)
+(Puesto: 92583) 144.950 144.950
+6144 1 GUARDIA
+ESPECIALIZADO 1
+(2,0 meses) (e)
+(Puesto: 92584) 144.950 289.900
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 86614) 144.150 288.300
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 40889) 144.150 720.750
+205.107-00.01.0022 DIRECCIÓN
+(GUARDIA
+ASIST. RURAL) 4.214.400
+6517 1 INSPECTOR
+GENERAL
+DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 41975) 467.550 2.805.300
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+3856 1 COORDINADOR
+DE ENLACE
+(6,0 meses) (e)
+(Puesto: 102051) 234.850 1.409.100
+205.107-00.01.0023 SECC. ADMINIST.
+(GUARDIA RURAL) 1.228.950
+10603 1 OFICINISTA 2
+(3,0 meses)
+(Puesto: 41472) 138.050 414.150
+10603 1 OFICINISTA 2
+(3,0 meses)
+(Puesto: 41483) 138.050 414.150
+10598 1 OFICINISTA 1
+(1,0 mes)
+(Puesto: 40267) 133.550 133.550
+10598 1 OFICINISTA 1
+(1,0 mes)
+(Puesto: 42649) 133.550 133.550
+10598 1 OFICINISTA 1
+(1,0 mes)
+(Puesto: 83439) 133.550 133.550
+205.107-00.01.0024 SEC. OPERACIONAL
+(GUARDIA RURAL) 69.036.850
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 8913) 182.050 182.050
+4111 1 DELEGADO
+DEPARTAMENTAL
+(4,0 meses) (e)
+(Puesto: 40386) 172.350 689.400
+4065 1 DELEGADO
+CANTONAL 2
+(3,0 meses) (e)
+(Puesto: 40389) 150.250 450.750
+4065 1 DELEGADO
+CANTONAL 2
+(3,0 meses) (e)
+(Puesto: 41512) 150.250 450.750
+4060 1 DELEGADO
+CANTONAL 1
+(4,0 meses) (e)
+(Puesto: 40419) 149.150 596.600
+4060 1 DELEGADO
+CANTONAL 1
+(5,0 meses) (e)
+(Puesto: 41990) 149.150 745.750
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 40471) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 40496) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 41599) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(2,0 meses) (e)
+(Puesto: 42600) 146.950 293.900
+4128 1 DELEGADO
+DISTRITAL
+(3,0 meses) (e)
+(Puesto: 40517) 146.950 440.850
+4128 1 DELEGADO
+DISTRITAL
+(3,0 meses) (e)
+(Puesto: 40548) 146.950 440.850
+4128 1 DELEGADO
+DISTRITAL
+(3,0 meses) (e)
+(Puesto: 41570) 146.950 440.850
+4128 1 DELEGADO
+DISTRITAL
+(3,0 meses) (e)
+(Puesto: 42028) 146.950 440.850
+4128 1 DELEGADO
+DISTRITAL
+(4,0 meses) (e)
+(Puesto: 40441) 146.950 587.800
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 40568) 146.950 734.750
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 40592) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 41611) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 41995) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 42420) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(5,0 meses) (e)
+(Puesto: 42614) 146.950 734.750
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40439) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40475) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40487) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40554) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40563) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40590) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40601) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 40602) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41535) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41540) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41545) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41554) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41565) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41577) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41584) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 41996) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42005) 146.950 881.700
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42032) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42041) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42057) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42060) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42061) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42414) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42415) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42607) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42612) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 42613) 146.950 881.700
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 83542) 146.950 881.700
+3150 1 CHOFER OFICIAL
+DE UNIDAD APOYO
+(6,0 meses) (e)
+(Puesto: 42360) 144.150 864.900
+6110 1 GUARDIA DE
+POLICÍA MONTADA
+(1,0 mes) (e)
+(Puesto: 42680) 144.150 144.150
+6110 1 GUARDIA DE
+POLICÍA MONTADA
+(1,0 mes) (e)
+(Puesto: 42819) 144.150 144.150
+6127 1 GUARDIA DE
+UNIDAD DE APOYO 1
+(2,0 meses) (e)
+(Puesto: 42550) 144.150 288.300
+6127 1 GUARDIA DE
+UNIDAD DE APOYO 1
+(3,0 meses) (e)
+(Puesto: 41380) 144.150 432.450
+6127 1 GUARDIA DE
+UNIDAD DE APOYO 1
+(3,0 meses) (e)
+(Puesto: 41406) 144.150 432.450
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 40923) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42084) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42166) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42670) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42711) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42716) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42790) 144.150 144.150
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 42798) 144.150 144.150
+6212 1 GUARDIA RURAL
+(1,0 mes) (e)
+(Puesto: 86495) 144.150 144.150
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 802) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 40617) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 40687) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 41052) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 41293) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 42097) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 42144) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 42678) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 42825) 144.150 288.300
+6212 1 GUARDIA RURAL
+(2,0 meses) (e)
+(Puesto: 83556) 144.150 288.300
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 748) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 822) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 873) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 40695) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 41756) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 42293) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 42473) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 42656) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 42742) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 83456) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 83473) 144.150 432.450
+6212 1 GUARDIA RURAL
+(3,0 meses) (e)
+(Puesto: 90276) 144.150 432.450
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 42148) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 42212) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 42234) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 42685) 144.150 576.600
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 83460) 144.150 576.600
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 832) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 40735) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 41182) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 41296) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 42499) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 42633) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 42784) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 42791) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 83584) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 86439) 144.150 720.750
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 86471) 144.150 720.750
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 22818) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41012) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41857) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41860) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42077) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42094) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42165) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42434) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42708) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42754) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 83582) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 86493) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 5839) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 6967) 144.150 288.300
+205.107-00.01.0027 SEC. OPERACIONAL
+(POL. FRONT.) 80.774.100
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 16951) 329.350 1.976.100
+15839 1 TENIENTE DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 17047) 152.850 458.550
+15839 1 TENIENTE DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 48784) 152.850 764.250
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7859) 152.850 917.100
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78612) 152.850 917.100
+4060 1 DELEGADO
+CANTONAL 1
+(5,0 meses) (e)
+(Puesto: 41523) 149.150 745.750
+4128 1 DELEGADO
+DISTRITAL
+(6,0 meses) (e)
+(Puesto: 86368) 146.950 881.700
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6457) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7874) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 16916) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 17014) 146.850 881.100
+12774 1 SARGENTO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 108789) 146.850 881.100
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 78627) 145.550 727.750
+2887 1 CABO POLICÍA
+(5,0 meses) (e)
+(Puesto: 78628) 145.550 727.750
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 5574) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 7888) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 7905) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 78175) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 78639) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 87293) 145.550 873.300
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 94557) 145.550 873.300
+6144 1 GUARDIA
+ESPECIALIZADO 1
+(6,0 meses) (e)
+(Puesto: 92642) 144.950 869.700
+4094 1 DELEGADO DE FRONTERA
+(6,0 meses) (e)
+(Puesto: 42881) 144.650 867.900
+12553 1 RADIOPERADOR OFICIAL
+(6,0 meses) (e)
+(Puesto: 5965) 144.650 867.900
+308 1 AGENTE DE SEGURIDAD 1
+(6,0 meses) (e)
+(Puesto: 49094) 144.150 864.900
+6093 1 GUARDIA DE FRONTERA
+(1,0 mes) (e)
+(Puesto: 42372) 144.150 144.150
+6093 1 GUARDIA DE FRONTERA
+(6,0 meses) (e)
+(Puesto: 42383) 144.150 864.900
+6093 1 GUARDIA DE FRONTERA
+(6,0 meses) (e)
+(Puesto: 42889) 144.150 864.900
+6093 1 GUARDIA DE FRONTERA
+(6,0 meses) (e)
+(Puesto: 42891) 144.150 864.900
+6110 1 GUARDIA DE
+POLICÍA MONTADA
+(5,0 meses) (e)
+(Puesto: 42782) 144.150 720.750
+6110 1 GUARDIA DE
+POLICÍA MONTADA
+(6,0 meses) (e)
+(Puesto: 42810) 144.150 864.900
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+6127 1 GUARDIA DE
+UNIDAD DE APOYO 1
+(6,0 meses) (e)
+(Puesto: 42851) 144.150 864.900
+6195 1 GUARDIA INTERIOR
+(6,0 meses) (e)
+(Puesto: 4829) 144.150 864.900
+6212 1 GUARDIA RURAL
+(4,0 meses) (e)
+(Puesto: 768) 144.150 576.600
+6212 1 GUARDIA RURAL
+(5,0 meses) (e)
+(Puesto: 42230) 144.150 720.750
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 777) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 41875) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42223) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42248) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42638) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42647) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42698) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42772) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 42802) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 83665) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 86536) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 86625) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 90292) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 92693) 144.150 864.900
+6212 1 GUARDIA RURAL
+(6,0 meses) (e)
+(Puesto: 92701) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 7152) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 17323) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 79045) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 18143) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(2,0 meses) (e)
+(Puesto: 78220) 144.150 288.300
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 7996) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 8100) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(3,0 meses) (e)
+(Puesto: 78530) 144.150 432.450
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 8031) 144.150 576.600
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 17118) 144.150 576.600
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 18212) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 18285) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 78544) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 94529) 144.150 720.750
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5288) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5781) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 5857) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 6789) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7933) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7964) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7967) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8008) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8051) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8112) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 8128) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 13996) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 14108) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 17429) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 18155) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 18203) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 18231) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 18341) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78445) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78457) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78474) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78520) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78540) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 78541) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 87278) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 87290) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 92066) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 92105) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 92158) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 92174) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 93668) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94315) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94391) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94520) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 94530) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 96125) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 98159) 144.150 864.900
+205.107-00.02 UNIDAD DE DIRECCIÓN
+(ESC. NAL. DE POL.) 10.094.800
+205.107-00.02.0002 DIRECCIÓN 1.870.200
+4512 1 DIR. ESCUELA
+NAL. DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 109987) 467.550 1.870.200
+205.107-00.02.0004 SECCIÓN DE
+SERVICIOS GENERALES 2.684.500
+269 1 AGENTE DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 8236) 182.050 182.050
+15839 1 TENIENTE DE POLICÍA
+(5,0 meses) (e)
+(Puesto: 16231) 152.850 764.250
+2887 1 CABO POLICÍA
+(6,0 meses) (e)
+(Puesto: 49002) 145.550 873.300
+6195 1 GUARDIA INTERIOR
+(6,0 meses) (e)
+(Puesto: 83819) 144.150 864.900
+205.107-00.02.0005 SECCIÓN DE
+INSTRUCCIÓN 917.100
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 16229) 152.850 917.100
+205.107-00.02.0006 SEC. INVEST. Y
+EXTENSIÓN COMUNAL 2.120.250
+3057 1 CAPITÁN DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 17004) 329.350 1.976.100
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 5251) 144.150 144.150
+205.107-00.02.0007 CENT. FORMAC.
+POLIC. MURCIÉLAGO 2.502.750
+15839 1 TENIENTE DE POLICÍA
+(6,0 meses) (e)
+(Puesto: 7959) 152.850 917.100
+6195 1 GUARDIA INTERIOR
+(6,0 meses) (e)
+(Puesto: 6859) 144.150 864.900
+12570 1 RASO DE POLICÍA
+(1,0 mes) (e)
+(Puesto: 18295) 144.150 144.150
+12570 1 RASO DE POLICÍA
+(4,0 meses) (e)
+(Puesto: 78171) 144.150 576.600
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+205.107-00.04 UNIDAD DE
+DIRECCIÓN
+EQUIPO POLICIAL 17.839.000
+205.107-00.04.0002 EQUIPO POLICIAL 12.535.750 10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(5,0 meses) (e)
+(Puesto: 96126) 284.450 1.422.250
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 6296) 284.450 1.706.700
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 16932) 284.450 1.706.700
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 53820) 284.450 1.706.700
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 83448) 284.450 1.706.700
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 92010) 284.450 1.706.700
+10123 1 OFIC. CTROL.
+ARMAS Y EXPLOSIVOS
+(6,0 meses) (e)
+(Puesto: 96120) 284.450 1.706.700
+881 1 ARMERO
+(6,0 meses) (e)
+(Puesto: 4727) 145.550 873.300
+205.107-00.04.0004 DPTO. ARSENAL
+NACIONAL 5.303.250
+10359 1 OFICIAL JEFE
+ARSENAL NACIONAL
+(6,0 meses) (e)
+(Puesto: 8796) 353.750 2.122.500
+9980 1 OFICIAL
+ARMAMENTO NACIONAL
+(6,0 meses) (e)
+(Puesto: 40440) 284.450 1.706.700
+8700 1 JEFE UNIDAD
+ZONA FRONTERIZA
+(3,0 meses) (e)
+(Puesto: 48834) 200.250 600.750
+881 1 ARMERO
+(6,0 meses) (e)
+(Puesto: 78653) 145.550 873.300
+115 302 RETRIBUCIÓN POR
+LA PROHIBICIÓN DEL
+EJERCICIO PROFESIONAL
+(LEY Nº 5867 DEL
+15/12/75 Y SUS REFORMAS) 50.000.000
+180 101 PARA DAR FINANC.
+A LAS RESOL. DE REASIG.
+ASIGNAC. Y REAJ. DE SALARIOS, EMITIDAS POR LA DGSC Y LA AUTORID.
+PRESUP. COMO PROD. DE EST. INDIVID. DE PUESTOS ASÍ COMO POR REESTRUCT.
+INSTIT. (A DISTRIB. POR RESOL. ADMINIST.
+PREVIAMENTE APROBADA
+POR LA DGPN.) 160.000.000
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 107
+SEGURIDAD CIUDADANA 657.553.500
+TOTAL REBAJAR
+SUELDOS TÍTULO: 205
+MINISTERIO DE
+SEGURIDAD PUBL. 657.553.500
+209 MINIST. DE OBRAS PÚBL. Y TRANSP.
+209.331 TRANSPORTE TERRESTRE
+209.331-02 TRIBUNAL
+ADMINISTRATIVO
+DE TRANSPORTES
+Cuota Cuota
+Código Clase Detalle de los Puestos Mensual Anual
+82 101 RECONOCIMIENTO DE
+INCREMENTO SALARIAL
+POR COSTO DE VIDA,
+ARTÍCULO 11, LEY DE
+SALARIOS DE LA
+ADMINISTRACIÓN
+PÚBLICA
+Y RESOLUCIÓN DE
+LA AUTORIDAD
+PRESUPUESTARIA 4.000.000
+133 105 PARA EL PAGO DE
+PERSONAL SUSTITUTO
+GENERADO POR
+GOCE DE VACACIONES O
+SUSTITUCIÓN POR
+INCAPACIDADES 4.500.000
+TOTAL REBAJAR
+SUELDOS SUBPROGRAMA: 2
+TRIBUNAL ADMINISTRATIVO
+DE TRANSPORTES 8.500.000
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 331
+TRANSPORTE TERRESTRE 8.500.000
+TOTAL REBAJAR
+SUELDOS TÍTULO: 209
+MINIST. DE OBRAS
+PUBL. Y Transp. 8.500.000
+211 MINISTERIO DE SALUD
+211.622 DIRECCIÓN Y
+CONDUCCIÓN
+EN SALUD
+211.622-07 NIVEL REGIONAL
+103 302 RETRIBUCIÓN POR
+DEDICACIÓN EXCLUSIVA
+(SEGÚN RESOLUCIÓN
+DG-003-83 DEL 4-01-83) 9.000.000
+TOTAL REBAJAR
+SUELDOS SUBPROGRAMA: 7
+NIVEL REGIONAL 9.000.000
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 622
+DIRECCIÓN Y
+CONDUCCIÓN
+EN SALUD 9.000.000
+TOTAL REBAJAR
+SUELDOS TÍTULO: 211
+MINISTERIO DE SALUD 9.000.000
+219 MINIST. DE AMBIENTE Y ENERGÍA
+219.879 ACTIVIDADES CENTRALES
+64 399 COMPLEMENTO SALARIAL
+DEL 25% DEL SALARIO
+BASE A LOS PUESTOS
+SERIE TÉCNICO CON
+ESPECIALIDAD EN
+COMPUTACIÓN,
+RESOLUC. DG-104-89
+DE LA D.G.S.C. 2.000.000
+82 101 RECONOCIMIENTO DE
+INCREMENTO SALARIAL
+POR COSTO DE VIDA,
+ARTÍCULO 11,
+LEY DE SALARIOS
+DE LA ADMINISTRACIÓN
+PÚBLICA Y RESOLUCIÓN
+DE LA AUTORIDAD
+PRESUPUESTARIA 3.141.772
+97 399 RETRIBUCIÓN POR
+CARRERA PROFESIONAL
+(SEGÚN DECRETO
+EJECUTIVO Nº 4949-P DE
+26-06-75 Y LEY Nº 6010 DEL
+09/12/76) 6.500.000
+110 399 RETRIBUCIÓN POR LA
+APLICACIÓN DE LA LEY
+DE INCENTIVOS A LOS
+PROFESIONALES EN
+CIENCIAS MÉDICAS
+(LEY Nº 6836 DEL
+22/12/86) 1.000.000
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 879
+ACTIVIDADES CENTRALES 12.641.772
+TOTAL REBAJAR
+SUELDOS TÍTULO: 219
+MINIST. DE AMBIENTE
+Y ENERGÍA 12.641.772
+TOTAL REBAJAR
+SUELDOS 687.695.272
+REBAJAR
+211 MINISTERIO DE SALUD
+RELACIÓN DE PUESTOS DE SERVICIOS ESPECIALES PARA EL AÑO 2006
+Código Objeto Cuota Cuota
+Clase Gasto Detalle de los Puestos Mensual Anual
+211.625 NUTRICIÓN Y
+DESARROLLO
+INFANTIL
+82 103 RECONOCIMIENTO DE
+INCREMENTO SALARIAL
+POR COSTO DE VIDA, ARTÍCULO 11,
+LEY DE SALARIOS
+DE LA ADMINISTRACIÓN
+PÚBLICA Y RESOLUCIÓN
+DE LA AUTORIDAD
+PRESUPUESTARIA 22.000.000
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 625
+NUTRICIÓN Y DESARROLLO
+INFANTIL 22.000.000
+TOTAL REBAJAR
+SUELDOS TÍTULO: 211
+MINISTERIO DE SALUD 22.000.000
+TOTAL REBAJAR
+SUELDOS 22.000.000
+AUMENTAR
+205 MINISTERIO DE SEGURIDAD PUBL.
+RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2006
+Código Objeto Cuota Cuota
+Clase Gasto Detalle de los Puestos Mensual Anual
+205.107 SEGURIDAD CIUDADANA
+213 399 RECONOCIMIENTO POR
+RIESGO POLICIAL LEY
+Nº 8096 DEL 23-03-2001
+ALCANCE Nº 24
+A LA GACETA Nº 59 760.898.810
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 107
+SEGURIDAD CIUDADANA 760.898.810
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 205
+MINISTERIO DE
+SEGURIDAD PUBL. 760.898.810
+209 MINIST. DE OBRAS PÚBL. Y TRANSP
+209.331 TRANSPORTE TERRESTRE
+209.331-02 TRIBUNAL ADMINISTRATIVO
+DE TRANSPORTES
+115 302 RETRIBUCIÓN POR LA
+PROHIBICIÓN DEL EJERCICIO
+PROFESIONAL (LEY Nº 5867 DEL
+15/12/75 Y SUS REFORMAS) 6.900.000
+125 301 RETRIBUCIÓN SOBRE
+SUELDO MÍNIMO (ARTÍCULO
+5º LEY DE LA
+ADMINISTRACIÓN
+PÚBLICA Nº 6835)
+DEL 22/12/82 6.500.000
+TOTAL AUMENTAR
+SUELDOS SUBPROGRAMA: 2
+TRIBUNAL ADMINISTRATIVO
+DE TRANSPORTES 13.400.000
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 331
+TRANSPORTE TERRESTRE 13.400.000
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 209
+MINIST. DE OBRAS PUBL.
+Y TRANSP. 13.400.000
+211 MINISTERIO DE SALUD
+211.622 DIRECCIÓN Y
+CONDUCCIÓN
+EN SALUD
+211.622-06 VIGILANCIA DE LA SALUD
+103 302 RETRIBUCIÓN POR
+DEDICACIÓN EXCLUSIVA
+(SEGÚN RESOLUCIÓN
+DG-003-83 DEL 4-01-83) 4.500.000
+Código Objeto Cuota Cuota
+Clase Gasto Detalle de los Puestos Mensual Anual
+110 399 RETRIBUCIÓN POR
+LA APLICACIÓN DE
+LA LEY DE
+INCENTIVOS A LOS
+PROFESIONALES EN
+CIENCIAS MÉDICAS
+(LEY Nº 6836 DEL
+22/12/86) 2.500.000
+125 301 RETRIBUCIÓN SOBRE
+SUELDO MÍNIMO
+(ARTÍCULO 5º LEY DE
+LA ADMINISTRACIÓN
+PÚBLICA Nº 6835)
+DEL 22/12/82 2.000.000
+TOTAL AUMENTAR
+SUELDOS SUBPROGRAMA: 6
+VIGILANCIA DE LA SALUD 9.000.000
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 622
+DIRECCIÓN Y
+CONDUCCIÓN EN SALUD 9.000.000
+211.625 NUTRICIÓN Y
+DESARROLLO INFANTIL
+97 399 RETRIBUCIÓN POR CARRERA
+PROFESIONAL
+(SEGÚN DECRETO
+EJECUTIVO Nº 4949-P DE
+26-06-75 Y LEY Nº 6010
+DEL 09/12/76) 22.000.000
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 625
+NUTRICIÓN Y
+DESARROLLO INFANTIL 22.000.000
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 211
+MINISTERIO DE SALUD 31.000.000
+219 MINIST. DE AMBIENTE Y ENERGÍA
+219.879 ACTIVIDADES
+CENTRALES
+125 301 RETRIBUCIÓN SOBRE
+SUELDO MÍNIMO
+(ARTÍCULO 5º LEY DE
+LA ADMINISTRACIÓN
+PÚBLICA Nº 6835) DEL
+22/12/82 13.000.000
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 879
+ACTIVIDADES CENTRALES 13.000.000
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 219
+MINIST. DE AMBIENTE
+Y ENERGÍA 13.000.000
+TOTAL AUMENTAR
+SUELDOS 818.298.810
