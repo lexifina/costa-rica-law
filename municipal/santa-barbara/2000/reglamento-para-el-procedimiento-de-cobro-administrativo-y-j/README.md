@@ -15,3 +15,4 @@ Reglamento para el Procedimiento de Cobro Administrativo y Judicial de la Munici
 | --- | --- | --- |
 | 1 | 2000-12-07 | la propia norma |
 | 2 | 2002-06-11 | Reglamento municipal 225 (2002-06-11) |
+| 3 | 2006-09-05 | Reglamento municipal 19 (2006-09-05) |
