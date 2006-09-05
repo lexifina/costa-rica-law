@@ -1,0 +1,8 @@
+Artículo 21.—Derogatorias y modificaciones. Se derogan las siguientes circulares relativas al trámite y aprobación de variaciones presupuestarias:
+a) En su totalidad las siguientes circulares: 72-CO-80 del 25 de enero de 1980, 551 del 19 enero de 1989 y 14919 del 25 de noviembre de 1994.
+b) Las circulares Nos. 10424 y 10428 ambas del 12 de setiembre de 1988 (excepto el capítulo II. Informes de ejecución presupuestaria).
+c) El punto 2 del capítulo 3 de la circular 5126 del 5 de noviembre de 1998.
+d) El capítulo IV de las Directrices generales para la presentación de los documentos presupuestarios de los fideicomisos cuyos presupuestos deben ser aprobados por la Contraloría General de la República Nº D-3-2002-CO-DFOE, del 30 de agosto de 2002.
+1. Se deroga el Reglamento sobre presupuestos extraordinarios y modificaciones a los presupuestos de las municipalidades y otras entidades de carácter municipal que se encuentran sujetas a la aprobación presupuestaria de la Contraloría General de la República, emitido mediante Resolución R-CO-02-2005 de las quince horas del seis de enero del dos mil cinco.
+2. Se deroga cualquier otra normativa emitida por la Contraloría General de la República que se oponga al presente Reglamento.
+3. Se modifica en lo pertinente el punto 7 del apartado II de la Circular con regulaciones aplicables a los sujetos privados que reciben partidas específicas y transferencias del Presupuesto Nacional así como transferencias por beneficios patrimoniales, gratuitos o sin contraprestación alguna, de entidades u órganos públicos; o que por disposición de ley, deben presentar su presupuesto para la aprobación de la Contraloría General de la República, Nº 14300 del 18 de diciembre de 2001.

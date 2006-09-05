@@ -1,0 +1,2 @@
+Artículo 3º—Alcance. Estas normas constituyen un marco de referencia de carácter general, a partir del cual debe darse la emisión de normativa específica por parte de la Administración.
+Asimismo, la Contraloría General de la República, según su ámbito de competencia, podrá emitir la normativa específica que corresponda por medio de la Gerencia de la División de Fiscalización Operativa y Evaluativa.
