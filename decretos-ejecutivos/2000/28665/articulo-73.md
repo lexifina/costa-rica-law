@@ -1,1 +1,2 @@
 Artículo 73.—El recurso deberá interponerse dentro de los treinta días calendario, contados a partir del día siguiente de la fecha en que se adoptó el acuerdo impugnado.
+(La Sala Constitucional mediante resolución N° 13335-06, de las diecisiete horas con treinta y ocho minutos del 6 de setiembre de 2006, interpretó este artículo en el sentido de que el plazo de treinta días calendario para interponer la apelación comienza a correr desde el momento en que se notificó el acuerdo impugnado a todos los interesados.)
