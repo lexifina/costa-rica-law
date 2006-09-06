@@ -14,3 +14,4 @@ Reglamento para la Administración de Licores en la Asamblea Legislativa.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-06 | la propia norma |
+| 2 | 2006-09-06 | Acuerdo 25 (2006-09-06) |
