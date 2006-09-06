@@ -1,0 +1,1 @@
+Artículo 7º—Requerimiento de inscripción. Cuando una persona física o el representante de una persona jurídica sea requerido por la Superintendencia General de Entidades Financieras para inscribirse y no presente la solicitud en el plazo de un mes, la Superintendencia comunicará este hecho al Ministerio Público para los efectos correspondientes.

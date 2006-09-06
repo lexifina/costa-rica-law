@@ -1,0 +1,1 @@
+Artículo 6º—Plazo de resolución. Una vez que se cuente con toda la información indicada en el Artículo 2° de esta Normativa, la Superintendencia tendrá un plazo de cuarenta y cinco días hábiles contados a partir del momento en que toda la información esté completa, para presentar ante el Consejo Nacional de Supervisión el dictamen a que se refiere el Artículo 15 de la Ley 8204.

@@ -1,0 +1,1 @@
+Transitorio 1º—Las personas físicas y jurídicas que al momento de la entrada en vigencia de esta Normativa se encuentren inscritas de conformidad con lo establecido el Artículo 15 de la Ley 8204, tendrán un plazo de sesenta días naturales para adecuarse a las disposiciones establecidas en los Artículos 2 y 10 de esta Normativa.

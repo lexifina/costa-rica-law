@@ -1,0 +1,1 @@
+Transitorio 2º—Una vez transcurrido el plazo establecido en el Transitorio 1 anterior, empezará a contarse el plazo de vigencia de la inscripción establecido en el Artículo 8 de esta normativa para las personas físicas y jurídicas que se encuentren inscritas a la entrada en vigencia de estas modificaciones.
