@@ -1,0 +1,1 @@
+3º—Facultar a cada auxiliar administrativa de los tres CEAAM, a saber San José, Puntarenas y Limón, a solicitar y liquidar los montos de la caja chica, en lugar del señor Abdenago López Chacón, quien es el coordinador administrativo del INAMU.

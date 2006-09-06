@@ -1,0 +1,1 @@
+4º—Autorizar la apertura de tres cuentas en el Banco Nacional de Costa Rica, las cuales serán mancomunadas y se denominarán: Caja Chica CEAAM San José, Caja Chica CEAAM Puntarenas y Caja Chica CEAAM Limón, en las cuales se depositarán los reintegros, lo que permitirá agilizar el proceso llevado hasta ahora.
