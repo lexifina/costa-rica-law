@@ -69,3 +69,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 54 | 2005-04-19 | Decreto Ejecutivo 32337 (2005-04-19) |
 | 55 | 2005-05-06 | Decreto Ejecutivo 32400 (2005-05-06) |
 | 56 | 2005-05-12 | Decreto Ejecutivo 32414 (2005-05-12) |
+| 57 | 2006-09-06 | SINALEVI (sin norma nombrada) |

@@ -53,3 +53,4 @@ Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) | Transfe
 SINART S.A. | Comisiones por intermediación (Así adicionado por el decreto ejecutivo N° 31868 de 25 de mayo de 2004)
 Teatro Nacional de Costa Rica | Transferencias a: Museo de Arte Costarricense. Compañía Nacional de Teatro Transferencia al Centro Nacional de la Música-Unidad Técnica Especializada Orquesta Sinfónica Nacional (Así reformado por el decreto ejecutivo N° 31240 de 16 de junio de 2003)
 (Nota: De la lista de exclusiones fueron eliminados la Empresa de Servicios Públicos de Heredia y la Junta Administrativa del Servicio Eléctrico Municipal de Cartago por el artículo 2° del decreto ejecutivo N° 31878 del 8 de junio de 2004)
+*(La Sala Constitucional mediante resolución N° 13333-06, de las diecisiete horas con treinta y seis minutos, dispuso anular de este decreto sus referencias y aplicación al Instituto Nacional de Aprendizaje.)
