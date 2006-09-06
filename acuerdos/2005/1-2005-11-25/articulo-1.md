@@ -65,38 +65,41 @@ Nivel 2 | a) El análisis muestra que bajo un escenario normal la capacidad de p
 Nivel 3 | a) El análisis muestra que bajo un escenario normal existen debilidades en la capacidad de pago para atender las obligaciones crediticias en los términos pactados y estas no pueden ser superadas en el transcurso de un año; b) El intermediario financiero está calificado en grado de irregularidad 2.
 Nivel 4 | a) El análisis muestra que bajo un escenario normal el deudor no tiene capacidad de pago para atender las obligaciones crediticias en los términos pactados o n o existe información sobre el deudor; b) El intermediario financiero está calificado en grado de irregularidad 3 o se desconoce su calificación.
 En el caso de que a juicio de la SUGEF la información presente inconsistencias relevantes o no sea suficiente o actualizada de conformidad con el Capítulo V de estos Lineamientos Generales, la capacidad de pago no puede ser calificada en NIVEL 1 y su calificación debe ser determinada en función de la información disponible y de su calidad. La SUGEF debe razonar la relevancia de la inconsistencia en la información y la calificación otorgada al deudor.
-II. Análisis del comportamiento de pago histórico.
-Objetivo: Determinar la conducta de pago del deudor durante los últimos 60 meses en la atención de sus operaciones crediticias directas vigentes o extintas en el Sistema Financiero.
-Nota: La SUGEF es responsable de calcular la calificación del comportamiento de pago histórico para los deudores reportados por las entidades el mes anterior. Esta información está disponible para cada entidad en archivos descargables a más tardar el día 20 de cada mes.
-A. Atraso máximo y atraso medio. El comportamiento de pago histórico se calcula para un periodo de 60 meses que finaliza el último día del mes anterior al mes de evaluación. El cálculo se hace de la siguiente forma: a) para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio. El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos de pago reportados; b) se clasifica el atraso máximo y el atraso medio con base en el siguiente cuadro:
-Categoría | Atraso máximo | Atraso máximo medio
+II. Análisis del Comportamiento de Pago Histórico.
+Objetivo: Determinar la conducta de pago del deudor durante los últimos 48 meses en la atención de sus operaciones crediticias directas vigentes o extintas en el Sistema Financiero.
+NOTA: La SUGEF es responsable de calcular el nivel de comportamiento de pago histórico para los deudores reportados por las entidades el mes anterior. Esta información está disponible para cada entidad en archivos descargables a más tardar el día 20 de cada mes.
+A. Atraso máximo y atraso medio. El comportamiento de pago histórico se calcula para un periodo de 48 meses que finaliza el último día del mes anterior al mes de evaluación. El cálculo se hace de la siguiente forma: a) para cada operación crediticia directa se calcula el atraso máximo en días y el atraso medio.
+El atraso medio es igual a la suma del atraso máximo reportado cada mes dividido entre el número de periodos reportados con un saldo total adeudado mayor a veinticinco mil colones; b) se asigna un puntaje al atraso máximo y al atraso medio con base en el siguiente cuadro:
+Puntaje | Atraso máximo | Atraso máximo medio
 1 | hasta 30 días | hasta 10 días
 2 | más de 30 y hasta 60 días | más de 10 y hasta 20 días
 3 | más de 60 y hasta 90 días | más de 20 y hasta 30 días
 4 | más de 90 y hasta 120 días | más de 30 y hasta 40 días
 5 | más de 120 días | más de 40 días
-c) Se calcula el promedio simple de la categoría asignada al atraso máximo y al atraso medio, lo cual resulta en un indicador numérico para cada operación entre uno y cinco;
-d) este resultado se pondera según el saldo medio de cada operación del deudor.
-El punto d) determina la categoría final del deudor como el resultado de la multiplicación del valor obtenido en el punto
-c) por el porcentaje que representa el saldo medio de cada operación entre la sumatoria de todos los saldos medios, y sumando estos resultados obtenidos.
-El saldo medio de cada operación es igual al promedio de los saldos mensuales, o al promedio de los montos máximos autorizados en cada mes en el caso de tarjetas de crédito, durante el periodo de evaluación. Como resultado se obtiene un indicador numérico entre uno y cinco para cada deudor.
-B. Calificación del comportamiento de pago histórico según SUGEF. El indicador numérico del deudor determina el NIVEL del comportamiento de pago histórico según la siguiente tabla:
-Nivel | Rango de indicador numérico
+c) se calcula el promedio simple del puntaje asignado al atraso máximo y al atraso medio, lo cual resulta en un puntaje para cada operación con un valor entre uno y cinco;
+d) este resultado se pondera según la suma de los saldos totales adeudados mayores a veinticinco mil colones reportados cada mes para cada operación del deudor.
+El punto d) determina el puntaje final del deudor como el resultado de la multiplicación del valor obtenido en el punto c) por el porcentaje que representa la suma de los saldos de cada operación entre la sumatoria de todas las sumas de saldos, y sumando estos resultados obtenidos.
+La suma de saldos de cada operación es igual a la suma de los saldos mensuales mayores a veinticinco mil colones, o a la suma de los montos máximos autorizados en cada mes en el caso de tarjetas de crédito, durante el periodo de evaluación. Como resultado se obtiene el puntaje final del deudor como un valor entre uno y cinco.
+B. Nivel de comportamiento de pago histórico según SUGEF. El puntaje final del deudor determina el NIVEL del comportamiento de pago histórico según el siguiente cuadro:
+Nivel | Puntaje final
 1 | Igual o menor a 2,33
 2 | Mayor a 2,33 e igual o menor a 3,66
 3 | Mayor a 3,66
-El deudor que no cuente con información crediticia en la Central de Deudores de la SUFEF es calificado en NIVEL 1 de comportamiento de pago histórico.
-La calificación representa la calificación del deudor en relación con su comportamiento de pago histórico según SUGEF. La entidad puede calificar el comportamiento de pago histórico del deudor en el mismo Nivel que la SUGEF o en un Nivel de mayor riesgo.
-C. Calificación directa en NIVEL 3. Independientemente del indicador numérico del deudor, el comportamiento de pago histórico de un deudor es calificado en NIVEL 3 cuando durante el periodo de evaluación el deudor, en relación con al menos una operación directa, haya tenido que recurrir a la dación de bienes en pago de sus obligaciones, haya sido cancelada su obligación como producto de un proceso de cobro judicial o su operación con un saldo total adeudado mayor a veinticinco mil colones costarricenses haya sido reconocida como incobrable.
+A los deudores para los cuales no existe información crediticia en el Centro de Información Crediticia de la SUGEF, se les asigna un puntaje final igual a cero y se clasifican en el NIVEL 1 de comportamiento de pago histórico.
+El nivel obtenido por el deudor representa la clasificación del deudor en relación con su comportamiento de pago histórico según SUGEF. La entidad puede clasificar el comportamiento de pago histórico del deudor en el mismo Nivel que la SUGEF o en un Nivel de mayor riesgo.
+C. Clasificación directa en NIVEL 3. Independientemente del puntaje final del deudor, el comportamiento de pago histórico de un deudor es clasificado en NIVEL 3 cuando durante el periodo de evaluación el deudor, en relación con al menos una operación directa, haya tenido que recurrir a la dación de bienes en pago de sus obligaciones, haya sido cancelada su obligación como producto de un proceso de cobro judicial, haya sido asumida formalmente por un fiador o avalista o su operación con un saldo total adeudado mayor a veinticinco mil colones costarricenses haya sido reconocida como incobrable.
+(Así reformado el capítulo II "Análisis del Compartamiento de Pago Histórico", por acuerdo N° 5 del 6 de setiembre de 2006)
 III. Análisis de las garantías Objetivo: Determinar el valor ajustado de las garantías como mitigadores de riesgo para efectos del cálculo de la estimación de crédito.
 A. Valor de mercado.
-Objetivo: Determinar el valor de mercado como el precio estimado que obtendría la entidad en caso de la venta del activo bajo las condiciones actuales del mercado o el valor facial del documento en caso de finanzas, avales, documentos cedidos, documentos emitidos por empresas transportadoras o cartas de crédito stand by.
+Objetivo: Determinar el valor de mercado como el precio estimado que obtendría la entidad en caso de la venta del activo bajo las condiciones actuales del mercado o el valor facial del documento en caso de finanzas, avales, documentos cedidos, documentos emitidos por empresas transportadoras o carta de crédito.
+(Así reformado el párrafo anterior por acuerdo N° 5 del 6 de setiembre de 2006)
 Terrenos y edificaciones
 El avalúo debe especificar por separado el valor de mercado estimado del terreno y de la edificación, cuando corresponda, así como un detalle que justifique el cálculo del valor de mercado. Si el bien está arrendado, el reporte debe indicar el nombre del arrendatario y la vigencia del contrato existente. Asimismo debe incluirse el año de construcción del bien, el grado de mantenimiento o conservación en que se encuentra y el grado de liquidez, así como las afectaciones a que está sujeto (servidumbres, declaratorias de patrimonio arquitectónico o histórico, zonas protegidas, entre otras). La SUGEF puede corroborar por su cuenta que el valor de mercado reportado por el valuador y aceptado por la entidad sea consistente con la realidad del mercado inmobiliario.
 Bien mueble, maquinaria fijada permanentemente al terreno, excepto instrumento financiero
 El avalúo debe indicar el año de fabricación, el grado de mantenimiento o conservación en que se encuentra el bien y su grado de liquidez.
 Instrumento financiero. El valor de mercado es el precio al cual se negocia en una bolsa de valores, el valor facial en caso de valores no negociables en bolsa o el valor intrínseco de la participación en caso de fondos de inversión abiertos.
-Fianzas, Avales, Facturas cedidas, Documentos emitidos por empresas transportadoras y Cartas de Crédito Stand by El valor será el monto facial consignado en el respectivo documento de garantía.
+Fianzas, Avales, Facturas cedidas, Documentos emitidos por empresas transportadoras y Carta de Crédito El valor será el monto facial consignado en el respectivo documento de garantía.
+(Así reformado el párrafo anterior por acuerdo N° 5 del 6 de setiembre de 2006)
 B. Actualización del valor de la garantía.
 Objetivo: Determinar la periodicidad de los avalúos, los porcentajes de depreciación y la metodología de actualización del valor del avalúo.
 Metodología de actualización
@@ -140,6 +143,8 @@ V. Documentación mínima que debe mantener la entidad sobre cada deudor
 Consideraciones generales:
 1. El expediente de crédito es individualizado para cada deudor y comprende como mínimo las siguientes secciones: a) Información general del deudor, b) documentos de aprobación de cada operación, c) Información financiera del deudor y de fiadores o avalistas (si existen), d) análisis financiero y e) información sobre garantías.
 2. El expediente de crédito debe depurarse con regularidad de manera que se mantenga ordenado por secciones, en orden cronológico y actualizado.
+3) Cada uno de los datos que a continuación se especifican debe mantenerse en el expediente en forma física o en forma electrónica de manera uniforme para todos los deudores. Cuando una entidad cambie la forma de mantener un dato (física o electrónica), la entidad debe migrar la información en un periodo no mayor a un año contado a partir de la respectiva comunicación que debe hacer la entidad a la SUGEF.
+(Así adicionado el párrafo anterior por acuerdo N° 5 del 6 de setiembre de 2006)
 A. Información general del deudor
 1. Personas físicas
 a) Nombre completo, dirección, fotocopia de la cédula (pasaporte cuando la persona no tenga cédula), fecha y país de nacimiento, género.
@@ -241,5 +246,6 @@ B. Aclaraciones adicionales. Para efectos de la clasificación de los deudores s
 1. Se excluyen del análisis la garantía, el aval y la carta de crédito.
 2. Los deudores que no tienen al menos una operación crediticia denominada en moneda extranjera en la entidad no deben clasificarse. Para efectos de este capítulo VI la Unidad de Desarrollo no se considera moneda extranjera.
 3. La clasificación de los deudores debe realizarse únicamente con base en las operaciones crediticias del deudor en la entidad que lo clasifica.
-VII. Cultivos para los cuales una operación crediticia con plazo menor a 360 días con pago único de principal a la fecha de vencimiento no se considera operación especial Ajo, Cebolla, Coles, Coliflor, Elote, Fresa, Zanahoria, Zapallo.
+VII. Cultivos para los cuales una operación crediticia con plazo menor a 360 días con pago único de principal a la fecha de vencimiento no se considera operación especial. Se incluyen todos los cultivos anuales, definidos como aquéllos en los que el periodo que transcurre entre la siembra y la cosecha es menor a 360 días y cada nueva cosecha requiere de una nueva siembra.
+(Así reformado el capítulo anterior por acuerdo N° 5 del 6 de setiembre de 2006)
 Publíquese en el Diario Oficial La Gaceta.

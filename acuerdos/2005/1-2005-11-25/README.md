@@ -14,3 +14,4 @@ Lineamientos Generales para la aplicación del Reglamento para la Calificación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-09 | la propia norma |
+| 2 | 2006-09-06 | Acuerdo 5 (2006-09-06) |
