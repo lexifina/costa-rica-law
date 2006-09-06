@@ -57,3 +57,4 @@ Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) | Transfe
 SINART S.A. | Comisiones por intermediación (Así adicionado por el artículo 1° del decreto ejecutivo N° 31868 de 25 de mayo de 2004)
 Teatro Nacional | Transferencias a: Museo de Arte Costarricense, Compañía Nacional de Teatro y Centro Nacional de la Música (Unidad Técnica Especializada Orquesta Sinfónica Nacional).
 Consejo Nacional de Vialidad | Adquisición de Terrenos, según Ley N° 7798. Recursos provenientes del Préstamo con el Export-Import Bank de la República de China destinados al Proyecto de Construcción de la Carretera Florencia-Naranjo. (Así ampliado por el artículo 1° del decreto ejecutivo N° 32299 del 5 de abril del 2005)
+*(La Sala Constitucional mediante resolución N° 13333-06, de las diecisiete horas con treinta y seis minutos, dispuso anular de este decreto sus referencias y aplicación al Instituto Nacional de Aprendizaje.)

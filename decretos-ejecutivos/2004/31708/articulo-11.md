@@ -12,7 +12,7 @@ Artículo 11.—Las siguientes entidades públicas estarán sujetas a directrice
 • Instituto Costarricense de Electricidad.
 • Instituto Costarricense de Turismo.
 • Instituto de Desarrollo Agrario.
-• Instituto Nacional de Aprendizaje.
+• *
 • Instituto Nacional de Seguros.
 • Instituto Nacional de Vivienda y Urbanismo.
 • Instituto Costarricense de Puertos del Pacífico.
@@ -22,3 +22,4 @@ Artículo 11.—Las siguientes entidades públicas estarán sujetas a directrice
 • Refinadora Costarricense de Petróleo S. A.
 • Consejo Técnico de Asistencia Médico Social.
 • Oficina de Cooperación Internacional de la Salud.
+*(La Sala Constitucional mediante resolución N° 13333-06, de las diecisiete horas con treinta y seis minutos, dispuso anular de este decreto sus referencias y aplicación al Instituto Nacional de Aprendizaje.)
