@@ -1,0 +1,1 @@
+Artículo 17.—Modificaciones del Plan de Capacitación. El Área de Recursos Humanos a petición de las áreas y/o Gerencia, podrá adicionar actividades no previstas en el Plan Anual, siempre y cuando se haga una adecuada justificación, sea avalada por el Gerente y aprobada por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 18.—Financiamiento. Para financiar el Plan de Capacitación, Popular Pensiones destinará del presupuesto ordinario de la Operadora los recursos necesarios para desarrollar el mismo, pudiendo ser excepcionalmente incrementado, previa aprobación de la Junta Directiva.
