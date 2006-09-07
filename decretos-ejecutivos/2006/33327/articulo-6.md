@@ -1,0 +1,1 @@
+Artículo 6º—Declárese de interés público toda actividad o proyecto orientado a recuperar, y conservar la calidad de las aguas y los recursos naturales del Estero de Puntarenas, así como su uso racional.
