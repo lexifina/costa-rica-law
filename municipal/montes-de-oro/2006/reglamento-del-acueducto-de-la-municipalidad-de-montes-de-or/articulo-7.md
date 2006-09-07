@@ -1,0 +1,1 @@
+Artículo 7º—El servicio de agua deberá ser prestado en forma continua, salvo el caso de reparaciones, mantenimiento, u otra causa justificante, en cuyo caso la Municipalidad deberá comunicar por anticipado de las alteraciones o interrupciones del servicio a los usuarios, excepto que las circunstancias no lo permitan y en casos fortuitos.

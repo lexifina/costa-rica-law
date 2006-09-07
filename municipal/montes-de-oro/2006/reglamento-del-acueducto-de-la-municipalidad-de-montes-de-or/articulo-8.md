@@ -1,0 +1,1 @@
+Artículo 8º—Es potestad de la Municipalidad realizar extensiones, derivaciones, modificaciones y reparaciones a las redes, captaciones e instalaciones de todos los sistemas que le pertenezcan, así como las previstas de las conexiones de los abonados, procurando la instalación a cada abonado de su respectivo medidor, cubriendo cada abonado los costos respectivos según sea el caso.

@@ -1,0 +1,2 @@
+Artículo 14.—La petición de nuevos servicios presentada ante la Municipalidad debe hacerse mediante solicitud escrita, fechada, con la anotación de su número de cédula, teléfono si lo tuviese, lugar específico para escuchar notificaciones y firmada por el interesado, de ser acogida la misma, se debe comunicar por escrito al solicitante, para que proceda a cancelar los costos que correspondan de conformidad con este reglamento.
+Dichas solicitudes serán registradas y conferidas en forma cronológica cuando ello proceda.

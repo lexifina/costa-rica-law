@@ -1,0 +1,1 @@
+Artículo 41.—La Municipalidad realizará los esfuerzos necesarios, a efecto de poner a derecho las concesiones de las nacientes del sistema de agua potable que abastecen la población usuaria de la Municipalidad, ante el Ministerio del Ambiente y Energía, con el fin de garantizar el servicio a sus abonados.
