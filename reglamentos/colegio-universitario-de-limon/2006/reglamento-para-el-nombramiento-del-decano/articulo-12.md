@@ -1,0 +1,1 @@
+Artículo 12.—El concurso de oposición. El concurso de oposición consistirá en una evaluación de los atestados de los participantes. Se someterá a los postulantes a una entrevista conductual aplicada por el Consejo Directivo. Se le comunicará previamente a los interesados, la fecha y hora señalada para tal fin.

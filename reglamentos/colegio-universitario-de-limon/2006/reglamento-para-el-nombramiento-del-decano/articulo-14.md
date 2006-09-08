@@ -1,0 +1,1 @@
+Artículo 14.—El procedimiento del concurso. El procedimiento sobre la manera en que se efectuará el concurso, evaluará y seleccionará a los participantes será detalladamente descrito y suministrado a los concursantes en igualdad de condiciones.

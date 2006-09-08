@@ -1,0 +1,2 @@
+Artículo 6º—El Concurso Interno. Es el procedimiento mediante el cual se invita a participar a todos aquellos funcionarios activos de la Institución que cumplan con lo establecido en el artículo 3º de este Reglamento y además con los requisitos establecidos en el concurso.
+La invitación al concurso interno debe efectuarse mediante comunicación en las pizarras informativas y lugares visibles del CUNLIMON, con un mínimo de diez días hábiles de anticipación.

@@ -1,0 +1,1 @@
+Artículo 18.—La apertura de nuevo concurso. Tres meses antes del vencimiento del nombramiento del Decano y si este ha manifestado por escrito su interés en continuar en el puesto, el Consejo Directivo tendrá la potestad de realizar evaluación del desempeño del Decano; con el fin de determinar si se le nombra por un periodo igual, o en su efecto, sacar la plaza a concurso.

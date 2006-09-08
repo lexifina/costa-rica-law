@@ -1,0 +1,1 @@
+Artículo 20.—Nombramiento Interino del Decano. El Consejo Directivo podrá efectuar el nombramientos en forma interina, del funcionario de rango superior, para el cargo del Decano, sin necesidad de recurrir a concurso; mientras se realiza el concurso correspondiente.
