@@ -1,0 +1,1 @@
+Artículo 2º—El objeto de este Reglamento es determinar la creación, integración y funcionamiento del Comité de Inversiones, así como establecer los lineamientos normativos de carácter general para la inversión de los Fondos administrados.

@@ -1,0 +1,7 @@
+Artículo 5º—Funciones y requisitos de los miembros independientes.
+Los requisitos que deben cumplir los miembros independientes son:
+a) Ser personas de reconocida y probada honorabilidad y con amplia experiencia en materia económica, financiera, bursátil y de pensiones, la cual debe quedar comprobada ante Popular SAFI.
+b) Ser personas que no hayan sido declaradas culpables, en sentencia judicial firme, en los últimos cinco años, por la comisión de un delito doloso o bien que no hayan sido sancionadas administrativamente en firme por actos fraudulentos o ilegales.
+c) No ser cónyuge ni estar ligado por consaguinidad o afinidad hasta el tercer grado, con los miembros de los Comités de Inversiones del Conglomerado Banco Popular o con representantes legales, integrantes de la junta directiva, fiscales o gerentes de calificadoras de riesgo o emisores; o con quienes posean acciones, cuotas u otras participaciones de capital iguales o superiores al 50% en esas entidades.
+d) Ser personas que en los últimos cinco años no hayan sido inhabilitadas en firme, judicial o administrativamente, para ocupar cargos administrativos o de dirección en entidades públicas.
+e) No ser representante legal, integrante de la junta directiva, fiscal o gerente, o bien poseer acciones, cuotas u otras participaciones de capital iguales o superiores al 50% de calificadoras de riesgo o emisores.
