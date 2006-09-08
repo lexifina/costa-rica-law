@@ -1,0 +1,1 @@
+Artículo 2º—Declarar de interés nacional y público todas las actividades que se desarrollen en pro del Programa de Juegos Deportivos Nacionales Edición N° XXVII San José 2006-2007, a realizarse en San José.
