@@ -1,0 +1,1 @@
+Artículo 59.—No podrán participar en actividades de capacitación, por espacio de dos años consecutivos, aquellos funcionarios que se retiren o no se presenten a una actividad de capacitación sin causa justificada, a criterio del Consejo Académico.

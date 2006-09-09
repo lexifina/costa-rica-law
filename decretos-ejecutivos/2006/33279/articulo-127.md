@@ -1,0 +1,1 @@
+Artículo 127.—Este reglamento deberá hacerse del conocimiento de los funcionarios, mediante exhibición impresa en caracteres fácilmente legibles, en forma permanente, en al menos dos de los lugares más visibles del centro de trabajo, por un período de quince días naturales previo a su entrada en vigencia.

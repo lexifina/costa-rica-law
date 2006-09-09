@@ -1,0 +1,1 @@
+Artículo 111.—El órgano director del procedimiento iniciará la apertura del expediente administrativo, asignándole un número, el cual deberá tramitarse debidamente foliado; asimismo, mediante el respectivo traslado de cargos deberá poner en conocimiento a la persona involucrada de los hechos denunciados.

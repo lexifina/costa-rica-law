@@ -1,0 +1,1 @@
+Artículo 85.—La elección de los representantes de la Comisión Institucional de Salud Ocupacional se hará de conformidad con lo establecido en el Decreto Ejecutivo Nº 18379-TSS de 19 de julio de 1988 y sus reformas.

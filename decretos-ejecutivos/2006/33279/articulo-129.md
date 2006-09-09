@@ -1,0 +1,1 @@
+Artículo 129.—Se deroga el artículo 6º del Reglamento Orgánico y Operativo del Tribunal Registral Administrativo, Decreto Ejecutivo Nº 30363-J, de dos de mayo de dos mil dos, reformado por el Decreto Ejecutivo Nº 31464, de ocho de octubre de dos mil tres.

@@ -1,0 +1,1 @@
+Artículo 81.—El Tribunal podrá ordenar o convenir, oficiosamente o a solicitud del interesado, la reubicación temporal del funcionario denunciado. La solicitud escrita del interesado deberá ser presentada ante el Tribunal para ser resuelta en un plazo máximo de cinco días a partir de su presentación.

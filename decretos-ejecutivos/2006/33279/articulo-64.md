@@ -1,0 +1,1 @@
+Artículo 64.—El funcionario que sin causa justificada pierda una o varias materias contratadas, quedará obligado a restituir al Estado los gastos en que incurrió en razón del tiempo concedido y no aprovechado. Dicho trámite será realizado de conformidad con las disposiciones que para tal efecto dicte el Consejo Académico.

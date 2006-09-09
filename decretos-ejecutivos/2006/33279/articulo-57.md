@@ -1,0 +1,1 @@
+Artículo 57.—El Consejo Académico estará integrado por un miembro del Tribunal, quien lo presidirá y será el enlace con los demás miembros del Tribunal, un representante del Departamento Técnico y un representante de el Departamento Administrativo. Los miembros del Consejo Académico ejercerán sus funciones por un período de un año y podrán ser reelegidos indefinidamente.

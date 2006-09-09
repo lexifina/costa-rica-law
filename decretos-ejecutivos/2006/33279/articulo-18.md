@@ -1,0 +1,1 @@
+Artículo 18.—El Tribunal deberá acondicionar un local adecuado para que los funcionarios puedan ingerir sus alimentos y bebidas durante su tiempo de descanso, según lo dispuesto por el artículo 97 del Decreto Ejecutivo Nº 1 del 2 de enero de 1967 (Reglamento de Seguridad e Higiene en el Trabajo).

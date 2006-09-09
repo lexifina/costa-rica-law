@@ -1,0 +1,1 @@
+Artículo 13.—Los funcionarios nombrados en propiedad podrán solicitar al Departamento Administrativo, el trámite de reasignación ante la Dirección General de Servicio Civil, siempre que se considere que las funciones del puesto que ocupa, hayan variado sustancialmente y esté conforme con la normativa vigente.

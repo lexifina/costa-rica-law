@@ -1,0 +1,1 @@
+Artículo 71.—El funcionario que omita la suscripción del contrato respectivo a que está obligado o que incurra en incumplimiento del mismo, deberá asumir la responsabilidad civil de pago por la erogación incurrida en perjuicio de los fondos del Estado.

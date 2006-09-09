@@ -1,0 +1,1 @@
+Artículo 84.—De conformidad con el artículo 288 del Código de Trabajo se establecerá una Comisión Institucional de Salud Ocupacional, la cual dictará todas las directrices en materia de salud ocupacional, que estará integrada por un representante de los Jueces, quien la presidirá con voto de calidad y un representante de los funcionarios.

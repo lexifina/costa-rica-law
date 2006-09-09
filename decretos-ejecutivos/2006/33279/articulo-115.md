@@ -1,0 +1,1 @@
+Artículo 115.—El Departamento Administrativo deberá remitir en el plazo máximo de diez días hábiles, según la complejidad del asunto, la información y documentos necesarios, al Tribunal para que resuelva lo que corresponda.

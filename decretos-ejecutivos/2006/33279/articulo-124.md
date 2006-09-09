@@ -1,0 +1,1 @@
+Artículo 124.—Cuando se trate de funcionarios excluidos del régimen de Servicio Civil, procederá el despido sin responsabilidad patronal cuando se incurra en las causales que determinan el Código de Trabajo, el presente Reglamento y demás normativa que corresponda en lo que les sea aplicable, otorgando el Debido Proceso al servidor.

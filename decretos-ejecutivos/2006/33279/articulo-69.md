@@ -1,0 +1,1 @@
+Artículo 69.—Los funcionarios que disfruten de becas nacionales o extranjeras, quedarán obligados a transmitir los conocimientos adquiridos, mediante el trabajo práctico y la enseñanza teórica a otros servidores, según lo requiera el Tribunal. El Consejo Académico velará por su cumplimiento.

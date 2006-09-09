@@ -1,0 +1,1 @@
+Artículo 109.—El Tribunal designará el órgano director del procedimiento el cual estará integrado por tres funcionarios, quienes se encargarán de investigar toda posible falta grave del servidor, a excepción de aquellas faltas en materia de asistencia, que se regirá por lo establecido en el presente Reglamento.

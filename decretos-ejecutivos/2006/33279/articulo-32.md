@@ -1,0 +1,1 @@
+Artículo 32.—El funcionario que por dolo o complacencia registre la asistencia que no le corresponde, incurrirá en falta grave a sus obligaciones y deberes. Igual falta cometerá el funcionario que lo haya permitido.

@@ -1,0 +1,1 @@
+Artículo 42.—La inasistencia a media jornada de labor, se considera como la mitad de una ausencia. Dos ausencias a dos medias jornadas dentro de un mismo mes calendario constituirán una ausencia para los efectos de este Reglamento.

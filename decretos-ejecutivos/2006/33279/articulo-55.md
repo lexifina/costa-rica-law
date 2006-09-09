@@ -1,0 +1,1 @@
+Artículo 55.—Las licencias sin goce de salario menores de un mes podrá concederlas el jefe inmediato por escrito, debiendo comunicarlo con antelación al disfrute de la licencia al Tribunal y al Departamento Administrativo. Tratándose de los Jueces, tales licencias serán otorgadas mediante acuerdo firme del Tribunal Registral Administrativo.

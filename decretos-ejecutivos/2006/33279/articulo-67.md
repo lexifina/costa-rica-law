@@ -1,0 +1,1 @@
+Artículo 67.—Todos los Contratos para Capacitación se regularán de conformidad con la Ley 3009, del 18 de julio de 1962 y sus reformas, su Reglamento, el Decreto Ejecutivo Nº l7339-P de 2 de diciembre de 1986, publicado en La Gaceta Nº 237 de 15 de diciembre de 1986, así como cualquier otra disposición que al efecto emita la Dirección General de Servicio Civil.

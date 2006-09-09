@@ -1,0 +1,1 @@
+Artículo 44.—En los casos de irregularidades graves en la asistencia contemplados en los capítulos octavo, noveno y décimo de este Reglamento, en los que proceda el despido sin responsabilidad patronal, el Departamento Administrativo remitirá todos los atestados al Tribunal, a efecto de que se proceda con el trámite de la gestión de despido ante el Tribunal de Servido Civil.

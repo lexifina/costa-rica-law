@@ -1,0 +1,1 @@
+Artículo 3º—Todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Tribunal de velar por la correcta aplicación de las disposiciones del presente Reglamento.

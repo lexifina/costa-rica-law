@@ -1,0 +1,2 @@
+Artículo 107.—Los despidos de los funcionarios amparados al Régimen de Servicio Civil, se tramitarán conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
+Las sanciones o despidos de los servidores excluidos del Régimen de Servicio Civil, se regirán por lo que al efecto dispone la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, la Ley General de la Administración Pública, el Código de Trabajo y el presente Reglamento y demás normativa que le resulte aplicable.

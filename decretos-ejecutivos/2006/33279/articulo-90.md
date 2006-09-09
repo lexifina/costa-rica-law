@@ -1,0 +1,1 @@
+Artículo 90.—Las faltas por acoso u hostigamiento sexual, se sancionarán de conformidad con la Ley 7476 de 3 de febrero de 1995 “Ley contra el Hostigamiento Sexual en el Empleo y la Docencia”, en concordancia con lo dispuesto en los artículos siguientes.

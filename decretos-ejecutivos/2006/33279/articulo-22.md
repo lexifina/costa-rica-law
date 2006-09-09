@@ -1,0 +1,1 @@
+Artículo 22.—El Tribunal es el responsable de velar porque se aplique lo dispuesto en el artículo anterior. Asimismo, el Tribunal mediante acuerdo firme podrá modificar los horarios establecidos siempre que existan circunstancias especiales que así lo exijan y el servicio público así lo requiera.

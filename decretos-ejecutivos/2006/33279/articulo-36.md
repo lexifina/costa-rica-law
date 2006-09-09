@@ -1,0 +1,1 @@
+Artículo 36.—De acuerdo con el artículo anterior, la justificación de las llegadas tardías tendrá como efecto la no aplicación del régimen disciplinario. No obstante, el Departamento Administrativo deberá proceder tal como se indica en el artículo 41 del presente reglamento, en cuanto al aspecto salarial.

@@ -1,0 +1,3 @@
+Artículo 50.—Los funcionarios del Tribunal tendrán derecho a gozar sin interrupción su período de vacaciones, y sólo estarán obligados a dividirlas hasta un máximo de tres fracciones cuando se trate de labores de índole especial que no permitan una ausencia muy prolongada.
+Si vencido el período vacacional éste no se hubiese disfrutado, el Tribunal, en coordinación con el Departamento Administrativo o Juez Tramitador según corresponda, le indicará al funcionario la fecha para su disfrute.
+La solicitud de vacaciones deberá efectuarse con cinco días de anticipación, salvo casos de urgencia. Dicha solicitud deberá contar con el visto bueno del jefe inmediato.

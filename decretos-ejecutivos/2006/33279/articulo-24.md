@@ -1,0 +1,1 @@
+Artículo 24.—Los funcionarios del Tribunal deberán laborar todos los días hábiles del año durante las horas reglamentarias establecidas. No podrán concederse privilegios ni prerrogativas o licencia alguna que autorice una asistencia irregular, con excepción de lo dispuesto por este Reglamento, y el Reglamento del Estatuto de Servicio Civil.

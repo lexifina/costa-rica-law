@@ -1,0 +1,2 @@
+Contratos de licencia para estudios
+Artículo 61.—Todo funcionario que requiera de una licencia para estudiar deberá firmar el respectivo Contrato de Licencia para Estudios, el cual se tramitará conforme a lo establecido en el Reglamento del Estatuto de Servicio Civil. Estas licencias incluyen horas lectivas y tiempos de traslado al centro de estudio, y además para su otorgamiento se deberá contar con la anuencia de la Jefatura respectiva y el acuerdo del Tribunal.

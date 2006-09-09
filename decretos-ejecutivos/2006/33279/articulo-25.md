@@ -1,0 +1,1 @@
+Artículo 25.—El Tribunal podrá autorizar el trabajo de horas extras cuando lo estime necesario, los funcionarios quedarán en la obligación de trabajar horas extraordinarias hasta el máximo permitido por ley, salvo que por razones especiales de índole grave, debidamente justificadas y comprobadas por el jefe inmediato, se le faculte para no hacerlo.

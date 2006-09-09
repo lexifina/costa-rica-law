@@ -1,0 +1,1 @@
+Artículo 106.—Las faltas no previstas en el presente Reglamento serán sancionadas conforme la Ley General de la Administración Pública, el Estatuto de Servicio Civil, su Reglamento, el Código de Trabajo y demás normativa de Derecho Público que corresponda.

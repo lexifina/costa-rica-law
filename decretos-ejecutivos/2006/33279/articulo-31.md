@@ -1,0 +1,1 @@
+Artículo 31.—Salvo los casos previstos en este Reglamento, la omisión de una marca en cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la fracción de la jornada correspondiente, excepto si se justifica dentro de la misma semana en que se omitió la marca.

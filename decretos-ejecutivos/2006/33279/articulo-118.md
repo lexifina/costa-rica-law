@@ -1,0 +1,1 @@
+Artículo 118.—El Recurso de Reposición contra el acto final del Tribunal se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción Contencioso- Administrativa y en la Ley General de la Administración Pública.

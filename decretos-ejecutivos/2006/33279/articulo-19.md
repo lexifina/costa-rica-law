@@ -1,0 +1,1 @@
+Artículo 19.—Los funcionarios del Tribunal tendrán derecho a disfrutar de un día al año para conmemorar la creación del Tribunal Registral Administrativo, cuya fecha será el último viernes del mes de octubre de cada año.

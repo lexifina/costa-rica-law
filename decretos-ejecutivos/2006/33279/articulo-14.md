@@ -1,0 +1,1 @@
+Artículo 14.—Las funcionarias del Tribunal podrán gozar de una hora diaria de lactancia, previa presentación de dictamen médico extendido por la Caja Costarricense de Seguro Social por el plazo que éste establezca.
