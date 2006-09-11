@@ -1,0 +1,1 @@
+Artículo 5º—Para efectuar campañas de divulgación, las municipalidades podrán realizar modificaciones internas de los saldos presupuestarios que estimen necesarios de las economías producidas durante el período.
