@@ -30,4 +30,6 @@ TRASPASO: Venta de propiedad de una persona a otra, la cual se inscribe ante el 
 URBANIZACIÓN: Conjunto habitacional.
 VISADO: Es el aval catastral por parte de la Municipalidad el cumplimiento de las normas y reglamentos del Plan Regulador.
 (Por lo extenso del contenido de los cuadros , ver La Gaceta No.134 de 12 de julio de 2002 páginas 25, 26 y 27)
+(Nota: El Consejo Municipal del cantón de Goicoechea en sesión ordinaria Nº 36 del 11 de setiembre del 2006, aprobó avalar la inclusión del punto 9 en el formulario único, cuadro 1.1 de este reglamento, el cual dirá lo siguiente: " ...Punto 9: Para construcciones nuevas, remodelaciones, ampliaciones o demoliciones, se debe presentar escrito indicando el lugar donde se depositarán los escombros de las construcciones y los movimientos de tierra, el cual debe poseer el visto bueno del Ministerio de Salud y el permiso ambiental de Setena.")
+(NOTA: El Concejo Municipal del cantón de Goicoechea mediante publicación realizada en La Gaceta N° 153 del 08 de agosto del 2008, comunicó la utilización del formulario de tramite único, el cual contiene cambios aprobados por las jefaturas de Ingeniería, Catastro, Patentes y Plataforma de Servicios, mismo puede consultarse en el sistema).
 Lic. Sahid Salazar Castro, Alcalde Municipal.

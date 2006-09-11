@@ -14,3 +14,4 @@ Requisitos y Nuevo Formulario único a utilizar para toda clase de trámite de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-12 | la propia norma |
+| 2 | 2006-09-11 | Acuerdo municipal 0 (2006-09-11) |
