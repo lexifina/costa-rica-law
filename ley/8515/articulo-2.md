@@ -1,0 +1,2 @@
+Artículo 2º—Las municipalidades del país podrán disponer de un plan de condonación, de conformidad con los parámetros dispuestos por esta Ley; lo anterior será por acuerdo municipal y únicamente dentro de los tres meses posteriores a la entrada en vigencia de este cuerpo normativo.
+Cada concejo municipal, de conformidad con sus condiciones particulares, definirá el plazo por el cual regirá la condonación autorizada por esta Ley, sin que dicho plazo exceda un año, contado a partir de la entrada en vigencia de esta.

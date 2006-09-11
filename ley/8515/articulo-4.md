@@ -1,0 +1,1 @@
+Artículo 4º—Para lograr la mayor recaudación posible, las municipalidades que se acojan a la presente Ley procurarán realizar una adecuada campaña de divulgación, en tal forma que los sujetos pasivos se enteren de los alcances y procedimientos de este beneficio.

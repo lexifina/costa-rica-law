@@ -1,0 +1,1 @@
+Artículo 7º—Con el propósito de que el IFAM pueda sufragar las obligaciones establecidas en el artículo 6 de esta Ley, se determina que los recursos económicos que ejecute con tal finalidad se excluyan del límite de gasto presupuestario y efectivo autorizado por la Autoridad Presupuestaria.
