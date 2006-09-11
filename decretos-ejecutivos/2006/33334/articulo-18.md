@@ -1,0 +1,1 @@
+Artículo 18.—Del aseguramiento de los bienes. La institución beneficiada con la asignación de bienes deberá asegurarlos, de acuerdo con lo que establece la Ley de Seguros. El Instituto deberá aparecer como beneficiario directo del contrato y deberá incluirse de manera expresa el interés asegurable directo.

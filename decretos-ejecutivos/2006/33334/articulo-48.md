@@ -1,0 +1,1 @@
+Artículo 48.—Valor de los bienes donados. Previo a la entrega en donación de los bienes aprobados por el Consejo Directivo, la Unidad de Administración de Bienes determinará el valor del mercado de los mismos, el cual se incluirá en el acta o escritura de donación correspondiente.

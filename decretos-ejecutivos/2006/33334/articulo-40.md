@@ -1,0 +1,1 @@
+Artículo 40.—Informe de bienes. El Coordinador de la Unidad de Administración de Bienes cuando se lo solicite el Consejo Directivo, remitirá un informe con el detalle de todos los bienes que se encuentran comisados mediante sentencia firme a favor del Instituto.

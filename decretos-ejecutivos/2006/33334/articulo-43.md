@@ -1,0 +1,1 @@
+Artículo 43.—Requisitos para la donación a instituciones represivas de carácter público. El ICD podrá aprobar la donación de bienes cuando estas hayan presentado una solicitud de donación debidamente firmada por el representante legal de la institución interesada, en donde se detallen los propósitos de la utilización del pedido.

@@ -1,0 +1,1 @@
+Artículo 29º—Plazo de vigencia de convenios específicos. Una vez que el Presidente o el Consejo Directivo comuniquen a la Unidad de Administración de Bienes acerca de la aprobación de los préstamos solicitados, la Unidad de Administración de Bienes procederá con la confección del convenio específico correspondiente el cual tendrá un plazo de dos años.

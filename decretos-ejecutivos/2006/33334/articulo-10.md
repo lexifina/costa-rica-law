@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad de los funcionarios del Instituto. Todos los funcionarios del Instituto deberán actuar con la mayor diligencia, prudencia, pericia y cuidado cuando trasladen o utilicen bienes decomisados.

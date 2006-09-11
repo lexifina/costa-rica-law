@@ -1,0 +1,5 @@
+Artículo 50.—Entrega de vehículos donados. En el caso de vehículos, la Unidad de Administración de Bienes entregará provisionalmente a la institución beneficiada el bien, conforme lo establecido en los artículos 48 y 49 de este Reglamento.
+Esa institución recibirá el bien con el fin de realizar las reparaciones mecánicas necesarias, para que sea aprobada la revisión técnica vehicular y obtener el derecho de circulación.
+En el caso de vehículos de placas extranjeras, la institución beneficiada deberá repararlos con el fin de que sean presentados ante la revisión técnica vehicular para obtener la boleta de inscripción.
+Esta entrega provisional tendrá un plazo máximo de seis meses, término para presentar los documentos ante el Instituto para formalizar la donación. Durante este período, la institución beneficiada con la donación será responsable de la pérdida, deterioro o daños que sufran los vehículos.
+Si la institución beneficiada no cumple este plazo, la donación será revocada automáticamente por el Instituto.

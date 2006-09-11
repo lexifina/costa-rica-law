@@ -1,0 +1,2 @@
+Artículo 49.—Entrega de bienes donados. El retiro de los bienes los hará personalmente el beneficiado o la persona que éste autorice, mediante documento que así lo acredite.
+La Unidad de Administración de Bienes del Instituto deberá levantar un acta de entrega del bien dado en donación, en donde se detalle el estado actual del mismo, su valor y será firmado únicamente por el representante legal de la institución beneficiada con la donación.

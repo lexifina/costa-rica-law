@@ -1,0 +1,1 @@
+Artículo 45.—Comunicación de las solicitudes de donación. Una vez conocidas las solicitudes por parte del Consejo Directivo del Instituto, éste informará a la Unidad de Administración de Bienes acerca del acuerdo respectivo de aprobación o rechazo de donación.

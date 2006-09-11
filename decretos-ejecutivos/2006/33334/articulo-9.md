@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad del Instituto. El Instituto deberá facilitar a sus funcionarios, todos los recursos y equipos necesarios para el efectivo y seguro traslado de los bienes puestos a su orden, así como para el cumplimiento de sus demás funciones.

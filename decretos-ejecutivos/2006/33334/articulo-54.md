@@ -1,0 +1,1 @@
+Artículo 54.—Ratificación del Consejo Directivo. Los acuerdos de los préstamos o donación de bienes serán ratificados en la misma sesión del Consejo Directivo en la cual fueron aprobadas, con fundamento en el artículo 56 de la Ley General de la Administración Pública.

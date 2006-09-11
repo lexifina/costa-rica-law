@@ -1,0 +1,1 @@
+Artículo 24.—Rescisión y resolución de los convenios. El Instituto de oficio o a solicitud de parte interesada, podrá rescindir o resolver, según corresponda, de manera anticipada el respectivo convenio de préstamo.

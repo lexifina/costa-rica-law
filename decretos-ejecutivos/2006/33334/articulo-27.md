@@ -1,0 +1,1 @@
+Artículo 27.—El préstamo de bienes mediante el convenio marco se concretará y consolidará a través de actas de entrega, suscritas por el Coordinador de la Unidad de Bienes y el responsable directo de la sección o unidad a la cual se le está facilitando el bien.

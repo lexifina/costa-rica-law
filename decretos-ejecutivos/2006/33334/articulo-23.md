@@ -1,0 +1,1 @@
+Artículo 23.—Del refrendo institucional. La Unidad de Asesoría Legal refrendará las propuestas de los distintos convenios de préstamo, administración y financiación de proyectos que el Instituto debe suscribir con las instituciones beneficiadas.

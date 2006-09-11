@@ -1,0 +1,1 @@
+Artículo 20.—Del convenio marco. Se suscribirán convenios marco con las instituciones que conforman el Consejo Directivo del ICD. Sin embargo, esto no excluirá a otras entidades según lo considere oportuno el Consejo Directivo o la Dirección General, por razones de oportunidad o conveniencia.
