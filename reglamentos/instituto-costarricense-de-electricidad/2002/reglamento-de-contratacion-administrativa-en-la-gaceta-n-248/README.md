@@ -17,3 +17,4 @@ Reglamento de Contratación Administrativa (En La Gaceta N° 248 del 27 de dicie
 | 2 | 2003-07-22 | Reglamento 5534 (2003-07-22) |
 | 3 | 2005-12-06 | Reglamento 5706 (2005-12-06) |
 | 4 | 2006-03-06 | Reglamento 0 (2006-03-06) |
+| 5 | 2006-09-12 | Reglamento 5754 (2006-09-12) |
