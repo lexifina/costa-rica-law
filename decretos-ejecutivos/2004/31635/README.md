@@ -18,3 +18,4 @@ Reglamento de Evaluación de los Aprendizajes
 | 3 | 2005-12-13 | Decreto Ejecutivo 32870 (2005-12-13) |
 | 4 | 2006-01-09 | Decreto Ejecutivo 32923 (2006-01-09) |
 | 5 | 2006-02-27 | Decreto Ejecutivo 32970 (2006-02-27) |
+| 6 | 2006-09-12 | Decreto Ejecutivo 33393 (2006-09-12) |
