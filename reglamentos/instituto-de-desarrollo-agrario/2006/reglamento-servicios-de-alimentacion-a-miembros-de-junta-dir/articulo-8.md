@@ -1,0 +1,1 @@
+Artículo 8º—Para la atención de estos gastos alimenticios, la administración para la contratación de la alimentación procederá a realizarla de acuerdo a los procedimientos que establece la Ley de Contratación Administrativa y su Reglamento.

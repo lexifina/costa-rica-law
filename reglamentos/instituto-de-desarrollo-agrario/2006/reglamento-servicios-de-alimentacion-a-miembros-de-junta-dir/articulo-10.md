@@ -1,0 +1,1 @@
+Artículo 10.—Este servicio de alimentación a los miembros de Junta y otros, solo se dará en la sede de las Oficinas Centrales y solo en caso muy especial o por excepción en que los Directores de la Junta Directiva tengan que sesionar en un lugar diferente a la Sede Central.

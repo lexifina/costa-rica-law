@@ -1,0 +1,1 @@
+Artículo 6º—En consideración a que los señores directores, de conformidad a la Ley N° 6735 Creación del Instituto, algunos de ellos vienen de lugares alejados del centro de trabajo, se faculta a la Secretaria General autorizar los gastos que, se consideren necesarios para una atención alimentaria adecuada y racional, a cada Director que conforma la Junta Directiva.

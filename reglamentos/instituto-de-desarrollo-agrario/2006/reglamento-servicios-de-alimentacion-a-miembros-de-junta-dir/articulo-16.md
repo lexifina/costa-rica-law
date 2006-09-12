@@ -1,0 +1,1 @@
+Artículo 16.—La Secretaria General mantendrá un control interno adecuado, sobre la ejecución de este rubro presupuestal, y guardará los principios señalados en los Artículos Nos. 5 y 18 de la Ley Nº 8131 “Ley de Administración Financiera y Presupuestos Públicos”, e informar así a la Presidencia Ejecutiva.

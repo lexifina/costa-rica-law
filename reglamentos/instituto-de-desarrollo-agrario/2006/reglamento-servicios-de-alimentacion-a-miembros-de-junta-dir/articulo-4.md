@@ -1,0 +1,1 @@
+Artículo 4º—La Secretaria General autorizará los gastos de alimentación, durante la celebración de las sesiones ordinarias y extraordinarias de Junta Directiva, en cumplimiento de las funciones a su cargo, siempre y cuando por el horario sea razonable brindar el servicio.

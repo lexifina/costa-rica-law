@@ -1,0 +1,1 @@
+Artículo 17.—El presente Reglamento, rige a partir de la publicación en el Diario Oficial La Gaceta aprobado por la Junta Directiva, según Artículo Nº 17 de la Sesión N° 026-06 de fecha 14 de agosto del 2006.

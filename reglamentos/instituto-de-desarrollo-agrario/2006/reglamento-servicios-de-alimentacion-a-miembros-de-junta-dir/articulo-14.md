@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad de Presupuesto, informará tanto a la Secretaria General como a la Presidencia Ejecutiva, en forma trimestral el estado del gasto de esta partida presupuestal, para un control cruzado, más efectivo y a la vez tener datos reales para posibles proyecciones de estos gastos.

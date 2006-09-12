@@ -1,0 +1,1 @@
+Artículo 13.—Para la atención de estos gastos alimenticios, deberá contarse con una partida específica y única, la cual estará ubicada en el Ppresupuesto de la Secretaria General, bajo el control y cuidado de esta Área y en estrecha coordinación con la Presidencia Ejecutiva.

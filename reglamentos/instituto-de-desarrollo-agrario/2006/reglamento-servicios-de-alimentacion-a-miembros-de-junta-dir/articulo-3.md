@@ -1,0 +1,1 @@
+Artículo 3º—Los alimentos deben ser producidos, manipulados, transportados, expendidos y suministrados a los Miembros de Junta Directiva en condiciones higiénicas y sanitarias de forma que se minimice el riesgo de contaminación y el estricto apego a los requisitos legales y reglamentarios pertinentes.
