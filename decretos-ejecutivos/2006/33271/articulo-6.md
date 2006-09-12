@@ -1,0 +1,1 @@
+Artículo 6º—Las instituciones centralizadas y descentralizadas, podrán colaborar con el Consejo, en todo aquello que éste les solicite, para el cumplimiento de sus fines, así como con el suministro de equipo, material y recursos humanos en la forma que al respecto convenga. Para los efectos correspondientes el Titular de la Cartera suscribirá los convenios que se requieran.
