@@ -14,3 +14,4 @@ Reglamento a la Ley de la Administración Financiera de la República y Presupue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-18 | la propia norma |
+| 2 | 2006-09-12 | Decreto Ejecutivo 33414 (2006-09-12) |
