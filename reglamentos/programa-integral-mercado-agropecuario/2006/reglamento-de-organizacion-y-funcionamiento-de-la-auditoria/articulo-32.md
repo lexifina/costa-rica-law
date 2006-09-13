@@ -1,0 +1,1 @@
+Artículo 32.—Papeles de trabajo. El producto final de los servicios de auditoría y los servicios preventivos deben contar con el respaldo representado por los papeles de trabajo, debidamente identificados, referenciados, numerados y firmados por el auditor responsable del servicio, así como del supervisor.

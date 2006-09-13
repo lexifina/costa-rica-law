@@ -1,0 +1,1 @@
+Artículo 21.—Plan Estratégico. El Auditor Interno debe planificar las actividades de fiscalización del universo auditable con una proyección de mediano y largo plazo, de acuerdo con los objetivos estratégicos y con los resultados de la evaluación del riesgo institucional.

@@ -1,0 +1,1 @@
+Artículo 3º—Marco jurídico y técnico. La Auditoría Interna se regirá de acuerdo con la Ley General de Control de Interno, la Ley Orgánica de la Contraloría General de la República, las disposiciones, normas, políticas y directrices que emitan la Contraloría General de la República y el Gobierno de la República, en materia de control interno y ética.

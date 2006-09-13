@@ -1,0 +1,1 @@
+Artículo 42.—Cumplimiento del marco normativo. Los funcionarios de la Auditoría Interna deberán actuar con estricto apego al bloque de legalidad; sea con respeto absoluto de la Constitución Política, las leyes y las demás disposiciones del sistema normativo patrio e institucional.
