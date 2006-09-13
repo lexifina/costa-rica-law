@@ -1,0 +1,2 @@
+Artículo 10.—Del Subauditor Interno. La Auditoría Interna contará con un Subauditor Interno que suplirá al Auditor Interno en sus ausencias temporales.
+El Subauditor Interno, apoya al Auditor Interno en el cumplimiento de sus funciones, de acuerdo con las labores que éste le asigne y responde ante él por su gestión. Responde ante el Ministro cuando sustituye al Auditor Interno en sus ausencias temporales.
