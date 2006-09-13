@@ -1,0 +1,1 @@
+Artículo 4º—La modificación parcial de la finalidad de la ampliación al gasto presupuestario para el año 2006 establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), indicada en los Decretos Ejecutivos Nº 32526-H y Nº 32895-H, rige a partir de su publicación.

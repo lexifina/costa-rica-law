@@ -1,0 +1,1 @@
+Artículo 3º—Modifícase el gasto presupuestario máximo del año 2007 establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1º del Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 del 30 de marzo del 2006, fijándolo en ¢3.565.300.000 millones (tres mil quinientos sesenta y cinco millones trescientos mil colones).
