@@ -14,3 +14,4 @@ Crea Comisión Nacional para la Prevención de la Violencia y Promoción de la P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-07 | la propia norma |
+| 2 | 2006-09-14 | Decreto Ejecutivo 33453 (2006-09-14) |
