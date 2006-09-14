@@ -1,0 +1,1 @@
+Artículo 3º—Decretada la inhabilitación por la Junta Directiva General, la Dirección Ejecutiva procederá a su comunicación mediante la publicación en el Diario Oficial La Gaceta y, posteriormente, en un diario de circulación nacional. La aplicación de la inhabilitación surtirá efectos jurídicos a partir del día siguiente de la última publicación.

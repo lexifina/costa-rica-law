@@ -1,0 +1,1 @@
+Artículo 4º—Si alguno de los miembros inhabilitados por la Junta Directiva General, con vista de los reportes de la Administración, cancelara las cuotas adeudadas antes de las publicaciones indicadas en el artículo anterior, no le será aplicada la inhabilitación, pero deberá la Dirección Ejecutiva comunicarlo a la Junta Directiva General en la próxima sesión que se celebre.

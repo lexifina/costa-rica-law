@@ -1,0 +1,1 @@
+Artículo 2º—La administración del CFIA preparará un reporte con los miembros morosos, de conformidad con las formas de pago establecidas en el artículo 100 del Reglamento Interior General, que serán conocidos por la Junta Directiva General en la siguiente sesión.
