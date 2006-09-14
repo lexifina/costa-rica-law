@@ -6,9 +6,10 @@ Considerando:
 3º—Que es deber del Registro Nacional proteger la información personal de los administrados que se encuentre dentro de las bases de datos integrantes de los diferentes Registros. Por esta razón, deben establecerse procedimientos claros para la venta y transmisión de los datos contenidos en las bases de datos del Registro Nacional.
 4º—Que la costumbre administrativa del Registro Nacional ha sido vender las bases de datos sin que exista un procedimiento claro, por lo que se hace necesario definir los principios generales para realizar las ventas de bases de datos. Por tanto:
 ACUERDA:
-REGLAMENTO PARA LA VENTA DE INFORMACIÓN
-CONTENIDA EN LAS BASES DE DATOS
+NOTA: El texto de este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 35 del 14 de setiembre de 2006 y publicado en La Gaceta N° 192 del 6 de octubre de 2006, por lo que se reproduce a continuación:
+REGLAMENTO PARA LA VENTA DE DATOS
 DEL REGISTRO NACIONAL
 CAPÍTULO PRIMERO
-Condiciones generales
-Artículo 1º—Objeto. El presente Reglamento tiene por objeto regular el procedimiento para la venta de información estadística contenida en las bases de datos del Registro Nacional, en procura de que la información que es trasladada a los particulares en las bases de datos no contenga información personal de los administrados.
+Aspectos generales
+Artículo 1º—Objeto. El presente Reglamento tiene por objeto regular el procedimiento para la venta de datos de las bases del Registro Nacional, en procura de la seguridad de los datos personales de los administrados, la seguridad e integridad de los sistemas de información y sitio de Internet del Registro y el acceso de los usuarios en forma oportuna y expedita.
+El presente Reglamento no aplica para la venta de los reportes individuales o de certificaciones de asientos registrales en las diversas sedes y oficinas autorizadas.

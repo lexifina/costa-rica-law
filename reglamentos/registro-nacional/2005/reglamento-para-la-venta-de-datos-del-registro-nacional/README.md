@@ -14,3 +14,4 @@ Reglamento para la Venta de Datos del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-26 | la propia norma |
+| 2 | 2006-09-14 | Reglamento 35 (2006-09-14) |
