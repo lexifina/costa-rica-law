@@ -14,5 +14,6 @@ Considerando:
 9°—Que la prevención de la violencia requiere prioritariamente el desarrollo de procesos de educación y formación permanentes, que posibiliten el cuestionamiento y búsqueda de alternativas ante los patrones socioculturales que justifican y promueven la violencia, con miras a fomentar una cultura de prevención.
 10.—Que las acciones preventivas deben dirigirse a fomentar la creación de estrategias de trabajo en y con las comunidades a partir de sus necesidades y problemáticas prioritarias, desde las organizaciones e instituciones existentes, con miras a promover la democratización participativa. Por tanto,
 decretan:
-CREACIÓN DE LA DIRECCIÓN NACIONAL DE PREVENCIÓN DE LA VIOLENCIA Y EL DELITO
-Artículo 1°—Créase la Dirección Nacional de Prevención de la Violencia y el Delito, en adelante "Dirección de Prevención", como una dependencia del Ministerio de Justicia y Gracia, encargada de promover políticas preventivas a nivel nacional relacionadas con la violencia y el delito.
+CREACIÓN DE LA DIRECCIÓN GENERAL PARA LA PROMOCION DE LA PAZ Y LA CONVIVENCIA CIUDADANA
+Artículo 1°—Créase la Dirección General para la Promoción de la Paz y la Convivencia Ciudadana, en adelante "Dirección General para la Promoción de la Paz y la Convivencia Ciudadana", como una dependencia del Ministerio de Justicia y Gracia, encargada de promover políticas preventivas a nivel nacional relacionadas con la violencia y el delito.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33453 del 14 de setiembre del 2006)

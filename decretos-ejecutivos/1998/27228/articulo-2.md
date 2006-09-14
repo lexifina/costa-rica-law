@@ -1,1 +1,2 @@
-Artículo 2°—La Dirección de Prevención estará conformada por una Dirección Ejecutiva y un equipo de profesionales asesores/as especializados/as en materia de prevención de la violencia y el delito, sin perjuicio de las modificaciones organizativas que sean necesarias en el futuro.
+Artículo 2°—La Dirección General para la Promoción de la Paz y la Convivencia Ciudadana estará conformada por una Dirección Ejecutiva y un equipo de profesionales asesores/as especializados/as en materia de prevención de la violencia y el delito, sin perjuicio de las modificaciones organizativas que sean necesarias en el futuro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33453 del 14 de setiembre del 2006)

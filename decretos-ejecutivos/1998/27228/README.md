@@ -14,3 +14,4 @@ Creación de la Dirección Nacional de Prevención de la Violencia y el delito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-01 | la propia norma |
+| 2 | 2006-09-14 | Decreto Ejecutivo 33453 (2006-09-14) |
