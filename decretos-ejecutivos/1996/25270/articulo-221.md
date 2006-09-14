@@ -1,2 +1,2 @@
-Artículo 221.—Defectos en la transmisión del manifiesto de carga
-La aduana de ingreso no dará el tramite correspondiente a la transmisión de la información del manifiesto de carga que no cumpla con los requerimientos técnicos de transmisión, sin perjuicio de las sanciones que fueren aplicables.
+Artículo 221.—Defectos en la transmisión del manifiesto de carga o Declaración de Tránsito Internacional Terrestre. La aduana de ingreso no dará el trámite correspondiente a la transmisión de la información del manifiesto de carga o declaración aduanera de tránsito internacional terrestre que no cumpla con los requerimientos técnicos de transmisión, sin perjuicio de las sanciones que fueren aplicables.
+(Así reformado por el artículo 2 del decreto ejecutivo N° 33359 del 14 de setiembre de 2006)

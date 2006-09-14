@@ -32,3 +32,4 @@ Reglamento a la Ley General de Aduanas
 | 17 | 2005-10-25 | Decreto Ejecutivo 32747 (2005-10-25) |
 | 18 | 2006-02-08 | Decreto Ejecutivo 32935 (2006-02-08) |
 | 19 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
+| 20 | 2006-09-14 | Decreto Ejecutivo 33359 (2006-09-14) |
