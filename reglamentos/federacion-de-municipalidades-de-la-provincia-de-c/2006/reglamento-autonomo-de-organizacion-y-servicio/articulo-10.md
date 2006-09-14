@@ -1,0 +1,2 @@
+Artículo 10.—Función de los principios éticos del servidor público de la Federación.
+El servicio público debe inspirar la confianza de los ciudadanos para fortalecer la credibilidad en el gobierno y sus gestores e instituciones. Los principios éticos del servicio público, tienen como función esa confianza, para facilitar a los asociados en el cumplimiento de los diversos fines estatales en beneficio de la comunidad.

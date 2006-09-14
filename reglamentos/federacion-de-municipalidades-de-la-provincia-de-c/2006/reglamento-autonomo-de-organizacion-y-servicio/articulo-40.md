@@ -1,0 +1,1 @@
+Artículo 40.—El disfrute del período vacacional se suspende si, durante el mismo, el servidor es incapacitado por la Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros o el médico de empresa en caso de que existiera.

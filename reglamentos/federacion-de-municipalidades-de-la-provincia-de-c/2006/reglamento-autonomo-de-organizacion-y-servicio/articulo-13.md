@@ -1,0 +1,1 @@
+Artículo 13.—La Federación, mantendrá actualizado un Manual de Organización y Funcionamiento, cuya aplicación será responsabilidad del Director (a) Ejecutivo, conforme lo establece el artículo 121 del Código Municipal.

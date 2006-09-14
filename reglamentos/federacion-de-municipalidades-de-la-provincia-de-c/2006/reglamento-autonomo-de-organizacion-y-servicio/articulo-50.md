@@ -1,0 +1,1 @@
+Artículo 50.—Los funcionarios contratados en propiedad a plazo fijo, podrán beneficiarse con cualquier plus salarial correspondiente, por lo que la Dirección Ejecutiva, implementará, los mismos acorde a las disposiciones técnicas y legales que corresponden, tales como reconocimiento de anualidades, prohibición, dedicación exclusiva y otros.

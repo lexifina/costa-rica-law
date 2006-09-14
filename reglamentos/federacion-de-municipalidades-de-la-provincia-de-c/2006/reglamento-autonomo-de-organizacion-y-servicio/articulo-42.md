@@ -1,0 +1,1 @@
+Artículo 42.—La Dirección Ejecutiva, señalará la época en que los funcionarios (as) disfrutarán sus vacaciones, tratando de que no se altere la buena marcha de las funciones encomendadas, ni que sufra menoscabo la efectividad del descanso, la fijación deberá hacerla dentro de las quince semanas siguientes al día en que se cumpla el derecho de disfrutar sus vacaciones.

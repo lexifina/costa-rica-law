@@ -1,0 +1,1 @@
+Artículo 80.—Las sanciones descritas en este capítulo, serán aplicadas por la Dirección Ejecutiva o quien esta designe para tal fin, conforme al procedimiento que establece este Reglamento, y lo estipulado en los artículo 149 y 150 del Código Municipal y cualquier otra norma expresa, referente a la materia.
