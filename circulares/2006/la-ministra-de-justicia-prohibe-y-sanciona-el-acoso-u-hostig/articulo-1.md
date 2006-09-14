@@ -1,0 +1,4 @@
+MINISTERIO DE JUSTICIA Y GRACIA
+MINISTERIO DE JUSTICIA Y ÓRGANOS DESCONCENTRADOS
+La Ministra de Justicia recuerda a todos los funcionarios del Ministerio de Justicia y órganos desconcentrados adscritos que la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia (Nº 7476 de 3 de febrero de 1995) prohíbe y sanciona el acoso u hostigamiento sexual como una práctica discriminatoria por razón del sexo, contra la dignidad de la mujer y del hombre en las relaciones laborales y de docencia. Asimismo advierte y deja constancia que en su condición de máxima instancia disciplinaria laboral, la práctica comprobada de acoso u hostigamiento sexual, sobre todo en los casos y situaciones donde medie abuso de posiciones de poder, ha sido y será sancionada con el máximo rigor del ordenamiento jurídico.
+Publíquese.
