@@ -1,0 +1,1 @@
+Artículo 9º—Sobre la comunicación de los resultados: Los resultados del concurso serán comunicados a los participantes por el Departamento de Gestión del Potencial Humano. Contra esta comunicación podrá interponerse el recurso de revocatoria, el de apelación o ambos, de conformidad con lo que establece la Ley General de la Administración Pública.

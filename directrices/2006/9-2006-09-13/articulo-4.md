@@ -1,0 +1,1 @@
+Artículo 4º—Sobre los requisitos de conocimientos complementarios y habilidades: El Departamento de Gestión del Potencial Humano deberá definir y aplicar los predictores de selección que garanticen el cumplimiento de los requisitos que contempla la resolución de la Contraloría General de la República L-1-2003-CO-DDI supra citado.
