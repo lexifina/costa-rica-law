@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento del Fondo de Caja Chica.
 | --- | --- | --- |
 | 1 | 1999-08-06 | la propia norma |
 | 2 | 2002-01-14 | Reglamento municipal 341 (2002-01-14) |
+| 3 | 2006-09-18 | Reglamento municipal 39 (2006-09-18) |
