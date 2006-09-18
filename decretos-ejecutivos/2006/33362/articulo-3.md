@@ -1,0 +1,1 @@
+Artículo 3º—Los funcionarios de la Administración Pública deberán colaborar con las actividades indicadas revisando los centros de trabajo y destruyendo cualquier posibilidad de desarrollo del vector.

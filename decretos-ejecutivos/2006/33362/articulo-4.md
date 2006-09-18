@@ -1,0 +1,1 @@
+Artículo 4º—Se insta a todos los habitantes del país a unirse a la campaña que han emprendido el Ministerio de Salud y la Caja Costarricense de Seguro Social y realizar labores de limpieza en sus casas de habitación, comunidades y demás sitios públicos, tales como vías públicas, parques, sitios de recreo, entre otros.
