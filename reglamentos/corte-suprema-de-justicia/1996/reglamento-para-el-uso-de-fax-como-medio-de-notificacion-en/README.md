@@ -14,3 +14,4 @@ Reglamento para el uso de fax como medio de Notificación en los Despachos Judic
 | --- | --- | --- |
 | 1 | 1996-12-11 | la propia norma |
 | 2 | 2001-07-02 | Reglamento 22 (2001-07-02) |
+| 3 | 2006-09-18 | Circular 127 (2006-09-18) |

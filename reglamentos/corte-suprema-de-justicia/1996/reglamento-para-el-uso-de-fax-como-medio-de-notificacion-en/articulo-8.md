@@ -1,2 +1,2 @@
-Artículo 8°.—Quien deba realizar la notificación hará un mínimo de cinco intentos, con intervalos de al menos 10 minutos, para enviar el fax al número señalado, de los cuales se dejará constancia en el expediente, con especificación de día y hora.
-Cuando el destinatario se comunicare con la Oficina Centralizada de Notificaciones o con el Despacho Judicial respectivo que emitió la notificación vía fax, para ratificar su envío, éstos estarán obligados a suministrar la información requerida.
+Artículo 8°.—Quien deba realizar la notificación hará un mínimo de cinco intentos, con intervalos de al menos 30 minutos cada uno, para enviar el fax al número señalado, de los cuales se dejará constancia en el expediente, con especificación de día y hora.
+(Así reformado mediante circular N° 127 del 18 de setiembre del 2006).
