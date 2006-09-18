@@ -1,0 +1,1 @@
+Artículo 9º—La presente declaratoria de emergencia se mantendrá vigente durante el plazo que el Poder Ejecutivo disponga, según los informes que sean emitidos por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, siempre que la fase de conclusión no supere los cinco años.
