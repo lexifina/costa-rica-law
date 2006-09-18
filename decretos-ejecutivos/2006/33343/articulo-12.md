@@ -1,0 +1,1 @@
+Artículo 12.—Solicitud de nueva exención. Para solicitar una exención para la compra de un vehículo, el beneficiario deberá presentar los requisitos establecidos en el artículo octavo del presente Reglamento. Asimismo deberá adjuntar copia certificada de la declaración aduanera de liquidación correspondiente.

@@ -1,0 +1,1 @@
+Transitorio I. En caso de que los beneficiarios de los vehículos exonerados adquiridos al amparo del artículo 36 inciso 15) de la Ley 7040 del 25 de abril de 1986, pretendan acogerse al beneficio otorgado por la Ley N° 8444, deberán en forma previa proceder a la liquidación de los tributos dispensados.

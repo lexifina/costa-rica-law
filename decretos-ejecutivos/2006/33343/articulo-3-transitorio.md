@@ -1,0 +1,2 @@
+Transitorio III.—Con el objeto de unificar bajo la simbología internacional la identificación de los vehículos utilizados por personas con discapacidad, los beneficiarios deberán gestionar, en el término de un mes contados a partir de la conclusión del trámite de elaboración de las placas con el nuevo distintivo, por parte del Registro Público de la Propiedad Mueble, la asignación de las correspondientes placas.
+Dado en la Presidencia de la República.—San José, a los diecinueve días del mes de mayo del dos mil seis.
