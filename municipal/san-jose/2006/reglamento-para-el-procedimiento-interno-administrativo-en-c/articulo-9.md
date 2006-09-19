@@ -1,0 +1,1 @@
+Artículo 9º—De la ratificación de la denuncia: Instalado el Órgano Director, procederá a comunicar de inmediato al denunciante, o la denunciante, que cuenta con tres días hábiles, para que aclare o amplíe la denuncia, lo cual podrá hacer en forma verbal o escrita.
