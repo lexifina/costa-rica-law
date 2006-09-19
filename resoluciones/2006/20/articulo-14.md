@@ -1,0 +1,5 @@
+SECCIÓN V
+Retenciones realizadas por emisores públicos y privados,
+distintos a la Tesorería Nacional
+Artículo 14.—Deber de información de las centrales de valores y acreditación de los inversionistas. En el caso de retenciones indebidas, efectuadas sobre las rentas descritas en los incisos c) y c bis) del artículo 23 de la Ley Nº 7092, Ley del Impuesto sobre la Renta, por emisores de títulos valores, públicos y privados, distintos a la Tesorería Nacional, las Centrales de Valores, como responsables de administrar el registro de emisiones, deberán informar a dichos emisores, de aquellos tenedores de títulos, exentos de la retención de impuestos sobre los intereses, dividendos, ganancias de capital y cualquier otro beneficio generado.
+Para los efectos del párrafo anterior, los inversionistas están obligados a suministrar a las Centrales de Valores, los documentos que acrediten su condición de exento. En el caso específico de las Operadoras de Pensiones, deberán indicar bajo fe de juramento, el porcentaje de la inversión que corresponde a fondos del aporte obrero, debido a que es sobre este que corresponde la exención.

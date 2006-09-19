@@ -1,0 +1,4 @@
+Artículo 6º—Efectos del incumplimiento del requerimiento de información.
+a) Respecto al agente de retención, el incumplimiento total o parcial del requerimiento de información por parte de un agente de retención dará lugar a que el órgano que efectuó la prevención inicie el procedimiento sancionador conforme al artículo 83 del Código de Normas y Procedimientos Tributarios, salvo que el agente esté adscrito a otra Administración Tributaria, en cuyo caso, remitirá al área de Gestión de dicha Administración la propuesta motivada.
+Asimismo, se remitirá al área de Gestión competente solicitud de efectuar determinación previa sobre el agente de retención.
+b) Respecto a la solicitud de devolución, esta se resolverá conforme a la prueba que conste en los registros de la Administración Tributaria, sin perjuicio de que, si posteriormente se llegase a comprobar una omisión del ingreso por parte del agente, se efectúe la devolución de oficio o a solicitud de interesado.

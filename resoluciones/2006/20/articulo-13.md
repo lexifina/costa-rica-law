@@ -1,0 +1,1 @@
+Artículo 13.—Las sumas retenidas indebidamente serán devueltas por la Tesorería Nacional conforme al mecanismo indicado en el artículo 11, a las Centrales de Valores, quienes estarán obligadas a devolver a cada inversionista el monto que le corresponda a más tardar el día siguiente de recibido el depósito.

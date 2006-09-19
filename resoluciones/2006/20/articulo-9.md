@@ -1,0 +1,2 @@
+Artículo 9º—En el caso del artículo anterior, el agente de retención debe efectuar el reintegro de lo retenido indebidamente al contribuyente, de acuerdo con lo que establece el artículo 24 del Código de Normas y Procedimientos Tributarios.
+En caso de que el importe retenido indebidamente ya hubiere sido ingresado al Fisco, el agente retenedor deberá modificar la declaración presentada, generando un crédito a su favor, con la excepción que se señala para la Tesorería Nacional en el artículo 11.
