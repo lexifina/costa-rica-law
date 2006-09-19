@@ -14,3 +14,4 @@ Adopción del Reglamento de Zonificación de los Planes Reguladores de las Playa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-18 | la propia norma |
+| 2 | 2006-09-19 | Reglamento municipal 38 (2006-09-19) |
