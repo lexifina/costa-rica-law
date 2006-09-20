@@ -26,3 +26,4 @@ Reglamento a la Ley de Régimen de Zonas Francas.
 | 11 | 2006-06-06 | Decreto Ejecutivo 33204 (2006-06-06) |
 | 12 | 2006-06-20 | Decreto Ejecutivo 33291 (2006-06-20) |
 | 13 | 2006-07-07 | Decreto Ejecutivo 33283 (2006-07-07) |
+| 14 | 2006-09-20 | Decreto Ejecutivo 33360 (2006-09-20) |
