@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización Comité Cantonal de Deportes y Recreación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-20 | la propia norma |
+| 2 | 2006-09-20 | Reglamento municipal 21 (2006-09-20) |

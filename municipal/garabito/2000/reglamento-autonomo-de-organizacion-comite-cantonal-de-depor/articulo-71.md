@@ -1,1 +1,1 @@
-Artículo 71.—La convocatoria a estas asambleas deberá realizarse con por lo menos quince días naturales de anticipación y el Comité Cantonal queda facultado a realizarlo de manera directa o por una publicación en un diario de circulación nacional. Con la convocatoria a la asamblea debe especificarse la agenda, el lugar, día y hora exacta de realización de la misma.
+Artículo 71.—(Así derogado mediante sesión N° 21 del 20 de setiembre del 2006).
