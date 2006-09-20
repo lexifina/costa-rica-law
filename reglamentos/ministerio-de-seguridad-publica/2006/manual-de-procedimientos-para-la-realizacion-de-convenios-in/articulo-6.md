@@ -1,0 +1,1 @@
+Artículo 6º—Una vez que el convenio haya sido firmado por el Ministro de Seguridad Pública y el máximo jerarca de la institución interesada y debidamente refrendado, se deberá remitir copia a la Dirección de Vigilancia Aérea y a la Auditoria Interna del Ministerio de Seguridad Pública.

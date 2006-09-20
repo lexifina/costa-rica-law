@@ -1,0 +1,1 @@
+Artículo 2º—Cualquier convenio que se realice entre el Ministerio de Seguridad Pública y otra Institución de Gobierno, relacionado con la prestación de servicios de transporte aéreo deberá ser firmado por el Ministro de esta Cartera y el máximo jerarca de la institución solicitante.

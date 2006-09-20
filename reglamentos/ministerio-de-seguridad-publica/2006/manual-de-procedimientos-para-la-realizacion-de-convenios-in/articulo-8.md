@@ -1,0 +1,1 @@
+Artículo 8º—La Asesoría Jurídica del Ministerio de Seguridad Pública, en su carácter de órgano asesor del Ministerio, será la unidad responsable de elaborar los convenios entre el Ministerio de Seguridad Publica y otras instituciones de Gobierno, para servicios de transporte aéreo remunerado, así como de otorgar el refrendo interno de aquellos cuando así corresponda.

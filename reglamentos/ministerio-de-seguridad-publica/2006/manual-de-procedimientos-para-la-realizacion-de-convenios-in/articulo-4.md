@@ -1,0 +1,1 @@
+Artículo 4º—Previa suscripción de un convenio, la Dirección del Servicio de Vigilancia Aérea suministrara al Despacho del Ministro la información necesaria sobre el estado de las aeronaves y emitirá su criterio técnico con la intención de que el Ministro tome decisiones técnicamente sustentadas.

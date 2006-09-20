@@ -1,0 +1,1 @@
+Artículo 7º—Los convenios tendrán una vigencia de un año, pudiendo ser prorrogado por tres períodos iguales, en forma tácita, operando automáticamente la prórroga si ninguna de las partes da aviso en contrario a la otra con al menos tres meses de antelación al vencimiento del período respectivo, lo cual deberá hacerse por escrito.
