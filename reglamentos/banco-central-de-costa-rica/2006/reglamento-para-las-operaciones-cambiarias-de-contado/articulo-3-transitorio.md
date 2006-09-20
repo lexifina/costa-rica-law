@@ -1,0 +1,3 @@
+Transitorio 3.—El plazo para que las Casas de Cambio, que hayan sido autorizadas a la fecha de publicación de este Reglamento, ajusten su capital social mínimo al monto establecido en este Reglamento será de 60 días naturales contados a partir de esa fecha.
+Vigencia y Derogatorias
+Este Reglamento rige a partir del día hábil siguiente a su publicación en el Diario Oficial La Gaceta y deroga el Reglamento para las Operaciones Cambiarias aprobado por la Junta Directiva del Banco Central de Costa Rica en su Sesión 4920-97, Artículo 5, Numeral 1, celebrada el 13 de agosto de 1997, y sus reformas, así como las demás normas jurídicas dictadas por ese Directorio en materia cambiaria, que se opongan a las disposiciones de esta reglamentación.

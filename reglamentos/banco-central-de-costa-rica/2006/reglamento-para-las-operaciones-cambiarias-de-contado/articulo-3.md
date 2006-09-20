@@ -1,0 +1,5 @@
+Artículo 3º—Información por suministrar. Todas las entidades autorizadas a participar en el mercado cambiario deberán suministrar al Banco Central de Costa Rica la siguiente información sobre sus operaciones en el mercado cambiario, conforme se establezca en el instructivo que emitirá esta Institución:
+a) Los tipos de cambio para la compra y para la venta de monedas extranjeras anunciados en ventanilla.
+b) Los montos en moneda nacional y extranjera expresados en dólares de los Estados Unidos de América, de las compras y las ventas de monedas extranjeras realizadas.
+c) El saldo y la variación de su posición propia en divisas tanto efectiva como autorizada. Se entenderá como posición propia efectiva la diferencia entre los activos y los pasivos totales en moneda extranjera de la entidad a la fecha. La posición propia autorizada es aquella posición propia efectiva que cumple con las normas en cuanto a su límite global y a su variación diaria máxima permitida, según lo establece este Reglamento.
+Esa información será remitida también a los órganos fiscalizadores que corresponda cuando éstos lo requieran.

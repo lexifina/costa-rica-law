@@ -1,0 +1,15 @@
+BANCO CENTRAL DE COSTA RICA
+REGLAMENTO PARA LAS OPERACIONES
+CAMBIARIAS DE CONTADO
+La Junta Directiva del Banco Central de Costa Rica, mediante numeral II, Artículo 6 del Acta de la Sesión 5293-2006, celebrada el 30 de agosto del 2006, dispuso lo siguiente:
+Con respecto al “Reglamento para las Operaciones Cambiarias de Contado” (ROCC) remitido por el Comité de Flexibilidad Cambiaria, mediante el documento DIE-DM-DAJ-DGAP-39-2006-M del 10 de agosto del 2006,
+considerando que:
+1. El Artículo 86 de la Ley Orgánica establece que la Junta Directiva del Banco Central dictará las regulaciones sobre procedimientos y requisitos a los que deben someterse las entidades autorizadas para negociar divisas, tanto las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras, expresamente mencionadas por la Ley, como los entes y empresas que puede autorizar específicamente la Junta Directiva del Banco Central.
+2. El Banco Central debe favorecer las condiciones para la operación del mercado cambiario, en especial procurar que la normativa cambiaria sea concordante con las modificaciones que ha sufrido el entorno y coadyuvar a una gestión más eficiente del Banco Central en la dirección de la política monetaria y cambiaria que le impone su Ley Orgánica.
+3. El Banco Central considera que los intermediarios del mercado cambiario deben contar con una mayor libertad en la gestión de las posiciones propias en moneda extranjera que puedan asumir, a fin de procurar una mejor administración de los riesgos cambiarios y una mayor flexibilidad de su accionar en el mercado. Asimismo, considera conveniente corregir la asimetría que representa la posibilidad de que esas entidades puedan vender divisas directamente al Banco Central sin estar sujetos a la variación diaria máxima permitida en la posición autorizada en divisas.
+4. El Banco Central debe fortalecer los flujos de información hacia la Institución para un mejor seguimiento del mercado así como la comunicación de los tipos de cambio de compra y venta al público para una formación de precios más eficiente en el mercado de moneda extranjera. dispuso: aprobar el “Reglamento para las Operaciones Cambiarias de Contado”, de conformidad con el texto que se inserta de inmediato:
+REGLAMENTO PARA LAS OPERACIONES
+CAMBIARIAS DE CONTADO
+CAPÍTULO I
+Objetivo
+Artículo 1º—Objetivo. El presente reglamento tiene como objetivo establecer las normas que regulan las operaciones de compra y de venta de monedas extranjeras al contado con colones costarricenses en el mercado cambiario nacional y a los sujetos que las realizan como parte del giro normal de su negocio con el propósito de obtener un lucro derivado de la intermediación en dicho mercado, de conformidad con lo dispuesto en la Ley Orgánica del Banco Central de Costa Rica, Ley Nº 7558, del 27 de noviembre de 1995.

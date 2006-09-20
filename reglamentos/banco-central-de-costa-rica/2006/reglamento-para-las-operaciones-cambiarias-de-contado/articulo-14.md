@@ -1,0 +1,1 @@
+Artículo 14.—Fiscalización. La SUGEVAL fiscalizará las operaciones cambiarias de los Puestos de Bolsa y verificará que cada uno cumpla con las disposiciones establecidas en el presente Reglamento. Para tal efecto realizará las inspecciones que considere oportunas, así como requerir todos los informes que sean necesarios.

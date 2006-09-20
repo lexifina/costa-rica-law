@@ -1,0 +1,1 @@
+Transitorio 2.—El plazo para que los Puestos de Bolsa, que hayan sido autorizados a la fecha de publicación de este Reglamento, ajusten su garantía al monto mínimo establecido en este Reglamento será de 60 días naturales contados a partir de esa fecha.
