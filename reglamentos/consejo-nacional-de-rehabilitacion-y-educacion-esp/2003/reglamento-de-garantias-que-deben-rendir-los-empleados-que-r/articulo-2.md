@@ -1,1 +1,0 @@
-Artículo 2º—Para los efectos de este Reglamento, fondos públicos son los recursos, valores, bienes y derechos propiedad del Estado y en particular del CNREE, de acuerdo con lo indicado en el artículo 9º de la Ley Orgánica de la Contraloría General de la República N° 7428.
