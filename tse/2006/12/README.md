@@ -14,3 +14,4 @@ Integración de las Juntas Cantonales para las elecciones municipales 2006
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-18 | la propia norma |
+| 2 | 2006-09-22 | Decreto TSE 13 (2006-09-22) |
