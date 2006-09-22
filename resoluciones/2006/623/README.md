@@ -14,3 +14,4 @@ Especificaciones para que los concesionarios del Depósito Libre Comercial de Go
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-11 | la propia norma |
+| 2 | 2006-09-22 | Resolución 722 (2006-09-22) |
