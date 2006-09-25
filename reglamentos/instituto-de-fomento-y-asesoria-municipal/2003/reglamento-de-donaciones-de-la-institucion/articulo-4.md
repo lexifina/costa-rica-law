@@ -1,1 +1,1 @@
-Artículo 4º—Toda solicitud de donación deberá ir acompañada de la descripción detallada y finalidad del proyecto.
+Artículo 4º—La Junta Directiva determinará la procedencia o no de la solicitud de donación o bien de modificación de destino, emitiendo la respectiva instrucción a la Administración para que en su caso, se realice el trámite pertinente, para esto en donde se exprese su voluntad para el respectivo trámite y las condiciones que deben cumplirse para ser beneficiario de la donación solicitada.

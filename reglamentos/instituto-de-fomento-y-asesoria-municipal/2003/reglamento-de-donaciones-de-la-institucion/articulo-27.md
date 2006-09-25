@@ -1,1 +1,1 @@
-Artículo 27.—La recomendación a que se refiere el artículo anterior, será sometida a consideración de la Comisión Técnica y elevada a la Junta Directiva para su conocimiento y resolución.
+Artículo 27.—Toda solicitud de donación en esta modalidad deberá indicar, de manera clara y puntual, en qué consiste el servicio solicitado y la razón que da origen a la misma.

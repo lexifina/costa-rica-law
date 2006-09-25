@@ -1,1 +1,2 @@
-Artículo 39.—En todos los casos que suponga la administración de recursos públicos, la entidad beneficiaria deberá cumplir lo dispuesto en la Ley de la Administración Financiera y Presupuestos Públicos y Ley de la Contratación Administrativa y su Reglamento.
+Artículo 39.—En todos los casos en que se administren recursos públicos, la entidad beneficiaria deberá observar y cumplir con lo que al respecto señala el bloque de legalidad.”
+Moravia, 12 de octubre del 2006.

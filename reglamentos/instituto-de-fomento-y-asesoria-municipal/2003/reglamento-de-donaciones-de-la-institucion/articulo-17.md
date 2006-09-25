@@ -1,3 +1,3 @@
 CAPÍTULO III
-De la donación de activos y material didáctico
-Artículo 17.—La solicitud deberá especificar claramente las características de los bienes que interesan en la donación.
+Seguimiento y supervisión de los recursos donados en dinero
+Artículo 17.—Tratándose de donaciones en dinero destinadas a proyectos específicos de obras, cada entidad beneficiaria deberá llevar el control correspondiente del avance físico y financiero, el cual servirá de base para la verificación del uso adecuado de los recursos donados para el proyecto, que por medio de sus unidades técnicas realizará el IFAM conforme lo dispone el numeral 10 de este Reglamento. Como parte de dicho control, cada entidad beneficiaria deberá conformar un expediente relativo a cada donación, en el cual incluirá toda la documentación que respalde las gestiones que deben realizarse conforme se indica en el párrafo anterior.

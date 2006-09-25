@@ -1,1 +1,1 @@
-Artículo 12.—Para la aprobación de una donación en dinero por parte de la Junta Directiva, se requerirá un mínimo de cinco votos.
+Artículo 12.—En los casos en que proceda su trámite, la Sección de Crédito una vez efectuados los estudios correspondientes, por medio de la Dirección de Gestión Municipal, trasladará la solicitud mediante el documento denominado “informe de donación”, a conocimiento de la Comisión Técnica, para que ésta emita el respectivo dictamen.

@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la donación en dinero
-Artículo 6º—La solicitud de donación o modificación de destino, deberá ser acompañada de la descripción del presupuesto debidamente detallado, del plan de inversión, la finalidad y el plazo estimado de ejecución del proyecto.
+Artículo 6º—Las donaciones que conceda el IFAM se harán efectivas una vez cumplidos todos los trámites legales, presupuestarios y reglamentarios. En todos los casos se hará la formalización mediante convenios o contratos, registrables o no, los cuales serán suscritos, en el caso del IFAM por los titulares de la Presidencia Ejecutiva o Dirección Ejecutiva, y por la entidad beneficiaria, por su representante legal. En la respectiva formalización deberá incorporarse una cláusula que establezca el deber de cumplimiento de la entidad beneficiaria, de las disposiciones del presente Reglamento y del destino de la donación, así como el régimen de responsabilidad por los incumplimientos.

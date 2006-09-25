@@ -1,1 +1,1 @@
-Artículo 26.—La Dirección asignada para el análisis de la solicitud, determinará el costo del servicio, su plazo de ejecución, la disponibilidad de recursos y dará su recomendación, utilizando para ello los procedimientos técnicos establecidos.
+Artículo 26.—Toda solicitud será trasladada por la Presidencia o en su caso la Dirección Ejecutiva a la dependencia que corresponda, para su análisis y rendición del informe correspondiente

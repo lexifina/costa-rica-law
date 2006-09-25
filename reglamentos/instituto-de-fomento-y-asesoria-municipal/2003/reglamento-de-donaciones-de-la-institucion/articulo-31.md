@@ -1,1 +1,1 @@
-Artículo 31.—En la donación aprobada con restricciones, la entidad beneficiaria deberá ajustarse a los términos de la misma. En caso de no ser así, a reserva de la Junta Directiva del IFAM, queda la potestad de revocar la donación de que fue objeto la entidad incumpliente.
+Artículo 31.—Recibida la comunicación que aprueba la donación de servicios, la entidad beneficiaria deberá cumplir con las condiciones, trámites o requisitos de haberse estipulado así y que le haya solicitado previamente el IFAM.

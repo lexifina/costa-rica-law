@@ -14,3 +14,4 @@ Reglamento de Donaciones de la Institución
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-19 | la propia norma |
+| 2 | 2006-09-25 | Reglamento 3598 (2006-09-25) |

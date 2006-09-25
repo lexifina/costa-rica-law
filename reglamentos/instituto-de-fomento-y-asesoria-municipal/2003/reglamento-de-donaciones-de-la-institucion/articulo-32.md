@@ -1,1 +1,3 @@
-Artículo 32.—Una vez ejecutada la donación de servicios, el alcalde municipal, intendente municipal o representante de la entidad beneficiaria, deberá de presentar al IFAM el informe detallado de esta, debidamente aprobado por el respectivo órgano colegiado, en el término de un mes, de conformidad con los lineamientos que para tales efectos establezcan la unidad ejecutora del IFAM y la entidad beneficiaria. El informe deberá evidenciar que la ejecución corresponde al proyecto aprobado.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 32.—La entidad beneficiaria con una donación queda obligada a permitirle al IFAM realizar las inspecciones y verificaciones necesarias, con el fin de constatar el destino dado a los recursos financieros, bienes y servicios donados, para el cual fue otorgada. Para estos efectos también queda obligada a llevar el expediente correspondiente para cada una de este tipo de donaciones.

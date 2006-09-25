@@ -1,1 +1,1 @@
-Artículo 29.—Recibida la comunicación que aprueba la donación de servicios, la entidad interesada deberá cumplir con las condiciones, trámites o requisitos de haberse estipulado así que le haya solicitado el IFAM.
+Artículo 29.—La recomendación a que se refiere el artículo anterior, será sometida a consideración de la Comisión Técnica quien elevará su recomendación a la Junta Directiva para su conocimiento y resolución

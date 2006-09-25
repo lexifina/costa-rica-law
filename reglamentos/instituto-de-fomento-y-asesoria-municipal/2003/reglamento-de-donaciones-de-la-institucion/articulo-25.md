@@ -1,1 +1,3 @@
-Artículo 25.—Toda solicitud de donación en esta modalidad deberá indicar, de manera clara y puntual, en qué consiste el servicio solicitado y la razón que da origen a la misma.
+CAPÍTULO V
+Donación de servicios
+Artículo 25.—En Casos excepcionales a juicio de la Junta Directiva, previa recomendación de la Comisión Técnica, el IFAM podrá donar asistencia y asesoría técnica, para el diseño, ejecución, supervisión y evaluación de proyectos y para la realización de estudios específicos.
