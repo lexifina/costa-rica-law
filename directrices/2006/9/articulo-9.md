@@ -1,0 +1,1 @@
+Artículo 9º—El uso del APC en el trámite de aprobación de planos constructivos deberá estar implementado por cada dependencia gubernamental en un plazo máximo de seis meses, contado a partir de la publicación de esta directriz en el Diario Oficial.
