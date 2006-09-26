@@ -1,0 +1,1 @@
+Artículo 5º—Solicitud. Para hacer uso de los créditos referidos en este Reglamento el colegiado debe completar por escrito la fórmula que al efecto le proporcionará la Administración y será presentada a la Junta Directiva.
