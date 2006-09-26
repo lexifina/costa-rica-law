@@ -19,6 +19,8 @@ f) Someter al Consejo Directivo, la incorporación de nuevos negocios cuando és
 g) Someter a la consideración del Consejo Directivo, el nombramiento de los Directores de UEN's y Directores Administrativos.
 h) En general todas las que señalen la Ley de Presidencias Ejecutivas y su Reglamento.
 i) Ejercer la representación judicial y extrajudicial de la Institución.
+j) Someter a conocimiento y aprobación, del Consejo Directivo, en coordinación con la Gerencia General, el Plan Estratégico Institucional y Sectorial.
+(Así adicionado el inciso anterior mediante sesión N° 5759 del 26 de setiembre del 2006).
 Gerencia General. Es el órgano administrador general de la Institución y tendrá las siguientes competencias:
 a) Contribuir a fortalecer la integración estratégica de la Institución.
 b) Apoyar la gestión de las Subgerencias de la Institución y de sus UEN's y direcciones administrativas.
@@ -33,6 +35,8 @@ j) Fungir como Administrador General de la Institución.
 k) Ejecutar todas las funciones que le encomiende el Consejo Directivo y el Presidente Ejecutivo.
 l) Ejercer la Representación judicial y extrajudicial de la Institución.
 m) En general, todas las responsabilidades que le confiere el decreto Ley No 449.
+n) Someter a conocimiento y aprobación del Consejo Directivo, en coordinación con la Presidencia Ejecutiva, el Plan Estratégico Institucional y Sectorial.
+(Así adicionado el inciso anterior mediante sesión N° 5759 del 26 de setiembre del 2006).
 Auditoría
 a) Revisar los procesos contables, financieros, administrativos, operativos, informáticos y de otra naturaleza que se consideren pertinentes, aplicando las normas técnicas de Auditoría y otras disposiciones dictadas por la Contraloría General de la República.
 b) Evaluar la operación, integridad, suficiencia y validez de la estructura de control interno de la institución.

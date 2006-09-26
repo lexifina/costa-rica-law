@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización del Instituto Nacional de Eléctricidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-11 | la propia norma |
+| 2 | 2006-09-26 | Reglamento 5759 (2006-09-26) |
