@@ -1,0 +1,1 @@
+Artículo 3º—Forman parte del Fondo de Subsidio CPA quienes estén al día en sus obligaciones con el Colegio de Contadores Públicos de Costa Rica, lo que incluye la cuota de colegiatura ordinaria y extraordinaria.

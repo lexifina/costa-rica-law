@@ -1,0 +1,1 @@
+Artículo 7º—Dentro de las auditorias externas que contrate el Colegio para fiscalizar la buena marcha de sus finanzas, siempre se deberá realizar una auditoria al Fondo al finalizar el período económico, siendo el mismo del Colegio de Contadores Públicos de Costa Rica.
