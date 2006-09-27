@@ -14,3 +14,4 @@ Calendario Escolar 2006
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-17 | la propia norma |
+| 2 | 2006-09-27 | Circular 3555 (2006-09-27) |

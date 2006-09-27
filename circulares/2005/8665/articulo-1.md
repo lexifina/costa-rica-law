@@ -121,7 +121,14 @@ Mes de setiembre | Realización de las Ferias Circuitales y Regionales de Cienci
 OCTUBRE |
 1º de octubre | .Día Nacional de los Valores. Actividades escolares de fortalecimiento y vivencia de los valores humanos fundamentales. Se realizarán el lunes 2 de octubre
 2 de octubre | Día de la Cultura China. Decreto Ejecutivo Nº 31221-M.E.PM. C.J.D. Declárese el primer lunes del mes de octubre de cada año como “El Día de la Cultura China”.
-3 al 11 de octubre | Pruebas Nacionales de IX año.
+3 al 11 de octubre | Pruebas Nacionales de IX año. (Mediante circular DM-3555, se modifica la fecha de aplicación de las pruebas nacionales de IX, quedando de la siguiente manera:
+"3 de octubre del 2006: | Gramática y Literatura
+4 de octubre del 2006: | Matemáticas
+9 de octubre del 2006: | Estudios Sociales
+10 de octubre del 2006: | Ciencias
+11 de octubre del 2006: | Inglés
+12 de octubre del 2006: | Francés
+13 de octubre del 2006: | Educación Cívica")
 4 de octubre | Día Mundial de los Docentes. Resaltar la importante función social que desempeñan los educadores. Prueba comprensiva final de especialidades técnicas. Prueba escrita comprensiva para estudiantes de colegios técnicos profesionales opciones 1 y 2.
 6 de octubre | Día del Adulto Mayor.
 9 al 13 de octubre | Semana Nacional de Educación para la Prevención de Riesgos y Desastres. Decreto Ejecutivo Nº 32030-M.E.P. Se celebrará durante la segunda semana del mes de octubre de cada año.
