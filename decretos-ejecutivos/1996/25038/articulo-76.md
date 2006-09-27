@@ -1,7 +1,0 @@
-76.-
-Actividad contractual ordinaria
-76.1 Estamos en presencia de actividad contractual ordinaria cuando la prestación objeto del contrato constituya una actividad que se identifica con la prestación del servicio y el cumplimiento de los fines de la Administración respectiva. En estos casos, la actividad podrá desarrollarse dentro del marco legal y reglamentario respectivo, sin sujeción a los procedimientos ordinarios de contratación establecidos en la Ley y el presente Reglamento.
-76.2 En todo caso, será considerada como actividad ordinaria:
-76.2.1. La prestación de servicios públicos.
-(Mediante Resolución N° 6754-98 del 22 de setiembre de 1998 la Sala Constitucional indicó: "interprétese la definición de "actividad ordinaria" contenida en los artículos 2 de la Ley de la Contratación Administrativa, número 7494, de dos de mayo de mil novecientos noventa y cinco, reformada por Ley número 7612 de veintidós de julio de mil novecientos noventa y seis, así como en los artículos 76.1 y 76.2.1 del Reglamento General de la Contratación Administrativa, en el sentido de que se trata de la actividad o servicio que constituye la prestación última o final de la Administración que realiza frente al usuario o destinatario final, actividad o servicio que deben estar definidos previamente en la ley, y cuyo desarrollo puede hacerse mediante reglamento autónomo o de servicio, pero no ejecutivo.")
-76.2.2. ANULADO por Resolución de la Sala Constitucional Nº 6754-98 de las 15:36 horas del 22 de setiembre de 1998.
