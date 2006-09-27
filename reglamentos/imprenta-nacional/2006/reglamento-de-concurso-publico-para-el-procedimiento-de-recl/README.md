@@ -14,3 +14,4 @@ Reglamento de Concurso Público para el Procedimiento de Reclutamiento, Selecci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-27 | la propia norma |
+| 2 | 2006-09-27 | Reglamento 197 (2006-09-27) |

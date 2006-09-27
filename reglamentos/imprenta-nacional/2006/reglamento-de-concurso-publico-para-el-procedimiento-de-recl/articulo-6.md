@@ -1,1 +1,2 @@
-Artículo 6º—Sobre el plazo para la presentación de ofertas. Las ofertas de servicios se entregarán en el lugar de la Imprenta Nacional que defina el cartel de especificaciones del concurso, únicamente durante los ocho días naturales siguientes a la fecha de publicación del aviso del concurso.
+Artículo 6º—Sobre el plazo para la presentación de ofertas. Las ofertas de servicios se entregarán en el lugar de la Imprenta Nacional que defina el cartel de especificaciones del concurso. El plazo para la presentación de las ofertas no podrá ser menor de cinco días hábiles, a partir de la fecha de publicación del aviso del concurso.
+(Así reformado mediante sesión N° 197 del 27 de setiembre del 2006).
