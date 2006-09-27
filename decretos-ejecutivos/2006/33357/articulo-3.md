@@ -1,0 +1,1 @@
+Artículo 3º—El Coordinador de la Comisión Nacional de Biocombustibles, será designado por el Ministro de Ambiente y Energía y la misma contará con el apoyo logístico y técnico de la Secretaría de Planificación Sector Agropecuario y la Dirección Sectorial de Energía, así como con el apoyo de RECOPE.

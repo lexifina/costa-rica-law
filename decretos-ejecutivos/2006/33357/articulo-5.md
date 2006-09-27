@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión tendrá su sede en el MINAE, definirá su mecanismo de funcionamiento interno para cumplir con el artículo 4º del presente Decreto y rendirá informes periódicos que detallen las actividades realizadas y sus avances.

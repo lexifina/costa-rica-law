@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión cuando lo considere necesario o pertinente podrá recibir a los representantes de otras organizaciones públicas y privadas, nacionales o internacionales vinculadas con el ambiente y los sectores energético y agropecuario que estén involucradas en las gestión de fuentes alternativas de combustibles.
