@@ -1,0 +1,3 @@
+PARTE V - COMPONENTES DE APOYO
+Artículo 14.- Plan de acción mundial
+Reconociendo que el Plan de acción mundial para la conservación y la utilización sostenible de los recursos fitogenéticos para la alimentación y la agricultura, de carácter progresivo, es importante para el presente Tratado, las Partes Contratantes promoverán su aplicación efectiva, incluso por medio de medidas nacionales y, cuando proceda, mediante la cooperación internacional, a fin de proporcionar un marco coherente, entre otras cosas para el fomento de la capacidad, la transferencia de tecnología y el intercambio de información, teniendo en cuenta lo dispuesto en el Artículo 13.

@@ -1,0 +1,2 @@
+Artículo 21.- Observancia
+El órgano rector examinará y aprobará, en su primera reunión, los procedimientos de cooperación eficaces y los mecanismos operacionales para promover la observancia del presente Tratado y para abordar los casos de incumplimiento. Estos procedimientos y mecanismos comprenderán, en caso necesario, la supervisión y el ofrecimiento de asesoramiento o asistencia, con inclusión de los de carácter jurídico, en particular a los países en desarrollo y los países con economía en transición.

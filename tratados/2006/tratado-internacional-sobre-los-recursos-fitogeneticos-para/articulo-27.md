@@ -1,0 +1,2 @@
+Artículo 27.- Adhesión
+El presente Tratado estará abierto a la adhesión de todos los Miembros de la FAO y de cualesquiera Estados que no son miembros de la FAO pero son Miembros de las Naciones Unidas, de cualquiera de sus organismos especializados o del Organismo Internacional de Energía Atómica a partir de la fecha en que expire el plazo para la firma del Tratado. Los instrumentos de adhesión se depositarán en poder del Depositario.

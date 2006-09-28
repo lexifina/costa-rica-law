@@ -1,0 +1,3 @@
+Artículo 16.- Redes internacionales de recursos fitogenéticos
+16.1 Se fomentará o promoverá la cooperación existente en las redes internacionales de recursos fitogenéticos para la alimentación y la agricultura, sobre la base de los acuerdos existentes y en consonancia con los términos del presente Tratado, a fin de conseguir la cobertura más amplia posible de éstos.
+16.2 Las Partes Contratantes alentarán, cuando proceda, a todas las instituciones pertinentes, incluidas las gubernamentales, privadas, no gubernamentales, de investigación, de mejoramiento y otras, a participar en las redes internacionales.

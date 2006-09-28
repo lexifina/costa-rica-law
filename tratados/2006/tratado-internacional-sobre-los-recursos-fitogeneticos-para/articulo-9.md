@@ -1,0 +1,8 @@
+PARTE III - DERECHOS DEL AGRICULTOR
+Artículo 9.- Derechos del agricultor
+9.1 Las Partes Contratantes reconocen la enorme contribución que han aportado y siguen aportando las comunidades locales e indígenas y los agricultores de todas las regiones del mundo, en particular los de los centros de origen y diversidad de las plantas cultivadas, a la conservación y el desarrollo de los recursos fitogenéticos que constituyen la base de la producción alimentaria y agrícola en el mundo entero.
+9.2 Las Partes Contratantes acuerdan que la responsabilidad de hacer realidad los derechos del agricultor en lo que se refiere a los recursos fitogenéticos para la alimentación y la agricultura incumbe a los gobiernos nacionales. De acuerdo con sus necesidades y prioridades, cada Parte Contratante deberá, según proceda y con sujeción a su legislación nacional, adoptar las medidas pertinentes para proteger y promover los derechos del agricultor, en particular:
+a) la protección de los conocimientos tradicionales de interés para los recursos fitogenéticos para la alimentación y la agricultura;
+b) el derecho a participar equitativamente en la distribución de los beneficios que se deriven de la utilización de los recursos fitogenéticos para la alimentación y la agricultura; y
+c) el derecho a participar en la adopción de decisiones, a nivel nacional, sobre asuntos relativos a la conservación y la utilización sostenible de los recursos fitogenéticos para la alimentación y la agricultura.
+9.3 Nada de lo que se dice en este Artículo se interpretará en el sentido de limitar cualquier derecho que tengan los agricultores a conservar, utilizar, intercambiar y vender material de siembra o propagación conservado en las fincas, con arreglo a la legislación nacional y según proceda.

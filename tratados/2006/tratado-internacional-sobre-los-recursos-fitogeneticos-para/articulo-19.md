@@ -1,0 +1,28 @@
+PARTE VII - DISPOSICIONES INSTITUCIONALES
+Artículo 19.- Órgano rector
+19.1 Queda establecido un órgano rector para el presente Tratado, formado por todas las Partes Contratantes.
+19.2 Todas las decisiones del órgano rector se adoptarán por consenso, a menos que se alcance un consenso sobre otro método para llegar a una decisión sobre determinadas medidas, salvo que siempre se requerirá el consenso en relación con los Artículos 23 y 24.
+19.3 Las funciones del órgano rector consistirán en fomentar la plena aplicación del presente Tratado, teniendo en cuenta sus objetivos, y en particular:
+a) impartir instrucciones y orientaciones sobre políticas para la supervisión y aprobar las recomendaciones que sean necesarias para la aplicación del presente Tratado, y en particular para el funcionamiento del sistema multilateral;
+b) aprobar planes y programas para la aplicación del presente Tratado;
+c) aprobar en su primera reunión y examinar periódicamente la estrategia de financiación para la aplicación del presente Tratado, de conformidad con las disposiciones del Artículo 18;
+d) aprobar el presupuesto del presente Tratado;
+e) estudiar la posibilidad de establecer, siempre que se disponga de los fondos necesarios, los órganos auxiliares que puedan ser necesarios y sus respectivos mandatos y composición;
+f) establecer, en caso necesario, un mecanismo apropiado, como por ejemplo una cuenta fiduciaria, para recibir y utilizar los recursos financieros que se depositen en ella con destino a la aplicación del presente Tratado;
+g) establecer y mantener la cooperación con otras organizaciones internacionales y órganos de tratados pertinentes, en particular la Conferencia de las Partes en el Convenio sobre la Diversidad Biológica, sobre asuntos abarcados por el presente Tratado, incluida su participación en la estrategia de financiación;
+h) examinar y aprobar, cuando proceda, enmiendas del presente Tratado, de conformidad con lo dispuesto en el Artículo 23;
+i) examinar y aprobar y, en caso necesario, modificar los anexos del presente Tratado, de conformidad con lo dispuesto en el Artículo 24;
+j) estudiar las modalidades de una estrategia para fomentar las contribuciones voluntarias, en particular con respecto a los Artículos13 y 18;
+k) desempeñar cualesquiera otras funciones que puedan ser necesarias para el logro de los objetivos del presente Tratado;
+l) tomar nota de las decisiones pertinentes de la Conferencia de las Partes en el Convenio sobre la Diversidad Biológica y de otras organizaciones internacionales y órganos de tratados pertinentes;
+m) informar, cuando proceda, a la Conferencia de las Partes en el Convenio sobre la Diversidad Biológica y a otras organizaciones internacionales y órganos de tratados pertinentes de los asuntos relativos a la aplicación del presente Tratado; y
+n) aprobar las condiciones de los acuerdos con los CIIA y las instituciones internacionales en virtud del Artículo 15 y examinar y modificar el Acuerdo de transferencia de material a que se refiere el Artículo 15.
+19.4 Con sujeción a lo dispuesto en el Artículo 19.6, cada Parte Contratante dispondrá de un voto y podrá estar representada en las reuniones del órgano rector por un único delegado, que puede estar acompañado de un suplente y de expertos y asesores. Los suplentes, expertos y asesores podrán tomar parte en las deliberaciones del órgano rector pero no votar, salvo en el caso de que estén debidamente autorizados para sustituir al delegado.
+19.5 Las Naciones Unidas, sus organismos especializados y el Organismo Internacional de Energía Atómica, así como cualquier Estado que no sea Parte Contratante en el presente Tratado, podrán estar representados en calidad de observadores en las reuniones del órgano rector. Cualquier otro órgano u organismo, ya sea gubernamental o no gubernamental, que esté calificado en sectores relativos a la conservación y la utilización sostenible de los recursos fitogenéticos para la alimentación y la agricultura y que haya informado al Secretario de su deseo de estar representado en calidad de observador en una reunión del órgano rector, podrá ser admitido a menos que se oponga un tercio como mínimo de las Partes Contratantes presentes.
+La admisión y participación de observadores estará sujeta al reglamento interno aprobado por el órgano rector.
+19.6 Una Organización Miembro de la FAO que sea Parte Contratante y los Estados Miembros de esa Organización Miembro que sean Partes Contratantes ejercerán sus derechos de miembros y cumplirán sus obligaciones como tales, de conformidad, mutatis mutandis, con la Constitución y el Reglamento General de la FAO.
+19.7 El órgano rector aprobará y modificará, en caso necesario, el propio Reglamento y sus normas financieras, que no deberán ser incompatibles con el presente Tratado.
+19.8 Será necesaria la presencia de delegados en representación de la mayoría de las Partes Contratantes para constituir quórum en cualquier reunión del órgano rector.
+19.9 El órgano rector celebrará reuniones ordinarias por lo menos una vez cada dos años. Estas reuniones deberían celebrarse, en la medida de lo posible, coincidiendo con las reuniones ordinarias de la Comisión de Recursos Genéticos para la Alimentación y la Agricultura.
+19.10 Se celebrarán reuniones extraordinarias del órgano rector en cualquier otro momento en que lo considere necesario éste o previa solicitud por escrito de cualquier Parte Contratante, siempre que esta solicitud cuente con el respaldo de un tercio por lo menos de las Partes Contratantes.
+19.11 El órgano rector elegirá su Presidente y sus Vicepresidentes (que se denominarán colectivamente “la Mesa”), de conformidad con su Reglamento.

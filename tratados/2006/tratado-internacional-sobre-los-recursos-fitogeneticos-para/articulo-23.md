@@ -1,0 +1,6 @@
+Artículo 23.- Enmiendas del Tratado
+23.1 Cualquiera de las Partes Contratantes podrá proponer enmiendas al presente Tratado.
+23.2 Las enmiendas del presente Tratado se aprobarán en una reunión del órgano rector. La Secretaría comunicará el texto de cualquier enmienda a las Partes Contratantes por lo menos seis meses antes de la reunión en la que se proponga su aprobación.
+23.3 Todas las enmiendas del presente Tratado se aprobarán exclusivamente por consenso de las Partes Contratantes presentes en la reunión del órgano rector.
+23.4 Las enmiendas aprobadas por el órgano rector entrarán en vigor, respecto de las Partes Contratantes que las hayan ratificado, aceptado o aprobado, el nonagésimo día después de la fecha del depósito de los instrumentos de ratificación, aceptación o aprobación por dos tercios de las Partes Contratantes. Luego, las enmiendas entrarán en vigor respecto decualquier otra Parte Contratante el nonagésimo día después de la fecha en que esa Parte Contratante haya depositado su instrumento de ratificación, aceptación o aprobación de las enmiendas.
+23.5 A los efectos de este Artículo, un instrumento depositado por una Organización Miembro de la FAO no se considerará adicional a los depositados por los Estados Miembros de dicha organización.
