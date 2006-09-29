@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a las instituciones públicas y privadas para que se integren y participen activamente en la promoción, sensibilización y concientización de la población sobre la urgencia de prevenir la enfermedad de cáncer.
