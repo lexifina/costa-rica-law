@@ -1,0 +1,1 @@
+Artículo 4º—La administración del refugio competerá a los propietarios de los inmuebles, bajo la vigilancia y políticas de manejo y uso de los recursos naturales por parte del Ministerio del Ambiente y Energía.
