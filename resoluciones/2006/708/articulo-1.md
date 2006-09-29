@@ -1,0 +1,14 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES- DGA-708-2006.—Dirección General de Aduanas.—San José, a las nueve horas del trece de setiembre del dos mil seis.
+I.—Que de conformidad con el artículo 2 del Decreto Ejecutivo Nº 32456-H, el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, un nuevo modelo aduanero denominado “Tecnología de Información para el Control Aduanero, TIC@”.
+II.—Que de conformidad con el artículo 4º del Decreto Ejecutivo Nº 32456-H, la Dirección General de Aduanas ha venido comunicando por los medios disponibles, el programa de implementación por aduana del sistema informático y las modificaciones con el fin de que los usuarios del Sistema Aduanero Nacional, tomen las previsiones del caso.
+III.—Que de conformidad con el artículo 3º del Decreto Ejecutivo Nº 32456-H, y debido al proceso que significa la sustitución del sistema informático denominado SIA, la Dirección General de Aduanas ha de tomar las acciones necesarias para asegurar la continuidad del servicio, a fin de no entorpecer las operaciones de comercio exterior y minimizar su impacto en la gestión de las aduanas y de los usuarios.
+IV.—Que según lo establece el artículo 7 del Decreto Ejecutivo Nº 32456-H, cuando alguna entidad estatal se vea imposibilitada de transmitir información al sistema informático, como por ejemplo notas técnicas, exoneraciones, y otras, la entidad estatal deberá enviar mediante fax u otro medio dispuesto para esos efectos por el Servicio, la información o copia del documento a un centro de contingencia TIC@, que estará ubicado en al Dirección General de Informática del Ministerio de Hacienda.
+V.—Que según lo establece el artículo 6 del Decreto Ejecutivo Nº 32456-H, el Servicio Nacional de Aduanas tomará las medidas necesarias que le permitan a los Auxiliares y demás usuarios, reiniciar las operaciones críticas ante las aduanas en un plazo de dos horas, después de una interrupción del servicio. Por tanto:
+Con fundamente en las consideraciones de hecho y derecho citadas:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1. Comunicar el Plan de Contingencia previsto para garantizar la Continuidad de Operaciones de la Aduana de Paso Canoas, el cual será de acatamiento obligatorio para los funcionarios del Servicio Nacional de Aduanas, Auxiliares de la Función Pública Aduanera y demás usuarios del Sistema Aduanero Nacional.
+2. Este Plan deberá implementarse en forma inmediata en el momento en que ocurra alguna de las situaciones o eventos indicados en el mismo.
+3. El Plan de Contingencia deberá ser revisado y actualizado de conformidad con los resultados de los simulacros que al efecto realice cada tres meses la Gerencia de la Aduana.
+4. Este Plan se encuentra publicado en la página WEB del Ministerio de Hacienda, en la página www.hacienda.go.cr, apartado Dirección Gestión Técnica, Departamento de Procesos, Manuales.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
