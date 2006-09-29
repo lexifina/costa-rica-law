@@ -1,0 +1,1 @@
+Artículo 18.—Sobre el archivo que llevará la Secretaría General de la Corte Suprema de Justicia. La Secretaría General de la Corte Suprema de Justicia, llevará un consecutivo en el que consten las recomendaciones de las Comisiones y lo dispuesto por la Corte en relación con las propuestas de reconocimientos.
