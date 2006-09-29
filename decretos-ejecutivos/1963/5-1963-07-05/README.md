@@ -14,3 +14,4 @@ Reglamento de Ética Profesional del Contador Público
 | --- | --- | --- |
 | 1 | 1963-07-18 | la propia norma |
 | 2 | 1995-11-07 | Acuerdo 75 (1995-11-07) |
+| 3 | 2006-09-29 | Decreto Ejecutivo 33447 (2006-09-29) |
