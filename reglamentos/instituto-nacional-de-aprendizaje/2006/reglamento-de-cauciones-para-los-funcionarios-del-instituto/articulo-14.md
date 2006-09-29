@@ -1,0 +1,1 @@
+Artículo 14.—Caucionantes ad honorem o sin salario. Los caucionantes que ocupen puestos públicos en condición ad honorem, miembros de órganos colegiados u otros que no perciban un salario mensual por parte del INA, y que devenguen incentivos, rendirán la caución mínima, en el caso de los Directivos de la Junta Directiva deberán caucionar igual al Presidente Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 5º—Reconocimiento de intereses. No se reconocerán intereses por las garantías en depósito de dinero, mantenidas en custodia o administración del Instituto Nacional de Aprendizaje. En cuanto a los intereses que devenguen los títulos hasta el momento en que se ejecuten, pertenecerán al caucionante.

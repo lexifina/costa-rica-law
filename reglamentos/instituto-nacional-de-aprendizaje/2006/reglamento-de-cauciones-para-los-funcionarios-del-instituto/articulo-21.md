@@ -1,0 +1,6 @@
+CAPÍTULO VI
+De la ejecución, prescripción y extinción de las cauciones
+Artículo 21.—Ejecución de la garantía. Cuando se comprueben hechos que deben ser reparados conforme a la finalidad de la garantía y una vez firme la resolución dictada por la instancia competente, donde corresponda el resarcimiento de daños y perjuicios, La Presidencia Ejecutiva deberá ordenar la ejecución de la garantía que el caucionante haya rendido.
+Lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan.
+Cuando la garantía sea insuficiente, la Presidencia Ejecutiva valorará la significancia del monto para acudir a la vía ejecutiva simple a efecto de cobrar el saldo insoluto.
+En el caso de que la garantía no pueda hacerse efectiva por culpa o negligencia de los encargados de tramitar y controlar las cauciones, éstos serán civil, penal y administrativamente responsables del daño económico causado a la Hacienda Pública, según se determine. Será responsabilidad de la Unidad encargada de la tramitación de las pólizas de fidelidad, interponer la denuncia penal ante la autoridad competente, con el fin de iniciar los trámites para hacer efectiva la póliza de fidelidad.

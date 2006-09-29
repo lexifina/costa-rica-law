@@ -1,0 +1,1 @@
+Artículo 6º—Deber de solventar la garantía. Es deber del caucionante, asumir el costo íntegro de la garantía a favor del INA, el cual deberá provenir de su propio peculio, bajo cualquiera de las formas previstas en el artículo 4º de este Reglamento.
