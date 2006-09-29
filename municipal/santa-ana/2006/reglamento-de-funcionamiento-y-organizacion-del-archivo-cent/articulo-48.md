@@ -1,0 +1,2 @@
+Artículo 48.—El Archivo Central de la Municipalidad está en la obligación de denunciar ante el Ministerio Público a aquellas personas que ocurran en el tipo penal que establece el artículo 36 de la Ley Nº 7202.
+Santa Ana, 28 de agosto del 2006.
