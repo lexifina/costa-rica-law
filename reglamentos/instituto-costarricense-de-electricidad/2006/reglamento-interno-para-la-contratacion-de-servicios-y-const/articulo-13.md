@@ -1,0 +1,3 @@
+Artículo 13.—Recursos en el procedimiento.
+13.1 Procederá el recurso de objeción contra el cartel, el cual debe interponerse dentro del primer tercio de tiempo para entregar ofertas ante la Dirección de Proveeduría; la cual contará con un plazo de tres días hábiles para resolver el recurso.
+13.2 En contra del acto de adjudicación, podrá interponerse recurso de revocatoria debidamente fundamentado, el que se presenta ante la Dirección de Proveeduría dentro de los cinco días hábiles siguientes a su comunicación. Éste deberá ser resuelto por dicha dependencia dentro de los 10 días hábiles siguientes a su presentación y dará por agotada la vía administrativa.

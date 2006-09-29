@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento se aplicará con el fin de brindar el servicio eléctrico considerado básico y de primera necesidad en el menor tiempo posible, para satisfacer las demandas provenientes de los usuarios finales.
