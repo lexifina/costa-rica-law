@@ -4,11 +4,11 @@ Artículo 9º—Impuesto específico. Fíjase un impuesto específico por unidad
 Tipo de bebida | Impuesto en colones por unidad de consumo
 |
 |
-Bebidas gaseosas y concentrados de gaseosas | 10.90
-Otras bebidas líquidas envasadas (incluso agua) | 8.08
-Agua (envases de 18 litros o más) | 3.78
-Impuesto por gramo de jabón de tocador | 0.138
-NOTA: Los montos del impuesto aquí especificados fueron actualizados por el Decreto Ejecutivo Nº 33187 del 05 de junio del 2006, mediante un ajuste del 2.193%.
+Bebidas gaseosas y concentrados de gaseosas | 11.20
+Otras bebidas líquidas envasadas (incluso agua) | 8.31
+Agua (envases de 18 litros o más) | 3.89
+Impuesto por gramo de jabón de tocador | 0.142
+NOTA: Los montos del impuesto aquí especificados fueron actualizados por el artículo 1° del Decreto Ejecutivo Nº 33385 del 05 de setiembre del 2006.
 Defínanse como unidades de consumo los siguientes volúmenes: para todas las bebidas líquidas sujetas al impuesto, doscientos cincuenta mililitros (250 ml) y para los concentrados de gaseosas treinta y nueve coma doscientos dieciséis mililitros (39,216 ml). Para envases de diferentes contenidos el impuesto se aplicará proporcionalmente. También se fija un impuesto específico de ocho céntimos de colón (¢0,08) por gramo de jabón de tocador. Para los jabones de tocador con distinto peso, el impuesto se aplicará proporcionalmente. Los impuestos específicos recaen sobre la producción nacional y las importaciones o internaciones.
 El hecho generador de los impuestos establecidos en este artículo ocurre en las ventas a nivel de fábrica, en la fecha de emisión de la factura o de la entrega del producto, el acto que suceda primero; en la importación o internación, en el momento de aceptación de la declaración aduanera; en todos los casos, independientemente de su presentación.
 En la producción nacional, será contribuyente de estos impuestos el fabricante o envasador de dichos productos; en la importación o internación, la persona natural o jurídica que introduzca los productos o a cuyo nombre se importen o internen.
