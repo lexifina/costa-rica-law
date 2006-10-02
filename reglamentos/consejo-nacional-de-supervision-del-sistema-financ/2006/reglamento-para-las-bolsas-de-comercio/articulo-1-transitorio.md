@@ -1,0 +1,1 @@
+Transitorio I.—Las bolsas de comercio en operación a la entrada en vigencia de la presente normativa, deberán presentar un plan para adecuar la estructura de capital de sus socios en un plazo no mayor de tres meses a partir de la promulgación del presente Reglamento.

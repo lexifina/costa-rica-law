@@ -1,0 +1,2 @@
+Artículo 24.—Del detalle de la información. El detalle de la información, así como los formatos, contenido medios y plazos de entrega a la Superintendencia, será determinado por ella mediante acuerdo.
+Las bolsas de comercio son responsables de la calidad de la información que ella origine y que remita a la Superintendencia. Asimismo, los puestos de bolsa son responsables de la información que ellos originen y remitan a la bolsa de comercio o a la Superintendencia.

@@ -1,0 +1,1 @@
+Artículo 7º—Limitaciones de las bolsas de comercio. Las bolsas de comercio no podrán realizar por cuenta propia o por representación de terceros, operaciones comerciales de compraventa de los productos que en ella se negocien. Las bolsas de comercio no podrán fijar o recomendar las tarifas que los puestos de bolsa cobrarán a sus clientes.

@@ -1,0 +1,1 @@
+Artículo 25.—De las Comisiones. Las comisiones que cobren los puestos de bolsa a sus clientes se determinarán libremente por oferta y demanda. Las comisiones vigentes deberán darse a conocer al público de conformidad con lo que disponga la bolsa.

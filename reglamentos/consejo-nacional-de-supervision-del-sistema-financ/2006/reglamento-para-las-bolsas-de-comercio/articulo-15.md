@@ -1,0 +1,1 @@
+Artículo 15.—De los contratos a celebrar en la rueda. Es responsabilidad de las bolsas definir, estructurar y aprobar las características y contenidos mínimos de los contratos que se deben celebrar entre las partes. Las bolsas de comercio podrán declarar la nulidad de los contratos bursátiles de conformidad con las disposiciones reglamentarias que para el efecto emitan.

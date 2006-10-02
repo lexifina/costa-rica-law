@@ -1,0 +1,1 @@
+Artículo 16.—Tipos de contratos. Las bolsas deben reglamentar los tipos de contratos que se vayan a negociar en la rueda, que deberán clasificarse en función del tipo de producto, de su disponibilidad y de la fecha de entrega u otras características.
