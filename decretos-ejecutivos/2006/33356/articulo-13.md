@@ -1,0 +1,1 @@
+Artículo 13.—Las subcomisiones de expertos contarán con un coordinador, encargado, nombrado por la Dirección, realizarán las funciones para las cuales fueron propuestas por la Comisión, además brindarán un informe a la Comisión sobre el trabajo realizado, en el plazo y forma en que la Comisión determine al efecto.

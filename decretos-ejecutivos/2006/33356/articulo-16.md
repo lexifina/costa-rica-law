@@ -1,0 +1,1 @@
+Artículo 16.—No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que sea declarada la urgencia del asunto por el voto favorable de la totalidad de los miembros presentes.

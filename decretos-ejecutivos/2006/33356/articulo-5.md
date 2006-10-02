@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se produzca la vacante definitiva o la ausencia injustificada de un miembro a más de dos sesiones consecutivas, se solicitará a las instituciones o agrupaciones representadas, una nueva terna.

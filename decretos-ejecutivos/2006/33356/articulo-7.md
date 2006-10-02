@@ -1,0 +1,1 @@
+Artículo 7º—En caso de ausencias justificadas a varias sesiones consecutivas, se deberá consultar con la Dirección sobre la opción más conveniente, entre lo cual podría estar el elegir a un suplente por el tiempo en que se vaya a realizar una labor según lo programado.

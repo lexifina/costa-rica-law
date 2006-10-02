@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros serán designados por la Ministra de Salud, de la terna propuesta por cada una de las instituciones o agrupaciones que conforman la Comisión y durarán en sus funciones dos años, pudiendo ser reelectos por períodos iguales y sucesivos.
