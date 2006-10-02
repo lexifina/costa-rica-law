@@ -14,3 +14,4 @@ Reglamento del Comité de Inversiones de los Fondos Administrados por Popular So
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-08 | la propia norma |
+| 2 | 2006-10-02 | Reglamento 190 (2006-10-02) |
