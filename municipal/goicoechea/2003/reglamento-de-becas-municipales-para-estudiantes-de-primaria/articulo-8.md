@@ -1,1 +1,3 @@
 Artículo 8º—Becas de secundaria y primaria. Serán los Concejos de Distrito los responsables de recomendar a la Comisión de Asuntos Sociales la asignación de becas correspondientes a primaria y secundaria, según la necesidad de cada distrito.
+En el caso de las becas a mujeres adultas, los Consejos de Distrito, darán prioridad a las solicitantes que se encuentren inmersas en situaciones de riesgo social, pobreza extrema o violencia intrafamiliar. Solo podrá ser beneficiaría de estas becas una mujer adulta por cada núcleo familiar.
+(Así adicionado el párrafo anterior mediante sesión Nº 39 del 2 de octubre del 2006)

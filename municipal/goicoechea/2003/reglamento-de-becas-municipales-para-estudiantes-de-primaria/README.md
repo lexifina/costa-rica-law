@@ -14,3 +14,4 @@ Reglamento de becas municipales para estudiantes de primaria, secundaria, banda 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-26 | la propia norma |
+| 2 | 2006-10-02 | Reglamento municipal 39 (2006-10-02) |
