@@ -1,0 +1,1 @@
+23.—Modificaciones: El patrocinador se reserva el derecho de realizar cualquier modificación, ya sea total o parcial, de los términos de la rifa y de este reglamento, estos cambios estarán a disposición de los clientes en la página de Internet señalada en el artículo 5 y se publicará por una sola vez en el Diario Oficial La Gaceta.

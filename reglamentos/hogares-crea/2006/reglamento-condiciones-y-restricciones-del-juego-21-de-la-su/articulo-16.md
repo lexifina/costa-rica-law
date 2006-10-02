@@ -1,0 +1,1 @@
+16.—Responsabilidad sobre retiro de premios: Al favorecido de cualquier premio deberá llegar por sus propios medios al lugar indicado en donde se le haga entrega de su premio. Cualquier accidente, incidente o contratiempo que tenga el favorecido para ir a retirar su premio es responsabilidad exclusiva de él mismo, relevando al patrocinador de toda responsabilidad.

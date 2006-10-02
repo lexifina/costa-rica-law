@@ -1,0 +1,6 @@
+COMERCIALIZADORA PASCHOAL S.A.*
+*(Así corregido mediante FE DE ERRATAS publicada en La Gaceta N° 192 de 06 de octubre de 2006).
+(NOTA DE SINALEVI: Hogares Crea, publicó en La Gaceta N° 91 del 14 de mayo de 2007, un nuevo Reglamento, Condiciones y Restricciones del Juego 21 de la Suerte)
+REGLAMENTO, CONDICIONES
+Y RESTRICCIONES DEL JUEGO 21 DE LA SUERTE
+1º—El Juego: El Juego del cual se hace referencia este reglamento se ha denominado “21 de la Suerte” y es, una rifa, que ha sido autorizada mediante oficio AG-2314-2006 del 9 de agosto del 2006 del Gerente General de la Junta de Protección social de San José, según solicitud que se hiciera, a tenor de la Ley Nº 1387 del 21 de noviembre de 1951, el cual, según criterio de la asesoría legal de la benemérita institución, no existe ninguna objeción legal para la realización de esta rifa. Para cumplir con los fines para los cuales fue aprobada la presente rifa, se ha hecho declaración mediante escritura publica comprometiéndose El Copatrocinador a invertir, en los programas de bienestar social que tiene Hogar CREA® en Costa Rica, el producto económico neto derivado de la ejecución de la rifa

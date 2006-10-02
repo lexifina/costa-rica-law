@@ -1,0 +1,1 @@
+15.—Responsabilidad sobre uso de premios: Cualquier perjuicio derivado por el mal uso de algún premio otorgado a un favorecido, no es responsabilidad del patrocinador, ya que este cumple con entregar el premio y en adelante, la responsabilidad total es del favorecido.
