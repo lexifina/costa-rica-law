@@ -14,3 +14,4 @@ Reforma Integral Reglamento del Comité de Auditoría del Banco Nacional de Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-19 | la propia norma |
+| 2 | 2006-10-03 | Reglamento 0 (2006-10-03) |
