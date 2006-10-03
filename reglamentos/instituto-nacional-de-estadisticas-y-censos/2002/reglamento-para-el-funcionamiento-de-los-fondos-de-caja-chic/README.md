@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de los Fondos de Caja Chica del Instituto Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-25 | la propia norma |
+| 2 | 2006-10-03 | Reglamento 395 (2006-10-03) |

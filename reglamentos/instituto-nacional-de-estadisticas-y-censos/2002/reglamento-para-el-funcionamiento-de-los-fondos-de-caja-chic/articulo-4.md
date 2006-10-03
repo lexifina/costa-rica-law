@@ -1,1 +1,2 @@
-Artículo 4º—Se establecen los siguientes fondos de caja chica con la siguiente naturaleza: para la adquisición de bienes y servicios, y para la cancelación de viáticos y gastos de viaje.
+Artículo 4º—Se establece un único fondo de caja chica que permita la adquisición de bienes y servicios y la cancelación de gastos de viaje y de transporte.
+(Así reformado mediante sesión N° 395 del 3 de octubre del 2006).
