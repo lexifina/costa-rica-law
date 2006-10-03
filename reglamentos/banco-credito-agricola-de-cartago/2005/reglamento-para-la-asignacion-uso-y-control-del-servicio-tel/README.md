@@ -15,3 +15,4 @@ Reglamento para la Asignación, Uso y Control del Servicio Telefónico Celular, 
 | --- | --- | --- |
 | 1 | 2006-01-05 | la propia norma |
 | 2 | 2006-04-10 | Reglamento 7924 (2006-04-10) |
+| 3 | 2006-10-03 | Reglamento 7973 (2006-10-03) |
