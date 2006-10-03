@@ -14,3 +14,4 @@ Reglamento Orgánico de la Contraloría General de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-01 | la propia norma |
+| 2 | 2006-10-03 | Resolución 81 (2006-10-03) |

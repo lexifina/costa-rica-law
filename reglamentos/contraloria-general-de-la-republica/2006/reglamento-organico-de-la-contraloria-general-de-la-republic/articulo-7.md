@@ -1,5 +1,5 @@
-SECCIÓN II
-Auditoría Interna
-Artículo 7º—Competencias; relación jerárquica.
-1) Evalúa la suficiencia y efectividad del sistema de control interno y de la calidad de la ejecución de la organización en el cumplimiento de las responsabilidades asignadas, como base para prestar un servicio constructivo y de protección a la Administración y reforzar las relaciones inherentes a la responsabilidad de rendir de cuentas.
-2) Depende de la Contralora General.
+Artículo 7º—Unidades de Apoyo y Asesoría del Despacho. La Contralora y Subcontralora Generales tendrán la siguiente estructura de apoyo:
+a) Auditoría Interna.
+b) Consejo Consultivo
+c) Asesores y asistentes del Despacho.
+(Así corrida su numeración por resolución R-CO-81 del 3 de octubre de 2006, que lo traspasó del antiguo 6 al 7 actual del artículo)

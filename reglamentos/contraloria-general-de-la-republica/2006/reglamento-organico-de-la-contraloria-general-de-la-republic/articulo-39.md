@@ -1,15 +1,20 @@
-Artículo 39.—Coordinación.
-1) Con el Despacho de la Contralora y Subcontralora Generales y con las otras gerencias de división.
-a. En las sesiones del Consejo Consultivo.
-b. Por medio de comunicación formal por medios escritos y electrónicos.
-c. En reuniones o sesiones de trabajo programadas para asuntos específicos.
-d. A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por titulares de las unidades, coordinadores, o miembros de los equipos.
-2) Con las unidades de apoyo, asesoría y asistencia del Despacho de la Contralora y Subcontralora Generales.
-a. Por medio de comunicación formal por medios escritos o electrónicos.
-b. Mediante nexos de cooperación mutua.
-c. Mediante el personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario, o equipos de trabajo constituidos por titulares de las unidades, coordinadores u otros funcionarios.
-3) Internamente.
-a. Por medio de comunicación formal por medios escritos o electrónicos.
-b. Mediante reuniones con el personal, los encargados de los equipos constituidos para el cumplimiento de las distintas tareas, la definición de la estrategia divisional y la toma de decisiones sobre asuntos específicos.
-c) A través de personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por funcionarios o equipos de trabajo constituidos por los coordinadores, miembros de equipos de trabajo especializados o expertos en el asunto.
-Los anteriores mecanismos de coordinación se complementan y apoyan con un adecuado sistema de control interno, la estandarización de los métodos y procedimientos de trabajo, la especificación de los resultados esperados de las tareas que se ejecutan y de la especificación de las competencias de gestión, de conocimiento, afectivas y de aquellas otras que sean necesarias para administrar eficientemente el recurso humano.
+Artículo 39.—Atribuciones.
+a) Asesorar a la Contralora y Subcontralora Generales en materia de su competencia.
+b) Actuar como su asesor y rector jurídico de la Institución en procura de la legalidad de las actuaciones y resoluciones de la Contraloría General de la República.
+c) Recibir, registrar y evaluar las consultas que ingresen a la Contraloría General y dar trámite a aquellas que le correspondan, según lo que dispongan el marco legal y los criterios o políticas institucionales, así como canalizar las que correspondan a lo interno para su atención por las dependencias respectivas.
+d) Resolver las consultas de los proyectos de ley remitidas por la Asamblea Legislativa, así como sobre aquellos proyectos de ley que sean de interés de la Contraloría General, coordinando con las instancias internas que corresponda.
+e) Incoar y participar en los procesos judiciales en los que la Contraloría General tenga legitimación de acuerdo con su esfera de competencias.
+f) Incoar las acciones de inconstitucionalidad correspondientes de acuerdo con su papel de órgano de fiscalización superior de la Hacienda Pública.
+g) Atender los procesos de constitucionalidad que ingresen a la Contraloría en su condición de órgano de control y de fiscalización de la hacienda pública, así como administración activa.
+h) Conocer y resolver de las solicitudes relacionadas con el nombramiento, así como las gestiones de suspensión y destitución de auditores y subauditores internos de conformidad con la legislación vigente; en dichos casos deberá coordinar lo pertinente con las áreas de fiscalización superior.
+i) Legalizar los libros de contabilidad y de actas de las instituciones y órganos públicos que no cuenten con una unidad de auditoría interna.
+j) Conocer las solicitudes de aprobación de los reglamentos para el uso de vehículos oficiales y de autorización de reglamentos para el arrendamiento de vehículos propiedad de los funcionarios públicos.
+k) Conocer y resolver, en coordinación con las instancias internas correspondientes, las solicitudes de aprobación de reglamentos de organización y funcionamiento de las Auditorias Internas, así como sus modificaciones.
+l) Facilitar el papel de la Contraloría General mediante la definición de metas y objetivos que propicien un adecuado direccionamiento del Sistema de control y fiscalización superiores de la Hacienda Pública.
+m) Promover acciones de fortalecimiento de los componentes del Sistema de Fiscalización Superior mediante alianzas estratégicas y mecanismos de cooperación, actividades de asesoría y apoyo en materia de su competencia, entre otros, para el cumplimiento de los objetivos del ordenamiento de control y fiscalización superiores.
+n) Llevar a cabo los procedimientos administrativos atinentes para averiguar la verdad real de los hechos que motiven posibles incumplimientos del ordenamiento en materia de Hacienda Pública y verificar la responsabilidad administrativa y civil de los funcionarios públicos; así como, conocer y resolver la declaratoria de nulidad absoluta de los actos y contratos administrativos.
+o) Conocer y atender las denuncias que en materia de su competencia le remita la División de Fiscalización Operativa y Evaluativa.
+p) Atender los requerimientos que se deriven de los procesos de contratación y otras actividades que como administración activa realice la Contraloría General. Asimismo, apoyar las actividades de capacitación y formación que desarrolle el Centro de Capacitación
+q) Atender las demás gestiones que le correspondan de conformidad con el ordenamiento jurídico, o que le sean asignadas por la Contralora General.
+(Así reformado por resolución R-CO-81 del 3 de octubre de 2006)
+(Así corrida su numeración por resolución R-CO-81 del 3 de octubre de 2006, que lo traspasó del antiguo 38 al 39 actual del artículo)

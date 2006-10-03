@@ -1,15 +1,16 @@
-Artículo 47.—Coordinación.
-1) Con el Despacho de la Contralora y Subcontralora Generales y con las otras gerencias de división.
-a) En las sesiones del Consejo Consultivo.
-b) Por medio de comunicación formal por medios escritos y electrónicos.
-c) En reuniones de trabajo programadas para asuntos específicos.
-d) A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por titulares de las unidades, coordinadores, o miembros de los equipos.
-2) Con las unidades de apoyo, asesoría y asistencia del Despacho de la Contralora y Subcontralora Generales.
-a) Por medio de comunicación formal por medios escritos o electrónicos.
-b) Mediante nexos de cooperación mutua.
-c) A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario, o equipos de trabajo constituidos por titulares de las unidades, coordinadores u otros funcionarios.
-3) Con las unidades a su cargo.
-a) Comunicación formal por medios escritos o electrónicos.
-b) Reuniones con el personal, las jefaturas o la creación temporal de equipos de trabajo para la toma de decisiones sobre asuntos específicos.
-c) Personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por titulares de las unidades, funcionarios de diversos niveles de mando y especialidad según se requiera.
-Los anteriores mecanismos de coordinación se complementan y apoyan con la estandarización de los métodos y procedimientos de trabajo, la especificación de los resultados esperados de las tareas que se ejecutan y de la especificación de las competencias de gestión, de conocimiento, afectivas y de aquellas otras que sean necesarias para administrar eficientemente el recurso humano.
+Artículo 47.—Atribuciones.
+a) Proponer y desarrollar conjuntamente con las unidades que la integran, políticas, estrategias, planes y metodologías de trabajo que permitan contar con una visión compartida del soporte técnico y administrativo a la fiscalización, que contribuyan al logro de los objetivos de la Institución, y evaluar su cumplimiento.
+b) Velar porque el trabajo que realizan las unidades que la conforman, generen un mejoramiento sustantivo en la gestión de las unidades y áreas de la institución y en los casos que corresponda se contribuya también al mejoramiento de la gestión y la fiscalización de la Hacienda Pública .
+c) Evaluar los procesos, así como los servicios y productos que brinda la División, con el fin de innovarlos continuamente y adaptarlos a las necesidades de sus usuarios y a los cambios del entorno.
+d) Implementar mecanismos que permitan una interacción coordinada entre esta división y los demás procesos de la organización.
+e) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+f) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+g) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+h) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+i) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+j) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+k) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+l) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+m) (Derogado por resolución R-CO-81 del 3 de octubre de 2006)
+n) Ejecutar cualesquiera otras labores que le asigne la Contralora General.
+(Así corrida su numeración por resolución R-CO-81 del 3 de octubre de 2006, que lo traspasó del antiguo 46 al 47 actual del artículo)
