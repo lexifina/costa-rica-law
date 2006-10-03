@@ -1,7 +1,2 @@
-Artículo 26.—Disposiciones transitorias.
-1. Los procedimientos comprendidos en el presente reglamento se aplicarán en forma analógica a los ascensos y grados policiales de las policías especializadas, ante ausencia de reglamentos específicos para cada una de ellas.
-2. Los funcionarios que a la entrada en vigencia de este Reglamento posean grados policiales debidamente registrados ante la Dirección de Recursos Humanos y que pretendan ocupar una plaza correspondiente a su grado actual, deberán aprobar un examen de acreditación ante la Escuela Nacional de Policía.
-La Dirección de la Escuela Nacional de Policía, en coordinación con la Dirección General de la Fuerza Pública, determinará el contenido temático a evaluar para cada uno de los grados policiales.
-3. Los requisitos de antigüedad y calificación exigidos en el inciso 2) apartes a) y b), respectivamente, del numeral 15 del presente Reglamento, regirán a partir del treinta y uno de diciembre del año dos mil cuatro.
-4. Los requisitos de antigüedad y calificación de servicios como Subintendente e Intendente, exigidos, respectivamente, en el inciso 2), apartes a) y b) e inciso 3) apartes a) y b) del artículo 13 del presente Reglamento, padrán equipararse transitoriamente hasta el treinta y uno de diciembre del año dos mil cuatro, con el requisito de acreditar, al menos, tres años de experiencia en el área operativo policial.
-(Así reformados los incisos 3) y 4) por el artículo 2° del decreto ejecutivo N° 31779 del 9 de febrero de 2004.)
+Artículo 26.—Derogatorias. Se derogan los artículos 12 y 14 del Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, Decreto Ejecutivo N° 23880-SP del 6 de diciembre de 1994.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33430 del 3 de octubre de 2006)
