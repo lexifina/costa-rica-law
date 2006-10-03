@@ -1,0 +1,1 @@
+Artículo 22.—Respetar la protección legal otorgada a programas, textos, artículos y bases de datos según legislación internacional sobre propiedad intelectual y las normas pertinentes de nuestro país.

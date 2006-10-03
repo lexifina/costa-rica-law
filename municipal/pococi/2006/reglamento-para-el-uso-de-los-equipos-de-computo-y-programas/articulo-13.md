@@ -1,0 +1,1 @@
+Artículo 13.—El detalle de los programas informáticos que el Departamento de Informática haya instalado en las computadoras propiedad de la Municipalidad, será actualizado conforme se adquieran otros nuevos, lo cual se comunicará a las distintas oficinas.

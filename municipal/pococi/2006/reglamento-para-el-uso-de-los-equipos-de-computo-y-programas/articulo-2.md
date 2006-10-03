@@ -1,0 +1,1 @@
+Artículo 2º—El Departamento de Informática, a través de la Dirección de Hacienda y con el Concurso del Departamento de Presupuesto, propondrá las políticas informáticas que regirán en la institución. La Municipalidad de Pococí autorizará o improbará dichas políticas y las modificará cuando así lo considere conveniente.

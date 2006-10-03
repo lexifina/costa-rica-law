@@ -1,0 +1,1 @@
+Artículo 18. El Departamento de Informática podrá restringir el acceso de los usuarios a modificar perfiles de los equipos y programas según considere necesario para la salvaguarda de la estética y la uniformidad necesarias en una entidad pública.

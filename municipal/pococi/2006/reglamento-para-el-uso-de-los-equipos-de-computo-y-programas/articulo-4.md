@@ -1,0 +1,1 @@
+Artículo 4º—Las licencias impresas de uso de software, que indican la cantidad de usuarios autorizados, así como las individuales, serán enviadas por el Departamento de Informática a la Tesorería Municipal para su custodia.

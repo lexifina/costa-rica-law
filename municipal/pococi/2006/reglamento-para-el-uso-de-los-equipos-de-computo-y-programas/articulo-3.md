@@ -1,0 +1,1 @@
+Artículo 3º—El Departamento de Informática llevará un control de la ubicación de los equipos de cómputo en las oficinas de la Municipalidad de Pococí, así como de las licencias de uso del software adquirido.
