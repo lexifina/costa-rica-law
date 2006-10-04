@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° DGT 13-06 del 5 de abril del 2006, publicada en La Gaceta N° 80 del 26 de abril del 2006.
