@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá al Ministerio de Economía, Industria y Comercio la verificación de los parámetros de calidad, etiquetado y del contenido neto, este último a través del Laboratorio Costarricense de Metrología (LACOMET).

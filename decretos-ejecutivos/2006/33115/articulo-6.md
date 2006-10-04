@@ -1,0 +1,1 @@
+Artículo 6º—Corresponderá al Ministerio de Agricultura y Ganadería la verificación a nivel primario, en el marco de su competencia o por la investidura recibida por parte de otros ministerios competentes.
