@@ -1,0 +1,7 @@
+DIRECCIÓN GENERAL DE ADMINISTRACIÓN DE BIENES
+Y CONTRATACIÓN ADMINISTRATIVA
+PUBLICACIÓN DE PRIMERA VEZ
+(NOTA: En Las Gacetas N° 191 del 5 de octubre del 2006 y N° 192 del 6 de octubre del 2006, se publicó nuevamente este acuerdo).
+La Dirección General de Administración de Bienes y Contratación Administrativa, avisa:
+A todos los Despachos Judiciales de la Corte Suprema de Justicia que de conformidad con el Decreto Ejecutivo Nº 32333-MP-J, publicado en el Alcance Nº 11 a La Gaceta Nº 82 del 29 de abril del 2005, denominado “Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública”, Sección Cuarta, artículo 52, establece que es competencia de Dirección General de Administración de Bienes y Contratación Administrativa, del Ministerio de Hacienda, custodiar y llevar un registro actualizado de los bienes caídos en comiso producto del delito de enriquecimiento ilícito.
+En virtud de lo cual, se les solicita respetuosamente a los despachos judiciales respectivos, para que una vez firme las sentencias en las que se condene por los delitos de enriquecimiento ilícito, y producto de ellas el Estado reciba bienes, se informe a esta Dirección y se proceda a poner en custodia de la misma los bienes que se encuentren en esa situación, con el fin que esta institución pueda incorporarlos al Registro que para tal efecto lleva y posteriormente se defina el destino final de cada uno de ellos, todo lo anterior para dar fiel cumplimiento a lo preceptuado en la normativa citada.—Dirección de Normas y Procedimientos.
