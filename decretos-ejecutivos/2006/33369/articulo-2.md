@@ -1,0 +1,1 @@
+Artículo Segundo.—Corresponderá al Ministerio de Hacienda llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar el inmueble inscrito en el Registro de la Propiedad, en el partido de San José, Folio Real matrícula número 01-344042-000.
