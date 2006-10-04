@@ -14,3 +14,4 @@ Reglamento de Ferias del Agricultor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-14 | la propia norma |
+| 2 | 2006-10-04 | SINALEVI (sin norma nombrada) |

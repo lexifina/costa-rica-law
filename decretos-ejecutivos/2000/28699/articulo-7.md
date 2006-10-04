@@ -1,1 +1,1 @@
-Artículo 7º— Queda prohibida la instalación de ventas ambulantes, estacionarias o miniferias a menos de 500 metros de donde se celebre una Feria del Agricultor, siendo responsable del cumplimiento de esta medida el Ente Administrador de la Feria en coordinación con la Municipalidad respectiva.
+Artículo 7º— (Anulado mediante resolución de la Sala Constitucional N° 14642-06, de las las catorce horas con cuarenta y tres minutos del 4 de octubre del 2006.).
