@@ -13,3 +13,4 @@ Lista Oficial de Peritos (La Corte Suprema de Justicia publicó en el Boletín J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-05 | la propia norma |
+| 2 | 2006-10-05 | Circular 50 (2006-09-25) |
