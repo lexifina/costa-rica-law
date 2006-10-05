@@ -1,0 +1,1 @@
+Artículo 5º—Duración en el puesto. Los miembros del Comité Asesor durarán en su cargo dos años, pudiendo ser luego ratificados por las instancias que los propusieron en su cargo por dos años más. Los miembros de este comité asesor no devengarán dietas ni beneficios económicos.
