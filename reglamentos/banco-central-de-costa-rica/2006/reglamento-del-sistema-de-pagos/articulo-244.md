@@ -1,0 +1,1 @@
+Artículo 244.—Las entidades que deseen fungir como Registradores, deben enviar una solicitud al Certificador del BCCR externando esta condición. Con este acto se comprometen a cumplir con todas las funciones y responsabilidades establecidas en la PC y DPC aplicables, con este Reglamento y las normas complementarias pertinentes.

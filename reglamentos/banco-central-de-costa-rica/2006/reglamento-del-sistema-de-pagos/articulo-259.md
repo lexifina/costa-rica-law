@@ -1,0 +1,1 @@
+Artículo 259.—De la información del SINPE. El ISP administrará la información de las transacciones realizadas por los asociados a través del SINPE en cada uno de los servicios financieros implementados en dicho sistema.

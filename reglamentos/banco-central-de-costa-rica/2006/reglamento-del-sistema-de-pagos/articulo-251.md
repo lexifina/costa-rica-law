@@ -1,0 +1,1 @@
+Artículo 251.—Es responsabilidad de los Solicitantes presentar las credenciales completas y precisas que permitan demostrar su identidad, cuando esté solicitando la emisión de un certificado, así como entender y acatar las condiciones de uso y administración del mismo. Lo anterior, cumpliendo con lo establecido en la PC correspondiente.

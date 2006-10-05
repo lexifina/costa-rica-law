@@ -1,0 +1,1 @@
+Artículo 253.—El suscriptor debe usar su certificado solamente con aplicaciones autorizadas por la PC correspondiente y se responsabiliza por el mal uso de su certificado o de su llave privada. El suscriptor debe reportar al Registrador, la pérdida o compromiso de la llave privada, así como cualquier cambio en la información contenida en el certificado.

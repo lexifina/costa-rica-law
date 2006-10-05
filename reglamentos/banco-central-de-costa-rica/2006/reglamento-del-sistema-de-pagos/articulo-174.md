@@ -1,0 +1,1 @@
+Artículo 174.—Las CAN operarán por medio del servicio CAN del SINPE, el cual se constituye en el sistema oficial de registro del inventario de numerario del BCCR, tanto del que mantiene en su Custodia Principal como del que custodian por su cuenta y riesgo los bancos que administren CAN.

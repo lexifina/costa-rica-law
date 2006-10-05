@@ -1,0 +1,1 @@
+Artículo 250.—Los Registradores serán responsables de validar la identidad de los solicitantes de acuerdo con la PC del certificado requerido y las normas complementarias respectivas. Al realizar este proceso deberán mantener y proteger los documentos que se utilicen como prueba de identidad del Solicitante, así como mantener el registro de todas las labores realizadas.

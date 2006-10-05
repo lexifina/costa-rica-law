@@ -1,0 +1,1 @@
+Artículo 111.—Es responsabilidad de la entidad destino efectuar el débito al cliente destino de conformidad con la instrucción de cobro de la entidad origen, previa validación de la correspondiente Autorización de Débito Automático.

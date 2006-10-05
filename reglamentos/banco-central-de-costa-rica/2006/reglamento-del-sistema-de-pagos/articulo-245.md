@@ -1,0 +1,1 @@
+Artículo 245.—Para obtener un certificado, el Solicitante debe seguir el procedimiento establecido para la emisión de este certificado En el caso de la emisión de un certificado de firma por primera vez, el registro debe ser presencial.

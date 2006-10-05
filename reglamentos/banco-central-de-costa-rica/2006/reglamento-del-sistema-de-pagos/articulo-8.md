@@ -1,0 +1,1 @@
+Artículo 8º—Durante los días hábiles, el BCCR, las entidades financieras, la Bolsa Nacional de Valores y la Central de Valores se comprometen a operar los servicios relacionados con el SINPE, en aras de garantizar al público un adecuado control de riesgos y un buen funcionamiento de los servicios de pago.

@@ -1,0 +1,1 @@
+Artículo 159.—Las entidades participantes en el MONEX deben mantener registros contables separados que permitan identificar las operaciones correspondientes al mercado de monedas extranjeras, así como bases de datos centralizadas con el detalle de todas las operaciones de este mercado realizadas en todas sus oficinas, agencias y sucursales.

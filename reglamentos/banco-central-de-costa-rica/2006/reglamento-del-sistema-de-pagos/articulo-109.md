@@ -1,0 +1,7 @@
+CAPÍTULO III
+Del ciclo del servicio
+Artículo 109.—El ciclo del servicio DTR se efectuará de conformidad con las siguientes etapas:
+a) Envío del Cobro: La entidad origen emite una instrucción de cobro a través del SINPE para que se le debiten los fondos de la Cuenta Cliente del cliente destino, previa autorización emitida por parte de éste.
+b) Aceptación o rechazo del Débito: Después de recibida la comunicación electrónica, la entidad destino, en tiempo real, deberá confirmarle automáticamente al SINPE la aceptación o rechazo del débito. En caso de que la entidad destino presente problemas en su plataforma tecnológica que imposibiliten la aceptación o rechazo del débito en forma automática, la transacción será devuelta por el SINPE a la entidad origen con la especificación de la naturaleza del problema.
+c) Liquidación del Débito: Con base en los comunicados de aceptación recibidos de parte de la entidad destino durante el primer día hábil del ciclo las transacciones se acumulan y al día hábil siguiente se ejecuta, un proceso de compensación multilateral neta. El SIL efectúa en firme la liquidación de todas aquellas transacciones retenidas utilizando el mecanismo de liquidación multilateral neta.
+d) Acreditación de Fondos: La entidad origen está obligada a acreditar en la Cuenta Cliente del beneficiario el valor de los débitos cobrados a más tardar a las diez horas del segundo día hábil del ciclo.

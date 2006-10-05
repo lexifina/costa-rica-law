@@ -1,0 +1,1 @@
+Artículo 97.—Cuando una entidad destino reciba una prenotificación y no la acepte o rechace al quinto día hábil del ciclo, la autorización respectiva se tomará como formalmente aceptada por dicha entidad, debiendo ésta asumir frente al cliente destino las responsabilidades por todos los actos que se generen a partir de dicha aceptación automática.

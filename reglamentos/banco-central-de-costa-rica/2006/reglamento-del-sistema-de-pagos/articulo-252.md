@@ -1,0 +1,1 @@
+Artículo 252.—Es responsabilidad de los Suscriptores cumplir con los requerimientos de protección de su llave privada, adoptando medidas razonables para prevenir su pérdida, acceso, modificación o uso no autorizado.

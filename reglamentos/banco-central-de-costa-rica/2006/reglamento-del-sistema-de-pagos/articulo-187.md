@@ -1,0 +1,1 @@
+Artículo 187.—Cuando lo considere necesario, el BCCR podrá disponer del numerario que los bancos hayan depositado en las CAN. Especialmente en aquellos casos que requiera atender necesidades de bancos que no administren CAN o de aquellos que, administrándolas, deban atender demandas extraordinarias de numerario.
