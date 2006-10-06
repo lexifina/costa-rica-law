@@ -1,0 +1,1 @@
+Artículo 9º—En caso de ausencia o enfermedad del Secretario en las sesiones ordinarias o extraordinarias, será sustituido por el Secretario Suplente que designe la Junta de Adquisiciones, el cual asumirá los deberes inherentes al cargo de Secretario, por el tiempo de su ausencia.

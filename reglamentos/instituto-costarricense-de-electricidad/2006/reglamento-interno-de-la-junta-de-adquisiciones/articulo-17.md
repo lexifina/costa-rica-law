@@ -1,0 +1,1 @@
+Artículo 17.—No podrá ser objeto de acuerdo ningún asunto que no figure en la orden del día, salvo que estén presentes al menos tres miembros de la Junta y se declare la urgencia del mismo por unanimidad.

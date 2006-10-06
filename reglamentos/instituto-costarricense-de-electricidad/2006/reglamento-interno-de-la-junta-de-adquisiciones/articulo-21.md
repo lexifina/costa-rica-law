@@ -1,0 +1,1 @@
+Artículo 21.—Las actas y acuerdos de la Junta se consideran documentos públicos. Salvo en los casos de compras amparadas a seguridades calificadas, según lo establecido en el artículo 79.2 del Reglamento General de Contratación Administrativa.
