@@ -1,0 +1,1 @@
+Artículo 5º—Autorización por parte del Consejo Directivo. Rendido el informe por la Sección de Operaciones, el Consejo Directivo resolverá en definitiva sobre la solicitud, siendo que su decisión tendrá los recursos que establece la Ley General de Administración Pública en lo que se refiere a recursos e impugnaciones.

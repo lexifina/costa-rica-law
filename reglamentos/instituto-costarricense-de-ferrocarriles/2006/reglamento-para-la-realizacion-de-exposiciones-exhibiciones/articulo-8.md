@@ -1,0 +1,1 @@
+Artículo 8º—Garantías. Queda a discreción del Consejo Directivo del INCOFER valorar si es necesario o no la presentación de garantías, por el correcto funcionamiento de las autorizaciones, lo que justificará en la autorización respectiva.

@@ -1,0 +1,1 @@
+Artículo 7º—Otras medidas de control. INCOFER podrá inspeccionar en cualquier momento el buen uso que se le esté dando a los materiales que se están exponiendo, ya que lo mismo repercute en la imagen del ferrocarril en la comunidad de que se trate.
