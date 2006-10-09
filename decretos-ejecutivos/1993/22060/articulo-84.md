@@ -1,5 +1,6 @@
 Artículo 84.—El Departamento de Personal tendrá como función principal la administración de Recursos Humanos de la Dirección General. Además corresponderá a este Departamento:
-a) Mantener los controles de asistencia que establece el presente Reglamento. La Oficina de Personal deberá emitir un informe al Departamento Legal para que emita las sanciones correspondientes en materia de asistencia.
+a) Mantener los controles de asistencia e imponer las sanciones correspondientes que establece el presente Reglamento. El correspondiente acto administrativo deberá ser realizado por el jefe de la Oficina de Recursos Humanos de la Dirección General de Migración y Extranjería o por quien éste delegue a esos efectos. Además, deberá conocer y resolver el recurso ordinario de revocatoria que eventualmente se puedan presentar contra sanciones originadas en irregularidades de asistencia y remitirá al Departamento Legal para su trámite, los recursos de apelación, cuya resolución corresponderá al Director General.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33481 del 9 de octubre del 2006).
 b) Llevar en forma actualizada un control de los puestos de su dirección, con indicación de cuales están vacantes, ocupados en propiedad o interinamente.
 c) Confeccionar expedientes y prontuarios a los funcionarios de la Dirección.
 d) Llevar el control del periodo de prueba de los funcionarios de la Dirección.
