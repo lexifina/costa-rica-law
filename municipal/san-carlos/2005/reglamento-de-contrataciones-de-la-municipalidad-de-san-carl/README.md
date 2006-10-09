@@ -14,3 +14,4 @@ Reglamento de Contrataciones de la Municipalidad de San Carlos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-06 | la propia norma |
+| 2 | 2006-10-09 | Reglamento municipal 0 (2006-10-09) |
