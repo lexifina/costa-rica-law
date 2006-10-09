@@ -1,0 +1,1 @@
+5º—Son de carácter y aplicación indispensable, todas las recomendaciones dadas tanto por la Unidad de Informática, como por el Archivo Central en materia de gestión y conservación de la información de los sistemas institucionales, que ayuden a preservar el patrimonio documental del Instituto, así como garantizar la autenticidad, integridad y confiabilidad de la información.

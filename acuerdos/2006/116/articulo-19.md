@@ -1,0 +1,1 @@
+19.—Hacer investigaciones periódicas en el mercado sobre el avance de la tecnología, adquirir nuevos equipos de almacenamiento de información y migrar los documentos producidos por medios automatizados a nuevos soportes, antes de que los actuales sean obsoletos y se corra riesgo de pérdida de información.

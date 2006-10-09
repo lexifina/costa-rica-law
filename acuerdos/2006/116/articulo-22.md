@@ -1,0 +1,1 @@
+22.—Se debe contar con los procedimientos para garantizar el funcionamiento permanente de los programas automatizados y del equipo de cómputo, para acceder a la información en el momento que se requiera por parte de las/os usuarias/os.

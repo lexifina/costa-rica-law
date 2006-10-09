@@ -1,0 +1,1 @@
+29.—Cada usuaria/o será responsable directo del respaldo de archivos y correos electrónicos propios a las funciones que se desprendan de su cargo, de acuerdo con las especificaciones dadas en los acápites de gestión y conservación de la presente directriz.

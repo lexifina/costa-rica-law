@@ -1,0 +1,1 @@
+4º—De conformidad con el artículo cuarenta y dos (42) de la Ley número siete mil dos cientos dos (Nº 7202) del Sistema Nacional de Archivos, le corresponde al Archivo Central en conjunto con la Unidad de Informática, dictar los lineamientos necesarios para la creación, conservación, mantenimiento y eliminación de toda la documentación que se encuentre en formato automatizados.

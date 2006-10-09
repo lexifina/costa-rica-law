@@ -1,0 +1,1 @@
+20.—Dada la obsolescencia acelerada de los equipos y programas informáticos, se debe garantizar su actualización permanente, de acuerdo con las demandas tecnológicas necesarias, con el objetivo de que la información sea accesible en todo momento por las entidades autorizadas.

@@ -1,0 +1,1 @@
+6º—Es potestad del Archivo Central el determinar los plazos de eliminación de acuerdo con lo ya dispuesto en las respectivas tablas de plazos de conservación de documentos, aquella información que carece de valor administrativo-legal, y tampoco contenga un valor científico cultural.

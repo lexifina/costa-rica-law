@@ -1,0 +1,1 @@
+21.—Se debe capacitar debidamente al personal para efectuar la migración de los documentos producidos por medios automatizados a nuevos soportes, cuando su acceso se vea comprometido por la obsolescencia de los soportes en que se encuentren.

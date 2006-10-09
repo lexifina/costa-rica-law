@@ -1,0 +1,1 @@
+23.—Establecer en coordinación con la/el archivista, una política institucional para la generación de respaldos periódicos de información que garantice la permanencia, la integridad, la autenticidad y la accesibilidad de la información en los documentos.

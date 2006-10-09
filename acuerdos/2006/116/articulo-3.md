@@ -1,0 +1,1 @@
+3º—El Archivo Central es el responsable directo de dictar las políticas y lineamientos institucionales en materia archivística, las cuales son de carácter y aplicación obligatoria, y estas deben de estar en concordancia con lo dispuesto en la legislación nacional en materia de gestión documental.

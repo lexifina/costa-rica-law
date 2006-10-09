@@ -1,0 +1,1 @@
+2º—De acuerdo con la número siete mil dos cientos dos (Nº 7202) del Sistema Nacional de Archivos, es responsabilidad de la encargada o encargado del Archivo Central, la gestión documental durante todo su ciclo de vida, a nivel institucional.

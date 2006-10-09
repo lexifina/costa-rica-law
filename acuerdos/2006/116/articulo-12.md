@@ -1,0 +1,1 @@
+12.—El área de consulta de los documentos en soporte electrónico debe tener las mismas condiciones atmosféricas que los depósitos en donde se almacenan. En caso contrario, los soportes magnéticos se deben climatizar lentamente.

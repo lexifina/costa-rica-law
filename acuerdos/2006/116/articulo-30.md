@@ -1,0 +1,1 @@
+30.—En el caso de los documentos declarados con valor científico cultural y en cumplimiento con lo que establecen los organismos internacionales con respecto al patrimonio digital y herencia, es responsabilidad de las jefaturas velar porque se realicen los respaldos de los mismos, lo anterior para garantizar su inalterabilidad, acceso, consulta posterior y preservación.

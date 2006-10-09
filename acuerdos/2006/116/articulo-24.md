@@ -1,0 +1,1 @@
+24.—La Institución debe tener los procedimientos y controles adecuados que garanticen que el almacenamiento y el acceso a la información, únicamente lo realicen las/os usuarias/os autorizadas/os, dependiendo de su perfil, y dejando la respectiva constancia en la bitácora del sistema de información institucional.

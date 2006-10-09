@@ -1,0 +1,1 @@
+25.—La Jefatura de la Unidad de Informática, deberá llevar a cabo una revisión permanente de todos los procedimientos seguidos y operaciones realizadas en el área de servidores y velar porque se cumplan con las políticas y los estándares establecidos.

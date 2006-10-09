@@ -1,0 +1,1 @@
+26.—El Archivo Central será el responsable de la recepción, custodia y facilitación de los soportes magnéticos; de la administración de los archivos de datos digitales y de los programas fuentes de los diferentes sistemas de información desarrollados por el Instituto.

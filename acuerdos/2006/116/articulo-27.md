@@ -1,0 +1,1 @@
+27.—Se mantendrán respaldos actualizados de los archivos de datos, de los programas y del software de sistemas, ya que los mismos constituyen una necesidad para procurar la continuidad de operaciones cuando se presenten interrupciones causadas por una destrucción significativa de los mismos, así como, por razones de conservación.

@@ -1,0 +1,1 @@
+28.—Se establecerán procedimientos adecuados para el mantenimiento preventivo y correctivo, del software y hardware, para garantizar el procesamiento electrónico de datos y la operación continua de los sic.
