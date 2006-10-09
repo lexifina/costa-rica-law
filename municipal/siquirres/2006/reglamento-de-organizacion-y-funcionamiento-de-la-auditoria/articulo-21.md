@@ -1,0 +1,1 @@
+Artículo 21.—Necesidad de obtener asesoría y asistencia. El auditor interno debe gestionar asesoramiento competente y asistencia si su personal carece de los conocimientos, las aptitudes u otras competencias necesarias para llevar a cabo los trabajos.

@@ -1,0 +1,1 @@
+Artículo 28.—Desarrollo profesional continuado. Los funcionarios de la Auditoría Interna deben perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua, deben capacitarse al menos 30 horas anualmente.

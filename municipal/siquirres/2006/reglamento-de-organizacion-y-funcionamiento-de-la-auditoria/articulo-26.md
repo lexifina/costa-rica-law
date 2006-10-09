@@ -1,0 +1,1 @@
+Artículo 26.—Necesidad de utilizar técnicas especializadas de análisis de datos. Al ejercer el debido cuidado profesional los funcionarios de la Auditoría Interna deben considerar la utilización de herramientas de auditoría asistidas por el computador y otras técnicas de análisis de datos.
