@@ -1,0 +1,1 @@
+Artículo 3º—El Comité estará integrado por un funcionario de la Dirección de Planificación, quién tendrá a cargo la dirección técnica del mismo; por todos los titulares subordinados que integran el Ministerio de Trabajo y Seguridad Social, quienes a lo interno de sus dependencias podrán contar con la participación de un técnico.

@@ -1,0 +1,1 @@
+Artículo 5º—La Administración, en coordinación con el Departamento de Recursos Humanos y la Dirección de Planificación se encargará de gestionar la capacitación y/o formación que requieran los miembros del Comité para cumplir con sus labores.
