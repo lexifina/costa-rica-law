@@ -14,3 +14,4 @@ Reglamento para la Calificación de Deudores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-09 | la propia norma |
+| 2 | 2006-10-09 | Reglamento 580 (2006-06-01) |
