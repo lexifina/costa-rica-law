@@ -1,0 +1,1 @@
+Artículo 15.—Quedarán sujetos a las correspondientes sanciones que indica la Ley y el artículo 13, aquellos propietarios de vehículos que cometan alteraciones o fraudes en las tarjetas de estacionamiento independientemente de los delitos señalados en otras leyes.

@@ -1,0 +1,1 @@
+Artículo 26.—Los interesados en la compra de los mismos, está dirigido a aquellas personas que laboran en instituciones públicas y privadas que por el índole de sus funciones tengan que estacionar su vehículo en las zonas de estacionamiento autorizado o bien al usuario que requiera de este servicio en general.

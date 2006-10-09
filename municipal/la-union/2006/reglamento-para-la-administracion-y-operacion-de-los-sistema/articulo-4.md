@@ -1,0 +1,1 @@
+Artículo 4º—Se permitirá tiempos de tolerancia de estacionamiento autorizado para aquellos vehículos oficiales del Estado e Instituciones Públicas que por sus labores, requieran el estacionamiento temporal para la ejecución de las mismas.
