@@ -1,0 +1,1 @@
+Artículo 23.—Los abogados que por alguna razón deseen dejar de servir a la Municipalidad deberán comunicar esa decisión con treinta (30) días de antelación al Alcalde Municipal y enviar la totalidad de los expedientes judiciales que manejan a la Oficina de Gestión de Cobro.

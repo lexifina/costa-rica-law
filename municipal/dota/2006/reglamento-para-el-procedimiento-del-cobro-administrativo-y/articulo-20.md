@@ -1,0 +1,1 @@
+Artículo 20.—Cuando un abogado tenga que retirarse de su bufete por un plazo mayor de ocho (8) días hábiles deberá comunicarlo a la Oficina de Gestión de Cobro previamente por escrito, e indicar el profesional en derecho que queda a cargo de los casos asignados para cualquier duda o consulta que se presente por parte de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 26.—El capítulo de los honorarios profesionales debe ser realizado únicamente por el profesional en derecho, tomando como base el decreto de honorarios de abogado, que estuviere vigente y los mismos serán cancelados por el deudor.

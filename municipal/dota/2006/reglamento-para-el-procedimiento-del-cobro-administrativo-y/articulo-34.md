@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la determinación y suspensión de la acción judicial
+Artículo 34.—Una vez que el cobro judicial haya sido iniciado sólo podrá darse por terminado o suspendido el juicio por los siguientes motivos: 1) El pago total de la suma adeudada a la Municipalidad incluyendo las actas de juicio y cualquier gasto generado por tal acción. 2) Si es la primera vez que se pasó a cobro judicial, podrá establecer un arreglo de pago con un pago inicial del cincuenta por ciento (50%) de la deuda total y el resto a seis (6) meses plazo. 3) Por error del cobro de la deuda inexistente a la Municipalidad.
