@@ -1,0 +1,1 @@
+Transitorio IV.—Hasta tanto el Superintendente no fije el monto al saldo total adeudado de las operaciones de crédito de los deudores a que se refiere el Artículo 14, inciso n) de este Reglamento, este monto es igual a ¢1.000.000 (un millón de colones) o su equivalente en moneda extranjera.

@@ -1,0 +1,1 @@
+Transitorio V.—La presentación de estados financieros auditados no es un requisito para calificar la capacidad de pago en el Nivel 1 según el Artículo 7 de este Reglamento para los estados financieros del año 2005, excepto para los deudores que formalicen una nueva operación crediticia a partir de la entrada en vigencia de este Reglamento.

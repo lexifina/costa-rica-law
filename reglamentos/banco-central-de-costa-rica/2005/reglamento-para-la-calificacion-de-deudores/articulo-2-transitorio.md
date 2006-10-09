@@ -1,0 +1,1 @@
+Transitorio II.—Hasta tanto el Superintendente no fije el límite a la suma de los saldos totales adeudados de las operaciones de crédito de los deudores a que se refiere el Artículo 4 de este Reglamento, este límite es igual a ¢50.000.000 (cincuenta millones de colones) o su equivalente en moneda extranjera.
