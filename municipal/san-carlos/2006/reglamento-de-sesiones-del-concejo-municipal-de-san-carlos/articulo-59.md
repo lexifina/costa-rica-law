@@ -1,0 +1,1 @@
+Artículo 59.—Los regidores podrán preguntar a los munícipes durante un período máximo de cinco minutos, procurando la mayor participación posible del resto del Concejo Municipal, así como del Síndico del Distrito.

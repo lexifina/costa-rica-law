@@ -1,0 +1,1 @@
+Artículo 10.—El Regidor Propietario que llegase después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión perderá el derecho de devengar la dieta aunque no se hubiere efectuado su sustitución, conservará su derecho a voz.

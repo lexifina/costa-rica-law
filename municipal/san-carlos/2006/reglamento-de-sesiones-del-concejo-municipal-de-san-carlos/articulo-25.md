@@ -1,0 +1,1 @@
+Artículo 25.—Las actas deberán ser firmadas por el Presidente y el Secretario una vez aprobada por el Concejo Municipal, además las actas podrán llevarse en hojas sueltas cuando fueren previamente foliadas y selladas por el Departamento de Auditoría Interna de esta Municipalidad.

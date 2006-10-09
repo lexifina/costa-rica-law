@@ -1,0 +1,1 @@
+Artículo 60.—El Presidente tiene la potestad de dar o quitar la palabra a los Munícipes asistentes, trasladando dicha potestad a la persona que como asesor defina en razón de su conocimiento sobre la materia.

@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE SAN CARLOS
+AVISA
+El Concejo Municipal de San Carlos, en su sesión extraordinaria llevada a cabo en el salón de sesiones de esta Municipalidad, mediante artículo 2º inciso 12, acta Nº 63, celebrada el miércoles 8 de noviembre del 2006, acordó: debido a que se ha cumplido debidamente con el procedimiento señalado por el artículo 43 del Código Municipal y no habiendo objeción por parte de los vecinos, se procede a publicar como Reglamento de Sesiones del Concejo Municipal de San Carlos, el proyecto publicado en La Gaceta Nº 193 del lunes 9 de octubre del 2006, página Nº 43, 44, 45 y 46, rige como Reglamento a partir de su publicación en el Diario Oficial La Gaceta, derogando cualquier otra normativa reglamentaria existente sobre las sesiones del Concejo Municipal de San Carlos. Acuerdo definitivamente aprobado. Publíquese.
+(NOTA SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en la Gaceta N° 193 del 9 de octubre de 2006)
+REGLAMENTO DE SESIONES DEL
+CONCEJO MUNICIPAL DE SAN CARLOS
+La Municipalidad de San Carlos con fundamento en los artículos 169 y 170 de la Constitución Política, artículo 4, inciso a) y artículo 43 del Código Municipal, y por acuerdo del Honorable Concejo Municipal de San Carlos, número seis, acta número treinta y siete, celebrada el viernes siete de julio del dos mil seis, artículo tres, acta número cuarenta, celebrada el viernes veintiuno de julio del dos mil seis y artículo número dos, acta número cuarenta y cuatro, celebrada el viernes once de agosto del dos mil seis, crea el siguiente Reglamento de sesiones del Concejo Municipal de San Carlos.
+El presente Reglamento regulará la organización y funcionamiento de las sesiones del Concejo Municipal de San Carlos, así como las facultades y obligaciones del Presidente Secretario, Regidores, Síndicos y personal dependiente del Concejo Municipal de San Carlos, todo con fundamento en lo estipulado en la Ley 7794, denominada Código Municipal y leyes conexas.
+CAPÍTULO I
+De la instalación del Concejo Municipal
+Artículo 1º—Los Regidores que conforman el Concejo Municipal de San Carlos, tomarán posesión de sus cargos, en la sesión que iniciará a las doce horas del primero de mayo posterior a su elección y elegirán de su seno, un Presidente y un Vicepresidente que durarán en sus cargos dos años.

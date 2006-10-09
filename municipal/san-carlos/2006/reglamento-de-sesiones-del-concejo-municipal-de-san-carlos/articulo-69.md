@@ -1,0 +1,1 @@
+Artículo 69.—El Concejo Municipal contará con un secretario (a), preparado adecuadamente, nombrado por el Concejo Municipal, y éste podrá ser suspendido (a) o destituido (a) de su cargo, en caso de existir justa causa.

@@ -1,0 +1,1 @@
+Artículo 37.—En caso de que un regidor o síndico, interrumpa la sesión al mantener conversaciones con sus compañeros durante la sesión, el Presidente le llamará la atención, de continuar hablando se le hará una segunda llamada de atención en la que se le advertirá que en caso de reincidencia en la falta, el Presidente podrá solicitarle que abandone el salón de sesiones.

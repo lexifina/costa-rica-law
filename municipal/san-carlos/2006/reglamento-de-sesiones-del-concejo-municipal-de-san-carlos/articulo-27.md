@@ -1,0 +1,1 @@
+Artículo 27.—Todo acuerdo se tomará previo dictamen de una Comisión del Concejo Municipal y después de considerarse suficientemente discutido el asunto. El dictamen de Comisión podrá dispensarse, en casos urgentes si el Concejo Municipal lo acuerda por votación calificada de los regidores presentes.

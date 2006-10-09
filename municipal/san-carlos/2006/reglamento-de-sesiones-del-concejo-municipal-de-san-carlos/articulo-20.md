@@ -1,0 +1,1 @@
+Artículo 20.—Cuando concurrieren al Concejo Municipal, miembros de los Supremos Poderes o Invitados Especiales, representantes de organismos oficiales o extranjeros, representantes de instituciones autónomas o semiautónomas, se les recibirá en el salón de sesiones a la hora fijada al efecto e inmediatamente después del saludo de rigor se les concederá la palabra.

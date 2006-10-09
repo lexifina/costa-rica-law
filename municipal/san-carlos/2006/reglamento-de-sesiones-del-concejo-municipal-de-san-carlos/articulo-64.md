@@ -1,0 +1,1 @@
+Articulo 64.—Será potestativo para el Presidente Municipal el denunciar de conformidad con los artículos 389 inciso VII) y 390, inciso 2) del Código Penal, al que interrumpiere o diere gritos dentro del salón de sesiones.

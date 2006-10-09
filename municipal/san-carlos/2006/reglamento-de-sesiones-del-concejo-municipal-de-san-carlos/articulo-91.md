@@ -1,0 +1,1 @@
+Artículo 91.—Los Síndicos Suplentes que no estén sustituyendo a un Propietario y se encuentren presentes durante toda la sesión, devengarán un veinticinco por ciento de la dieta de un Regidor Propietario.

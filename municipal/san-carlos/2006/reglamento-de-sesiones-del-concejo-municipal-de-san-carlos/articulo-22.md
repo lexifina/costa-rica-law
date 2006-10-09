@@ -1,0 +1,1 @@
+Artículo 22.—En las audiencias los expositores tendrán 15 minutos para hacer su manifestación y se darán cinco minutos al Regidor que lo solicite para evacuación de consultas. El asunto se retomará en el Capítulo de Regidores.

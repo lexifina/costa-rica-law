@@ -1,0 +1,1 @@
+Artículo 77.—Los Regidores Suplentes estarán sometidos a las mismas disposiciones que regulan a los Regidores Propietarios. Sustituirán a los Propietarios de su mismo Partido Político, en los casos de ausencias temporales u ocasionales y serán llamados por el Presidente Municipal de entre los presentes y según el orden de elección.
