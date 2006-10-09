@@ -1,0 +1,1 @@
+Artículo VIII.—El encargado de caja chica no tramitará el adelanto si existe incumplimiento en el detalle indicado anteriormente. En todos los casos, el encargado de la caja chica debe cerciorarse antes de entregar el adelanto, que cumple con el artículo VI.
