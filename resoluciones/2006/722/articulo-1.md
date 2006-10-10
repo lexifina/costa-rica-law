@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-722-2006.—San José, a las once horas del día 22 de setiembre del dos mil seis.
+Considerando:
+I. Que es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+II. Que de conformidad con el artículo 2 del Decreto Ejecutivo Nº 32456-H, publicado en La Gaceta Nº 138 del 18 de julio del 2005,el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, un nuevo sistema informático denominado Sistema de Información para el Control Aduanero TIC@.
+III. Que de conformidad con el artículo 4 del Decreto Ejecutivo Nº 32456- H, antes citado, la Dirección General de Aduanas comunicará entre otros, por medios de difusión escrita, el programa de implementación por aduana del sistema informático y las modificaciones con el fin de que los usuarios del Sistema Aduanero Nacional, en adelante “el Sistema”, tomen previsiones del caso.
+IV. Que en cumplimiento de las consideraciones anteriores, la Dirección General de Aduanas mediante la RES-DGA-511-2006 de fecha 14 de julio del 2006, publicada en el Diario oficial La Gaceta Nº 151 de fecha 8 de agosto del 2006, comunicó que a partir del 25 de setiembre del 2006, se implementará en la Jurisdicción de la Aduana de Paso Canoas el Sistema de Información para el Control Aduanero TIC@.
+V. Que la Asociación de Concesionarios del Depósito Libre de Golfito (ACODELGO), ha solicitado el traslado de la fecha de implementación del Sistema informático TIC@, comunicada mediante la RES-DGA-511-2006 de previa cita, con el fin de poder completar los ajustes a sus sistemas informáticos, que permitan una operación eficiente con el TIC@.
+VI. Que en aras de facilitar y fomentar la transparencia institucional, la Dirección General de Aduanas ha considerado oportuno y conveniente trasladar el plazo de implementación al constatar que los usuarios no estaban preparados para interconectar sus operaciones con los sistemas del Ministerio de Hacienda.
+VII. Que en razón de lo anterior, la Dirección General de Informática del Ministerio de Hacienda deberá revertir algunos cambios realizados en el mensaje del DUA, que eran parte del control que se establecería con la implementación del Sistema de informático TIC@, en el Puesto Aduanero de Golfito, como es la deshabilitación del módulo de implementación de control del inventario de Golfito, el cual se ajustó en su conjunto al sistema.
+Por tanto,
+Con fundamento en las consideraciones de hecho y derecho citadas, el Director General de Aduanas, comunica lo siguiente:
+1. Trasladar para el 2 de octubre del 2006, la implementación del Sistema informático TIC@ en la Aduana de Paso Canoas.
+2. Trasladar para el 13 de noviembre del 2006, la implementación del Sistema informático TIC@, en el Puesto Aduanero de Golfito.
+3. Se deroga la RES-DGA-511-2006, de fecha 14 de julio del 2006, publicada en el Diario oficial La Gaceta Nº 151 de fecha 8 de agosto del 2006.
+4. Comuníquese al Departamento Administrativo de la Dirección General de Aduanas, para su correspondiente publicación en el Diario Oficial La Gaceta.
