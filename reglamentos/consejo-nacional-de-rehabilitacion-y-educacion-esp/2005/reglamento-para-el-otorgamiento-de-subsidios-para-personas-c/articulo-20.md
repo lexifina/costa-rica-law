@@ -7,3 +7,5 @@ E) Brindar informes solicitados por las instancias jerárquicas y por las entida
 F) Contar con un expediente para cada beneficiario(a) que recibe subsidios, de acuerdo a lo establecido en el procedimiento.
 G) El personal de las sedes regionales deberá realizar la entrega de los subsidios de acuerdo al procedimiento institucional y exigir el comprobante de recibo del mismo, con la respectiva firma o huella del beneficiario(a) o su encargado autorizado.
 H) El personal de las sedes regionales deberá solicitar los comprobantes de inversión de los subsidios pagados, cuando se entregan los mismos.
+I) El funcionario que reciba una solicitud de subsidio a través de referencia escrita deberá responder por escrito al interesado en un plazo no mayor a 10 días hábiles posteriores a la fecha en que fue presentada la solicitud.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 194 del 10 de octubre del 2006).
