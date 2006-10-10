@@ -1,0 +1,1 @@
+Artículo 9º—Del Presidente de la Comisión. La Comisión tendrá un Presidente que será nombrado de entre los miembros de La Comisión por la mayoría absoluta de ellos. Durará en su cargo un año, pudiendo ser reelecto hasta por un período más. (Artículo 49.2 L.G.A.P).

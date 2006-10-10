@@ -1,0 +1,1 @@
+Artículo 23.—De la suspensión de los términos de la prescripción. Mientras dure la investigación y hasta la resolución final del caso, se suspenderán los términos de prescripción para sancionar a las personas involucradas.

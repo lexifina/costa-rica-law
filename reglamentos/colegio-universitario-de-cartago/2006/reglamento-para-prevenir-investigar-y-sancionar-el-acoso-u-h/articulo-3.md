@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente reglamento se aplicará a todas las personas que por relaciones permanentes de empleo u ocasionales o eventuales se vinculen al C.U.C., tales como: colaboradores (as), estudiantes, visitantes, personal contratado externo del CUC, proveedores ligados o no por una relación de empleo.

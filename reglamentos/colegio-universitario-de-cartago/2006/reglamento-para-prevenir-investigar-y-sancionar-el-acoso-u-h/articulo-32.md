@@ -1,0 +1,1 @@
+Artículo 32.—Recurso de reconsideración. Contra la resolución final podrá interponerse el recurso de reconsideración ante la Decanatura, por cualquiera de las partes dentro de los 5 días hábiles siguientes a la notificación de la resolución.

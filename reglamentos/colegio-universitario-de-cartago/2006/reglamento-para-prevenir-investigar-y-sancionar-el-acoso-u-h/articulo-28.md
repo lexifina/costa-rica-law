@@ -1,0 +1,1 @@
+Artículo 28.—De la audiencia de evacuación de prueba. Vencido el término concedido en el artículo anterior, el Órgano Director hará comparecer a las partes, recibiendo en el acto la prueba testimonial y los demás medios de pruebas existentes, señalando lugar, fecha y hora para tal efecto.

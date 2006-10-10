@@ -1,0 +1,1 @@
+Artículo 15.—Excusas y Recusaciones. Si alguno de los miembros de La Comisión tiene impedimento, por alguna razón de Abstención y recusación, se observará lo dispuesto en el Título Segundo de la ley General de la Administración Pública, artículos 230 a 238.

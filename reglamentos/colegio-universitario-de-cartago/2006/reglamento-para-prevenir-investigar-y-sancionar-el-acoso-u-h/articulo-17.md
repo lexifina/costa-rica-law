@@ -1,0 +1,1 @@
+Artículo 17.—Consecuencias de la falsa denuncia. Si de la investigación resultare que la denuncia es falsa, el denunciante quedara expuesto a ser acusado por los delitos de injuria, calumnia y difamación según sea tipificada la acción de acuerdo con nuestro Código Penal.

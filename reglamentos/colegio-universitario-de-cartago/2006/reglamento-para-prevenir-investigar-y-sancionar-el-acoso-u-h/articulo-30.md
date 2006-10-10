@@ -1,0 +1,1 @@
+Artículo 30.—Del plazo para resolver. Concluida la audiencia de recepción de la prueba testimonial, el O.D.P., el Decano o el Consejo Directivo, según sea el caso, resolverá en un plazo máximo de ocho días hábiles.
