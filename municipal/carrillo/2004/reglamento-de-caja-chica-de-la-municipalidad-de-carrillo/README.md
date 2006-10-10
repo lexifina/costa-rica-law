@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-25 | la propia norma |
+| 2 | 2006-10-10 | Reglamento municipal 41 (2006-10-10) |

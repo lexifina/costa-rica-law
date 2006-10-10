@@ -1,9 +1,2 @@
-Artículo 7º—Los egresos que se realicen por caja chica se tramitarán a través de la fórmula denominada “Compras por Caja Chica”, conocida como “Adelanto de Caja Chica”, el Encargado de la Proveeduría y lo autoriza el Alcalde Municipal y contendrá la siguiente información:
-a) Número consecutivo del documento denominado “Compra por Caja Chica”.
-b) Sección solicitante
-c) Artículo o Servicio solicitado
-d) Jefatura Solicitante (nombre y firma)
-e) Autorización (firma) Alcalde Municipal
-f) Nombre completo, con los dos apellidos del funcionario que recibe el adelanto, quien será a su vez el responsable de la compra y deberá liquidar en forma personal el adelanto.
-g) Firma de la persona que recibe el adelanto.
-h) Fecha de entrega del adelanto.
+Artículo 7º—Los desembolsos hechos por la Caja Chica se reintegran semanalmente o antes de este período si el fondo llegare a agotarse. Para tal efecto el Tesorero(a) presenta al Alcalde Municipal en la hoja de factura, la fecha, clasificación del gasto, código, suma pagada. Una vez autorizado por el Alcalde Municipal el detalle de egresos hechos por Caja Chica, se procede incluir en nómina para que se confeccione el cheque correspondiente a nombre del Tesorero(a) Municipal, el cual lo cambiará en el Banco indicado para que le quede en efectivo completando el fondo fijo de caja chica que está estableciendo en ¢600.000,00 (Seiscientos mil colones exactos). El registro de los egresos efectuados para el fondo de Caja Chica, se realizará conforme al Manual de Procedimientos Financiero-Contables vigente en esta Municipalidad. Publíquese para efectos de Ley
+(Así reformado mediante acuerdo Nº 7 tomado en la sesión Nº 41 del 10 de octubre del 2006)
