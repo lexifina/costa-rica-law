@@ -1,13 +1,11 @@
-6.4 Título IV. Disposiciones finales.
-Artículo 29.—Las donaciones aprobadas o aceptadas se formalizarán en escritura pública, mediante contrato, registral o no registral, en el plazo de quince días hábiles, a partir de la remisión de la documentación correspondiente.
-La Dirección Jurídica Institucional formalizará las escrituras de donación.
-El funcionario del ICE que apruebe o acepte la donación suscribirá la escritura correspondiente. El Presidente Ejecutivo suscribirá las escrituras correspondientes a las donaciones aprobadas o aceptadas por el Consejo Directivo.
-Para tal efecto, el donador o donatario, según corresponda, deberá aportar la siguiente
-documentación para entregar o retirar la donación:
-a. Certificación notarial o registral de la personería jurídica de la entidad, con menos de un mes de expedición.
-b. Copia certificada por un notario de la cédula jurídica de la entidad.
-c. Fotocopia autenticada de la cédula de identidad del representante de la entidad. En el caso de personas físicas se deberá presentar, al menos, fotocopia autenticada de la cédula de identidad del donador o donatario, según corresponda.
-d. Nombre de la(s) persona(s) autorizada(s) para retirar la donación y fotocopia autenticada de la cédula de identidad.
-Adicionalmente, en el caso de donaciones que realiza el ICE, se aportará un testimonio de la declaración jurada protocolizada en la que el donatario o representante, según corresponda, manifieste que los bienes donados no serán traspasados a terceros, ni utilizados para fines que no les sean propios según la legislación vigente, la ciencia y la
-técnica.
-En todos los casos, la escritura pública deberá consignar el estado del bien donado, características esenciales, avalúo y el número de registro institucional, según corresponda.
+6.4 TÍTULO IV DISPOSICIONES FINALES
+Artículo 29.—Las donaciones de bienes inmuebles, bienes muebles inscribibles o bienes muebles en las que no haya tradición, de conformidad con el numeral 1397 del Código Civil, se formalizarán en escritura pública, en el plazo de veinte días hábiles, a partir de la remisión de la documentación correspondiente. La Dirección Jurídica Institucional formalizará las escrituras de donación. Las restantes donaciones se formalizarán mediante un Acta de Entrega y Recibo Conforme.
+El funcionario del ICE que apruebe o acepte la donación, suscribirá la escritura correspondiente. El Gerente General suscribirá las escrituras correspondientes a las donaciones aprobadas o aceptadas por la Junta.
+El Acta de Entrega y Recibo Conforme será firmada por la jefatura de la dependencia depositaria del bien objeto de la donación, de conformidad con el párrafo tercero del artículo 6 de este reglamento.
+El donador o donatario, según corresponda, deberá aportar la siguiente documentación para suscribir la escritura o el Acta de Entrega y Recibo Conforme:
+a) Certificación notarial o registral de la personería jurídica de la entidad, de reciente expedición.
+b) Fotocopia del documento oficial de identidad del representante de la empresa. En el caso de personas físicas se deberá presentar fotocopia del documento oficial de identidad.
+c) Nombre de la(s) persona(s) autorizada(s) para retirar la donación y fotocopia del documento oficial de identidad.
+Adicionalmente, en la escritura o en el Acta de Entrega y Recibo Conforme de las donaciones que realiza el ICE, se consignará que el donatario o representante, según corresponda, se hace responsable por el uso adecuado de los bienes donados y conviene que no sean traspasados a terceros, comercializados, ni utilizados para fines que no le sean propios según la legislación vigente, la ciencia y la técnica. Esta limitación no podrá superar el plazo definido en el artículo 292 del Código Civil.
+Los bienes solicitados para reciclaje no estarán sujetos a la limitación señalada en el párrafo anterior, siempre y cuando el beneficio del proceso de reciclaje sea utilizado directamente en el cumplimiento de los fines de la entidad solicitante. Los bienes susceptibles de reciclaje serán donados de forma equitativa.
+En la escritura pública o en el Acta de Entrega y Recibo Conforme se consignará el uso que tendrá el bien y sus características, de conformidad con el avalúo.

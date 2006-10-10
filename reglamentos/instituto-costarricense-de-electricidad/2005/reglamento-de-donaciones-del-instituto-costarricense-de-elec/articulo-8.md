@@ -1,2 +1,7 @@
-Artículo 8º—El Consejo Directivo, el Presidente Ejecutivo, el Gerente General, los Subgerentes de Sector, los Directores Administrativos y los Directores de las Unidades Estratégicas de Negocios, aprobarán o improbarán los contratos de donación de conformidad con el monto establecido por el Consejo Directivo para la aprobación de las adjudicaciones de contrataciones directas, licitaciones restringidas, por registro, remates y licitaciones públicas.
-Adicionalmente el Consejo Directivo aprobará o improbará las donaciones de bienes muebles nuevos, bienes inmuebles y dinero. La Subgerencia de Sector propietaria o depositaria del bien solicitado, someterá la recomendación correspondiente al conocimiento del Consejo Directivo.
+Artículo 8º—La Junta, el Gerente General, los Subgerentes de Sector, los Directores Administrativos, los Directores de las Unidades Estratégicas de Negocios (UEN´s), los Directores Regionales Sector Eléctrico y los jefes de los Centros de Atención Integral de Clientes (CAICs), aprobarán o improbarán donaciones, de conformidad con los siguientes montos:
+Directores Regionales y jefes de Centros de Atención Integral de Clientes (CAICs), hasta $1 000,00.
+Directores Administrativos y de UEN, superiores a $1 000,00 hasta $50 000,00.
+Subgerentes de Sector, superiores a $50 000,00 hasta $100 000,00.
+Gerente General, superiores a $100 000,00 hasta $150 000,00.
+Junta de Adquisiciones, superiores a $150 000,00.
+Adicionalmente, la Junta aprobará o improbará las donaciones de bienes muebles nuevos, inmuebles y dinero.

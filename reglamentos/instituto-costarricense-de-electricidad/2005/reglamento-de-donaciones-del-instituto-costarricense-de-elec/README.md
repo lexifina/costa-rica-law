@@ -14,3 +14,4 @@ Reglamento de Donaciones del Instituto Costarricense de Electricidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-27 | la propia norma |
+| 2 | 2006-10-10 | Reglamento 5762 (2006-10-10) |

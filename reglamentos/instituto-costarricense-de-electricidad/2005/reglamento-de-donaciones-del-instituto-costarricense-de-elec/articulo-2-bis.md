@@ -1,0 +1,2 @@
+Artículo 2 BIS.—El Consejo Directivo autoriza a la Junta de Adquisiciones, en adelante Junta; para que en nombre de la Institución, apruebe, impruebe, solicite, acepte o rechace donaciones, según el monto que señale este reglamento.
+La Junta de Adquisiciones se regirá por el Reglamento Interno aprobado por el Consejo Directivo en el artículo 11 de la Sesión 5754 del 12 de setiembre del 2006, y por el Manual de Procedimientos para Trámites de Contratación que debe resolver la Junta de Adquisiciones, aprobado en el artículo 10 de la Sesión 5754 del 12 de setiembre de 2006.
