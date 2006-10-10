@@ -1,0 +1,1 @@
+Artículo 219.—Aprobación de puntaje en la carrera artística. El Ministerio de Cultura, Juventud y Deportes, por medio de la Comisión Artística, someterá a consideración y aprobación de la Dirección General de Servicio Civil las propuestas de asignación de puntaje de los servidores artísticos.

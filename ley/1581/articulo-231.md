@@ -1,0 +1,1 @@
+Artículo 231.—Incompatibilidad del Régimen Artístico con otros regímenes. Los servidores acogidos al Régimen de Carrera Artística no podrán pertenecer a otro régimen, ni a otro sistema de beneficios e incentivos económicos vigentes en el Sector Público, distintos de los propios, salvo que la ley así lo permita.

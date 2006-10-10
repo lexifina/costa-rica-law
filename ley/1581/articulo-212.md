@@ -1,0 +1,1 @@
+Artículo 212.—Servidores artísticos. Para los efectos del presente título, son servidores artísticos los servidores del arte que han adquirido la destreza para realizar e interpretar obras artísticas, haciéndolo de manera permanente o habitual y en forma remunerada o con derecho a retribución económica y así conste por nombramiento de la institución o del órgano respectivo.

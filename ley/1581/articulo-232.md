@@ -1,0 +1,1 @@
+Artículo 232.—Legislación supletoria. Para todo lo que no se encuentre regulado expresamente en el presente título y su Reglamento, regirán las disposiciones respectivas del Estatuto del Servicio Civil y la legislación atinente.
