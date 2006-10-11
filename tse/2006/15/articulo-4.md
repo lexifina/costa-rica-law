@@ -1,0 +1,1 @@
+Artículo 4º—Plazo para publicar los trabajos.- Podrán participar en el concurso todos aquellos trabajos difundidos a partir del día de la convocatoria a la elección respectiva y hasta la fecha en que inicien en el ejercicio del cargo las personas electas.

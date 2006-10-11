@@ -1,0 +1,1 @@
+Artículo 11.—Colaboración de otras instituciones. Para la organización del concurso el TSE podrá contar con la colaboración de otras instituciones públicas y privadas, en calidad de co-auspiciantes. Estas instituciones podrán designar funcionarios de enlace ante el Comité Organizador.

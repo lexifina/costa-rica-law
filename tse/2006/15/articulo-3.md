@@ -1,0 +1,1 @@
+Artículo 3º—Convocatoria. La convocatoria al premio se realizará tres meses antes del día de la elección correspondiente por intermedio de comunicados a la prensa, la página web del TSE y los productos gráficos correspondientes. El presente reglamento será publicado íntegramente en, al menos, dos medios escritos de circulación nacional.

@@ -1,0 +1,3 @@
+Disposiciones transitorias
+Transitorio I.—Para efectos del Certamen “Construyendo Democracia: Premio a la Participación Electoral” correspondiente al año 2006-2007, se autoriza su convocatoria en la segunda semana del mes de octubre del dos mil seis, siendo aplicable lo establecido en el presente reglamento. Se autoriza para que, a partir del mes de octubre del 2006 y hasta el 31 de marzo del 2007, se designe e integre el jurado calificador y se prepare y apruebe el Manual respectivo que regirá su función.
+Dado en San José, a las catorce horas con treinta minutos del cuatro de octubre de dos mil seis.
