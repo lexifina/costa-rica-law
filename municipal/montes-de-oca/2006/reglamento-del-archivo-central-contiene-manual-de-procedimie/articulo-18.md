@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier ciudadano que esté interesado en solicitar un documento para su consulta, deberá hacer la solicitud por escrito, indicando claramente el objetivo de su investigación, llenará el “Formulario de préstamo de documentos” y además deberá identificarse con su cédula de identidad o carné de estudiante de ser el caso.

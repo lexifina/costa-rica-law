@@ -1,0 +1,1 @@
+Artículo 26.—El Comité Institucional de Selección y Eliminación de Documentos, podrá convocar a sus reuniones a cualquier funcionario de la Institución (en calidad de asesor) competente en la materia por tratar, para mayor conocimiento, amplitud y objetividad para conservación y/o eliminación de la documentación evaluada.

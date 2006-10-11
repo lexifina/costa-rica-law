@@ -1,0 +1,3 @@
+CAPÍTULO XI
+El personal del Archivo Central
+Artículo 30.—El régimen de reclutamiento de personal del Archivo Central de la Municipalidad de Montes de Oca se regirá de acuerdo con el artículo 43 de la Ley Nº 7202 del Sistema Nacional de Archivos y en la cual se indica que el Archivo Central debe estar a cargo de un profesional con especialidad en Archivística, a quién le corresponderá planificar, coordinar, controlar y supervisar las funciones archivísticas de la institución y asimismo contará con los técnicos necesarios de la misma especialidad. Asimismo, deberá regirse por el Código Municipal y el Reglamento Autónomo de Servicios de la Municipalidad de Montes de Oca.

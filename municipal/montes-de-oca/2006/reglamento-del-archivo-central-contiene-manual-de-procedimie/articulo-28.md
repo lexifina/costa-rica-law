@@ -1,0 +1,3 @@
+CAPÍTULO X
+El régimen interno del Archivo Central
+Artículo 28.—El encargado del Archivo Central dependerá directamente de la Dirección Administrativa y será el encargado de elaborar las normas internas, procedimientos y controles de organización del Archivo. La aplicación de las mismas se hará tanto en el Archivo Central como en los Archivos de Gestión de las distintas oficinas municipales. Será el responsable junto con la Dirección Administrativa de coordinar las políticas archivísticas de la institución, según lo establece el artículo 15, incisos a) y b) de la Ley General de Control Interno N° 8292.

@@ -1,0 +1,1 @@
+Artículo 11.—El Encargado del Archivo establecerá una calendarización de la remisión de documentos en el cual fijará las fechas de remisión de cada oficina. Los plazos de ingreso de los documentos al Archivo Central, estarán establecidos por su vigencia administrativa y legal.

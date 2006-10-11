@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Equipo y mobiliario
+Artículo 7º—El Archivo Central de la Municipalidad de Montes de Oca deberá contar con estantes de metal para la instalación de los documentos una vez organizados, las cajas de cartón especiales para archivos de documentos y los materiales que se requieran para facilitar esta labor. De la misma forma el mobiliario apto para la instalación de las distintas áreas que conforman el Archivo Central de la Municipalidad. Se deberá dotar de equipo informatizado para la confección de los instrumentos descriptivos y la centralización de la información primordial en bases de datos.

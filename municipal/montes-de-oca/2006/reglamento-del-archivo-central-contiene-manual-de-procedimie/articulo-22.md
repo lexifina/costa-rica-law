@@ -1,0 +1,1 @@
+Artículo 22.—El Alcalde, el Concejo Municipal y el Archivo Central deberán promover exposiciones, conferencias y seminarios con el fin de acercar a los ciudadanos y dar a conocer muy especialmente a los estudiantes, las raíces y el pasado de su cantón.

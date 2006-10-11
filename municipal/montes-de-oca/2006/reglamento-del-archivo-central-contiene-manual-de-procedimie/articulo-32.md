@@ -1,0 +1,1 @@
+Artículo 32.—Cada jefatura deberá nombrar formalmente un encargado del archivo o de los archivos de gestión de sus respectivas áreas. Este será el responsable de organizar los documentos de su dependencia, de acuerdo con las instrucciones recibidas del Archivo Central.
