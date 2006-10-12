@@ -1,0 +1,1 @@
+Artículo 13.—Cuando para la instalación del anuncio se hiciere necesario el uso de estructuras especiales de hierro, madera o cualquier otro material aceptable, se deberá presentar, ante el Departamento de Ingeniería Municipal, el plano del anuncio, así como los dibujos necesarios para juzgar el modo en que se instalará y los cálculos relativos a su estabilidad.

@@ -1,0 +1,1 @@
+Artículo 15.—Los anuncios que se coloquen en predio no edificados contiguo a vías públicas, serán puestos a la altura y distancia que indique el Departamento de Ingeniería Municipal, a efecto de no perjudicar las condiciones mínimas de seguridad y visibilidad.

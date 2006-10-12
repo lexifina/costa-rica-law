@@ -1,0 +1,1 @@
+Artículo 32.—En aquellos casos de rótulos que se instalaren en lotes vacíos o en edificios, con o sin anuencia del propietario del establecimiento comercial o habitacional, la multa se cargará al inquilino o al fabricante del rótulo. En último caso se procederá conforme con el Artículo anterior contra quien explote la actividad.

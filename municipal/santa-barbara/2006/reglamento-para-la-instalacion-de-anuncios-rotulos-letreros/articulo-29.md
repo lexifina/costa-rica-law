@@ -1,0 +1,1 @@
+Artículo 29.—La Municipalidad podrá cancelar la licencia para un anuncio y ordenar su retiro a costa del propietario, cuando se hayan hecho modificaciones no autorizadas por ella, cuando está en condiciones que afecten su estabilidad, o cuando el anuncio se haya colocado sin el cumplimiento de los requisitos estipulados en esta normativa.

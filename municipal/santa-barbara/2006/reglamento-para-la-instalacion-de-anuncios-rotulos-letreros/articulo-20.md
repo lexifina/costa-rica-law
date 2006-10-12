@@ -1,0 +1,1 @@
+Artículo 20.—Vallas. Se consideran como vallas, aquellos anuncios colocados en sitios públicos, como estadios, plazas, centros de diversión y otros, que no sean salientes, sino que se coloquen a lo largo de una malla, pared u otro y que contengan cualquier tipo de publicidad o mensaje de una empresa comercial.

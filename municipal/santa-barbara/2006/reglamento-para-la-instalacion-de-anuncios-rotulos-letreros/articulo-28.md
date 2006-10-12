@@ -1,0 +1,1 @@
+Artículo 28.—La renuncia a cumplir las órdenes de la municipalidad o la reincidencia en las faltas, serán castigadas con la repetición del cobro de las multas, con el aumento del cincuenta por ciento sobre el importe de la primera multa, cada vez que se haya colocado sin el cumplimiento de los requisitos.

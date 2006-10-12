@@ -1,0 +1,1 @@
+Artículo 10.—Se autoriza por parte de la Municipalidad de Santa Bárbara, la colocación de rótulos luminosos en las calles con motivo de festejos cívicos o patronales, previa cancelación de un derecho de un cinco por ciento (5%) del costo de arrendamiento.

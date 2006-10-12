@@ -1,0 +1,1 @@
+Artículo 22.—La tarifa se cobrará en forma trimestral por adelantado, cargada a los recibos emitidos por el centro de cómputo de la Municipalidad, en la misma forma que emiten los de las restantes patentes o licencias municipales.

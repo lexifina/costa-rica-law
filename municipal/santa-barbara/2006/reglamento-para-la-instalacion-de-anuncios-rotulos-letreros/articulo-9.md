@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad tramitará en un plazo no mayor de veinte días naturales, tanto la solicitud de permiso para la instalación de anuncios como la de renovación de estos, si fuere el caso. Transcurrido dicho plazo, sin que la Municipalidad se hubiere pronunciado al respecto, quedará de pleno derecho autorizado el permiso o renovación solicitado.

@@ -1,0 +1,1 @@
+Artículo 5º—Como requisito para que dicha patente o licencia sea otorgada, deben de encontrarse al día en el pago de los impuestos, tasas o contribuciones municipales, o cualquier otra obligación, tanto el comercio que será anunciado en el rótulo, como el dueño del predio donde se colocará tal rótulo.

@@ -1,0 +1,1 @@
+Artículo 19.—Rótulos bajo marquesinas. Los rótulos colocados bajo marquesinas estarán a una altura mínima de dos metros veinticinco centímetros, siempre que no se proyecten más allá de las dos terceras partes del ancho de la acera. Podrán ocupar el ancho mismo de la acera, cuando sean colocados a una altura superior a los dos metros cincuenta centímetros.

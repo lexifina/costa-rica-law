@@ -1,0 +1,1 @@
+Artículo 26.—Quedan absolutamente prohibidas las concentraciones intensas de luz, los materiales reflexivos, las alternativas de luz y oscuridad absoluta, así como los contrastes perjudiciales de colores vivos que puedan perturbar la visibilidad de transeúntes y conductores.

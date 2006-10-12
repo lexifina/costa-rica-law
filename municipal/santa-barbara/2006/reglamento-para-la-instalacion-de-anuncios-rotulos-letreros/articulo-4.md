@@ -1,0 +1,1 @@
+Artículo 4º—La licencia o el permiso debe de solicitarlo el propietario de la estructura en que se fijará el anuncio, contando para ello necesariamente con la anuencia del propietario del fundo en que colocará tal estructura. En dicha solicitud debe aportar comprobante del valor real del rótulo.
