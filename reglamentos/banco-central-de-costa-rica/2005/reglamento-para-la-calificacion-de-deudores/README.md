@@ -16,3 +16,4 @@ Reglamento para la Calificación de Deudores
 | 1 | 2006-10-09 | la propia norma |
 | 2 | 2006-10-09 | Reglamento 580 (2006-06-01) |
 | 3 | 2006-10-09 | Reglamento 594 (2006-08-03) |
+| 4 | 2006-10-12 | Reglamento 607 (2006-10-12) |

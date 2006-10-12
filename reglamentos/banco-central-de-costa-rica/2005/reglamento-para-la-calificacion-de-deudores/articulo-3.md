@@ -1,6 +1,7 @@
 Artículo 3º—Definiciones. Para los propósitos de estas disposiciones se entiende como:
 a) Capacidad de pago: Situación financiera y capacidad del deudor para generar flujos de efectivo en el giro normal de su negocio o de la remuneración de su trabajo y retribución de su capital, que le permitan atender sus obligaciones financieras en las condiciones pactadas.
-b) Comportamiento de pago histórico: Antecedentes crediticios del deudor en la atención de sus obligaciones financieras durante los últimos cinco años, independientemente de si éstas se encuentran vigentes o extintas a la fecha de corte.
+b) Comportamiento de pago histórico: Antecedentes crediticios del deudor en la atención de sus obligaciones financieras durante los últimos cuatro años, independientemente de si éstas se encuentran vigentes o extintas a la fecha de corte.
+(Así reformado el inciso anterior mediante sesión N° 607 del 12 de octubre del 2006).
 c) Crédito revolutivo: Operación crediticia que faculta al deudor el uso de fondos hasta un límite preautorizado, en la cual cada pago aumenta la disponibilidad de fondos, tales como líneas de crédito, tarjetas de crédito, sobregiros, y otras operaciones crediticias similares.
 d) Deudor: Persona (o personas codeudoras) que recibe fondos o facilidades crediticias de la entidad en forma directa. Adicionalmente se considerará como tal al descontatario en caso de un contrato de descuento, el cedente en una cesión con recurso, el obligado a pagar un documento en una cesión sin recurso, o la persona a la que la entidad concede un aval o garantía.
 e) Expediente de crédito: Registro electrónico, documentación física y electrónica que la entidad mantiene sobre cada deudor.
