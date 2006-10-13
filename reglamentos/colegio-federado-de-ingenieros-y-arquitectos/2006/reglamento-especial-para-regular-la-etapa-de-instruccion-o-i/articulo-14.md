@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión Instructora deberá revisar el expediente y analizar toda la documentación que ahí conste, con el fin de determinar si existe mérito para recomendar la instauración de un tribunal de honor que conozca de los hechos investigados.

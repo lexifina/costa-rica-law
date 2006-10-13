@@ -1,0 +1,1 @@
+Artículo 2º—En la etapa de instrucción o investigación previa se deberá determinar si existe una probabilidad legal de que un miembro del Colegio Federado de Ingenieros y de Arquitectos o una empresa inscrita en él, hayan cometido una violación a la ética profesional.

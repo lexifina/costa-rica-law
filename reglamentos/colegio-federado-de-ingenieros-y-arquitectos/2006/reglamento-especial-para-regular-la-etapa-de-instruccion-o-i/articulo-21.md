@@ -1,0 +1,1 @@
+Artículo 21.—La recomendación de la Comisión Instructora está comprendida dentro de lo establecido en el artículo 273 de la Ley General de la Administración Pública, razón por la cual, hasta que la Junta Directiva General no haya conocido el informe, no podrá ser dado a conocer a las partes en general.

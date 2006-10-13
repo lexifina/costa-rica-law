@@ -1,0 +1,1 @@
+Artículo 15.—En un plazo de quince días calendario, la comisión deberá elaborar un informe debidamente razonado y dirigido a la Dirección Ejecutiva, donde se indique si estiman que las conductas sometidas a su conocimiento se presumen como violatorias de la ética profesional.

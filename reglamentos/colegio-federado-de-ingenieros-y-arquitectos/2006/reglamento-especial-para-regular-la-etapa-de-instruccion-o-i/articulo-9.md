@@ -1,0 +1,1 @@
+Artículo 9º—Recabada la información indicada en el artículo anterior, el Departamento Régimen Disciplinario pondrá en conocimiento de los denunciados o investigados, los hechos que se presumen como infracciones a la ética profesional, para que expresen lo que estimen oportuno, dando un plazo de 15 días hábiles para que se refiera a la denuncia y el contenido del expediente.

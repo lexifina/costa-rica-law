@@ -1,0 +1,1 @@
+Artículo 20.—Cumplido con lo dispuesto en el artículo anterior, la Dirección Ejecutiva remitirá la recomendación de la Comisión de Instrucción a conocimiento de la Junta Directiva General, para que resuelva lo que en derecho corresponda.

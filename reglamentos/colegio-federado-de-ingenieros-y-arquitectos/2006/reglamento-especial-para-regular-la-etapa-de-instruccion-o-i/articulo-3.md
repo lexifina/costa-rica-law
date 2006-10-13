@@ -1,0 +1,1 @@
+Artículo 3º—La etapa de instrucción o investigación previa estará a cargo del Departamento de Régimen Disciplinario, sin perjuicio de los órganos que intervengan en dicho procedimiento, por disposición de este Reglamento, del Reglamento del Procedimiento Disciplinario de los Miembros del Colegio Federado de Ingenieros y de Arquitectos o de su Ley Orgánica.

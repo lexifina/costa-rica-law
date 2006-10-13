@@ -1,0 +1,1 @@
+Artículo 4º—Las denuncias por presunta violación al Código de Ética Profesional se presentarán en la Plataforma de Servicios, para su respectivo trámite. Podrán presentarse personalmente, por correo o vía facsímile, en cuyo caso deberá presentarse el correspondiente original dentro del término de tres días.
