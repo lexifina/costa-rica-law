@@ -18,3 +18,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 3 | 2006-07-06 | Decreto Ejecutivo 33266 (2006-07-06) |
 | 4 | 2006-08-23 | Decreto Ejecutivo 33364 (2006-08-23) |
 | 5 | 2006-08-24 | Decreto Ejecutivo 33351 (2006-08-24) |
+| 6 | 2006-10-13 | Decreto Ejecutivo 33415 (2006-10-13) |
