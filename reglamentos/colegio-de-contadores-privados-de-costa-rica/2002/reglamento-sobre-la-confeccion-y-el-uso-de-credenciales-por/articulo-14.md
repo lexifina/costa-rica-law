@@ -1,1 +1,0 @@
-Artículo 14.—La Administración establecerá los controles internos necesarios para la emisión, renovación y destrucción de los carnés de colegiados, así como de los carnés de los familiares e invitados. Tendrá atribuciones para velar y hacer acatar las disposiciones del presente Reglamento.
