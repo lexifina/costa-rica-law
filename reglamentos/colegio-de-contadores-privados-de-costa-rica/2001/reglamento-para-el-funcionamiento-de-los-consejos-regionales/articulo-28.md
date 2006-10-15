@@ -1,1 +1,0 @@
-Artículo 28.- Cada consejo deberá formular su proyecto de presupuesto anual, que deberá remitirse, a más tardar el último día hábil, para conocimiento y análisis de la Junta Directiva del Colegio, a fin de integrarlo en el presupuesto general para lo pertinente.

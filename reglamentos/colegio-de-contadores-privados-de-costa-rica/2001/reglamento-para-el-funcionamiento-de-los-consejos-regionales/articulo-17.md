@@ -1,1 +1,0 @@
-Artículo 17.- La asamblea general ordinaria en que los consejos regionales deban elegir a su respectivo consejo directivo no podrá ser convocada fuera del término de los quince días hábiles posteriores a la fecha en que venza el período del consejo directivo anterior.

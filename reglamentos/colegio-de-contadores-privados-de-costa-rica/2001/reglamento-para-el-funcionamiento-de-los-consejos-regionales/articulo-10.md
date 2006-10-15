@@ -1,1 +1,0 @@
-Artículo 10.- El consejo directivo del Consejo regional se instalará en la asamblea en que resulte electa, y será juramentado en ese acto por el presidente del Colegio o por su representante autorizado.

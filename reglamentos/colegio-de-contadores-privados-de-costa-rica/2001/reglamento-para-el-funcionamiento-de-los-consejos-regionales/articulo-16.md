@@ -1,1 +1,0 @@
-Artículo 16.- La elección del consejo directivo se hará bajo la responsabilidad del Tribunal de Elecciones del Colegio que la delegará en dos representantes de su seno. Será válida cuando haya sido convocada con la anticipación y la divulgación establecidas y concurran a la respectiva asamblea no menos de ocho miembros debidamente inscritos.

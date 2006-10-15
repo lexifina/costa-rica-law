@@ -1,1 +1,0 @@
-Artículo 29.- En asamblea general ordinaria de cada consejo, el consejo directivo informará a sus afiliados sobre el estado general de los recursos financieros y económicos que provengan del fondo financiero.

@@ -1,1 +1,0 @@
-Artículo 11.- Todas las decisiones se tomarán por mayoría de los votos de los presentes. Tres miembros formarán quórum para sesionar. Los acuerdos que tome el Consejo quedarán en firme en la sesión siguiente, pero en casos especiales podrán dejarse en firme en la misma sesión en la que se tomen.

@@ -1,1 +1,0 @@
-Artículo 24.- La Junta Directiva del Colegio será la encargada de administrar los bienes adquiridos o donados y adscritos a cualquier consejo y de ser necesario, se recurrirá a la asesoría técnica y profesional, cuando se trate de bienes inmuebles cuya área mínima será de 150 metros cuadrados.

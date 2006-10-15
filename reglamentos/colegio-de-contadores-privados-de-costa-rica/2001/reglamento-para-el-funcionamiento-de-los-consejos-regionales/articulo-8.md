@@ -1,1 +1,0 @@
-Artículo 8°.- El consejo directivo se reunirá ordinariamente una vez al mes y extraordinariamente cuando así lo soliciten un mínimo de tres de sus miembros, o a petición de la Junta Directiva del Colegio, para conocer asuntos de especial interés. Todas las decisiones se tomarán por mayoría de votos presentes. Tres miembros formarán quórum para sesionar.
