@@ -1,1 +1,0 @@
-Artículo 12.—En caso de duda sobre algún acuerdo tomado por el Consejo de Administración del CECAP, o de denuncia o reclamo formal de los colegiados, el asunto será conocido por la Junta Directiva del Colegio, la que resolverá en última instancia.

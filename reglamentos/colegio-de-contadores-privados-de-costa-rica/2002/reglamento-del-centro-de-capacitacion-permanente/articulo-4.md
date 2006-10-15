@@ -1,1 +1,0 @@
-Artículo 4º—Los ingresos producto de su operación serán depositados diariamente en una cuenta corriente especial en un banco del Sistema Bancario Nacional, a nombre del Colegio de Contadores Privados de Costa Rica, con indicación del nombre del CECAP.
