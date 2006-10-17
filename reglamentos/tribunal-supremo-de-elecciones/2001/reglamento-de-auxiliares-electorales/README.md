@@ -15,3 +15,4 @@ Reglamento de Auxiliares Electorales
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
 | 2 | 2006-08-29 | Decreto TSE 9 (2006-08-29) |
+| 3 | 2006-10-17 | Decreto TSE 16 (2006-10-17) |

@@ -1,2 +1,2 @@
-Artículo 8º—Concluido el proceso electoral, los Auxiliares recibirán la suma fija que disponga el Tribunal para compensar los gastos en que incurran por concepto de alimentación y transporte, tanto el día de las elecciones, como durante las jornadas de capacitación y de preparación de las votaciones.
-(Así reformado por el artículo 4° del DTSE N° 9 del 29 de agosto de 2006)
+Artículo 8º—Concluido el proceso electoral, los Auxiliares recibirán la suma fija que disponga el Tribunal para compensar simbólicamente los servicios de apoyo al proceso electoral, entendiendo que dicha retribución no se contabiliza como salario para efectos del cálculo de prestaciones laborales, aguinaldo, vacaciones u otros derechos inherentes a los contratos de trabajo.
+(Así reformado mediante el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 16 del 17 de octubre del 2006).
