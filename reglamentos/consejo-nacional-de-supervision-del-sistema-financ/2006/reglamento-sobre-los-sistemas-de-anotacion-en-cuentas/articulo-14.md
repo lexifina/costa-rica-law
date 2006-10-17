@@ -1,0 +1,3 @@
+Artículo 14.—Constitución de valores. Los valores representados por medio de anotaciones electrónicas en cuenta se constituyen como tales en virtud de su inscripción en el correspondiente registro contable.
+Para tal efecto, el emisor debe solicitar la inscripción de la emisión en una entidad miembro del Sistema Nacional de Registro de Anotaciones en Cuenta. A partir de la inscripción de la emisión, se deben realizar las inscripciones de los valores comprendidos en la emisión en las cuentas de sus respectivos titulares.
+Los valores en copropiedad se deben inscribir en el correspondiente registro contable a nombre de todos los cotitulares.

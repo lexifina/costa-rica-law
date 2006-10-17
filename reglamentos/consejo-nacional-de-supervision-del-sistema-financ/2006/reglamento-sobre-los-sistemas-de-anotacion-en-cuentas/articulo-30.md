@@ -1,0 +1,1 @@
+Artículo 30.—Derogatoria. Deróguese el Reglamento sobre el sistema de anotación en cuenta, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo 6, del Acta de la Sesión 303- 2002, celebrada el 28 de mayo del 2002. Publicado en La Gaceta Nº 113 del 13 de junio del 2002.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento aplica para todos los valores provenientes tanto de emisores públicos como privados, que sean representados por medio de anotaciones electrónicas en cuenta que sean objeto de oferta pública.

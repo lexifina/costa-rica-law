@@ -1,0 +1,2 @@
+Artículo 4º—Individualización de cuentas. El registro contable de valores se debe organizar bajo una estructura que permita la individualización de los titulares de los valores en el Sistema Nacional de Registro de Anotaciones en Cuenta.
+La identificación precisa de los titulares de los valores debe ser posible en el registro central. Dicha identificación se regirá por lo establecido en el Reglamento de Custodia.

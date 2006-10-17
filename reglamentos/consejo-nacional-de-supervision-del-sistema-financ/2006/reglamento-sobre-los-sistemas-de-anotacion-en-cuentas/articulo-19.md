@@ -1,0 +1,5 @@
+CAPÍTULO III
+Administración de los registros
+SECCIÓN I
+Registro de la deuda del Estado y de las instituciones públicas
+Artículo 19.—Entidades Autorizadas. De acuerdo con el Artículo 117 de la Ley Reguladora del Mercado de Valores, el Banco Central de Costa Rica es el responsable de administrar el registro contable de valores mediante anotación electrónica en cuenta de las emisiones del Estado y las instituciones públicas '79 puede delegar, total o parcialmente, la administración de dicho registro en una central de valores. En este caso, dos representantes designados por la Junta Directiva del Banco Central deben integrarse a la junta directiva de la respectiva entidad, para lo cual esta última debe introducir las modificaciones estatutarias respectivas. Asimismo, la entidad delegada debe cumplir con las demás condiciones establecidas en el acuerdo de la Junta Directiva del Banco Central de Costa Rica que disponga la delegación, así como con todos los requisitos establecidos en el presente Reglamento.

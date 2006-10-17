@@ -1,0 +1,4 @@
+Artículo 10.—Principios que rigen la inscripción de valores y movimientos en el registro. El registro contable de valores mediante anotación electrónica en cuenta se rige por los principios de prioridad de la inscripción y tracto sucesivo.
+De conformidad con el principio de prioridad, una vez que se ha practicado una inscripción, no puede practicarse ninguna otra sobre el mismo valor que tenga origen en un hecho producido con anterioridad en lo que resulte opuesta o incompatible con la anterior.
+El acto que se inscriba primero en el registro tiene prioridad sobre los posteriores. Las entidades adheridas deben practicar las operaciones correspondientes según el orden de presentación.
+Conforme al principio de tracto sucesivo, para la transmisión de valores es precisa la previa inscripción de estos en el registro contable a favor de quien transmite. Igualmente lo es para la constitución, modificación o extinción de derechos reales sobre valores inscritos.
