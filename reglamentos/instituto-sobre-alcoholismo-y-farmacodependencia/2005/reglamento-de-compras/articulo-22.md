@@ -1,0 +1,1 @@
+Artículo 22.—Recepción de documentos. Todos los documentos requeridos para su pago, son recibidos por el Subproceso Financiero, donde se verificará, que hayan cumplido las formalidades básicas reglamentarias para proceder al correspondiente pago.

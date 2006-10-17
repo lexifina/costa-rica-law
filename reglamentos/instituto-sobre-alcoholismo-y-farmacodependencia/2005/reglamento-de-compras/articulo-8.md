@@ -1,0 +1,1 @@
+Artículo 8º—Existencia de muestras y atestados. Adquisición de Bienes y Servicios, pondrá a disposición de la unidad solicitante las muestras, atestados e informes técnicos suministrados por el proveedor en relación con los bienes o servicios solicitados.

@@ -1,0 +1,1 @@
+Artículo 21.—Justificantes de pago. Para todos los pagos (por contratación de bienes y servicios) se requiere: copia de la orden de compra, original del contrato, original de la factura, entrada a almacén y recibido conforme del encargado de la unidad solicitante.
