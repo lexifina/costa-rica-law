@@ -23,3 +23,4 @@ Reglamento a la Ley de Loterías.
 | 8 | 2005-08-10 | Decreto Ejecutivo 32363 (2005-08-10) |
 | 9 | 2005-11-04 | Decreto Ejecutivo 32787 (2005-11-04) |
 | 10 | 2006-10-11 | Decreto Ejecutivo 33529 (2006-10-19) |
+| 11 | 2006-10-19 | Decreto Ejecutivo 33469 (2006-10-19) |
