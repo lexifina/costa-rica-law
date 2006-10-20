@@ -1,0 +1,2 @@
+Artículo 49.—Registro de emisiones. Sólo serán objeto de inscripción en SAC las emisiones inscritas en el Registro Nacional de Valores e Intermediarios. En todos los casos, las emisiones a registrar deberán cumplir con los estándares y las características que se establezcan mediante normativa complementaria.
+En caso de que el Emisor requiera el registro de emisiones con características no contempladas en la normativa complementaria, deberá solicitar por escrito al DSAC, la evaluación correspondiente, de acuerdo a lo estipulado en la normativa complementaria.

@@ -1,0 +1,2 @@
+Artículo 13.—Verificación de requisitos. Corresponderá al BCCR - por ser el administrador del sistema- la verificación del cumplimiento de este Reglamento, cualquier otro acuerdo emanado por la Junta Directiva o la Gerencia del BCCR, en relación a los temas de anotación en cuenta.
+Si se determinase el incumplimiento de algún participante, el BCCR concomitantemente comunicará a la SUGEVAL para que esta proceda a analizar la aplicación de una acción disciplinaria.

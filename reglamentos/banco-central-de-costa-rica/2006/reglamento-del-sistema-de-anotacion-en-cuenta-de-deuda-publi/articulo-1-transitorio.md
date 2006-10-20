@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I.–El SAC registrará en forma inicial, únicamente las emisiones del BCCR y el Ministerio de Hacienda. Esto se realizará en forma paulatina, de acuerdo a los procedimientos para ello establecidos, en tanto el SAC alcance la madurez necesaria para administrar emisiones del Resto del Sector Público. Será la Junta Directiva del Banco Central, quien determine con base en los resultados obtenidos, el momento en que se permitirá el registro en SAC, de las emisiones del Resto del Sector Público.

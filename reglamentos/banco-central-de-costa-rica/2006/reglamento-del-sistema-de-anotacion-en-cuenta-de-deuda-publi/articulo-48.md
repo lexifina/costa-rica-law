@@ -1,0 +1,1 @@
+Artículo 48.—Representante de emisor. Los emisores podrán utilizar la figura de Representante de Emisor, quien se encargará del registro y administración de las emisiones en SAC. Para ello deberán comunicar al DSAC, de acuerdo a lo estipulado en la normativa complementaria, la inscripción del Representante de Emisor.

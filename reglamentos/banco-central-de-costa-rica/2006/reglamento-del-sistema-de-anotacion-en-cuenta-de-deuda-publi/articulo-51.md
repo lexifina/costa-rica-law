@@ -1,0 +1,1 @@
+Artículo 51.—Suspensión de emisiones. El DSAC, por instrucción de la SUGEVAL, anotará y levantará las suspensiones a las emisiones que está le ordene con fundamento en una resolución motivada. Estas suspensiones imposibilitarán las operaciones con estas emisiones en los mercados primario y/o secundario, según indique la SUGEVAL.

@@ -1,0 +1,1 @@
+Artículo 53.—Participantes del módulo. Podrán participar en este módulo los organizadores de mercado o los sistemas de compensación y liquidación que compensen sus operaciones bajo la modalidad multilateral neta. Otros participantes que por la naturaleza de sus funciones lo requieran, podrán tener acceso a este módulo a nivel de consultas.

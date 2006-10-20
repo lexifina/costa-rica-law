@@ -1,0 +1,1 @@
+Artículo 44.—Estados de cuenta. A través del interfaz de SAC, las entidades adheridas podrán disponer de estados de cuenta con el detalle de movimientos de valores, de acuerdo a lo estipulado mediante normativa complementaria.
