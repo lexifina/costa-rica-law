@@ -1,0 +1,1 @@
+Artículo 10.—Todos los titulares subordinados que integran el Ministerio de Trabajo, establecerán los registros para documentar toda la información que se genere del establecimiento y aplicación del SEVRIMTSS.

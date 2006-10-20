@@ -1,0 +1,1 @@
+Artículo 6º—Es responsabilidad de los titulares subordinados que integran el Ministerio de Trabajo y Seguridad Social, y que se ubiquen en un nivel de riesgo superior al treinta por ciento (30%), formular actividades para la administración de dichos riesgos e incluirlos en los Planes de Mitigación de los mismos.

@@ -1,0 +1,1 @@
+Artículo 2º—El SEVRI-MTSS tendrá como objetivo general producir información que apoye la toma de decisiones, orientada a ubicar a la institución en un nivel de riesgo aceptable, facilitando el logro de los resultados del Ministerio de Trabajo y Seguridad Social de manera razonable.

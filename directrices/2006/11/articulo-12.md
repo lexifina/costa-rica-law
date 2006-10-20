@@ -1,0 +1,1 @@
+Artículo 12.—Una vez que los titulares subordinados comuniquen los resultados de la Valoración de Riesgos, el Departamento de Control Interno elaborará un informe de resultados al Jerarca de la Institución, con el fin que se giren las instrucciones pertinentes sobre aquellos eventos prioritarios.

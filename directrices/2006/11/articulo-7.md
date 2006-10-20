@@ -1,0 +1,1 @@
+Artículo 7º—Se designa al Departamento de Control Interno, por medio de la Dirección General de Planificación de este Ministerio, como equipo de trabajo y parte de la estructura organizacional que apoye, coordine y promueva la aplicación del SEVRI-MTSS.

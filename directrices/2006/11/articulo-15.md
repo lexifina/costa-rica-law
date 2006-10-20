@@ -1,0 +1,1 @@
+Artículo 15.—La participación de la Auditoría Interna deberá circunscribirse a realizar su propia valoración de riesgos, a fiscalizar, asesorar y advertir al resto de la administración sobre el SEVRI-MTSS, en procura de mejorar dicho sistema como lo define la normativa que lo regula.

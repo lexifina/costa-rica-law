@@ -1,0 +1,1 @@
+Artículo 9º—Los titulares subordinados que integran el Ministerio de Trabajo y Seguridad Social serán responsables de promover una cultura favorable y una actitud proactiva de los funcionarios a lo interno de las dependencias que lideran.

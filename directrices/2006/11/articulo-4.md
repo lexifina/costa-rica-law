@@ -1,0 +1,1 @@
+Artículo 4º—Se define la estructura de riesgos para el Ministerio de Trabajo y Seguridad Social. Sin embargo, se pueden dar a futuro nuevas declaraciones de riesgos que se incorporen a esta lista. En este sentido, ver anexo 1 “Estructura de Riesgos Institucionales”.

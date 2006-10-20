@@ -1,0 +1,1 @@
+Artículo 11.—Los titulares subordinados, en la medida de lo posible, según las características de cada dependencia, darán participación a los sujetos interesados por medio oficial sobre el funcionamiento del SEVRIMTSS.
