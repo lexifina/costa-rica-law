@@ -165,6 +165,9 @@ Inspección por inactividad | por inspección | 5.600,00
 Inspección por sustitución de embarcación | por inspección | 5.600,00
 Inspección por cambio de motor | por inspección | 5.600,00
 Inspección por emisión de licencia por primera vez | por inspección | 5.600,00
+Otras Inspecciones, embarcaciones extranjeras: (Así adicionado por acuerdo AJDPL/470 del 20 de octubre de 2006) | |
+Por hora o fracción (horario diurno) | Hora | $30.00
+Por hora o fracción (horario extraordinario) | Hora | $ 40.00
 CARNÉ DE IDENTIFICACIÓN DE PESCA COMERCIAL (Por año / Por trámite) | * |
 Pesca Comercial (Nacionales y Residentes) | Carné | 4.000,00
 Venta de Huevos de Tortuga | Carné | 4.000,00
