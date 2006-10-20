@@ -15,3 +15,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | --- | --- | --- |
 | 1 | 2006-03-31 | la propia norma |
 | 2 | 2006-05-18 | Decreto Ejecutivo 33161 (2006-05-18) |
+| 3 | 2006-10-20 | Decreto Ejecutivo 33408 (2006-10-20) |
