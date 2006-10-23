@@ -1,2 +1,2 @@
-Artículo 21.—Revisión y aprobación de los Planes: El Ministerio procederá a la revisión de los planes a que se refiere este Capítulo y emitirá una resolución o informe técnico en un plazo no mayor de un mes. Esta resolución o informe técnico será la ficha técnica que se utilizará de base en la inspección para la verificación de la implementación de dichos planes.
-Si el profesional responsable tuviera observaciones justificadas, estas serán señaladas en el momento de la inspección, a efecto de que se tomen las medidas correctivas pertinentes.
+Artículo 21.—Verificación de la Implementación de los Planes. El Ministerio procederá a la verificación de los planes señalados en el artículo 19. Si el profesional responsable tuviera observaciones justificadas, estas serán señaladas en el momento de la inspección, a efecto de que se tomen las medidas correctivas pertinentes
+(Así reformado mediante el artículo 4º del decreto ejecutivo Nº 33410 del 23 de octubre del 2006)
