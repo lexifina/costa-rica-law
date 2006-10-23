@@ -1,0 +1,1 @@
+Artículo 6º—Del funcionario responsable de dirigir el Comité: El Comité sesionará bajo la dirección del Presidente y en ausencia de este presidirá la reunión el Subgerente Administrativo Financiero, o en su defecto el Gerente de Desarrollo Social.

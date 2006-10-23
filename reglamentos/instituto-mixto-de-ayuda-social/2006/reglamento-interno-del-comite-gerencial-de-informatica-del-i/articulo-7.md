@@ -1,0 +1,2 @@
+Artículo 7º—Quórum. El quórum para que pueda sesionar válidamente el órgano colegiado será el de la mayoría absoluta de sus componentes. Los acuerdos serán adoptados por mayoría absoluta de los miembros asistentes. El número de éstos se verificará en el lugar designado para llevar a cabo la sesión al inicio de la misma.
+En todos aquellos casos en que medie empate en la votación de algún asunto entre los miembros del Comité, el Presidente tendrá en razón de su investidura, doble voto, para resolver el conflicto existente.
