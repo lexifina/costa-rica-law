@@ -1,0 +1,1 @@
+Artículo 14.—El juez procederá a levantar un acta de destrucción cuyo original conservará la autoridad judicial actuante, de la cual entregará copia a cada uno de los miembros de la Comisión que se encuentren presentes, a la Dirección General del Organismo de Investigación Judicial y al Instituto Costarricense Sobre Drogas.

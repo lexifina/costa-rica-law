@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a la Comisión, con la colaboración y apoyo del Organismo de Investigación Judicial, participar en la destrucción de aquella droga que haya sido hallada o decomisada, siguiendo los procedimientos señalados al efecto en el presente reglamento.

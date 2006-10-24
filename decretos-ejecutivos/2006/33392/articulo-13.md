@@ -1,0 +1,1 @@
+Artículo 13.—Cumplidos con los requisitos del artículo 10 del presente reglamento, con la presencia del juez que ordenó la destrucción y del representante del Laboratorio de Química Analítica, se procederá a la destrucción de la droga.

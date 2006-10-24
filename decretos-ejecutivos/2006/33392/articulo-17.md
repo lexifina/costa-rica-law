@@ -1,0 +1,1 @@
+Artículo 17.—El Jefe de la Sección de Química Analítica del Organismo de Investigación Judicial, mantendrá un inventario estricto de control actualizado, donde se hará constar la cantidad y el tipo de droga, sustancias, plantas, semillas o muestras recibidas, su procedencia, fecha de recibo y fecha de salida, fecha del acta de destrucción y cualquiera otra información de interés.

@@ -1,0 +1,1 @@
+Artículo 7º—La muestra decomisada a que se refiere el artículo 6 del presente reglamento, deberá ser recolectada siguiendo los procedimientos establecidos en el Manual de Recolección de Indicios, elaborado por el Departamento de Laboratorios de Ciencias Forenses del Organismo de Investigación Judicial y debidamente aprobado por Corte Plena.

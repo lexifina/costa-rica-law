@@ -1,0 +1,1 @@
+Artículo 18.—En toda diligencia de destrucción se verificará el peso de cada una de las cantidades a destruir. También el juez realizará en ese acto el escogimiento selectivo de varias muestras de droga a la cual se practicará una prueba de campo, en los casos en que sea posible, a efecto de verificar previo a la diligencia, el tipo de droga de que se trata.
