@@ -14,3 +14,4 @@ Reglamento Interno para la Asignación, Uso y Control de Equipos de Telefonía M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-09 | la propia norma |
+| 2 | 2006-10-24 | Reglamento 64 (2006-10-24) |
