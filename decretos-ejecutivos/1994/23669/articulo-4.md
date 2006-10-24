@@ -1,3 +1,1 @@
-Artículo 4º.-Los Directores y Subdirectores de las instituciones adscritas, por el sólo hecho de ocupar sus puestos, tendrán derecho al reconocimiento de dicha compensación económica (pago por dedicación exclusiva), sin necesidad de llenar los requisitos a que se refiere el artículo 3º.
-El mismo reconocimiento y en las mismas condiciones se hará a los ministros, viceministros y oficiales mayores, por el sólo hecho de ocupar esos puestos y por puestos excluidos del Régimen de Servicio Civil.
-(DEROGADO PARCIALMENTE por el artículo 1° del Decreto Ejecutivo N° 28415 de 17 de enero de 2000, publicado en La Gaceta N° 18 de 26 de enero de 2000, Alcance 6, el cual deroga del primer párrafo la siguiente frase "Los presidentes ejecutivos, gerentes y subgerentes de las instituciones y empresas públicas y".)
+Artículo 4º.- (Este artículo fue derogado por el artículo 2° del decreto ejecutivo N° 33451 del 24 de octubre del 2006)
