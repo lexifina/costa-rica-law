@@ -1,0 +1,13 @@
+Nº 33391
+EL PRESIDENTE DE LA REPÚBLICA Y
+EL MINISTRO DE GOBERNACIÓN Y POLICÍA Y SEGURIDAD PÚBLICA
+Con fundamento en los incisos 3) y 18) del artículo 140 de la Constitución Política; y artículos 25, inciso 1) y 28, inciso 2), acápites a) y b) de la Ley General de la Administración Pública.
+Considerando:
+I.—Que de conformidad con el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República, Resolución N° 4-DI-AA-2001, artículo 21, no existe necesidad de que se presenten facturas por gastos de alimentación, solamente cuando el propio Reglamento así lo disponga o cuando la Administración lo establezca de manera previa, formal y general.
+II.—Que el Reglamento de Gastos de Viaje y de Transporte para funcionarios del Ministerio de Seguridad Pública, Decreto Ejecutivo N° 26858-SP, estableció en forma general que debía presentarse facturas por los gastos en que incurriera el funcionario cuando realizara una gira o viaje fuera del país, lo que ha llevado a interpretar que también debe presentarse facturas por gastos de alimentación. Por tanto,
+DECRETAN:
+Artículo 1º—Refórmense los artículos 11 y 19 del Decreto Ejecutivo N° 26858-SP: “Reglamento de Gastos de Viaje y Transporte para Funcionarios del Ministerio de Seguridad Pública”, para que en adelante se lea de la siguiente manera:
+“Artículo 11.—Documentos que acompañen a la liquidación. Junto con la liquidación, el funcionario deberá adjuntar facturas de los gastos realizados, -con excepción de los gastos por alimentación-, y cualquier otro documento que le solicite la Oficialía Presupuestal al revisar la liquidación de gastos.
+En caso de viajes al exterior, se deberá presentar el talón del billete o billetes de avión, a efecto de verificar la hora de salida y de llegada al lugar de destino, con indicación de las escalas si las hubiera. Deberá presentarse el pasaporte y fotocopia del mismo, todo de conformidad con las disposiciones del Reglamento de Viáticos.”
+Artículo 19.—Deber de justificación de los gastos. Los gastos se justificarán en los casos que los funcionarios no utilicen los servicios de alimentación y hospedaje que prestan las dependencias del Ministerio en la zona a la cual viajen. En el caso de que el monto estipulado en la factura fuera menor que el monto establecido en la tabla estipulada en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República, el Ministerio reconocerá solamente el monto consignado en la factura presentada para la liquidación respectiva.
+Debe entenderse que se excepciona de la presentación de factura cuando se trate de gastos por alimentación.”
