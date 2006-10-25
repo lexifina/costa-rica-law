@@ -1,6 +1,6 @@
 # Código de Trabajo
 
-Ley N° 2 del 1943-08-27. SINALEVI, ficha 8045: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8045&param2=8630&param3=1>.
+Ley N° 2 del 1943-08-27. SINALEVI, ficha 8045: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8045&param2=64836&param3=1>.
 
 Publicada en La Gaceta N° 192 del 1943-08-29.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 64 | 2006-02-10 | SINALEVI | 2006-02-10 |
 | 18 de 64 | 2006-04-04 | Ley 8492 | 2006-03-09 |
 | 19 de 64 | 2006-07-20 | Ley 8520 | 2006-06-20 |
+| 20 de 64 | 2006-10-25 | Sala Constitucional, resolución 15487-06 (2006-10-25) | 2006-10-25 |
