@@ -1,0 +1,1 @@
+Artículo 90.—Satisfacción del informe pericial. Cuando el solicitante se encuentre satisfecho con el peritaje, el Consejo Calificador del Ejercicio de la Enfermería procederá a girar los honorarios correspondientes al Perito, incluyendo los reajustes que se hayan aprobado o las rebajas con las que haya sido sancionado el perito por su incumplimiento.

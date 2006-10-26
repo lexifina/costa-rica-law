@@ -1,0 +1,1 @@
+Artículo 136.—Nombramiento miembros en las mesas de votación. Cada tendencia nombrará en las mesas de votación un fiscal propietario y un suplente. La identificación que los acredite como tal, será entregada por el Tribunal Electoral. La lista de fiscales por tendencia será presentada al momento de la inscripción de la papeleta ante el Tribunal Electoral.
