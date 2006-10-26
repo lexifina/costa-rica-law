@@ -14,3 +14,4 @@ Reglamento de Sesiones, Sede y Quorum del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-13 | la propia norma |
+| 2 | 2006-10-26 | Reglamento municipal 12 (2006-10-26) |
