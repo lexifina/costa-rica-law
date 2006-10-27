@@ -1,9 +1,5 @@
-ARTICULO 74.- Certificaciones
-Para calificar un producto como ecológico, deberá tener una
-certificación otorgada por una agencia nacional o internacional
-acreditada ante el Estado costarricense.
-Para la producción ecológica en fincas o la elaboración de bienes y
-productos en plantas industriales, se requerirá la certificación de una
-agencia acreditada. En el procesamiento o elaboración de bienes
-ecológicos, tanto las materias primas como los aditivos y los componentes
-secundarios, deberán estar igualmente certificados.
+Artículo 74.—Certificaciones de productos orgánicos. Para calificar un producto como orgánico, si su finalidad es la exportación, deberá tener una certificación de tercera parte, otorgada por el MAG o por una agencia nacional o internacional acreditada ante el Estado costarricense.
+En caso de que el producto orgánico sea solo para el consumo local, bastará una certificación participativa que se compruebe por la relación de confianza entre las personas productoras y las consumidoras.
+El Estado, por medio del MAG, ofrecerá gratuitamente el servicio de inspección, como apoyo a los requisitos previos de certificación. Este apoyo podrá solicitarlo cualquier persona o grupo de personas micro, pequeñas y medianas productoras orgánicas que, según determine el órgano competente, se ajustan para ello a lo dispuesto en la Ley para el desarrollo, la promoción ‘79 el fomento de la actividad agropecuaria orgánica, sin importar si su objetivo es producir para el mercado nacional o para exportar su producción.
+Para garantizar la condición orgánica de la producción agropecuaria en fincas o la elaboración de bienes y productos en plantas industriales, se requerirá el respaldo de un sistema de certificación debidamente reconocido, de acuerdo con lo establecido en la ley indicada en el párrafo anterior. En el procesamiento o la elaboración de bienes orgánicos, tanto las materias primas como los aditivos y los componentes secundarios, deberán estar igualmente certificados.
+(Así reformado por el artículo 37 de la ley Nº 8542 del 27 de setiembre del 2006)

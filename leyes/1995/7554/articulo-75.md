@@ -1,8 +1,5 @@
-ARTICULO 75.- Productos orgánicos o en transición
-Para calificar como orgánico un producto agrícola o una parcela, no
-se le debe haber aplicado productos de síntesis química durante tres años
-por lo menos.
-En caso contrario podrá calificarse sólo como producto en transición
-hasta que cumpla los tres años requeridos. Respecto a la calificación de
-productos orgánicos o en transición, se seguirán las normas dictadas por
-los organismos internacionales de producción ecológica.
+Artículo 75.—Productos orgánicos en transición. Para calificar como orgánico un producto agrícola o una parcela, no deben habérsele aplicado productos de síntesis química durante tres años, por lo menos.
+Si se pretende dedicar a este tipo de producción un producto agrícola o una parcela que no sean orgánicos, solo podrá calificarse como producto en transición durante los siguientes tres años, siempre y cuando cumpla los requisitos dispuestos por la ley y los reglamentos y se sigan las normas dictadas por los organismos nacionales e internacionales de producción orgánica. Una vez que transcurra este período, la parte interesada podrá hacer gestiones ante la autoridad correspondiente, para que certifique que su producción es orgánica.
+En caso de que la persona que produzca productos orgánicos demuestre que en los tres años previos no se han aplicado agroquímicos, podrá certificarse como orgánico, en forma inmediata, sin tener que ser declarado antes como “en transición.”
+Podrá decretarse un período inferior a tres años, según especificaciones técnicas que diferencien cultivos de ciclo corto y anuales, los distintos efectos residuales del producto de síntesis química que se haya aplicado antes de iniciar la producción orgánica, o bien, las condiciones agroecológicas particulares. En estos casos, los criterios técnicos deben tomar en consideración las normas dictadas por los organismos internacionales relacionados con la producción agropecuaria orgánica.
+(Así reformado por el artículo 37 de la ley Nº 8542 del 27 de setiembre del 2006)

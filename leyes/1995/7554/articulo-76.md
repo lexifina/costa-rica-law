@@ -1,18 +1,2 @@
-ARTICULO 76.- Comisión Nacional de Agricultura Ecológica
-Se crea la Comisión Nacional de Agricultura Ecológica, como órgano
-asesor del Ministerio de Agricultura y Ganadería. Estará integrada por
-los siguientes miembros honorarios:
-a) Un representante del Ministerio de Agricultura y Ganadería, quien
-la presidirá.
-b) Un representante de las universidades estatales, con experiencia
-en la transferencia de tecnología para agricultura orgánica y
-vinculado a ella.
-c) Tres representantes de las organizaciones de productores
-orgánicos de Costa Rica, que cumplan con los requisitos para
-calificar como tales de acuerdo con la normativa de la presente
-ley y su reglamento.
-d) Un representante de las cámaras empresariales, que desarrollen
-proyectos o programas para fomentar la agricultura orgánica.
-e) Un representante de agencias de certificación orgánica,
-acreditadas ante la instancia correspondiente en el Ministerio de
-Agricultura y Ganadería.
+Artículo 76.—DEROGADO.
+NOTA: La Ley Nº 8542 del 27 de setiembre del 2006, artículo 37, reformó este artículo para que se leyera de la siguiente manera: “Comisión Nacional de la Actividad Agropecuaria Orgánica. Créase la Comisión Nacional de la Actividad Agropecuaria Orgánica, como órgano asesor del Ministerio de Agricultura y Ganadería (MAG), estará integrada por los siguientes miembros honorarios: a) Un representante del MAG quien la presidirá. b) Un representante de las universidades estatales, con experiencia en la transferencia de tecnología para la actividad agropecuaria orgánica y vinculado con ella. c)Tres representantes de las organizaciones de productores orgánicos de Costa Rica, que cumplan los requisitos para calificar como tales, de acuerdo con la normativa de la presente Ley y su Reglamento. d) Un representante de las organizaciones no gubernamentales, que desarrollen proyectos o programas para fomentar la actividad agropecuaria orgánica. e) Un representante de las agencias de certificación orgánica, acreditadas ante la instancia correspondiente en el MAG.” No obstante, el artículo 41 de la misma Ley lo deroga).

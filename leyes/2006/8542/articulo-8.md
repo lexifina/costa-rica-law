@@ -1,0 +1,1 @@
+Artículo 8º—Facilitación de recursos humanos. Autorízase a la Administración Pública para que facilite al MAG los recursos humanos debidamente capacitados en actividad agropecuaria orgánica, para el cumplimiento de lo establecido en la presente Ley. Para estos efectos, el MAG será el encargado de coordinar lo referente al cumplimiento de esta disposición.
