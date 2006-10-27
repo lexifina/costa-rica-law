@@ -1,0 +1,1 @@
+Artículo 19.—Seguro de cosechas para la producción agropecuaria orgánica. Autorízase al Instituto Nacional de Seguros (INS), para que cree un sistema que garantice a las personas productoras orgánicas, así como a los GPO, contar con seguros de cosechas bajo condiciones favorables.
