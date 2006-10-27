@@ -1,5 +1,4 @@
-ARTICULO 3º.-
-Entidades no sujetas al impuesto
+ARTICULO 3º.- Entidades no sujetas al impuesto
 a) El Estado, las municipalidades, las instituciones autónomas y semiautónomas del Estado que por ley especial gocen de exención y las universidades estatales.
 (Reformado tácitamente por la ley No.7722 de 9 de diciembre de 1997, que sujeta a las instituciones y empresas públicas que señala, al pago del impuesto sobre la renta)
 b) Los partidos políticos y las instituciones religiosas cualquiera que sea su credo, por los ingresos que obtengan para el mantenimiento del culto y por los servicios de asistencia social que presten sin fines de lucro.
@@ -11,3 +10,5 @@ f) La Sociedad de Seguros de Vida del Magisterio Nacional, la Caja de Ahorro y P
 g) Las asociaciones civiles que agremien a pequeños o medianos productores agropecuarios de bienes y servicios, cuyos fines sean brindarles asistencia técnica y facilitarles la adquisición de insumos agropecuarios a bajo costo; buscar alternativas de producción, comercialización y tecnología, siempre y cuando no tengan fines de lucro; así como, sus locales o establecimientos en los que se comercialicen, únicamente, insumos agropecuarios.
 Además, los ingresos que se obtengan, así como su patrimonio, se destinarán exclusivamente para los fines de su creación y, en ningún caso, se distribuirán directa o indirectamente entre sus integrantes.
 (Así reformado por el artículo 15 de la ley No. 7293 de 31 de marzo de 1992).
+h) Las personas micro, pequeñas y medianas productoras orgánicas registradas ante la oficina correspondiente del MAG, que durante un año hayan estado en transición para ser certificadas como tales, por un período de diez años y mientras se mantengan las condiciones que dieron origen a la exoneración.
+(Así adicionado el inciso anterior por el artículo 35 de la ley Nº 8542 del 27 de setiembre del 2006)
