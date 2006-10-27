@@ -1,0 +1,1 @@
+Artículo 36.— Las organizaciones de bienestar social que reciban transferencias por parte del CONAPAM, así como la administración del CONAPAM, son responsables de establecer las medidas y acciones que aseguren y permitan la efectiva, eficiente y oportuna implementación de las recomendaciones emitidas por la Dirección General de Auditoría.

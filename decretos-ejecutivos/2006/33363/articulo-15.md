@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la organización y administración de la Auditoría Interna
+Artículo 15.—La Auditoría Interna estará bajo la responsabilidad de un Auditor General, quién deberá ser contador público autorizado y cumplir con los demás requisitos que exige la Ley General de Control Interno. Además, deben conocer las disposiciones legales que rigen la Administración Pública. Posteriormente cuando esté debidamente aprobado por las autoridades competentes, la Auditoría contará con un Subauditor, todo de conformidad con los lineamientos establecidos por la Contraloría General de la República y los Manuales que señalan los requisitos y funciones para cada uno de los cargos.

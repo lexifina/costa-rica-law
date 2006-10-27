@@ -1,0 +1,1 @@
+Artículo 48.— Lo dispuesto en el artículo anterior no impide la participación de la Auditoría Interna, a requerimiento del Órgano Director, que sólo será para actuar para aportar información complementaria o aclarar aspectos de sus informes que dicho órgano estime necesario para mejor resolver.

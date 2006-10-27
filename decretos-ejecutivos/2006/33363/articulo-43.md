@@ -1,0 +1,1 @@
+Artículo 43.—El informe de Auditoría Interna contendrá los elementos necesarios, para identificar los presuntos responsables contra los cuales enderezar las acciones que se recomiendan y precisar los hechos anómalos o irregulares que servirán de base a la intimación de cargos.

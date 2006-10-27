@@ -1,0 +1,1 @@
+Artículo 23.—La Dirección General de Auditoría debe contar con los recursos humanos, materiales, equipo, asesoría técnica, medios de transporte, el espacio físico y demás recursos necesarios para el adecuado ejercicio de sus funciones.

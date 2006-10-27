@@ -1,0 +1,1 @@
+Artículo 6º—La fiscalización del CONAPAM y de las organizaciones de bienestar social que reciben transferencias del CONAPAM, estará a cargo de la Dirección General de Auditoría, por consiguiente, existirá una sola Dirección General de Auditoría en todo el ámbito del CONAPAM.

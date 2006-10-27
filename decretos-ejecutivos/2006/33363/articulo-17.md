@@ -1,0 +1,1 @@
+Artículo 17.—El Auditor General, es un delegado de la Junta, actúa con plena independencia de criterio en la definición del tipo, profundidad, naturaleza y oportunidad de los estudios de auditoría interna que se realicen.

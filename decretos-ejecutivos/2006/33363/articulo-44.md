@@ -1,0 +1,1 @@
+Artículo 44.—El informe de la Auditoría Interna advertirá sobre la celeridad del proceso y del plazo para realizar las correcciones del caso, previéndose de esa forma que ocurra la caducidad o prescripción de las respectivas sanciones o consecuencias jurídicas.

@@ -1,0 +1,1 @@
+Artículo 22.—El Auditor debe proponer a la Junta, debidamente justificado, la creación de plazas y servicios que considere indispensables para el cumplimiento del Plan Anual de Auditoría y, en general, para el buen funcionamiento de la Dirección.

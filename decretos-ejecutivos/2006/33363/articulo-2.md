@@ -1,0 +1,8 @@
+Artículo 2º—Para los efectos de este Reglamento, se entiende por:
+Administración: El Consejo y el conjunto de áreas del CONAPAM, que tienen la responsabilidad del planeamiento, organización, dirección, supervisión y control para el logro de su misión, objetivos y metas y aquellas personas que tienen esas responsabilidades en las instituciones, entes y organismos privados o públicos que reciben transferencias del CONAPAM.
+Auditor general: Director(a) General de Auditoría.
+Auditoría interna: Auditoría Interna del CONAPAM.
+CONAPAM: Consejo Nacional de la Persona Adulta Mayor. Dirección de Auditoría General: Auditoría Interna del Consejo Nacional de la Persona Adulta Mayor.
+FODESAF: Fondo de Desarrollo Social y Asignaciones Familiares, que financia programas sociales a instituciones. Junta: Junta Rectora Consejo Nacional de la Persona Adulta Mayor. b) Ley 7935: Ley Integral para la Persona Adulta Mayor y su Reglamento, del 25 de octubre de 1999.
+Ley 5662: Ley de Desarrollo Social y Asignaciones Familiares, del 23 de diciembre de 1974.
+Ley 7972: Creación de cargas tributarias sobre licores cervezas y cigarrillos, para financiar un plan integral de protección y amparo de la población adulta mayor, niños y niñas en riesgo social, personas discapacitadas abandonadas, rehabilitación de alcohólicos y farmacodependientes, apoyo a las labores de la Cruz Roja y derogación de impuestos menores sobre las actividades agrícolas y su consecuente sustitución, de 22 de diciembre de 1999. Organizaciones de bienestar social: Cada una de las instituciones ejecutoras de programas que se financian o reciben recursos del CONAPAM.
