@@ -1,1 +1,0 @@
-Artículo 3º—Deróguense el Decreto Ejecutivo 32305-MEIC, del 12 de abril del 2005, publicado en La Gaceta N° 74 del 19 de abril del 2005 y el Decreto Ejecutivo Nº 32354-MEIC del 4 de mayo del 2005, publicado en el Alcance Nº 12 de La Gaceta Nº 88 del 9 de mayo del 2005.
