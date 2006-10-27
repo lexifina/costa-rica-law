@@ -1,0 +1,1 @@
+Artículo 28.—Exoneración del impuesto sobre ventas de productos orgánicos. Exonérase del pago del impuesto sobre las ventas, la venta de productos agropecuarios o agroindustriales orgánicos, registrados y certificados ante la entidad correspondiente.

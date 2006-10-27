@@ -1,0 +1,1 @@
+Artículo 4º—Interés público. Declárase de interés público la actividad agropecuaria orgánica, por los beneficios que se derivan de su producción en sus diversas manifestaciones; para este efecto, el Estado deberá incluirla dentro del Plan Nacional de Desarrollo.
