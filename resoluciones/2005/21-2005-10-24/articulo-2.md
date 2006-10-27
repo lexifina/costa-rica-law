@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la resolución Nº 16 de las ocho horas del día cuatro de octubre del año dos mil cuatro, dictada por la Dirección General y publicada en el Diario Oficial La Gaceta Nº 213 de 1° de noviembre del 2004.
