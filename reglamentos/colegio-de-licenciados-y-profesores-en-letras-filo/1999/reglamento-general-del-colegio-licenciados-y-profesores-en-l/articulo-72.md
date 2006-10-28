@@ -1,14 +1,15 @@
 CAPÍTULO VIII
-Nombramiento de Representantes del Colegio de Licenciados
-y Profesores, ante organismos e instituciones
-públicas o privadas
-Artículo 72.—Nombramiento de representantes del Colegio. Para el nombramiento de los representantes del Colegio ante organismos e instituciones públicas o privadas, con o sin remuneración económica, se seguirán las siguientes disposiciones de obligado acatamiento para todas las partes participantes en este proceso.
+Nombramiento de representantes del Colegio de Licenciados y
+Profesores ante organismos e instituciones públicas o privadas
+Artículo 72.—Nombramiento de representantes del Colegio. Para el nombramiento de los representantes del Colegio ante organismos e instituciones públicas o privadas, con remuneración económica, se seguirán las siguientes disposiciones de obligado acatamiento para todas las partes participantes en este proceso.
+(Así reformado el párrafo anterior en Asamblea General Extraordinaria CVII del 28 de octubre de 2006)
 A) De la convocatoria. Cada vez que la Junta Directiva por disposición legal, reglamento o acuerdo de cualquier tipo, deba nombrar representantes ante organismos e instituciones públicas o privadas, convocará a las personas colegiadas a participar como postulantes para dichos nombramientos.
 El Colegio hará la convocatoria con al menos tres meses de anticipación a la fecha en que se tomará posesión del cargo por representación.
 En los casos de excepción en que teniendo como referencia la comunicación oficial de la instancia interesada, no se cuente con los tres meses de tiempo señalado, la Junta Directiva determinará el plazo para la recepción de solicitudes y para la resolución del concurso.
 La convocatoria se hará mediante publicaciones en medios de comunicación, siendo obligación de la Junta Directiva, por lo menos, publicarla en un medio escrito de circulación nacional.
 B) Del proceso de participación. Las personas colegiadas podrán participar como candidatos a la representación oficial del Colegio de conformidad con los términos de la convocatoria.
-En el caso de concursos para puestos remunerados, no podrá considerarse oferta ni participación en el concurso, ni podrán recaer representaciones en miembros de la Junta Directiva o en empleados del Colegio o en sus parientes hasta el segundo grado de consanguinidad o afinidad. Tampoco en exdirectivos o exempleados con al menos tres años de haberse retirado del cargo de la Junta Directiva o haber dejado de trabajar para el Colegio, según corresponda.
+En el caso de concursos para puestos remunerados, no podrá considerarse oferta ni participación en el concurso, ni podrán recaer representaciones en miembros de la Junta Directiva del Colegio o en sus parientes hasta el segundo grado de consanguinidad o afinidad. Tampoco en exdirectivos con al menos dos años de haberse retirado del cargo de la Junta Directiva o haber dejado de trabajar para el Colegio según corresponda.
+(Así reformado el párrafo anterior en Asamblea General Extraordinaria CVII del 28 de octubre de 2006)
 Los interesados formalizarán su oferta entregándola en la Oficina de Recursos Humanos del Colegio, la persona que reciba la documentación, levantará un acta de lo recibido y la firmará conjuntamente con el candidato postulante.
 C) De la recepción de ofertas y documentos. Las ofertas presentadas por los candidatos postulantes contendrán todos los documentos que éstos consideren necesarios, debidamente foliados y firmados por el interesado.
 Los interesados deberán presentar lo siguiente:
@@ -24,16 +25,17 @@ La Oficina de Recursos Humanos del Colegio no recibirá ninguna información adi
 Para que el proceso de selección y nombramiento sea diáfano y democrático, la Oficina de Recursos Humanos asignará un número a cada sobre entregado a la Comisión sin identificación del postulante.
 Por ningún motivo podrá darse a conocer el nombre de los candidatos postulantes, sino hasta que la Comisión confeccione el informe final.
 En el momento en que se compruebe anomalías en la oferta presentada, esta será excluida. La inclusión de información no veraz invalida la oferta de cualquier interesado.
-D) De la comisión. Para valorar las ofertas de los postulantes la Junta Directiva conformará una comisión constituida por cinco colegiados distinguidos, los cuales deberán cumplir con las condiciones siguientes:
+(*)D) De la comisión. Para valorar las ofertas de los postulantes la Junta Directiva conformará una comisión constituida por cinco colegiados distinguidos, los cuales deberán cumplir con las condiciones siguientes:
 1. Ser colegiado activo por lo menos durante los últimos diez años.
-2. No ser miembro de la Junta Directiva, ni empleado del Colegio, o tener como mínimo tres años de ser exdirectivo o exempleado si fuera del caso.
-3. No tener parentesco con los miembros de la Junta Directiva o con empleados del Colegio, hasta el segundo grado de consanguinidad o afinidad.
+2. No ser miembro de la Junta Directiva o tener como mínimo dos años de ser exdirectivo.
+3. No tener parentesco con los miembros de la Junta Directiva del Colegio, hasta el segundo grado de consanguinidad o afinidad.
+(Reformado por la Asamblea General Extraordinaria CVII del 28 de octubre del 2006).
 4. Ser profesional distinguido y de reconocida solvencia moral.
 La escogencia de los integrantes de la comisión la realizará la Junta Directiva por mayoría simple mediante votación secreta de sus miembros. El nombramiento de esta comisión será por el período que dure el proceso de selección de cada representación.
-La comisión nombrará un presidente y un secretario de su seno, levantará actas de cada sesión. Sesionará las veces que sea necesario.
-Para sesionar se requiere la presencia de al menos tres de sus miembros. Cada miembro de la comisión será remunerado con un estipendio por sesión a la que asista, siendo la Junta Directiva quien definirá el monto.
+La comisión nombrará un presidente y un secretario de su seno, levantará actas de cada sesión. Sesionará las veces que sea necesario. Para sesionar se requiere la presencia de al menos tres de sus miembros. Cada miembro de la comisión será remunerado con un estipendio por sesión a la que asista, siendo la Junta Directiva quien definirá el monto.
 La comisión tendrá veinte días hábiles, después del cierre de recepción de ofertas, para analizar cada expediente, emitir su informe y entregar a la Junta Directiva del Colegio la lista con aquellos diez candidatos mejor calificados.
-La comisión se abocará al estudio y valoración del curriculum vitae y atestados, proceso durante el cual le estará totalmente prohibido como cuerpo e individualmente a sus miembros, atender a los candidatos postulantes y cualquier otra acción que pueda poner en duda o desmerezcan la objetividad del proceso, el cual debe ser totalmente confidencial y ninguno de sus miembros podrá darlos a conocer, so pena de ser llevado al Tribunal de Honor del Colegio, previo informe escrito de la Fiscalía.
+La comisión se abocará al estudio y valoración del currículum vitae y atestados, proceso durante el cual le estará totalmente prohibido como cuerpo e individualmente a sus miembros, atender a los candidatos postulantes y cualquier otra acción que pueda poner en duda o desmerezca la objetividad del proceso, el cual debe ser totalmente confidencial y ninguno de sus miembros podrá darlo a conocer, so pena de ser llevado al Tribunal de Honor del Colegio, previo informe escrito de la Fiscalía.
+(*)(Corregido el inciso anterior mediante Fe de Erratas, y publicada en La Gaceta N° 175 del 8 de setiembre de 2009)
 E) De los elementos de evaluación y valor porcentual. Para la evaluación de los postulantes y selección de una lista de los diez mejores calificados, se considerarán los siguientes rubros con el respectivo puntaje.
 1. Carrera profesional | 20%
 2. Formación académica | 25%
@@ -101,4 +103,6 @@ I) Disposiciones generales:
 2. En casos fortuitos o excepcionales de nombramientos para puestos no remunerados, y debidamente justificados, la Junta Directiva podrá resolver por vía de excepción lo que corresponda.
 3. Después de aprobada la modificación del artículo 72, de este reglamento por la Asamblea General, la Junta Directiva se abocará a la redacción (elaboración), de un Manual de normas y procedimientos para la operacionalización de este artículo.
 4. El Colegio mediante acuerdos de cooperación que suscriba con las instituciones donde tenga representación, facilitará a las personas colegiadas acciones de capacitación en disciplinas específicas que coadyuven en la eventual gestión del Colegiado en un puesto de representación.
+5) Los casos de representaciones no remuneradas serán nombrados por la Junta Directiva.
+(Así adicionado el inciso anterior en Asamblea General Extraordinaria CVII del 28 de octubre de 2006)
 (Así reformado por la Asamblea General Extraordinaria del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes, el 17 de setiembre del 2005)
