@@ -1,2 +1,1 @@
-Artículo 11.—Acuerdos del Órgano. Los acuerdos del Órgano serán tomados por unanimidad de los miembros presentes en cada sesión.
-Dichos acuerdos tienen recurso de revocatoria. Sin embargo, tratándose de actos de adjudicación, dichos acuerdos tendrán los recursos que al efecto señale la Ley de Contratación Administrativa.
+Artículo 11.—Acuerdos del Órgano. Los acuerdos del órgano serán tomados por mayoría simple de los miembros presentes en cada sesión. Dichos acuerdos tienen recurso de revocatoria. Sin embargo, tratándose de actos de adjudicación, dichos acuerdos tendrán los recursos que al efecto señala la Ley de Contratación Administrativa.

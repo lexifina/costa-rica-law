@@ -14,3 +14,4 @@ Reglamento del Comité de Licitaciones de BN Valores, Puesto de Bolsa, S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-21 | la propia norma |
+| 2 | 2006-10-28 | Reglamento 0 (2006-10-28) |

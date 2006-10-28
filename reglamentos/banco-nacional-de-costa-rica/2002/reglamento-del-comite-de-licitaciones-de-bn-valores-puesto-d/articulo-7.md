@@ -1,1 +1,1 @@
-Artículo 7°—Estándares Técnicos. Para la determinación del contenido de los carteles de licitación que se presenten deberá considerarse los estándares técnicos establecidos por el Banco Nacional de Costa Rica en materia tecnológica cuando así sea requerido.
+Artículo 7º—Estándares Técnicos. Para la determinación del contenido de los carteles de licitación que se presenten, deberán considerarse los estándares técnicos establecidos por el Banco Nacional de Costa Rica en materia tecnológica, cuando así convenga a los intereses de BN Valores, Puesto de Bolsa.
