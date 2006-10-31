@@ -1,1 +1,0 @@
-Artículo 4°—No obstante lo dispuesto en este Decreto, el Servicio Fitosanitario podrá implementar medidas para acreditar el origen y la calidad de los productos, así como su seguimiento en la cadena de distribución y comercialización.
