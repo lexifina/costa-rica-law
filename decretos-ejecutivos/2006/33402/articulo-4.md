@@ -1,0 +1,1 @@
+Artículo 4º—El Comité podrá invitar a diferentes sectores de la Sociedad Civil y organizaciones de Derechos Humanos, otras instituciones de la Administración Central y Descentralizada y otro tipo de organizaciones especializadas, a fin de que éstos colaboren con el trabajo del Comité.

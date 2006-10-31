@@ -1,0 +1,1 @@
+Artículo 6º—El Comité funcionará con base en el Capítulo Tercero del Título Segundo del Libro Primero sobre órganos Colegiados, de la Ley General de la Administración Pública, N° 6227 de 2 de mayo de 1978.

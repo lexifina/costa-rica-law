@@ -1,0 +1,1 @@
+Articulo 5º—El (o la) representante de la Fundación Arias para la Paz, deberá ser designado a más tardar en los 30 días posteriores a la entrada en vigencia del presente decreto, consolidando con este nombramiento su participación y asumiendo todos los derechos y obligaciones de los demás integrantes.

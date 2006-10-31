@@ -1,0 +1,1 @@
+Artículo 3º—El Comité será presidido por el Ministerio de Seguridad Pública, como el principal responsable del control y fiscalización de la tenencia y tráfico de armas, según la Ley de Armas y Explosivos.
