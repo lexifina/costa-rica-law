@@ -1,4 +1,6 @@
+(Derogado)
 No 27530-MAG
+(Este decreto ejecutivo fue derogado por el inciso 2 del artículo 3° (actual 4°) del decreto ejecutivo N° 33495 del 31 de octubre del 2006)
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
 En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y la ley No 7664 del 8 de abril de 1997, Ley de Protección Fitosanitaria.
 Considerando:

@@ -14,3 +14,4 @@ Posibilidad Servicio Sanitario de Simplificar los trámites regístrales especif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-11 | la propia norma |
+| 2 | 2006-10-31 | Decreto Ejecutivo 33495 (2006-10-31) |
