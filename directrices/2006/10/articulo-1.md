@@ -1,0 +1,29 @@
+Nº 010-COMEX
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE COMERCIO EXTERIOR
+En ejercicio de las facultades que les confieren los artículos 11, 140, incisos 3), 8), 18) y 20); 146, 148, 149, inciso 6) de la Constitución Política; artículos 11, 25, 27, 98, 99 y 100, 112, inciso 3), 113, inciso 1), de la Ley General de la Administración Pública; y los artículos 4º, inciso b), y 5º de la Ley de Régimen de Zonas Francas.
+Considerando:
+I.—Que desde el 1º de diciembre de 1948, Costa Rica abolió el ejército como una institución de carácter permanente, lo cual le ha valido un gran reconocimiento internacional como país amante de la paz.
+II.—Que además de lo anterior, Costa Rica es símbolo de democracia en América Latina y de respecto por la institucionalidad nacional, a lo cual ha contribuido su democracia centenaria, sus valores pacifistas y su neutralidad internacional de carácter perpetuo.
+III.—Que el Poder Ejecutivo, consiente de los valores que representan la idiosincrasia costarricense, considera que la fabricación de cualquier tipo de arma, componentes, ensambles y subensambles para el uso exclusivo de la industria militar; no es una actividad que deba ser incentivada al amparo del Régimen de Zonas Francas por considerarlo contrario al interés público.
+IV.—Que la Procuraduría General de la República, en el dictamen C-216-95 de fecha 28 de setiembre de 1995, estableció con toda claridad que el otorgamiento del Régimen de Zona Franca es un acto administrativo de carácter discrecional, en donde la Promotora del Comercio Exterior de Costa Rica y el Poder Ejecutivo, poseen amplias facultades para determinar si el interés privado de una empresa se complemente con el interés público que motiva el otorgamiento del régimen de Zonas Francas, para de esa manera concluir si la recomendación es positiva o negativa. Al respecto, el órgano superior consultivo argumentó lo siguiente:
+“Por medio del acto de otorgamiento del Régimen de Zona Franca, la Administración califica la empresa y le acuerda los beneficios que la ley permite otorgarle. La Administración evalúa en qué medida el interés privado de las empresas se conforma con el interés público que está llamada a tutelar, conformidad que justificará el otorgamiento en favor de la empresa del Régimen de Zonas Francas. Si la evaluación diese un resultado favorable para la empresa, por cumplir ésta con las condiciones legalmente establecidas, la Administración emite un acto manifestación de una potestad discrecional y que posibilita el posterior disfrute de los beneficios.
+En orden a lo expuesto, cabe señalar que tanto la Corporación de Zonas Francas como posteriormente el Poder Ejecutivo son titulares de las potestades discrecionales que les permiten apreciar la conformidad del interés de la empresa con el interés público (motivo del acto) y, por ende, concluir en una recomendación positiva y una aprobación (según se trate de la Corporación o del Poder Ejecutivo) de la solicitud planteada por la empresa. Esta discrecionalidad deriva de la Ley.
+(...)
+La Administración debe valorar las condiciones de la empresa solicitante y sopesarlas con el resto de empresas del sector de que se trate y los requerimientos económicos del país. Es esa valoración la que permitirá determinar si la empresa es merecedora de los beneficios establecidos por la ley, si ese otorgamiento no genera distorsiones en el mercado, si se satisface el interés público y económico.
+(...)
+Corresponde a la Administración evaluar si una empresa solicitante cumple con las condiciones legalmente definidas y si puede, en consecuencia, ser acreedor a ese régimen fiscal de favor. Lo anterior permite concluir que la solicitud no vincula en modo alguno a las autoridades administrativas, quienes están facultadas para aprobarla o denegarla, según lo que consideren más conveniente para el interés público. Todo lo cual configura el acto de otorgamiento del régimen como un acto administrativo unilateral y discrecional, regido por los principios en orden a las potestades discrecionales.”
+V.—Que el artículo 4º, inciso de la b) de la Ley de Régimen de Zona Franca, Nº 7210 del 23 de noviembre de 1990, establece lo siguiente:
+Artículo 4º—La Corporación queda facultada para:
+b) Recomendar, canalizar y regular los respectivos permisos de las empresas que deseen establecerse en las Zonas Francas; en coordinación con las instituciones gubernamentales correspondientes.
+VI.—Que el artículo 5º de la Ley de Régimen de Zonas Francas, Nº 7210 del 23 de noviembre de 1990, establece lo siguiente:
+Artículo 5º—La Corporación queda obligada a acatar, en lo pertinente, las directrices que sobre el desarrollo y atracción de inversión extranjera, emita el Poder Ejecutivo.
+VII.—Que el artículo 9º, inciso k) del Reglamento a la Ley de Zonas Francas dispone lo siguiente:
+Artículo 9º—Las empresas interesadas en obtener el Régimen de Zonas Francas deben presentar una solicitud ante PROCOMER, en el formulario oficial que PROCOMER debe elaborar y tener a disposición de los interesados. La solicitud debe contener:
+(…)
+k) Cualquier otro documento o información que solicite PROCOMER y que resulte pertinente.
+Por tanto,
+El Poder Ejecutivo emite la siguiente,
+DIRECTRIZ:
+Dirigida a la Promotora del Comercio Exterior de Costa Rica y al Ministerio de Comercio Exterior, para el trámite de las solicitudes del Régimen de Zona Franca, relacionadas con las empresas que se dediquen a la fabricación o comercialización de armas o fabricación o comercialización de componentes, ensambles y subensambles para el uso exclusivo en la industria militar.
+Artículo 1º—No se otorgará el Régimen de Zonas Francas a las empresas que se dediquen a la fabricación o comercialización de cualquier tipo de armas, permitidas o prohibidas, o a la fabricación o comercialización de municiones, componentes, ensambles y subensambles para el uso exclusivo para la industria militar.
