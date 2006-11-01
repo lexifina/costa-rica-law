@@ -1,1 +1,0 @@
-Artículo 4°—La Comisión INFODES queda facultada para designar Comisiones ad hoc y constituir grupos de trabajo para tratar temas específicos relacionados con el desarrollo e implementación de indicadores de desarrollo sostenible. Para esos efectos, se podrá invitar a organizaciones de los sectores mencionados en el Artículo 2, con competencias en cada tema específico.

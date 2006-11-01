@@ -1,1 +1,0 @@
-Artículo 6°—La Comisión INFODES definirá la frecuencia de sus reuniones, aunque es recomendable que lo haga por lo menos una vez al mes. El quórum necesario para una reunión lo constituirá la presencia de representantes de cinco de las instituciones mencionadas en el Artículo 3°.
