@@ -15,3 +15,4 @@ Modifica miembros de la Comisión Nacional para la Gestion de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2005-11-04 | la propia norma |
 | 2 | 2006-06-01 | Decreto Ejecutivo 33434 (2006-06-01) |
+| 3 | 2006-11-01 | Decreto Ejecutivo 33476 (2006-11-01) |
