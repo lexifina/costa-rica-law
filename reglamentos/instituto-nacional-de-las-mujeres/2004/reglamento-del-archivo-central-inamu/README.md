@@ -14,3 +14,4 @@ Reglamento del Archivo Central (INAMU)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-14 | la propia norma |
+| 2 | 2006-11-01 | Acuerdo 4 (2006-09-13) |
