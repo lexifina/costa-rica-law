@@ -1,1 +1,0 @@
-Artículo 4°-Las funciones y actividades que se. desarrollan el) este Subsector deberán estar en estrecha vinculación con el Ministerio de Economía, Industria y Comercio, el Centro para la Promoción de las Exportaciones y de las Inversiones y con el Consejo Nacional de Economía, Industria y Comercio, así como con la Oficina de Planificación Nacional y Política Económica.
