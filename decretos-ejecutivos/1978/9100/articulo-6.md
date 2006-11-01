@@ -1,1 +1,0 @@
-Articulo 6°—Los miembros del Comité Interinstitucional para la Integración del Sistema Nacional de Estadísticas Básicas realizarán sus funciones ad honórem, serán nombrados por el Presidente de la República y deberán Juramentarse ante él.
