@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto ejecutivo fue derogado por el inciso 39) del artículo 1° del decreto ejecutivo N° 33504 del 1 de noviembre del 2006)
 N° 21239
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA,
