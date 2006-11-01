@@ -1,0 +1,1 @@
+Artículo 5º—Compromiso de resultados. El Consejo suscribirá anualmente compromisos de resultados con el Ministerio de la Presidencia, con el objeto de evaluar el desempeño, la eficacia del ente. Para tales efectos se tomaran como parámetros de medición, las inversiones económicas y sociales para el desarrollo de los cantones establecidos en el presente Decreto.

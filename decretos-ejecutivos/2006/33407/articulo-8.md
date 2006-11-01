@@ -1,0 +1,1 @@
+Artículo 8º—Reglamento. El Consejo con el apoyo del Ministerio de la Presidencia elaborarán el Reglamento de Organización y Funcionamiento del Consejo. El Ministerio de la Presidencia convocará a los integrantes, a la sesión de juramentación, dentro de los treinta días naturales contados a partir de la fecha de publicación de este Decreto.

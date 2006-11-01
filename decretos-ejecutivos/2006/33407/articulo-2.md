@@ -1,0 +1,4 @@
+Artículo 2º—Fines primordiales:
+a) Coordinar con el Ministerio de la Presidencia, ente oficial autorizado, la participación y elaboración de un plan de desarrollo de la zona Norte Norte en un periodo (2006-2010), basado en su posición geoestratégica fronteriza del norte y en la situación socioeconómica; esto en el contexto de la formulación y adopción de planes y políticas de desarrollo nacional, propios del Poder Ejecutivo.
+b) Coordinar con instituciones públicas las acciones a desarrollar dentro del marco del programa de Combate a la Pobreza y del Programa Avancemos y otros que decida impulsar el Gobierno Central para mejorar las condiciones de vida de las familias que habitan en la Región Norte Norte y promover el Desarrollo Sostenible de las comunidades que componen esta región.
+c) Coordinar con la Comisión Nacional de Emergencias y Prevención de Desastres (CNE), todo lo relativo a la materia, que por ley le compete a esta institución.

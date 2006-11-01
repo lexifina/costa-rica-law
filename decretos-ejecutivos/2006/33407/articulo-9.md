@@ -1,0 +1,1 @@
+Artículo 9º—Régimen financiero. Este Consejo podrá captar recursos tanto privados como públicos a través de las municipalidades todo con sujeción al ordenamiento jurídico vigente y acatando la fiscalización de la Contraloría General de la República.

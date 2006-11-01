@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de cobertura. El Consejo Local de Desarrollo de la Zona Norte Norte, tendrá como ámbito de cobertura los cantones de Los Chiles, Upala y Guatuso sin que ello implique infringir los artículos 168 y 169 de la Constitución Política.
