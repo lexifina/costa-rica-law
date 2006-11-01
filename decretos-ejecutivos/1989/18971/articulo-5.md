@@ -1,1 +1,0 @@
-Artículo 5°-El personal administrativo dependerá directamente de la oficina encargada de la Dirección del proyecto y para la regulación de la relación laboral se actuará de acuerdo con lo establecido por el Código de Trabajo y por las disposiciones legales que le sean aplicadas.

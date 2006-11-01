@@ -1,1 +1,0 @@
-Artículo 7°-MIDEPLAN elaborará un Manual de Procedimientos Administrativos y Financieros con el objetivo de establecer los requisitos necesarios para la creación de los puestos o plazas que cumplan con los objetivos establecidos en el Acuerdo de Asistencia para la ejecución del Proyecto de Consolidación de la Zona Norte.

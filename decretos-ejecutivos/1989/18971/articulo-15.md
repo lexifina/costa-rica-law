@@ -1,6 +1,0 @@
-Artículo 15.-El Comité de Planificación se reunirá ordinariamente cada tres meses y extraordinariamente cuando sea necesario para cumplir con las siguientes funciones:
-a) Llevar a cabo las funciones de supervisión técnica y de seguimiento en la ejecución del proyecto.
-b) Brindar una periódica información a la Dirección de la Región Huetar Norte, al Departamento de Programas y Proyectos de la Dirección de Planificación .
-Regional y a la Agencia para el Desarrollo Internacional (AID), sobre las actividades desarrolladas en el Proyecto con el propósito de que estas puedan contribuir a un mejor desempeño de las funciones encomendadas a los diferentes departamentos y direcciones involucradas en la ejecución del Proyecto.
-c) Asesorar y recomendar, al Director del Proyecto o al Ministro de MIDEPLAN, en su caso, las soluciones a los problemas que se presenten en el desarrollo del Proyecto.
-d) Con respecto a DINADECO, la Comisión de Mantenimiento Vial y el Ministerio de Obras Públicas y Transportes (MOPT), el Comité deberá examinar y hacer las recomendaciones pertinentes sobre las propuestas de presupuestos, planes de trabajo y sus modificaciones, en relación con cada uno de los componentes que se encuentran detallados en el Acuerdo de Asistencia para el Proyecto de Consolidación de la Zona Norte.

@@ -1,3 +1,0 @@
-Artículo 10.-El Consejo para poder. cumplir a cabalidad con los objetivos fijados en el Acuerdo de Asistencia para el Proyecto de Consolidación de la Zona Norte, deberá celebrar, como mínimo, dos reuniones anuales ordinarias y extraordinas, según se requiera, para lo cual se establecen las siguientes funciones:
-a) Evaluar el proceso de ejecución del proyecto y proponer a la Dirección del mismo y a las demás entidades involucradas las acciones pertinentes para la buena marcha del proyecto.
-b) Resolver cualquier problema que se presente y pueda afectar el normal desarrollo del proyecto y de sus respectivos componentes detallados en el Acuerdo de Asistencia para el Proyecto de Consolidación de la Zona Norte.

@@ -1,1 +1,0 @@
-Articulo 19.-El programa elaborado para ser ejecutado en forma trimestral deberá confeccionarse de conformidad con las actividades y los objetivos programados para ser ejecutados anualmente. Es responsabilidad del Comité de Coordinación Regional y del Comité de Planificación del Proyecto establecer el procedimiento de discusión y posterior aprobación del programa trimestral.

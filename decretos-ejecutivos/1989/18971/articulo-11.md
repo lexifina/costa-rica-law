@@ -1,1 +1,0 @@
-Artículo 11.-La Secretaria del Consejo recaerá en la oficina encargada de la Dirección del Proyecto, que a su vez depende de MIDEPLAN, y entre sus funciones está lo relativo a la agenda del día, confeccionar las actas, darle seguimiento a los acuerdos tomados por el Consejo en sus respectivas sesiones, y de la debida convocatoria a sesión.

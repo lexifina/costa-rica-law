@@ -1,1 +1,0 @@
-Artículo 16.-La Secretaria del Comité recaerá en la Dirección de MIDEPLAN, en la Región Huetar Norte y entre sus funciones estará lo relativo a la agenda del día, confeccionar las actas de cada sesión. dar seguimiento a los acuerdos tomados por el Consejo y de la debida convocatoria a sesiones.

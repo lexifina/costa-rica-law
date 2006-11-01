@@ -1,1 +1,0 @@
-Artículo 3°-La oficina que tendrá a cargo la Dirección del Proyecto estará integrada por un Director y por el personal técnico y administrativo necesario para el normal desenvolvimiento y ejecución del mismo.

@@ -1,1 +1,0 @@
-Artículo 6°-A los funcionarios gubernamentales que sean prestados por otras Instituciones Públicas a MIDEPLAN para que laboren a tiempo completo en el proyecto no podrá otorgárseles salarios y beneficios a una tasa más alta de la permitida para puestos comparables con los del Servicio Civil.
