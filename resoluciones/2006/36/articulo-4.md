@@ -1,0 +1,1 @@
+Cuarto.—Se instruye en este acto a la Gerencia de Manejo de Recursos Naturales del Sistema Nacional de Áreas de Conservación, para que inicie el trámite de modificación a nivel reglamentario de las disposiciones atinentes a estos supuestos de hecho.

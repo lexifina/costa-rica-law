@@ -1,0 +1,1 @@
+Tercero.—La definición de los requisitos para el registro o inscripción del formulario de Regencia Forestal, en los casos contemplados en la presente resolución, corresponderá al Colegio de Ingenieros Agrónomos.
