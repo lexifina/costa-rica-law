@@ -14,3 +14,4 @@ Reforma Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-06 | la propia norma |
+| 2 | 2006-11-01 | Decreto Ejecutivo 33476 (2006-11-01) |

@@ -11,4 +11,5 @@ Artículo 1º—Modifíquese el artículo 1, punto 1, inciso f) y punto 2, incis
 1. Miembros propietarios:
 f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 2. Miembros suplentes:
-f) Félix Díaz Rivera, representante de la Asociación Mesa Nacional Campesina.
+f) Gerardo Alfaro Solórzano, representante de la Asociación Mesa Nacional Campesina.
+(Así reformado el inciso anterior mediante el artículo 3° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
