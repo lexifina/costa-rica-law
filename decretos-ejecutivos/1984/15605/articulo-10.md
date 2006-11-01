@@ -1,1 +1,0 @@
-Artículo 10.-Las entidades públicas y privadas, que forman la Comisión de la Actividad Lechera, aportarán voluntariamente a esta, equipo, materiales y personal para el buen desempeño de sus funciones.

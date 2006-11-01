@@ -1,1 +1,0 @@
-Artículo 7°-A las sesiones de la Comisión de la Actividad Lechera podrán ser invitados, con derecho a voz, representantes de otras instituciones especializadas en el campo de la actividad lechera y, en general, todas aquellas personas a quienes la Comisión estime conveniente escuchar.

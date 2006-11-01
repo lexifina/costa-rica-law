@@ -1,1 +1,0 @@
-Artículo 11.-Para la fijación de precios, la Dirección General de Comercio Interior tomará en cuenta las recomendaciones que emita la Comisión y consultará los estudios de costos que, esta lleva en forma permanente.
