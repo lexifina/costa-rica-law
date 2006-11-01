@@ -1,1 +1,0 @@
-Artículo 3°-La Comisión tendrá como sede el Ministerio de Planificación Nacional y Política Económica, el cual se encargará de dar todo el apoyo administrativo necesario, para el cumplimiento de los propósitos de dicha Comisión.
