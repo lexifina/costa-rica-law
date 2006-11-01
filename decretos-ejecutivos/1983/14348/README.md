@@ -15,3 +15,4 @@ Constitución del Sector Economía y Comercio
 | --- | --- | --- |
 | 1 | 1983-03-29 | la propia norma |
 | 2 | 1983-04-21 | Decreto Ejecutivo 14480 (1983-04-21) |
+| 3 | 2006-11-01 | Decreto Ejecutivo 33504 (2006-11-01) |

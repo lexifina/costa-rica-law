@@ -1,4 +1,4 @@
-(Mediante el artículo 1° del decreto ejecutivo N° 20879 del 7 de noviembre de 1991, se crea la Oficina de Planificación del Ministerio de Economía, Industria y Comercio y artículo 3° modifica en lo conducente y deroga en lo que se le oponga el presente decreto ejecutivo)
+(Este decreto fue derogado por el inciso 5) del artículo 1° del decreto ejecutivo N° 33504 del 1 de noviembre del 2006)
 N° 14348
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE ECONOMIA Y COMERCIO
