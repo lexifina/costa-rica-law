@@ -15,5 +15,5 @@ e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
 2. Miembros suplentes:
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
-k. Pablo Sibar Sibar, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
-(Así reformado el inciso por artículo 3 del Decreto Ejecutivo 32803 del 4 de noviembre del 2005)
+k.Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
+(Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
