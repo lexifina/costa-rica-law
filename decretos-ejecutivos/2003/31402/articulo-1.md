@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto ejecutivo fue derogado por el inciso 12) del artículo 1° del decreto ejecutivo N° 33504 del 1 de noviembre del 2006)
 Nº 31402-MAG-MICIT-MEIC-COMEX-MEP
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AGRICULTURA Y GANADERÍA,

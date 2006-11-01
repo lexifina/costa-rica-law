@@ -14,3 +14,4 @@ Crea Consejo Interinstitucional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-20 | la propia norma |
+| 2 | 2006-11-01 | Decreto Ejecutivo 33504 (2006-11-01) |
