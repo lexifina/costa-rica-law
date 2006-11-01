@@ -23,3 +23,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 8 | 2006-06-01 | Decreto Ejecutivo 33434 (2006-06-01) |
 | 9 | 2006-07-03 | Decreto Ejecutivo 33246 (2006-07-03) |
 | 10 | 2006-08-04 | Decreto Ejecutivo 33471 (2006-08-04) |
+| 11 | 2006-11-01 | Decreto Ejecutivo 33476 (2006-11-01) |

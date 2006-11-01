@@ -37,11 +37,12 @@ b) Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacio
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
-d) Señor Jorge Mena Arce, representante del Ministro de Salud.
+d) Jorge Mena Arce, Representante de la Ministra de Salud.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
-f) Félix Díaz Rivera, representante de la Asociación Mesa Nacional Campesina.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006).
+f) Gerardo Alfaro Solórzano, representante de la Asociación Mesa Nacional Campesina.
+(Así reformado el inciso anterior mediante el artículo 3° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
@@ -49,7 +50,7 @@ h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y A
 i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
 j. Abdenago Brenes Hine, representante del Consejo Nacional de Rectores.
-k) Eduardo Aguilar Espinoza, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
-(Así reformado el inciso k) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
+k) Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
+(Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 (Así reformados el punto 1, incisos c) y j) y punto 2, inciso j) por Artículo 1° del Decreto Ejecutivo N° 32803 del 4 de noviembre del 2005)
 (Así reformados el punto 1, inciso h) y punto 2, inciso h) por Artículo 1° del Decreto Ejecutivo N° 32819 del 22 de noviembre del 2005)
