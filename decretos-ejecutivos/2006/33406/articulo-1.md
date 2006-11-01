@@ -1,0 +1,11 @@
+N° 33406
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y GRACIA
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 de ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Administradora del Acueducto de Volcán de Buenos Aires de Puntarenas, cédula de persona jurídica Nº 3-002-224501, se inscribió en el Registro de Asociaciones del Registro Público desde el día nueve de julio de mil novecientos noventa y ocho, bajo el expediente N° 9840.
+III.—Que los fines que persigue la Asociación, según el artículo tercero de sus Estatutos, son: “... Artículo tercero: Los fines de la asociación son los siguientes: a) Mejorar el acueducto de Volcán de Buenos Aires. b) Administrar, operar y conservar en buenas condiciones el acueducto, de acuerdo con las disposiciones Reglamentos que al respecto emita el Instituto Costarricense de Acueductos y Alcantarillados que serán de acatamiento obligatorio. c) Obtener la participación efectiva de la comunidad en el mantenimiento del acueducto. d) Colaboración en los programas y campañas de índole educativa que se emprendan. e) Ayudar a explicar y divulgar en la comunidad las disposiciones y reglamentos de Acueductos y Alcantarillados. f) Cooperar con los planes, proyectos y obras que emprenda Acueductos y Alcantarillados en la comunidad. g) Participar en la vigilancia y protección de las fuentes de abastecimiento del acueducto, evitar las contaminaciones de la región.”
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación Administradora del Acueducto de Volcán de Buenos Aires de Puntarenas, cédula de persona jurídica Nº 3-002-224501.
