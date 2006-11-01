@@ -1,1 +1,0 @@
-Artículo 4°—Las funciones y actividades que se desarrollen en este Subsector deberán estar en estrecha vinculación con el Instituto Costarricense de Turismo, con el Ministerio de Economía, Industria y Comercio y con el Consejo Nacional de Economía, Industria y Comercio, creado por decreto ejecutivo, así como con la Oficina de Planificación Nacional y Política Económica.

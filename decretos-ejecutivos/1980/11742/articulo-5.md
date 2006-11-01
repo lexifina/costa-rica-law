@@ -1,3 +1,0 @@
-CAPITULO SEGUNDO
-De la Coordinación del Subsector
-Artículo 5°—La coordinación del Subsector corresponderá al Presidente Ejecutivo del Instituto Costarricense de Turismo, quien asumirá sus funciones dentro de las directrices que fijen el Presidente de la República y el Ministro del Sector Economía, Industria y Comercio, y las leyes, y contará para desarrollar su gestión con el concurso técnico que obligatoriamente le brindará, la Secretaría Ejecutiva de Planificación Turística y la Oficina de Planificación Nacional y Política Económica, así como la Secretaría Ejecutiva de Planificación del Sector Economía, Industria y Comercio.
