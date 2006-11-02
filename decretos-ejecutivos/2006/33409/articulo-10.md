@@ -1,0 +1,1 @@
+Artículo 10.—Autorización de exención. Para efectos de acceder a los beneficios concedidos en la Ley Nº 7874 y el presente Reglamento, el solicitante deberá presentar los requisitos establecidos para tal efecto, ante el Departamento de Exenciones de la Dirección General de Hacienda.

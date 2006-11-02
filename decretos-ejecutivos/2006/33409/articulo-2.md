@@ -1,0 +1,11 @@
+Artículo 2º—Definiciones. Para los efectos del presente Reglamento, se entenderá por:
+a) Declaratoria de producción de interés público: la que realicen el Ministerio de Cultura, Juventud y Deportes, el Ministerio de Educación Publica o el Consejo Nacional para Investigaciones Científicas y Tecnológicas, sobre las producciones que se sometan a su conocimiento y satisfagan el interés público, de conformidad con las competencias atribuidas a cada Ministerio.
+b) Impreso para no videntes: aquel que, mediante el empleo de sistema Braille, ecograma o cualquier otro medio, facilite su uso a las personas no videntes.
+c) Producción cultural: expresión organizada del ser o el quehacer de un pueblo, tal como la literaria, la educativa, la artística, la religiosa, la científica, la tecnológica y la deportiva.
+d) Jerarca: Ministro de Cultura, Juventud y Deportes, Ministro de Educación Pública, Ministro de Hacienda, Ministro de Ciencia y Tecnología, Ministro de Economía, Industria y Comercio y Presidente del Consejo Nacional para Investigaciones Científicas y Tecnológicas.
+e) Producción literaria: la que corresponda a los géneros de novela, cuento, poesía, ensayo y otros así definidos.
+f) Producción educativa: material didáctico que se oriente al fomento de la formación integral del ser humano, con base en los valores éticos y estéticos, principios de equidad, probidad, dignidad, libertad, convivencia social, y cuyos contenidos se relacionen con el proceso de enseñanza-aprendizaje, en cualquiera de sus niveles y modalidades, debidamente aprobados por el Consejo Superior de Educación.
+g) Producción artística: la que su contenido se relacione con la expresión de valores artísticos en todas las manifestaciones de ese quehacer.
+h) Producción religiosa: la que su contenido se relacione con la exposición o el análisis de las doctrinas sustentadas por las diversas religiones.
+i) Producción científica y tecnológica: la que contribuya a divulgar, incrementar y actualizar los conocimientos existentes en el ámbito de las áreas de las ciencias exactas y naturales, las ingenierías y tecnologías, las ciencias médicas, las ciencias agrarias, las ciencias sociales y las humanidades.
+j) Producción deportiva: aquella que se relacione con la actividad física que favorezca el desarrollo humano en una dimensión integral.
