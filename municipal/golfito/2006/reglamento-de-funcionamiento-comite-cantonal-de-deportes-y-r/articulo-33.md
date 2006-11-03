@@ -1,0 +1,1 @@
+Artículo Nº 33.—En sus tres primeras sesiones la Comisión Específica procederá a elaborar el plan anual de actividades, consignando en él los costos de cada actividad y deberán presentarlos por escrito lo más detallado posible, al Comité Cantonal de Deportes y Recreación.

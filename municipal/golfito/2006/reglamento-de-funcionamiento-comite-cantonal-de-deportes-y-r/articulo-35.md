@@ -1,0 +1,1 @@
+Artículo Nº 35.—En los cantones donde se encuentra funcionando debidamente organizadas filiales de asociaciones y federaciones, éstas deberán fungir también como comisión específica de su deporte. Es recomendable así mismo que la Comisión de Fútbol sea la misma comisión cantonal de ANAFA.

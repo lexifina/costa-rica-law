@@ -1,0 +1,1 @@
+Artículo Nº 6º—Los comités cantonales de deportes y recreación coordinarán con la municipalidad lo concerniente a sus inversiones y obras del cantón. La municipalidad deberá proporcionarles un local que será su sede y todas las facilidades para el cabal cumplimiento de sus fines.

@@ -1,0 +1,1 @@
+Artículo Nº 50.—El comité cantonal de deportes y recreación podrá sustituir a aquel comité distrital que se considere no funcional o que no cumpla con los lineamientos emanados por el comité cantonal de deportes. El concejo municipal o la Dirección de Educación Física y Deportes. Lo hará previo visto bueno del Director Regional de Deportes.

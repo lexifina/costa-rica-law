@@ -1,0 +1,1 @@
+Artículo Nº 38.—La integración y distribución de puestos serán igual a la del Comité Cantonal de Deportes y Recreación, su vigencia la misma, pudiendo ser reelectos, no recibirán dietas ni renumeración alguna.

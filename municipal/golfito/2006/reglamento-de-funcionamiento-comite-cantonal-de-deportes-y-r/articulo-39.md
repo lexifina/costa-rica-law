@@ -1,0 +1,1 @@
+Artículo Nº 39.— Los comités distritales de deportes y recreación son la máxima representación del Comité Cantonal de Deporte y Recreación en las actividades de promoción administrativa de instalaciones y responsabilidad del desarrollo deportivo de su comunidad.

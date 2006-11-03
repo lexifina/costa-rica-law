@@ -1,0 +1,1 @@
+Artículo Nº 49.—Los directores regionales de la Dirección General de Educación Física y Deportes tendrán la potestad de reunirse con cualquier comité distrital de deportes y recreación cuando bien lo tenga. Podrán visitarlo en compañía de algún miembro del comité cantonal de deportes, o solo. Podrán solicitar los libros de actas y tesorería e informes de lo realizado.

@@ -1,0 +1,1 @@
+Artículo Nº 28.—Podrá el Comité Cantonal de Deportes y Recreación incluir dentro de su presupuesto con la aprobación de la Municipalidad. Las partidas necesarias para la adquisición de implementos deportivas, siempre que éstos se refieran a planes y programas previamente establecidos.

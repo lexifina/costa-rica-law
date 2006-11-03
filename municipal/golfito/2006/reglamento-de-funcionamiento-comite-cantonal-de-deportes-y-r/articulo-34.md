@@ -1,0 +1,1 @@
+Artículo Nº 34.—El comité Cantonal de Deportes t Recreación podrá formar tantas comisiones específicas por deportes, como sea la cantidad de disciplinas deportivas practicadas en el cantón, pero deberá tener como mínimo cinco escogidas de los siguientes deportes: ajedrez, Atletismo, Baloncesto, Béisbol, Boxeo, Ciclismo, Fútbol, Natación, Tenis de mesa y voleibol.

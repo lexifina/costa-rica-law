@@ -1,0 +1,1 @@
+Artículo Nº 4º—En caso de que no se presenten las ternas o designados a que se refiere el artículo Nº 3 de este reglamento, el concejo prevendrá el cumplimiento de los omisos y si dentro de los treinta días siguientes no se procediese a tal designación, se nombrará por la Municipalidad a un vecino del cantón que cumpla con los requisitos fijados por la ley.

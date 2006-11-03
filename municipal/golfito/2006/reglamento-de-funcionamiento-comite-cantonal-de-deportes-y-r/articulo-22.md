@@ -1,0 +1,1 @@
+Artículo Nº 22.—Los acuerdos tomados por el Comité quedarán en firme al aprobarse el acta respectiva. Por votación de las dos terceras partes de la totalidad de los miembros, podrá el comité declarar sus acuerdos como definitivamente aprobados.

@@ -1,0 +1,1 @@
+Artículo Nº 32.—Cada comisión específica por deporte tendrá la misma vigencia del Comité Cantonal de Deportes y Recreación y sus miembros podrán ser reelectos, no devengarán dietas ni remuneraciones alguna. Deberán reunirse cuando menos dos veces al mes.

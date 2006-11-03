@@ -1,0 +1,1 @@
+Artículo Nº 8º—El comité cantonal de deportes y recreación de Golfito, tendrá personería jurídica, únicamente para el cumplimiento de los fines de la ley, y el presente reglamento otorguen. La misma la gestionaría la junta directiva del comité cantonal de deportes y recreación ante el registro público.

@@ -1,0 +1,1 @@
+Artículo Nº 43.—Cada comité distrital deberá llevar un libro de actas de junta directiva y un libro de tesorería con hojas numeradas, los cuales deben ser facilitados por el comité cantonal de deportes y recreación, quien los autorizara emitiendo el sello en cada página del libro.

@@ -1,0 +1,1 @@
+Artículo Nº 56.—El presidente del comité distrital podrá convocar a reunión extraordinaria por iniciativa propia o a petición de tres miembros del comité. Los asuntos a tratar se conocerán conforme con el orden del día previamente elaborado por el presidente y aprobado por los presentes.

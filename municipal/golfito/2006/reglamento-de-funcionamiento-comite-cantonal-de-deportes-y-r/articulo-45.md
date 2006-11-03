@@ -1,0 +1,1 @@
+Artículo Nº 45.—Cada tres meses el comité cantonal de deportes, convocará a todos los presidentes de los comités distritales a una sesión conjunta. En esta oportunidad los comités distritales presentarán un informe, con copias al comité cantonal de deportes y recreación indicando las actividades realizadas y por realizar de su agrupación.
