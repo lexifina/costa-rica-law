@@ -1,0 +1,7 @@
+ARTÍCULO XIII
+Propósitos de los privilegios e inmunidades
+y cooperación con las autoridades costarricenses
+1. Los privilegios e inmunidades otorgadas en los artículos XI y XII son conferidos en el interés del Instituto y no para beneficio personal de los individuos. El Director General o su designado tendrán el derecho y la obligación de renunciar a la inmunidad cuándo ésta pueda impedir el curso de la justicia. Tal renuncia de la inmunidad será sin perjuicio para los intereses del Instituto.
+2. La OFICINA y su personal colaborarán con las Autoridades Costarricenses para facilitar la adecuada administración de justicia, para garantizar la observancia de las regulaciones policiales y para prevenir que ocurra cualquier abuso en relación con los privilegios e inmunidades otorgadas en este Acuerdo.
+3. Sin perjuicio a los privilegios e inmunidades conferidos por este Acuerdo, es responsabilidad de todas las personas que gocen de tales privilegios e inmunidades respetar las leyes y regulaciones de Costa Rica. Estas personas también tienen la responsabilidad de no interferir en los asuntos internos del Estado.
+4. Los Tribunales de Justicia de Costa Rica no tendrán jurisdicción para conocer de las causas laborales del personal internacional del Instituto. Sus diferendos se conocerán de acuerdo con las políticas del Instituto en su sede central en Roma. No obstante, los Tribunales de Trabajo de la República de Costa Rica tendrán jurisdicción para conocer de las causas laborales del personal contratado localmente por el Instituto.
