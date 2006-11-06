@@ -9,3 +9,4 @@ ARTÍCULO 1: Apruébanse los siguientes Ingresos Ordinarios y Extraordinarios, t
 (Así reformado por el artículo 10 incisos 8, 9 y 10, de la Ley N° 8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La Gaceta N° 245 del 15 de diciembre del 2004)
 (Así reformado por el artículo 7° incisos 12 y 21 de la Ley N° 8453 del 22 de julio del 2005, publicado en el Alcance N° 28 a la Gaceta N° 154 del 11 de agosto del 2005)
 (Así reformado por el artículo 6° incisos 16 y 17 de la Ley N° 8465 del 25 de octubre del 2005)
+(Así reformado por el artículo 6 incisos 1, 21, 22, 23 y 24 de la Ley N° 8561 del 6 de noviembre del 2006)
