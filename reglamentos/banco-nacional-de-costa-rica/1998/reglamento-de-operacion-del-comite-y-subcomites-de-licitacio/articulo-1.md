@@ -12,15 +12,16 @@ El Director Corporativo de Gestión de Medios fungirá como Presidente y el Prov
 1.2 Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
 Casa Matriz:
 Tres miembros propietarios:
-a) El Director de Bienes quien fungirá como Presidente.
-b) El Proveedor General quien fungirá como Secretario.
-c) El Jefe de Control y Apoyo Técnico.
+a. Director de Bienes quien fungirá como Presidente.
+b. Proveedor General quien fungirá como Secretario.
+c. El Jefe de Control y Apoyo Técnico.
 Como asesor, en la sesión del Subcomité estará presente el Abogado de la Dirección Jurídica asignado a la Dirección de Bienes, con voz pero sin voto.
 El Jefe de Control de Bienes será miembro suplente para suplir las ausencias temporales de cualquiera de los tres miembros propietarios.
 Bancos Regionales:
-a) El Director Regional quien fungirá como su Presidente.
-b) El Director Regional de Apoyo.
-c) El Director Regional de Negocios.
-El Proveedor/SIPRO Regional asistirá a las sesiones del Comité con voz pero sin voto y fungirá como Secretario del órgano.
-d) El Director de Crédito será miembro suplente para suplir las ausencias temporales de cualquiera de los tres miembros propietarios.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11263 del 27 de abril de 2004)
+a. El Director Regional quien fungirá como su Presidente.
+b. El Director Regional de Gestión de Medios.
+c. El Director Regional de Banca de Personas.
+El Proveedor/SIPRO Regional asistirá a las sesiones del Comité con voz pero sin voto y fungirá como secretario del órgano.
+d. El Director de Crédito será miembro suplente para suplir las ausencias temporales de cualquiera de los tres miembros propietarios.
+El resto del articulado permanece invariable
+(Así reformado el inciso anterior y publicado en La Gaceta Nº 212 del 6 de noviembre de 2006)
