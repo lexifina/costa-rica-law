@@ -1,0 +1,1 @@
+3) Se modifica la numeración de los Capítulos y Artículos para que en adelante se lea el Capítulo Titulado otorgamiento de permisos de uso como Capítulo octavo y así sucesivamente, igualmente, el Artículo 53 anterior le corresponderá en adelante el número 56 y así sucesivamente.
