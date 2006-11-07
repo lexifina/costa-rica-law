@@ -1,0 +1,2 @@
+Artículo 2 BIS.—El Tribunal delegará, en el Director Ejecutivo, la firma de los contratos que lleguen a formalizarse en un documento contractual clausulado, originado de la adjudicación recaída en un procedimiento de licitación abreviada. Para tal efecto, en el acto de adjudicación se hará mención expresa a dicha autorización.
+(Así adicionado por el artículo 1° del decreto del TSE N° 17 del 7 de noviembre de 2006)
