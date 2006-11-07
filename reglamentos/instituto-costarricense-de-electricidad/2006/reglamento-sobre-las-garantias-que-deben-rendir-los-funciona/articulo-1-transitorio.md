@@ -1,0 +1,2 @@
+Transitorio único.—A más tardar 60 días a partir de la aprobación de este reglamento, todos los funcionarios (as) llamados (as) a rendir garantía (caucionantes), deben presentar el documento que acredite la caución, a la Dirección Administrativa de Finanzas y enviar una copia a la Dirección Administrativa de Recursos Humanos, para que se agregue al expediente personal.
+San José, 22 de noviembre del 2006.
