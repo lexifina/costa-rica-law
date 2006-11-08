@@ -14,3 +14,4 @@ Reglamento para las actividades de la Aviación Agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-15 | la propia norma |
+| 2 | 2006-11-08 | SINALEVI (sin norma nombrada) |
