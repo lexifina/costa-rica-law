@@ -1,1 +1,1 @@
-Artículo 4°—En ningún caso procederá reconocer depreciación alguna sobre los activos que al efectuarse la revaluación, se encuentran totalmente depreciados.
+Artículo 4°—Anulado. (Anulado mediante resolución de la Sala Constitucional N° 16277, de las 14:57 horas del 8 de noviembre del 2006.)

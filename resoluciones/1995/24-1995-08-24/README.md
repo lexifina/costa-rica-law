@@ -13,3 +13,4 @@ DGTD: Normas para Revaluación de Activos Depreciables Periodo 95
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-08-31 | la propia norma |
+| 2 | 2006-11-08 | SINALEVI (sin norma nombrada) |
