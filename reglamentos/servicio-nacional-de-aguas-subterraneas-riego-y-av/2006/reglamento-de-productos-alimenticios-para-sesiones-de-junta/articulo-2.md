@@ -1,0 +1,1 @@
+Artículo 2º—Criterio de razonabilidad y austeridad en el gasto. Toda adquisición de productos alimenticios para los fines planteados en este reglamento se regirá por los principios de razonabilidad y austeridad en el gasto.

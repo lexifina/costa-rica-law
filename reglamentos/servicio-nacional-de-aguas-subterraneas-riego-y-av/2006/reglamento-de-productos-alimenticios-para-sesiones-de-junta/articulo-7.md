@@ -1,0 +1,1 @@
+Artículo 7º—Funcionarios responsables de autorizar los gastos. Los gastos a que se refiere este Reglamento podrán ser autorizados por el Gerente o Subgerente. Dicha autorización deberá ser previa a incurrir en el respectivo gasto.

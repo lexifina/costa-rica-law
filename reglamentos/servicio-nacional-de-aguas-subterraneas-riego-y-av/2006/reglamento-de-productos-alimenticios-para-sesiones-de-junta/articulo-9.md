@@ -1,0 +1,5 @@
+Artículo 9º—Procedimiento para la adquisición de productos alimenticios. Para la adquisición de productos alimenticios con la finalidad de cubrir las necesidades a que se refiere este Reglamento, se seguirá el siguiente procedimiento:
+a) Para cada sesión de Junta Directiva se hará una compra de acuerdo con las necesidades específicas de atención que se prevean para esa sesión, considerando la hora de inicio, posible duración e invitados que deban asistir.
+b) La adquisición de estos productos se tramitará mediante recursos de caja chica.
+c) La Secretaría de la Junta Directiva, será la responsable de realizar directamente la compra respectiva, para cuyos efectos tramitará con la anticipación necesaria, el respectivo vale de caja chica, el cual debe contar con la aprobación del Gerente o Subgerente
+d) Realizada la compra, la Secretaría de la Junta Directiva hará el reintegro correspondiente a la Tesorería, de conformidad con los trámites y procedimientos establecidos en el Reglamento de Caja Chica.

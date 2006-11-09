@@ -1,0 +1,1 @@
+Artículo 8º—Disponibilidad presupuestaria. Los funcionarios responsables de autorizar el gasto, estarán obligados a verificar previamente la existencia y disponibilidad de recursos presupuestarios suficientes para tal fin. El Área administrativa rechazará el pago de aquellos gastos para los cuales no exista contenido presupuestario.
