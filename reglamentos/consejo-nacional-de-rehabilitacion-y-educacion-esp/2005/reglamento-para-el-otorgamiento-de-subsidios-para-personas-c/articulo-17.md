@@ -8,4 +8,5 @@ D) Cuando se compruebe que el beneficiario(a), recibe apoyo económico de otras 
 E) Cuando se demuestre un cambio en los ingresos familiares que le permita sufragar los gastos que dieron origen al subsidio otorgado por el Consejo.
 F) Cuando el beneficiario(a) no aporta los comprobantes de inversión requeridos.
 G) En caso del fallecimiento del beneficiario(a).
-H) En caso de incumplimiento por parte del beneficiario(a) a lo establecido en este Reglamento, se faculta al Consejo para realizar un estudio a efecto de determinar si procede o no la revocación del subsidio.
+H) En caso de incumplimiento por parte del beneficiario(a) a lo establecido en este Reglamento, se faculta a la organización no gubernamental o al Consejo para realizar un estudio a efecto de determinar si procede o no la suspensión temporal o definitiva del subsidio.”. Es todo.
+(Así reformado mediante acuerdo N° 1079 tomado en sesión N° 863 del 9 de noviembre del 2006)

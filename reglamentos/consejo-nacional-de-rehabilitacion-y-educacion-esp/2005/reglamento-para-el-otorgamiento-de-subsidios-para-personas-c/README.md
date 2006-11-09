@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Subsidios para Personas con Discapacidad en C
 | --- | --- | --- |
 | 1 | 2005-07-15 | la propia norma |
 | 2 | 2006-10-10 | Reglamento 860 (2006-10-10) |
+| 3 | 2006-11-09 | Reglamento 863 (2006-11-09) |
