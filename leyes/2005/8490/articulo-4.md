@@ -6,3 +6,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a 
 (Modificado por el artículo 1° del decreto ejecutivo N°33227 del 13 de julio del 2006).
 (Modificado por el artículo 1º del decreto ejecutivo Nº 33372 del 27 de setiembre del 2006).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33408 del 20 de octubre de 2006)
+(Reformado por el artículo 4° de la ley N° 8561 del 6 de noviembre de 2006)

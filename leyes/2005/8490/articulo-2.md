@@ -14,7 +14,8 @@ OBJETIVOS DE MEJORA INSTITUCIONALES:
 6.Promoverlacapacitación del personal, conforme a los requerimientos de la integración del Parlamento para el actual período gubernamental.
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a La Gaceta N° 253 del 30 de diciembre de 2005
 (Modificado por el artículo 1° del decreto ejecutivo N° 32859 del 9 de enero del 2006)
-(Modificado por el artículo 1° del decreto ejecutivo N° 32866 del 17 de enero del 2006) *(Mediante el artículo 4° del decreto ejecutivo N° 32977 del 14 de marzo del 2006, se modifica el decreto ejecutivo N° 32866 del 17 de enero del 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32866 del 17 de enero del 2006)
+*(Mediante el artículo 4° del decreto ejecutivo N° 32977 del 14 de marzo del 2006, se modifica el decreto ejecutivo N° 32866 del 17 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32884 del 24 de enero del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32937 del 2 de marzo del 2006, mediante el artículo 4° del decreto ejecutivo N° 33161 del 18 de mayo de 2006 se recodifica el decreto ejecutivo N° 32937 del 2 de marzo de 2006)
 (Modificado por el artículo 1° y 3° del decreto ejecutivo N° 32977 del 14 de marzo del 2006, mediante el artículo 3° del decreto ejecutivo N° 33161 del 18 de mayo de 2006 se recodifica el decreto ejecutivo N° 32977 del 14 de marzo de 2006) *(Mediante el artículo 2° del decreto ejecutivo N° 33408 del 20 de octubre de 2006, se modifica el artículo 3° del decreto ejecutivo N° 32977 del 14 de marzo de 2006)
@@ -30,3 +31,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a 
 (Modificado por el artículo 1º del decreto ejecutivo Nº 33382 del 25 de setiembre del 2006)
 (Modificado por el artículo 1º del decreto ejecutivo Nº 33372 del 27 de setiembre del 2006)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33408 del 20 de octubre de 2006)
+(Reformado por los artículos 2° y 3° de la ley N° 8561 del 6 de noviembre de 2006)
