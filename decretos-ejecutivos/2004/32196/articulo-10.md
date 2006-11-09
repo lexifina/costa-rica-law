@@ -1,2 +1,0 @@
-Artículo 10.—Compromiso del usuario. Acogida la solicitud de préstamo de las instalaciones por la Comisión o los Directores respectivos, el interesado deberá suscribir una fórmula en la que se establecerán las condiciones que el usuario debe respetar producto del uso de las instalaciones.
-Por constituir un préstamo a título precario dicho documento no reviste la formalidad de contrato, sino únicamente un documento en el que se le indica al usuario la manera de coordinar, utilizar y conservar las instalaciones que se le facilitarán.
