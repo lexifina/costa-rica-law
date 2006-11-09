@@ -1,0 +1,1 @@
+Artículo 9º—Traslado del manejo del Fondo: Los traslados del fondo de caja chica de un encargado a otro quedarán respaldados por un previo arqueo del fondo, debidamente firmado por ambos funcionarios y con el Visto Bueno del Coordinador de la Unidad Financiero Contable.

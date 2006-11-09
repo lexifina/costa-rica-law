@@ -1,0 +1,1 @@
+Artículo 13.—Información Requerida en el Vale Provisional: El usuario del fondo deberá suministrar toda la información que se le solicita en el vale descrito en el artículo anterior, la cual será verificada por el encargado, antes de proceder a la entrega de la suma solicitada.

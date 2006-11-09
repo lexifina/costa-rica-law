@@ -1,0 +1,1 @@
+Artículo 2º—Caja Chica: La caja chica constituye un fondo de efectivo destinado a resolver necesidades en adquisición de bienes y servicios que excepto contratación de personal, que por su naturaleza, magnitud, impredecibilidad, urgencia y cuantía menor requieren de un trato excepcional.
