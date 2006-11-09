@@ -88,6 +88,5 @@ Edad de retiro | Cotizaciones requeridas | Porcentaje de Reducción
 60 años y 3 meses | 300 | | 33.0%
 60 años | 300 | | 34.8%
 Los porcentajes de reducción indicados en la tabla anterior, se calculan en relación con el monto de la pensión que se indica en el artículo 24 de este Reglamento.
-El derecho al retiro anticipado indicado en la tabla anterior, se supedita, además, a que el monto de la pensión reducida supere el monto mínimo de pensión vigente.
 Asimismo, el asegurado podrá anticipar su retiro de este Régimen, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que para tales efectos apruebe la Junta Directiva.
-(Así reformado en el artículo 12 de la sesión N° 7950 y en el artículo 7 de la sesión N° N° 7952 celabradas 21 y el 28 de abril del 2005)
+(Así reformado en sesión N° 8106 del 9 de noviembre de 2006)
