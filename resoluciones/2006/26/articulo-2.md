@@ -1,0 +1,1 @@
+Artículo 2º—Que no obstante lo indicado en el artículo 1 de esta resolución, cuando el sujeto pasivo efectivamente reciba o realice pagos en moneda extranjera, debe utilizar el tipo de cambio de venta o de compra según corresponda, fijado por la entidad financiera de su elección.

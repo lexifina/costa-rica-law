@@ -1,0 +1,1 @@
+Artículo 3º—Que aún cuando la NIC 21, disponga sobre el tratamiento contable de las transacciones realizadas en moneda extranjera, para efectos tributarios se deben seguir los lineamientos establecidos en la presente resolución de conformidad con el artículo 99 del Código de Normas y Procedimientos Tributarios.
