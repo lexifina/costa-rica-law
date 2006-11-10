@@ -14,3 +14,4 @@ Pone en Vigencia Resolución N° 117-2004 del Consejo de Ministros de Integraci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-26 | la propia norma |
+| 2 | 2006-11-10 | Decreto Ejecutivo 33492 (2006-11-10) |
