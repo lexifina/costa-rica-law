@@ -1,0 +1,1 @@
+Artículo 14.—De la vigilancia e inspección de este tipo de establecimientos. La vigilancia e inspección de este tipo de establecimientos, estará a cargo de uno o varios inspectores municipales, con el objeto de hacer cumplir las presentes disposiciones y las que dicten las autoridades administrativas de la Municipalidad de San Isidro de Heredia.

@@ -1,0 +1,1 @@
+Artículo 5º—De la visibilidad y ubicación de las máquinas de juegos. En los establecimientos en los cuales se instalen y funcionen las máquinas de juegos, las mismas deberán estar visibles y ubicadas en un lugar abierto al público concurrente.

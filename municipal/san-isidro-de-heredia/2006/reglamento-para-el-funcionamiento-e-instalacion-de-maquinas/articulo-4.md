@@ -1,0 +1,1 @@
+Artículo 4º—De los permisos para la instalación y funcionamiento. Los permisos para la instalación y funcionamiento de maquinas de juegos, deberán ser autorizados por el respectivo departamento de la Municipalidad, previa inspección y constatación de que se ha cumplido con todos los requisitos que establece el presente reglamento y las disposiciones legales aplicables.

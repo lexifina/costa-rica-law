@@ -1,0 +1,1 @@
+Artículo 17.—Del informe final de la inspección. Los inspectores Municipales, presentarán el informe respectivo al siguiente día hábil, con las respectivas recomendaciones a la Alcaldía Municipal, para determinar lo que proceda.

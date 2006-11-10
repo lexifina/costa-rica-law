@@ -1,0 +1,1 @@
+Artículo 9º—Del horario de juego. Las regulaciones atinentes al horario del juego, así como los requisitos de edad mínima para utilizar las máquinas, se encuentran recogidas en el reglamento de Máquinas para juego y el Reglamento de la Ley de Juegos Nº 03, publicada el 02 de setiembre de 1922, y el Decreto Ejecutivo Nº 3510-G del 24 de enero de 1974.

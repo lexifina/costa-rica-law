@@ -1,0 +1,1 @@
+Artículo 16.—De la identificación de los inspectores. Los Inspectores, contarán con una identificación extendida y firmada por el Alcalde Municipal, la cual llevará impresa el sello de ese despacho municipal. Dicha identificación deberá ser presentada en el lugar en que están ubicadas permanente u ocasionalmente las máquinas de juegos.

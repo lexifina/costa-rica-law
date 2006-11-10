@@ -1,0 +1,1 @@
+Artículo 7º—De las instalaciones ocasionales de máquinas de juegos. Las instalaciones ocasionales de máquinas de juegos, en ferias, turnos, festejos cívicos, patronales o religiosos, deberán ser autorizadas por la Municipalidad.

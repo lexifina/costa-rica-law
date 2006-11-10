@@ -1,0 +1,1 @@
+Artículo 8º—El certificado de la licencia Municipal. El certificado de la licencia Municipal para la instalación y el funcionamiento de máquinas de ping ball y saca peluches sea permanente u ocasional, deberá estar colocado en un lugar visible del establecimiento donde funcionen.
