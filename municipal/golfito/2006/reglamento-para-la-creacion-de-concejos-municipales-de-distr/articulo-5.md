@@ -1,0 +1,1 @@
+Artículo 5º—Para que un distrito sea merecedor de la creación de un órgano de esta naturaleza, deberá cumplir al menos, con tres de los cinco requisitos establecidos en el artículo tercero de este reglamento.
