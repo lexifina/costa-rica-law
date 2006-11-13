@@ -1,0 +1,1 @@
+Artículo 16.—De la identificación de los inspectores. Los Inspectores, contarán con una identificación, la cual llevará impreso el sello que distingue a la municipalidad, en un lugar visible y deberán identificarse debidamente al cumplir sus labores.

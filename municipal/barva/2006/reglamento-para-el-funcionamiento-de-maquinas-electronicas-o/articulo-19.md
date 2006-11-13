@@ -1,0 +1,1 @@
+Artículo 19.—Sobre la identificación de las máquinas. La Municipalidad confeccionará una calcomanía que será adherida a la máquina, en donde constaran las características de la máquina, número de serie y datos de su ubicación y del propietario de la patente comercial. Esta calcomanía deberá permanecer adherida a la máquina en todo momento que esté vigente la patente.

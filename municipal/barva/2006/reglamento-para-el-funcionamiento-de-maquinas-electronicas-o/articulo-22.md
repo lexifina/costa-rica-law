@@ -1,0 +1,4 @@
+Artículo 22.—De las sanciones: En caso de advertir una infracción al presente reglamento con el uso de la patente para juegos permitidos, el Departamento de Patentes seguirá el siguiente procedimiento:
+a) Por la primera notificación le hará un apercibimiento por escrito al patentado infractor para que lo sucedido no se vuelva a presentar.
+b) Por la segunda notificación de incumplimiento en un lapso de tiempo de un mes posterior a la primera notificación, se suspenderá totalmente la actividad comercial procediendo al sello de la máquina respectiva.
+c) De comprobarse que en el local comercial autorizado para la actividad de máquinas o juegos permitidos se consumen drogas, se realicen actividades que riñan con la moral o las buenas costumbres, o se presta para actividades que violenten los derechos de los niños y adolescentes, en forma inmediata y definitiva se suspenderá la explotación comercial autorizada en este reglamento
