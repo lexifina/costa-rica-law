@@ -1,0 +1,1 @@
+Artículo 5º—El FOCORE tendrá un fiscal quien participará en las sesiones del Consejo de Administración con derecho a voz pero no a voto. Su nombramiento al igual que el del Consejo de Administración estará a cargo de la Asamblea General, bajo la supervisión del Tribunal de Elecciones del Colegio, la cual se realizará el tercer domingo de enero de cada año.

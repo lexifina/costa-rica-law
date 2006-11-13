@@ -1,0 +1,1 @@
+Artículo 43.—Cada Consejo Regional deberá formular su proyecto de presupuesto anual y su plan de trabajo, que deberá remitirse, a más tardar dos meses antes de la Asamblea Anual de Presupuesto para conocimiento y análisis de la Junta Directiva del Colegio, a fin de integrarlo en el presupuesto general del Colegio.

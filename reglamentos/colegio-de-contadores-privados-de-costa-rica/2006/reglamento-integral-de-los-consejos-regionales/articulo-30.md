@@ -1,0 +1,1 @@
+Artículo 30.—En caso de renuncia o ausencia injustificada a tres sesiones consecutivas de mas de tres de sus miembros, es motivo para que la Junta Directiva del Colegio convoque a Asamblea Regional del lugar donde este ubicado el Consejo en un término no superior a noventa días para hacer el nombramiento del sustituto o sustitutos, siguiendo el debido proceso.

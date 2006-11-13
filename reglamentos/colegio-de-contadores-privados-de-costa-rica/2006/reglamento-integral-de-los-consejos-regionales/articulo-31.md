@@ -1,0 +1,1 @@
+Artículo 31.—El Colegio a través del Consejo de Administración suministrará los nombres de los contadores de su jurisdicción a quienes se les hayan dado de baja, suspendido o des-afiliado, así como la nómina de los contadores activos.

@@ -1,0 +1,1 @@
+Artículo 33.—La elección de la Junta Directiva se hará bajo la responsabilidad del Tribunal de Elecciones del Colegio el cual nombrará dos representantes de su seno. Será válida cuando haya sido convocada con la anticipación y la divulgación establecidas y concurran a la respectiva asamblea no menos de ocho miembros debidamente inscritos.

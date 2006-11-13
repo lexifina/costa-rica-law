@@ -1,0 +1,2 @@
+Artículo 40.—Si fuere necesario levantar una construcción, su diseño y distribución tendrán medidas estándares y estarán integrados en siguiente forma: Administración, 20 metros cuadrados; junta directiva, 20 metros cuadrados; cómputo y laboratorio, 20 metros cuadrados; servicio sanitario, 10 metros cuadrados, y otros servicios, cinco metros cuadrados.
+Compete a la Junta Directiva del Colegio la adquisición de terreno y la construcción de edificaciones, en acatamiento de todas las regulaciones legales y reglamentarias vigentes.
