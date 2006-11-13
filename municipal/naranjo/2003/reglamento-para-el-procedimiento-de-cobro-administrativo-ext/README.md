@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro administrativo, extrajudicial y judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-23 | la propia norma |
+| 2 | 2006-11-13 | Reglamento municipal 45 (2006-11-13) |

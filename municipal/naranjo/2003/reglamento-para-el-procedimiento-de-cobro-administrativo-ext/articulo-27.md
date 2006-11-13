@@ -1,1 +1,3 @@
-Artículo 27.—El tiempo que se le concede para hacer un arreglo de pago no excederá los 12 meses calendario, contados a partir de la firma del documento respectivo. El Departamento de Rentas y Cobranza elaborará una tabla donde se especificará el monto de los depósitos previstos a la formalización del arreglo de pago.
+Artículo 27.—El tiempo que se concede para hacer un arreglo de pago no excederá los 12 meses calendario, contados a partir de la firma del documento respectivo. Exceptuando aquellos arreglos de pago que el Concejo Municipal autorice a personas en estado de pobreza extrema comprobada (para ello solicitar informe de visitadora social, oficina de la mujer etc.).
+En estos casos se concederá un plazo mayor para la cancelación de la deuda. El departamento de Rentas y Cobranzas elaborará una tabla donde se especifique el monto de los depósitos previstos a la formalización del arreglo de pago.
+(Así reformado en sesión N° 45 del 13 de noviembre de 2006)
