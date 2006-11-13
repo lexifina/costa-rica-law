@@ -1,0 +1,1 @@
+Artículo 8º—Las adquisiciones de bienes o servicios, se hará por medio de la Administración del Colegio, previo análisis referente a precios, calidad y otros factores, efectuados por la Administración del CECAP. Todo de conformidad con los procedimientos establecidos por el Colegio.

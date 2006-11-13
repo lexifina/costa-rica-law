@@ -1,0 +1,3 @@
+Artículo 24.—Su labor consiste en planear, organizar, dirigir, controlar, ejecutar, y supervisar el desarrollo de las diferentes actividades administrativo-docentes de una institución de educación especializada en la capacitación de profesionales en ciencias contables y áreas afines, como lo es el CECAP.
+La Dirección Administrativa estará subordinada administrativamente a la administración general del Colegio y operativamente en el campo tecnológico y académico al Consejo de Administración.
+Para el cumplimiento de sus funciones tendrá discrecionalidad horaria y disponibilidad de acuerdo con las necesidades administrativas y académicas que se desarrollen en el CECAP. El Consejo de Administración del CECAP será el responsable de evaluar su desempeño laboral.

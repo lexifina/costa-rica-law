@@ -1,0 +1,1 @@
+Artículo 7º—Los excedentes que se produzcan como resultado de su operación, deberán destinarse a la adquisición, mantenimiento y mejoras de activos, así como inversiones y otras erogaciones de carácter educativo que contribuyan al cumplimiento de sus fines.

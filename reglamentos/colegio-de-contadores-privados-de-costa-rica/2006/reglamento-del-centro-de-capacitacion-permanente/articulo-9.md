@@ -1,0 +1,1 @@
+Artículo 9º—Para cubrir gastos administrativos, el CECAP transferirá mensualmente a la administración del Colegio el 12% de los ingresos recaudados por concepto de subvención de cuotas aportadas por los colegiados.

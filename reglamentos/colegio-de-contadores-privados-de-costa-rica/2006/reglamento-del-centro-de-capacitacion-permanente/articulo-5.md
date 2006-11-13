@@ -1,0 +1,1 @@
+Artículo 5º—Los ingresos producto de su operación serán depositados en cuentas del sistema bancario nacional, a nombre del Colegio de Contadores Privados de Costa Rica, con indicación del nombre CECAP. Todo de conformidad con los procedimientos de control interno establecidos por el Colegio.

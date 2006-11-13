@@ -1,0 +1,1 @@
+Artículo 6º—Todos los gastos que demande la operación normal del CECAP, serán cancelados mediante cheques, transferencias bancarias, caja chica u otro medio de pago autorizado por la Junta Directiva del Colegio, previo refrendo de la documentación soporte por parte del Presidente y del Tesorero del Consejo de Administración.
