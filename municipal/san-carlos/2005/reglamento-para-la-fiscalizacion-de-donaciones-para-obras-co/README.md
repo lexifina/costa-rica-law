@@ -14,3 +14,4 @@ Reglamento para la fiscalización de donaciones para obras comunales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-24 | la propia norma |
+| 2 | 2006-11-13 | Reglamento municipal 0 (2006-11-13) |
