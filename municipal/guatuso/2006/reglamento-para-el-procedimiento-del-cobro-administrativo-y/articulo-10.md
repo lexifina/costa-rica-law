@@ -1,0 +1,1 @@
+Artículo 10.—De conformidad con el Plan para la auto evaluación del control interno, el(la) Encargado(a) de cobros, deberá rendir un informe de las gestiones de cobro realizadas sobre las cuentas morosas; así como también elaborar un programa para la disminución del pendiente de cobro.

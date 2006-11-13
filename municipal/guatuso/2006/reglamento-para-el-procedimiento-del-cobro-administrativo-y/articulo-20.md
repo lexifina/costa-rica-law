@@ -1,0 +1,1 @@
+Artículo 20.—Cuando se demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar, la Municipalidad podrá realizar los trámites judiciales respectivos, contra el abogado designado.
