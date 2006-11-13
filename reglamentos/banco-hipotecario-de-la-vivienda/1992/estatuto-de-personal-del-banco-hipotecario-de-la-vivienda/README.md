@@ -18,3 +18,4 @@ Estatuto de Personal del Banco Hipotecario de la Vivienda
 | 3 | 2000-01-27 | Reglamento 5 (2000-01-27) |
 | 4 | 2000-05-24 | Reglamento 29 (2000-05-24) |
 | 5 | 2005-12-13 | Reglamento 74 (2005-12-13) |
+| 6 | 2006-11-13 | Acuerdo 3 (2006-11-13) |

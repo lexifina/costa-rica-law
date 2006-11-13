@@ -1,1 +1,1 @@
-Artículo 28.—Cálculo de días: Para calcular el número de días de vacaciones, se tomará en cuenta los años completos de servicio que el servidor hubiere prestado en conjunto a la Administración Pública, incluidas las empresas públicas, aunque el servicio no se hubiere prestado en forma continua, siempre que se hubiere prestado por lo menos en jornadas de medio tiempo.
+Artículo 28.—Cálculo de días (Este artículo fue derogado mediante el acuerdo N° 3 del 13 de noviembre de 2006)
