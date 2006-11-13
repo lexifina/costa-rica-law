@@ -1,0 +1,1 @@
+Artículo 8º—El personal administrativo revisará el estado de morosidad del contador en el momento del ingreso y verificará la vigencia de los carnés o tenencia de los comprobantes de ingresos autorizados. Además, está autorizado a retener aquellos carnés vencidos o cuyo deterioro haga dudar de su legitimidad y correcta identificación.
