@@ -1,0 +1,2 @@
+Artículo 10.—La Administración del Colegio establecerá los controles para la emisión, renovación, retención y destrucción de los carnés que se establecen en este Reglamento. Además le corresponderá también el retiro de los carnés que se encuentren en las situaciones descritas en los artículos 5º y 8º de este Reglamento.
+Este Reglamento deroga el publicado en La Gaceta Nº 43 del 01/04/2002, rige a partir de su publicación.
