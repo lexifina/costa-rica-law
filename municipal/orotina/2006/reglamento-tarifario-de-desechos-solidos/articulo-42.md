@@ -1,0 +1,1 @@
+Artículo 42.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del relleno de voluminosos, para el adecuado uso y rendimiento del relleno. Es incumplimiento a las indicaciones del caso, cera acreedor a una multa, conforme al costo de remoción de los desechos dispuestos en otro lugar.

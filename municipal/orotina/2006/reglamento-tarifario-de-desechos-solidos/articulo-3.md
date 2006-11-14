@@ -1,0 +1,1 @@
+Artículo 3º—Cuando las necesidades del servicio así lo requieran, la administración podrá encomendar su prestación, mediante concesión o contrato u otra modalidad a cualquier persona natural o jurídica que llene los requisitos exigidos en el ordenamiento municipal vigente.

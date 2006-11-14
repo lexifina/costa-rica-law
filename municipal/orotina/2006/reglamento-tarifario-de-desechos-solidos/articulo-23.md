@@ -1,0 +1,1 @@
+Artículo 23.—Se toma como tarifa institucional 1, la tasa a aplicar a todo ente de carácter estatal público o no público, que no sea privado. Para la tarifa institucional 1 se toma como factor de ponderación 1.5.
