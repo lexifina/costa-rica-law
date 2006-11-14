@@ -1,4 +1,2 @@
-Artículo 29.-La selección y eliminación de documentos que han perdido vigencia legal y administrativa, autorizados previamente por la Comisión Nacional de Selección y Eliminación se hará bajo la autorización de los superiores administrativos y de la Comisión Institucional de Selección y Eliminación. La Comisión Institucional estará integrada por los siguientes funcionarios:
-a) Alcalde Municipal.
-b) Asesor Legal.
-c) Encargado Archivo Central.
+Artículo 29.—La selección y eliminación de documentos que han perdido vigencia legal y administrativa, autorizados previamente por la Comisión Nacional de Selección y Eliminación, se hará de acuerdo a la Tabla de Plazos de Conservación, que para tales efectos aprobó la Comisión Institucional de Selección y Eliminación de Documentos.
+(Así reformado mediante sesión N° 029 del 14 de noviembre de 2006)

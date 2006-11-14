@@ -14,3 +14,4 @@ Reglamento Interno de Funcionamiento y Organización del Archivo Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-27 | la propia norma |
+| 2 | 2006-11-14 | Reglamento municipal 29 (2006-11-14) |
