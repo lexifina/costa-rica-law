@@ -1,0 +1,1 @@
+Artículo 2º—Marco legal. El marco legal de esta normativa tiene fundamento en lo establecido por los Artículos 2º, 3º, 5º, 95 y 107 de la Ley Orgánica del Banco Central de Costa Rica y los Artículos 10, 15, 16 y 17 de la Ley General de la Administración Pública.

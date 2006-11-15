@@ -1,0 +1,2 @@
+Disposición Transitoria
+Se dará un plazo de tres meses a partir de la fecha de aprobación de esta normativa para que el Comité de Reservas revoque el reconocimiento a aquellas entidades que, a pesar de que no son bancos, se les haya acreditado como “banco extranjero de primer orden”. Asimismo, se procederá a autorizar a dichas entidades a la luz de esta normativa. Para estos efectos el Comité de Reservas se apoyará en las recomendaciones que haga el Departamento de Análisis y Control de Riesgos de la División de Gestión de Activos y Pasivos.”

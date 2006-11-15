@@ -1,0 +1,16 @@
+# Reglamento (2006-11-15)
+
+Normativa para la Autorización de Entidades con las que el Banco Central de Costa Rica puede Efectuar Operaciones Relacionadas con la Gestión de las Reservas Monetarias Internacionales
+
+- Tipo: Reglamento
+- Número: 5305
+- Fecha: 2006-11-15
+- Ente emisor: Banco Central de Costa Rica
+- Publicación: La Gaceta N° 231 del 2006-12-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58541&param2=64905&param3=1 (ficha 58541)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2006-11-15 | la propia norma |

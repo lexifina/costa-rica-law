@@ -1,0 +1,1 @@
+Artículo 9º—Prohibición. No será permitido autorizar a entidades clasificadas como paralelas u “offshore” de acuerdo con lo dispuesto en el Artículo 24 de las “Políticas Generales para la Administración de las Reservas Monetarias Internacionales” del Banco Central de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 3º—Alcances y Limitaciones. La aplicación de este reconocimiento será única y exclusivamente para uso interno del Banco Central de Costa Rica y con el fin descrito en el Artículo 1º. No podrá ser utilizado para efectos de tipo fiscal, y será un registro completamente diferente al que el Ente Emisor mantiene de “bancos extranjeros de primer orden”.

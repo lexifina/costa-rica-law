@@ -1,0 +1,1 @@
+Artículo 8º—Extensión de la autorización. La autorización otorgada bajo esta normativa podrá ser extensiva a aquellas sucursales o agencias de las entidades que por su naturaleza y tipo de entidad, así lo permita. Dicha extensión no será otorgada a entidades que sean subsidiarias o que cuenten con una personería jurídica diferente a de las autorizadas al amparo de esta normativa.
