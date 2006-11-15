@@ -13,3 +13,4 @@ Reforma Reglamento de Servicios Médicos por Honorarios (Inciso c) Artículo 13)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-02 | la propia norma |
+| 2 | 2006-11-15 | Circular 155 (2006-11-15) |
