@@ -1,0 +1,1 @@
+Artículo 6º—Libros no retirados. Los libros se mantendrán a despacho durante tres meses después de la fecha de recibo. Si no se retiran en ese plazo, la Administración Tributaria procederá a su destrucción o dispondrá de ellos conforme lo considere conveniente.

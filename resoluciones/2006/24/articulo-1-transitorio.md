@@ -1,0 +1,1 @@
+Transitorio único.—Aquellos interesados que para presentar la solicitud de legalización, cuenten con un formulario suministrado por la Administración Tributaria, distinto del establecido en esta resolución, podrán utilizarlo siempre y cuando presenten la solicitud dentro del mes siguiente a la publicación de esta resolución.
