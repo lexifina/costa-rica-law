@@ -1,6 +1,8 @@
 Artículo 12.—Deberes de la Secretaría de Actas.
 12.1 Preparar el orden del día de las sesiones y someterlo a conocimiento del Presidente del Comité, de conformidad con la información que le presente la Dirección de Comercio Internacional de Hidrocarburos y cualquier otro asunto solicitado por los integrantes del comité.
 12.2 Asistir a las sesiones del comité y levantar las actas con la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado. Deberán contener las manifestaciones de los miembros, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. Dicha acta será firmada por los integrantes del comité.
+En los casos de excepción a que hace referencia el inciso 9.8 del artículo 9, capítulo IV, la Secretaría de Actas levantará el acta correspondiente, en que incluirá el documento aportado por la Dirección de Comercio Internacional de Hidrocarburos para respaldar la toma del acuerdo por el Comité.
+(Así adicionado el párrafo anterior en sesión N° 4102 del 15 de noviembre de 2006)
 12.3 Transcribir las actas en el libro de actas debidamente autorizado por la Auditoria Interna, y obtener las firmas de los miembros del comité presentes en la sesión respectiva.
 12.4 Custodiar los libros de actas del comité, mantener ordenada y debidamente archivada la información respectiva de cada asunto. Recibir y custodiar la información generada durante el proceso de contratación, y que sirven como respaldo para cada una de las actas del comité.
 12.5 Comunicar oportunamente a las instancias pertinentes, los acuerdos del comité.
