@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la clasificación de puestos
+Artículo 223.—Manual descriptivo de clases artísticas. El ordenamiento jerárquico de los puestos incluidos en el Régimen Artístico se regirá por el Manual descriptivo de clases artísticas, cuya aprobación y valoración será responsabilidad de la Dirección General de Servicio Civil, a propuesta del Ministerio de Cultura, Juventud y Deportes. Las clases de dicho manual comprenderán una descripción suficientemente representativa de la naturaleza del trabajo, las actividades o tareas de cada área artística y de las responsabilidades que se deben asumir, así como de otros factores y subfactores que contribuyan a determinar, en forma precisa, los niveles jerárquicos de estas clases dentro de la estructura ocupacional artística.

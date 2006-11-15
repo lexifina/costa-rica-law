@@ -1,0 +1,1 @@
+Artículo 218.—Asignación de puntaje a la carrera artística. A toda actividad que, conforme al Reglamento del presente título, pueda calificársele para efectos de carrera artística se le asignará un puntaje, cuya sumatoria será aplicable para efectos de promociones, traslados u otros movimientos que beneficien al trabajador.
