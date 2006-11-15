@@ -1,0 +1,1 @@
+Artículo 209.—Creación del Régimen Artístico. Créase el Régimen Artístico, el cual comprenderá a los servidores que presten servicios artísticos en las disciplinas de las artes audiovisuales, escénicas, literarias, musicales, plásticas y sus combinaciones, dentro del Poder Ejecutivo.
