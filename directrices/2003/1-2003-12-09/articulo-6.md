@@ -1,2 +1,0 @@
-Artículo 6º—Documentación y Registro de Autoevaluación. Cada Dependencia deberá documentar adecuadamente las actividades de autoevaluación, además deberán instaurar un sistema de registro de información que facilite acumular resultados de las autoevaluaciones y dar seguimiento a las medidas que se recomienden, de acuerdo con los planes anuales, para mejorar el sistema de control interno.
-(Así Reformado por el artículo 1º de la Directriz N° 002-2004 de fecha 26 de octubre del 2004).
