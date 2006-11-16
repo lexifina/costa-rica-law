@@ -1,1 +1,0 @@
-Artículo 5°—Promover en el personal del Ministerio, la cultura del control para el mejor uso de los recursos y la orientación del accionar institucional en el marco de la legalidad, la eficiencia, la ética y la rendición de cuentas en la gestión pública.

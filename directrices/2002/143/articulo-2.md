@@ -1,1 +1,0 @@
-Artículo 2°—Preparar las bases de conocimiento de las normas de control interno, para motivar el interés del personal del Ministerio de Hacienda, para su implementación, como medio de identificar las acciones concretas que debe aplicar para mejorar sus sistemas de control interno.

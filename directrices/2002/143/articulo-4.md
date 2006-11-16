@@ -1,1 +1,0 @@
-Artículo 4°—Fortalecer el ambiente de control institucional a fin de que sus sistemas de control se conviertan en herramientas efectivas para conducir a la institución hacia él logro de sus objetivos.
