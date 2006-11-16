@@ -1,0 +1,2 @@
+Artículo 3º—El incumplimiento de lo dispuesto en la presente regulación, sin perjuicio de otras sanciones establecidas en la Ley 8436, acarreará la imposibilidad de descargar y comercializar el producto en Costa Rica.
+La base para la aplicación del régimen sancionador serán los informes de los inspectores del INCOPESCA o de los Regentes Pesqueros. De igual manera podrá el INCOPESCA, frente al incumplimiento de la presente regulación, aplicar las medidas administrativas correctivas que correspondan.
