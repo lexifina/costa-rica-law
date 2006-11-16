@@ -1,0 +1,1 @@
+Artículo 14.—Impugnación contra actos del proceso electoral. Todas las impugnaciones deberán ser presentadas ante los Fiscales de Mesa, quienes inmediatamente pondrán en conocimiento de la Comisión Coordinadora, la que resolverá en definitiva sobre el asunto, sin que exista ulterior recurso en sede administrativa.
