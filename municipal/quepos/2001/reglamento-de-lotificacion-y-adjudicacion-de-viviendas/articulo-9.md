@@ -1,0 +1,1 @@
+9º—Corresponde al Alcalde Municipal ejecutar los acuerdos del Concejo Municipal en relación al plan de lotificación y crédito en su caso. También deberá notificar a los interesados sobre el resultado de su gestión.

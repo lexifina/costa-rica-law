@@ -1,0 +1,1 @@
+10.—La Municipalidad de Aguirre una vez que tenga los terrenos habilitados, definido el lote y aprobada la gestión del solicitante, autorizará el otorgamiento de la escritura ante le notario que designe la Municipalidad.

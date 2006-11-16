@@ -1,0 +1,1 @@
+3º—El beneficio deberá cumplir con el plano de pagó estipulado por la municipalidad, caso contrario se tendrá por vencido el plazo establecido exigiendo el pago inmediato de la totalidad de la obligación.
