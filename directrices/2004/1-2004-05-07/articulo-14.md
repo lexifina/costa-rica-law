@@ -1,1 +1,0 @@
-Artículo 14.—No obstante lo apuntado en los artículos anteriores, quedará válidamente constituida la Comisión sin cumplir con los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

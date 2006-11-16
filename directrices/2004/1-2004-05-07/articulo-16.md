@@ -1,1 +1,0 @@
-Artículo 16.—El Directorio de la Comisión será nombrado por un plazo de dos años, pudiendo, los miembros, ser reelectos en el cargo que desempeñan o ser nombrados en otro. La elección se llevará a cabo en la primera reunión que realice la Comisión en vigencia.

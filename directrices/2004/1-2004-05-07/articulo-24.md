@@ -1,1 +1,0 @@
-Transitorio I.—El Directorio electo, una vez emitida esta Directriz, desempeñará sus funciones por el plazo restante de los dos años por los cuales han sido nombrados los miembros de la Comisión Institucional de Control Interno.

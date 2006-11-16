@@ -1,1 +1,0 @@
-Artículo 5º—Al concluir los dos años por los cuales son nombrados los miembros de la Comisión, el Director de Dependencia deberá comunicar con al menos 30 días de anticipación, al Ministro, si su(s) representantes) nombrado(s) se mantendrá(n) en la misma. En caso contrario deberá comunicar el nombre del (los) nuevo(s) representante(s).
