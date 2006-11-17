@@ -1,0 +1,1 @@
+5º—La Unidad de Control y Calidad Ambiental del INCOPESCA funcionará como Unidad Ejecutora y Coordinadora de esta Comisión, la cual sesionará en la ciudad de Puntarenas una vez al mes en forma ordinaria y extraordinariamente cuando sea necesario.

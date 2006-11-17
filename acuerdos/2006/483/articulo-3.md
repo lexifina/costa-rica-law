@@ -1,0 +1,1 @@
+3º—El INCOPESCA por medio de su Presidente Ejecutivo y dentro de los 15 días calendario siguientes a la publicación del acuerdo respectivo, designará al representante de la Unidad de Control y Calidad Ambiental del INCOPESCA y solicitará a los diferentes entes mencionados en los incisos c), d) y e) la designación de sus representantes.
