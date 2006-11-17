@@ -1,0 +1,1 @@
+Artículo 5º—Jefatura superior de bomberos. Es el órgano colegiado responsable de la administración de los bomberos (as) formado por el Primero(a), Segundo(a), Tercero(a) y Cuarto(a) Jefes(as) de Bomberos y Bomberas Voluntarios.

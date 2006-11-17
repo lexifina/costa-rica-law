@@ -1,0 +1,1 @@
+Artículo 21.—Reclasificación de puestos. Cuando por necesidades del servicio se deba reclasificar un puesto, la persona que lo ocupa deberá cumplir con los nuevos requisitos. Si la persona no cumple con éstos, se reubicará dentro de la misma unidad o en otra unidad en la cual pueda prestar el servicio.

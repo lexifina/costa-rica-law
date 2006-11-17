@@ -1,0 +1,1 @@
+Artículo 2º—Departamento de Bomberos Voluntarios. Es un departamento de la Dirección de Bomberos, creado para coadyuvar en la prevención, mitigación, extinción de incendios, atención de urgencias provocadas por accidentes y en toda clase de calamidades que afecten a la población.

@@ -1,0 +1,1 @@
+Artículo 18.—Promoción. La promoción de los miembros del Departamento de Bomberos Voluntarios está definida en el escalafón que se describe en el artículo anterior y en el Manual de Funciones, correspondiéndole a la Unidad de Acreditación Administrativa la elaboración del procedimiento, actualización y aplicación.

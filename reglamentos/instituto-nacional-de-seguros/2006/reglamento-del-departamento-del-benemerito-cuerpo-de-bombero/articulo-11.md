@@ -1,0 +1,1 @@
+Artículo 11.—Requisitos de funcionamiento de las áreas. Todas las áreas citadas en el artículo anterior deben establecer sus actividades, procesos o transacciones específicas de funcionamiento y deben ser aprobadas por la Jefatura Superior de Bomberos.

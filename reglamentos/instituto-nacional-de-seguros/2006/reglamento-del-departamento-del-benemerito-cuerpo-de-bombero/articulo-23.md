@@ -1,0 +1,1 @@
+Artículo 23.—Convocatoria a los concursos. Para llenar los puestos nuevos y los vacantes de las diferentes categorías, la unidad de Acreditación Administrativa convocará a concurso cada vez que sea necesario.

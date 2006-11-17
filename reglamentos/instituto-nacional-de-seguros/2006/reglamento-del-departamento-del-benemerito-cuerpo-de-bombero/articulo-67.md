@@ -1,0 +1,5 @@
+Artículo 67.—De los miembros(as) honorarios(as). Quienes pueden ser considerados para tal honor son:
+a) Los Oficiales retirados(as) del Cuerpo de Bomberos cuya trayectoria sea calificada por la Jefatura Superior de Bomberos, por medio de solicitud escrita a la Unidad de Acreditación Administrativa. Esta a su vez debe preparar un informe detallado de las calidades personales que justifiquen el nombramiento.
+b) Aquellos Oficiales de otros cuerpos de bomberos y bomberas del exterior, cuya labor en beneficio de las instituciones de bomberos y bomberas, sea internacionalmente reconocida por medio de la Federación Mundial de Asociaciones de Bomberos y Bomberas Voluntarias u otras organizaciones de reconocido prestigio equivalentes a ésta.
+c) Personas físicas a quienes la institución reconozca señalados servicios prestados tanto a la comunidad, como a la organización de bomberos y bomberas del país.
+d) La declaratoria que confiere el título de Miembro Honorario(a) se consolida por medio de un acuerdo que toma y emita la Jefatura Superior de Bomberos.

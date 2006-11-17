@@ -1,0 +1,1 @@
+Artículo 6º—De su financiamiento. El Departamento de Bomberos Voluntarios, al igual que los demás departamentos adscritos a la Dirección de Bomberos dependen económicamente del Instituto Nacional de Seguros según lo establece la ley 8228.

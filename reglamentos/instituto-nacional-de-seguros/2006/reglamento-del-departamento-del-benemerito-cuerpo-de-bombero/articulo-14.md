@@ -1,0 +1,1 @@
+Artículo 14.—Las compañías estarán lideradas por un Jefe de Compañía, y estarán adscritas a zonas de trabajo debidamente establecidas, a fin de facilitar las labores de coordinación y control de actividades; éstas contarán con una jefatura, la cual será liderada por un jefe(a) de zona.

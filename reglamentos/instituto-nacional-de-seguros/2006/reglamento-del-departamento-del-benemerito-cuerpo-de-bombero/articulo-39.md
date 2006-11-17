@@ -1,0 +1,2 @@
+Artículo 39.—Procedimiento disciplinario. El procedimiento disciplinario será el establecido en la Ley General de la Administración Pública, ley 6227 y sus reformas. En forma supletoria se aplicará la normativa que resulte procedente.
+En el procedimiento disciplinario se velará en todo momento porque se cumplan los principios constitucionales de debido proceso, legalidad e igualdad, así como los principios de honor, abnegación y disciplina propios del Cuerpo de Bomberos.
