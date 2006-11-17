@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de competencia: La Municipalidad de Siquirres dará el trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos que custodie o administre o transfiere a entes públicos y privados.

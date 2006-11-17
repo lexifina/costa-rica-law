@@ -1,0 +1,1 @@
+Artículo 10.—Direccionamiento de las denuncias: El Concejo Municipal procurará que la Auditoría Interna, atienda la denuncia que le sea remitida, relacionada con sus competencias específicas, de conformidad con lo establecido en la Ley General de Control Interno y demás normativa vigente.

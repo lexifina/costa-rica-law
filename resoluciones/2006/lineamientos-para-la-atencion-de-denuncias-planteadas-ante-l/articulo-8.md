@@ -1,0 +1,2 @@
+Artículo 8º—Solicitud de aclaración: En caso de determinar la Auditoría Interna que existe imprecisión de los hechos, se otorgará a la parte *un plazo de no mayor de 10 días hábiles para que el denunciante complete su información o de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriores, como una nueva gestión.
+(* Corregido mediante Fe de Erratas, publicada en La Gaceta N° 243 del 19 de diciembre de 2006)

@@ -1,0 +1,1 @@
+Artículo 4º—El Concejo Municipal, la Alcaldía y la Auditoría Interna: Recibirán las denuncias, la Auditoría Interna, será la unidad encargada de valorar la admisibilidad de las denuncias presentadas ante este Municipio, conforme a lo establecido en estos Lineamientos.
