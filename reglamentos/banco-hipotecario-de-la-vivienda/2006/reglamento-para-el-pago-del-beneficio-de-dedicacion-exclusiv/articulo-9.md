@@ -1,0 +1,6 @@
+Artículo 9º—Sanciones: La violación o el incumplimiento de parte del funcionario de las obligaciones previstas en las presentes normas podrá implicar la aplicación de las siguientes medidas y sanciones las cuales no son excluyentes entre sí:
+a) La resolución del contrato y el reintegro de todas las sumas otorgadas por concepto de dedicación exclusiva junto con sus intereses legales.
+b) Amonestación, suspensión o despido por causa justificada de conformidad con lo establecido en el Estatuto de Personal de la entidad.
+c) La responsabilidad penal en el caso de que la falta sea constitutiva de delito.
+d) En todos los casos se aplicará el procedimiento administrativo conforme lo indica el Estatuto de Personal del BANHVI y se valorará la gravedad de la falta y la existencia de culpa leve, culpa grave o dolo.
+e) En los casos que señala el inciso a) anterior, el funcionario no podrá volver a firmar un nuevo contrato de dedicación exclusiva hasta que transcurra al menos un plazo de dos años desde la fecha de la resolución del contrato y siempre y cuando no se aplicare el mismo tiempo la sanción de despido. No obstante, cuando se exigiere el reintegro de los recursos, el citado plazo de dos años se contará desde la fecha del efectivo reintegro.
