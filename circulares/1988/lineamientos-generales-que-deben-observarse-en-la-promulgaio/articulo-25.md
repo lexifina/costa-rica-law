@@ -1,4 +1,0 @@
-Artículo 25- La unidad de auditoría interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la administración activa, que hayan sido formuladas en sus memorandos u oficios e informes de auditoría o estudios especiales de auditoría y en los de las firmas independientes de contadores públicos autorizados, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica, también deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la Contraloría General.
-Notas aclaratorias
-Las frases que se encuentran entre guiones, representan diferentes opciones, una de las cuales debe ser escogida dependiendo de que se trate de una entidad, órgano o municipalidad.
-Los textos que se encuentran entre paréntesis, tienen carácter eminentemente explicativo por lo que no deben incluirse en el Reglamento que se estime dictar.

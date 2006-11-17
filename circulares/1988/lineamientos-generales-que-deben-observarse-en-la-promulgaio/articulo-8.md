@@ -1,1 +1,0 @@
-Artículo 8º- El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa del o de la –nombre de la entidad u órgano- y tampoco ser miembro de juntas directivas, comisiones de trabajo o similares.
