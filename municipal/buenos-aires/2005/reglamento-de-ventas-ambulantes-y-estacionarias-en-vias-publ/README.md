@@ -14,3 +14,4 @@ Reglamento de ventas ambulantes y estacionarias en vías públicas de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-28 | la propia norma |
+| 2 | 2006-11-18 | Reglamento municipal 47 (2006-11-18) |
