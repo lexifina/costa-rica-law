@@ -1,0 +1,1 @@
+Artículo 32.—Derogatorias. Se derogan los requisitos para el registro de empresas clasificadoras de riesgo en la Comisión Nacional de Valores, aprobados por la Junta Directiva de la Comisión Nacional de Valores, en la sesión 42-91, artículo 3º, del 30 de agosto de 1991. Publicado en La Gaceta Nº 96 del 20 de mayo de 1992.

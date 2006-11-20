@@ -1,0 +1,1 @@
+Transitorio III.—En el plazo de un mes después de la aprobación de este Reglamento, las sociedades calificadoras deben revelar, mediante un comunicado de hechos relevantes, su concentración de ingresos según lo indicado en el artículo 26 de este Reglamento.

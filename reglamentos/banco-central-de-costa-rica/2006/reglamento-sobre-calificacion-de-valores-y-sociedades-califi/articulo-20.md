@@ -1,0 +1,1 @@
+Artículo 20.—Registro de la calificación. Las calificaciones de riesgo que sean obligatorias, sus modificaciones y los fundamentos respectivos, se registran en el Registro Nacional de Valores e Intermediarios y son de acceso público.
