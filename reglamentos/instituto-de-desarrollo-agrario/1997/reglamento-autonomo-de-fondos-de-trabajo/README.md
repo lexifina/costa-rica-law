@@ -14,3 +14,4 @@ Reglamento Autónomo de Fondos de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-19 | la propia norma |
+| 2 | 2006-11-20 | Reglamento 39 (2006-11-20) |
