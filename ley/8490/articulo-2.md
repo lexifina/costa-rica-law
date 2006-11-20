@@ -33,3 +33,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 49 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 33408 del 20 de octubre de 2006)
 (Reformado por los artículos 2° y 3° de la ley N° 8561 del 6 de noviembre de 2006) *(Mediante el artículo 4° del decreto ejecutivo N° 33449 del 10 de noviembre de 2006, se modifica el artículo 2 de la Ley N° 8561 del 6 de noviembre de 2006)
 (Modificado por los artículos 1° y 2 del decreto ejecutivo N° 33449 del 10 de noviembre de 2006)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33448 del 20 de noviembre de 2006)
