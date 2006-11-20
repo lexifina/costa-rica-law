@@ -1,0 +1,1 @@
+Artículo 26.—En la solicitud de transporte se deberá consignar: el nombre completo de los usuarios del servicio, la dirección, gestión o departamento petente, motivo del viaje, lugar, duración y firma del jefe del departamento correspondiente.

@@ -1,0 +1,1 @@
+Artículo 21.—Una vez utilizado el cupón o en su caso la tarjeta emitida por la Refinadora Costarricense de Petróleo, el conductor deberá anotar en las facturas que expida la estación de servicio, el kilometraje, su nombre, número de cédula y firma.

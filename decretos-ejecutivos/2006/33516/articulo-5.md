@@ -1,0 +1,1 @@
+Artículo 5º—Los vehículos de la Dirección General de Migración y Extranjería son estrictamente de uso oficial y no podrán ser empleados o conducidos en funciones o por personas no autorizadas, salvo que por aspectos de trabajo o emergencia se justifique, en los mismo términos contemplados por el artículo 234, inciso e) de la Ley de Tránsito por Vías Públicas Terrestres.

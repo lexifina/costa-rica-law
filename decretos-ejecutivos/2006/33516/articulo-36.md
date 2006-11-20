@@ -1,0 +1,1 @@
+Artículo 36.—De los registros de mantenimiento y reparaciones. El Encargado de Transportes deberá llevar un registro con las fechas de los afinamientos, cambios de aceite, grasas, cambio de filtros de aceite y aire, baterías y llantas así como de los eventuales daños, averías y sus reparaciones que permita conocer en todo momento el estado de los automotores.

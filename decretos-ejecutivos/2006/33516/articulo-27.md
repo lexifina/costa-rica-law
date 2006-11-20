@@ -1,0 +1,1 @@
+Artículo 27.—Al realizar la programación, las solicitudes de servicio deberán ser atendidas en estricto orden cronológico de presentación, salvo en casos de emergencia comprobados o prioridades establecidas por la Administración.

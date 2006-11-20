@@ -1,0 +1,1 @@
+Artículo 24.—Es deber del usuario portar siempre el carné de funcionario de la institución cuando viaje en los vehículos de la Dirección General. El conductor podrá solicitar al servidor, previo inicio del viaje el referido carné.

@@ -1,0 +1,1 @@
+Artículo 14.—Ninguna oficina gozará de asignación indefinida de vehículos, por lo que, en caso de urgencia o interés institucional, por razones de conveniencia u oportunidad debidamente justificados, el Director General podrá, en conjunto con el Jefe de Servicios de Apoyo, realizar las variaciones de destinatario que resulten necesarias.

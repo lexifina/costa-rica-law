@@ -1,0 +1,1 @@
+Artículo 6º—El uso de vehículos oficiales de la institución queda restringido al territorio nacional, salvo que exista autorización expresa del Director General para la salida temporal del país, previo cumplimiento de los requisitos y trámites exigidos por las instituciones competentes en la materia.

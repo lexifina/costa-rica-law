@@ -1,0 +1,1 @@
+Artículo 11.—Serán vehículos de uso administrativo especial, los que fuesen asignados a determinados departamentos, delegaciones u oficinas regionales, que por la naturaleza de sus funciones tienen la necesidad de utilizar un medio de transporte fuera de los horarios normales de trabajo o dentro de horarios de trabajo distintos a los que rigen en las oficinas centrales.

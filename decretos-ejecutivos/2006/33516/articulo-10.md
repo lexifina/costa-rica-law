@@ -1,0 +1,1 @@
+Artículo 10.—Se entenderá por vehículos de uso administrativo general, los vehículos destinados a prestar servicios regulares de transporte para el desarrollo normal de las funciones y actividades de los diferentes Direcciones, Gestiones, Departamentos asesores y demás Subprocesos de la Dirección General.
