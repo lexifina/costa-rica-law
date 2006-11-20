@@ -1,0 +1,1 @@
+Artículo 5º—En cuanto a horario, la hora máxima permitida para el funcionamiento de karaokes, será el mismo horario que se posea para la actividad principal, sea bar, restaurante etc. quedan fuera de este horario las actividades que se desarrollen para ocasiones especiales, a criterio del Alcalde, tales como fin de año, fiestas cívicas entre otros.

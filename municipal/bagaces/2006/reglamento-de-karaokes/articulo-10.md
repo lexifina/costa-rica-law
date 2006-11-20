@@ -1,0 +1,1 @@
+Artículo 10.—Las personas físicas o jurídicas que se dediquen a brindar servicio de karaoke, a los patentados de negocios en éste cantón deberán contar con una licencia Municipal de acuerdo con el artículo 79 del Código Municipal.
