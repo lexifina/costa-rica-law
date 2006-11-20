@@ -14,3 +14,4 @@ Modifica a la Escuela de Ganadería, el gasto presupuestario máximo para el añ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-24 | la propia norma |
+| 2 | 2006-11-20 | Decreto Ejecutivo 33467 (2006-11-20) |

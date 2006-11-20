@@ -10,4 +10,5 @@ Considerando:
 5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado a la Escuela de Ganadería para el año 2006.
 Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase a la Escuela de Ganadería el gasto presupuestario máximo fijado para el año 2006, establecido según lo dispuesto en el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que éste no podrá exceder la suma de ¢695.4 millones, en ese período.
+Artículo 1º—Modifícase a la Escuela de Ganadería el gasto presupuestario máximo fijado para el año 2006, establecido según lo dispuesto en el artículo 1° del Decreto Ejecutivo Nº 32270-H, publicado en La Gaceta Nº 54 de 17 de marzo de 2005 y sus reformas, de manera que éste no podrá exceder la suma de ¢733.400.000,00 (setecientos treinta y tres millones cuatrocientos mil colones exactos), en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33467 del 20 de noviembre del 2006).
