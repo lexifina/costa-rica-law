@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-29 | la propia norma |
+| 2 | 2006-11-21 | Reglamento municipal 69 (2006-11-21) |
