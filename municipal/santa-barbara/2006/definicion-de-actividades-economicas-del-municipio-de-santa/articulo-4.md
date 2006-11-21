@@ -1,0 +1,76 @@
+4º—Actividad comercial.
+4.1 Empresas sofisticadas: Comprende la compra y venta de bienes, mercaderías, propiedades, títulos valores, monedas y otros. Además los actos de valoración de los bienes económicos, según la oferta y la demanda, tal como:
+- Casa de representación
+- Bancos, financieras
+- Cooperativas de ahorro y crédito y mutuales
+- Puestos de bolsa
+- Compañías fiduciarias, y de inversión
+- Seguros
+- Compañías y agencias de seguros
+- Cajas o fondos de pensión
+- Compañías de arrendamiento de bienes inmuebles
+- Urbanizadoras
+- Comisionistas
+- Agencias
+- Corredores de bolsa
+- Instituciones bancarias y de seguros
+- Instituciones de crédito y en general, todo lo que involucre transacciones de mercado de cualquier tipo.
+4.2 Diverso: Comprende la venta y distribución de bienes y mercaderías tales como:
+- Actividades gastronómicas
+- Producción agropecuaria
+- Granjas avícolas, porcinas, caballerizas y lecherías
+- Explotación de bosques, viveros de árboles forestales
+- Plantación, repoblación, y conservación de bosques
+- Recolección de productos no cultivados
+- Extracción de madera, corta, acarreo y transporte de madera hasta el punto de entrega
+- Pesca de altura y costera, captura de peces y recolección de plantas acuáticas en aguas interiores, criaderos o viveros de peces y ranas, acuarios
+- Venta de automóviles y camiones
+- Discotecas
+- Bares y Restaurantes
+- Tabernas
+- Fincas de recreo
+- Viveros
+- Lecherías
+4.3 Apoyo: Se clasifican como actividad comercial de apoyo, aquellas actividades de venta y distribución de productos fundamentales para el desarrollo del quehacer normal de los individuos de una comunidad, tales como:
+- Tiendas
+- Ferreterías y eléctricos
+- Depósitos de materiales
+- Librerías
+- Comercio al por mayor de todo tipo de productos, excepto el comercio de sustancias químicas y productos tóxicos y peligrosos
+- Las empresas de comercio por mayor que reempaquen o reenvasen adicionalmente cualquier tipo de producto
+- Galerías de arte
+- Joyerías y relojerías
+- Jugueterías
+- Licoreras
+- Tiendas de artesanía y antigüedades
+- Tiendas de artículos de cuero
+- Tiendas de artículos deportivos
+- Tiendas de artículos electrodomésticos, aparatos eléctricos y telefónicos
+- Tiendas de cosméticos y perfumes
+- Tiendas de géneros textiles, prendas de vestir y calzado
+- Tiendas de mascotas
+- Tiendas discográficas
+- Tiendas o bazares de pasamanería y bisutería
+- Venta de colchones
+- Venta de maquinaria y material para la industria, el comercio y la agricultura.
+4.4 Básico (1): Comprende la venta y distribución de los productos básicos que suplen las necesidades fundamentales de los individuos.
+Esta clasificación se refiere a establecimientos comerciales tales como:
+- Supermercados
+- Farmacias
+- Carnicerías al por mayor
+- Verdulerías
+- Materias primas agropecuarias
+- Artículos deportivos
+- Estaciones de gasolina
+- Floristería
+- Genero textil, prendas de vestir, y calzado
+- Heladerías
+4.5 Básico (2). Comprende la venta y distribución de los productos básicos que suplen las necesidades fundamentales de los individuos. Esta clasificación se refiere a establecimientos comerciales con niveles de ventas muy inferiores a los clasificados como básicos (1) tales como:
+- Pulperías
+- Abastecedores
+- Verdulerías
+- Sodas
+- Carnicerías
+- Bazares
+- Venta de pollos y huevos
+- Ferias del agricultor
