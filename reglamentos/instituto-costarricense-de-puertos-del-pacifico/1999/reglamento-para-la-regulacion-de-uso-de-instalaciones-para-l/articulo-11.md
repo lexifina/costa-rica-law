@@ -1,1 +1,0 @@
-Artículo 11.—En caso de darse la revocatoria del permiso, el administrado no podrá tramitarlo nuevamente por el resto de la temporada. En caso de personas jurídicas no se permitirá que el sujeto sancionado con la revocación acuda al puesto de la organización o asociación a que pertenezca durante el resto de la temporada.

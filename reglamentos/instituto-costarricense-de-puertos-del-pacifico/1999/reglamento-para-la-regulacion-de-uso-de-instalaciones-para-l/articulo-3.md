@@ -1,1 +1,0 @@
-Artículo 3°—Los permisos que se otorguen tendrán vigencia anual y regirá a partir del inicio de la temporada de cruceros turísticos en Puerto Caldera y el Muelle de Cruceros de Puntarenas, conforme a la programación elaborada y entregada por un acto emitido por la Gerencia General, que a su vez deberá ser comunicado al beneficiario para los efectos correspondientes.

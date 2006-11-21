@@ -1,2 +1,0 @@
-Artículo 5°—De acuerdo con los objetivos del presente Reglamento, los permisos se otorgarán preferentemente a personas físicas, artesanos o vendedores de artesanía de la provincia de Puntarenas y a personas jurídicas que sean organizaciones sociales, fundaciones, asociaciones o cooperativas, que agrupen a personas dedicadas a la elaboración de artesanías, que agrupen a residentes de la provincia de Puntarenas.
-En ambos casos, se dará preferencia a las solicitudes presentadas por mujeres u organizaciones que agrupen a mujeres dedicadas a la manufactura de artesanías.
