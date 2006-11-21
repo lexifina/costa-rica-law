@@ -1,0 +1,2 @@
+Transitorio único.—A partir de la publicación de esta Ley, la CCSS deberá realizar una revisión de los reglamentos vigentes del Régimen de Invalidez, Vejez y Muerte y del Régimen no Contributivo de Pensiones, a fin de determinar la viabilidad de adecuar, a las condiciones particulares de las personas afectadas por el DBCP, los requisitos establecidos en dicha normativa para obtener una pensión.
+(Así adicionado por el artículo 2° de la Ley N° 8554 del 19 de octubre de 2006)
