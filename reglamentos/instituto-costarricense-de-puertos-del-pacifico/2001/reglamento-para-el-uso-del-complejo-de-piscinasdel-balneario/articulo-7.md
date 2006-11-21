@@ -1,1 +1,0 @@
-Articulo 7° —Del horario de servicio del Complejo de Piscinas. El complejo de piscinas estará al servicio del cliente todos los días del año exceptuando los días en que la Administración del Balneario determine otra alternativa la cual se dará a conocer con anterioridad.

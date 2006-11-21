@@ -1,1 +1,0 @@
-Articulo 8°—De la ducha previa para el uso de las piscinas. Toda persona que haga uso del servicio del complejo de piscinas, deberá previamente someterse a una ducha, con el fin de cumplir con las disposiciones sanitarias de las lugares públicos.

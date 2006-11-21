@@ -1,1 +1,0 @@
-Articulo 4° Del mantenimiento del agua en las piscinas. Cuando las piscinas estén en uso, el Reglamento de Piscinas Públicas autoriza para la desinfección de las mismas el hipoclorito de calcio, hipoclorito de sodio, tricloro cianurato, cianurato de sodio, tricloro cianurazo, bromitos. El uso del cloro gas no está autorizado por el Reglamento citado anteriormente.

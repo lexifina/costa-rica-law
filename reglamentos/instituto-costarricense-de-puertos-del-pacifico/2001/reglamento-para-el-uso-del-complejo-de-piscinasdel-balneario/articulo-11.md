@@ -1,1 +1,0 @@
-Articulo 11.- De la potestad del vigilante. El servicio de vigilancia del balneario queda debidamente autorizado para solicitarle al cliente en el momento que éste transgreda las presentes disposiciones que abandone en forma inmediata las instalaciones.
