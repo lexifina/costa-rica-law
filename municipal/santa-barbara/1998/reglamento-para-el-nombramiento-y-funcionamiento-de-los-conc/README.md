@@ -14,3 +14,4 @@ Reglamento para el Nombramiento y Funcionamiento de los Concejos de Distrito del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-08 | la propia norma |
+| 2 | 2006-11-21 | Reglamento municipal 30 (2006-11-21) |

@@ -1,1 +1,1 @@
-Artículo 6º—La escogencia de los miembros del Concejo de Distrito la hará el Concejo Municipal de entre las temas que al efecto presente el síndico del distrito de que se trate, previa consulta popular a los pobladores del distrito mediante cualquiera de los mecanismos existentes de audiencia pública.
+Artículo 6º—(Este artículo fue Derogado en sesión N° 30 del 21 de noviembre de 2006)

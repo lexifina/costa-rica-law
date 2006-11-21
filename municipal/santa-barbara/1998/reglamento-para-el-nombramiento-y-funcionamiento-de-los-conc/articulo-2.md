@@ -1,1 +1,1 @@
-Artículo 2º—Los miembros de los Concejos de Distrito serán nombrados dentro de los tres meses siguientes a la instalación de los Concejo Municipales, por un período de dos años, podrán ser reelectos y desempeñarán sus cargos gratuitamente.
+Artículo 2º—(Este artículo fue Derogado en sesión N° 30 del 21 de noviembre de 2006)
