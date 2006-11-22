@@ -14,3 +14,4 @@ Publica Resolución N° 156-2006 (COMIECO-EX), Reglamento Centroamericano sobre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-18 | la propia norma |
+| 2 | 2006-11-22 | Decreto Ejecutivo 33461 (2006-11-22) |
