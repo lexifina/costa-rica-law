@@ -1,1 +1,0 @@
-Artículo 8º—Normas supletorias: En lo que sea procedente se aplicarán en forma supletoria al presente programa, las demás disposiciones legales y reglamentarias del Sistema Financiero Nacional para la Vivienda y los principios, prácticas, técnicas bancarias y financieras aplicables a los intermediarios financieros en el otorgamiento de créditos hipotecarios.
