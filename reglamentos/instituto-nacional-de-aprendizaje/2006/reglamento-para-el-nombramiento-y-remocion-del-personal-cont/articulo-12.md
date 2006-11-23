@@ -1,0 +1,1 @@
+Artículo 12.—Por la naturaleza misma de las plazas por Servicios Especiales no procede la figura conocida como reasignación del puesto. La Unidad de Recursos Humanos es responsable de verificar si existe alguna variación en lo concerniente a la no reasignación para las plazas por Servicios Especiales.

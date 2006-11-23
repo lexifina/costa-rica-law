@@ -1,0 +1,1 @@
+Artículo 13.—El ocupante de una plaza por Servicios Especiales podrá solicitar al Proceso de Dotación de la Unidad de Recursos Humanos, un cambio de escalafón dentro de una misma clase, cuando corresponda, utilizando la figura de la recalificación de puestos, en concordancia con las disposiciones de la Secretaría Técnica de la Autoridad Presupuestaria.

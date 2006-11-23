@@ -1,0 +1,1 @@
+Artículo 2º—La relación de empleo entre el INA y los servidores nombrados en plazas otorgadas por la Secretaría Técnica de la Autoridad Presupuestaria en calidad de Servicios Especiales será de naturaleza pública.

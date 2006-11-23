@@ -1,0 +1,1 @@
+Artículo 11.—Para la clasificación de puestos por Servicios Especiales se procederá conforme a lo estipulado en los Decretos Ejecutivos vigentes que norman las directrices y los procedimientos que regulan la política salarial, el empleo y la clasificación de puestos para las entidades públicas cubiertas por el ámbito de la Secretaría Técnica de la Autoridad Presupuestaria.

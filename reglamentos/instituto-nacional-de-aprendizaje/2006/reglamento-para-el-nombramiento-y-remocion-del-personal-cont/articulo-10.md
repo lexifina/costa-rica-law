@@ -1,0 +1,1 @@
+Artículo 10.—La Unidad de Recursos Humanos establecerá las normas y mecanismos correspondientes para mantener actualizada la clasificación de los puestos por Servicios Especiales del INA, con la autorización previa de las Autoridades Superiores y de la Secretaría Técnica de la Autoridad Presupuestaria.

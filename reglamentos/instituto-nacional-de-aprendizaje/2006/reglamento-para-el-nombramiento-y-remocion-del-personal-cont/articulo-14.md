@@ -1,0 +1,1 @@
+Artículo 14.—El Proceso de Dotación realizará un estudio de recalificación de un puesto por Servicios Especiales en apego a lo estipulado en el procedimiento establecido y aplicado por la Unidad de Recursos Humanos de la Institución.

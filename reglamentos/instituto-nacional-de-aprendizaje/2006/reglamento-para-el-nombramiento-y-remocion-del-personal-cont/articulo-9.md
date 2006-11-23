@@ -1,0 +1,1 @@
+Artículo 9º—Los puestos por Servicios Especiales les corresponderá clasificarse de acuerdo al Manual Institucional del INA, manteniendo los mismos requisitos académicos y de experiencia estipulados en este.
