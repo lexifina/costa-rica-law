@@ -1,0 +1,1 @@
+Artículo 11.—Otros servicios. La Junta Administrativa del Fondo propondrá a la Junta Directiva del Colegio el otorgamiento de servicios adicionales al estipulado en el artículo anterior, para lo cual realizará los estudios actuariales o de cualquier otra índole, que se consideren pertinentes.

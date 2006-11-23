@@ -1,0 +1,2 @@
+3. En un plazo no mayor de dos meses a partir de la entrada en vigencia del presente reglamento, la Junta Administrativa del Fondo presentará a la Junta Directiva del Colegio para su aprobación, el procedimiento administrativo para el reconocimiento del subsidio.
+El presente Reglamento del Fondo de Mutualidad y Subsidios fue aprobado en la Asamblea General Extraordinaria Nº 067-2006 celebrada el día viernes 23 de junio del 2006.

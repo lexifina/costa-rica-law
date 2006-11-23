@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los beneficios
+Artículo 12.—De los beneficiarios. Todo colegiado perteneciente al fondo deberá designar por escrito, la persona o personas beneficiario (s), para que en caso de fallecimiento reciban el subsidio correspondiente. Esta designación será del conocimiento de la Junta Administrativa del Fondo. Si a la muerte de un colegiado no hubiere beneficiario designado, los interesados deberán instaurar el proceso sucesorio correspondiente ante la jurisdicción de los tribunales civiles, siendo ante esa jurisdicción que la Junta Administrativa del Fondo procederá a hacer el depósito de los beneficios a que se tenga derecho, una vez así ordenado por la autoridad judicial.

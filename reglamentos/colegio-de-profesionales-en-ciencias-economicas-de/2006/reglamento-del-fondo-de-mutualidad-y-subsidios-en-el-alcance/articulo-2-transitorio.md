@@ -1,0 +1,1 @@
+2. A partir de la entrada en vigencia del presente Reglamento del Fondo de Mutualidad y Subsidios, se otorgará un subsidio de ¢500.000,00 (quinientos mil colones), por el fallecimiento de un colegiado.

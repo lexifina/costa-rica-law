@@ -1,0 +1,1 @@
+Artículo 10.—Entrega de los subsidios. Al fallecer un miembro del Colegio, se entregará a los beneficiarios que éste haya definido con anticipación, el monto del subsidio correspondiente que al efecto haya aprobado la Asamblea General.

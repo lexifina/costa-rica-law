@@ -1,0 +1,1 @@
+Artículo 9º—Operatividad. La administración del Colegio deberá establecer los mecanismos de control y los registros auxiliares que se estimen convenientes, con el fin garantizar un eficaz y eficiente manejo de los recursos del Fondo.

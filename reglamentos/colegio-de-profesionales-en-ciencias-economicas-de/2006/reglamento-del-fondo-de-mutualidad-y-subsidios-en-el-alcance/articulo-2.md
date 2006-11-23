@@ -1,0 +1,1 @@
+Artículo 2º—Miembros. Pertenecerán al Fondo de Mutualidad y Subsidios, con sus derechos, obligaciones y beneficios que se otorgarán en este reglamento, todos los miembros inscritos del Colegio de Profesionales en Ciencias Económicas de Costa Rica, que se encuentren al día en el pago de sus obligaciones.
