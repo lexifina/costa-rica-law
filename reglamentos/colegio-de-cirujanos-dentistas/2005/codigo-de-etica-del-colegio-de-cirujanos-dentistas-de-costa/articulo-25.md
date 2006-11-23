@@ -1,0 +1,2 @@
+Artículo XXV.—Ningún cirujano dentista debe confiar trabajos de prótesis a laboratorios cuando éstos sean regentados por técnicos de laboratorios dentales que a su vez ejerzan clandestinamente actividades propias del Cirujano Dentista.
+Al conocer este hecho el cirujano dentista tendrá la obligación de denunciarlo ante la Fiscalía de la Junta Directiva del Colegio de Cirujanos Dentistas, con el fin de que éste disponga lo pertinente.

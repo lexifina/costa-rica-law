@@ -1,0 +1,1 @@
+Artículo XVIII.—Cuando el cirujano dentista necesite consultar para formular un diagnóstico o ejecutar un tratamiento, recomendará a su paciente los servicios profesionales de un especialista o de un colega de mayor experiencia o bien se asociará con este para ejecutarlo.

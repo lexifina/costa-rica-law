@@ -1,0 +1,2 @@
+Artículo III.—El cirujano dentista en el ejercicio de su profesión debe aplicar todos los conocimientos técnico-científicos que haya adquirido para ello, y se abstendrá de toda conducta perjudicial hacia la vida o la salud de sus pacientes. La protección de la salud de los pacientes estará por encima de cualquier otro interés.
+El cirujano dentista deberá procurar una permanente actualización de sus conocimientos técnicos y científicos mientras se mantenga activo profesionalmente.

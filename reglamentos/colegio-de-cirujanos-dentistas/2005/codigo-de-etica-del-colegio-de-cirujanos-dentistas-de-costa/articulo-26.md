@@ -1,0 +1,1 @@
+Artículo XXVI.—Incurrirá en falta grave a la ética profesional el cirujano dentista que facilite la clínica e instalaciones para el ejercicio ilegal de la profesión o el que encubra estas actividades.

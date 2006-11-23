@@ -1,0 +1,1 @@
+Artículo XIII.—Conforme a las disposiciones de la Ley Nº 7476 de 3 de febrero de 1995, denominada LEY CONTRA EL HOSTIGAMIENTO EN EL EMPLEO Y LA DOCENCIA, y en especial su artículo 11 que obliga a todos los colegios profesionales, se tendrá como violación al presente código cualquier actuación de un miembro de este Colegio, que violente dicha Ley.

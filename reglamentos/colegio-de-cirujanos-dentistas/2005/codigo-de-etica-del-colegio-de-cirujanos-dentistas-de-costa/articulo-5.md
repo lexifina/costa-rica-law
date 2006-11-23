@@ -1,0 +1,1 @@
+Artículo V.—Los servicios odontológicos se fundamentan en la libre elección del cirujano dentista por parte del paciente. En el trabajo institucional se respetará, en lo posible, este derecho. El cirujano dentista respetará igualmente la libertad del paciente para prescindir de sus servicios.

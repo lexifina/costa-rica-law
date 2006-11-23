@@ -1,0 +1,1 @@
+Artículo XX.—El cirujano dentista que acepte un paciente referido, deberá limitar su intervención estrictamente a lo indicado. El paciente deberá ser restituido al colega una vez concluido el tratamiento para el cual fue referido respetando la libertad del paciente en la elección del profesional.

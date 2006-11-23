@@ -1,0 +1,1 @@
+Artículo XXIX.—Es obligación de todo cirujano dentista pagar el Timbre Odontológico correspondiente, en las compras de materiales dentales, equipo, instrumental para el ejercicio de la Odontología. La violación a este artículo será sancionada de acuerdo a lo que establece la Ley del Timbre Odontológico y como falta al presente Código.

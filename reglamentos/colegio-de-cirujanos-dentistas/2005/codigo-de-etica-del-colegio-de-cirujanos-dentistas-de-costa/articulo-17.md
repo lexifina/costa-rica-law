@@ -1,0 +1,3 @@
+Artículo XVII.—El cirujano dentista no podrá aceptar cargo alguno en instituciones públicas o privadas, cuando se trate de sustituir a un colega, que ha sido destituido o suspendido sin causa justa, debiendo siempre pedir el consentimiento escrito de este colega.
+En caso que el cirujano dentista se niegue a otorgar ese consentimiento, el cirujano dentista interesado deberá plantear de previo la situación a la Junta Directiva, para que ésta decida.
+Cuando no exista un pronunciamiento en firme de la jurisdicción de trabajo, para efectos de la interpretación y aplicación de este artículo, la valoración sobre la justa causa de la destitución deberá ser realizada por las instancias disciplinarias del Colegio de Cirujanos Dentistas de Costa Rica.

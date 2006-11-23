@@ -1,0 +1,1 @@
+Artículo XXXI.—La docencia es parte integral del ejercicio de la profesión odontológica, de manera tal que sólo podrán ejercerla aquellos cirujanos dentistas que se encuentren al día con sus obligaciones gremiales.

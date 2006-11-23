@@ -1,0 +1,1 @@
+Artículo XXXVII.—El cirujano dentista no deberá figurar como autor de artículos en los que su contribución fue pobre o nula, aún cuando el creador de la investigación sea uno de sus colaboradores, ni tampoco presentarlo públicamente atribuyéndose su autoría.

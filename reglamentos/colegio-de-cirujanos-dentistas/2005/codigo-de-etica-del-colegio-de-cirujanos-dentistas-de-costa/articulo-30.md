@@ -1,0 +1,3 @@
+Artículo XXX.—Toda clínica dental deberá contar con un regente responsable de hacer cumplir las leyes y reglamentos del Colegio de Cirujanos Dentistas de Costa Rica, y quien deberá responder ante las instancias correspondientes del Colegio por las violaciones a este Código de Ética.
+Es obligación del regente odontológico estar al día con sus obligaciones económicas y profesionales ante el Colegio de Cirujanos Dentistas de Costa Rica y deberá estar inscrito en el registro que para tal fin tendrá la institución.
+Ningún odontólogo podrá laborar en clínicas donde no exista un regente odontológico inscrito en el Colegio.

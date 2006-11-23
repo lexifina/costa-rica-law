@@ -1,0 +1,1 @@
+Artículo VII.—Siendo la salud un bien de interés público tutelado por el Estado, el cirujano dentista debe brindar su colaboración en toda actividad o iniciativa cuyo fin primordial sea mejorar la salud bucodental de la población, sin que ello le permita incurrir en violaciones a lo previsto en este Código de Ética y cualquier norma que rige el ejercicio profesional.

@@ -1,0 +1,1 @@
+Artículo XXXIX.—Toda investigación “in vivo”, en animales o humanos, debe ser aprobada por la respectiva Comisión de Bioética del Colegio de Cirujanos Dentistas de Costa Rica o bien por las autoridades competentes.
