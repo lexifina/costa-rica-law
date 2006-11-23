@@ -1,3 +1,3 @@
-SECCIÓN III
-Programa para grupos organizados
-Artículo 28.—Beneficiarios: Para los casos correspondientes al presente programa, podrán ser sujetos de crédito subsidiado los grupos organizados debidamente inscritos, previstos en el párrafo final del artículo 59 de la Ley. El financiamiento y los subsidios se podrán otorgar en las condiciones previstas por las presentes normas, tanto en el corto como en el largo plazo.
+Artículo 28.—Alcances del financiamiento: El BANHVI, mediante acuerdo razonado y motivado de su Junta Directiva, procederá a conocer, para su aprobación o rechazo, las solicitudes de financiamiento de los proyectos regulados por las presentes normas, y establecerá los alcances de los subsidios de corto plazo y de los bonos familiares individuales que se podrán otorgar.
+Para garantizar la efectiva consecución del fin y por la naturaleza del programa, se podrán establecer criterios diferentes e incluso beneficios superiores a los que se aplican en los programas ordinarios del Sistema, todo con sujeción estricta a lo dispuesto en este Reglamento.
+(Así reformado mediante sesión N° 78-2006 del 23 de noviembre del 2006).

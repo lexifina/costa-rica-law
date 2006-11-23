@@ -1,2 +1,3 @@
-Artículo 38.—Proyectos elegibles: Para recibir los beneficios de los programas regulados por el presente reglamento, el o los proyectos correspondientes deberán ser presentados al BANHVI por la Entidad Autorizada, cumpliendo con los requisitos usuales y debidamente documentado. En todo caso, sólo serán elegibles aquellos proyectos que contribuyan a cumplir con los objetivos previstos por la Ley.
-(Así reformado por acuerdo tomado en sesión N° 76 de 18 de noviembre del 2002)
+Artículo 38.—Evaluación anual: El BANHVI evaluará anualmente el destino de los fondos e implementará los mecanismos de control y fiscalización, con un sistema integral de evaluación de riesgos, suficientes y necesarios para garantizar que los recursos sean empleados de acuerdo con los principios de equidad, justicia y transparencia, cumpliéndose además con la normativa de calidad vigente.
+Asimismo, el BANHVI evaluará el impacto social que produzca la construcción de las viviendas con los fondos a que se refieren las presentes normas, para los efectos legales previstos en el artículo 59 de la Ley del Sistema.
+(Así reformado mediante sesión N° 78-2006 del 23 de noviembre del 2006).

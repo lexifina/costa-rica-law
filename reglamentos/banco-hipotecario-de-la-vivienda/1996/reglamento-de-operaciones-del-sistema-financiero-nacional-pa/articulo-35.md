@@ -1,4 +1,3 @@
-SECCIÓN V
-Trámite y condiciones operativas
-Artículo 35.—Condiciones y mecanismos del programa: La Junta Directiva acordará en cada caso. a solicitud de la Entidad Autorizada y previo informe de la Administración del BANHVI, la forma en que se otorgarán los créditos subsidiados y los subsidios directos para los anteriores programas, y el mecanismo que al efecto se aplicará.
-Los recursos se otorgarán por medio de créditos subsidiados, o mediante subsidios directos, los cuales podrán tener características diferentes a las de los programas normalmente en vigencia en el Sistema.
+Artículo 35.—Beneficiarios: Podrá ser beneficiario de este programa todo grupo familiar que califique para recibir el Bono Familiar de Vivienda, cuyos ingresos sean iguales o inferiores a un salario mínimo y medio, siempre y cuando la solución habitacional, parcial o total, tramitada al amparo de las normas establecidas en el presente capítulo no supere en su etapa final el precio máximo establecido para ser declarada como de interés social.
+En los casos que se trate de segundos bonos, los solicitantes, deberán presentar un Informe del Instituto Nacional de Seguros, el cual deberá indicar si fue o no indemnizado sobre la vivienda afectada. De haberlo sido, podrán recibir el subsidio únicamente por los montos que resultare necesario sumar al producto de ese pago, para solventar la emergencia.
+(Así reformado mediante sesión N° 78-2006 del 23 de noviembre del 2006).

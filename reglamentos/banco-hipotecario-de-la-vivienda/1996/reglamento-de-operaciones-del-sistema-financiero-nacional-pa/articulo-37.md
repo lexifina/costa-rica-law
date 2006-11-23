@@ -1,1 +1,6 @@
-Artículo 37.—Aporte de los beneficiarios: Salvo para los casos contemplados en los incisos a) y c) del artículo 22 del presente reglamento, y otros previamente aprobados por el BANHVI. Los beneficiarios deberán hacer un aporte del costo total del proyecto. Dicho aporte podrá hacerse en dinero efectivo por medio de ahorro, o mediante el lote. o podrá hacerse también mediante materiales o mano de obra. En los casos de aporte de dinero, la Entidad ejecutora del proyecto deberá convenir con el beneficiario un aporte mensual dentro de las posibilidades del ingreso familiar, el cual deberá pagar hasta alcanzar el monto fijado del aporte.
+SECCIÓN V
+Trámites y condiciones operativas comunes
+para todos los programas
+Artículo 37.—Condiciones y mecanismos del programa: La Junta Directiva acordará en cada caso, a solicitud de la entidad autorizada y previo informe de la Administración del BANHVI, la forma en que se otorgarán los subsidios directos para los anteriores programas y el mecanismo que al efecto se aplicará.
+Los recursos se otorgarán por medio de créditos subsidiados, o mediante subsidios directos, los cuales podrán tener características diferentes a las de los programas normalmente en vigencia en el Sistema.
+(Así reformado mediante sesión N° 78-2006 del 23 de noviembre del 2006).

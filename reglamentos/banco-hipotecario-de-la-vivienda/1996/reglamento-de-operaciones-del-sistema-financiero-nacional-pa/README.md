@@ -36,3 +36,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 21 | 2006-04-06 | Reglamento 27 (2006-04-06) |
 | 22 | 2006-07-17 | Reglamento 47 (2006-07-17) |
 | 23 | 2006-07-27 | Acuerdo 1 (2006-07-27) |
+| 24 | 2006-11-23 | Reglamento 78 (2006-11-23) |

@@ -1,1 +1,2 @@
-Artículo 43.—Personas con impedimentos físicos: Los casos de las personas con impedimentos físicos y que reunieren los requisitos previstos en el párrafo primero del artículo 59 de la Ley, se tramitarán en forma individual de conformidad con el procedimiento establecido para la tramitación usual del Bono.
+Artículo 43.—Sanciones: La violación de las presentes disposiciones implica la imposición de las sanciones previstas en las leyes y reglamentos que regulan la materia, sanciones que pueden ser tanto administrativas, civiles y penales”.
+(Así reformado mediante sesión N° 78-2006 del 23 de noviembre del 2006).
