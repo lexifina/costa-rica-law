@@ -1,0 +1,1 @@
+Artículo 5º―Se derogan los artículos 21, 22, 24 y 25; y en los artículos 26, 28, 29 y 30 elimínese toda referencia a las palabras "margarina" y "óleo-margarina", todos del Decreto Ejecutivo Nº 4 del 5 de enero de 1951, Reglamento sobre Producción y Venta de Mantequillas, Margarinas y Grasa para Pastelería, publicado en La Gaceta Nº 10 del 13 de enero de 1962.
