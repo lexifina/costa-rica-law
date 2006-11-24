@@ -1,0 +1,2 @@
+Artículo 16.- Obligación de remitir informes a la Asamblea Legislativa
+Para cada etapa y para cada año que dure el proceso de construcción de las obras financiadas por el presente empréstito, la unidad ejecutora, o en su defecto la Junta Directiva del ICAA enviará a la Comisión de Control del Ingreso y Gasto Público de la Asamblea Legislativa copia de los informes contables, financieros y de programación de obras.

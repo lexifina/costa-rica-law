@@ -1,0 +1,2 @@
+Artículo 6.- Procedimientos de adquisición de bienes y servicios
+Los procedimientos de adquisición de bienes y servicios indicados en el Artículo 1, incluso los servicios de consultoría, fijados por el JBIC en el Contrato de Préstamo Externo Nº CR-P4, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional, en lo que atañe a las adquisiciones realizadas al amparo de dicho Contrato; supletoriamente, se aplicará la normativa nacional que regula la contratación administrativa.

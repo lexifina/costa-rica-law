@@ -1,0 +1,2 @@
+Artículo 11.- Inclusión de compras de bienes y servicios en el presupuesto anual del ICAA
+Cuando se utilice la modalidad de pago denominada “carta de crédito”, para la compra de bienes y servicios con recursos del Contrato de Préstamo Externo Nº CR-P4, tanto la adquisición como los pagos no deberán ser considerados dentro del presupuesto anual del Instituto. Sin embargo, una vez concretada la compra, solo el activo y el pasivo adquiridos deberán registrarse contablemente.
