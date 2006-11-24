@@ -14,3 +14,4 @@ Reglamento y lámina de Uso del Suelo (modificación al Plan Regulador de Playa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-14 | la propia norma |
+| 2 | 2006-11-24 | Reglamento municipal 0 (2006-11-24) |

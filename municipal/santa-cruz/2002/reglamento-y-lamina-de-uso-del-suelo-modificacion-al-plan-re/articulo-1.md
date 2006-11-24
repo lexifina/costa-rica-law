@@ -1,3 +1,4 @@
+(Nota: La Municipalidad de Santa Cruz publicó en La Gaceta N° 2 del 3 de enero del 2007 la ampliación del Plan Regulador de Playa Junquillal, el cual puede consultarse en el sistema)
 MUNICIPALIDAD DE SANTA CRUZ
 CAMBIO DE USOS DEL SUELO
 La Municipalidad de Santa Cruz, Guanacaste comunica que en sesión ordinaria 14-2002, del 2 de abril del 2002, se adopta y se aprueba la modificación al Plan Regulador de Playa Junquillal (Sector noreste) entre los mojones del N° 3 al 17 y el N° 1 del Instituto Geográfico Nacional, de acuerdo al siguiente Reglamento y lámina de usos del suelo.
