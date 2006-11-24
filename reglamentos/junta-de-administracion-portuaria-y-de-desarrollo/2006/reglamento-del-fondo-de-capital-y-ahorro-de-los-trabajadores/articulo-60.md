@@ -1,0 +1,1 @@
+Artículo 60.—De los atrasos en las obligaciones. Tanto para los trabajadores como para los que han dejado de serlo, la falta de pago de una mensualidad, dará por vencida la obligación y exigible la totalidad de las obligaciones.

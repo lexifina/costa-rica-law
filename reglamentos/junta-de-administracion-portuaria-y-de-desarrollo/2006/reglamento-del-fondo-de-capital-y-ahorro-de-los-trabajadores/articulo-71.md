@@ -1,0 +1,1 @@
+Artículo 71.—Con el afán de estimular la participación de los afiliados(a) en las asambleas, el Fondo destinará como máximo un 2,5% del gasto administrativo para la compra de obsequios que se rifaran entre sus afiliados(a).
