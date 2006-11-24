@@ -1,0 +1,1 @@
+Artículo 11.—Apertura de concurso interno. Cuando resulte necesario realizar un concurso interno, el Alcalde Municipal publicará su apertura dentro de los siguientes quince días naturales posteriores a aquel en que se produjo la vacante.

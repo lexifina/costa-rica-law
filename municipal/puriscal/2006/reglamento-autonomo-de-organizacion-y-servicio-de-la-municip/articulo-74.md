@@ -1,0 +1,1 @@
+Artículo 74.—Lagunas en este capítulo. En caso de integración del ordenamiento jurídico por laguna del presente capítulo se aplicarán en forma supletoria las disposiciones del Código Municipal y la Ley General de la Administración Pública.

@@ -1,0 +1,4 @@
+Artículo 45.—Casos de permisos con goce de salario. El (la) Alcalde (sa) concederá permiso con goce de salario en los siguientes casos:
+a) Por matrimonio del servidor: cinco días hábiles, contados a partir del día de la ceremonia. El funcionario entregará la constancia extendida por la autoridad competente, en forma posterior.
+b) Por muerte del cónyuge, el compañero, los hijos, los padres (naturales y adoptivos), los hermanos: cinco días hábiles, contados a partir del fallecimiento. El funcionario entregará la constancia emitida por la autoridad competente en forma posterior.
+c) Por nacimiento de hijos (productos vivos) o adopción legal: tres días hábiles a conveniencia del servidor, contados ya sea a partir del nacimiento o de que la cónyuge sea dada de alta, por el centro hospitalario donde fue atendida, previa constancia extendida por la autoridad competente.

@@ -1,0 +1,2 @@
+Artículo 3º—Ámbito de aplicación. Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, y las políticas que se originan de los mismos, son de aplicación obligatoria en todas las acciones que se relacionen con los derechos, beneficios y obligaciones de los (las) trabajadores (as) de la Municipalidad de Puriscal.
+La aplicación de este Reglamento corresponde al (a la) Alcalde (sa) Municipal, en virtud de lo establecido en el artículo 17 inciso a) del Código Municipal.

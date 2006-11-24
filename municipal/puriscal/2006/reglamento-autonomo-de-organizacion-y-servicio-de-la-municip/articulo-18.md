@@ -1,0 +1,2 @@
+Artículo 18.—Período de prueba. En todo contrato de o relación de trabajo por tiempo indeterminado, habrá un período de prueba de tres meses, salvo en aquellos casos en que la legislación laboral contenga disposiciones de excepción o en que convenga un plazo menor a los intereses de la Municipalidad.
+Durante este período y sin previo aviso, cualquiera de las partes podrá dar por terminado el contrato o relación laboral que los une.

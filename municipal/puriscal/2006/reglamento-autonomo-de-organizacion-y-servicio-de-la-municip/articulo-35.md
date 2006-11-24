@@ -1,0 +1,4 @@
+Artículo 35.—Suspensión del período de vacaciones. Una vez concedidas las vacaciones, ningún representante de la Municipalidad, puede sin consentimiento del trabajador, suspender el disfrute de las mismas, aunque se trate de asuntos urgentes de trabajo. Salvo las siguientes excepciones:
+a) Cuando se presente un caso de emergencia, o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del trabajador en vacaciones.
+b) Interrumpe de período de vacaciones que está disfrutando el trabajador que se enferma o accidenta y es incapacitado, para trabajar, por lo servicios médicos de la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
+En este caso los días dejados de disfrutar se concederán al terminar la incapacidad, trámite que se hará por gestión propia del servidor ante la Sección de Personal o ante el (la) Alcalde (sa).

@@ -1,0 +1,1 @@
+Artículo 50.—Concepto de ausencia. Se considera como ausencia, la inasistencia injustificada a un día completo de trabajo. La inasistencia injustificada a una fracción del día, se computará como media ausencia. Dos medias ausencias se computarán como una. En todo caso, no se pagará el salario que corresponde, a las ausencias injustificadas.

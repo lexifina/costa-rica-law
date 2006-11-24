@@ -1,0 +1,1 @@
+Artículo 56.—Omisiones de marca justificadas. Sólo se considerarán como válidas y justificadas las omisiones de marca que se originen en la imposibilidad real de registrar la marca con ocasión o a falta del fluido eléctrico, desperfecto mecánico, por inasistencia justificada del trabajador a sus labores y por la atención de asuntos propios del cargo fuera del centro de trabajo.

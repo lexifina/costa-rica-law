@@ -1,0 +1,1 @@
+Artículo 19.—Período de prueba en ascensos o traslados. El período de prueba no menor de tres meses, se aplicará también en los casos de ascenso o trasladados, de manera tal que el trabajador ascendido o trasladado podrá ser reintegrado a su anterior ocupación cuando el patrono estime que no reúne satisfactoriamente los requisitos para el normal desempeño del empleo en cuestión.

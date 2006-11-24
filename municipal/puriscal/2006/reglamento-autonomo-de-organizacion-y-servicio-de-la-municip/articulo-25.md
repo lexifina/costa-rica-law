@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De la jornada laboral
+Artículo 25.—Lugar donde se desarrolla la jornada laboral. La jornada de trabajo del personal administrativo se desarrollará en las instalaciones centrales de la Municipalidad, o para cualquier otro sitio que la Municipalidad ocupe en un futuro. Para el personal que debe laborar fuera de las instalaciones centrales, a causa de la naturaleza del servicio que presta, se iniciarán y terminarán en el plantel municipal establecido por la administración.
+El cambio de lugar donde se prestarán los servicios, deberá ser puesto en conocimiento del personal afectado, con suficiente antelación. La Municipalidad pagará los gastos de viaje y transporte, cuando sea procedente, de acuerdo al Reglamento de Gastos de Viaje y Transporte, emitido por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 44.—Renovación de la licencia de conducir. La Municipalidad otorgará el tiempo necesario dentro de su jornada laboral, con goce de salario, para que sus funcionarios renueven su licencia de conducir, previa solicitud de cada uno y con la presentación del justificante respectivo.

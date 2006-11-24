@@ -1,0 +1,1 @@
+Artículo 6º—Unidades administrativas. La estructura municipal estará compuesta por los departamentos y/o unidades que un estudio técnico realizado por la Alcaldía Municipal determine y que en un plazo de seis meses será presentado al Concejo Municipal para su respectiva aprobación.

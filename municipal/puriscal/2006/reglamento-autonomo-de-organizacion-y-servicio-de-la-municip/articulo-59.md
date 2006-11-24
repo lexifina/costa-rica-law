@@ -1,0 +1,5 @@
+Artículo 59.—Funcionarios que conducen vehículos para la Municipalidad. Los funcionarios municipales que guíen vehículos para la Municipalidad tendrán, además de los deberes del artículo anterior, los siguientes:
+a) Mantener la limpieza, custodia y conservación del vehículo que se le asigna durante el desempeño de sus funciones.
+b) Mantener el vehículo en buen estado junto con las herramientas y accesorios propios del vehículo.
+c) No permitir el uso de vehículos que se encuentren en condiciones de poner en peligro la integridad física del servidor y de terceros, previo diagnóstico del funcionario competente, comunicándolo al superior, por escrito de las razones que asisten para no usar el vehículo.
+d) Informar a la jefatura de todo accidente que le ocurra, suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectados con ocasión de aquel, sí como de los daños que sufra el vehículo, lugar y circunstancias en que se produjo el accidente. Esto lo realizará por medio de un informe que tendrá que rendirse sin más dilación un día hábil, después de acaecido el hecho.

@@ -1,0 +1,1 @@
+Artículo 9º—Forma de hacer la selección de personal. La selección de personal se hará por medio de prueba de idoneidad y/o atestados para el caso de cargos que deban llenarse con profesionales, a las que únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados, según el Manual Descriptivo de Puestos General, señalado en el artículo 120 del Código Municipal.

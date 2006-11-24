@@ -1,0 +1,1 @@
+Artículo 23.—Discriminación en relación a la incapacidad. Se considera un acto de discriminación, cuando los mecanismos empleados para este proceso no sean adaptados a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los solicitantes o cuando no se emplea a un trabajador idóneo para el puesto en razón a su discapacidad.

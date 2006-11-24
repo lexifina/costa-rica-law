@@ -1,0 +1,1 @@
+Artículo 10.—Permutas o traslados. Podrán realizarse permutas o traslados temporales o definitivos a clases comprendidas dentro de un mismo grupo ocupacional y entre clases de puestos de la misma categoría, siempre que medie un interés institucional, que exista aprobación de las jefaturas respectivas y cuando no se afecte de manera directa el accionar normal de la dependencia.

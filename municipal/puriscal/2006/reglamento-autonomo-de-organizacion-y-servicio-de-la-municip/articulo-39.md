@@ -1,0 +1,2 @@
+Artículo 39.—Días feriados. Son días feriados, y por tanto de pago obligatorio, los siguientes: 1 de enero, 11 de abril, jueves y viernes santo, 1 de mayo, 25 de julio, 2 de agosto, 15 de agosto, 15 de setiembre, 12 de octubre, 25 de diciembre.
+Cuando el 11 de abril, 25 de julio, 15 de agosto o 12 de octubre sean martes, miércoles, jueves o viernes, se trabajará este día y el disfrute se trasladará para el lunes siguiente.

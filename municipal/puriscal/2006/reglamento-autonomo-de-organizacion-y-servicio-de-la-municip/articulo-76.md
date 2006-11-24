@@ -1,0 +1,1 @@
+Artículo 76.—Potestad sancionatoria. La potestad sancionatoria institucional prescribe a los treinta días después de conocida esta por el Alcalde Municipal, quedan a salvo las faltas contra el patrimonio municipal que prescribirán al término de dos años de conocidas.

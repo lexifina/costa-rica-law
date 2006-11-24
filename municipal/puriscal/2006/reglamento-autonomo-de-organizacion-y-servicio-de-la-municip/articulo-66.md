@@ -1,0 +1,1 @@
+Artículo 66.—Sanción a quien marque una tarjeta ajena. Incurrirá en falta grave el funcionario que por dolo o complacencia, marque una tarjeta ajena o que maliciosamente la altere, mutile o la haga desaparecer. Esta conducta se sancionará con suspensión sin goce de salario por quince días.
