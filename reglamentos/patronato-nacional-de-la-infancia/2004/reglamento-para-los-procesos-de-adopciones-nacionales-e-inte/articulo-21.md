@@ -1,1 +1,0 @@
-Artículo 21.—Una vez finalizada cada sesión de trabajo de los Consejos su secretario levantará un acta detallada de los asuntos discutidos y los acuerdos adoptados, la que suscribirán todos los miembros presentes, con indicación expresa de la discrepancia de alguno de ellos con los acuerdos tomados si la hubiere, y las razones y fundamentos de la misma.

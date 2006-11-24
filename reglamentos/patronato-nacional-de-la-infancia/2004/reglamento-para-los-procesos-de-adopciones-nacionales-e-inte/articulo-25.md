@@ -1,1 +1,0 @@
-Artículo 25.—La aprobación o rechazo de la solicitud se comunicará al petente, mediante resolución administrativa dictada por la Oficina Local u Oficina de Adopciones del Patronato. Dicha resolución tendrá los recursos de impugnación dispuestos en la Ley General de la Administración Pública.
