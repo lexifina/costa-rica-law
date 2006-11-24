@@ -1,0 +1,2 @@
+Artículo 5.- Exención de impuestos para adquisiciones de bienes y servicios
+Las adquisiciones de bienes y servicios requeridas para implementar la unidad que tendrá a su cargo la administración, la operación y el mantenimiento de las obras que se generen por la ejecución del proyecto que se aprueba con esta Ley, no estarán sujetas al pago de ninguna clase de impuestos, tasas, sobretasas, contribuciones y derechos. El período de implementación de esta unidad corresponderá al período de ejecución del proyecto que se aprueba con esta Ley.

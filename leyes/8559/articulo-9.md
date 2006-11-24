@@ -1,0 +1,2 @@
+Artículo 9.- Contratación del personal
+Autorízase al ICAA para que contrate el personal bajo la modalidad de tiempo determinado y para que adquiera el equipo y los vehículos que necesite para integrar la unidad de implementación del proyecto que se aprueba con esta Ley. El período de implementación de esta unidad corresponderá al período de ejecución del proyecto que se aprueba con la presente Ley.
