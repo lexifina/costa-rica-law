@@ -1,0 +1,1 @@
+9º—Ambos formularios, FT1 y FT2, se encuentran a disposición de los transportistas en el sitio web del Ministerio de Hacienda bajo la dirección www.hacienda.go.cr en el vínculo de la Dirección General de Aduanas, División de Gestión Técnica, Departamento de Estadística y Registro.

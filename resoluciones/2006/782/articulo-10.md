@@ -1,0 +1,1 @@
+10.—Los transportistas debidamente registrados son responsables solidarios ante el Fisco por las consecuencias derivadas de los actos y omisiones en que incurran sus empleados acreditados ante el Servicio Nacional de Aduanas, sin perjuicio de las responsabilidades civiles, administrativas y penales a que dichos empleados queden sujetos legalmente.

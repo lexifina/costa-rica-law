@@ -1,0 +1,1 @@
+4º—En un plazo no mayor a cinco días hábiles posteriores a la entrega del o los formularios correspondientes, los datos en ellos incluidos serán ingresados al sistema informático, correspondiendo a los transportistas internacionales su verificación en la página Web http:www.hacienda.go.cr/ tica/consultas/consulta vehículos (CR-SIECA).

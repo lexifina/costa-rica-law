@@ -1,0 +1,1 @@
+7º—En el formulario FT2, deben transcribirse también los datos del transportista como son: Categoría de Transportista, sea Internacional o Nacional, Código del Transportista, nombre o razón social, abreviatura si la tiene, número de cédula jurídica, dirección por provincia, cantón, distrito y otras señas, número de teléfono, fax, apartado y correo electrónico

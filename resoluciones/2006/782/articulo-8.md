@@ -1,0 +1,1 @@
+8º—Asimismo, en este formulario (FT2) deben indicarse los datos del personal que se procede a inscribir o desinscribir ante el Servicio Nacional de Aduanas como conductores o personal subalterno: indicación del tipo de trámite sea exclusión o inclusión, número de cédula de identidad o número de cédula de residencia, nombre del conductor

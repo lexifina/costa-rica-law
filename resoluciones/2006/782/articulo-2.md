@@ -1,0 +1,1 @@
+2º—En función de la automatización de los procesos inherentes a la actividad aduanera, el procedimiento de inscripción y desinscripción de conductores, vehículos, carretas y similares se constituye en un ingreso y modificación de datos al Sistema Informático, previa solicitud formal del interesado.
