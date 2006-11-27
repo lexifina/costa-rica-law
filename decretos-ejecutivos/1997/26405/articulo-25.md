@@ -1,2 +1,0 @@
-Artículo 25.—Los galardonados podrán hacer uso del logotipo, emblemas y diseños de la Bandera Ecológica, para hacer publicidad o comercializar sus productos, previa suscripción de un convenio con la Comisión.
-Las empresas o instituciones que incurran en violación de lo dispuesto en este artículo serán sancionadas con el retiro inmediato del galardón; y dependiendo de la gravedad de la infracción, se procederá a presentar en la vía judicial la acción que corresponda.

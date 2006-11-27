@@ -1,1 +1,0 @@
-Artículo 22.—La Comisión Nacional Bandera Ecológica sesionará ordinariamente dos veces al mes y extraordinariamente cuando sean convocados por su Presidente o así lo soliciten conjuntamente cuatro de sus miembros.

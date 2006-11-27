@@ -1,1 +1,0 @@
-II - La Contraloría Ambiental tendrá un plazo de dos meses a partir de !a publicación de este Decreto Ejecutivo, para establecer los mecanismos para la tramitación, auditoria e inspección de las empresas e instituciones que soliciten la Bandera Ecológica.

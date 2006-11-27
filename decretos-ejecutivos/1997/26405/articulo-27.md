@@ -1,1 +1,0 @@
-Artículo 27.—Siguiendo los principios del artículo anterior y en lo aplicable las disposiciones de este Reglamento, la Comisión Nacional Bandera Ecológica, deberá elaborar la reglamentación para el galardón Distinción Ambiental Comunitaria Guaria Ecológica.

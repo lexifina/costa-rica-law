@@ -1,1 +1,0 @@
-Articulo 14.—Las empresas e instituciones, que en los formularios de solicitud, o en alguna otra fase del proceso, brinden información falsa, inexacta o adulterada, a efecto de inducir a la Comisión Bandera Ecológica a conclusiones erróneas, perderán el galardón. La Comisión trasladara el asunto a la Contraloría Ambiental y al Ministerio Público, para lo que corresponda.

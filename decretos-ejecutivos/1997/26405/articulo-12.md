@@ -1,1 +1,0 @@
-Artículo 12.—Los galardonados están en la obligación de comunicar a la Comisión, cualquier cambio o modificación a los procesos o sistemas de gestión ambiental evaluados y que merecieron tal distintivo. Para ello contarán con un plazo máximo de diez días hábiles a la fecha en que se produjeron los cambios; de no informarlo en este plazo perderán el galardón.

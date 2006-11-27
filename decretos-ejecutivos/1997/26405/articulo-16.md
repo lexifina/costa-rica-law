@@ -1,1 +1,0 @@
-Artículo 16.—Una vez recibido el formulario y concluidos satisfactoriamente la auditoria y la inspección, la Contraloría Ambiental entregara a la Comisión Nacional Bandera Ecológica la documentación, para que esta finalmente resuelva.

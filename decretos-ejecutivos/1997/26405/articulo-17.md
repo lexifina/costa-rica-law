@@ -1,1 +1,0 @@
-Artículo 17.—La Comisión con la asistencia de la Contraloría Ambiental, evaluará según los parámetros y criterios técnicos definidos por la misma Comisión, tanto las instalaciones como los procesos y con base en esa evaluación, otorgara la puntuación que le corresponda.
