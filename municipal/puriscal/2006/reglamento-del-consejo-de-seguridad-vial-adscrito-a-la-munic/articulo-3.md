@@ -1,0 +1,1 @@
+Artículo 3º—El COLOSEVI es un ente adscrito a la Municipalidad de Puriscal y se encargará de fiscalizar y ejecutar los proyectos de su competencia, financiados con fondos de la Ley Nº 7331 y otros que se gestionen para fines consiguientes.
