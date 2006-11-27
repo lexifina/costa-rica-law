@@ -1,0 +1,2 @@
+Artículo 3°—A la Junta Directiva de la (*) Junta de Protección Social, como órgano colegiado jerárquico superior, le corresponde dictar las normas que considere necesarias para el funcionamiento interno de la Institución.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).

@@ -1,0 +1,1 @@
+Artículo 28.—La Unidad de Archivo es responsable de custodiar el acervo documental de las dependencias de la Institución, de acuerdo con los plazos de remisión de documentos y de conformidad con la Ley Nacional de Archivo.

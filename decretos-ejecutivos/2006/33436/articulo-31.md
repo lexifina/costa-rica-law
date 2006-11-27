@@ -1,0 +1,1 @@
+Artículo 31.—El Departamento de Loterías es responsable de administrar y distribuir las Loterías Nacionales, en forma eficiente y adecuada, de conformidad con las regulaciones y normativas legales que existan al respecto.
