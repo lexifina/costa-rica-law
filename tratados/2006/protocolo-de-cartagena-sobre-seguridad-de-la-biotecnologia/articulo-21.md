@@ -1,0 +1,12 @@
+Artículo 21
+INFORMACIÓN CONFIDENCIAL
+1. La Parte de importación permitirá al notificador determinar qué información presentada en virtud de los procedimientos establecidos en el presente Protocolo o requerida por la Parte de importación como parte del procedimiento de acuerdo fundamentado previo establecido en el Protocolo debe tratarse como información confidencial. En esos casos, cuando se solicite, deberán exponerse las razones que justifiquen ese tratamiento.
+2. La Parte de importación entablará consultas con el notificador si estima que la información clasificada como confidencial por el notificador no merece ese tratamiento y comunicará su decisión al notificador antes de divulgar la información, explicando, cuando se solicite, sus motivos y dando una oportunidad para la celebración de consultas y la revisión interna de la decisión antes de divulgar la información.
+3. Cada Parte protegerá la información confidencial recibida en el marco del presente Protocolo, incluida la información confidencial que reciba en el contexto del procedimiento de acuerdo fundamentado previo establecido en el Protocolo. Cada Parte se asegurará de que dispone de procedimientos para proteger esa información y protegerá la confidencialidad de esa información en una forma no menos favorable que la aplicable a la información confidencial relacionada con los organismos vivos modificados producidos internamente.
+4. La Parte de importación no utilizará dicha información con fines comerciales, salvo que cuente con el consentimiento escrito del notificador.
+5. Si un notificador retirase o hubiese retirado una notificación, la Parte de importación deberá respetar la confidencialidad de toda la información comercial e industrial clasificada como confidencial, incluida la información sobre la investigación y el desarrollo, así como la información acerca de cuya confidencialidad la Parte y el notificador estén en desacuerdo.
+6. Sin perjuicio de lo dispuesto en el párrafo 5 supra no se considerará confidencial la información siguiente:
+a) El nombre y la dirección del notificador;
+b) Una descripción general del organismo u organismos vivos modificados;
+c) Un resumen de la evaluación del riesgo de los efectos para la conservación y la utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana; y
+d) Los métodos y planes de respuesta en caso de emergencia.

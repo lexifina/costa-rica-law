@@ -1,0 +1,15 @@
+Artículo 20
+INTERCAMBIO DE INFORMACIÓN Y EL CENTRO DE
+INTERCAMBIO DE INFORMACIÓN SOBRE
+SEGURIDAD DE LA BIOTECNOLOGÍA
+1. Queda establecido un Centro de Intercambio de Información sobre Seguridad de la Biotecnología como parte del mecanismo de facilitación a que se hace referencia en el párrafo 3 del artículo 18 del Convenio, con el fin de:
+a) Facilitar el intercambio de información y experiencia científica, técnica, ambiental y jurídica en relación con los organismos vivos modificados; y
+b) Prestar asistencia a las Partes en la aplicación del Protocolo, teniendo presentes las necesidades especiales de los países en desarrollo, en particular los países menos adelantados y los pequeños Estados insulares en desarrollo, y de los países con economías en transición, así como de los países que son centros de origen y centros de diversidad genética.
+2. El Centro de Intercambio de Información sobre Seguridad de la Biotecnología será un medio para difundir información a efectos del párrafo 1 supra. Facilitará el acceso a la información de interés para la aplicación del Protocolo proporcionada por las Partes. También facilitará el acceso, cuando sea posible, a otros mecanismos internacionales de intercambio de información sobre seguridad de la biotecnología.
+3. Sin perjuicio de la protección de la información confidencial, cada Parte proporcionará al Centro de Intercambio de Información sobre Seguridad de la Biotecnología cualquier información que haya que facilitar al Centro de Intercambio de Información sobre Seguridad de la Biotecnología en virtud del presente Protocolo y también información sobre:
+a) Leyes, reglamentos y directrices nacionales existentes para la aplicación del Protocolo, así como la información requerida por las Partes para el procedimiento de acuerdo fundamentado previo;
+b) Acuerdos y arreglos bilaterales, regionales y multilaterales;
+c) Resúmenes de sus evaluaciones del riesgo o exámenes ambientales de organismos vivos modificados que se hayan realizado como consecuencia de su proceso reglamentario y de conformidad con el artículo 15, incluida, cuando proceda, información pertinente sobre productos derivados de los organismos vivos modificados, es decir, materiales procesados que tienen su origen en un organismo vivo modificado, que contengan combinaciones nuevas detectables de material genético replicable que se hayan obtenido mediante la aplicación de la biotecnología moderna;
+d) Sus decisiones definitivas acerca de la importación o liberación de organismos vivos modificados; y
+e) Los informes que se le hayan presentado en virtud del artículo 33, incluidos los informes sobre la aplicación del procedimiento de acuerdo fundamentado previo.
+4. La Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo en su primera reunión, examinará las modalidades de funcionamiento del Centro de Intercambio de Información sobre Seguridad de la Biotecnología, incluidos los informes sobre sus actividades, adoptará decisiones respecto de esas modalidades y las mantendrá en examen en lo sucesivo.

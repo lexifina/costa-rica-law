@@ -1,0 +1,12 @@
+Artículo 17
+MOVIMIENTOS TRANSFRONTERIZOS INVOLUNTARIOS
+Y MEDIDAS DE EMERGENCIA
+1. Cada Parte adoptará las medidas adecuadas para notificar a los Estados afectados o que puedan resultar afectados, al Centro de Intercambio de Información sobre Seguridad de la Biotecnología y, cuando proceda, a las organizaciones internacionales pertinentes, cuando tenga conocimiento de una situación dentro de su jurisdicción que haya dado lugar a una liberación que conduzca o pueda conducir a un movimiento transfronterizo involuntario de un organismo vivo modificado que sea probable que tenga efectos adversos significativos para la conservación y la utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana en esos Estados. La notificación se enviará tan pronto como la Parte tenga conocimiento de esa situación.
+2. Cada Parte pondrá a disposición del Centro de Intercambio de Información sobre Seguridad de la Biotecnología, a más tardar en la fecha de entrada en vigor del presente Protocolo para esa Parte, los detalles pertinentes del punto de contacto, a fines de recibir notificaciones según lo dispuesto en el presente artículo.
+3. Cualquier notificación enviada en virtud de lo dispuesto en el párrafo 1 supra deberá incluir:
+a) Información disponible pertinente sobre las cantidades estimadas y las características y/o rasgos importantes del organismo vivo modificado;
+b) Información sobre las circunstancias y la fecha estimada de la liberación, así como el uso del organismo vivo modificado en la Parte de origen;
+c) Cualquier información disponible sobre los posibles efectos adversos para la conservación y utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana, así como información disponible acerca de las posibles medidas de gestión del riesgo;
+d) Cualquier otra información pertinente; y
+e) Un punto de contacto para obtener información adicional.
+4. Para reducir al mínimo cualquier efecto adverso significativo para la conservación y la utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana, cada Parte en cuya jurisdicción haya ocurrido la liberación del organismo vivo modificado a que se hace referencia en el párrafo 1 supra entablará inmediatamente consultas con los Estados afectados o que puedan resultar afectados para que éstos puedan determinar las respuestas apropiadas y poner en marcha las actividades necesarias, incluidas medidas de emergencia.

@@ -1,0 +1,5 @@
+Artículo 15
+EVALUACIÓN DEL RIESGO
+1. Las evaluaciones del riesgo que se realicen en virtud del presente Protocolo se llevarán a cabo con arreglo a procedimientos científicos sólidos, de conformidad con el anexo III y teniendo en cuenta las técnicas reconocidas de evaluación del riesgo. Esas evaluaciones del riesgo se basarán como mínimo en la información facilitada de conformidad con el artículo 8 y otras pruebas científicas disponibles para determinar y evaluar los posibles efectos adversos de los organismos vivos modificados para la conservación y la utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana.
+2. La Parte de importación velará por que se realicen evaluaciones del riesgo para adoptar decisiones en virtud del artículo 10. La Parte de importación podrá requerir al exportador que realice la evaluación del riesgo.
+3. El notificador deberá hacerse cargo de los costos de la evaluación del riesgo si así lo requiere la Parte de importación.

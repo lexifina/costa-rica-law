@@ -1,0 +1,5 @@
+Artículo 37
+ENTRADA EN VIGOR
+1. El presente Protocolo entrará en vigor el nonagésimo día contado a partir de la fecha en que haya sido depositado el quincuagésimo instrumento de ratificación, aceptación, aprobación o adhesión por los Estados u organizaciones regionales de integración económica que sean partes en el Convenio.
+2. El presente Protocolo entrará en vigor para cada Estado u organización regional de integración económica que ratifique, acepte o apruebe el presente Protocolo o que se adhiera a él después de su entrada en vigor de conformidad con el párrafo 1 supra, el nonagésimo día contado a partir de la fecha en que dicho Estado u organización regional de integración económica haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión, o en la fecha en que el Convenio entre en vigor para ese Estado u organización regional de integración económica, si esa segunda fecha fuera posterior.
+3. A los efectos de los párrafos 1 y 2 supra, los instrumentos depositados por una organización regional de integración económica no se considerarán adicionales a los depositados por los Estados miembros de esa organización.

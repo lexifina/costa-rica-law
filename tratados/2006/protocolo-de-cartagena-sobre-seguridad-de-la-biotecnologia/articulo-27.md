@@ -1,0 +1,3 @@
+Artículo 27
+RESPONSABILIDAD Y COMPENSACIÓN
+La Conferencia de las Partes que actúe como reunión de las Partes en el presente Protocolo adoptará, en su primera reunión, un proceso en relación con la elaboración apropiada de normas y procedimiento internacionales en la esfera de la responsabilidad y compensación por daños resultantes de los movimientos transfronterizos de organismos vivos modificados, para lo que se analizarán y se tendrán debidamente en cuenta los procesos en curso en el ámbito del derecho internacional sobre esas esferas, y tratará de completar ese proceso en un plazo de cuatro años.

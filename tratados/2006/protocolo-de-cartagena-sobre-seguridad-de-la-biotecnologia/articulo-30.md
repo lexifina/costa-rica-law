@@ -1,0 +1,5 @@
+Artículo 30
+ÓRGANOS SUBSIDIARIOS
+1. Cualquier órgano subsidiario establecido por el Convenio o en virtud de éste podrá, cuando así lo decida la reunión de la Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo, prestar servicios al Protocolo, en cuyo caso, la reunión de las Partes especificará las funciones que haya de desempeñar ese órgano.
+2. Las Partes en el Convenio que no sean Partes en el presente Protocolo podrán participar en calidad de observadores en los debates de las reuniones de los órganos subsidiarios del presente Protocolo. Cuando un órgano subsidiario del Convenio actúe como órgano subsidiario del presente Protocolo, las decisiones relativas a éste sólo serán adoptadas por las Partes en el Protocolo.
+3. Cuando un órgano subsidiario del Convenio desempeñe sus funciones en relación con cuestiones relativas al presente Protocolo, los miembros de la Mesa de ese órgano subsidiario que representen a Partes en el Convenio que, en ese momento, no sean Partes en el Protocolo, serán reemplazados por miembros que serán elegidos por y de entre las Partes en el Protocolo.
