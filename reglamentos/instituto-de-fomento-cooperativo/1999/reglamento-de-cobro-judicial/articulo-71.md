@@ -1,1 +1,4 @@
-Artículo 71.—El INFOCOOP se reserva el derecho de modificar, reformar, adicionar y aún derogar o sustituir el presente reglamento, con la aprobación, de por lo menos cinco miembros de su junta directiva. Todo ello lo aceptan expresamente los señores abogados, sin que puedan alegar derechos adquiridos de ninguna especie al amparo de él.
+CAPÍTULO XIII
+Disposiciones finales
+Artículo 71.—Todos los abogados contratados para asumir la dirección de los juicios de cobro judicial tendrán una copia de este Reglamento, y firmarán contra la entrega del mismo, por parte de la dirección ejecutiva, haciendo constar tal circunstancia, así como su conformidad con todas las estipulaciones del mismo.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 70 al 71 actual del artículo)

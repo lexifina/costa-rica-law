@@ -1,3 +1,2 @@
-CAPÍTULO XIII
-Disposiciones finales
-Artículo 70.—Todos los abogados contratados para asumir la dirección de los juicios de cobro judicial tendrán una copia de este Reglamento, y firmarán contra la entrega del mismo, por parte de la dirección ejecutiva, haciendo constar tal circunstancia, así como su conformidad con todas las estipulaciones del mismo.
+Artículo 70.—Si un abogado es asignado para continuar con un juicio que otro inició, se le retribuirá proporcionalmente según las fases de proceso dirigidos.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 69 al 70 actual del artículo)

@@ -1,2 +1,2 @@
-Artículo 66.—El pago de honorarios de abogado se regirá por las normas legales vigentes al momento de realizarse el pago.
-Se pagarán los honorarios correspondientes una vez concluida cada fase del juicio en que se cobran.
+Artículo 66.—Los honorarios de abogado pertenecen a éste.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 65 al 66 actual del artículo)

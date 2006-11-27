@@ -1,2 +1,2 @@
-Artículo 38.—La protocolización de piezas por bienes adjudicados a favor del INFOCOOP en pago de obligaciones, estará a cargo del notario que se asigne por parte de la subdirección ejecutiva o dirección ejecutiva .
-Para la realización de este trámite, el notario asignado tendrá un plazo de dos meses, en caso de que hubiere algún atraso el notario deberá informarlo al proceso de operaciones.
+Artículo 38.—Cuando el bien fuere adjudicado al INFOCOOP en remate, el abogado director pedirá al Tribunal, tan pronto venzan los plazos fijados por la ley, la aprobación del mismo y una vez que se encuentre firme la resolución respectiva, la comunicará de inmediato y por escrito al proceso de operaciones, solicitando se asigne notario para la protocolización respectiva.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 37 al 38 actual del artículo)

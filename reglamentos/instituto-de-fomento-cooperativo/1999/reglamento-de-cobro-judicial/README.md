@@ -16,3 +16,4 @@ Reglamento de Cobro Judicial
 | 1 | 1999-04-12 | la propia norma |
 | 2 | 2002-12-02 | Reglamento 3206 (2002-12-02) |
 | 3 | 2003-04-30 | Reglamento 3241 (2003-04-30) |
+| 4 | 2006-11-27 | Reglamento 3594 (2006-11-27) |

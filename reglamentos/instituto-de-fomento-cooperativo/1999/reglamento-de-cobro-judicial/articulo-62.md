@@ -1,1 +1,2 @@
-Artículo 62.—Si la labor del abogado es calificada deficiente con consecuencias negativas para el INFOCOOP, se excluirá del rol del servicio de cobro judicial y del servicio de notariado, con la respectiva conclusión anticipada del contrato de servicios profesionales con el INFOCOOP.
+Artículo 62.—El abogado cuya labor sea calificada de deficiente pierde el derecho a participar en la próxima vuelta del rol tanto en el cobro judicial como en notariado.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 61 al 62 actual del artículo)

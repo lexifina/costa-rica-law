@@ -1,1 +1,2 @@
-Artículo 63.—En caso de mala praxis del abogado director, el INFOCOOP presentará la denuncia respectiva ante la Fiscalía del Colegio de Abogados sin perjuicio de acudir a la vía judicial correspondiente, o utilizar otros medios que estime conveniente.
+Artículo 63.—Si la labor del abogado es calificada deficiente con consecuencias negativas para el INFOCOOP, se excluirá del rol del servicio de cobro judicial y del servicio de notariado, con la respectiva conclusión anticipada del contrato de servicios profesionales con el INFOCOOP.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 62 al 63 actual del artículo)

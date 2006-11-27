@@ -1,1 +1,2 @@
-Artículo 72.—El presente Reglamento deroga normas contenidas en otros reglamentos en lo que se le opongan.
+Artículo 72.—El INFOCOOP se reserva el derecho de modificar, reformar, adicionar y aún derogar o sustituir el presente reglamento, con la aprobación, de por lo menos cinco miembros de su junta directiva. Todo ello lo aceptan expresamente los señores abogados, sin que puedan alegar derechos adquiridos de ninguna especie al amparo de él.
+(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 71 al 72 actual del artículo)
