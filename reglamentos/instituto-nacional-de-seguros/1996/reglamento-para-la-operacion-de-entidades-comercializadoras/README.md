@@ -21,3 +21,4 @@ Reglamento para la operación de entidades comercializadoras de seguros
 | 6 | 2001-04-23 | Reglamento 8443 (2001-04-23) |
 | 7 | 2002-12-05 | Reglamento 8578 (2002-12-05) |
 | 8 | 2006-08-14 | Reglamento 8798 (2006-08-14) |
+| 9 | 2006-11-28 | Reglamento 8813 (2006-11-28) |

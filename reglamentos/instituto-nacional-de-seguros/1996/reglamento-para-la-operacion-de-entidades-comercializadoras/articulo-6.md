@@ -7,6 +7,8 @@ e) Contar con una denominación social que refleje clara e inequívocamente el o
 f) Suscribir y mantener vigentes, de manera continua, una póliza de fidelidad de posiciones y otra de dinero en tránsito, u otra que contemple ambas coberturas, a efecto de proteger la manipulación y trasiego de dineros, valores y documentos del Instituto.
 g) Contar con el soporte administrativo y de control suficiente para el ejercicio de la actividad, acorde con el volumen de operaciones, número de puntos de venta, número de agentes acreditados y expectativa de crecimiento de la empresa.
 h) Contar con el número de agentes autorizados por el Instituto que se convengan en el Plan Anual de Comercialización, necesarios para la realización de sus operaciones y el cumplimiento de las metas de ventas.
-i) Cualquier otro que expresamente consigne el Instituto. En el caso de los Bancos Estatales, estos deberán cumplir con los incisos a, c, d, f, g, h, i citados anteriormente y adicionalmente los siguientes requisitos:
+i) Cualquier otro que expresamente consigne el Instituto.
+En el caso de los Bancos Públicos, estos deberán cumplir con los incisos a), c), d), f), g), h), i) citados anteriormente y adicionalmente los siguientes requisitos:
 j) Presentar al Instituto la documentación que lo acredite como Institución Bancaria autorizada.
 k) Deberá manejar la contabilidad de seguros separada del resto de las actividades del Banco.
+(Así reformado en sesión N° 8813 del 28 de noviembre de 2006)
