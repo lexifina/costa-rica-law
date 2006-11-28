@@ -14,3 +14,4 @@ Reglamento para la operación de Fondos de Trabajo del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-05 | la propia norma |
+| 2 | 2006-11-28 | Reglamento 5771 (2006-11-28) |
