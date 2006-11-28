@@ -1,0 +1,16 @@
+# Reglamento municipal (2006-11-15)
+
+Reglamento de Becas de la Municipalidad de Vázquez de Coronado
+
+- Tipo: Reglamento municipal
+- Número: 28
+- Fecha: 2006-11-15
+- Ente emisor: Municipalidad de Vázquez de Coronado
+- Publicación: La Gaceta N° 228 del 2006-11-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58518&param2=64891&param3=1 (ficha 58518)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2006-11-28 | la propia norma |

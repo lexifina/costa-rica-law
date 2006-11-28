@@ -1,0 +1,1 @@
+Artículo 13.—El dinero correspondiente a las becas será entregado en la Tesorería Municipal al padre, madre o encargado legalmente autorizado, en la primera semana del mes, contra la constancia mensual del centro de educación correspondiente comprobando la permanencia del estudiante.

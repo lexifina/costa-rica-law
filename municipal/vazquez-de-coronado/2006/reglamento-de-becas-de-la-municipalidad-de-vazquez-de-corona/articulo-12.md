@@ -1,0 +1,1 @@
+Artículo 12.—Tanto el Concejo de Distrito correspondiente como la Comisión de Educación y Cultura, se reservan el derecho de visita al hogar del solicitante, con el fin de confirmar la información suministrada, para el otorgamiento de las becas.

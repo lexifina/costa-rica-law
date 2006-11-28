@@ -1,0 +1,1 @@
+Artículo 16.—En caso de renuncia del beneficiario o del retiro de esta, según lo estipula el artículo 10 de este Reglamento, en su lugar se otorgará a otra persona que se encuentre en lista de espera según el estudio previo de la Comisión de Educación y Cultura.

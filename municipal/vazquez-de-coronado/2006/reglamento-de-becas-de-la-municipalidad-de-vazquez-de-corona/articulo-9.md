@@ -1,0 +1,1 @@
+Artículo 9º—Los Concejos de Distrito deberán coordinar con los centros educativos de sus respectivos distritos para hacer las recomendaciones correspondientes ante el Concejo Municipal para la entrega de becas, de manera que haya una distribución geográficamente equitativa y que procure la paridad de genero al otorgar este apoyo municipal entre los casos más críticos de la zona.

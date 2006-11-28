@@ -1,0 +1,1 @@
+Artículo 15.—Las becas serán aprobadas por el Concejo Municipal con una votación de mayoría simple, previa recomendación de la Comisión de Educación y Cultura y de los respectivos Concejos de Distrito. La aprobación definitiva deberá ser resuelta a más tardar una semana antes del inicio oficial del curso lectivo.
