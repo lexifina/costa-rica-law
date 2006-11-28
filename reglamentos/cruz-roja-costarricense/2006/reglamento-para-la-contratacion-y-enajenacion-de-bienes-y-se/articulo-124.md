@@ -1,0 +1,1 @@
+Artículo 124.—La Comisión de Contrataciones dispondrá de los 8 días hábiles siguientes desde la presentación, para estudiar su admisibilidad, se pronunciará sobre si es admisible el mismo y de ser así lo remitirá al Consejo Nacional, para que resuelva en definitiva.

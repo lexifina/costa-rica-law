@@ -1,0 +1,1 @@
+Artículo 36.—Una vez que la Comisión de Contrataciones recomienda el cartel de participación, deberá presentarse al Consejo Nacional para que conozca y apruebe. Posteriormente a su aprobación, debe ser publicado el aviso al menos en un diario de circulación nacional. Esta publicación se cancelará con los fondos de las unidades usuarias interesadas.

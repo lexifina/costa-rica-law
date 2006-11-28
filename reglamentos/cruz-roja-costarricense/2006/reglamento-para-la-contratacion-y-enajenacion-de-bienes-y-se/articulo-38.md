@@ -1,0 +1,1 @@
+Artículo 38.—El plazo para la recepción de las ofertas lo fijará la Comisión de Contrataciones, con un plazo al menos de 15 días hábiles a partir del momento de la publicación de la invitación. De no indicarse el plazo se presume que será de 15 días hábiles.

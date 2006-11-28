@@ -1,0 +1,3 @@
+CAPÍTULO DECIMOTERCERO
+Adquisiciones internacionales
+Artículo 113.—Mediante acuerdo fundamentado el Consejo Nacional, podrá autorizar previamente que la adquisición de un bien o servicio se realice en otro Estado, y sin sujetarse a los procedimientos de este reglamento. Para este efecto deberá contar con el criterio del Departamento de Proveeduría y de otros departamentos técnicos que se considere oportuno consultar. Este acuerdo únicamente procederá cuando objetivamente el Consejo Nacional pueda fundamentar su decisión en razones de existencia, conveniencia, calidad y/o precio del bien o servicio, los cuáles no sean posibles adquirir dentro de nuestro país o sus costos y tiempo en este, sean excesivos.

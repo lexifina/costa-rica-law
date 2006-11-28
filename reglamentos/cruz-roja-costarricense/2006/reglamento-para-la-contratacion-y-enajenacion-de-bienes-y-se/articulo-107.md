@@ -1,0 +1,1 @@
+Artículo 107.—En caso de que en el remate, existiendo interesados, nadie ofreció la base, se realizará un segundo remate a los veinte minutos de efectuado el primero. La base en este caso podrá ser un 25% (veinticinco por ciento) menor a la base originaria, si así lo decide la Comisión de Remate, conforme el artículo 30 de la Ley de Contratación Administrativa.

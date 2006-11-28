@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Funcionarios autorizados para solicitar compras
+Artículo 26.—Para solicitar la adquisición de bienes o servicios por medio de contratación pública, contratación simplificada, proceso de urgencia o excepción y contratación internacional, sólo será competente el Consejo Nacional, previa solicitud de las unidades usuarias canalizada y recomendada a través del Departamento de Proveeduría. Aún cuando el bien o servicio se encuentre aprobado en el presupuesto anual de la Asociación no significa que el Departamento de Proveeduría debe iniciar los trámites de contratación de oficio. Lo anterior no impide que el Departamento de Proveeduría prepare las propuestas de carteles de participación en conjunto con los asesores técnicos.

@@ -1,0 +1,1 @@
+Artículo 48.—Todas las actuaciones y documentos relativos a los diferentes procedimientos de adquisición mediante concurso deben conservarse en expedientes individuales, foliados, debidamente ordenados cronológicamente.

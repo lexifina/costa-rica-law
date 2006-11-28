@@ -1,0 +1,1 @@
+Artículo 98.—Una vez recibido el acuerdo del Consejo Nacional, donde se autoriza la subasta del vehículo, el Departamento de Transportes deberá señalar lugar, hora y fecha de la subasta, quien confeccionará el edicto, el que previo a su publicación remitirá a la Asesoría Legal, para la revisión correspondiente.

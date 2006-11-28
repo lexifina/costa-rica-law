@@ -1,0 +1,2 @@
+Artículo 84.—Los proveedores inscritos en el registro no están obligados a presentar, en cada licitación, la certificación de personería, si esta fue emitida tres meses antes de la adjudicación en firme. En este caso suficiente es que se indique que el contenido de lo certificado en los documentos aportados al momento de inscripción en el registro de proveedores, permanece invariable.
+Las declaraciones juradas que se presenten deben contar al menos con la autenticación de la firma del declarante.

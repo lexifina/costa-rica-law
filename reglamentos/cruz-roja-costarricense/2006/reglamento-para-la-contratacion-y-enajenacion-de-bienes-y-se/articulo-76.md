@@ -1,0 +1,1 @@
+Artículo 76.—La Asociación podrá invitar, mediante una publicación en un diario nacional, cada 3 años, a aquellas personas físicas o jurídicas que deseen formar parte del registro de proveedores para las futuras contrataciones a realizar.

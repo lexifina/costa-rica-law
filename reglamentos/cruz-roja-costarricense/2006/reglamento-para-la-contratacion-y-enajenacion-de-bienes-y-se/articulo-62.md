@@ -1,0 +1,1 @@
+Artículo 62.—Para efectuar una compra bajo esta modalidad, se requiere que los oferentes se encuentren debidamente inscritos en el registro de proveedores. También es aplicable lo indicado en el artículo 55 de este reglamento. Sección V: De la Comisión de Contrataciones:

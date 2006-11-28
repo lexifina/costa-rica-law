@@ -1,0 +1,1 @@
+Artículo 44.—Las garantías de participación y cumplimiento deben rendirse independientemente para cada negocio, mediante dinero en efectivo, certificados de depósito a plazo o cheques certificados, siempre y cuando sean estos últimos, de un banco del Sistema Bancario Nacional.

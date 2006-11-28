@@ -1,0 +1,1 @@
+Artículo 54.—La contratación simplificada se regirá por las reglas de la contratación pública indicadas (artículo 44), en lo concerniente a preparación del cartel de participación, los requisitos de la oferta, las garantías, las condiciones de selección, adjudicación y lo concerniente a la Comisión de Contrataciones.

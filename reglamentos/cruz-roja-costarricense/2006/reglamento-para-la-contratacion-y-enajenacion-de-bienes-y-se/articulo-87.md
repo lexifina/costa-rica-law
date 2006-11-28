@@ -1,0 +1,4 @@
+CAPÍTULO NOVENO
+Condiciones generales sobre las contrataciones
+Artículo 87.—Cuando la entidad contratada para realizar construcciones o remodelaciones a un edificio, y producto de ésta contratación instala equipos o accesorios, esta entidad debe indicar por escrito a la Asociación cuanto tiempo tienen de garantía los equipos y accesorios, para que las haga valer cuando sea necesario. La persona responsable de supervisar el trabajo, será la encargada de comunicar a la Asociación cualquier anomalía en que incurra el contratista.
+Deberá establecerse en los carteles disposiciones que obliguen a la entidad contratada a rendir una garantía que se establecerá entre 3 meses y 2 años por concepto de vicios ocultos en las adquisiciones de activos, mantenimiento, reparación y construcción, entre otros, la misma será de 5% a 10% del monto del contrato, las condiciones particulares las recomendará el Departamento de Proveeduría a la Comisión de Contrataciones.

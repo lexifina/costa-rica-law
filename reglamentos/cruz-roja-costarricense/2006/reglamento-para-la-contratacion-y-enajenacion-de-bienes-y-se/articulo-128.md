@@ -1,0 +1,1 @@
+Artículo 128.—Este reglamento rige 2 meses después de su publicación en el Diario Oficial La Gaceta, mientras tanto se aplicaran los principios de contratación administrativa y disposiciones internas vigentes para este tipo de gestión.

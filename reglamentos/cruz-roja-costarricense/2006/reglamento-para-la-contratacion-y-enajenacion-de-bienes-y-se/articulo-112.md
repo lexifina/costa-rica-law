@@ -1,0 +1,1 @@
+Artículo 112.—Aquellos bienes que hayan sido adquiridos con fondos propios no tendrán necesariamente que sujetarse al procedimiento de remate pero su forma de traspaso debe garantizar transparencia. El Departamento de Proveeduría en coordinación con la unidad usuaria valorará el procedimiento más idóneo en cada caso particular.

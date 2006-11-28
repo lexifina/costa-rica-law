@@ -1,0 +1,1 @@
+Artículo 120.—El recurso de objeción deberá resolverse dentro de los 8 días hábiles siguientes a su presentación. Si no se resuelve dentro de ese plazo, la objeción se tendrá por acogida favorablemente.

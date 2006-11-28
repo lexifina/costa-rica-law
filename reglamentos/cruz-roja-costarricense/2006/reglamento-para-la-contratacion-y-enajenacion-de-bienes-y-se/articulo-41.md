@@ -1,0 +1,1 @@
+Artículo 41.—Al adjudicatario se le devolverá la garantía de participación cuando esté suscrito el contrato o el acto adjudicatorio se encuentre firme. En ambos casos deberá estar aceptada la garantía de cumplimiento, por parte del Departamento de Proveeduría.

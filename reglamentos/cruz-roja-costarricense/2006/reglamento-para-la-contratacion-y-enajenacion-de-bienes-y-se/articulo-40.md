@@ -1,0 +1,2 @@
+Artículo 40.—Toda oferta deberá acompañarse de una garantía de participación que será establecida entre un uno por ciento (1%) y un cinco por ciento (5%) de la oferta total y su vigencia debe extenderse por los 8 días hábiles posteriores al plazo de adjudicación máximo indicado en el cartel.
+Cuando en el cartel no se indique el monto de la garantía de participación esta será siempre de uno por ciento (1%). Es deber del Departamento de Proveeduría brindar oportunamente una propuesta justificada del porcentaje de la garantía de participación.

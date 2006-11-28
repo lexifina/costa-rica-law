@@ -1,0 +1,1 @@
+Artículo 117.—Lo indicado en este capítulo será aplicable en lo compatible en las adquisiciones internacionales realizadas por Internet u otros medios tecnológicos que faciliten la adquisición sin requerirse el traslado físico del responsable.

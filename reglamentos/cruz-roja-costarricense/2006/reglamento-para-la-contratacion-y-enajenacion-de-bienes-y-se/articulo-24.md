@@ -1,0 +1,1 @@
+Artículo 24.—Para el control de los contratos de servicios, se confeccionará un acta en la que se indicarán quiénes son los funcionarios responsables de velar por el cumplimiento; además, se detallará qué partes del contrato les corresponde supervisar a cada funcionario. Dicho documento será parte del expediente de contratación.

@@ -1,0 +1,1 @@
+Artículo 103.—Para la exhibición del vehículo, se deberá retirar todos aquellos accesorios que no son parte del remate y de no ser posible su retiro, indicar expresamente que dicho artículo no será parte de la subasta.

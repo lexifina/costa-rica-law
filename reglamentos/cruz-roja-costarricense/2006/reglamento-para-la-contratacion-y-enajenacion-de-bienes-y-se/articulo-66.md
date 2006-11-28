@@ -1,0 +1,2 @@
+Artículo 66.—La Comisión de Contrataciones debe atender apelaciones de carácter administrativo y las denuncias o quejas que conozca la Contraloría General de la República sobre el uso de fondos públicos, realizadas por oferentes que se consideren afectados en las adjudicaciones.
+El Departamento de Proveeduría será el órgano responsable de atender y coordinar la presentación oportuna de la contestación a las impugnaciones en conjunto con la Asesoría Legal y la Comisión de Contrataciones quien emitirá la recomendación final.

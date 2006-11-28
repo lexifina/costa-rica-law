@@ -1,0 +1,1 @@
+Artículo 100.—La publicación se realizará en un periódico de circulación nacional por una única vez, con un término mínimo de 8 días hábiles entre la publicación y el día del remate. La difusión del remate en las regiones la realizará en forma vinculante por medio de las Juntas Directivas Regionales a través de la unidad usuaria interesada.

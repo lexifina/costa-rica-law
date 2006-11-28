@@ -1,0 +1,2 @@
+Artículo 80.—En las contrataciones simplificadas, en las contrataciones restringidas y en los procesos de urgencia o excepción, la Asociación, por medio del Departamento de Proveeduría, invitará a las personas debidamente inscritas en el registro de proveedores y que estén en capacidad de ofrecer el suministro o el servicio, a presentar su oferta.
+La Asociación podrá anunciar, además, la contratación en los medios de comunicación colectiva con el fin de obtener más ofertas.

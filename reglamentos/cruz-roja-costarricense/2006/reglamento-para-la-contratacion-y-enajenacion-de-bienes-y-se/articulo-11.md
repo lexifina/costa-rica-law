@@ -1,0 +1,3 @@
+Artículo 11.—El Departamento de Proveeduría es el único ente de la Asociación autorizado para conducir todos los trámites relacionados con el proceso de contrataciones de bienes y servicios, independientemente de su modalidad. Se exceptúa de lo anterior:
+a) Las adquisiciones que indican una autorización específica o diferente en este reglamento.
+b) La contratación de bienes y servicios que se realicen con fondos privados cuyo valor total sea inferior a ¢2.000.000,00 (dos millones de colones). Las cuáles se regirán por las reglas que establece el procedimiento de contratación directa. Para efectos del cumplimiento de este artículo la unidad usuaria que requiera la adquisición asume las obligaciones, potestades y responsabilidades de este reglamento.

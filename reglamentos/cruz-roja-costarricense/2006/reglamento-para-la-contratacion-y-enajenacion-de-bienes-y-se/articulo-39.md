@@ -1,0 +1,2 @@
+Artículo 39.—Cualquier modificación a las condiciones o especificaciones del cartel deberá publicarse por los mismos medios que se cursó la invitación, con al menos 3 días hábiles de anticipación al vencimiento del plazo para recibir las ofertas.
+Cuando la modificación sea únicamente para ampliar el plazo o para dejar sin efecto el concurso bastará que se publique antes de la hora delcierre de recepción de ofertas.

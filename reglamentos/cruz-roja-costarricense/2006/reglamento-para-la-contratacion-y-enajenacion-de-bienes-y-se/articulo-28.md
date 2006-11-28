@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se trate de adquisición pública o adquisición simplificada los carteles de participación serán confeccionados por el Departamento de Proveeduría en coordinación con la unidad usuaria y los asesores técnicos. Posteriormente lo revisará y aprobará además una Comisión de Contrataciones.

@@ -1,0 +1,1 @@
+Artículo 96.—Si el vehículo no presenta problemas registrales, en lo referente a características, anotaciones, gravámenes, o cualquier otro aspecto que afecte la realización de la subasta, el Departamento de Transportes solicitará el depósito de gastos administrativos ocasionados por el remate a la unidad usuaria.

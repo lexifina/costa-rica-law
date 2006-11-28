@@ -1,0 +1,1 @@
+Artículo 85.—Los proveedores inscritos en el registro objeto del presente reglamento, no están obligados a solicitar nuevamente su incorporación, sino que será suficiente con que se renueven aquellos documentos legales vencidos y notifiquen cualquier cambio.

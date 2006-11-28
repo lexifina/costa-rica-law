@@ -1,0 +1,1 @@
+Artículo 18.—Las solicitudes deben hacerse con la suficiente antelación, conforme la tabla de plazos anexa, salvo en procesos de urgencia o excepción. Cuando se trata de contrataciones públicas, la petición deberá realizarse entre los meses de enero y octubre y con al menos 3 meses de anticipación a la fecha a partir de la cual se requiera el bien o servicio.

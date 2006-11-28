@@ -1,0 +1,1 @@
+Artículo 46.—El jefe del Departamento de Proveeduría y un representante de la Asesoría Legal procederán a la apertura de las ofertas a la hora, lugar y fecha señalados en el cartel. No serán objeto de análisis y valoración las ofertas presentadas posteriormente.

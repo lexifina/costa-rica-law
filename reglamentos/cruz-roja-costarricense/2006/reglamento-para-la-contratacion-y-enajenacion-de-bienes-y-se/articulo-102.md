@@ -1,0 +1,1 @@
+Artículo 102.—Los costos en que se incurran, producto de los remates en las diferentes regiones serán financiados por las unidades usuarias interesadas. La Gerencia General está facultada para descontar los costos de cualquier suma a pagar a la unidad usuaria, se haga efectivo o no la venta del vehículo.

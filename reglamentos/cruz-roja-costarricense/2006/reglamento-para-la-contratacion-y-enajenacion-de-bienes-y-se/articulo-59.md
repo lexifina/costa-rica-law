@@ -1,0 +1,1 @@
+Artículo 59.—Si el Departamento de Proveeduría o la Unidad Usuaria invitan al menos a tres oferentes (con la salvedad indicada en el artículo 55) para que coticen en una compra directa, y transcurre el plazo dado en la invitación sin que estos respondan la compra se adjudicará con los que hayan cotizado.

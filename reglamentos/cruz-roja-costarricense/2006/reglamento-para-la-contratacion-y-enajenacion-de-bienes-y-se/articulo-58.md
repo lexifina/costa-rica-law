@@ -1,0 +1,1 @@
+Artículo 58.—La Gerencia General aprobará o rechazará la procedencia de tales compras. El rechazo requiere ser fundamentado y el mismo debe ir acompañado de una solicitud de investigación para efectos de determinar las responsabilidades administrativas y económicas por el mal uso del procedimiento de adquisición.

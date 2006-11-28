@@ -1,0 +1,1 @@
+Artículo 3º—Cuando no exista en este reglamento, ni en otras disposiciones normativas de la Asociación, disposición concreta que rija determinada materia o caso, se aplicarán, por su orden y en lo pertinente, los principios generales sobre contratación administrativa, la Ley de Contratación Administrativa y su reglamento, y las leyes mercantiles.

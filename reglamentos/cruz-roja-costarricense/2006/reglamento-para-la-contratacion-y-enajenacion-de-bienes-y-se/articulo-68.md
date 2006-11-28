@@ -1,0 +1,3 @@
+Artículo 68.—La evaluación de las ofertas en las contrataciones restringidas también se hará en función de los factores mínimos de evaluación. Estos requieren que sean conocidos por el oferente de previo.
+Sin embargo, en la resolución de adjudicación, debe indicarse las razones de la escogencia.
+En la compra directa simplemente se procederá a aceptar o rechazar la oferta del proveedor(es) contactado(s). Se podrán establecer los parámetros de calificación de cada contratación en función a sus características, siempre y cuando la calificación propuesta permita valorar claramente cada posible oferta.

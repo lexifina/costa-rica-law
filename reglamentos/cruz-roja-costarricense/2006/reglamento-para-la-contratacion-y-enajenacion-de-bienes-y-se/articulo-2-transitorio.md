@@ -1,0 +1,1 @@
+Transitorio II.—Mientras no se cree la normativa indicada para compras realizadas con fondos propios e inferiores a ¢2.000.000,00 (dos millones de colones), se utilizará el “Manual de procedimiento de administración y manejo de caja chica” en lo que no sea incompatible con este reglamento.

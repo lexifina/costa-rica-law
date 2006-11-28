@@ -1,0 +1,1 @@
+Artículo 14.—La unidad usuaria es responsable de que las respectivas solicitudes de bienes o servicios con las especificaciones suficientes coincidan con los ingresos presupuestados y aprobados para su dependencia durante ese periodo.

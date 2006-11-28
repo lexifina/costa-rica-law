@@ -1,0 +1,2 @@
+Artículo 110.—En caso de no existir postores, se sacará nuevamente a remate si la unidad usuaria así lo desea. En caso contrario deberá comunicar al Departamento de Transportes qué destino le asignará al vehículo. Ningún vehículo podrá ser traspasado por un procedimiento diferente al de remate.
+Después de efectuar tres remates de un mismo vehículo, la Comisión de Remates queda facultada para fijar el valor base del mismo, en coordinación con el jerarca máximo de la unidad usuaria.

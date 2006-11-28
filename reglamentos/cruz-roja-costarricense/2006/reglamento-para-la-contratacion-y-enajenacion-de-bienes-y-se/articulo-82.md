@@ -1,0 +1,1 @@
+Artículo 82.—Cuando algún proveedor no cumpla con el contenido de la orden de compra confeccionada por su participación en la contratación y no exista una razón justificada para la no entrega de los bienes o servicios contratados, podrá ser excluido del registro de proveedores. Tal resolución puede ser impugnada por el procedimiento indicado en el artículo anterior.

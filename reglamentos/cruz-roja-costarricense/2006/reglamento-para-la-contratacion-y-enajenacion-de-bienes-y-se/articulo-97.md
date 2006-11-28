@@ -1,0 +1,1 @@
+Artículo 97.—Recopilados los documentos los remitirá a la Comisión de Transportes para que esta los analice y una vez aprobados solicite al Consejo Nacional la autorización para la realización del remate.

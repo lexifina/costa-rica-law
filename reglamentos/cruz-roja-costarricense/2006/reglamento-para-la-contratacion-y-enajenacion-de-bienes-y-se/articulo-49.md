@@ -1,0 +1,1 @@
+Artículo 49.—Salvo otra indicación en el cartel, dentro de los 15 días hábiles posteriores a la recepción de la recomendación de adjudicación, el Consejo Nacional procederá a adjudicar la contratación. Si las ofertas no son convenientes a los intereses de la Asociación el Consejo Nacional debe declarar desierto el procedimiento adquisitorio.

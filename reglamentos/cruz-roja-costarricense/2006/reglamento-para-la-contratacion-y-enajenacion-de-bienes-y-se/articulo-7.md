@@ -1,0 +1,1 @@
+Artículo 7º—La Asesoría Legal es la entidad responsable de brindar la asesoría jurídica requerida en materia de contratación. Es responsable de la revisión jurídica de las ofertas y de los contratos respectivos. Los contratos deben ser enviados a la Asesoría Legal de previo a la firma del representante legal de la Asociación.

@@ -1,0 +1,1 @@
+Artículo 77.—Las solicitudes de incorporación al registro de proveedores podrán ser formuladas por los interesados en cualquier momento, dirigidas al Departamento de Proveeduría, aportando la información indicada en el artículo 12 inciso f de este reglamento.

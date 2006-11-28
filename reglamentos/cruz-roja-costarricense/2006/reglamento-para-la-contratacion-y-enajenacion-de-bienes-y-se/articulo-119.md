@@ -1,0 +1,1 @@
+Artículo 119.—Podrá interponer el recurso de objeción todo oferente potencial o su representante, cuando se considere que ha existido infracción a los principios vigentes de contratación administrativa.

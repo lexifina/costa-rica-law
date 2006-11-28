@@ -1,0 +1,1 @@
+Artículo 116.—El Consejo Nacional deberá además indicar un medio de pago seguro a utilizarse en la adquisición internacional. En la adquisición internacional deberá procurarse siempre la adquisición de bienes o servicios que tengan una garantía funcional para la Asociación.

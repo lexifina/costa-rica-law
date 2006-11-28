@@ -1,0 +1,3 @@
+Artículo 86.—Para la entrega de los cheques de pago o las garantías de participación y de cumplimiento, el Departamento Financiero Contable exigirá que el proveedor presente una autorización escrita para que determinada persona pueda realizar dicho retiro, quien deberá presentar su documento de identificación para efectuarlo.
+Cuando una de las personas autorizadas deje de laborar para la empresa, o bien, cuando la empresa los haya desautorizado, la empresa debe comunicarlo a la Asociación.
+La Asociación no es responsable por el pago realizado en contravención a lo aquí dispuesto por negligencia de la empresa adjudicataria.

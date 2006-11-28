@@ -1,0 +1,3 @@
+SECCIÓN III
+Recurso de apelación
+Artículo 123.—Cabrá recurso de apelación en todos los casos donde proceda el recurso de revocatoria y se interpongan dentro del plazo establecido únicamente éste, o ambos en un mismo escrito. Este deberá ser debidamente fundamentado. El recurso de apelación deberá indicar, además de los requisitos del recurso de revocatoria, la infracción sustancial del ordenamiento jurídico que se alega como fundamento de la impugnación. Declarado sin lugar el recurso de revocatoria y en caso de que el recurso de apelación cumpla con los requisitos formales, se elevará éste ante el Consejo Nacional, quien lo resolverá en definitiva.

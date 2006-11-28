@@ -1,0 +1,1 @@
+Artículo 69.—Una vez subsanados los defectos, la Comisión de Contratación procederá a realizar el análisis correspondiente para la recomendación de la adjudicación al Consejo Nacional, y procediendo con la publicación y/o notificación de la adjudicación, de igual forma al método utilizado para invitar a ofertar.

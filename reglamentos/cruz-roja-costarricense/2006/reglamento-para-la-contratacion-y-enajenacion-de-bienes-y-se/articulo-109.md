@@ -1,0 +1,1 @@
+Artículo 109.—Una vez finalizado el remate, el Coordinador de la Comisión de Remate remitirá a la Asesoría Legal el expediente con los documentos correspondientes al remate, así como una copia del acta a efecto de que confeccione la escritura de traspaso en la Sede Central de la Asociación.

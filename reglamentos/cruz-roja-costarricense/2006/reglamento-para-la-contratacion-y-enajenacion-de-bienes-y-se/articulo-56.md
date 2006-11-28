@@ -1,0 +1,1 @@
+Artículo 56.—La Asociación invitará a participar al menos a tres proveedores acreditados en el registro respectivo. En caso de que el número de proveedores inscritos sea inferior a tres de dejará constancia de lo anterior en el expediente. La adjudicación corresponde a la Gerencia General previa recomendación del Departamento de Proveeduría.

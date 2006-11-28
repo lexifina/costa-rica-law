@@ -1,0 +1,2 @@
+Artículo 10.—La unidad usuaria es la dependencia que solicita el bien o servicio que se requiere. Es la responsable del control, trámite de ejecución, supervisión, seguimiento y vigencia de los contratos que origine su solicitud.
+La unidad usuaria debe enviar los contratos que estén pendientes de suscribir por el representante legal de la Asociación a la Asesoría Legal para su revisión previa, conforme el artículo 7 de este Reglamento.
