@@ -17,3 +17,4 @@ Reglamento General de Crédito
 | 2 | 2005-11-30 | Reglamento 132 (2005-11-30) |
 | 3 | 2006-05-31 | Reglamento 60 (2006-05-31) |
 | 4 | 2006-08-07 | Reglamento 0 (2006-08-07) |
+| 5 | 2006-11-29 | Reglamento 0 (2006-11-29) |
