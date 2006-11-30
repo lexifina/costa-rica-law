@@ -1,0 +1,1 @@
+Artículo 7º—La unidad de Recursos Humanos debe realizar las debidas comprobaciones en los diferentes entes y dará el visto bueno en caso de proceder al pago, mediante pronunciamiento en un plazo de 15 días hábiles incluyendo el calculo del importe por reconocer y la fecha a partir de la cual se hace el reconocimiento.

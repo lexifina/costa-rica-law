@@ -1,0 +1,1 @@
+Artículo 8º—La Unidad de Recursos Humanos informará al Alcalde Municipal, sobre el importe a reconocer y este autorizará a la Dirección Financiera o Contador Municipal a presupuestar las sumas correspondientes en el primer presupuesto del ejercicio económico.
