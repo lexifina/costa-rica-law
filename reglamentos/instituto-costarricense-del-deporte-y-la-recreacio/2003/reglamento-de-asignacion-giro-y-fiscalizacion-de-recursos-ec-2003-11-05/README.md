@@ -15,3 +15,4 @@ Reglamento de Asignación, Giro y Fiscalización de Recursos Económicos destina
 | --- | --- | --- |
 | 1 | 2003-12-19 | la propia norma |
 | 2 | 2005-09-22 | Reglamento 452 (2005-09-22) |
+| 3 | 2006-11-30 | Reglamento 517 (2006-11-30) |
