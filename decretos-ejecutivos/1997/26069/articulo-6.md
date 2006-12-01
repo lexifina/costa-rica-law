@@ -1,2 +1,0 @@
-Artículo 6°— Traspaso de cuotas a la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
-La Tesorería Nacional realizará el traspaso de las cuotas a que se refieren los artículos 4 y 5 de este reglamento, en diez tractos, pagaderos anualmente en el primer trimestre de cada año, en títulos indexables del Estado (TUDES) en plazos de diez, quince y veinte años, por montos iguales para cada plazo.

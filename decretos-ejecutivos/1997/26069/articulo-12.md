@@ -1,4 +1,0 @@
-Artículo 12— Comunicación de la exclusión e inclusión. Trámites.
-El departamento de personal o de recursos humanos correspondiente informará al interesado el mes a partir del cual efectivamente ha sido trasladado al Seguro de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social.
-También enviara copia a la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social, a la Junta de Pensiones y Jubilaciones del Magisterio Nacional, a la Contabilidad Nacional, al Departamento de Administración de Cuenta Individual de la Caja Costarricense de Seguro Social y a la Dirección de Presupuesto Nacional, con indicación del número de cédula, número de patrono y nombre del trabajador.
-Esta comunicación deberá hacerla dentro de los cinco días hábiles siguientes a aquel en que efectivamente se realizó la exclusión.

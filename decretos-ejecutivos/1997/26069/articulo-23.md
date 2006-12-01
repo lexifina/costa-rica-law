@@ -1,2 +1,0 @@
-Artículo 23— Liquidación actuarial. Comunicación a los interesados.
-La Tesorería Nacional deberá publicar, en un diario de circulación nacional, en forma mensual, los nombres de los interesados para los cuales exista ya el reporte de su liquidación actuarial, conforme ha sido aprobada por la Dirección General de Presupuesto Nacional y el título emitido y pondrá a su disposición una copia de dicho reporte, en el caso de que le sea solicitado.
