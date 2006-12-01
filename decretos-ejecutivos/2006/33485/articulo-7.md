@@ -1,0 +1,1 @@
+Artículo 7º—Para la renovación de los documentos de residencia en 2007 o 2008, según los artículos anteriores, se deberá cancelar los impuestos de ley correspondientes y los costos por la emisión de documento.

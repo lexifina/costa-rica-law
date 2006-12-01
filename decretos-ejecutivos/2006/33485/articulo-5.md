@@ -1,0 +1,1 @@
+Artículo 5º—Los documentos de residencia de extranjeros que hayan obtenido esa condición no por el Régimen de Excepción 1999, sino por las vías ordinarias, que vayan a vencer en diciembre del 2006, se entenderán por renovados hasta diciembre del 2007.

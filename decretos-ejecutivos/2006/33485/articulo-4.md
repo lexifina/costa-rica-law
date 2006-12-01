@@ -1,0 +1,1 @@
+Artículo 4º—Los documentos de residencia de extranjeros que hayan obtenido esa condición no por el Régimen de Excepción 1999, sino por las vías ordinarias, que hayan vencido entre el 1 de julio al 30 de noviembre del 2006, se entenderán por renovados hasta el mes que corresponda en 2007.

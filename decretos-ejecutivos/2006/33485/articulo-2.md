@@ -1,0 +1,1 @@
+Artículo 2º—Los documentos de residencia de extranjeros beneficiados con el Régimen de Excepción 1999, que deban ser renovados entre los meses de julio a diciembre del 2007, se deberán renovar de manera ordinaria, en el mes de vencimiento en el 2007, conforme al decreto Nº 32638-G.

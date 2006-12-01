@@ -1,0 +1,1 @@
+Artículo 6º—Los documentos de residencia de extranjeros que hayan obtenido esa condición no por el Régimen de Excepción 1999, sino por las vías ordinarias, que vayan a vencer entre el 1º de enero al 30 de noviembre del 2007, se entenderán como renovados hasta el mes que corresponda en el año 2008.

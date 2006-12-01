@@ -1,0 +1,1 @@
+Artículo 3º—Los documentos de residencia de extranjeros que hayan obtenido esa condición no por el Régimen de Excepción 1999, sino por las vías ordinarias, que se encuentren vencidos hasta el 30 de junio de 2006, se tendrán por renovados automáticamente hasta el primero de julio del 2007.
