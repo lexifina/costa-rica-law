@@ -1,0 +1,1 @@
+Artículo 7º—Promoción. Para el logro de los objetivos inherentes en este Reglamento, se considerará prioritaria, en el desarrollo de las ferias o eventos internacionales, la promoción de coediciones y la venta de derechos de publicación de obras de autores de la ECR.

@@ -1,0 +1,1 @@
+Artículo 10.—Material publicitario. Para la promoción y divulgación de las obras de la ECR la Gerencia publicará, para su distribución gratuita en las ferias y eventos internacionales, un Catálogo actualizado de novedades y otras obras de interés permanente.
