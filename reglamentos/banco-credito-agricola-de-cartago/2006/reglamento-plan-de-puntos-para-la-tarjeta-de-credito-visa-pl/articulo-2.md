@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Podrán participar del presente plan de puntos, los tarjetahabientes de las tarjetas de crédito Visa Platinum y Visa Oro del Banco, exceptuando de este beneficio las tarjetas de crédito corporativas y las tarjetas para gasolineros y los convenios de Bancrédito Distribución.

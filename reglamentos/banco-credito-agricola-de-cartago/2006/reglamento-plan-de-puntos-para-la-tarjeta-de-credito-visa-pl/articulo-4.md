@@ -1,0 +1,6 @@
+Artículo 4º—Prohibiciones y excepciones. El plan para redimir puntos estará regido por las siguientes prohibiciones o excepciones de aplicación:
+A. Los puntos asignados no tendrán valor comercial, excepto para ser redimidos a través de este plan de puntos ante el Banco.
+B. El Banco excluirá del plan de puntos la acumulación de éstos sobre transacciones determinadas fraudulentas y de acuerdo con lo establecido por la reglamentación de Visa Internacional.
+C. Para que el tarjetahabiente pueda redimir los puntos acumulados, deberá estar al día con todas sus obligaciones ante el Banco.
+D. El tarjetahabiente perderá los puntos acumulados al dar por terminada la relación Cliente - Banco mediante la cancelación de su tarjeta de crédito, o bien por encontrarse en cobro judicial en cualquier obligación con el Banco.
+E. El Banco se reserva el derecho de cancelar la suscripción al plan de puntos, en caso de que el tarjetahabiente incumpla alguna de las cláusulas indicadas en este Reglamento.
