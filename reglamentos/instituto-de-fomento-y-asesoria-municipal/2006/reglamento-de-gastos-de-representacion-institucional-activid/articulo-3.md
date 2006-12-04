@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde a la Dirección de Administración Interna verificar el correcto cumplimiento de este Reglamento, dependiendo del origen de los recursos del gasto a cubrir, según el medio de compras idóneo que corresponda.

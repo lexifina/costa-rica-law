@@ -1,0 +1,1 @@
+Artículo 7º—Los titulares de la Presidencia Ejecutiva y Dirección Ejecutiva en el ejercicio de sus funciones, podrán hacer uso de la partida presupuestaria de gastos de representación institucional bajo la modalidad de reembolso liquidables en un 100% en todos los casos, y podrá igualmente delegar su representación en cualquier funcionario del IFAM.

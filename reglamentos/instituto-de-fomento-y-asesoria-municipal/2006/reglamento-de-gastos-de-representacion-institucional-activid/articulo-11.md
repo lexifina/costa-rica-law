@@ -1,0 +1,1 @@
+Artículo 11.—Los gastos de Actividades Protocolarias y Sociales, se cubrirán por el medio idóneo que corresponda y son liquidables en un 100%; debiendo adjuntar la lista de participantes y, en su caso, la institución u organización a la que pertenece.

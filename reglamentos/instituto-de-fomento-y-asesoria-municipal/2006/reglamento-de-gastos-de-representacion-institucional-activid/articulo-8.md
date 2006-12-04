@@ -1,0 +1,1 @@
+Artículo 8º—Los gastos de representación institucional reembolsables se girarán por el medio idóneo que corresponda, para lo cual se requerirá la autorización expresa del titular de la Presidencia o Dirección Ejecutiva.

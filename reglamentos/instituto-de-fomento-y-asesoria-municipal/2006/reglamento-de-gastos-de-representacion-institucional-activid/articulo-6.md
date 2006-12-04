@@ -1,0 +1,1 @@
+Artículo 6º—Los gastos de representación reembolsables, no tienen limitación económica respecto a su quantum y pueden ser acreedores de los mismos los miembros de Junta Directiva por delegación expresa de la misma Junta.
