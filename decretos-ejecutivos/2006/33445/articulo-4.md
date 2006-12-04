@@ -1,0 +1,1 @@
+Artículo 4º—La Autoridad Presupuestaria considerará, a solicitud del Ministerio u órgano adscrito interesado, las plazas nuevas creadas en áreas de gran importancia para el desarrollo de las políticas gubernamentales que estén incluidas en el Presupuesto de la República para el año 2007.
