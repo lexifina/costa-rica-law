@@ -1,0 +1,1 @@
+Artículo 23.—Mecanismos de variación al presupuesto. El presupuesto aprobado podrá ser ajustado únicamente a través de los mecanismos y procedimientos establecidos por el ordenamiento jurídico vigente y por las instancias, internas y externas, competentes.

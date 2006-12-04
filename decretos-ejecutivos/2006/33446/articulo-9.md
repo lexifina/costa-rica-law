@@ -1,0 +1,1 @@
+Artículo 9º—Rol de los funcionarios de los programas presupuestarios. Los funcionarios de cada programa presupuestario son responsables por los resultados de su gestión física y financiera; asimismo, los titulares subordinados a cargo de los niveles programáticos son los responsables de planificar, accionar y dar seguimiento al proceso presupuestario.

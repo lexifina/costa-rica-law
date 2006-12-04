@@ -1,0 +1,1 @@
+Artículo 10.—Asignación de recursos a las unidades de apoyo. El jerarca y los titulares subordinados serán responsables de asignar los recursos humanos, materiales, tecnológicos y otros necesarios y suficientes, para que las unidades de apoyo encargadas de coordinar o intervenir directamente en el desarrollo de las diferentes fases del proceso presupuestario cumplan esa función.

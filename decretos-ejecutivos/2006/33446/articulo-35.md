@@ -1,0 +1,1 @@
+Artículo 35.—Evaluación sistemática y periódica. La administración deberá establecer los mecanismos que permitan realizar la evaluación presupuestaria, en forma sistemática y con la periodicidad establecida por las instancias internas y externas competentes.

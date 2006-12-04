@@ -1,0 +1,1 @@
+Artículo 31.—Rol de los funcionarios responsables del control presupuestario. Los funcionarios responsables del control presupuestario deberán verificar el cumplimiento de la normativa emitida por las instancias de control interno y externo competentes.

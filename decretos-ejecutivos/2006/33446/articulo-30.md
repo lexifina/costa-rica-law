@@ -1,0 +1,1 @@
+Artículo 30.—Acatamiento de la normativa emitida por instancias de control externo. El jerarca y titulares subordinados deberán tomar las previsiones y velar para que se cumpla la normativa emitida por las instancias de control externo competentes.

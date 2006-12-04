@@ -1,0 +1,1 @@
+Artículo 39.—Empleo y actualización de los sistemas externos de información. El jerarca de cada institución deberá establecer las acciones pertinentes para mantener actualizada la información y hacer un uso adecuado de los sistemas externos de información presupuestaria, conforme los requerimientos que sean establecidos por las instancias competentes.

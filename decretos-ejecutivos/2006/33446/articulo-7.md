@@ -1,0 +1,1 @@
+Artículo 7º—Diseño y aprobación de manuales y procedimientos. Corresponderá a la instancia interna o externa competente, preparar, aprobar, divulgar y propiciar el conocimiento de manuales que contengan los procedimientos, participación y responsabilidades de los funcionarios y unidades que intervienen en el desarrollo coordinado e integrado del proceso presupuestario.

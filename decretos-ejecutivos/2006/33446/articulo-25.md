@@ -1,0 +1,2 @@
+Artículo 25.—Justificación de los ajustes al presupuesto y vinculación con la planificación. Los ajustes al presupuesto deberán ser debidamente justificados, especialmente cuando respondan a cambios en los planes de corto, mediano y largo plazo; entre ellos el Plan Nacional de Desarrollo, cuando corresponda.
+De las citadas justificaciones se deberá dejar referencia en el expediente interno respectivo.

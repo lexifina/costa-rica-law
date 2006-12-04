@@ -1,0 +1,1 @@
+Artículo 32.—Evaluación periódica de los controles. Cada entidad deberá evaluar periódicamente los controles presupuestarios establecidos, con el fin de procurar una mejor asignación y utilización de los recursos presupuestarios y evitar su desperdicio y despilfarro, así como para ajustarlos a los requerimientos establecidos por las instancias internas y externas competentes.

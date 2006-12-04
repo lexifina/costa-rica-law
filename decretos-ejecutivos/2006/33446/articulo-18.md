@@ -1,0 +1,1 @@
+Artículo 18.—Nivel de aprobación presupuestaria interna. Corresponderá al órgano interno competente establecer el nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejercerá la aprobación presupuestaria interna.

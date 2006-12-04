@@ -1,0 +1,9 @@
+Artículo 12.—Ambiente propicio para la planificación y el desarrollo del proceso presupuestario. El jerarca y los titulares subordinados deben procurar que exista un ambiente propicio para la planificación y el desarrollo del proceso presupuestario, que permita su adecuada coordinación y vinculación. Para ello se deberán considerar al menos los siguientes criterios:
+a) Divulgar y propiciar el conocimiento de la misión, visión y políticas institucionales, así como los productos y servicios finales, la población beneficiaria, los requerimientos que ésta demanda y los efectos esperados y alcanzados de la gestión institucional.
+b) Divulgar y propiciar el conocimiento los planes de mediano y largo plazo, así como los compromisos asumidos por la institución en el Plan Nacional de Desarrollo, cuando corresponda.
+c) Tomar en cuenta los resultados de la evaluación de los planes de corto, mediano y largo plazo; entre ellos el Plan Nacional de Desarrollo, cuando corresponda.
+d) Formular distintos escenarios presupuestarios, tomando como referencia la programación macroeconómica, de manera que en forma posterior se facilite el ajustar el plan anual operativo a los recursos financieros finalmente autorizados en el presupuesto.
+e) Divulgar y dar conocer la normativa legal y técnica que rige cada una de las fases del proceso presupuestario.
+f) Formular distintos cursos de acción y elección, en procura de elegir la o las alternativas que permitan alcanzar los resultados esperados con la mayor eficacia, eficiencia, economía y transparencia posible.
+g) Establecer los mecanismos y parámetros que permitan la rendición de cuentas sobre la utilización de los recursos, los resultados y los impactos alcanzados.
+h) Definir los mecanismos que permitan que el desarrollo de las fases del proceso presupuestario se oriente al cumplimiento de los objetivos y metas definidos en el plan anual operativo.

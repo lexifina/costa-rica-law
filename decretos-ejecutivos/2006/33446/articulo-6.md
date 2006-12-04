@@ -1,0 +1,1 @@
+Artículo 6º—Competencias del jerarca y los titulares subordinados en la verificación del bloque de legalidad. El jerarca y los titulares subordinados, serán responsables por el cumplimiento del bloque de legalidad que regula cada una de las fases del proceso presupuestario, de manera que garanticen la gestión eficiente, eficaz y económica de los recursos públicos que administran.

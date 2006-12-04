@@ -1,0 +1,1 @@
+Artículo 38.—Medidas de seguridad para los sistemas de información internos. La Administración activa deberá diseñar, implantar y mantener medidas de seguridad para los sistemas internos de información relacionados con las diferentes fases del proceso presupuestario, de manera que se garantice su confiabilidad y la veracidad y exactitud de la información.
