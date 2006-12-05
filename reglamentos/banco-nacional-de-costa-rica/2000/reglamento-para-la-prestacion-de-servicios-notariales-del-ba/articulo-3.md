@@ -1,1 +1,1 @@
-Artículo 3°—Vigencia del Nombramiento como Notario Externo. El nombramiento de los notarios externos se hará por un período máximo de dos años, prorrogables por períodos sucesivos e iguales ajuicio de la Junta Directiva General, siempre que los servicios prestados hayan resultado satisfactorios en los términos del artículo 21 de este Reglamento, según la recomendación del Director Regional respectivo.
+Artículo 3º—Vigencia del nombramiento como Notario Externo. El nombramiento de los notarios externos se hará por un período máximo de cuatro años.

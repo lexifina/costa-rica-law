@@ -1,1 +1,1 @@
-Transitorio II.—Aplicación de las Sanciones por Incumplimiento. Las sanciones previstas en el Capítulo VI del Reglamento se aplicarán únicamente, ante situaciones generadas en los trabajos asignados a los notarios externos a partir de la vigencia del mismo.
+Transitorio II.—Aplicación de las sanciones por incumplimiento. Las sanciones previstas en el Capítulo VI del Reglamento se aplicarán únicamente, ante situaciones generadas en los trabajos asignados a los notarios externos a partir de la vigencia del mismo.

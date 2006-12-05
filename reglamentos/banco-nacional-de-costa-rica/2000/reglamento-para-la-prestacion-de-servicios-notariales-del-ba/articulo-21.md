@@ -1,12 +1,16 @@
-Articulo 21.—Criterios para la evaluación de los servicios notariales. El Centro de Administración de Crédito podrá realizar las evaluaciones que considere necesarias para determinar la calidad de los servicios prestados por los notarios externos.
-Para llevar a cabo tal propósito, podrá establecer los medios que considere necesarios para determinar la calificación, los cuales deberán ser de carácter enteramente Artículo 18° (continuación)
-Objetivo y conforme a las normas generalmente aceptadas en la práctica administrativa. Estas evaluaciones serán confidenciales y sólo serán utilizadas con el fin aquí descrito.
-Los servicios prestados por los notarios externos a los Centros de Administración de Crédito pueden ser calificados como satisfactorios e insatisfactorios.
-Dichas evaluaciones se harán como mínimo dos veces por año en los meses de marzo y setiembre, por parte de los Centros de Administración de Crédito correspondientes, para determinar si se renueva el nombramiento de los notarios externos, lo cual sucederá cuando su labor reciba el calificativo de satisfactorio en el último año.
-Cuando los Centros de Administración de Crédito realicen estas evaluaciones, tomarán en cuenta - al menos- los siguientes factores:
-1. En las escrituras otorgadas, se considerará la calidad, nitidez, errores, omisiones de condiciones crediticias aprobadas, correcciones, tiempo de devolución al Banco de la copia de escritura; tiempo de inscripción de la misma (para lo cual debe tomarse en cuenta si existen atrasos justificados).
-2. Presentación oportuna y puntual de informes bimestrales claros y a satisfacción del Banco.
-3. Sanciones impuestas por la Comisión de Servicios Notariales del Banco.
-4. Permanencia en el rol como miembro activo, inactividad en el rol por causas injustificadas.
+Artículo 21.—Criterios para la evaluación de los servicios notariales. Corresponderá al Centro de Administración de Crédito en las personas del Jefe de Crédito y Gerente de las Oficinas donde están nombrados los notarios verificar el cumplimiento de las obligaciones contractuales, legales y reglamentarias de los notarios externos adjudicados para el servicio, efectuando las evaluaciones correspondientes a cada notario y remitiéndolas a la Comisión de Servicios Notariales, quien dentro de los siguientes diez días hábiles remitirá a la Junta Directiva General del Banco un criterio recomendando o no la prórroga del contrato, respetando en todo momento el debido proceso a los notarios.
+Además el Centro de Administración de Crédito podrá realizar en cualquier momento las evaluaciones que considere necesarias para determinar la calidad de los servicios prestados por los notarios externos y elevarlas a conocimiento de la Comisión de Servicios Notariales para lo que corresponda.
+Para llevar a cabo tal propósito, podrá establecer los medios que considere necesarios para determinar la calificación, los cuales deberán ser de carácter enteramente objetivo y conforme a las normas generalmente aceptadas en la práctica administrativa.
+Dichas evaluaciones se harán como mínimo dos veces por año en los meses de marzo y setiembre, por parte de los Centros de Administración de Crédito para determinar si se renueva o no el nombramiento de los notarios externos, lo cual sucederá cuando su labor reciba el calificativo de satisfactorio o insatisfactorio en el último año calendario.
+Dichas evaluaciones deberán remitirse a las respectivas Comisiones de Servicios Notariales con copia al Director Regional de Riesgo y al Auditor Residente de las Direcciones Regionales que corresponda.
+Cuando los Centros de Administración de Crédito realicen estas evaluaciones, tomarán en cuenta -al menos- los siguientes factores: (debiendo de anotarlo en una bitácora o expediente de cada notario).
+1) En las escrituras otorgadas, se considerarán errores, omisiones de condiciones crediticias aprobadas, correcciones, tiempo de devolución al Banco de la copia de escritura; tiempo de inscripción de la misma (para lo cual debe tomarse en cuenta si existen atrasos justificados).
+2) Presentación oportuna y puntual de informes bimestrales claros y a satisfacción del Banco.
+3) Sanciones impuestas por la Comisión de Servicios Notariales del Banco.
+4) Cobro y cálculo correcto de honorarios.
+5) Ausencias sin justificación.
+6) Sus operaciones directas e indirectas con el BNCR deben encontrarse al día, así como con el cumplimiento de las condiciones y requisitos relacionados con las mismas.
+7) Puntualidad y firma de las escrituras en las Oficinas del BNCR.
 El Centro de Administración de Crédito enviará los resultados de las evaluaciones a la Comisión de Servicios Notariales respectiva, con copia al notario, el cual podrá presentar argumentos a su favor dentro del tercer día hábil después de recibida la comunicación.
-Sin perjuicio de lo anterior, tres meses antes de que venza el nombramiento de un notario en particular, el Centro de Administración de Crédito rendirá un informe sobre el desempeño del notario a la Comisión de Servicios Notariales.
+Si además el incumplimiento atañe a las obligaciones del ejercicio del notariado, se remitirá denuncia de ello a la Dirección Nacional de Notariado para lo que corresponda.
+Ver anexo 1: Sistema de evaluación de los servicios de notariado

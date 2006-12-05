@@ -1,1 +1,1 @@
-Artículo 42.—Prescripción de las Sanciones. Las sanciones previstas en este Reglamento, prescribirán de conformidad con las reglas establecidas en el artículo 35 de la Ley de Contratación Administrativa y 38 del Reglamento General de Contratación Administrativa.
+Artículo 42.—Prescripción de las sanciones. Las sanciones este Reglamento, prescribirán de conformidad con las reglas establecidas en el artículo 35 de la Ley de Contratación Administrativa y 38 del Reglamento General de Contratación Administrativa.
