@@ -14,3 +14,4 @@ Establece que el gasto total que realice cada institución descentralizada o emp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-10 | la propia norma |
+| 2 | 2006-12-06 | SINALEVI (sin norma nombrada) |

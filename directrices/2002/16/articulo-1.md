@@ -1,6 +1,8 @@
+(Anulada)
 N° 16
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
+(Esta directriz ha sido anulada mediante resolución de la Sala Constitucional N° 17600-06, de las 15:07 horas del 06 de diciembre del 2006.)
 En ejercicio de las atribuciones que les confieren los artículos 140, incisos 3), 7), 8), 18) y 20) y 146 de la Constitución Política, 4, 26, 27, 98, 100, 113 incisos 2) y 3) de la Ley General de la Administración Pública y 21 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.
 Considerando:
 1°—Que es interés prioritario del Gobierno de la República, lograr la austeridad en el gasto público, procurando un mejor ordenamiento fiscal, por medio de la reducción y racionalización del gasto de la Administración Pública, que redunde en un mayor desarrollo humano y asegurar el mínimo de condiciones necesarias para la preservación de un Estado Social de Derecho.
