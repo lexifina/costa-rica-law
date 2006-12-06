@@ -1,4 +1,4 @@
-Artículo 40.—De los prestamos de reparación, ampliación o remodelación de vivienda. Es requisito indispensable que el solicitante tenga como mínimo dos años ininterrumpidos de ser cotizante del Fondo y de estar en JAPDEVA, para ser sujeto de crédito de reparación, ampliación o remodelación de vivienda,
+Artículo 40.—De los prestamos de reparación, ampliación o remodelación de vivienda. Es requisito indispensable que el solicitante tenga como mínimo dos años ininterrumpidos de ser cotizante del Fondo y de estar en JAPDEVA, para ser sujeto de crédito de reparación, ampliación o remodelación de vivienda.
 Para reparación, ampliación o remodelación de vivienda, con un plazo máximo 15 años con interés 9% sobre saldos y un monto máximo de ¢3.000.000,00.
 Debido a la problemática de titulación de escrituras en la zona atlántica y debidamente justificado el caso, se podrá aceptar la garantía fiduciaria de por lo menos tres fiadores.
 Una vez que el interesado adquiera su título se presentará al Fondo a renovar la garantía para lo cual deberá autorizar los rebajos correspondientes de los gastos pertinentes.

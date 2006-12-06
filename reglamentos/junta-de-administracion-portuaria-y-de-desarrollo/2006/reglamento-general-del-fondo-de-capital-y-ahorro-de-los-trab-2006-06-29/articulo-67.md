@@ -1,3 +1,1 @@
-CAPÍTULO X
-De los medios de impugnación
-Artículo 67.—De las clases de recursos. Habrá dos tipos de recursos para ser ejercidos ante la Junta Administradora a saber: revocatoria y apelación.
+Artículo 67.—La negativa del deudor a presentar en el tiempo establecido los documentos justificadores de la aplicación del dinero recibido, o la comprobación durante el proceso de la ejecución del plan de inversión, dará derecho a la Junta para considerarla vencida y exigible ejecutivamente la totalidad de la deuda. A la vez quedará obligado a pagar el tipo de interés máximo vigente que para esa línea de crédito exista en el Sistema Bancario Nacional a esa misma fecha.

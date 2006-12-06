@@ -1,3 +1,3 @@
-CAPÍTULO XI
-Disposiciones finales
-Artículo 70.—Para reformar el presente reglamento se requiere una votación calificada de cuatro votos de los miembros de la Junta de Administración, siguiendo los procedimientos establecidos por el artículo 125 de la Convención Colectiva y la Legislación vigente y debe ser aprobado por la Junta Directiva de JAPDEVA y SINTRAJAP.
+CAPÍTULO IX
+Celebración de asambleas generales
+Artículo 70.—De conformidad con lo que establece el artículo 125 de la Convención Colectiva de Trabajo de JAPDEVA, se establece el presente Reglamento Interno de Funcionamiento de la Asamblea General del Fondo de Capital y Ahorro de los Trabajadores de JAPDEVA, la cual estará formada por todos los trabajadores afiliados al Fondo y amparados por la Convención Colectiva.

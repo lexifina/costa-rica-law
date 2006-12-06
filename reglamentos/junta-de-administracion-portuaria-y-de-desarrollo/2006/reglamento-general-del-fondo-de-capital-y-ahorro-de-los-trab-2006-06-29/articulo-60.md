@@ -1,3 +1,4 @@
-CAPÍTULO IX
-Celebración de asambleas generales
-Artículo 60.—De conformidad con lo que establece el artículo 125 de la Convención Colectiva de Trabajo de JAPDEVA, se establece el presente Reglamento Interno de Funcionamiento de la Asamblea General del Fondo de Capital y Ahorro de los Trabajadores de JAPDEVA. La cual estará formada por todos los trabajadores afiliados al Fondo y amparados por la Convención Colectiva.
+Artículo 60.—De las pólizas. Todo prestatario de crédito del Fondo debe suscribir y mantener una póliza de incendio a favor de JAPDEVA y una póliza colectiva de saldos deudores para todos los acreedores del Fondo.
+El Fondo automáticamente dentro de cada crédito rebajará la póliza que corresponda.
+En los préstamos para adquisición de vehículo, donde se ofrece en garantía el auto, el Fondo incluirá en la cuota mensual el monto correspondiente a todas las coberturas de riesgo, durante todo el plazo que dure el préstamo.
+El propietario en todas las pólizas tiene que dejar como acreedor a JAPDEVA (Fondo de Capital y Ahorro).

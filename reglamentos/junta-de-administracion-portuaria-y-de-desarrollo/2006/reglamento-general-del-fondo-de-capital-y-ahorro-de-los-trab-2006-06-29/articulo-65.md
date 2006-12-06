@@ -1,2 +1,2 @@
-Artículo 65.—Para efecto de los nombramientos de representantes propietario y suplente en el Fondo, resultará electo quien alcance la mayoría simple de los votos de los afiliados(a) presentes; en cualquier asunto sometido a votación a la Asamblea se seguirá similar criterio.
-La votación será Secreta, mediante boletas que se entregará a cada Asociado en el momento de la votación.
+Artículo 65.—De las garantías privilegiadas. Los saldos acreditados a cada trabajador servirán de garantía privilegiada aplicable luego de un atraso de dos mensualidades consecutivas. Si aún así se mantienen saldos al descubierto se tramitará el cobro judicial.
+Todas las partes involucradas deben firmar un documento de autorización para que tanto los ahorros de los fiadores como de los deudores se apliquen por medio de la administración del Fondo, en caso de deudas pendientes, sean deudas del deudor o de los fiadores.

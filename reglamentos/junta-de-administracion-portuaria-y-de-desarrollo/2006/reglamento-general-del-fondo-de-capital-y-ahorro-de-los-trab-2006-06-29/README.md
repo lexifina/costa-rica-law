@@ -14,3 +14,4 @@ Reglamento General del Fondo de Capital y Ahorro de los Trabajadores de JAPDEVA 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-21 | la propia norma |
+| 2 | 2006-12-06 | Reglamento 0 (2006-12-06) |

@@ -1,4 +1,2 @@
-Artículo 68.—Del recurso de revocatoria. El recurso de revocatoria procede contra las decisiones que emanen del seno de la Junta Administradora.
-Podrá ser interpuesto en forma verbal o escrita por cualquier directivo ya sea en el mismo momento en que se adopte la decisión, o en sesión posterior fundamentando debidamente la solicitud.
-En la misma forma establecida anteriormente, cualquier asociado o funcionario del Fondo que se vea afectado por un acuerdo o decisión de la Junta Administradora podrá plantear un recurso en forma escrita.
-Los recursos de revocatoria interpuestos serán resueltos en la misma sesión o bien en la siguiente según sea el caso, salvo que la Junta considere necesario más tiempo para resolverlo, pero en ningún caso podrá excederse de 30 días hábiles para fallarlo. Si no hubiese decisión se tendrá por rechazado.
+Artículo 68.—La Junta del Fondo podrá revisar y variar cada seis meses las condiciones de los préstamos en lo referente a montos, plazos y tasas de interés, con previa audiencia conferida a las Juntas Directivas de JAPDEVA y SINTRAJAP para que se pronuncien al respecto.
+Esta variación no tendrá efectos retroactivos a los créditos ya formalizados.
