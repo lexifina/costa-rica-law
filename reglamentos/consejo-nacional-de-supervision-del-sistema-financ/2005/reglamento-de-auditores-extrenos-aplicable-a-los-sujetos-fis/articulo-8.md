@@ -1,1 +1,2 @@
-Artículo 8º—Rotación. Los sujetos fiscalizados deberán cambiar al profesional o firma auditora que realiza la auditoría de sus estados financieros al menos cada cinco años. El profesional o firma auditora podrá ser contratado nuevamente para brindar servicios de auditoría externa transcurridos tres años continuos contados a partir de la fecha del último informe de auditoría realizado por dicho profesional o firma.
+Artículo 8º— Anulado.
+(Anulado mediante resolución de la Sala Constitucional N° 17599 del 06 de diciembre de 2006).
