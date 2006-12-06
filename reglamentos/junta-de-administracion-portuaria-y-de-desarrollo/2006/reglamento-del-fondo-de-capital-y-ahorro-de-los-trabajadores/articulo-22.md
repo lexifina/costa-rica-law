@@ -1,4 +1,0 @@
-Artículo 22.—De la votación. Los acuerdos se tomarán por mayoría simple (la mitad más uno), salvo los casos donde se exige mayoría calificada (las dos terceras partes). En los casos en que el quórum esté conformado por solo tres directivos, los acuerdos serán tomados con cada una de las partes representativas. Los acuerdos serán firmes a partir de la aprobación en firme del acta con la salvedad de lo estipulado en el capítulo correspondiente a los recursos.
-El secretario consignará el resultado de las votaciones y a petición de alguno de los miembros consignará el razonamiento del voto. Los votos negativos podrán consignarse y razonarse.
-Se requiere mayoría calificada para realizar reformas al Reglamento General del Fondo y para nombrar y destituir miembros de la Junta Administradora.
-Se requiere unanimidad para declarar en firme los acuerdos en el momento en que son tomados.

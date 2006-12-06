@@ -1,1 +1,0 @@
-Artículo 35.—De los requisitos para la solicitud de crédito. La Junta Administrativa del Fondo establecerá y publicará en los diferentes centros de trabajo los requisitos básicos que deben cumplir cada interesado por cada línea de crédito.

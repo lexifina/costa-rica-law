@@ -1,1 +1,0 @@
-Artículo 46.—Lugar de explotación de la microempresa. No se otorgarán créditos para microempresas que vayan a ser explotadas fuera de la provincia de Limón, exceptuando los de aquellos trabajadores que laboren en las oficinas de JAPDEVA fuera de la provincia de Limón.
