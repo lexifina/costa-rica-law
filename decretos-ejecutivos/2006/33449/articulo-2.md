@@ -1,0 +1,19 @@
+Artículo 2º—Modifícase el artículo 2º de la Ley Nº 8490 o Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico de 2006, publicada en el Alcance Nº 49 a La Gaceta Nº 253 de 30 de diciembre de 2005, en la forma que se indica a continuación:
+EN PÁGINA PP-211-085
+Donde dice:
+G-O FF C-E CF I-P
+70302 280 2320 3230 200 FUNDACION RAHAB (CONSTRUCCIÓN DE AULAS, OFICINAS Y TALLERES DE CAPACITACIÓN).
+Debe decir:
+G-O FF C-E CF I-P
+70302 280 2320 3230 200 FUNDACION RAHAB (CONSTRUCCIÓN
+DE AULAS, OFICINAS Y TALLERES
+DE CAPACITACIÓN).
+Cédula Jurídica: 3-006-223455
+EN PÁGINA PP-216-023
+Donde dice:
+PROGRAMA 796
+POLÍTICA COMERCIAL EXTERNA UNIDAD EJECUTORA
+DIRECCIÓN NEGOCIACIONES COMERCIALES
+Debe decir:
+PROGRAMA 796
+POLÍTICA COMERCIAL EXTERNA UNIDAD EJECUTORA DESPACHO DEL MINISTRO
