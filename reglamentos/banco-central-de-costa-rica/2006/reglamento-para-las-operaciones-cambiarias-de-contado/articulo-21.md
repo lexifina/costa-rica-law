@@ -1,5 +1,6 @@
 Artículo 21.—De los tipos de Sanciones y Situaciones en que proceden.
-A. Ante un primer incumplimiento de las regulaciones cambiarias, se cursará una amonestación por escrito por parte de la Junta Directiva del Banco Central de Costa Rica y se dará un plazo de un día hábil para subsanar el incumplimiento, caso contrario, se procederá de conformidad con el siguiente inciso.
+A. Ante un primer incumplimiento de las obligaciones estipuladas en la Ley Orgánica del Banco Central de Costa Rica o en el presente Reglamento, se impondrá una amonestación por escrito por parte de la Junta Directiva del Banco Central de Costa Rica. Independientemente de la sanción anterior, la entidad deberá regularizar su situación dentro del día hábil siguiente; caso contrario, esta omisión será considerada, para efectos sancionatorios, como un segundo incumplimiento.
+(Así reformado el punto anterior mediante sesión N° 5308 del 6 de diciembre del 2006)
 B. Por un segundo y hasta un tercer incumplimiento en un período de un año, le corresponde a la Junta Directiva del Banco Central de Costa Rica aplicar una suspensión para participar en el mercado cambiario de acuerdo con el siguiente esquema:
 1. Por el atraso en el pago al Banco Central de Costa Rica del porcentaje correspondiente al margen de intermediación cambiaria:
 a. De dos días hábiles si el atraso es de un día hábil.
@@ -28,4 +29,6 @@ b. De cinco días hábiles si el atraso es de cuatro a cinco días hábiles.
 c. De diez días hábiles si el atraso es de seis a nueve días hábiles.
 d. De quince días hábiles si el atraso es de diez días hábiles o más.
 Todo lo anterior, sin menoscabo de las sanciones que procedan por otros incumplimientos.
+5. Por infringir cualquier otra obligación dispuesta en la Ley Orgánica del Banco Central de Costa Rica o en este Reglamento, la suspensión de la participación en el mercado cambiario por el término de uno a treinta días hábiles, para lo cual se tomará en cuanta la naturaleza, gravedad, las consecuencias y cualquier otro aspecto relevante del incumplimiento.
+(Así adicionado el punto anterior mediante sesión N° 5308 del 6 de diciembre del 2006)
 C. En caso de más de tres violaciones a las disposiciones establecidas por la Ley Orgánica del Banco Central de Costa Rica en materia cambiaria en un período de dos años, se cancelará la autorización de participar en el mercado cambiario por un plazo de dos años.

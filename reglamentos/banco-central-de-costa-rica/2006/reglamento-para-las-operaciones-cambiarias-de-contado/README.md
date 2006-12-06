@@ -14,3 +14,4 @@ Reglamento para las Operaciones Cambiarias de Contado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-20 | la propia norma |
+| 2 | 2006-12-06 | Reglamento 5308 (2006-12-06) |
