@@ -1,0 +1,1 @@
+Artículo 4º—Crear un Comité Ejecutivo para que coordine y facilite el desarrollo y la ejecución de las actividades derivadas de las decisiones del Presidente respecto de la Iniciativa Paz con la Naturaleza. Dicho Comité, en consulta con la Comisión Presidencial, podrá disponer la conformación de Comisiones de Trabajo para atender aspectos específicos de esta Iniciativa.

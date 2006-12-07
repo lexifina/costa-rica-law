@@ -1,0 +1,1 @@
+Artículo 7º—La Oficina Ejecutiva estará integrada por el señor Pedro León Azofeifa, cédula de identidad Nº 9-024-518, como Coordinador General, así como por el personal profesional, administrativo, técnico y de apoyo necesario para el adecuado desempeño de sus responsabilidades.

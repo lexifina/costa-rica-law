@@ -1,0 +1,1 @@
+Artículo 6º—Crear una Oficina Ejecutiva adscrita a la Presidencia de la República para apoyar al Comité Ejecutivo y a la Comisión Presidencial en el desarrollo de las tareas y acciones necesarias para implementar las decisiones tomadas dentro del marco de la Iniciativa “Paz con la Naturaleza”, la cual podrá asimismo establecer sedes alternas
