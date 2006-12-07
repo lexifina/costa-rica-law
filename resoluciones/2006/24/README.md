@@ -14,3 +14,4 @@ Requisitos para Efectuar el Trámite de Legalización de Libros, uso de Formular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-15 | la propia norma |
+| 2 | 2006-12-07 | Resolución 28 (2006-12-07) |
