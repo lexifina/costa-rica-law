@@ -1,1 +1,0 @@
-Artículo 32.—El Departamento de Crédito realizara el análisis financiero de la empresa solicitante para determinar su situación, con base en los estados financieros auditados de los últimos cinco años. los flujos de caja de ese periodo y los estados financieros y flujos de caja proyectados por los siguientes dos años.

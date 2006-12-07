@@ -1,2 +1,0 @@
-Artículo 16.—Las garantías serán valoradas por peritos designados por la Caja Costarricense de Seguro Social, cuyos honorarios correrán por cuenta de los prestatarios, según tarifas fijadas por la Gerencia de Pensiones.
-Para la realización de sus funciones, dichos profesionales deberán ajustarse a los lineamientos establecidos en el "Instructivo que regula las relaciones entre la CCSS y los peritos, contratados para realizar avalúos de bienes inmuebles ofrecidos como garantía hipotecaria".

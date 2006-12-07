@@ -1,2 +1,0 @@
-DE LA SUPERVISIÓN E INSPECCIÓN PE OBRAS FINANCIADAS CON PRESTAMOS PARA CONSTRUCCION.
-Artículo 26.—La Sección Supervisora de Construcciones, por medio de los profesionales especializados, ejercerá el control necesario para determinar el avance de la obra. con el propósito de autorizar los desembolsos del préstamo otorgado. En el caso de que se observen cambios importantes en el tipo de construcción, variaciones en dimensiones y calidad de los materiales, los supervisores suspenderán la autorización de nuevos desembolsos, hasta tanto no se justifique la situación.

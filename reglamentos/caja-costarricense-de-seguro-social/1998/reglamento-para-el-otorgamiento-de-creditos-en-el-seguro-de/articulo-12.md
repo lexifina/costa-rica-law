@@ -1,1 +1,0 @@
-Artículo 12.—En ningún caso se aprobarán préstamos a favor de aquellas personas o empresas que estén morosas en la atención de sus obligaciones con la Caja, en su condición de contribuyentes, en el pago de préstamos, auxilios especiales reembolsables u otras obligaciones.

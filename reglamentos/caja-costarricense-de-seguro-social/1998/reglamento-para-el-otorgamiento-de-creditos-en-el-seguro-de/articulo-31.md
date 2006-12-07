@@ -1,2 +1,0 @@
-DE LOS CRÉDITOS A EMPRESAS PRIVADAS
-Artículo 31.—Los préstamos a empresas privadas se orientarán únicamente a la compra o construcción de edificios para el desarrollo de su actividad comercial o industrial, y deben ser expresamente aprobados por la Junta Directiva, que será la encargada de definir el monto máximo a conceder, de acuerdo con el informe técnico pertinente. El plazo de dichos créditos no podrá ser en ningún caso mayor a diez años. Se aceptara solamente garantía hipotecaria de primer grado y se financiará hasta el 70% del avalúo o del costo del proyecto.

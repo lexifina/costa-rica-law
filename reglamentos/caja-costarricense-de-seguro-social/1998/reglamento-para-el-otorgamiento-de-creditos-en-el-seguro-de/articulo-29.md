@@ -1,1 +1,0 @@
-Artículo 29.—El Departamento de Crédito preparará un análisis financiero de la cooperativa o asociación solicitante, con el objeto de determinar su posición financiera. Dicho análisis se realizará con base en los estados financieros debidamente auditados de los últimos cinco años.

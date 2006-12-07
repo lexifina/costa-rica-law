@@ -1,1 +1,0 @@
-Artículo 21.—El monto del préstamo concedido para construcción se empezará a girar a los interesados una vez que la escritura se presente al Registro de la Propiedad. Solamente se hará el giro total del préstamo en ;1 acto de la firma de la escritura respectiva, cuando se trate de compra o cancelación de gravámenes hipotecarios que pesen sobre la propiedad ofrecida en garantía.

@@ -1,2 +1,0 @@
-DE LOS CRÉDITOS A COOPERATIVAS Y ASOCIACIONES SOLIDA PISTAS
-Artículo 28.—Los préstamos a cooperativas y asociaciones solidaristas se orientarán al desarrollo de programas de construcción de vivienda para los asegurados. Dichos préstamos deben ser expresamente aprobados por la Junta Directiva, que será la encargada de definir el monto máximo a conceder; y el plazo no podrá ser en ningún caso mayor a un año.

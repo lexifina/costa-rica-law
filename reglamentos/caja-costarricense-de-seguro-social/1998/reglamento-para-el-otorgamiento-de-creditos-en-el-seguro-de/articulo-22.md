@@ -1,1 +1,0 @@
-Artículo 22.—Al formalizarse la escritura de un crédito, el prestatario hará manifestación expresa de conocer las normas de este reglamento las cuales, para todos los efectos, se tendrán por incluidas en eI contrato del préstamo.

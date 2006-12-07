@@ -1,2 +1,0 @@
-Artículo 5°—Corresponde al Departamento de Crédito velar porque las inversiones con garantía hipotecaria, prendaria y fiduciaria cumplan los requisitos legales y reglamentarios pertinentes.
-Asimismo, será el encargado de realizar el estudio de costos de los proyectos de construcción, ampliación o mejoras que se realicen. Asimismo, recomendará a la Comisión de Crédito la viabilidad del proyecto, y una vez formalizado el crédito, deberá realizar la supervisión de la obra y autorizar los desembolsos de acuerdo con su avance.
