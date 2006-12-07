@@ -1,0 +1,1 @@
+Artículo 5º—Las instituciones públicas que intervengan en los trámites previos de comercio exterior están obligadas a realizar las acciones necesarias para implementar de forma ágil y eficiente la utilización de medios electrónicos compatibles con los del Servicio Nacional de Aduanas y PROCOMER.

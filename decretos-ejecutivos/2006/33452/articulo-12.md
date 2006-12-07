@@ -1,0 +1,1 @@
+Artículo 12.—La Promotora del Comercio Exterior de Costa Rica actuará como secretaría técnica del Consejo Director, con el fin de darle seguimiento a los acuerdos, recomendaciones y acciones emanadas del Consejo.

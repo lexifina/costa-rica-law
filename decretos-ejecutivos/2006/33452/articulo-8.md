@@ -1,0 +1,1 @@
+Artículo 8º—La coordinación del Sistema de Ventanilla Única de Comercio Exterior se llevará a cabo por medio de un Consejo Director, integrado por representantes de alto nivel de las instituciones y organismos indicados en el artículo 11 del presente reglamento.

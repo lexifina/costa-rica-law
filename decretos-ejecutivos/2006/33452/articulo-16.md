@@ -1,0 +1,1 @@
+Artículo 16.—Derógase el Reglamento del Sistema de Ventanilla Única de Comercio Exterior y de Trámites Fronterizos, Decreto Ejecutivo Nº 23141-COMEX-H-MIRENEM-MAG-MOPT-MP-S-GOB-SP-J del 17 de marzo de 1994, publicado en el Diario Oficial La Gaceta Nº 80 del 27 de abril de 1994.
