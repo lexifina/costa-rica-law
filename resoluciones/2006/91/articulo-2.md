@@ -1,0 +1,1 @@
+II.—Los presentes lineamientos derogan los “Lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y subauditor internos”, emitidos por la Contraloría General de la República, Nº L-I-2003-CO-DDI, publicado en el Diario Oficial La Gaceta Nº 205 del 24 de octubre del 2003.

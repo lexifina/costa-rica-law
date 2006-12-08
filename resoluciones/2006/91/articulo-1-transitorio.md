@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO
+Estos lineamientos serán aplicables desde su publicación, pero no podrá dárseles efecto retroactivo a aquellos actos que pudieran ir en perjuicio de los auditores internos, subauditores internos y demás funcionarios que presten sus servicios en las auditorías internas a la fecha de publicación de esta normativa. Por ende, las medidas adoptadas por la Administración que puedan presentar tal característica, incluidas las modificaciones de requisitos para los cargos respectivos, sólo tendrán efecto para los nombramientos que se realicen en el futuro.
