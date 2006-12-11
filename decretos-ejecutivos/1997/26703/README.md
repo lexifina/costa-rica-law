@@ -13,3 +13,4 @@ Establece Nivel Máximo Bromato Potasio en Harina de Panificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-02 | la propia norma |
+| 2 | 2006-12-11 | SINALEVI (sin norma nombrada) |
