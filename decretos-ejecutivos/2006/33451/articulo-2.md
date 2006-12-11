@@ -1,0 +1,1 @@
+Artículo 2º—Derógase el artículo 4° del Decreto Ejecutivo N° 23669-H, Normas para la Aplicación de la Dedicación Exclusiva para las Instituciones y Empresas Públicas Cubiertas por el Ámbito de la Autoridad Presupuestaria, publicado en La Gaceta N° 197 de 18 de octubre de 1994.
