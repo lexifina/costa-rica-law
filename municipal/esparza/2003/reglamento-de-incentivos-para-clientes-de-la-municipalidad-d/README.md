@@ -14,3 +14,4 @@ Reglamento de incentivos para clientes de la Municipalidad de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-01 | la propia norma |
+| 2 | 2006-12-11 | Reglamento municipal 0 (2006-12-11) |
