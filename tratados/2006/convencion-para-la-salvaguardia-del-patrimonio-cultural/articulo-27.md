@@ -1,0 +1,1 @@
+Artículo 27.—Contribuciones voluntarias complementarias al Fondo. Los Estados Partes que con carácter voluntario deseen efectuar otras contribuciones además de las previstas en el Artículo N° 26 informarán de ello lo antes posible al Comité, para que éste pueda planificar sus actividades en consecuencia.

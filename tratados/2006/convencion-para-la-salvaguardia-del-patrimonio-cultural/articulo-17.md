@@ -1,0 +1,4 @@
+Artículo 17.—Lista del patrimonio cultural inmaterial que requiere medidas urgentes de salvaguardia.
+1. Con objeto de adoptar las medidas oportunas de salvaguardia, el Comité creará, mantendrá al día y hará pública una Lista del patrimonio cultural inmaterial que requiera medidas urgentes de salvaguardia, e inscribirá ese patrimonio en la Lista a petición del Estado Parte interesado.
+2. El Comité elaborará y someterá a la aprobación de la Asamblea General los criterios por los que se regirán la creación, actualización y publicación de esa Lista.
+3. En casos de extrema urgencia, así considerados a tenor de los criterios objetivos que la Asamblea General haya aprobado a propuesta del Comité, este último, en consulta con el Estado Parte interesado, podrá inscribir un elemento del patrimonio en cuestión en la lista mencionada en el párrafo 1.

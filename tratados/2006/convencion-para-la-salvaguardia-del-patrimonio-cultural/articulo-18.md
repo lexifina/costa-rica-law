@@ -1,0 +1,4 @@
+Artículo 18.—Programas, proyectos y actividades de salvaguardia del patrimonio cultural inmaterial.
+1. Basándose en las propuestas presentadas por los Estados Partes, y ateniéndose a los criterios por él definidos y aprobados por la Asamblea General, el Comité seleccionará periódicamente y promoverá los programas, proyectos y actividades de ámbito nacional, subregional o regional para la salvaguardia del patrimonio que a su entender reflejen del modo más adecuado los principios y objetivos de la presente Convención, teniendo en cuenta las necesidades particulares de los países en desarrollo.
+2. A tal efecto, recibirá, examinará y aprobará las solicitudes de asistencia internacional formuladas por los Estados Partes para la elaboración de las mencionadas propuestas.
+3. El Comité secundará la ejecución de los mencionados programas, proyectos y actividades mediante la difusión de prácticas ejemplares con arreglo a las modalidades que haya determinado.

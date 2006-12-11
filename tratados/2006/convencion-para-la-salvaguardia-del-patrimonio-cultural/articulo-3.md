@@ -1,0 +1,3 @@
+Artículo 3º—Relación con otros instrumentos internacionales. Ninguna disposición de la presente Convención podrá ser interpretada de tal manera que:
+a) modifique el estatuto o reduzca el nivel de protección de los bienes declarados patrimonio mundial en el marco de la Convención para la Protección del Patrimonio Mundial, Cultural y Natural de 1972 a los que esté directamente asociado un elemento del patrimonio cultural inmaterial; o
+b) afecte los derechos y obligaciones que tengan los Estados Partes en virtud de otros instrumentos internacionales relativos a los derechos de propiedad intelectual o a la utilización de los recursos biológicos y ecológicos de los que sean partes.

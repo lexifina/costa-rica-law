@@ -1,0 +1,1 @@
+Artículo 28.—Campañas internacionales de recaudación de fondos. En la medida de lo posible, los Estados Partes prestarán su concurso a las campañas internacionales de recaudación que se organicen en provecho del Fondo bajo los auspicios de la UNESCO.

@@ -1,0 +1,11 @@
+Artículo 2º—Definiciones. A los efectos de la presente Convención,
+1. Se entiende por “patrimonio cultural inmaterial” los usos, representaciones, expresiones, conocimientos y técnicas -junto con los instrumentos, objetos, artefactos y espacios culturales que les son inherentes- que las comunidades, los grupos y en algunos casos los individuos reconozcan como parte integrante de su patrimonio cultural. Este patrimonio cultural inmaterial, que se transmite de generación en generación, es recreado constantemente por las comunidades y grupos en función de su entorno, su interacción con la naturaleza y su historia, infundiéndoles un sentimiento de identidad y continuidad y contribuyendo así a promover el respeto de la diversidad cultural y la creatividad humana. A los efectos de la presente Convención, se tendrá en cuenta únicamente el patrimonio cultural inmaterial que sea compatible con los instrumentos internacionales de derechos humanos existentes y con los imperativos de respeto mutuo entre comunidades, grupos e individuos y de desarrollo sostenible.
+2. El “patrimonio cultural inmaterial”, según se define en el párrafo 1 supra, se manifiesta en particular en los ámbitos siguientes:
+a) tradiciones y expresiones orales, incluido el idioma como vehículo del patrimonio cultural inmaterial;
+b) artes del espectáculo;
+c) usos sociales, rituales y actos festivos;
+d) conocimientos y usos relacionados con la naturaleza y el universo;
+e) técnicas artesanales tradicionales.
+3. Se entiende por “salvaguardia” las medidas encaminadas a garantizar la viabilidad del patrimonio cultural inmaterial, comprendidas la identificación, documentación, investigación, preservación, protección, promoción, valorización, transmisión -básicamente a través de la enseñanza formal y no formal- y revitalización de este patrimonio en sus distintos aspectos.
+4. La expresión “Estados Partes” designa a los Estados obligados por la presente Convención y entre los cuales ésta esté en vigor.
+5. Esta Convención se aplicará mutatis mutandis a los territorios mencionados en el artículo 33 que pasen a ser Partes en ella, con arreglo a las condiciones especificadas en dicho artículo. En esa medida la expresión “Estados Partes” se referirá igualmente a esos territorios.
