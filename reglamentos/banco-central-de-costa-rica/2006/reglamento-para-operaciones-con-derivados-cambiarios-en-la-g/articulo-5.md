@@ -1,0 +1,1 @@
+Artículo 5º—Finalidad de las operaciones con derivados cambiarios. Las operaciones permitidas podrán utilizarse como coberturas ante el riesgo cambiario o con fines de inversión. Sin embargo corresponderá a la SUGEF y el CONASSIF, según se trate de intermediarios o participantes, establecer los límites prudenciales que apliquen a estas operaciones.

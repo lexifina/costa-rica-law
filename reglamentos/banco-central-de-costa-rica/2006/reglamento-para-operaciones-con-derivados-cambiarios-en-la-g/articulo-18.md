@@ -1,0 +1,1 @@
+Artículo 18.—Liquidación de operaciones entre intermediarios del mercado cambiario y entidades públicas del Sector Público no Bancario. Estas operaciones mantendrán las restricciones establecidas por el BCCR y el ordenamiento jurídico para estos efectos.

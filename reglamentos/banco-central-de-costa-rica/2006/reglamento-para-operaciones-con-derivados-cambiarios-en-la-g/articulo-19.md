@@ -1,0 +1,1 @@
+Artículo 19.—Plazos máximos para la constitución de operaciones. Las operaciones de derivados se pactarán a un plazo mayor a 2 días hábiles para su liquidación. Los contratos a plazo tendrán un vencimiento máximo de 3 meses, las permutas cambiarias tendrán un plazo máximo de 6 meses y las permutas de moneda no tendrán restricción de plazo.

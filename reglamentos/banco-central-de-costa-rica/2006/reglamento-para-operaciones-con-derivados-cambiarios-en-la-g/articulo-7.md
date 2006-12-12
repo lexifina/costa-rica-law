@@ -1,0 +1,1 @@
+Artículo 7º—Participación de otras entidades fiscalizadas por el CONASSIF. Podrán participar como clientes en operaciones de derivados cambiarios aquellas otras entidades fiscalizadas por el CONASSIF siempre y cuando cuenten con la aprobación de su respectivo supervisor.

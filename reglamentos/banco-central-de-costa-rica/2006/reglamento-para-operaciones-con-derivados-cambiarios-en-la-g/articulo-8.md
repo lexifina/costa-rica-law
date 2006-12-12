@@ -1,0 +1,6 @@
+Artículo 8º—Requisitos para la autorización de “intermediarios del mercado de derivados cambiarios”. Las entidades interesadas en actuar como “intermediarios del mercado de derivados cambiarios” deberán presentar una solicitud formal a la SUGEF que cumpla con todos los requisitos que indique el reglamento que emitirá CONASSIF para este propósito.
+Los requisitos de autorización deberán corroborar al menos, la siguiente información:
+1. Documentos que demuestren el conocimiento y autorización por parte de la junta directiva de la entidad solicitante acerca del uso de este tipo de operaciones. (Aprobación de junta directiva, lista de operaciones que ofrecerán a sus clientes, políticas de manejo de riesgos asociados).
+2. Planes operativos aprobados por la junta directiva de la entidad, que respalden la ejecución de este tipo de operaciones (asignación de recursos, definición de estrategia del negocio, sistema de administración de riesgos, capacitación del personal).
+3. Un Informe de los auditores internos sobre los procesos, procedimientos, separación de funciones y sistemas de información implementados para la administración de estos instrumentos.
+El CONASSIF incluirá dentro del catálogo de cuentas lo que corresponda, para que estas entidades cuenten con un sistema contable que permita identificar las operaciones con derivados cambiarios.

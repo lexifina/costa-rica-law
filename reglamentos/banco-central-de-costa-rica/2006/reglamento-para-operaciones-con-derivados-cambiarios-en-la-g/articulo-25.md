@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia. El presente Reglamento regirá a partir de la vigencia que tendrá la reglamentación y normativa complementarias que el Consejo Nacional de Supervisión del Sistema Financiero emita sobre el particular.

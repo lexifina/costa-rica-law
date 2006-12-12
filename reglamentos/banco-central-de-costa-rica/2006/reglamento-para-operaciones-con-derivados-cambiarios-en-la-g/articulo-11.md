@@ -1,0 +1,1 @@
+Artículo 11.—Control de los requisitos de funcionamiento. La SUGEF verificará en forma constante, de acuerdo a sus políticas de supervisión prudencial, el cumplimiento de los requisitos establecidos en el artículo anterior.

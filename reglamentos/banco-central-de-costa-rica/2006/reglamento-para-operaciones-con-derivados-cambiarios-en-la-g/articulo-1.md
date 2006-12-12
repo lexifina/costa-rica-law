@@ -1,0 +1,16 @@
+(NOTA DE SINALEVI: El Banco Central de Costa Rica, mediante artículo 4 del acta de la sesión N° 5383 del 25 de junio del 2008, aprobó una nueva versión del Reglamento para operaciones con derivados cambiarios la cual puede consultarse en el sistema)
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, mediante numeral I, artículo 14 del Acta de la Sesión 5306-2006, celebrada el 22 de noviembre del 2006, considerando que:
+a) A partir 17 de octubre del presente año el Banco Central de Costa Rica implementó un nuevo sistema cambiario en el cual el tipo de cambio fluctúa dentro de una banda cambiaria, que incorpora un grado de incertidumbre sobre la trayectoria del tipo de cambio en el futuro. Esta situación implica un riesgo sobre los agentes económicos que dependiendo del grado de exposición y el impacto de la incertidumbre en sus negocios, podrían optar por mecanismos de cobertura de tales riesgos.
+b) En el nuevo régimen cambiario se podrá presentar volatilidad en el tipo de cambio y es necesario que los agentes económicos cuenten con mecanismos de cobertura del riesgo de variación en el mismo.
+c) El mercado de instrumentos de cobertura aún no existe en el país, por lo que se requiere brindar el inicio de un marco regulatorio general para la constitución de estas operaciones.
+d) El artículo 90 de la Ley Orgánica del Banco Central de Costa Rica dispone que esta Entidad Rectora deberá establecer la regulación de las operaciones cambiarias a plazo, al consignar de manera literal:
+“Las transacciones a futuro o a plazo y otras similares de moneda extranjeras, serán reguladas por el Banco Central y supervisadas por el ente que este determine, con los medios que considere oportunos”.
+e) La Junta Directiva del Banco Central de Costa Rica, mediante artículo 10 del acta de la sesión 5298-2006, celebrada el 4 de octubre del 2006, acordó remitir en consulta pública, con fundamento en lo dispuesto en el numeral 3) del artículo 361 de la Ley General de la Administración Pública, el proyecto de “Reglamento para operaciones con derivados cambiarios”, el cual fue publicado en el Diario Oficial La Gaceta Nº 200, del 19 de octubre del 2006.
+f) Hecho el análisis de las observaciones y comentarios recibidos, se efectuaron al citado cuerpo de normas las modificaciones que se estimaron necesarias. Lo anterior con el fin de que el Banco Central de Costa Rica cumpla con su competencia en esta materia, de conformidad con las funciones y objetivos que legalmente encomendados.
+g) No obstante, la normativa que al efecto emita esta Autoridad Monetaria debe complementarse con otro tipo de normas que dimensionen las transacciones con derivados cambiarios en la esfera de supervisión y fiscalización de las diferentes entidades que participan en nuestro mercado financiero,
+dispuso:
+Aprobar el “Reglamento para Operaciones con Derivados Cambiarios”, de conformidad con el texto que se inserta de inmediato:
+REGLAMENTO PARA OPERACIONES
+CON DERIVADOS CAMBIARIOS
+Artículo 1º—Objetivo. El presente Reglamento regula las operaciones de derivados cambiarios que involucren la participación de una entidad financiera supervisada por el CONASSIF; así como el suministro de información que requiere el Banco Central de Costa Rica sobre estas operaciones.

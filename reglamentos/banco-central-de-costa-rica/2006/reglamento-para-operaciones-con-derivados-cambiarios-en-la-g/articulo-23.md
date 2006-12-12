@@ -1,0 +1,1 @@
+Artículo 23.—Conservación de documentos. La documentación de respaldo de estas operaciones debe guardarse por un mínimo de 4 años a partir del cierre de la posición. El Banco Central de Costa Rica podrá solicitar cualquier información adicional que considere necesaria para el registro estadístico y el control de las operaciones de derivados cambiarios.

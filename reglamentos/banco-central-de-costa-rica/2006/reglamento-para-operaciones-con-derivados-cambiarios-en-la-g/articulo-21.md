@@ -1,0 +1,2 @@
+Artículo 21.—Obligación de suministro de información al BCCR y la SUGEF. Cada una de las operaciones deberá ser comunicada al Banco Central de Costa Rica de acuerdo a los formatos y medios que el ente emisor autorice. La información deberá enviarse en forma diaria sin indicar el nombre del cliente que realiza la operación.
+El BCCR, en conjunto con la SUGEF, emitirá un instructivo para el envío de la información.

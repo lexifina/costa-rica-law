@@ -1,0 +1,1 @@
+Artículo 22.—Errores y cambios en la información. En caso de errores o correcciones a los informes se deberá enviar el formulario debidamente corregido, indicando el número de consecutivo que reemplaza y una justificación del cambio.
