@@ -21,3 +21,4 @@ Reglamento del Estatuto de Servicios de Enfermería
 | 6 | 1994-08-01 | Decreto Ejecutivo 23546 (1994-08-01) |
 | 7 | 2000-02-18 | SINALEVI (sin norma nombrada) |
 | 8 | 2003-11-26 | Decreto Ejecutivo 31506 (2003-11-26) |
+| 9 | 2006-12-12 | Decreto Ejecutivo 33473 (2006-12-12) |

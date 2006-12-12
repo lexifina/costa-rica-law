@@ -2,119 +2,63 @@ CAPÍTULO IV
 De la descripción de los deberes y responsabilidades de las clases
 de puestos de enfermería y de sus requisitos
 Artículo 20.—
-a) AUXILIAR DE ENFERMERÍA 1 y 2:
-a.1) AUXILIAR DE ENFERMERÍA 1
-Naturaleza del trabajo:
-Ejecución de labores generales de cuidados de enfermería de cierta complejidad, participación y colaboración en labores de mediana complejidad, siguiendo instrucciones precisas o bajo la supervisión del profesional competente.
-Tareas:
-Consulta externa
-Participar en el cuidado, la aplicación de tratamientos y la curación de pacientes.
-Aplicar vacunas; participar en programas de educación, detención y tratamiento de enfermedades y promoción de la salud.
-Tomar signos vitales y medidas antropométricas.
-Preparar vendajes, compresas y otros.
-Asistir a los pacientes que van a ser examinados por el médico o enfermera.
-Realizar labores de rotulación y entrega de algunos medicamentos en establecimientos de salud de áreas rurales, según normas establecidas y aplicar medicamentos únicamente con prescripción médica o de la enfermera.
-Preparar y esterilizar material y equipos para la atención de los usuarios.
-Realizar cuidado terminal de la unidad del paciente, material y equipo de trabajo.
-Aplicar la técnica médico-quirúrgica, según manual de procedimientos.
-Realizar labores de orden administrativo que se derivan de su función.
-Elaborar registro del paciente y de sus funciones según norma.
-Efectuar labores de primeros auxilios.
-Efectuar otras tareas propias de su cargo.
-Hospitalización
-Participar en el cuidado, la aplicación de tratamientos y la curación de pacientes.
-Aplicar vacunas; participar en programas de educación, detención y tratamiento de enfermedades y promoción de la salud.
-Tomar signos vitales y medidas antropométricas.
-Preparar vendajes, compresas y otros.
-Asistir a los pacientes que van a ser examinados por el médico o enfermera.
-Participar en la toma, recolección y envío de algunas muestras de laboratorio.
-Informar a la enfermera o al médico sobre el estado y cambios significativos de los pacientes o usuarios. Acompañar a los pacientes a recibir sus tratamientos y exámenes especiales.
-Preparar y esterilizar material y equipos para la atención de los usuarios.
-Realizar cuidado terminal de la unidad del paciente, material y equipo de trabajo.
-Aplicar la técnica médico-quirúrgica, según manual de procedimientos.
-Realizar labores de orden administrativo que se derivan de su función.
-Elaborar registro del paciente y de sus funciones según norma.
-Efectuar labores de primeros auxilios.
-Participar en la visita del médico o de la enfermera a los pacientes.
-Efectuar otras tareas propias de su cargo.
-Condiciones organizacionales y ambientales
-El nivel de ejecución o participación del Auxiliar 1, en las actividades está condicionado por el grado de riesgo presente en cada caso, determinado por el profesional competente y por las normas técnicas establecidas.
-Supervisión recibida
-Trabaja siguiendo instrucciones generales de acuerdo con las normas técnicas y principios que rige el campo de la enfermería. Su labor es evaluada por el profesional de enfermería.
-Responsabilidad por funciones
-Es responsable de que los servicios y actividades encomendadas se cumplan con esmero, eficiencia y puntualidad.
-Por equipo y materiales
-Es responsable del adecuado uso del equipo, útiles, materiales y medicamentos que emplea en su trabajo.
-Condiciones de trabajo
-Le puede corresponder trabajar en turnos alternos, hacer visitas domiciliarias y a otros establecimientos.
-Consecuencias del error
-Debe observar cuidado en el trabajo, ya que los errores cometidos pueden ocasionar daños a los pacientes o clientes.
-Características personales
-Debe tener discreción con el manejo de la información de los pacientes o clientes.
-Requiere habilidad para comunicarse y relacionarse en forma cortés y satisfactoria con los pacientes, clientes, familia y compañeros. Debe mantener actualizados los conocimientos y técnicas propias de su especialidad.
+a) AUXILIAR DE ENFERMERÍA:
+Naturaleza del trabajo
+Ejecución de labores generales de enfermería bajo la instrucción y supervisión de la persona profesional de enfermería, en los tres niveles de atención.
+Tareas
+1) Ejecutar procedimientos relacionados con la atención de enfermería en los servicios y escenarios de salud.
+2) Realizar visitas al hogar según normas establecidas en diferentes escenarios de salud, individual, grupal y comunal.
+3) Participar con el equipo en la construcción del plan operativo de enfermería en la comunidad.
+4) Colaborar en la detección y seguimiento de los problemas epidemiológicos de reporte obligatorio, así como problemas de salud emergentes de acuerdo con la designación del profesional en enfermería.
+5) Participar en los programas de promoción de la salud y prevención primaria, secundaria y terciaria, de acuerdo con la programación de enfermería.
+6) Participar, por asignación de la persona profesional de enfermería, en la educación para la salud, según programación establecida.
+6.1) Preparar la consulta para la atención del paciente, realiza registros, informes, llena formularios, toma datos y otros similares según normas establecidas.
+7) Tomar medidas antropométricas (peso, talla y otras), de las personas según su ciclo de vida y hacer los reportes correspondientes.
+7.1) Asistir con el profesional de enfermería en el recibo y entrega del servicio, así como en la preclínica y post clínica.
+7.1.1) Participar en el ingreso y egreso del usuario según indicaciones del profesional en enfermería, según sea el caso y norma establecida.
+7.1.2) Aplicar medidas de aislamiento, técnicas de asepsia médica y quirúrgica, medidas de seguridad y otras según las normas establecidas.
+8) Realizar y anotar el control de signos vitales, tales como: temperatura, presión arterial, frecuencia cardiaca y respiración.
+8.1) Realizar la higiene personal de los pacientes en lo relativo al baño, aseo bucal, cuidados y ayuda que necesite el usuario, según procedimientos correspondientes que el caso lo requiera.
+8.2) Acompañar al usuario al servicio sanitario, al baño y proporcionar la ayuda adicional que requiera.
+8.3) Realizar labores tendientes a brindar comodidad, privacidad y seguridad a los pacientes, tales como: cambio de prendas de vestir, ropa de cama, arreglo de la unidad, control de ambiente, cambio de posición, así como también proporcionar los equipos auxiliares requeridos o de ayuda para las diferentes necesidades del usuario.
+8.4) Suministrar la alimentación al paciente según su condición por indicación del profesional de enfermería, así como otras labores relacionadas con sus requerimientos.
+8.5) Preparar el equipo y realizar curaciones aplicando la técnica aséptica médica y quirúrgica, así como la preparación del área de suturas y el retiro de suturas siguiendo instrucciones y bajo la supervisión de la persona profesional de enfermería.
+8.5.1) Ejecutar procedimientos relacionados con la preparación y administración de medicamentos, pruebas de sensibilidad, biológicos, canalización de vía venosa periférica, soluciones intravenosas, cuidado de catéteres y drenos; observar, medir, comunicar y registrar condiciones del paciente y reacciones a los procedimientos anteriormente mencionados, para lo cual su grado de participación estará sujeto a normas establecidas.
+8.5.2) Colocar, para la oxigenación del paciente, nasocánulas, mascarillas, nebulizaciones, regular el suministro de oxígenos según indicación del profesional de enfermería y normas establecidas.
+8.6) Controlar y registrar los líquidos ingeridos y excretados de los pacientes, según indicaciones establecidas.
+8.7) Realizar la preparación del usuario para cirugías, exámenes y tratamientos diversos, por delegación y supervisión del profesional de enfermería.
+8.8) Circular e instrumentar cirugías según el nivel de atención y complejidad de la cirugía por designación de la Jefatura de Enfermería de la sala de operaciones y realizar conteo de compresas e instrumental conjuntamente con el equipo quirúrgico.
+8.9) Ejecutar otras labores establecidas en las normas del servicio central, recuperación, sala de operaciones, preanestesia, sala de partos, servicios especializados, servicios generales, según designación de la Jefatura de Enfermería y normas establecidas.
+9) Preparar y suministrar el equipo necesario que se solicite para la atención de salud requerida y su cuidado posterior.
+9.1) Informar verbalmente al profesional de enfermería y dejar constancia por escrito, de las reacciones y mediciones anormales que detecte en el paciente al cual le brinda asistencia.
+9.1.1) Realizar notas de enfermería de acuerdo con la atención brindada al usuario, de acuerdo con la indicación del profesional en enfermería.
+9.2) Movilizar y acompañar al paciente en su traslado intra y extramuros, según condición del usuario y normas establecidas.
+9.3) Realizar el procedimiento post morten según indicaciones del profesional de enfermería.
+10) Realizar otras tareas atinentes a su cargo de similar naturaleza, que no invadan el ámbito de la competencia del profesional de enfermería.
 Requisitos
-Bachiller en Educación Media
-Haber aprobado el Curso de Auxiliares de Enfermería.
+Posterior al 31 de diciembre de 1982, Bachiller en Educación Media. Anterior al 31 de diciembre de 1982, tercer año de colegio aprobado.
 Requisito legal obligatorio
-Licencia actualizada de Auxiliar de Enfermería extendida por
-el Colegio de Enfermeras de Costa Rica.
-a.2) AUXILIAR DE ENFERMERÍA 2
-Naturaleza del trabajo:
-Ejecución de labores generales de cuidados de enfermería de mediana complejidad en servicios especializados y participación en labores de mayor complejidad, siguiendo instrucciones precisas o bajo la supervisión del profesional competente.
-Tareas:
-Consulta externa
-Ejecutar en procedimientos relacionados con el cuidado directo del paciente, administración de la atención y de los servicios de salud, educación del paciente, la familia, la comunidad y otros aspectos similares.
-Realizar el control de signos vitales, tales como temperatura, presión arterial, frecuencia cardiaca y respiración, además participar en el control de otros signos vitales, tales como: presión capilar, venosa y ventricular.
-Tomar el peso, talla y medidas antropométricas de los pacientes, haciendo los reportes correspondientes. Realizar el control de ingesta y excreta de los pacientes, mediante mediciones vía oral, intravenosa, diuresis, vómitos y drenos, haciendo los reportes correspondientes, según indicaciones. Prepara y suministra el equipo necesario. Ejecutar procedimientos relacionados con la administración de medicamentos, biológicos, tratamientos, aplicación y cuidado de catéteres, tubos y drenos; para lo cual su grado de participación estará dado por normas establecidas. Preparar medicamentos, pruebas, nebulizaciones, venoclisis; administrándolos, de acuerdo a las indicaciones médicas precisas, por las diferentes vías. Observa, mide y reporta reacciones según se le indique.
-Participar en la oxigenación de pacientes, en la preparación y suministro del equipo siguiendo indicaciones del profesional. Realizar curaciones y participar en otras acciones más complejas, según instrucciones y supervisión del profesional. Mantener estéril y preparar el equipo destinado para tal fin. Lavar y curar heridas, preparar áreas para suturar y retirar las mismas.
-Brindar asistencia al médico y a la enfermera en los diferentes servicios que se realicen, en hospitales, clínicas, centros de salud, puestos de salud y otros, para la atención y tratamiento de los pacientes.
-Participar en actividades relacionadas con la administración de servicios de salud, tales como: pedidos de medicamentos, orientación de nuevo personal, coordinación dentro del servicio y con otros, entrega y recepción de pacientes en cambios de turno, suministro de información para la evaluación de servicios y otros similares.
-Realizar los reportes escritos y dar las informaciones respectivas, reacciones o mediciones que se le hayan encomendado, o toda vez que advierta situaciones anormales que requieran de la atención y control del profesional. Realizar labores administrativas, tales como preparar registros, reportes, brindar información a pacientes o clientes, tomar datos, llenar formularios, dar citas y otras similares que se le encomienden, derivadas del cargo.
-Ejecutar en la sala de operación, labores como las siguientes:
-solicitud del material para las cirugías del día; corroboración de la fecha de esterilización del material, revisión de los equipos de cada operación, recepción, identificación y orientación del paciente; control y almacenamiento del material estéril; limpieza del instrumental una vez usado; conteo y registro de compresas; entrega y recepción de la cirugía pendiente; circula e instrumenta.
-Preparar, cuidar y suministrar el equipo necesario para las labores de atención y tratamiento del paciente, sea para su utilización o como colaboración con el profesional respectivo, según las normas del servicio.
-Realizar otras tareas atinentes al cargo y otras descritas en el perfil de la Auxiliar de Enfermería 1.
-Hospitalización
-Ejecutar en procedimientos relacionados con el cuidado directo del paciente, administración de la atención y de los servicios de salud, educación del paciente, la familia, la comunidad y otros aspectos similares.
-Realizar la higiene personal de los pacientes, en lo relativo al baño, aseo, cuidados y ayuda que necesiten, siguiendo los procedimientos correspondientes, según el caso lo requiera. Realizar labores tendientes a brindar comodidad a los pacientes, tales como: cambio de prendas de vestir, ropa de cama, arreglo de la unidad, control de ambiente y cambio de posición, así como el suministro y control de los equipos auxiliares indispensables o de ayuda para los pacientes. Realizar labores correspondientes al cuidado con las eliminaciones de los pacientes, suministrando y recogiendo el equipo necesario o acompañando al paciente hasta el servicio sanitario y ayudándole en lo que se requiera. Realizar procedimientos correspondientes a lograr la alimentación del paciente, siguiendo instrucciones sobre dietas y cuidados indispensables. Ejecutar el aseo bucal y de manos de los pacientes, así como otras labores relacionadas con el proceso, según sea requerido.
-Realizar el control de signos vitales, tales como temperatura, presión arterial, frecuencia cardiaca y respiración, además participar en el control de otros signos vitales, tales como: presión capilar, venosa y ventricular.
-Tomar el peso, talla y medidas antropométricas de los pacientes, haciendo los reportes correspondientes. Realizar el control de ingesta y excreta de los pacientes, mediante mediciones vía oral, intravenosa, diuresis, vómitos y drenos, haciendo los reportes correspondientes, según indicaciones. Prepara y suministra el equipo necesario. Ejecutar procedimientos relacionados con la administración de medicamentos, biológicos, tratamientos, aplicación y cuidado de catéteres, tubos y drenos; para lo cual su grado de participación estará dado por normas establecidas. Preparar medicamentos, pruebas, nebulizaciones, venoclisis; administrándolos, de acuerdo a las indicaciones médicas precisas, por las diferentes vías. Observa, mide y reporta reacciones según se le indique.
-Participar en la oxigenación de pacientes, en la preparación y suministro del equipo siguiendo indicaciones del profesional. Asistir en la colocación del tubo endotraqueal y su cuidado, aplicar oxígeno, cambiar humecedores y agua en ventiladores, revisar cilindros de oxígeno y aire, preparar y colocar cámaras de oxígeno, cuidar y mantener listo el equipo necesario. Realizar curaciones y participar en otras acciones más complejas, según instrucciones y supervisión del profesional. Mantener estéril y preparar el equipo destinado para tal fin. Lavar y curar heridas, preparar áreas para suturar y retirar las mismas.
-Observar signos y síntomas de los pacientes, según el caso y las instrucciones que reciba, haciendo los reportes correspondientes.
-Realizar el proceso de preparación de pacientes para exámenes y tratamientos especiales (endoscópicos, radiológicos, fondo de ojo, electroconvulsivo, operaciones y otros) de acuerdo con las instrucciones que recibe.
-Ejecutar actividades variadas en la administración de la atención del paciente, tales como: anotar indicaciones, revisar medicamentos de stock, anotar el suministro de medicamentos, coordinar con otros departamentos, tramitar referencias, citas e interconsultas, movilizar y trasladar pacientes intra y extra muros; aplicar desinfectantes y esterilizantes, medidas de aislamiento aplicando la técnica de asepsia médica y quirúrgica y las medidas de seguridad; participa en la alimentación del paciente.
-Brindar asistencia al médico y a la enfermera en los diferentes servicios que se realicen, en hospitales, clínicas, centros de salud, puestos de salud y otros, para la atención y tratamiento de los pacientes.
-Participar en actividades relacionadas con la administración de servicios de salud, tales como: pedidos de medicamentos, orientación de nuevo personal, coordinación dentro del servicio y con otros, entrega y recepción de pacientes en cambios de turno, suministro de información para la evaluación de servicios y otros similares.
-Realizar los reportes escritos y dar las informaciones respectivas, reacciones o mediciones que se le hayan encomendado, o toda vez que advierta situaciones anormales que requieran de la atención y control del profesional. Realizar labores administrativas, tales como preparar registros, reportes, brindar información a pacientes o clientes, tomar datos, llenar formularios, dar citas y otras similares que se le encomienden, derivadas del cargo.
-Ejecutar en la sala de operación, labores como las siguientes:
-solicitud del material para las cirugías del día; corroboración de la fecha de esterilización del material, revisión de los equipos de cada operación, recepción, identificación y orientación del paciente; control y almacenamiento del material estéril; limpieza del instrumental una vez usado; conteo y registro de compresas; entrega y recepción de la cirugía pendiente; circula e instrumenta.
-Preparar, cuidar y suministrar el equipo necesario para las labores de atención y tratamiento del paciente, sea para su utilización o como colaboración con el profesional respectivo, según las normas del servicio.
-Realizar el cuidado del cuerpo y los trámites de su traslado, en caso de fallecimiento.
-Realizar otras tareas atinentes al cargo y otras descritas en el perfil de la Auxiliar de Enfermería 1.
-Condiciones organizacionales y ambientales:
-El Auxiliar de Enfermería 2 se ubica tanto en el área de Hospitalización como de Consulta Externa y se diferencia del Auxiliar de Enfermería 1 en el nivel de complejidad y de ejecución de sus tareas, las cuales deben ser realizadas en servicios que realizan labores altamente especializadas, está condicionado por el grado de riesgo presente en cada caso, determinado por el profesional competente y por las normas técnicas establecidas.
+a) Haber aprobado el curso del Programa Formación Auxiliares de Enfermería que imparte el CENDEISSS.
+b) Licencia actualizada de Auxiliar de Enfermería extendida por el Colegio de Enfermeras de Costa Rica.
+Condiciones organizacionales y ambientales
+El Auxiliar de Enfermería se ubica tanto en el primer nivel de atención, segundo, tercer nivel e instituciones públicas y privadas.
 Supervisión recibida
-Trabaja siguiendo instrucciones precisas de conformidad con las normas y principios que rigen la actividad de enfermería. Su labor es evaluada por la jefatura inmediata superior o por un profesional en Enfermería de rango superior, de acuerdo con la calidad del servicio que brinda y los resultados obtenidos.
+Trabaja siguiendo instrucciones precisas de conformidad con las normas y principios que rigen la actividad de enfermería. Su labor es evaluada por el profesional a cargo del servicio, de acuerdo con la calidad del servicio que brinda y los resultados obtenidos.
 Supervisión ejercida
-Le corresponde coordinar y brindar orientación técnica a personal de menor nivel jerárquico.
-Responsabilidad por funciones Es responsable de que los servicios y actividades encomendadas se cumplan con esmero, eficiencia y puntualidad.
+No le corresponde ejercer supervisión sobre ningún otro funcionario.
+Responsabilidad por funciones
+Es responsable de que los servicios y actividades encomendadas por el profesional se cumplan con esmero, eficiencia y puntualidad.
 Responsabilidad por relaciones de trabajo
 El desarrollo de la actividad conlleva una gran relación con pacientes y sus familiares, con compañeros y superiores; las cuales deben ser tratadas con cortesía y amabilidad.
 Responsabilidad por materiales y equipo
 Es responsable del uso y manejo adecuado del equipo, útiles, materiales y medicamentos que emplea en su trabajo.
 Condiciones de trabajo
-Le corresponde trabajar en turnos alternos y hacer visitas domiciliarias y a otros establecimientos, según las normas de los servicios.
+Le puede corresponder trabajar en turnos alternos intra y extra hospitalarios, en la comunidad u otros escenarios según las normas y los programas en atención en salud.
 Consecuencia del error
-Debe observar gran cuidado en el trabajo, pues los errores cometidos pueden ocasiona daños de consideración, algunos de carácter irreversibles, en la salud de los pacientes o clientes.
-Características personales:
-Debe tener discreción con el manejo de la información de los pacientes o clientes. Requiere habilidad para comunicarse y relacionarse en forma cortés y satisfactoria con los pacientes, sus familiares, clientes y compañeros. Debe mantener actualizados los conocimientos y técnicas propias de su campo de actividad.
-Requisitos:
-Bachiller en Educación Media.
-Certificado de Auxiliar de Enfermería.
-Haber aprobado a nivel universitario, cursos en el área específica de Auxiliar de Enfermería, que hayan sido de previo, aprobados por el Colegio de Enfermeras de Costa Rica. Aprobar los exámenes de aptitud que aplique el patrono o institución según sea el caso.
-Requisito legal:
-Licencia actualizada de Auxiliar de Enfermería, extendida por el Colegio de Enfermeros de Costa Rica.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31506 del 3 de julio del 2003)
+Debe cumplir con los principios de eficiencia, eficacia y efectividad, pues los errores cometidos pueden ocasionar daños de consideración, algunos de carácter irreversibles, en la salud y calidad de vida de los usuarios.
+Características personales
+Debe tener discreción con el manejo de la información de los pacientes. Requiere habilidad para comunicarse y relacionarse en forma cortés y satisfactoria con los pacientes, sus familiares y compañeros, cumpliendo con los principios establecidos en el Código de Ética y Moral Profesional del Colegio de Enfermeras de Costa Rica. Debe mantener actualizados los conocimientos y técnicas propias de su campo de actividad.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33473 del 12 de deciembre de 2006)
 b) ENFERMERA(O) 1
 Naturaleza del trabajo:
 Ejecución de labores propias del área de enfermería; coordinación y supervisión de labores de enfermería en las clínicas de consulta externa de menor complejidad, del sector público o privado y en un servicio de hospitalización.
