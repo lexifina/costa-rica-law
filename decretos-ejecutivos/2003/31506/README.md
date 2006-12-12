@@ -14,3 +14,4 @@ Reforma al Reglamento del Estatuto de Servicios de Enfermería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-08 | la propia norma |
+| 2 | 2006-12-12 | Decreto Ejecutivo 33473 (2006-12-12) |
