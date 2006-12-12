@@ -1,2 +1,0 @@
-Artículo 15.—Podrá revocarse un permiso siempre que se logre comprobar la falsedad en alguno de los requisitos de la solicitud así como en aquellos casos en que con posterioridad al otorgamiento de la patente surjan hechos que hagan invalida la causa de su otorgamiento.
-La revocatoria del permiso de funcionamiento por el organismo competente involucra la cancelación automática de la licencia y la pérdida de la calidad del patentado.

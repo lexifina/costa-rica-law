@@ -1,1 +1,0 @@
-Artículo 3°—El impuesto de patente, deberá ser cancelado por trimestre adelantado. El atraso en la cancelación, además de las sanciones que se contemplan en fracción de atraso, no podrán exceder el 24% del monto anual adeudado.

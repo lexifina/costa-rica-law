@@ -1,1 +1,0 @@
-Articulo 33.—Las resoluciones que ordenen el cierre temporal o definitivo del establecimiento por incumplimiento o quebrantamiento de las leyes o de las buenas costumbres o disposiciones reglamentarias, tendrán los recursos de revocatoria y apelación que se tramitan conforme lo dispuesto en el artículo 162 del Código Municipal.

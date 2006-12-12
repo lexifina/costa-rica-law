@@ -1,1 +1,0 @@
-Artículo 24.—Las resoluciones de la Municipalidad y la Oficina de Rentas tendrán los recursos de revocatoria y apelación para ante el Alcalde Municipal, salvo las de calificación y recalificación cuyas alzadas serán de conocimiento del Concejo Municipal.

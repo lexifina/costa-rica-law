@@ -1,3 +1,0 @@
-Articulo 8°—La solicitud que no incluya todos los requisitos será rechazada ad portas, ya que es requisito para su admisibilidad cumplir con todos los requisitos del artículo anterior, la Municipalidad conjuntamente con la recomendación de la Oficina de Rentas deberá resolver las solicitudes de licencia dentro de los treinta días hábiles siguientes, después de que haya sido presentada en forma por el interesado.
-Vencido este término, el particular podrá ejercer su actividad sin perjuicio de lo que en definitiva decida la Municipalidad.
-La Municipalidad concederá al interesado el otorgamiento de la licencia y la denegatoria de la misma deberá hacerla en resolución razonada.

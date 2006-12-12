@@ -1,1 +1,0 @@
-Articulo 32.—Las resoluciones de la Municipalidad y la Oficina de Rentas, que ordenen la suspensión de la patente por falta de pago, no tendrá recurso alguno, y su tramitación no admitirá prueba de lo contrario, salvo la excepción de pago.

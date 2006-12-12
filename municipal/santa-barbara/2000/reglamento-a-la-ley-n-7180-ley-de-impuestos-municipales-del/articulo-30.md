@@ -1,1 +1,0 @@
-Articulo 30.—Para la tramitación de los recursos contra la calificación o recalificación, será requisito formal que el interesado se encuentre totalmente al día en el pago de la imposición determinada por la municipalidad y la Oficina de Rentas.
