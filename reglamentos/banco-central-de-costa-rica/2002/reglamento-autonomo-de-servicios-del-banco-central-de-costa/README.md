@@ -18,3 +18,4 @@ Reglamento Autónomo de Servicios del Banco central de Costa Rica y sus Organism
 | 3 | 2005-10-26 | Reglamento 5251 (2005-10-26) |
 | 4 | 2006-04-05 | Reglamento 5274 (2006-04-05) |
 | 5 | 2006-10-04 | SINALEVI (sin norma nombrada) |
+| 6 | 2006-12-13 | Reglamento 5309 (2006-12-13) |
