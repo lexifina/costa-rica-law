@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Programas de Crédito
+Artículo 10.—Establecimiento de programas de crédito: La Junta Directiva deberá conocer y aprobar los diferentes programas de crédito que se establezcan con recursos del FONAVI, en los cuales se deberán indicarse las condiciones generales de los créditos relativas al plan de inversión, tasa de interés, montos máximos, plazo, forma de pago y tipo de garantías.
+La garantía solicitada consistirá fundamentalmente por cartera crediticia con respaldo hipotecario y títulos valores emitidos por terceras entidades del sector público. Para el caso de las mutuales de ahorro y préstamo se podrán aceptar también garantías fiduciarias y prendarias, u otras garantías debidamente establecidas en el respectivo programa de crédito. Cuando las garantías sean hipotecarias o prendarias deberán contemplar la cesión formal y la inscripción registral correspondiente.

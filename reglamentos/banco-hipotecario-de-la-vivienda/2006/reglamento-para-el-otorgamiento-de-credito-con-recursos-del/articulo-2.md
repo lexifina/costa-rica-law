@@ -1,0 +1,7 @@
+Artículo 2º—Requisitos para la aceptación de solicitudes de crédito: Para que la Dirección FONAVI de curso al análisis las solicitudes que se presenten será necesario que se cumplan las siguientes condiciones:
+a) Que la Entidad Autorizada se encuentre al día en el pago de todas sus obligaciones económicas y financieras con el BANHVI, en su condición de deudora, de contribuyente de la provisión del Fondo de Garantía señalada en el artículo 116 de la Ley del Sistema Financiero Nacional para la Vivienda y de fiduciaria, según corresponda, incluidos los arreglos de pago y planes de saneamiento que estuvieren en vigencia.
+b) Que la Entidad Autorizada se encuentre al día con el BANHVI en el envío de sus estados financieros u otra información que previamente se le hubiese solicitado como acreedor de aquella o en su condición de garante de la misma.
+c) Que la Entidad Autorizada no se encuentre en algún grado de irregularidad de conformidad con las disposiciones dictadas por la SUGEF.
+d) Que las garantías ofrecidas por los créditos vigentes de la Entidad Autorizada se adapten a lo dispuesto en las demás disposiciones del presente reglamento y otras que al efecto se emitan.
+e) Que la Entidad Autorizada cubra todo tipo de gastos que genere el otorgamiento y constitución del crédito, incluyendo la constitución e inscripción de las garantías.
+Ante el incumplimiento de cualquiera de las condiciones señaladas, la solicitud de crédito será denegada sin que se continúen las siguientes etapas del proceso.
