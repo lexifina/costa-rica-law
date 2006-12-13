@@ -1,0 +1,7 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN
+Y SERVICIO DEL INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo sexto, artículo cuarto de la sesión extraordinaria Nº 3614, celebrada a las 12:20 horas del día 27 del mes de noviembre del 2006, acordó en el por tanto 2:
+“Modificar el artículo 115 del Reglamento Autónomo de Organización y Servicio, en la siguiente forma:
+Toda servidora de la Institución que se encontrase en estado de embarazo, gozará obligatoriamente de un descanso de cuatro meses que cubre el período prenatal y post-natal según lo indique la incapacidad extendida por la Caja Costarricense de Seguro Social. Durante el término indicado tendrá derecho a recibir como subsidio el monto completo de su salario, a partir del primer día de incapacidad, debiendo la Institución, para esos efectos, cubrirle la diferencia de lo que otorga por ese concepto la Caja Costarricense de Seguro Social. Adicionalmente tiene derecho al período de lactancia de una hora diaria que podrá tomar al inicio o antes de finalizada su jornada, beneficio que regirá durante los seis meses posteriores al alumbramiento, pudiendo éste ser prorrogado sólo una vez hasta por seis meses, previa presentación de un dictamen emitido por un médico especialista de la Caja Costarricense de Seguro Social”.
+Moravia, 4 de diciembre del 2006.
