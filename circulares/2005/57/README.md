@@ -15,3 +15,4 @@ Lista Oficial de Peritos (En el Boletín Judicial N° 191 del 5 de octubre del 2
 | 1 | 2006-01-06 | la propia norma |
 | 2 | 2006-03-27 | Circular 16 (2006-03-27) |
 | 3 | 2006-05-30 | Circular 32 (2006-05-30) |
+| 4 | 2006-12-13 | Circular 70 (2006-12-13) |
