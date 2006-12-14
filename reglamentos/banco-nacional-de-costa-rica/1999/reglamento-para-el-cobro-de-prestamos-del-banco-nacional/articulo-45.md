@@ -1,4 +1,4 @@
 SECCIÓN III
 Honorarios profesionales
-Artículo 45.—Los honorarios que perciba un abogado por sus servicios profesionales, se depositarán en su cuenta corriente indicada al Banco, en el momento que los obligados de la operación, los cancele en el Centro de Administración de Crédito respectivo, o cuando adquiera firmeza el remate de los bienes, independientemente si el Banco se adjudica los bienes o no.
-(Así reformado por acuerdo tomado en sesión N° 10994 de 24 de agosto de 1999)
+Artículo 45.—Los honorarios que perciba un abogado por sus servicios profesionales se depositarán en su cuenta corriente indicada al Banco por parte del Centro de Administración de Crédito respectivo o cuando adquiera firmeza el remate de los bienes, independientemente si el Banco se adjudica los bienes o no.
+Cuando la operación ha sido recién pasada a cobro judicial, las Oficinas deben incluir en el Sistema de Cobro el cambio de estado de la operación pasando de vencido a cobro judicial, y realizar el cambio de etapa a demanda sellada cargando el monto de honorarios que corresponde cuando el Abogado presenta al Banco a tiempo la respectiva demanda sellada por el Juzgado (en donde conste que la misma fue presentada antes de que el cliente efectuara el pago al Banco).

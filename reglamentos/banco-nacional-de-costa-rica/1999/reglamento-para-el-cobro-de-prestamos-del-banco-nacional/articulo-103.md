@@ -1,2 +1,2 @@
-Artículo 103.—Cumplido el protesto, el abogado y el Jefe del Almacén, de común acuerdo señalarán la fecha en que debe precederse a celebrar el primer remate.
+Artículo 103.—Cumplido el protesto, el abogado y el Jefe del Almacén, de común acuerdo señalarán la fecha en que debe procederse a celebrar el primer remate.
 Con datos a esta fecha de remate, deberá suministrársele al abogado una liquidación adicional, que incluirá gastos judiciales y honorarios, además de los rubros indicados en la liquidación total. La suma de todos esos rubros será la base para la subasta.

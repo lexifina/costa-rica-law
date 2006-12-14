@@ -1,1 +1,1 @@
-Artículo 43.-
+Artículo 32.—Tratándose de embargo de salarios, corresponde al abogado director del juicio velar porque la resolución que resuelve en su oportunidad la petición presentada se ajuste a lo que la institución liquidó y se estén realizando las respectivas retenciones y tramitar su giro.

@@ -1,1 +1,1 @@
-Artículo 26.—El nombramiento de los Abogados Externos será por dos años. Prorrogables por períodos sucesivos e iguales ajuicio del Banco, si a criterio de éste, los servicios prestados resultan satisfactorios.
+Artículo 26.—El nombramiento de los abogados externos se hará por un periodo máximo de cuatro años.

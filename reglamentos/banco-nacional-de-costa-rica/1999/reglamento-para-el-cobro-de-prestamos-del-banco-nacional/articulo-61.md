@@ -1,1 +1,2 @@
-Artículo 43.-
+Artículo 61.—En caso de ser necesaria la toma de posesión del bien, el Abogado Director debe presentarse al acto una vez coordinado con el Ejecutor y con los funcionarios del Banco. Queda en manos de los funcionarios de la Oficina de Administración de Bienes de cada Dirección Regional la custodia del bien rematado.
+En caso de bienes muebles, el Banco por los medios que considere conveniente realizará la captura en coordinación con las autoridades respectivas, debiendo coordinar el Abogado Director con el Ejecutor la captura y traspaso a manos de funcionarios de la Dirección Regional respectiva del Banco.
