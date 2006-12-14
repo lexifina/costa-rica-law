@@ -14,3 +14,4 @@ Normativa para el cumplimiento de la "Ley sobre Estupefacientes, Sustancias Psic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-08 | la propia norma |
+| 2 | 2006-12-14 | Reglamento 620 (2006-12-14) |

@@ -17,7 +17,8 @@ d) Sexo (M) o (F).
 e) Dirección exacta de la residencia permanente (indicada con puntos cardinales, incluyendo provincia, cantón, distrito y otras señas específicas).
 f) Dirección electrónica si aplica.
 g) Número de teléfono y de fax (si aplica).
-h) Ocupación y nombre del patrono (en cuyo caso debe adjuntar la orden patronal), o si trabaja en lo propio, la naturaleza de sus negocios.
+h) Ocupación y nombre del patrono, o la naturaleza de sus negocios si trabaja en lo propio, así como el monto de los ingresos que percibe, información que siempre deberá estar respaldada documentalmente. La entidad deberá definir las políticas y los procedimientos para conocer a sus clientes, los cuales deben comunicarse a la Superintendencia respectiva y estar disponibles para efectos de supervisión. Para cumplir con esta obligación, las entidades pueden solicitar al cliente documentación tal como: orden patronal, certificación de ingresos de Contador Público Autorizado, constancia de salarios, o recurrir al listado de patronos para aquellas personas cuyos salarios se depositan en cuentas de ahorro o cuenta corriente del producto del pago de planilla en la misma entidad o empresa de su grupo o conglomerado financiero, entre otros. En todo caso, es responsabilidad de la entidad el utilizar toda aquella información que considere confiable y válida, dependiendo del tipo de servicio ofrecido.
+(Así reformado el inciso anterior en sesión N° 620 del 14 de diciembre de 2006)
 i) Razones por las cuales establece la relación comercial y la naturaleza de los negocios a realizar.
 j) Nivel estimado mensual de las operaciones que efectúa, tomando en cuenta el total transado de egresos e ingresos.
 k) Fuente u origen de los fondos: En los casos que la entidad lo considere necesario, se efectuará una verificación fehaciente de la actividad que genera los recursos.
