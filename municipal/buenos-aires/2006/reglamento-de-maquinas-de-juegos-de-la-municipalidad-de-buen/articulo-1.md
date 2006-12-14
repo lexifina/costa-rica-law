@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE BUENOS AIRES
+REGLAMENTO DE MÁQUINAS DE JUEGOS
+El Concejo Municipal de Buenos Aires, Puntarenas, mediante sesión ordinaria Nº 47-2006 del día 18 de noviembre del 2006, acuerda: Aprobar Reglamento de Máquinas de Juegos, según lo establecido en los artículos 170 de la Constitución Política de Costa Rica, así como el 2º, 3º, 4º, inciso a), 13, inciso c) y el párrafo segundo del artículo 43 del Código Municipal aprueba el siguiente Reglamento de Máquinas de Juego para la Municipalidad del cantón de Buenos Aires. Acuerdo unánime.
+Artículo 1º—Que conforme a la Ley de Juegos y su Reglamento, el Reglamento de Máquinas de Juego y jurisprudencia vinculante, se establece que son autorizados aquellos juegos que permitan la utilización de la habilidad o destreza del jugador y quedan excluidas las denominadas máquinas como tragamonedas, en las que la ganancia del jugador no depende de sus habilidades sino de la suerte o el azar.
