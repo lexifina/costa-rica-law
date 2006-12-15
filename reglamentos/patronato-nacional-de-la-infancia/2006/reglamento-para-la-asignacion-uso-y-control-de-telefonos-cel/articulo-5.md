@@ -1,0 +1,1 @@
+Artículo 5º—Del Recibo de los aparatos celulares- De no mediar oposición, cuando le sea comunicado que el aparato se encuentra ya a su disposición, deberá el Beneficiario acudir dentro de un plazo idéntico al anteriormente indicado al Departamento de Suministro de Bienes y Servicios donde se formalizará la entrega y recibo del aparato.

@@ -1,0 +1,1 @@
+Artículo 15.—Vigencia. Rige a partir de la publicación en el Diario Oficial La Gaceta, del acuerdo unánime de los miembros de la Junta Directiva del Patronato Nacional de la Infancia. San José, 11 de diciembre del 2006.—
