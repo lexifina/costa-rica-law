@@ -14,3 +14,4 @@ Requisitos para abrir Calles o Caminos Públicos en el Distrio de Colorado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-19 | la propia norma |
+| 2 | 2006-12-15 | Acuerdo municipal 0 (2006-11-13) |

@@ -6,4 +6,6 @@ El Concejo Municipal de Distrito de Colorado, en acta extraordinaria Nº 17, cap
 3. Aportar estudio registral de la propiedad.
 4. Aportar copia del plano catastrado de la calle.
 5. Hacer el traspaso al Concejo Municipal.
+6. En proyectos de Urbanización o de fraccionamiento deben presentar planos debidamente visados por el INVU.
+(Así adicionado el punto anterior y publicado en La Gaceta N° 7 del 10 de enero del 2007).
 Colorado de Abangares, 20 de setiembre del 2006.—
