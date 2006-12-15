@@ -1,0 +1,2 @@
+Artículo 4º—Rendición de cuentas. Una vez efectuada la adquisición del bien o servicio o concluida la gira, el funcionario que realizó el adelanto deberá realizar la liquidación, mediante la presentación de los respectivos documentos originales que comprueben la realización del gasto cuando proceda según corresponda, devolverá el sobrante o solicitará el reintegro del monto adicional gastado presentando la factura o comprobante que respalden la erogación.
+(Así adicionado y publicado en La Gaceta N° 241 del 15 de diciembre del 2006)

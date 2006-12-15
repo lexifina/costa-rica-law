@@ -15,3 +15,4 @@ Reglamento de Caja Chica del Fideicomiso BICSA-IMAS-BANACIO/73-2002
 | --- | --- | --- |
 | 1 | 2004-10-21 | la propia norma |
 | 2 | 2004-10-21 | Reglamento 9 (2004-05-17) |
+| 3 | 2006-12-15 | Reglamento 0 (2006-12-15) |
