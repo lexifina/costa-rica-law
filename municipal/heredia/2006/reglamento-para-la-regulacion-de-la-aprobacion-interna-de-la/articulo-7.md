@@ -1,0 +1,3 @@
+Artículo 7º—Plazo.
+1. La Dirección Jurídica Institucional atenderá las gestiones de aprobación interna de contratos en un plazo que no podrá exceder de diez días hábiles, que empezará a correr a partir del día hábil siguiente al del recibo de la solicitud que cumpla con todos los requisitos de admisibilidad en lo términos del artículo 5, incisos 1 y 2 de este Reglamento.
+2. Ese plazo de diez días hábiles se interrumpirá y computará de nuevo cuando la Dirección Jurídica Institucional formule requerimientos de información adicionales que estime imprescindibles para el estudio de fondo del documento contractual respectivo, según lo establecido en el numeral 5, inciso 3 de este reglamento.
