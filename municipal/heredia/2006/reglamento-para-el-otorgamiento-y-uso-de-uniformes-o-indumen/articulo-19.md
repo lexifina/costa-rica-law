@@ -1,0 +1,1 @@
+Artículo 19.—La valoración de toda falta en que incurriesen los funcionarios municipales y la determinación de su respectiva sanción, se realizará de conformidad con los principios del debido proceso, casualidad objetiva, razonabilidad y proporcionalidad.

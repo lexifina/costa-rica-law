@@ -1,0 +1,1 @@
+Artículo 3º—El uso de los uniformes o indumentaria proporcionado por la Municipalidad, es de uso obligatorio para todos aquellos trabajadores que los reciban, quienes, salvo casos excepcionalmente calificados, no podrán dejar de usarlos.
