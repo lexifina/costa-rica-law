@@ -1,0 +1,1 @@
+Artículo 2º—Con las excepciones que se dirán, el área del parqueo del Palacio Municipal y las demás que se dispongan, serán privadas, para uso exclusivo de los vehículos de la Municipalidad y los de sus servidores.

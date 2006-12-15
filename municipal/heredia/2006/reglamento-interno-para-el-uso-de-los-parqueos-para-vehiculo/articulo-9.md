@@ -1,0 +1,1 @@
+Artículo 9º—Para efecto de garantizar plenamente la seguridad y resguardo de los recursos y bienes municipales, las personas autorizadas para la utilización de los parqueos deberán permitir que los guardas revisen en su presencia los vehículos al momento de retirarlos.
