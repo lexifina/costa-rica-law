@@ -1,0 +1,1 @@
+Artículo 5°—La validez de este Decreto, en lo que se refiere a la autorización de aterrizaje, queda condicionada a la obtención del refrendo del Contrato suscrito entre el Instituto Costarricense de Electricidad, Radiográfica Costarricense y Global Crossing Costa Rica S. R L., por parte de la Contraloría General de la República.

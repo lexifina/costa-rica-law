@@ -1,0 +1,1 @@
+Artículo 4°—Una vez instalado el cable, el Desarrollador del Sistema, Global Crossing Costa Rica S.R.L., entregará a las autoridades correspondientes una hoja cartográfica que contenga el trazado exacto de la ubicación del sistema PACR en el territorio costarricense.
