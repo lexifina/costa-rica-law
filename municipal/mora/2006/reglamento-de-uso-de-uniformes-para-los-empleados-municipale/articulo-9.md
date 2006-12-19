@@ -1,0 +1,1 @@
+Artículo 9º—Al personal interino o el contratado por servicios especiales, no se le permitirá el uso de ropa desteñida, rota, sin ruedos, blusas con escotes pronunciados o que dejen al descubierto la espalda o el estómago, pantalones cortos o minifaldas; camisetas sin mangas o utilizadas para la práctica deportiva (ejemplo son las camisetas utilizadas por equipos de fútbol).

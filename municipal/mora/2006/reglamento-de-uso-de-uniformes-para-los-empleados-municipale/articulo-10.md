@@ -1,0 +1,1 @@
+Artículo 10.—El personal contratado en forma interina o por servicios especiales se encuentra obligado a vestir en forma correcta y decente, por tal motivo, deberá cumplir con las disposiciones contenidas en el artículo anterior.

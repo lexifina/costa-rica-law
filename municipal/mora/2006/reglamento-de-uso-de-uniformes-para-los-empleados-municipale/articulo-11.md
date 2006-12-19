@@ -1,0 +1,1 @@
+Artículo 11.—A las mujeres en estado de embarazo, el uniforme les será entregado después del alumbramiento, para lo cual la Administración deberá separar el monto para tal compra. Lo mismo se hará en caso de incapacidades de un mes hasta tres meses, siendo que hasta su reincorporación a la funcionaria se le suministrará el uniforme.

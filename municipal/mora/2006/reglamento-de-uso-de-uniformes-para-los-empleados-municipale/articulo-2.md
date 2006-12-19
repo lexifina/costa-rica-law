@@ -1,0 +1,1 @@
+Artículo 2º—Cada persona a la que se le suministre uniforme, será responsable de su apropiado uso y conservación. Las y (los) funcionarias (os) municipales no asumirán responsabilidad por el deterioro normal del uniforme, ni el que se ocasione por caso fortuito, mala calidad o defectuosa confección.

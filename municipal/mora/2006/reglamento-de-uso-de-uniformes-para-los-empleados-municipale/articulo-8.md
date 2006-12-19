@@ -1,0 +1,1 @@
+Artículo 8º—La Administración está facultada para autorizar a un funcionario a laborar sin su respectivo uniforme siempre y cuando medie una razón justificada, presentada ante la Alcaldía antes de la hora de inicio de labores o en ausencia del alcalde o Alcaldesa, con el visto bueno de su jefe inmediato.

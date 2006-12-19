@@ -1,0 +1,1 @@
+Artículo 7º—El uniforme será acompañado de un par de zapatos limpios, lustrados y en buenas condiciones. En el caso de las funcionarias, se permite el uso de calzado formal abierto o cerrado. Bajo ninguna circunstancia se permitirá a funcionario alguno el uso de cualquier tipo de sandalias o zapatos tenis.
