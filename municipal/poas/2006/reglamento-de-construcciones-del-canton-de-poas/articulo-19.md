@@ -1,0 +1,14 @@
+Artículo 19.—Requisitos especiales.
+a) Poder Especial: en caso de que la persona que solicita el trámite no sea el propietario del inmueble, debe presentar un Poder Especial otorgado ante notario público, donde el propietario además permite la construcción. Adicionalmente debe aportar copia de cédula del propietario del inmueble y copia de la cédula de quien solicita el permiso.
+b) Si la propiedad pertenece a más de un propietario, debe presentar nota autenticada donde todos los propietarios autorizan la construcción y copia de las cédulas de identidad de cada uno.
+c) Cuando el trámite de permiso es solicitado por una persona jurídica, la solicitud de permiso debe ser firmada por el representante legal de la empresa. Se debe aportar certificación de personería con no más de tres meses de emitida.
+d) Cuando se realicen obras que puedan afectar un curso de agua, queda a criterio del Departamento de Control y Planificación Urbana, solicitar el visto bueno del MINAE y/o indicar el retiro mínimo de construcción, en el plano de catastro, emitido por la Dirección de Urbanismo del INVU.
+e) Si la propiedad está frente a carretera nacional regional o proyectos ya definidos por el Ministerio de Obras Públicas y Transportes, debe obtenerse el alineamiento de Construcción de esa Institución.
+f) En caso de obras en donde se realice tala de árboles no frutales o de características maderables debe aportarse visto bueno del MINAE.
+g) Cuando así lo amerite el Departamento de Control y Planificación Urbana, podrá solicitar el certificado de Uso de Suelo emitido por la Dirección de Urbanismo del INVU.
+h) En caso de proyectos en condominio o con área de techo en que la obra supere los 400 m2, debe aportarse el visto bueno para desfogue de aguas emitido por el Departamento de Obras Públicas de la Municipalidad. En proyectos menores, queda a criterio del Departamento de Control y Planificación Urbana solicitar este visto bueno o no.
+i) Los proyectos que se desarrollen en zonas de posible riesgo geológico dentro del cantón, requerirán de presentación de estudio geotécnico completo que incluya estabilidad de taludes y recomendaciones para las obras de retención y cualquier otro requerimiento contemplado por la Comisión Nacional de Riesgos y Atención de Emergencias.
+j) Los proyectos de urbanización y condominios deberán en forma adicional presentar el diseño de sitio en formato digital, para ser incluido en el catastro Municipal.
+k) Para diseños de pavimentos, aceras y otros en urbanizaciones deberá consultarse y cumplirse el manual que para tal efecto tiene el Departamento de Control y Planificación Urbana.
+l) El solicitante de una Edificación o de Permiso de Construcción de Obra Nueva deberá de construir la acera en frente al predio de su construcción bajo las recomendaciones técnicas en cuanto a especificaciones y alineamientos dadas por el Departamento.
+m) Cualquier otro requisito contemplado en leyes especiales.

@@ -1,0 +1,1 @@
+Artículo 44.—De la multa. Si la falta acreditada es por dar inicio sin contar con el permiso de construcciones, corresponderá imponer la multa de hasta un 1% del valor del permiso de construcción, adicional al monto del impuesto de construcción que corresponda (hasta el 1% del valor de la construcción), de tal forma que la multa sólo puede graduarse dentro de ese margen.
