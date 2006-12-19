@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+El Concejo Municipal de Pérez Zeledón, en sesión ordinaria N° 029, celebrada el 14 de noviembre del 2006, artículo 6 inciso 23), acordó en firme modificar el artículo 29 del Reglamento del Archivo Central, para que literalmente se lea así:
+Artículo 29.—La selección y eliminación de documentos que han perdido vigencia legal y administrativa, autorizados previamente por la Comisión Nacional de Selección y Eliminación, se hará de acuerdo a la Tabla de Plazos de Conservación, que para tales efectos aprobó la Comisión Institucional de Selección y Eliminación de Documentos.
