@@ -1,0 +1,1 @@
+Artículo 36.—Constancia del retiro: Para los casos en que durante el desarrollo de una sesión, un director deba retirarse de la misma, constará en actas la hora a partir de la cual se ausenta, esto para fines del quórum y los acuerdos que se tomen.

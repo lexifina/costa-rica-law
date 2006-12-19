@@ -1,0 +1,1 @@
+Artículo 3º—El quórum del Consejo se constituirá conforme se indica en este mismo Reglamento, estará presidido por uno de sus directores, elegido de entre sus integrantes por un periodo de un año, con excepción del representante estudiantil que no podrá ostentar este cargo según lo dispones la Ley N° 7403 en su artículo 5.

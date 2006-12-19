@@ -1,0 +1,1 @@
+Artículo 23.—De la agenda de las sesiones ordinarias: Las sesiones ordinarias conocerán de todos aquellos asuntos que no revistan carácter extraordinario, y se regirán por el orden del día que en este mismo Reglamento se define, salvo que por razones justificadas, a juicio del Presidente, requiera ser modificada.

@@ -1,0 +1,1 @@
+Artículo 35.—Del permiso para ausentarse: El Presidente se encuentra facultado para conceder permiso de ausentarse o no presentarse a sesión a un director, siempre y cuando con ello no ponga en riesgo el quórum para continuar o celebrar la sesión. De lo actuado pondrá en autos al Consejo.

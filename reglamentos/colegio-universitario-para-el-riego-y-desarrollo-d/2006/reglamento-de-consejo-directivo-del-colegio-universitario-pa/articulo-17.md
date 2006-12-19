@@ -1,0 +1,1 @@
+Artículo 17.—Sede de las sesiones: Las sesiones ordinarias y extraordinarias se realizarán en la sede del CURDTS, pudiendo ser variado el lugar, por el acuerdo de al menos las dos terceras partes más cualquier exceso del total de directores que integran el Consejo.

@@ -1,0 +1,1 @@
+Artículo 25.—De la convocatoria a sesiones: Solamente las sesiones extraordinarias deberán ser convocadas por escrito, las sesiones ordinarias se tendrán por convocadas con el sólo acuerdo tomado por el Consejo, en donde se fija el día, hora y lugar para celebrarlas.

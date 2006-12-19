@@ -1,0 +1,1 @@
+Artículo 21.—Del quórum: El quórum de las sesiones será la mitad más uno de las personas que integran el Consejo (6). Deberán encontrarse en el lugar de sesiones, ocupando sus respectivos lugares al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

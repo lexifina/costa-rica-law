@@ -1,0 +1,1 @@
+Artículo 42.—Mociones: Los directores presentaran sus mociones por escrito y firmadas. La Secretaría le anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

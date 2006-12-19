@@ -1,0 +1,8 @@
+Artículo 20.—La sustitución del Presidente: El vicepresidente entrará a suplir al Presidente, en los siguientes casos:
+a) Cuando a la hora fijada para el inicio de la sesión, el Presidente no haya llegado. Esta sustitución será temporal en el tanto transcurran los treinta minutos de espera y el Presidente no se ha presentado, la sustitución será definitiva para la sesión en curso.
+b) En los casos que el Presidente llegara transcurridos los treinta minutos de espera y el Presidente no se ha presentado, la sustitución será definitiva para la sesión en curso. En los casos que el Presidente llegara transcurridos los treinta minutos iniciales.
+c) En los casos en que transcurridos los quince minutos de espera el Presidente no se haya presentado, en donde la sustitución será definitiva. En los casos en que el Presidente llegara ya transcurridos los quince minutos iniciales, podrá incorporarse a la sesión del Consejo, pero lo hará como un director más y no en su calidad de Presidente.
+d) Cuando medie un permiso para no asistir a la sesión respectiva, en cuyo caso el Vicepresidente asumirá desde la hora fijada para la sesión.
+e) En caso de un permiso temporal otorgado al Presidente, sustituyéndolo por todo el período del permiso.
+f) Cuando medie una renuncia, en cuyo caso asumirá la Presidencia hasta concluir el período. En estos casos, una vez designado el miembro que sustituirá como director al renunciante, deberán los integrantes del Consejo proceder a la elección de un nuevo vicepresidente, quien durará en sus funciones por lo que falta del periodo para el que originalmente se había nombrado al anterior vicepresidente y que asumió la Presidencia.
+g)

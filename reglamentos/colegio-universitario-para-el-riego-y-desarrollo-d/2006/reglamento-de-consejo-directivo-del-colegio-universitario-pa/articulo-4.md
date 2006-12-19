@@ -1,0 +1,1 @@
+Artículo 4º—Además del Presidente, los directores elegirán un Vicepresidente, quien sustituirá al Presidente en sus ausencias temporales o definitivas, y en ambos casos entrará a desempeñarse con las mismas facultades que el Presidente.

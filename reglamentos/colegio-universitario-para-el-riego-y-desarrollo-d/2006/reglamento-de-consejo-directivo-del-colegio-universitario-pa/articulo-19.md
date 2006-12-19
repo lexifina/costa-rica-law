@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de una sesión suspendida: Caso de presentarse una situación como la señalada en el artículo anterior, se dejará constancia escrita en el acta, de los directores que asistieron y quiénes se encontraban ausentes, consignando allí mismo aquellos que hubiesen solicitado el permiso respectivo.

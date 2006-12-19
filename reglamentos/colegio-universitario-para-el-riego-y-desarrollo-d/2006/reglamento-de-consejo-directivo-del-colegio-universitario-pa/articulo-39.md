@@ -1,0 +1,1 @@
+Artículo 39.—Asuntos de trámite urgente: La Presidencia, calificará los asuntos de trámite urgente y notificará a la Secretaria para que los incluya en el Orden del Día. En sesión podrán incluirse otros de trámite urgente por iniciativa de uno o más directores, con el acuerdo de las dos terceras partes de los miembros que integran el Consejo.

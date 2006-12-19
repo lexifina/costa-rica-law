@@ -1,0 +1,1 @@
+Artículo 40.—Retiro de asuntos de trámite urgente: Los asuntos calificados por la Presidencia como de trámite urgente, puede ser excluidos de esa condición, si mocionando en ese sentido alguno de los directores, obtiene una votación de las dos terceras partes de los directores integrantes del Consejo.

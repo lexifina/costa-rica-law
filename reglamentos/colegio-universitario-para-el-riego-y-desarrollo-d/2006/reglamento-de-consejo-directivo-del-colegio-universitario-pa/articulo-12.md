@@ -1,0 +1,1 @@
+Artículo 12.—Recusación: Podrá ser recusado (a) por cualquier persona interesada, el Director (a) o el Decano (a), que no se excuse de intervenir en la discusión y/o votación a la que se refiere el inciso a) del artículo anterior. El Concejo decidirá si la recusación procede.

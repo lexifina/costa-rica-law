@@ -1,0 +1,1 @@
+Artículo 45.—Votación de la moción de orden: En cualquier momento durante la sesión se podrá presentar una moción de orden. Esta suspenderá el debate hasta tanto no sea votada por el Consejo. Las mociones de orden deben ser conocidas y puestas a votación inmediatamente, sin discusión y en riguroso orden de presentación.

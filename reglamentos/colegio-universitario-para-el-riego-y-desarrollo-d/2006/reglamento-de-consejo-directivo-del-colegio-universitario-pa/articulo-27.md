@@ -1,0 +1,1 @@
+Artículo 27.—Acuerdos firmes y definitivamente aprobados: Los acuerdos tomados por el Consejo, quedarán firmes al aprobarse el acta respectiva. Cuando el Consejo lo estime conveniente, por razones de oportunidad y conveniencia, por votación de las dos terceras partes de la totalidad de los miembros que lo integran, podrá declarar sus acuerdos firmes y definitivamente aprobados.

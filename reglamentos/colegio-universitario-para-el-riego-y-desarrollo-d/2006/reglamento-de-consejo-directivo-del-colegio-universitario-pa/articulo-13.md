@@ -1,0 +1,1 @@
+Artículo 13.—De la Secretaria del Consejo: El Consejo contará con una Secretaría, nombrada por él mismo, éste ejercerá sobre la Secretaría las potestades de dirección, control y fiscalización, sin embargo, en lo referente a los aspectos administrativos dependerá según corresponda del Decano y el Director Administrativo.
