@@ -13,3 +13,4 @@ Sobre la Aplicación del Artículo 4º de la Ley de Consultorios Jurídicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-05 | la propia norma |
+| 2 | 2006-12-20 | Circular 134 (2006-12-20) |
