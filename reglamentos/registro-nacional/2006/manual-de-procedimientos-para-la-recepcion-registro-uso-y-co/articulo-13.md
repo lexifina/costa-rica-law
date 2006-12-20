@@ -1,0 +1,5 @@
+Artículo 13.—Faltante de bienes. Todo Jefe de Departamento responderá ante el Director de Registro, por el faltante detectado en su inventario. Estos faltantes serán analizados por la Dirección, quien tendrá la responsabilidad de valorar la conveniencia y oportunidad para los intereses de la Institución, investigar el hecho y enviar por escrito la información a la Unidad de Administración de Bienes.
+Las Direcciones, Coordinaciones y Jefaturas de Departamentos u Unidades que organizacionalmente se encuentren ubicados como Staff de la Junta Administrativa del Registro Nacional, deben responder por cualquier faltante detectado.
+Si hubiera responsabilidad por parte de algún funcionario, se procederá conforme lo establece la ley, normas y políticas institucionales en materia de sanciones disciplinarias o, en su defecto, se aplicará el Reglamento Autónomo de Servicio del Ministerio de (*)Justicia y Paz.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
+En todo caso, la Auditoría Interna y el Departamento de Asesoría Legal serán informados de estos faltantes de inventario para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 8º—Asignación de bienes. En el control de asignación de bienes, se registrará el nombre del funcionario responsable, la ubicación, el número de identificación y demás datos que permitan localizarlo en forma rápida, de acuerdo con la información estipulada en fórmula Nº 3 “Control y Asignación de Bienes”.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El objetivo del presente Manual es establecer las normas y procedimientos para controlar las operaciones patrimoniales relativas a la recepción, administración, control, registro y uso de los bienes duraderos (bienes muebles e inmuebles) de la Junta Administrativa del Registro Nacional.

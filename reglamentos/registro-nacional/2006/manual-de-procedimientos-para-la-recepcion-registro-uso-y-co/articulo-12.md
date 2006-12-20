@@ -1,0 +1,2 @@
+Artículo 12.—Control de los bienes. Cada Dirección, Coordinación, Departamento, Jefatura o Unidad, debe de llevar un control de los bienes por funcionario asignado, ubicación, código, número de placa y descripción completa de los activos a su cargo.
+Cuando sea requerido enviarán un informe de lo anterior a la Unidad de Administración de Bienes, sobre los responsables de las áreas que conforman cada una de sus Direcciones (de acuerdo al organigrama de la Institución).

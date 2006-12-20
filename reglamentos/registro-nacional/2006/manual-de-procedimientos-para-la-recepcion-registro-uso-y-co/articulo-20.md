@@ -1,0 +1,2 @@
+Artículo 20.—Bienes de uso personal. Todo funcionario deberá reportar por escrito a la Unidad de Administración de Bienes, cualquier bien de su propiedad que ingrese a las instalaciones del Registro Nacional para uso personal para lo cual utilizará la fórmula Nº 10 “Declaración de Bienes Personales”.
+El Registro Nacional no asumirá responsabilidad alguna por aquellos bienes personales que se pierdan o se deterioren dentro o fuera de las instalaciones o actividades institucionales, excepto que exista convenio que lo considere.

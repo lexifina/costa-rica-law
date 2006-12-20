@@ -1,0 +1,2 @@
+Artículo 31.—Responsables del buen uso de los bienes. El buen uso y cuidado de los bienes es obligación del funcionario asignado, de acuerdo con el Reglamento Autónomo de Servicio del Ministerio de (*)Justicia y Paz en su Capítulo V, artículo 33, inciso G) y que es instancia del funcionario designado como responsable del bien, así también la jefatura donde se encuentre y la Dirección respectiva.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)

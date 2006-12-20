@@ -1,0 +1,3 @@
+Artículo 42.—Casos no previstos en este manual. Las situaciones no previstas en este Manual, deberán ser abordadas y resueltas de conformidad con el Reglamento para el Registro y Control de Bienes de la Administración Central, en primera instancia, recurriendo de manera supletoria a cualquier otra norma que regule la materia objeto de estudio. La Unidad de Administración de Bienes podrá modificar o elaborar otros formularios que considere necesarios de acuerdo a los requerimientos que permitan un mayor control de los bienes propiedad de la Junta Administrativa del Registro Nacional.
+Acuerdo firme J635, de la Sesión Ordinaria Nº 46-2006, celebrada el día 30 de noviembre del 2006, por la Junta Administrativa del Registro Nacional.
+San José, 11 de diciembre del 2006.
