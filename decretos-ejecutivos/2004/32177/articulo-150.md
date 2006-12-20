@@ -1,11 +1,3 @@
-Articulo 150.—El Departamento de Seguridad Comunitaria desarrollara las siguientes funciones:
-1) Realizar investigaciones que sirvan de insumo para la formulacion de los lineamientos institucionales en materia de Seguridad Comunitaria.
-2) Realizar diagnósticos en aquellas comunidades en que se solicite la creación de cometes de Seguridad Comunitaria, o se encuentre operando uno de estos.
-3) Coordinar con otras instancias del Ministerio u organizaciones, publicas o privadas, nacionales e internacionales, investigaciones e información en materia de Seguridad Comunitaria.
-4) Estructurar y mantener actualizado el registro de información documental y la base informática de datos en materia de Seguridad Comunitaria, que fortalezca los procesos de organización y capacitación.
-5) Realizar acciones de motivación, en el ámbito comunitario, para la conformación de comités de Seguridad Comunitaria.
-6) Promover la creación de comités, bajo el modelo de Seguridad Comunitaria, como instancias de participación en la prevención del delito.
-7) Realizar actividades tendientes a fortalecer los comités de Seguridad Comunitaria constituidos.
-8) Asesorar y capacitar a los comités, en materia de Seguridad Comunitaria, con base en las necesidades detectadas y las proyecciones hechas.
-9) Fomentar la creación de redes comunales que integren los comités de Seguridad Comunitaria, con el fin de compartir experiencias y aunar esfuerzos en la resolución de los temas de prevención del delito.
-10) Coordinar acciones con los comités de Seguridad Comunitaria para reducir los ambientes propicios al crimen, mediante la rehabilitación de la infraestructura y el mobiliario urbano en las comunidades.
+Articulo 150.—La Academia del Servicio Nacional de Guardacostas, es el órgano encargado de brindar la capacitación técnica y policial a los funcionarios policiales del Servicio Nacional de Guardacostas.
+La Academia dependerá jerárquicamente de la Dirección del Servicio Nacional de Guardacostas pero, en lo relacionado con aquellos procesos de capacitación de carácter policial, se establecerá una dependencia de coordinación académica con la Escuela Nacional de Policía “Francisco J. Orlich B.”.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 143 al 150 actual)

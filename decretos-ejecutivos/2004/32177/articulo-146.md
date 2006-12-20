@@ -1,3 +1,2 @@
-SECCION III
-Programa de resistencia al abuso de drogas
-Articulo 146.—El Ministerio, a través de la Escuela Nacional de Policía, coordinara y supervisara la capacitación y las funciones del personal de este Ministerio que colabore con Programas relacionados con la resistencia al abuso de drogas.
+Articulo 146.—El Departamento de Investigación y Evaluación es el órgano encargado de la ejecución de las actividades de investigación, desarrollo, y extensión comunal, subordinado a la Dirección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 139 al 146 actual)

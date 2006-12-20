@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Dirección de Servicios de Seguridad Privados
-Articulo 152.—La Dirección de Servicios de Seguridad Privados dependerá del Ministro (a) y deberá garantizar el cumplimiento de la normativa vigente en esta materia. Su competencia será la de verificar, supervisar y controlar que las personas físicas y jurídicas dedicadas a prestar el servicio de seguridad privado, se ajusten a lo dispuesto por el ordenamiento, en especial a la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento
+Articulo 152.—La Escuela Nacional de Policía podrá contar con sedes regionales, con la finalidad de cumplir con sus objetivos y fortalecer el proceso de expansión y regionalización de dichas actividades Sus instalaciones serán de uso exclusive para las actividades docentes oficiales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 145 al 152 actual)

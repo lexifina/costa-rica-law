@@ -1,7 +1,7 @@
-Articulo 134.—La Dirección tendrá, además de los deberes y responsabilidades establecidas en el articulo 19 del presente Reglamento, las siguientes:
-1) Valorar y ejecutar las políticas y lineamientos acordados por el Consejo Académico.
-2) Elaborar y proponer el plan anual de formación y capacitación; así como, el de presupuesto de la Escuela.
-3) Presidir el Consejo de Instructores.
-4) Conocer y resolver los reclames interpuestos por los estudiantes en asuntos académicos.
-5) Conocer y resolver, las solicitudes de convalidación que Ie sean presentadas, según lo dispuesto en los artículos 15 y 93 del Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Publica (N° 23880-SP), de conformidad con la reglamentación que se establezca al efecto. Previo estudio y recomendación que realice el Departamento Académico.
-6) Aquellas otras propias de su competencia.
+Articulo 134.—El Departamento de Inteligencia tendrá las siguientes funciones:
+1) Realizar labores de inteligencia de cierta complejidad y análisis, con respecto a personas físicas y a grupos organizados dedicados al trafico ilícito de drogas, a la legitimación de capitales y/o actividades conexas.
+2) Crear enlaces con otras fuentes de información vinculadas con la materia, con el propósito de mantener actualizadas las bases documentales e informáticas de la Policía de Control de Drogas.
+3) Apoyar las investigaciones de casos relativos a legitimación de capitales, provenientes del trafico ilícito de drogas.
+4) Suministrar información a las dependencias y cuerpos policiales nacionales e internacionales debidamente autorizados por el Ministro (a) o a solicitud de una autoridad judicial competente.
+5) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 127 al 134 actual)

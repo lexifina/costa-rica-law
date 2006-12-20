@@ -1,1 +1,2 @@
-Articulo 135.—El Consejo Académico es el órgano asesor que recomienda las políticas generales en el ámbito de educación policial, de conformidad con los criterios establecidos en la Ley General de Policía y sus reformas.
+Articulo 135.—El Departamento de Inteligencia contara con el Centro de Información y Análisis, el cual se encargara de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contara con el registro informático. También administrara la red informática de la Dirección y procurara crear enlaces con otras fuentes de información.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 128 al 135 actual)

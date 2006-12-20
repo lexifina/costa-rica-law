@@ -1,2 +1,2 @@
-Articulo 179.—Rige a partir de su publicación.
-Dado en San José, a las ocho horas del día primero de diciembre del ano dos mil cuatro.
+Articulo 179.—Toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica de este Ministerio deberá ser revisada por la Oficina de Planificación Institucional en coordinación con la Asesoría Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del Ministro.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 172 al 179 actual)

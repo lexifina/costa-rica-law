@@ -1,7 +1,11 @@
-Articulo 158.—La Reserva de las Fuerzas de Policía, cuando haya sido convocada de conformidad con lo establecido en la Ley General de Policía y sus reformas, tendrá, en esas circunstancias y dentro de ese marco de competencias, las siguientes funciones:
-1) Coordinar con la Fuerza Publica las labores de prevención, vigilancia y protección en el territorio nacional, para preservar la seguridad de los habitantes, sus bienes y sus derechos y libertades constitucionales.
-2) Cooperar con la Fuerza Publica, instituciones gubernamentales y otras entidades en casos de calamidad o desastre natural, eventos masivos, conflagraciones y conmoción civil.
-3) Hacer cumplir lo ordenado por el Tribunal Supremo de Elecciones, en materia electoral, en coordinación con la Fuerza Publica y de conformidad con la Constitución Política y demás normativa aplicable.
-4) Velar por el cumplimiento de la normativa ambiental, ejerciendo las labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esta normativa.
-5) Realizar las acciones pertinentes para procurar la capacitación de los miembros de la Reserva de las Fuerzas de Policía, de acuerdo con las necesidades y funciones que desempeñan.
-6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+Articulo 158.—El Departamento de Seguridad Comercial tendrá las siguientes funciones:
+1) Realizar investigaciones que sirvan de insumo para la formulacion de los lineamientos institucionales en materia de Seguridad Comercial.
+2) Realizar diagnósticos en las diferentes zonas comerciales del país.
+3) Estructurar y mantener actualizado el registro de información documental y la base informática de datos en materia de Seguridad Comercial, que fortalezca los procesos de organización y capacitación.
+4) Realizar acciones de motivación en el sector comercial, para la conformación de comités de Seguridad Comercial.
+5) Realizar actividades tendientes a fortalecer los comités de Seguridad Comercial constituidos.
+6) Asesorar y capacitar a los comités, en materia de Seguridad Comercial, con base en las necesidades detectadas y las proyecciones hechas.
+7) Fomentar la creación de redes comerciales que integren los comités de Seguridad Comercial con el fin de compartir experiencias y aunar esfuerzos en la resolución de los temas de prevención del delito.
+8) Coordinar acciones con los comités de Seguridad Comercial para reducir los ambientes propicios al crimen.
+9) Implementar un proceso de seguimiento y evaluación que permita medir el impacto de la implementación de la estrategia de Seguridad Comercial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 151 al 158 actual)
