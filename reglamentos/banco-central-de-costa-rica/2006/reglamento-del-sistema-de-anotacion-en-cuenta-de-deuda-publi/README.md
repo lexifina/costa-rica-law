@@ -14,3 +14,4 @@ Reglamento del Sistema de Anotación en Cuenta de Deuda Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-20 | la propia norma |
+| 2 | 2006-12-20 | Reglamento 5310 (2006-12-20) |
