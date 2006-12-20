@@ -14,3 +14,4 @@ Las instituciones del sector público que realicen transacciones diarias de comp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-17 | la propia norma |
+| 2 | 2006-12-20 | Acuerdo 0 (2006-12-20) |
