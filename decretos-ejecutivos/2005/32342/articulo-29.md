@@ -1,2 +1,4 @@
-Artículo 29.—Deberes y sanciones. El Director General de la Fuerza Pública, a solicitud de los Directores Regionales, de los Directores de Unidades Especializadas y de los Jefes de las diversas Unidades Policiales, autorizará la entrega de los uniformes y demás accesorios para la buena función policial.
-Los Directores y los Jefes de Unidades Policiales serán los responsables de la distribución de uniformes en forma equitativa, y adoptarán las medidas necesarias que permitan establecer la responsabilidad individual de cada funcionario respecto del uniforme que se le entrega. Para la entrega y solicitud de uniformes, se coordinará en forma directa con el Oficial Administrativo de la dependencia.
+CAPÍTULO VII
+Del régimen disciplinario
+Artículo 29.—Aplicación. El incumplimiento de las disposiciones contenidas en el presente Reglamento, se regirá por lo dispuesto en el Capítulo XIV del Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Publica, “Del Régimen Disciplinario”.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 28 al 29 actual del artículo)

@@ -14,3 +14,4 @@ Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Min
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-09 | la propia norma |
+| 2 | 2006-12-20 | Decreto Ejecutivo 33510 (2006-12-20) |

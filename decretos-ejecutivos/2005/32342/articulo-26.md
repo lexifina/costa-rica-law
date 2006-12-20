@@ -1,6 +1,5 @@
-Artículo 26.—De los distintivos, especialidades, condecoraciones y reconocimientos. El distintivo de la Fuerza Pública se colocará a 3,5 cm del borde superior en la manga izquierda, y la Bandera Nacional se colocará a 3,5 cm del borde superior en la manga derecha; ambas centradas.
-El distintivo del Consejo Superior solamente podrá ser utilizado por los Oficiales Superiores que integren dicho Consejo, y se utilizará un distintivo en cada solapa del cuello. En las porta charreteras se utilizará el grado que ostente. La utilización de este distintivo por oficiales no autorizados será considerada falta grave.
-Las especialidades serán utilizadas solamente para actividades especiales, con el uniforme formal o con el de diario. Las especialidades internacionales de forma curva se colocarán sobre el distintivo de la Fuerza Pública, y las nacionales, sobre la Bandera.
-Los distintivos por condecoraciones y reconocimiento serán utilizados solamente para actividades especiales, con el uniforme formal o con el de diario. Si son otorgados por entes nacionales, se colocarán sobre la tapa de la bolsa izquierda de la camisa; si son otorgados por entes internacionales, se colocarán sobre la tapa de la bolsa derecha de la camisa.
-Se autorizará el uso de pines por cursos aprobados y avalados por la Escuela Nacional de Policía, para ser utilizados en actividades especiales, con el uniforme formal o con el de diario y únicamente cuando la duración del curso sea igual o superior a las 90:00 horas. No podrán utilizarse más de tres pines al mismo tiempo.
-Para la portación de reconocimientos, condecoraciones, especialidades o distintivos, se deberá contar con la respectiva aprobación de la Dirección de Operaciones.
+CAPÍTULO V
+Del uso y colocación de las insignias de grado
+y otros distintivos
+Artículo 26.—Colocación de grados. Los distintivos de grado se utilizarán sobre las charreteras, bordados en hilo de color oro. Las charreteras serán de tela negra y deberán tener una línea bordada en hilo color oro en el borde distal del cuello.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 25 al 26 actual del artículo)

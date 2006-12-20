@@ -1,11 +1,19 @@
-CAPÍTULO IV
-Del uso de otras insignias, distintivos, especialidades,
-condecoraciones y reconocimientos
-Artículo 24.—De las insignias autorizadas por rama de servicio.
-Oficiales Ejecutivos | Dos pistolas cruzadas, de 2,3 cm de ancho por 1,9 cm de alto, todo en color dorado.
-Oficiales Superiores | Las letras C R de 2,3 cm de ancho por 1,3 cm de alto, todo en color dorado.
-Servicio Nacional Guardacostas | Un ancla con un cabo atado el cual desciende envolviendo a la misma, de 2,3 cm de ancho por 1,9 cm de alto, todo en color dorado.
-Servicio Vigilancia Aérea | Dos alas abiertas que salen de un escudo con los colores patrios. Su dimensión es de 2,3 cm de ancho por 1,9 cm de alto.
-Dirección Policial de Apoyo Legal | Una balanza rodeada por dos líneas de flores de café enlazadas en su base y abiertas en su punto más distal en forma ovalada, con dimensiones de 0,42 cm de grosor por 4,55 cm de largo; el ancho de la insignia es de 2.8 cm. Todo en color dorado.
-Inspectoría General Fuerza Pública | Una lupa en color plateado rodeada por dos líneas de flores de café enlazadas en su base y abiertas en su punto más distal en forma ovalada, las mismas miden 0,42 cm de grosor y 4,55 cm de largo; el ancho de la insignia es de 2,8 cm, todo en color dorado.
-Integrante Consejo Superior (insignia de uso restringido) | Una estrella de cinco puntas de 1,70 cm, sobre la estrella se colocará el Escudo de Costa Rica en color bronce, rodeado por dos ramas de café enlazadas en su base y abiertas en su punto más distal, en forma ovalada, con dimensiones de 0,42 cm de grosor por 2,40 cm de largo; el ancho es de 2,56 cm, todo en color plata a excepción del Escudo.
+CAPÍTULO III
+De los distintivos de la escala jerárquica
+Artículo 24.—Insignias de las escalas jerárquicas. Las escalas jerárquicas establecidas por la Ley General de Policía, según el grado policial que corresponda, contendrán las siguientes insignias:
+a) Escala Básica
+Nomenclatura | Abreviatura | Insignia Grado Fuerza Pública | Insignia Grado Guardacostas
+Agente | Agt. | Una V invertida de 2,3 cm de ancho y 1,9 cm de alto, todo en color dorado. | Una V invertida de 2,3 cm de ancho y 1,9 cm de alto, todo en color dorado.
+Inspector | Insp | .Dos V invertidas de 2,3 cm de ancho, 1,9 cm de alto y una separación entre líneas de 0,135 cm, todo en color dorado. | Dos V invertidas de 2,3 cm de ancho, 1.9 cm de una separación entre líneas de 0,135 cm, todo en color dorado.
+Sargento Policía | Sgto | Tres V invertidas de 2,3 cm de ancho, 2,445 cm, de alto y una separación entre líneas de 0,135 cm., todo en color dorado. | Tres V invertidas de 2,3 cm de ancho, 2,445 cm,y una separación entre líneas de 0,135 cm, todo en color dorado.
+b) Escala Oficiales Ejecutivos
+Nomenclatura | Abreviatura | Insignia Grado Fuerza Pública | Insignia Grado Guardacostas
+Subintendente | Sint. | Una barra de 0,53 cm por 2,5 cm, en color dorado | Una barra de 0,26 cm, por 2,5 cm, en color dorado
+Intendente | Int | Dos barras de 0,53 cm por 2,5 cm, unidas por dos puentes con una separación de 0,8 cm, en color dorado. | Una barra de 0,53 cm por 2,5 cm, en color dorado
+Capitán de policía | Cap | Tres barras de 0,53 cm por 2,5 cm, unidas por dos puentes con una separación de 0,8 cm, en color dorado | Dos barras de 0,53 cm por 2,5 cm, unidas por dos puentescon una separación de 0,8 cm, en color dorado.
+c) Escala Oficiales Superiores
+Nomenclatura | Abreviatura | Insignia Grado Fuerza Pública | Insignia Grado Guardacostas
+Comandante | Cmte. | Una estrella de cinco puntas de 1,84 cm, rodeada por dos líneas de flores de café enlazadas en su base y abiertas en su punto más distal en forma ovalada, con medidas de 0,42 cm de grosor, 3,42 cm de largo, y 2,3 cm de ancho, todo en color dorado. | Dos barras de 0,53 cm por 2,5 cm, intercalada una barra de 0,26 cm por 2,5 cm; unidas por dos puentes con una separación de 0,8 cm, todo en color dorado.
+Comisionado | Cmdo. | Dos estrellas de cinco puntas de 1,84 cm, rodeadas por dos líneas de flores de café enlazadas en su base y abiertas en su punto más distal en forma ovalada, con medidas de 0,42 cm de grosor y 4,55 cm de largo; el ancho de la la insignia es de 2,8 cm, todo en color dorado. | Tres barras de 0,53 cm por 2,5 cm, unidas por dos puentes con una separación de 0,8 cm, todo en color dorado.
+Comisario | Cmro. | Tres estrellas de cinco puntas de 1.84 cm rodeadas por dos líneas de flores de café enlazadas en su base y abiertas en su punto más distal en forma ovalada, con medidas de 0.42 cm, de grosor y 5,04 cm de largo; el ancho de la insignia es de 2,8 cm, todo en color dorado. | Cuatro barras de 0,53 cm por 2,5 cm, unidas por dos puentes con una separación de 0,8 cm, todo en color dorado.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 23 al 24 actual del artículo)

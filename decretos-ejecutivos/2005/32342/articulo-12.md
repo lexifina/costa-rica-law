@@ -1,3 +1,4 @@
-CAPÍTULO II
-De los accesorios permitidos
-Artículo 12.—De la capa. La capa será de color negro, con bandas reflectivas en la espalda y en las mangas, con la leyenda “Fuerza Pública” en la espalda y al frente, al costado derecho la leyenda “Policía”. El cierre será frontal con velcro. Con esta capa los motorizados utilizarán pantalón negro con la leyenda “Policía” en sus piernas.
+Artículo 12.—Del uniforme para acondicionamiento físico. Para acondicionamiento físico u otras actividades que lo requieran, se utilizará camiseta blanca con las leyendas, “Policía” al frente y “Fuerza Pública” en la parte trasera. En su lugar se podrá utilizar camiseta completamente blanca, pantaloneta azul oscuro, medias blancas deportivas y zapatos deportivos.
+Cuando se realicen actividades de acondicionamiento físico en la vía pública, al menos dos efectivos utilizarán chalecos reflectantes.
+Los estudiantes de la Escuela Nacional de Policía, utilizarán camiseta blanca con el escudo de la Escuela al frente en el lado izquierdo, pantaloneta azul con el escudo de la Escuela en la pierna izquierda, medias deportivas blancas y zapatos deportivos.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 11 al 12 actual del artículo)
