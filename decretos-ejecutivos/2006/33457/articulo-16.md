@@ -1,0 +1,1 @@
+Artículo 16.—Conformación. Cada brigada estará conformada por cinco funcionarios de esta Cartera Ministerial, nombrados por la Comisión. Cada brigada contará con un Supervisor que será el responsable definitivo del trabajo de su brigada.

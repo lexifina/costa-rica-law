@@ -1,0 +1,1 @@
+Artículo 8º—Plazo de nombramiento. Los miembros de la Comisión durarán en sus cargos un año, pudiendo ser reelectos indefinidamente. En caso de muerte, renuncia o abandono del cargo de alguno de sus miembros, el miembro sustituto ocupará el cargo durante el plazo restante del miembro saliente.

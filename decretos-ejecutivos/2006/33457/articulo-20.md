@@ -1,0 +1,1 @@
+Artículo 20.—De las sesiones. Las brigadas se reunirán ordinariamente dos veces al mes, para revisar y ejecutar los planes de trabajo propuestos por la Comisión y los desarrollados internamente. Podrá hacerlo extraordinariamente, las veces que lo requiera.

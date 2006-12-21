@@ -1,0 +1,1 @@
+Artículo 13.—De las sesiones. La Comisión se reunirá ordinariamente dos veces al mes, para verificar el avance de los planes de prevención y mitigación de emergencias. Podrá hacerlo extraordinariamente, las veces que lo requiera.

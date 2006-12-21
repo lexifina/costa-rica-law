@@ -1,0 +1,1 @@
+Artículo 3º—Finalidad. La finalidad de este Reglamento, es conferir a la Comisión Institucional de Emergencias un marco jurídico que la faculte para organizar y estructurar las medidas administrativas necesarias, para el establecimiento de los planes de emergencia que deben ejecutarse en las instalaciones del CENAC con el fin de mitigar el riesgo.

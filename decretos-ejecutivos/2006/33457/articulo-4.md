@@ -1,0 +1,2 @@
+Artículo 4º—Carácter. El presente Reglamento es de carácter permanente y obligatorio para los miembros de la Comisión, los brigadistas y los funcionarios que en dichas instalaciones laboren.
+Las jefaturas de Departamentos o Direcciones del Ministerio, están obligados a otorgar permiso a los miembros de la Comisión o de las brigadas, para que atiendan cualquier asunto relativo al funcionamiento de la Comisión.
