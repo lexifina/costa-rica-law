@@ -1,2 +1,2 @@
-ARTÍCULO 12
-En cuanto al fraccionamiento de operaciones se deberá cumplir con lo dispuesto en el artículo 20 del Reglamento de la Contratación Administrativa (Decreto No. 7576-H del 27-06-1986).
+Artículo 12.—En cuanto al fraccionamiento de operaciones se deberá cumplir con lo dispuesto en los artículos del Reglamento General de Contratación Administrativa Decreto Nº 25038-H.
+(Así reformado mediante sesión N° 49-2006 del 21 de diciembre del 2006).

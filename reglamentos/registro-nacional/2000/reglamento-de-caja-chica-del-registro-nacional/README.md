@@ -16,3 +16,4 @@ Reglamento de Caja Chica del Registro Nacional
 | 1 | 2001-02-26 | la propia norma |
 | 2 | 2001-08-14 | Reglamento 36 (2001-08-14) |
 | 3 | 2005-09-14 | Reglamento 36 (2005-09-14) |
+| 4 | 2006-12-21 | Reglamento 49 (2006-12-21) |
