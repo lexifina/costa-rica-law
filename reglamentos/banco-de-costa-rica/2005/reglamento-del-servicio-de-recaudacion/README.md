@@ -14,3 +14,4 @@ Reglamento del Servicio de Recaudación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-01 | la propia norma |
+| 2 | 2006-12-21 | Reglamento 52 (2006-12-21) |
