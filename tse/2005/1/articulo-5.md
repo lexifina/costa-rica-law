@@ -1,1 +1,0 @@
-Artículo 5°—La oficina de Coordinación de Programas Electorales atenderá las solicitudes relativas a utilizar equipo de voto electrónico que formulen los centros educativos, colegios profesionales, etc.
