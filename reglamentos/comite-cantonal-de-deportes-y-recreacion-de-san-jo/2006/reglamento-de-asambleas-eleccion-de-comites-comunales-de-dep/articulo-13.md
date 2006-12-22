@@ -1,0 +1,2 @@
+Artículo 13.—Finalizada la elección de los cinco directores, se deberá dejar constancia de todo lo actuado en la asamblea, en forma escrita, así como hacer constar en ésta el nombre, apellidos, número de cédula, dirección, teléfono, estado civil, y ocupación de las personas elegidas.
+Confeccionada el acta, la misma será leída a los delegados presentes, y suscrita por los directores de asamblea, quién levantará la sección dando por finalizado el proceso.

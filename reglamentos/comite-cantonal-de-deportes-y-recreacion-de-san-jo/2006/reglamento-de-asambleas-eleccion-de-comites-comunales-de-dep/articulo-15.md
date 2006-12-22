@@ -1,0 +1,1 @@
+Artículo 15.—Para la aplicación de las sanciones establecidas en el artículo anterior, necesariamente se deberá cumplir con el debido proceso sea mediante el procedimiento sumario u ordinario establecido en lá ley general de Administración Pública.

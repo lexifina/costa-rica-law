@@ -1,0 +1,1 @@
+Artículo 7º—Únicamente tendrán derecho a voz y voto los delegados. La intervención oral no podrá exceder de tres minutos y no puede cederse dicho derecho. A su vez, no podrá el delegado hacerse representar por persona alguna, por medio de mandato. Las manifestaciones versarán únicamente en aspectos propios de la elección ponderados por el director.

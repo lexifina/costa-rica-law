@@ -1,0 +1,1 @@
+Artículo 2º—Corresponde al director de la asamblea informar a la Junta Directiva los nombres y calidades de los directores electos en ésta, lo anterior dentro de un plazo no mayor a ocho días naturales después de verificada la asamblea.

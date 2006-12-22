@@ -1,0 +1,1 @@
+Artículo 6º—Podrán ingresar al recinto personas interesadas en el deporte y recreación, con la presentación de su cédula de identidad en calidad de no delegados para lo cual se tomarán las previsiones del caso a efecto de no confundirse con los delegados asistentes. .Los no delegados que reúnan los requisitos reglamentarios pueden ser electos directores.
