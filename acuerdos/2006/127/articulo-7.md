@@ -1,0 +1,2 @@
+Artículo 7º—Formación de precios. Las recompras que realice el emisor al amparo de este acuerdo, no forman precio, por lo que se deben excluir de los cálculos de las metodologías de valoración a precios de mercado.
+En el caso de las recompras de acciones a través de los mecanismos normales de negociación en bolsa, el puesto de bolsa designado por el emisor para las compras, debe informar sobre éstas a la bolsa de valores al finalizar la sesión, de manera que la bolsa pueda excluirlas para efectos de la determinación del vector de precios.

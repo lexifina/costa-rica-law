@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidad sobre ofertas públicas de adquisición. Las obligaciones de este acuerdo no excluyen los deberes y requisitos que involucra una oferta pública de adquisición en los supuestos que establece el artículo 36 de la Ley Reguladora del Mercado de Valores y el Reglamento sobre Oferta Pública de Valores.
