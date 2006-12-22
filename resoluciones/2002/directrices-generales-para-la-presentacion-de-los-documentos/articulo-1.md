@@ -1,4 +1,5 @@
 CONTRALORÍA GENERAL DE LA REPÚBLICA
+(Esta directriz fue Derogada por Resolución R-CO-103 del 22 de diciembre de 2006, se exceptúa de esta derogación los puntos 5.2 y 5.3 de esta directriz)
 RESOLUCIONES
 DIRECTRICES GENERALES PARA LA PRESENTACIÓN DE LOS DOCUMENTOS PRESUPUESTARIOS DE LOS FIDEICOMISOS CUYOS PRESUPUESTOS DEBEN SER APROBADOS POR LA CONTRALORÍA GENERAL DE LA REPÚBLICA
 Despacho del Contralor General.—San José, a las ocho horas del treinta de agosto de dos mil dos.
