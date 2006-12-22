@@ -1,1 +1,0 @@
-Artículo 3°—Contra las decisiones de la Dirección Ejecutiva podrán interponerse recursos de revocatoria y apelación en subsidio para ante el Tribunal Supremo de Elecciones dentro de los tres días posteriores a la comunicación o publicación.
