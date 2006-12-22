@@ -1,0 +1,1 @@
+Artículo 2º—Del objeto. El presente instructivo tiene por objeto la instrucción del procedimiento a seguir por parte del Servicio de Inspección para la reposición de un expediente administrativo ó de alguna de las piezas que lo conforman, debido al extravío o pérdida por cualquier causa.

@@ -1,0 +1,8 @@
+CAPÍTULO II
+Del procedimiento
+SECCIÓN I
+De la reposición de piezas del
+expediente administrativo
+Artículo 3º—Cuando el procedimiento administrativo se encuentra en una etapa posterior a la emisión y notificación del traslado de cargos hasta la atención del recurso de revocatoria y la jefatura correspondiente -por cualquier causa- constata la ausencia de alguna parte del expediente administrativo, deberá definir si las piezas faltantes corresponden a una actuación del Servicio de Inspección ó a piezas presentadas por el administrado, sea el patrono, el asegurado o el trabajador independiente, según corresponda.
+3.1. En el caso que la(s) pieza(s) faltante(s) correspondan a actuaciones del Servicio de Inspección la Jefatura deberá emitir una resolución para ordenar la incorporación en el expediente administrativo de los documentos en donde se plasmó la actuación ó la repetición de la actuación correspondiente. Del resultado se le dará audiencia al patrono, asegurado o trabajador independiente, según corresponda, por un plazo de tres días.
+3.2. En el caso de que la(s) pieza(s) faltante(s) sea(n) la(s) que en su oportunidad había presentado el patrono, el asegurado o el trabajador independiente, (entiéndase: Descargo al traslado, recursos ó incidentes) la Jefatura deberá emitir una resolución para requerir a la parte que corresponda que aporte la(s) copia(s) de la(s) pieza(s), bajo el apercibimiento de que su no presentación dentro del plazo de tres días, facultará a la Administración para continuar con el procedimiento administrativo con las piezas que se hayan podido incorporar al expediente, ello en respeto del principio de buena fe que debe privar entre el administrado y la Administración.
