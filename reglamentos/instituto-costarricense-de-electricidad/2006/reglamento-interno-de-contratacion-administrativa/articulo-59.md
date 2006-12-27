@@ -1,0 +1,1 @@
+Artículo 59.—Será responsabilidad del CCA en coordinación con el AC, mantener a derecho las garantías, por ejemplo en lo referente a la vigencia, monto, así como ordenar la devolución o ejecución en los casos que procedan.

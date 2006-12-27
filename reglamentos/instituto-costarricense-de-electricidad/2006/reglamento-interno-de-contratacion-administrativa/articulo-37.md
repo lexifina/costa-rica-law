@@ -1,0 +1,1 @@
+Artículo 37.—Cuando se presente una diferencia mayor a un 25% entre el monto estimado y el monto recomendado de adjudicación, deberá justificarse por escrito la diferencia en la respectiva recomendación de adjudicación, aportando la información suficiente.

@@ -1,0 +1,1 @@
+Artículo 31.—Antes de la elaboración del cartel definitivo, la Administración puede celebrar audiencias públicas previas, con los potenciales oferentes. Para esos efectos deberá mediar invitación publicada en algún Diario de circulación nacional y cumplir con los requisitos establecidos en el artículo 53 del Reglamento a la Ley de Contratación Administrativa.

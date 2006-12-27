@@ -1,0 +1,1 @@
+Artículo 38.—En la licitación abreviada, se utilizará el mecanismo de invitación directa o publicación en La Gaceta, según el número de proveedores inscritos, cuyo plazo de tramitación estará acorde con las disposiciones que rigen la materia.

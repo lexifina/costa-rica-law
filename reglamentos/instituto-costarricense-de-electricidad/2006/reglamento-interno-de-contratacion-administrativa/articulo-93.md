@@ -1,0 +1,3 @@
+TÍTULO XI
+Convenios
+Artículo 93.—En observancia de los principios de equidad, proporcionalidad y razonabilidad, la Institución podrá tramitar convenios de cooperación ya sea interinstitucionales, con personas físicas o jurídicas que evidencien su afán de ayuda desinteresada a la Administración y la ausencia de lucro, y los autorizados por ley especial. Los supuestos anteriores se tramitarán de conformidad con el Procedimiento de Convenios Vigente. Será la Unidad de Refrendos y Convenios de la División de Contratación Administrativa de la Dirección Jurídica Institucional, la dependencia responsable de otorgar el visto bueno correspondiente de previo a su firma y otorgar el refrendo dependiendo de su estimación.

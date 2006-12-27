@@ -1,0 +1,2 @@
+Artículo 47.—Para adquirir bienes inmuebles se deberá seguir el procedimiento de licitación pública, salvo que haya ley especial que autorice a la Administración a ejercer las facultades de expropiación o que medie autorización del órgano contralor.
+Para este tipo de procedimiento deberá cumplirse con los requisitos establecidos en el artículo 157 del Reglamento a la Ley de Contratación Administrativa.

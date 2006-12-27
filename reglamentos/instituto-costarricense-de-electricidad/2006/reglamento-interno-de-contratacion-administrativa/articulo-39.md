@@ -1,0 +1,1 @@
+Artículo 39.—En el caso de las licitaciones abreviadas que por su monto sean adjudicadas por el Director de UEN o Director Administrativo, en lugar de la recomendación de adjudicación se enviará el acto de adjudicación a la Proveeduría, quien revisará que esté a derecho y procederá a publicarla en el medio establecido para ello o a comunicarla.
