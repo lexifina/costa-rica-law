@@ -1,0 +1,13 @@
+MINISTERIO DE SALUD
+DM-8674.—San José, a las trece horas del día veintiuno de noviembre del año dos mil seis
+Considerando:
+1º—Que por disposición del artículo 4° de la Ley 7293 publicada en La Gaceta N° 66 del 3 de abril de 1992 y el artículo 3° del Decreto N° 21322-H-S-MEIC, publicado en La Gaceta N° 122 del 26 de junio del 1992, el equipo médico, ortopédico, para laboratorios químico-clínicos y de investigación y toda clase de equipo usado por personas con problemas visuales, auditivos así como el que es empleado en programas de educación especial para discapacitados, su importación y compra local están exoneradas de todo tributo y sobretazas.
+2º—Que de conformidad con el Decreto N° 21719-H-S-MEIC del treinta de octubre de 1992 fue publicado el anexo 4 del Decreto N° 21322-H-S-MEIC y por disposiciones de este y el oficio DM-10-2001 del Ministro de Hacienda del 9 de enero del 2001, corresponde al Ministerio de Salud, vía resolución administrativa, la ampliación de la lista de equipo médico detallada en el Decreto N° 21322-H-S-MEIC antes citado.
+3º—Que el Decreto Ejecutivo N° 32425-S, Reglamento para Notificación, Registro, Clasificación, Importación, y Control de Equipo y Material Biomédico, publicado en La Gaceta N° 120 del 22 de junio del 2005 define como Equipo y material biomédico (EMB): Todo equipamiento, aparato, material, artículo o sistema elaborado y destinado para la prevención, diagnóstico, tratamiento, rehabilitación, investigación, anticoncepción, o para afectar la estructura o función del cuerpo humano y que no utiliza medio farmacológico, inmunológico o metabólico para realizar su función principal en seres humanos, pudiendo entre tanto ser auxiliado en su función, por tales medios. Incluye el equipo como tal, los reactivos, calibradores, controles, y accesorios específicos para tal equipo.
+4º—Que las soluciones desinfectantes, limpiadoras y acondicionadoras para lentes de contacto y toda solución para desinfectar o esterilizar EMB es considerada un EMB y por lo tanto se les aplican las regulaciones existentes para la exoneración de los tributos y sobretazas. Por tanto,
+LA MINISTRA DE SALUD, RESUELVE:
+1º—Ampliar la lista del equipo médico, con la siguiente nómina de soluciones para el uso en Equipo y Material Biomédico.
+a) Soluciones desinfectantes, limpiadoras y acondicionadoras para lentes de contacto.
+b) Soluciones para desinfectar y esterilizar un Equipo y Material Biomédico.
+2º—Notifíquese al Departamento de Exoneraciones del Ministerio de Hacienda y a la Dirección General de Apoyo a la Pequeña y Mediana Empresa del Ministerio de Economía, Industria y Comercio.
+3º—Rige a partir de su publicación.
