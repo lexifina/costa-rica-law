@@ -1,0 +1,1 @@
+Artículo 31.—La oficina de Cobro analizará y confeccionará los arreglos de pago; también será responsable de su seguimiento y deberá verificar la firma de un documento con título ejecutivo, el cual garantizará el cumplimiento del pago respectivo.

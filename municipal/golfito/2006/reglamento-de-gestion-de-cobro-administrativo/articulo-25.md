@@ -1,0 +1,1 @@
+Artículo 25.—No se contratara nuevamente para realizar funciones de cobro judicial a aquellos abogados que hayan incurrido en omisiones importantes tipificadas en el artículo anterior, los cuales lleven a la perdida de recursos por saldos deudores.

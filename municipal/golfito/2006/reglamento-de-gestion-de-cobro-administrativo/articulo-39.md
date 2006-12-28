@@ -1,0 +1,1 @@
+Artículo 39.—El abogado esta obligado a cotejar el edificio antes y después de su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.

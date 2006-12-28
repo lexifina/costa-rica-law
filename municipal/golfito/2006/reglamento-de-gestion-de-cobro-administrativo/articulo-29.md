@@ -1,0 +1,1 @@
+Artículo 29.—Entiéndase por segundo aviso de cobro, como la segunda y última notificación formal de las deudas que tiene un contribuyente con la Municipalidad, así como del tiempo que tiene para cancelar las sumas adeudadas a la Municipalidad ó de realizar algún arreglo de pago. Éste se realiza siempre y cuando el contribuyente haya hecho caso omiso del primero.
