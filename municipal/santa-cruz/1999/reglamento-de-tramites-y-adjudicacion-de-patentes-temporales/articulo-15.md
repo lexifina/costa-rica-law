@@ -1,0 +1,1 @@
+Artículo 15.—En caso de verificarse la venta de licores a menores o la permanencia de estos en locales no autorizados para ellos en los que opera una patente temporal de venta de licores, además de la sanción indicada en el artículo anterior, debe el Alcalde Municipal informar a la autoridad jurisdiccional correspondiente, para las sanciones a las que se refiere la Ley Nº 7633.

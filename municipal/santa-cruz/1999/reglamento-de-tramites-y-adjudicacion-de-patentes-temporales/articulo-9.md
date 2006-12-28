@@ -1,0 +1,1 @@
+Artículo 9º—La Secretaria del Consejo no dará curso a las solicitudes que se presenten en contravención de lo dispuesto por el artículo anterior, así como los que se presenten en un plazo menor al indicado en el artículo 7 de este Reglamento.
