@@ -1,0 +1,1 @@
+Artículo 4º—Se extiende una cordial invitación a los demás Poderes del Estado y a todas las Municipalidades del país, para que en el marco de sus competencias y responsabilidades, programas y prioridades, consideren apoyar política, financiera o institucionalmente esta Iniciativa, o cualquiera de sus componentes o actividades.

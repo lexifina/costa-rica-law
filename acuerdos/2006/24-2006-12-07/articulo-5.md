@@ -1,0 +1,1 @@
+Artículo 5º—Se exhorta a todas las organizaciones sociales, profesionales, gremiales, cívicas, educativas, empresariales, políticas, cooperativas, solidaristas, religiosas, etc.; así como al público en general, para que apoyen esta Iniciativa o cualquiera de sus componente o actividades, dentro del marco de sus propios fines y objetivos.

@@ -1,0 +1,1 @@
+Artículo 6º—Se autoriza a las instituciones que conforman el Sector Público, incluidos los gobiernos locales y las universidades estatales, a brindar apoyo técnico y recursos humanos, financieros y logísticos, para el desarrollo de las actividades propias de la Iniciativa y sus órganos.
