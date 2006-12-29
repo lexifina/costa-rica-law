@@ -1,0 +1,2 @@
+2 ALCANCE
+Esta política va dirigida a los trabajadores y trabajadoras y todas las dependencias que conforman el Instituto Costarricense de Electricidad a nivel nacional y aquellos proyectos que le corresponda a la Institución administrar, dirigir y controlar; con el propósito de garantizar la accesibilidad universal a todo tipo de personas, sea cliente interno o externo y que éstos puedan ejercer sus derechos humanos y constitucionales en los servicios que el ICE ofrece y, con ello mejoren su calidad de vida.
