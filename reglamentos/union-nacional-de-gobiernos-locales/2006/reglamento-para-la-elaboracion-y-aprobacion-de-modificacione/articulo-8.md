@@ -1,0 +1,1 @@
+Artículo 8º—Los asuntos improbados se podrán someter nuevamente a estudio de la Junta Directiva de la UNGL en una nueva modificación presupuestaria, siempre y cuando se hayan subsanado las causas que originaron la improbación y cumpla con la demás normativa aplicable.

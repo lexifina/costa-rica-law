@@ -1,0 +1,1 @@
+Artículo 2º—El encargado del área Contable vigilará en todo momento que se cumplan las disposiciones emitidas por la Contraloría General de la República en materia de Presupuesto para las municipalidades e instituciones autónomas.

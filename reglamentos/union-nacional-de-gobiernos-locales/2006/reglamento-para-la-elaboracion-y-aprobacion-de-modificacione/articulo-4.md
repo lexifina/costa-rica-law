@@ -1,0 +1,1 @@
+Artículo 4º—El encargado del área Contable deberá mantener un archivo o expediente separado, donde conste el documento presupuestario realizado y el acuerdo correspondiente de aprobación por la Junta Directiva de la Institución.

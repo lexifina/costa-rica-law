@@ -1,0 +1,1 @@
+Artículo 10.—La secretaria de la Junta Directiva remitirá el resultado obtenido de la modificación presupuestaria por parte del consejo al Departamento de Contabilidad para su custodia y archivo, indicando número de la sesión en la cual el documento fue conocido, fecha y el resultado de la votación.

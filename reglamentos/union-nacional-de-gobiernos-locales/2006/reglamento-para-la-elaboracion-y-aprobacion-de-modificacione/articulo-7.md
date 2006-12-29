@@ -1,0 +1,1 @@
+Artículo 7º—La Junta Directiva de la UNGL improbará las modificaciones presupuestarias que no cumplan con todos los requisitos legales, técnicos y formales indispensables y los aspectos señalados en el artículo 5 del presente reglamento.

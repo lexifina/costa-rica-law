@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Directiva de la UNGL recibirá para trámite de aprobación hasta un máximo de ocho modificaciones presupuestarias al año. En los casos en que la Administración considere necesario exceder el número autorizado, deberá solicitar autorización a la Junta Directiva justificando los motivos respectivos.

@@ -1,0 +1,1 @@
+Artículo 3º—Las modificaciones presupuestarias contarán con su respectivo expediente, numeración propia y consecutiva y la unidad y funcionario designado para su custodia será el Encargado del área Contable.

@@ -1,0 +1,9 @@
+Artículo 5º—Para la elaboración de las modificaciones presupuestarias el encargado del área contable vigilará en todo momento que se cumplan los siguientes aspectos generales:
+a) Cumplir con el bloque de legalidad vigente.
+b) Se formule atendiendo el nivel de detalle establecido en los clasificadores por objeto del gasto del Sector Público vigente y de conformidad con la normativa emitida por la Contraloría General de la República al respecto.
+c) Contener justificaciones de los movimientos propuestos, de su incidencia en el cumplimiento de los objetivos y metas del plan anual operativo. Consecuentemente, toda modificación presupuestaria debe de acompañarse del ajuste al respectivo plan operativo anual en los casos que los movimientos propuestos no impliquen afectaciones al plan, el encargado de realizar el presupuesto deberá especificar las razones por las cuales no se modifica.
+d) Contener un detalle de origen y aplicación de recursos.
+e) Constatar la existencia del correspondiente contenido presupuestario de las subpartidas a rebajar.
+f) La nota de presentación del documento estará firmada por el encargado del área de Contabilidad y autorizado por la Dirección Ejecutiva, y se presentará a la Junta Directiva el proyecto de modificación presupuestaria para su aprobación.
+g) En caso de transferencias estarán según lo dispuesto en los estatutos de la institución, leyes conexas o la ley que autoriza dicho beneficio, según corresponda, así como indicar el nombre de la entidad que la recibirá, entre otros aspectos.
+h) En el caso de que los egresos que se están modificando correspondan a programas o actividades financiadas con recursos para un fin específico o que estén comprometidas por leyes, licitaciones o contratos, únicamente podrán ser variados de conformidad con lo establecido por la normativa vigente que les rige, lo cual debe constar en el respectivo acuerdo de aprobación que debe incluirse en el expediente correspondiente.
