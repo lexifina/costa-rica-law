@@ -1,0 +1,1 @@
+Artículo 10.—La adquisición de bienes y servicios por medio de este fondo se hará cuando se trate de compras menores, pero en ningún caso las compras podrán ser superiores al límite establecido en este Reglamento.

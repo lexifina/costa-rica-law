@@ -1,0 +1,1 @@
+Artículo 5°—La caja chica estará organizada de tal forma que sus fondos no puedan confundirse con otros. Además, dichos fondos y comprobantes deben permanecer en la Caja Fuerte ubicada en la oficina del encargado del Fondo.

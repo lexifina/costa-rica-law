@@ -1,0 +1,1 @@
+Artículo 3°—Se fija el límite máximo para la compra de bienes y servicios con dicho fondo, en la suma ¢30.000,00 (treinta mil colones exactos), cifra que será aumentada en un 15% anual o un porcentaje mayor si así lo considera la Administración, justificando la petición a la Junta Directiva de la UNGL, la cual aprobará o rechazará el incremento del fondo.
