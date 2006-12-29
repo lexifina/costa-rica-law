@@ -1,0 +1,2 @@
+Capítulo III: Sistema de Consultas
+Artículo 10.—Consulta a organizaciones. La Gerencia General con el apoyo de Presidencia Ejecutiva, las Subgerencias y la Comisión Institucional Ley 7600 y Ley 7935, coordinará la consulta con las organizaciones de personas con discapacidad y de adultas mayores y las entidades rectoras en materia de discapacidad y atención a la persona adulta mayor, a efecto de que sus organizaciones legalmente constituidas, ejerzan su derecho de participación; propiciando una comunicación permanente.

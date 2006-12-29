@@ -1,0 +1,3 @@
+Capítulo II: Responsabilidades de las Dependencias
+Artículo 2º—Proceso de Reclutamiento y Selección de Personal. La Dirección Administrativa de Recursos Humanos, a través del Área Gestión de Empleo, realizará las gestiones correspondientes para brindar oportunidades laborales y promover la contratación de personas con discapacidad y personas adultas mayores con base en criterios de idoneidad y cumplimiento de las competencias necesarias para el eficiente desempeño del puesto.
+La Dirección Administrativa de Recursos Humanos promoverá la adecuación de los procedimientos y mecanismos para que las personas con discapacidad y personas adultas mayores puedan participar en los procesos de reclutamiento y selección de personal en igualdad y equiparación de oportunidades.

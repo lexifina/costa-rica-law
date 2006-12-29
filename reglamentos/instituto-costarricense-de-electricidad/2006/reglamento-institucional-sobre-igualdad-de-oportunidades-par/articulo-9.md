@@ -1,0 +1,1 @@
+Artículo 9º—Evaluación de servicios. Las Contralorías de Servicio de Telecomunicaciones y Electricidad supervisarán y evaluarán la prestación de los servicios requeridos por todos los clientes internos y externos, incluyendo las personas con discapacidad y personas adultas mayores.
