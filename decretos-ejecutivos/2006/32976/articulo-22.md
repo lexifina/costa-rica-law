@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De la presentación de informes
+Artículo 22.—La administración superior de cada entidad pública, ministerio y demás órganos según corresponda, enviarán a la STAP e incluirán en el SICCNET, dentro de los primeros cinco días hábiles al vencimiento de cada trimestre, los informes sobre nivel de empleo, puestos vacantes, movilidad laboral voluntaria, vacantes por reestructuración organizacional. Asimismo, remitirán el informe de reasignaciones, la relación de puestos y cualquier otra información que se requiera de conformidad con el artículo 57 de la Ley Nº 8131.
+Además, deberán aportar las constancias y certificaciones necesarias para la verificación del cumplimiento de las directrices y regulaciones pertinentes, así como la demás información que en materia salarial y de empleo juzguen necesaria la AP y la STAP, para cumplir sus funciones.
