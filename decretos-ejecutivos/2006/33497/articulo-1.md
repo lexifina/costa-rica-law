@@ -1,0 +1,14 @@
+Nº 33497
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso l), 27, inciso l) y 28, inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, el Decreto Ejecutivo Nº 32988-HMP-PLAN de 31 de enero del 2006; la Ley Nº 6091, Ley de Creación del Museo de Arte Costarricense de 7 de octubre de 1977 y sus reformas; y el Decreto Ejecutivo Nº 32973-H de 1º de marzo del 2006 y sus reformas.
+Considerando:
+I.—Que mediante la Ley Nº 6091, publicada en el Alcance Nº 157 a La Gaceta Nº 209 de 4 de noviembre de 1977 y sus reformas, se crea el Museo de Arte Costarricense como órgano desconcentrado, con personalidad jurídica instrumental, adscrito al Ministerio de Cultura, Juventud y Deportes, con el propósito de velar por el fomento, la conservación, la divulgación y el estímulo de las artes y la literatura costarricense en todas sus manifestaciones.
+II.—Que el Museo requiere incorporar recursos para la realización del proyecto “Centro Cultural la Aduana”, así como para financiar la subpartida “Otras construcciones, adiciones y mejoras” específicamente en la reparación del techo del edificio central.
+III.—Que mediante el Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2007, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, el gasto presupuestario máximo para el año 2007, de las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+IV.—Que mediante oficio STAP-0755-06 de 4 de abril del 2006, se comunicó al Museo el gasto presupuestario máximo fijado para el año 2007.
+V.—Que la señora Ministra Rectora del Sector Cultural, avala la solicitud planteada por el Museo, mediante los oficios DM-807-06 y DM-896-06 de 2 y 18 de octubre del 2006, respectivamente.
+VI.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo de Arte Costarricense para el 2007. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase al Museo de Arte Costarricense el gasto presupuestario máximo para el período 2007, establecido según el artículo 1º del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, de manera que éste no podrá exceder la suma de ¢1.387.6 millones (mil trescientos ochenta y siete millones seiscientos mil colones).
