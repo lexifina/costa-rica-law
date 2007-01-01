@@ -1,0 +1,1 @@
+Artículo 28.—El examen se dividirá en dos etapas con una duración máxima de cuatro horas cada una, serán presénciales en el lugar y hora que señale la Comisión. El examen se programará quince días posteriores de haber concluido el Seminario, en una misma sesión y fecha para las dos etapas y/ o con una fecha y sesión diferente para cada etapa.

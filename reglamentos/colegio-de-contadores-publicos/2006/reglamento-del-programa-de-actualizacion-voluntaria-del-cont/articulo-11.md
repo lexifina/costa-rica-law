@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión de Conocimiento Activo, se encargará de la interpretación de la aplicación del presente Reglamento y sus resoluciones tendrán recurso de apelación ante la Junta Directiva dentro del plazo de cinco días hábiles a partir de la notificación del acto que dicte la Comisión.

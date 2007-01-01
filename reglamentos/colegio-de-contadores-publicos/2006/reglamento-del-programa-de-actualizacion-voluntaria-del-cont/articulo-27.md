@@ -1,0 +1,1 @@
+Artículo 27.—El examen cubrirá, cuando menos, un 30% de temas de las Normas Contables, 35% de temas relacionados con Auditoría, 10% de aspectos de Ética, 15% de temas Tributarios, 5% de temas de Sistemas de Información y 5% sobre temas de actualidad en función de las NIE emitidas por el IFAC.

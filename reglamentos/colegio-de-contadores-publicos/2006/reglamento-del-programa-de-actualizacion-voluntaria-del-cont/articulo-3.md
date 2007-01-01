@@ -1,0 +1,1 @@
+Artículo 3º—El Reglamento tiene como objeto establecer los lineamientos de un programa estructurado de actualización profesional que coadyuve con el fortalecimiento de las competencias de los miembros del Colegio para los próximos tres años; mientras se incorpora los cambios de exigencia obligatoria.

@@ -1,0 +1,1 @@
+Artículo 24.—Podrán inscribirse todos los CPA, interesados en participar en forma voluntaria, que estén al día en sus cuotas ordinarias, extraordinarias y otras obligaciones y que hayan cancelado los derechos de inscripción para el examen voluntario; de acuerdo con el arancel que la Junta Directiva apruebe anualmente y queda sujeto que a un cupo mínimo.

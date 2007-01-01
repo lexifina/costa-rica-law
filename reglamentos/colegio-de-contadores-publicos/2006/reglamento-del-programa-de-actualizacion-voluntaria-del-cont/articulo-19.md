@@ -1,0 +1,1 @@
+Artículo 19.—Todo CPA debe estar al día con el pago de sus cuotas ordinarias, extraordinarias y otras obligaciones con el Colegio para que se le acredite su participación en el Programa de Actualización Voluntaria y en cualquier trámite que realice de acreditación hará constar el número de colegiado.

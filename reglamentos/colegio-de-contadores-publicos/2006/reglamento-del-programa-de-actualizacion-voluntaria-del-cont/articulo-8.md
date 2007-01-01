@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión coordinará sus actividades con la Dirección Ejecutiva y con el encargado respectivo; solicitando anualmente el plan de trabajo respectivo, y observando que las propuestas de actualización estén basadas en las Normas Internacionales de Educación (NIE) que emite la Federación Internacional de Contadores (IFAC).

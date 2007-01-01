@@ -1,0 +1,1 @@
+Artículo 23.—La Comisión estimulará a los CPA para que participen del examen anual para obtener la Certificación en Actualización Profesional, una vez que hayan participado del Seminario cuyo objetivo es preparar al profesional en los cambios más recientes de la contaduría pública.
