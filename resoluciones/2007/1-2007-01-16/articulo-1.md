@@ -1,0 +1,14 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+ÓRGANO DE NORMALIZACIÓN TÉCNICA
+Resolución N° 01-2007.—San José, a las diez horas del dieciséis de enero del dos mil siete.
+Considerando:
+1º—Que de conformidad con el artículo 4 inciso e) de la Ley de Impuesto sobre Bienes Inmuebles, N° 7509 del 9 de mayo de 1995, reformada por Ley N° 7729 de 4 de diciembre de 1997, publicada en el Diario Oficial La Gaceta N° 245 de 19 de diciembre de 1997, se establece que no están afectos a este impuesto: “...e) Los inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base, no obstante, el impuesto deberá pagarse sobre el exceso de esa suma. El concepto de “salario base” usado en esta Ley es el establecido en el artículo 2 de la Ley N° 7337 de 5 de mayo de 1993”.
+2º—Que el artículo 2 de la Ley N° 7337 citada indica que: “La denominación “salario base” ...corresponde al monto equivalente al salario mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, aprobada en el mes de noviembre anterior...”
+3º—Que de conformidad con el artículo 2 de la Ley N° 7337 transcrito, el monto correspondiente al salario de oficinista 1, en el mes de noviembre del 2006, corresponde a la suma de ¢210.600.00 (doscientos diez mil seiscientos colones netos).
+4º—Que el artículo 12 de la Ley N° 7509, Ley de Impuesto sobre Bienes Inmuebles y sus reformas, crea el Órgano de Normalización Técnica, como órgano técnico especializado y asesor obligado de las Municipalidades y le faculta, en el inciso a), a dictar disposiciones de carácter general, las cuales deberán publicarse en el Diario Oficial y en un diario de circulación nacional.
+5º—Que este Órgano de Normalización Técnica, de conformidad con la normativa citada, procede a indicar que el monto no afecto, para el período 2007 del 1° de enero al 31 de diciembre, para todos aquellos bienes inmuebles únicos a que se refiere el artículo 4a inciso e), ibídem es la suma de ¢9.477.000,00 (nueve millones cuatrocientos setenta y siete mil colones netos). Por tanto,
+RESUELVE
+Con fundamento en las consideraciones precedentes, estarán no afectos al pago del Impuesto sobre Bienes Inmuebles para el periodo 2007 todos aquellos inmuebles que constituyan bien único de los sujetos pasivos, -personas físicas- y cuyo valor registrado en la respectiva Municipalidad, no exceda de ¢9.477.000,00, (nueve millones cuatrocientos setenta y siete mil colones netos). Asimismo, aquellos inmuebles que no obstante constituir bien único, su valor exceda del monto indicado, deberán pagar el impuesto, el cual se calculará sobre el exceso de la suma indicada.
+Rige a partir del 1° de enero del 2007.
+Notifíquese a Concejos y Alcaldes Municipales de todo el país.
+Publíquese.—San José, dieciséis de enero del 2007.
