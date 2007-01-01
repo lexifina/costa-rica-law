@@ -1,0 +1,3 @@
+Artículo 4º—En el caso de las inspecciones por traspaso de licencias de pesca con embarcación, por inactividad de embarcación, por sustitución dé embarcación o motor o por otorgamiento de licencia por primera vez, estas se realizarán únicamente en horario ordinario.
+Para las inspecciones citadas y que se realicen a una distancia mayor de 15 km. de la Dirección u Oficina Regional de su jurisdicción (Puntarenas centro, Quepos centro, Golfito centro, Limón centro y Playas del Coco centro), se cobrará la tarifa indicada para cada una de ellas en el cuadro de tarifas. Por cada kilómetro adicional recorrido después de los 15 km. Se aplicará una tarifa de ¢140.00 al costo de la inspección.
+(Así adicionado mediante el acuerdo AJDIP/427 del 28 de setiembre del 2006).

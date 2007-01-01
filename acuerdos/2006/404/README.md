@@ -14,3 +14,4 @@ Acoge Tarifas que se cobran por la Venta de Bienes y Servicios que brinda y gene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2007-01-01 | Acuerdo 427 (2006-09-28) |
