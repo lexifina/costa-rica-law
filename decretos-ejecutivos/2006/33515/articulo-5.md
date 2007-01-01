@@ -1,0 +1,1 @@
+Artículo 5º—La autoridad presupuestaria según su poder administrativo y técnico, hará extensivas y autorizará según corresponda, a las entidades y órganos cubiertos por su ámbito, las resoluciones que respecto de las disposiciones del presente Decreto, emita la Dirección General del Servicio Civil.
