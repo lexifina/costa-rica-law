@@ -1,0 +1,1 @@
+Artículo 2º—La anterior disposición no limita las facultades y potestades del Ministerio de Hacienda, para continuar realizando las acciones de fiscalización e investigación inherentes a la verificación del cumplimiento efectivo, por parte de la citada Unidad y de los deberes que les correspondían a los funcionarios que integraron la misma.
