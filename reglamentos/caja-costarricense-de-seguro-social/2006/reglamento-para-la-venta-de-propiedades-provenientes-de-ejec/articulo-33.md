@@ -1,0 +1,2 @@
+Artículo 33.—En las ofertas con financiamiento externo, el oferente debe brindar una garantía de cumplimiento del 10% sobre el valor del inmueble, que deberá depositar en el plazo de cinco días hábiles a partir de recibida la comunicación de adjudicación. De no depositarse dicha garantía se declarará la oferta insubsistente y se procederá a ejecutar la garantía de participación.
+La Institución no podrá disponer del inmueble que se encuentre en esta condición hasta por el término máximo de noventa días que se indica en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 24.—Una vez recibida la oferta no podrá ser retirada y se tendrá como propiedad de la Institución. Cada oferta deberá acompañarla una rendición de garantía de participación, cuyo porcentaje se fijará con base en la Ley y Reglamento de Contratación Administrativa. Esta condición se estipulará en el cartel o pliego de condiciones respectivo.

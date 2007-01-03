@@ -1,0 +1,1 @@
+Artículo 39.—Contra el acto de adjudicación procederán los recursos de revocatoria y apelación, cuyo plazo de interposición será dentro de los cinco días hábiles siguientes al día en que se comunicó formalmente la respectiva adjudicación. Deberá ser presentado y tramitado ante el Órgano que dictó la adjudicación.

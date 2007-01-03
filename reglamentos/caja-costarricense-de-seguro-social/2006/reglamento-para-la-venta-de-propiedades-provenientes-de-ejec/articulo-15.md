@@ -1,0 +1,1 @@
+Artículo 15.—Habiéndose cerrado el remate para cada uno de los ítems publicados, se dejará constancia de los datos del segundo mejor postor y lugar para notificaciones, en caso que el adjudicatario incumpla sus obligaciones.

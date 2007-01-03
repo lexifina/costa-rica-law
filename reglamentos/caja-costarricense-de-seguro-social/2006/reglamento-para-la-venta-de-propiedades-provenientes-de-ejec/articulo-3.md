@@ -1,0 +1,1 @@
+Artículo 3º—La administración de estas propiedades estará a cargo del Área Soporte Administrativo - Logístico de la Dirección Financiera Administrativa, la que mantendrá un inventario actualizado de las propiedades que se encuentren en condición legal de venta, así como del resto de propiedades que se encuentren en este proceso.

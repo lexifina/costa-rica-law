@@ -1,0 +1,1 @@
+Artículo 40.—El oferente tendrá cinco días hábiles para depositar el dinero respectivo, según las condiciones de la oferta presentada, una vez en firme el acto. No obstante, este plazo será de 90 días para aquellas ofertas con financiamiento externo.

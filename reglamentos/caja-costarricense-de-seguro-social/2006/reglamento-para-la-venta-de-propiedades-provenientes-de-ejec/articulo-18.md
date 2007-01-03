@@ -1,0 +1,1 @@
+Artículo 18.—En el momento de constatarse la falta de cancelación, se adjudicará al segundo mejor postor el bien, siempre y cuando éste manifieste su anuencia y se presente a depositar la totalidad del precio ofrecido dentro del tercer día, posterior a la comunicación.

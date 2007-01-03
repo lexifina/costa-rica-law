@@ -1,0 +1,1 @@
+Artículo 44.—El presente Reglamento deja sin efecto el procedimiento establecido por la Junta Directiva mediante el artículo 2º de la sesión Nº 7124 celebrada el 6 de mayo de 1997 y sus reformas posteriores.

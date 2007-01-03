@@ -1,0 +1,1 @@
+Artículo 16.—El adjudicatario deberá cancelar en el mismo acto, al menos el equivalente a un diez por ciento (10%) del precio del bien adjudicado, debiendo cancelar el resto del precio por el cual se adjudicó el inmueble dentro del tercer día posterior al cierre del remate. El resto de los participantes podrán retirar el 5% depositado en señal de participación.

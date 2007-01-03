@@ -1,0 +1,1 @@
+Artículo 43.—Dentro del mes calendario una vez aprobado este Reglamento por parte de la Junta Directiva, se promulgará el respectivo Instructivo de Procedimientos para la Venta de Propiedades Provenientes de Ejecuciones de Garantías Hipotecarias o Pago de Obligaciones del Régimen de Pensiones de la Caja Costarricense de Seguro Social
