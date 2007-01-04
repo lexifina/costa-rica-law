@@ -1,0 +1,1 @@
+Artículo 5º—Actualización del sistema. La Unidad de Recursos Materiales como ente rector institucional responsable del sistema de adquisición de bienes y servicios deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes y servicios que requieran las diversas dependencias institucionales.

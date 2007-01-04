@@ -1,0 +1,2 @@
+Artículo 9º—Selección de procedimientos. La selección de los procedimientos de contratación corresponderá al Proceso de Adquisiciones. Con base en la información aportada por los encargados de los Centros de Costos en sus solicitudes de compra y tomando en cuenta los montos establecidos para cada tipo de procedimiento, aprobados por la CGR.
+Todo procedimiento de contratación administrativa deberá contar con la implementación de la decisión inicial, la cual será aprobada por la persona u órgano colegiado que apruebe el cartel.
