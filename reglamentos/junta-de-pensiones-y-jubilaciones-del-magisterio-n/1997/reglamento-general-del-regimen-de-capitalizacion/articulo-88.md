@@ -1,1 +1,0 @@
-Artículo 88.—{Publicidad y Vigencia) Este Reglamento y sus eventuales modificaciones, deberán someterse a la aprobación de la Superintendencia General de Pensiones, como acto previo a la publicación en el Diario Oficial La Gaceta, momento a partir del cual entrarán a regir.

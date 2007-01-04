@@ -1,1 +1,1 @@
-Artículo 82.—{Auditoría Externa) La Junta Directiva podrá ordenar la práctica de las auditorias externas que estime necesarias, sobre el Fondo del Régimen de Capitalización que administra la Junta, como complemento a las labores propias que desarrolla la Auditoría Interna de la Institución.
+Artículo 82.—Publicidad y vigencia. Este Reglamento y sus eventuales modificaciones, deberán someterse a la aprobación de la Superintendencia de Pensiones, como acto previo a su publicación en el Diario Oficial La Gaceta, momento a partir del cual entrarán a regir.

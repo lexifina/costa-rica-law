@@ -14,3 +14,4 @@ Reglamento General del Régimen de Capitalización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-01 | la propia norma |
+| 2 | 2007-01-04 | Reglamento 0 (2007-01-04) |

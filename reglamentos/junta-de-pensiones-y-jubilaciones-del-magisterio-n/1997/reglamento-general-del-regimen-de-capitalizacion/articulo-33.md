@@ -1,6 +1,1 @@
-CAPITULO
-Vigencia y caducidad de las Prestaciones
-Artículo 33.—(Vigencia de las prestaciones) La vigencia de las prestaciones se ajustará a las siguientes reglas:
-a) Las prestaciones en las jubilaciones por vejez y las pensiones por invalidez sobreviniente, comenzarán a regir a partir del día inmediato siguiente a la fecha en que se haya dado la baja laboral del funcionario, lo cual se probara mediante copia de la carta de renuncia o acción de personal correspondiente.
-b) Las prestaciones por pensión de sobrevivencia de viudos, viudas, orfandad, padres o hermanos, comenzarán a regir a partir del día siguiente al fallecimiento del causante, de acuerdo con la fecha que indique el respectivo cerificado de defunción.
-c) Los incrementos por revaloraciones comenzarán a regir a partir del 1 de enero y 1 de julio de cada año.
+Artículo 33.—Reservas. Con estricta sujeción al modelo de financiamiento adoptado por el RCC, se crea una Reserva Técnica Matemática, la cual ayudará a hacer efectivo el pago de las prestaciones diferidas. Asimismo, se crea la Reserva para el pago de las pensiones en curso, cuyo nivel será determinado, al menos cada dos años, cuando se realice la Evaluación Actuarial del Régimen. Además, la Junta podrá crear otras reservas, siempre que cuente con el estudio actuarial respectivo que justifique y defina su finalidad. Para la creación de alguna reserva, se tomará en cuenta en todo momento, el beneficio del colectivo.

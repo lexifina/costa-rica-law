@@ -1,13 +1,12 @@
-Artículo 4.—(Definiciones) Para efectos de este Reglamento se utilizarán las siguientes definiciones:
-Régimen: Régimen de Capitalización de Pensiones y Jubilaciones del Magisterio Nacional, establecido por el Título II de la Ley N° 7531.
+Artículo 4º—Definiciones. Para efectos de este Reglamento se utilizarán las siguientes definiciones:
+Régimen de Capitalización Colectiva: Régimen de Pensiones y Jubilaciones del Magisterio Nacional creado por el artículo 39 de la Ley 7302 de fecha 15 de julio de 1992, en adelante denominado RCC.
 Junta: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
-Cotizante: Trabajador activo que preste sus servicios remunerados en algunos de los puestos o instituciones indicadas en el artículo 8 de la Ley N° 7531 y esté facultado para cotizar al régimen de capitalización.
-Cotización: Aporte mensual cubierto al Régimen de Capitalización de Pensiones y Jubilaciones del Magisterio Nacional, por el trabajador, el empleador o el Estado, de acuerdo con el salario correspondiente. destinado al financiamiento de los beneficios o prestaciones del Régimen.
-Cuenta Individual: Monto acumulado de las cotizaciones del trabajador, empleador y el Estado en favor de un cotizante.
-Fondo: Suma de recursos que conforman el Fondo de Capitalización.
-Pensión: Prestación en dinero que otorga el Régimen a un trabajador o sus causahabientes. cuando sufre alguna de las contingencias de invalidez o muerte.
-Jubilación: Prestación en dinero que otorga el Régimen a un trabajador que cumple con los presupuestos de edad y período de cotización para acceder a una jubilación ordinaria por vejez.
-Pensionado: Condición en la que se encuentran los trabajadores pasivos que accedieron y gozan de una jubilación por vejez o pensión por invalidez a cargo del Régimen.
-Derechohabiente: Cónyuge supérstite, compañera (o), hijos (as) menores o mayores inválidos, la madre o padre y hermanos dependientes, que le asista el derecho a disfrutar de una pensión de un cotizante o a suceder a un jubilado o pensionado.
-Reserva Matemática: Previsión que el Régimen determina a través de los estudios aduanales, para garantizar el pago efectivo de prestaciones diferidas.
-SUPEN: Superintendencia General de Pensiones.
+Cotizante: Toda persona que se desempeña en el Magisterio Nacional y haya sido nombrada por primera vez a partir del 15 de julio de 1992, y no hayan operado la opción de trasladado dispuesta en el artículo 4 de la Ley 7531.
+Cotización: Aporte mensual cubierto al Régimen de Capitalización Colectiva de Pensiones del Magisterio Nacional, por el trabajador(a), el empleador y el Estado, de acuerdo con el salario correspondiente, destinado al financiamiento de los beneficios o prestaciones del Régimen.
+Cuenta Individual: Número de cotizaciones aportadas al RCC a favor de un cotizante.
+Fondo: Suma de recursos que conforman el Fondo de Capitalización Colectiva, al cual cotizan obligatoriamente los afiliados, en forma tripartita (trabajador(a), patrono y Estado).
+Pensión: Suma periódica, temporal o vitalicia, que el RCC asigna a un beneficiario.
+Pensionado(a): Persona física titular de una pensión por parte del RCC.
+Derechohabiente: Cónyuge supérstite, compañera(o), hijos (as) menores o mayores inválidos (as), padres o hermanos (as) dependientes, que le asista el derecho a disfrutar de una pensión de un cotizante o suceder a un(a) pensionado(a).
+Reserva Matemática: Previsión que el Régimen determina mediante estudios actuariales, para garantizar el pago efectivo de prestaciones diferidas.
+SUPEN: Superintendencia de Pensiones.

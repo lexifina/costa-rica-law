@@ -1,2 +1,2 @@
-Artículo 64.—(Apertura de la cuenta individual) Una vez recibidas las sumas por las cotizaciones correspondientes a cada funcionario se abrirá la cuenta individual.
-Durante el periodo que tarde el procedimiento de determinación de las sumas a traspasar el riesgo de aseguramiento lo asumirá el Régimen . Transitorio de Reparto.
+Artículo 64.—Rehabilitación del (la) pensionado(a) por invalidez. El (la) trabajador(a) que disfrute de una pensión por invalidez y sea rehabilitado para ejercer labores remuneradas deberá cumplir con los requisitos de pensión exigidos en este Reglamento para volver a la pasividad laboral, y la cuantía de las prestaciones se determinará de conformidad con las reglas dadas en los artículos anteriores de este Reglamento.
+Durante el período que duró la baja laboral por el disfrute de la pensión por invalidez, se computarán como salario de referencia cotizable, el monto de pensión recibido y las cuotas omitidas las asumirá el Fondo.

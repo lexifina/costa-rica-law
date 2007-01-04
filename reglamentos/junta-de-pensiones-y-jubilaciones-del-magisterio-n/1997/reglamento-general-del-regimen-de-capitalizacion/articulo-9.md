@@ -1,5 +1,6 @@
-TITULO II
-PRESTACIONES DEL RÉGIMEN
-CAPITULO I
-Tipos de Prestaciones
-Artículo 9°—(Prestaciones Cubiertas) El Régimen otorga prestaciones económicas por vejez, invalidez sobreviniente y sobrevivencia, las cuales se ajustan en su determinación a los principios cristianos de justicia social, solidaridad y equidad y en su cuantía a las posibilidades técnicas actuariales.
+Artículo 9º—Derecho a la prestación actual.
+a) Tendrá derecho a la pensión por vejez, el (la) trabajador(a) que cumpla con los requisitos de edad y número mínimo de cotizaciones que se indican en los artículos 11 y 12 de este Reglamento.
+b) Para acceder a las prestaciones económicas de pensión por invalidez se requiere un mínimo de cotizaciones registradas al RCC y haber sido declarada una invalidez, todo conforme se dispone en el artículo 12 de este Reglamento.
+c) Los derechohabientes de un pensionado o trabajador fallecido, disfrutarán de una pensión por sobrevivencia, siempre que cumplan con los requisitos de elegibilidad que se indican en este Reglamento.
+En el caso del trabajador(a) fallecido(a) debe registrar al menos 36 cotizaciones, a favor del Régimen.
+Si el (la) trabajador(a) es declarado(a) inválido(a) o fallece antes de cumplir con el número mínimo de cotizaciones para acceder a una pensión, o bien es declarado(a) inválido(a) después de los 55 años de edad, el (la) trabajador(a) o los (as) derechohabientes tendrán derecho a sus recursos, según se dispone en el artículo 24 del presente Reglamento. Para esto la Junta contará con un plazo de un mes contado a partir de que el afiliado cumpla con la presentación de los documentos requeridos.

@@ -1,1 +1,4 @@
-Artículo 60.—(Transferencia en títulos indexables) La suma que determine el Ministerio de Hacienda se transferirá en diez tractos pagaderos anualmente, y en títulos indexables del Estado (TÜDES), según las condiciones de mercado en plazos de diez, quince y veinte años.
+CAPÍTULO IV
+De las revisiones de las pensiones de vejez por reingreso
+Artículo 60.—Reingreso de los (as) pensionados (as) por vejez. El (la) pensionado(a) por vejez que reingrese a la vida laboral activa, deberá comunicar su alta laboral a la Junta.
+Esta regla aplica para los servicios remunerados para las entidades educativas que por Ley generen la obligación de cotizar para el RCC.

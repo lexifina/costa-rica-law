@@ -1,3 +1,8 @@
-Artículo 48.—(Diferencia de la cuenta individual del funcionario) Cuando en razón del ejercicio del derecho de elección, la transferencia de cotizaciones quede un saldo a favor del funcionario cotizante, la Junta lo determinara y hará una transferencia a favor del interesado, el cual será depositado a su favor en el Plan de Privado de Pensiones Complementarias que haya indicado el gestionante.
-En caso de que no se indique la Operadora de Fondos Privados de Pensiones Complementarias, se procederá a direccionar la diferencia a la Operadora de Fondos de Pensión Complementaria Magister que administra la Junta.
-La transferencia del superávit de cotización se realizará en el mismo plazo de los tres meses indicado en el artículo anterior.
+Artículo 48.—Cuantía de la transferencia y liquidación. Para aplicar una transferencia de cotizaciones del RCC, hacia alguno de los regímenes del primer pilar, el administrado debe poseer en su cuenta más de treinta y seis cotizaciones. En caso de que posea menos de ese número de cotizaciones, se procederá a una liquidación financiera. Cuando se posea más de treinta y seis cotizaciones la Junta debe aplicar una liquidación actuarial, para ello deberá considerar:
+1. El número de cotizaciones realizadas por el (la) trabajador(a) al RCC.
+2. Los montos cotizados al RCC.
+3. Los potenciales beneficios a los que pudo acceder mientras cotizaba para el RCC.
+4. El género y la edad de la persona cotizante.
+5. Los rendimientos alcanzados por el RCC, durante el tiempo que cotizó para el RCC.
+6. El porcentaje de cotización consignado en el régimen, al cual se aplicará el traslado.
+Considerado lo anterior se estimará el costo de cobertura que debe pagar al RCC, para descontarlo del traslado que haya que realizar al otro régimen del Primer Pilar. Además, el administrado deberá ajustarse al procedimiento que para dicho fin establece la Junta, según detalle en el anexo Nº 1.

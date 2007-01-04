@@ -1,5 +1,4 @@
-Artículo 42.—(Documentos que se deben acompañar a las solicitudes de prestaciones por sobrevivencia de viudez) Para la solicitud de pensión por sobrevivencia de viudez, además de los indicados en el artículo 40 anterior se deberá aportar:
-a) Certificación de la cuenta cedular del gestionante extendida por el Registro Civil.
-b) Certificación de estado civil extendida por el Registro Civil.
-c) Certificado de defunción del causante extendida por el Registro Civil.
-d) Nombre y demás calidades de los testigos mediante los que se demostrará la convivencia de hecho.
+Artículo 42.—Documentos que deben acompañar la solicitud de pensión por vejez. Además de la solicitud, el (la) gestionante deberá acreditar los siguientes documentos:
+a) La cuenta cedular del (la) interesado(a) extendida por el Registro Civil.
+b) Certificación de cotizaciones en otros regímenes del primer pilar.
+c) Cualquier otra información que el Órgano Director del Procedimiento solicite.

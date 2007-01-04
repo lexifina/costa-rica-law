@@ -1,7 +1,1 @@
-CAPITULO V
-Del financiamiento
-Artículo 28.—(Cotizaciones y rendimientos) Para financiar el perfil de beneficios ofrecido el Régimen tendrá los siguientes ingresos corrientes:
-a) El aporte Patronal equivalente al 5.75% de los sueldos totales de los funcionarios.
-b) Un 5.75% de la cotización por parte de los funcionarios.
-c) Un 0.25%. de los sueldos totales de los funcionarios, como aporte del Estado como tal.
-d) Los rendimientos provenientes de la inversión de las cotizaciones.
+Artículo 28.—Acrecimiento. Cuando se hayan generado derechos para disfrutar una pensión por muerte de un(a) trabajador(a) o un(a) pensionado(a), en caso que se origine algunos de los motivos de caducidad, dispuestos en el artículo 36, el monto de pensión que le correspondía, acrecentará los montos de los (as) beneficiarios (as) que conservan el derecho, de conformidad con las proporciones establecidas en los artículos anteriores.

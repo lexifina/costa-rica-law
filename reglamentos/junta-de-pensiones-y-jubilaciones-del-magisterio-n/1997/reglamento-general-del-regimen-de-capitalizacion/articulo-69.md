@@ -1,3 +1,2 @@
-Artículo 69.—(Tiempo mínimo de reingreso y cotización) El funcionario que reingrese en las condiciones indicadas y solicite la revisión de su monto jubilatorio deberá demostrar una alta laboral no inferior a veinticuatro meses.
-De igual forma se exigirá que durante el reingreso haya ingresado efectivamente a su cuenta individual los montos de cotización vigentes para el trabajador, empleador y el Estado, al momento de la prestación de servicios remunerada.
-El incumplimiento de esta obligación será causa suficiente para que la Junta pueda desestimar la solicitud de revisión de jubilación por reingreso.
+Artículo 69.—Caducidad por falsedad ideológica. Con estricta sujeción al debido proceso garantizado constitucionalmente, cuando se denuncie que un(a) pensionado(a) ha suministrado información falsa con el fin de gozar de los beneficios, se iniciará el procedimiento de caducidad por falsedad ideológica al que se le aplicarán las siguientes reglas:
+Transcurridos cinco días hábiles desde la notificación y no existiendo oposición del interesado, se procederá al acto material de exclusión de la planilla de pago de pensiones.

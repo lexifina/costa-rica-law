@@ -1,1 +1,5 @@
-Artículo 8.—(Derecho de elección) Para acceder al derecho de elección a que se refiere el artículo 3 in fine de la Ley 7531, el cotizante y el empleador deberán cumplir con el procedimiento que se detalla en el Título IV Capítulo I, artículos del 44 al 50 inclusive del presente Reglamento. Sin embargo, el que ejercite este derecho será excluido del presente Régimen y, automáticamente, quedará cubierto por el seguro obligatorio de invalidez, vejez y muerte que administra la Caja Costarricense del Seguro Social creado por Ley 17 del 22 de octubre de 1943 y sus reformas.
+TÍTULO II
+Prestaciones del Régimen
+CAPÍTULO I
+Tipos de prestaciones
+Artículo 8º—Prestaciones cubiertas. El Régimen otorga prestaciones económicas por vejez, invalidez sobreviniente y sobrevivencia, las cuales se ajustan en su determinación a los principios cristianos de justicia social, solidaridad y equidad y en su cuantía a las posibilidades técnicas actuariales.

@@ -1,3 +1,7 @@
-CAPITULO VII
-Procedimiento de la caducidad de los derechos
-Artículo 71.—(Caducidad) Para la declaratoria de caducidad de cualquier derecho se observará estrictamente, bajo pena de nulidad, un debido proceso que garantice al menos los siguientes principios constitucionales: derecho de audiencia. publicidad del proceso, valoración razonable de la prueba, resolución razonada, doble instancia, concentración, economía procesal, derecho a la defensa técnica, publicidad de audiencia y el expediente, entre otros derivados del ordenamiento positivo procesal.
+TÍTULO V
+Administración financiera y supervisión del
+Régimen de Capitalización Colectiva
+CAPÍTULO I
+Contabilidad y fiscalización del
+Régimen de Capitalización Colectiva
+Artículo 71.—Contabilidad separada. La contabilidad se llevará en forma separada de los ingresos y fondos que administra la Junta.

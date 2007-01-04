@@ -1,1 +1,1 @@
-Artículo 29.—(Ingresos extraordinarios) Además de las cotizaciones el Régimen será financiado con cualquier otro aporte, donación o ingreso adicional que pueda atraerse al Fondo.
+Artículo 29.—Acumulación de derechos por sucesión. El beneficiario podrá acumular como máximo dos derechos por sucesión.

@@ -1,7 +1,1 @@
-TITULO V
-ADMINISTRACIÓN FINANCIERA Y SUPERVISIÓN DEL
-RÉGIMEN DE CAPITALIZACIÓN
-CAPITULO I
-Contabilidad y fiscalización del
-Régimen de Capitalización
-Artículo 79.—(Contabilidad separada) La contabilidad y administración financiera del Fondo se ajustara en todo momento a los principios aplicables a los Regímenes de Capitalización, al régimen jurídico que le es propio y la prudencia y responsabilidad administrativas. La contabilidad se llevara en forma separada de los ingresos y fondos que administra la Junta.
+Artículo 79.—Modificaciones del perfil de beneficios. Con fundamento en las Evaluaciones Actuariales la Junta ajustará el perfil de beneficios del Régimen de Capitalización Colectiva, de acuerdo con las recomendaciones técnicas presentadas en la evaluación actuarial, para lo cual deberá publicarse el contenido de las reformas en el Diario Oficial La Gaceta, y previa aprobación de la Superintendencia de Pensiones. En caso que las modificaciones disminuyan el perfil de beneficios vigente, se tomarán las medidas actuariales para que esas disminuciones les sean aplicadas solo a los afiliados que cuente con menos de veinte años de residencia en el RCC.

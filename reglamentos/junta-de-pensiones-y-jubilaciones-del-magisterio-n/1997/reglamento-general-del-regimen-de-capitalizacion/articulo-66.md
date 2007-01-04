@@ -1,4 +1,2 @@
-CAPITULO VI
-De las revisiones de las prestaciones de vejez por reingreso
-Artículo 66.—(Reingreso de los jubilados por vejez) El jubilado por vejez que reingrese a la vida laboral activa, deberá comunicar su alta laboral a la Junta.
-Esta regla aplica únicamente para los servicios remunerados para las entidades educativas que por Ley generen la obligación de cotizar para el Régimen de Pensiones y Jubilaciones del Magisterio Nacional.
+Artículo 66.—Caducidad de las pensiones por orfandad. Se le suspenderá inmediatamente la pensión al huérfano(a), que una vez alcanzada la mayoría de edad, no demuestre que se ha matriculado o ha gestionado el ingreso para la continuación de estudios, según lo establecido en el inciso b) del artículo 15. Se le reactivará su derecho a pensión, en forma retroactiva a la matrícula y de conformidad con la efectiva promoción. Una vez transcurrido ese término perentorio y de no recibir la Junta, los documentos probatorios, se emitirá una resolución fundamentada administrativa de caducidad de las prestaciones, la cual será notificada al derechohabiente personalmente o por correo certificado.
+Transcurridos cinco días hábiles desde la notificación y no existiendo oposición del interesado se procederá al acto material de exclusión de la planilla de pago de pensiones.

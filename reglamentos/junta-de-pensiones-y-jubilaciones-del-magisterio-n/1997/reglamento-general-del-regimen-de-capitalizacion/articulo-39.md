@@ -1,3 +1,7 @@
-Artículo 39.—(Tramite) El trámite de declaratoria de derechos de jubilación o pensión del Régimen se iniciará a instancia de parte, debiendo cumplir la solicitud con los requisitos contenidos en el artículo 285 de la Ley General de la Administración Pública y acompañarse de los documentos que se indican en este Reglamento para cada caso en particular.
-Una vez que el órgano director del procedimiento recabe y analice todos los documentos exigidos por este Reglamento, para lo cual dispondrá de un plazo no mayor a un mes calendario, someterá el expediente a conocimiento de la Junta Directiva para la emanación del acto final.
-Notificado el acto final el interesado contará con un término de cinco días hábiles para formular conjunta o separadamente, el recurso horizontal de reconsideración o el vertical de apelación. De interponerse uno o ambos, el órgano director del procedimiento, dentro del término de un mes calendario, instruirá el expediente y lo remitirá nuevamente al conocimiento de Junta Directiva, la que de no acoger la revocatoria y reconsideración, lo remitirá en alzada a la Superintendencia General de Pensiones, instancia la cual contara con un mes calendario para su resolución, actuación que dará por agotada la vía administrativa. En caso de interponerse apelación la Junta rendirá el informe que exige el artículo 349.2 de la Ley General de Administración Pública y trasladara el expediente a la SUPEN.
+TÍTULO III
+Del procedimiento administrativo ordinario
+para la declaratoria de derechos
+CAPÍTULO I
+Procedimiento y trámite para la declaratoria de
+derechos del Régimen de Capitalización Colectiva
+Artículo 39.—Órgano Director y trámite. La Dirección Ejecutiva será el órgano director del procedimiento, para lo cual podrá conformar el expediente mediante cualquier medio de almacenamiento de información.

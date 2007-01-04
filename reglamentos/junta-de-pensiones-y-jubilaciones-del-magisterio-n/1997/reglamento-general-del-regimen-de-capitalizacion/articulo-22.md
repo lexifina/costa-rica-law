@@ -1,2 +1,7 @@
-Artículo 22.—(Temporalidad de las prestaciones y aguinaldo) Las prestaciones se pagarán mensualmente. Anualmente y en el mes de diciembre, se incluirá un pago adicional por concepto de aguinaldo (treceavo mes), igual a una duodécima parte del total de los montos nominales que por concepto de jubilación o pensión recibió efectivamente, el jubilado, pensionado o derechohabiente, durante el año que va desde diciembre a noviembre entrante.
-El procedimiento de pago de las prestaciones por jubilación o pensión del Régimen de Capitalización, lo realizará la Junta mediante los mecanismos óptimos dispuestos en el mercado financiero al momento de efectivo pago, para lo cual realizará convenios con organismos bancarios o financieros, sujetos al control de la Superintendencia General de Entidades Financieras y ofrezcan las mejores condiciones, mayor cobertura nacional y menores costos de distribución.
+CAPÍTULO IV
+Cuantía de las prestaciones
+Artículo 22.—Tasa de reemplazo para la pensión por vejez. El monto mensual correspondiente a la pensión por vejez se obtendrá de la siguiente manera:
+a) Un 60% del salario de referencia promedio indicado en el artículo 19 anterior, por las primeras doscientas cuarenta cotizaciones.
+b) El monto anterior se incrementará en un 0.1% de ese salario de referencia, por cada cuota adicional después de las primeras doscientas cuarenta cotizaciones.
+c) En caso de que se cumplan los requisitos para optar por la pensión por vejez y el (la) trabajador(a) no se acoja a ésta, el monto obtenido según los incisos anteriores, se incrementará en un 1.5% del salario de referencia, por cada trimestre adicional cotizado, hasta un máximo de cuatro años de postergación.
+d) Si los requisitos de pensión por vejez se alcanzan después de los sesenta y tres años y siete meses, el monto de pensión no será inferior al 60% del salario de referencia.

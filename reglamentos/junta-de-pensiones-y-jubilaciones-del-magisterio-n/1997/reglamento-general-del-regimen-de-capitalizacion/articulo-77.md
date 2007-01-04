@@ -1,1 +1,3 @@
-Artículo 77.—(Caducidad por fraude moral) Con estricta sujeción al debido proceso garantizado constitucional mente, cuando se denuncie que un jubilado, pensionado por invalidez o sobrevivencia ha suministrado información falsa con el fin de gozar de los beneficios, se iniciará el procedimiento de caducidad por fraude moral al que se le aplicaran las mismas reglas del artículo anterior de este Reglamento.
+CAPÍTULO II
+Estructura administrativa
+Artículo 77.—Estructura administrativa. Para la correcta administración del RCC la Junta de Pensiones y Jubilaciones del Magisterio Nacional establecerá los Departamentos y dependencias que considere necesarias, de conformidad con el artículo 113 de la Ley 7531 y sus reformas.

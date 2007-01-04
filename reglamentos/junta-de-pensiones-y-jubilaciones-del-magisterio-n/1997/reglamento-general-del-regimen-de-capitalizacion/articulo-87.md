@@ -1,1 +1,0 @@
-Artículo 87.—(Modificaciones del Reglamento) Para modificar total o parcialmente las disposiciones que contiene este Reglamento, se requerirá necesariamente la votación favorable de al menos dos terceras partes del total de los integrantes de Junta Directiva.

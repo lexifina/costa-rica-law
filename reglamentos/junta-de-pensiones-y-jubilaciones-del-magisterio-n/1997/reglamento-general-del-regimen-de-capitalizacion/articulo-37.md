@@ -1,8 +1,4 @@
-TITULO III
-DEL PROCEDIMIENTOS ADMINISTRATIVO ORDINARIO PARA
-LA
-DECLARATORIA DE DERECHOS
-CAPITULO I
-Procedimiento y trámite para la declaratoria de derechos del
-régimen de capitalización
-Artículo 37.—(Órgano Director y trámite) La Dirección Ejecutiva será el órgano director del procedimiento.
+CAPÍTULO VII
+Revaloración de las prestaciones del
+Régimen de Capitalización Colectiva
+Artículo 37.—Revaloraciones. La aplicación de las revaloraciones del RCC se sujetarán a los estudios actuariales que garanticen la estabilidad económica y financiera del Régimen.

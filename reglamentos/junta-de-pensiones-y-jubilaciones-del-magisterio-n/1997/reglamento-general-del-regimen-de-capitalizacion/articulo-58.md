@@ -1,2 +1,4 @@
-Artículo 58.—(Disfrute de las prestaciones de la pensión por invalidez, posterior al levantamiento) El trabajador rehabilitado deberá gestionar su reincorporación a la actividad remunerada en el Magisterio Nacional, para lo cual la Junta, comunicará al Ministerio de Educación o Institución Privada donde se registre su último empleo, a efecto de que se le brinde la oportunidad de prestar sus servicios nuevamente
-Durante el tiempo en que se gestione la colocación del funcionario. la Junta pagará puntualmente las prestaciones por la pensión de invalidez que lo llevó a la pasividad laboral. En todo caso dicho plazo no podrá exceder de seis meses.
+CAPÍTULO III
+Permanencia del estado de invalidez
+Artículo 58.—Revisión periódica del estado de invalidez. Todo pensionado(a) por invalidez sobreviniente, deberá someterse cada veinticuatro meses hasta el cumplimiento de los 55 años, a una nueva evaluación médica a efecto de determinar que las causas físicas o mentales que originaron la pérdida de al menos dos terceras partes de la capacidad para el trabajo aún subsisten. La valoración la realizará la Caja Costarricense de Seguro Social, conforme se dispuso en el artículo 12 de este Reglamento.
+En caso que se determine que el (la) pensionado(a) se encuentra rehabilitado(a), se certificará el levantamiento del estado de invalidez comunicándolo a la Junta.
