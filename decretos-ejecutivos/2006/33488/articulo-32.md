@@ -1,0 +1,1 @@
+Artículo 32.—Suspensión del Viático Vial. Cuando un funcionario se desplaza fuera de los proyectos habituales de trabajo a una distancia superior a los 25 Km para cumplir con funciones propias de su cargo y recibe Viático Vial, se le suspenderá éste y se le asignará el viático ocasional por los días que realice la gira.

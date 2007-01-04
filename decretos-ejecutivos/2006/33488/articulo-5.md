@@ -1,0 +1,6 @@
+Artículo 5º—Sujetos beneficiarios, excepciones. También serán sujetos de estos pagos:
+Los funcionarios que prestan sus servicios en beneficio del CONAVI, aunque el Ente que paga su salario sea distinto. Esta situación será procedente siempre que se cumplan simultáneamente las siguientes condiciones:
+I) Que medie un convenio de cooperación suscrito entre los entes involucrados, en el que estén establecidas las condiciones bajo las cuales se cedió al funcionario, como son, entre otras, el objeto de dicha cesión y el período de duración de ésta.
+Lo anterior, sin perjuicio de lo establecido en los artículos 22 Bis, inciso a); 50, inciso a) y 112, inciso a), del Reglamento del Estatuto de Servicio Civil (Decreto Ejecutivo Nº 21, del 14 de diciembre de 1954 y sus reformas).
+II) Que el CONAVI al estar recibiendo los servicios de funcionarios pertenecientes a Entes ajenos a la institución se haya comprometido, en el convenio suscrito, a reconocer el pago de viáticos y transporte cuando, de acuerdo con las condiciones establecidas en este Reglamento, esto proceda.
+III) Que el convenio haya sido suscrito con antelación a la ocurrencia de los eventos o actividades motivo del pago de viáticos y transporte que se pretende reconocer; ello con la finalidad de garantizar que su materialización no se efectúe con el único fin de reconocer dichos pagos.

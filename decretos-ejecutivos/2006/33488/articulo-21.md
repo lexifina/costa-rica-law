@@ -1,0 +1,1 @@
+Artículo 21.—Vigencia del Viático Vial. El pago de Viático Vial regirá desde el primer día en que al funcionario se le ubique físicamente en el lugar en que se sitúa el proyecto o los proyectos sucesivos a atender y durará hasta que cambie la condición que motivó dicho pago.

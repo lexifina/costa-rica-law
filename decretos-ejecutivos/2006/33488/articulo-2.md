@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento regula el pago de viáticos y gastos de transporte a los funcionarios en propiedad o interinos del CONAVI, o de una Institución Pública que presten sus servicios al CONAVI mediante la suscripción de un convenio de cooperación para tal fin.

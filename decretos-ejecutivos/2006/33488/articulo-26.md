@@ -1,0 +1,1 @@
+Artículo 26.—Suscripción de contrato. No obstante lo señalado en el artículo 25 se debe suscribir el contrato con la Unidad de Recursos Humanos, cuya redacción, forma y parámetros serán estipulados por esa dependencia, previo a dicha suscripción.

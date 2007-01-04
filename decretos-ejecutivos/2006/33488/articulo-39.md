@@ -1,0 +1,1 @@
+Artículo 39.—Sanciones. Los funcionarios y la Jefatura respectiva que incumplan lo estipulado en el presente Reglamento serán acreedores a las sanciones correspondientes según el Reglamento Autónomo de Servicios del CONAVI y demás normativa aplicable al caso.

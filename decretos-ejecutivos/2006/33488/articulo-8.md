@@ -1,0 +1,1 @@
+Artículo 8º—Justificantes de gastos. Para el reconocimiento de gastos de hospedaje, la Administración requerirá del funcionario la presentación de facturas timbradas o tiquetes de caja correspondientes o sujetos al régimen simplificado de tributación.

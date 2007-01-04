@@ -1,0 +1,1 @@
+Artículo 38.—Faltas graves. Las faltas graves deberán entenderse en concordancia con lo dispuesta en el Capítulo XII del Reglamento Autónomo de Servicios del CONAVI. Se califican como faltas graves a las obligaciones del contrato de trabajo toda alteración o información que conduzca a error o engaño en la aplicación de este Reglamento.
