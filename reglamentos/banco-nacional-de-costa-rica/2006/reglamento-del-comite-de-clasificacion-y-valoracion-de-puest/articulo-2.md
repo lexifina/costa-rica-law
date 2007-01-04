@@ -1,0 +1,1 @@
+Artículo 2º—No se rige por lo dispuesto es este reglamento el personal contratado por un tiempo determinado para la ejecución de trabajos específicos, ya sean de carácter técnico o de otra naturaleza y cualquier otro que llegue a determinar la Junta Directiva General del Banco.

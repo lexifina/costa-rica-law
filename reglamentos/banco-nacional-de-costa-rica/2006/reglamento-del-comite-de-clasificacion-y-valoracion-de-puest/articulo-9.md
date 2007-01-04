@@ -1,0 +1,1 @@
+Artículo 9º—Cualquier estudio que genere un cambio o que modifique la estructura organizativa de alguna dependencia del Banco o del Banco en general, deberá, necesariamente, someterse al proceso de clasificación y valoración de la Dirección de Recursos Humanos.

@@ -1,0 +1,2 @@
+Artículo 14.—Cuando sea requerido por este Comité, los funcionarios del Banco, excepto los mencionados en el artículo segundo del presente reglamento, tienen la obligación de suministrar los insumos que requiera la Unidad Técnica de la Dirección de Recursos Humanos (Casa Matriz) o la Dirección de Apoyo (Bancos Regionales) en el plazo que para estos efectos establezcan.
+Los atrasos que se puedan generar producto del incumplimiento de este artículo sean imputables a los funcionarios encargados de proveer la información solicitada.

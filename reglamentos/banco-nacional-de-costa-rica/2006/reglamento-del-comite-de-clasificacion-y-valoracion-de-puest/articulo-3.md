@@ -1,0 +1,1 @@
+Artículo 3º—La nomenclatura del sistema, según el índice de clases adjunto queda incorporada al presente reglamento y debe de ser utilizada en los procesos de la administración de recursos humanos del Banco Nacional de Costa Rica, en adelante identificado como el Banco.

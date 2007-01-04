@@ -1,0 +1,1 @@
+Artículo 7º—El Comité estará constituido por cuatro funcionarios: dos representantes de la administración, designados por la Gerencia General del Banco, y dos representantes del Sindicato de Empleados del Banco.

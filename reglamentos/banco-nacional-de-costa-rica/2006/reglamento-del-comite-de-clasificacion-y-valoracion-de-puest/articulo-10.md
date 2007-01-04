@@ -1,0 +1,1 @@
+Artículo 10.—Los acuerdos del Comité serán sometidos a la Gerencia General para su resolución final y los mismos serán comunicados por escrito por la Dirección de Recursos Humanos a las partes involucradas.

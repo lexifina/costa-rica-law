@@ -1,0 +1,1 @@
+Artículo 6º—Los estudios elaborados por la Dirección de Recursos Humanos serán elevados al Comité de Clasificación y Valoración (en adelante denominado como Comité) para su debido análisis y posterior decisión (aprobación, modificación o rechazo).

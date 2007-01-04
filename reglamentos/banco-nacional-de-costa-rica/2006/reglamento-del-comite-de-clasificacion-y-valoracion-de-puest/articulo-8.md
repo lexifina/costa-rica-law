@@ -1,0 +1,1 @@
+Artículo 8º—Ningún puesto o clase podrá ser reasignado, reclasificado o revalorado si no media un estudio previo de la Dirección de Recursos Humanos (Casa Matriz) o de la Dirección de Apoyo (Bancos Regionales) y su debida aprobación por parte del Comité.
