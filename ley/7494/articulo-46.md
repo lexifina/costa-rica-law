@@ -1,3 +1,6 @@
-ARTICULO 46.-
-Regulación supletoria.
-El procedimiento de la licitación por registro se regirá, en lo imprevisto en esta sección, por las pautas de la presente Ley para la licitación pública, en la medida que sean compatibles con su naturaleza.
+Artículo 46.—Registro. En cada proveeduría institucional, se llevará un registro de los proveedores interesados en contratar con la administración. Para tales efectos, la administración invitará, por lo menos una vez al año, mediante publicación en La Gaceta, a formar parte del registro de proveedores. No obstante, en cualquier momento los proveedores interesados podrán solicitar que se les incorpore al registro.
+El Reglamento de esta Ley definirá las condiciones para la inscripción, su plazo de vigencia, así como sus reglas de funcionamiento, que deberán definir un esquema de rotación que permita la participación de los proveedores inscritos y el acceso de la administración a las mejores ofertas. En igual forma, reglamentariamente se regularán el procedimiento de exclusión del registro y su régimen recursivo.
+En el caso del Poder Ejecutivo, sus entes y órganos deberán utilizar el registro central a cargo de la Dirección General de Administración de Bienes y Contratación Administrativa.
+En las entidades descentralizadas que posean régimen desconcentrado de compras, deberá hacerse uso del registro del nivel central, salvo que la Junta Directiva autorice la creación de registros desconcentrados, para lo cual deberá emitir los lineamientos respectivos.
+Las proveedurías institucionales podrán utilizar, por conveniencia o por inopia en sus propios registros, el registro de otras entidades públicas, incluso el registro citado de la Dirección General de Administración de Bienes y Contratación Administrativa.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

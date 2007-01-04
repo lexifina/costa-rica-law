@@ -1,5 +1,4 @@
 CAPITULO XI
 Control
-ARTICULO 101.-
-Deber de informar.
-La Administración remitirá, cada tres meses, un reporte a la Contraloría General de la República, en el cual informará sobre la actividad contractual desplegada durante ese período. En ese informe, por lo menos, se suministrará un detalle de los procedimientos de contratación iniciados, los actos de adjudicación, las calidades del contratista, el objeto y el monto de las operaciones, la partida presupuestaria que respalda la erogación y los demás datos de interés, que se definirán reglamentariamente.
+Artículo 101.—Deber de informar. La administración remitirá, a la Contraloría General de la República, la información sobre su actividad contractual, en los términos y por los medios que el Órgano Contralor defina reglamentariamente, para los efectos del ejercicio de sus atribuciones de control y fiscalización.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

@@ -1,3 +1,2 @@
-ARTICULO 62.-
-Límite de la subcontratación.
-El contratista no podrá subcontratar por más de un cincuenta por ciento (50%) del total de la obra y para ello siempre requerirá la autorización de la Administración. Sin embargo, la subcontratación no relevará al contratista de su responsabilidad por la ejecución total de la obra.
+Artículo 62.—Límite de la subcontratación. El contratista no podrá subcontratar por más de un cincuenta por ciento (50%) del total de la obra, salvo autorización previa y expresa de la administración, cuando a juicio de esta última circunstancias muy calificadas así lo justifiquen. Sin embargo, la subcontratación no relevará al contratista de su responsabilidad por la ejecución total de la obra. Asimismo, los subcontratistas estarán sujetos a lo dispuesto en el artículo 22 bis de esta Ley.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

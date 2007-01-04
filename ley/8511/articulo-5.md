@@ -1,0 +1,1 @@
+Artículo 5º—Reglamentación. El Poder Ejecutivo deberá hacer las reformas reglamentarias requeridas para aplicar esta Ley, dentro del plazo de los tres meses siguientes a su publicación. No obstante, la entrada en vigencia de dichas reformas reglamentarias será igual a la prevista para esta Ley en su artículo 6.

@@ -1,6 +1,5 @@
-ARTICULO 53.-
-Precalificación.
-Cuando lo considere favorable para el mejor escogimiento del contratista, la Administración podrá promover una etapa de precalificación, como parte de la licitación pública o de la licitación por registro, a fin de seleccionar previamente a los participantes, de acuerdo con sus condiciones particulares.
+Artículo 53.—Precalificación. Cuando lo considere favorable para el mejor escogimiento del contratista, la administración podrá promover una etapa de precalificación, como parte de la licitación pública o de la licitación abreviada, a fin de seleccionar previamente a los participantes, de acuerdo con sus condiciones particulares.
+(Así reformado el párrafo anterior mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
 El cartel de precalificación indicará expresamente los factores por utilizar para el escogimiento y el valor asignado a cada factor. Se avisará el inicio del procedimiento mediante una publicación en el Diario Oficial.
 El acuerdo de precalificación será motivado y tendrá recurso de apelación ante la Contraloría General de la República, cuando el monto probable de la contratación se encuentre en los supuestos del artículo 84 de esta Ley.
 Cuando la estimación probable de la contratación sea inferior a esos montos, procederá el recurso de revocatoria ante el órgano que dictó la precalificación o el de apelación ante el jerarca, si él no dictó el acto.
