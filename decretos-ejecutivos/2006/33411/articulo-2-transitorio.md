@@ -1,0 +1,1 @@
+Transitorio II.—Todas las autorizaciones de contratación directa sin sujeción a plazo que haya otorgado la Contraloría General de la República antes de la vigencia de este Reglamento se mantendrán en los mismos términos y condiciones indicados para cada caso particular.

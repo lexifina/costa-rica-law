@@ -1,0 +1,6 @@
+SECCIÓN QUINTA
+Concesión de Gestión de Servicios Públicos
+Artículo 162.—Concesión de Gestión de Servicios Públicos. La Administración, podrá gestionar indirectamente y por concesión, los servicios de su competencia que, por su contenido económico, sean susceptibles de explotación comercial. Esta figura no podrá ser utilizada cuando la prestación del servicio implique el ejercicio de potestades de imperio o actos de autoridad.
+Para utilizar esta figura será necesario que el Poder Ejecutivo dicte un Reglamento relacionado con el tipo de servicio que se quiere explotar, en el cual se fijen las principales condiciones para su tramitación y explotación.
+Una vez habilitada la posibilidad de explotación por medio de ese Reglamento y de previo a iniciar el procedimiento de selección del contratista será necesario elaborar un anteproyecto de explotación para cada negocio específico, en el cual se definirán, minuciosamente, las condiciones de la prestación, las tarifas, las facultades para supervisar, las garantías de participación y cumplimiento, las modalidades de intervención administrativa y los supuestos de extinción.
+La selección del contratista se hará siguiendo el procedimiento que por el monto corresponda, según la estimación de los ingresos que se pueden llegar a dar durante la ejecución de todo el contrato.

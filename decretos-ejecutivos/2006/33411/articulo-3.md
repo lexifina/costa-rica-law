@@ -1,0 +1,2 @@
+Artículo 3º—Concursos regidos sólo por principios. Las entidades que reciban fondos públicos al menos una vez al año y estén sujetas sólo a los principios de la ley; deberán emitir la respectiva regulación interna a fin de garantizar la observancia de los principios de contratación administrativa.
+En caso de transferencias esporádicas de recursos públicos no será necesario contar con una regulación previa a la ejecución de los recursos, sin perjuicio de observar los controles respectivos.

@@ -1,0 +1,1 @@
+Artículo 6º—Régimen de nulidades. Las normas y principios consagrados en el Libro Primero de la Ley General de la Administración Pública respecto de la validez de la actividad administrativa, se aplicarán en toda su extensión en la valoración de los actos de la contratación administrativa.

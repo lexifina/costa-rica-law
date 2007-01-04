@@ -1,0 +1,2 @@
+Artículo 181.—Acumulación de recursos. Cuando ante la Administración se presenten recursos de revocatoria sobre las mismas líneas impugnadas en un recurso de apelación, la Contraloría General de la República procederá a acumular los recursos en el auto inicial, el cual deberá ser notificado a todos los recurrentes.
+Al atender la audiencia inicial, la Administración remitirá el original de los recursos de revocatoria que deben ser acumulados, los cuales seguirán el trámite del recurso de apelación y serán resueltos por la Contraloría General de la República.

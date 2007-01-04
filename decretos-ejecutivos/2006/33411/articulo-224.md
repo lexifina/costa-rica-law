@@ -1,0 +1,1 @@
+Artículo 224.—Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de las Proveedurías Institucionales, todas las demás unidades administrativas de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

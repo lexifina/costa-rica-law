@@ -1,0 +1,1 @@
+Artículo 220.—De la Plataforma tecnológica. La Proveeduría Institucional de cada entidad deberá contar con la plataforma tecnológica suficiente y adecuada que le permita ejecutar los procedimientos de contratación administrativa en forma eficiente. Para tales efectos las Administraciones deberán asignar permanentemente los recursos necesarios.

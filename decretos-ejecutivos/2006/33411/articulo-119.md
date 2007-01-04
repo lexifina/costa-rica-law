@@ -1,0 +1,2 @@
+Artículo 119.—Registros precalificados. En los casos que así resulte más conveniente y se cuente con la capacidad para ello, la Administración también podrá contar con registros precalificados, ya sea en su totalidad o para ciertos bienes o servicios.
+En los registros precalificados se evaluarán aspectos legales, técnicos y financieros del proveedor.

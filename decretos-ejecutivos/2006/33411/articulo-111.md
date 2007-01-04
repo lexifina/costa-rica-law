@@ -1,0 +1,1 @@
+Artículo 111.—Precio base de la subasta. La Administración, definirá el precio base que servirá de límite máximo para la adjudicación. El precio base será fijado de acuerdo a los estudios de mercado que realice la Administración, así como otros criterios que considere pertinentes. La Administración, se reserva la facultad de indicar este precio base en las cláusulas cartelarias.

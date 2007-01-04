@@ -1,0 +1,3 @@
+Artículo 146.—Tipos abiertos. Los tipos de contratación indicados en el artículo anterior no excluyen la posibilidad de que, mediante Reglamentos particulares a la Ley de Contratación Administrativa, se defina cualquier otro tipo contractual que contribuya a satisfacer el interés general, dentro del marco general y los procedimientos ordinarios o de excepción correspondientes.
+Los reglamentos que el Poder Ejecutivo emita para tales efectos deberán ser consultados previamente a la Contraloría General de la República, a fin de que ésta presente las recomendaciones que estime procedentes, en relación con los aspectos de su competencia.
+El dictamen del órgano contralor deberá emitirse en un plazo de quince días hábiles y sus recomendaciones no tendrán carácter vinculante.

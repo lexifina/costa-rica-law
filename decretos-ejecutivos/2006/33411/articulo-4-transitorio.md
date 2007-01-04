@@ -1,0 +1,1 @@
+Transitorio IV.—El Poder Ejecutivo a través de la Dirección General de Administración de Bienes y Contratación Administrativa realizará en un plazo de doce meses posteriores a la entrada en vigencia del presente Reglamento, un estudio especial sobre la aplicación del presente Reglamento.
