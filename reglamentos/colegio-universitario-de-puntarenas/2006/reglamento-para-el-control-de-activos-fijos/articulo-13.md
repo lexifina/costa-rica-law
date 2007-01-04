@@ -1,0 +1,1 @@
+Artículo 13.—Para calcular el valor de los bienes, la Unidad de Activos Fijos puede solicitar los servicios de funcionarios con conocimientos técnicos, a fin de que los bienes figuren en los registros auxiliares con el valor mas aproximado.

@@ -1,0 +1,1 @@
+Artículo 7º—Firma de inventarios. La firma de inventarios por parte de un custodio, implica la responsabilidad administrativa y civil, en cuanto a los bienes encomendados a su cargo, por lo que serán responsables directos por la pérdida o daño, salvo que provengan del deterioro natural por razones del uso legítimo o de otra causa Justificada.

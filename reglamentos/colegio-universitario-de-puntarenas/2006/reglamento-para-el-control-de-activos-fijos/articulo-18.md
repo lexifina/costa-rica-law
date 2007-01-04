@@ -1,0 +1,7 @@
+Artículo 18.—Alta por donación u obsequio. Hay donación u obsequio cuando voluntariamente una persona física o jurídica, nacional o internacional, transmite gratuitamente la propiedad y el dominio de un bien a favor de la institución que lo acepta. Para recibir bienes, se necesita el cumplimiento de los siguientes requisitos.
+a- Ofrecimiento escrito del donante, con detalle del bien.
+b- Llenar el formulario denominado alta de bienes.
+c- Plaqueo del bien.
+d- Registro del bien en el Sistema Informático de Administración y Control de Bienes, con su respectiva descripción y detalle de las características del mismo, según el artículo Nº 3 de este reglamento.
+e- Escritura Pública para aquellos bienes muebles e inmuebles que por su naturaleza sean inscribibles, para lo cual el Decano, remitirá el expediente administrativo levantado al efecto, incluyendo el respectivo avalúo, al Departamento de Financiero para que proceda conforme corresponda.
+Sobre los bienes recibidos por lo servidores públicos como gesto de cortesía costumbre diplomática por parte de sujetos de derecho internacional o aquellos bienes caídos en decomiso a causa de condenatoria judicial firme por el delito de Enriquecimiento Ilícito, se deberá informar, remitir y registrar de conformidad con los procedimientos señalados en el Reglamento respectivo a la Ley N° 8422 de 6 de octubre del 2004, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

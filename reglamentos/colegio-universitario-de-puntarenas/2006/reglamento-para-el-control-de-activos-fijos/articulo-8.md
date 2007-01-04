@@ -1,0 +1,2 @@
+Artículo 8º—Verificación de inventarios. El encargado de la Unidad de Activos Fijos, El jefé del Depto. Financiero o el Auditor Interno podrán verificar los activos del sistema computaritado contra la existencia de los bienes a cargo de una persona y exigir el cumplimiento de las normas establecidas en este reglamento o instrucciones que en esta materia se hayan emitido.
+La verificación de existencias se harán mediante prueba selectiva periódica o verificación total, cuando se estime convenientey sin previo aviso.

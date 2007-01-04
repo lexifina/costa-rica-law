@@ -1,0 +1,1 @@
+Artículo 3º—Sistema informático. La Unidad de Activos Fijos contará con un sistema infórmático de administración y control de bienes. Todos los bienes deberán estar debidamente registrados y actualizados en el sistema infórmático.

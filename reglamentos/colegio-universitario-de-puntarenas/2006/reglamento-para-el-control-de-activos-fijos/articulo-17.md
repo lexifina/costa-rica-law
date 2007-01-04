@@ -1,0 +1,1 @@
+Artículo 17.—Aparición de bienes dados de baja. Cuando se ubica o recupera un bien que anteriormente hy aya sido dado de baja, se deberá inventariar nuevamente, registrando el bien con un nuevo número de identificación.

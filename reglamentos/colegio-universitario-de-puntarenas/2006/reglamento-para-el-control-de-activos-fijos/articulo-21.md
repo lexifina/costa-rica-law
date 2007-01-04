@@ -1,0 +1,1 @@
+Artículo 21.—En caso de reducción o fusión de dependencias como consecuencia de procesos de reestructuración o similares, deberá dejarse razón de dicha circunstancia y proceder a la redistribución interna de bienes en los mismos términos antes indicados.
