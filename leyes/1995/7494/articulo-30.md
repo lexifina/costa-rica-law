@@ -1,6 +1,5 @@
-(*) ARTICULO 30.-
-Modificación del procedimiento en licitación infructuosa.
-Si se produce una licitación pública infructuosa, la Administración podrá utilizar el procedimiento de licitación por registro en el nuevo concurso.
-Si una licitación por registro resulta infructuosa, la Administración está autorizada para emplear una licitación restringida.
-En el caso de un remate infructuoso, la Administración podrá disminuir, la base fijada por el avalúo respectivo, hasta en un veinticinco por ciento (25%) cada vez.
-(*) (INTERPRETADO por resolución interlocutoria de la Sala Constitucional Nº 565-I-98 de las 8:30 horas del 18 de setiembre de 1998, en el sentido de que dicho artículo resulta conforme con el orden constitucional en el tanto faculta a la administración para "aliviar" los procedimientos licitatorios, siempre y cuando, exista una autorización previa de la Contraloría General de la República).
+Artículo 30.—Modificación del procedimiento en licitación infructuosa. Si se produce una licitación pública infructuosa, la administración podrá utilizar en el nuevo concurso el procedimiento de licitación abreviada.
+Si una licitación abreviada resulta infructuosa, la administración podrá realizar una contratación directa.
+En los casos anteriormente citados, deberá mediar autorización de la Contraloría General de la República, órgano que dispondrá de un término de diez días hábiles para resolver, previa valoración de las circunstancias que concurrieron para que el negocio resultara infructuoso.
+En el caso de un remate infructuoso, la administración podrá aplicar hasta dos rebajas a la base fijada por el avalúo respectivo, hasta en un veinticinco por ciento (25%) cada vez.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

@@ -1,5 +1,3 @@
 Sección cuarta
 Licitación restringida
-ARTICULO 47.-
-Supuestos.
-Por este procedimiento se regirán las contrataciones previstas en el artículo 27 de esta Ley.
+ARTICULO 47.-(Derogado mediante el artículo 4° de la ley N° 8511 del 16 de mayo del 2006).

@@ -7,6 +7,8 @@ Se entiende que existe injerencia o poder de decisión, cuando el funcionario re
 Cuando exista duda de si el puesto desempeñado está afectado por injerencia o poder de decisión, antes de participar en el procedimiento de contratación administrativa, el interesado hará la consulta a la Contraloría General de la República y le remitirá todas las pruebas y la información del caso, según se disponga en el Reglamento de esta Ley.
 e) Quienes funjan como asesores de cualquiera de los funcionarios afectados por prohibición, sean estos internos o externos, a título personal o sin ninguna clase de remuneración, respecto de la entidad para la cual presta sus servicios dicho funcionario.
 f) Las personas jurídicas en cuyo capital social participe alguno de los funcionarios mencionados en los incisos anteriores, o quienes ejerzan puestos directivos o de representación. Para que la venta o cesión de la participación social respectiva pueda desafectar a la respectiva firma, deberá haber sido hecha al menos con seis meses de anticipación al nombramiento del funcionario respectivo y deberá tener fecha cierta por cualquiera de los medios que la legislación procesal civil permite. Toda venta o cesión posterior a esa fecha no desafectará a la persona jurídica de la prohibición para contratar, mientras dure el nombramiento que la origina.
+Para las sociedades cuyas acciones se encuentren inscritas en el Registro Nacional de Valores e Intermediarios de la Superintendencia General de Valores, tal prohibición aplicará cuando dicho funcionario controle el diez por ciento (10%) o más del total del capital suscrito de la sociedad. A este efecto la administración únicamente requerirá de la persona jurídica oferente una declaración jurada de que no se encuentra sujeta a ninguna de las causales de prohibición establecidas en este artículo.
+(Así adicionado el párrafo anterior mediante el artículo 3° de la ley N° 8511 del 16 de mayo del 2006).
 g) Las personas jurídicas sin fines de lucro, tales como asociaciones, fundaciones y cooperativas, en las cuales las personas sujetas a prohibición figuren como directivos, fundadores, representantes, asesores o cualquier otro puesto con capacidad de decisión.
 h) El cónyuge, el compañero o la compañera en la unión de hecho, de los funcionarios cubiertos por la prohibición, así como sus parientes por consanguinidad o afinidad hasta el tercer grado inclusive.
 i) Las personas jurídicas en las cuales el cónyuge, el compañero, la compañera o los parientes indicados en el inciso anterior, sean titulares de más de un veinticinco por ciento (25%) del capital social o ejerzan algún puesto de dirección o representación.
@@ -15,6 +17,5 @@ Las personas y organizaciones sujetas a una prohibición, mantendrán el impedim
 De las prohibiciones anteriores se exceptúan los siguientes casos:
 1. Que se trate de un proveedor único.
 2. Que se trate de la actividad ordinaria del ente.
-3. Que exista un interés manifiesto de colaborar con la
-Administración.
+3. Que exista un interés manifiesto de colaborar con la Administración.
 (Así adicionado por el artículo 65 de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).

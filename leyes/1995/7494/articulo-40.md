@@ -1,5 +1,3 @@
-ARTICULO 40.-
-Comunicación por medios electrónicos.
-Para comunicar los actos de procedimiento, la Administración podrá utilizar cualquier medio electrónico que garantice la certeza de la recepción y el contenido del mensaje.
-Cuando la eficiencia en el desarrollo de los procedimientos de contratación lo requiera, la Administración podrá exigir, a los oferentes y los integrantes de registros de proveedores, que indiquen los casilleros electrónicos, los facsímiles o los medios telemáticos idóneos para enviar las comunicaciones oficiales.
-En el Reglamento se definirán los supuestos en que la Administración recibirá ofertas y aclaraciones, por los medios electrónicos mencionados en el párrafo anterior.
+Artículo 40.—Uso de medios electrónicos. Para realizar los actos previstos en esta Ley, la administración y los particulares podrán utilizar cualquier medio electrónico que garantice la integridad del documento y la identidad del emisor. Estos actos tendrán la misma validez y eficacia jurídica que los realizados por medios físicos.
+En el Reglamento de esta Ley se definirán los actos susceptibles de transmitirse por medios electrónicos y sus formalidades.
+(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).

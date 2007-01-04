@@ -1,5 +1,6 @@
 articulo-1.md
 articulo-2.md
+articulo-2-bis.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
@@ -10,6 +11,7 @@ articulo-9.md
 articulo-10.md
 articulo-11.md
 articulo-12.md
+articulo-12-bis.md
 articulo-13.md
 articulo-14.md
 articulo-15.md
@@ -41,6 +43,7 @@ articulo-39.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
+articulo-42-bis.md
 articulo-43.md
 articulo-44.md
 articulo-45.md

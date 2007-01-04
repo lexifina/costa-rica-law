@@ -1,7 +1,12 @@
-ARTICULO 32.-
-Validez, perfeccionamiento y formalización.
+Artículo 32.- Validez, perfeccionamiento y formalización.
 Será válido el contrato administrativo sustancialmente conforme al ordenamiento jurídico.
 El acto firme de adjudicación y la constitución de la garantía de cumplimiento, cuando sea exigida perfeccionarán la relación contractual entre la Administración y el contratista.
 Sólo se formalizarán, en escritura pública, las contrataciones administrativas inscribibles en el Registro Nacional y las que por ley tengan este requisito.
 Los demás contratos administrativos se formalizarán en simple documento; a no ser que ello no sea imprescindible para el correcto entendimiento de los alcances de los derechos y las obligaciones contraídos por las partes, según se determinará reglamentariamente.
-( Así corregido por Fe de Erratas publicada en "La Gaceta" Nº 120 del 23 de junio de 1995).
+(Corregido los dos párrafos anteriores por Fe de Erratas y publicada en La Gaceta" Nº 120 del 23 de junio de 1995)
+La administración estará facultada para readjudicar el negocio, en forma inmediata, cuando el adjudicatario no otorgue la garantía de cumplimiento a plena satisfacción o no comparezca a la formalización del contrato. En tales casos, acreditadas dichas circunstancias en el expediente, el acto de adjudicación inicial se considerará insubsistente, y la administración procederá a la readjudicación, según el orden de calificación respectivo, en un plazo de veinte días hábiles, el cual podrá ser prorrogado hasta por diez días adicionales, siempre que en el expediente se acrediten las razones calificadas que así lo justifican.
+(Así adicionado el párrafo anterior por el artículo 3° de la ley N° 8511 del 16 de mayo del 2006)
+La Contraloría General de la República deberá resolver la solicitud de refrendo de los contratos, cuando este requisito proceda, dentro de un plazo de veinticinco días hábiles, cuando se trate de licitación pública, y de veinte días hábiles, en los casos restantes.
+(Así adicionado el párrafo anterior por el artículo 3° de la ley N° 8511 del 16 de mayo del 2006)
+La Administración deberá girar la orden de inicio, dentro del plazo fijado en el cartel y, a falta de estipulación especial, lo hará dentro de los quince días hábiles contados a partir de la notificación del refrendo o de la aprobación interna, según corresponda, salvo resolución motivada en la cual se resuelva extender el plazo por razones calificadas, resolución que deberá emitirse dentro del plazo inicial previsto.
+(Así adicionado el párrafo anterior por el artículo 3° de la ley N° 8511 del 16 de mayo del 2006)
