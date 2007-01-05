@@ -1,0 +1,1 @@
+Artículo 14.—Sobre los acuerdos que emitan las juntas directivas locales. La Junta Directiva General podrá revocar, anular o modificar los acuerdos que emitan las juntas directivas locales, cuando en su criterio haya motivo para hacerlo, así como cuando se presenten informes, tanto de la auditoría como de la administración, que ameriten tomar una decisión en ese sentido.
