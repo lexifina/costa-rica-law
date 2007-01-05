@@ -1,0 +1,22 @@
+MINISTERIO DE HACIENDA
+N° 013-2006.—En uso de las facultades que le confiere los incisos 3) y 18) del artículo 140 de la Constitución Política, el acápite b) inciso 2) del artículo 28 de la Ley General de Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas; con fundamento en lo dispuesto por la Ley de Administración Financiera y Presupuestos Públicos, Nº 8131 publicada en La Gaceta Nº 198 del 16 de octubre del 2001.
+Considerando:
+1º—Que el artículo 27 de la Ley de Administración Financiera y Presupuestos Públicos establece el Sistema de Administración Financiera y otorga las facultades de rector sobre dicho sistema al Ministerio de Hacienda.
+2º—Que a los efectos de garantizar el adecuado funcionamiento del Sistema de Administración Financiera es conveniente establecer lineamientos y directrices generales para orientar su funcionamiento.
+3º—Que, se hace necesario la emisión de directrices, políticas y disposiciones a fin de complementar los principios y orientaciones sobre el funcionamiento integral del Sistema de Administración Financiera, regulados en la Ley de la Administración Financiera y Presupuestos Públicos y su reglamento, para cada uno de los subsistemas. Por tanto,
+Se emite la presente,
+DIRECTRIZ SOBRE LAS ORIENTACIONES GENERALES PARA
+EL ADECUADO FUNCIONAMIENTO DEL SISTEMA DE
+ADMINISTRACIÓN FINANCIERA
+Artículo 1º—Emitir las presentes orientaciones generales para el adecuado funcionamiento del Sistema de Administración Financiera:
+1. Se deberá conformar un comité integrado por las autoridades superiores de cada subsistema, del sistema complementario de la Administración Financiera y el Ministro, o en quien él delegue quienes serán los responsables de:
+a. Procurar el adecuado funcionamiento del Sistema de la Administración Financiera.
+b. Definir metodologías y procedimientos para realizar periódicamente la evaluación del funcionamiento integral del Sistema de Administración Financiera, a los efectos de garantizar la debida coordinación entre los subsistemas y el sistema complementario y la conveniente adaptación de los procesos y procedimientos a las circunstancias internas y externas, con fin último de garantizar la eficiencia y eficacia del mismo.
+c. Definir y conformar, según corresponda, instancias para la administración de los sistemas de información computadorizados que soportan y apoyan los procesos del SAF.
+2. Cada uno de los rectores de los distintos subsistemas y del sistema complementario deberá:
+a. Velar por que se establezcan las debidas relaciones de coordinación específicas con los restantes subsistemas y sistema complementario, en procura de la debida integración de procesos y el adecuado flujo de información, independientemente a la operación de instancias de coordinación de todo el SAF.
+b. Remitir informes periódicos con el fin de evaluar y dar seguimiento al funcionamiento del SAF, sin demérito de la correspondiente información que como superior jerárquico deban los órganos rectores enviar al Ministro de Hacienda o su representante.
+c. En caso de que surgiesen eventuales conflictos en la coordinación y definición de aspectos técnicos entre los órganos rectores de los diferentes subsistemas y sistema complementario, corresponderá al Ministro de Hacienda resolver conforme corresponda.
+3. Para regular la operación del SAF se dispondrá de la correspondiente reglamentación que emita el Poder Ejecutivo, las resoluciones que dispongan los órganos colegiados integrados por los diferentes órganos rectores y las que de manera particular resuelvan cada uno de éstos.
+4. Los órganos rectores de los diferentes subsistemas y sistema complementario, darán seguimiento a la aplicación de los lineamientos y disposiciones que establezcan. Asimismo, velarán para que sus disposiciones se ajusten a las circunstancias respetando los principios técnicos aplicables.
+5. Los entes y órganos de otras dependencias del Sector Público contempladas en el ámbito de los diferentes subsistemas y sistema complementario deberán obligatoriamente atender las disposiciones técnicas que emitan los órganos rectores manteniendo la dependencia administrativa de sus respectivos superiores jerárquicos. En caso de no atenderse las disposiciones, corresponderá al respectivo jerarca establecer las responsabilidades correspondientes, conforme lo dispuesto en el artículo 127 de la Ley de Administración Financiera y Presupuestos Públicos.
