@@ -1,0 +1,4 @@
+Artículo 3º—Definiciones: Para efectos del presente Reglamento se entenderá por:
+a) Capacitación: Actividad planificada y sistemática tendiente a actualizar, complementar, aumentar y enriquecer los conocimientos, destrezas, actividades, habilidades necesarias para el buen desempeño laboral y el respectivo aprovechamiento institucional de las potencialidades del recurso humano.
+b) Facilidades: Beneficios u oportunidades que otorga la Institución y que contribuyan al desarrollo del recurso humano. Pueden consistir en ayudas económicas, materiales, tiempo laboral, apoyo oficial u otros, que pueden provenir de la Junta Administrativa, instituciones públicas, organismos públicos o privados, nacionales o internacionales.
+c) Beneficiario: Servidor que recibe una facilidad o financiamiento para disfrutar de una actividad de capacitación.
