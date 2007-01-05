@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión será convocada por el(a) Director(a) Nacional, cuando lo considere necesario. Las sesiones se realizarán durante la jornada laboral ordinaria y sus miembros no devengarán dietas.

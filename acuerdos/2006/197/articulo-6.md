@@ -1,0 +1,1 @@
+Artículo 6º—Delegar en la Lic. Olga Marta Corrales Sánchez cédula de identidad número 2-0360-0250 Directora de la Dirección Nacional de Desarrollo de la Comunidad, órgano adscrito al Ministerio de Gobernación y Policía; la firma de las resoluciones finales mediante las que se dispone desmantelar, dar de baja y/o donar bienes.
