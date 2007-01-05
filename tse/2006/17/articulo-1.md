@@ -1,0 +1,8 @@
+Nº 17-2006
+En uso de las atribuciones conferidas por los artículos 99, 102 incisos 2), 3) y 10) de la Constitución Política, y artículo 19, inciso f) del Código Electoral; y,
+Considerando:
+I.—Con ocasión de la reforma parcial operada a la Ley de Contratación Administrativa Nº 7949, que contempla en los artículos 27 y 45 regulación relacionada con la licitación abreviada en relación con su procedencia y estructura, con lo cual la denominación anterior de la licitación restringida y por registro es derogada, se encuentra oportuno proponer el planteamiento que nos interesa en el contexto de lo normado en dicha ley. Lo anterior con la intención de aprovechar para publicar la modificación al reglamento de la Dirección Ejecutiva antes de que entre en vigencia la aplicación de la referida ley.
+II.—Todo lo expuesto anteriormente, nace en virtud de la separación del subprograma presupuestario para el proceso productivo de elecciones, en el que se pretenden dar a conocer las propuestas de modificación a los reglamentos tanto de la Oficina Coordinadora de Programas Electorales como de la Dirección Ejecutiva. Por tanto,
+DECRETA:
+Artículo 1º—Adiciónese un artículo Nº 2 bis al Reglamento de la Dirección Ejecutiva del Tribunal Supremo de Elecciones, Resolución Nº 2-2000 del 3 de agosto del 2000, para que se lea:
+“Artículo 2 BIS.—El Tribunal delegará, en el Director Ejecutivo, la firma de los contratos que lleguen a formalizarse en un documento contractual clausulado, originado de la adjudicación recaída en un procedimiento de licitación abreviada. Para tal efecto, en el acto de adjudicación se hará mención expresa a dicha autorización”:
