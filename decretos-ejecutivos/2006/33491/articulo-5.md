@@ -1,0 +1,1 @@
+Artículo 5º—La Junta Administrativa de la Fundación del Parque Marino del Pacífico dispondrá de las entradas de cortesía que considere necesaria usar, con fines de promoción, divulgación y colaboración con organizaciones.
