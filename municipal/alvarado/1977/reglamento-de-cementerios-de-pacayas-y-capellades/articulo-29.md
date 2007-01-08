@@ -1,1 +1,0 @@
-Artículo 29.—Los nichos construidos sobre la superficie del terreno con anterioridad al día en que legalmente comience a regir el presente reglamento, pueden continuar siendo ocupados para inhumaciones por quien tenga derecho a ello, siempre que se hallen en buen estado, y no muestren exteriormente exudaciones de productos acuosos de la descomposición cadavérica.

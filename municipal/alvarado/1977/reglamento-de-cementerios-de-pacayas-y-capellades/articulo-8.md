@@ -1,1 +1,0 @@
-Artículo 8°—En el área del Cementerio destinada a las sepulturas comunes deben marcarse las parcelas para las fosas de acuerdo con plano regulador, distribuyéndolas por cuadros uno alelado de otro en filas continuas, simétricamente respecto de las callejuelas de comunicación. Uno o más de estos cuadros se reservarán para sepulturas de niñas.

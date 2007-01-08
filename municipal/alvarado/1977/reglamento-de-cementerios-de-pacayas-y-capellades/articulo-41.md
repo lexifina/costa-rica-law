@@ -1,1 +1,0 @@
-Artículo 41.—Los derechos de propiedad o arrendamiento sobre parcelas, tumbas, mausoleos y demás sitios en los cementerios, sólo podrán ser traspasados ceras personas cuando no hayan sido usados, o cuando habiendo sido usados, se hieren exhumado todos los restos que ellos contengan, contando desde luego con el visto bueno de la Junta.

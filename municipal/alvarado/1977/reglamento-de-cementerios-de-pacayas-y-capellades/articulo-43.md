@@ -1,1 +1,0 @@
-Artículo 43.—En aquellos casos en que sólo haya una fosa o nicho disponible al inspeccionar se encuentra que hay una momia y el cadáver que se desea inhumar no cabe junto con ésta, se dará prioridad a la momia y el cadáver se inhumará en otro lugar.

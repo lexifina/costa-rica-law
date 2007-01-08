@@ -1,1 +1,0 @@
-Artículo 26.—En los cementerios será permitida la inhumación en nichos solamente cuando éstos estén construidos bajo tierra y podrán levantarse sobre la superficie hasta una altura de 20 centímetros. Los nichos sobre la superficie del suelo sólo podrán ser usados como osarios.
