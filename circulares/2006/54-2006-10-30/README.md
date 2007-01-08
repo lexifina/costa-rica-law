@@ -13,3 +13,4 @@ Lista Oficial de Ejecutores del Poder Judicial (En el Boletín Judicial N° 103 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-16 | la propia norma |
+| 2 | 2007-01-08 | Circular 69 (2007-01-08) |
