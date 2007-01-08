@@ -1,0 +1,1 @@
+Artículo 26.—Los residuos de agroquímicos, así como las aguas que se hayan utilizado en el lavado de equipos, deberán ser recolectados y dirigidos a un sistema de tratamiento, conforme lo establece el Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 11.—Si en los lugares de trabajo existe la necesidad de transportar un agroquímico a pie, en bicicleta o a caballo, como medida de seguridad para prevenir los riesgos laborales, se deben envolver los envases en material impermeable y asegurarlos bien para disminuir los riesgos de derrame.

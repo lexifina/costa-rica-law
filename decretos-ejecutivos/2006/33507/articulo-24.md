@@ -1,0 +1,3 @@
+Artículo 24.—Para prevenir y controlar los riesgos laborales en la ejecución de la labor del triple lavado, esta se debe realizar en un área destinada para este fin, para lo cual el trabajador debe usar la ropa de trabajo y el equipo de protección personal necesarios (delantal, guantes, botas impermeables, lentes, etc.).
+Una vez finalizada la operación, se debe perforar el envase vacío para que no se utilice en otra labor y se deposita en un lugar de almacenamiento temporal, para su posterior devolución a la casa comercial respectiva.
+El lugar de almacenamiento temporal debe estar cercado con malla, bajo techo, rotulado y con llave.

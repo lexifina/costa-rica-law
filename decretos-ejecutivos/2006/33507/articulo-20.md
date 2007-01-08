@@ -1,0 +1,1 @@
+Artículo 20.—Durante las labores de aplicación, solo deben permanecer los aplicadores en el área tratada. Es responsabilidad del patrono impedir que haya otras personas no relacionadas con esta labor. Además, deberá prohibirse la entrada de animales domésticos a ese campo.
