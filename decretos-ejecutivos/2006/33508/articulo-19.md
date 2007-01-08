@@ -1,0 +1,1 @@
+Artículo 19.—Capacidad de las instalaciones. Será responsabilidad de cada uno de los funcionarios supervisores citados en el artículo siguiente, velar por que las instalaciones a su cuido no supere el máximo de personas permitidas en atención a su capacidad, dimensiones y ubicación.

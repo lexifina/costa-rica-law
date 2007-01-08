@@ -1,0 +1,1 @@
+Artículo 23.—Derogación. Deróguense los Decretos Ejecutivos Nº 24628-C del 11 de setiembre de 1995, publicado en La Gaceta Nº 188 del 4 de octubre del mismo año y N.32196-C del 20 de setiembre del 2004, publicado en La Gaceta Nº 15 del 21 de enero del 2005.

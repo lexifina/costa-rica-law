@@ -1,0 +1,2 @@
+Artículo 11.—Excepción. Del cobro por concepto de gastos de mantenimiento, se exceptúa a los demás programas y órganos desconcentrados del Ministerio de Cultura, Juventud y Deportes interesados en utilizar las instalaciones del CENAC o la Antigua Aduana Principal, para cuyo caso solamente remitirán a la Comisión una solicitud conforme los términos del artículo 9º.
+En todo lo demás, deberán cumplir con el resto de disposiciones de este Reglamento.
