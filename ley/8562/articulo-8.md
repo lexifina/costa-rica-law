@@ -1,0 +1,7 @@
+ARTÍCULO 8.
+El Poder Judicial constituirá, para su funcionamiento, un fondo rotatorio, con el objeto de facilitar la adquisición de bienes y servicios que por sus características sean indispensables, urgentes o que, por su cuantía, no convenga recurrir a otros procedimientos de contratación, hasta por el monto que se establezca de conformidad con la Ley N° 7494, Contratación administrativa, de 2 de mayo de 1995, para las compras directas; así como para atender el pago de sueldos del personal judicial interino o en propiedad, cuando no haya sido factible tramitar el pago oportuno por medio del sistema ordinario de pago de salarios del Poder Judicial. El monto autorizado será de cincuenta millones de colones (¢50.000.000,OO) y podrá incrementarse hasta ciento cincuenta millones de colones (¢ 150.000.000,00).
+Cualquier modificación del Reglamento del Fondo Rotatorio, incluso la creación de subfondos rotatorios y la definición del monto de operación, corresponderá a la Corte Plena. Este Fondo se manejará en una cuenta corriente en un banco del Estado, contra la cual solo podrán girarse cheques u órdenes de pago con las firmas de los funcionarios que la Corte Plena determine mediante reglamento.
+Corresponde a la Auditoría Judicial. llevar el control del Fondo.
+ASAMBLEA LEGISLATlVA.- Aprobado a los veintinueve días del mes de noviembre de dos mil seis.
+Dado en la Presidencia de la Republica. —San José, a los siete días del mes de diciembre del dos mil seis.
+Ejecútese y publiquese.
