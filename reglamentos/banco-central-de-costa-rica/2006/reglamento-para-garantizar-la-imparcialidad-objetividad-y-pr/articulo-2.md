@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento será de aplicación para todos los servidores regulares, de nombramiento discrecional y del tramo gerencial de la Institución, y se dicta con fundamento en las potestades de la Junta Directiva del Banco Central de Costa Rica para emitir regulaciones generales de alcance interno en esta materia.
