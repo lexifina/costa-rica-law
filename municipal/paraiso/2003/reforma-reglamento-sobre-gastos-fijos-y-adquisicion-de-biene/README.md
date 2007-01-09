@@ -14,3 +14,4 @@ Reforma Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-04 | la propia norma |
+| 2 | 2007-01-09 | Reglamento municipal 58 (2007-01-09) |
