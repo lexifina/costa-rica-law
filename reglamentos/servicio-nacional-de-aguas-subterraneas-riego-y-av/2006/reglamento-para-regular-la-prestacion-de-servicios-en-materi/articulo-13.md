@@ -1,0 +1,1 @@
+Artículo 13.—Mecanismo para la actualización de costos. Los costos de la prestación de servicios, serán revisados anualmente para efectos de la respectiva actualización debiendo observarse en todo caso la justificación y aprobación requerida de la Contraloría General de la República.

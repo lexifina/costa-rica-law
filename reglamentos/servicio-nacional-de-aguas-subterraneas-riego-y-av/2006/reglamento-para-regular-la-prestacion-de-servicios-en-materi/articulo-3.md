@@ -1,0 +1,1 @@
+Artículo 3º—Principios rectores de la actividad. La prestación de servicios a cargo del ASUB, se hará bajo los principios fundamentales de objetividad, de igualdad, de eficiencia, de transparencia y de servicio al costo. En la elaboración de documentos técnicos el SENARA actuará sometido a las normas legales, de la ciencia y de la técnica que regulan la actividad que corresponda.
