@@ -1,0 +1,6 @@
+Artículo 16
+Soborno de funcionarios públicos extranjeros
+y de funcionarios de organizaciones
+internacionales públicas
+1. Cada Estado Parte adoptará las medidas legislativas y de otra índole que sean necesarias para tipificar como delito, cuando se cometan intencionalmente, la promesa, el ofrecimiento o la concesión, en forma directa o indirecta, a un funcionario público extranjero o a un funcionario de una organización internacional pública, de un beneficio indebido que redunde en su propio provecho o en el de otra persona o entidad con el fin de que dicho funcionario actúe o se abstenga de actuar en el ejercicio de sus funciones oficiales para obtener o mantener alguna transacción comercial u otro beneficio indebido en relación con la realización de actividades comerciales internacionales.
+2. Cada Estado Parte considerará la posibilidad de adoptar las medidas legislativas y de otra índole que sean necesarias para tipificar como delito, cuando se cometan intencionalmente, la solicitud o aceptación por un funcionario público extranjero o un funcionario de una organización internacional pública, en forma directa o indirecta, de un beneficio indebido que redunde en su propio provecho o en el de otra persona o entidad, con el fin de que dicho funcionario actúe o se abstenga de actuar en el ejercicio de sus funciones oficiales.

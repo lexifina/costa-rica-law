@@ -1,0 +1,4 @@
+Artículo 11
+Medidas relativas al Poder Judicial y al Ministerio Público
+1. Teniendo presentes la independencia del Poder Judicial y su papel decisivo en la lucha contra la corrupción, cada Estado Parte, de conformidad con los principios fundamentales de su ordenamiento jurídico y sin menoscabo de la independencia del poder judicial, adoptará medidas para reforzar la integridad y evitar toda oportunidad de corrupción entre los miembros del Poder Judicial. Tales medidas podrán incluir normas que regulen la conducta de los miembros del Poder Judicial.
+2. Podrán formularse y aplicarse en el Ministerio Público medidas con idéntico fin a las adoptadas conforme al párrafo 1 del presente artículo en los Estados Parte en que esa institución no forme parte del Poder Judicial pero goce de independencia análoga.

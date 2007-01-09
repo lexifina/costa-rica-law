@@ -1,0 +1,3 @@
+Artículo 36
+Autoridades especializadas
+Cada Estado Parte, de conformidad con los principios fundamentales de su ordenamiento jurídico, se cerciorará de que dispone de uno o más órganos o personas especializadas en la lucha contra la corrupción mediante la aplicación coercitiva de la ley. Ese órgano u órganos o esas personas gozarán de la independencia necesaria, conforme a los principios fundamentales del ordenamiento jurídico del Estado Parte, para que puedan desempeñar sus funciones con eficacia y sin presiones indebidas. Deberá proporcionarse a esas personas o al personal de ese órgano u órganos formación adecuada y recursos suficientes para el desempeño de sus funciones.

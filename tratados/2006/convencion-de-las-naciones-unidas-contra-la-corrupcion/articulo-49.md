@@ -1,0 +1,3 @@
+Artículo 49
+Investigaciones conjuntas
+Los Estados Parte considerarán la posibilidad de celebrar acuerdos o arreglos bilaterales o multilaterales en virtud de los cuales, en relación con cuestiones que son objeto de investigaciones, procesos o actuaciones judiciales en uno o más Estados, las autoridades competentes puedan establecer órganos mixtos de investigación. A falta de tales acuerdos o arreglos, las investigaciones conjuntas podrán llevarse a cabo mediante acuerdos concertados caso por caso. Los Estados Parte participantes velarán por que la soberanía del Estado Parte en cuyo territorio haya de efectuarse la investigación sea plenamente respetada.

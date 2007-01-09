@@ -1,0 +1,3 @@
+Artículo 56
+Cooperación especial
+Sin perjuicio de lo dispuesto en su derecho interno, cada Estado Parte procurará adoptar medidas que le faculten para remitir a otro Estado Parte que no la haya solicitado, sin perjuicio de sus propias investigaciones o actuaciones judiciales, información sobre el producto de delitos tipificados con arreglo a la presente Convención si considera que la divulgación de esa información puede ayudar al Estado Parte destinatario a poner en marcha o llevar a cabo sus investigaciones o actuaciones judiciales, o que la información así facilitada podría dar lugar a que ese Estado Parte presentara una solicitud con arreglo al presente capítulo de la Convención

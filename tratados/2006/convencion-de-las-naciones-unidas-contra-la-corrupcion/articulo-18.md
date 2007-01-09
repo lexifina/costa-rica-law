@@ -1,0 +1,5 @@
+Artículo 18
+Tráfico de influencias
+Cada Estado Parte considerará la posibilidad de adoptar las medidas legislativas y de otra índole que sean necesarias para tipificar como delito, cuando se cometan intencionalmente:
+a) La promesa, el ofrecimiento o la concesión a un funcionario público o a cualquier otra persona, en forma directa o indirecta, de un beneficio indebido con el fin de que el funcionario público o la persona abuse de su influencia real o supuesta para obtener de una administración o autoridad del Estado Parte un beneficio indebido que redunde en provecho del instigador original del acto o de cualquier otra persona;
+b) La solicitud o aceptación por un funcionario público o cualquier otra persona, en forma directa o indirecta, de un beneficio indebido que redunde en su provecho o el de otra persona con el fin de que el funcionario público o la persona abuse de su influencia real o supuesta para obtener de una administración o autoridad del Estado Parte un beneficio indebido.
