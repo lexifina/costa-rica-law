@@ -14,3 +14,4 @@ Reglamento de Becas de la Municipalidad de Vázquez de Coronado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-28 | la propia norma |
+| 2 | 2007-01-09 | Reglamento municipal 34 (2007-01-09) |
