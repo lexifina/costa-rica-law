@@ -1,0 +1,1 @@
+Artículo 2º—El MINAE dará a los funcionarios de RECOPE que participen en dicho Programa información clara y precisa de los elementos a evaluar y de los parámetros de conformidad, así como la capacitación necesaria para el debido cumplimiento de los objetivos del programa.
