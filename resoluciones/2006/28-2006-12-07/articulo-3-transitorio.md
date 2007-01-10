@@ -1,0 +1,1 @@
+III.—Pasado un plazo de 30 días naturales a partir de la publicación de la presente resolución, ninguna Administración Tributaria admitirá para su legalización las hojas sueltas que se indican a lo largo de este documento.

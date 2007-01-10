@@ -1,0 +1,1 @@
+Artículo 3º—Refórmese el inciso 4.3 para que se sustituya la frase “se hayan dañado”, por la frase “hayan sido sustraídos”. De igual manera, en el párrafo segundo de este artículo, sustitúyase la frase “nombre y número de libros por reponer”, por la frase “nombre y número del libro por reponer”
