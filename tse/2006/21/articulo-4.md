@@ -1,0 +1,1 @@
+Artículo 4º—La Coordinación de Programas Electorales funge como enlace entre el Tribunal, los programas electorales, el Cuerpo Nacional de Delegados y otras instancias que el propio Tribunal indique, por lo que todas las gestiones e informes de éstos deben canalizarse por intermedio de esta oficina.
