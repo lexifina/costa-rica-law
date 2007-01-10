@@ -1,0 +1,2 @@
+Transitorio II
+A todo registro de ingrediente activo grado técnico, registrado como tal, o como componente de un plaguicida sintético formulado, con anterioridad a la entrada en vigencia del presente reglamento, se le otorgará el registro de ingrediente activo grado técnico al cumplir con el transitorio anterior, siempre y cuando del análisis y evaluación de la información presentada resulte conforme a lo establecido en este reglamento.
