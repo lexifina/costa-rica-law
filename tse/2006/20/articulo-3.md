@@ -1,0 +1,1 @@
+Artículo 3º—El Tribunal delegará, en el Director Ejecutivo, la firma de los contratos que lleguen a formalizarse en un documento contractual clausulado, originado de la adjudicación recaída en un procedimiento de licitación abreviada. Para tal efecto, en el acto de adjudicación se hará mención expresa a dicha autorización.
