@@ -1,1 +1,0 @@
-Articulo 36. —La (el) funcionaria (o) propietaria (o) del vehículo debe presentar a la Unidad de Servicios Generales la boleta de autorización de gira y adelanto de gastos de kilometraje por parle de su Superior Inmediata (o). La respectiva liquidación debe presentaría dentro de los tres días hábiles siguientes a la conclusión de la gira.

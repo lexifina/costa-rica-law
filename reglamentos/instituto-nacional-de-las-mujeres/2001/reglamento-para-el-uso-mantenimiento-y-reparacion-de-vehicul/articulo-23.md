@@ -1,1 +1,0 @@
-Articulo 23. -La persona encargada de la Cuidad de Servicios Generales deberá realizar una evaluación de las características del vehículo, para determinar si este es adecuado para la clase de trabajo a que se va a destinar.

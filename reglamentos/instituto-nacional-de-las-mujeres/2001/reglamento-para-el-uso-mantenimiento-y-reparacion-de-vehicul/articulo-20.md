@@ -1,1 +1,0 @@
-Articulo 20.—Cada servicio que se dé en estas circunstancias contar de previo con la autorización de la Unidad de Servicios Generales y deberá tramitarse en forma estríela, mediante solicitud que formúlala la (el) Coordinadora (or) de Área en la que labora la persona funcionaria propietaria del vehículo. Dicha solicitud debe plantearse al menos con dos días de antelación.

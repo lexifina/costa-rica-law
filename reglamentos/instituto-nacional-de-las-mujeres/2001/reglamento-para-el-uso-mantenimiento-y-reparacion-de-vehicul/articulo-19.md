@@ -1,1 +1,0 @@
-Articulo 19.—Las personas funcionarías interesadas deberán solicitar su inclusión en el registro que al efecto se llevará, con el fin de que pueda utilizar su vehículo en funciones propias del INAMU, en forma ocasional, cuando por alguna razón la institución no pueda suplir el servicio con sus propios vehículos.

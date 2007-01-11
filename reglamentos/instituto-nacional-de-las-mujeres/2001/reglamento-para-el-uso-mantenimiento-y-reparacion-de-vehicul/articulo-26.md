@@ -1,1 +1,0 @@
-Articulo 26.- En el desempeño de sus funciones, las (los) propietarias (os) de los vehículos no podrán llevar acabo otras actividades que no estén acordes con el objetivo de la gira ni podrán permitir que en el vehículo viajen personas ajenas a la función encomendada.

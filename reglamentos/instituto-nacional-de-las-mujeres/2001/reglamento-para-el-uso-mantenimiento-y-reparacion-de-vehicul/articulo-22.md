@@ -1,5 +1,0 @@
-Articulo 22.—Para la inclusión de los vehículos al registro de control de pago de kilometraje, la persona interesada deberá aportar la siguiente documentación:
-a) Certificación de propiedad extendida por el Registro Público de la Propiedad , a nombre del funcionario.
-b) Certificación del Taller Mecánico en donde conste que el vehículo está cu perfectas condiciones de funcionamiento. Para su verificación, el INAMU podrá efectuar en el momento de la inclusión en el registro y cuando lo estime conveniente, una revisión del vehículo en otro Taller Mecánico. El odómetro debe funcionar correctamente.
-c) Póliza del Instituto Nacional de Seguros, cuya cobertura responda razonablemente, a juicio de la Administración ! por lesiones, muerte y daños a la propiedad de terceros en caso de accidente, corriendo por cuenta del propietario del vehículo, el pago del deducible, los gastos legales y otros gastos no cubiertos por la póliza. La Unidad de Servicios Generales llevará un registro de las pólizas y velara por la vigencia de éstas.
-d) Licencia de conducir y póliza del INS, al día.
