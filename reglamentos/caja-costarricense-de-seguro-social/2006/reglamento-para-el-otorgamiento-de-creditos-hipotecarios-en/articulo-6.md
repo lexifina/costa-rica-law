@@ -1,0 +1,1 @@
+Artículo 6º—Con el propósito de cumplir con las funciones definidas en el Artículo 5 de este Reglamento, el Comité de Crédito sesionará al menos una vez cada quince días con la presencia de sus tres miembros. Los acuerdos de esta Comisión se tomarán por mayoría simple.

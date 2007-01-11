@@ -1,0 +1,1 @@
+Artículo 18.—El prestatario deberá presentar al notario las certificaciones de que la propiedad a hipotecar está al día en el pago del impuesto sobre bienes inmuebles y municipales, además de otros documentos que el notario considere necesarios para garantizar la pronta inscripción de la hipoteca ante el Registro Nacional.
