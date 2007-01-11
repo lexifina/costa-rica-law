@@ -14,3 +14,4 @@ Reglamento de Operación de Caja Chica Junta Administrativa de la Imprenta Nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-12 | la propia norma |
+| 2 | 2007-01-11 | Reglamento 209 (2007-01-11) |
