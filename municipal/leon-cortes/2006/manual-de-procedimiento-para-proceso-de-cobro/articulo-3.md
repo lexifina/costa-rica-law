@@ -1,0 +1,5 @@
+3. Áreas prioritarias: Reforma integral a los Reglamentos de Cobro Administrativo y Judicial y el Reglamento de Aplazamientos y Fraccionamiento de Pago existentes en la Institución y debidamente publicados en La Gaceta Nº 203 del 24 de octubre del 2000 y el Alcance Nº 69 a La Gaceta Nº 200 del 19 de octubre del 2000.
+3. Áreas prioritarias. Las Áreas más importantes que este manual va a regular son:
+3.1 Se llevará a cabo la revisión y análisis de los Reglamentos de Cobro Administrativo y Judicial y de Aplazamientos y Fraccionamiento de Pago, con la finalidad de determinar su aplicación práctica y legal.
+3.1.2 Posterior a la revisión y análisis detallado en el punto anterior se procederá con las modificaciones correspondientes para de este modo fortalecer el sistema de cobro de la Municipalidad del Cantón de León Cortés.
+3.1.3 En consecuencia se requerirá el respectivo acuerdo de aprobación por parte del Concejo Municipal con las reformas sugeridas. Una vez que haya sido debidamente aprobado, se procederá a su respectiva publicación en el Diario Oficial La Gaceta.
