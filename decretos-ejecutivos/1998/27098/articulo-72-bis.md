@@ -1,0 +1,10 @@
+Artículo 72 (bis).—Reglas aplicables:
+1º—La exoneración de impuestos a que se refiere el inciso a) del artículo 44.-Beneficios Tributarios otorgados en la Ley General de Concesión de Obras Públicos con Servicios Públicos, es aplicable para el concesionario, de acuerdo con las siguientes condiciones:
+a) Se refiere tanto para compras locales, como para la importación de los bienes.
+b) Se refiere a los bienes comprados localmente o importados, que son necesarios para ejecutar la concesión.
+c) Son “bienes necesarios para ejecutar la concesión”: Aquellos que son requeridos para la construcción de la obra, su mantenimiento o la prestación del servicio público objeto de la concesión de obra pública, así como aquellos que quedan incorporados a la obra pública concesionada, conforme lo previsto en el artículo 1 de la Ley de Concesión de Obras Públicas con Servicios Públicos.
+d) Para los efectos del inciso c) anterior y tratándose de los bienes necesarios para ejecutar la concesión, éstos se encuentran definidos en el cartel de licitación y en el contrato de concesión suscrito entre las partes.
+e) En el caso de la Concesión de Obras Públicas con Servicios Públicos, los vehículos son bienes directamente necesarios para la construcción de la obra, su mantenimiento o para la prestación del servicio público objeto de la concesión.
+2º—Conforme lo anterior, durante la ejecución del contrato de concesión, el concesionario presentará a la Administración la solicitud de autorización de exoneración de vehículos, indicando la cantidad y tipos requeridos para la ejecución del contrato de concesión, así como la justificación de la necesidad, conforme a las obligaciones contraídas en el respectivo contrato.
+3º—La Administración determinará la razonabilidad de la solicitud que a estos efectos le presente el concesionario y se adscribirá para su aprobación, a lo previsto en el plan de ejecución de las distintas etapas del contrato de concesión.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 33672 del 12 de enero de 2007)
