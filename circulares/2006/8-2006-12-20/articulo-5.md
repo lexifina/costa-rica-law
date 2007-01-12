@@ -1,0 +1,2 @@
+5º—El Colegio de Contadores Públicos tomará las acciones necesarias para divulgar las normas contables recomendadas con el fin de que puedan ser implementadas en el Sector Público, apoyando así la labor que en tal sentido realiza la Contabilidad Nacional. Se recomienda a las Universidades Públicas y Privadas que imparten la carrera de Contaduría Pública, incluir como parte de sus programas académicos las normas aquí indicadas para una mejor formación y desempeño de los nuevos profesionales.
+Publíquese en el Diario Oficial La Gaceta.
