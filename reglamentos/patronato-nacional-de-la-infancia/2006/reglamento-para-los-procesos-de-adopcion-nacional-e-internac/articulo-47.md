@@ -1,0 +1,1 @@
+Artículo 47.—Todos los expedientes administrativos activos de los solicitantes de adopción individual o conjunta declarados elegibles para los fines de adopción internacional serán custodiados por el Departamento de Adopciones, dependencia que será responsable de su confidencialidad y de mantener actualizada una lista de información de cada uno de ellos.

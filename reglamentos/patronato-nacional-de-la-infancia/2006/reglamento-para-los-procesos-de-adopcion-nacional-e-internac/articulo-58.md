@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Del seguimiento Post-Adoptivo
+de la Adopción Nacional e Internacional
+Artículo 58.—Corresponderá a las Oficinas Locales, de acuerdo a su jurisdicción territorial, realizar el seguimiento post-adoptivo de las adopciones de niños, niñas y adolescentes por parte de solicitantes de adopción individual o conjunta con su residencia habitual en Costa Rica, una vez concluida la fase de seguimiento dada por el Departamento de Adopciones. Dicho seguimiento deberá considerar los indicadores de éxito establecidos en el pronóstico del Departamento de Adopciones, así como dificultades que se identifiquen en el proceso. Lo anterior con el fin de conocer los avances y evolución de su proceso de adaptación, para lo cual deberán contemplarse aspectos psicológicos, sociales, educacionales y de salud.

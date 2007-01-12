@@ -1,0 +1,12 @@
+SECCIÓN II
+Funciones y atribuciones de las direcciones
+Regionales en Materia de Adopción Nacional
+Artículo 32.—Son funciones y atribuciones de los Directores Regionales en materia de Adopción:
+a- Supervisar el proceso psicosociolegal de todos los niños, niñas y adolescentes que han debido ser separados de su grupo familiar, con el fin de valorar sus posibilidades de adopción. b- Consolidar las listas remitidas por las Oficinas Locales sobre las personas menores de edad en alternativas de protección y que cuentan con la condición de adoptabilidad psico-socio-legal debidamente declarada o que cuenten con la declaratoria judicial de abandono. Deberá remitir mensualmente o cuando así se le solicite, un informe de dichas listas al Departamento de Adopciones.
+c- Supervisar periódicamente procesos de seguimiento post-adoptivos, llevados a cabo por las oficinas locales de su competencia territorial.
+d- Promover espacios de reflexión y realimentación con las Oficinas Locales de su región, el Departamento de Adopciones, y otras Direcciones Regionales, en aspectos conceptuales sobre el proceso de adopción, y mantener informada a la Gerencia Técnica sobre las fortalezas y debilidades que se presentan en dicho proceso.
+e- Velar para que en su región se impartan periódicamente, talleres, programas, proyectos, y actividades referentes al tema de adopción, así como brindar el apoyo logístico que sea necesario para su ejecución.
+f- Programar talleres de sensibilización dirigidos a los funcionarios de las Oficinas Locales de su región, a efecto de que los procesos psicosociolegales sean lo más expeditos posible, en aras del interés superior de las personas menores de edad.
+g- Realizar, al menos una vez al mes, en su región los talleres de formación y reflexión para familias solicitantes de adopción en materia de adopciones.
+h- Exponer en la cuarta sesión ordinaria de los meses de enero, abril, julio y octubre, a la Junta Directiva las listas actualizadas de los solicitantes de adopción individual o conjunta que han solicitado valoración para la ubicación de personas menores de edad con fines de adopción y de la situación psico-socio-legal de las personas menores de edad ubicadas en las alternativas de protección transitorias de su región, así como de las personas individual o conjunta que han hecho solicitudes de adopción.
+i- Cualquier otra función que en materia de adopción le confiera la Junta Directiva, la Presidencia Ejecutiva o la Gerencia Técnica.

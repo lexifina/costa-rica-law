@@ -1,0 +1,1 @@
+Artículo 25.—El seguimiento de los plazos establecidos en el artículo anterior y en general en este Reglamento corresponderá a los Coordinadores de las Oficinas Locales, y a los representantes legales de las oficinas competentes, en el ejercicio de la función de Defensa y Garantía de los niños, niñas y adolescentes.

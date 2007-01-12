@@ -1,0 +1,1 @@
+Artículo 54.—El correspondiente acto de aprobación o rechazo de la solicitud de autorización o prórroga, será comunicado al petente, otorgándole el recurso de impugnación establecido en la Ley General de la Administración Pública.
