@@ -1,1 +1,0 @@
-Artículo 23.—Verificación de la verdad real. El órgano director comprobará, exhaustivamente, la verdad real del ejercicio de la función administrativa que se estima irregular o ilegítima. La evidencia será valorada conforme con las reglas de la sana crítica.

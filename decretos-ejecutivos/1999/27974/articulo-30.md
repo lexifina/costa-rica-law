@@ -1,3 +1,0 @@
-Artículo 30.—Comparecencia oral y privada. En la comparecencia oral y privada, el órgano director informará a las partes del objeto del procedimiento, conocerá de las alegaciones de nulidad invocadas por las partes y dictará las medidas para sanear el procedimiento de ser posible. Luego procederá a evacuar la prueba que se hubiere ofrecido por las partes así como las alegaciones que estimen pertinentes en su defensa.
-Las partes y sus abogados podrán hacer uso de la palabra, lo cual será regulado por el órgano director para asegurar su empleo razonable. Si intervinieren varios abogados de una misma parte, podrán hacer sus exposiciones verbales sólo dos de ellos.
-Antes de dar por finalizada la comparecencia, las partes formularán sus conclusiones.

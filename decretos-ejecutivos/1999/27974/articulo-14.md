@@ -1,1 +1,0 @@
-Artículo 14.—Legitimación del denunciante. Podrá ser parte en el procedimiento administrativo el denunciante, en la medida en que posea un derecho subjetivo o un interés legítimo susceptible de ser protegido o afectado por el acto final.

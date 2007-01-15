@@ -1,1 +1,0 @@
-Artículo 3°—Distribución interna de la competencia. El órgano competente para conocer de las potestades a que se refiere el artículo anterior, será el que determine la Contraloría General de la República de acuerdo con su régimen de organización interna, sin perjuicio de las demás funciones que le sean asignadas por el Contralor General de la República.

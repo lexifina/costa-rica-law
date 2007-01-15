@@ -1,1 +1,0 @@
-Artículo 13.—Partes en los procedimientos de nulidad absoluta. Cuando se trate de procedimientos que versen sobre posible nulidad absoluta de actos y contratos administrativos, se llamará como parte a quienes pueda lesionarse un derechos subjetivo con la declaratoria de nulidad. Asimismo, se tendrá como parte a la Administración Pública correspondiente.

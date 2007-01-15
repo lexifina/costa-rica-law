@@ -1,1 +1,0 @@
-Artículo 28.—Audiencia por prueba documental. De toda prueba documental que ingrese a los autos con posterioridad al traslado de la Relación de Hechos y de las pericias que se rindan, se dará audiencia a las partes por tres días para que manifiesten lo que estimen pertinente.

@@ -1,3 +1,0 @@
-SECCIÓN QUINTA
-Del Procedimiento Administrativo Ordinario
-Artículo 21.—Procedimiento ordinario. El procedimiento administrativo aplicable por la Contraloría General de la República para la determinación de las responsabilidades, civil y administrativa, y la consecuente recomendación vinculante de sanciones sobre los servidores de los sujetos pasivos de su fiscalización y para declarar la nulidad absoluta de actos y contratos administrativos que otorguen derechos subjetivos, será el procedimiento administrativo ordinario, previsto en la Ley General de la Administración Pública. Al efecto, se aplicarán las normas y principios de su Libro Segundo.

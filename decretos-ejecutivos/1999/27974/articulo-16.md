@@ -1,3 +1,0 @@
-SECCIÓN TERCERA:
-Notificaciones
-Artículo 16.—Notificación inicial. La resolución de apertura del procedimiento se notificará a las partes personalmente o en su casa de habitación, en caso de personas físicas. Si se tratare de una persona jurídica, se les notificará en la sede de su administración, o a sus representantes legales, apoderados con capacidad suficiente o a sus agentes residentes. Si la persona, física o jurídica, no pudiere ser habida y se ignore su domicilio, se le notificará por publicación en el Diario Oficial, conforme lo prescribe el artículo 241 de la Ley General de la Administración Pública. De igual forma se procederá con el acto final en caso de que la parte no se hubiere apersonado en autos.
