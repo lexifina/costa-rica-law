@@ -1,0 +1,1 @@
+Artículo 18.—Verificación. La Dirección de Recursos Humanos de la dependencia respectiva podrá realizar verificaciones sobre la aplicación de las autorizaciones emitidas. Sus recomendaciones serán de acatamiento obligatorio, siendo la Administración responsable por la aplicación de las mismas.

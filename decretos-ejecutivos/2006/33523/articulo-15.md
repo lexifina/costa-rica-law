@@ -1,0 +1,1 @@
+Artículo 15.—Pago irregular. En aquellos casos en que a pesar de la ausencia de autorización, se ordene la realización de trabajo en tiempo fuera de la jornada, éste será reconocido por la Administración, y generará responsabilidad civil y disciplinaria para el superior que encargó el trabajo.

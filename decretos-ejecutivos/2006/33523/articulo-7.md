@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia de la autorización. La autorización de jornada extraordinaria otorgada por el (la) señor (a) Viceministro (a), regirá a partir de la lecha en que haya sido emitida, y en los casos de excepción, será la que determine el jerarca. Esta autorización deberá renovarse cada año.
