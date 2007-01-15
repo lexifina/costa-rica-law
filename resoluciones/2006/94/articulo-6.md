@@ -1,0 +1,1 @@
+Artículo 6°—Derogar el “Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización”, publicado en La Gaceta Nº 104 del 31 de mayo de 1982.

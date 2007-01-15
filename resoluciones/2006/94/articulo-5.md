@@ -1,0 +1,1 @@
+Artículo 5º—Informar el deber de las organizaciones de auditoría y de las administraciones en lo que les corresponda, de diseñar y comenzar a implantar las medidas y los mecanismos que estimen necesarios, con el fin de poner en práctica lo regulado en esa normativa a más tardar un año después de su entrada en vigencia.
