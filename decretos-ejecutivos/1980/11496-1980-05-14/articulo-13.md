@@ -1,4 +1,5 @@
-Artículo 13.—El personal del Museo Nacional será nombrado de acuerdo, con la normativa establecida por el Estatuto de Servicio Civil y su Reglamento. En el caso del Director General, el nombramiento lo hará el Ministro de Cultura, Juventud y Deportes de una terna que le presentará la Dirección General de Servicio Civil.
+Artículo 13.—El personal del Museo Nacional, será nombrado de acuerdo con la normativa establecida por el Estatuto de Servicio Civil y su Reglamento. En el caso del Director General, el nombramiento lo realizará el Ministro de Cultura, Juventud y Deportes.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 33565 del 15 de enero de 2007)
 El personal del Museo Nacional estará compuesto por:
 a) Un Director General, que fungirá como ejecutor de los acuerdos de la Junta, representará a ésta en todas aquellas funciones que así lo requieran; elaborará los programas técnicos de la Institución y será el Jefe inmediato de todo el personal del Museo.
 b) Un administrador.

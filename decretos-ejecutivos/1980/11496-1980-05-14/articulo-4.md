@@ -1,1 +1,3 @@
-Artículo 4º.- El Presidente tendrá la representación del Museo en todos aquellos actos y contratos que se celebren de acuerdo con las leyes, convocará a las sesiones de la Junta y firmará las actas. Su representación y funciones las podrá delegar en el Director del Museo cuando lo estimare convenie nte.
+Artículo 4º—El Presidente convocará a las sesiones de la Junta, firmará las actas y en general, ejercerá en lo que resulten aplicables, las funciones previstas en el artículo 49 de la Ley General de la Administración Pública.
+Además, el Presidente ejercerá la representación del Museo Nacional, cuando así lo determine la Junta Administrativa mediante votación de mayoría simple de sus miembros, en todas aquellas actividades de carácter cultural, histórico, antropológico, arqueológico o de cualquier otra índole, que se considere de interés para la Junta y el Museo Nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33565 del 15 de enero de 2007)
