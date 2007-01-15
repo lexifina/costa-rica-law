@@ -1,0 +1,1 @@
+Artículo 2º—La importación a que se refiere el artículo anterior será realizada bajo los mismos términos y condiciones aplicables a ésta, establecidos en el Decreto Ejecutivo Nº 33300-MAG-MEIC-COMEX, entre los meses de febrero del 2007 y junio del 2007.
