@@ -1,0 +1,12 @@
+Artículo 3º—Funciones de la Comisión Especial. Las funciones a cargo de la Comisión Especial, para la escogencia de los oferentes al puesto de Auditor Interno, serán las siguientes:
+a) Asegurarse que el concurso cuente con la regulación correspondiente y se lleve a cabo de manera que garantice durante el proceso transparencia, igualdad, publicidad, eficiencia y apego al principio de legalidad.
+b) Convocar a las sesiones de comisión que sean necesarias para cumplir con su mandato.
+c) Conformar un expediente único del concurso que se ajuste a las disposiciones establecidas en los lineamientos de la Contraloría General de la República.
+d) Verificar los requisitos y funciones que debe cumplir el Auditor Interno en cumplimiento de lo que establece al respecto este Reglamento y la normativa relacionada.
+e) Coordinar y definir el proceso de publicación y publicidad del Concurso Público para llenar la plaza de Auditor Interno lo cual deberá hacerse en un periódico de circulación nacional y como mínimo deberá contener los requisitos básicos solicitados para el puesto, fecha y sitio en que se recibirán las ofertas.
+f) Revisar y estudiar los atestados de todos los interesados que participen en el proceso de nombramiento para el cargo de Auditor Interno.
+g) Verificar que los oferentes, además de cumplir con los requisitos establecidos, no tengan impedimento legal, reglamentario o de otra naturaleza para ocupar el cargo.
+h) Recomendar de acuerdo con los parámetros de la tabla de valoración y ponderación que se defina al respecto, una terna de aspirantes que será sometida a conocimiento del Concejo Municipal para que este decida.
+i) Preparar el Informe final que será remitido a la Contraloría General de la República con indicación del proceso y sus resultados.
+j) Coordinar con la Oficina de Recursos Humanos de la Municipalidad, la colaboración necesaria en aspectos técnicos de su competencia, así como designar un asesor legal de su dependencia que verifique y emita certificación de la idoneidad del proceso que se lleve a cabo.
+k) Cumplir y acatar el presente Reglamento y la normativa conexa.
