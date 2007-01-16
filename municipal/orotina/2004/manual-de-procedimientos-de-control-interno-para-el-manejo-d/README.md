@@ -14,3 +14,4 @@ Manual de Procedimientos de Control Interno para el manejo de caja recaudadora, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-04 | la propia norma |
+| 2 | 2007-01-16 | Reglamento municipal 63 (2007-01-16) |

@@ -1,4 +1,5 @@
-Artículo 4º—Responsables. Tesorera o auxiliar de tesorera (o), serán los únicos facultados para entregar el "fondo de caja efectivo" a la cajera. El auxiliar de tesorería únicamente podrá realizar los procesos que en este manual se indican, cuando el titular de tesorería esté ausente.
+Artículo 4º—Responsables. Tesorera o auxiliar de tesorera(o), serán los únicos facultados para entregar el “fondo de caja efectivo” a la cajera. El auxiliar de tesorería únicamente podrá realizar los procesos que en este manual se indican, cuando el titular de tesorería esté ausente o cuando dicho titular, por delegación, se lo solicite mediante nota expresa.
+(Así reformado el párrafo anterior en sesión N° 63 del 16 de enero de 2007)
 1.2 La entrega se hará mediante boleta denominada EFECTIVO ENTREGADO A CAJA, los cuales deberán contar con la firma tanto de quien entrega como del que recibe. Las boletas serán custodia de Tesorería y llevarán un orden numérico y cronológico.
 1.3 Tesorera o auxiliar entregarán el "fondo de caja efectivo" a la cajera. Esta verifica que lo entregado está correcto y recibe. Al momento de la entrega o recibo de dineros por parte de la tesorera o cajera, la oficina permanecerá cerrada, hasta que se verifique el fondo y se ingrese a la bóveda.
 1.4 Las boletas deberán archivarse así: el original quedará en el cierre de bóveda y la copia en el movimiento diario de caja.
@@ -21,7 +22,8 @@ Procedimiento para el manejo de fondos en caja recaudadora
 2.9 La cajera deberá realizar al menos dos cortes diarios del efectivo recaudado, los cuales coordinará con la Oficina de Cobros, independientes del cierre final. Podrá realizar más de dos cuando lo considere necesario.
 Procedimiento para el manejo de fondos en caja recaudadora
 2.10 La cajera cada vez que realice un corte deberá entregar a la tesorera o auxiliar el efectivo recaudado, mediante la boleta "efectivo entregado a tesorería". La Tesorera o auxiliar verifican lo entregado y firman boleta. Las boletas estarán en custodia de la cajera, y llevarán un orden numérico y cronológico.
-2.11 La cajera, realiza a las 4:00 p.m., cierre de caja así:
+2.11 La cajera, treinta minutos antes de la hora oficial de cierre de las instalaciones municipales, procede a realizar cierre de caja, así:
+(Así reformado el inciso anterior en sesión N° 63 del 16 de enero de 2007)
 - Solicitará a facturación y cobros, el cierre diario de ingresos.
 - Verificará que el monto reportado por facturación y cobro sea igual al mostrado en la cinta de caja recaudadora.
 - Contará el efectivo el cual debe ser igual al monto reportado por facturación y cobro y al de la cinta recaudadora, menos los cortes entregados a tesorería.
@@ -40,7 +42,8 @@ Procedimiento para el manejo de fondos en caja recaudadora
 4. PROCEDIMIENTOS QUE DEBE SEGUIR FACTURACIÓN Y COBROS.
 4.1 Facturación y cobros tendrá la responsabilidad de emitir los recibos "comprobante de ingresos", cada vez que un cliente se presente a cancelar sus impuestos, tasas, servicios....
 4.2 Entregará el recibo al cliente para que éste lo presente a la cajera y pueda hacer efectivo su pago.
-4.3 Facturación y cobros deberá efectuar cortes sobre lo facturado cada vez que la cajera lo solicite, incluyendo el informe final del día. La información deberá presentarse en una boleta denominada "corte de facturación", la cual estará firmada por el funcionario que realizó el corte.
+4.3 Facturación y cobros deberá efectuar cortes sobre lo facturado cada vez que la cajera lo solicite,
+incluyendo el informe final del día. La información deberá presentarse en una boleta denominada "corte de facturación", la cual estará firmada por el funcionario que realizó el corte.
 4.4 Facturación y cobro deberá cancelar a más tardar el día siguiente, en las respectivas tarjetas o procesos automáticos, todo lo facturado el día anterior.
 4.5 Cuando el cliente realice pagos por medio de cheques, facturación y cobros, deberá separar dichas cuentas a un archivo que se denominará "cartera de cuentas".
 Procedimiento para el manejo de fondos en caja recaudadora.
