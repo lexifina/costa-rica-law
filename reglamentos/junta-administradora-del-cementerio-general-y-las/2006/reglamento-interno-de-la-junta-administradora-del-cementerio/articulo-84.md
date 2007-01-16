@@ -1,0 +1,1 @@
+Artículo 84.—Para cualquier inhumación o exhumación se deberá cancelar en la oficina administrativa del cementerio la cuota fijada al efecto por la Junta, y que responde por los gastos de este servicio, además deberá estar al día con los pagos de mantenimiento.

@@ -1,0 +1,1 @@
+Artículo 11.—En caso de renuncia o abandono injustificado de funciones por más de tres meses una vez que la persona haya asumido el cargo, se solicitará al Concejo Municipal elegir y nombrar el miembro faltante, previa comunicación por parte de la Junta.

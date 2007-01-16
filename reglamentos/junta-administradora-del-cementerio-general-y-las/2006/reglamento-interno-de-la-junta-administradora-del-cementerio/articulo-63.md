@@ -1,0 +1,1 @@
+Artículo 63.—Todo traspaso o concesión de derecho sobre los terrenos de arrendamiento que el cementerio designe, se entenderá que son concedidas sin perjuicio de terceros de mejor derecho, salvo aquellas que nunca antes han salido del Patrimonio de la Junta.

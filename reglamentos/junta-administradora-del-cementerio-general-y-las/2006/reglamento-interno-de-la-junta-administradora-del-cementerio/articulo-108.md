@@ -1,0 +1,1 @@
+Artículo 108.—Este reglamento rige a partir de la aprobación de la Junta Directiva de la Junta Administradora del Cementerio General y Las Rosas de Alajuela y deroga cualquier disposición anterior que se le opusiere y se complementa con las disposiciones parciales que la Junta Administradora del Cementerio General y Las Rosas de Alajuela emita en cualquier sentido.
