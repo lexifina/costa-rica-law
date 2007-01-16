@@ -1,0 +1,2 @@
+Artículo 115.—Los usuarios de las plazas minoristas, tanto permanentes como ocasionales deberán conducirse dentro de las instalaciones de la central mayorista de acuerdo a lo establecido en los artículos 46 y 47 del Reglamento de Operación de CENADA. Así mismo la Administración indicará que tipo de vestimenta se considera prohibida para los usuarios.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

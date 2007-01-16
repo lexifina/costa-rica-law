@@ -1,0 +1,2 @@
+Artículo 136.—Además de la distinción anterior, la Institución otorgará un reconocimiento al usuario de la Central Mayorista o de la Red Frigorífica que se hubiere destacado durante el año por su desarrollo agroindustrial o reconversión productiva para lo cual la comisión establecerá también los parámetros de calificación correspondiente, esta distinción llevará el nombre de “Premio PIMA”
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

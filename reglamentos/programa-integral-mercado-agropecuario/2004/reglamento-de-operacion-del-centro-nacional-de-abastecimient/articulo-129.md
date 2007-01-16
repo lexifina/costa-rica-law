@@ -1,0 +1,2 @@
+Artículo 129.—Para el cumplimiento de lo anterior, se designarán áreas donde se ubicarán los puestos, los cuales serán concesionados por la administración, incluso se podrá comisionar la colocación de los mismos otorgando un porcentaje establecido por el Consejo Directivo como retribución al comisionista por la colocación en el mercado de dichos espacios.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

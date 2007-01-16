@@ -1,0 +1,2 @@
+Artículo 117.—Para el acceso a la central mayorista todo vehículo y las personas que ingresen deberán cancelar la suma que fije el Consejo Directivo, monto que le da derecho a permanecer hasta que se cierre la feria. La tarifa de los usuarios ocasionales será también aquel canon que fije el Consejo Directivo por la utilización del espacio.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

@@ -1,1 +1,2 @@
-Artículo 100.—De las derogaciones: Deróguese el actual reglamento de Operación Cenada de Septiembre de 1984 y sus respectivas reformas.
+Artículo 100.—El CENADA con el objeto de captar recursos, además de las plazas mayoristas podrá realizar Ferias con el objeto de promover la agroindustria, el agroturismo, dentro de las instalaciones del CENADA en el tanto dichas actividades no impidan la realización de la comercialización estipulada en el artículo 4 del presente Reglamento. Todo lo anterior sin perjuicio de que se realicen ferias de actividades distintas a las agropecuarias con el objeto de incrementar los ingresos generados en el CENADA.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

@@ -1,0 +1,2 @@
+Artículo 118.—La seguridad e inspección de las plazas estarán a cargo de los funcionarios de PIMA quienes tendrán las facultades de supervisores de calidad y de orden de la actividad. PIMA no se hará responsable por golpes o robos de vehículos de particulares, usuarios permanentes u ocasionales.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

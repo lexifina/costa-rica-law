@@ -1,2 +1,2 @@
-Artículo 101.—De la vigencia: El presente Reglamento rige para las áreas desarrolladas y pendientes de desarrollar propiedad del PIMA y será vigente a partir de su publicación.
-(Así corregido, mediante FE DE ERRATAS, publicada en La Gaceta N° 116 de 15 de junio de 2004).
+Artículo 101.—El Consejo Directivo por iniciativa del Gerente aprobará la realización de ferias diferentes a las mayoristas empleadas en el CENADA.
+(Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)
