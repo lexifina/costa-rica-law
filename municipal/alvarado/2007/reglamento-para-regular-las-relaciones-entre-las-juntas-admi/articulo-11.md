@@ -1,0 +1,1 @@
+Artículo 11.—Para atender los gastos que demande el cumplimiento de sus obligaciones, la Junta Administrativa queda facultada para cobrar un derecho inicial de un mil doscientos colones por metro cuadrado por año para su mantenimiento, el cual será revisado cada año, este aumento se incrementara dependiendo del costo de vida actual.

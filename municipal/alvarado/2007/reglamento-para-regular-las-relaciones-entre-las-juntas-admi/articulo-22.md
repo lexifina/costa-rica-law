@@ -1,0 +1,3 @@
+Exhumaciones extraordinarias
+Artículo 22.—Las exhumaciones extraordinarias son aquellas ordenadas por la Autoridades Judiciales, deberá observase todas las normas que esta autoridad sugiera para un mejor resultado de sus investigaciones.
+La exhumación de fallecidos por: Viruela, coccidioidomicosis o Valle de San Joaquín, Escarlatina, Tifo exantemático, difteria, cólera o peste bubónica, fiebres hemorrágicas víricas, cadáveres expuestos a productos radioactivos, paludismo, ántrax o carbunco y VIH, requieren permiso por escrito de la Dirección de Vigilancia del Ministerio de Salud, en obligada consulta al Director de la Región de Salud Correspondiente. (Art. 37 Decreto D: E. 32833 de 3-8-2005).

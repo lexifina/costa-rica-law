@@ -1,0 +1,1 @@
+Artículo 13.—Para la adquisición de un derecho en el cementerio se requiere ser vecino del cantón, los derechos pueden ser concedidos por un tiempo determinado no inferior a 5 años, o a perpetuidad, este derecho caduca y se pierde cuando se dejen de pagar los derechos de mantenimiento conforme a lo estipulado en el artículo (Art. 5 inciso b), de este Reglamento).
