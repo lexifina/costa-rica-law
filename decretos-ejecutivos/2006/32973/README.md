@@ -30,3 +30,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 15 | 2006-12-04 | Decreto Ejecutivo 33497 (2006-12-04) |
 | 16 | 2007-01-02 | Decreto Ejecutivo 33561 (2007-01-02) |
 | 17 | 2007-01-15 | Decreto Ejecutivo 33572 (2007-01-15) |
+| 18 | 2007-01-17 | Decreto Ejecutivo 33562 (2007-01-17) |
