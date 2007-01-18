@@ -1,1 +1,1 @@
-Artículo 6º—De la incapacidad en una gira. Cuando el trabajador sea incapacitado durante la realización de una gira, por parte del Instituto Nacional de Seguros (INS) o de la Caja Costarricense de Seguro Social (CCSS), deberá suspender la gira en forma inmediata y el Correo le cubrirá los gastos en que incurra hasta el regreso a su lugar de residencia. Si la incapacidad es por sólo un día y el trabajador puede continuar con la gira, el Correo le reconocerá el pago de viáticos por ese día.
+Artículo 6º— (Este artículo fue Derogado en sesión N° 747 del 18 de enero de 2007)

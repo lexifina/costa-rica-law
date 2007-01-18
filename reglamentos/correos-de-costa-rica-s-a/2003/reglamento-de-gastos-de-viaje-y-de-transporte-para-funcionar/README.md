@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaje y de Transporte para funcionarios y trabajadores d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-17 | la propia norma |
+| 2 | 2007-01-18 | Reglamento 747 (2007-01-18) |
