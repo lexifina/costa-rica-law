@@ -14,3 +14,4 @@ Fija tasa para trámite, registro y apoyo a las funciones de inspección, vigila
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-10 | la propia norma |
+| 2 | 2007-01-18 | Decreto Ejecutivo 33576 (2007-01-18) |
