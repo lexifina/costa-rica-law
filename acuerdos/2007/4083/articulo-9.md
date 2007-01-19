@@ -1,0 +1,1 @@
+Artículo 9º—Toda persona que a quien se le autorice laborar tiempo extraordinario deberá efectuar los registros respectivos en el reloj marcador, o mecanismo tecnológico análogo que exista, donde demuestre el tiempo efectivamente laborado.

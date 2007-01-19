@@ -1,0 +1,1 @@
+Artículo 6º—Toda solicitud deberá consignar, para su estudio y aprobación por parte de la Junta Administrativa, la autorización del jerarca legalmente facultado para actuar en representación de la Institución (Director Ejecutivo).

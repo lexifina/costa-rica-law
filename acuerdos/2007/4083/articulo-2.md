@@ -1,0 +1,1 @@
+Artículo 2º—Los departamentos, unidades o secciones que conforman la Imprenta Nacional deben solicitar en forma previa a la Junta Administrativa, autorización para que en ellas se trabaje tiempo extraordinario. La jornada extraordinaria no podrá prestarse si no se cuenta con la citada autorización.

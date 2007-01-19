@@ -1,0 +1,1 @@
+Artículo 16.—La Sección de Recursos Humanos de la institución deberá llevar un control exacto del uso de la cantidad de horas extras autorizadas por la Junta Administrativa. Cuando se trate de horas extras para nuevas actividades; la Sección de Recursos Humanos, deberá plantear la solicitud de autorizaciones de esa jornada para las nuevas actividades ante la Junta Administrativa.

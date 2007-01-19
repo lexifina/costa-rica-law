@@ -1,0 +1,2 @@
+Artículo 10.—La jornada ordinaria sumada a la extraordinaria no podrá exceder de doce horas diarias según lo dispuesto en el artículo 140 del Código de Trabajo, por lo tanto el máximo por laborar en jornada extra podrá ser hasta de 4 horas diarias, salvo los días libres, feriados o asuetos declarados por norma expresa en que se podrá un máximo de doce horas.
+Únicamente se podrá hacer efectivo el pago de horas extras laboradas dentro del marco legal vigente y hasta por la jornada máxima autorizada por ley.
