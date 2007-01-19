@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Nombramiento de representante ante la junta directiva
+del INAMU y otras representaciones
+Artículo 12.—Acta del nombramiento de la terna para elegir representante ante la junta directiva. Se elaborará un Acta que contendrá: El nombre de las candidatas participantes a elección de la Asamblea en la que se realizó el nombramiento de la terna. El detalle del procedimiento seguido en las votaciones. Los votos obtenidos por cada candidata; y la integración final de la terna. También contendrá el nombre de las representantes que no estén de acuerdo con lo adoptado y el razonamiento de su voto contrario. El Acta será firmada por la Comisión de Conteo y remitidas al Comité Coordinador del Foro, quien a su vez la trasladará dentro de los cinco días hábiles posteriores a la realización del Foro a la Junta Directiva.

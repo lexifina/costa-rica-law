@@ -1,0 +1,1 @@
+Artículo 16.—Quórum: el quórum para que la Asamblea se constituya válidamente en primera convocatoria, será de la mitad más una de las representantes de las organizaciones inscritas en el registro del Instituto. Si no hubiere quórum, la Asamblea podrá reunirse en segunda convocatoria media hora después de la señalada para la primera con las organizaciones presentes.

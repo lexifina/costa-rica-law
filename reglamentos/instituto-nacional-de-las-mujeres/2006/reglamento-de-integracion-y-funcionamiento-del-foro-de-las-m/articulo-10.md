@@ -1,0 +1,1 @@
+Artículo 10.—Representatividad. Cada organización social nombrará una representante y una suplente ante la Asamblea del Foro. La suplente tendrá voz y voto en el caso de ausencia de la titular. En caso de organizaciones mixtas la representación debe recaer en una mujer.

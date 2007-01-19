@@ -1,0 +1,1 @@
+Artículo 9º—Representante de las organizaciones sociales ante la junta directiva del INAMU. Será la máxima representante de las organizaciones sociales ante el Instituto y formará parte del Comité Coordinador con derecho a voz y voto.

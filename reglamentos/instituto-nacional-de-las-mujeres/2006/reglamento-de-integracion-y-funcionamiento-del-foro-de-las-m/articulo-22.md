@@ -1,0 +1,1 @@
+Artículo 22.—Vigencia Aprobado mediante Acuerdo Número Tres del Acta de la Junta Directiva del INAMU, número cuarenta y tres-dos mil seis del veintiocho de noviembre del dos mil seis. Rige a partir de su publicación en el Diario Oficial La Gaceta.

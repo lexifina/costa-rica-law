@@ -1,0 +1,1 @@
+Artículo 20.—Sanciones. Los representantes de las organizaciones sociales que falten a tres Asambleas en forma consecutiva sin justificación, perderán su derecho a continuar participando, para lo cual la Asamblea General solicitará al INAMU su eliminación de Registro de Organizaciones. Con la segunda falta se hará una prevención a la organización.
