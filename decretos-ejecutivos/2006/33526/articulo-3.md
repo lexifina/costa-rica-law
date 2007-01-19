@@ -1,0 +1,5 @@
+Artículo 3º—Clasificación de los tipos de vehículos taxi que puedenoperar el transporte remunerado de personas como servicio público. El servicio público modalidad taxi es un servicio cuya regulación, vigilancia y control corresponde al Ministerio de Obras Públicas y Transportes a través del Consejo de Transporte Público, y los vehículos por medio de los cuales se realizará dicho servicio serán aquellos que el Consejo de Transporte Público por medio de la Junta Directiva y su Departamento de Administración deConcesiones y Permisos autorice en forma expresa, de conformidad con el artículo 2º del Decreto Ejecutivo Nº 28913-MOPT y artículos 1º, 2º y 3º del Decreto Ejecutivo Nº 32589-MOPT, pudiendo ser de tres tipos:
+a) Sedán en áreas urbanas;
+b) En áreas rurales únicamente rural 4X4 o 4X2, y
+c) Vehículo adaptado para discapacitados.
+En aquellos lugares donde no resulte conveniente la prestación del servicio público en vehículo sedán, se autorice el vehículo 4X2 ó 4X4, previo estudio técnico que así lo demuestre.

@@ -1,0 +1,2 @@
+Transitorio I.—A partir de la entrada en vigencia del presente reglamento, los concesionarios del servicio público modalidad taxi, tendrán plazo hasta el primero de enero del 2008 para cumplir con lo dispuesto en el inciso a) del artículo 5º del presente reglamento, de lo contrario se aplicará(n) la(s) sanción (es) que correspondan, de conformidad con la Ley de Tránsito por Vías Públicas Terrestres.
+Dado en la Presidencia de la República.—San José, a los siete días del mes de diciembre del año dos mil seis.

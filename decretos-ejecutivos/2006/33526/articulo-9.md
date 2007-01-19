@@ -1,0 +1,1 @@
+Artículo 9º—Uso de sistema de radio comunicación. Los concesionarios o permisionarios podrán utilizar los servicios de radio comunicación para brindar un servicio más eficiente a los usuarios. En materia de transporte público deberá entenderse que la radio comunicación en demanda de pasajeros bajo el sistema de “ruleteo” es exclusiva de la modalidad taxi.
