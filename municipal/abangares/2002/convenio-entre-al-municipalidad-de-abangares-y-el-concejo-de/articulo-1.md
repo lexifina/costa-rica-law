@@ -1,5 +1,0 @@
-MUNICIPALIDAD DE ABANGARES
-Acuerdo tomado en firme por el Concejo de la Municipalidad de Abangares, en sesión extraordinaria Nº 17-2002 y por el Concejo Municipal de Distrito de Colorado, en sesión extraordinaria Nº 57-2002, realizadas el día 24 de julio del año 2002, en su capítulo único y artículo único de ambas sesiones:
-CONVENIO ENTRE LA MUNICIPALIDAD DE ABANGARES
-Y EL CONCEJO MUNICIPAL DEL DISTRITO DE COLORADO DE ABANGARES PARA REGULAR LA DISTRIBUCIÓN DE LOS RECURSOS ORIGINADOS EN EL DISTRITO DE COLORADO
-Artículo I.—El Concejo Municipal de Abangares y el Concejo Municipal del Distrito de Colorado de Abangares, según lo establecido en el artículo 10 de la Ley Nº 8173 del jueves 10 de enero del 2002, proceden a firmar el convenio que regulará la forma en que serán distribuidos los tributos que se generen en el distrito de Colorado, a partir de la ratificación de dicho Concejo Municipal de Distrito por parte de la Municipalidad de Abangares. El cual se suscribirá en sesión conjunta de ambos Concejos.

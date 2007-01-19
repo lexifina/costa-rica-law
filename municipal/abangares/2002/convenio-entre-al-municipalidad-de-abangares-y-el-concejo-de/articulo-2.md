@@ -1,3 +1,0 @@
-Artículo II.—A partir de que la Municipalidad de Abangares ratifique por acuerdo al Concejo Municipal del Distrito de Colorado, los ingresos que se reciban originados en el distrito de Colorado, provenientes de patentes y construcciones, se distribuirán así:
-a- El Concejo Municipal del Distrito de Colorado recibirá los primeros tres millones de colones.
-b- Sobre el exceso de esos tres millones de colones la Municipalidad de Abangares recibirá el 60% y el Concejo Municipal del Distrito de Colorado recibirá el restante 40%. Los contribuyentes depositarán esos tributos en las tesorerías de ambos Concejos, o en las cuentas corrientes que para tal fin se indiquen.
