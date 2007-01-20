@@ -1,0 +1,1 @@
+Artículo 6º—El formulario de notificación: Constituye la fórmula única que debe ser empleada por las personas responsables de la exportación de desechos peligrosos, siendo los principales el generador o el exportador.
