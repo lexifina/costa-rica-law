@@ -1,0 +1,9 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+ACUERDOS
+División de Contratación Administrativa.—San José, a las ocho horas del doce de enero de dos mil siete.
+Se informa al público en general:
+1) Que el 4 de enero del 2007 entró a regir la Ley Nº 8511, “Reforma Parcial de la Ley de Contratación Administrativa, Ley Nº 7494, así como el Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo Nº 33411-H.
+2) Que la reforma en cuestión suprime los procedimientos ordinarios denominados “licitación por registro” y “licitación restringida”, para introducir un nuevo procedimiento denominado “licitación abreviada”, que abarcará los límites presupuestarios correspondientes a los dos procedimientos ordinarios suprimidos, contenidos en los artículos 27 y 84 de la Ley Nº 7494 y sus reformas.
+3) Que si bien la Ley Nº 8511 contiene una disposición transitoria relativa a la tramitación de los procedimientos de selección, no existe referencia expresa al caso de la etapa recursiva, por lo que es menester determinar el alcance de esa disposición transitoria en relación con los recursos que deba conocer esta Contraloría General. En punto a lo anterior, dado que la etapa recursiva puede diferenciarse de las anteriores relativas propiamente a la selección del contratista, se debe entender que los recursos presentados ante este órgano contralor a partir del 4 de enero del 2007, se rigen por la nueva normativa vigente.
+4) Que al abarcar la licitación abreviada los límites relativos a la licitación por registro y a la licitación restringida, se entiende que en los casos de licitaciones por registro aún en curso el plazo para interponer el recurso de apelación ante esta Contraloría General, cuando por monto corresponda, es de cinco días hábiles posteriores a la comunicación del acto de adjudicación y no de diez días hábiles.
+San José, 15 de enero del 2007
