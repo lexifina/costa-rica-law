@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se presente alguna destitución por las causales indicadas en el artículo anterior, el Comité deberá comunicarlo por escrito al Concejo Municipal, a la entidad u organización a la cual representa y a la (s) persona (s) afectadas, dando las razones que fundamentaron su decisión.

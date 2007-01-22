@@ -1,0 +1,1 @@
+Artículo 45.—Las organizaciones deportivas adscritas al Comité Cantonal tendrán derecho al uso de las instalaciones deportivas y a participar en los proyectos y programas del Comité Cantonal. Deberán someterse a la programación del uso de instalaciones deportivas elaborado por el Comité Cantonal.

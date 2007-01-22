@@ -1,0 +1,1 @@
+Artículo 17.—El Comité podrá sesionar extraordinariamente en cualquier otro lugar del cantón, por iniciativa del Presidente o, a solicitud de por los menos tres miembros de la Junta Directiva. La comunicación será por escrito a los demás miembros, con al menos 24 horas de antelación, y deberá indicar día, hora, lugar y agenda de asuntos a tratar.

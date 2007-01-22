@@ -1,0 +1,1 @@
+Artículo 15.—Cualquier asunto que sea sometido a conocimiento del Comité deberá ser resuelto por medio de votación y se decidirá por mayoría simple de votos. Asimismo, cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente firmada.

@@ -1,0 +1,1 @@
+Artículo 32.—La Municipalidad no podrá anotar en sus libros contables como contribuciones, las partidas específicas o cualquier otra ayuda que reciba de instituciones públicas o privadas para el Comité.
