@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE PURISCAL
+El Concejo Municipal de Puriscal en sesión ordinaria Nº 222, celebrada el 28 de febrero del 2006, artículo 5, en forma unánime y definitiva aprueba moción presentada por los regidores, Montoya Flores, Guevara Campos, Acuña Madrigal, Elizondo Valverde y Chaves Gutiérrez, que literalmente dice:
+Asunto: Modificación Reglamentaria
+El Concejo de la Municipalidad de Puriscal, en uso de sus facultades acuerda eliminar del Reglamento para la Aplicación del Beneficio de Dedicación Exclusiva de la Municipalidad de Puriscal, publicado en La Gaceta Nº 81 del martes 29 de abril del 2003, el inciso F del artículo 5 y del segundo párrafo del artículo 4º la frase “Para los trabajadores que no tengan grado académico a nivel universitario la compensación no podrá exceder a un 25% en relación con su salario base” y debido a la incoherencia que este presenta con otras leyes conexas y sus reglamentos; así como, con este Reglamento que se hace referencia. Publíquese para su entrada en vigencia.
+Puriscal, 13 de enero del 2007.
