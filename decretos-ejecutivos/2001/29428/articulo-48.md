@@ -1,2 +1,1 @@
-Artículo 48.—Permanencia en una misma Sede. En ningún caso, los funcionarios del Servicio Exterior permanecerán menos de dos ni más de cuatro años continuos en una misma sede, con las salvedades que se indican en el párrafo primero del artículo 44, en cuanto al mínimo; y en cuanto al máximo, con la autorización expresa que contempla el artículo anterior.
-(Así reformado mediante el artículo 5 del decreto ejecutivo N°33177 del 14 de junio del 2006).
+Artículo 48.—(Así derogado mediante el artículo 3° del decreto ejecutivo N° 33767 del 23 de enero del 2007).
