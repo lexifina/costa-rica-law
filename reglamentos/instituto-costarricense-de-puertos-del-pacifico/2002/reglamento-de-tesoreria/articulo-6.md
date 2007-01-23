@@ -1,1 +1,0 @@
-Artículo 6º—De la separación de la Caja General y la Caja Chica. La Caja General y la Caja Chica deberán llevarse independientemente sin haber confusión alguna de valores o comprobantes correspondientes.
