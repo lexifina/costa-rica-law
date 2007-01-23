@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a las instituciones públicas para que sus funcionarios dediquen el tiempo necesario para tramitar a la mayor brevedad y resolver las gestiones administrativas tendientes a brindar una solución integral al problema de los desechos en nuestro país.
