@@ -1,0 +1,2 @@
+Artículo 13.—Revocatoria de la administración. En caso de que exista impericia en la administración, manejo fraudulento o desvío de los fines del Museo durante el período otorgado en administración, mediante acuerdo municipal se podrá revocar dicha administración, previo informe de la Auditoría Municipal o de la Contraloría General de la República.
+En tal caso, la Municipalidad podrá, mediante acuerdo, dar el Museo en administración a otra persona jurídica conformada según lo indicado en esta Ley, por igual plazo y bajo las mismas condiciones.
