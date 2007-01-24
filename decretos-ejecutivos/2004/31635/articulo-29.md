@@ -17,7 +17,7 @@ Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 50%
 Concepto | 5%
 Asistencia | 5%
-No obstante, para la calificación en el tercer período de VI año se regirá según lo establecido en el artículo 109 de este Reglamento.
+(El último párrafo de este inciso fue suprimido por el punto 1 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
 d) En el I Ciclo de la Educación General Básica, en las asignaturas Educación Religiosa, Educación Musical, Educación Agrícola, Educación Física, Educación para el Hogar, Artes Plásticas, Artes Industriales y Culturas Indígenas:
 Trabajo Cotidiano | 60%
 Trabajo Extraclase | 10%

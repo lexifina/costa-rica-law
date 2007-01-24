@@ -4,6 +4,6 @@ b. Garantizar que el desarrollo de la prueba se realice en condiciones que garan
 c. Garantizar que los estudiantes realicen su trabajo según las indicaciones previamente establecidas para ello.
 d. Atender cualesquiera circunstancias especiales, propias de la administración de la prueba, que se produjeren durante el desarrollo de ésta.
 e. Entregar debidamente ordenados los cuestionarios y documentos de respuestas de los estudiantes al Delegado Ejecutivo.
-f. Calificar las pruebas del grupo que le corresponde, en el caso de los educadores administradores de Pruebas de conclusión de II Ciclo.
+f. (Este inciso fue suprimido por el punto 6 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
 g. Cualesquiera otras que se señalen en este Reglamento o que deriven
 de la naturaleza de sus funciones.

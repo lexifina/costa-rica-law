@@ -1,2 +1,2 @@
-Artículo 136.—De los Tribunales para conocer los Recursos Contra la Calificación de las Pruebas Nacionales de II Ciclo. Para conocer y resolver los recursos que interpongan los educandos, sus padres de familia o encargados contra las pruebas nacionales de II Ciclo, se integrarán uno o varios tribunales en los circuitos escolares, según lo ameriten las condiciones geográficas o el número de estudiantes que se someterá a las pruebas.
-Estos tribunales estarán integrados por tres educadores distinguidos, pensionados o activos, designados por el respectivo Asesor Supervisor del circuito escolar y quienes cumplirán sus funciones con carácter honorífico.
+Artículo 143.—. (Este artículo fue suprimido por el punto 8 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
+(Así corrida su numeración según las reformas efectuadas por los artículos 16, 17 y 22 del Decreto Ejecutivo N° 34449 de 13 de marzo de 2008, pasando del anterior artículo 136 al 143 actual).
