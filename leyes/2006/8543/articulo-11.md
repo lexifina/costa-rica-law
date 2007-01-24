@@ -1,0 +1,1 @@
+Artículo 11.—Apoyo. El Museo Nacional de Costa Rica, por medio del Programa de Museos Regionales y Comunitarios, o la unidad o departamento correspondiente, apoyará al Museo de Guanacaste con asesoría técnica museológica y museográfica, capacitación, inventario, divulgación y cualquier otro tipo de ayuda, de acuerdo con sus posibilidades.

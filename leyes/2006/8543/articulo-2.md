@@ -1,0 +1,1 @@
+Artículo 2º—Sede. El Museo tendrá su sede en el distrito 1º, cantón I Liberia, provincia de Guanacaste, en el inmueble propiedad del Estado, inscrito en el Registro Público, partido de Guanacaste, bajo el Sistema de Folio Real matrícula Nº 3.734.
