@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente decreto se entiende por turismo rural comunitario aquellas experiencias turísticas planificadas e integradas sosteniblemente al medio rural y desarrolladas por los pobladores locales organizados para beneficio de su familia y de la comunidad.
