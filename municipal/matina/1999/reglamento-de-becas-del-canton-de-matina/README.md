@@ -14,3 +14,4 @@ Reglamento de Becas del cantón de Matina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-29 | la propia norma |
+| 2 | 2007-01-24 | Reglamento municipal 61 (2007-01-24) |
