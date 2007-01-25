@@ -17,7 +17,7 @@ Articulo 51.—El Departamento Disciplinario Legal además de las funciones cont
 14) Tramitar los recursos de revocatoria que suscribirá el órgano decisorio competente y los recursos de amparo que se interpongan contra los mismos o contra cualquiera de los Órganos, por razones de procedimientos disciplinarios. Entramándose de recursos de amparo, redactar el proyecto de contestación o de informe, según el trate.
 15) Notificar al Patronato Nacional de la Infancia las causas administrativas en donde se involucre a una persona menor de edad.
 16) Tramitar las solicitudes y brindar información en materia disciplinaria que planteen instituciones vinculadas al ámbito jurídico o cualquier otra instancia o particular legitimado que la requiera.
-17) Tramitar los asuntos disciplinarios relacionados con danos a los vehículos asignados al Ministerio.
-18) Instruir las causas disciplinarias instauradas en contra de los servidores del Ministerio, por infracciones a las disposiciones legales sobre materia de transito o vehicular.
+17) (Así eliminado por el arículo 5 del Decreto Ejecutivo N° 33687 del 25 de enero de 2007)
+18) (Así eliminado por el arículo 5 del Decreto Ejecutivo N° 33687 del 25 de enero de 2007)
 19) Preparar los proyectos de resolución, interlocutorias y finales, asf como los informes que soliciten a la Dirección General Administrativa Financiera, por las causas administrativas disciplinarias a su cargo.
 20) Cualquier otra propia de su competencia.

@@ -16,3 +16,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 1 | 2005-01-10 | la propia norma |
 | 2 | 2006-01-07 | Decreto Ejecutivo 33128 (2006-01-07) |
 | 3 | 2006-12-20 | Decreto Ejecutivo 33510 (2006-12-20) |
+| 4 | 2007-01-25 | Decreto Ejecutivo 33687 (2007-01-25) |
