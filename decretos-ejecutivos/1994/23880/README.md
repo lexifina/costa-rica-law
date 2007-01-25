@@ -30,3 +30,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 15 | 2002-05-02 | Decreto Ejecutivo 30381 (2002-05-02) |
 | 16 | 2003-09-23 | Decreto Ejecutivo 31377 (2003-09-23) |
 | 17 | 2004-12-01 | Decreto Ejecutivo 32177 (2004-12-01) |
+| 18 | 2007-01-25 | Decreto Ejecutivo 33687 (2007-01-25) |
