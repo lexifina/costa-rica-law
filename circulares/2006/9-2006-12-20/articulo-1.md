@@ -1,0 +1,30 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, en sesión Nº 24-2.006, celebrada el 20 de diciembre del 2006, mediante acuerdo Nº 589-2006 aprobó:
+CIRCULAR Nº 09-2006
+Plan de estudios básico curricular para la Carrera
+de Bachillerato Universitario y Licenciatura
+de Contaduría Pública
+Considerando:
+I.—Que el Colegio de Contadores Públicos de Costa Rica tiene como parte de sus funciones cuidar por el adelanto de la profesión en todos sus aspectos, de la defensa colectiva y el normal desenvolvimiento de las actividades profesionales, procurando el mejor desarrollo de la enseñanza en la contaduría pública y consecuente con esas responsabilidades, promueve la aplicación de un pensum universitario que sirva de base para los programas de las universidades, contribuyendo a la formación de nuevos profesionales en contaduría pública con mayor nivel académico.
+II.—Que la profesión contable se enfrenta a una época de grandes retos ante los cambios vertiginosos que genera la era digital, los avances en el comercio internacional, la fuerte tendencia hacia la conformación de un mercado sin fronteras, requiriendo de un profesional mejor capacitado, con criterio y actitud bien definidos, lo cual le permitirá acumular experiencia para ser competitivo frente a las diferentes situaciones de ese cambiante entorno económico, político y social.
+III.—Que otra responsabilidad esencial del Colegio de Contadores Públicos de Costa Rica es la fiscalización del ejercicio profesional, lo que lo compromete a contar con profesionales que estén debidamente preparados, capacitados y que velen por el interés público.
+IV.—Que en concordancia con el Perfil del Contador Público Autorizado el Colegio debe promover una base mínima para impulsar la uniformidad en los planes de estudio en la carrera de contaduría pública que imparten las universidades públicas y privadas, de manera que éstos sean homogéneos en aspectos sustantivos y cumplan con las exigencias locales e internacionales para la formación de los nuevos profesionales en la Carrera de Contaduría Pública.
+V.—Que el Colegio es el organismo ejecutor del Programa de Mejoramiento de la Calidad de la Información Financiera y la propuesta curricular es parte integral de este programa.
+VI.—Que es innegable la necesidad de que el Colegio debe disponer de una base para emitir sus opiniones sobre los pensum universitario de la carrera de contaduría pública que le envía a evaluar el Consejo Nacional de Rectores (CONARE) y el Consejo Nacional de Educación Superior Privada (CONESUP).
+VII.—Que los organismos evaluadores como el SINAES y los futuros profesionales en contaduría pública igualmente necesitan contar con un plan curricular mínimo para la carrera de contaduría pública que sirva de base para sus evaluaciones.
+VIII.—Que existe la necesidad de una formación básica que contribuya a consolidar el Perfil del Contador Publico y sus competencias. Por tanto:
+DISPONE:
+1º—Que el siguiente plan de estudios básico curricular para la carrera de Contaduría Pública es un marco de referencia sobre la formación y experiencia práctica que cualquier profesional debe adquirir para ejercer su profesión en forma liberal o dependiente en cualquier tipo de industria del sector público o privado.
+2º—Poner a disposición de los Centros de Educación Superior Pública y Privada la siguiente guía mínima del plan de estudios que debe contener la carrera de Contaduría Pública para que estos sean homogéneos en los aspectos sustantivos de manera que promuevan la formación de los nuevos profesionales según las exigencias locales e internacionales; siendo complemento de las Universidades que firmaron el Convenio de Cooperación Institucional con el Colegio de Contadores Públicos.
+3º—Que el plan de estudios básicos curricular de bachiller universitario y de licenciatura, así como sus apéndices deben ser leídos en conjunto y serán revisados por el Colegio de Contadores Públicos de Costa Rica, por lo menos una vez al año, con el fin de ajustarlos de conformidad con las exigencias del mercado y la evolución que experimente la profesión.
+4º—Recomendar al Consejo Nacional de Educación Superior (CONESUP) y Consejo Nacional de Rectores (CONARE) acoger el presente plan de estudios básicos curricular para la aprobación, modificación o actualización de la carrera en Contaduría Pública, y en concordancia del Convenio firmado entre los Colegios Profesionales Universitarios y el CONESUP.
+5º—Solicitar formalmente al Consejo Nacional de Educación Superior y al Consejo Nacional de Rectores que exijan a las Universidades públicas y privadas, que para una adecuada formación de los nuevos profesionales en contaduría pública deben contratar a docentes que ostenten el título de Contadores Públicos Autorizados y que dichos profesionales hayan participado del Programa de Actualización Voluntaria promovido por el Colegio de Contadores Públicos de Costa Rica.
+El Colegio de Contadores Públicos de Costa Rica se pone a la disposición de los Centros de Educación Superior pública y privada así como del CONESUP, CONARE y SINAES para coadyuvar en la homologación e implementación del presente plan de estudios básico para la carrera de contaduría pública.
+El presente plan de estudios básico curricular integrado por el programa y sus apéndices fue aprobado por unanimidad de los miembros de la Junta Directiva en la sesión Nº 24 del 20 de diciembre del 2006, en acuerdo Nº 588.
+[imagen]
+1/ Materias optativas.
+Los apéndices forman parte integral de esta propuesta curricular mínima para la Carrera de Bachiller en Contaduría Pública y se encuentran disponibles en las oficinas del Colegio de Contadores Públicos o en su página web: www.ccpa.or.cr para su consulta.
+[imagen]
+1/ Materias optativas.
+Los apéndices forman parte integral de esta propuesta curricular mínima para la carrera de licenciatura en Contaduría Pública y se encuentran disponibles en las oficinas del Colegio Contadores Públicos o en su página web: www.ccpa.or.cr para su consulta.
+Publíquese en el Diario Oficial La Gaceta.
