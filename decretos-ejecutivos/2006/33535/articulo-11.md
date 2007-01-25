@@ -1,0 +1,1 @@
+Artículo 11.—Individualización de portafolios. Los activos titularizables que respalden una emisión de cualquier tipo serán individualizados y tanto éstos como los derechos asociados a éstos y garantías correspondientes, se identificarán con todos los datos que permitan su particularización.

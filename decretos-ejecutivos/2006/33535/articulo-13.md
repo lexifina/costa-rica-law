@@ -1,0 +1,1 @@
+Artículo 13.—Control Interno y mecanismos de cobertura. La SUGEVAL se encargará de regular, mediante norma de carácter general, los requisitos que deben tener los sistemas de control interno y los mecanismos de cobertura mencionados en el artículo 15 de la Ley, ya sea que se encuentren relacionados con los patrimonios separados o con el patrimonio de la sociedad.
