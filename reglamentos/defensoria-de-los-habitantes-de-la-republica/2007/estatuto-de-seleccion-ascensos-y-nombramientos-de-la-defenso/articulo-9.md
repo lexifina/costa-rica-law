@@ -1,0 +1,4 @@
+Artículo 9º—A los Directores (as) o Jefes (as) de los puestos sujetos a concurso, les corresponde:
+a) Tramitar las solicitudes de personal y brindar toda la información necesaria sobre los puestos vacantes, para que ella sea considerada por el Departamento de Recursos Humanos, en la definición de los predictores de selección a utilizarse en la evaluación de los (as) candidatos (as) participantes en el proceso de selección y nombramiento.
+b) Efectuar una recomendación para el nombramiento o ascenso en propiedad en forma objetiva, de la nómina de candidatos (as) que le presente el Departamento de Recursos Humanos, de acuerdo con lo establecido en el proceso de selección.
+c) Comunicar al Departamento de Recursos Humanos mediante acto razonado la justificación que motiva la recomendación o no de los candidatos, según se indica en el inciso anterior.
