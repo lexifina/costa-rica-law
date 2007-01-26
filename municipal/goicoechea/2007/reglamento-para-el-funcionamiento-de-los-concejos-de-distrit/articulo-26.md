@@ -1,0 +1,1 @@
+Artículo 26.—Las sesiones extraordinarias deberán ser convocadas personalmente por el Presidente del Concejo de Distrito por iniciativa propia o a solicitud de un mínimo de tres concejales, con veinticuatro horas de antelación y sólo se conocerá el asunto indicado.

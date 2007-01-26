@@ -1,0 +1,1 @@
+Artículo 32.—Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes y se tendrán por firmes. En caso de empate se someterá a votación en la sesión siguiente. Si persiste el empate se desechará.

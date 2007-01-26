@@ -1,0 +1,1 @@
+Artículo 8º—En los Concejos de Distrito que hayan tenido que dejar su cargo uno o más Concejales, se debe comunicar de inmediato al Concejo Municipal, quien a la mayor brevedad lo comunicará al Tribunal Supremo de Elecciones para su reposición.

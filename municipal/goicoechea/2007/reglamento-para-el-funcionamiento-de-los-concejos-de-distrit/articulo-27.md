@@ -1,0 +1,1 @@
+Artículo 27.—Cuando uno o varios vecinos deseen presentar algún asunto de interés para el Distrito, deberán presentarse a la sesión en el domicilio del Concejo de Distrito y antes de iniciar la sesión pedir audiencia a quien presida, informando el motivo.

@@ -1,0 +1,1 @@
+Artículo 3º—El Miembro Suplente del Concejo de Distrito, sustituirá al propietario de su mismo partido político en sus ausencias. Será convocado para ese efecto por el Presidente del Concejo de Distrito, entre los presentes y según el orden de elección.

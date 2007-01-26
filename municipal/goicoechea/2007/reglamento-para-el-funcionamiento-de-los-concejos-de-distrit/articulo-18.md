@@ -1,0 +1,1 @@
+Artículo 18.—La Municipalidad informará a la población de su gestión y la de los Concejos de Distrito, por medio de la edición periódica de publicaciones y folletos. La colocación de carteles informativos, vallas publicitarias y cualquier otro medio publicitario que se pueda utilizar de acuerdo con las disposiciones de presupuesto.

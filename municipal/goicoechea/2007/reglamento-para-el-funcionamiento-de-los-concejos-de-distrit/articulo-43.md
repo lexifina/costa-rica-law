@@ -1,0 +1,1 @@
+Artículo 43.—Los Concejo de Distrito se regirán por todo lo previsto en el presente reglamento y en ausencia de norma por los demás reglamentos emitidos por la Municipalidad, Código Municipal y leyes conexas.

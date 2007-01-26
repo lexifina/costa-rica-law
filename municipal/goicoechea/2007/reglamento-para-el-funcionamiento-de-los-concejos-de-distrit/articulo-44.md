@@ -1,0 +1,1 @@
+Artículo 44.—Al tomar posesión el Concejo de Distrito, el Concejo Municipal llamará al Concejo de Distrito saliente para efectuar el intercambio de poder, previo a la entrega de informes del Concejo saliente y juramentación del entrante en la cabecera de distrito en la fecha y hora que el Concejo Municipal determine.

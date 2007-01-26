@@ -1,0 +1,1 @@
+Artículo 21.—Las Sesiones Ordinarias deben efectuarse en el lugar que acuerde el Concejo de Distrito, pudiendo celebrar reuniones extraordinarias en otros Distritos del mismo Cantón para tratar asuntos de interés interdistrital.

@@ -1,0 +1,1 @@
+Artículo 15.—La Municipalidad ejecutará las obras o servicios públicos en cada Distrito, atendiendo fundamentalmente las prioridades fijadas por el Concejo de Distrito en su plan de trabajo e incluso en el plan general de la Municipalidad.

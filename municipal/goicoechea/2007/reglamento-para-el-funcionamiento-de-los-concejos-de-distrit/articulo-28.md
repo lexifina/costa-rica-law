@@ -1,0 +1,1 @@
+Artículo 28.—El Presidente someterá a conocimiento la modificación del orden del día y de existir acuerdo de mayoría simple, hará pasar a los vecinos, haciendo la presentación de rigor y de inmediato, le concederá el uso de la palabra para que realice la exposición correspondiente.
