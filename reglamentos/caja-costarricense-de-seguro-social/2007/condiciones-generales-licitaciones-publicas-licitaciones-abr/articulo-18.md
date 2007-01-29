@@ -1,0 +1,3 @@
+18. CESIÓN DE DERECHOS
+18.1 Los derechos y obligaciones del contratista no podrán ser objeto de cesión, salvo autorización previa y expresa de la Administración contratante, emitida por medio de una resolución debidamente razonada, cuando circunstancias de fuerza mayor u otras muy calificadas así lo aconsejen en beneficio del interés público y las condiciones personales y profesionales del virtual cesionario lo califiquen como apto para asumir los compromisos del Contratista, lo anterior de a cuerdo a lo que establece el artículo 209 del Reglamento a la Ley de Contratación Administrativa.
+18.2 No se considerará como cesión la disposición que haga el contratista sobre la forma y destino de pago.

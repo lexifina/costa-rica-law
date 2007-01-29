@@ -1,0 +1,2 @@
+20. OFERENTES DE PRODUCTOS ALIMENTICIOS
+Además de todos los requisitos expuestos para los oferentes de productos alimenticios rigen los requisitos del reglamento de registro de proveedores calificados de alimentos para los servicios de nutrición publicados en La Gaceta Nº 8 del 13 de enero del 2003, según acuerdo firme de la Junta Directiva de la Caja Costarricense de Seguro Social, artículo 3 de la sesión 7715 celebrada el 12 de diciembre del 2002.

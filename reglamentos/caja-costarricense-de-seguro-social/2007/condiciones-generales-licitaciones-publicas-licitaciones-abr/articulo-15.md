@@ -1,0 +1,3 @@
+15. AUTORIZACIONES SOBRE PRORROGAS (Artículo 198 del Reglamento a la Ley de Contratación Administrativa)
+A solicitud del contratista, la Administración, podrá autorizar prórrogas al plazo de ejecución del contrato cuando existan demoras ocasionadas por ella misma o causas ajenas al contratista.
+El contratista solicitará la prórroga dentro de los diez días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y la Administración contará con igual plazo para resolver si procede o no. Si la solicitud se hace fuera de plazo, pero estando aún el contrato en ejecución, la Administración podrá autorizar la prórroga, en caso de estar debidamente sustentada, siempre que esté vigente el plazo contractual.

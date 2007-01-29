@@ -1,0 +1,3 @@
+12. FORMA DE PAGO
+El Hospital San Juan de Dios cancelará las facturas en un plazo máximo de 30 días naturales, a partir de la fecha de recibido conforme de facturas en la Sub-área de Almacenamiento y Distribución. Si la oferta se hizo en otra moneda diferente al Colón, el pago se realizará en colones costarricenses, según el Valor Comercial del efectivo que se obtiene al sumar el tipo de cambio de la compra ($) más el tipo de cambio de venta ($), regulado por el Banco Central de Costa Rica, dividiendo el resultado de ambos entre dos, según oficio DTG-1743-2002 del Departamento de Tesorería General y Oficio DJ-3871-2002 de la Dirección Jurídica. “Artículo 34 RLCA”.
+Todo proveedor debe de estar inscrito al Sistema Interbancario Negociación y Pagos Electrónicos (SINPE).
