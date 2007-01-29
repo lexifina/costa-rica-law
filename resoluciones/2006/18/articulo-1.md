@@ -266,8 +266,12 @@ d) Establecer, en el marco de sus funciones, los procedimientos y directrices ne
 e) Diseñar los formularios tributarios de los diferentes impuestos establecidos en las leyes impositivas, evaluar su contenido y estructura, preparar propuestas de modificación, coordinar con las restantes áreas funcionales, emitir y garantizar su disponibilidad, velar y garantizar su adecuada distribución.
 f) Elaborar directrices y procedimientos para regular la presentación, tramitación y resolución de las solicitudes de legalización de libros, emisión de recibos de pago, emisión de constancias y certificaciones, compras autorizadas sin impuesto y demás trámites análogos instados por los contribuyentes.
 g) Establecer planes de capacitación permanente de los funcionarios de las áreas a cargo de los procesos de Gestión, para la adecuada ejecución de las labores que les corresponden.
-h) Llevar a cabo directamente aquellas tareas que en el marco de su competencia considere conveniente, avocando el conocimiento de asuntos de las áreas a cargo de los procesos de Gestión y Asistencia al Contribuyente.
-i) Cualesquiera otras que asigne la Dirección General y la Dirección de la División.
+h) llevar a cabo todas las acciones necesarias para propiciar la educación y cultura tributaria.
+( Asi adicionado el inciso anterior por el artículo 1 de la resolución DGT-04-2007 de 29 de enero de 2007)
+i) Llevar a cabo directamente aquellas tareas que en el marco de su competencia considere conveniente, avocando el conocimiento de asuntos de las áreas a cargo de los procesos de Gestión y Asistencia al Contribuyente.
+(Así reformado el inciso anterior por el artículo 2 de la resolución DGT-04-2007 del 29 de enero de 2007, que lo traspaso del antiguo inciso h) al inciso i) actual)
+j) Cualesquiera otras que asigne la Dirección General y la Dirección de la División.
+(Así reformado el inciso anterior por el artículo 2 de la resolución DGT-04-2007 del 29 de enero de 2007, que lo traspaso del antiguo inciso i) al inciso j) actual)
 Control de Cumplimiento Extensivo Formal será competente para:
 a) Establecer, bajo los lineamientos de la Dirección General, el Plan Anual de Control Tributario Extensivo Formal, en lo que corresponde al control de las obligaciones formales de los obligados tributarios.
 b) Establecer, en el marco de sus funciones, los procedimientos y directrices necesarias para detección, corrección o regularización, de los incumplimientos de obligaciones formales y de colaboración por parte de los contribuyentes, responsables y declarantes, referidos, entre otros, a:

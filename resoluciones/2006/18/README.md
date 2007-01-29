@@ -14,3 +14,4 @@ Estructura Organizativa de la Dirección General de Tributación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-19 | la propia norma |
+| 2 | 2007-01-29 | Resolución 4 (2007-01-29) |
