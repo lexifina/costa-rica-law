@@ -14,3 +14,4 @@ Reglamento para Uso del Servicio Celular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-26 | la propia norma |
+| 2 | 2007-01-29 | Reglamento 4281 (2007-01-29) |
