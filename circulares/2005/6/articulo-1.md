@@ -1,4 +1,5 @@
 COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+(Nota: El Colegio de Contadores Públicos mediante circular N° 11-2007, publicada en La Gaceta N° 26 del 6 de febrero de 2007, acordó modificar, adicionar y ampliar esta circular, la cual puede consultarse en el sistema)
 La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, en sesión Nº 40-2005, celebrada el 14 de noviembre del 2005, mediante acuerdo Nº 635-2005 aprobó:
 Circular Nº 06-2005
 De conformidad con las facultades que le confiere el artículo 14 de la Ley de Regulación de la Profesión de Contadores Públicos y Creación del Colegio de Contadores Públicos de Costa Rica N° 1038, del 19 de agosto de 1947, la Junta Directiva del Colegio de Contadores Públicos de Costa Rica acordó ratificar la adopción de las Normas Internacionales de Información Financiera.

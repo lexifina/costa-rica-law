@@ -14,3 +14,4 @@ Normas Internacionales de Información Financiera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-12 | la propia norma |
+| 2 | 2007-01-29 | Circular 11 (2007-01-29) |
