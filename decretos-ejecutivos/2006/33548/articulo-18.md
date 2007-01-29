@@ -1,0 +1,1 @@
+Artículo 18.—Liquidación actuarial. Comunicación a los Interesados. La Tesorería Nacional deberá comunicar, en un medio de publicación idóneo, en forma semestral, los nombres de los interesados, para los cuales exista ya el depósito del título emitido.

@@ -1,0 +1,1 @@
+Artículo 29.—Deber de informar a los interesados. La Junta de Pensiones y Jubilaciones del Magisterio Nacional deberá informar en el plazo máximo de diez días hábiles a los interesados los montos, una vez que les han sido acreditados.

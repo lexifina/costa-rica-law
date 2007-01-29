@@ -1,0 +1,1 @@
+Artículo 16.—Liquidación actuarial. Plazos. La Caja Costarricense de Seguro Social contará con un plazo de quince días hábiles a partir del momento en que recibe información necesaria para realizar las liquidaciones actuariales.

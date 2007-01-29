@@ -1,0 +1,1 @@
+Artículo 28.—Traspaso de cuotas a la Junta de Pensiones y Jubilaciones del Magisterio Nacional. La Tesorería Nacional realizará el traspaso de las cuotas a que se refieren los artículos 22 y 23 de este Reglamento, en diez tractos, pagaderos anualmente en el primer trimestre de cada año, en títulos indexables del Estado (TUDES) en plazos de diez, quince y veinte años.

@@ -1,0 +1,2 @@
+Artículo 20.—Traspaso de cuotas a la Caja Costarricense de Seguro Social. La transferencia de cuotas que deba realizar el Estado, por medio de la Tesorería Nacional a la Caja Costarricense de Seguro Social, se realizará en títulos del Estado.
+Las condiciones de dichos títulos y su pago serán definidos por convenio entre la Caja Costarricense de Seguro Social y el Estado, representado por el Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 5º—Presentación de la solicitud de traslado. La solicitud de traslado al Seguro de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social, la presentará el interesado ante el Departamento de Personal o de Recursos Humanos del órgano o institución donde preste sus servicios.

@@ -1,0 +1,1 @@
+Artículo 2º—Población Cubierta. Estará cubierta por lo dispuesto en este Capítulo, la población del Magisterio nacional cuyo nombramiento se haya producido por primera vez con anterioridad al 14 de julio de 1992, o que haya nacido antes del 1° de agosto de 1965.
