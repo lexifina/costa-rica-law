@@ -1,3 +1,4 @@
-Artículo 16.—Expediente personal. La Dirección de Recursos Humanos llevará un expediente personal de cada uno de los trabajadores, que cumpla las medidas de seguridad e integridad; el mismo contendrá toda la documentación que se derive del proceso de reclutamiento y selección, así como de su trayectoria en el Banco.
-El expediente sólo podrá ser examinado en el ejercicio de sus funciones, por el Gerente General o funcionario autorizado por el Gerente General para estos efectos, Auditoría Interna, así como por el propio funcionario o cualquier otra persona expresamente autorizada por éste.
-Tendrán acceso, además, los funcionarios que faculte la Política "Conozca a su empleado".
+Artículo 16.—Expediente Personal. La Dirección de Recursos Humanos llevará un expediente personal de cada uno de los trabajadores, que cumpla las medidas de seguridad e integridad; el mismo contendrá toda la documentación que se derive del proceso de reclutamiento y selección, así como de su trayectoria en el Banco.
+El expediente sólo podrá ser examinado en el ejercicio de sus funciones, por el Gerente General o funcionario autorizado por el Gerente General para estos efectos, Auditoria Interna, así como por el propio funcionario o cualquier otra persona expresamente autorizada por éste.
+Tendrán acceso, además, los funcionarios que faculte la Política “Conozca a su empleado”.
+Por conveniencia institucional y en estricto apego a las normas jurídicas que sobre archivo de documentos existan, el Banco puede disponer la existencia de los expedientes de personal en forma electrónica.

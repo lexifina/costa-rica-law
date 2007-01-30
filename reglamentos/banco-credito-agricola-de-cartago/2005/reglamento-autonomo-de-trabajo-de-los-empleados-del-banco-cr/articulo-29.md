@@ -1,4 +1,4 @@
-Artículo 29.—Obligaciones especiales de los trabajadores con puestos de jefatura. Quienes cumplan funciones de jefatura o supervisión, estarán sujetos a la observancia de las obligaciones contenidas en este Reglamento y a los siguientes deberes propios de su condición:
+Artículo 29.—Obligaciones Especiales de los trabajadores con puestos de jefatura. Quienes cumplan funciones de jefatura o supervisión, estarán sujetos a la observancia de las obligaciones contenidas en este Reglamento y a los siguientes deberes propios de su condición:
 a) Mantener una conducta y administración de recursos humanos, acorde con los valores y orientaciones estratégicas establecidas por el Banco.
 b) Mantener un estricto control de los recursos asignados a sus respectivas áreas de trabajo.
 c) Realizar anualmente la Evaluación del Desempeño de los funcionarios a su cargo, de conformidad con el cronograma establecido por el Banco.
@@ -12,5 +12,5 @@ j) Atender y resolver, dentro de su ámbito de posibilidades, en forma diligente
 k) Fijar a los trabajadores de su dependencia sometidos a su jerarquía, dentro del plazo de diez días calendario, la fecha en que cumplirán las sanciones disciplinarias que les sean impuestas.
 l) Confeccionar y hacer cumplir un plan de vacaciones del personal bajo su jerarquía y remitirlo oportunamente a la Dirección de Recursos Humanos. En caso de que Recursos Humanos no reciba el plan de vacaciones en un plazo perentorio, lo hará de oficio y será de aplicación obligatoria.
 m) Informar de inmediato a la Dirección de Recursos Humanos, de las renuncias que presente el personal bajo su jerarquía, para los efectos pertinentes; caso contrario, se aplicarán las sanciones correspondientes.
-n) Velar por la correcta distribución de cargas de trabajo del personal bajo su jerarquía. Informar y justificar ante la Dirección de Recursos Humanos sobre cualquier modificación sustantiva de funciones, a efecto de que realice el estudio correspondiente.
-o) Garantizar el uso racional de los recursos humanos, materiales y económicos asignados a su dependencia y bajo su responsabilidad.
+o) Velar por la correcta distribución de cargas de trabajo del personal bajo su jerarquía. Informar y justificar ante la Dirección de Recursos Humanos sobre cualquier modificación sustantiva de funciones, a efecto de que realice el estudio correspondiente.
+p) Garantizar el uso racional de los recursos humanos, materiales y económicos asignados a su dependencia y bajo su responsabilidad.

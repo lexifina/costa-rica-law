@@ -1,0 +1,1 @@
+Artículo 31 bis. Salario escolar. El Banco realizará un aporte, de manera progresiva, para constituir el fondo del salario escolar, hasta que se llegue a pagarle a los empleados una suma equivalente a un salario mensual.

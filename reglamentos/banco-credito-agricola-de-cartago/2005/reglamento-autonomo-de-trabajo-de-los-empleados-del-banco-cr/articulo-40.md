@@ -1,1 +1,1 @@
-Artículo 40.—Salario a pagar durante las vacaciones. El Banco pagará a sus trabajadores, durante el tiempo de disfrute de sus vacaciones, el salario semanal ordinario.
+Artículo 40.—Salario diario para el cálculo de vacaciones: El Banco pagará a sus trabajadores, durante el tiempo de disfrute de sus vacaciones, el salario semanal ordinario, generándose el mismo según procedimiento aprobado por la Administración Superior.

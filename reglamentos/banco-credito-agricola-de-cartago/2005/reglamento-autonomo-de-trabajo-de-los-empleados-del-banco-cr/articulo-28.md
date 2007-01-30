@@ -1,5 +1,5 @@
 CAPÍTULO IV
-Obligaciones de los trabajadores
+Obligaciones de los Trabajadores
 Artículo 28.—Obligaciones que se deben observar. Son obligaciones de los trabajadores, además de las consignadas en el Código de Trabajo, en sus Leyes supletorias y conexas y en cualquier otra normativa:
 a) Mantener en el desempeño de sus labores y en el trato con compañeros y clientes, conductas acordes a los valores y orientaciones estratégicas del Banco.
 b) Prestar servicios personalmente en forma regular y continua, cumpliendo con la jornada de trabajo correspondiente y aportando toda la capacidad, interés y diligencia que el puesto requiera, a fin de lograr la mayor eficiencia y eficacia en el servicio que presta.

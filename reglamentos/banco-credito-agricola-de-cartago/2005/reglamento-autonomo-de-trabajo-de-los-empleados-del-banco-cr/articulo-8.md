@@ -1,4 +1,4 @@
-Artículo 8º—Etapas del proceso de reclutamiento y selección. El proceso de reclutamiento y selección, está constituido por las siguientes etapas:
+Artículo 8º—Etapas del Proceso de Reclutamiento y Selección. El proceso de Reclutamiento y Selección, está constituido por las siguientes etapas:
 1) Recepción y análisis de currículum vitae u oferta de servicios.
 2) Aplicación de pruebas de idoneidad.
 3) Aplicación de entrevista psicológica, en la cual se debe presentar la documentación solicitada por el Banco al momento de la aplicación de las pruebas.

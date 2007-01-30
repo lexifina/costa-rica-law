@@ -1,1 +1,1 @@
-Artículo 98.—Aspectos procedimentales. Para los aspectos procedimentales del tratamiento de cualquier caso de hostigamiento o acoso sexual, se deberá recurrir a las disposiciones existentes en el ordenamiento jurídico.
+Artículo 98.—Aspectos Procedimentales. Para los aspectos procedimentales del tratamiento de cualquier caso de hostigamiento o acoso sexual, se deberá recurrir a las disposiciones existentes en el ordenamiento jurídico.

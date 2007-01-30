@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo de los Empleados del Banco Crédito Agrícola de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-20 | la propia norma |
+| 2 | 2007-01-30 | Reglamento 8006 (2007-01-30) |

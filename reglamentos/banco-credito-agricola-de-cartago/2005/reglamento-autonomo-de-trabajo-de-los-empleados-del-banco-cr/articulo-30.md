@@ -1,6 +1,6 @@
 CAPÍTULO V
-Prohibiciones para los trabajadores
-Artículo 30.—Prohibiciones a los trabajadores. Además de lo dispuesto en el presente Reglamento, en el Código de Trabajo o en cualquier otra disposición normativa aplicable al Banco, queda absolutamente prohibido a los trabajadores:
+Prohibiciones para los Trabajadores
+Artículo 30.—Prohibiciones a los Trabajadores. Además de lo dispuesto en el presente reglamento, en el Código de Trabajo o en cualquier otra disposición normativa aplicable al Banco, queda absolutamente prohibido a los trabajadores:
 a) Dedicar tiempo en horas de trabajo para atender asuntos o negocios personales, o realizar actividades ajenas a las labores que les han sido encomendadas.
 b) Incumplir las órdenes y disposiciones de sus superiores jerárquicos.
 c) Durante las horas de trabajo, hacer tertulias con compañeros o particulares, o bien leer periódicos, revistas o cualquier otro impreso que no tenga relación con las actividades del Banco y con su puesto durante su jornada de trabajo, así como llevar a cabo en horas de labor trabajos de terceros, o hacerse cargo del trabajo de otros compañeros bajo remuneración.
@@ -8,7 +8,7 @@ d) Utilizar los teléfonos, facsímil, celulares, o cualquier otro medio electr�
 e) Utilizar radios, televisores, o cualquier otro medio electrónico análogo que sea capaz de perturbar el ambiente de trabajo o de distraer al propio trabajador o a los demás compañeros de trabajo.
 f) Tomar licor, consumir drogas o fumar dentro de las instalaciones del Banco y en las oficinas donde se realicen funciones propias de éste, así como presentarse a trabajar en estado etílico o bajo cualquier otra condición análoga.
 g) Recibir gratificaciones o recompensas de cualquier naturaleza, con motivo del ejercicio de sus funciones como trabajadores de la Institución o que emanen de su condición de tales, salvo aquellas que el Banco mismo acordare o autorizare expresamente o las que permitan leyes especiales; así como servirse del cargo que desempeña en la institución, para obtener ventajas o provechos de cualquier índole en beneficio propio o para terceros.
-h) Dedicarse dentro del Banco o durante el desempeño de sus funciones, a realizar proselitismo de carácter político-electoral o religioso, sin perjuicio de que con toda libertad cumplan con los deberes cívicos, ejecutar cualquier acto contrario a la Constitución Política, servir simultáneamente en cargos, remunerados o no, como trabajadores regulares de la Administración Pública, en tanto se encuentre en régimen de Dedicación Exclusiva o la Prohibición que la Ley defina.
+h) Dedicarse dentro del Banco o durante el desempeño de sus funciones, a realizar proselitismo de carácter político-electoral o religioso, sin perjuicio de que con toda libertad cumplan con los deberes cívicos, ejecutar cualquier acto contrario a la Constitución Política , servir simultáneamente en cargos, remunerados o no, como trabajadores regulares de la Administración Pública , en tanto se encuentre en régimen de Dedicación Exclusiva o la Prohibición que la Ley defina.
 i) Quebrantar las normas de cordialidad y mutuo respeto que deben imperar en sus relaciones humanas.
 j) Cometer actos inmorales, injurias, calumnias, comentarios o publicaciones que puedan desprestigiar al Banco o a cualquiera de sus trabajadores, sin perjuicio del deber que le asiste de denunciar ante quien corresponda los hechos indebidos o delictuosos de que tenga conocimiento.
 k) Divulgar o hacer público el contenido de informes y documentos propiedad del Banco, excepto los destinados para ese fin, declarados de carácter restrictivo por las entidades competentes, o cualquier asunto de orden interno y privado del Banco, sin autorización del superior jerárquico respectivo, ni valerse de información confidencial para su uso personal o de terceros, excepto en los casos donde se presuma la comisión de un posible delito.
@@ -26,9 +26,9 @@ v) Portar armas de cualquier clase durante las horas de labor, excepto los traba
 w) Suministrar información a terceros, sobre cualquier tipo de operación bancaria sin la debida autorización del cliente, o bien suministrar información respecto al detalle de compras, débitos, créditos o retiros de efectivo de los clientes de la institución, sea telefónicamente o por cualquier otro medio sin la autorización formal de éste. La autorización deberá hacerse por escrito o por cualquier otro medio electrónico aceptado válidamente y en todo caso, presentar la cédula de identidad o pasaporte del propietario de la cuenta y de la persona autorizada.
 x) Violar el secreto bancario, definido expresamente por la ley.
 y) Usar los instrumentos, herramientas, equipos, software y claves de acceso de los sistemas informáticos incorrectamente para:
-Obtener ventaja o provecho de cualquier índole en beneficio propio o para terceros.
-Copiar programas de software no autorizado por el Banco en su equipo de trabajo o hacer copias ilegales de programas de software oficiales del Banco, excepto los que están expresamente autorizados por la Gerencia General.
-Copiar, transferir o mantener en su poder, sin autorización, los programas o bases de datos de uso restringido del Banco, o causar daño a los componentes lógicos o físicos de los equipos, las máquinas o los accesorios que apoyan el funcionamiento de los sistemas informáticos.
-z) Utilizar el correo electrónico y/o a acceso a Internet, para usos distintos de las labores propias del puesto.
+· Obtener ventaja o provecho de cualquier índole en beneficio propio o para terceros.
+· Copiar programas de software no autorizado por el Banco en su equipo de trabajo o hacer copias ilegales de programas de software oficiales del Banco, excepto los que están expresamente autorizados por la Gerencia General.
+· Copiar, transferir o mantener en su poder, sin autorización, los programas o bases de datos de uso restringido del Banco, o causar daño a los componentes lógicos o físicos de los equipos, las máquinas o los accesorios que apoyan el funcionamiento de los sistemas informáticos.
+z) Utilizar el correo electrónico y/o a acceso a internet, para usos distintos de las labores propias del puesto.
 aa) Abusar de las licencias que se le otorguen y se compruebe que ha abusado de la licencia.
 bb) El uso abusivo del teléfono o de cualquier otra herramienta de trabajo, para atender asuntos personales.
