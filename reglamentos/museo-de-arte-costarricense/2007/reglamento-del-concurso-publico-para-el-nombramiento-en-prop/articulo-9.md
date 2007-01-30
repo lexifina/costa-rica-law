@@ -1,0 +1,1 @@
+Artículo 9º—Sobre los supuestos bajo los cuales se excluye una oferta del proceso: Se excluirán del proceso, quienes no presenten la o las evaluaciones convocadas en la fecha y lugar informados oportunamente. Así mismo, serán excluidos, los oferentes a los que se demuestre falsedad en la información suministrada.

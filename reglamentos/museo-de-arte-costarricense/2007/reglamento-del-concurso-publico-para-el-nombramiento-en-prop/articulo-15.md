@@ -1,0 +1,1 @@
+Artículo 15.—Del periodo de prueba: Una vez nombrado el auditor interno será sujeto a un periodo de prueba de tres meses, pasando este plazo, la Junta Administrativa del Museo de Arte Costarricense procederá a comunicar a la Contraloría General de República su conformidad o disconformidad del desempeño del funcionario nombrado.
