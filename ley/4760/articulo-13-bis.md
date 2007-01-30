@@ -1,0 +1,2 @@
+Artículo 13 bis.—El Instituto Mixto de Ayuda Social (IMAS), deberá realizar evaluaciones anuales de sus programas sociales, de manera tal que en el primer semestre evalúe al menos el cincuenta por ciento (50%) de ellos y, al finalizar el período anual, la totalidad de dichos programas, con el objeto de adoptar medidas correctivas, a fin de garantizar que estos sean eficaces y eficientes, de conformidad con los objetivos establecidos en la presente Ley.
+(Así adicionado por el artículo 1 inciso a) de la Ley N° 8563 del 30 de enero de 2007)
