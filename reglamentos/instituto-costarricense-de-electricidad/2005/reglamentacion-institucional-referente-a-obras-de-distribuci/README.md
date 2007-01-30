@@ -14,3 +14,4 @@ Reglamentación Institucional referente a obras de distribución eléctrica en u
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-20 | la propia norma |
+| 2 | 2007-01-30 | Reglamento 5781 (2007-01-30) |
