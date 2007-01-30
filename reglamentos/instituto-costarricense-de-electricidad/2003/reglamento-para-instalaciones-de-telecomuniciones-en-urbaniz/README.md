@@ -14,3 +14,4 @@ Reglamento para Instalaciones de Telecomuniciones en Urbanizaciones (RITU)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-26 | la propia norma |
+| 2 | 2007-01-30 | Reglamento 5781 (2007-01-30) |
