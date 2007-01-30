@@ -14,3 +14,4 @@ Reglamento del Régimen de Dedicación Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-17 | la propia norma |
+| 2 | 2007-01-30 | Reglamento municipal 5 (2007-01-30) |
