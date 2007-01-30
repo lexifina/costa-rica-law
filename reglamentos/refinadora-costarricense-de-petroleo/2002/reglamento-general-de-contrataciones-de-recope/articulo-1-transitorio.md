@@ -1,1 +1,0 @@
-Transitorio I.—Los procedimientos de contratación iniciados con la versión anterior a este Reglamento, se concluirán conforme con las disposiciones vigentes al momento de adoptarse la decisión de iniciar el concurso.
