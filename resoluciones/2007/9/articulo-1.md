@@ -1,0 +1,12 @@
+MINISTERIO DE CULTURA, JUVENTUD Y DEPORTES
+Nº DM-009-2007.—Despacho de la señora Ministra.—San José, a las nueve horas del día diecisiete de enero de dos mil siete. Solicitud de Declaratoria de Producción de Interés Público del disco compacto “Malpaís en vivo”, presentado por el señor Luciano Capelli, de un único apellido en razón de su nacionalidad italiana, mayor, divorciado, cineasta, vecino de San José, con cédula de residencia N° 758-162979-001969, en su condición de apoderado general sin límite de suma, de Simbiosis de Centroamérica S. A., cédula jurídica Nº 3-101-352997.
+Resultando:
+Único.—Que mediante nota recibida de fecha 18 de setiembre de 2006, el señor Luciano Capelli, de un único apellido en razón de su nacionalidad italiana, mayor, divorciado, cineasta, vecino de San José, con cédula de residencia N° 758-162979-001969, en su condición de apoderado general sin límite de suma, de Simbiosis de Centroamérica S. A., cédula jurídica 3-101-352997, presentó solicitud para que se declare el disco compacto “Malpaís en vivo”, como “Producción de Interés Público”, de conformidad y para los efectos de lo establecido en la Ley de Exoneración de Impuestos y Control de Precios para las Producciones Literarias, Educativas, Científicas, Tecnológicas, Artísticas, Deportivas y Culturales, Ley N° 7874 de fecha 23 de abril de 1999, publicada en La Gaceta N° 87 de fecha 6 de mayo de 1999.
+Considerando:
+I.—Que el disco compacto denominado “Malpaís en vivo”, presentado por el señor Luciano Capelli, de la empresa Simbiosis de Centroamérica S.A., está orientado a promover y difundir la música popular costarricense.
+II.—Que es necesario impulsar la producción de obras musicales arraigadas a la tradición popular, para fortalecer nuestra identidad cultural costarricense y transmitir sus valores a las futuras generaciones.
+III.—Que esta identidad cultural es uno de los grandes atractivos para el turismo, siendo esta la actividad que más ingresos le genera a nuestro país.
+IV.—Que el Estado juega un papel fundamental en el desarrollo y la difusión de la música popular costarricense. Por tanto,
+LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES
+RESUELVE:
+Declarar “Producción de Interés Público” el disco compacto “Malpaís en vivo”, presentado por el señor Luciano Capelli, de un único apellido en razón de su nacionalidad italiana, mayor, divorciado, cineasta, vecino de San José, con cédula de residencia N° 758-162979-001969, en su condición de apoderado general sin límite de suma, de Simbiosis de Centroamérica S. A., cédula jurídica 3-101-352997.
