@@ -1,0 +1,1 @@
+Artículo 2º—Córrase el capítulo VII , del Título II del Reglamento de Operación del Centro Nacional de Abastecimiento y Distribución de Alimentos (CENADA) al capítulo VI, del título III de dicho reglamento. Así mismo córrase la numeración de los artículos de dicho capítulo a los artículos 138, 139 y 140 respectivamente.
