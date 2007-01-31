@@ -58,7 +58,10 @@ despliegan actividad contractual por sí mismas.
 2.2.1.2. Información sobre los procedimientos de contratación, en el momento que se invita a los oferentes a participar.
 2.2.1.3. Información por línea de cada bien o servicio a contratar, respetando estrictamente la numeración de líneas establecida en el pliego de condiciones y conforme a los datos que el sistema solicita.
 2.2.1.4. Enmiendas una vez cumplidas las formalidades de comunicación a las partes.
-2.2.1.5. Actos de adjudicación a partir de la comunicación a las partes.
+2.2.1.5. Actos de adjudicación a partir de la comunicación a las partes. Corresponde a la Administración actualizar el estado de las líneas una vez que adquiera firmeza el acto de adjudicación.
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
+2.2.1.6 Revocación del Acto no Firme, cuando corresponda.
+(Así adicionado el numeral anterior por el artículo 2 de la resolución R-CO-4 del 31 de enero de 2007)
 2.2.2. Módulo de Recursos de Objeción, Revocatoria y Apelación. El propósito de este módulo es el registro y la integración de información referente a los recursos de objeción al cartel y los recursos de revocatoria y de apelación al acto de adjudicación del procedimiento de contratación.
 Se debe registrar la información de cada recurso desde el momento que ingresa al órgano competente para conocerlo e incorporar la resolución una vez notificada a las partes.
 2.2.2.1. Recursos de Objeción y de Revocatoria ante la Administración. La información sobre recursos de objeción al cartel y recursos de revocatoria y su resolución deben ser registrados por la Administración.
@@ -76,40 +79,41 @@ realiza, conforme lo solicita el sistema.
 La aprobación o improbación de los documentos contractuales sometidos a refrendo debe ser registrada por la CGR.
 La Administración podrá consultar esta información.
 2.2.4. Módulo de Solicitudes de Autorización de Contratación Directa. El propósito es el registro y la integración de la información sobre las solicitudes de autorización para contratar directamente presentadas por la Administración ante la CGR y la resolución del órgano contralor. La CGR debe registrar la información de la solicitud y de su resolución, conforme a los datos requeridos por el sistema. La Administración podrá consultar esta información.
-2.2.5. Módulo de Consultas, Reportes e Informes de Actividad Contractual. El propósito es consolidar la información registrada en los módulos anteriores y disponer de datos por tipo de procedimiento, por subpartida del clasificador por objeto del gasto, por adjudicatario, por excepción a los procedimientos ordinarios y otros que sean de utilidad para los usuarios del sistema.
-Además, este módulo permite generar los informes de la actividad contractual desplegada por los entes y órganos sujetos a lo dispuesto en los artículos 101 de la Ley de Contratación Administrativa y el 107 de su reglamento.
+2.2.5. Módulo de Consultas, Reportes e Informes de Actividad Contractual. El propósito es consolidar la información registrada en los módulos anteriores y disponer de datos por tipo de procedimiento, por subpartida del clasificador por objeto del gasto, por adjudicatario, por excepción a los procedimientos ordinarios y otros que sean de utilidad para los usuarios del sistema. Además, este módulo permite generar los informes de la actividad contractual desplegada por los entes y órganos sujetos a lo dispuesto en los artículos 101 de la Ley de Contratación Administrativa y el 225 de su reglamento
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
 3. Integración y uniformidad de la información contractual
 3.1. Numeración de Procedimientos de Contratación. Con el propósito de integrar la información de los módulos del SIAC y uniformar el número de procedimiento de cada contratación en las publicaciones y comunicaciones que la Administración haga a terceros, se establece la siguiente numeración:
-a. El año de inicio de la contratación (4 dígitos).
-b. El código del tipo de procedimiento (máximo 2 dígitos), seguido por un guión, utilizando la siguiente codificación:
-• SB = Subasta a la baja
-• CD = Contratación Directa
-• LR = Licitación Restringida
-• LG = Licitación por Registro
-• LN = Licitación Pública Nacional
-• LI = Licitación Pública Internacional
-En casos específicos de tipos de procedimientos de contratación no contemplados en esta lista,
-la Administración debe solicitar formalmente a la CGR su incorporación.
-c. Un número consecutivo de procedimiento, numérico, 6 dígitos (rellenar con ceros a la izquierda).
+a) El año de inicio de la contratación (4 dígitos).
+b) El código del tipo de procedimiento (máximo 2 dígitos), seguido por un guión, utilizando la siguiente codificación:
+• SB =Subasta a la baja
+• CD =Contratación Directa
+• LA =Licitación Abreviada
+• LN =Licitación Pública Nacional
+• LI =Licitación Pública Internacional
+En casos específicos de tipos de procedimientos de contratación no contemplados en esta lista, la Administración debe solicitar formalmente a la CGR su incorporación.
+c) Un número consecutivo de procedimiento, numérico, 6 dígitos (rellenar con ceros a la izquierda).
 Este número debe ser consecutivo por tipo de procedimiento y debe reiniciarse anualmente. Seguido por un guión.
-d. El código de la unidad de compras que gestiona la contratación (máximo 10 caracteres, puede
-contener letras y números, sin guiones). Seguido por un guión.
-e. El número de procedimiento, y en particular, los ceros a la izquierda deben conservarse a lo largo de las etapas y validaciones de la contratación, tales como: publicaciones en periódicos, aprobaciones internas, y refrendo de contratos. El número de procedimiento no debe contener espacios en blanco.
+d. El código de la unidad de compras que gestiona la contratación (máximo 10 caracteres, puede contener letras y números, sin guiones). Seguido por un guión.
+e. El número de procedimiento, y en particular, los ceros a la izquierda deben conservarse a lo largo de las etapas y validaciones de la contratación, tales como: publicaciones en periódicos, aprobaciones internas, y refrendo de contratos.
+El número de procedimiento no debe contener espacios en blanco.
 La Administración debe garantizar que esa numeración se utilice en todas las publicaciones y en los trámites que se gestionen ante la Administración y ante el Órgano Contralor, por parte de sus unidades de aprovisionamiento sean éstas o no centralizadas.
+(Así reformado el numeral 3.1 anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
 3.2. Numeración de Líneas del Cartel. Todo cartel o pliego de condiciones debe tener numeradas las líneas de bienes y servicios a contratar. Esta numeración debe ser efectuada por la Administración.
-3.3. Numeración de Documentos Contractuales. La Administración debe garantizar que
-todo documento contractual cuenta con una identificación única, que se compone de:
-a) El año en que se emite el documento (de 4 dígitos), seguido de un guión.
+3.3. Numeración de Documentos Contractuales. La Administración debe garantizar que todo documento contractual cuenta con una identificación única, que se compone de:
+a) El año en que se emite el documento (de 4 dígitos).
 b) Un consecutivo anual (de 6 dígitos consignando ceros a la izquierda, cuando proceda).
-c) En caso de adenda se conservan el año y el consecutivo del contrato base, seguido de un guión y dos dígitos que numeran consecutivamente y de modo único a las adenda de ese contrato.
-3.4. Identificación de Adjudicatarios y Recurrentes. La cédula física o jurídica del adjudicatario o recurrente se debe registrar de acuerdo con lo establecido en el decreto de cedulación Nº 15126-H-PLAN, publicado en La Gaceta Nº 16 del 23 de enero de 1984. En el caso de los extranjeros que no cuentan con esa identificación, se deben registrar con el número de contribuyente asignado por la Dirección General de Tributación. Cuando se trate de un consorcio o de oferta conjunta, se deben registrar las cédulas de las personas físicas o jurídicas correspondientes a todos los miembros del consorcio o de la oferta conjunta.
-4. Informes de la actividad contractual Los informes de la actividad contractual requeridos por este Órgano Contralor, al amparo de los artículos 101 de la Ley de Contratación Administrativa y 107 del Reglamento General de Contratación Administrativa, serán generados en forma electrónica a partir de la información incluida por la Administración en el SIAC.
-Será responsabilidad de la CGR la emisión de dichos informes con la periodicidad que estime conveniente para el ejercicio de sus competencias constitucionales y legales.
-Por lo anterior, la Administración no estará obligada a realizar ninguna gestión adicional a la del registro diario.
+c) En caso de adenda se conservan el año y el consecutivo del contrato base y se enumera de modo único a las adenda de ese contrato.
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
+3.4. Identificación de Adjudicatarios y Recurrentes. La cédula física o jurídica del adjudicatario o recurrente se debe registrar de acuerdo con lo establecido en el decreto de cedulación Nº 15126-H-PLAN, publicado en La Gaceta Nº 16 del 23 de enero de 1984. En el caso de los extranjeros que no cuentan con esa identificación, se deben registrar con el número de contribuyente asignado por la Dirección General de Tributación Directa y cuando no se cumpla esa condición, la unidad de compra que registra debe asignarle un código al proveedor, debiendo ajustarlo a 10 dígitos iniciando en uno y luego rellenando con ceros. Cuando se trate de un consorcio o de oferta conjunta, se deben registrar las cédulas de las personas físicas o jurídicas correspondientes a todos los miembros del consorcio o de la oferta conjunta.
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
+4. Informes de la actividad contractual. Los informes de la actividad contractual requeridos por este Órgano Contralor, al amparo de los artículos 101 de la Ley de Contratación Administrativa y 225 del Reglamento General de Contratación Administrativa, serán generados en forma electrónica a partir de la información incluida por la Administración en el SIAC.
+La CGR colocará en el sitio web un reporte trimestral sobre la información contractual de las instituciones públicas. Por lo anterior, la Administración no estará obligada a realizar ninguna gestión adicional a la del registro diario.
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
 5. Aseguramiento de la calidad de la información La Administración debe establecer, en los términos de la Ley General de Control Interno, Nº 8292, los mecanismos de control interno que respalden la gestión del sistema y que garanticen la calidad de información.
 Asimismo, debe diseñar e implementar un plan de aseguramiento de la calidad, que incluya pruebas periódicas, las medidas correctivas correspondientes y el porcentaje de confiabilidad de la información.
-6. Responsabilidad Es de absoluta y total responsabilidad del ente u órgano, garantizar la autenticidad, integridad, oportunidad y seguridad de la información contractual suministrada al SIAC.
-La Administración debe designar y comunicar a la Contraloría General de la República los nombres de los funcionarios responsables del registro y validación de la información de la actividad contractual que se incorpora en el SIAC.
+6. Responsabilidad. Es de absoluta y total responsabilidad del ente u órgano, garantizar la autenticidad, integridad, oportunidad y seguridad de la información contractual suministrada al SIAC.
+La Administración debe designar y comunicar mediante nota formal a la Contraloría General de la República los nombres de los funcionarios responsables del registro y validación de la información de la actividad contractual que se incorpora en el SIAC, junto con el formulario para la definición de usuarios, en cual puede accesar a través de la página en internet de la CGR, dirección www.cgr.go.cr. En los casos en los que se sustituya a un funcionario, indistintamente de la causa, también deberá comunicarlo a la CGR, para que el órgano contralor pueda realizar los cambios necesarios.
+(Así reformado el numeral anterior por el artículo 1 de la resolución R-CO-4 del 31 de enero de 2007)
 7. Régimen sancionatorio De conformidad con lo dispuesto en los artículos 12 de la Ley Orgánica de la Contraloría General de la República y el 3 de la Ley General de Control Interno, las directrices contenidas en esta resolución son de acatamiento obligatorio, por lo que su incumplimiento, en cualquiera de sus formas, será causal de responsabilidad disciplinaria, de acuerdo con el ordenamiento de control y fiscalización, sin perjuicio de la responsabilidad penal o civil que se pudiese generar producto de determinada acción u omisión, en cuyo caso se procederá como en derecho corresponda.
 A fin de atribuir y sancionar la referida responsabilidad, la CGR realizará u ordenará las investigaciones del caso así como el debido procedimiento administrativo, de conformidad con la distribución interna de competencias para ello definidas.
 Cualquier uso de la identificación de usuario y la clave contrario a lo señalado en esta resolución estará sujeta a las sanciones que correspondan.
