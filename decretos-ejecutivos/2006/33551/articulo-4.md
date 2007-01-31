@@ -1,0 +1,1 @@
+Artículo 4º—Plazo. La integración de esta Comisión será por un plazo de tres meses, prorrogables por un período igual previa solicitud al Poder Ejecutivo. Dicha prórroga se otorgará con el propósito de contribuir con el Poder Ejecutivo en la ejecución de las acciones propuestas por la Comisión para su realización.
