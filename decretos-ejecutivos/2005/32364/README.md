@@ -14,3 +14,4 @@ Establece los lineamientos Técnicos, metodológicos para la elaboración de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-16 | la propia norma |
+| 2 | 2007-01-31 | Decreto Ejecutivo 33587 (2007-01-31) |

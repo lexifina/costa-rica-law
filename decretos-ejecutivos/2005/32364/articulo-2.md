@@ -1,1 +1,2 @@
-Artículo 2º—El documento de referencia se encuentra disponible para las entidades públicas, ministerios y demás órganos, en los correspondientes sitios electrónicos del Sistema Nacional de Evaluación, de la Dirección General de Presupuesto Nacional y de la Autoridad Presupuestaria.
+Artículo 2º—Los “Lineamientos Técnicos y Metodológicos para la Elaboración de la Estructura de Plan Anual Operativo para las Entidades Públicas, Ministerios y demás órganos” estarán disponibles en los sitios electrónicos de los Ministerios de Planificación Nacional y Política Económica y de Hacienda
+(Así reformado por el artículo 2 del Decreto Ejecutivo N° 33587 de 31 de enero de 2007)
