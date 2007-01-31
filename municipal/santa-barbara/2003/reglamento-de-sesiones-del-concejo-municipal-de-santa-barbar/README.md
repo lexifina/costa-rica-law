@@ -14,3 +14,4 @@ Reglamento de Sesiones del Concejo Municipal de Santa Bárbara.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-14 | la propia norma |
+| 2 | 2007-01-31 | Reglamento municipal 40 (2007-01-31) |
