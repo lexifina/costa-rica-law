@@ -1,0 +1,1 @@
+rtículo 5º—Optarán por el plus salarial solo aquellos funcionarios con la clase de puesto de Técnico Municipal 1-A en el cargo de Polinspector, siempre que la naturaleza del puesto sea de carácter operativo. Esto por cuanto los funcionarios ubicados en esta clase son los que cumplen con el perfil de actividades que originan la situación de peligrosidad.
