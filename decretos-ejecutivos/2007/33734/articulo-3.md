@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión Institucional establecerá las prioridades de actuación y determinará las vías de acción más eficaces y eficientes para la consecución del fin deseado, estableciendo un proyecto de acción con todos sus ejes debidamente planificados.
