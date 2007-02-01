@@ -1,0 +1,17 @@
+REGISTRO PÚBLICO DE LA PROPIEDAD INMUEBLE
+CIRCULAR REGISTRAL DRP-001-2007
+DE: MSC. Óscar Rodríguez Sánchez, Director Registro de Bienes Inmuebles.
+PARA: Subdirección, Dirección de Regionales, Asesoría Jurídica, Asesoría Técnica, Coordinación General, Jefes de Registradores y Registradores.
+ASUNTO: Aclaración y adición de Circular Registral DRP-010-2005(Mandamientos judiciales i) Comunicación al Juez, y ii) Cancelación de asiento de presentación).
+FECHA: 12 de enero del 2007.
+Considerando los supuestos del ordinal 1º de la Ley sobre Inscripción de Documentos en el Registro Público, que es Ley Nº 3883 de 30 de mayo de 1967 y sus reformas, que establece que el propósito del Registro Nacional es garantizar la seguridad de los bienes o derechos inscritos con respecto de terceros, y conforme lo estipulado en el numeral 16 de la citada Ley sobre Inscripción de Documentos en el Registro Público, en concordancia con lo dispuesto en el inciso e) del artículo 4º del Reglamento del Registro Público, que es Decreto Ejecutivo Nº 26771-J, publicado el 18 de marzo de 1998 y sus reformas, en cuanto a la potestad de unificar criterios de calificación registral de obligatorio acatamiento, se aclara y adiciona la Circular Registral DRP-010-2005, según se detalla:
+I. Tal y como lo señala el “Considerando IV del Voto Nº 10991-2000 de las 15:22 horas del 12 de diciembre del 2000”, relacionado en la circular registral de previa cita, deberá el registrador, al detectar en el mandamiento judicial aspectos contradictorios o erróneos, informarlo al juez respectivo, quien dictará lo que considere oportuno (v.g. finca sometida al régimen de habitación familiar, finca con limitaciones de la Ley N° 7052 y sus reformas, finca con limitaciones del artículo 292 del Código Civil, finca fideicometida, inconsistencias en el nombre o número de identificación de las partes involucradas en el proceso judicial, en procesos de ejecutivos simples cuando el inmueble no pertenece al demandado, entre otros). En ese sentido, se consignará la marginal correspondiente y se adjuntará la impresión de pantalla al respectivo mandamiento.
+Cabe advertir, que las condiciones enunciadas constituyen ejemplos; por lo tanto y en virtud de que el proceso de calificación de los documentos es competencia de los señores registradores (artículo 34 y siguientes del Reglamento de la materia), queda bajo su discrecionalidad la valoración de las diferentes situaciones que pueden motivar el comunicado al juez.
+II. En lo referente a los casos en los que procede la cancelación del asiento de presentación de los mandamientos judiciales, tómese nota de la siguiente modificación y adición:
+No procederá la cancelación del asiento de presentación de un mandamiento judicial, salvo las excepciones que se indican a continuación:
+a) Aplicación de la prescripción de los artículos 471 y 468 del Código Civil.
+b) Cuando deba resolverse la colisión de un derecho real frente a uno personal, conforme lo dispone el artículo 455 del Código Civil.
+c) Cuando debiendo pagar los derechos respectivos en razón de la materia, éstos no sean debidamente cancelados.
+d) Cuando se omita consignar el partido o la matrícula del inmueble que se ordena anotar, o que el mismo no exista. (De previo a la aplicación de este punto, se debe realizar el respectivo estudio a efectos de descartar que la finca no se encuentre inscrita en tomos, en cuyo caso se procederá al traslado de la misma).
+e) Cuando el documento carezca de firma.
+San José, 15 de enero del 2007.
