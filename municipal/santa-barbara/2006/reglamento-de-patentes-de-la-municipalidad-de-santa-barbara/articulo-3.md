@@ -1,0 +1,18 @@
+Artículo 3º—Definiciones. Para efectos de este reglamento se entenderán como:
+- Alcaldia- La Alcaldía Municipal de la Municipalidad de Santa Bárbara de Heredia.
+- Certificado de uso de suelo- Aquel emitido por el Departamento de Ingeniería Municipal, si fuera necesario el emitido por el Instituto Nacional de Vivienda y Urbanismo (INVU).
+- Concejo- El Concejo Municipal de la Municipalidad de Santa Bárbara.
+- Declaración jurada- Documento por el cual el patentado declara sus ventas brutas o ingresos en el período fiscal correspondiente.
+- Impuesto- Tributo que deben pagar los patentados de la Municipalidad de Santa Bárbara, según la Ley Nº 7180.
+-Patentado- Persona física o jurídica que adquiere licencia municipal para ejercer actividades lucrativas.
+- Licencia- Es la autorización que previa solicitud del interesado, concede la Municipalidad para ejercer cualquier actividad lucrativa en su jurisdicción conforme a lo establecido en la Ley.
+- Municipalidad- Entiéndase por esta la Municipalidad del cantón de Santa Bárbara de Heredia.
+- Patente- Es el impuesto a cancelar por la actividad lucrativa que realizan en el cantón de Santa Bárbara de Heredia.
+- Permiso de funcionamiento- Son las autorizaciones que a criterio de la Municipalidad o exigidas por ley especial, deben obtener los interesados ante organismos estatales, de previo a que la Municipalidad les otorgue la licencia.
+- Venta- Contrato bilateral por el que se transmite la propiedad de un bien determinado a cambio de una contraposición.
+- Inspección- La inspección de patentes y espectáculos públicos.
+- Ingreso- Es la suma que se recibe como contraprestación en el ejercicio de las actividades lucrativas.
+- Ventas brutas- Es el volumen de ventas obtenidas por el patentado en el ejercicio de las actividades lucrativas autorizadas por la licencia municipal durante el periodo fiscal hecha la deducción que establece la Ley de Impuesto sobre las Ventas.
+-Ingresos brutos- Es el volumen de ingresos obtenidos por el patentado en el ejercicio de las actividades lucrativas autorizadas por la licencia municipal durante el periodo fiscal.
+-Período fiscal- Es el comprendido entre el primero de octubre y el treinta de septiembre del año siguiente.
+-La Ley- Entiéndase por esta la Ley número 7180 del 08 de agosto de 1990 o Ley de Impuestos Municipales del cantón de Santa Bárbara de Heredia.

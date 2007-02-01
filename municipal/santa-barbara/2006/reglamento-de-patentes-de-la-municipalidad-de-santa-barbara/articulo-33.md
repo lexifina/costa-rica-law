@@ -1,0 +1,1 @@
+Artículo 33.—Las recalificaciones y calificaciones tendrán los recursos de revocatoria y apelación para ante el Alcalde Municipal. Podrán estar fundadas en motivos de ilegalidad o inoportunidad y no suspenderá la ejecución del acto.

@@ -1,0 +1,1 @@
+Artículo 48.—Supervisión. Los inspectores municipales o la fuerza pública ejercerá supervisión directa del evento, sobre el funcionamiento de la patente temporal otorgada, debiendo informar al Alcalde sobre cualquier anomalía presentada con el fin de aplicar las sanciones que correspondan, según la Ley de Licores y su Reglamento.

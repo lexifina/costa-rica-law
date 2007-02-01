@@ -1,0 +1,1 @@
+Artículo 32.—El patentado podrá impugnar la recalificación hecha por la Municipalidad y el Departamento de Rentas y Cobranzas de conformidad con las disposiciones del capítulo sobre materia tributaria de la Ley Reguladora de la Jurisdicción de lo Contencioso Administrativo.

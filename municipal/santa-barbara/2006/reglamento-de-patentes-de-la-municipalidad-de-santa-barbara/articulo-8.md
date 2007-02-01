@@ -1,0 +1,1 @@
+Artículo 8º—El impuesto de patente y licencia de venta de licores al menudeo, se regulará por ley especial. Salvo aquellas disposiciones de tipo administrativo que sean aplicables, en cuanto a la solicitud de traspaso, traslado y cancelación de las mismas.
