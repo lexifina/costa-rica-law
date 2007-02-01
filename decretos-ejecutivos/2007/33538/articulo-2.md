@@ -1,0 +1,1 @@
+Artículo 2º—Que el restante 50% del ingreso será depositado en la cuenta personal del Presidente de la República, con el fin de ser donado a las entidades o instituciones que él discrecionalmente determine.

@@ -1,0 +1,1 @@
+Artículo 3º—Los porcentajes y las organizaciones detalladas en el artículo 1º podrán modificarse a criterio del Presidente de la República, lo cual se hará saber mediante comunicación escrita a la Tesorería Nacional para su aplicación.
