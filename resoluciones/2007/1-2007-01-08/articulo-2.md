@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT 22-06 del 4 de octubre del 2006, publicada en La Gaceta Nº 199 del 18 de octubre del 2006.
