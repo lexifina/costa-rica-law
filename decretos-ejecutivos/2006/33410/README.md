@@ -14,3 +14,4 @@ Reforma Reglamento General para el otorgamiento de Permisos Sanitarios de Funcio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-06 | la propia norma |
+| 2 | 2007-02-02 | Decreto Ejecutivo 33602 (2007-02-02) |
