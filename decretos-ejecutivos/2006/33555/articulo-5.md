@@ -1,0 +1,2 @@
+Artículo 5º—Principio de Unicidad. En virtud del principio de unicidad del Estado, tanto el Gobierno Central como las demás instituciones del sector público fortalecerán al Instituto Nacional de Seguros como la única empresa de Seguros del Estado.
+Para ello, se reconoce la facultad del Estado y de sus instituciones de contratar directamente con el INS todos los seguros necesarios para la satisfacción de sus necesidades.
