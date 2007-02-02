@@ -1,0 +1,1 @@
+Artículo 23.—El INCOPESCA revisará y modificará el presente Reglamento, así como los modelos de cálculo establecidos para estos efectos, cuando existan razones técnicas debidamente justificadas para ello.

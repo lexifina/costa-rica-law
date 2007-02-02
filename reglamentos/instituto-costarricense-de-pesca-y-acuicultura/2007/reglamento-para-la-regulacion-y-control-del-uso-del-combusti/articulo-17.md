@@ -1,0 +1,1 @@
+Artículo 17.—Los beneficiarios según corresponda deberán estar inscritos y al día, ya sea en el régimen de aseguramiento independiente o en el régimen Obrero Patronal, en ambos casos demostrado mediante documento idóneo expedido por la CCSS, presentado en cada trámite.

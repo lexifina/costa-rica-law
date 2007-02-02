@@ -1,0 +1,12 @@
+Artículo 4º—Atribuciones y Responsabilidades:
+a) Autorizar la venta de combustible a precio competitivo con el precio internacional según Ley Nº 8436 y Ley Nº 7384, para la Flota Pesquera Turística Nacional de conformidad con la legislación vigente.
+b) Disminuir, suspender los beneficios en forma particular o general, en cumplimiento de acuerdos emanados por la Junta Directiva del INCOPESCA en esta materia o cualquier otra disposición legal establecida o las regulaciones derivadas de los Contratos suscritos para estos efectos.
+c) Llevar expedientes físicos manuales por cada embarcación beneficiaria, con la siguiente información:
+- Poder especial individual del beneficiario mediante el que autoriza a una tercera persona, para que en su representación le realice el trámite de combustible.
+- Todos los documentos o requisitos establecidos en el Artículo 5 del presente Reglamento.
+d) Efectuar trimestralmente conciliaciones entre las Órdenes de Compra emitidas por el INCOPESCA y las Órdenes de Compra hechas efectivas en los planteles de distribución de RECOPE a nivel nacional, a través de una Comisión conformada por la Jefatura de la SCAC en Puntarenas, un funcionario de la Unidad de Informática y un funcionario de la Sección de Contabilidad del INCOPESCA.
+e) Efectuar conciliaciones entre la cantidad de litros autorizados por INCOPESCA y los efectivamente entregados a los permisionarios a través de organizaciones, estaciones de servicio y otros centros de almacenamiento y distribución debidamente autorizados.
+f) Recibir y resolver en primera instancia, los reclamos sobre la correcta aplicación de este Reglamento y demás disposiciones que se establezcan para el racional disfrute de los beneficios creados por Ley.
+g) A efecto de verificar las disposiciones normativas del presente Reglamento emitido para garantizar el uso correcto y eficiente del combustible, los funcionarios de la SCAC o las personas que ésta designe y en razón de su investidura, estarán facultados para efectuar en los lugares y tiempo que consideren procedentes, las inspecciones y los estudios necesarios a todos aquellos sujetos que disfrutan del beneficio del combustible a precio preferencial.
+Los transportistas de combustible podrán ser supervisados por la Policía Fiscal del Ministerio de Hacienda, de acuerdo al convenio que suscriba dicho Ministerio con el INCOPESCA.
+h) Cualesquiera otras que le confiera la Junta Directiva del INCOPESCA mediante acuerdo expreso.
