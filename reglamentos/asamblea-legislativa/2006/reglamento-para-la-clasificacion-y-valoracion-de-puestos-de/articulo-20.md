@@ -1,0 +1,1 @@
+Artículo 20.—Cuando se trate de asignaciones de puestos nuevos o de reasignaciones de puestos vacantes, el período de provisionalidad comenzará a contarse a partir de la fecha en que el puesto sea ocupado.

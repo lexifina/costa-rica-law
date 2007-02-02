@@ -1,0 +1,16 @@
+# Reglamento (2006-12-06)
+
+Reglamento para la Clasificación y Valoración de Puestos de la Asamblea Legislativa
+
+- Tipo: Reglamento
+- Número: 34
+- Fecha: 2006-12-06
+- Ente emisor: Asamblea Legislativa
+- Publicación: La Gaceta N° 24 del 2007-02-02
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58979&param2=65679&param3=1 (ficha 58979)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2007-02-02 | la propia norma |

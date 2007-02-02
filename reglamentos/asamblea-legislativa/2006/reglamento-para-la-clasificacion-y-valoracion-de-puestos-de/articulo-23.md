@@ -1,0 +1,1 @@
+Artículo 23.—Todo servidor trasladado con su puesto a la Asamblea Legislativa deberá solicitar, en un plazo mínimo de tres meses, el estudio de clasificación correspondiente. De lo contrario se le continuará pagando el salario correspondiente al puesto, que en cuyo caso la fecha de asignación regirá de acuerdo con lo establecido en el artículo 6 del presente Reglamento.

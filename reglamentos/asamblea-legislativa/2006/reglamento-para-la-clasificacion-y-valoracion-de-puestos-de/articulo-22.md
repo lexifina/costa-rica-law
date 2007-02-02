@@ -1,0 +1,1 @@
+Artículo 22.—La ubicación de los puestos trasladados de otras dependencias a la Asamblea Legislativa se hará por medio de asignación, y su vigencia estará determinada por la Ley de Presupuesto Nacional.

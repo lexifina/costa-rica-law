@@ -1,0 +1,1 @@
+Artículo 10.—Cuando el Departamento de Recursos Humanos lo considere conveniente, podrá solicitar asesoría a la Dirección General de Servicio Civil, para realizar estudios técnicos de clasificación y valoración de puestos.

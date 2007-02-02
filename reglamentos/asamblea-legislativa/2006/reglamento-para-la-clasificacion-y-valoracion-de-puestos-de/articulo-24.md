@@ -1,0 +1,1 @@
+Artículo 24.—Los casos no previstos en este Reglamento se resolverán de acuerdo con las disposiciones del Reglamento del Estatuto de Servicio Civil y de la jurisprudencia administrativa emitida por la Procuraduría General de la República sobre esta materia.

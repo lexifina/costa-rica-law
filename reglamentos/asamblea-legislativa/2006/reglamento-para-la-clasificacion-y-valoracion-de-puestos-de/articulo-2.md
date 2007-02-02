@@ -1,0 +1,1 @@
+Artículo 2º—Las normas y procedimientos en asuntos de clasificación y valoración de puestos en este Reglamento se fundamentan en los artículo 25 del Reglamento de la Asamblea Legislativa y 23 de la Ley de Personal de la Asamblea Legislativa y sus reformas.

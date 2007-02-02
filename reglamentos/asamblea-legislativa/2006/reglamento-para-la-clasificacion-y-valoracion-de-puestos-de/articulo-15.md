@@ -1,0 +1,1 @@
+Artículo 15.—El Director Ejecutivo y los jefes de departamento deberán informar al Departamento de Recursos Humanos sobre los cambios en las tareas que se den en los puestos, con el propósito de que se proceda a realizar el estudio correspondiente para mantener al día el sistema de clasificación.

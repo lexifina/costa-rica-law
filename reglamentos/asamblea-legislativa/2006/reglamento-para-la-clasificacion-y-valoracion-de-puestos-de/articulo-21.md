@@ -1,0 +1,1 @@
+Artículo 21.—No se podrán realizar estudios de reasignación o revaloración de puestos, cuando el código correspondiente se encuentre ubicado, presupuestariamente, en un Departamento distinto de aquel en que esté destacado el funcionario, salvo en casos que se han trasladado por el artículo 18 de la Ley de Personal y no se han consolidado presupuestariamente.

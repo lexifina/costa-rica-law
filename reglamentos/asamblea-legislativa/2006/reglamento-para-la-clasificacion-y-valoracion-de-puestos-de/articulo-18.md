@@ -1,0 +1,1 @@
+Artículo 18.— Si el servidor considera que se le causa perjuicio con la disposición del artículo 17º, podrá apelar ante el jefe inmediato en un plazo de ocho días hábiles. Después de transcurrido el plazo de 60 días, podrá agotar la vía administrativa ante el Directorio de la Asamblea Legislativa.

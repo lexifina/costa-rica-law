@@ -1,0 +1,1 @@
+Artículo 19.—Toda asignación, reclasificación, valoración, revaloración o reasignación de puesto tendrá una provisionalidad de tres meses, y se considerará acordada en forma definitiva si, en ese período el Directorio Legislativo no lo revoca o modifica.

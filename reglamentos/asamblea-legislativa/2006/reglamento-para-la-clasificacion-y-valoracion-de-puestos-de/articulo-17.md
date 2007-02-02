@@ -1,0 +1,1 @@
+Artículo 17.—Por necesidades de conveniencia pública, se podrá asignar a un servidor labores correspondientes a otro puesto distinto al suyo, sin que ello signifique descenso o ascenso, por un plazo que no excederá de sesenta días, consecutivos o no, durante un año.
