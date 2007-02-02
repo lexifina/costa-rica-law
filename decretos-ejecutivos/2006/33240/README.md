@@ -16,3 +16,4 @@ Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento
 | 1 | 2006-08-23 | la propia norma |
 | 2 | 2006-10-05 | Decreto Ejecutivo 33381 (2006-10-05) |
 | 3 | 2006-10-23 | Decreto Ejecutivo 33410 (2006-10-23) |
+| 4 | 2007-02-02 | Decreto Ejecutivo 33602 (2007-02-02) |
