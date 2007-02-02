@@ -28,3 +28,4 @@ Se autoriza a la Contraloría General de la República para que, mediante acuerd
 INCISO E)
 A solicitud de la Contraloría General de la República, el Ministerio de Hacienda mediante decretos ejecutivos, realizará las modificaciones necesarias al presupuesto de la Contraloría General de la República en todo lo relacionado con los cambios en las relaciones de puestos tanto de cargos fijos como servicios especiales.
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a La Gaceta N° 250 del 29 de diciembre de 2006.
+(Modificado por el artículo 1° del decreto ejecutivo N° 33574 del 2 de febrero de 2007)
