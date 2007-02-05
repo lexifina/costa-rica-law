@@ -14,3 +14,4 @@ Ratificación de la República de Costa Rica a la Convención para la Salvaguard
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-11 | la propia norma |
+| 2 | 2007-02-05 | Decreto Ejecutivo 33593 (2007-02-05) |
