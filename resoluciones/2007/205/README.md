@@ -1,0 +1,16 @@
+# Resolución 205
+
+Declaratoria de Elección de Síndicos propietarios y suplentes y Miembros propietarios y suplentes de los Concejos de Distrito correspondientes a los distritos del cantón central de la Provincia de Heredia
+
+- Tipo: Resolución
+- Número: 205
+- Fecha: 2007-01-18
+- Ente emisor: Tribunal Supremo de Elecciones
+- Publicación: La Gaceta N° 33 del 2007-02-15, Alcance 4
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=59118&param2=65872&param3=1 (ficha 59118)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2007-02-05 | la propia norma |
