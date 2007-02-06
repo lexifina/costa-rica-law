@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-23 | la propia norma |
+| 2 | 2007-02-06 | Reglamento 5457 (2007-02-06) |
