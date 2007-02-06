@@ -1,0 +1,4 @@
+Artículo 5º—Reforma de la Ley Nº 7769. Refórmase el artículo 7 de la Ley Nº 7769, Atención a las mujeres en condiciones de pobreza, de 24 de abril de 1998, y sus reformas. El texto dirá:
+“Artículo 7º—Financiamiento y ejecución de programas. Para cumplir los programas dirigidos a las mujeres en condiciones de pobreza, establecidos en la presente Ley, se contará con los siguientes recursos:
+a) El Instituto Nacional de las Mujeres (Inamu), financiará y ejecutará la capacitación en formación humana, con recursos propios y los recursos adicionales que se necesiten. Los recursos adicionales los asignará el Gobierno Central, provenientes del Fondo de Desarrollo Social y Asignaciones Familiares.
+b) El Instituto Nacional de Aprendizaje (INA) financiará y ejecutará la capacitación técnico-laboral dirigida a las mujeres en condiciones de pobreza, contempladas en la presente Ley.”

@@ -1,0 +1,4 @@
+Artículo 3º—Adición del inciso g) al artículo 3 de la Ley Nº 5662. Adiciónase al artículo 3 de la Ley de desarrollo social y asignaciones familiares, Nº 5662, de 23 de diciembre de 1974, y sus reformas, el inciso g), cuyo texto dirá:
+“Artículo 3º—Del Fondo de Desarrollo Social y Asignaciones Familiares se destinarán recursos para pagar programas y servicios a las instituciones del Estado, que tienen a su cargo la ayuda social complementaria del ingreso a las familias de pocos recursos, tales como el Ministerio de Salud, en sus programas de nutrición, preferentemente a través de los patronatos escolares y centros locales de educación y nutrición, el Instituto Mixto de Ayuda Social y el Patronato Nacional de la Infancia. Además se destinarán recursos para:
+(…)
+g) Un siete coma cinco por ciento (7,5%) al IMAS para sus programas sociales”.
