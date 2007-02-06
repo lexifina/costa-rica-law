@@ -1,0 +1,1 @@
+Artículo 17.—De los sobrantes. Los sobrantes que se produzcan en los cierres diarios de operaciones de la Caja, deberán ser depositados en el banco respectivo, a nombre de la Municipalidad a más tardar el día hábil siguiente a que se verifique el mismo.

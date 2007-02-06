@@ -1,0 +1,1 @@
+Artículo 5º—Revisión del fondo fijo. Los saldos de fondo fijo se revisarán dos veces al mes, sin previo aviso, por el gestor de Tesorería y la Coordinadora del Eje de Hacienda, quienes verificarán que los saldos estén correctos. En caso contrario, incurrirá en falta la cual será sancionada de acuerdo con el régimen disciplinario contenido en el Reglamento Autónomo de Trabajo.

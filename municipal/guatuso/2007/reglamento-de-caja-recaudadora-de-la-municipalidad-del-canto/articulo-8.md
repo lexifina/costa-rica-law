@@ -1,0 +1,1 @@
+Artículo 8º—De la recaudación. Recibida la información por el sistema o porque recibe el recibo confeccionado por otro departamento municipal, el cajero digita el número del recibo, revisa las operaciones aritméticas del comprobante, firma y sella, recauda y entrega el original cancelado al contribuyente y conserva la copia con sello de cancelado para Tesorería.

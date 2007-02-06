@@ -1,0 +1,1 @@
+Artículo 24.—Los funcionarios municipales destacados en las cajas recaudadoras de la Municipalidad, observarán en cumplimiento de sus funciones, las indicaciones que en materia laboral y de control de operaciones y de actividades propias de la Caja dicte el Tesorero Municipal.

@@ -1,0 +1,1 @@
+Artículo 9º—De las copias de recibos. Las copias de los recibos cancelados las retiene el Tesorero para su correspondiente anotación en sus registros, una vez cumplida esta labor los envía, en conjunto con el informe de caja a que se refiere el artículo siguiente, al Departamento de Contabilidad.

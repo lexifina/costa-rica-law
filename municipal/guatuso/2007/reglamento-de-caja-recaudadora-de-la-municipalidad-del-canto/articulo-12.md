@@ -1,0 +1,3 @@
+Artículo 12.—Ingresos mediante cheques. A la caja recaudadora ingresará únicamente dinero efectivo salvo cheque por el monto completo que se adeuda a nombre de la Municipalidad del cantón de Guatuso y que dicho cheque esté debidamente firmado por el dorso con el número de cédula del endosante y su número de teléfono. A todo recibo cancelado mediante cheque debe consignarse la leyenda “QUEDA SUJETO A QUE EL CHEQUE TENGA FONDOS”.
+Cuando el cheque preste alguna duda, se procederá a hacer la consulta con la tesorera, para que haga la consulta al banco respectivo.
+Cuando se emitan cheques a favor de la Municipalidad del cantón de Guatuso, por el monto exacto, y a fin de cancelar los permisos de construcción, el cheque deberá ser certificado.
