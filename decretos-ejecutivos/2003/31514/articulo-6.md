@@ -1,6 +1,7 @@
 Artículo 6º—Definiciones. Además de las definiciones incluidas en el artículo 7º de la Ley de Biodiversidad, estas normas generales usarán como referencia las siguientes:
 a) Acuerdos de transferencia de material
-Convenio celebrado entre los interesados, sean personas físicas o jurídicas, para el intercambio y transferencia de elementos y recursos genéticos y bioquímicos de la biodiversidad mantenidos en condiciones ex situ o in situ. Estos acuerdos deberán ser autorizados por la Oficina Técnica según lo estipulado en el artículo 74 de la Ley de Biodiversidad.
+Convenio celebrado entre los interesados, sean personas físicas o jurídicas, públicas o privadas, para el intercambio y transferencia de elementos y recursos genéticos y bioquímicos de la biodiversidad mantenidos en condiciones ex situ o in situ, para investigación básica. Estos acuerdos deberán ser autorizados por la Oficina Técnica según lo estipulado en el artículo 74 de la Ley de Biodiversidad. El Acuerdo de transferencia de material no sustituye en ningún caso al permiso de acceso correspondiente
+(Así reformado el inciso anterior mediante el artículo 17 punto b) del decreto ejecutivo N° 33697 del 06 de febrero de 2007)
 b) Acuerdo entre la persona interesada y el proveedor de los elementos o recursos
 Convenio suscrito entre la persona interesada y el proveedor de los elementos o recursos genéticos y bioquímicos de la biodiversidad de acuerdo con lo establecido en el inciso q) de este mismo artículo.
 c) Aprovechamiento económico
@@ -45,5 +46,7 @@ t) Recurso bioquímico
 Cualquier material derivado de organismos vivientes, buscado o utilizado por su valor actual o potencial, que posee ciertas características específicas, moléculas especiales o pistas para diseñarlas. A diferencia del uso orgánico de los recursos, el recurso bioquímico sufre una mayor transformación y aprovechamiento técnico-industrial, y cuenta en general con un mayor número de ingredientes activos.
 u) Recurso genético
 Cualquier material de organismos vivientes que contenga unidades funcionales de la herencia y que sea manejado e innovado convencionalmente por los campesinos y los fito o zoomejoradores, o bien investigado o aprovechado por medio de procedimientos biotecnológicos modernos, con valor actual o potencial.
+u bis) Regalías. Pago o compensación económica recibida por el permisionario, que resulte o surja del uso, distribución o comercialización de un producto, subproducto, derivado u otro material de valor comercial, procedente de los recursos genéticos o bioquímicos accesados.
+(Así adicionado el inciso anterior mediante artículo 17 punto c) del decreto Ejecutivo N° 33697 del 06 de febrero de 2007)
 v) Sistema Nacional de Áreas de Conservación
 Régimen de gestión y coordinación institucional, desconcentrado y participativo, que integra las competencias en materia forestal, vida silvestre y, áreas protegidas del Ministerio de Ambiente y Energía, con el fin de dictar políticas, planificar y ejecutar procesos dirigidos a lograr la sostenibilidad en el manejo de los recursos naturales de Costa Rica.
