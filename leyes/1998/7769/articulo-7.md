@@ -1,11 +1,4 @@
-ARTÍCULO 7.- Financiamiento y ejecución de programas
-Para cumplir con los programas dirigidos a las mujeres en condiciones
-de pobreza, establecidos en la presente ley, se contará con los siguientes
-recursos:
-a) El Instituto Mixto de Ayuda Social financiará, con recursos
-propios y del Fondo de Desarrollo Social y Asignaciones Familiares, la
-capacitación en formación humana. El Centro Nacional para el Desarrollo de
-la Mujer y la Familia se encargará de ejecutar esta capacitación.
-b) El Instituto Nacional de Aprendizaje financiará y ejecutará la
-capacitación técnico-laboral dirigida a las mujeres en condiciones de
-pobreza contemplada en la presente ley.
+Artículo 7º—Financiamiento y ejecución de programas. Para cumplir los programas dirigidos a las mujeres en condiciones de pobreza, establecidos en la presente Ley, se contará con los siguientes recursos:
+a) El Instituto Nacional de las Mujeres (Inamu), financiará y ejecutará la capacitación en formación humana, con recursos propios y los recursos adicionales que se necesiten. Los recursos adicionales los asignará el Gobierno Central, provenientes del Fondo de Desarrollo Social y Asignaciones Familiares.
+b) El Instituto Nacional de Aprendizaje (INA) financiará y ejecutará la capacitación técnico-laboral dirigida a las mujeres en condiciones de pobreza, contempladas en la presente Ley.
+(Así reformado por el artículo 5 de la Ley N° 8563 del 30 de enero de 2007)
