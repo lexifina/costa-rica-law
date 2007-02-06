@@ -1,5 +1,5 @@
 Artículo 72.- Las compras y negociaciones a que se refiere el artículo anterior (se podrán realizar con la sola autorización de l Contraloría General de la República)*, de acuerdo con las siguientes normas especiales:
-*(La Sala Constitucional mediante resolución N° 1557-07 de las quince horas con treinta y seis minutos, del 07 de febrero del 2007, anuló del párrafo anterior lo destacado entre paréntesis.)
+*(La Sala Constitucional mediante resolución N° 1557-07 del 07 de febrero del 2007, anuló del párrafo anterior lo destacado entre paréntesis.)
 a) La Caja Costarricense de Seguro Social establecerá y mantendrá
 actualizado un registro de oferentes de los productos, con base en su
 nombre genérico. La Contraloría General de la República y la Auditoría de
