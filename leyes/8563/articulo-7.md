@@ -1,0 +1,2 @@
+Artículo 7º—Reforma de la Ley Nº 8114. Refórmase el artículo 30 de la Ley de simplificación y eficiencia tributarias, Nº 8114, y sus reformas. El texto dirá:
+“Artículo 30.—Importaciones del IMAS. La importación de las mercaderías que el Instituto Mixto de Ayuda Social (IMAS) requiera para la explotación exclusiva de puestos libres de derechos en puertos, fronteras y aeropuertos internacionales, ya sea en forma directa o por medio de un tercero, no pagará ningún tipo de impuestos, tasas ni sobretasas”.
