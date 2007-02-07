@@ -1,0 +1,7 @@
+Artículo 3º—Tipología de estímulos que otorga el MEP. En aplicación de lo dispuesto en el artículo 80 de la Constitución Política y sobre la base del interés público, se determina que el Ministerio de Educación Pública, podrá otorgar los siguientes tipos de estímulos, sea en forma conjunta o separada, a saber:
+a) Facilitación de personal docente o administrativo docente, para el desarrollo de funciones propias de su condición de educador en el centro educativo privado.
+b) Transferencia de recursos económicos (dinero), con el fin de brindar soporte en algún proceso educativo de particular interés o el pago de educadores contratados en relación laboral común por el centro educativo privado, conforme el interés público.
+c) Participación de los docentes del centro privado, en algún proceso de capacitación a educadores que organice o financie el Ministerio de Educación Pública, para sus servidores.
+d) Participación de la comunidad estudiantil de un centro privado, en actividades culturales o de promoción educativa (tales como ferias científicas, etc.), que organice el Ministerio de Educación dentro del Sistema Educativo Público.
+e) Préstamo o arrendamiento de instalaciones educativas propiedad del Ministerio de Educación Pública.
+f) Cualesquiera otras modalidades de estímulo que se consideren oportunas y sean previamente autorizadas por la Contraloría General de la República para su utilización.
