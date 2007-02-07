@@ -1,0 +1,1 @@
+Artículo 9º—Competencia de fiscalización. La Auditoría Interna ejercerá sus funciones en todas las unidades administrativas, académicas, operativas y demás dependencias de la institución, así mismo, en los sistemas, procesos, procedimientos, en todas aquellas áreas de acción, contratos, convenios, programas o proyectos que se lleven a cabo en el C.U.N.A.

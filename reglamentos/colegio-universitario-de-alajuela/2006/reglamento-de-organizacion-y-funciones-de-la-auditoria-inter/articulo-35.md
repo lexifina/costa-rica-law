@@ -1,0 +1,1 @@
+Artículo 35.—Papeles de trabajo. Las Auditorías o estudios especiales se soportarán con cédulas y documentos de trabajo en donde se registrará la información o datos importantes de acuerdo con el estudio que lleve a cabo la auditoría.

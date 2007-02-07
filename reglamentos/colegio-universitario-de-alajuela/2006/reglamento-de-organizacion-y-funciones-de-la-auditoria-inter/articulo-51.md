@@ -1,0 +1,1 @@
+Artículo 51.—Evaluaciones al programa de calidad. Las evaluaciones al programa de calidad deberá contener: supervisión, evaluaciones internas y externas, que permitan ofrecer credibilidad de la Auditoría Interna y el mejoramiento continúo de la labor de fiscalización.
