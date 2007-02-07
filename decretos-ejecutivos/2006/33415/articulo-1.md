@@ -12,4 +12,5 @@ VI.—Que mediante el oficio Nº STAP-0915-06 de 24 de abril del 2006, se comuni
 VII.—Que la señora Ministra Rectora del Sector Cultura, avaló la solicitud planteada por el Centro Costarricense de Producción Cinematográfica, en el oficio Nº DM-740-06 de 20 de setiembre del 2006.
 VIII.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Centro Costarricense de Producción Cinematográfica para el año 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase al Centro Costarricense de Producción Cinematográfica, el gasto presupuestario máximo fijado para el año 2007, establecido en el Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, y sus reformas, de manera que éste no podrá exceder la suma de ¢82.500.000,00 (ochenta y dos millones quinientos mil colones exactos) durante ese período.
+Artículo 1º—Modifícase al Centro Costarricense de Producción Cinematográfica, el gasto presupuestario máximo fijado para el año 2007, establecido en el Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, y sus reformas, de manera que éste no podrá exceder la suma de ¢ 98.000.000,00 (noventa y ocho millones de colones exactos), para este período.
+(Así reformado el monto anterior, mediante artículo 1 del decreto ejecutivo N° 33669 del 7 de febrero de 2007)

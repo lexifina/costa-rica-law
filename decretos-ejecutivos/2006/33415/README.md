@@ -14,3 +14,4 @@ Modifica al Centro Costarricense de Producción Cinematográfica, el gasto presu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2007-02-07 | Decreto Ejecutivo 33669 (2007-02-07) |
