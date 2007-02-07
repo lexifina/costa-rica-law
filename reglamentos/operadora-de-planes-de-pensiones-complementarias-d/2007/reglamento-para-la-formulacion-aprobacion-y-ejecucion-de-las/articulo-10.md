@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones finales
+Artículo 10.—Registro de las modificaciones presupuestarias en el Sistema de Información sobre Presupuestos Públicos (SIPP). La Gerencia deberá establecer las acciones pertinentes para el adecuado uso y actualización de los datos en el Sistema de Información sobre Presupuestos Públicos (SIPP) establecido por la Contraloría General de la República, para lo cual toda variación al presupuesto inicial deberá ser incluida en dicho sistema, según los lineamientos y procedimientos establecidos en la normativa que al efecto haya dictado o llegue a dictar el órgano contralor.

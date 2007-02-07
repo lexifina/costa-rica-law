@@ -1,0 +1,1 @@
+Artículo 2º—Límite de acción. El presupuesto de la Operadora constituye su límite de acción en el uso y disposición de sus recursos públicos y sólo podrá ser variado mediante los mecanismos que el ordenamiento jurídico prevé y que han sido aprobados previamente por la Contraloría General de la República dentro del campo específico de su competencia.

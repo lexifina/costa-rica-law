@@ -1,0 +1,1 @@
+Artículo 4º—Vigencia legal de las modificaciones presupuestarias. Las modificaciones presupuestarias tendrán efecto legal en el presupuesto, a partir de la aprobación por parte de la Junta Directiva, una vez se encuentre firme el acuerdo respectivo, o por parte de la Gerencia, dentro del ámbito de competencia que le define este Reglamento.

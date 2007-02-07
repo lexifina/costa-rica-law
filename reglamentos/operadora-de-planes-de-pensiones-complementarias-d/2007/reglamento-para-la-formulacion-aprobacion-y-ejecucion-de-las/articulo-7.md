@@ -1,0 +1,4 @@
+CAPÍTULO II
+Modificaciones presupuestarias
+Artículo 7º—Sobre las modificaciones presupuestarias. Toda modificación presupuestaria que realice la Operadora deberá ser sometida al trámite previo de aprobación por parte de su Junta Directiva o la Gerencia, dentro del ámbito de competencia que le define este Reglamento, mediante acto razonado y considerando la naturaleza, cuantía y origen de los recursos y el efecto de las variaciones en el cumplimiento de los objetivos y metas del plan anual operativo de la Operadora.
+En todo caso, el Departamento de Administración y Finanzas de la Operadora deberá mantener un archivo o expediente separado donde consten este tipo de acuerdos, accesible tanto a las instancias de control interno como a la Contraloría General de la República, para sus funciones de fiscalización posterior.
