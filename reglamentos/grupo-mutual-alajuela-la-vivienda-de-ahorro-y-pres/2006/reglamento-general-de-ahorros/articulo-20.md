@@ -1,0 +1,1 @@
+Artículo 20.—De la inembargabilidad de los saldos. Las cuentas de ahorro son inembargables hasta por la suma de ¢600.000,00 (seiscientos mil colones exactos), salvo en los casos de obligaciones alimentarias judicialmente impuestas y de créditos otorgados por el Grupo Mutual. Lo anterior según el artículo 95 de la Ley 7052 del Sistema Financiero Nacional para la Vivienda.
