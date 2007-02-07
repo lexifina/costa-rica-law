@@ -14,3 +14,4 @@ Modifica al Museo Nacional de Costa Rica, el gasto presupuestario máximo fijado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-04 | la propia norma |
+| 2 | 2007-02-07 | Decreto Ejecutivo 33620 (2007-02-07) |

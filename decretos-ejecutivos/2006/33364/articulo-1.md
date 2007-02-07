@@ -13,4 +13,5 @@ Considerando:
 8º—Que la señora Ministra Rectora del Sector Cultural, avala la solicitud planteada por el Museo Nacional de Costa Rica, en el oficio Nº DM-257-06 del 28 de junio del 2006.
 9º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo Nacional de Costa Rica para el año 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase al Museo Nacional de Costa Rica, el gasto presupuestario máximo para el año 2007, establecido en el artículo 1º del Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 del 30 de marzo del 2006, y sus reformas, de manera que éste no podrá exceder la suma de ¢1.026.070.000 colones (mil veintiséis millones setenta mil colones) en ese período.
+Artículo 1º—Modifícase al Museo Nacional de Costa Rica, el gasto presupuestario máximo para el año 2007, establecido en el artículo 1º del Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 del 30 de marzo del 2006, y sus reformas, de manera que éste no podrá exceder la suma de ¢1.171.070.000,00 colones (mil ciento setenta y un millones setenta mil colones sin céntimos), para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33620 del 7 de febrero de 2007)
