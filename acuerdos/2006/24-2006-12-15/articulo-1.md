@@ -84,7 +84,8 @@ solicitud ante el Jefe inmediato con una constancia emitida por el Departamento 
 8.6. El encargado de Oficina entregará también una copia de la “Solicitud de Vacaciones” (formulario F-126) al interesado, con el visto bueno correspondiente.
 DISPOSICIONES SOBRE SUSTITUCIONES 2007
 Lineamientos generales:
-9.1 Los servidores judiciales que laboran en plazas ordinarias podrán ser sustituidos, por cualquier motivo, siempre y cuando el período de sustitución sea mayor o igual a ocho días hábiles, y el Jefe del despacho considere necesaria tal medida.
+9.1 Los servidores judiciales que laboran en plazas ordinarias podrán ser sustituidos por cualquier motivo, siempre y cuando el período de sustitución sea mayor o igual a siete días hábiles y el Jefe del despacho considere necesaria tal medida.
+(Así reformado el punto anterior por circular 015-07 del 7 de febrero de 2007)
 9.2. Salvo los casos excepcionales aprobados por el Consejo Superior (puntos 9.5 y 9.6), sólo se realizarán sustituciones si el motivo inicial o bien la combinación de factores en forma continuada (incapacidades, vacaciones, permisos sin goce), sean iguales o mayores a 8 días hábiles.
 9.3. También podrán ser sustituidos los servidores judiciales que disfrutan de Permiso con Goce de Salario por Matrimonio, Nacimiento ó Defunción de conformidad con el artículo 44 de la Ley Orgánica del Poder Judicial.
 9.4. Podrán ser sustituidos los servidores que están con permisos sin goce de salario y suspensiones, independientemente del período que ello represente.
