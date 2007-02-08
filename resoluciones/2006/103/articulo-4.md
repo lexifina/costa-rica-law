@@ -1,0 +1,1 @@
+IV.—Los jerarcas y titulares subordinados relacionados con el proceso presupuestario del fideicomiso serán responsables del efectivo cumplimiento de estas directrices, en lo que les corresponda. Los funcionarios responsables que las incumplan injustificadamente estarán sujetos a los regímenes de responsabilidades y sanciones que se establecen en la normativa jurídica vigente.
