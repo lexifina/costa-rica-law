@@ -1,1 +1,0 @@
-Artículo 30.—Las becas que impliquen una erogación mayor de mil quinientos dólares exactos (US $1.500,00) deben contar para su aprobación con acuerdo de Junta Directiva. Dicho monto podrá ser revisado y modificado anualmente por este órgano director.
