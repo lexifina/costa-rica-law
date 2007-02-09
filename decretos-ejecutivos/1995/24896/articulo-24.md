@@ -1,2 +1,2 @@
-Artículo 24.-Consideración de las llegadas tardías.
-Las llegadas tardías serán consideradas como faltas leves, salvo en casos de reincidencia.
+Artículo 24.—Principio de excepción y eventualidad. El uso de tiempo extraordinario deberá ajustarse al principio de excepción y eventualidad, por lo tanto son improcedentes aquellas situaciones en que un solo funcionario labore en forma permanente la jornada ordinaria y una extraordinaria. En el caso de presentarse esta situación, el superior jerárquico inmediato deberá tomar las medidas correspondientes para que cese tal situación, de no hacerlo será el responsable directo ante el Estado del monto resultante de las jornadas extraordinarias que así se pagaren.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

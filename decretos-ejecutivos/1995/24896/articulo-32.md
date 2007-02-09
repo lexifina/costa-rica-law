@@ -1,5 +1,2 @@
-CAPITULO X
-De las promociones, traslados y permutas
-Artículo 32.-De los ascensos.
-Se considera ascenso la promoción a un puesto de grado superior.
-Sólo podrán efectuarse previa comprobación de la idoneidad del funcionario para desempeñar el puesto al que se propone ser ascendido.
+Artículo 32.—Verificación de las autorizaciones emitidas. La Dirección de Recursos Humanos, por medio de la Sección de Incentivos y Beneficios, podrá realizar verificaciones sobre la aplicación de las autorizaciones emitidas para laborar tiempo extraordinario. Sus recomendaciones serán de acatamiento obligatorio, siendo la Administración responsable por la aplicación de las mismas.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

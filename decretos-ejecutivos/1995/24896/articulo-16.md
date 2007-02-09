@@ -1,5 +1,6 @@
-Artículo 16.-Trabajo ejecutado fuera de la jornada laboral.
-Todo trabajo fuera de las jornadas laborales, durante días inhábiles, será reputado como extraordinario y se remunerará conforme a la ley. El Ministerio no reconocerá en ningún caso el trabajo extraordinario ejecutado sin autorización superior y con la aprobación previa de la Comisión de Recursos Humanos.
-Cuando no fuere posible realizar el pago en dinero, el trabajo extraordinario podrá compensarse en tiempo, proporcional a las horas laboradas por este concepto para lo cual se requerirá únicamente la aprobación previa del Oficial Mayor.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 25526 del 16 de setiembre de 1996).
+SECCIÓN II
+De la jornada extraordinaria
+Artículo 16.—Trabajo ejecutado fuera de la jornada laboral. Todo trabajo fuera de la jornada laboral, será reputado como extraordinario y se remunerará conforme a la ley. El tiempo extraordinario se refiere a aquellas tareas que son excepcionales, imperiosas y ocasionales, siendo que no existe otra alternativa que atenderlas transitoriamente fuera del tiempo ordinario de trabajo, sin que ello pueda convertirse en labores habituales y permanentes. El Ministerio no reconocerá en ningún caso el trabajo extraordinario ejecutado sin autorización de la Dirección General Administrativa.
+Cuando no fuere posible realizar el pago en dinero, el trabajo extraordinario podrá compensarse en tiempo, que será proporcional a las horas laboradas por ese concepto, para lo cual se requerirá únicamente la aprobación del Director General Administrativo, previo visto bueno del Jefe Inmediato del servidor, donde exponga detalladamente la justificación de las horas extraordinarias solicitadas.
 En ningún caso se considerarán horas extraordinarias las que el servidor ocupe para subsanar errores imputables sólo a él.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

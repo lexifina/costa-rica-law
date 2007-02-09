@@ -1,5 +1,4 @@
-CAPITULO VII
-De las llegadas tardías
-Artículo 22.-Como se computarán las llegadas tardías.
-Se establece como hora de entrada a laborar las ocho horas. Se computarán como llegadas tardías aquellas que excedan en cinco minutos la hora anteriormente indicada, sin que esto implique modificación de la jornada ordinaria de trabajo.
-Tratándose de las jornadas de trabajo especiales enunciadas en el artículo 12 de las llegadas tardías se computarán como tales cuando excedan en cinco minutos de la entrada fijada.
+Artículo 22.—Control. La Sección de Incentivos y Beneficios, será la que llevará el control del uso del tiempo extraordinario aprobado para cada dependencia del Ministerio.
+Después de cada liquidación presentada, está Sección le comunicará a cada una de las dependencias autorizadas, el saldo de las horas de tiempo extraordinario que le restan, así como el saldo del contenido económico que aún puede utilizar proyectado en los siguientes meses.
+En todo caso, por cualquier razón, el dinero de la partida presupuestaria asignada para pagar tiempo extraordinario se agotara, a pesar que resten horas del tiempo extraordinario aprobado previamente, la Sección de Incentivos y Beneficios le comunicará a la dependencia afectada, para que se abstenga de autorizar horas extras fuera de la jornada ordinaria de trabajo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

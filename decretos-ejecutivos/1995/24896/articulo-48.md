@@ -1,2 +1,3 @@
-Artículo 48.-De las faltas leves y graves.
-Dependiendo del grado de la falta en que incurra el servidor, éstas podrán ser sancionadas, con amonestación verbal, apercibimiento escrito, suspensión de trabajo sin goce de salario hasta por quince días, despido sin responsabilidad patronal. La enunciación anterior no implica que la aplicación de la sanción debe obedecer al orden señalado, sino que dependerá de las circunstancias de hecho y derecho relacionadas con la falta; salvo que la misma tenga una sanción específica en este Reglamento, Código de Trabajo y demás normas vigentes del ordenamiento. En la aplicación de la sanción se atenderá siempre al criterio de justicia y proporcionalidad.
+Artículo 48.-De los incrementos salariales.
+En todos aquellos casos en que el salario de los servidores deba ser incrementado, la Dirección de Recursos Humanos será la responsable de ejecutar las gestiones pertinentes para que éste se haga en forma oportuna.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 31 al 48 actual del artículo)

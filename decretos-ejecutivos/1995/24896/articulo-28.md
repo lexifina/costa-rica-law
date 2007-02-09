@@ -1,4 +1,2 @@
-CAPITULO IX
-De los salarios y categorías
-Artículo 28.-Regulación de los salarios.
-Los salarios de los servidores del Ministerio se regirán por la Ley de Presupuesto de la República, Ley de Salarios de la Administración Pública y demás disposiciones normativas aplicables.
+Artículo 28.—Jornada extraordinaria en días inhábiles. Cuando se labore jornada extraordinaria en días feriados, sábados y domingos, el pago de dicha jornada se realizará de la siguiente forma: la jornada ordinaria (ocho horas) se pagará de forma sencilla, y la hora extraordinaria se pagará de forma doble.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

@@ -1,0 +1,2 @@
+Artículo 78.-En un plazo no mayor de treinta días naturales, contados desde la interposición de la denuncia, el Órgano Director emitirá el informe que trasladará al Viceministro, con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva, dentro de un plazo de tres días hábiles.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 61 al 78 actual del artículo) .

@@ -1,3 +1,8 @@
-Artículo 19º- De las omisiones de marca.
-La omisión de marca de entrada o de salida a las jornadas de trabajo, hará presumir la inasistencia del servidor a la jornada correspondiente, lo cual acarrear la reducción salarial en todos los casos y, además, se sancionar del modo siguiente: Por dos, amonestación escrita Por tres, suspensión por un día Por cuatro, suspensión por dos días Por cinco, suspensión por cuatro días Por seis, suspensión por ocho días Por siete, suspensión por diez días Por ocho, suspensión por quince días Por mas de ocho, despido sin responsabilidad patronal.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 29131 del 18 de enero del 2001).
+Artículo 19.—Requisitos para aprobar tiempo extraordinario. Toda solicitud de reconocimiento de jornada extraordinaria pagadera en dinero, deberá ser tramitada para su estudio y aprobación ante la Dirección General Administrativa, a más tardar en la primera semana del mes de diciembre de cada año, y debe incluir la autorización del Director y del Jefe Inmediato al que pertenece la dependencia, y deberá cumplir los siguientes requisitos:
+a) Indicar la justificación por la cual se requiere el trabajo.
+b) Señalar la cantidad de horas extraordinarias solicitadas por mes, indicando las clases de puestos o cargos que ocupan los funcionarios que participarán en el trabajo.
+c) Indicar el período de duración del trabajo.
+d) Indicar si los funcionarios que laborarán jornada extraordinaria perciben o no sobresueldo por concepto de disponibilidad.
+La autorización y pago de jornada extraordinaria a los servidores que perciben compensación económica por “disponibilidad” es improcedente.
+La Dirección General Administrativa requerirá de la Dirección de Recursos Humanos la certificación en la que se señale la suma del contenido económico aprobado en la Ley de Presupuesto del año siguiente en la partida correspondiente al pago del tiempo extraordinario.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

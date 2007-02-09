@@ -1,0 +1,2 @@
+Artículo 82.-EI resultado de la evaluación del desempeño, será un factor por considerar, aparte de la eficiencia, para efectos de adiestramiento y capacitación, ascensos, concesión de permisos y en la reducción forzosa de personal, entre otros.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 65 al 82 actual del artículo)

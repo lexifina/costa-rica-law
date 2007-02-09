@@ -1,2 +1,2 @@
-Artículo 27.-Obligación del servidor de dar aviso cuando no pueda presentarse a laborar.
-En todos los casos, el servidor deberá notificar a su jefe inmediato lo antes posible, verbalmente o por escrito, las causas que le impiden asistir a su trabajo. Por ninguna razón salvo fuerza mayor, deberá esperar hasta el segundo día para justificarlo.
+Artículo 27.—Máximo de la jornada extraordinaria. La jornada ordinaria sumada a la extraordinaria deberá ser hasta de doce horas diarias según lo dispuesto por el artículo 140 del Código de Trabajo, por lo tanto el máximo por laborar en jornada extraordinaria será hasta de 4 horas diarias. Únicamente se podrá hacer efectivo el pago de horas extras laboradas dentro del marco legal vigente y hasta por la jornada máxima autorizada por ley.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

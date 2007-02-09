@@ -1,2 +1,3 @@
-Artículo 60.-Se dará traslado de la denuncia a la persona denunciada, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos.
-Si el denunciado no ejerce su defensa se continuará con el proceso hasta el dictado de la resolución, por parte del Órgano Director.
+Artículo 60.-De las licencias para adiestramiento.
+Todo servidor que asista a un curso de adiestramiento con goce de salario cuya duración sea igual o superior a un mes, estará obligado a rendir un informe a la Unidad de Capacitación y Eficiencia Administrativa. En aquellos casos en que el curso supere los tres meses, deberá suscribirse un contrato entre el servidor y el Ministerio. La autorización de participación en seminarios, congresos, inferiores a tres meses por parte de los funcionarios será concedida por el señor Ministro y podrá ser con goce de sueldo, si así lo justifica la conveniencia del servicio público.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 43 al 60 actual del artículo) .

@@ -1,2 +1,3 @@
-Artículo 53.-De las pólizas por riesgo del trabajo.
-Los servidores estarán protegidos por una póliza de riesgo profesional.
+Artículo 53.-De las labores de los servidores que se encuentran de vacaciones.
+Las tareas de los servidores que se encuentran gozando de vacaciones, así como de aquellos que no asisten a sus labores por enfermedad o licencia con goce de sueldo, serán encomendadas al resto del personal sin derecho a remuneración adicional, siempre que fueren compatibles con las funciones propias a su cargo, sus aptitudes o condiciones y no implique recargo excesivo de t!,abajo. Bajo ninguna circunstancia deberá acumularse trabajo para ser asignado a su regreso a los servidores, durante el período que se encuentren disfrutando de sus vacaciones.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 36 al 53 actual del artículo)

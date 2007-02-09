@@ -1,1 +1,12 @@
-Artículo 61.-En un plazo no mayor de treinta días naturales, contados desde la interposición de la denuncia, el Órgano Director emitirá el informe que trasladará al Viceministro, con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva, dentro de un plazo de tres días hábiles.
+CAPITULO XIII
+Del régimen disciplinario y las sanciones
+Artículo 61.-De las llegadas tardías.
+Las llegadas tardías injustificadas mayores a cinco minutos, que no excedan de veinte minutos, computadas en un mismo mes calendario se sancionará en la siguiente forma:
+Por tres amonestación escrita.
+Por cuatro suspensión por un día
+Por cinco suspensión por dos días.
+Por seis suspensión por cuatro días.
+Por siete suspensión por ocho días.
+Por ocho o más despido sin responsabilidad patronal.
+Las sanciones disciplinarias que puedan aplicarse por llegadas tardías, deberán ser impuestas en el mes siguiente contado a partir del último día del mes en que se cometió la falta.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 44 al 61 actual del artículo) .

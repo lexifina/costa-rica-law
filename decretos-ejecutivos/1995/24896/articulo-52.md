@@ -1,12 +1,8 @@
-CAPITULO XIV
-De la seguridad e higiene
-Artículo 52.-De las medidas de seguridad.
-El Ministerio debe adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de sus servidores, conforme lo establece la ley y las recomendaciones que en esta materia formulen tanto el Consejo de Salud Ocupacional como las autoridades de Inspección del Ministerio de Trabajo y Seguridad Social; Ministerio de Salud e Instituto Nacional de Seguros, que garanticen:
-a) La prevención de los riesgos del trabajo.
-b) La protección de la salud y la preservación de la integridad física, moral y social de los servidores.
-c) Mantener en estado adecuado lo relativo a:
-- Edificaciones e instalaciones
-- Condiciones ambientales
-- Operaciones y procesos de trabajo
-- Suministro, uso y mantenimiento de equipo de protección general
-Deberá asimismo promover la capacitación del personal en materia de higiene y seguridad ocupacional.
+CAPITULO XI
+De las vacaciones
+Artículo 52.-Duración de las vacaciones.
+Todo servidor del Ministerio disfrutará de una vacación anual de conformidad con lo siguiente:
+a) Los que hubieren trabajado para el Ministerio menos de cinco años disfrutarán de quince días hábiles.
+b) Los que hubieren trabajado de cinco a diez años, veinte días hábiles, y
+c) Los que hubieren trabajado después de diez años, un mes.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 35 al 52 actual del artículo)

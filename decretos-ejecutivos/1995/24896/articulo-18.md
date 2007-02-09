@@ -1,2 +1,2 @@
-Artículo 18.-De las marcas de asistencia.
-Las tarjetas de registro de asistencia se marcarán en el reloj marcador que la administración facilitará para tal efecto, el cual estará en perfecto estado de funcionamiento o en el libro de registro de asistencia. Las mismas deberán ser hechas con el debido cuidado, de manera que queden impresas con claridad. Aquellas marcas confusas por causas atribuibles al servidor se tendrán por no hechas.
+Artículo 18.—Responsabilidad. En aquellos casos en que a pesar de la ausencia de autorización, se realizara trabajo en tiempo extraordinario, generará responsabilidad para el funcionario que autorizó el trabajo, si no existe la justificación correspondiente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

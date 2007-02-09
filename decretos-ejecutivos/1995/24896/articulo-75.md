@@ -1,0 +1,2 @@
+Artículo 75.-La persona ofendida podrá poner en consideración del Órgano Instructor su reubicación temporal en la Institución en cualquier momento del proceso. El Órgano Director del procedimiento resolverá en única instancia la procedencia de la reubicación temporal solicitada.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 58 al 75 actual del artículo)

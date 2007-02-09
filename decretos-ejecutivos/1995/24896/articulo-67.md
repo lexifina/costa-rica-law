@@ -1,2 +1,8 @@
-Artículo 67.-Las peticiones, quejas o reclamos, deberán formularse ante el respectivo jefe o ante el superior del mismo cuando la naturaleza del asunto así lo requiera. Las gestiones deben ser hechas por escrito; pero podrán hacerse verbalmente cuando así lo exija la urgencia del hecho, o cuando por la menor importancia de este justifique tal procedimiento. Todo de conformidad con el procedimiento previsto en el Reglamento del Estatuto de Servicio Civil.
-Una vez agotado el anterior procedimiento y la vía administrativa en el Ministerio, si el servidor persistiere en su reclamación podrá establecer el reclamo ante el Tribunal de Servicio Civil.
+Artículo 67.-Del abandono de trabajo.
+Se considera abandono del trabajo el hacer dejación del mismo, sin causa justificada, dentro de la respectiva jornada. Para estos efectos no es necesario que el servidor salga del lugar donde presta sus servicios, basta que en forma evidente abandone la labor que le ha sido encomendada. El abandono injustificado del trabajo acarreará:
+a) Primera vez, amonestación escrita (advertencia).
+b) Segunda vez, suspensión por quince días.
+c) Tercera vez, despido sin responsabilidad patronal.
+No obstante lo anterior se podrá aplicar las sanciones indicadas en el inciso b) o c) la primera vez, cuando el abandono de trabajo por parte del servidor ponga en peligro los bienes o vidas de las personas o cause serios perjuicios en la prestación del servicio.
+La agravación de la sanción por las faltas que se produzcan de conformidad con el presente artículo deberán computarse para efectos de sanción dentro de un período de tres meses.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 50 al 67 actual del artículo) .

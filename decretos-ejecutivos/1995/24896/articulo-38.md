@@ -1,2 +1,3 @@
-Artículo 38.-De las vacaciones proporcionales.
-En casos de urgente necesidad podrá el servidor que así lo solicite y fundamente, disfrutar de vacaciones antes de completar el período, en proporción al tiempo de trabajo servido. El jefe inmediato resolverá sobre la petición anterior, considerando las razones alegadas por el funcionario y las necesidades del servicio. Si la solicitud fuere denegada el servidor podrá recurrir ante el señor Viceministro, quién como superior jerárquico inmediato de todo el personal del Ministerio resolverá en definitiva el asunto.
+Artículo 38.-Del servidor que por error marque una tarjeta que no le corresponde.
+El servidor que por error marque una tarjeta que no le corresponde, deberá reportar su error a más tardar en la siguiente fracción de la jornada laboral en que el hecho sucedió a fin de no hacerse acreedor de sanción alguna.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 21 al 38 actual del artículo).

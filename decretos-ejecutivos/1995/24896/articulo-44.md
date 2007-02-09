@@ -1,11 +1,3 @@
-CAPITULO XIII
-Del régimen disciplinario y las sanciones
-Artículo 44.-De las llegadas tardías.
-Las llegadas tardías injustificadas mayores a cinco minutos, que no excedan de veinte minutos, computadas en un mismo mes calendario se sancionará en la siguiente forma:
-Por tres amonestación escrita.
-Por cuatro suspensión por un día
-Por cinco suspensión por dos días.
-Por seis suspensión por cuatro días.
-Por siete suspensión por ocho días.
-Por ocho o más despido sin responsabilidad patronal.
-Las sanciones disciplinarias que puedan aplicarse por llegadas tardías, deberán ser impuestas en el mes siguiente contado a partir del último día del mes en que se cometió la falta.
+Artículo 44.-Obligación del servidor de dar aviso cuando no pueda presentarse a laborar.
+En todos los casos, el servidor deberá notificar a su jefe inmediato lo antes posible, verbalmente o por escrito, las causas que le impiden asistir a su trabajo. Por ninguna razón salvo fuerza mayor, deberá esperar hasta el segundo día para justificarlo.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 27 al 44 actual del artículo)

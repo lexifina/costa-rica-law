@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública
 | 4 | 1997-11-10 | Decreto Ejecutivo 26946 (1997-11-10) |
 | 5 | 2000-01-18 | Decreto Ejecutivo 29131 (2000-01-18) |
 | 6 | 2001-10-25 | Decreto Ejecutivo 29994 (2001-10-25) |
+| 7 | 2007-02-09 | Decreto Ejecutivo 33649 (2007-02-09) |

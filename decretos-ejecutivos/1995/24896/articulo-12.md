@@ -1,5 +1,6 @@
 CAPITULO VI
-De la jornada de trabajo y del control de asistencia
+De la jornada de trabajo, de la jornada extraordinaria y del control de asistencia
+(Así reformado el epígrafe anterior por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007)
 SECCION I
 La jornada de trabajo
 Artículo 12.-De la jornada de trabajo para los servidores.

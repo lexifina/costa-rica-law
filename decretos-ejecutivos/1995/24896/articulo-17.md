@@ -1,4 +1,5 @@
-SECCION II
-Del registro de asistencia
-Artículo 17.-Como se llevará el Registro de Asistencia.
-En los centros de trabajo se llevará un registro de asistencia adecuado de los servidores, por medio de un sistema computarizado, tarjetas o de libros, en los cuales se registrará la hora de ingreso y salida de la jornada laboral.
+Artículo 17.—Solicitud para laborar tiempo extraordinario. Las direcciones, departamentos y cualquier otra dependencia del Ministerio de Seguridad Pública deberán solicitar de forma previa a la Dirección General Administrativa, la autorización correspondiente para que en ellas se labore tiempo extraordinario.
+La cantidad de horas extraordinarias que se autoricen por parte de la Dirección General Administrativa para el respectivo año deberá contar con el contenido económico suficiente para cubrir su erogación y se calculará con base en el monto autorizado mediante Ley de Presupuesto para el ejercicio económico correspondiente. Para la autorización de horas extras se deberá tomar en cuenta el informe de liquidación de tiempo extraordinario del período anterior, mismo que elaborará la Sección de Incentivos y Beneficios.
+La jornada extraordinaria no puede brindarse si no se cuenta con la citada autorización, misma que rige a partir de la fecha en que haya sido aprobada. Resulta improcedente la autorización del pago en dinero de tiempo extraordinario ya laborado
+Sin embargo, en situaciones muy especiales, así calificadas por el Jefe Inmediato con la aprobación del respectivo Director de la dependencia, los responsables podrán autorizar jornada extraordinaria ya laborada, pero el reconocimiento se hará con tiempo compensatorio, de conformidad con lo dispuesto en el artículo 16, segundo párrafo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33649 del 9 de febrero de 2007).

@@ -1,2 +1,10 @@
-Artículo 71.-De las derogarías.
-El presente reglamento deroga el Reglamento Interior de Trabajo del Ministerio de Seguridad Pública aprobado por la Inspección General de Trabajo el 9 de setiembre de 1954.
+Artículo 71.-De los accidentes de trabajo.
+Los riesgos profesionales son los accidentes y enfermedades que ocurran a los servidores, con ocasión o por consecuencia de la labor que desempeñe en forma subordinada o remunerada, así como la agravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes y enfermedades.
+Por accidentes de trabajo se entiende todo accidente que le sucede al servidor como causa de la labor que ejecuta o como consecuencia de esta durante el tiempo que permanece bajo la dirección y dependencia del patrono, o sus representantes y que pueden producirle la muerte, pérdida o reducción temporal o permanente de la capacidad para el trabajo.
+También se calificará de accidente de trabajo, el que ocurra al servidor en las siguientes circunstancias:
+a) En el trayecto de la residencia al centro de trabajo y viceversa, cuando el recorrido efectuado no haya sido interrumpido o variado por motivo de su interés personal, siempre que el patrono proporcione directamente o pague el transporte; igualmente cuando en el acceso al centro de trabajo deba afrontarse peligro de naturaleza especial que se considere inherentes al trabajo mismo
+En todos los demás casos de accidentes en el trayecto, cuand recorrido que efectué el servidor no haya variado por inte personal de este, las prestaciones que se cubran serán aquellas estipuladas en el Código de Trabajo y que no hayan sido otorgadas por otros Regímenes de Seguridad Social, parcial o totalmente.
+b) En el cumplimiento de órdenes superiores, o en la prestación de un servicio bajo su autoridad, aunque el accidente ocurra fuera de lugar de trabajo y después de finalizar la jornada.
+c) En el caso de una interrupción del trabajo antes de empezarlo o después de terminarlo, si el servidor se encontrare en el lugar de trabajo o en el local de la empresa, establecimiento o explotación con el consentimiento expreso o tácito del patrono o de sus superiores.
+d) En cualquiera de los eventos que define el inciso c) del artículo 71 del Código de Trabajo.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 54 al 71 actual del artículo)

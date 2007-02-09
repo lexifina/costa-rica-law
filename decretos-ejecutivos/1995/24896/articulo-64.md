@@ -1,3 +1,3 @@
-CAPITULO XVI
-De la evaluación del desempeño
-Artículo 64.-Los servidores deberán ser evaluados en la forma que prescribe el Reglamento del Estatuto de Servicio Civil y demás normativa aplicable, con el fin de evaluar cada uno de los factores que se incluyen en el desempeño general del servicio.
+Artículo 64.-De la justificación de ausencia para efectos disciplinarios.
+Para los casos no contemplados en este Reglamento, queda a juicio del superior justificar ausencias no superiores a un día que no sean por enfermedad comprobada y sin que ello signifique la obligación al pago del salario.
+(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 47 al 64 actual del artículo) .
