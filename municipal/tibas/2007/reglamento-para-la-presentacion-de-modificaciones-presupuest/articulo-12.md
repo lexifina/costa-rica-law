@@ -1,0 +1,1 @@
+Artículo 12.—Para cada modificación presupuestaria, se debe aportar una justificación del departamento correspondiente que solicita el cambio de los recursos, mediante la cual se razone la necesidad del cambio

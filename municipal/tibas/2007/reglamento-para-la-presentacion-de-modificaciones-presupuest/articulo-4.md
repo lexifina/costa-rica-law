@@ -1,0 +1,1 @@
+Artículo 4º—Mecanismo de variación al presupuesto. Las modificaciones presupuestarias constituyen los mecanismos legales y técnicos para realizar los aumentos, traslados o disminuciones de los montos de ingresos y egresos aprobados en el presupuesto por parte de la instancia competente, acatando para ello el bloque de legalidad que les aplica.
