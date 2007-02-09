@@ -1,0 +1,1 @@
+Artículo 4º—Características generales de los servicios. Los servicios de verificación de la calidad se harán principalmente a través de ensayos a materiales, relacionados a los parámetros establecidos como “parámetros de evaluación”, asociados al pago. Además realizará otros ensayos que definirá a discreción.

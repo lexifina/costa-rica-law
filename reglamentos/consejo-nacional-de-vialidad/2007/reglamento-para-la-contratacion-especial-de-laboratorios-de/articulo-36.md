@@ -1,0 +1,1 @@
+Artículo 36.—La oferta del Organismo de Ensayo. La respuesta por parte del Organismo de Ensayo, sea esta de aceptación o rechazo justificado de lo requerido por el CONAVI, deberá venir debidamente firmada por el representante legal de este. En caso de respuesta positiva se entenderá que la oferta tendrá una vigencia de 15 días hábiles.

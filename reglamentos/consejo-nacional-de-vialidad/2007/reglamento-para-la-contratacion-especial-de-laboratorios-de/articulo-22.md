@@ -1,0 +1,1 @@
+Artículo 22.—Vigencia de la Inscripción. La inscripción en el Registro de Elegibles tendrá vigencia desde la recepción a satisfacción de los documentos por la Proveeduría del CONAVI (unidad de trámite y control) hasta la vigencia del Reglamento, que es por un período inicial de doce meses contados a partir del momento en que inicien las contrataciones.

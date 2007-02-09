@@ -1,0 +1,10 @@
+Artículo 12.—Antecedentes del ORGANISMO DE ENSAYO. La Proveeduría , una vez aprobados los documentos de inscripción al Registro de Elegibles para prestar servicios de verificación de la calidad de proyectos viales formará un expediente debidamente foliado.
+El expediente estará integrado por cada uno de los documentos aportados por el Organismo de Ensayo en forma consecutiva y que se encuentran definidos en el capítulo IV de este Reglamento. Asimismo le asignará un código a cada expediente, en forma consecutiva de acuerdo con la fecha de recepción de la documentación completa. El número código de ingreso al registro se asignará una vez que se confirme que el oferente cumple con todos los requisitos establecidos.
+La Administración estará en la obligación de mantener integrado y activo el Registro de Elegibles durante el plazo contractual de los contratos de conservación vial de la Red Vial Nacional. El expediente de esta contratación puede ser consultado en la Proveeduría.
+De las solicitudes para integrar este Registro de Elegibles, en cada expediente se incluirá al menos la siguiente información:
+a) Información general del Organismo de Ensayo (nombre o razón social, domicilio exacto, teléfono, faxsímil; entre otros).
+b) Requisitos en orden legal (certificaciones notariales o consulares, declaraciones juradas, documentos públicos o privados -según corresponda- de mandatos o poderes otorgados; entre otros), los cuales deberán contar con la valoración de la Asesoría Legal del CONAVI.
+c) Requisitos de orden técnico.
+d) Información sobre resoluciones sancionadoras aplicadas (número y fecha de resolución, fecha de notificación, fecha de vencimiento de la sanción, parte dispositiva de la resolución, trámite de contratación asociado, órgano que emite).
+e) Documentos presentados por el Organismo de Ensayo (certificado(s) de acreditación, alcance de la acreditación, constancias de experiencia, literatura de tipo técnico sobre lo que ofrece; entre otros).
+f) Cualquier otra información o aspecto que resulte de interés administrativo y se estime importante anexar al expediente.

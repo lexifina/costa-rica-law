@@ -1,0 +1,1 @@
+Artículo 32.—Conformación del expediente de contratación directa autorizada. Tomada la decisión de adoptar este procedimiento por parte de la Dirección Ejecutiva , se procederá a formar el expediente administrativo de la contratación directa autorizada a cargo de la Proveeduría. Estos expedientes se identificarán con las siglas CDA y llevarán una numeración consecutiva.

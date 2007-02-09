@@ -1,0 +1,1 @@
+Artículo 44.—Antes a iniciar las labores de verificación de la calidad, el Organismo de Ensayo deberá presentar el plan de muestreo aleatorio en centro de producción y en campo, para todos los contratos de conservación vial a su cargo, mismo que deberá ser aprobado por la unidad encargada de verificar el cumplimiento contractual.

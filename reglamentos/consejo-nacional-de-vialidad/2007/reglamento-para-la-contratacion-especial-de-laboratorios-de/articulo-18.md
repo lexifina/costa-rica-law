@@ -1,0 +1,1 @@
+Artículo 18.—Conformación de la base de datos. Firme la aprobación de las solicitudes respectivas, la Proveeduría procederá a conformar la Base de Datos del Registro Elegibles de Organismos de ensayo para prestar servicios de verificación de la calidad de los proyectos de conservación vial de la Red Vial Nacional.

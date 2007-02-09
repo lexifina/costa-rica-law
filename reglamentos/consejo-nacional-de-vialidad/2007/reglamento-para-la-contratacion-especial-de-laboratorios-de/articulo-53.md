@@ -1,0 +1,1 @@
+Artículo 53.—El Organismo de Ensayo revisará a través de su laboratorio permanente sus laboratorios ubicados en instalaciones temporales al menos en una relación de 1 de cada 5 ensayos, y al menos 3 al mes por planta de producción de MAC. Deberán reportar dichos resultados a la Unidad de Inspección.

@@ -1,0 +1,1 @@
+Artículo 49.—El informe mensual debe contener todos los resultados de las muestras extraídas o tomadas en el campo como en la planta de producción, tanto de los “parámetros de evaluación” asociados al pago, como de los “parámetros de aceptación”. Los dos anteriores de conformidad con las indicaciones de la Dirección de Conservación Vial.

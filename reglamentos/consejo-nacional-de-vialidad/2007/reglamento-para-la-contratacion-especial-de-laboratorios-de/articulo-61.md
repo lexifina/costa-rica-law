@@ -1,0 +1,3 @@
+Artículo 61.—Resultado de la Evaluación : La evaluación del Organismo de Ensayo de servicios de verificación de la calidad será aceptable cuando en cuatro de los cinco aspectos que valora la unidad encargada de verificar el cumplimiento contractual, el resultado sea CUMPLE. Caso contrario el Resultado de la Evaluación será INCUMPLE.
+Si el resultado de Evaluación del Desempeño fuera INCUMPLE en tres de cuatro evaluaciones sucesivas, el Organismo de Ensayo será excluido del Registro por el período de 1 (un) año; al cabo del cual deberá gestionar nuevamente su incorporación.
+Una vez que reingrese, si obtuviere un Resultado en su Evaluación del Desempeño de INCUMPLE, se dará el apercibimiento

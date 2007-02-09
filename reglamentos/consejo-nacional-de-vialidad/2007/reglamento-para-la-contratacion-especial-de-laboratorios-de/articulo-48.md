@@ -1,0 +1,1 @@
+Artículo 48.—Los informes mensuales de verificación de la calidad deben ser remitidos a la Dirección de Conservación Vial. Los informes semanales pueden ser enviados vía electrónica o fax en una tabla resumen que deberá contener entre otras cosas: número de muestra, tipo y resultados de los ensayos.

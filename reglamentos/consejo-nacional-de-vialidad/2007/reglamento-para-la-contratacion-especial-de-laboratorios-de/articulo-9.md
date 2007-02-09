@@ -1,0 +1,1 @@
+Artículo 9º—Reglamento Aplicable: Para el procedimiento de contratación (Sistema Especial de Contratación) regulado en este Reglamento, se regirá por todos los principios constitucionales y legales en materia de contratación Administrativa, así como las prohibiciones y requisitos de Ley.
