@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Coto Brus
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-29 | la propia norma |
+| 2 | 2007-02-10 | Reglamento municipal 41 (2007-02-10) |
