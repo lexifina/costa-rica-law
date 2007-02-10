@@ -1,2 +1,2 @@
-Artículo 3º—Ningún pago por Caja Chica podrá ser mayor a la suma de ¢ 20.000,00 (veinte mil colones)
-(Así reformado en sesión N° 15 del 18 de julio de 1998 y se establece un reintegro al 80%)
+Artículo 3º—Ningún pago por Caja Chica podrá ser mayor a la suma de ¢ 100.000,00 (cien mil colones)
+(Así reformado en sesión N° 041 del 10 de febrero de 2007)
