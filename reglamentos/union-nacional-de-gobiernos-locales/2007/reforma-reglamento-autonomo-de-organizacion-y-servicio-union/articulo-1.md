@@ -1,0 +1,7 @@
+UNIÓN NACIONAL DE GOBIERNOS LOCALES
+PROYECTO DE REFORMA AL ARTÍCULO 132 DEL REGLAMENTO
+AUTÓNOMO DE ORGANIZACIÓN Y SERVICIO DE LA UNIÓN
+NACIONAL DE GOBIERNOS LOCALES
+Artículo 132.—Los funcionarios con grado académico profesional podrán acogerse a cualquier plus salarial contemplado dentro de otros regímenes de la institución, tales como carrera administrativa, carrera profesional, prohibición, dedicación exclusiva, entre otras, siempre que éstos existan y estén reguladas reglamentariamente las condiciones para su otorgamiento según las disposiciones legales vigentes en la materia. En todo caso, será potestad de la administración el otorgar o no esos beneficios, excepto en el caso específico de la prohibición.
+Tratándose del régimen de disponibilidad del servicio sin sujeción a horario, será aplicado a los funcionarios en general, profesionales o no, según las necesidades y la libre disposición requerida por el superior jerárquico, previo informe técnico elaborado por la Dirección Ejecutiva, que contemple las condiciones y justificaciones para su otorgamiento. En todo caso, este plus será del veinticinco por ciento del salario base del funcionario.
+San José, 2 de febrero del 2007.
