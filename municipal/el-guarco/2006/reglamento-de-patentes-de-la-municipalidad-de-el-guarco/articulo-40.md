@@ -1,0 +1,1 @@
+Artículo 40.—Las personas físicas o jurídicas, que se dediquen al ejercicio de cualquier tipo de actividades lucrativas en el cantón de El Guarco, deberán entregar antes del 5 de diciembre de cada año, una declaración jurada de sus ingresos brutos. Con base a esta información se calculará el impuesto a pagar. Para tal efecto la Municipalidad entregará los respectivos formularios.

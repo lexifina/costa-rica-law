@@ -1,0 +1,1 @@
+Articulo 46.—Aquellas personas físicas o jurídicas, que para efecto del impuesto sobre la renta tengan responsabilidades separadas pero que operen en un mismo establecimiento, deberán presentar una declaración separada para efectos del impuesto de patente.

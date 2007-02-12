@@ -1,0 +1,1 @@
+Artículo 20.—La Licencia que otorgue el Departamento Patentes y la Alcaldía Municipal quedará condicionada a los requisitos y plazos que establezcan los permiso (s) de funcionamiento requeridos en el artículo anterior.

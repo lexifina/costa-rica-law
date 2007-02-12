@@ -1,0 +1,1 @@
+Artículo 5º—El impuesto de patentes, se cancelará por adelantado y por períodos trimestrales. El atraso en la cancelación generará intereses moratorias que se calcularán según el Código de Normas y Procedimientos tributarios. (artículo 69 del Código Municipal)

@@ -1,0 +1,1 @@
+Artículo 6º—El impuesto de patente se pagará durante el tiempo que se haya tenido el establecimiento abierto o ejercido el comercio en forma ambulante y durante el tiempo en que se haya poseído la licencia, aunque la actividad no se hubiera realizado. (Artículo 79 Código Municipal).

@@ -1,0 +1,1 @@
+Artículo 45.—Si el patentado no presentara la declaración jurada en el término que indica la ley, la Administración procederá a calificarlo conforme a los procedimientos establecidos en el artículo 10 de la Ley 7323.

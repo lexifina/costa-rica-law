@@ -1,0 +1,1 @@
+Artículo 64.—Las gestiones de cobro que sobre sus cuentas lleve la Sección de Patentes se regirán mediante el Reglamento para el Procedimiento de Cobro Administrativo y Judicial de la Municipalidad de El Guarco.

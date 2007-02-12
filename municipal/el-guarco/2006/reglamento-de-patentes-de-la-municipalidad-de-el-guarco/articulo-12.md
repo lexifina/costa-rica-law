@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde, conjuntamente, al Departamento de Patentes y a la Alcaldía Municipal aprobar o denegar las solicitudes de licencia presentadas; las cuales deberán resolverse dentro de los 30 días naturales siguientes a su presentación, período dentro del cual se hará todo tipo de aclaraciones. (Artículo 80 del Código Municipal).

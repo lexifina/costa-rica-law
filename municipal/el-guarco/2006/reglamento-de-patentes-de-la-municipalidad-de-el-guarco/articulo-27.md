@@ -1,0 +1,1 @@
+Artículo 27.—Ningún traslado o traspaso de licencias municipales, incluso la venta de licores afectará los intereses municipales hasta tanto no sea aceptado por la Administración, si el nuevo local reúne los requisitos exigidos y si ambas partes están al día en el pago de las tasas, contribuciones e impuestos municipales.

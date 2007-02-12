@@ -1,0 +1,1 @@
+Artículo 72.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá los seis meses calendario, contados a partir de la firma del documento respectivo. El momento en que se acepta el arreglo de pago deberá cancelarse el 50% del total de la deuda.

@@ -1,0 +1,1 @@
+Artículo 7º—Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan actividades conjuntamente varias sociedades o personas físicas o personas jurídicas, el monto del impuesto lo determinará la suma del impuesto que corresponde a cada uno individualmente. Se deberá presentar la respectiva declaración jurada.

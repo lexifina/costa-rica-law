@@ -1,0 +1,1 @@
+Artículo 43.—Toda declaración queda sujeta a revisión y comprobación de los datos en ella indicados. Si la Administración comprueba por cualquier medio que los datos suministrados son incorrectos, procederá a realizar la recalificación correspondiente.

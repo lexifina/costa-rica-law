@@ -1,0 +1,1 @@
+Articulo 24.—Las resoluciones de la administración que ordene la cancelación de la licencia y la clausura del negocio por el vencimiento o por revocatoria de permisos de funcionamiento, no tendrán recurso alguno.

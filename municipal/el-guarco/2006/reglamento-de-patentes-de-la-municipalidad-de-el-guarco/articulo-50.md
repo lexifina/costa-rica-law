@@ -1,0 +1,1 @@
+Artículo 50.—Las actividades nuevas surgidas en el año, deberán ser tasadas de acuerdo con los procedimientos establecidos para las recalificaciones, siempre que ello fuere posible. Podrán también aplicarse el criterio de la analogía para tales actividades.

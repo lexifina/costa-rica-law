@@ -1,0 +1,1 @@
+Artículo 69.—La oficina de cobros deberá rendir un informe trimestral a la Alcaldía con copia al Concejo Municipal sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentran las acciones de cada gestión a la fecha.

@@ -1,0 +1,1 @@
+Artículo 47.—Aquellas personas físicas o jurídicas cuya actividad está distribuida en uno o más cantones y que por tal motivo estén sujetas al pago de patentes en otras municipalidades, deberán determinar que proporción o volumen de sus negocios se genera en el Cantón de El Guarco.

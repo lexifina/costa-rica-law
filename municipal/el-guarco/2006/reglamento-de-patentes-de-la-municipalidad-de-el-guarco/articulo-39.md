@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad deberá suministrar a los patentados a partir del mes de octubre de cada año el formulario y la información necesaria para que pueda presentar la declaración a que se refiere el artículo anterior.

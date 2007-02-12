@@ -1,0 +1,1 @@
+Artículo 42.—La Declaración jurada que indican los artículos N° 35 y Nº 36 para los fines de este Reglamento debe estar fundamentada en la declaración que el patentado presente ante la Dirección General de Tributación Directa copia de esa Declaración debidamente sellada y firmada por la Dirección de Tributación Directa debe adjuntarse a la Declaración de Patente Municipal.

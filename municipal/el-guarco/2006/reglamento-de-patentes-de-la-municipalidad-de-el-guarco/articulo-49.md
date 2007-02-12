@@ -1,0 +1,1 @@
+Artículo 49.—La Municipalidad aplicará los aumentos de imposición en forma discrecional y principalmente tomando en consideración la analogía o comparación con establecimientos que ejerzan la misma actividad. Determinada la analogía, la Municipalidad aplicará las tarifas superiores a la que guarda la similitud.

@@ -1,0 +1,1 @@
+Artículo 78.—Para el cobro de la patente cuando se instalen máquinas de juego en actividades comunales se le cobrará a quien organiza la actividad de acuerdo al reglamento de Máquinas de juego de la Municipalidad de El Guarco. El Departamento Patentes revisará y enviará al Concejo Municipal todos los requisitos completos para su debida aprobación.

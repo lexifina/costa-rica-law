@@ -1,0 +1,1 @@
+Artículo 41.—Los patentados que estén dentro el régimen del periodo Fiscal Natural y que lo demuestre previamente presentarán la declaración de patente, antes del 30 de marzo que será aplicada en el cobro del II Trimestre del año en curso.

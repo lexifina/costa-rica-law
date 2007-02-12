@@ -1,0 +1,1 @@
+Artículo 52.—Las resoluciones referidas en el artículo 46 del Departamento Encargado de Patentes tendrán recursos de revocatoria y apelación para ante el Alcalde Municipal, salvo las de calificación y recalificación cuyas alzadas serán de conocimiento del Consejo Municipal.

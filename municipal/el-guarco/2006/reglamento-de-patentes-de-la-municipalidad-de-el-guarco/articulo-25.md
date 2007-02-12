@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De los traspasos, traslados, recalificaciones y renuncias
+Artículo 25.—La solicitud de traspaso, traslado, renuncia o recalificaciones de licencias, se tramitarán única y exclusivamente a nombre del dueño de la propiedad y de la patente y estarán sujetas a todas las disposiciones establecidas para las solicitudes de licencia. Se entiende por recalificación todo cambio o ampliación de las actividades para las cuales posea patente, independientemente de los resultados que tal cambio o aplicación produzca el impuesto correspondiente. En los casos de recalcificación, la resolución que autorice o rechace la misma, debe ser notificada al interesado en el domicilio fiscal señalado para tal efecto.
+La misma podrá ser impugnada en el plazo de cinco días hábiles a partir del día siguiente a su notificación con los recursos establecidos en este reglamento.
