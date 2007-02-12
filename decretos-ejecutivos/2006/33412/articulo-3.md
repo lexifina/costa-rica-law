@@ -1,0 +1,1 @@
+Artículo 3º—Que a los efectos de esta declaratoria se exceptúa además al Instituto Costarricense de Electricidad y a la Junta Administrativa del Servicio Eléctrico de Cartago del cumplimiento de los requisitos para demostrar la propiedad en los inmuebles en los que se desarrollarán estas obras establecidos en el artículo 89 del Reglamento a la Ley Forestal.
