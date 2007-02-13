@@ -1,0 +1,1 @@
+Artículo 23.—Para la utilización de logotipo, emblemas y diseños de la Bandera Ecológica las empresas certificadas, deberán suscribir un Convenio con la Comisión Nacional de Bandera Ecológica. Las empresas o instituciones que incurran en violación a la presente disposición se exponen a las sanciones legales pertinentes y al retiro inmediato de la certificación.

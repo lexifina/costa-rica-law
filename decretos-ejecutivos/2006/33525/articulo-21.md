@@ -1,0 +1,1 @@
+Artículo 21.—De la Fundación Bandera Ecológica. La Fundación Bandera Ecológica, cooperará con el Programa Bandera Ecológica, en la medida de sus posibilidades técnicas y legales, en la implementación de sus políticas y objetivos y procesos.

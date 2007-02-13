@@ -1,0 +1,1 @@
+Artículo 10.—La certificación Bandera Ecológica, tiene una vigencia de un año, no obstante la Comisión Nacional de Bandera Ecológica, podrá retirar la certificación y el emblema, si la empresa o institución, inflinge las características ambientales y sanitarias que la hicieron acreedora de la certificación.

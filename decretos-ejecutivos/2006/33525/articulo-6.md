@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión Nacional de Bandera Ecológica podrá establecer otros requerimientos, de acuerdo a la naturaleza de la actividad que realice el solicitante, atendiendo a la normativa ambiental nacional e internacional reconocido por el país.

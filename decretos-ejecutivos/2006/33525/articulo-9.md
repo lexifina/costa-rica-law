@@ -1,0 +1,1 @@
+Artículo 9º—Las empresas o instituciones que han sido certificadas por Bandera Ecológica, adquieren el compromiso de mantener y mejorar las condiciones ambientales y sanitarias bajo las cuales obtuvieron la certificación.
