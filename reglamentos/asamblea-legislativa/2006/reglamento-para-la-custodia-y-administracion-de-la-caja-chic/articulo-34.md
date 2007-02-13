@@ -1,0 +1,2 @@
+Artículo 34.—Diferencias en cierres de la caja chica. Si se comprueban sobrantes de dinero originados en la liquidación de caja chica, deberán ser depositados en Fondo General del Gobierno, según método que establezca la Tesorería Nacional, a más tardar el día hábil siguiente a la liquidación o al arqueo.
+Los faltantes que resulten de las operaciones ordinarias de la caja chica y sean debidamente comprobados al efectuar el arqueo, deberán ser cubiertos por el responsable del fondo.

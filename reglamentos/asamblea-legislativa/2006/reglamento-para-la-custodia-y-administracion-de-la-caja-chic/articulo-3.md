@@ -1,0 +1,1 @@
+Artículo 3º—Autorización y establecimiento de la caja chica. La autorización de la caja chica se determinará por acuerdo del Directorio Legislativo o de la autoridad que este designe, previo a un estudio de las necesidades institucionales.
