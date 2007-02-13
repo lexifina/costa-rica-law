@@ -1,2 +1,0 @@
-Articulo 3°—La Comisión determinará la fecha, el lugar y hora de sus sesiones, las cuales en cuanto a su periodicidad, estarán determinadas por las necesidades administrativas que al efecto se generen en el Departamento de Proveeduría, por lo que será el Jefe de dicho Departamento, el que convoque a las sesiones cuando éstas sean necesarias.
-La convocatoria a sesiones deberá realizarse con un mínimo de veinticuatro horas y para sesionar harán quórum tres de los miembros de la Comisión y sus acuerdos se tomaran por mayoría simple de votos presentes.
