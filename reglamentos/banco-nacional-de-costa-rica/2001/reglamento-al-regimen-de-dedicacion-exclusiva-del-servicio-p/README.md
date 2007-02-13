@@ -16,3 +16,4 @@ Reglamento al Régimen de Dedicación Exclusiva del servicio para los Profesiona
 | 1 | 2001-11-08 | la propia norma |
 | 2 | 2005-05-17 | Reglamento 11323 (2005-05-17) |
 | 3 | 2006-05-16 | Reglamento 11382 (2006-05-16) |
+| 4 | 2007-02-13 | Reglamento 11419 (2007-02-13) |
