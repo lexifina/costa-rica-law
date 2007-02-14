@@ -1,2 +1,2 @@
-Artículo 179.-
-El Poder Ejecutivo y el Instituto de Tierras y Colonización, en lo que a cada uno respecta, al reglamentar esta ley, señalarán los trámites complementarios para su debida ejecución.
+Artículo 179.- El Poder Ejecutivo y el Instituto de Tierras y Colonización, en lo que a cada uno respecta, al reglamentar esta ley, señalarán los trámites complementarios para su debida ejecución.
+(La Sala Constitucional mediante resolución N° 2063 del 14 de febrero de 2007, estableció que este artículo no resulta inconstitucional, en tanto “…se interprete que la potestad de emitir reglamentos ejecutivos recae únicamente en el Poder Ejecutivo. …”)
