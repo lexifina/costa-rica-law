@@ -1,0 +1,1 @@
+Transitorio: Para los efectos del artículo 23 se establece un plazo de hasta seis meses a partir de la publicación del presente Reglamento, para efectos de la definición de objetivos, metas y procedimientos que garanticen el efectivo cumplimiento del mismo.

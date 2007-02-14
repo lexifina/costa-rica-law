@@ -1,0 +1,1 @@
+Artículo 27.—El presente Reglamento fue aprobado por la Junta Directiva del INAMU mediante Acuerdo número 3 del Acta número 1-2007 del 11 de enero del 2007 y entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

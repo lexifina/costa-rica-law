@@ -1,0 +1,1 @@
+Artículo 7º—En caso de que no haya disponibilidad de operador u operadora de equipo móvil, se podrá autorizar a las personas funcionarías o funcionarios del INAMU para que conduzcan vehículos de uso administrativo, en virtud de lo cual Servicios Generales llevará un registro de estas personas de conformidad al presente reglamento.
