@@ -1,0 +1,2 @@
+Artículo 7º—Vigencia. El presente reglamento una vez aprobado por el Concejo Municipal rige a partir de su publicación en el Diario Oficial. El Concejo Municipal de Orotina, en sesión ordinaria 63, celebrada el día 16 de enero del 2007, según artículo IV, aparte 1, con respecto al Reglamento para la Creación de una Caja Recaudadora Auxiliar, acuerda en forma unánime su aprobación.
+Orotina, 17 de enero del 2007

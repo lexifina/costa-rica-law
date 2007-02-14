@@ -1,0 +1,1 @@
+Artículo 3º—De las competencias. La caja recaudadora auxiliar estará a cargo de la Tesorería Municipal, quien, para garantizar su buen funcionamiento deberá observar todo lo indicado en el Manual de Procedimientos de Control Interno para el Manejo de Caja Recaudadora, la Función de Tesorería, Facturación y Cobros y Contabilidad en este Proceso.

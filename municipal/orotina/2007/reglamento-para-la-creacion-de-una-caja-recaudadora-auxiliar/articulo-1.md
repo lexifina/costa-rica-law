@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal de la Municipalidad del cantón de Orotina, conforme a las potestades conferidas por los artículos 4 inciso a), 13 inciso c), artículo 108 del Código Municipal, Ley Nº 7794, así como del artículo 170 de la Constitución Política, acuerda la creación de una Caja Recaudadora Auxiliar, con el fin de recibir ingresos por el pago de los tributos municipales y otros de similar naturaleza, en ausencia del Cajero(a) Oficial de la Municipalidad, durante el período de tiempo que este funcionario(a) tiene destinado para su descanso y alimentación, la cual se regirá por el siguiente:
+REGLAMENTO PARA LA CREACIÓN DE UNA
+CAJA RECAUDADORA AUXILIAR
+Artículo 1º—Objetivo. Esta caja se crea con el objetivo de brindar una mejor atención al contribuyente y no interrumpir la prestación del servicio, durante la jornada de trabajo continua en que laborará la Municipalidad y que se comunicará a los funcionarios municipales, con apego a la legislación laboral vigente y de conformidad con las normas conexas.

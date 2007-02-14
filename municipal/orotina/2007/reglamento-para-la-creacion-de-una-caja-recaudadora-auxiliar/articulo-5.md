@@ -1,0 +1,3 @@
+Artículo 5º—De las funciones del Tesorero Municipal. Agréguese en el Manual Descriptivo de Puestos de la Municipalidad de Orotina, en la descripción de funciones del Tesorero Municipal, las siguientes funciones, en virtud de la creación de la caja recaudadora auxiliar la cual estará a cargo de ese funcionario municipal:
+- Recibir dinero por concepto de pago de tributos municipales y otros de similar naturaleza, en ausencia del cajero(a) oficial, durante el periodo de tiempo que éste funcionario tiene destinado para su descanso y alimentación.
+- Hacer el cierre diario de la caja auxiliar, confeccionar el correspondiente depósito del dinero recaudado y guardar el fondo de la caja auxiliar en la caja fuerte de la Municipalidad.

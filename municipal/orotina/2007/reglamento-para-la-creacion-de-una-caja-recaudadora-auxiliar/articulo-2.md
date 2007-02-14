@@ -1,0 +1,1 @@
+Artículo 2º—Del horario de funcionamiento. El horario de funcionamiento de la caja recaudadora auxiliar será fijado por la Alcaldía Municipal, y estará a cargo del Tesorero Municipal, quien mediante nota expresa podrá delegar dicha función en el Auxiliar de Tesorería.
