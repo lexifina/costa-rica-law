@@ -1,0 +1,1 @@
+Artículo 25.—Se toma como tarifa de gobierno 3, la tasa a aplicar a todo ente de carácter estatal público o no público, que no sea privado. Para la tarifa de gobierno 3 se toma como factor de ponderación 3.5.

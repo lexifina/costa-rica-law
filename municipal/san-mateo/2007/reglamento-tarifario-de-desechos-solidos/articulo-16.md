@@ -1,0 +1,1 @@
+Artículo 16.—Se toma como tarifa Residencial 1 la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una licencia para ejercer actividad lucrativa, y en donde el promedio estimado en generación de basura se encuentre dentro del rango de 0 a 6 kilogramos por mes. En la tarifa residencial 1 el factor de ponderación es 1.

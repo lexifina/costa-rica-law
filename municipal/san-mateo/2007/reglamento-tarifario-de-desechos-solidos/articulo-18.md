@@ -1,0 +1,1 @@
+Artículo 18.—Se toma como tarifa Residencial 3 la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una licencia para ejercer actividad lucrativa, y en donde el promedio estimado en generación de basura se encuentre dentro del rango de más de 9 hasta los 18 kilogramos por mes. En la tarifa residencial 3 el factor de ponderación es 3.

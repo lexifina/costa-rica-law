@@ -1,0 +1,1 @@
+Artículo 17.—Se toma como tarifa Residencial 2 la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una licencia para ejercer actividad lucrativa, y en donde el promedio estimado en generación de basura se encuentre dentro del rango de más de 6 hasta los 9 kilogramos por mes. En la tarifa residencial 2 el factor de ponderación es 2.

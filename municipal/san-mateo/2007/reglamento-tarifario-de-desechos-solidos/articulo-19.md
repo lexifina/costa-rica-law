@@ -1,0 +1,1 @@
+Artículo 19.—Se toma como tarifa comercial 1, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura mensual y que el rango es de más de 6 hasta los 9 Kilogramos por mes. En la tarifa comercial 1 el factor de ponderación es 2.

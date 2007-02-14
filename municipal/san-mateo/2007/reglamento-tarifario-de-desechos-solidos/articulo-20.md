@@ -1,0 +1,1 @@
+Artículo 20.—Se toma como tarifa comercial 2, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura mensual y que el rango es de más de 9 hasta los 18 kilogramos por mes. En la tarifa comercial 2 el factor de ponderación es 3.

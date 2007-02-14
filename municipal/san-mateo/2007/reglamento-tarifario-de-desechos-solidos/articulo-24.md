@@ -1,0 +1,1 @@
+Artículo 24.—Se toma como tarifa de gobierno 2, la tasa a aplicar a todo ente de carácter estatal público o no público, que no sea privado. Para la tarifa de gobierno 2 se toma como factor de ponderación 3.

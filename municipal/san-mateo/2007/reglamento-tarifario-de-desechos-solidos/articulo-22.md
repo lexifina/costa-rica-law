@@ -1,0 +1,1 @@
+Artículo 22.—Se toma como tarifa comercial 4, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura mensual y que el rango es de más de 30 kilogramos en adelante por mes. En la tarifa residencial 3 el factor de ponderación es 4.
