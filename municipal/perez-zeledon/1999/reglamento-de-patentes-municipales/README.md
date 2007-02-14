@@ -17,3 +17,4 @@ Reglamento de Patentes Municipales.
 | 2 | 2002-05-02 | Reglamento municipal 3 (2002-05-02) |
 | 3 | 2002-05-02 | Ley 8 |
 | 4 | 2004-07-27 | Reglamento municipal 117 (2004-07-27) |
+| 5 | 2007-02-14 | SINALEVI (sin norma nombrada) |
