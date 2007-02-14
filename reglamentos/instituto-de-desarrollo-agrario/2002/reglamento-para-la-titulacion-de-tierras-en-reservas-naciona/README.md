@@ -14,3 +14,4 @@ Reglamento para la Titulación de Tierras en Reservas Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-10 | la propia norma |
+| 2 | 2007-02-14 | SINALEVI (sin norma nombrada) |

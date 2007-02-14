@@ -2,6 +2,7 @@
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO PARA LA TITULACIÓN DE TIERRAS
 EN RESERVAS NACIONALES
+(Este Reglamento fue anulado mediante resolución de la Sala Constitucional N° 2063-07, del 14-2-07, aclarada por resolución N° 4517-07, de las dieciocho horas con diecinueve minutos del 28-3-07.)
 Con fundamento en lo dispuesto en los artículos 11 inciso a), 12 inciso a) y 13 de la Ley de Tierras y Colonización, Nº 2825 del 14 de octubre de 1961 y artículo 3, inciso b) y 18 inciso g) de la Ley de Creación del Instituto Desarrollo Agrario, Número 6735 del 29 de marzo de 1982, considerando que una de las labores fundamentales del Instituto, se orienta a legalizar la tenencia de la tierra en áreas de Reserva Nacional, donde las personas ya tienen su tierra, pero carecen de títulos de propiedad, se dicta el presente Reglamento.
 CAPÍTULO 1
 Disposiciones generales
