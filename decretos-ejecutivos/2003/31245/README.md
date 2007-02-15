@@ -14,3 +14,4 @@ Reglamento para la Comisión de Becas y Capacitación del Ministerio de Agricult
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-11 | la propia norma |
+| 2 | 2007-02-15 | Decreto Ejecutivo 33688 (2007-02-15) |
