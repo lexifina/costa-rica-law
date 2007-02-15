@@ -1,0 +1,1 @@
+Artículo 6º—La presente directriz es de acatamiento obligatorio para todas las autoridades de tránsito y en caso de que se constate algún incumplimiento, se sancionará al responsable conforme al ordenamiento jurídico vigente.

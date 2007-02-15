@@ -1,0 +1,1 @@
+Artículo 5º—Las Jefaturas de las Delegaciones de Policía de Tránsito en todo el país, deberán coordinar con las pertinentes oficinas y planteles del Ministerio de Obras Públicas y/o Ministerio de Seguridad Pública, la correspondiente custodia de los vehículos detenidos.
