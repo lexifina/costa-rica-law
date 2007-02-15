@@ -1,16 +1,20 @@
 CAPITULO SÉTIMO
 De la Certificación Forestal
-Articulo 26.-Crease la Comision Nacional de Certificacion Forestal, como organo de la A.F.E., dicha comision esta integrada por ocho miembros de reconocida solvencia tecnica y moral, tres representantes sera n de las universidades nacionales con desarrollo de carreras de educacion superior en el area forestal y biologia, dos representantes de organismos cientificos internacionales involucrados en proyectos de cooperacion tecnica y desarrollo forestal, dos representantes de entidades cientificas de reconocida trayectoria en el campo de la investigacion forestal y un representante del Colegio de Ingenieros Agronomos. Ninguno de los representantes podr ser regente forestal o haberlo sido en los seis meses anteriores a su designacion, ni tener relacion directa o indirecta con algun ente certificador nacional. El MINAE convocar a las Entidades señaladas en este articulo para que env¡en al Ministro del Ambiente y Energ¡a una terna con tres candidatos un mes despues de publicado el presente Reglamento, el cual har los nombramientos. El nombramiento regir por tres años, pudiendo ser reelegidos. A efecto de darle continuidad al trabajo de la Comision, a partir de la publicacion de este Decreto los nombramientos se haran de la siguiente forma:
-a) Fungir n en sus cargos por un año mas los actuales representantes de: una de las universidades, dos de los organismos cientificos internacionales y uno de las entidades cientificas de reconocida trayectoria en el campo de la investigacion forestal.
-b) Los demas representantes deberan ser nombrados en el periodo y por el plazo establecido en este articulo. En caso de renuncia, separacion del cargo, o cualquier otro supuesto, el nombramiento del sustituto se realizar por el periodo faltante, siguiendose el mismo procedimiento de terna establecido en este articulo.
-En caso de renuncia, separación del cargo, o cualquier otro supuesto, el nombramiento del sustituto se realizará por el periódo faltante, siguiéndose el mismo procedimiento de trena establecido en este artículo.
-(Así reformado mediante Artículo 1° del Decreto Ejecutivo N° 29147 del 13 de noviembre del 2000)
-La Comisión se dará su propio reglamento interno de funcionamiento. Los costos de operación de la Comisión, serán aportados por el MINAE.
+Artículo 26.—Créase la Comisión Nacional para la Sostenibilidad Forestal (CNSF), como órgano de la AFE. Dicha comisión estará integrada por siete miembros de reconocida solvencia técnica y moral de la siguiente manera: tres representantes de las Universidades Nacionales con desarrollo en carreras de educación superior en el área forestal y recursos naturales, dos representantes de las entidades científicas internacionales con sede en el país de reconocida trayectoria en el campo de la investigación y enseñanza en recursos naturales y forestales, un representante del Fondo Nacional de Financiamiento Forestal y un representante del Colegio de Ingenieros Agrónomos. El Sistema Nacional de Áreas de Conservación (SINAC) como Administración Forestal del Estado convocará y solicitará una terna a las Instituciones señaladas en este artículo al final de cada período de representación en el mes de diciembre, el director de la AFE seleccionará un representante y lo comunicará a la institución correspondiente 15 días después de recibida la terna.
+El nombramiento regirá por tres años, pudiendo ser reelectos por períodos iguales. Sin embargo, para darle continuidad al trabajo y contar con un mecanismo de renovación de la Comisión , por primera y única vez fungirán en sus cargos por un período de cuatro años los siguientes representantes: uno de las universidades, dos de las Instituciones científicas internacionales y el del Colegio de Ingenieros Agrónomos.
+La Comisión definirá su propio reglamento interno de funcionamiento. Cada representante tendrá derecho a proponer un suplente de la institución correspondiente y su participación se regulará vía reglamento interno.
+En caso de renuncia, separación del cargo, o cualquier otro supuesto, el suplente asumirá la representación de la institución. Si la representación de la institución se ausenta de forma permanente, la AFE podrá nombrar el sustituto por el período faltante con base a la terna última enviada por la Entidad ; o bien la AFE podrá invitar otra institución de la misma categoría a participar en la Comisión.
 Las funciones de la Comisión serán:
-a) Reconocer los sistemas de certificación internacionales o nacionales existentes o que se establezcan en el futuro como sistemas nacionales de certificación, así como a las entidades u organizaciones acreditadas ante éstos y sus respectivos sellos y logotipos y someterlos a la A.F.E. para su aprobación.
-b) Recomendar a la A.F.E. los principios, criterios e indicadores de sostenibilidad exigibles en los planes de manejo de bosque natural.
-c) Recomendar a la A.F.E. los candidatos a convertirse en certificadores.
-d) Establecer el reglamento interno de la Comisión.
-f) Solicitar a la A.F.E. la suspensión de los certificadores.
-g) Vigilar y supervisar las labores de los certificadores autorizados.
-(Así reformado por Artículo 1° del Decreto Ejecutivo N° 30310 del 17 de abril del 2002)
+a) Recomendar a la Administración Forestal del Estado:
+1. Los lineamientos de sostenibilidad forestal aplicables a la actividad, tanto a nivel de unidad de manejo, como a nivel nacional.
+2. Los entes y organismos a quienes se le puede otorgar licencia de certificadores forestales nacionales.
+3. La suspensión de la licencia a los certificadores forestales nacionales.
+4. Reconocimiento de los sistemas de certificación forestal internacional, así como las entidades y organizaciones acreditadas ante éstos.
+b) Asesorar a la Administración Forestal del Estado sobre los mecanismos de fomento, regulación y control propios del manejo forestal sostenible.
+c) Nombrar subcomisiones técnicas como apoyo a las labores que realiza.
+d) La regulación del sistema nacional de sellos verdes o certificación forestal.
+e) Apoyar a la AFE en la capacitación y divulgación de los lineamientos de sostenibilidad aplicables a la actividad forestal.
+f) Apoyar y participar en iniciativas regionales e internacionales de sistemas internacionales de certificación forestal voluntaria
+g) Ajustar los lineamientos de sostenibilidad forestal del país a los estándares de manejo de los sistemas internacionales de certificación forestal voluntaria,
+h) Establecer el reglamento interno de la Comisión.
+(Así reformado mediante el artículo 3° del decreto ejecutivo N° 33815 del 15 de febrero del 2007).
