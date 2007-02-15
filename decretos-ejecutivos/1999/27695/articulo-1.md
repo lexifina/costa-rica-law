@@ -13,5 +13,6 @@ decretan:
 MANUAL DE PROCEDIMIENTOS PARA LA ACREDITACIÓN”
 DE CERTIFICADORES FORESTALES
 Generalidades
+(NOTA SINALEVI: Mediante artículo 5° del decreto ejecutivo N° 33815 del 15 de febrero de 2007, se establece que en el presente decreto donde se refiere a las siglas CNCF (Comisión Nacional de Certificación Forestal), en lo sucesivo debe leerse CNSF (Comisión Nacional para la Sostenibilidad Forestal)).
 Artículo 1°—Podrán presentar solicitud para ser Ente Certificador Forestal (ECF) todas aquellas personas físicas y jurídicas, nacionales o extranjeras, que no sean o cuenten dentro de su organización con personas que sean funcionarios (as) del MINAE o miembros de la CNCF y se ajusten a los requisitos de este Manual.
 Las personas físicas o jurídicas extranjeras que soliciten acreditación como ECF, deberán cumplir con las disposiciones que, para los efectos, señale la legislación costarricense. En todo caso deberán fijar domicilio y llevar su contabilidad dentro del país, de acuerdo con las leyes de Costa Rica.

@@ -14,3 +14,4 @@ Manual de Procedimientos para la Acreditación de Certificadores Forestales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-17 | la propia norma |
+| 2 | 2007-02-15 | Decreto Ejecutivo 33815 (2007-02-15) |
