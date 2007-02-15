@@ -1,0 +1,1 @@
+Artículo 11.—Las operadoras de pensiones deberán enterar al Fisco las retenciones mencionadas en el artículo anterior, dentro de los quince días naturales del mes siguiente a la fecha del retiro de los recursos por parte del afiliado, consignándolas en la casilla correspondiente del formulario para el pago de retenciones

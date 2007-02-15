@@ -1,0 +1,1 @@
+Transitorio II.—Mientras no se reforme el formulario para pago de retenciones “D.103 - Declaración Jurada de Retenciones en la Fuente” o se establezca uno específico, se utilizará la casilla 44 de dicho formulario para el pago de las retenciones a se refiere el artículo 11 de la presente resolución
