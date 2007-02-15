@@ -1,11 +1,23 @@
 ANEXO 2
 En el caso de grupos o conglomerados financieros, la redacción de los siguientes avisos deberán modificarse para indicar el nombre del órgano supervisor y el sitio Web correspondiente.
+Las notas deben publicarse en texto Times New Roman o Arial, letra tamaño 12 o mayor.
+(Así reformado el Anexo 2 anterior mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).
 ANEXO 2. A.
-“El dictamen de los auditores externos, los respectivos estados financieros (indicar “consolidados” cuando corresponda), las políticas contables utilizadas y demás notas, se encuentran a disposición del público interesado en las oficinas centrales, sucursales, agencias, asociadas y subsidiarias de (nombre de la entidad supervisada o entidad controladora), en su sitio Web (Indicar cuando corresponde dirección del sitio en Internet), y en las oficinas y el sitio Web de la SUGEF ().”
-ANEXO 2. B.
-(NOMBRE DE LA ENTIDAD FINANCIERA O ENTIDAD CONTROLADORA)
+(NOMBRE DE LA ENTIDAD)
 INFORMA AL PÚBLICO INTERESADO
-“Que los estados financieros intermedios (consolidados) al———— (indicar fecha) fueron presentados a la Superintendencia General de Entidades Financieras el (indicar fecha) y pueden ser consultados en nuestras oficinas centrales, sucursales, agencias, asociadas y subsidiarias y en el sitio en Internet de la Superintendencia General de Entidades Financieras ().”
+“Que el dictamen de los auditores externos, los respectivos estados financieros auditados completos (indicar “consolidados” cuando corresponda), las políticas contables utilizadas y demás notas, se encuentran a disposición del público interesado en papel y en forma electrónica en nuestras oficinas centrales, sucursales, agencias, asociadas y subsidiarias, y en las oficinas y el sitio Web de la (Indicar el nombre y el sitio Web del órgano supervisor correspondiente SUGEF (www.sugef.fi.cr) , SUGEVAL (www.sugeval.fi.cr) o SUPEN (www.supen.fi.cr).”
+En el caso de empresas emisoras deberá indicarse que la información se encuentra a disposición del público en papel y en forma electrónica en las oficinas centrales, sucursales, agencias, asociadas y subsidiarias en las que captan recursos del público o efectúen alguna transacción financiera relacionada con la captación, incluido el pago de principal o intereses.
+Deberá agregarse que la información también se encuentra disponible en las oficinas y sitio Web de la bolsa(s) de valores y de los puestos de bolsa representantes (Indicar los nombres).
+En el caso de la información financiera de los puestos de bolsa deberá agregarse que dicha información también se encuentra disponible en las oficinas y sitio Web de la bolsa(s) de valores (Indicar nombre(s)).
+(Así reformado el Anexo 2.A anterior mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).
+ANEXO 2. B.
+(NOMBRE DE LA ENTIDAD)
+INFORMA AL PÚBLICO INTERESADO
+“Que los estados financieros intermedios (indicar “consolidados” y “no auditados” cuando corresponda) al _____ (indicar fecha) se encuentran a disposición del público interesado en papel y en forma electrónica en nuestras oficinas centrales, sucursales, agencias, asociadas y subsidiarias, y en las oficinas y el sitio Web de la (Indicar el nombre y el sitio Web del órgano supervisor correspondiente SUGEF (www.sugef.fi.cr), SUGEVAL (www.sugeval.fi.cr) o SUPEN (www.supen.fi.cr)).”).
+En el caso de empresas emisoras deberá indicarse que la información se encuentra a disposición del público en papel y en forma electrónica en las oficinas centrales, sucursales, agencias, asociadas y subsidiarias en las que captan recursos del público o efectúen alguna transacción financiera relacionada con la captación, incluido el pago de principal o intereses.
+Deberá agregarse que la información también se encuentra disponible en las oficinas y sitio Web de la bolsa(s) de valores y de los puestos de bolsa representantes (Indicar los nombres).
+En el caso de la información financiera de los puestos de bolsa deberá agregarse que dicha información también se encuentra disponible en las oficinas y sitio Web de la bolsa(s) de valores (Indicar nombre(s)).
+(Así reformado el Anexo 2.B. anterior mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).
 ANEXO 2. C.
 NOMBRE DE LA ENTIDAD FINANCIERA (CONTROLADORA) INFORMA AL PÚBLICO INTERESADO
 “Que la información financiera (o financiera consolidada) del (NOMBRE DE LA ENTIDAD, GRUPO O CONGLOMERADO FINANCIERO) al _—————- (indicar fecha) fue presentada a la Superintendencia General de Entidades Financieras el (indicar fecha) con un retraso de ——— (indicar días hábiles), y puede ser consultada en nuestras oficinas centrales, sucursales, agencias, asociadas y subsidiarias, en nuestro sitio en Internet (indicar página cuando corresponda) y en el sitio en Internet de la Superintendencia General de Entidades Financieras ).”
@@ -18,15 +30,13 @@ NOMBRE DE LA ENTIDAD FINANCIERA (CONTROLADORA) INFORMA AL PÚBLICO INTERESADO
 Superintendencia General de Entidades Financieras ().”
 ANEXO 2. F.
 FORMATO DE PUBLICACIÓN
-“EL GRUPO FINANCIERO ————————, comunica al público en general que su funcionamiento fue autorizado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo ———, del Acta de la sesión —————, celebrada el _——————. La Supervisión de este Grupo corresponde a la Superintendencia ——————.
-CONFORMACIÓN DEL GRUPO
-Detalle de las empresas que integran el Grupo
-Capital Social
-(1)
-¢
-XXXXX
-(2) Banco del exterior
-1. Nombre de la sociedad controladora del grupo.
-2. Las operaciones que realicen en el exterior los bancos o empresas financieras domiciliadas en las plazas extranjeras autorizadas por el Consejo Nacional de Supervisión del Sistema Financiero, no están sujetas al control monetario del Banco Central de Costa Rica ni a la supervisión de los órganos supervisores
-nacionales, excepto lo previsto en la Ley Orgánica del Banco Central de Costa Rica, Ley 7558. Sin embargo, estarán sujetas a los controles de los supervisores del país del domicilio legal de esas entidades, conforme lo estipulado en el Artículo 23 del “Reglamento para la Constitución, el Traspaso, el Registro y el Funcionamiento de los Grupos Financieros”.
-De acuerdo con lo establecido en el Artículo 13 de la Ley Reguladora del Mercado de Valores, la autorización para realizar oferta pública no implica calificación sobre la bondad de la emisión ni la solvencia del emisor o intermediario.”
+El Grupo o Conglomerado Financiero ________________, comunica al público en general que su funcionamiento fue autorizado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo ____, del Acta de la Sesión _________, celebrada el _______. La Supervisión de este Grupo o Conglomerado corresponde a la Superintendencia ______________.
+CONFORMACIÓN DEL GRUPO O CONGLOMERADO
+Detalle de las empresas que integran el Grupo | Capital Social
+(1) | ¢
+XXXXX |
+(2) Incluir esta nota cuando el Grupo o Conglomerado |
+tenga bancos o empresas domiciliadas en el exterior |
+1) Nombre de la sociedad controladora del grupo.
+2) Las operaciones que realicen en el exterior los bancos o empresas financieras domiciliadas en las plazas extranjeras autorizadas por el Consejo Nacional de Supervisión del Sistema Financiero, no están sujetas al control monetario del Banco Central ni a la supervisión de los órganos supervisores nacionales, excepto lo previsto en la Ley Orgánica del Banco Central de Costa Rica. Sin embargo, estarán sujetas a los controles de los supervisores del país del domicilio legal de esas entidades, conforme lo estipulado en el Artículo 23 del “Reglamento para la Constitución, el Traspaso, el Registro y el Funcionamiento de los Grupos Financieros”. De acuerdo con lo establecido en el Artículo 13 de la Ley Reguladora del Mercado de Valores, la autorización para realizar oferta pública no implica calificación sobre la bondad de la emisión ni la solvencia del emisor o intermediario.”
+(Así reformado el Anexo 2.F. anterior mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).

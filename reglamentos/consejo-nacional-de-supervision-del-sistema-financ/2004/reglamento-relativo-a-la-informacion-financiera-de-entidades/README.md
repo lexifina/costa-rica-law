@@ -14,3 +14,4 @@ Reglamento relativo a la Información Financiera de Entidades, Grupos y Conglome
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-20 | la propia norma |
+| 2 | 2007-02-15 | Reglamento 631 (2007-02-15) |

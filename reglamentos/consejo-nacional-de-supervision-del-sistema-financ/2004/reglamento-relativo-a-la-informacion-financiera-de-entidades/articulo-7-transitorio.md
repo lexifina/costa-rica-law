@@ -1,0 +1,3 @@
+Transitorio VII.—Los Artículos 1, 16, 17, 18 y 22 reformados según lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículos 13 y 17 de las Sesiones 630-2007 y 631-2007, celebradas el 15 de febrero del 2007, aplican a partir de la información financiera auditada a diciembre del 2006 y de la trimestral a marzo del 2007.
+Se establece un plazo de tres meses a partir de la entrada en vigencia, para que las bolsas de valores publiquen en sus sitios Web los estados financieros de sus puestos de bolsa y de las empresas emisoras, y para que los puestos de bolsa representantes publiquen los estados financieros de las empresas emisoras.
+(Así adicionado mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).

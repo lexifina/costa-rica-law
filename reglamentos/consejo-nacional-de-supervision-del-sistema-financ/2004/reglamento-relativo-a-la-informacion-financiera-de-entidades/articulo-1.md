@@ -15,6 +15,7 @@ CONGLOMERADOS FINANCIEROS
 (Emitido mediante Sesión N° 411 del 14 de enero de 2004 publicada en La Gaceta N° 19 del miércoles 28 de enero de 2004)
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto y ámbito de Aplicación
-Las presentes normas tienen por objeto establecer el contenido, la preparación, remisión, presentación y publicación de la información financiera de las entidades individuales supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y los grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL) y la Superintendencia de Pensiones (SUPEN).
-En general, el término entidad se entenderá tanto a la entidad individual como a la entidad económica consolidada.
+Artículo 1º—Objeto y ámbito de Aplicación. Las presentes normas tienen por objeto establecer el contenido, la preparación, remisión y presentación de la información financiera de las entidades individuales supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y los grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL) y la Superintendencia de Pensiones (SUPEN).
+Los Artículos 16, 17, 18 y 22 del presente reglamento establecen las normas para la publicación de los estados financieros de las entidades individuales, grupos y conglomerados financieros supervisados por las tres Superintendencias. En el caso de la SUPEN, debe entenderse que las normas son de aplicación a las Entidades y fondos supervisados, y en lo que respecta a la SUGEVAL se hacen extensivas a los sujetos emisores de valores objeto de oferta pública.
+En el caso de entidades financieras supervisadas, el término entidad se entenderá tanto a la entidad individual como a la entidad económica que consolida.
+(Así reformado mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).
