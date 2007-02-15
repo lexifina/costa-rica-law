@@ -15,3 +15,4 @@ Reforma Reglamento a la Ley Forestal y Reconoce al Sistema de Certificación For
 | --- | --- | --- |
 | 1 | 2002-05-09 | la propia norma |
 | 2 | 2003-07-03 | SINALEVI (sin norma nombrada) |
+| 3 | 2007-02-15 | Decreto Ejecutivo 33815 (2007-02-15) |

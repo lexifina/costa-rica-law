@@ -13,11 +13,4 @@ Considerando:
 8º—Que los consumidores y usuarios tienen el derecho a la protección de su salud, ambiente, seguridad e intereses económicos; a recibir información adecuada y veraz; a la libertad de elección y a un trato equitativo, derechos para cuyo ejercicio la certificación puede resultar particularmente útil como mecanismo para proveer información sobre la procedencia ambientalmente amigable de un producto y de la contribución que los mismos tienen con políticas públicas en materia de bosques.
 9º—Que es necesario modificar el Reglamento a la Ley Forestal vigente, lo mismo que emitir normas adicionales con la finalidad de hacer efectivos estos cambios. Por tanto,
 Decretan:
-Artículo 1º—Refórmese el Decreto Ejecutivo 25721-MINAE, Reglamento a la Ley Forestal, en su artículo 26 párrafo tercero para que se lea de la siguiente forma:
-Las funciones de la Comisión serán:
-a) Reconocer los sistemas de certificación internacionales o nacionales existentes o que se establezcan en el futuro como sistemas nacionales de certificación, así como a las entidades u organizaciones acreditadas ante éstos y sus respectivos sellos y logotipos y someterlos a la A.F.E. para su aprobación.
-b) Recomendar a la A.F.E. los principios, criterios e indicadores de sostenibilidad exigibles en los planes de manejo de bosque natural.
-c) Recomendar a la A.F.E. los candidatos a convertirse en certificadores.
-d) Establecer el reglamento interno de la Comisión.
-f) Solicitar a la A.F.E. la suspensión de los certificadores.
-g) Vigilar y supervisar las labores de los certificadores autorizados.
+Artículo 1º—(Así derogado mediante el artículo 6° del decreto ejecutivo N° 33815 del 15 de febrero de 2007).
