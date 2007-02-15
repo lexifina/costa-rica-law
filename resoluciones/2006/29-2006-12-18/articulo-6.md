@@ -1,0 +1,1 @@
+Artículo 6º—Las empresas deberán remitir a las Divisiones correspondientes, de acuerdo a los ciclos y formatos que establezcan dichas Divisiones, las declaraciones recibidas. Las empresas interesadas coordinarán con esas Divisiones, los estándares, validaciones y procedimientos para el intercambio de información.
