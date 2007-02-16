@@ -1,0 +1,3 @@
+Artículo 47.—Modificaciones a los contratos. RECOPE podrá aumentar o disminuir, hasta un cincuenta por ciento (50%) del monto del contrato original, incluyendo reajustes o revisiones de precio, según corresponda, en las condiciones señaladas en el artículo 12 de la LCA y 200 de su respectivo Reglamento.
+Toda modificación a un contrato, que implique variación en el monto original del contrato, deberá ser aprobada por el nivel de competencia correspondiente, para lo cual se tomará en cuenta únicamente el monto de la pretendida modificación, y no la cuantía del negocio en su totalidad.
+Para su eficacia, cuando corresponda, la modificación deberá estar debidamente refrendada.

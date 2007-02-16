@@ -1,0 +1,1 @@
+Artículo 4º—Organización y unidad de trámite Compete a la Dirección de Suministros llevar a cabo los procedimientos de contratación tanto de la actividad no ordinaria como ordinaria, en coordinación con las unidades gestionantes.
