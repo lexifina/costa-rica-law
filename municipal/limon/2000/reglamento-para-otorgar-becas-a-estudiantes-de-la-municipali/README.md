@@ -14,3 +14,4 @@ Reglamento para Otorgar Becas a Estudiantes de la Municipalidad de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-20 | la propia norma |
+| 2 | 2007-02-19 | Reglamento municipal 42 (2007-02-19) |
