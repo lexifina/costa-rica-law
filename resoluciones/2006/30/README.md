@@ -14,3 +14,4 @@ Establece otros sujetos pasivos además de los establecidos en el Reglamento sob
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-15 | la propia norma |
+| 2 | 2007-02-19 | Resolución 7 (2007-02-19) |

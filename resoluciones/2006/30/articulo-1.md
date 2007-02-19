@@ -11,7 +11,8 @@ Artículo 1º—En el Plan anual de fiscalización del año 2007, en adición a 
 4) Ejercicio liberal de profesiones, incluyendo sociedades de actividades profesionales.
 5) Servicios relacionados con el turismo tales como hoteles, transporte, operadores turísticos, agencias de viaje, excursiones, esparcimiento, y similares.
 6) Centros de colocación de apuestas, de juegos de azar, casinos virtuales o explotación de máquinas tragamonedas.
-7) Sujetos pasivos de cualquier sector o actividad económica cuyos gastos de operación representan el 95% o más de sus ingresos declarados.
+7) Sujetos pasivos, cuya relación por cociente, entre la renta neta y la renta bruta declarada a los fines del impuesto sobre las utilidades, sea inferior a esa misma relación promedio de la actividad económica en que se desempeñan.
+(Así reformado el enunciado anterior por resolución DGT-07 del 19 de febrero de 2007)
 8) Talleres de reparación o enderezado de vehículos, o ambos.
 9) Sujetos pasivos de cualquier sector o actividad económica que, como consecuencia de haber sido objeto de actuaciones abreviadas, o que al iniciárseles dicho procedimiento, hubieren presentado las declaraciones tributarias o hubieren rectificado las presentadas inicialmente.
 10) Servicios relacionados con las actividades auxiliares de la intermediación financiera, bursátil y similares.
