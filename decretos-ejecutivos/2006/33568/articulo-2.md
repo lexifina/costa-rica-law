@@ -1,0 +1,1 @@
+Artículo 2º—La función de la Defensoría de los Habitantes como mecanismo nacional de prevención, hasta tanto no se emita la ley correspondiente, se enmarca de manera provisional dentro de las inspecciones que habitualmente realiza esta institución en los diversos centros penitenciarios, de detención o de aprehensión administrativa.
