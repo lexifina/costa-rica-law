@@ -17,3 +17,4 @@ Reglamento para Contratación Bienes y Servicios Promotora Comercio Exterior.
 | 2 | 2004-06-02 | Reglamento 132 (2004-06-02) |
 | 3 | 2006-03-30 | Reglamento 163 (2006-03-30) |
 | 4 | 2006-05-04 | Reglamento 166 (2006-05-04) |
+| 5 | 2007-02-19 | Reglamento 184 (2007-02-19) |
