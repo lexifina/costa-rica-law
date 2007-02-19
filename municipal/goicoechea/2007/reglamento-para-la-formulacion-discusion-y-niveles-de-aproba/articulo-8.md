@@ -1,0 +1,1 @@
+Artículo 8º—De la presentación del proyecto de presupuesto ordinario. El proyecto de presupuesto ordinario será presentado por el Alcalde a más tardar el 30 de agosto de cada año ante el Concejo, con copia para cada uno de sus miembros.

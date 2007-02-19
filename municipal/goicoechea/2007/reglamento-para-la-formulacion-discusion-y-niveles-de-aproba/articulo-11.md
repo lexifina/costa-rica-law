@@ -1,0 +1,2 @@
+Artículo 11.—De la remisión del presupuesto a la Contraloría General. Una vez cumplidos los requisitos de remisión del presupuesto ordinario, el Alcalde remitirá el original y dos copias a la Contraloría General, incluyendo el Plan Operativo Anual, con todos los justificantes que se ameriten para su aprobación.
+De igual forma, se remitirá vía Internet la información exigida por Sistema Integrado de Presupuestos Públicos (SIPP) a más tardar a la fecha que establezca el ente contralor.

@@ -1,0 +1,1 @@
+Artículo 12.—Del nivel de aprobación del presupuesto por el concejo. El Concejo aprueba a nivel de grupos del Presupuesto de la Municipalidad, conforme con la clasificación vigente establecida por la Contraloría General.
