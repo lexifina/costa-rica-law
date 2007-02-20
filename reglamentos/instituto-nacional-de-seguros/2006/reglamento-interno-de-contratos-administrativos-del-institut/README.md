@@ -14,3 +14,4 @@ Reglamento Interno de Contratos Administrativos del Instituto Nacional de Seguro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-20 | la propia norma |
+| 2 | 2007-02-20 | Reglamento 0 (2007-03-19) |
