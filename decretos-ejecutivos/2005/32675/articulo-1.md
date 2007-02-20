@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32675
+(Este Decreto fue Derogado por el artículo 5° del decreto ejecutivo N° 33629 del 20 de febrero de 2007)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 En uso de las atribuciones que les confieren el artículo 140 en sus incisos 3) y 18), y el artículo 146 de la Constitución Política, y con fundamento en la “Ley de Promoción del Desarrollo Científico y Tecnológico” Nº 7169, del 26 de junio de 1990.

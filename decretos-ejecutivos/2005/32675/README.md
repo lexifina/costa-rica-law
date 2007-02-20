@@ -14,3 +14,4 @@ Declara de interés público el Proyecto "Centros Comunitarios de Acceso a Inter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-10 | la propia norma |
+| 2 | 2007-02-20 | Decreto Ejecutivo 33629 (2007-02-20) |
