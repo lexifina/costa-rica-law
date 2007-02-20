@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase a la Dirección de Asignaciones Familiares para que condone las obligaciones del INVU hasta por el valor del terreno segregado y donado en el artículo anterior, según el avalúo de los peritos de la Dirección General de Tributación.

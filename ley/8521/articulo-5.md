@@ -1,0 +1,1 @@
+Artículo 5º—La Asociación Educacional Popular María Auxiliadora deberá destinar el inmueble donado exclusivamente a la construcción de un complejo educativo, el cual deberá cumplir todos los requisitos de diseño y construcción para obras de este tipo.
