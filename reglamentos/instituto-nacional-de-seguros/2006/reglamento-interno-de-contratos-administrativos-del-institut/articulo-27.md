@@ -1,0 +1,2 @@
+Artículo 27.—Las garantías de participación y/o cumplimiento que hayan sido requeridas en contrataciones deberán resguardarse en la Custodia de Valores.
+Conforme a las directrices de la Contraloría General de la República, dichos contratos deberán además cumplir con el trámite de aprobación interna conocida como “refrendo” por parte de la Dirección Jurídica y Dirección Administrativa de previo a su ejecución.
