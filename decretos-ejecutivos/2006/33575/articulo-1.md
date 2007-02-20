@@ -1,0 +1,13 @@
+Nº 33575
+El PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que le confieren los artículos 140 incisos 1) y 3), 28 párrafo segundo de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de Administración Pública” 1, 2, 4, 113 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud.”
+Considerando:
+1º—Que por disposición del artículo 113 de la Ley General de Salud, el registro de los medicamentos se debe realizar ante un órgano colegiado denominado Consejo Técnico de inscripción de Medicamentos, el cual está integrado por representantes de diferentes instituciones como las que se señalan en el Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos, Decreto Ejecutivo Nº 28466-S, del 8 de febrero del 2000, publicado en La Gaceta Nº 42 del 29 de febrero del 2000.
+2º—Que en el artículo 5º del Decreto Ejecutivo 28466-S, del 8 de febrero del 2000, Reglamento de Inscripción, Control, importación y Publicidad de Medicamentos, párrafo final, quedó establecido que a las sesiones del Consejo Técnico de Inscripción de Medicamentos, además de los miembros representantes de cada una de las instituciones señaladas en el mismo, también asistirán la Directora de la Dirección de Registros y Controles, y el Director de la Asesoría Legal del Ministerio de Salud.
+3º—Que para una mejor funcionalidad del Consejo Técnico de Inscripción de Medicamentos, dadas las múltiples ocupaciones de los Directores de Registros y Controles y de la Dirección de Asuntos Jurídicos, se hace necesario que el Consejo Técnico de Inscripción de Medicamentos, cuente con miembros suplentes al igual que en la Secretaría de la Dirección de Registros y Controles y en el cargo del Director de la Dirección de Asuntos Jurídicos. Por tanto,
+DECRETAN:
+Artículo 1º—Refórmense los párrafos primero y último del artículo 5 del Decreto Ejecutivo Nº 28466-S del 8 de febrero del 2000, publicado en La Gaceta Nº 42 del 29 de febrero del 2000, para que en lo sucesivo se lean así:
+“Artículo 5º—El Consejo estará integrado por miembros propietarios y sus respectivos suplentes, quienes podrán asistir a las sesiones cuando los propietarios estén ausentes por atender asuntos de su competencia, todos de idoneidad científica y técnica, de libre nombramiento del Poder Ejecutivo y designados en la siguiente forma:”
+(…)
+“También asistirán a las sesiones la Directora de la Dirección de Registros y Controles, quien actuará como Secretaria del Consejo; y el Director de la Dirección de Asuntos Jurídicos del Ministerio de Salud, quienes tendrán derecho a voz pero sin voto y podrán designar a sus respectivos suplentes.”
