@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase a la Asociación Educacional Popular María Auxiliadora, para que reciba en su población estudiantil, a personas de escasos recursos económicos o en riesgo social, en una proporción determinada en razón del valor del terreno donado en relación con el valor total de la obra física; se entiende el terreno más las edificaciones.
