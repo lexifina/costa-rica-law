@@ -1,0 +1,1 @@
+Artículo 84.—Deber de conducirse apropiadamente frente al público. Todo servidor (a) debe observar frente al público, en el servicio y fuera de el, una conducta correcta, digna y decorosa, acorde con su jerarquía y función, evitando conductas que puedan socavar la confianza del público en la integridad e imagen del funcionario (a) y de la Asamblea Legislativa.

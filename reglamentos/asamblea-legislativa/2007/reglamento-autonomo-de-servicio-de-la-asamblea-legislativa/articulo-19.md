@@ -1,0 +1,3 @@
+Artículo 19.—Se considera abandono del trabajo el hacer dejación de la labor respectiva sin causa que lo justifique, dentro de las jornadas estipuladas en este Reglamento o aprobadas por acuerdo de Directorio en firme.
+Para calificar el abandono del trabajo no es necesario que el servidor (a) salga del local en donde presta sus servicios, sino que bastará que de modo evidente abandone la labor que le ha sido confiada.
+El abandono injustificado del trabajo será sancionado de conformidad con lo que establece el artículo 55.

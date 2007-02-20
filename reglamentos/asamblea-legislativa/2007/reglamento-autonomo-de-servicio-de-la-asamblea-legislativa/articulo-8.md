@@ -1,0 +1,1 @@
+Artículo 8º—Las relaciones de servicio de los funcionarios legislativos tendrán como finalidad el satisfacer el interés público, y el velar por el efectivo cumplimiento de los objetivos de la Institución.

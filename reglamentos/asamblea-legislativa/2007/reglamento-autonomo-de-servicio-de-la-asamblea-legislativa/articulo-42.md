@@ -1,0 +1,2 @@
+Artículo 42.—Por razón de matrimonio, se concederá permiso de ocho días hábiles con goce de sueldo; y hasta por seis días naturales, también con goce de sueldo, a quien le sobrevenga el fallecimiento de algunos de sus padres, hijos, hermanos o cónyuge.
+Cuando se trate del fallecimiento de cualquier otro pariente, por consanguinidad o afinidad, el Director(a) Ejecutivo (a) queda facultado para conceder permiso con goce de sueldo, hasta por dos días.

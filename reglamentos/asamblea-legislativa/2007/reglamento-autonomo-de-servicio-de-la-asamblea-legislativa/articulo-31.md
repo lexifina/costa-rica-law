@@ -1,0 +1,1 @@
+Artículo 31.—Fuera de los casos de excepción previstos especialmente en los contratos de servicio, el salario será pagado quincenalmente por la Asamblea Legislativa, mediante los mecanismos usuales de la Institución.

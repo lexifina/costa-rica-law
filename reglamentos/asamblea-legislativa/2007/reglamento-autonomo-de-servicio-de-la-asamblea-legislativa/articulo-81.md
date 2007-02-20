@@ -1,0 +1,1 @@
+Artículo 81.—Deber de responsabilidad. Todo servidor (a) debe actuar con claro sentido del deber que le corresponde para el cumplimiento del fin público que compete a la Asamblea Legislativa y de las consecuencias que el cumplimiento o incumplimiento de ese deber tiene en relación con ese cometido institucional.

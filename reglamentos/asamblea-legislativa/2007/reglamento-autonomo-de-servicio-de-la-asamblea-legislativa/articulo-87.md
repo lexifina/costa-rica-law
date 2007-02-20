@@ -1,0 +1,1 @@
+Artículo 87.—Deber de comportarse con decoro y respeto. Todo servidor (a) debe ser justo (a), cuidadoso (a), respetuoso (a) y cortés en el trato con los usuarios (as) del servicio, sus jefes, subalternos (as) y compañeros (as).

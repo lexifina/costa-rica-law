@@ -1,0 +1,3 @@
+Artículo 29.—Los servidores (as) gozarán sin interrupción de su período de vacaciones y solo se podrán dividirlas en tres fracciones, cuando se trate de labores de índole especial que no permitan una ausencia muy prolongada.
+No obstante lo anterior, de conformidad con lo dispuesto en el inciso c) del artículo 33 de la Ley de Personal, el disfrute de las vacaciones podrá ser adelantado o retrasado, a juicio del Directorio, para que en lo posible coincida con los períodos de receso de la Asamblea, a fin de que no se afecte el buen servicio.
+Las vacaciones son incompensables y no podrán acumularse, salvo en los casos autorizados por la ley.

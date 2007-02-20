@@ -1,0 +1,1 @@
+Artículo 18.—Las ausencias injustificadas podrán asimilarse a solicitud del servidor (a), a vacaciones, debiendo en este caso pagarse el salario y disminuirse el número de días de vacaciones en la proporción que corresponda, esto sin perjuicio de las sanciones que establece el artículo 54.

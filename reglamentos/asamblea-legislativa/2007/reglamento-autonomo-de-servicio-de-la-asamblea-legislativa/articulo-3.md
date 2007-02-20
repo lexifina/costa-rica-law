@@ -1,0 +1,1 @@
+Artículo 3º—Este Reglamento será de observancia obligatoria para todos los servidores (as), y el patrono se reserva el derecho de adicionarlo o modificarlo, con sujeción, en cada caso, a las disposiciones legales aplicables.

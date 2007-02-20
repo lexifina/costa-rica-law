@@ -1,0 +1,1 @@
+Artículo 21.—El control de asistencia garantizará el cumplimiento de la jornada laboral correspondiente, y deberá ser llevado con diligencia, orden y claridad, de manera tal que no se presenten marcas defectuosas, manchadas o confusas. En caso de que fuese así, se tendrán por no hechas.

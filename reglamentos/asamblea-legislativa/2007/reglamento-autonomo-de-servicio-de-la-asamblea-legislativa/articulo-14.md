@@ -1,0 +1,1 @@
+Artículo 14.—El Directorio podrá fijar con la anuencia de los interesados, una jornada especial de trabajo y eximir del control de asistencia, a aquellos servidores (as) que por la índole de sus funciones, deban cumplir parte de estas fuera del recinto de la Asamblea Legislativa.

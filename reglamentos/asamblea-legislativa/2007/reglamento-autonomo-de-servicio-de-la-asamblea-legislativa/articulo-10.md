@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De la jornada de trabajo
+Artículo 10.—La jornada ordinaria de trabajo comprenderá una jornada única y continua de nueve horas de lunes a jueves y de tres horas los días viernes. Para el cumplimiento de dicha jornada se establece un horario que dará inicio a las nueve horas y concluirá a las dieciocho horas, de lunes a jueves, y de las nueve a las doce horas los días viernes. Dicha jornada incluye una hora para el almuerzo y quince minutos para el café de la tarde.
+No se verán afectos al horario señalado, los servidores (as) de las Unidades de Seguridad y Vigilancia y de Ujieres, así como cualquier otro personal cuyas actividades, por su naturaleza, tienen establecidos roles específicos, los cuales serán confeccionados por la respectiva jefatura. En el caso de los servidores de la Unidad de Seguridad y Vigilancia, su jornada laboral estará sujeta a lo previsto en el párrafo primero del artículo 136 del Código de Trabajo.
+Se reconocerá como tiempo extraordinario el que exceda a la jornada establecida en este artículo, según sea el caso.

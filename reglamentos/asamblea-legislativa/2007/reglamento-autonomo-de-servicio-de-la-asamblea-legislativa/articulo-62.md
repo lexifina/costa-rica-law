@@ -1,0 +1,1 @@
+Artículo 62.—El Departamento de Servicios de Salud elaborará e impulsará el programa de salud ocupacional que cubra todas las dependencias de la Institución, de conformidad con el artículo 288 del Código de Trabajo y demás legislación vigente sobre la materia.

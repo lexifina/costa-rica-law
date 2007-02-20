@@ -1,0 +1,1 @@
+Artículo 26.—El Director (a) Ejecutivo (a) de acuerdo con el Directorio, señalará las fechas en que el personal de la Asamblea Legislativa gozará de sus vacaciones, dentro de los requisitos estipulados por el Código de Trabajo y la Ley de Personal.

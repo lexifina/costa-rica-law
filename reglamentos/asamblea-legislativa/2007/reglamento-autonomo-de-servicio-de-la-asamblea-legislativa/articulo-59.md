@@ -1,0 +1,1 @@
+Artículo 59.—La amonestación verbal o escrita que proceda en cualquier caso conforme a las disposiciones de este Reglamento, se aplicará dentro del mes calendario una vez comprobada la comisión de la falta.

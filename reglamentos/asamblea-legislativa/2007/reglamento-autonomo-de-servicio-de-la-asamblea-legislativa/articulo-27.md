@@ -1,0 +1,1 @@
+Artículo 27.—En caso de terminación del contrato de trabajo antes de cumplirse el período de las cincuenta semanas, el servidor (a) tendrá derecho a vacaciones proporcionales de acuerdo con el tiempo trabajado, que le serán pagadas con la liquidación correspondiente.

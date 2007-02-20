@@ -1,0 +1,1 @@
+Artículo 94.—Como lo ordena la ley, este Reglamento se mantendrá expuesto en caracteres fácilmente legibles, por lo menos en dos de los sitios más visibles del local del patrono y queda a opción de este, sin perjuicio de lo anterior, imprimirlo en folletos especiales para distribuirlos entre los trabajadores.
