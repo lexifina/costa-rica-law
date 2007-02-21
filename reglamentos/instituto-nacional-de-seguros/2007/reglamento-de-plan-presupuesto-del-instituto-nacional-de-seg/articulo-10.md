@@ -1,0 +1,2 @@
+Artículo 10.—A solicitud de cualquiera de sus miembros o del interesado afectado, pueden revisarse los acuerdos adoptados por la Comisión de Presupuesto. Para ello se enviará solicitud expresa a la Dirección de Planificación, quien se encargará de transmitirlo a este órgano. La Comisión revisará los argumentos y decidirá lo correspondiente.
+Ref.: Modificado según Acuerdo de Junta Directiva Nº VIII, de la Sesión 8127 del 02-06-97.

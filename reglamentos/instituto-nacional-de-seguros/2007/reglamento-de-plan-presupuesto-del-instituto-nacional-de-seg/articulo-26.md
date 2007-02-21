@@ -1,0 +1,1 @@
+Artículo 26.—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los presupuestos extraordinarios y las modificaciones presupuestarias tendrán efecto legal en el presupuesto, a partir de la aprobación por parte de las instancias externas e internas competentes, según corresponda.

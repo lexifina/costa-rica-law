@@ -1,0 +1,2 @@
+Artículo 14.—Le corresponde a las Unidades Ejecutoras formular los objetivos, metas y proyectos estratégicos y las correspondientes estimaciones de ingresos, egresos e inversiones a incluir en el Plan- Presupuesto. Estas dependencias expondrán a la Dirección de Planificación sus planteamientos dentro de los plazos y condiciones definidos para dicho fin y asumirán la responsabilidad sobre lo solicitado.
+Ref.: Modificado según Acuerdo de Junta Directiva Nº VIII, de la Sesión 8127 del 02-06-97.

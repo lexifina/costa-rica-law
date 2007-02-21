@@ -1,0 +1,3 @@
+VIII. DE LAS ACTIVIDADES, SUBPROGRAMAS Y PROGRAMAS
+Artículo 34.—Para crear, eliminar, trasladar o transformar Actividades o Subprogramas es necesario que el solicitante realice un estudio técnico que deberá ser remitido a la Dirección de Planificación para que mediante el Departamento de Presupuesto valore y recomiende a la Comisión de Presupuesto, quien resolverá finalmente.
+Para crear o eliminar un Programa la Dirección de Planificación mediante el Departamento de Presupuesto elaborará el estudio de mérito el cual se planteará a los órganos internos y a la Contraloría General de la República, para su aprobación.

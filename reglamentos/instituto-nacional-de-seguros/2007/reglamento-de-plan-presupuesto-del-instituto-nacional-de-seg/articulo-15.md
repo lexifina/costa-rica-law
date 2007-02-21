@@ -1,0 +1,1 @@
+Artículo 15.—Las unidades ejecutoras deberán contemplar dentro del Plan Presupuesto los objetivos, metas y presupuesto que contribuyan al mejoramiento del sistema de control interno, como resultado del proceso de autoevaluación anual, según lo dispuesto en el artículo 17 b. de la Ley General de Control Interno.

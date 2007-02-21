@@ -1,0 +1,1 @@
+Artículo 13.—Son Unidades Ejecutoras del Plan-Presupuesto las dependencias a cargo de un programa o subprograma. Son Unidades Coadyuvantes las que dependen de una Unidad Ejecutora y están a cargo de una actividad.

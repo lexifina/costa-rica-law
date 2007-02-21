@@ -1,0 +1,3 @@
+III. DE LA FORMULACION DEL
+PLAN-PRESUPUESTO ORDINARIO
+Artículo 12.—Técnicas de Formulación Presupuestaria. En la formulación de los presupuestos, se utilizarán las técnicas y los principios presupuestarios aceptados, con base en criterios funcionales que permitan evaluar el cumplimiento de las políticas y los planes anuales, así como la incidencia y el impacto económico-financiero de la ejecución. Para ello, deberán atenderse elementos como la prestación de servicios, la producción de bienes y las funciones generales de dirección y apoyo de cada órgano, entidad o institución.

@@ -1,0 +1,2 @@
+Artículo 38.—Régimen sancionatorio. El incumplimiento de lo establecido en este Reglamento, dará lugar a la aplicación de las responsabilidades que establecen la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito y las demás disposiciones concordantes.
+San José, 7 de febrero del 2007.

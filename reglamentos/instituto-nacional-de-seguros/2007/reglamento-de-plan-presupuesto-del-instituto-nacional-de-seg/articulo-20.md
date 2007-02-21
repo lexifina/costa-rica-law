@@ -1,0 +1,1 @@
+Artículo 20.—El control del Plan-Presupuesto debe ser continuo, de tal forma que permita a los responsables de las Unidades Ejecutoras y Coadyuvantes detectar oportunamente desviaciones y adoptar las medidas correctivas pertinentes.
