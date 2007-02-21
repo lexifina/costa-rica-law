@@ -1,0 +1,2 @@
+Artículo 31.—Del Registro Auxiliar. Para cada cuenta corriente bancaria habrá un registro auxiliar que servirá para llevar el control del saldo diario.
+Todos los cheques, sin excepción, deberán ser registrados en dichos auxiliares en el momento en que son emitidos. Lo mismo deberá hacerse con los depósitos y las notas de débito o crédito emitidas por los bancos. La Contabilidad será la encargada de llevar estos registros auxiliares de bancos independientemente de los que establezca la Tesorería para sus propios controles.
