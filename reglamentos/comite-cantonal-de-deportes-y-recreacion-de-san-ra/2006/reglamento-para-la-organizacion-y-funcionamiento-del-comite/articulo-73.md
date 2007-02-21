@@ -1,0 +1,1 @@
+Artículo 73.—Las junta directivas de los comités distritales y subcomités llevarán al día sus libros de actas y tesorería, los cuales serán facilitados por la junta directiva del Comité Cantonal. Los miembros de esta Junta, los miembros del Concejo Municipal o el Director Regional de Deportes, podrán solicitar los libros para su revisión.

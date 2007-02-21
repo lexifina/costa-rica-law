@@ -1,0 +1,1 @@
+Artículo 17.—La Junta Directiva del Comité Cantonal deberá reunirse con carácter ordinario cada quince días. Deberá comunicar por escrito al Concejo Municipal y a las demás organizaciones deportivas, comunales y gubernamentales para su conocimiento general.

@@ -1,0 +1,1 @@
+Artículo 57.—El Concejo Municipal, en apego de la Ley de Creación del Instituto del Deporte y la Recreación, podrá nombrar las juntas directivas de las instalaciones deportivas que así lo ameriten, de acuerdo con la inversión estatal realizada.

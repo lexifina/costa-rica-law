@@ -1,0 +1,1 @@
+Artículo 21.—Cuando un directivo desea que su moción quede fielmente en el acta, la presentará por escrito y así se transcribirá si es aprobada, pero si es rechazada, el firmante puede solicitar al Secretario que se consigne su posición al respecto.

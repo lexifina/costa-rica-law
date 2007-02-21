@@ -1,0 +1,1 @@
+Artículo 32.—La Junta Directiva del Comité entregará contra factura el dinero de partidas específicas a los comités distritales, subcomités o agrupaciones, que hayan utilizado su personería jurídica para obtenerla.

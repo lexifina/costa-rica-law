@@ -1,0 +1,1 @@
+Artículo 70.—Cada comité distrital podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo ameriten. Para dicho nombramiento, el comité distrital seguirá los mismos procedimientos usados en los artículo 58, 59, 60 de este Reglamento.

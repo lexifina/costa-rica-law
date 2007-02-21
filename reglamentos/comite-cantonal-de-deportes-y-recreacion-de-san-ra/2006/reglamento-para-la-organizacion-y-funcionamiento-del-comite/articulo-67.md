@@ -1,0 +1,1 @@
+Artículo 67.—Los miembros de la Junta Directiva de cada Comité Distrital serán juramentados por la Junta Directiva del Comité Cantonal después de que en aquellas se haya establecido el puesto de cada directivo.

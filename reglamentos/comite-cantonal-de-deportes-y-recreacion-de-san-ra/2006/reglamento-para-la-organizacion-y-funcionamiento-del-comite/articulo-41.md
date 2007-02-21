@@ -1,0 +1,1 @@
+Artículo 41.—La vigencia de las comisiones de apoyo será la misma de la Junta Directiva del Comité Cantonal. Sus miembros servirán en sus cargos sin recibir dietas ni remuneración alguna, pudiendo ser reelectos para un nuevo período.

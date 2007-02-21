@@ -1,0 +1,1 @@
+Artículo 62.—Los comités distritales de deportes y recreación son la máxima representación de la Junta Directiva del Comité Cantonal en la actividad de promoción, administración de instalaciones y los responsables de los desarrollos deportivos y recreativos de su comunidad

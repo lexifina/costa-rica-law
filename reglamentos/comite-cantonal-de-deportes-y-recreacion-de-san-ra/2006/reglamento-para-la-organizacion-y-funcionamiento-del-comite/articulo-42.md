@@ -1,0 +1,1 @@
+Artículo 42.—Cada comisión de apoyo debe sesionar por lo menos dos veces al mes. Nombran en su primera sesión, dentro de su seno, un coordinador, un secretario, quien llevará el libro de actas proporcionado por la Junta Directiva del Comité Cantonal, un pro secretario y dos vocales.

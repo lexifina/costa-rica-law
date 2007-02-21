@@ -1,0 +1,1 @@
+Artículo 6º—El presente Reglamento es de cumplimiento obligatorio para los miembros del Comité Cantonal de Deportes y el mismo incluye además las normas para regular el funcionamiento de los comités distritales, de barrio o caserío y la administración de las instalaciones deportivas.

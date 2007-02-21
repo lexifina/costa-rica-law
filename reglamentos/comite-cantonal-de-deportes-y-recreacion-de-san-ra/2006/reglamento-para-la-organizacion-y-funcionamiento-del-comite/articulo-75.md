@@ -1,0 +1,1 @@
+Artículo 75.—Para todo lo no previsto en el presente Reglamento, regirán las disposiciones del Código Municipal, la ley de Administración Pública, la ley de Administración Financiera y la ley orgánica de la Contraloría General de la República.

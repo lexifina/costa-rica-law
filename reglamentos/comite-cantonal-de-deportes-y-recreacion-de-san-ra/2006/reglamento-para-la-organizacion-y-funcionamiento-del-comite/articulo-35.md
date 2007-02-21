@@ -1,0 +1,1 @@
+Artículo 35.—Para recibir una contribución, el comité distrital, subcomité de barrio o comisión deportiva, debe haber presentado su plan de trabajo a la Junta Directiva del Comité Cantonal de Deportes y Recreación de San Rafael para su aprobación. No se dará la contribución si no se tiene plan de trabajo aprobado.

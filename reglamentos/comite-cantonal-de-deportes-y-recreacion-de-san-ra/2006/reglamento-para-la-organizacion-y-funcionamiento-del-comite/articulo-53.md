@@ -1,0 +1,1 @@
+Artículo 53.—Por disposición de la Contraloría General de la República, el Comité Cantonal de Deportes y Recreación no podrá hacer inversiones en instalaciones deportivas que sean propiedad de particulares o de asociaciones de desarrollo comunal, sin que medie un contrato mediante el cual, la instalación sea administrada por un comité distrital o por el mismo Comité Cantonal

@@ -1,0 +1,1 @@
+Artículo 68.—Una vez juramentada la Junta Directiva del Comité Distrital, la Junta Directiva del Comité Cantonal comunicará su conformación e inicio de labores al Concejo Municipal y a la Dirección Regional de Deportes.

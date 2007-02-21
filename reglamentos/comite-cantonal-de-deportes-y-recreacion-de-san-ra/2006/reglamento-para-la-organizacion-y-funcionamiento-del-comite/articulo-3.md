@@ -1,0 +1,2 @@
+Artículo 3º—Los miembros del Comité Cantonal serán electos en el mes de noviembre e iniciarán labores el primero de enero del año siguiente a su elección. Durarán en sus cargos dos años y no devengarán dieta, ni remuneración alguna, excepto los viáticos que apruebe el Comité Cantonal.
+Sesionará ordinariamente dos veces al mes y extraordinariamente cuando los convoque el Presidente o al menos tres de sus miembros.

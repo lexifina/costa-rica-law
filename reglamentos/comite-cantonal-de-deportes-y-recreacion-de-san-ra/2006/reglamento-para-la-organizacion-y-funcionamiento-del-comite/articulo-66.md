@@ -1,0 +1,1 @@
+Artículo 66.—La Junta Directiva de cada Comité Distrital comunicará por escrito a la Junta Directiva del Comité Cantonal, la conformación de ella por puesto. Deberá incluir el nombre completo de cada miembro, su dirección exacta, número de cédula, número de teléfono, así como el puesto que ocupará.

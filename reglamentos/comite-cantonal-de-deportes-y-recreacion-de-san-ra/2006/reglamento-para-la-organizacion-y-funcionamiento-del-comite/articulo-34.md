@@ -1,0 +1,1 @@
+Artículo 34.—Cuando el solicitante es individual, debe consignar en la nota de solicitud, sus datos personales respaldada por fotocopia de la cédula. Cuando sea una organización debidamente inscrita, debe consignar los datos de la entidad y una fotocopia de su personería al día.

@@ -1,0 +1,1 @@
+Artículo 31.—De la subvención económica recibida por parte de la Municipalidad, la Junta Directiva del Comité podrá incluir en su presupuesto anual una cantidad para la compra de terrenos aptos para el deporte y la recreación, así como para la construcción de instalaciones deportivas o recreativas.

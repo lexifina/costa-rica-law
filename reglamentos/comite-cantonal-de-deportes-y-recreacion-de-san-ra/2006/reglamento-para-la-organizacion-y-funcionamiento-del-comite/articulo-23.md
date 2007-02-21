@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos comunes de la Junta Directiva del Comité se decidirán por simple mayoría. En lo que respecta al presupuesto, éste se acordará por mayoría calificada. Queda a criterio de algún (os) miembro(s), el justificar en actas por qué su voto fue negativo. Los acuerdos tomados por la Junta Directiva del Comité quedarán firmes al aprobarse el acta respectiva.

@@ -1,0 +1,1 @@
+Artículo 55.—No podrán utilizarse instalaciones deportivas para la realización de cualquier tipo de festejos, sin el permiso previo del Comité Cantonal y sin la garantía que la ley exige que las instalaciones quedarán en perfectas condiciones después del evento.

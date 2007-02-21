@@ -1,0 +1,3 @@
+Artículo 61.—El número de integrantes de la Junta Directiva de los comités distritales será igual a la del Comité Cantonal, incluyendo el fiscal.
+Su período de labores de dos años empezará al mes siguiente después de iniciado el de la nueva Junta Directa. Podrán ser reelectos. No recibirán dietas ni remuneración alguna por el desempeño de sus funciones. En concordancia con el artículo 167 de la Ley 7794, Código Municipal, los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor, el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar estos comités.
+.

@@ -1,0 +1,1 @@
+Artículo 18.—Las sesiones extraordinarias de la Junta Directiva del Comité Cantonal, serán convocadas por iniciativa del Presidente o a solicitud de por lo menos, tres miembros. La comunicación será por escrito a los demás directivos, con veinticuatro horas de anticipación y deberá indicar el día, la hora de la sesión y los asuntos a tratar.
