@@ -1,8 +1,2 @@
-Artículo 8º—Los requisitos para solicitar el beneficio de capacitación son:
-a) Ser funcionario por lo menos con dos años de laborar para el CUC y nombrado en propiedad.
-b) El curso, seminario, conferencia, congreso y otros, sea afín con el puesto que desempeña.
-c) Aportar la documentación del curso, seminario, conferencia, congreso que incluya los datos de costos, duración y descripción de su contenido y otros.
-d) Llenar el formulario de solicitud con la antelación debida, para que la Comisión tenga suficiente tiempo para resolver lo que corresponda.
-e) Tener excelente conducta.
-f) Manifestar interés real de obtener el permiso para capacitarse.
-g) Firmar un contrato de entendimiento con el CUC.
+Artículo 8º—Las actividades de aprendizaje institucionales (individuales u organizacionales) serán de naturaleza inclusiva. Consecuentemente, permitirá y facilitará la participación de todos los colaboradores, sin hacer distinción en aspectos como: tipo de nombramiento, edad, condición física u otras circunstancias, salvo cuando para participar en la actividad deba de cumplir con requerimientos académicos, de experiencia, de nombramiento en propiedad, de los objetivos especializados de la actividad, u otros similares, que deriven de la particular naturaleza de la acción de aprendizaje.
+(Así reformado mediante sesión 2518 del 21 de febrero de 2007)

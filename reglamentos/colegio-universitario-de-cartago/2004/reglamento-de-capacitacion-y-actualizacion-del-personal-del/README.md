@@ -14,3 +14,4 @@ Reglamento de Capacitación y actualización del personal del Colegio Universita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-01 | la propia norma |
+| 2 | 2007-02-21 | Reglamento 2518 (2007-02-21) |
