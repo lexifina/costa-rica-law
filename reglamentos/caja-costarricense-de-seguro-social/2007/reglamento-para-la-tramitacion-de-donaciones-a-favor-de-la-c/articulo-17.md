@@ -1,0 +1,1 @@
+Artículo 17.—Disposiciones supletorias. En caso de omisión de las disposiciones del presente reglamento, se aplicará en forma supletoria el Código Civil, y otras disposiciones que resulten aplicables, en tanto no resulte contrario a normas y principios del Derecho Administrativo.

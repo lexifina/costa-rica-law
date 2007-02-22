@@ -1,0 +1,3 @@
+Artículo 16.—De la recepción del bien donado. El órgano que desarrolló el procedimiento de donación recibirá el bien donado, salvo en el caso específico de dinero, títulos valores u otros de igual o similar naturaleza, cuya recepción corresponderá al Gerente de la División Financiera.
+Al momento de recibir el bien, la unidad respectiva deberá verificar que corresponda a las características del bien ofrecido en donación. En caso contrario, no se podrá recibir el bien y deberá informar al órgano que aprobó la donación para lo que corresponda.
+Igualmente, deberá proceder inmediatamente a hacer las gestiones necesarias, y según las disposiciones que resulten aplicables, para registrar dichos bienes a nombre de la institución.

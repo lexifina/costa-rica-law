@@ -1,0 +1,1 @@
+Artículo 3º—Verificación del cumplimiento de las disposiciones. Las Gerencias de División serán las encargadas de velar porque se dé cumplimiento al presente Reglamento y se promueva su objeto en apego a la normativa establecida.
