@@ -14,3 +14,4 @@ Manual de Normas y Procedimientos de Atención Integral a la Mujer para la Preve
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-07 | la propia norma |
+| 2 | 2007-02-22 | Decreto Ejecutivo 33650 (2007-02-22) |

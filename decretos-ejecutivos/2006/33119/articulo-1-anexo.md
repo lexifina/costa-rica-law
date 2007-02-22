@@ -1,7 +1,7 @@
-Normas y Procedimientos de Atención Integral a la
-Mujer para la Prevención y Manejo del Cáncer de
-Cuello de Útero, para el I y II Nivel de Atención
-y Normas de Laboratorios de Citología
+(*) Manual de Normas y Procedimientos de Atención Integral a la Mujer para la Prevención y Manejo del
+Cáncer de Cuello Útero, I – II y III Nivel de Atención
+y Normas de Laboratorio de Citología
+(*) (Modificada su denominación por el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 Presentación
 El Manual de Normas y Procedimientos de Atención Integral a la Mujer para la Prevención y Manejo del Cáncer de Cuello de Útero, en el I y II Nivel de Atención, constituye una necesidad sentida por los profesionales de salud de contar con un instrumento actualizado que estandarice los parámetros científicos y éticos para realizar la prevención, detección, diagnóstico y tratamiento de acuerdo al nivel de atención.
 Las normas han sido redactadas desde una visión integral teniendo como meta dar respuesta a las necesidades e intereses de las mujeres, a partir de sus especificidades como la edad, la etnia, la orientación sexual, entre otras, desde una perspectiva de respeto a los derechos sexuales y derechos reproductivos de éstas y sus parejas con equidad de género.
@@ -32,8 +32,18 @@ Para efectos del presente Manual entiéndase por:
 2. ACTITUDES: Corresponden la predisposición y los valores que tenemos las personas frente a una situación, problema o comportamiento (posición emocional). Es la que facilita o imposibilita la práctica y/o la ejecución de un nuevo comportamiento.
 3. ACTOR SOCIAL: Individuo, grupo, organización o institución que actúa en representación de sus intereses con el propósito de realizarlos. Cada actor es un espacio local, cuenta con cierta posición, cantidad de poder y capacidad, de oportunidad para obtener sus objetivos, dentro de un contexto de relaciones y sistemas complejos de interacciones. Para realizar sus intereses deberá formular propuestas y negociarlas.
 4. AG: Alto grado.
-5. AGUS: Células glandulares de significado indeterminado.
-6. ASCUS: Células escamosas de significado indeterminado.
+AGC-NOS: Células glandulares de significado indeterminado en donde la lesión no marca para neoplasia.
+(Así adicionada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
+5. AGUS o AGC: Células glandulares de significado indeterminado.
+(Así reformada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
+AIS: Adenocarcinoma in situ.
+(Así adicionada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
+ASC: Células escamosas de significado indeterminado
+(Así adicionada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
+ASC-H: Células escamosas de significado indeterminado de alto riesgo
+(Así adicionada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
+6. ASCUS o ASC-US: Células escamosas de significado indeterminado de bajo riesgo
+(Así reformada la abreviatura anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 7. ASIS: Análisis de Situación de Salud.
 8. ATAP: Asistente Técnico de Atención Primaria.
 9. ATENCIÓN INTEGRAL: El carácter integral esta indicado por la sustitución del tratamiento a la enfermedad de cada individuo por su atención continua, dentro de un ambiente familiar y social con una orientación de salud positiva. Se incluye no sólo esfuerzos curativos sino un número importante y creciente de acciones de promoción de la salud. La atención integral se sitúa en todo ciclo vital y en la dimensión biopsicosocial de las personas y su relación con el ambiente. La atención integral reconoce el carácter histórico y social de los hombres y las mujeres.
@@ -471,7 +481,9 @@ Fuerza de la Recomendación tipo A (58).
 1.2 Concentración
 De acuerdo con la evolución patológica de la usuaria y al criterio del profesional en medicina.
 1.3 Cobertura
-La cobertura es del 100% de la población referida por año. Fuerza de la Recomendación tipo A (58).
+La cobertura es del 100% de la población referida por año sin importar condición de aseguramiento (asegurada o no). Fuerza de la Recomendación tipo A (58).
+Las mujeres con enfermedad maligna o premaligna de cuello de útero tendrán derecho a la seguridad social. Cuando no las cobijen otros regímenes, disfrutarán de este derecho por cuenta del Estado. Para ello, la Caja Costarricense del Seguro Social adoptará las medidas respectivas. Los centros o servicios públicos de prevención y atención de la salud quedarán obligados a prestar, en forma inmediata, el servicio que esta población requiera sin discriminación de raza, género, condición social ni nacionalidad.
+(Así reformado el inciso anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 1.3.1 Indicador de cobertura
 Porcentaje de mujeres que se realizó la colposcopía a nivel nacional.
 Se calcula colocando en el numerador el número de mujeres que se les realizó la colposcopía a nivel nacional, entre el denominador, que los constituyen el total de mujeres que fueron referidas para colposcopía a nivel nacional.
@@ -482,9 +494,8 @@ Se calcula colocando en el numerador el número de mujeres que se les realizó l
 Nº mujeres que realizó colposcopía a nivel área atracción en el período x 100
 Total de mujeres referidas a colposcopía a nivel área atracción en el período.
 1.4 Rendimiento
-Si se trata de una colposcopía diagnóstica, el número de usuarias atendidas por el o la profesional que realiza la colposcopía debe ser de cuatro (4) por hora, quince (15) minutos por usuaria.
-En caso de colposcopía terapéutica LEEP, el número de usuarias atendidas por el profesional que realiza la colposcopía debe ser de dos (2) por hora, treinta (3)0 minutos por usuaria.
-Si se realiza una criocirugía, el número de usuarias atendidas por el profesional debe ser de cuatro (4) por hora, quince (15) minutos por usuaria.
+Si se trata de una colposcopía diagnóstica, el número de usuarias atendidas por el o la profesional que realiza la colposcopía debe ser de cuatro (4) por hora, quince (15) minutos por usuaria. Si la consulta es de primera vez la duración será de veinte (20) minutos. En caso de colposcopía terapéutica LEEP, el número de usuarias atendidas por el profesional que realiza la colposcopía debe ser de dos (2) por hora, treinta (3)0 minutos por usuaria. Si se realiza una criocirugía, el número de usuarias atendidas por el profesional debe ser de cuatro (4) por hora, quince (15) minutos por usuaria.
+(Así reformado el inciso anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 2. Organización de la atención para la realización de la colposcopía.
 2.1 Recursos Humanos para realización de colposcopía.
 El profesional responsable de la realización del examen colposcópico es el profesional en medicina especialista en ginecología con capacitación formal en colposcopía.
@@ -572,12 +583,9 @@ La población blanco es captada e inscrita al momento de realizarse la colposcop
 El auxiliar de enfermería es el responsable de brindar información y orientación a las usuarias según sus necesidades e inquietudes en materia de cáncer de cuello de útero, toma de colposcopía y citología cérvico vaginal, la información debe ser oportuna, veraz y confiable. Además de preparar a la usuaria para la realización del examen. Debe llenar completamente con letra legible y clara la información correspondiente a la usuaria en la hoja de realización de la colposcopía.
 Posterior a esto, debe entregarle al profesional en medicina el expediente con la hoja respectiva.
 3.3 Consulta
-Durante la consulta el personal de salud debe otorgar una atención respetuosa, competente que dignifique y eduque a la usuaria, sin distingos de edad, etnia, orientación sexual, religión, clase social, nacionalidad y condición de aseguramiento.
-El profesional en medicina que realiza la colposcopía debe iniciar con la historia clínica y concluir con el llenado de la hoja de resultado de la colposcopía.
-El profesional debe explicar a la usuaria, en términos que ella comprenda, en qué consiste el examen y el objetivo del mismo y se le pide que colabore relajándose para evitar molestias.
-Se le pide a la usuaria orinar antes del procedimiento, luego pasa al espacio disponible para quitarse la ropa interior y colocarse la bata, posteriormente se le solicita su colaboración al acostarse en la cama en posición ginecológica de manera que se encuentre cómoda y se cubre con una sábana. En caso de mujeres con discapacidad o adultas mayores con dificultad para subirse a la camilla y colocarse en posición ginecológica, debe proveérsele la ayuda necesaria.
-El personal de salud debe permitir que la usuaria permanezca acompañada por una persona de su preferencia, si así ella lo indicara.
+Durante la consulta el personal de salud debe otorgar una atención respetuosa, competente que dignifique y eduque a la usuaria, sin distingos de edad, etnia, orientación sexual, religión, clase social, nacionalidad y condición de aseguramiento (asegurada o no), incluye todas las consultas posteriores de seguimiento. Las mujeres con enfermedad maligna o premaligna de cuello de útero tendrán derecho a la seguridad social. Cuando no las cobijen otros regímenes, disfrutarán de este derecho por cuenta del Estado. Para ello, la Caja Costarricense del Seguro Social adoptará las medidas respectivas. Los centros o servicios públicos de prevención y atención de la salud quedarán obligados a prestar, en forma inmediata, el servicio que esta población requiera sin discriminación de raza, género, condición social ni nacionalidad. El profesional debe explicar a la usuaria, en términos que ella comprenda, en qué consiste el examen y el objetivo del mismo y se le pide que colabore relajándose para evitar molestias. Se le pide a la usuaria orinar antes del procedimiento, luego pasa al espacio disponible para quitarse la ropa interior y colocarse la bata, posteriormente se le solicita su colaboración al acostarse en la cama en posición ginecológica de manera que se encuentre cómoda y se cubre con una sábana. En caso de mujeres con discapacidad o adultas mayores con dificultad para subirse a la camilla y colocarse en posición ginecológica, debe proveérsele la ayuda necesaria. El personal de salud debe permitir que la usuaria permanezca acompañada por una persona de su preferencia, si así ella lo indicara.
 En caso de que otros u otras profesionales o estudiantes deseen observar o participar en este procedimiento se le debe pedir a la usuaria, previo al procedimiento, su consentimiento informado el cual debe estar firmado por ambas partes en el expediente.
+(Así reformado el inciso anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 3.4 Evaluación colposcópica
 Se debe seguir el siguiente orden al realizar el procedimiento de la evaluación colposcopía:
 3.4.1 A criterio del colposcopista, se tomará en caso requerido una citología cérvico vaginal adicional.
@@ -594,6 +602,8 @@ Se debe seguir el siguiente orden al realizar el procedimiento de la evaluación
 3.4.12 Llenar el reporte colposcópico estandarizado y dejar una copia en el archivo y otro en el expediente.
 3.5 Criterios de Colposcopía Satisfactoria
 La zona de transformación debe ser visualizada en su totalidad.
+La lesión debe ser observada fuera del canal endocervical.
+(Así reformado el inciso anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 3.6 Envío de las biopsias
 La muestra tomada por medio de biopsia se debe colocar en un envase con formalina buferizada.
 La hoja de solicitud de examen histológico debe ser llenada con lápiz de grafito y enviarla al servicio de patología en un tiempo no mayor de ocho (8) días posteriores a su toma. Esta hoja debe ser llenada por el profesional en medicina.
@@ -606,7 +616,8 @@ El sistema de registro de colposcopías debe contener la siguiente información:
 3.7.2.2 Cédula de residencia.
 3.7.2.3 Pasaporte.
 3.7.2.4 Permiso de trabajo.
-3.7.3 Nombre de la usuaria: Primer apellido. Segundo apellido. Nombre completo.
+3.7.3 Nombre de la usuaria: Primer apellido. Segundo Apellido.
+Nombre completo.
 3.7.4 Fecha de nacimiento de la usuaria.
 3.7.5 Edad de la usuaria.
 3.7.6 Teléfono en donde se pueda localizar a la usuaria.
@@ -664,9 +675,10 @@ El sistema de registro de colposcopías debe contener la siguiente información:
 3.7.36 Si el resultado es positivo por lesiones pre-malignas indicar:
 3.7.36.1 Fecha de notificación.
 3.7.36.2 Número telefónico.
-3.7.36.3 Persona responsable a quien se notifica.
+3.7.36.3 Persona responsable a quién se notifica.
 Para las usuarias que acuden a los establecimientos de salud privados, deben enviar las biopsias a los laboratorios privados habilitados por el Ministerio de Salud.
-Los laboratorios privados que analizan biopsias deben reportar los resultados de las mismas al Ministerio de Salud, con el formato anterior, cada mes.
+Los laboratorios privados que analizan biopsias deben reportar los resultados de las mismas al Ministerio de Salud, con el formato anterior, cada mes. Especificar los diagnósticos histopatológicos de la citología cérvicovaginal y biopsia que se deben de reportar al Ministerio de Salud, de carácter obligatorio. (ASCUS, AGUS, LIEBG, LIEAG (Displasia Leve, Displasia Moderada, Displasia Severa, Cáncer insitu)).
+(Así reformado el inciso anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 3.8 Entrega de resultados de la colposcopía y de la biopsia
 El resultado de la colposcopía y/o la biopsia debe quedar consignados en el expediente de la usuaria, por medio de la hoja de reporte colposcópico estandarizado y la hoja de reporte de la biopsia, respectivamente.
 Toda biopsia positiva por malignidad, debe ser notificada a la usuaria en un lapso no mayor a los ocho (8) días luego de haber recibido el centro de salud el resultado.
@@ -689,7 +701,6 @@ La contrareferencia debe contener como mínimo la siguiente información:
 3.9.12 Seguimiento de la usuaria en el I nivel de atención.
 Si la usuaria debe ser referida a un tercer nivel de atención, se le debe elaborar la hoja de referencia correspondiente, con la información anteriormente mencionada. (Véase el Capítulo I, punto 4.12. Sistema de Referencia y Contrareferencia). Esta debe ser entregada a la usuaria y dejar una copia en el expediente de la misma.
 4. Seguimiento a usuarias con citologías cérvico vaginales alteradas.
-Las mujeres que presenten citologías cérvico vaginales alteradas se les dará seguimiento de acuerdo a la descripción que se observa en los siguientes flujogramas:
 Flujograma 1. Manejo de citología cérvico vaginal alterada por la presencia de ASC-US
 [imagen]
 Flujograma 2. Manejo de citología cérvicovaginal alterada por la presencia de ASC-H
@@ -700,6 +711,7 @@ Flujograma 4. Manejo de citología cérvicovaginal alterada por LIEAG
 [imagen]
 Flujograma 5. Manejo de citología cérvicovaginal alterada por AGC
 [imagen]
+(Así reformado el apartado anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 CAPÍTULO III. NORMAS DE PARTICIPACIÓN SOCIAL EN LA PROMOCIÓN DEL DERECHO A LA EDUCACIÓN EN SALUD, EL AUTOCUIDADO Y LA PREVENCIÓN DEL CÁNCER CUELLO DE ÚTERO
 Conceptos básicos
 Participación social
@@ -769,7 +781,7 @@ El equipo de salud debe interactuar con las personas y grupos de la comunidad, p
 5. Participación del equipo de trabajo en actividades de la comunidad.
 El equipo de salud debe involucrarse en las actividades que se realizan en la comunidad en coordinación con las instituciones locales, para que la población identifique al personal de salud, como una instancia preocupada por la salud de las personas, la prevención y detección temprana del cáncer de cuello de útero, así como, la importancia dada a la participación activa de las mujeres y los hombres en la toma de decisiones en salud y la solución de sus problemas.
 El personal de salud debe promover el respeto a los derechos de los niños, adolescentes, mujeres y hombres adultos y de las personas adultas mayores en todos aquellos espacios comunitarios, del hogar e institucionales, así como, promover en éstos, las relaciones de género basadas en la igualdad y equidad entre ambos sexos, para el logro de formas de convivencia democráticas; también el personal de salud debe promover la realización de la citología cérvico vaginal como un derecho fundamental de las mujeres.
-2.1 Identificación '64e actores sociales
+2.1 Identificación de actores sociales
 El equipo de salud debe:
 2.1.1 Identificar a las personas, grupos, e instituciones que tengan interés y compromiso para desarrollar alianzas estratégicas para mejorar la salud integral de las mujeres y en realizar cambios de actitud para fomentar el autocuidado de la salud de éstas, la prevención y la detección temprana del cáncer de cuello de útero.
 2.1.2 Conocer el trabajo que realizan los grupos y organizaciones sociales, lo mismo que la forma como lo hacen, con la finalidad de apoyarlos y trabajar en conjunto. Para organizar esta información, se puede utilizar la guía para el análisis del grupo. (véase anexo Nº 10).
@@ -817,6 +829,273 @@ El equipo de salud debe facilitar espacios donde se involucre a la comunidad.
 2.5.7 Actualizar y divulgar por diferentes medios de información, al menos cada 4 meses en lugares visibles, material educativo e informativo sobre la importancia del autocuidado de la salud, para la prevención y detección temprana del cáncer de cuello de útero en la población.
 3. Evaluación
 El equipo de salud y comunidad, conjuntamente deben de formalizar un mecanismo de evaluación y rendición de cuentas, que explique los problemas de salud en relación al autocuidado de la salud, la prevención y detección temprana de cáncer de cuello de útero.
+(*) NORMAS Y PROTOCOLOS CLÍNICOS PARA LA ATENCIÓN DE LA PATOLOGÍA DE CÁNCER DE CUELLO DE ÚTERO EN EL TERCER NIVEL DE ATENCION
+Todos los estadios de cáncer de cuello útero deberán ser tratados en la Unidad Nacional de Ginecología Oncológica, en los hospitales clase A, que tengan departamentos de ginecología oncológica o en los hospitales regionales donde existan ginecólogos oncólogos, oncólogos médicos, cirujanos oncólogos y médicos radioterapeutas debidamente entrenados. Estos servicios deben ser acreditados por el Ministerio de Salud.
+En casos de lesiones premalignas de cuello de útero se debe seguir la normativa de colposcopía para II nivel.
+1. Normas programáticas para la realización de atención de cáncer de cuello de útero en las consultas de ginecología oncología u oncología
+1.1 Población blanco. Fuerza de la Recomendación tipo A
+1.1.1 Toda usuaria con cáncer de cuello de útero.
+1.2 Concentración. Según indicación médica (ver punto 4)
+1.3 Cobertura. La cobertura es del 100% de la población referida por año sin distingo de su condición de aseguramiento (asegurada o no). Fuerza de la Recomendación tipo A (58).
+Las mujeres con enfermedad maligna o premaligna de cuello de útero tendrán derecho a la seguridad social. Cuando no las cobijen otros regímenes, disfrutarán de este derecho por cuenta del Estado. Para ello, la Caja Costarricense del Seguro Social adoptará las medidas respectivas. Los centros o servicios públicos de prevención y atención de la salud quedarán obligados a prestar, en forma inmediata, el servicio que esta población requiera sin discriminación de raza, género, condición social ni nacionalidad.
+1.3.1 Indicador de cobertura. Porcentaje de mujeres con cáncer de cuello de útero que recibió por primera vez la consulta en ginecología oncológica, u oncología a nivel nacional en el año.
+Se calcula colocando en el numerador el número de mujeres con cáncer de cuello de útero que recibió la consulta en ginecología oncológica u oncología a nivel nacional, entre el denominador, que los constituyen el total de mujeres con cáncer de cuello de útero que fueron referidas a estos servicios a nivel nacional.
+Nº Mujeres con cáncer de cuello de útero que recibieron la consulta en ginecología oncológica u oncología a nivel Nacional en el período x100
+Total de mujeres con cáncer de cuello de útero referidas a la consulta en ginecología oncológica y oncología a nivel Nacional en el período.
+Porcentaje de mujeres con cáncer de cuello de útero que recibieron la consulta por primera vez en ginecología oncológica u oncología en cada servicio.
+Se calcula colocando en el numerador el número de mujeres con cáncer de cuello de útero que recibió la consulta en ginecología oncológica u oncología por servicio, entre el denominador, que los constituyen el total de mujeres con cáncer de cuello de útero que fueron referidas a este servicio.
+Nº Mujeres con cáncer de cuello de útero que recibieron la consulta en ginecología oncológica u oncología por servicio en el período x100
+Total de mujeres con cáncer de cuello de útero referidas a la consulta en ginecología oncológica y oncología por servicio en el período.
+1.4 Rendimiento. En la consulta de ginecología oncológica u oncología, el número de usuarias con cáncer de cuello de útero atendidas por el o la profesional debe ser de cuatro (4) por hora, quince (15) minutos por usuaria. No incluye procedimientos médicos.
+2. Organización de la atención a mujeres con cáncer de cuello de útero en las consultas de ginecología oncológica u oncología
+2.1 Recursos Humanos. El o la profesional responsable de la realización de la consulta de ginecología oncológica u oncología es el o la profesional en medicina especialista en ginecología oncológica, oncología médica, cirugía oncológica y radioterapia.
+2.2 Planta Física. La consulta de las mujeres con cáncer de cuello de útero se debe realizar en un consultorio o en cualquier local acondicionado para este fin que ofrezca la privacidad y comodidad requeridas por la usuaria y debe cumplir con la Ley 7600.
+2.3 Mobiliario. Para la consulta es necesario contar con el siguiente mobiliario:
+2.3.1 Camilla para exploración ginecológica y en casos de discapacidad cumplir con la Ley 7600.
+2.3.2 Gradilla.
+2.3.3 Silla o banquillo con ruedas y ajustable para el o la profesional que realiza la colposcopía.
+2.3.4 Lavatorio con dispensador de jabón.
+2.3.5 Silla y escritorio para el profesional.
+2.3.6 Sillas para usuaria y acompañante.
+2.3.7 Basurero con tapa y bolsa plástica roja.
+2.3.8 Balde de acero inoxidable con agua jabonosa.
+También se debe tener acceso a una unidad de lavado y esterilización de instrumentos.
+2.4 Equipos y Suministros. Para la consulta es necesario contar con:
+Equipos
+2.4.1 Colposcopio.
+2.4.2 Equipo de electrocirugía (LEEP).
+2.4.3 Aspirador de humo.
+2.4.4 Asas de diferentes tamaños.
+2.4.5 Electrodos de bolita de 0.5 y 0.3 cm .
+2.4.6 Electrodos de aguja.
+2.4.7 Espéculos para aspirador de humo, aislantes y de los tres tamaños.
+2.4.8 Separadores vaginales laterales aislantes.
+2.4.9 Curetas endocervicales tipo Kevorkian-Younge con canasta.
+2.4.10 Pinzas para biopsias de cuello tipo Tischier, Kevorkian y Burke.
+2.4.11 Pinzas Kelly.
+2.4.12 Espéculo endocervical de Kogan.
+2.4.13 Tenáculos aislantes tipo pinza de cuello de dos garfios (Schroder).
+2.4.14 Jeringas para anestesia local para usar con cárpulas.
+2.4.15 Aguja 27.
+2.4.16 Aplicadores de algodón.
+2.4.17 Lámpara de cuello de ganso.
+2.4.18 Espéculos grande, mediano y pequeño.
+Suministros
+2.4.19 Anestesia local con y sin epinefrina.
+2.4.19.1 Lidocaina en spray.
+2.4.19.2 Buvicaina o cabocaina en crápulas preferiblemente.
+2.4.20 Solución salina fisiológica.
+2.4.21 Solución de ácido acético al 3 y 5%.
+2.4.23 Solución de Monzel.
+2.4.24 Formalina.
+2.4.25 Frascos para transportar biopsias.
+2.4.26 Guantes no estériles.
+2.4.27 Batas para las usuarias en buen estado y limpias.
+2.4.28 Solución de Schiller.
+2.4.28.1 Yodo puro 1.0.
+2.4.28.1 Yoduro potásico 2.0.
+2.4.28.1 Agua destilada c.s.p 100,0.
+2.4.29 Solución de carnoy.
+2.4.30 Kit de citología.
+2.4.31 Líquido fijador tipo carbowax.
+2.4.32 Tubos de ensayo.
+2.4.33 Torundas de gasa y algodón.
+2.4.34 Lápiz de grafito.
+2.4.35 Sábanas.
+2.4.36 Rollo de papel para camillas.
+2.4.37 Toallas sanitarias.
+2.4.38 Toallas de papel para secarse las manos.
+2.5 Papelería y documentación. La papelería necesaria para consulta corresponde a los siguientes:
+2.5.1 Ejemplar de Normas y Procedimientos de Atención Integral a la Mujer para la Prevención y Manejo del Cáncer de Cuello de Útero, en el I y II, III Nivel de Atención.
+2.5.2 Hojas de informes mensuales de realización de colposcopías. Ver anexo Nº 8.
+2.5.3 Hoja de solicitud de examen biopsia. (CCSS 4-70-05-0460) Ver anexo Nº 9.
+2.5.4 Hoja de referencia y contrarreferencia (CCSS 4-70-04-0140) Anexo Nº 4.
+2.5.5 Hoja de reporte colposcópico para expediente clínico. Ver anexo Nº 6.
+2.5.6 Hoja Índice de Reid. Ver anexo 7.
+2.6 Programación de consulta de las mujeres con cáncer de cuello de útero en las consultas de ginecología oncológica u oncología. La usuaria con cáncer de cuello de útero debe ser vista en ginecología oncológica u oncología ocho (8) días hábiles posteriores a la entrega de la referencia para ginecología oncológica u oncología.
+En los casos de necesitar ser referidas a quimioterapia, radioterapia y cirugía para su tratamiento, el tiempo de espera entre la referencia y el inicio del tratamiento para estas mujeres en estos servicios, no debe ser mayor de veinte (20) días hábiles.
+2.6.1 Indicadores de la programación de la consulta.
+Porcentaje de mujeres con cáncer de cuello de útero con tiempos de espera entre referencia e inicio de tratamiento menores de 20 días hábiles para el tratamiento de quimioterapia por servicio.
+Se calcula colocando en el numerador el número de mujeres con cáncer de cuello de útero referidas para tratamiento de quimioterapia con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio, entre el denominador, que los constituyen el total de mujeres de mujeres con cáncer de cuello de útero referidas para tratamiento de quimioterapia por servicio en el período.
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento de quimioterapia con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio en el período X 100
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento de quimioterapia por servicio en el período.
+Porcentaje de mujeres con cáncer de cuello de útero con tiempos de espera entre referencia e inicio de tratamiento menores de 20 días hábiles para el tratamiento de radioterapia por servicio.
+Se calcula colocando en el numerador el número de mujeres con cáncer de cuello de útero referidas para tratamiento de radioterapia con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio, entre el denominador, que los constituyen el total de mujeres de mujeres con cáncer de cuello de útero referidas para tratamiento de radioterapia por servicio en el período
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento de radioterapia con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio en el período X 100.
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento de radioterapia por servicio en el período.
+Porcentaje de mujeres con cáncer de cuello de útero con tiempos de espera entre referencia e inicio de tratamiento menores de 20 días hábiles para el tratamiento con cirugía por servicio.
+Se calcula colocando en el numerador el número de mujeres con cáncer de cuello de útero referidas para tratamiento con cirugía con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio, entre el denominador, que los constituyen el total de mujeres de mujeres con cáncer de cuello de útero referidas para tratamiento con cirugía por servicio en el período
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento con cirugía con tiempo de espera entre referencia e inicio de tratamiento menor de 20 días hábiles por servicio en el período X 100.
+Número de mujeres con cáncer de cuello de útero referidas para tratamiento con cirugía por servicio en el período.
+3. Consulta de las mujeres con cáncer de cuello de útero en el establecimiento de salud.
+3.1 Captación e inscripción. La población blanca es captada e inscrita al momento de realizarse la consulta. Toda mujer que haya sido captada a partir de la recepción de la referencia, debe registrársele en su expediente clínico la consulta sino tiene expediente se le debe abrir uno.
+3.2 Pre-consulta. En los centros de salud públicos, el personal de enfermería es el responsable de brindar información y orientación a las usuarias según sus necesidades e inquietudes en materia de cáncer de cuello de útero, toma de colposcopía y citología cérvico vaginal, la información debe ser oportuna, veraz y confiable. En los centros de salud privados, el encargado de esta acción será la persona designada por el centro. Este centro debe estar acreditado por el Ministerio de Salud. Posterior a esto, debe entregarle al profesional en medicina el expediente con la hoja respectiva.
+3.3 Consulta. Durante la consulta el personal de salud debe otorgar una atención respetuosa, competente que dignifique y eduque a la usuaria, sin distingos de edad, etnia, orientación sexual, religión, clase social, nacionalidad y condición de aseguramiento (asegurada o no), incluye todas las consultas posteriores de seguimiento.
+Las mujeres con enfermedad maligna o premaligna de cuello de útero tendrán derecho a la seguridad social. Cuando no las cobijen otros regímenes, disfrutarán de este derecho por cuenta del Estado. Para ello, la Caja Costarricense del Seguro Social adoptará las medidas respectivas. Los centros o servicios públicos de prevención y atención de la salud quedarán obligados a prestar, en forma inmediata, el servicio que esta población requiera sin discriminación de raza, género, condición social ni nacionalidad.
+El profesional en medicina que realiza la consulta debe iniciar con la historia clínica.
+El profesional debe explicar a la usuaria, en términos que ella comprenda, en qué consiste la consulta, los exámenes y objetivos de los mismos (si los hubiere).
+El personal de salud debe permitir que la usuaria permanezca acompañada por una persona de su preferencia, si así ella lo indicara.
+En caso de que otros u otras profesionales o estudiantes deseen observar o participar en este procedimiento se le debe pedir a la usuaria, previo al procedimiento o consulta, su consentimiento informado el cual debe estar firmado por ambas partes en el expediente.
+3.4 Envío de las biopsias. Si se toma una biopsia, la muestra tomada debe colocarse en un envase con formalina buferizada. La hoja de solicitud de examen histológico debe ser llenada con lápiz de grafito y enviarla, dentro de las 24 horas posteriores a la toma, al servicio de patología. Esta hoja debe ser llenada por el profesional en medicina.
+El resultado de la biopsia debe ser enviado al servicio correspondiente en los siguientes quince (15) días hábiles a partir de la fecha del recibo de la biopsia.
+3.6.1 Indicador de reporte de biopsias tomadas de las mujeres con cáncer de cuello de útero. Porcentaje de biopsias cuyo resultado fue recibido dentro de los quince días hábiles posteriores a su recibo.
+Se calcula colocando en el numerador el número de biopsias cuyo resultado fue recibido dentro de los quince días hábiles posteriores a su recibo por servicio, entre el denominador, que los constituyen el total de biopsias recibidas por servicio en el período.
+Número de número de biopsias cuyo resultado fue recibido dentro de los quince días hábiles posteriores a su recibo por servicio en el período X 100. Total de biopsias recibidas por servicio en el período.
+3.5 Registro de la información del proceso de tratamiento de las mujeres con cáncer de útero en III Nivel de atención. El sistema de registro de información debe contener la siguiente información:
+3.5.1 Número de identificación.
+3.5.2 Tipo de identificación.
+3.5.2.1 Cédula de identidad.
+3.5.2.2 Cédula de residencia.
+3.5.2.3 Pasaporte.
+3.5.2.4 Permiso de trabajo.
+3.5.3 Nombre de la usuaria: Primer apellido. Segundo Apellido. Nombre completo.
+3.5.4 Fecha de nacimiento de la usuaria.
+3.5.5 Edad de la usuaria.
+3.5.6 Teléfono en donde se pueda localizar a la usuaria.
+3.5.6.1 Habitación.
+3.5.6.2 Trabajo.
+3.5.6.3 Otro.
+3.5.7 Dirección del domicilio:
+3.5.7.1 Provincia.
+3.5.7.2 Cantón.
+3.5.7.3 Distrito.
+3.5.7.4 Cantón Barrio.
+3.5.7.5 Dirección exacta de la usuaria.
+3.5.8 Código del centro de salud de procedencia.
+3.5.9 Nombre del centro de salud de procedencia.
+3.5.10 Nombre del profesional que refiere.
+3.5.11 Código del profesional que refiere.
+3.5.12 Diagnóstico de la referencia.
+3.5.13 Fecha de la referencia.
+3.5.14 Fecha de la cita para ginecología oncológica.
+3.5.15 Nombre del profesional tratante.
+3.5.16 Código del profesional tratante.
+Toma de citología cérvico vaginal en III nivel
+3.5.17 Tipo de profesional que toma la muestra de citología.
+3.5.18 Nombre del profesional que toma la muestra de citología.
+3.5.19 Código del profesional que toma la muestra de citología.
+3.5.20 Resultado de la citología anterior.
+3.5.21 Fecha de la toma de la citología en III nivel.
+3.5.22 Fecha de envío de la muestra al laboratorio de citología.
+3.5.23 Fecha de recibido del reporte del laboratorio de citología.
+3.5.24 Código del diagnóstico de citología.
+3.5.25 Descripción del diagnóstico de la citología.
+3.5.26 Fecha de notificación de resultado a la usuaria.
+Realización de colposcopía en III nivel
+3.5.27 Fecha de cita para realización de la colposcopía en III nivel.
+3.5.28 Nombre del profesional que realiza la colposcopía en III nivel.
+3.5.29 Código del profesional que realiza la colposcopía en III nivel.
+3.5.30 Fecha de la colposcopía.
+3.5.31 Código del CIE-10 del diagnóstico de citología.
+3.5.32 Descripción del diagnóstico de citología.
+3.5.33 Hallazgo de la colposcopía.
+3.5.34 Fecha en que se efectuó biopsia.
+3.5.35 Fecha de recibido del resultado de la biopsia.
+3.5.36 Diagnóstico histopatológico.
+3.5.37 Tratamiento efectuado.
+3.5.37.1 Leep.
+3.5.37.2 Criocirugía.
+3.5.38 Fecha de envío de contrarreferencia al I nivel de atención.
+3.5.39 Fecha de recibido de contrarreferencia del II nivel de atención.
+El sistema de registro de biopsias debe contener la siguiente información:
+3.5.40 Fecha de toma de la biopsia en III nivel.
+3.5.41 Fecha de envío de la biopsia a patología.
+3.5.42 Fecha de recibido la biopsia.
+3.5.43 Diagnóstico histopatológico.
+3.5.44 Tratamiento recibido:
+3.5.45.1 Cirugía.
+3.5.45.1.1 Fecha de confección de referencia
+3.5.45.1.2 Diagnóstico de referencia
+3.5.45.1.3 Fecha de primera cita
+3.5.45.2 Teleterapia.
+3.5.45.2.1 Fecha de confección de referencia
+3.5.45.2.2 Diagnóstico de referencia
+3.5.45.1.3 Fecha de primera cita
+3.5.45.3 Braquiterapia.
+3.5.45.3.1 Fecha de confección de referencia
+3.5.45.3.2 Diagnóstico de referencia
+3.5.45.3.3 Fecha de primera cita
+3.5.45.4 Quimioterapia.
+3.5.45.4.1 Fecha de confección de referencia
+3.5.45.4.2 Diagnóstico de referencia
+3.5.45.4.3 Fecha de primera cita
+3.5.45.5 Otros.
+3.5.45.5.1 Fecha de confección de referencia
+3.5.45.5.2 Diagnóstico de referencia
+3.6 Entrega de resultados de la colposcopía y de la biopsia.
+El resultado de la colposcopía y/o la biopsia debe quedar consignados en el expediente de la usuaria, por medio de la hoja de reporte colposcópico estandarizado y la hoja de reporte de la biopsia, respectivamente.
+Toda biopsia positiva por malignidad, debe ser notificada a la usuaria en un lapso no mayor a los ocho (8) días luego de haber recibido el centro de salud el resultado.
+Toda biopsia negativa por malignidad, debe ser notificada a la usuaria en un lapso no mayor a los treinta (30) días, luego de haber recibido el centro de salud el resultado. En caso de haber solo examen colposcópico sin biopsia, la notificación de resultados debe hacerse inmediatamente a la usuaria.
+3.7 Referencia y Contrarreferencia. Al tener el diagnóstico histológico, finalizar la intervención médico-quirúrgica se debe enviar la contrarreferencia al centro de salud origen de II nivel de Atención, dependiendo del caso, de inmediato. (Véase anexo Nº 4).
+La contrarreferencia debe contener como mínimo la siguiente información:
+3.7.1 Nombre completo de la usuaria.
+3.7.2 Número de identificación.
+3.7.3 Edad.
+3.7.4 Teléfono.
+3.7.5 Dirección completa de la usuaria.
+3.7.6 Nombre y sello del centro que refiere.
+3.7.7 Historia clínica.
+3.7.8 Procedimientos realizados.
+3.7.9 Resultados de exámenes.
+3.7.10 Diagnóstico.
+3.7.11 Tratamientos.
+3.7.12 Seguimiento de la usuaria en el I y II nivel de atención (según sea el caso)
+En caso tener que referir a una usuaria para tratamiento (quimioterapia, radioterapia, cuidados paliativos, entre otros) se le debe elaborar la hoja de referencia correspondiente, con la información anteriormente mencionada. (Véase el Capítulo I, punto 4.12. Sistema de Referencia y Contrareferencia). Esta debe ser entregada a la usuaria y dejar una copia en el expediente de la misma.
+4. Tratamiento a usuarias con cáncer de cuello de útero.
+4.1 Manejo por un equipo interdisciplinario. Toda mujer que tenga cáncer de cuello de útero debe ser tratada por un grupo interdisciplinario de profesionales de salud. Se debe crear un comité o comisión que tendrá la función de definir el tratamiento de estas mujeres. El equipo interdisciplinario debe estar conformado por profesionales en los campos el ginecología oncológica, oncología médica, cirugía oncológica, patología, radioterapia, quimioterapia, psicología, trabajo social y cuidados paliativos, entre otros. Con el propósito de brindar un tratamiento integral a las mujeres que padecen de esta enfermedad.
+4.2 Estadiaje del cáncer de cuello de útero según la FIGO
+Estadiaje según FIGO:
+0 Carcinoma in situ o Neoplasia cervical intraepitelial
+I Confinado al cérvix
+IA1 Microscópico < 3mm de profundidad y 7 mm de ancho
+IA2 Profundidad entre 3 y 5 mm y ancho no mayor de 7 mm
+IB1 Microscópico limitado al cérvix, más de 5 mm de
+profundidad, menos 4cm de volumen
+IB2 Limitado al cuello, mayor de 4 cm de volumen
+II No limitado al cuello sin llegar a la pared pélvica o tercio
+inferior de vagina
+IIA Sin comprometer parametrios
+IIB Compromiso de parametrios hasta tercio medio
+III Extensión a la pared pélvica
+IIIA Tercio inferior de vagina sin extensión a la pared pélvica
+IIIB Extensión a la pared pélvica y/o hidronefrosis
+IVA Invasión a órganos pélvicos vecinos, vejiga o recto
+IVB Metástasis a distancia
+4.3 Exámenes necesarios para la clasificación del tumor y su extensión según la FIGO. La FIGO requiere los siguientes exámenes para clasificar el tumor y su extensión:
+Examen pélvico
+Citología
+Biopsia por colposcopía directa o conización. o La biopsia por conización es especialmente útil para:
+� Valorar invasividad o
+� Valorar grado de microinvasividad
+PIV
+Colon por enema (si no hay proctoscopía)
+Radiografía de tórax En casos de IB2 o más:
+Cistoscopía
+Proctoscopía Otros exámenes:
+TAC
+RMN
+4.4 Flujogramas de tratamiento y seguimiento a las mujeres con cáncer de cuello de útero. Las mujeres que presenten cáncer de cuello de útero se les dará tratamiento y seguimiento de acuerdo a la descripción que se observa en los siguientes flujogramas:
+Flujograma 6. Manejo de Cáncer Micro invasor
+[imagen]
+Flujograma 7. Manejo de Cáncer de Cuello de Útero Estadio IA y IB1
+[imagen]
+Flujograma 8. Manejo de Cáncer de Cuello de Útero Estadio IB1 y II A pequeño
+[imagen]
+Flujograma 9. Manejo de Cáncer de Cuello de Útero Estadio IB2
+[imagen]
+Nota: Las dosis para Rt y Qt son las establecidas en las Normas y Procedimientos para el Tratamiento del Cáncer en Costa Rica.
+Flujograma 10. Manejo de Cáncer de Cuello de Útero Estadio II A - IV A
+[imagen]
+Flujograma 11. Manejo de Cáncer de Cuello Estadio IVB y Cáncer de Cuello de Útero Recurrente
+[imagen]
+Toda mujer que no tenga posibilidad de tratamiento quirúrgico (por tener patología médica agregada que la hace no candidata a cirugía) o con cirugía insuficiente previa debe tratarse con radioterapia.
+Mujeres con hallazgo histopatológico de cáncer invasor de cuello de útero posterior a la histerectomía simple se debe tratar con radioterapia y/o quimioterapia.
+4.4 Seguimiento post tratamiento primario:
+· Examen físico (incluso pélvico) cada 3 meses por 1 año, cada 4 meses por 1 año, cada 6 meses por 3 años y después 1 vez al año por 15 años
+· Radiografía de tórax anual
+· Laboratorio cada segunda visita
+· TAC anual
+(*) (Así adicionado el apartado anterior mediante el decreto ejecutivo N° 33650 del 22 de febrero del 2007).
 CAPÍTULO IV. SISTEMA DE INFORMACIÓN
 La Comisión Interinstitucional para la elaboración y actualización de las Normas y Procedimientos de Atención Integral a la Mujer para la Prevención y Manejo del Cáncer de Cuello de Útero y Mama, para el I y II Nivel de Atención, conformada por el Ministerio de Salud, Caja Costarricense del Seguro Social, Instituto Nacional de las Mujeres e Instituto Costarricense Contra el Cáncer deberá desarrollar e implementar el sistema de información de los procedimientos de atención integral a la mujer para la prevención y manejo del cáncer de cuello de útero, en el I y II nivel de atención, deberán utilizar las metodologías adecuadas para que el desarrollo sea racional, estructurado y adaptado a las necesidades de los servicios de salud y la comunidad, que permitan potencialmente contribuir a la mejora global de la gestión de los servicios de salud. Para dichos efectos deberán actuar acorde con lo siguiente:
 1. Contextualizar el sistema de información en cáncer de cuello de útero, a los servicios de salud, donde serán utilizados.
