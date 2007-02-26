@@ -7,3 +7,4 @@ NOTA DE SINALEVI: Mediante el decreto ejecutivo No. 33464 de 22 de noviembre de 
 "1. Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Cuarta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 a la presente Resolución, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano."
 Por el momento, debido al tamaño del texto de la versión actualizada de la Cuarta Enmienda , no es posible visualizarlo en nuestra página.
 (Modificado por el artículo 1° del decreto ejecutivo N° 33580 del 8 de enero de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33588 del 8 de enero de 2007)
