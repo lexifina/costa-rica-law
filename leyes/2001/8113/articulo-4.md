@@ -1,9 +1,4 @@
-Artículo 4º—Porcentaje aplicable a los ingresos brutos. Los ingresos brutos anuales determinarán el monto del impuesto de patentes que le corresponde pagar a cada contribuyente, de acuerdo con la siguiente tabla:
-Hasta ¢36.000.000,00 se aplica un factor de 0.00075.
-El pago mínimo por tarifa de patentes será equivalente a un veinticinco por ciento (25%) del salario base, según el artículo 68 del Código de Normas y Procedimientos Tributarios.
-Sobre el exceso de ¢36.000.000,00 hasta ¢48.000.000,00 se aplica un factor de 0.0010.
-Sobre el exceso ¢48.000.000,00 hasta ¢60.000.000,00 se aplica un factor de 0.00125.
-Sobre el exceso de ¢60.000.000,00 hasta ¢100.000.000,00 se aplica un factor de 0.0018.
-Sobre el exceso de ¢100.000.000,00 se aplica un factor de 0.0020.
-Esta suma dividida entre cuatro determinará el impuesto trimestral por pagar.
-A las personas físicas inscritas en el Régimen de Tributación Simplificada, se les aplicará un cincuenta por ciento (50%) sobre las compras declaradas, para obtener el ingreso bruto.
+Artículo 4º—Tarifa aplicable a los ingresos brutos para determinar el impuesto.
+Como tarifa del impuesto, se aplicará el cuatro por mil (4x1000) sobre los ingresos brutos. Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar.
+El pago mínimo de toda actividad comercial será equivalente a un veinticinco por ciento (25%) de un salario base, de acuerdo con el artículo 68 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755, de 3 de mayo de 1971, y sus reformas.
+(Asi reformado por el artículo único de la Ley 8566 de 7 de febrero de 2007)
