@@ -1,10 +1,15 @@
 IX.—OP. Crédito
 19) Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo.
-Colones y Dólares la comisión es del 1,00% para operaciones nuevas y 0% cuando el plan de inversión es para cancelación de pasivos total o parcialmente, aplicable directamente al monto del crédito en forma general y por una sola vez.
+Colones y dólares la comisión es de 1,50%. Quedan abiertos los márgenes de negociación para clientes especiales. De acuerdo con la atribución del Reglamento de Crédito.
 NOTAS:
-1. Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas el vencimiento definitivo.
+1. Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas el vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 2. No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a los contratos de empleados y de Tarjetas de Crédito.
-3. Se aplicará un 50% de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR, no aplica a productos dirigidos (Condiciones especiales) u ofertas.
+3. Se aplicará un 50% de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR.
+4. No aplica a productos dirigidos a eventos, promociones (Condiciones especiales) u ofertas.
+Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares.
+3% para créditos superiores a $10.000,00 según el tipo de crédito*, sobre el abono extraordinario aplicado como amortización del principal o cancelación total.
+*Aplica para los créditos Vivienda Cuota Fija Tres Años, Vivienda Integral, Residencial Hipotecario Dólares y Crédito Empresarial, no aplica a productos dirigidos (Condiciones Especiales) u ofertas.
+(Así reformado el punto 19 anterior mediante sesión 10 del 26 de febrero de 2007)
 20) Comisión de manejo de Líneas de Crédito Revolutivas
 Colones: 1,50% anualizado al formalizar.
 Dólares: 1,00% anualizado al formalizar.
@@ -38,3 +43,24 @@ NOTA: Rige para todos los créditos nuevos otorgados a partir de la aprobación 
 Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, según lo establezca el contrato de crédito respectivo.
 28) Cobro Telegramas enviados oper. vencidas
 $5,00
+*Comisión para la recepción de efectivo para Instituciones del Sector Financiero.
+Comisión para la entrega de efectivo para Instituciones del Sector Financiero.
+Informe confidenciales
+$4.00 para personas físicas y jurídicas.
+Reposición de Comprobantes de operaciones canceladas
+$ 4.00 cada uno.
+Aplicación de embargo judicial
+$4.00
+Impresión de un desmaterializado
+Comisión administrativa $5
+a. Para materializarlo es necesario aplicar la anulación del CDP.
+b. Emitir un nuevo CDP físico, con las mismas características del anulado, tales como fecha de emisión, plazo, dueño.
+c. Si el CDP anulado tenía asignado algún plus de tasa la pierde, pues la emisión del nuevo CDP físico, el sistema le asigna la tasa vigente de este tipo de CDP en esa fecha de emisión.
+d. El cobro de la comisión se deberá generar mediante proceso manual.
+Reposición de Títulos, Certificados y Bonos.
+Reposición certificados de depósito: 0.25% sobre el valor del título con un mínimo de $7.50 y un máximo de $74.25
+Fraccionamiento de certificado de depósito a plazo.
+$7.50 por cada fracción
+Certificación o constancia de operación cancelada.
+$12 cada una.
+(*Así adicionado mediante sesión 10 del 26 de febrero de 2007)

@@ -52,9 +52,11 @@ Sobre el exceso se aplicará la siguiente fórmula
 Temporalmente $2,00 por cada $3.500,00
 72) Teleban
 Incorporación $105,00
-Tarifa mensual $35,00
-Transferencia Electrónica de Fondos 0,25 % por cada una.
-Mínima $35,00 diarios siempre que se efectúe al menos una transferencia. Para el caso de instituciones cuya actividad sea bancaria, financiera o bursátil.
+Tarifa mensual $50,00
+Transferencia Electrónica de Fondos 0.25 % por cada una
+Mínima $35.00 diarios siempre que se efectúe al menos una transferencia.
+Para el caso de instituciones cuya actividad sea bancaria, financiera o bursátil.
+(Así reformado el punto 72 anterior mediante sesión 10 del 26 de febrero de 2007)
 73) Tasaban
 Costo anual por microcomputadora $18,00.
 Costo anual por microcomputadora adicional $7,00.

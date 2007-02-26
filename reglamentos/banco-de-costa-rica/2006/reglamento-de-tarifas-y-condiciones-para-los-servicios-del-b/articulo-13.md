@@ -96,6 +96,9 @@ Depósito Cta. En dólares
 1.5%, mínima $7.50
 Depósito Cta. En colones
 1,0%, mínima $5,00
+*Envío Estado de Cuenta corriente por Swift
+$ 3.0 por cada estado de cuenta enviado.
+(Así adicionado mediante sesión 10 del 26 de febrero de 2007)
 87) Cheques enviados cobro por cuenta clientes
 Pago en colones
 0,75%, mínima $15,00, máxima $75,00
