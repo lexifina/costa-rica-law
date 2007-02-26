@@ -1,0 +1,4 @@
+Artículo 7º—Responsable. El responsable del Fondo Fijo-Caja Chica del Tribunal Supremo de Elecciones, será el Contador del Tribunal Supremo de Elecciones o en quien se delegue el cumplimiento de las funciones atinentes a dicho cargo. El Tribunal Supremo de Elecciones comunicará a la Tesorería Nacional el nombre y el número de cédula de la persona que desempeña el cargo antes mencionado o de quien ejecute estas funciones.
+Compete al Responsable el ejercicio de las siguientes funciones:
+1) Controlar, comprar, pagar, crear reservas presupuestarias, solicitud de reintegros de caja chica, así como de solicitar la apertura de cajas auxiliares cuando éstas correspondan, al amparo de lo dispuesto en el artículo 8 del presente Reglamento.
+2) Crear y mantener actualizado el registro de firmas autorizadas para operar la cuenta corriente correspondiente.

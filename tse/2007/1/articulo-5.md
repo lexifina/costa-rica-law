@@ -1,0 +1,2 @@
+Artículo 5º—Gastos Menores indispensables, imprevisibles y urgentes. Se considerarán gastos menores aquellos que no excedan el monto máximo establecido por la Tesorería Nacional y que corresponden a la adquisición de bienes y servicios que no se encuentren en bodegas de la Proveeduría Institucional, ya sea porque no se ha llevado a cabo o
+está en proceso la correspondiente contratación administrativa o porque su naturaleza impide ubicarlos en bodegas. Además, entre los denominados gastos menores se consideran los viáticos, tanto al interior como al exterior del país.
