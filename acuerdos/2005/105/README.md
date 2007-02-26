@@ -14,3 +14,4 @@ Instrucciones para el Manejo de las Cuentas Corrientes y de la Custodia de los T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-01 | la propia norma |
+| 2 | 2007-02-26 | Acuerdo 130 (2007-02-26) |

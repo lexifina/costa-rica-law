@@ -11,6 +11,4 @@ Por tanto acuerda:
 SGV-A-105. INSTRUCCIONES PARA EL MANEJO DE LAS
 CUENTAS CORRIENTES Y DE LA CUSTODIA DE LOS TÍTULOS
 VALORES EN LOS FONDOS DE INVERSIÓN
-Artículo 1º—Administración del efectivo. La sociedad administradora de fondos de inversión en el manejo y administración del efectivo de los fondos de inversión deberá seleccionar una de las siguientes alternativas:
-a. Cuenta corriente para cada fondo: Contar al menos con una cuenta corriente para cada fondo que administre para el manejo del efectivo, (redenciones y reembolsos). La sociedad deberá abrir cuentas corrientes a nombre de los fondos que administra.
-b. Cuenta corriente de la Sociedad Administradora para administrar el efectivo de los fondos: La Sociedad Administradora dispondrá al menos de dos cuentas corrientes (una en colones y otra en dólares) para ser utilizadas exclusivamente para la recepción y reembolso de los fondos. Para las actividades normales de la sociedad administradora, deberá contar con otra cuenta corriente que se manejará independientemente. La sociedad que seleccione esta alternativa, deberá establecer los sistemas de control que consideren pertinentes y que le permitan identificar en forma diaria a cuál fondo pertenecen los recursos mantenidos en dichas cuentas corrientes.
+Artículo 1º— (Así derogado mediante el acuerdo SGV-A-130 del 26 de febrero de 2007).
