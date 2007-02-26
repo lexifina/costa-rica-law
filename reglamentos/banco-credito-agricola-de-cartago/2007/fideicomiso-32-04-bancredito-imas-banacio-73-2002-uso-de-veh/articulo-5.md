@@ -1,0 +1,1 @@
+Artículo 5º—Cada servicio que se de en estas circunstancias contará de previo con la autorización de la Gerente de la Unidad Ejecutora y deberá tramitarse en forma estricta, mediante solicitud que formulará la funcionaria propietaria del vehículo.

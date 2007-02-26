@@ -1,0 +1,1 @@
+Artículo 23.—En todo caso, las sumas que perciban los funcionarios por este concepto, no constituyen en ninguna circunstancia, salario en especie, por lo que no pueden considerarse para calcular sus derechos laborales.

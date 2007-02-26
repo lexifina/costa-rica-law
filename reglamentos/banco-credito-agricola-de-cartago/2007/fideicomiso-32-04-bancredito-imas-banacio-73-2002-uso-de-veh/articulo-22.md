@@ -1,0 +1,1 @@
+Artículo 22.—La (el) funcionaria(o) propietaria(o) del vehículo debe presentar a la Unidad Ejecutora la boleta de autorización de gira y adelanto de gastos de kilometraje. La respectiva liquidación debe presentarla dentro de los tres días hábiles siguientes a la conclusión de la gira.

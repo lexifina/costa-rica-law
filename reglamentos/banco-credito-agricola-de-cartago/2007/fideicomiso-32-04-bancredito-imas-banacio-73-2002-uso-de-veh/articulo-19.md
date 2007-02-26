@@ -1,0 +1,1 @@
+Artículo 19.—El kilometraje intermedio de una gira solo se reconocerá en casos calificados y previa autorización de la Gerente del Fideicomiso de la (del) funcionaria(o), indicando las circunstancias que dieron origen a ese kilometraje intermedio, lo debe quedar anotado en la respectiva boleta de autorización de viaje en el espacio de observaciones.

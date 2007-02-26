@@ -1,0 +1,1 @@
+Artículo 8º—La Gerente de la Unidad Ejecutora Persona encargada de la Unidad debe realizar una evaluación de las características del vehículo, adecuado para la clase de trabajo a que se va a destinar.

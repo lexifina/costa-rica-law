@@ -1,0 +1,1 @@
+Artículo 18.—Cuando con ocasión de la gira se requiera el traslado de otras personas funcionarias del FIDEICOMISO, la (el) propietaria(o) del vehículo está en la obligación trasladarles, siempre y cuando el número no exceda de la capacidad del vehículo.

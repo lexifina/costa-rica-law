@@ -1,0 +1,1 @@
+Artículo 6º—En todo caso, la funcionaria(o) que solicite el uso del vehículo particular, deberá fundamentar los motivos y objetivos que cumplirá el funcionario(a), así como la importancia de la realización de las actividades para las que se preste el vehículo.
