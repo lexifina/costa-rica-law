@@ -1,0 +1,1 @@
+Artículo 26.—Instrucción directa del Tribunal. En caso que la acción de capacitación se genere por expresa disposición del Tribunal, éste remitirá la gestión a la Sección de Capacitación, la cual verificará que exista contenido económico, para luego tramitarla y ejecutarla sin mayor dilación.

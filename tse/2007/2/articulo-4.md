@@ -1,0 +1,4 @@
+CAPÍTULO II
+Plan de capacitación y formación
+Artículo 4º—Plan Anual de Capacitación y Formación. Le corresponde a la Sección de Capacitación, en coordinación con el Departamento de Recursos Humanos, identificar, mediante un diagnóstico de necesidades, las áreas de adiestramiento, capacitación y formación que sean de interés institucional, en estricto apego al Plan Estratégico Institucional y al Plan Operativo Anual, a los fines de establecer un Plan Anual de Capacitación y Formación, todo de conformidad con lo establecido en los artículos 2, 4 y 7 del Reglamento de la Sección de Capacitación.
+En el caso de los programas de formación en el exterior (becas en el extranjero), la Sección de Capacitación requerirá, cuando resulte necesario, la colaboración de la Oficina de Proyectos Tecnológicos para la formulación del plan antedicho.

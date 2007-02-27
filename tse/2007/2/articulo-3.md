@@ -1,0 +1,5 @@
+Artículo 3º—Objetivos del Sistema de Capacitación y Formación. Mediante el sistema de capacitación y formación se pretende alcanzar, entre otros objetivos, los siguientes:
+1) Incentivar el mejoramiento de la condición profesional y técnica de los funcionarios y su identificación con la misión y visión del Tribunal.
+2) Ofrecer a los funcionarios oportunidades de adiestramiento, capacitación y formación con el fin de que el Tribunal pueda contar con personal altamente profesionalizado para atender, con calidad y excelencia, los cometidos que le han sido encomendados por la Constitución y las leyes.
+3) Adaptar las actividades de los funcionarios del Tribunal a las condiciones que modifican el medio institucional, logrando su disposición para aceptar y propiciar los cambios que induce la dinámica de este organismo electoral.
+4) Fomentar la motivación y la creatividad de los funcionarios del Tribunal, mediante el estímulo del sentido de responsabilidad, la dedicación y la eficiencia en el desempeño de sus labores.

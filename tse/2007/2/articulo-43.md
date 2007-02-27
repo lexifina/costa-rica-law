@@ -1,0 +1,1 @@
+Artículo 43.—Aplicación supletoria. A falta de norma expresa en este Reglamento se aplicarán, por su orden, las disposiciones generales que sobre la materia se encuentren previstas para los funcionarios del Poder Judicial, Asamblea Legislativa y el Poder Ejecutivo, sin perjuicio de la facultad del Tribunal para modificar o adicionar este Reglamento cuando lo considere pertinente.

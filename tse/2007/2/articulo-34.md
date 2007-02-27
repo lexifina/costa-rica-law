@@ -1,0 +1,3 @@
+Artículo 34.—Tiempo de retribución del programa de formación. En todo caso, por participar en los programas de formación, el becario estará obligado -una vez que dicho programa haya concluido- a trabajar para el Tribunal no menos del doble del tiempo que la formación haya consumido.
+El tiempo de retribución empezará a contar a partir del momento en que el funcionario presente el título académico o la certificación correspondiente, ante el Departamento de Recursos Humanos, con copia a la Sección de Capacitación.
+El tiempo de retribución podrá asimismo descontarse a tiempo completo, o mediante su equivalente en tiempos parciales, pero en cualquier caso este lapso no excederá de cinco años.

@@ -1,0 +1,1 @@
+Artículo 40.—Acciones de capacitación simultánea. Excepcionalmente, a criterio del Tribunal, un funcionario podrá participar en dos acciones de capacitación simultáneamente, cuando la eficiencia del servicio publico así lo exija o aconseje.

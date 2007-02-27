@@ -1,0 +1,1 @@
+Artículo 44.—Derogatorias. Este reglamento deja sin efecto, en lo que se le oponga, el “Reglamento de Licencias para estudios Superiores o Técnicos”, publicado en La Gaceta Nº 29 del 9 de febrero de 1995.

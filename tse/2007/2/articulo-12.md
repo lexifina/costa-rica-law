@@ -1,0 +1,1 @@
+Artículo 12.—Condición de no afectación del servicio público. En cualquier caso los permisos deberán concederse sin que se afecte el buen servicio público y siempre que las condiciones, tanto de la dependencia a la que pertenece el servidor como las del Tribunal, lo permitan.

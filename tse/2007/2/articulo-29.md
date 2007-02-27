@@ -1,0 +1,1 @@
+Artículo 29.—Apoyo de las jefaturas. Todas las jefaturas del Tribunal estarán obligadas a otorgar las facilidades necesarias a los funcionarios que hayan sido seleccionados para disfrutar becas de capacitación y formación, de conformidad con lo normado en este Reglamento, siempre que de ello no resulte perjuicio en el servicio que presta el Tribunal a los administrados.
