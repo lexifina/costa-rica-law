@@ -16,3 +16,4 @@ Manual de Categorización Motelera y Establecimientos con Actividades Similares
 | 1 | 2005-06-15 | la propia norma |
 | 2 | 2005-11-25 | Resolución 0 (2005-11-25) |
 | 3 | 2006-09-28 | Resolución 0 (2006-09-28) |
+| 4 | 2007-02-27 | Resolución 0 (2007-02-27) |

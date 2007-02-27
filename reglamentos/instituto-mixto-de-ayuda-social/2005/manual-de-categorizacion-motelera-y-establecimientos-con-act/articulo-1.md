@@ -1,7 +1,7 @@
 INSTITUTO MIXTO DE AYUDA SOCIAL
 MANUAL DE CATEGORIZACIÓN DE MOTELERA Y
 ESTABLECIMIENTOS CON ACTIVIDADES SIMILARES
-*(NOTA: Mediante resolución de 28 de setiembre de 2006, publicada en La Gaceta N°202 de 23 de octubre de 2006 el Instituto Mixto de Ayuda Social dispuso renovar la vigencia de este Manual por el plazo de tres meses a contar desde la fecha de la publicación de dicha resolución).
+*(NOTA: Mediante resolución de 27 de febrero de 2007, publicada en La Gaceta N°108 de 06 de junio de 2007 el Instituto Mixto de Ayuda Social dispuso renovar la vigencia de este Manual por el plazo de tres meses a contar desde la fecha de la publicación de dicha resolución).
 Hoja de aprobación:
 Este documento fue elaborado por la Unidad de Administración Tributaria y aprobado por el Licenciado Rodrigo Campos Hidalgo, Gerente General.—San José, 25 de mayo del 2005.
 Motivación:
