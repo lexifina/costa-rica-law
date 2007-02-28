@@ -3,3 +3,5 @@ a) Solicitud formal al IMAS, debidamente justificada.
 b) Oficio de la entidad autorizada o acreedora, en el que conste la aprobación y las condiciones bajo las cuales se otorga el crédito.
 c) Visto bueno del Área de Titulación.
 En caso de que en un mismo proyecto habitacional existan solicitudes en forma simultánea para el levantamiento de limitaciones con un mismo acreedor, las Gerencias Regionales o el Área de Titulación podrán gestionar dicho levantamiento en forma colectiva a todo o parte del proyecto habitacional, mediante la emisión de una recomendación grupal.
+Para la inscripción de las limitaciones con el Sistema Financiero Nacional para la Vivienda en el Registro Público de la Propiedad, cuando el beneficiario opte para el bono familiar para la vivienda total, sin crédito, no se requerirá autorización previa del Consejo Directivo del IMAS.
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 33614 del 28 de febrero de 2007)

@@ -14,3 +14,4 @@ Reglamento a las Leyes N°4760 y sus Reformas y Leyes N° 7083, 7151 y 7154 para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-10 | la propia norma |
+| 2 | 2007-02-28 | Decreto Ejecutivo 33614 (2007-02-28) |
