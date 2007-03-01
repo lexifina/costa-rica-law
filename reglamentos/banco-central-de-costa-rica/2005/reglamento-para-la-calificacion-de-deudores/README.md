@@ -23,3 +23,4 @@ Reglamento para la Calificación de Deudores
 | 8 | 2006-12-14 | Reglamento 620 (2006-12-14) |
 | 9 | 2006-12-19 | Reglamento 621 (2006-12-19) |
 | 10 | 2007-02-01 | Reglamento 627 (2007-02-01) |
+| 11 | 2007-03-01 | Reglamento 633 (2007-03-01) |
