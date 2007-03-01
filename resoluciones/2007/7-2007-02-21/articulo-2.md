@@ -1,0 +1,11 @@
+II.—Actualizar los montos que establecen los incisos a) al j) del artículo 84 de la Ley de Contratación Administrativa y sus reformas, de la siguiente forma:
+a) En las administraciones citadas en el inciso a) del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los ciento treinta y siete millones de colones (¢137.000.000,00).
+b) En las administraciones citadas en el inciso b), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los noventa y siete millones trescientos mil colones (¢97.300.000,00).
+c) En las administraciones citadas en el inciso c), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los sesenta y nueve millones seiscientos mil colones (¢69.600.000,00).
+d) En las administraciones citadas en el inciso d), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los cincuenta millones novecientos mil colones (¢50.900.000,00).
+e) En las administraciones citadas en el inciso e), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los treinta y seis millones seiscientos mil colones (¢36.600.000,00).
+f) En las administraciones citadas en el inciso f), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los treinta y un millones cuatrocientos mil colones (¢31.400.000,00).
+g) En las administraciones citadas en el inciso g), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los veintiún millones setecientos mil colones (¢21.700.000,00).
+h) En las administraciones citadas en el inciso h), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los quince millones setecientos mil colones (¢15.700.000,00).
+i) En las administraciones citadas en el inciso i), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los diez millones cuatrocientos setenta mil colones (¢10.470.000,00).
+j) En las administraciones citadas en el inciso j), del artículo 27 de esta Ley, cuando el monto de la adjudicación impugnada sea igual o superior a los cinco millones doscientos treinta mil colones (¢5.230.000,00).
