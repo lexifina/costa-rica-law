@@ -1,0 +1,1 @@
+Artículo 14.—El cuenta-habiente podrá autorizar a BANCRÉDITO para efectuar débitos de su cuenta de ahorro, con el fin de que sean aplicados a los diferentes servicios de pago directo que BANCRÉDITO brinda y a los cuales el cuenta-habiente desea afiliarse.
