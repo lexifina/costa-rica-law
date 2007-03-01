@@ -1,0 +1,15 @@
+CONSEJO NACIONAL DE SUPERVISIÓN
+DEL SISTEMA FINANCIERO
+REGLAMENTO PARA LA CALIFICACIÓN DE DEUDORES
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 9 del acta de la sesión 633-2007, celebrada el 1º de marzo del 2007,
+considerando que:
+a. el envío de la información que exige el Acuerdo SUGEF 1-05 implica un proceso complejo de carga de datos que exige a las entidades un uso intensivo de sus recursos humanos e informáticos, lo cual necesariamente conlleva una curva de aprendizaje. Para apoyar este proceso, mediante artículo 8 del acta de la sesión 616-2006, celebrada el 23 de noviembre del 2006, el Consejo Nacional de Supervisión del Sistema Financiero, dispuso autorizar un periodo en días naturales, contado a partir de la fecha límite de envío para los meses de noviembre 2006 a enero 2007, en el cual las entidades pueden enviar la información sin verse afectadas por la metodología alternativa de cálculo establecida en el artículo 25 del Acuerdo SUGEF 1-05, para la estimación estructural,
+b. la mayoría de las entidades supervisadas han logrado una carga exitosa de la información crediticia, aunque en algunos casos se presentaron atrasos propios de la implementación de un sistema informático nuevo y complejo,
+c. con las acciones adoptadas esta superintendencia en cuanto a la puesta a disposición del código informático de las validaciones y el desarrollo de una serie de charlas sobre errores frecuentes incurridos en el envío de información (Circulares Externas 6-2007 y 7-2007), es de esperar que en los siguientes meses se mejore la calidad, la eficiencia y la oportunidad en el envío de la información.
+No obstante lo anterior, es previsible que mientras dichas acciones van consolidando el envío exitoso de la totalidad de los XML de las clases de datos Personas, Garantías y Operaciones Crediticias del Sistema de Captura, Verificación y Carga de Datos (SICVECA), para los meses correspondientes al periodo de febrero 2007 a julio 2007 se presente algún grado de atraso,
+d. estas modificaciones no afectan negativamente a las entidades financieras, por lo que se prescinde del trámite de consulta a que se refiere el párrafo 2 del artículo 361 de la Ley General de la Administración Pública,
+dispuso, en firme:
+1. Adicionar al Acuerdo SUGEF 1-05 “Reglamento para la calificación de deudores” el siguiente transitorio:
+“Transitorio X.—Para los cortes correspondientes a los meses de febrero 2007 a julio 2007 lo dispuesto en el artículo 25 de este Reglamento, se aplica luego de transcurridos tres días naturales, contados a partir de la fecha límite para el envío de la totalidad de los XML de las clases de datos Personas, Garantías y Operaciones Crediticias de SICVECA y hasta las 5 p.m. del tercer día. De acuerdo con lo indicado en la Circular Externa 026-2006 del 3 de noviembre del 2006, cuando el día de envío de la información es un día no hábil, las entidades pueden remitir dicha información el día hábil siguiente, sin que se considere un incumplimiento a lo dispuesto.”
+2. La presente modificación reglamentaria rige a partir del 1º de marzo del 2007.
+Publíquese en el Diario Oficial La Gaceta.
