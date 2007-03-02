@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con la Resolución N° 48-94 (CONSEJOXII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 10% y 15% incluyan el gravamen del 1% de la Ley Nº 6946, a los incisos que aparecen en el anexo de la presente resolución con tarifas 10% y de 15%, aplicar un arancel de 9% y de 14%, respectivamente.
