@@ -112,6 +112,8 @@ Periodicidad del avalúo y porcentaje de depreciación. Los porcentajes de depre
 4) Equipo de cómputo: se deprecia a una tasa semestral del 12,5% a partir del año de fabricación y no se aceptan nuevos avalúos.
 5) Todos los demás bienes: se deprecia a una tasa semestral del 10%; la entidad puede realizar un nuevo avalúo según su política de crédito.
 Adicionalmente la entidad debe realizar una visita de seguimiento y control al menos cada año o en intervalos menores si la naturaleza perecedera o de extrema liquidez del bien dado en garantía lo requiere. Se exceptúa de este requisito la garantía hipotecaria residencial que está habitada por el deudor calificado en una categoría de riesgo de la A1 hasta la C1 y los vehículos automotores dados en garantía cuando el deudor está calificado en una categoría de riesgo de la A1 hasta la C1.
+Para el caso de vehículos automotores que respaldan operaciones de crédito denominadas en moneda extranjera y cuyo monto de la garantía se determina en moneda extranjera, el cálculo de la depreciación debe efectuarse sobre el monto en moneda extranjera de la garantía y el valor resultante de la garantía debe expresarse en colones al tipo de cambio de compra de referencia del Banco Central de Costa Rica al cierre de cada mes.
+(Así adicionado el párrafo anterior por acuerdo N° 006 del 2 de marzo de 2007)
 C. Porcentaje de aceptación.
 Objetivo: Determinar el costo y el riesgo asociado a la realización del valor de mercado para establecer el porcentaje de aceptación de la garantía como mitigador de riesgo para efectos del cálculo de la estimación de crédito.
 El porcentaje de aceptación de las garantías debe reducirse en las siguientes situaciones:
