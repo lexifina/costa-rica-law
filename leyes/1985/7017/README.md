@@ -1,6 +1,6 @@
 # Convenio del Régimen Arancelario y Aduanero Centroamericano (ANEXO A: Arancel Centroamericano de Importación) (Ver Fe de Erratas en el Alcance Nº 2 de La Gaceta Nº 12 del 17 de enero de 1986 )
 
-Ley N° 7017 del 1985-12-16. SINALEVI, ficha 6789: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6789&param2=66122&param3=1>.
+Ley N° 7017 del 1985-12-16. SINALEVI, ficha 6789: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6789&param2=66209&param3=1>.
 
 Publicada en La Gaceta N° 248 del 1985-12-27.
 
@@ -53,3 +53,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 43 de 99 | 2007-02-22 | Decreto Ejecutivo 33580 (2007-01-08) | 2007-01-08 |
 | 44 de 99 | 2007-02-26 | Decreto Ejecutivo 33588 (2007-01-08) | 2007-01-08 |
 | 45 de 99 | 2007-03-02 | Decreto Ejecutivo 33599 (2007-01-08) | 2007-01-08 |
+| 46 de 99 | 2007-03-05 | Decreto Ejecutivo 33579 (2007-01-08) | 2007-01-08 |
