@@ -14,6 +14,8 @@ l) Proponer a la Junta Directiva la creación y eliminación de plazas conforme 
 m) Establecer sanciones disciplinarias del personal administrativo de la Institución siguiendo los lincamientos establecidos en la Ley General de la Administración Pública.
 n) Aprobar los manuales de procedimientos y funciones que considere necesarios para el funcionamiento interno de la institución.
 o) La Gerencia podrá adelantar o posponer la fecha de cualquier sorteo, como también suprimir uno o más sorteos, previa aprobación de la Presidencia de la Junta Directiva, quien lo hará del conocimiento de la Junta Directiva en la primer sesión que se efectúe posterior al sorteo. Lo anterior por razones especiales que así lo justifiquen. Esta circunstancia deberá comunicarse al público por los medios que estime adecuados. En caso de anticipar o suprimir el sorteo, deberá comunicarlo con cinco días habites de anticipación a la realización del sorteo y en caso de posposición, la comunicación podrá hacerse con no menos de un día hábil de anticipación a la fecha original.
-p) Adjudicar o declarar desiertas, en su caso, las licitaciones por registro y restringidas, conforme a las leyes que rigen la materia.
-q) Autorizar las tarifas, planes, traspasos de arrendamiento y proyectos relacionados con los Cementerios a cargo de la Junta de Protección Social de San José.
+p) Aprobar los carteles y adjudicar o declarar desiertas, en su caso, las licitaciones abreviadas, conforme a las leyes que rigen la materia.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33751 de 5 de marzo de 2007)
+q) Autorizar las tarifas, planes, traspasos de arrendamiento y proyectos relacionados con los Cementerios a cargo de la (*) Junta de Protección Social.
 r) Cualquier otra que le asigne la Junta Directiva.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
