@@ -1,0 +1,8 @@
+Artículo 5º—De los Términos Específicos de las modificaciones.
+1) La formulación de las modificaciones presupuestarias serán solicitadas por estrito por el Director Ejecutivo ante el Consejo Directivo para su solicitud de aprobación, con su respectiva justificación de rebajo y aumento de las partidas de egresos. Estas serán elaboradas por el Director Financiero, y firmadas por el Tesorero, las mismas llevarán una numeración consecutiva y estar debidamente foliadas.
+2) La Secretaría del Consejo Directivo debe llevar un archivo de cada modificación que incluirá los documentos de la modificación en si misma, la justificación correspondiente en donde indique que se cumple con toda la normativa legal.
+3) El Consejo Directivo conocerá toda modificación presupuestaria que sea presentada por la Administración, independientemente de su monto o la partida que se modifique.
+4) La aplicación de fondos que por ley tienen un destino específico solo podrán modificarse para cubrir gastos dentro del destino señalado por ley.
+5) No se realizarán las modificaciones presupuestarias a compromisos legales o contractuales hasta tanto ellos no se hayan finiquitado.
+6) Las modificaciones podrán efectuarse siempre y cuando los programas, servicios, proyectos, obras, partidas o subpartidas que se modifiquen tengan el contenido presupuestario necesario.
+7) Como parte del componente de información del sistema de control interno que establezca la Administración para el adecuado manejo de los fondos públicos, la documentación relativa a las modificaciones presupuestarias deberá estar disponible para el ejercicio de las funciones de fiscalización y control sobre el manejo de los fondos públicos, tanto por parte de la Auditoria Interna y Contraloría General de la República.

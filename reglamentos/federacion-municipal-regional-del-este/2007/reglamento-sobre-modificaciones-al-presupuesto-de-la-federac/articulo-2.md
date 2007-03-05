@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para la Federación Municipal Regional del Este, que se encuentra sujeta a la aprobación presupuestaria de la Contraloría General de la República

@@ -1,0 +1,1 @@
+Artículo 8º—Gestiones derivadas. El Director Ejecutivo será el encargado de resolver cualquier gestión que se derive de la aplicación de este reglamento. Las autoridades correspondientes deberán presentar sus gestiones mediante acto debidamente motivado, para que sus gestiones sean atendidas
