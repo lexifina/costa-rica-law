@@ -1,0 +1,1 @@
+Artículo 64.—El patentado podrá impugnar la recalificación hecha por el Departamento de Patentes de conformidad con las disposiciones del capítulo sobre materia tributaria de la Ley Reguladora de la Jurisdicción de lo Contencioso Administrativo. Para tales efectos, la vía administrativa se agotará mediante la alzada que interponga directamente ante el Consejo Municipal.

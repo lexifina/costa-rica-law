@@ -1,0 +1,1 @@
+Artículo 51.—Los contribuyentes que no presenten la declaración jurada del impuesto municipal, dentro del término establecido en el artículo 6º de la Ley, serán sancionados con una multa del veinte por ciento (20%) del impuesto anual de patentes pagado durante el período anterior. Esta multa deberá pagarse solamente en el pago del primer trimestre de cada año.

@@ -1,0 +1,1 @@
+Artículo 69.—Las resoluciones del Departamento de Patentes que ordenen el cierre definitivo o clausura del establecimiento comercial, en cumplimiento de ordenes emanadas del Poder Ejecutivo y de instituciones de Derecho Público no tendrán recurso alguno.

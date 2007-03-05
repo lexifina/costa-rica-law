@@ -1,0 +1,1 @@
+Artículo 19.—La licencia solo podrá ser denegada en los casos previstos en el artículo 81 del Código Municipal, o no se cumpla con lo dispuesto en éste Reglamento en cuanto a obligaciones tributarias o permisos de construcción.

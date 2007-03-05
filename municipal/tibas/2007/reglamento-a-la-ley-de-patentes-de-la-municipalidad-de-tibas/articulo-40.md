@@ -1,0 +1,2 @@
+Artículo 40.—Toda declaración queda sujeta a revisión por los medios establecidos en la Ley y en éste Reglamento. Si la Municipalidad comprueba que los datos suministrados son incorrectos, circunstancia que determine una variación en el tributo, procederá a hacer la recalificación correspondiente.
+Asimismo cuando la Dirección General de Tributación Directa, hiciere la recalificación en el Impuesto sobre la Renta, deberá comunicarlo al Departamento de Patentes para lo que corresponda.

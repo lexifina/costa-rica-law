@@ -1,0 +1,1 @@
+Artículo 18.—La violación a lo dispuesto en éste capítulo, dará lugar al cierre inmediato del local, medidas que se ejecutarán por medio de las autoridades de policía o por funcionarios únicamente del Departamento de Patentes.

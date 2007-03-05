@@ -1,0 +1,1 @@
+Artículo 56.—La revisión y verificación de las declaraciones, estarán a cargo del Departamento de Patentes, quienes dispondrán del apoyo necesario para consultas y demás actos, del Departamento de Contabilidad y Tesorería.

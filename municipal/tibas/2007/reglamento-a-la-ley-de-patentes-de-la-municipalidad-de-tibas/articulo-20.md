@@ -1,0 +1,1 @@
+Artículo 20.—La licencia solo podrá suspenderse por incumplimiento de los requisitos que exigen las leyes y éste Reglamento, para el desarrollo de la respectiva actividad. La suspensión de la licencia implicará el cierre y clausura del local comercial.

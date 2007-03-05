@@ -1,0 +1,1 @@
+Artículo 12.—El impuesto de patente y licencia de venta de licores al menudeo, se regulará por una ley especial salvo aquellas disposiciones de tipo administrativo que sean aplicables, en cuanto a solicitud, traspaso, traslado y cancelación de las mismas.

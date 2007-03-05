@@ -1,0 +1,1 @@
+Artículo 41.—La certificación del Contador Municipal en que se indique la diferencia adeudada por el interesado en virtud de la recalificación servirá de título ejecutivo, para efectos el cobro de la misma.

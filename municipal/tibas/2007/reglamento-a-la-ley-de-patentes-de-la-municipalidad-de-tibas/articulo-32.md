@@ -1,0 +1,1 @@
+Artículo 32.—Las resoluciones de la Municipalidad que ordenen reclasificaciones deberán ser notificadas al interesado en el local donde se realiza la actividad, las cuales podrán ser impugnadas dentro de los cinco días hábiles siguientes.

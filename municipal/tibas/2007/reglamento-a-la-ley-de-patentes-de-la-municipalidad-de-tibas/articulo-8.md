@@ -1,0 +1,1 @@
+Artículo 8º—Para la determinación mediante declaración jurada se aplicará el procedimiento establecido en la Ley y el capítulo VI de éste Reglamento; para la imposición directa mediante el capítulo VII, y por disposición expresa de la Ley, la aplicación de los casos contemplados en los artículos 14, 15 y 16 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 14.—La licencia deberá ser solicitada mediante el formulario que para tal efecto facilita la Plataforma de Servicios o el Departamento de Patentes, además de cumplir con todos y cada unos de los requisitos publicados en los manuales, de acuerdo a lo que establece la Ley Nº 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”.

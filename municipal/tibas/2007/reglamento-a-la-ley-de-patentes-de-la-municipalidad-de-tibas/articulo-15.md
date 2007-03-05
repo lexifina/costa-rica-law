@@ -1,0 +1,1 @@
+Artículo 15.—Las solicitudes de licencia o permisos municipales deberán ser presentadas ante la Plataforma de Servicios, de forma completa, incluyendo los demás requisitos establecidos por Ley. Dicha dependencia trasladará al Departamento de Patentes los expedientes correspondientes, siempre y cuando cumplan con la normativa establecida.
