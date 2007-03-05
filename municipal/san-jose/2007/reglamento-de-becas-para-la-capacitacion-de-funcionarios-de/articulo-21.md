@@ -1,0 +1,1 @@
+Artículo 21.—De conformidad con lo establecido en el Artículo 43, del Código Municipal, procédase a la publicación de este Reglamento en el Diario Oficial La Gaceta, cuya vigencia rige a partir de la presente publicación.

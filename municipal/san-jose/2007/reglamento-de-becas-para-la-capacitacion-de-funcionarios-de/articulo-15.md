@@ -1,0 +1,1 @@
+Artículo 15.—Toda decisión o modificación, con relación a los beneficios aprobados, que varíe alguno de los elementos sustanciales del contrato, deberá constar por escrito y agregarse al expediente respectivo y en un tiempo no mayor a ocho días, deberá ser entregado a la Sección de Capacitación y agregarse al expediente respectivo.

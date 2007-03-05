@@ -1,0 +1,1 @@
+Artículo 20.—En caso de que sea necesario, se aplicarán con carácter suplementario, las disposiciones afines contenidas en el Código Municipal, el Código de Trabajo, la Convención Colectiva de Trabajo y el Reglamento Autónomo de Organización y Servicios.

@@ -1,0 +1,1 @@
+Artículo 19.—Cualquier proyecto de reforma de este Reglamento, deberá ser presentado por el Alcalde, con base en una propuesta elaborada por la Sección de Capacitación de la Dirección de Recursos Humanos, a consideración del Concejo.
