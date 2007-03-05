@@ -1,0 +1,1 @@
+Artículo 21.—Si resultara una diferencia en el arqueo de Caja Chica, deberá ser comunicada a la Junta Directiva quien deberá solicitar una justificación al encargado del fondo, quien además procederá de inmediato a depositar o reintegrar la diferencia según corresponda.

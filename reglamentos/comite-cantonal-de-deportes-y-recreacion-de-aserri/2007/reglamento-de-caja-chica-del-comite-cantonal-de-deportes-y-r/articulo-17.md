@@ -1,0 +1,1 @@
+Artículo 17.—El monto de lo gastado no podrá exceder el monto del vale de Caja Chica, de presentarse esta situación el funcionario a nombre de quien se giro el vale deberá asumir la diferencia salvo aquellos casos aprobados por la Junta Directiva.

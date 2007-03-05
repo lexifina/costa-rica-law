@@ -1,0 +1,1 @@
+Artículo 3º—La Caja Chica manejará mediante efectivo con reintegro por medio de cheque y estará a cargo del administrador del Comité de Deportes el cual será el responsable de su correcto funcionamiento.
