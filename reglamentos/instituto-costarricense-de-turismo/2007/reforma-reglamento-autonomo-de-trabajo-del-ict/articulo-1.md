@@ -1,0 +1,8 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+REFORMA AL REGLAMENTO AUTÓNOMO DE TRABAJO DEL ICT
+La Junta Directiva del Instituto Costarricense de Turismo en sesión ordinaria Nº 5457, artículo 5, inciso IX, celebrada el día 6 de febrero del 2007. Acuerda: Acoger la recomendación legal dada mediante oficio DL- 0182-2007 y aprobar modificación del acuerdo SJD-1055-2007 tomado en la sesión ordinaria Nº 5447, artículo 5º, inciso IX, celebrada el 28 de noviembre del 2006, relativo a la Reforma al Reglamento Autónomo de Trabajo del ICT, dado que en el acuerdo se excluyó en el punto 2, un inciso del artículo 43 el q) y un inciso del artículo 44 el j):
+1º—Incluir un inciso W) en el artículo 43, que diga:
+“w) Atender oportunamente y en los plazos dados, las evaluaciones e informes institucionales que sean solicitados por las diferentes unidades en el cumplimiento de las funciones de su competencia, adjuntando obligatoriamente la información completa. En casos debidamente justificados podrán prorrogarse los plazos dados, salvo que el hacerlo incida en los términos que externamente se le exijan a la Institución o en aquellos fijados por la propia Administración para cumplir con las responsabilidades asignadas por ley.”
+2º—Modificar el artículo 55 para que se lea de la siguiente manera:
+“Artículo 55.—Además de las contenidas en otros artículos del presente Reglamento se consideran faltas graves las infracciones a las disposiciones de los artículos 21, 43, incisos: d), e), f), j), k), o), q), r), s), t), u), v), w); artículo 44, incisos: a), c), d), e), f), l), n), o), r) y artículos 58 y 61”.
+San José, 15 de febrero del 2007.
