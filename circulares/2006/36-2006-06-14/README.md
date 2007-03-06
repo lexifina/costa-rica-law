@@ -16,3 +16,4 @@ Lista Oficial de Peritos (La Corte Suprema de Justicia publicó en el Boletín J
 | 2 | 2006-10-05 | Circular 50 (2006-09-25) |
 | 3 | 2006-12-13 | Circular 70 (2006-12-13) |
 | 4 | 2007-02-05 | Circular 7 (2007-02-05) |
+| 5 | 2007-03-06 | Circular 13 (2007-03-06) |
