@@ -1,1 +1,0 @@
-Artículo 57.—Presupuesto. Es responsabilidad de cada una de las dependencias asegurar el contenido presupuestario para la actualización de sus equipos de cómputo (computadores, impresoras, switches, concentradores, repuestos, etc.)
