@@ -14,3 +14,4 @@ Crea Comisión de Baja de Bienes por Donación del Ministerio de Economía, Indu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-01 | la propia norma |
+| 2 | 2007-03-06 | Acuerdo 7 (2007-03-06) |
