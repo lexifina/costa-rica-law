@@ -1,1 +1,0 @@
-4º—Que la comisión de hacienda vigilará que, en el programa operativo (programa presupuesto), solo se incorporen proyectos que hayan cumplido con las normas del protocolo técnico. Además, que hayan sido aprobados por el alcalde y, finalmente por el concejo municipal

@@ -1,1 +1,0 @@
-8º—Que las unidades organizacionales del ente municipal serán informadas, detalladamente y por medio del despacho del señor alcalde, del presente acuerdo municipal y de las previsiones que deberán guardar, en sus respectivas áreas técnicas.
