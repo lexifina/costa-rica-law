@@ -1,0 +1,2 @@
+Artículo 21.—Una vez presentada la petición, la Dirección General contará con un plazo que no excederá de diez días naturales para verificar la información presentada y podrá prevenirle a la institución educativa, por una única vez y por escrito, que complete los requisitos omitidos en la solicitud o que aclare la información, en un plazo que no mayor a 10 días hábiles.
+Presentados los requisitos, se aplicará lo dispuesto en el artículo 13, y de otorgarse la visa, se aplicará lo establecido en el artículo 14, ambos del presente reglamento.

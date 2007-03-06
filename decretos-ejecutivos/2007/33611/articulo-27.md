@@ -1,0 +1,4 @@
+Artículo 27.—Una vez notificada la resolución que otorga la categoría especial, el representante legal de la institución educativa inscrita en el registro al que se refiere este reglamento, o su apoderado, deberá presentar en la ventanilla de atención especial de la Gestión de Extranjería, en el menor plazo posible:
+a) Comprobante que acredita el pago por concepto de costo del documento que acredita la categoría especial, de conformidad con el artículo 249 de la Ley de Migración y Extranjería.
+b) Comprobante de entero a favor de Gobierno que acredita el pago de los impuestos por concepto de expedición del documento de permanencia que le acredita la condición migratoria que se pretende, de conformidad con el artículo 251 de la Ley de Migración y Extranjería.
+c) Comprobante que acredita el depósito al que se refiere el artículo 128 de la Ley.

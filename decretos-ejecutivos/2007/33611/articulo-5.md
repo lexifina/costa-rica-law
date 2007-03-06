@@ -1,0 +1,1 @@
+Artículo 5º—Si la documentación hubiera sido presentada completa, o en su caso, una vez cumplida la prevención a la que se refiere el artículo anterior, la Dirección General resolverá lo que proceda en un plazo no mayor a diez días naturales a partir del día en que recibió la documentación completa.

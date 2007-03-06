@@ -1,0 +1,8 @@
+CAPÍTULO SEGUNDO
+De las visas de ingreso para estudiantes o académicos
+de instituciones educativas registradas ante la Dirección General
+Artículo 8º—Para los efectos del presente reglamento, la Dirección General podrá otorgar las siguientes visas de ingreso, a favor de personas extranjeras que pretendan ingresar y permanecer para realizar actividades propias de estudiantes o académicos, así como sus dependientes:
+a) Para No Residentes, ya sea para un solo viaje o múltiples.
+b) En calidad provisional de categoría especial como Estudiantes o Personas invitadas para realizar actividades de importancia para el país, al amparo de los incisos d) o i) del artículo 90 de la Ley, de conformidad con lo establecido en el artículo 18 del presente reglamento.
+Para los efectos del presente inciso, las instituciones educativas registradas ante la Dirección General, serán conceptualizados dentro del supuesto establecido en el último párrafo del artículo 61 de la Ley, por lo que se podrán recibir sus peticiones directamente en las oficinas competentes en materia de extranjería de la Dirección General.
+En virtud de lo anterior, los estudiantes, académicos o sus dependientes, que no requieran visa restringida, podrán ingresar al territorio nacional bajo la categoría migratoria de No Residente, subcategoría Turismo, y una vez en el país acogerse al presente capítulo, a través de la Institución Educativa correspondiente. Por su parte, los estudiantes, académicos o sus dependientes que sí requieran visa restringida, les será aplicable lo dispuesto en la Sección Segunda del Capítulo Segundo del presente reglamento.

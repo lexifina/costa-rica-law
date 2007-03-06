@@ -1,0 +1,1 @@
+Artículo 51.—La renovación de la categoría especial no se podrá alegar por parte de sus beneficiarios para efectos de optar por la residencia permanente, al amparo del artículo 73 inciso a) de la Ley.

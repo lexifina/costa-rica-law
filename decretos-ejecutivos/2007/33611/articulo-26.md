@@ -1,0 +1,1 @@
+Artículo 26.—La Dirección General deberá notificar la resolución de la petición en el lugar o medio señalado por el solicitante para tales efectos y dentro de los plazos establecidos. En dicha resolución se indicará el monto del depósito de garantía que deberá realizar en virtud de lo dispuesto en el artículo 128 de la Ley.

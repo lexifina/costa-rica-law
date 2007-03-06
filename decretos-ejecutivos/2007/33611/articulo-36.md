@@ -1,0 +1,1 @@
+Artículo 36.—De otorgarse la visa múltiple, la Dirección General notificará lo resuelto a la institución educativa solicitante, con el fin de que aporte el comprobante de entero a favor de Gobierno que acredita el pago de los impuestos por concepto de visa múltiple, de conformidad con el artículo 255 de la Ley.

@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+De las visas múltiples
+Artículo 29.—La Dirección General podrá otorgar visas múltiples a favor de académicos de instituciones educativas inscritas en el registro al que se refiere el presente reglamento, cuyas nacionalidades se encuentren en el tercero o cuarto grupo de las Directrices Generales de Visa, que no gocen de una categoría especial, y que requieran ingresar periódicamente al país por periodos cortos, de conformidad con los plazos establecidos por las directrices generales de visas, cuando sean invitadas por las universidades o los colegios universitarios o instituciones de educación pública o privada.

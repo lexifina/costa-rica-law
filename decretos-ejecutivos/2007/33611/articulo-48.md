@@ -1,0 +1,1 @@
+Artículo 48.—La petición deberá presentarse ante la oficina de la Dirección General competente para conocer la materia de extranjería y se procederá de conformidad con lo estipulado en los artículos 25 al 28 del presente reglamento.

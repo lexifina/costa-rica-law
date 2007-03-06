@@ -1,0 +1,1 @@
+Artículo 38.—Tratándose de visas múltiples autorizadas a favor de extranjeros que se encuentren en el país, la institución educativa remitirá a la oficina competente de la Dirección General, el pasaporte del beneficiario, con el fin de que se estampe materialmente la visa múltiple en ese documento.

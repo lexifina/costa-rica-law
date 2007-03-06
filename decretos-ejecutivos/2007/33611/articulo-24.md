@@ -1,0 +1,1 @@
+Artículo 24.—Para presentar los requisitos indicados en el artículo anterior, la Dirección General establecerá dentro de la oficina competente en materia de extranjería, una ventanilla especial, en que se atenderá al representante legal de la institución educativa o a su apoderado.

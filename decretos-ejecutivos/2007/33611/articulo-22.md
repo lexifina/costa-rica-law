@@ -1,0 +1,1 @@
+Artículo 22.—Otorgada la visa en calidad provisional de categoría especial, el Director General remitirá en un término máximo de cinco días naturales, el expediente administrativo a la Gestión de Extranjería.

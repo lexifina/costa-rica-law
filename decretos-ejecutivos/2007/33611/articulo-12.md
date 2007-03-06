@@ -1,0 +1,1 @@
+Artículo 12.—Las visas otorgadas para viajes cortos de estudiantes o académicos de las instituciones educativas inscritas en el registro correspondiente de la Dirección General, serán otorgadas bajo la categoría migratoria de No Residentes, según la subcategoría de Estancia consignada en los artículos 83 b) y 84 a) de la Ley.

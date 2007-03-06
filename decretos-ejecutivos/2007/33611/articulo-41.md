@@ -1,0 +1,1 @@
+Artículo 41.—Vencido el plazo original por el cual se otorgó la visa múltiple, deberá gestionar otra, cumpliendo nuevamente con todos los requisitos que el presente reglamento exige, salvo la certificación de nacimiento.

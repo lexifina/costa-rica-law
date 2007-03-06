@@ -1,0 +1,1 @@
+Artículo 32.—Tratándose de visas múltiples otorgadas a favor de un extranjero cuya nacionalidad se ubique en el cuarto grupo de las Directrices Generales de Visa, el plazo de permanencia legal que tendrá derecho al ingresar con una visa múltiple será de treinta días.

@@ -1,0 +1,1 @@
+Artículo 42.—La institución educativa deberá informar a la Dirección General, en caso de que cese su vínculo con el extranjero a favor de quien se extendió visa múltiple, a efecto de proceder a su cancelación. Además, dichas visas podrán ser canceladas por dicha Dirección si se incumplieran las condiciones bajo las cuales fueron otorgadas.

@@ -1,0 +1,1 @@
+Artículo 37.—Una vez aportado el comprobante señalado, se procederá según lo dispuesto en el artículo 14 del presente reglamento. La visa que en este supuesto estampe el cónsul, no será múltiple, sino para un ingreso. Una vez que el extranjero se encuentre en el país, se aplicará lo que dispone el artículo siguiente.
