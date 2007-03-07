@@ -1,0 +1,1 @@
+Artículo 2º—En beneficio y protección de la salud de los consumidores queda totalmente prohibido el uso o presencia de bromato de potasio en la harina, en los productos de panadería o cualquier otro alimento de fabricación nacional o importado.
