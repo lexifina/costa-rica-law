@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº DGT-07-2007.—Dirección General de Tributación, a las ocho horas del diecinueve de febrero del dos mil siete.
+Considerando:
+1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para los efectos de la correcta aplicación de las leyes tributarias dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2º—Que mediante Decreto Ejecutivo Nº 28455-H del 12 de enero del 2000 publicado en La Gaceta Nº 38 del 23 de febrero de ese mismo año, se adicionó el inciso k) al artículo 1º del Reglamento sobre Criterios Objetivos de Selección de Contribuyentes para Fiscalización, Decreto Ejecutivo Nº 25925-H de 13 de marzo de 1997 y sus reformas, en el que se establece que se podrán seleccionar a contribuyentes que pertenezcan a los sectores y actividades económicas definidas mediante resolución de la Dirección General de Tributación, publicada con antelación al inicio del Plan Anual de Fiscalización de que se trate.
+3º—Que la resolución Nº DGT30-2006 del veintidós de diciembre del dos mil seis, publicada en La Gaceta Nº 33 del 15 de febrero del 2007 contiene los sectores y actividades económicas correspondientes al Plan Anual de Fiscalización del año 2007.
+4º—Que en dicha resolución se consignó por error el enunciado 7, el cual establece “Sujetos pasivos de cualquier sector o actividad económica cuyos gastos de operación representan el 95% o más de sus ingresos declarados”, mismo que no corresponde con la situación que se busca definir como criterio de selección para fiscalización para el año 2007. En consecuencia, es necesario entrar a corregir tal error. Por tanto,
+RESUELVE:
+Artículo 1º—Sustitúyase el enunciado 7 de la resolución Nº DGT 30-2006 para que se lea así:
+7) Sujetos pasivos, cuya relación por cociente, entre la renta neta y la renta bruta declarada a los fines del impuesto sobre las utilidades, sea inferior a esa misma relación promedio de la actividad económica en que se desempeñan.
