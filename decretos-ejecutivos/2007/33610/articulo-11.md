@@ -1,0 +1,8 @@
+Artículo 11.—El funcionario que conduzca un transporte terrestre patrimonio de la Dirección Nacional de Desarrollo de la Comunidad, no deberá:
+A) Utilizar el medio de desplazamiento habiendo consumido licor o drogas que afecten su capacidad de conducir.
+B) Destinar el transporte terrestre para uso personal y/o en actividades que se alejen de las labores propias para con la Institución.
+C) Violentar las disposiciones de tránsito.
+D) Guardar los vehículos automotores o motocicletas patrimonio de la Dirección Nacional de Desarrollo de la Comunidad fuera de los estacionamientos de la institución, a excepción de casos decretados como especiales por la Dirección Nacional, en los que se podrá depositar los medios de transporte terrestre en la casa de habitación de los funcionarios autorizados, o en el supuesto de gira en la que el chofer asignado deberá guardar el vehículo en el lugar más seguro posible. En aquellos casos en que se haya producido una colisión o que el vehículo sufra un desperfecto que impida su desplazamiento, los medios de desplazamiento podrán quedar depositados en otro lugar distinto a los indicados, debiendo reunir ante todo las condiciones mínimas de seguridad y comunicando de esto automáticamente al Encargado de Servicios Integrados y al Director Administrativo.
+E) Permitir que personas no autorizadas viajen en el medio de desplazamiento respectivo.
+F) Hacer uso de los vehículos fuera de los horarios autorizados.
+G) Intercambiar combustible, lubricantes, herramientas, repuestos y accesorios de un vehículo a otro, salvo autorización escrita del Director Nacional o el Director Administrativo.

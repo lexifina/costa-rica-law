@@ -1,0 +1,1 @@
+Artículo 15.—Respecto al mantenimiento y de las reparaciones, se deberá mantener al día un registro de daños y averías que permita conocer en todo momento el estado de los vehículos automotores y motocicletas de la Institución.

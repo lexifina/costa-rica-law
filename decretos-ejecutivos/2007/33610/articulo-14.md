@@ -1,0 +1,1 @@
+Artículo 14.—El encargado de Servicios Integrados deberá llevar un registro de las fechas de los afinamientos, cambios de aceite, grasa, cambios de filtros de aceite y aire, baterías y llantas de cada uno de los vehículos integrantes del patrimonio de la Dirección Nacional de Desarrollo de la Comunidad.

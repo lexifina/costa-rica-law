@@ -1,0 +1,1 @@
+Artículo 3º—Todas las disposiciones de carácter imperativo contenidas en este Reglamento, que responsabilizan de la administración y control de vehículos al Encargado de Servicios Integrados, se aplicaran bajo los mismos alcances a los Directores Regionales, que tienen asignados vehículos automotores.
