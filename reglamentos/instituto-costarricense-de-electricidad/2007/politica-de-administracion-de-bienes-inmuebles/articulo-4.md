@@ -1,0 +1,1 @@
+Artículo 4º—Los bienes inmuebles del Instituto Costarricense de Electricidad deben entenderse como propiedad de la Institución, sin importar el origen financiero que sustentan las adquisiciones, construcciones, donaciones y alquileres de los inmuebles, y no como propiedad de la dependencia o sector a que estén asignados.
