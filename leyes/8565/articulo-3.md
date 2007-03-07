@@ -1,0 +1,3 @@
+Artículo 3º—Comisiónase a la Notaría del Estado para que formalice la correspondiente escritura pública de traspaso. Asimismo, se autoriza a la Procuraduría General de la República para que corrija los defectos que el Registro Público señale.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los siete días del mes de febrero del dos mil siete
