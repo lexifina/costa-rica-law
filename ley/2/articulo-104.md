@@ -1,11 +1,11 @@
 ARTICULO 104.- Los servidores domésticos se regirán por las siguientes disposiciones especiales:
-a. Estarán obligados a trabajar con esmero y solicitud, según las necesidades e intereses del patrono, y a cumplir sus instrucciones, así como a observar discreción, especialmente en lo que se refiere a la vida familiar;
-b. Percibirán su salario en efectivo, que en ningún caso será inferior a la fijación mínima correspondiente, y recibirán además, salvo pacto o práctica en contrario, alojamiento y alimentación adecuados, que se reputarán como salario en especie para los efectos legales consiguientes;
-c. Estarán sujetos a una jornada ordinaria máxima de doce horas, teniendo derecho dentro de ésta un descanso mínimo de una hora, que podrá coincidir con los tiempos destinados a alimentación. En caso de jornadas inferiores a doce horas pero mayores de cinco, el descaso será proporcional a las mismas.
-d. Disfrutarán, sin perjuicio de su salario, de media jornada de descanso en cualquier día de la semana a juicio del patrono; sin embargo, por lo menos dos veces al mes dicho descanso será un día domingo.
-e. En los días feriados remunerados que establece este Código, tendrán derecho a descansar media jornada, o a percibir medio jornal adicional en su lugar, si laboraran a requerimiento del patrono.
-f. Tendrán derecho a quince días de vacaciones anuales remunerados, o a la proporción correspondiente en caso de que el contrato termine antes de las cincuenta semanas;
-g. Los menores de catorce años tendrán derecho a licencias para cursar la enseñanza primaria; y
-h. En caso de incapacidad temporal originada por enfermedad, riesgo profesional u otra causa, tendrán derecho a los beneficios que establece el artículo 79 de este Código; sin embargo, la prestación a que se refiere el inciso a) del mismo se reconocerá a partir del primer mes de servicios.
+Estarán obligados a trabajar con esmero y solicitud, según las necesidades e intereses del patrono, y a cumplir sus instrucciones, así como a observar discreción, especialmente en lo que se refiere a la vida familiar;
+Percibirán su salario en efectivo, que en ningún caso será inferior a la fijación mínima correspondiente, y recibirán además, salvo pacto o práctica en contrario, alojamiento y alimentación adecuados, que se reputarán como salario en especie para los efectos legales consiguientes;
+Estarán sujetos a una jornada ordinaria máxima de doce horas, teniendo derecho dentro de ésta un descanso mínimo de una hora, que podrá coincidir con los tiempos destinados a alimentación. En caso de jornadas inferiores a doce horas pero mayores de cinco, el descaso será proporcional a las mismas. (Así reformado este inciso por resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
+Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
+Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
+Tendrán derecho a quince días de vacaciones anuales remunerados, o a la proporción correspondiente en caso de que el contrato termine antes de las cincuenta semanas;
+Los menores de catorce años tendrán derecho a licencias para cursar la enseñanza primaria; y
+En caso de incapacidad temporal originada por enfermedad, riesgo profesional u otra causa, tendrán derecho a los beneficios que establece el artículo 79 de este Código; sin embargo, la prestación a que se refiere el inciso a) del mismo se reconocerá a partir del primer mes de servicios.
 No obstante, si la enfermedad ha sido contraída por contagio ocasionado por las personas que habitan la casa, tendrá derecho, hasta por el término de tres meses, a percibir, en caso de incapacidad, su salario completo, e invariablemente a que se les cubran los gastos razonables que con tal motivo deba hacer.
 ( Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).
