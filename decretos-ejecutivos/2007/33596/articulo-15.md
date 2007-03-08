@@ -1,0 +1,4 @@
+Artículo 15.—Refórmese el artículo 31 del Reglamento a la Ley de Patrimonio Histórico Arquitectónico, Decreto Ejecutivo N° 32749, cuyo texto dirá:
+Artículo 31.—Resolución de incorporación. Recibido por el Ministro el expediente administrativo respectivo y la resolución de recomendación del órgano director, éste dictará la resolución final, acogiendo o apartándose de la recomendación vertida por el órgano director sobre la declaratoria del bien.
+En caso de considerarse procedente la declaratoria, la misma resolución declarará e incorporará el inmueble al patrimonio históricoarquitectónico de la Nación, señalando también las implicaciones de dicha declaratoria, para el caso particular.
+Esta resolución será notificada a las partes, contra la que procederá el recurso de reposición dentro de los dos meses siguientes a su notificación.
