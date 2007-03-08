@@ -14,3 +14,4 @@ Declara Patrimonio Histórico Histórico- Arquitectónico el Inmueble Las Arcaic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-16 | la propia norma |
+| 2 | 2007-03-08 | Decreto Ejecutivo 33693 (2007-03-08) |

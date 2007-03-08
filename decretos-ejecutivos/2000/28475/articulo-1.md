@@ -11,4 +11,5 @@ Considerando:
 4º—Que Las Acacias se constituye en un elemento importante dentro de la arquitectura de acompañamiento al entorno del Parque Morazán.
 5º—Que es deber del Estado salvaguardar el patrimonio cultural del país. Por tanto,
 Decretan:
-Artículo 1º—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como Las Acacias, inscrito en el Registro Nacional, Sección Propiedad, partido de San José, matrícula de Folio Real Nº 48.807-000, ubicado en el distrito Carmen, entre calles 7 y 9 y avenida primera bis del cantón Central de la provincia de San José, propiedad de Las Acacias, S. A.
+Artículo 1º—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como Las Acacias, que forma parte del inmueble inscrito en el Registro Nacional, Sección Propiedad, partido de San José, matrícula de folio real 526124-000, ubicado en el distrito Carmen, entre calles 7 y 9 y avenida primera bis del cantón Central de la provincia de San José, propiedad de Anexo Gran Hotel S. A. cédula jurídica 3-101-015842.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33693 del 8 de marzo de 2007)
