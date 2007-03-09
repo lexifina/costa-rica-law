@@ -1,5 +1,6 @@
 Artículo 3º—Para lograr sus fines el CEFOF tendrá las siguientes atribuciones:
-a) Coordinar con el Ministerio de Ciencia y Tecnología o cualquier otro ente público lo relacionado con el mejoramiento de la productividad, de todos los sectores de la economía de conformidad con las directrices de Poder Ejecutivo y con las disposiciones legales correspondientes.
+a) Coordinar con las autoridades públicas competentes lo relacionado con el mejoramiento de la productividad de todos los sectores de la economía, de conformidad con las directrices del Poder Ejecutivo y la normativa jurídica vigente
+(Así reformado el inciso anterior mediante artículo 1° del decreto ejecutivo N° 33686 del 09 de marzo de 2007)
 b) Prestar asistencia técnica a instituciones y empresas para mejorar los niveles de productividad y calidad.
 c) Realizar y participar en estudios e investigaciones en materias relacionadas con sus fines.
 d) Establecer y mantener relaciones con otras entidades nacionales o internacionales, públicas o privadas que tengan cometidos análogos a los del CEFOF y, suscribir con ellas acuerdos de intercambio y cooperación cuando fuere conveniente.
