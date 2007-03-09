@@ -1,0 +1,1 @@
+Artículo 4°: (NOTA DE SINALEVI en la publicación de este Reglamento no aparece el artículo N° 4, no obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo, pero sin texto).
