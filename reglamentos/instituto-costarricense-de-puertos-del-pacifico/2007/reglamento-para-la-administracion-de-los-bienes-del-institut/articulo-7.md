@@ -1,0 +1,1 @@
+Artículo 7º—En los casos de renuncia, traslado o despido el funcionario que utilice equipo hará entrega por escrito a la persona encargada en su Unidad, de los activos que tenía en uso. Para ello entregará las copias del “Formulario de Activos Fijos Recibidos” y del “Traspaso de Mobiliario” de manera que en determinado momento pueda justificar la entrega o falta de un activo.

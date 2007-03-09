@@ -1,0 +1,1 @@
+Artículo 38.—La institución beneficiada con la donación, deberá comunicar a la Proveeduría del INCOP en un plazo no mayor de treinta días naturales a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los bienes donados.

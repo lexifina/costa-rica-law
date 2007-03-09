@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección de Gestión Administrativa-Financiera por medio del Área de Contabilidad será la unidad técnica responsable de coordinar todas las actividades relacionadas con el control de Activos Fijos del INCOP. Tendrá la responsabilidad también de mantener un registro auxiliar permanente de los bienes muebles e inmuebles de la Institución.

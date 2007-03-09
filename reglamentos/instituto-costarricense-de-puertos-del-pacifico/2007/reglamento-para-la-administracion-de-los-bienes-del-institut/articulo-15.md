@@ -1,0 +1,1 @@
+Artículo 15.—El Área de Contabilidad entregará equipo, debidamente identificado por su placa, únicamente al encargado del control de activos de cada Unidad o a otra persona autorizada previamente por el Gerente General, por el Director de Gestión Administrativo-Financiero o por el Jefe.

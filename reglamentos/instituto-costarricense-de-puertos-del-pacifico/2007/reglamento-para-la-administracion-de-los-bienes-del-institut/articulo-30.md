@@ -1,0 +1,1 @@
+Artículo 30.—Comprobada la pérdida sin culpa o dolo del funcionario bajo cuya responsabilidad han estado los bienes, el Área de Contabilidad solicitará autorización a la Dirección de Gestión Administrativo-Financiero, para que se proceda al descargo contable en el registro auxiliar.

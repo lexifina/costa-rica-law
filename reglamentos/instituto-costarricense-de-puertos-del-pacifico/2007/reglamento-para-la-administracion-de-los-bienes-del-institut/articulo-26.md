@@ -1,0 +1,1 @@
+Artículo 26.—En el caso de que algún equipo deje de tener utilidad para el usuario, éste lo comunicará al encargado de su unidad para que lo reubique internamente, realizando el ajuste correspondiente en sus registros.

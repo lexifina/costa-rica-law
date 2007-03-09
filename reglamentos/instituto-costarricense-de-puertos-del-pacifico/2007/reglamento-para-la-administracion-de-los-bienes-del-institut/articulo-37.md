@@ -1,0 +1,1 @@
+Artículo 37.—En todos los casos, el donatario deberá autorizar a la Proveeduría del INCOP para que realice las inspecciones y verificaciones que la Institución considere necesarias para comprobar el buen uso y destino adecuado del bien objeto de la donación.

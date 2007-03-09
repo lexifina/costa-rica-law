@@ -1,0 +1,1 @@
+Artículo 24.—Cuando el INCOP adquiera terrenos, instalaciones o edificios, ya sea por medio de compra o donación, el Departamento Jurídico deberá remitir a la Dirección de Gestión Administrativa-Financiera y al Área de Contabilidad copia de la escritura y de los planos respectivos, una vez que hayan sido inscritos en el Registro de la Propiedad.

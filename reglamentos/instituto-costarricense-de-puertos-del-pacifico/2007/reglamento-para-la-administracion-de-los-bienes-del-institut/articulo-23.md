@@ -1,0 +1,1 @@
+Artículo 23.—Cuando el INCOP reciba de alguna persona física, institución pública o privada, extranjera o nacional, una donación de equipo, deberá comunicárselo al Área de Contabilidad para que éstos procedan a adherirle la placa correspondiente y a incluirlo en los registros de bienes propiedad de la Institución. A tal efecto, deberá enviar copia del Acta de Donación.
