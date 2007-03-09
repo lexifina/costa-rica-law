@@ -24,6 +24,7 @@ Tilapia cualquier tipo, sin sexo de 40,1 a 80,0 gramos | Especímen | 50,00
 Tilapia Roja hasta 10,0 gramos | Especímen | 40,00
 Tilapia Roja hasta 40,1 gramos | Especímen | 50,00
 Tilapia Roja de 40,2 a 80,0 gramos | Especímen | 83,00
+| |
 Concepto venta de bienes acuícolas | Unidad de medida * | Monto a cobrar
 Reproductores de Tilapia Roja hasta 150,0 gramos | Reproductor | 730,00
 Tilapia cualquier clase hasta 250,0 gramos | Kilo | 920,00
@@ -230,9 +231,10 @@ Pesca Turística Marina y Continental (Extranjeros) | Carné | $45,00
 Pesca Subacuática Turística Marina y Continental (nacional o extranjero) | Carné | 21.000,00
 Pesca Turística Marina y Continental (tripulante nac. o extranj.) | Carné | 4.500,00
 CARNÉ DE IDENTIFICACIÓN PARA OBSERVACIÓN DE CETÁCEOS (Por año / Por trámite) | * |
-Observación de cetáceos (Nacionales o Residentes) | Carné | 8.900,00
-Observación de cetáceos (Extranjeros) | Carné | 14.000,00
-Observación de cetáceos (Tripulantes) | Carné | 4.500,00
+Observación de cetáceos (nacional, residente o extranjero) (Así adicionado por acuerdo AJDIP/073 del 9 de marzo de 2007) | Tiquete por día | $ 5.00
+Observación de cetáceos (Nacionales o Residentes) (Así reformado por acuerdo JDIP/073 del 9 de marzo de 2007) | Carné anual | ¢ 8.900,00
+Observación de cetáceos (Extranjeros) (Así reformado por acuerdo AJDIP/073 del 9 de marzo de 2007) | Carné anual | $24.00
+Observación de cetáceos (Tripulantes) (Así reformado por acuerdo AJDIP/073 del 9 de marzo de 2007) | Carné anual | ¢ 4.500,00
 ASESORÍAS | * |
 Plantas Procesadoras | Asesoría | 166.000,00
 CURSOS | |
