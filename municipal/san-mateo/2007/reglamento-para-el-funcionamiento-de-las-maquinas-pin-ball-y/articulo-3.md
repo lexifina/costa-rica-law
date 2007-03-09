@@ -1,0 +1,1 @@
+Artículo 3º—Para obtener la licencia comercial que faculte la instalación de máquinas pin ball y rockolas en el cantón, se realizarán los trámites respectivos entre la municipalidad de San Mateo y el representante legal de la empresa gestionante con su respectiva cédula jurídica.

@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad de San Mateo hará cumplir con lo establecido en la Ley de Juegos, la Ley de Regulación de Horarios de Funcionamiento en Expendio de Bebidas Alcohólicas y su respectivo Reglamento, para lo cual mantendrá estricta vigilancia.

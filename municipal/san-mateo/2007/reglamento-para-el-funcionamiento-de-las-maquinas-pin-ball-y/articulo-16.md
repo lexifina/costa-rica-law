@@ -1,0 +1,1 @@
+Artículo 16.—El propietario del negocio donde se encuentre ubicada una máquina pin ball y/o rockolas que incumpla con el presente Reglamento podrá ser sancionado con el retiro de la máquina y con que se le clausure el local comercial. En caso de reincidencia se le hará una cancelación de la patente comercial.
