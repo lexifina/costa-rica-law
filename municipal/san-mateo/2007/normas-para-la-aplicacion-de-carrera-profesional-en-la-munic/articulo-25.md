@@ -1,0 +1,1 @@
+Artículo 25.—Las decisiones que adopte la Comisión Asesora serán aprobadas por mayoría simple y se harán constar en actas. En caso de empate, el Coordinador de Recursos Humanos decidirá por medio de doble voto.

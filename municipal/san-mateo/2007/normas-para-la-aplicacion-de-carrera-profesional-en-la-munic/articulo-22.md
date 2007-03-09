@@ -1,0 +1,1 @@
+Artículo 22.—La Oficina de Recursos Humanos será responsable de la emisión de las resoluciones pertinentes en materia del reconocimiento del beneficio aquí reglamentado, de existir un error en las resoluciones se aplicará la Ley General de la Administración Pública y se suspenderá el beneficio concedido de más.

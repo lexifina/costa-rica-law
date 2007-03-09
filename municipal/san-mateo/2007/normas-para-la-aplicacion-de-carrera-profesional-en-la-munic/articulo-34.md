@@ -1,0 +1,9 @@
+Artículo 34.—Los servidores que estuviesen disfrutando del incentivo por concepto de Carrera Profesional de acuerdo con alguna de las resoluciones anteriores y que provengan de otras instituciones del Estado, mantendrán el derecho a que se actualice el incentivo, siempre y cuando continúen ocupando un puesto de nivel profesional y aporten los documentos probatorios de tal situación. En estos casos la fecha de vigencia será a partir de la fecha que rige de su nombramiento en la Municipalidad de San Mateo, para garantizar la continuidad del beneficio.
+CAPÍTULO IX
+Disposiciones finales
+El valor de cada punto se establecerá mediante resolución de la Dirección General del Servicio Civil. Para dichos efectos, éste será revisado cada semestre por el Departamento de Salarios e Incentivos de dicha dependencia.
+Para su reconocimiento, será presentada a la instancia competente, la que evaluará y decidirá lo pertinente, ubicándolas en la modalidad de “Participación”, pero la duración computada por la comisión en ningún caso podrá ser mayor a un promedio de 7 horas por día hábil.
+En todo caso la Oficina de Recursos Humanos podrá efectuar las verificaciones que considere pertinente y podrá proponer las sanciones de rigor si se comprueba que la información consignada en los documentos no es verídica.
+Este incentivo se aplicará en el momento en que la municipalidad cuente con ingresos reales y cuando el Alcalde lo recomiende al Concejo para que lo apruebe, exceptuando a funcionarios de la Unidad Técnica que cuentan con contenido presupuestario por lo que rige a partir de su publicación y, no tiene carácter retroactivo.
+El valor del punto por concepto Carrera Profesional es de ¢1.132.00 para el primer semestre del año 2007.
+Aprobado en sesión extraordinaria Nº 17, artículo 2, acuerdo 1.
