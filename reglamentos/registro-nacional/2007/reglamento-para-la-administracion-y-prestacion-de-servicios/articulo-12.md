@@ -1,0 +1,1 @@
+Artículo 12.—De la boleta de entrada y salida de los vehículos de uso prioritario de Direcciones y Departamentos. Las boletas de entrada y salida, deberán ajustarse estrictamente a los requerimientos establecidos en la norma 314.01 del Manual sobre Normas Técnicas de Control Interno Relativas al Uso, Control y Mantenimiento de Vehículos.

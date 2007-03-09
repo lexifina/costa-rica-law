@@ -1,0 +1,2 @@
+Artículo 26.—Todo conductor del Registro Nacional involucrado en un accidente de tránsito con un vehículo oficial deberá responder civilmente según los términos del artículo anterior sin perjuicio de cualesquiera otra responsabilidad de tipo penal o disciplinaria. En dichos casos regirán las disposiciones del Reglamento Autónomo de Servicio del Ministerio de (*)Justicia y Paz y demás normativa aplicable.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)

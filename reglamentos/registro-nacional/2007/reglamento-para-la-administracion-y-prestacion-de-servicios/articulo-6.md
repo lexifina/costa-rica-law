@@ -1,0 +1,1 @@
+Artículo 6º—De la solicitud de asignación de un vehículo. El Director de Sedes Regional del Registro Nacional, deberá presentar ante la Dirección Administrativa, una solicitud de asignación de un vehículo de uso administrativo, indicando en ésta, cuales son las necesidades que la motivan, así como los demás requisitos que solicite la Dirección Administrativa para ese efecto.

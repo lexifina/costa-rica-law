@@ -1,0 +1,1 @@
+Artículo 23.—El Jefe del Departamento de Transportes, procederá a realizar un informe sobre lo acontecido en el accidente de tránsito, el cual será remitido a la Dirección Administrativa, para efecto de determinar las eventuales responsabilidades. Asimismo, deberá iniciar los trámites correspondientes para la reparación del vehículo.

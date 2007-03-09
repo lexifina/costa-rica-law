@@ -1,0 +1,1 @@
+Artículo 28.—Si en la resolución de la autoridad judicial de tránsito se declara responsable a un tercero, éste deberá indemnizar al Registro Nacional, para lo cual deberán iniciarse los respectivos trámites de cobro.

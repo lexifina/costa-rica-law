@@ -1,0 +1,1 @@
+Artículo 24.—En todo caso de accidente de tránsito corresponderá al Departamento de Asesoría Jurídica brindar el apoyo legal suficiente ante las instancias judiciales que correspondan en representación de los intereses del Registro Nacional y ante las cuales tenga la legitimación correspondiente.
