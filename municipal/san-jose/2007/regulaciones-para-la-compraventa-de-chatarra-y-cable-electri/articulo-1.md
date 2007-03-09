@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE SAN JOSÉ
+REGULACIONES PARA LAS COMPRAVENTAS
+DE CHATARRA Y CABLE ELÉCTRICO
+El Concejo Municipal del Cantón Central de San José, en vista de que uno de los principales problemas que afecta la ciudadanía en general y por ende al desarrollo de la ciudad de San José, lo constituye la sustracción de cable del tendido eléctrico y de telecomunicaciones y que parte del problema lo constituye la compra de estos materiales por comercios establecidos como centros de acopio bajo la figura de compra-ventas, de chatarra o “chatarreras”, muchos de ellos en la jurisdicción de San José, considera su regulación de forma inmediata. Por tanto:
+SE ACUERDA:
+1. Todo comercio que se dedique a la compraventa de chatarra y cable eléctrico y de telecomunicaciones, deberá ajustarse en todos sus extremos a las regulaciones existentes para compraventas, a saber deberán llevar un registro de las personas, que les venden los materiales donde conste la procedencia de la chatarra, descripción de lo que se compra, firma del vendedor, copia de la cédula de identidad del vendedor y emitir facturas de compra de materiales.
+2. Todo comercio que se dedique a la compraventa de chatarra deberá contar con patente comercial debidamente extendida por la Municipalidad de San José, para la actividad de compraventa de chatarra.
+3. No se permite en la jurisdicción del Cantón de San José, mantener contenedores, camiones ni cualquier sistema de almacenamiento que utilice vías y predios públicos.
+4. Se solicita al señor Alcalde proceda, en un plazo no mayor de un mes, con la clausura de todos los comercios que se dediquen a la compraventa de chatarra, que no cuente con patente comercial al día y no cumpla con las regulaciones existentes para los establecimientos dedicados a la compraventa de objetos. Igualmente se deberá levantar un censo sobre todos los negocios existentes que se dediquen a esta materia.
+5. Se solicita al señor Alcalde proceda a establecer coordinación con la Dirección General del Tránsito del Ministerio de Obras Públicas y Transportes y se proceda a retirar todo vehículo, o contenedor de cualquier tipo que se encuentre sobre vías públicas y se utilice para almacenar chatarra que hubiese sido comprada para su venta. Igualmente se solicita al señor Alcalde proceda a coordinar con las autoridades del Ministerio de Hacienda el control de ingresos de las compras y ventas hechas por estos comercios.
+6. Instar a todos los municipios del país para que adopten medidas similares para ayudar en la lucha contra el vandalismo que afecta al país en esta materia.
+Acuerdo firme. 21, artículo IV, de la sesión ordinaria 43, celebrada por la Corporación Municipal del Cantón Central de San José, el 20 de febrero del 2007.
+San José, 26 de febrero del 2007.
