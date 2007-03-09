@@ -14,3 +14,4 @@ Reglamento para el Control de Drogas, Estupefaciente y Psicotrópicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-07 | la propia norma |
+| 2 | 2007-03-09 | Decreto Ejecutivo 33670 (2007-03-09) |
