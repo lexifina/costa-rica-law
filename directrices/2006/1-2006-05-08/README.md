@@ -14,3 +14,4 @@ Sobre el Deber de Vigilar el Buen Funcionamiento de los Servicios y Dependencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2007-03-09 | Directriz 18 (2007-03-09) |

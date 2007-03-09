@@ -1,3 +1,4 @@
+NOTA SINALEVI: Mediante Directriz Presidencial N° 018-MP-MEIC, se prorroga por un año el plazo de vigencia de esta Directriz
 Nº 01
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA,
