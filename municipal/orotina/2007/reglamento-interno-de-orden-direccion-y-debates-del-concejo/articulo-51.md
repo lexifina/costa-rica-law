@@ -1,0 +1,1 @@
+Artículo 51.—En igual sentido se faculta a la Presidencia para que de previo analice la documentación enviada al Concejo y proceda remitirlas, sea a la(s) Comisión(es) de Trabajo correspondiente(s), según la atinencia y/ o seguimiento que se le deba dar al tema o al Alcalde Municipal, cuando se trate de asuntos de orden administrativo, para su correspondiente trámite.

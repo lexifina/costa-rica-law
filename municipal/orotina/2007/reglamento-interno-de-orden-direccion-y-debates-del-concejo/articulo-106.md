@@ -1,0 +1,1 @@
+Artículo 106.—El recinto de sesiones del Concejo será para uso exclusivo de éste, salvo que por acuerdo expreso del mismo o disposición del Alcalde y a solicitud de los interesados se destinará ocasionalmente a otros fines siempre que los mismos no riñan contra la moral y las buenas costumbres, y procuren favorecer la participación democrática de la ciudadanía.

@@ -1,0 +1,1 @@
+Artículo 87.—Las dos Comisiones citadas en el artículo anterior, así como las establecidas en el artículo 85 del presente Reglamento, se tendrán como de conformación obligatoria en cada una las legislaturas siguientes a la fecha de vigencia de este Reglamento.

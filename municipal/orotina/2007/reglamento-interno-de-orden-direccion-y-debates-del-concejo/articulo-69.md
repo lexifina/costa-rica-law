@@ -1,0 +1,3 @@
+SECCIÓN XI
+De las intervenciones
+Artículo 69.—Todos los miembros del Concejo, tiene derecho al uso de la palabra, debiendo concretarse al tema que es objeto de discusión, si se desviara del mismo, repite conceptos y su participación no aporta nada nuevo al debate, de inmediato la Presidencia le suspenderá su derecho de continuar con el uso de la palabra. Por otro lado cabe el mecanismo indicado el artículo 34, para la interposición de mociones de orden.

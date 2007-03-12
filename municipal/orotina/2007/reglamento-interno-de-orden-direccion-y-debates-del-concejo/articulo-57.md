@@ -1,0 +1,1 @@
+Artículo 57.—Dichas iniciativas deberán ser interpuestas por un regidor que actúe como propietario en la sesión correspondiente o por el Alcalde; cuando la misma provenga de un regidor que funja como suplente o por un síndico, deberá ser acogida por una de las personas expresadas al inicio de este artículo.

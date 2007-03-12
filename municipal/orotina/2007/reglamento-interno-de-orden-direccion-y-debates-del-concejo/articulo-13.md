@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones del Concejo serán públicas y se efectuarán en el local sede de la Municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad. Toda sesión del Concejo deberá ser grabada por los medios de audio que se consideren pertinentes.

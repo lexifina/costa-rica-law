@@ -1,0 +1,1 @@
+Artículo 79.—El control de tiempos autorizados en el presente Reglamento será competencia de la Secretaría, de conformidad con el inciso f), artículo 11 de esta normativa. Al darse el vencimiento de los tiempos establecidos, la Secretaría se lo hará saber a la Presidencia, quien le indicará al exponente que el tiempo ha llegado a su fin.

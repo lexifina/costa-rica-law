@@ -1,0 +1,1 @@
+Artículo 107.—El pago de dietas y viáticos a los regidores y síndicos se hará de conformidad con lo dispuesto en el Código Municipal y demás directrices que al efecto emita la Contraloría General de la República.

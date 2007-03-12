@@ -1,0 +1,1 @@
+Artículo 26.—Si en el transcurso de una sesión se rompiera el quórum, la Presidencia instará a los regidores que se hubieren retirado sin permiso, para que se ocupen de nuevo a sus curules. Transcurridos cinco minutos sin que se pueda establecer el quórum, se levantará la sesión.

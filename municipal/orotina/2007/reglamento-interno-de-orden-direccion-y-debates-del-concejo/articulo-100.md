@@ -1,0 +1,1 @@
+Artículo 100.—A la hora de analizar las recomendaciones de las Comisiones en las cuales consten dictámenes de mayoría y de minoría sobre un mismo asunto, el Concejo votará primero el de mayoría y en segundo lugar si hubiese necesidad el de minoría. El dictamen de mayoría, aunque su votación sea unánime, no obliga al Concejo a votar el asunto como es recomendado.

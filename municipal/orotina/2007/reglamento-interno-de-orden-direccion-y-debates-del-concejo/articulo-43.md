@@ -1,0 +1,1 @@
+Artículo 43.—En este mismo apartado también cabe que los señores regidores interpongan recursos de revisión a los acuerdos adoptados por el Concejo, en los casos que se permita y de conformidad con lo indicado en el artículo 153 del Código Municipal.
