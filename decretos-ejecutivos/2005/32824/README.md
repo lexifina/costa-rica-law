@@ -14,3 +14,4 @@ Créase la "Coalición Nacional contra el Tráfico Ilícito de Migrantes y la tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-16 | la propia norma |
+| 2 | 2007-03-12 | Decreto Ejecutivo 34199 (2007-03-12) |

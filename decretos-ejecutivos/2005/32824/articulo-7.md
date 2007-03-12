@@ -1,0 +1,2 @@
+Artículo 7º—De la designación de la Secretaría Técnica. La Secretaría Técnica estará a cargo del Ministerio de Gobernación. Para el desarrollo de estas funciones, el Ministerio de Gobernación aportará el recurso humano, técnico y operativo necesario para el funcionamiento adecuado de esta Secretaría Técnica.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34199 del 12 de marzo de 2007)

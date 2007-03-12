@@ -1,0 +1,2 @@
+Artículo 9º—Lineamientos y protocolos. Para el cumplimiento de las funciones encomendadas, la Coalición podrá elaborar lineamientos y protocolos de coordinación interinstitucional que regulen y faciliten el accionar conjunto de todas las instancias integrantes de la coalición y como tal se constituirán en herramientas a ser aplicadas por sus miembros.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34199 del 12 de marzo de 2007)
