@@ -1,4 +1,5 @@
 N° 2
+(NOTA DE SINALEVI: Mediante Directriz N° 019 del 12 de marzo de 2007, se amplía esta Directriz en el sentido de que todas las instituciones del sector público en su calidad de patronos, deben realizar ajustes en sus sistemas internos de planilla, para que en las coletillas de pago y constancias salariales, se incluya el detalle de lo devengado en forma mensual por concepto se Salario Escolar. Dicha Directriz se puede consultar en el sistema)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las potestades conferidas por los artículos 140, incisos 3), 18) y 20), y 146 de la Constitución Política, en concordancia con los artículos 25.1, 27.1, 98 y 99 de la Ley General de la Administración Pública; 2, 5 y 6 de la Ley Orgánica, y 3 y 4 del Reglamento de Reorganización y Racionalización, ambos del Ministerio de Trabajo y Seguridad.

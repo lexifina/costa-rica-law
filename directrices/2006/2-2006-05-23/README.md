@@ -14,3 +14,4 @@ Especificar en las planillas mensuales y quincenales de pago de salarios de los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-08 | la propia norma |
+| 2 | 2007-03-12 | Directriz 19 (2007-03-12) |
