@@ -1,0 +1,1 @@
+Artículo 5º—Derogación. Deróguese el Decreto Ejecutivo Nº 33401-MP-MINAE-H-MIDEPLAN, publicado en el Diario Oficial La Gaceta, Nº 204 del 25 de octubre del 2006, en virtud de que este Decreto Ejecutivo corrige omisiones y errores del decreto original.
