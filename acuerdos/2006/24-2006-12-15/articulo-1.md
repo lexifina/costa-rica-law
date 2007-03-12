@@ -123,6 +123,8 @@ Lineamientos generales:
 • Los administradores de bases de datos destacados en los diversos circuitos judiciales.
 • Puestos de la Sección Salarial del Departamento de Personal.
 • Operadores de Equipo de Cómputo del Departamento de Informática y Auxiliares de Servicios Informáticos de todo el país, no obstante, se puede sustituir hasta por un día si solo existe una plaza.
+Se puede realizar sustituciones hasta por un día hábil a los Jefes de Oficina (Departamento, Sección y de Despachos Judiciales). En el caso de existir un Subjefe, éste asumirá la Jefatura, a cuyos efectos se le pagará el rubro correspondiente al ascenso, pero no se le sustituirá en el cargo.
+(Así adicionado el párrafo anterior por aviso 006-07 del 12 de marzo de 2007. Posteriormente mediante el aviso N° 016-07 de 22 de junio de 2007, publicado en el Boletín Judicial N° 131 del 9 de julio del 2007, se dispuso aclarar el aviso N° 006-07 en el sentido “…que las juezas y los jueces coordinadores, podrán ser sustituidos hasta por un día hábil, por lo que el suplente asumirá la coordinación, con la salvedad que éste último no podrá ser sustituido. La comunicación de dicha designación deberá ser remitida a la brevedad al Departamento de Personal para los fines consiguientes”).
 9.6. Excepcionalmente se podrán realizar sustituciones por períodos mayores a 3 días hábiles a los servidores considerados en la siguiente lista de puestos:
 • Conserjes; siempre y cuando la oficina cuente con tres o menos plazas de este tipo. (2)
 (2) La Administración o Jefatura del Despacho deberá comunicar previamente al Departamento de Personal, el número de puesto del servidor que realiza esta función.

@@ -14,3 +14,4 @@ Plan de vacaciones 2006-2007 y Plan de atención de las Oficinas del Poder Judic
 | --- | --- | --- |
 | 1 | 2007-01-08 | la propia norma |
 | 2 | 2007-02-07 | Circular 15 (2007-02-07) |
+| 3 | 2007-03-12 | Acuerdo 6 (2007-03-12) |
