@@ -36,3 +36,4 @@ INCISO B)
 El Consejo Superior del Poder Judicial con la aprobación del Ministro de Hacienda, podrá variar los requerimientos de recursos humanos del titulo presupuestario 301 contenido en la Ley, con el fin de efectuar las modificaciones provenientes de las reasignaciones, reclasificaciones, asignaciones, revaloraciones parciales y los estudios integrales de puestos dictados por los órganos competentes, en el entendido de que éstas no alterarán el total de los puestos consignados en la Ley de Presupuesto, ni el monto total asignado al programa afectado.
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a La Gaceta N° 250 del 29 de diciembre de 2006.
 (Modificado por el artículo 1° del decreto ejecutivo N° 33574 del 2 de febrero de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33666 del 12 de marzo de 2007)
