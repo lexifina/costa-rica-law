@@ -1,0 +1,1 @@
+Artículo 6º—La función de ente coordinador del Portal Oficial estará a cargo del Ministerio de Economía, Industria y Comercio, mediante la Dirección de Mejora Regulatoria y Reglamentación Técnica; asimismo, el ente administrador de dicho sitio será el Colegio Federado de Ingenieros y Arquitectos de Costa Rica.

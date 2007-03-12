@@ -1,0 +1,1 @@
+Artículo 2º—Quedan oficializados y se dan por publicados todos los documentos, formularios y mapas de las instituciones participantes en este portal oficial, siendo los únicos válidos a ser utilizados en los trámites correspondientes.

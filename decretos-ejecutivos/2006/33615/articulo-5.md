@@ -1,0 +1,1 @@
+Artículo 5º—Cada institución que forma parte del Portal Oficial en Trámites en Construcción, deberá de mantener actualizada su información, para lo cual deberá coordinar con el citado Comité Colegiado.
