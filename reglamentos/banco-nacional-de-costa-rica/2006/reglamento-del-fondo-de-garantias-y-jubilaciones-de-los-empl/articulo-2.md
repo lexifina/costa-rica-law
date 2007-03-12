@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo del Reglamento. Este Reglamento tiene como objetivo, definir las condiciones generales sobre la base de las cuales se administra el Fondo de Garantías y Jubilaciones de los Empleados del Banco Nacional de Costa Rica.

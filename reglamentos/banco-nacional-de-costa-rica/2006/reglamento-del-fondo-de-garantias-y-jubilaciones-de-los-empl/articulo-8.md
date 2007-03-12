@@ -1,0 +1,4 @@
+Artículo 8º—Inversiones. El Comité de Inversiones propondrá para discusión y aprobación del Órgano de Dirección, la política de inversiones para cada uno de los fondos administrados.
+Dicha política deberá ser revisada al menos anualmente por parte del Órgano de Dirección.
+El Comité de Inversiones es un órgano colegiado, integrado como mínimo, por tres personas con amplia experiencia en materia económica, financiera y bursátil. Al menos una de ellas deberá ser el gerente del Fondo, y la otra externa. La designación de este comité le compete al Órgano de Dirección. El Gerente del Fondo, desempeñará la secretaría técnica del Comité de Inversiones.
+Los recursos del Fondo deberán invertirse de conformidad con lo que establece la Ley de Protección al Trabajador y el Reglamento de Inversiones para Entidades Reguladas.

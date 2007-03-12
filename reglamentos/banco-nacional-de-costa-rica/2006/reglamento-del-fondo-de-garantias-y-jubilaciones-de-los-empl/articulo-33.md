@@ -1,0 +1,1 @@
+Artículo 33.—Quórum. Cuatro miembros del Órgano de Dirección constituirán quórum para sesionar válidamente. Los acuerdos se tomarán por mayoría absoluta de los miembros asistentes. En caso de empate, se someterá el asunto a una segunda votación, y de persistir el señor Presidente podrá emitir el voto de calidad en la sesión siguiente.

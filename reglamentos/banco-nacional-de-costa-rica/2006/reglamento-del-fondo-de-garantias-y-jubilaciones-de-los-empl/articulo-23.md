@@ -1,0 +1,1 @@
+Artículo 23.—Forma de pago de la jubilación y pensión. Las jubilaciones o pensiones otorgadas, se pagarán en cuotas quincenales naturales vencidas. Además se pagará en el mes de diciembre de cada año, una remuneración adicional por concepto de aguinaldo.

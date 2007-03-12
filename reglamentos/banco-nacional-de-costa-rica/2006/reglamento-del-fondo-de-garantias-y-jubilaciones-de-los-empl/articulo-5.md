@@ -1,0 +1,1 @@
+Artículo 5º—Representación. La representación legal del Fondo le compete al Banco Nacional de Costa Rica. El Fondo operará con la autonomía en la gestión y administración que este Reglamento establece.
