@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de patentes temporales de licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-18 | la propia norma |
+| 2 | 2007-03-12 | Reglamento municipal 0 (2007-03-12) |

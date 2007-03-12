@@ -1,1 +1,1 @@
-Artículo 14.—El Concejo Municipal de Distrito no autorizará la explotación de patente temporal de licores los días lunes en fiestas cívicas o patronales.
+Artículo 14.—(Este artículo fue Anulado y publicado en La Gaceta N° 57 del 21 de marzo de 2007)
