@@ -13,3 +13,4 @@ Deber de los funcionarios y servidores judiciales del país identificarse cuando
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-14 | la propia norma |
+| 2 | 2007-03-13 | Circular 27 (2007-03-13) |
