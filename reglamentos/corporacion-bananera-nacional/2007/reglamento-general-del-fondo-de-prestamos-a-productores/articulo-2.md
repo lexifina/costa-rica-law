@@ -1,0 +1,1 @@
+Artículo 2º—Políticas de crédito. Corresponde a la Junta Directiva dictar las políticas generales de la Institución en materia de crédito, las cuales son de obligado acatamiento para todos los funcionarios de la organización y se encuentran dirigidas a apoyar y a contribuir al desarrollo del sector bananero.

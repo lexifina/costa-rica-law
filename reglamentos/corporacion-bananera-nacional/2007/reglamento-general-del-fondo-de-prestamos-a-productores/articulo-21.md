@@ -1,0 +1,3 @@
+Artículo 21.—Aval por parte de Corbana S. A. El otorgamiento de un aval llevará un proceso similar al otorgamiento de un crédito, siendo revisado por el Comité de Crédito y sometido a resolución por parte de la Junta Directiva de Corbana S. A.
+El monto máximo a garantizar en cada caso, estará delimitado por criterios de razonabilidad, necesidad y capacidad de endeudamiento del solicitante.
+El costo del aval se fija en un 1.00% anual sobre el monto del mismo, cancelándose la primera anualidad en el momento de la formalización. Los avales con plazos inferiores a un año tendrán un costo mínimo de 0,50%.

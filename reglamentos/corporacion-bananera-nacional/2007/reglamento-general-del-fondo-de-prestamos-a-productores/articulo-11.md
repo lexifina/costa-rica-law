@@ -1,0 +1,1 @@
+Artículo 11.—Topes de crédito. El monto de crédito que a cada productor se le puede otorgar será determinado con base en sus necesidades de recursos, considerando su nivel de endeudamiento, capacidad de pago, concentración de cartera y las garantías ofrecidas.

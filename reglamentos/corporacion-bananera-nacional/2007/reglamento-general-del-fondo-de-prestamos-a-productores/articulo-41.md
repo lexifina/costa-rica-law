@@ -1,0 +1,5 @@
+Artículo 41.—Del refinanciamiento.
+a) El refinanciamiento de operaciones se otorgará por un máximo de tres veces, salvo excepciones calificadas y aprobadas por la Junta Directiva de Corbana S. A.
+b) El plazo, forma de pago y períodos de gracia de los préstamos de refinanciamiento será determinado en cada caso de acuerdo con la capacidad de pago del deudor y a las garantías ofrecidas, hasta un máximo de 15 años.
+c) En el caso de las operaciones refundidas o consolidación de intereses y saldo del principal que estén garantizadas con bienes que pertenezcan a terceros, podrá realizarse la refundición si los propietarios de estos bienes están dispuestos a ofrecerlos nuevamente, para lo cual debe mediar la autoridad legal del caso que garantice el nuevo otorgamiento.
+d) No se podrán liberar garantías de las operaciones a refundir, salvo que se sustituyan por otras que igualen o mejoren la posición de Corbana S. A., en caso de que las garantías vigentes no cubran el monto a refinanciar deberá solicitarse garantía adicional.

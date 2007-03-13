@@ -1,0 +1,1 @@
+Artículo 48.—Información a Junta Directiva. La Jefatura de Crédito será responsable de presentar a la Junta Directiva un reporte cuatrimestral de la situación de la cartera crediticia o cuando ésta lo solicite a su discreción.

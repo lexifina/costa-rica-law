@@ -1,0 +1,14 @@
+Artículo 32.—Garantía hipotecaria
+a) Toda solicitud de crédito en que se ofrezcan como garantía bienes inmuebles, requerirá la presentación de un plano catastrado de éstos (original o copia certificada).
+b) Cuando se trata de propiedades inscritas a nombre de uno o varios menores de edad, no se podrán tomar en garantía, si no existe un permiso extendido por autoridad judicial competente.
+c) No se tomarán en garantía fincas afectadas por la Ley de Reserva Forestal. Cuando se presenten dudas sobre si una finca ofrecida en garantía a Corbana S. A., podría estar afectada por dicha Ley, el perito deberá solicitar una certificación emitida por el Departamento de Reservas Forestales y Zonas Protectoras de la Dirección General Forestal, que indique si la finca está incluida o no dentro de dicho régimen.
+d) En los casos en que se acepte un inmueble forestal (no afectado por la Ley de Reserva Forestal) como garantía deberá entregarse no sólo garantía hipotecaria sobre el terreno, sino una garantía prendaria adicional sobre la cosecha y/o madera con el fin de salvaguardar en mejor forma los intereses de Corbana S. A.
+e) No se tomarán bienes inmuebles en garantía hipotecaria cuando existan grados mayores a favor de los mismos propietarios, a no ser que éstos se subordinen a favor de Corbana S. A., quedando explícitamente definido en la escritura de constitución de hipoteca.
+f) Para el caso de garantía a través de cédula hipotecaria deben cumplirse los siguientes lineamientos:
+1. Toda cédula hipotecaria tomada en garantía deber estar constituida o endosada, en forma pura y simple, a favor de Corbana S. A.
+2. Podrá tomarse cualquier grado en el tanto Corbana S. A. tenga en garantía los grados anteriores.
+3. En el caso de emitirse cédulas en serie, Corbana S. A. debe tomar la serie en forma completa.
+4. Si la cédula hipotecaria devenga intereses, se pueden agregar al título tantos cupones como períodos de intereses contenga el plazo. La cédula misma debe expresar el número de cupones con el que fue emitida y su respectivo vencimiento.
+5. Deberán tomarse con fecha de pago vencida, o cuyo vencimiento se produzca en el período en que se trámite la formalización del crédito.
+6. Las cédulas hipotecarias, sea que garanticen una o varias operaciones, estarán limitadas en cuanto a su responsabilidad por el 80% del valor facial, considerando además lo correspondiente a intereses.
+7. Para aquellos casos en que el valor venal de la finca sea superior al valor facial de las cédulas garantes (aplicado los porcentajes de reserva), y el monto solicitado por el productor sea mayor que el valor facial de las cédulas; deberá formalizarse una hipoteca común, una emisión de cédulas adicionales, respetándose el punto 2, o entregarse garantías adicionales que cubran el monto solicitado.

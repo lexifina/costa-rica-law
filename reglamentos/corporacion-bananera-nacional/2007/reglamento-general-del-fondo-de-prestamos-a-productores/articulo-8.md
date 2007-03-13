@@ -1,0 +1,1 @@
+Artículo 8º—Presentación de la solicitud. Las solicitudes de crédito deberán presentarse por escrito con la documentación completa que se establece en el artículo 9 de este Reglamento. Corbana, S. A. no aceptará para su trámite solicitudes con requisitos incompletos.

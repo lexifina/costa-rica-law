@@ -1,0 +1,16 @@
+Artículo 31.—Garantía prendaria.
+a) Cuando el objeto de la garantía real lo constituya un vehículo automotor o cualquier otro mueble susceptible de aseguramiento, el mismo deberá ser asegurado como mínimo con las coberturas: (robo, vuelco, colisión, hurto, incendio), debiendo establecerse en la póliza respectiva la condición de acreedor prendario de Corbana S. A.
+b) Todos los bienes objeto de financiamiento, deberán ser tomados en garantía. Podrá prescindirse de la prenda, siempre y cuando, se ofrezca una mejor garantía a criterio de Corbana S. A.
+c) Maquinaria pesada que antes o durante la vigencia del préstamo cumplan 10 o más años de antigüedad, podrán ser tomados en garantía dependiendo de los resultados de un peritaje que indique su valor y el porcentaje de vida útil.
+d) No se recibirán en garantía:
+1. Vehículos cuyo motor no cuente con el respectivo número de identificación, excepto los vehículos que de fábrica no consignen el número de motor y que así lo indique la tarjeta de circulación.
+2. Derechos de frecuencia de radio, dado que no pueden ser embargados ni rematados.
+3. Los vehículos de uso particular que antes o durante la vigencia del préstamo cumplan 10 o más años de antigüedad.
+4. Bienes no susceptibles de embargo o persecución judicial, de conformidad con el artículo Nº 532 del Código de Comercio.
+5. Inventarios, salvo los de cartón, fertilizantes, agroquímicos, complementados con una póliza de seguro a favor de Corbana S.A.
+e) Cuando se trate de garantía prendaria sobre la cosecha, el privilegio prendario durará sólo un año.
+f) Cuando se reciban en garantía aeronaves, éstas deberán contar con licencia de vuelo vigente, matrícula registrada ante el Registro de Aeronaves de Costa Rica e inscrita en el Registro Aeronáutico.
+g) Se podrá recibir en garantía, certificados de depósito a plazo, certificados de inversión o bonos fiscales. Cuando se reciban títulos valores en garantía que contengan cupones de intereses, éstos podrán ser tomados como parte de la garantía. Este tipo de garantía deberá permanecer en custodia de Corbana S. A. y ser renovados si fuera necesario, responsabilidad que compete a Corbana S. A. o a un banco designado, hasta la cancelación total del crédito, debidamente endosados a su favor.
+Además del endoso y entrega del título valor recibido en garantía, el interesado deberá otorgar un documento fiel en el cual acepta e identifica los títulos como garantía de cualquier obligación con Corbana S. A. y acepta que ésta efectúe las renovaciones parciales o totales; mismas que sólo podrán ser elaboradas al portador y según las instrucciones emitidas por la Sección de Crédito.
+Los títulos valores de instituciones de primer orden se aceptarán al valor de mercado, siguiendo la fórmula del valor presente. Los demás, serán objeto de valoración y aceptación discrecional por parte de la Sección de Crédito, salvo que se trate de títulos de la más absoluta y garantizada solidez y aceptación en el mercado financiero en cuyo caso podrá aplicarse la misma disposición.
+En el caso de recibir acciones de capital como garantía, el respectivo endoso deberá ser ejecutado a través de la Sección Legal, quedando las anotaciones respectivas en el libro de registro de accionistas.

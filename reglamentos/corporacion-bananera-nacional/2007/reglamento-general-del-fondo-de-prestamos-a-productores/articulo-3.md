@@ -1,0 +1,1 @@
+Artículo 3º—Actividad crediticia. El ejercicio responsable de la actividad crediticia de Corbana S. A. corresponde al Comité de Crédito creado para este fin, en los términos, condiciones, límites y limitaciones establecidas por los Estatutos de Corbana S. A. y el presente Reglamento.

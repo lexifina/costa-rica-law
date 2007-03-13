@@ -1,0 +1,5 @@
+CAPÍTULO V
+De las garantías
+Artículo 27.—De orden general. Los niveles de aprobación autorizados son los responsables de determinar y exigir el otorgamiento de las garantías reales y fiduciarias necesarias y convenientes para asegurar la recuperación del crédito otorgado por parte de Corbana S. A.
+El respaldo que brinden las garantías a las obligaciones crediticias no debe verse como sustituto de repago, por cuanto los préstamos deben ser cancelados por la empresa con los fondos generados durante su ciclo de operación (flujo de caja).
+Corresponde a la Administración de Corbana S. A., especialmente a la Jefatura de Crédito y a los oficiales de crédito designados a cada caso particular, la verificación de las bondades de los fiadores solidarios, así como del estado, valor, solvencia, existencia material y jurídica y suficiencia de los bienes muebles e inmuebles que reciba Corbana S. A. en garantía del cumplimiento y pago de las operaciones de crédito, conforme al presente reglamento, así como su oportuna formalización, pronta inscripción registral y su debida custodia.

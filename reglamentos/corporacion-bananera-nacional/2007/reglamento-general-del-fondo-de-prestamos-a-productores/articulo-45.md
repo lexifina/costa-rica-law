@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Otras disposiciones
+Artículo 45.—Sobre el expediente de crédito. En todo crédito aprobado se abrirá un expediente, que se iniciará con la presentación de la solicitud y contendrá toda la documentación que se genere, hasta la cancelación del crédito, debiendo estar custodiado por la Sección de Crédito durante toda la vigencia del mismo.
+Constituye responsabilidad de la Jefatura de Crédito y de cada uno de los analistas asignados en lo particular, la formación y custodia de los expedientes de crédito, que éstos contengan la totalidad de los requisitos exigidos para su aprobación y que se encuentre en él la documentación que respalda cada movimiento aplicado en el crédito, particularmente copias de los desembolsos autorizados; así como de mantenerlo actualizado con toda comunicación emitida por las partes. Ningún expediente podrá ser trasladado fuera de Corbana S. A. sin la autorización de la Jefatura de Crédito.
