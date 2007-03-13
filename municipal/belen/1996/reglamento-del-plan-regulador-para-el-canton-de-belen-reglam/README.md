@@ -14,3 +14,4 @@ Reglamento del Plan Regulador para el cantón de Belén (Reglamento de Zonificac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-28 | la propia norma |
+| 2 | 2007-03-13 | Reglamento municipal 16 (2007-03-13) |
