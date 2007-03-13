@@ -1,0 +1,7 @@
+4.—De los beneficiarios (as). Se considerarán beneficiarios (as) del Programa PSA, todas aquellas personas físicas o jurídicas, propietarios (as), arrendatarios, usufructuarios de inmuebles inscritos en el Registro Nacional que deseen gozar del Pago de los Servicios Ambientales en las diversas modalidades. Para proyectos de protección de bosque también se considerará a los poseedores (as) que cumplan con lo establecido en el Decreto Ejecutivo Nº 31633-MINAE.
+Los (las) solicitantes interesados podrán presentar presolicitudes de la siguiente manera:
+4.1. En forma individual: Para la protección de bosques, recuperación de cobertura mediante regeneración natural, reforestación y establecimiento de árboles forestales en SAF.
+4.2. Proyectos conjuntos elaborados por organizaciones para la protección de bosques, reforestación, recuperación de cobertura mediante regeneración natural y el establecimiento de árboles forestales en SAF.
+4.3. En proyectos conjuntos el beneficiario(a) estará de acuerdo en que los recursos PSA y SAF sean depositados en la cuenta bancaria de la organización, lo cual se estipula en el contrato respectivo.
+4.4. Todos los beneficiarios (as) individuales de PSA, deberán indicarle al FONAFIFO su número de cuenta bancaria en el Banco Nacional de Costa Rica, para recibir los pagos del Programa de PSA.
+4.5. Las Comunidades Indígenas que suscriban contratos de PSA deberán indicarle al FONAFIFO su número de cuenta bancaria en el Banco Nacional de Costa Rica, para recibir los pagos del Programa de PSA.
