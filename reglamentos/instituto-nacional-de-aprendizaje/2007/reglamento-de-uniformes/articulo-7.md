@@ -1,0 +1,1 @@
+Artículo 7º—Es responsabilidad de la jefatura de la Unidad o Núcleos que tenga relación con este Reglamento entregar uniformes únicamente al personal autorizado, en los plazos establecidos por este reglamento.

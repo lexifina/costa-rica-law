@@ -1,0 +1,1 @@
+Artículo 8º—Es responsabilidad de las Jefatura de las Unidades o Núcleos que tengan personal que debe usar uniforme o quien ésta delegue, llevar un control estricto y documentado sobre la entrega de los uniformes.

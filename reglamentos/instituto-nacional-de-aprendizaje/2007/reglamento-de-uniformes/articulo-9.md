@@ -1,0 +1,1 @@
+Artículo 9º—Cada Unidad o Núcleo que tenga personal que debe usar uniforme, según las presentes disposiciones, deberá tomar las previsiones del caso en su presupuesto y tramitar oportunamente ante la instancia correspondiente su adquisición o confección.

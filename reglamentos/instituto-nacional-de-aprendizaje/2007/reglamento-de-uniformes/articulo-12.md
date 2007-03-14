@@ -1,0 +1,1 @@
+Artículo 12.—El Jefe de la Unidad o Núcleo donde se encuentren ubicados los funcionarios autorizados para el uso del uniforme son los responsables de velar porque se cumplan las disposiciones contenidas en este Reglamento.

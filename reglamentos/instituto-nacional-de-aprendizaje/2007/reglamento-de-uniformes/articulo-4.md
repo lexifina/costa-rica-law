@@ -1,0 +1,1 @@
+Artículo 4º—Las Unidades o Núcleos que requieran comprar uniformes cumplirán con las especificaciones técnicas del “Sistema de Información de Recursos Materiales” (SIREMA), para su correcta digitación y cumplir con los trámites respectivos en la adquisición y confección de uniformes.
