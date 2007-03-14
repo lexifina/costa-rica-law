@@ -1,0 +1,1 @@
+Artículo 5º—Los inquilinos en caso de entrar en desacuerdo con la Administración en cualquier situación, elevarán el caso en discusión con el informe respectivo al Concejo Municipal para que ese resuelva en segunda instancia.
