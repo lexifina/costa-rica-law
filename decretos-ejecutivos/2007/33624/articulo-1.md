@@ -1,0 +1,12 @@
+Nº 33624
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren el artículo 140, incisos 3) 18 de la Constitución Política, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 6227 del 2 de mayo de 1978, Ley General de Administración Pública,
+Considerando:
+1º—Que por Ley Nº 4096, del 6 de mayo de 1968, se declaró el día 15 de mayo de cada año, Día del Agricultor Costarricense, y establece como mandato llevar a cabo toda clase de actividades que ayuden a crear conciencia cívica sobre la significación de la labor que realiza el campesino costarricense.
+2º—Que como parte de las actividades previas dirigidas la celebración del día del Agricultor Costarricense, durante los días 12 al 15 de mayo del año 2007, se realizará en nuestro país la actividad denominada EXPOPIMA 2007, que es una feria agroindustrial cuyos objetivos son entre otros el incremento del comercio de productos agropecuarios e hidrobiológicos especialmente de pequeños y medianos productores, mediante la realización de una rueda de negocios y un ciclo de conferencias.
+3º—Que EXPOPIMA 2007 se considera de enorme importancia para los intereses del sector productivo de nuestro país, y en ella participarán representantes de organizaciones de productores nacionales y extranjeros así como de empresas nacionales y extranjeras de productos agropecuarios e hidrobiológicos.
+4º—Que el objetivo de EXPOPIMA 2007 es procurar beneficios al sector productivo de nuestro país desde el punto de vista de la información y el incremento del comercio, así como el enriquecimiento del acerbo científico y de los conocimientos que a través de un ciclo de conferencias brindadas por un grupo de especialistas en la materia del mercadeo agropecuario y empresarios exitosos puedan ser transferidos a los productores nacionales.
+5º—Que EXPOPIMA 2007 está siendo organizada por el Programa Integral de Mercadeo Agropecuario (PIMA), que conforme a lo establecido en la Ley Nº 6142, del 25 de noviembre de 1977, tiene como objetivo introducir mejoras al sistema de mercadeo de productos agropecuarios. Por tanto,
+DECRETAN:
+Artículo 1º—Se declara de interés público nacional la celebración de “EXPOPIMA 2007”, la cual se realizará en nuestro país en las instalaciones del Centro Nacional de Abastecimiento y Distribución de Alimentos, ubicado en Barreal de Heredia, entre los días 12 al 15 de mayo del 2007.

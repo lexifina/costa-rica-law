@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del sector público y privado podrán colaborar para la realización de esta actividad en la medida de sus posibilidades, dentro de las competencias y el marco legal que rija su accionar.
