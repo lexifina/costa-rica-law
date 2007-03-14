@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE ALAJUELA
+REGLAMENTO DE GASTOS FIJOS Y ADQUISICIÓN DE BIENES
+Y SERVICIOS DE COMPETENCIA DEL ALCALDE
+MUNICIPAL DE ALAJUELA
+En sesión ordinaria Nº 08-07 celebrada por el Concejo Municipal de la Municipalidad de Alajuela el martes 20 de febrero del 2007, en el Capítulo VII, artículo quinto, se acordó modificar el texto de los artículos 3º y 5º del Reglamento de Gastos Fijos y Adquisiciones de Bienes y Servicios de Competencia del Alcalde Municipal de Alajuela publicado en La Gaceta Nº 10 del viernes 15 de enero de 1999, para que en adelante se lea:
+Artículo 3º—Se autoriza al(la) Alcalde(sa) para que adquiera compromisos económicos para la compra de bienes y servicios, hasta por un monto equivalente a veinticinco por ciento del establecido por la Contraloría General de la República para la licitación abreviada, con excepción de aquellos para los que deba promoverse una licitación pública por así disponerlo expresamente la Ley de Contratación Administrativa o su Reglamento.
+Artículo 5º—Cuando el bien o servicio deba contratarse mediante el procedimiento de licitación pública o supere el veinticinco por ciento del monto establecido para la licitación abreviada, se requerirá autorización del Concejo Municipal, para lo cual, la Administración remitirá su solicitud debidamente fundada e indicando en ella expresamente, todos los elementos que debe contener el acto inicial del procedimiento, según lo dispuesto por el artículo 8º del Reglamento a la Ley de Contratación Administrativa, incluida la existencia de partida presupuestaria para cubrir la eventual derogación.
+Rige a partir de su publicación.
