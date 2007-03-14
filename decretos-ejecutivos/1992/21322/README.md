@@ -17,3 +17,4 @@ Reglamento para la Importación de Medicamentos y para la Exoneración de Materi
 | 2 | 1992-10-30 | Decreto Ejecutivo 21719 (1992-10-30) |
 | 3 | 1993-08-31 | Decreto Ejecutivo 22491 (1993-08-31) |
 | 4 | 2006-11-21 | Resolución 8674 (2006-11-21) |
+| 5 | 2007-03-14 | Resolución 1619 (2007-03-14) |

@@ -729,4 +729,6 @@ b) Equipos y accesorios para la producción de sueros
 c) Equipo y filtración y accesorios para sueros").
 (NOTA: Mediante el artículo 1° de la resolución N° 8674 del 21 de noviembre de 2006, se amplia la lista del equipo médico del presente artículo, " con la siguiente nómina de soluciones para el uso en Equipo y Material Biomédico:
 a) Soluciones desinfectantes, limpiadoras y acondicionadoras para lentes de contacto.
-b) Soluciones para desinfectar y esterilizar un Equipo y Material Biomédico.
+b) Soluciones para desinfectar y esterilizar un Equipo y Material Biomédico).
+(NOTA: Mediante el artículo 1° de la resolución N° 1619 del 14 de marzo de 2007, se amplia la lista del equipo médico del presente artículo con la siguiente nómina de soluciones para el uso en Equipo y Material Biomédico:
+a) Soluciones visco elásticas para uso oftálmologico y quirúrgico)
