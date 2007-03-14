@@ -14,3 +14,4 @@ Reglamento de la Ley de Marcas y otros Signos Distintivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-04 | la propia norma |
+| 2 | 2007-03-14 | Decreto Ejecutivo 33743 (2007-03-14) |
