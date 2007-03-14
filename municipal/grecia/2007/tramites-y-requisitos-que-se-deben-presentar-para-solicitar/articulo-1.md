@@ -1,0 +1,33 @@
+MUNICIPALIDAD DE GRECIA
+De conformidad con la Ley Nº 8220 “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, la Municipalidad de Grecia hace del conocimiento del público en general, los trámites y requisitos que se deben presentar en la institución, para solicitar la noafectación del pago del impuesto sobre bienes inmuebles, establecido en la Ley Nº 7509 y sus reformas:
+REQUISITOS PARA SOLICITAR LA NO AFECTACIÓN
+DE IMPUESTO SOBRE BIENES INMUEBLES
+PARA PROPIETARIOS DE BIEN ÚNICO
+1) Persona física que posea un único bien a nivel nacional, inscrito o no.
+2) Llenar la boleta de Solicitud de No Afectación del Impuesto sobre Bienes Inmuebles proporcionada por la Municipalidad.
+3) Certificación de propiedades extendida por el Registro Público u otra institución autorizada, con fecha de emisión no mayor a un mes.
+4) El trámite es estrictamente personal con la presentación de la cédula de identidad al día. En caso de que la gestión sea realizada por otra persona distinta al propietario registral, la firma en la solicitud de no-afectación deberá ser autenticada por un abogado y acompañada de una fotocopia de la cédula de identidad del propietario. También este trámite puede realizarlo si ostenta un poder generalísimo o especial para realizar este trámite. En este caso, debe presentar el poder vigente debidamente protocolizado y fotocopia de la cédula de identidad.
+5) Cuando la propiedad se encuentre inscrita a nombre de un menor de edad, se debe presentar una Certificación del Registro Civil donde se demuestre quien es el padre, madre encargado o tutor, así como la fotocopia de la cédula de identidad, para que el encargado proceda con la firma de la solicitud.
+6) Quienes no hayan hecho efectivo el beneficio de la no-afectación por bien único después de 1998, no están obligados al pago del impuesto sobre los bienes inmuebles, siempre y cuando demuestren que reunían las condiciones establecidas en el inciso e) del artículo 4º de la Ley, es decir, que se trataba un único bien inmueble y que su valor no excedía los cuarenta y cinco salarios base según el período fiscal de que se trate, por lo que debe presentar estudio histórico por persona física emitido por el Registro de la Propiedad en el que se indique la tenencia de un único bien en los años solicitados. Así mismo, debe presentar una Declaración Jurada que indique que el solicitante no poseía bienes inmuebles no inscritos durante ese periodo.
+REQUISITOS PARA SOLICITAR LA NO AFECTACIÓN
+DEL IMPUESTO SOBRE BIENES INMUEBLES
+PARA SUJETOS PASIVOS DISTINTOS AL BIEN ÚNICO
+Para todos los casos que se detallan a continuación, se deben presentar los siguientes requisitos y adicionar lo que se establece en cada caso particular.
+1) Solicitud por escrito de la no-afectación del impuesto, en la cual se detalle el motivo por el cual considera es sujeto de este beneficio.
+Este documento debe venir firmado en original por el interesado o su representante legal.
+2) En caso de ser una persona jurídica, debe adjuntarse personería vigente, con no más de tres meses de emitida y fotocopia de la cédula de identidad del representante legal.
+Instituciones autónomas y semi-autónomas creadas por Ley especial: Certificación de la ley especial, en la cual conste la noafectación, haciendo mención del número y fecha de La Gaceta en que se publicó la misma.
+Cuencas: hidrográficas: Certificación del MINAE en que conste tal circunstancia y de la porción del inmueble que está bajo esa condición;
+Reserva Forestal, Reserva Biológica, Parque Nacional o similar: Certificación del Decreto Ejecutivo vigente, emitido por MINAE donde se haga constar tal circunstancia y de la porción del inmueble que está bajo esa condición.
+Reserva Indígena: Certificación emitida por el CONAI en la que conste tal circunstancia la vigencia del decreto y la condición indígena del sujeto pasivo.
+Instituciones Públicas de Educación y Salud: Certificación expedida por el Registro Nacional o por notario público de que el inmueble inscrito o no, es propiedad o posesión de éstas.
+Parceleros o adjudicatarios del IDA. Certificación emitida por el Secretario de la Junta Directiva del I.D.A., en la cual se haga constar el día, mes y año de la adjudicación de la parcela para determinar que se encuentra dentro de los cinco años de la no-afectación a este tributo.
+Instituciones religiosas: Para los inmuebles de las Temporalidades de la Iglesia Católica, una certificación emitida por el Registro Nacional o por Notario Público, en donde conste la propiedad del mismo.
+Para las demás organizaciones religiosas se deberán presentar una declaración jurada emitida por el apoderado de la organización religiosa donde se haga constar que el inmueble se dedica únicamente al culto y una certificación emitida por el Registro Nacional donde se haga constar que está inscrito a nombre de la organización de que se trate.
+Sedes diplomáticas y casas de habitación de los agentes diplomáticos y consulares: Declaración jurada emitida por el agente diplomático de mayor jerarquía, donde se haga constar que en los inmuebles correspondientes se encuentran las sedes diplomáticas o las casas de habitación de los agentes diplomáticos o consulares.
+Cruz Roja y Bomberos. Declaración jurada emitida por la autoridad superior correspondiente, donde se haga constar que la ley que los exonera del pago del Impuesto sobre Bienes Inmuebles o de tributos en general se encuentra vigente, indicando el número y fecha de La Gaceta donde se publicó.
+Bienes de uso común propiedad de personas jurídicas amparadas a la Ley 3859 y reformas. Certificación emitida por el Registro Nacional o notario público donde se haga constar la propiedad del inmueble.
+Asociaciones declaradas de utilidad pública por autoridades correspondientes: Certificación emitida por el Registro Nacional o notario donde se haga constar la propiedad del inmueble. Certificación emitida por DINADECO donde conste la vigencia de la asociación de desarrollo comunal y que el inmueble esté destinado al uso común de las asociaciones.
+Inmuebles pertenecientes a las asociaciones declaradas de utilidad pública: Certificación emitida por el Registro Nacional o notario donde se haga constar la propiedad del inmueble y certificación emitida por notario público donde conste la vigencia del decreto ejecutivo declarando de utilidad pública a dichas asociaciones.
+Además de los anteriores requisitos, en caso de duda, la administración tributaria podrá solicitar otros, así como realizar inspecciones y en general, recurrir a los medios de prueba necesarios que conlleven a una justa y correcta aplicación de la no-afectación.
+Grecia, 19 de febrero del 2007.
