@@ -1,0 +1,1 @@
+Artículo 41.—En el caso de activos que no estén en uso, el funcionario lo comunicará al jefe inmediato para su respectiva reasignación; de no ser este necesario en esa Unidad, será remitido a la Proveeduría para su respectiva reubicación

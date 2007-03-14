@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del registro y control de activos
+Artículo 13.—Los activos adquiridos por la Municipalidad mediante compra, donación u otra modalidad deberán registrarse al costo de adquisición más los gastos en que la Municipalidad incurra para que funcione en óptimas condiciones; de acuerdo a los principios y normas de Contabilidad generalmente aceptados; para este efecto la sección de Proveeduría trasladará la información pertinente a Contabilidad, en los ocho días posteriores a la adquisición, de los costos incurridos en la adquisición y puesta en operación del activo.

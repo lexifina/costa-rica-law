@@ -1,0 +1,1 @@
+Artículo 43.—Queda prohibido a los funcionarios disponer bienes para ser movilizados sin permiso del empleado a quien están asignados y sin haber confeccionado antes el formulario de “traslado de activo”.

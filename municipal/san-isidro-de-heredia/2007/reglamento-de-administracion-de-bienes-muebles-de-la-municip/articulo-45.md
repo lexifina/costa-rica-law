@@ -1,0 +1,1 @@
+Artículo 45.—De existir equipo dañado en una dependencia y se requiera su reparación, la Jefatura interesada deberá solicitar, por escrito, esos servicios a Proveeduría mediante el formulario “Solicitud de Bienes y Servicios”.

@@ -1,0 +1,1 @@
+Artículo 27.—Los usuarios(as), a quienes se les haya asignado los bienes, son los responsables de que éstos estén ubicados en el lugar correspondiente y deberán responder, a los funcionarios (as) encargados de realizar los inventarios, por aquellos que no sean localizados en su sitio.

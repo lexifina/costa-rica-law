@@ -1,0 +1,1 @@
+Artículo 51.—Cuando la Municipalidad por cualquier circunstancia modifique su organigrama, ya sea total o parcialmente, los encargados de tal acción deberán comunicar oportunamente a la Proveeduría los cambios por efectuar, con el propósito de hacer los ajustes correspondientes y mantener actualizada la base de datos de Control de Bienes Muebles.

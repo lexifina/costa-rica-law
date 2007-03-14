@@ -1,0 +1,1 @@
+Artículo 56.—También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad de la Municipalidad de San Isidro de Heredia, que han sido adquiridos por las diferentes Unidades Administrativas para su uso, por estar a cargo del Área de Archivo Municipal y regido por otro Reglamento.

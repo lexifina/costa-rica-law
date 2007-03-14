@@ -1,0 +1,1 @@
+Artículo 29.—Cuando a un funcionario(a) se le otorgue una licencia sin goce de salario o un período de vacaciones, que exceda de un mes, cuando sea separado de su cargo por renuncia, despido o pensión, debe devolver los activos que le habían sido asignados. La jefatura inmediata debe supervisar que la devolución sea completa y rendir informe a Contabilidad y Proveeduría.
