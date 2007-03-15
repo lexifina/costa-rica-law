@@ -14,3 +14,4 @@ Reforma Reglamento de Creación del Órgano Fiscalizador del Contrato de Gestió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-20 | la propia norma |
+| 2 | 2007-03-15 | Decreto Ejecutivo 33806 (2007-03-15) |
