@@ -1,0 +1,1 @@
+Artículo 10.—Los vendedores de lotería y chances, flores, revistas, deberán solicitar la respectiva licencia, lo mismo que los limpiadores de calzado que sean mayores de edad, los vendedores de periódico también deben contar con la licencia. Todos los vendedores contemplados en este artículo no podrán hacer uso de ningún tipo de mobiliario para ejercer su actividad.

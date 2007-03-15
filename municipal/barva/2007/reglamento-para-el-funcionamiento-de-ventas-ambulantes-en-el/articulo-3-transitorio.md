@@ -1,0 +1,1 @@
+3º—Mientras la Ley de Patentes Municipales del cantón de Barva no disponga lo contrario se fija el pago de patente conforme está contemplada cada línea comercial tasada en la actual ley de patentes, si la actividad comercial no estuviera establecida, se aplicará la patente de comercio no clasificado a criterio de la administración municipal.

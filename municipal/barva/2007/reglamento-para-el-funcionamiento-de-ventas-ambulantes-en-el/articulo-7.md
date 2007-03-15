@@ -1,0 +1,1 @@
+Artículo 7º—Las ventas ambulantes no funcionarán en lugares prohibidos por otras leyes, o en aquellos lugares en que su presencia atente contra la seguridad del peatón y el libre tránsito de vehículos.

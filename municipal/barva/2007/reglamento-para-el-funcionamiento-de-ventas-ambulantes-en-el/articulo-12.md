@@ -1,0 +1,1 @@
+Artículo 12.—El expendio de alimentos de consumo directo solo se autorizara en los casos contemplados en el artículo 6º de este Reglamento y se exigirá la presentación del certificado de funcionamiento sanitario expedido por el ministerio de salud. En tal caso los vendedores deberán portar un carné de salud y vestimenta adecuada conforme a los reglamentos y leyes sanitarias.

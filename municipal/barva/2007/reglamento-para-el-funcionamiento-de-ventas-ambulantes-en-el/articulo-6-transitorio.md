@@ -1,0 +1,1 @@
+6º—El presente Reglamento deroga cualquier otra disposición anterior que se le oponga.

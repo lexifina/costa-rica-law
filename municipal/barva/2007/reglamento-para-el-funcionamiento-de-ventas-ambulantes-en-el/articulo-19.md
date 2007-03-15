@@ -1,0 +1,1 @@
+Artículo 19.—La Municipalidad se reserva el derecho de fijar rutas a los vendedores cuando las condiciones del tránsito o de los peatones lo ameriten, así como por cualquier otra causa que surja a juicio de la administración.
