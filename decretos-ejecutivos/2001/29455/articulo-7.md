@@ -1,5 +1,10 @@
 CAPÍTULO III
 Inspector General
-Artículo 7º—Requisitos. El Inspector General deberá ser un profesional con grado académico universitario de licenciatura en Administración de Negocios, Finanzas, Contaduría Pública y/o Derecho con grado académico de Maestría en un área afín. Deberá poseer entre 5 y 10 años de experiencia gerencial, ya sea en instituciones financieras, aerolíneas o en administración pública. Amplia experiencia y conocimiento de las operaciones aeroportuarias, los principios de “Project Finance”, las prácticas internacionales aplicables y la normativa internacional relacionada al sub-sector aeroportuario. Amplia experiencia en la fiscalización de contratos del Sector Público, así como de las buenas prácticas asociadas con la fiscalización del sector privado en obras y servicios públicos, el desarrollo e implementación de organizaciones y de procesos operativos, etc. Amplia experiencia en el desarrollo gerencial y en el manejo de equipos de trabajo multidisciplinarios. Experiencia en el análisis de riesgo.
-Bilingüe inglés/español, con dominio del idioma inglés.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33347 del 4 de setiembre de 2006)
+Artículo 7º—Requisitos. El Inspector General deberá ser un profesional con grado académico universitario mínimo de bachillerato y además contar con una Maestría en finanzas o gerencia, y con la siguiente experiencia:
+Entre 5 y 10 años de experiencia gerencial con equipos de trabajo multidisciplinarios, en instituciones públicas o privadas.
+Experiencia y conocimiento de las operaciones aeroportuarias.
+Conocimiento de los principios de “Proyect Finance”.
+Preferiblemente con conocimiento de la normativa aeroportuaria.
+Preferiblemente con experiencia en la ejecución de contratos públicos.
+Preferiblemente con dominio del idioma inglés.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33806 del 15 de marzo de 2007)

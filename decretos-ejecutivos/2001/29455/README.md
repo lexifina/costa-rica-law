@@ -18,3 +18,4 @@ Reglamento de Creación del Órgano Fiscalizador del Contato de Gestión Interes
 | 3 | 2004-01-05 | Decreto Ejecutivo 31692 (2004-01-05) |
 | 4 | 2005-05-20 | Decreto Ejecutivo 32394 (2005-05-20) |
 | 5 | 2006-09-04 | Decreto Ejecutivo 33347 (2006-09-04) |
+| 6 | 2007-03-15 | Decreto Ejecutivo 33806 (2007-03-15) |

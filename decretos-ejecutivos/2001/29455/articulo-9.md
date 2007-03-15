@@ -1,9 +1,8 @@
 CAPÍTULO IV
 Inspector Técnico de Operaciones
-Artículo 9º—Requisitos. El Inspector Técnico de Operaciones será un Bachiller de Secundaria o que posea la Conclusión de Estudios Secundarios según corresponda. Bilingüe inglés/español con dominio del idioma inglés.
-Y cumplir con al menos uno de los siguientes requisitos específicos:
-Siete años de experiencia en gerencia de operaciones aeroportuarias con conocimientos de la normativa internacional de la Organización de Aviación Civil Internacional (OACI), de los estándares de calidad de la Asociación Internacional de Transporte Aéreo (IATA) y de la Federal Aviation Administration (FAA), así como de la Regulación Aeronáutica Costarricense (RACS).
-- Bachiller o Licenciatura Universitaria en Administración de Negocios y sus énfasis, Ingeniería Industrial, Ingeniero Aeronáutico y cuatro años de experiencia en gerencia de operaciones aeroportuarias con conocimientos de la normativa internacional de la Organización de Aviación Civil Internacional (OACI), de los estándares de calidad de la Asociación Internacional de Transporte Aéreo (IATA) y de la Federal Aviation Administration (FAA), así como de la Regulación Aeronáutica Costarricense (RACS) e incorporación al Colegio Profesional respectivo.
-Para todos los casos anteriores, preferiblemente con los siguientes cursos:
-- Administración de Servicio de Escala (Asistencia en Tierra), Seguridad Aeroportuaria, Seguridad en Rampa, Servicio al Cliente, Peso y Balance, Emergencias Aéreas, Seguridad de la Aviación, Normas ISO de Calidad.
-(Así reformado por el artículo 2 del decreto ejecutivo N° 33347 del 4 de setiembre de 2006)
+Artículo 9º—Requisitos. El Inspector Técnico de Operaciones deberá ser como mínimo un Bachiller de Secundaria o que posea la Conclusión de Estudios secundarios según corresponda, y además contar con los siguientes requisitos específicos:
+Cinco años de experiencia en gerencia de operaciones aeroportuarias.
+Preferiblemente con licencias de operaciones aeronáuticas.
+Conocimiento de la normativa y regulaciones aeroportuarias nacionales e internacionales (OACI, FAA e IATA).
+Dominio de los idiomas español e inglés.
+(Así reformado mediante el artículo 2° del decreto ejecutivo N° 33806 del 15 de marzo del 2007).
