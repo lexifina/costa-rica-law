@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Crédito con Recursos del Fondo Nacional de V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-13 | la propia norma |
+| 2 | 2007-03-15 | Reglamento 17 (2007-03-15) |
