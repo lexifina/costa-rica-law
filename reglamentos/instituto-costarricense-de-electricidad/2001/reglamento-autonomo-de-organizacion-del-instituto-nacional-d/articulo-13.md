@@ -1,1 +1,1 @@
-Artículo 13.—Fondo de Garantías y Ahorro. El Fondo de Garantías y Ahorro mantendrá su estructura y organización actual como órgano adscrito directamente al Consejo Directivo con las mismas funciones y competencias.
+Artículo 13.—Servicio 911. El servicio 911 se mantendrá como órgano desconcentrado de la organización, de conformidad con su ley de creación.

@@ -1,1 +1,1 @@
-Artículo 12.—Responsabilidad por implementación de la organización institucional. Todo trabajador del Instituto Costarricense de Electricidad, deberá acatar las disposiciones del presente reglamento, así como cualquier otra medida tendiente a la consolidación de la organización administrativa que establezca el Consejo Directivo.
+Artículo 12.—Fondo de Garantías y Ahorro. El Fondo de Garantías y Ahorro mantendrá su estructura y organización actual como órgano adscrito al Consejo Directivo, con las mismas funciones y competencias.

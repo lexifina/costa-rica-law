@@ -1,19 +1,24 @@
-Artículo 5°—La Administración Superior. La Administración Superior la integran:
-a) El Consejo Directivo y sus órganos de apoyo
-- Secretaría del Consejo Directivo
-- Auditoría
-- Fondo de garantías y ahorro
-- Asistentes de los Directores.
-b) La Presidencia Ejecutiva y sus órganos de apoyo
-- Asesoría Legal Institucional
-- Área de Mercadeo y Relaciones Públicas
-- Área de Planificación Estratégica Institucional
-- Programa para la Calidad
-- Asistencia Administrativa y asesores
-c) La Gerencia General y sus órganos de Apoyo
-- Arca de Gestión Integral de Riesgo
-- Arca Gestión Documentación e Información
-- Asistencia Administrativa
-d) La Subgerencia del Sector de Telecomunicaciones
-e) La Subgerencia del Sector de Electricidad
-f) La Subgerencia de Gestión Administrativa.
+Artículo 5º—Las Subgerencias. Las Subgerencias tendrán las siguientes Divisiones, Unidades Estratégicas de Negocio, Direcciones
+Administrativas o Direcciones, según sea el caso:
+a) Subgerencia Sector Telecomunicaciones:
+§ Divisiones:
+§ Clientes.
+§ Servicios.
+§ Redes y Sistemas.
+b)Subgerencia Sector Electricidad:
+§ Unidades Estratégicas de Negocio:
+§ Producción de Electricidad.
+§ Transporte de Electricidad.
+§ Servicio al Cliente.
+§ Proyectos y Servicios Asociados.
+§ Centro Nacional de Planificación Eléctrica.
+§ Centro Nacional de Control de Energía.
+c) Subgerencia Administrativa Institucional:
+§ Direcciones Administrativas:
+§ Recursos Humanos.
+§ Logística.
+§ Administración Bienes Inmuebles.
+§ Proveeduría.
+d) Subgerencia de Finanzas:
+Direcciones:
+§ Financiera.

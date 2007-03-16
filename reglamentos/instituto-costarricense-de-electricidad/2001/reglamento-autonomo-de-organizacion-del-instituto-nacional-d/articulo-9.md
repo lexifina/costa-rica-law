@@ -1,12 +1,8 @@
-Artículo 9°—Competencias de la Subgerencia de Gestión Administrativa. El Sector de Gestión Administrativa estará constituido por una Subgerencia y sus respectivas Direcciones, indicadas en el artículo sexto. Las competencias de este Sector y su respectivo Subgerente serán las siguientes.
-a) Identificar e implementar las mejores prácticas y técnicas para los procesos administrativos y financieros institucionales.
-b) Lograr mayor eficiencia y eficacia en la organización, incrementando la satisfacción laboral y la productividad organizacional
-c) Desarrollar las mejores prácticas en materia de recurso humano, que aseguren una óptima gestión y el más apropiado clima laboral a nivel institucional.
-d) Identificar los esquemas más convenientes para realizar la aplicación de los recursos materiales y financieros a nivel institucional, en estrecha coordinación con las Subgerencias de Electricidad y Telecomunicaciones
-e) Lograr un desarrollo planificado, estructurado e integrado, en estrecha coordinación con sus áreas cliente, de los esfuerzos institucionales en materia de tecnologías de información, procesos financieros, presupuestarios y de costos, así como apoyo logístico, gestión de recurso humano, procesos de contratación administrativa y administración de bienes inmuebles.
-f) Desarrollar un sistema de gestión enfocado en las áreas cliente, procurando niveles óptimos de calidad, oportunidad y costo en la prestación de sus servicios y atender en forma oportuna los requerimientos de sus áreas cliente, manteniendo la especialización sectorial y logrando la integración y adopción de las mejores practicas de cada servicio de apoyo.
-g) Suministrar información consolidada y oportuna de la gestión administrativa institucional para la Administración Superior, Consejo Directivo y Entes Externos.
-h) Desarrollar e implementar sistemas de evaluación de la gestión institucional.
-i) Elaborar una estrategia de tecnologías de información integrada que oriente en forma óptima las infraestructuras: computacional, conectividad e información.
-j) Consolidar el desarrollo e implementación de sistemas de costos al interior de los sectores y su debida integración institucional.
-k) Consolidar el plan anual operativo y el presupuesto institucional.
+Artículo 9º—Responsabilidades comunes de los Subgerentes.Además de las ya indicadas para cada caso, las siguientes responsabilidades serán comunes para las Subgerencias:
+a. Asegurar el cumplimento por parte de las Divisiones, Unidades Estratégicas de Negocio, Direcciones Administrativas o Direcciones, de los lineamientos del nivel superior en materia ambiental y de responsabilidad social, todo de conformidad con la legislación vigente.
+b. Coordinar con la Presidencia Ejecutiva las políticas aplicables para la atención de los asuntos legales.
+c. Apoyar a las Divisiones o Unidades Estratégicas de Negocio o Direcciones Administrativas o Direcciones, en la definición del perfil de los posibles aliados estratégicos, según lo permita el ordenamiento jurídico vigente.
+d. Someter a la aprobación de la Presidencia Ejecutiva y la Gerencia General, el Plan Estratégico de cada Sector, asegurando la congruencia con los lineamientos impartidos por el Consejo Directivo.
+e. Nombrar del personal de su Subgerencia, debiendo someter a consideración de la Gerencia General y la Presidencia Ejecutiva relacionados con Director de División, Director Técnico, Director Administrativo, Directores de UEN´s o Directores, según corresponda.
+f. Someter a consideración y aprobación de la Gerencia General y la Presidencia Ejecutiva, las decisiones estratégicas en los procesos de planificación, programas de trabajo, identificación de inversiones, necesidades financieras y administrativas y ambientales de sus respectivas Subgerencias o Sectores.
+g. Someter a aprobación de la Gerencia General las gestiones administrativas y de dirección, que de acuerdo con las reglamentaciones vigentes así lo requieran.

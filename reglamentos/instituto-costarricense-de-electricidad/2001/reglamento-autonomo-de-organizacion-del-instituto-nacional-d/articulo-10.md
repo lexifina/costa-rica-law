@@ -1,6 +1,15 @@
-Artículo 10.—Responsabilidades comunes de los Subgerentes. Además de las ya indicadas para cada caso, las siguientes responsabilidades serán comunes para las Subgerencias:
-a) Asegurar el cumplimento por parte de las UEN's o Direcciones Administrativas, de los lineamientos del nivel superior en materia ambiental, todo de conformidad con la legislación vigente.
-b) Coordinar con la Presidencia Ejecutiva las políticas aplicables para la atención de los asuntos legales.
-c) Apoyar a las UEN's o Direcciones Administrativas en la definición del perfil de los posibles aliados estratégicos, según lo permita el ordenamiento jurídico vigente.
-d) Someter a la aprobación de la Presidencia Ejecutiva y la Gerencia General, el Plan Estratégico de cada Sector, asegurando la congruencia con los lineamientos impartidos por el Consejo Directivo.
-e) Proponer el nombramiento del personal de su Subgerencia y someterlos a la ratificación de la Gerencia General y la Presidencia Ejecutiva.
+Artículo 10.—De las competencias de las Divisiones, Unidades Estratégicas de Negocio, Direcciones Administrativas, Direcciones y Direcciones Técnicas.
+De las Divisiones, Unidades Estratégicas de Negocio, Direcciones Administrativas y Direcciones:
+a) Formular y proponer ante la Subgerencia correspondiente los planes empresariales, los planes anuales operativos y el presupuesto correspondiente, asegurando la congruencia con los lineamientos sectoriales e institucionales emanados por la Administración Superior.
+b) Organizar, dirigir y evaluar los procesos o funciones que componen su División o Unidad Estratégica de Negocio o Dirección Administrativa o Dirección, según corresponda.
+c) Cumplir con las instrucciones que reciban de la Subgerencia correspondiente y la Administración Superior en general.
+d) Ejecutar los planes, programas y proyectos que hayan sido aprobados por la Administración Superior.
+e) Velar porque en sus Divisiones o Unidades Estratégicas de Negocio o Direcciones Administrativas o Direcciones se cumplan con las directrices, órdenes, circulares, procedimientos emanados de la Administración Superior o por ellos mismos.
+f) Ejecutar y controlar los presupuestos asignados a sus respectivas dependencias.
+De las Direcciones Técnicas:
+a) Formular y proponer ante la División correspondiente los planes y el presupuesto correspondiente, asegurando la congruencia con los lineamientos de la División , así como de los sectoriales e institucionales emanados por la Administración Superior.
+b) Organizar, dirigir y evaluar los procesos o funciones que componen su Dirección Técnica.
+c) Cumplir con las instrucciones que reciban de la División y la Administración Superior en general.
+d) Ejecutar los planes, programas y proyectos que hayan sido aprobados por la División.
+e) Velar porque se cumplan con las directrices, órdenes, circulares, procedimientos emanados por la División , Subgerencia y de la Administración Superior o por ellos mismos.
+f) Ejecutar y controlar los presupuestos asignados a sus respectivas dependencias.

@@ -1,1 +1,1 @@
-Artículo 14.—Servicio 911. El servicio 911 se mantendrá como órgano desconcentrado de la organización de conformidad con su ley de creación.
+Artículo 14.—Comité Mixto de Relaciones Laborales. El Comité Mixto de Relaciones Laborales, así como cualquier otro órgano paritario y bipartito, conservará su estructura y competencias actuales.

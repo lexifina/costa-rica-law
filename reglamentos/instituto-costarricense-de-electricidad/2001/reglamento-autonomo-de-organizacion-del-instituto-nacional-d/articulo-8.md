@@ -1,14 +1,12 @@
-Artículo 8°—Competencias de las Subgerencias de Electricidad y Telecomunicaciones. Son sectores estratégicos de la Institución el de Telecomunicaciones y el de Electricidad. Estarán constituidos por una Subgerencia y sus respectivas Unidades Estratégicas de Negocios indicadas en el artículo sexto. Las competencias de este Sector y su respectivo Subgerente serán las siguientes:
-a) Desarrollar y mantener la infraestructura necesaria para apoyar los productos y la comercialización de los servicios de Telecomunicaciones, asegurando un crecimiento y calidad acorde con el desarrollo de la industria. Además velará por la universalización de los servicios.
-b) Elaborar el Plan Estratégico Sectorial, para que con la aprobación de la Presidencia Ejecutiva y la Gerencia General, sea sometido a conocimiento y aprobación del Consejo Directivo.
-(Así reformado el inciso anterior mediante sesión N° 5759 del 26 de setiembre del 2006).
-c) Asegurar el desarrollo de los planes empresariales, los planes y proyectos de desarrollo, operación y mantenimiento, así como los planes anuales operativos de las Unidades Estratégicas de Negocios, y su consistencia con la estrategia sectorial. Coordinar con la Subgerencia de Gestión Administrativa la consolidación de esta información para efectos de aprobación de Consejo Directivo y entes externos.
-d) Proveer oportunamente la infraestructura requerida para la atención de la demanda insatisfecha, así como para el lanzamiento de nuevos productos y servicios.
-e) Identificar los posibles aliados estratégicos que complementen las ventajas competitivas del ICE para el desarrollo de la comercialización de servicios y la infraestructura.
-f) Identificar las necesidades financieras de acuerdo con el Plan Estratégico del sector, analizando los estudios de factibilidad, la capacidad financiera y determinar las prioridades de inversión y gasto, evaluar la ejecución presupuestaria de las UEN's, confeccionar los estados financieros consolidados a nivel de Subgerencia y controlar la gestión financiera de sus UEN's.
-g) Coordinar con la Subgerencia de Gestión Administrativa, en calidad de clientes internos, los aspectos relacionados con la prestación de servicios de apoyo administrativo con la calidad, cantidad y oportunidad que requieren los Sectores para cumplir con sus objetivos estratégicos.
-h) Elaborar en coordinación con las subsidiarias Compañía Nacional de Fuerza y Luz, Radiográfica Costarricense y Compañía Radiográfica Internacional los planes de expansión para el sector eléctrico, (integrando la generación, transmisión y distribución); así como de telecomunicaciones, bajo un enfoque integral y de máxima optimización de las inversiones a nivel corporativo.
-i) Dirimir los conflictos de competencia entre las UEN's
-j) Dar seguimiento y tomar las medidas correctivas sobre los planes estratégicos de las UEN's
-k) Adjudicar las contrataciones Administrativas y suscribir los contratos respectivos por los montos que determine el Consejo Directivo y la normativa vigente, basadas en el Plan Anual de Adquisiciones.
-l) Resolver en primera instancia todos los asuntos de su competencia o especialidad administrativa
+Artículo 8º—Competencias de la Subgerencia Administrativa Institucional y de la Subgerencia de Finanzas. El Sector de Administración estará constituido por la Subgerencia Administrativa Institucional y la Subgerencia de Finanzas, así como sus respectivas Direcciones Administrativas o Direcciones indicadas en el artículo quinto.
+Las competencias de este Sector y de sus respectivos Subgerentes serán las siguientes, según corresponda:
+a. Identificar e implementar las mejores prácticas y técnicas para los procesos administrativos y financieros institucionales.
+b. Lograr mayor eficiencia y eficacia en la organización, incrementando la satisfacción laboral y la productividad organizacional.
+c. Desarrollar las mejores prácticas en materia de recurso humano, que aseguren una óptima gestión y el más apropiado clima laboral a nivel institucional.
+d. Identificar los esquemas más convenientes para realizar la aplicación de los recursos materiales y financieros a nivel institucional, en estrecha coordinación con las Subgerencias de Electricidad y Telecomunicaciones.
+e.Lograr un desarrollo planificado, estructurado e integrado, en estrecha coordinación con sus áreas cliente, de los esfuerzos institucionales en materia de procesos financieros, presupuestarios y de costos, así como apoyo logístico, gestión de recurso humano, procesos de contratación administrativa y administración de bienes inmuebles.
+f. Desarrollar un sistema de gestión enfocado en las áreas cliente, procurando niveles óptimos de calidad, oportunidad y costo en la prestación de sus servicios y atender en forma oportuna los requerimientos de sus áreas cliente, manteniendo la especialización sectorial y logrando la integración y adopción de las mejores prácticas de cada servicio de apoyo.
+g. Suministrar información consolidada y oportuna de la gestión para la Administración Superior , Consejo Directivo y Entes Externos.
+h. Desarrollar e implementar sistemas de evaluación de la gestión institucional.
+i. Consolidar el desarrollo e implementación de sistemas de costos al interior de los sectores y su debida integración institucional.
+j. Consolidar el plan anual operativo y el presupuesto institucional.

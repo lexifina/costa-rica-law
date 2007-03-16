@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización del Instituto Nacional de Eléctricidad
 | --- | --- | --- |
 | 1 | 2001-10-11 | la propia norma |
 | 2 | 2006-09-26 | Reglamento 5759 (2006-09-26) |
+| 3 | 2007-03-16 | Reglamento 5789 (2007-03-16) |
