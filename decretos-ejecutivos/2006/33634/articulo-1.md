@@ -1,0 +1,12 @@
+Nº 33634
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES
+Con fundamento en los artículos 140 inciso 20) y 146 de la Constitución Política, 25.1 de la Ley General de la Administración Pública, la Ley Nº 7555 del 4 de octubre de 1995, publicada en La Gaceta Nº 199 del 20 de octubre del mismo año, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica, y el Decreto Ejecutivo Nº 32749-C del 14 de marzo del 2005, publicado en La Gaceta Nº 219 del 14 de noviembre del mismo año, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico.
+Considerando:
+1º—Que a mediados del siglo XX, como parte del proceso de desarrollo de la comunidad de Pedregoso de Pérez Zeledón, y gracias al trabajo de la Junta de Educación y al esfuerzo y cooperación de los vecinos, quienes brindaron la mayor parte de los materiales de construcción y la mano de obra necesaria, se hizo posible la construcción del edificio escolar de esta comunidad.
+2º—Que la abundancia y calidad de la madera que había en las montañas cercanas a Pedregoso, posibilitó la construcción de este inmueble en dicho material, el cual fue extraído de éstas en carretas por la mayoría de sus pobladores, quienes en esta labor brindaron su aporte al desarrollo de su comunidad y en pro de su educación.
+3º—Que actualmente el material utilizado en esta edificación ya no es usual, por lo que lo convierte en un representante histórico en el ámbito arquitectónico.
+4º—Que en años recientes, gracias al empeño de la Junta de Educación, Director y personal docente, la colaboración de la Asociación de Desarrollo, vecinos y padres de familia, así como el apoyo de algunas autoridades e instituciones, se restauró eficientemente la citada edificación, lo cual demuestra que posee un alto valor histórico y patrimonial para la comunidad de Pedregoso, constituyéndose en parte de su identidad como colectividad.
+5º—Que es deber del Estado salvaguardar el patrimonio cultural del país. Por tanto,
+DECRETAN:
+Artículo 1º—Declarar e incorporar al Patrimonio Histórico- Arquitectónico de Costa Rica, bajo la categoría de edificación, el inmueble conocido como la Escuela de Pedregoso de Pérez Zeledón, inscrito en el Registro Nacional, partido de San José, matrícula de Folio Real número 117551-000, que corresponde al plano catastrado número 51694-1992, ubicado en el distrito San Isidro de El General del cantón de Pérez Zeledón de la provincia de San José, propiedad de la Junta de Educación de Pedregoso de Pérez Zeledón, cédula jurídica número 3-008-061452.
