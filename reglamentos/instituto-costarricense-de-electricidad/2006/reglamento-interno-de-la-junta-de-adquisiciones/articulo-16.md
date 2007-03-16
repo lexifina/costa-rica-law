@@ -1,4 +1,3 @@
 SECCIÓN III
 De los acuerdos
-Artículo 16.—Los acuerdos de la Junta de Adquisiciones requerirán de mayoría absoluta; o sea, con los votos de al menos tres de sus miembros.
-Los acuerdos quedarán en firme en la sesión que se toman, si así lo disponen al menos tres de sus miembros. En caso contrario quedará en firme en la siguiente sesión.
+Artículo 16.—Los acuerdos de la Junta de Adquisiciones, serán adoptados por mayoría absoluta de los miembros asistentes. Los acuerdos quedarán en firme en la sesión que se dicte, si así lo disponen al menos dos tercios de la totalidad de los miembros de la Junta de Adquisiciones. En caso contrario, quedarán en firme en la siguiente sesión donde se apruebe el acta correspondiente.
