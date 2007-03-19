@@ -1,0 +1,5 @@
+Artículo 5º—Funciones y atribuciones. El Comité Gerencial de Informática, cómo órgano colegiado, tendrá las siguientes funciones y atribuciones:
+a) Formular las especificaciones o guías de referencia para la elaboración del estudio preliminar y del informe correspondiente;
+b) Conforme los resultados del estudio preliminar supra, el Comité elaborará un estudio de factibilidad, para la adquisición de hardware y software y para el desarrollo de nuevos Sistemas de Información Computarizados, en lo sucesivo SIC; definiendo con claridad su alcance y objetivos. Posteriormente preparará el informe correspondiente en conformidad con las especificaciones emitidas;
+c) Asesorar al nivel jerárquico superior en la aprobación de los resultados de los estudios de factibilidad, de los planes estratégicos y operativo anual de la función de informática y en la emisión de políticas relativas al SIG;
+d) Controlar y asegurar que el nuevo equipo sea contratado bajo los criterios de oportunidad y con una relación adecuada de beneficio costo.
