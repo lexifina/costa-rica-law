@@ -44,9 +44,8 @@ La Lista de requisitos para el trámite del permiso de construcción será:
 7. Propiedades con pendientes mayores al 20% de inclinación aportar el Visto Bueno del Departamento de Geología de la Comisión Nacional de Emergencia.
 8. Presentar fotocopia de la cédula de identidad del propietario por ambos lados.
 9. Ampliación menores a 30 M2, muros, tapias, verjas y reparaciones menores presentar diseño detallado de la obra, especificando acabados.
-10. Para iniciar la construcción debe de cumplir con el Artículo 193 Título Cuarto del Código del Trabajo. (Póliza de Riesgo del Trabajo). El I.N.S. velará por el respecto de esta ley y podrá obligar a su cumplimiento establecimiento responsabilidades civiles y penales, según la legislación vigente.
-_______________ | _______________ | _______________
-Nombre | Firma | Cédula
+10. Para iniciar la construcción debe de cumplir con el Artículo 193, Título Cuarto del Código del Trabajo (Póliza de Riesgos del Trabajo), se debe presentar obligatoriamente la Póliza de Riesgos del Trabajo, expedida por el Instituto Nacional de Seguros o su exoneración, según sea el caso.
+(Así reformado mediante acuerdo N° 627 tomado en la sesión N° 46 del 19 de marzo del 2007).
 11. La Municipalidad reportará este permiso al Departamento de Riesgos del Trabajo del Instituto Nacional de Seguros
 (Así reformado parcialmente por el Concejo Municipal de la Municipalidad de Moravia, mediante la sesión ordinaria No. 118, celebrada el 16 de agosto del 2004.)
 CUADRO Nº 1.2
