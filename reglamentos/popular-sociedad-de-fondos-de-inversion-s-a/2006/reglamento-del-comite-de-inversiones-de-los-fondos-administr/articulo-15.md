@@ -1,1 +1,0 @@
-Artículo 15.—El Gestor de Portafolio supervisará la compra y venta de valores, vigilando que se encuentren dentro de los parámetros aprobados en el prospecto de cada Fondo de Inversión y las políticas generales aprobadas por el Comité.
