@@ -1,1 +1,1 @@
-Artículo 45.—Si para las elecciones correspondientes se inscribieran o postularan uno o más miembros afiliados, en dos o más de los puestos de junta directiva que no es el último puesto en elección y ninguno de ellos resultara ganador, automáticamente se tendrán a éstos como candidatos para el último puesto en elección, excepto que el interesado no acepte su candidatura para dicho puesto y se desestimarán las candidaturas de los miembros ordinarios que existieren para el citado puesto.
+Artículo 45.—(Este artículo fue Derogado en sesión N° 132 del 19 de marzo de 2007)
