@@ -1,0 +1,4 @@
+Artículo 8º—Funcionamiento del Comité. El Comité sesionará ordinariamente al menos una vez al mes y extraordinariamente a criterio del Presidente o cuando alguno de los miembros lo requiera, previa solicitud escrita a la Presidencia.
+Toda sesión se grabará en cinta o mediante mecanismos electrónicos, los cuales deberán ser custodiados por la Unidad de Riesgos, por lo menos durante un año.
+El libro de actas se llevará conforme a lo establecido en el Reglamento de Inversiones de las Entidades Reguladas y las disposiciones de la Superintendencia de Pensiones para la utilización del libro de actas electrónico.
+Las actas electrónicas deberán ser firmadas por el presidente y el secretario del Comité de Riesgos y las copias físicas, en papel, por todos los miembros presentes en las respectivas sesiones.

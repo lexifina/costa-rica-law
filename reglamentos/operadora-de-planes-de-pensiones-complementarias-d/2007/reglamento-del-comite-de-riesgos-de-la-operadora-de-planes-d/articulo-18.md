@@ -1,0 +1,4 @@
+Artículo 18.—Propuestas e iniciativas de administración de riesgos. Corresponde al Comité presentar propuestas, estrategias e iniciativas para la administración de riesgos y someterlas a aprobación por parte de la Junta Directiva. Estas acciones deben ser sometidas a discusión ante el Comité, conforme al procedimiento establecido en el Manual de Políticas y Procedimientos vigente.
+Una vez aprobada una propuesta por parte del Comité de Riesgos, la misma será sometida a consideración de la Junta Directiva para su aprobación y adopción definitiva.
+Este Reglamento rige a partir de su publicación en el Diario Oficial y el mismo deroga el aprobado en la sesión ordinaria de Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, número 131 del 18 de febrero del 2004 y publicado en La Gaceta Nº 143, del jueves 22 de julio del 2004.
+San José, 23 de febrero del 2007

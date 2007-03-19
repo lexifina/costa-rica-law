@@ -1,0 +1,2 @@
+Artículo 3º—Definiciones. Administración integral de riesgos: para los efectos de este Reglamento se entenderá como tal el conjunto de objetivos, políticas, procedimientos y acciones que tienen el propósito de identificar, medir, monitorear, limitar, controlar, informar y revelar los distintos tipos de riesgo a que se encuentran expuestos los fondos administrados y las entidades reguladas.
+Órgano de Dirección: Junta Directiva de la Operadora.
