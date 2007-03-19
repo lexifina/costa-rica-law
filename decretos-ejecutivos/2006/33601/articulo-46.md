@@ -1,0 +1,3 @@
+Artículo 46.—Frecuencias mínimas para la presentación de reportes operacionales. Los entes generadores cuyo efluente tenga un caudal promedio mensual menor o igual a 100 m3/día deberán presentar un reporte operacional cada seis meses, mientras que si es mayor a 100 m3/día deberán presentar un reporte operacional cada tres meses.
+Aquellos entes generadores que sólo viertan o hagan reuso de aguas residuales en períodos iguales o menores a cinco meses al año deberán presentar tres reportes equidistantes en el tiempo que dure cada ciclo de generación.
+Los entes generadores cuyas plantas de tratamiento reciban aguas residuales de entes generadores o líneas de producción diferentes, independientemente de su caudal, deberán presentar reportes operacionales cada mes.

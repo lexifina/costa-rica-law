@@ -1,0 +1,1 @@
+Artículo 49.—Laboratorios autorizados para el análisis de aguas residuales. Para los efectos de este Reglamento, los reportes de laboratorio de análisis de aguas residuales deberán provenir de laboratorios habilitados por el Ministerio de Salud.

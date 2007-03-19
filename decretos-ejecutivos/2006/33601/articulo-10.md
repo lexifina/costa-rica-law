@@ -1,0 +1,6 @@
+Artículo 10.—Informe estadístico para el Comité Técnico. El Informe Estadístico será un informe preparado mensualmente por la Dirección de Protección del Ambiente Humano del Ministerio de Salud, para conocimiento del Comité Técnico, con base en la información de los reportes operacionales presentados ante el Ministerio de Salud. El informe al menos debe contener la información mensual y anual correspondiente al:
+a) Número de reportes operacionales total y por código CIIU,
+b) Porcentaje de cumplimiento en presentación de los reportes operacionales,
+c) Promedio y desviación estándar de los valores reportados de los parámetros correspondientes por código CIIU, así como número de entes generadores que no cumplen y porcentaje de cumplimiento de dichos parámetros,
+d) Los resultados de monitoreo correspondiente a la vigilancia estatal a la que hace referencia el artículo 58.
+Además, el Comité Técnico de manera excepcional podrá requerir ampliaciones o aclaraciones adicionales de los documentos ya aportados, siendo que esta información que se solicita como excepción deberá ser imprescindible para la resolución del asunto. Dicho requerimiento se hará por escrito, de manera motivada y por una única vez.

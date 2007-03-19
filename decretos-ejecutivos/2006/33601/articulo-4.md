@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de tratar las aguas residuales. Todo ente generador deberá dar tratamiento a sus aguas residuales para que cumplan con las disposiciones del presente Reglamento y se eviten así perjuicios al ambiente, a la salud, o al bienestar humano.

@@ -1,0 +1,2 @@
+Transitorio 1º—Regulación de emisarios submarinos. En un plazo no mayor de dos años a partir de la publicación de este reglamento, el Poder Ejecutivo deberá emitir un decreto para la regulación del vertido de los emisarios submarinos con base en una propuesta del Ministerio de Salud y el Ministerio de Ambiente y Energía. En el ínterin el vertido de un emisario submarino deberá cumplir con los límites establecidos en las Tablas 2 y 3 del presente reglamento.
+Dado en la Presidencia de la República, San José, a los nueve días del mes de agosto de dos mil seis.

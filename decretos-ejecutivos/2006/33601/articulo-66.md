@@ -1,0 +1,1 @@
+Artículo 66.—Del vertido de aguas residuales contaminadas con sustancias radioactivas. Se prohíbe la infiltración o el vertido en cuerpos de agua, o en cualquier sistema de alcantarillado, de aguas residuales o desechos contaminados con sustancias radioactivas.

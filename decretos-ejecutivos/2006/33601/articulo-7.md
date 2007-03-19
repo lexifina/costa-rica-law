@@ -1,0 +1,1 @@
+Artículo 7º—Sesiones del Comité Técnico. Las sesiones del Comité Técnico se realizarán una vez al mes, en la sede central del Ministerio de Salud, con los miembros presentes. El representante que sin justificación falte a 3 reuniones consecutivas o 5 reuniones no consecutivas en el mismo año, perderá automáticamente su representación.

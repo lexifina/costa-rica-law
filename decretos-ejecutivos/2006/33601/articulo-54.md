@@ -1,0 +1,2 @@
+Artículo 54.—Reporte de Cambios en el Proceso Productivo y en las Unidades de Tratamiento. El ente generador estará en la obligación de reportar, ante el Ministerio de Salud cualquier cambio en el proceso de producción. Además, deberá indicar si se han implementado modificaciones de obra civil, equipo, proceso o parámetro de funcionamiento en las unidades de tratamiento, las cuales deberán contar con el visado o autorización correspondiente.
+Lunes

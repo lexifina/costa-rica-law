@@ -1,0 +1,21 @@
+Nº 33601
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE AMBIENTE Y ENERGÍA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política; 27.1 de la Ley General de Administración Pública; 291, 292, 298 y 304 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”; 50, 51 y 52 de la Ley Nº 7554 del 4 de octubre de 1995 “Ley Orgánica del Ambiente”; 69 y 132 de la Ley Nº 7317 del 30 de octubre de 1992 “Ley de Conservación de la Vida Silvestre”; 2 de la Ley Nº 7152 del 5 de junio de 1990 “Ley Orgánica del Ministerio del Ambiente y Energía”; 281 del Código Procesal Penal, Ley Nº 7594 del 10 de abril de 1996 y 322 del Código Penal, Ley Nº 4573 del 4 de mayo de 1970.
+Considerando:
+1º—Que proteger el recurso hídrico es proteger la salud del hombre y la vida sobre La Tierra, y es un elemento sustancial para alcanzar el desarrollo sostenible del país.
+2º—Que siendo la contaminación de las aguas uno de los problemas de mayor incidencia negativa en nuestro entorno ambiental, resulta prioritario adoptar medidas de control para el vertido de agentes contaminantes en manantiales, zonas de recarga, ríos, quebradas, arroyos permanentes o no permanentes, lagos, lagunas, marismas, embalses naturales o artificiales, estuarios, manglares, turberas, pantanos, aguas dulces, salobres o saladas, y en general en las aguas nacionales.
+3º—Que la contaminación de los cuerpos de agua favorece la proliferación de enfermedades de transmisión hídrica, reduce el número de fuentes disponibles, eleva los costos para el abastecimiento de agua para consumo humano, y pone en peligro de extinción a muchas especies de nuestra flora y fauna.
+4º—Que para una mejor calidad de vida de las futuras generaciones debemos proteger las aguas nacionales y reducir los altos índices de contaminación.
+5º—Que el artículo 292 de la Ley General de Salud Nº 5395 de 1973 prohíbe la descarga de las aguas negras, aguas servidas y residuos industriales al alcantarillado pluvial.
+6º—Que el Decreto Ejecutivo 26042-S-MINAE del 19 de junio de 1997 ha sido revisado por un comité técnico compuesto por representantes del Ministerio de Salud, el Ministerio del Ambiente y Energía, el Instituto Costarricense de Acueductos y Alcantarillados, el Colegio Federado de Ingenieros y Arquitectos de Costa Rica, el Colegio de Químicos de Costa Rica, el Colegio de Ingenieros Químicos y Profesionales Afines de Costa Rica, la Asociación Costarricense de Recursos Hídricos y Saneamiento Ambiental, la Unión Costarricense de Cámara y Asociaciones de la Empresa Privada, la Federación Costarricense para la Conservación del Ambiente, el Consejo Nacional de Rectores, el Colegio de Microbiólogos y la Representación de la Organización Panamericana de la Salud en Costa Rica.
+7º—Que la aplicación del Decreto Ejecutivo Nº 26042-S-MINAE, generó un registro de datos referentes a la calidad de las aguas residuales vertidas por lo entes generadores, tanto al cuerpo receptor como al alcantarillado sanitario, que permitió la revisión y modificación de los límites máximos permisibles acordes con la realidad nacional. Así mismo, permitió ampliar la exoneración de los entes generadores que vierten al alcantarillado sanitario a otras categorías del código CIIU, distintas de las viviendas.
+8º—Que la revisión y modificaciones citadas en el considerando anterior dio como resultado la propuesta del presente Reglamento de Vertido y Reúso de Aguas Residuales, la cual fue sometida a un proceso de consulta pública, de modo que todos los sectores involucrados en la gestión de las aguas residuales pudieran someter sus observaciones a consideración del Comité Técnico.
+9º—Que el Decreto Ejecutivo Nº 26042-S-MINAE, estableció la obligación de revisar y actualizar periódicamente, el Reglamento de Vertido y Reuso de Aguas Residuales, ya que los Reglamentos requieren de una revisión y actualización para el cumplimiento de las funciones que contempla la Ley General de Salud. Por tanto,
+DECRETAN:
+El siguiente,
+Reglamento de Vertido y Reuso de Aguas Residuales
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Ámbito de aplicación. El presente reglamento será de aplicación obligatoria en todo el territorio nacional en relación con el manejo de las aguas residuales, que independientemente de su origen sean vertidas o reusadas.

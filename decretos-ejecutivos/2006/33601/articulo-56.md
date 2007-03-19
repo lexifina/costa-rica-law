@@ -1,0 +1,1 @@
+Artículo 56.—Registro de Producción. El Responsable Técnico del Reporte Operacional deberá suministrar la producción total o la población equivalente del período reportado, según sea el caso, de acuerdo a los criterios establecidos en el Procedimiento para la Elaboración del Reporte Operacional.

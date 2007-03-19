@@ -1,0 +1,1 @@
+Artículo 48.—Metodología de la medición del caudal. El reporte operacional deberá incluir los datos representativos de medición de caudales conforme a lo establecido en el Procedimiento para la Elaboración del Reporte Operacional del Anexo 2 del presente reglamento.

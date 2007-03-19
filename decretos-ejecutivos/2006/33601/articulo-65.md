@@ -1,0 +1,1 @@
+Artículo 65.—Del vertido de aguas residuales de industrias de plaguicidas. Se prohíbe la infiltración o el vertido en cuerpos de agua o en cualquier sistema de alcantarillado, de aguas residuales o desechos provenientes de industrias formuladoras, reempacadoras y reenvasadoras de plaguicidas, con excepción de sus aguas residuales de tipo ordinario.

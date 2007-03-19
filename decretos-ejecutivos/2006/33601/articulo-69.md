@@ -1,0 +1,6 @@
+Artículo 69.—Acciones del Ministerio de Salud en caso de incumplimiento de parámetros en un reporte operacional por parte del ente generador. En caso de que en un reporte operacional, presentado por el ente generador, el promedio de uno o más parámetros de las mediciones rutinarias o los valores de los parámetros medidos por el laboratorio habilitado, excedan en más de los límites de confianza al 95%, el valor de sus correspondientes límites máximos permitidos, el Ministerio de Salud deberá:
+a) corroborar que en el Plan de Acciones Correctivas se incluya un cronograma de actividades para resolver esta situación.
+b) evaluar dicho cronograma de actividades.
+d) en caso de rechazo del Cronograma de Actividades, se le comunicará al ente generador que tendrá un plazo no mayor a diez días hábiles para presentar el ajuste del cronograma. Si no se presenta dicho ajuste en el plazo correspondiente, se procederá a emitir una Orden Sanitaria.
+e) en caso de aprobación del Cronograma de Actividades, comunicar al ente generador y a la región correspondiente su aprobación para que gire una Orden Sanitaria de Cumplimiento.
+Todo lo anterior, sin perjuicio de las acciones de emergencia que deban realizarse en estricta aplicación de los principios precautorios y preventivos establecidos en el Artículo 11 de la Ley de Biodiversidad.

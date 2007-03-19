@@ -1,0 +1,1 @@
+Artículo 43.—Procedimiento para la Elaboración del Reporte Operacional. Los reportes operacionales deberán confeccionarse conforme a lo establecido en el Procedimiento para la Elaboración del Reporte Operacional que se incluye en el Anexo 2.

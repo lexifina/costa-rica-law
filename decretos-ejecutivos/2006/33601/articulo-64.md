@@ -1,0 +1,1 @@
+Artículo 64.—Del vertido de materias peligrosas. Se prohíbe el vertido en cuerpos de agua o en cualquier sistema de alcantarillado, de materia que pudiera obstaculizar en forma significativa el flujo libre del agua, formar vapores o gases peligrosos, o que pudieran deteriorar los materiales y equipos que conforman dicho sistema. Se prohíbe también la inyección de gases.

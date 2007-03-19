@@ -1,0 +1,1 @@
+Artículo 53.—Evaluación de las Unidades de Tratamiento. El Responsable Técnico de la elaboración del Reporte Operacional deberá evaluar los resultados de las mediciones rutinarias, el resultado de los análisis de laboratorio y las anotaciones de la bitácora con el fin de emitir sus conclusiones y recomendaciones.

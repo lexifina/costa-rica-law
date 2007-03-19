@@ -1,0 +1,1 @@
+Artículo 63.—Del vertido de lodos residuales. Se prohíbe el vertido de lodos provenientes de sistemas de tratamiento de aguas residuales, sistemas de potabilización de aguas y de tanques sépticos a los cuerpos de agua y alcantarillado sanitario.

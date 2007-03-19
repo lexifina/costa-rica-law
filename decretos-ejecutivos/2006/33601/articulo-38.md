@@ -1,0 +1,1 @@
+Artículo 38.—Métodos de referencia para análisis de aguas residuales. Para los efectos de este Reglamento, los métodos de referencia para el muestreo y análisis de aguas residuales serán los incluidos en la última edición del “Standard Methods for the Examination of Water and Wastewaters” de acuerdo al Decreto Nº 25018-MEIC, publicado en La Gaceta Nº 59 del 25 de marzo de 1996.
