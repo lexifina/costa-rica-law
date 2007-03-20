@@ -1,1 +1,0 @@
-Artículo 17.—Derogatoria. Derogase la reglamentación sobre el trámite de contratación aprobada por acuerdo de la Junta Directiva en su sesión ordinaria Nº 1402, artículo segundo, inciso quinto, del 8 de agosto de 1996 y las reformas hechas con posterioridad a este acuerdo.

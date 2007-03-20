@@ -1,1 +1,0 @@
-Artículo 7º—Administrador o administradores del contrato. Es el funcionario, o los funcionarios, a quienes la dependencia solicitante designe para administrar la contratación, de acuerdo con el "Manual para la Administración de Contratos" vigente a la fecha.
