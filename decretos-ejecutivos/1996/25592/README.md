@@ -14,3 +14,4 @@ Manual General de Clasificación de Clases
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-15 | la propia norma |
+| 2 | 2007-03-20 | Decreto Ejecutivo 33729 (2007-03-20) |
