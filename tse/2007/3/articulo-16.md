@@ -1,0 +1,1 @@
+Artículo 16.—En las Asambleas Plenarias o Generales no tienen que intervenir los delegados del Tribunal Supremo de Elecciones, a menos que sean convocadas conjuntamente con la Asamblea Nacional y ésta última tuviese que ratificar los acuerdos adoptados por aquellas.

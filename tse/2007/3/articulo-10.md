@@ -1,0 +1,1 @@
+Artículo 10.—Debe registrarse la hora de inicio y controlar que, durante el desarrollo de la asamblea, se mantenga el quórum. Si se llegara a romper el quórum, hay que registrar la hora en que sucedió e Indicárselo inmediatamente al encargado.
