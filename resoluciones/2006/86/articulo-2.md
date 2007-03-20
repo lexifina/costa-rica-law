@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la resolución Nº 060-2006 de las ocho horas del día catorce de julio del dos mil seis, de la Dirección General de Hacienda, publicada en La Gaceta Nº 158 del 17 de agosto del 2006.
