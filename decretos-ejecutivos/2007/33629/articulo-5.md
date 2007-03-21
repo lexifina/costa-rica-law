@@ -1,0 +1,1 @@
+Artículo 5º—Derógase el Decreto Ejecutivo Nº 32675, que declara de interés público el Proyecto “Centros Comunitarios de Acceso a Internet, (CCAI)”, de fecha veintitrés de agosto de dos mil cinco, publicado en La Gaceta número ciento noventa y cuatro del diez de octubre de dos mil cinco.

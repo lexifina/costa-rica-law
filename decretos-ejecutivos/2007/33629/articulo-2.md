@@ -1,0 +1,1 @@
+Artículo 2º—Dicho proyecto tendrá como objetivo fundamental atender la necesidad nacional de capacitación, alfabetización y educación en información y cultura tecnológica a los sectores rurales de nuestro país.

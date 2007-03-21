@@ -1,0 +1,1 @@
+Artículo 3º—Con la finalidad de implementar las diferentes actividades específicas relativas al proyecto, las instituciones públicas y las organizaciones privadas sin fines de lucro colaboradoras y el Ministerio de Ciencia y Tecnología, podrán suscribir convenios de cooperación.
