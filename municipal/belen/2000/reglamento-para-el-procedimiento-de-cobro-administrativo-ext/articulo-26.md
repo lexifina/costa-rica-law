@@ -1,7 +1,8 @@
 SUBSECCIÓN III
 Del cobro de las obligaciones tributarias municipales en la etapa ejecutiva
 Artículo 26.—Deberes de la Unidad de Cobro en la etapa ejecutiva. La etapa ejecutiva se iniciará una vez agotada la fase administrativa, según lo dispuesto en el articulo 11 de este Reglamento. La Unidad de Gestión de Cobro deberá cumplir con lo siguiente, en esta etapa:
-a. Determinar las obligaciones vencidas que se le adeuden a la Municipalidad, cuyo valor sea mayor al 50 por ciento de un salario base, entendiéndose éste el correspondiente al de un Oficinista 1, de conformidad con el Decreto de Salarios Mínimos vigente al momento de realizarse el cobro. Esas obligaciones serán trasladadas a los abogados externos para cumplir con la etapa ejecutiva. En consecuencia, las obligaciones cuyo monto no exceda del aquí establecido, su cobro continuará siendo responsabilidad de la Unidad de Cobro.
+a. Determinar las obligaciones vencidas que se le adeuden a la Municipalidad , cuyo valor sea mayor al 50 por ciento de un salario base, establecido en el artículo 2 de la Ley N º 7337, del 5 de mayo de 1993
+(Así reformado el inciso anterior en sesión N° 16 del 13 de marzo de 2007)
 b. La Unidad de Cobro trasladara el expediente respectivo para efectos de iniciar la etapa ejecutiva a los abogados externos o a los abogados internos en casos calificados. Éste expediente contendrá al menos:
 1. Copia de las notificaciones de cobro administrativo realizadas al sujeto pasivo, o documentación idónea que demuestre que el mismo no ha sido posible notificar.
 (Así reformado el numeral anterior en sesión N° 74 del 19 de diciembre de 2006)
