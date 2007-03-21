@@ -1,0 +1,17 @@
+Nº 33642
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+Con fundamento en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; en los artículos 25.1 y 28.2, inciso b) de la Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978 y la Ley del Sistema Nacional para la Calidad Nº 8279, del 2 de mayo del 2002.
+Considerando:
+I.—Que la Ley Nº 8279 del Sistema Nacional para la Calidad, publicada en el Diario Oficial La Gaceta Nº 96 del 21 de mayo del 2002 en su artículo 1º, manifiesta que el establecimiento del Sistema Nacional para la Calidad tiene por propósito, entre otros, cumplir con los compromisos internacionales en materia de evaluación de la conformidad; de manera que contribuya a mejorar la competitividad de las empresas nacionales y proporcione confianza en la transacción de bienes y servicios.
+II.—Que mediante el capítulo IV de dicha Ley, se crea el Ente Costarricense de Acreditación (ECA), el cual tiene la misión de respaldar la competencia técnica y credibilidad de los entes acreditados, para garantizar la confianza del Sistema Nacional de la Calidad, además, asegurar que los servicios ofrecidos por los entes acreditados mantengan la calidad bajo la cual fue reconocida la competencia técnica, así como promover y estimular la cooperación entre ellos.
+III.—Que esa misma Ley, en el capítulo VI, artículo 44, establece que dentro de sus funciones, la Administración Pública promoverá el uso de normas voluntarias y participará activamente en su desarrollo y financiamiento.
+IV.—Que para la Administración Pública, es imperativo, fijar lineamientos para promocionar la calidad y mejorar la competitividad de las empresas nacionales, a fin de aumentar las exportaciones y satisfacer las expectativas de los consumidores.
+V.—Que el Instituto de Normas Técnicas de Costa Rica (INTECO), además de ser reconocido como el Ente Nacional de Normalización, es el único organismo de certificación acreditado por el Ente Costarricense de Acreditación (ECA), bajo las guías INTE/ISO 62 e INTE/ISO 66.
+VI.—Que la norma INTE 01-01-09-06, “Costa Rica Califica. Requisitos”, es un instrumento que coloca a las organizaciones costarricenses en posición de satisfacer los requisitos internacionales que les permita acceder a terceros mercados.
+VII.—Que en observancia de los anteriores ordinales, debe publicarse el extracto del acuerdo tomado en el punto IX, inciso b) de la sesión Nº 02-2006 del Consejo Nacional para la Calidad (CONAC) celebrada el día 23 de octubre del 2006, a fin de darle cabal cumplimiento al mismo. Por tanto,
+DECRETAN:
+Artículo 1º—Publíquese el extracto del acuerdo tomado en el punto IX, inciso b) de la sesión Nº 02-2006 del Consejo Nacional para la Calidad, celebrada el día 23 de octubre del 2006:
+“1. Incentivar el uso del sello Costa Rica Califica, en especial por las pequeñas y medianas empresas, para lo cual el Comité Ejecutivo del CONAC definirá las políticas a seguir.
+2. Encargar al Instituto de Normas Técnicas de Costa Rica (INTECO), como organismo certificador de la evaluación de la conformidad bajo la norma INTE 01-01-09-06 “Costa Rica Califica. Requisitos”.
+Lo anterior, sin detrimento de que surjan otros entes certificadores, acreditados debidamente ante el ECA, con facultades legales para emitir dichas certificaciones, en cuyo caso también podrán fungir como organismos certificadores de la evaluación de la conformidad bajo la norma indicada”.
