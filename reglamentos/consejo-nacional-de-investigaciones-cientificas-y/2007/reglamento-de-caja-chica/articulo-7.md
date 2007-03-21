@@ -1,0 +1,1 @@
+Artículo 7º—La Tesorería será responsable del uso correcto de estos fondos ante el Coordinador Administrativo-Financiero. En su ausencia se nombrará un nuevo encargado quien recibirá la caja previo arqueo.

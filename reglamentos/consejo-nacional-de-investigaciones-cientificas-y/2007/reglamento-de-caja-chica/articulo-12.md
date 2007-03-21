@@ -1,0 +1,1 @@
+Artículo 12.—Todo adelanto de dinero, deberá ser liquidado en un plazo máximo de siete días hábiles a la finalización de la actividad que originó el gasto y hacer el reintegro respectivo en los casos que así proceda. El funcionario que tenga pendiente una liquidación no podrá solicitar otro anticipo hasta tanto no liquide el anterior.

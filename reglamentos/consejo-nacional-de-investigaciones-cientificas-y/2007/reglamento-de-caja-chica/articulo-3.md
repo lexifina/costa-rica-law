@@ -1,0 +1,1 @@
+Artículo 3º—El monto asignado al Fondo será de ¢200.000,00 y podrá ser variado de acuerdo a las necesidades de la institución, para lo cual deberá contar con la autorización del Consejo Director del Conicit.

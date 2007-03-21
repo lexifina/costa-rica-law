@@ -1,0 +1,1 @@
+Artículo 18.—Queda absolutamente prohibido a la Tesorería cambiar cheques, pagar salarios o prestar dinero con los fondos de caja chica. Además dichos fondos deberán estar separados de otros ingresos que se encuentren en custodia.

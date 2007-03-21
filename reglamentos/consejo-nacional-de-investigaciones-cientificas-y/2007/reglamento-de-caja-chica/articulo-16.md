@@ -1,0 +1,1 @@
+Artículo 16.—EI Fondo estará sujeto a arqueos periódicos que deberán realizar la Contabilidad y la Auditoria Interna del Conicit, así como por otros entes de control externo, como la Auditoria Externa y la Contraloría General de la República, cuando se requiera. La Tesorería estará obligada a brindar la información requerida para la realización de estos arqueos.
