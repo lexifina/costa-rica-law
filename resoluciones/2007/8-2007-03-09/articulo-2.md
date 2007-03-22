@@ -1,0 +1,1 @@
+II.—Lo establecido en las presentes normas técnicas es de carácter vinculante para las instituciones señaladas en su ámbito de aplicación, asimismo, prevalecerá sobre cualquier disposición que en contrario emitan los sujetos pasivos.
