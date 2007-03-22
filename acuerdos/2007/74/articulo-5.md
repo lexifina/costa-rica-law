@@ -1,0 +1,1 @@
+Artículo 5º—De la pesca de la jaiva con nasas: Durante el período comprendido entre los meses de mayo, junio y julio de cada año, se permitirá la pesca del cangrejo jaiva con nasas, únicamente a todo aquel permisionario con Licencia de Pesca Comercial vigente para este tipo de pesca y en la(s) zona(s) autorizada(s).

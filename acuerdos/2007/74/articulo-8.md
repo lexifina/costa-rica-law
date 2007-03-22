@@ -1,0 +1,1 @@
+Artículo 8º—Para dar fiel cumplimiento a lo dispuesto en este acuerdo, referente a las artes de pesca permitidas en la pesquería artesanal, se autoriza únicamente mantener a bordo las cuerdas de mano y la línea planera autorizada.
