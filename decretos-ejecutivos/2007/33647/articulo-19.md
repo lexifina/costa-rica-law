@@ -1,0 +1,1 @@
+Artículo 19.—Las presentes directrices no serán de aplicación para el Instituto Nacional de Seguros y el Instituto Costarricense de Electricidad y sus empresas considerando el marco del proceso de reestructuración, fortalecimiento y modernización de los mismos.

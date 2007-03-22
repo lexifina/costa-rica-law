@@ -1,0 +1,1 @@
+Artículo 15.—Con la anuencia del jerarca, se podrán realizar cambios de nomenclatura en puestos de servicios especiales y en puestos de confianza subalternos, de acuerdo a las necesidades de las entidades públicas y los ministerios.
