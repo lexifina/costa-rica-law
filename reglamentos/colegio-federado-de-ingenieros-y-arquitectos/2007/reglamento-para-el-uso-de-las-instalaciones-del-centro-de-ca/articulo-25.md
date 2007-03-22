@@ -1,0 +1,1 @@
+Artículo 25.—Cuando se cometa alguna falta por parte de algún visitante, que se considere grave, el personal encargado del Centro, tienen autorización para que el o los causantes, sean desalojados de las instalaciones, sin perjuicio de cualquier otra sanción que se les pueda imponer.

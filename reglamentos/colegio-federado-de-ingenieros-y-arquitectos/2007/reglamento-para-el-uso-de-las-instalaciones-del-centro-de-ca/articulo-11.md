@@ -1,0 +1,1 @@
+Artículo 11.—El colegiado, su cónyuge, sus hijos, sus padres y sus hermanos, tendrán derecho a utilizar las instalaciones del Centro Integral, siempre y cuando hayan obtenido los documentos respectivos que determinará la Dirección Ejecutiva en la Sede Central del CFIA.

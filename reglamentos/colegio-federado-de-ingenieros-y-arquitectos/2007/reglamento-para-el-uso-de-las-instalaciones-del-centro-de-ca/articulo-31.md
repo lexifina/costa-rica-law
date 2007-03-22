@@ -1,0 +1,1 @@
+Artículo 31.—Los usuarios de las piscinas deberán cumplir con las indicaciones que se hayan dispuesto para el uso de las instalaciones, así como con las recomendaciones que realicen los funcionarios encargados del Centro.

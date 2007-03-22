@@ -1,0 +1,1 @@
+Artículo 26.—Las sanciones referidas en el artículo anterior abarcan desde una llamada de atención, verbal, escrita, o hasta la prohibición para visitar el Centro. Esa prohibición será no menor a un mes y no mayor de un año y será fijado por la Junta Directiva General del Colegio, de conformidad con la gravedad de la falta.

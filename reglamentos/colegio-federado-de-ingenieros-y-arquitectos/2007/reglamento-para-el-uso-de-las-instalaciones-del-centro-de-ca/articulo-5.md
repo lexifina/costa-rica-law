@@ -1,0 +1,1 @@
+Artículo 5º—De conformidad con lo establecido por este reglamento, el Centro será utilizado para la realización de actividades de capacitación, sociales, culturales, profesionales, deportivas y recreativas, acordes con los fines y objetivos del Colegio, para cuyo trámite se seguirá un orden cronológico y de prioridades.

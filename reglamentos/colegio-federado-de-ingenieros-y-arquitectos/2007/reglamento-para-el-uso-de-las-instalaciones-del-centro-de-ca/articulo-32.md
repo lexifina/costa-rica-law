@@ -1,0 +1,1 @@
+Artículo 32.—Los usuarios deberán abstenerse de realizar todos aquellos actos que se encuentren expresamente prohibidos y en caso de incumplimiento se harán acreedores a las sanciones establecidas en este reglamento.

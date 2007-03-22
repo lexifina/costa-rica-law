@@ -1,0 +1,1 @@
+Artículo 14.—El colegiado, es responsable de la utilización de las instalaciones del Centro y lo será económicamente en cuanto a todos los daños que sufran por su causa, la de sus familiares o la de sus invitados.

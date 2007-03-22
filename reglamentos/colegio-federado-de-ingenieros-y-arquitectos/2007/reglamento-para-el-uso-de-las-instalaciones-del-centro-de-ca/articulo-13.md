@@ -1,0 +1,1 @@
+Artículo 13.—Todas las tarifas para el uso de las instalaciones del Centro, serán establecidas por la Dirección Ejecutiva, en atención de los principios de servicio al costo y recuperación de la inversión.

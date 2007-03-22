@@ -1,0 +1,1 @@
+Artículo 8º—Las instalaciones del Centro se cederán gratuitamente para la realización de las actividades indicadas en los incisos a. y b. del artículo 6. En los casos de los incisos siguientes de ese mismo artículo, la Administración cobrará las tarifas vigentes que deben satisfacer en forma anticipada a los interesados en efectuar actividades.

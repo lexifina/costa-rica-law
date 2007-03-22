@@ -1,0 +1,1 @@
+Artículo 18.—Toda actividad programada en forma oficial por el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, tendrá prioridad en el orden de uso de las instalaciones del Centro, conforme está establecido en el artículo 6 de este Reglamento.

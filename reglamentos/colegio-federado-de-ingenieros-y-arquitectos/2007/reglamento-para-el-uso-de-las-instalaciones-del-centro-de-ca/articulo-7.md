@@ -1,0 +1,3 @@
+Artículo 7º—Para el uso especial de las instalaciones se deberá cumplir con los siguientes requisitos:
+a) Llenar el formulario de “Solicitud de Reserva de Espacio Físico” en el Departamento Administrativo, o mediante la página web del Colegio Federado, con al menos un mes de anticipación. La solicitud deberá cumplir con los requisitos que se indican en el formulario supra indicado.
+b) El Departamento Administrativo, resolverá y comunicará a los interesados las condiciones en que se otorga el permiso para hacer uso de las instalaciones, para lo cual deberá firmarse una nota de compromiso, donde el solicitante asume la total responsabilidad por el uso y cuidado de las instalaciones, incluyendo equipos y mobiliarios.
