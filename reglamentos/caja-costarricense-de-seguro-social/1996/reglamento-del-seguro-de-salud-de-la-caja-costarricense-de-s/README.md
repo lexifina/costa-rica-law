@@ -22,3 +22,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 7 | 2002-07-24 | Ley 8 |
 | 8 | 2002-07-24 | Decreto Ejecutivo 7662 (1977-11-04) |
 | 9 | 2006-05-30 | Reglamento 8061 (2006-05-30) |
+| 10 | 2007-03-22 | Reglamento 8140 (2007-03-22) |
