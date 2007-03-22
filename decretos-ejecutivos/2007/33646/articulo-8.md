@@ -1,0 +1,1 @@
+Artículo 8º—Las entidades públicas, ministerios y demás órganos según corresponda deberán ordenar sus prioridades, de manera que sus presupuestos incluyan los recursos para financiar las acciones estratégicas del PND que sean de su competencia exclusiva o a las que deben contribuir para su realización.
