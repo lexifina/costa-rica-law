@@ -15,3 +15,4 @@ Reglamento para la Afiliación de los Trabajadores Independientes
 | --- | --- | --- |
 | 1 | 2004-11-09 | la propia norma |
 | 2 | 2004-11-25 | Reglamento 7909 (2004-11-25) |
+| 3 | 2007-03-22 | Reglamento 8140 (2007-03-22) |
