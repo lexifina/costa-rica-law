@@ -15,3 +15,4 @@ Reglamento Zonaje Servidores Dirección Nacional Desarrollo Comunidad DINADECO
 | --- | --- | --- |
 | 1 | 1986-09-30 | la propia norma |
 | 2 | 1989-11-15 | Decreto Ejecutivo 19471 (1989-11-15) |
+| 3 | 2007-03-22 | Decreto Ejecutivo 33803 (2007-03-22) |
