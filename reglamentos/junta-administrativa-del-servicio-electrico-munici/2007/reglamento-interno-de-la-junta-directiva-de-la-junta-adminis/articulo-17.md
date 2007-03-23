@@ -1,0 +1,1 @@
+Artículo Nº 17.—Conforme a la ley, la orden del día puede alterarse por acuerdo de la Junta con el objeto de atender asuntos que por su importancia no puedan posponerse para una sesión posterior. No obstante, lo anterior la Junta podrá realizar sesiones válidamente sin cumplir los requisitos en cuanto a la orden día cuando asistan todos sus miembros y así acuerden por unanimidad.

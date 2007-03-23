@@ -1,0 +1,1 @@
+Artículo Nº 15.—Toda ausencia a sesiones por causa justificada a criterio del Presidente, con excepción de las establecidas en el artículo Nº 14 del presente reglamento, se deberá de gestionar oportunamente ante la Presidencia de la Junta Directiva. Tanto la petición como su resolución deberá constar en el acta de la sesión correspondiente.

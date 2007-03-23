@@ -1,0 +1,1 @@
+Artículo Nº 20.—El proyecto de presupuesto anual así como sus modificaciones deberá se entregado a cada director por lo menos con ocho días naturales antes de la celebración de la sesión correspondiente.
