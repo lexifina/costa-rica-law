@@ -14,3 +14,4 @@ Reglamento de Creación de la Autoridad Certificadora del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-07 | la propia norma |
+| 2 | 2007-03-23 | Decreto Ejecutivo 33733 (2007-03-23) |
