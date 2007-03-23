@@ -1,0 +1,1 @@
+Artículo 3º—Los gestores de los Espacios Naturales Protegidos, interesados en participar en el Programa Bandera Azul Ecológica deben estar acreditados ante este Programa mediante un Comité Local Pro-Bandera Azul Ecológica integrado al menos por tres miembros nombrando a su vez un coordinador. El rol de este Comité podrá ser asumido por un grupo organizado existente.

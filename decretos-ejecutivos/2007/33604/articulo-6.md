@@ -1,0 +1,1 @@
+Artículo 6º—Le corresponde al equipo técnico de trabajo realizar el auditoraje, para verificar el informe anual y la auto-evaluación de las reservas naturales . participantes, en los meses de marzo y abril, después de la presentación del informe anual correspondiente, con el apoyo técnico de expertos del SINAC - MINAE y la Red de Reservas Naturales Privadas. Artículo

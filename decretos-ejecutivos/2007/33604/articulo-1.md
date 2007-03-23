@@ -1,0 +1,12 @@
+Nº 33604
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En uso de las facultades que les confiere el artículo 140, inciso 3) y 18 de la Constitución Política y;
+Considerando:
+1º—Que mediante los Decretos Ejecutivos Nº 25636-MINAE-S y Nº 31610-S-MINAE-TUR, se creó el Programa Bandera Azul Ecológica, el cual tiene como objetivo, fomentar la participación comunitaria en la protección de los recursos hídricos y el ambiente en general.
+2º—Que las zonas boscosas ubicadas en espacios naturales protegidos (públicos, privados y mixtos) son fundamentales para los procesos de infiltración, evitar la erosión de los suelos, así como la contaminación por sedimentos y microorganismos en las aguas, correspondientes.
+3º—Que la cobertura vegetal y los bosques ejercen una función para el mantenimiento de la cantidad y calidad de las aguas superficiales y subterráneas. Además, se considera que el recurso hídrico es indispensable para la biodiversidad presente en los espacios naturales protegidos públicos, privados y mixtos.
+4º—Que el inciso i, del artículo 1 del mencionado Decreto Ejecutivo Nº 31610-S-MINAE-TUR, permite readecuar los objetivos y criterios de evaluación oficial para incentivar organizaciones u otras modalidades de gestión que buscan beneficiar al ambiente, la salud pública y la calidad de vida de los habitantes del territorio nacional.
+5º—Que la Red Costarricense de Reservas Naturales Privadas mediante el Decreto Ejecutivo Nº 28378 del 25 de Noviembre del año 1999 fue declarada una Organización de Interés Público para los intereses del Estado, que busca la conservación e incremento de los bosques privados y el aprovechamiento sostenible de su biodiversidad. Por tanto,
+DECRETAN:
+Artículo 1º—Ampliar los alcances del Programa Bandera Azul Ecológica contenidos en los Decretos Ejecutivos Nº 25636-MINAE-S, Nº 31610-S-MINAE-TUR y el Nº 31648-MEP-MINAE-S-TUR, del 22 de enero y 9 de febrero del 2004, incluyendo, una nueva categoría denominada Espacios Naturales Protegidos (privados), con la finalidad de reconocer a los gestores de estos espacios los esfuerzos realizados en la promoción y adopción de prácticas, sostenibles y amigables con el ambiente, mediante conservación del bosque priario, ecoturismo y mixtos (zonas destinadas a conservación boscosa combinadas con actividades agropecuarias y turísticas). El Programa Bandera Azul Ecológica, podrá otorgar este reconocimiento a las áreas silvestres protegidas mixtas, declaradas como tal por el Ministerio de Ambiente y Energía.

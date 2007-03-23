@@ -1,0 +1,1 @@
+7º—Modifíquese el artículo dos, numeral tercero del Decreto Ejecutivo Nº 31610-MINAE-TUR, del 22 de enero del año dos mil cuatro, para que se incorpore un miembro de la Red Costarricense de Reservas Naturales Privadas, a la Comisión Nacional del Programa Bandera Azul Ecológica.

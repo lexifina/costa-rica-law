@@ -1,0 +1,1 @@
+Artículo 2º—Se entiende por espacios naturales protegidos aquellos dedicados a la protección y conservación de los componentes de los ecosistemas, presentes en estas áreas, en donde se puedan desarrollar actividades Educativas, Científicas, Ecoturísticas, Agrodesarrollo, Protección Absoluta, entre otras.
