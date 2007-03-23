@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los artículos 6º y 9º del Decreto Ejecutivo Nº 26012-MEIC, RTCR 100:1997. Etiquetado de los Alimentos Preenvasados del 15 de abril de 1997, publicado en La Gaceta Nº 91 de 14 de mayo de 1997.
