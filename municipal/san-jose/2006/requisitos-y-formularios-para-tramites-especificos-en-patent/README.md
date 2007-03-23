@@ -14,3 +14,4 @@ Requisitos y Formularios para Trámites Específicos en Patentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-16 | la propia norma |
+| 2 | 2007-03-23 | Acuerdo municipal 0 (2007-03-23) |

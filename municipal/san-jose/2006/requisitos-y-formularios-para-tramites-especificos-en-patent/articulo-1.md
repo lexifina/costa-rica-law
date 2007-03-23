@@ -1,6 +1,7 @@
 MUNICIPALIDAD DE SAN JOSÉ
 REQUISITOS Y FORMULARIOS PARA TRÁMITES
 ESPECÍFICO EN PATENTES
+(NOTA: La Municipalidad de San José, publicó en La Gaceta N° 65 del 2 de abril de 2007, un Addemdum a los Requisitos para el Otorgamiento de Patentes y Licencias Comerciales, el cual puede ser consultado en el sistema)
 El Departamento de Patentes de esta Municipalidad, informa que a partir de la presente publicación, entran en vigencia los siguientes “Requisitos y Formularios para Trámites Específicos en Patentes”, de acuerdo con la Ley 8220.
 1) Licencia de Espectáculos Públicos.
 2) Profesionales Liberales.
