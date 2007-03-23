@@ -1,0 +1,2 @@
+ARTÍCULO 27.- Notificación
+La determinación de oficio o la recalificación efectuada por la Municipalidad, deberá notificarse al contribuyente en su establecimiento, con las observaciones sobre los cargos que se le formulen y las infracciones que se estime ha cometido, con la indicación del monto adeudado y las multas. Además, se indicarán los recursos que caben contra dicho acto, el tiempo para interponerlos y el órgano ante el cual deberán plantearse.
