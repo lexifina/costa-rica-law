@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Aspecto espacial del hecho generador
+Cuando la actividad lucrativa principal se desarrolle fuera del cantón de Pococí, pero el contribuyente también realice actividades lucrativas en ese cantón por medio de sucursales o agencias, el impuesto que deberá pagarse a la Municipalidad de dicho cantón, de conformidad con las disposiciones de esta Ley, se calculará sobre los ingresos brutos que reporte la sucursal o agencia a la casa matriz, según la declaración jurada municipal y certificación expedida por contador público autorizado, que presente el patentado para ese efecto.
+Los datos serán verificados por la Municipalidad de Pococí, según los procedimientos establecidos en esta Ley y en el Código de Normas y Procedimientos Tributarios.

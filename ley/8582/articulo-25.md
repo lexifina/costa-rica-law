@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Reintegro por incumplimiento
+Cuando una empresa beneficiada incurra en incumplimiento de los requisitos señalados para recibir los incentivos establecidos en este artículo, o incumpla el pago de sus obligaciones tributarias municipales y nacionales, incluyendo las cuotas al Seguro Social, deberá reintegrar a la Municipalidad las sumas exoneradas de este impuesto, así como los correspondientes intereses corrientes al tipo legal, desde la fecha en que se concedió el incentivo hasta su pago efectivo.

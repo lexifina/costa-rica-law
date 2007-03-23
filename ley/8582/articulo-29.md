@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Recursos
+Dentro de los cinco días hábiles siguientes a la notificación, el contribuyente o su responsable legal podrá impugnar, por escrito, ante el Departamento de Patentes y Recaudación, las observaciones o los cargos. En este caso, deberá indicar los hechos y las normas legales que fundamentan su reclamo y alegar las defensas que considere pertinentes, proporcionando y ofreciendo las pruebas respectivas.
+Si dentro del plazo señalado no se presenta ninguna oposición, la resolución quedará en firme. Las multas y los recargos empezarán a correr a partir de la firmeza de la resolución del tributo.
