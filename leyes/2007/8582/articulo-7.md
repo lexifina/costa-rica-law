@@ -1,0 +1,6 @@
+CAPÍTULO III
+REGISTRO Y CERTIFICADO DE LA LICENCIA
+ARTÍCULO 7.- Registro y certificado de la licencia
+La Municipalidad de Pococí, por medio de su dependencia competente, llevará un registro de los patentados con todos los datos, tales como nombre y apellidos, número del patentado, número de cédula, ubicación, números de teléfono y fax, así como nombre y apellidos, número de cédula y domicilio del representante legal del patentado, y cualquier otro dato que se estime pertinente.
+El patentado deberá señalar, a la Municipalidad, un domicilio y fax para efectos de notificación. Asimismo, deberá señalar cualquier cambio que se realice en su domicilio o en el de su representante legal.
+La Municipalidad entregará a cada patentado el certificado que lo acredita como tal. El patentado deberá colocarlo en un lugar visible de su establecimiento.

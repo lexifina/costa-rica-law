@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Sujetos del hecho generador
+Son sujetos pasivos de este impuesto las personas, físicas o jurídicas, que se dediquen al ejercicio de actividades comerciales, productivas o de cualquier otra índole, habituales o discontinuas, en el cantón de Pococí. Además, se consideran sujetos pasivos de este impuesto los entes sin personalidad jurídica, tales como, las sociedades de hecho, las cuentas en participación y los fideicomisos, se excluyen los de garantía.
