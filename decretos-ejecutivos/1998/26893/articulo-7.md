@@ -1,1 +1,2 @@
-Artículo 7°- Rige a partir de su publicación.
+Artículo 7°- Los órganos del Estado, las instituciones públicas descentralizadas, autónomas y semiautónomas, las empresas públicas del Estado y las municipalidades podrán transferir la prestación de servicios y actividades auxiliares a favor de las organizaciones sociales establecidas en el artículo 1° de la Ley No 7668, siempre que conduzca a mejorar la calidad del servicio y se respeten los principios y normas establecidos.
+(Así corrida su numeración por artículo 1 del Decreto Ejecutivo N° 33713, del 26 de marzo de 2007, que lo traspaso del antiguo artículo 5 al 7 actual del artículo)

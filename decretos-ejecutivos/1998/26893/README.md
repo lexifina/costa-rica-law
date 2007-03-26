@@ -14,3 +14,4 @@ Reglamento a la Ley Marco para la Transformación Institucional y Reformas a la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-08 | la propia norma |
+| 2 | 2007-03-26 | Decreto Ejecutivo 33713 (2007-03-26) |
