@@ -1,0 +1,1 @@
+Artículo 2º—Se ordena a las instituciones del Estado, colaborar con el Instituto Costarricense de Puertos del Pacífico, con el Instituto Costarricense de Turismo y con el Ministerio de Obras Públicas y Transportes, en la gestión de los trámites necesarios para ello y contribuir con el desarrollo del proyecto de acuerdo al ámbito de sus competencias.
