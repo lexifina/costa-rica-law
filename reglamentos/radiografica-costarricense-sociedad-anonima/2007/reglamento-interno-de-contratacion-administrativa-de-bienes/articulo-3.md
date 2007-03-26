@@ -1,0 +1,5 @@
+Artículo 3º—Definición de términos y conceptos. Para los efectos de este reglamento, se entiende por:
+Administrador de contrato: Encargado (os) de administrar los contratos de suministro de bienes y servicios, con el fin de asegurar el cumplimiento del objeto de contratación, por medio de la administración, control y supervisión del contrato desde el inicio del procedimiento de contratación hasta el final de la relación.
+Programa anual de compras: Es un plan mediante el cual las Direcciones de la Administración Superior proponen las adquisiciones requeridas para el año, estableciendo como medio de publicación el Diario Oficial La Gaceta, en el primer mes de cada periodo presupuestario.
+Refrendo del contrato: Condición de eficacia que alcanza un contrato mediante resolución de la Contraloría General de la República, o bien, por la instancia legal de RACSA, según el Reglamento sobre el Refrendo de Contrataciones de la Administración Pública.
+Registro de proveedores: Mecanismo de selección por medio del cual se inscriben potenciales oferentes, según el tipo de bien o servicio que ofrezcan a la Administración.

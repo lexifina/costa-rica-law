@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente reglamento tiene como objetivo normalizar y unificar los procedimientos de contratación administrativa de Radiográfica Costarricense Sociedad Anónima, para que se puedan realizar de una manera eficiente y eficaz por los funcionarios de esta empresa, con apego a las normas y principios del ordenamiento jurídico administrativo.

@@ -1,0 +1,12 @@
+CAPÍTULO III
+Registro de proveedores
+Artículo 11.—Administración del registro de los proveedores.
+11.1. El Registro de Proveedores es la herramienta por medio del cual las personas físicas como jurídicas se inscriben con el fin de participar en los procedimientos de contratación administrativa.
+11.2. El Departamento de Gestión de Compras y Materiales, será el encargado de la fiscalización y custodia de los documentos recibidos por cada proveedor y para ello realizará una evaluación de conformidad con lo establecido en el Reglamento a la Ley de Contratación Administrativa.
+11.3. Para ello se deberá emitir un formulario con los requisitos mínimos que deben cumplir para formar parte del Registro de Proveedores. Asimismo se informará por medio de una publicación anual, en el Diario Oficial La Gaceta, a sus potenciales proveedores y posibles oferentes la actualización de datos.
+11.4. El Registro Proveedores se utilizará en orden cronológico, conforme a la fecha de presentación de la solicitud, siempre que se haya cumplido con los requisitos mínimos establecidos en el formulario.
+11.5. Los interesados se inscribirán única y exclusivamente en los bienes y servicios que estén en capacidad de suministrar, de acuerdo con la información que proporcionen al efecto.
+11.6. Los documentos acreditados en el Registro de Proveedores podrán utilizarse para cualquiera de los procesos de contratación administrativa.
+11.7. La exclusión del registro de proveedores se regirá por lo dispuesto en la Ley de Contratación Administrativa y el Reglamento a la Ley de Contratación Administrativa en lo que respecta a las inhabilitaciones. Asimismo se podrá proceder con la exclusión de una persona física o jurídica del Registro por los siguientes motivos: a) Muerte o extinción. b) Manifestación expresa del interesado. c) Carencia de interés de la Administración de continuar contratando determinado bien o servicio. d) No actualización de la información en el plazo de 5 días hábiles.
+11.8. Sin embargo RACSA dará audiencia al proveedor a fin de que se ejercite las Garantías Constitucionales que le asisten entre ellas el Debido Proceso y el Derecho de Defensa. En el caso de proveedores extranjeros se les notificará en la dirección indicada en el Formulario de Inscripción en Costa Rica.
+11.9. En lo relacionado al régimen recursivo se hará referencia a lo estipulado en el Reglamento a la Ley de Contratación Administrativa en el Capítulo XII secciones primera, tercera y cuarta.

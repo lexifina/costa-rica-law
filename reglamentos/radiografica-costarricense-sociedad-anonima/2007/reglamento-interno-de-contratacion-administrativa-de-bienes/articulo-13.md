@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De la planificación de las contrataciones
+Artículo 13.—Programa anual de adquisiciones.
+13.1. Todas las dependencias de RACSA deberán planificar anualmente sus necesidades de bienes y servicios.
+13.2. Los programas de adquisiciones serán confeccionados por cada unidad administrativa y remitidos al Departamento de Gestión de Compras y Materiales, y contendrán la información estipulada en el artículo 7, del Reglamento a la Ley de Contratación Administrativa. El Departamento de Gestión de Compras y Materiales revisará e integrará toda la información y procederá a realizar la respectiva publicación en el Diario Oficial La Gaceta, según corresponda.
+13.3. Los programas de compras deben contar con los recursos presupuestarios necesarios; se exceptúan lo dispuesto en el artículo 9 del Reglamento a la Ley de Contratación Administrativa, en relación a presupuestos futuros.
+13.4. Cualquier modificación al programa de adquisiciones deberá ser remitida al Departamento de Gestión de Compras y Materiales mediante solicitud formal, autorizada por la Gerencia, en la que consten las razones por las que no está incorporada en el programa inicial de contrataciones. También se procederá a la publicación de la modificación en el Diario Oficial La Gaceta, por parte de la Proveeduría. 13.5. Cuando en un inicio de procedimiento, el monto estimado y publicado en el Plan Anual de Compras requiere de un ajuste, éste podrá realizarse con la aprobación de la Gerencia General, siempre y cuando no cambie el procedimiento de contratación ya publicado.
