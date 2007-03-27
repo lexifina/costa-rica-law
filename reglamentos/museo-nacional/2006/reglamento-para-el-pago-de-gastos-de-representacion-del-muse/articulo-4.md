@@ -1,0 +1,2 @@
+Artículo 4º—Los gastos de representación no podrán exceder a la suma presupuestada en el período correspondiente. No se autorizará ningún egreso por concepto de gastos de representación sin el previo visto bueno de Presupuesto, donde se haga constar la existencia de contenido presupuestario para tal efecto, debidamente aprobado.
+(Corregido mediante Fe de Erratas, publicada en La Gaceta N ° 202 del 22 de octubre de 2007, y en La Gaceta N° 212 del 5 de noviembre de 2007).
