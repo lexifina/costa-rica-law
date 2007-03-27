@@ -1,1 +1,0 @@
-Artículo 4°—De las reuniones de CONAFIN. El CONAFIN se reunirá ordinariamente una vez al mes o extraordinariamente cuando lo convoque su presidente. Se levantará un acta de los asuntos tratados en cada sesión.

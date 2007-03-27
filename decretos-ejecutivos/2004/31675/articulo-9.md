@@ -1,2 +1,0 @@
-Artículo 9°—De los proyectos aprobados. Los Poderes, entes, empresas públicas y órganos estatales sólo podrán incluir en sus presupuestos de inversión, los proyectos que hayan sido dictaminados por el CONAFIN dentro del Plan Nacional de Inversiones Públicas.
-(NOTA: Mediante el artículo 3 del decreto ejecutivo N° 33555 del 21 de diciembre de 2006, “Fortalecimiento del Instituto Nacional de Seguros", se excluye al INS de la materia presupuestaria y límite de gasto)
