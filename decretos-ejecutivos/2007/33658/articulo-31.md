@@ -1,0 +1,1 @@
+Artículo 31.—Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará a criterio del Auditor Interno, quien definirá el contenido y la forma de los informes, oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y su criterio profesional.
