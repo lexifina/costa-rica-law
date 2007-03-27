@@ -16,3 +16,4 @@ Reglamento de la Organización de la Tesorería Nacional
 | 1 | 2004-02-09 | la propia norma |
 | 2 | 2005-11-02 | Decreto Ejecutivo 32861 (2005-11-02) |
 | 3 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
+| 4 | 2007-03-27 | Decreto Ejecutivo 33653 (2007-01-24) |
