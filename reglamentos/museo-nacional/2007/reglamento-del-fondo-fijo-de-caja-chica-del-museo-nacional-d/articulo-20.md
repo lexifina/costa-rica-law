@@ -1,0 +1,1 @@
+Artículo 20.—Se podrán autorizar erogaciones a través del Fondo de Caja Chica por un monto que no supere el límite del 15% del monto total asignado al fondo. La Dirección General del Museo Nacional podrá autorizar gastos mayores.

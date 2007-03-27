@@ -1,0 +1,1 @@
+Artículo 24.—Como medio para verificar que el bien o servicio se recibió a satisfacción, el Jefe del departamento solicitante del bien y servicio anotará su nombre, firma, número de cédula y sello de oficina en la parte posterior de la factura comercial o bien en el reverso de una copia del Pedido de Compra si fuera necesario.

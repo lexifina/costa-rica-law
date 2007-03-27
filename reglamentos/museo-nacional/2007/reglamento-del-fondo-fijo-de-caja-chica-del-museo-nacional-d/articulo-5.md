@@ -1,0 +1,4 @@
+Artículo 5º—Cualquier aumento, disminución, liquidación o creación de Fondos de Cajas Chica y/o Cajas auxiliares deben ser autorizados por la Junta Administrativa del Museo Nacional, fundamentado en un estudio debidamente motivado de las necesidades y estimación de los gastos a sufragar, por parte del Departamento de Administración y Finanzas. De conformidad con las disposiciones del Decreto Ejecutivo Nº 32874-H, como paso previo a esta autorización se requiere el visto bueno de la Tesorería Nacional.
+(Nota de Sinalevi: La Junta Administrativa del Museo Nacional de Costa Rica, en sus sesiones ordinarias Nº 1063, y Nº 1065 celebradas el 11 de setiembre del 2009, y 25 de setiembre 2009, acordó lo siguiente:
+“…Aprobar el aumento al Fondo Fijo de Caja Chica del Museo Nacional, por un monto de ¢1.000.000,00. Acuerdo firme A-08-1063.
+Aprobar el aumento del Fondo de Caja Chica de boletería por un monto de ¢120.000 y por un monto de $150,00, Acuerdo firme A-07-1063.”)
