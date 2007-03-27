@@ -14,3 +14,4 @@ Procedimientos para la Aplicación y Seguimiento de la Política Presupuestaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-30 | la propia norma |
+| 2 | 2007-03-27 | Decreto Ejecutivo 33653 (2007-01-24) |
