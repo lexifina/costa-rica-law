@@ -1,0 +1,4 @@
+Artículo 23.—Los (as) miembros (as) del Consejo podrán interponer recurso de revisión contra los acuerdos no firmes de este. El mismo deberá ser resuelto al conocerse el acta de esa sesión, al menos que por tratarse de un asunto que el (la) presidente(a) juzgue urgente, prefiera conocerlo en sesión extraordinaria con la aprobación de la mayoría de los (as) miembros (as) presentes en esa sesión.
+El recurso de revisión deberá ser planteado en el momento de discusión del acta.
+Previo a la discusión a fondo del asunto, el (la) Presidente (a) pondrá a votación si se da curso o no a la revisión, lo cual se decidirá por simple mayoría.
+La revisión deberá concretarse para efecto de votación en una moción de derogatoria o modificación del acto de revisar, cuya aprobación requiere de la mayoría de los (as) presentes. Las simples observaciones de forma relativas de los acuerdos, no serán considerados como recursos de revisión.

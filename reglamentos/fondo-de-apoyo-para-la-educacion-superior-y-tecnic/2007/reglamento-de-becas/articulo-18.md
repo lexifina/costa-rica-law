@@ -1,0 +1,1 @@
+Artículo 18.—Asuntos no incluidos en el orden del día. Los asuntos no incluidos en el orden del día no podrán ser objeto de acuerdo, salvo que, por los dos tercios de los miembros (as) del Consejo sea declarada de urgencia. Deberá incluirse siempre un capítulo de mociones y varios.

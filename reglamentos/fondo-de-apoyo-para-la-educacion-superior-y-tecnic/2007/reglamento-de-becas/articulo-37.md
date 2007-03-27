@@ -1,0 +1,1 @@
+Artículo 37.—A el (la) becario(a) a quien se le hubiere modificado o cancelado la beca en razón de su rendimiento académico o por incumplimiento de sus obligaciones, podrá solicitar la revisión de esta después de transcurrido un periodo lectivo, siempre y cuando su rendimiento académico sea igual o superior a la nota mínima requerida para aprobar el curso.

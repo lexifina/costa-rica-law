@@ -1,0 +1,1 @@
+Artículo 15.—Quórum. El quórum para que el Consejo sesione válidamente será el de mayoría absoluta de sus componentes. Si no hubiere quórum el Consejo podrá sesionar válidamente en segunda convocatoria treinta minutos después de las sesiones, con los presentes.

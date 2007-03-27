@@ -1,0 +1,2 @@
+Artículo 35.—Cancelación de beca. FAESUTP podrá cancelar la beca de un(a) estudiante:
+Suministre información no veraz u omita información sobre la situación económica familiar o personal. En este caso el (la) estudiante no podrá disfrutar de ninguna otra beca hasta transcurridos dos años a partir del conocimiento de los hechos. Asimismo el estudiante deberá rembolsar a FAESUTP el monto recibido por concepto de la beca otorgada en los anteriores términos.

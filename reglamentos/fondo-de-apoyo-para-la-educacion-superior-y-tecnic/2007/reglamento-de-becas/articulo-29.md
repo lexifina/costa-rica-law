@@ -1,0 +1,1 @@
+Artículo 29.—Duración y fecha en que rige la beca. Las becas que otorga FAESUTP a la población estudiantil de escasos recursos que residan en los distritos más vulnerables y pobres de la provincia de Puntarenas, determinado por MEDIPLAN, tendrán una vigencia por el período de la acción formativa y regirá a partir de la fecha de inicio de la acción formativa.

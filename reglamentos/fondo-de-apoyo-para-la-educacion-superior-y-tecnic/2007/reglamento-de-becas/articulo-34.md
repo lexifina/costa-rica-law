@@ -1,0 +1,1 @@
+Artículo 34.—Sobre la derogatoria. Cuando se presente debidamente certificado juramentación sobre casos fortuitos o enfermedad por pérdida de cursos o asignaturas, el Consejo Directivo resolverá la exención del artículo anterior.

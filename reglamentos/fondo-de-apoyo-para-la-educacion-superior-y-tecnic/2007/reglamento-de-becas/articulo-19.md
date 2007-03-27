@@ -1,0 +1,1 @@
+Artículo 19.—Obligaciones de votar. Los miembros del Consejo votarán afirmativa o negativamente, no pudiendo abstenerse de hacerlo, salvo que exista motivo que lo impida conocer el asunto. No obstante por decisión de la mayoría, el (la) presidente(a) podrá postergar la votación, por una sola vez, para realizarla en sesión posterior.

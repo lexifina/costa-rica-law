@@ -1,0 +1,1 @@
+Artículo 16.—Naturaleza de las sesiones. Las sesiones del Consejo serán siempre privadas. No obstante por unanimidad de los miembros presentes podrá acordarse de que tenga acceso a ella el público general o bien ciertas personas concediéndoles o no el derecho a participar en las deliberaciones con voz pero sin voto.

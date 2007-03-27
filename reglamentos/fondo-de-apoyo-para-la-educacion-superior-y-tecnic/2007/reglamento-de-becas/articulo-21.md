@@ -1,0 +1,1 @@
+Artículo 21.—Votos contrarios. Los (las) integrantes del Consejo podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifique. En este caso deberán firmar el acta correspondiente.

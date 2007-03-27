@@ -1,0 +1,1 @@
+Artículo 14.—Presidencia. El Director Ejecutivo presidirá las sesiones del Consejo y en su ausencia temporal será sustituido(a) por quien designe. Si el Director Ejecutivo estuviere ausente, se nombrará un presidente Ad-hoc.

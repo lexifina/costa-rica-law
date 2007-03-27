@@ -1,0 +1,1 @@
+Artículo 9º—De las sesiones del Consejo. El Consejo Directivo sesionará ordinariamente una vez al mes y podrá reunirse extraordinariamente cuando lo crea necesario, para que la sesión sea válida se requerirá la presencia de al menos cuatro de sus miembros.
