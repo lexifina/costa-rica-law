@@ -1,0 +1,1 @@
+Transitorio único.—Los proyectos que se encuentren actualmente en espera de dictamen al momento de entrada en vigencia del presente decreto se tendrán como aprobados y podrán continuar con el trámite de aprobación legalmente establecido.
