@@ -8,9 +8,10 @@ f) MIPYME: Para todos los efectos el término MIPYME estará contenido dentro de
 g) PYME: Unidad productiva de carácter permanente que dispone de recursos físicos estables y de recursos humanos; los maneja y opera, bajo la figura de persona física o persona jurídica, en actividades industriales, comerciales o de servicios.
 La diferenciación entre micro, pequeña o mediana empresa se determinará a partir de los resultados de las siguientes fórmulas, para los sectores que se especifican:
 Para el Sector Industrial:
-P = ((0.6 x pe/100) + (0.3 x van/¢600.000.000) + (0.1 x afe/¢375.000.000)) x 100.
+P = ((0.6 x pe/100) + (0.3 x van/¢931.000.000) + (0.1 x afe/¢582.000.000)) x 100.
 Para los Sectores de Comercio y Servicios:
-P = [(0.6 x pe/30) + (0.3 x van/¢1.200.000.000) + (0.1 x ate/¢375.000.000)] x 100.
+P = [(0.6 x pe/30) + (0.3 x van/¢1.862.000.000) + (0.1 x ate/¢582.000.000)] x 100 .
+(Así reformadas las fórmulas anteriores mediante artículo 1° del decreto ejecutivo N° 33747 del 28 de marzo de 2007).
 Donde:
 P: Puntaje obtenido por la empresa.
 pe: Personal promedio empleado por la empresa durante el último período fiscal.

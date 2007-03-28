@@ -14,3 +14,4 @@ Reglamento General a la Ley N° 8262 de Fortalecimiento de las Pequeñas y Media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-22 | la propia norma |
+| 2 | 2007-03-28 | Decreto Ejecutivo 33747 (2007-03-28) |
