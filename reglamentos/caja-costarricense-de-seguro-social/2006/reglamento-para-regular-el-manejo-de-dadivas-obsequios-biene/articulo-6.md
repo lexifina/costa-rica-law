@@ -1,0 +1,1 @@
+Artículo 6º—Sobre inventario de bienes. El Departamento de Administración del Riesgo y Bienes Inmuebles realizará un inventario cada seis meses sobre los bienes remitidos para su custodia, el cual remitirá a la Auditoría Interna, para lo correspondiente.
