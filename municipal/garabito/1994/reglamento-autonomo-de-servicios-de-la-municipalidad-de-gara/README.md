@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Garabito
 | 1 | 1995-01-27 | la propia norma |
 | 2 | 2003-04-09 | Reglamento municipal 49 (2003-04-09) |
 | 3 | 2005-08-17 | Reglamento municipal 172 (2005-08-17) |
+| 4 | 2007-03-28 | Reglamento municipal 47 (2007-03-28) |
