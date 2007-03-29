@@ -1,0 +1,1 @@
+Artículo 4º—Sobre los requisitos de conocimiento complementarios y habilidades: El Proceso de Recursos Humanos deberá definir y aplicar los procedimientos de selección que garanticen el cumplimiento de los requisitos que contempla la Contraloría General de la República.

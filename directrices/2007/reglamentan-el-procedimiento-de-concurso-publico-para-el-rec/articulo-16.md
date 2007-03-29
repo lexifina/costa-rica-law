@@ -1,0 +1,2 @@
+Artículo 16.—Sobre las funciones del Auditor y Subauditor Interno:
+Mientras no se hayan definido y aprobado formalmente las clases de Auditor y Subauditor Interno dentro de los manuales institucionales del Sistema de Emergencias 9-1-1, las funciones, deberes y obligaciones de estos funcionarios se regirán por las disposiciones que emita la Contraloría General de la República.

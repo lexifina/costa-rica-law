@@ -1,0 +1,1 @@
+Artículo 14.—Sobre la vigencia del Registro de Elegibles. El Registro de Elegibles se mantendrá vigente mientras no exista variación sustancial en los requisitos u otras condiciones en relación con las que dieron origen al concurso público con el que se constituyó dicho registro.

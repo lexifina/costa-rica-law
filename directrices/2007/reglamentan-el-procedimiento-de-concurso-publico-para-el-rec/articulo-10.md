@@ -1,0 +1,2 @@
+Artículo 10.—Sobre la conformación de la nómina y la selección:
+Para la selección definitiva, el Proceso de Recursos Humanos conformará una nómina con las seis personas que hayan obtenido las calificaciones más altas entre los elegibles, la cual remitirá al Director quien escogerá en forma definitiva al Auditor, una vez entrevistados cada uno de los candidatos. Si de los seis candidatos, uno o más no aceptan el puesto, el Director podrá solicitar que se le remitan los siguientes candidatos elegibles en orden de calificación, a efecto de tener más criterio para la selección.

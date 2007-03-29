@@ -1,0 +1,1 @@
+Artículo 12.—De la comunicación del nombramiento: De conformidad con el artículo 31 de la Ley 8292 el Director Comunicará a la Contraloría General de la República el nombramiento resultante a más tardar el primer día hábil del inicio de las funciones del Auditor Interno en su respectivo cargo.
