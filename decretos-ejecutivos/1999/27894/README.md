@@ -15,3 +15,4 @@ Reglamento a la Ley General sobre el VIH-SIDA
 | --- | --- | --- |
 | 1 | 1999-06-15 | la propia norma |
 | 2 | 2003-11-17 | Decreto Ejecutivo 31577 (2003-11-17) |
+| 3 | 2007-03-29 | Decreto Ejecutivo 33746 (2007-03-29) |
