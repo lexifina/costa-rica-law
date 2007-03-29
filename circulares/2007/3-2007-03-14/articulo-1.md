@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+G/Nº 183-2007
+Entes participantes en el mercado cambiario nacional
+Considerando:
+1º—Que el 17 de octubre del 2006, entró a regir el régimen cambiarlo de bandas en sustitución del sistema de minidevaluaciones.
+2º—Que es de un deber y función esencial del Banco Central el manejo de la política cambiaria del país, según lo establecido por su Ley Orgánica.
+3º—Que es deber de las entidades participantes en el mercado cambiario el acatar las disposiciones establecidas por el Banco Central de Costa Rica en su condición de Ente Rector del Sistema Financiero Nacional, conforme a lo establecido por su Ley Orgánica.
+4º—Que hemos detectado que algunos puestos de bolsa participantes en el mercado cambiario podrían no estar cumpliendo a cabalidad con algunas de las disposiciones establecidas en el Reglamento de Operaciones Cambiarias de Contado y en el Instructivo para Suministrar Información de Operaciones Cambiarias al Banco Central de Costa Rica.
+5º—En cumplimiento de nuestro deber de velar por la estabilidad interna y externa de la moneda nacional, hemos decidido recordar a los puestos de bolsa participantes en el mercado cambiario nacional los parámetros dentro de los cuales se les permite participar en dicho mercado, las responsabilidades que implica esa participación; así como las consecuencias sobrevinientes a su incumplimiento, conforme al ordenamiento jurídico vigente.
+Por tanto, se emite la presente circular dirigida a todos los puestos de bolsa participantes del mercado cambiario nacional:
+CIRCULAR Nº 3
+Recordatorio de los parámetros a los que se encuentran sujetos los puestos de bolsa participantes en el mercado cambiario y las eventuales sanciones por incumplimiento:
+1º—El Reglamento de Operaciones Cambiarias de Contado establece el parámetro de participación de los puestos de bolsa en el mercado cambiario, en los siguientes términos:
+“Artículo 12.—Objetivo. El presente capítulo tiene como objeto regular el funcionamiento y establecer los requisitos que deben cumplir los Puestos de Bolsa, con base en lo establecido en la Ley y en este Reglamento.
+Los Puestos de Bolsa que sean debidamente autorizados por el Banco Central para operar en el mercado cambiario podrán realizar operaciones de compra y de venta al contado de monedas extranjeras en billetes, giros bancarios, cheques, transferencias desde y hacia el exterior del país y otros instrumentos de pago, solo por encargo de terceros.” (la negrita y el subrayado no pretenecen al original).
+Tal disposición implica que los puestos de bolsa no pueden actuar directamente como contrapartes en operaciones que realicen para sus clientes, dado que en esta materia únicamente pueden actuar por cuenta de éstos; caso contrario se estaría en presencia de una actividad de intermediación cambiaria, la cual no es permitida a los puestos de bolsa de conformidad con el Reglamento de Operaciones Cambiarias de Contado.”
+2º—Se les recuerda que ante toda operación cambiaria que realice un puesto de bolsa en la que se detecte la actividad de intermediación cambiaria, el Banco Central de Costa Rica procederá a presentar la denuncia ante la Superintendencia General de Valores (SUGEVAL), para que ésta ejerza la fiscalización a que está llamada conforme a la Ley Reguladora del Mercado de Valores y el artículo 14 del Reglamento para las Operaciones Cambiarias de Contado que literalmente dice:
+“Artículo 14.—Fiscalización. La SUGEVAL fiscalizará las operaciones cambiarias de los Puestos de Bolsa y verificará que cada uno cumpla con las disposiciones establecidas en el presente Reglamento. Para tal efecto realizará las inspecciones que considere oportunas, así como requerir todos los informes que sean necesarios.”
+3º—Asimismo, es procedente y oportuno recordar que el incumplimiento de las disposiciones supra citadas, así como las de cualquiera de las normas dispuestas en materia cambiaria, pueden acarrear sanciones aplicables a los sujetos incumplientes, conforme a lo establecido por el Reglamento para las Operaciones Cambiarias de Contado y la Ley Orgánica del Banco Central de Costa Rica en su artículo 93 incisos a), b) y c) que literalmente dicen:
+“a) Por violaciones reglamentarias, amonestación escrita.
+b) En caso de reincidencia en faltas al reglamento en un período de un año o por violaciones legales, se suspenderá la participación del ente en el mercado cambiario por el término de uno a treinta días.
+c) En caso de más de tres violaciones a la ley en un período de dos años, se cancelará la autorización de participar en el mercado cambiario por un plazo de dos años.” (el resaltado no es del original) Todo ello sin perjuicio de lo establecido por el artículo 157 inciso 1) de la Ley Reguladora del Mercado de Valores, así como de los artículos 18 a 21 del Reglamento de Operaciones Cambiarias de Contado.
+Es todo.
+Notifíquese y publíquese.—Dado en San José, a las quince horas del catorce de marzo del dos mil siete.
