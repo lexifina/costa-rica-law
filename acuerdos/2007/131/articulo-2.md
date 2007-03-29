@@ -1,0 +1,2 @@
+Artículo 2º—Adiciones. Se adiciona un transitorio XI al artículo 12 del Acuerdo, el cual se leerá como sigue:
+“Transitorio XI.—Las modificaciones a la publicación de estados financieros auditados, según lo dispuesto en el artículo 8 de este Acuerdo, entrarán a regir para la información financiera con corte al 31 de diciembre del 2006. La publicación de la información financiera intermedia trimestral se deberá realizar a partir de la información con corte al 31 de marzo del 2007.”
