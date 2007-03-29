@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección General de Servicio Civil velará por el cumplimiento de este Decreto Ejecutivo y mantendrá la coordinación debida con las Oficinas de Recursos Humanos y las Unidades de Capacitación, a fin de asesorar y suministrar materiales e información de utilidad para estos propósitos.
