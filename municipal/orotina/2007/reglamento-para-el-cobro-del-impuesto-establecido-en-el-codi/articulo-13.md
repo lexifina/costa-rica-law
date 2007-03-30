@@ -1,0 +1,1 @@
+Artículo 13.—Derogatoria. El presente Reglamento deroga cualquier otra Disposición Municipal que se le oponga. Toda modificación total o parcial de este Reglamento deberá ser publicada en el Diario Oficial para su vigencia.

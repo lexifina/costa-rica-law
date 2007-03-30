@@ -1,0 +1,5 @@
+Artículo 2º—Definiciones. Para efectos del presente reglamento se tienen las siguientes definiciones:
+Administración tributaria: Dependencia administrativa de la Municipalidad de Orotina, encargada de planear, organizar, coordinar, ejecutar y controlar el proceso tributario municipal.
+Base imponible: constituye la base imponible para la determinación de este impuesto, el valor total, a precio de mercado, del material acumulado o extraído de la cantera, tajo o cauce de dominio público autorizado, sea este material arena, piedra, lastre o cualquier derivado de ellos.
+Contribuyentes: serán contribuyentes, para los efectos del impuesto establecido en el Código de Minería, las personas físicas o jurídicas, de hecho o de derecho, públicas o privadas, que se dediquen a la explotación de tajos, canteras o cauces de dominio público en la jurisdicción del cantón de Orotina, y además, que cumplan con todos los requisitos legales que la normativa establece para el ejercicio de tal actividad.
+Municipalidad: La Municipalidad de Orotina.
