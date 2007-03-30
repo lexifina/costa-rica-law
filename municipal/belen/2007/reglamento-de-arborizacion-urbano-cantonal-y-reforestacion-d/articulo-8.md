@@ -1,0 +1,1 @@
+Artículo 8º—Ubicación respecto a los linderos. Los especímenes que alcancen una altura inferior a los tres metros en su madurez, deberán ser plantados a una distancia mínima de dos metros de las colindancias de la propiedad, mientras que aquellos que alcancen una altura superior a los tres metros deberán ser plantados a una distancia mínima de cinco metros de las colindancias.
