@@ -1,0 +1,1 @@
+Artículo 12.—Vigencia. El presente Reglamento fue aprobado por la Junta Directiva General del Banco Crédito Agrícola de Cartago en la sesión N° 8018/07, artículo 17, celebrada el 13 de marzo del 2007, y rige a partir de su publicación en el Diario Oficial La Gaceta.

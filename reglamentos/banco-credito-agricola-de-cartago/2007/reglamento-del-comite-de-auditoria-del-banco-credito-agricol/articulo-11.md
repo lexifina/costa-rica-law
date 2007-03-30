@@ -1,0 +1,1 @@
+Artículo 11.—Libro de Actas. Los acuerdos que se tomen en las sesiones, deberán constar en un Libro de Actas, el cual debe estar a disposición de la Superintendencia respectiva y ajustarse a sus directrices. Podrá ser llevado en forma electrónica, previa autorización.

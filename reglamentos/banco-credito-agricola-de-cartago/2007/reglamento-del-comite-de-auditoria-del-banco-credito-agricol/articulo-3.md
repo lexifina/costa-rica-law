@@ -1,0 +1,2 @@
+Artículo 3º—Alcance: Para efectos de este Reglamento, se entiende como Banco Crédito Agrícola de Cartago, el Banco y sus subsidiarias creadas o que se llegaran a crear en el futuro.
+Funcionará como un órgano de apoyo para el control y seguimiento de las políticas, controles y procedimientos que se establezcan tanto en el Banco como en sus subsidiarias y será un canal directo de comunicación entre las Juntas Directivas, Administraciones Superiores, Auditorías Internas y Auditores Externos.
