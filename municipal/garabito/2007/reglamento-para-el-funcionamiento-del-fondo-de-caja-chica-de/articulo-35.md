@@ -1,0 +1,1 @@
+Artículo 35.—No se tramitarán por medio de los sistemas convencionales de compra que existan en la Municipalidad, según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de Contratación Administrativa.

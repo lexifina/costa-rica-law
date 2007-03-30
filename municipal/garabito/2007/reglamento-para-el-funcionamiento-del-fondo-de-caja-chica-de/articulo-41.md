@@ -1,0 +1,1 @@
+Artículo 41.—Ningún funcionario de la Municipalidad, con excepción del Tesorero Municipal, quien tendrá en custodia los fondos de caja chica, podrá mantener en su poder de caja chica por más de tres días.
