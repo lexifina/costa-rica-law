@@ -1,0 +1,1 @@
+Artículo 49.—Para el otorgamiento del incentivo definido en el artículo anterior es requisito indispensable matricular al menos tres cursos en el primer ciclo que gozan de la beca y aprobar al menos tres cursos de la carrera para continuar gozando de la beca.

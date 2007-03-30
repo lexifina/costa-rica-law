@@ -1,0 +1,1 @@
+Artículo 39.—La beca de ingreso por excelencia académica consiste en la exoneración total del pago de materias durante el primer cuatrimestre de carrera, a los estudiantes que culminaron su secundaria en el año lectivo inmediato anterior, con un promedio de presentación a las pruebas de Bachillerato igual o superior a 9.

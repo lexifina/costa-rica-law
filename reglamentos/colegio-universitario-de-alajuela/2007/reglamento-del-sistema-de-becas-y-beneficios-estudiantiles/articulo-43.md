@@ -1,0 +1,1 @@
+Artículo 43.—El estudiante tramitará ante el Departamento de Registro la solicitud de beca por excelencia académica una vez finalizado el cuatrimestre. El Departamento de Registro emitirá un certificado al estudiante y notificará al Departamento de Bienestar Estudiantil para su aplicación.

@@ -1,0 +1,1 @@
+Artículo 5º—El gozo de un tipo de beca por parte del estudiante, no lo excluye del gozo de otros beneficios aquí establecidos. Un estudiante que matricule dos carreras en forma simultánea, puede optar por diferentes tipos de beca para cada una de las carreras, siempre y cuando cumpla con los requisitos establecidos.

@@ -1,0 +1,1 @@
+Artículo 35.—El Departamento de Bienestar Estudiantil establecerá los períodos y los procedimientos administrativos y técnicos para la recepción de solicitudes y la adjudicación de las becas por zona o colegio de procedencia.

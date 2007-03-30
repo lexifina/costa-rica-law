@@ -1,0 +1,1 @@
+Artículo 34.—La postulación de los candidatos que pueden ser favorecidos con las becas indicadas en el artículo anterior, se realizará al Departamento de Bienestar Estudiantil por recomendación directa de la institución educativa de la que proviene el estudiante ya sea a través del orientador del colegio o el director.

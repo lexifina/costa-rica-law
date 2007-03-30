@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del financiamiento del sistema de becas
+Artículo 11.—Los ingresos que deriven de la cuota de Bienestar Estudiantil, deberán ser destinados en un 70% para cubrir el fondo de ayudas económicas y otros beneficios que otorga el sistema de becas, y el 30% restante a la Asociación de Estudiantes reconocida por la institución, siempre y cuando mantenga la personería jurídica al día. En caso de que esto último no se cumpla, este 30% pasará a ser un fondo adicional al presupuestado, destinado al financiamiento del fondo de Ayudas Económicas y de otros beneficios complementarios del programa de becas.

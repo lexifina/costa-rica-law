@@ -1,0 +1,2 @@
+Disposiciones generales
+Artículo 3º—Todo candidato a ingresar al Colegio Universitario de Alajuela o estudiante regular de la institución tendrá derecho a realizar solicitud de beca de acuerdo con los requisitos establecidos en este Reglamento y a los procedimientos y plazos definidos para ese efecto por las dependencias correspondientes. El otorgamiento de las becas y de los beneficios aquí estipulados a los estudiantes de carreras de modalidad autofinanciada no afectará la sostenibilidad financiera y presupuestaria de la carrera correspondiente.

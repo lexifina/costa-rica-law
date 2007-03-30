@@ -1,0 +1,1 @@
+Artículo 30.—El Departamento de Bienestar Estudiantil se encargará de los trámites administrativos y procedimientos técnicos establecidos para el estudio de las solicitudes de beca socioeconómica y será el responsable de su adjudicación con base en la recomendación y los estudios técnicos de trabajo social que corresponda.

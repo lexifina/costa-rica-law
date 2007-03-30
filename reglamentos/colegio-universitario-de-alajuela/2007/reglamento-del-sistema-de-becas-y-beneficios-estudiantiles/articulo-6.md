@@ -1,0 +1,1 @@
+Artículo 6º—El estudiante que por incumplimiento de alguno de los requisitos estipulados en el presente Reglamento pierda el beneficio de la beca, puede solicitar su reactivación ante el Departamento de Bienestar Estudiantil una vez que recupere las condiciones requeridas.

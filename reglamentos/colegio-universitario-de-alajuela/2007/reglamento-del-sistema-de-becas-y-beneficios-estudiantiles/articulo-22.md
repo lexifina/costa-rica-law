@@ -1,0 +1,1 @@
+Artículo 22.—Las categorías de beca socioeconómica 4 y 5 podrían gozar según sea la situación del estudiante, de algunos beneficios adicionales tales como acceso al material bibliográfico y equipo tecnológico de la institución, subsidio para la compra de alimentos en la soda de la institución, servicios de salud y otros que en el futuro pueda contemplar este Reglamento.

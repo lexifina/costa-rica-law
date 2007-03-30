@@ -1,0 +1,1 @@
+Artículo 42.—El Premio CUNA se otorga al estudiante que obtenga notas iguales o superiores a 9 en cada una de las materias, durante tres cuatrimestres consecutivos habiendo matriculado el bloque completo de materias o las condiciones estipuladas para obtener Beca de Honor.

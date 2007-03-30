@@ -1,0 +1,1 @@
+Artículo 20.—La beca socioeconómica se concede para el estudio de una sola carrera. Si un estudiante decide cambiar de carrera, la beca seguirá rigiendo para esta segunda carrera. A partir de un segundo cambio de carrera se anula la concesión de beca socioeconómica.

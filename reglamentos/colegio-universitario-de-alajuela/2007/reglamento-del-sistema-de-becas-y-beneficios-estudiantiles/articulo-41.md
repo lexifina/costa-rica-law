@@ -1,0 +1,1 @@
+Artículo 41.—El Premio CUNA consiste en la exoneración total del pago de materias durante tres cuatrimestres consecutivos, a partir del cuatrimestre inmediato posterior al cumplimiento de los requisitos por parte del estudiante.

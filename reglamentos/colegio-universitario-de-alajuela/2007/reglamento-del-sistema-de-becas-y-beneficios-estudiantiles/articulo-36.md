@@ -1,0 +1,1 @@
+Artículo 36.—Las becas se distribuirán progresivamente, dando prioridad al cantón con menor Índice de Desarrollo Social y de acuerdo con ese criterio se continúa con los siguientes cantones y colegios.
