@@ -1,0 +1,1 @@
+Artículo 28.—De la Vigencia de la precalificación de idoneidad emitida por la Administración concedente. La precalificación de idoneidad otorgada por la Municipalidad de Belén, será vigente hasta tanto la Contraloría General de la República, resuelva otorgar o no la calificación de idoneidad requerida al sujeto privado requirente.
