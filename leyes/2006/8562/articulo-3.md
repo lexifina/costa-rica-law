@@ -29,3 +29,4 @@ Se autoriza a la Asamblea Legislativa a nombrar personal sustituto cuando el per
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a La Gaceta N° 250 del 29 de diciembre de 2006.
 (Modificado por el artículo 1° del decreto ejecutivo N° 33533 del 17 de enero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33574 del 2 de febrero de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33666 del 12 de marzo de 2007)
