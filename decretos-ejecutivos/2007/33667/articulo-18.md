@@ -1,0 +1,1 @@
+Artículo 18.—Los incisos b) y d) del artículo anterior de estos Procedimientos, también serán aplicables a los puestos de confianza de los Ministerios, contenidos en el inciso f) artículo 4 del Estatuto de Servicio Civil.
