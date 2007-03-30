@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los Certificados Digitales y las Firmas Digitales
+Artículo 8º—Implementación de los Certificados Digitales y Firmas Digitales. Las directrices acerca de los trámites en los que como administración activa o función fiscalizadora pueden ser utilizados estos u otros medios electrónicos, serán definidos para cada tipo de proceso por parte de la Contralora General, de lo cual se publicará un aviso en el Diario Oficial La Gaceta. Por lo tanto, en ausencia de dichas directrices se entiende que se continuarán utilizando los medios de firma manuscrita para todo efecto legal. Lo anterior, a efecto de verificar en cada caso que existen las condiciones técnicas y administrativas para su debida gestión.

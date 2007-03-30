@@ -1,0 +1,4 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento se aplicará a:
+a) Los funcionarios o unidades internas de la Contraloría General de la República, para los efectos y conforme a los procedimientos que en su oportunidad se emitan;
+b) Los distintos sujetos pasivos de la fiscalización de la Contraloría General de la República, siempre y cuando voluntariamente suscriban el servicio de acuerdo con los términos contenidos en el Formulario de Suscripción para el Uso de Certificados Digitales, así como a las disposiciones del presente Reglamento.
+c) Proveedores y otros usuarios o interesados en tener transacciones y trámites electrónicos con la Contraloría General de la República, siempre y cuando voluntariamente suscriban el el servicio de acuerdo con los términos contenidos en el Formulario de Suscripción para el Uso de Certificados Digitales, así como a las disposiciones del presente Reglamento.

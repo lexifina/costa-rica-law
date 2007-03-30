@@ -1,0 +1,1 @@
+Artículo 9º—Uso de Certificados Digitales para sujetos pasivos y proveedores. La relación entre la Contraloría General y el Suscriptor de ese certificado, se rige por lo establecido en el presente Reglamento y los términos del Formulario de Suscripción para el Uso de Certificados Digitales y demás normativa vigente.
