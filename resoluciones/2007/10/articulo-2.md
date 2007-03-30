@@ -1,0 +1,1 @@
+II.—Lo establecido en las presentes directrices es de carácter vinculante para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, asimismo, prevalecerá sobre cualquier disposición que en contrario emitan o hayan emitido los sujetos pasivos.

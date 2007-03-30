@@ -1,0 +1,1 @@
+III.—Es responsabilidad de los respectivos jerarcas el efectivo cumplimiento de estas Directrices, en lo que les corresponda. Los funcionarios responsables que las incumplan injustificadamente estarán sujetos a los regímenes de responsabilidades y sanciones establecidas en la normativa jurídica vigente.
