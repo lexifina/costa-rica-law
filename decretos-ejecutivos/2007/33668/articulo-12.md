@@ -1,0 +1,1 @@
+Artículo 12.—Los ministerios, las entidades públicas y demás órganos, deberán remitir a la Dirección de Crédito Público informes de seguimiento semestral sobre el avance físico, financiero y de saldos, de los proyectos en ejecución financiados con recursos externos e internos, con base en los requerimientos que establezca la Dirección de Crédito Público.
