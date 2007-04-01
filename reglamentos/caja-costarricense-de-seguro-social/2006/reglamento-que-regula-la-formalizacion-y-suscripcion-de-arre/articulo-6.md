@@ -1,0 +1,2 @@
+Artículo 6º—De la revisión de las tasas de interés. Los arreglos de pago podrán suscribirse en colones o en dólares, moneda de curso legal de Estados Unidos de América, según el tipo de cambio de compra de referencia del Banco Central de Costa Rica.
+Corresponderá a la Gerencia de la División Financiera revisar y ajustar las tasas de interés de arreglos de pago tomando en consideración la tasa básica pasiva, la tasa activa y las tasas internacionales según corresponda. Serán revisadas semestralmente y se informará a la Junta Directiva los ajustes que se realicen.
