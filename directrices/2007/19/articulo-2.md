@@ -1,0 +1,1 @@
+2º—El cálculo del subsidio por incapacidad que corresponde al pago del Salario Escolar que experimente un(a) servidor(a) público(a), se realizará en el mes siguiente al que esté calendarizado el pago de dicho salario, mes en que además la Caja Costarricense de Seguro Social recibe los correspondientes aportes patronales y obreros por ese concepto.
