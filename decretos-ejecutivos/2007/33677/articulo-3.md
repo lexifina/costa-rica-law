@@ -1,0 +1,9 @@
+Artículo 3º—Lineamientos generales del Programa para las entidades ejecutoras.
+1. La población beneficiaria deberá estar calificada en condición de pobreza, vulnerabilidad, riesgo o exclusión social, de conformidad con los criterios e instrumentos de selección de las entidades ejecutoras.
+2. La incorporación de los/las beneficiarios al programa exige la matrícula en el sistema educativo formal en secundaria, en cualquiera de sus modalidades. Para estimular el rendimiento educativo, los/ as estudiantes incorporados al Programa Avancemos sólo podrán repetir, por una única vez, un nivel educativo. Este último requisito rige a partir del 2008 y no será aplicable al FONABE, que deberá ajustarse a las disposiciones legales que le regulan.
+3. Las familias, en tanto corresponsables del Programa, deberán suscribir un documento mediante el cual adquieren al menos los siguientes compromisos, como requisito para tener acceso a los beneficios del Programa:
+a) Apoyar y asegurar la asistencia puntual y permanente de quienes estudian en el centro educativo.
+b) Apoyar a quienes estudian para que aprueben el curso lectivo.
+4. Para efectos del control de la emisión del pago de las transferencias, el MEP informará a la Secretaría Técnica y a las entidades ejecutoras, de manera regular y oportuna, el incumplimiento de la asistencia y la lista de los reprobados de la población beneficiaria del Programa Avancemos.
+5. Las familias no podrán recibir la transferencia correspondiente a un mismo estudiante incorporado al Programa Avancemos por parte de ambas entidades ejecutoras (IMAS y FONABE), para lo cual establecerán adecuados mecanismos de coordinación para evitar esta duplicación.
+6. No hay límite para la cantidad de estudiantes que una familia postule para el Programa Avancemos, en tanto se cumpla con los requisitos establecidos. Sin embargo, se establece un tope máximo de ochenta mil colones por familia beneficiaria del Programa Avancemos.

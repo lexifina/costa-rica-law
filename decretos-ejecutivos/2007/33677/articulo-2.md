@@ -1,0 +1,2 @@
+Artículo 2º—Entidades ejecutoras del componente de transferencia monetaria. Se define al IMAS y al FONABE como las entidades ejecutoras del componente de transferencia monetaria.
+El MEP es la entidad responsable de la comprobación del cumplimiento de las condicionalidades relacionadas con el sistema educativo, en concreto, de dar seguimiento a los requisitos de asistencia y rendimiento, e informar al respecto oportuna y periódicamente a la Secretaría Técnica y a las entidades ejecutoras del Programa.

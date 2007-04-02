@@ -1,0 +1,1 @@
+Artículo 6º—Del financiamiento. El Programa será financiado mediante recursos provenientes del Presupuesto Nacional, del Fondo de Desarrollo de Asignaciones Familiares (FODESAF), del MEP, del IMAS, de FONABE, así como de otros aportes de entidades nacionales e internacionales.
