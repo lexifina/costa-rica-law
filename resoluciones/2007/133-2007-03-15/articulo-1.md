@@ -1,4 +1,6 @@
+(Suspendida)
 DIRECCIÓN GENERAL DE ADUANAS
+(Mediante resolución RES-DGA-152 del 22 de marzo de 2007, se suspende hasta nuevo aviso el contenido de esta resolución referente a la implementación del sistema de tránsito aduanero en el marco del Sistema de Información para el Control Aduanero TICA.)
 RES-DGA-133-2007.—Dirección General de Aduanas.—San José, a las nueve horas del día quince de marzo del dos mil siete.
 Considerando:
 I.—Que es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
