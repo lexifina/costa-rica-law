@@ -1,0 +1,1 @@
+Artículo 6º—Representación ante el Sistema Nacional de Evaluación (SINE). El jefe del Departamento de Planificación Institucional será el responsable ante el SINE, según lo establece la Ley Nº 5525 del 2 de mayo de 1974.

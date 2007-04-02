@@ -1,0 +1,3 @@
+Artículo 7º—De la acumulación de datos e información técnica. Para cumplir con sus funciones según el artículo número 8, el Departamento de Planificación Institucional deberá acumular datos e información técnica, generada por las demás Unidades funcionales del INCOP.
+Las Unidades funcionales deberán brindar la información que solicite la Unidad de Planificación Institucional, en los formatos que ésta establezca.
+La Gerencia General deberá girar instrucciones para que la Dirección de Planeación Institucional reciba un ejemplar de cada revista o publicación suscrita por el Instituto, así como de memorias, anuarios y reportes que se reciban, relacionadas con la gestión institucional.

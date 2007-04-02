@@ -1,0 +1,2 @@
+Artículo 3º—De la Dirección Técnica. La jefatura del Departamento de Planificación Institucional la ejercerá un funcionario(a), capacitado para el puesto, versado en la explotación y planificación de puertos, familiarizado en el ámbito profesional y técnico con la organización portuaria del país y el sistema de planificación nacional.
+Contará esta Unidad de trabajo con un equipo profesional y técnico multidisciplinario, adecuado para el cumplimiento de sus funciones.

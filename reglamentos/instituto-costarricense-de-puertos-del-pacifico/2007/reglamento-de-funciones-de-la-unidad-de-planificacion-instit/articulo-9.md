@@ -1,0 +1,1 @@
+Artículo 9º—Del establecimiento de labores, actividades y procedimientos internos. La Jefatura del Departamento de Planificación Institucional, establecerá los procedimientos internos de trabajo de esta Unidad, así como también, la programación de actividades o labores a desarrollar, sobre lo cual mantendrá continuamente informado al Presidente Ejecutivo.
