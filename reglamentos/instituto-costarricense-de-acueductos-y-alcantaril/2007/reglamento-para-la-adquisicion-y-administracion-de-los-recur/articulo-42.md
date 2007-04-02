@@ -1,0 +1,1 @@
+Artículo 42.—Verificación de instalaciones. Corresponde a la Dirección de Tecnologías de información realizar inspecciones periódicas para verificar las instalaciones y medidas de seguridad donde se encuentran ubicados los recursos informáticos.

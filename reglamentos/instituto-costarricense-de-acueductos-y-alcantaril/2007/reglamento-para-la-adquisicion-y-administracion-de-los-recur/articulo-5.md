@@ -1,0 +1,1 @@
+Artículo 5º—Protección del medio ambiente y ahorro energético. En todas las actividades relacionadas con la administración de los recursos informáticos, se deben implementar las acciones que correspondan para proteger el medio ambiente y a las normativas de ahorro energético.

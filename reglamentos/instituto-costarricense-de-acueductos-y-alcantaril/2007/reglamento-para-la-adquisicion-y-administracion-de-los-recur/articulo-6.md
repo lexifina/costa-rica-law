@@ -1,0 +1,1 @@
+Artículo 6º—Régimen jurídico. La actividad de adquisición y administración de recursos informáticos se rige por las normas y principios del ordenamiento jurídico administrativo costarricense, y por las directrices y aprobaciones de las instancias superiores de AyA.

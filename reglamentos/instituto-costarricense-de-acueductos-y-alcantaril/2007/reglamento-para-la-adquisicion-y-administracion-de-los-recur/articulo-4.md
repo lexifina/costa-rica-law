@@ -1,0 +1,1 @@
+Artículo 4º—Información oficial. Los funcionarios usuarios, deberán conservar y resguardar bajo su más estricta responsabilidad la información oficial que contengan en sus archivos electrónicos, estando obligados a ponerla a disposición de las instancias que legalmente están establecidas para los funcionarios públicos o terceros contratados por el Estado.

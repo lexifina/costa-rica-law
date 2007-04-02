@@ -1,0 +1,1 @@
+Artículo 19.—Equipo y telecomunicaciones. La infraestructura de tecnologías de información y telecomunicaciones debe ser operada por personal capacitado y autorizado por la Dirección de Tecnologías de Información. Esta operación puede ser realizada por personal de AyA o por terceros según las estrategias de gestión de la tecnología de información de AyA.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Regulación a empresas de servicios en materia de TICs
+Artículo 49.—Regulación a empresas que ofrezcan servicios de cualquier naturaleza en materia de TI y telecomunicaciones. Las empresas que contraten servicios informáticos bajo cualquier modalidad con AyA, deberán someterse a los alcances y regulaciones establecidas en la Ley General de Control Interno, a los principios y normas que en materia de control interno emita la Contraloría General de la República, a las establecidas en este Reglamento, en materia de TI, y a las que sean fijadas en cláusulas referentes a esta materia, en todo contrato de servicios informáticos que se suscriba.

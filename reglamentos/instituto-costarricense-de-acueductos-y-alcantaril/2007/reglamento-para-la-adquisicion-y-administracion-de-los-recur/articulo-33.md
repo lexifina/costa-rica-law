@@ -1,0 +1,1 @@
+Artículo 33.—Uso de servicios de Internet y correo. Los servicios de Internet y correo electrónico son exclusivos para propósitos oficiales y otorgados a los funcionarios cuyas actividades sustantivas justifiquen su uso como herramienta de trabajo.

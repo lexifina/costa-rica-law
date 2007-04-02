@@ -1,0 +1,3 @@
+Artículo 12.—Partes sustituidas. Los componentes o software sustituidos que no puedan ser reutilizados, deben ser entregados en las instalaciones de Almacenes o en el lugar asignado para su almacenaje, previa revisión y aval de los analistas de soporte técnico. En todos los casos se debe hacer entrega de los componentes que fueron reemplazados, actualizando, el analista de Soporte, el inventario de recursos tecnológicos.
+Para la entrega de los componentes en Almacenes o lugar asignado se deben seguir los procedimientos institucionales establecidos.
+En caso de que la parte o software sustituidos sean reutilizables estos deben ser incluidos en el inventario de stock de partes/repuestos para su posterior utilización.

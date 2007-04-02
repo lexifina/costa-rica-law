@@ -1,0 +1,1 @@
+Artículo 23.—Reproducción de software. Se prohíbe la reproducción parcial o total del software propiedad de la Institución o de aquel sobre el cual el AyA tiene derechos de licenciamiento, para uso interno o con fines particulares.
