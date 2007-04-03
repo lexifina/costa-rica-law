@@ -14,3 +14,4 @@ Reglamento de Tesorería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-21 | la propia norma |
+| 2 | 2007-04-03 | Reglamento 3412 (2007-04-03) |
