@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión atenderá los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que la presidencia del Concejo Municipal en forma expresa, fije un término menor o superior, de acuerdo con el inciso G del artículo 34 del Código Municipal.
