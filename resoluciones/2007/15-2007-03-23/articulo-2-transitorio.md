@@ -1,0 +1,1 @@
+2. Las auditorías que estén realizando la autoevaluación anual de calidad a la fecha de publicación de estas Directrices, deberán verificar que se consideren los tópicos indicados en la presente normativa; de no ser así, deberán realizar los ajustes pertinentes.

@@ -1,0 +1,6 @@
+3. Las auditorías que se encuentren en alguna de las condiciones que se indican a continuación no estarán obligadas a realizar la autoevaluación al 15 de junio de 2007, pero deberán concluirla, a más tardar, a1 15 de diciembre de 2007:
+a. Las auditorías internas que hayan efectuado una autoevaluación durante el segundo semestre de 2006 y la hayan concluido a más tardar el 30 de diciembre de ese año.
+b. Las auditorías en las cuales el auditor interno tenga menos de seis meses de estar nombrado en propiedad al 30 de marzo de 2007. Se exceptúan los siguientes casos, que sí deberán realizar la autoevaluación al 15 de junio de 2007:
+§ Cuando el mismo funcionario que haya estado nombrado como auditor interno de manera interina en la institución, sea designado como auditor en propiedad inmediatamente al vencimiento de dicho interinato, de manera que haya prestado los servicios de auditoría interna en forma continua.
+§ Cuando el auditor interno haya sido funcionario de la misma auditoría interna durante un período de un año o más, antes de ser designado auditor interno en propiedad.
+§ Cuando se haya contado con un subauditor en propiedad durante todo el período de ausencia del auditor interno o interinato del titular.
