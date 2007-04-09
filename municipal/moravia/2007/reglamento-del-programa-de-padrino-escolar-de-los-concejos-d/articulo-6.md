@@ -1,0 +1,1 @@
+Artículo 6º—La solicitud será firmada por el aspirante a Ahijado y en caso de ser menor de edad por el Encargado quien será responsable del cumplimiento de los requisitos que se estipulan en este Reglamento.

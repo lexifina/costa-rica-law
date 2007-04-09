@@ -1,0 +1,1 @@
+Artículo 2º—Este programa se financiará con recursos privados aportados voluntariamente por personas físicas o jurídicas a través de un aporte mensual que se mantendrá por el lapso de un año escolar. El monto de la beca será el mismo que se asigna a las becas estudiantiles otorgadas por la Municipalidad de Moravia.

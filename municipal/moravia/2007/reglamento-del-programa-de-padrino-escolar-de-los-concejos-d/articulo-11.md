@@ -1,0 +1,1 @@
+Artículo 11.—El Ente Regulador analizará cada solicitud y otorgará la boca a aquellas que reúnan los requisitos supraestipulados, dando prioridad a los de más escasos recursos. Se darán tantas becas como Padrinos existan. Se les notificará su aprobación a cada Ahijado y a su respectivo Padrino.

@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el Ente Regulador emita su dictamen sobre los aprobados y rechazados lo notificará a los solicitantes por medio de la Municipalidad. Cada solicitud rechazada deberá ser fundamentada y se le notificará al solicitante. Contra el rechazo no cabe ningún recurso.
