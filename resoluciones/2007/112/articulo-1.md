@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-112-2007.—Dirección General de Aduanas.—San José, a las once horas del día 12 de marzo de dos mil siete.
+Considerando:
+I.—Que es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+II.—Que de conformidad con el artículo 2 del Decreto Ejecutivo Nº 32456-H, publicado en La Gaceta Nº 138 del 18 de julio del 2005, el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, un nuevo sistema informático denominado Sistema de Información para el Control Aduanero TIC@.
+III.—Que de conformidad con el artículo 4 del Decreto Ejecutivo Nº 32456-H, antes citado, la Dirección General de Aduanas comunicará entre otros, por medios de difusión escrita, el programa de implementación por aduana del sistema informático y las modificaciones, con el fin de que los usuarios del Sistema Aduanero Nacional, en adelante “el Sistema”, tomen las previsiones del caso.
+IV.—Que en cumplimiento de las consideraciones anteriores, la Dirección General de Aduanas mediante la RES-DGA-022-2007 de fecha 18 de enero de 2007, publicada en el Diario oficial La Gaceta Nº 42 de fecha 28 de febrero del 2007, comunicó que a partir del 31 de marzo del 2007, se implementará en la Jurisdicción de la Aduana de Limón el Sistema de Información para el Control Aduanero TIC@.
+V.—Que es interés del Ministerio de Hacienda proporcionar a los Auxiliares de la Función Pública Aduanera el mayor tiempo posible para finiquitar las acciones necesarias para lograr la interconexión con el sistema TICA.
+VI.—Que en vista de que la semana prevista para la implementación del sistema TICA, se celebran las conmemoraciones religiosas de la “Semana Mayor”, que podría afectar el flujo normal de las operaciones aduaneras, se ha considerado oportuno trasladar la fecha de implementación en la aduana de Limón. Por tanto,
+Con fundamento en las consideraciones de hecho y derecho citadas, el Director General de Aduanas, comunica lo siguiente:
+1. Trasladar para el día 17 de abril de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.
+2. Comuníquese y publíquese en el Diario Oficial La Gaceta.
