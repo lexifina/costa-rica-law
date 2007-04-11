@@ -14,3 +14,4 @@ Modifica al Consejo Nacional de Vialidad, el gasto presupuestario máximo fijado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2007-04-11 | Decreto Ejecutivo 33742 (2007-04-11) |

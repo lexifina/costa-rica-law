@@ -14,4 +14,5 @@ Considerando:
 8º—Que mediante el oficio STAP CIRCULAR 0696-06 del 3 de abril del 2006, se comunicó a CONAVI el gasto presupuestario máximo fijado para el año 2007.
 9º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al CONAVI para el año 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para Consejo Nacional de Vialidad, el gasto presupuestario máximo para el año 2007, establecido en el Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 del 30 de marzo del 2006, de manera que éste no podrá exceder la suma de ¢78.000.000.000,00 (setenta y ocho mil millones de colones exactos) en ese período.
+Artículo 1º—Modifícase para Consejo Nacional de Vialidad, el gasto presupuestario máximo para el año 2007, establecido en el Decreto Ejecutivo Nº 32973-H, publicado en La Gaceta Nº 64 del 30 de marzo del 2006, de manera que éste no podrá exceder len la suma de ¢88.000.000.000,00 (ochenta y ocho mil millones de colones exactos) en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33742 del 11 de abril de 2007).
