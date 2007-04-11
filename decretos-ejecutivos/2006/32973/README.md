@@ -40,3 +40,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 25 | 2007-02-14 | Decreto Ejecutivo 33645 (2007-02-14) |
 | 26 | 2007-04-11 | Decreto Ejecutivo 33742 (2007-04-11) |
 | 27 | 2007-04-11 | Decreto Ejecutivo 33759 (2007-04-11) |
+| 28 | 2007-04-11 | Decreto Ejecutivo 33765 (2007-04-11) |
