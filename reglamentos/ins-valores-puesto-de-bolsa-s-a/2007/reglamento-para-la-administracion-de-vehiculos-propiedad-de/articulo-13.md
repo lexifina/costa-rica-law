@@ -1,0 +1,1 @@
+Artículo 13.—Responsabilidad disciplinaria. La responsabilidad disciplinaria que por infracciones al presente Reglamento y demás disposiciones indicadas en el artículo 2 del mismo pueda caber, será determinada y sancionada de conformidad con el Código de Trabajo y demás disposiciones aplicables.

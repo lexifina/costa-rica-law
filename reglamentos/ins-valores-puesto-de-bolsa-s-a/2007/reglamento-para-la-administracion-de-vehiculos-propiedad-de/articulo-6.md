@@ -1,0 +1,1 @@
+Artículo 6º—Uso permitido. Los vehículos serán utilizados únicamente en actividades propias del funcionamiento del Puesto, por lo que sólo en situaciones excepcionales, a juicio de la Gerencia, y previa suscripción del respectivo convenio, podrán facilitarse vehículos de uso administrativo a instituciones públicas.

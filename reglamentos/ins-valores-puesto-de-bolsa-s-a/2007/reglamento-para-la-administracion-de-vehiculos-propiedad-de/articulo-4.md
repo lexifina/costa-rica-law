@@ -1,0 +1,1 @@
+Artículo 4º—Inscripción y seguro. Los vehículos propiedad del Puesto deberán estar cubiertos por una póliza de seguro voluntario, además de la de seguro obligatorio para vehículos automotores, deberán además, inscribirse a nombre del Puesto, en el Registro de la Propiedad de Vehículos Automotores del Registro Público, debiendo desinscribirse los que dejen de pertenecer al Puesto.
