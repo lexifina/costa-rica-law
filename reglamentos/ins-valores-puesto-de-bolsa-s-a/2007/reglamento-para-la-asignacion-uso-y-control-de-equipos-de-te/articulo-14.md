@@ -1,0 +1,3 @@
+Artículo 14.—De la devolución del equipo: En caso de que el trabajador se ausente de INS Valores por un período mayor de 15 días hábiles, deberá devolver el equipo telefónico y sus accesorios a la jefatura que autorizó su asignación.
+Por decisión razonada de la Gerencia General, se permitirá que el trabajador mantenga bajo su custodia, el equipo telefónico y sus accesorios, por un período superior a los 15 días hábiles.
+Asimismo, cuando por cualquier causa se de por terminado el contrato de trabajo, entre INS Valores y el trabajador beneficiario, deberá devolver el equipo telefónico y sus accesorios a la jefatura que autorizó su asignación.

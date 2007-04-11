@@ -1,0 +1,1 @@
+Artículo 5º—De los funcionarios sujetos a la asignación. La asignación de equipos de telefonía móvil propiedad de INS Valores, estará restringida a los trabajadores, que de acuerdo con su jerarquía o responsabilidad dentro de la estructura orgánica de INS Valores, requieren la utilización del equipo, debido al constante y exclusivo contacto que deben tener con INS Valores.

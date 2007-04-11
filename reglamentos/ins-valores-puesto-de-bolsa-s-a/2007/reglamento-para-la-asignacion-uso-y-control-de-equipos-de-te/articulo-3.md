@@ -1,0 +1,1 @@
+Artículo 3º—Definición. Se entenderá por equipos de telefonía móvil, el aparato del teléfono celular, los accesorios del aparato tales como: cargador de pared, de carro, cobertor o estuche, manos libres, prensa para portar el aparato, batería del aparato, entre otros, así como también la línea telefónica.
