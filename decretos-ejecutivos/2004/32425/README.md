@@ -16,3 +16,4 @@ Reglamento para Notificación, Registro, Clasificación, Importación , y Contro
 | 1 | 2005-10-22 | la propia norma |
 | 2 | 2005-10-22 | Decreto Ejecutivo 32656 (2005-09-02) |
 | 3 | 2006-10-05 | Decreto Ejecutivo 33403 (2006-10-05) |
+| 4 | 2007-04-11 | Decreto Ejecutivo 33731 (2007-04-11) |
