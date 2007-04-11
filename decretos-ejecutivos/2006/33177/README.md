@@ -14,3 +14,4 @@ Reforma Reglamento al Estatuto del Servicio Exterior de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-21 | la propia norma |
+| 2 | 2007-04-11 | Decreto Ejecutivo 33749 (2007-04-11) |
