@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de la Corporación Arrocera N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-02 | la propia norma |
+| 2 | 2007-04-11 | SINALEVI (sin norma nombrada) |
