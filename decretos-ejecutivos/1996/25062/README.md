@@ -16,3 +16,4 @@ Crea Academia Nacional de Medicina
 | 1 | 1996-04-22 | la propia norma |
 | 2 | 1997-03-07 | Decreto Ejecutivo 25899 (1997-03-07) |
 | 3 | 1998-09-18 | Decreto Ejecutivo 27363 (1998-09-18) |
+| 4 | 2007-04-11 | Decreto Ejecutivo 33740 (2007-04-11) |

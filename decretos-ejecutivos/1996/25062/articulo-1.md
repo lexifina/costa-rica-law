@@ -9,4 +9,6 @@ Considerando:
 4º.- Que por lo anterior, se considera oportuno y necesario derogar el Decreto Ejecutivo Nº 23288-S de 4 de mayo de 1994 y emitir uno nuevo. Por tanto,
 Decretan:
 Artículo 1°-La Academia Nacional de Medicina es un organismo permanente, creado con el fin de promover y fortalecer la Medicina en toda su amplitud.
+La Academia Nacional de Medicina fungirá como un ente asesor del Despacho de la Ministra de Salud en materia de Medicina.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 33740 del 11 de abril de 2007)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 27363 del 18 de setiembre de 1998)
