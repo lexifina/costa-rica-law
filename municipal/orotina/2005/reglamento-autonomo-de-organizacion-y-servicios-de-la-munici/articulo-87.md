@@ -1,0 +1,3 @@
+Artículo 87.—Las ausencias por enfermedad deberán justificarse por medio de certificado médico. Las certificaciones emitidas por médicos particulares que excedan de tres días justificarán únicamente la ausencia pero no dará derecho a su pago.
+En aquellos casos en que la incapacidad sea emitida por médico particular por un periodo mayor de tres días, el funcionario está en la obligación de presentar la misma con el referendo u autorización extendida sobre ésta por la Clínica a la cual está adscrito, según controles de la Caja.
+Será responsabilidad de cada Unidad, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores a su cargo durante la jornada laboral.

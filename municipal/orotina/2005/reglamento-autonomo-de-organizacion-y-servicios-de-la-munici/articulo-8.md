@@ -1,0 +1,1 @@
+Artículo 8º—La Unidad de Recursos Humanos dispondrá de mecanismos de comunicación adecuados hacia el personal. En lo concerniente a las pizarras informativas esta oficina podrá autorizar la ubicación en éstas de todo comunicado que se desee hacer por este medio.

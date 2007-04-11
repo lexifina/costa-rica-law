@@ -1,0 +1,1 @@
+Artículo 16.—La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los centros de trabajo de la Municipalidad, donde se mantendrá por un plazo no inferior a ocho días hábiles.

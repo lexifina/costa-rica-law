@@ -1,0 +1,1 @@
+Artículo 142.—El régimen de Disponibilidad tiene como objetivo primordial el contar con personal necesario en situaciones contingenciales, donde la presencia del funcionario es indispensable para la solución de las mismas.

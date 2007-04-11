@@ -1,0 +1,1 @@
+Artículo 77.—El empleado que cometa alguno de los actos señalados en el artículo anterior o que incumpla alguna de las obligaciones a que se refieren los artículos 74 y 75 de este Reglamento será sancionado conforme a éste Reglamento.

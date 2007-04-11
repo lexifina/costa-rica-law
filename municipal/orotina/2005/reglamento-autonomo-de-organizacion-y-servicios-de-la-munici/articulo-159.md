@@ -1,0 +1,1 @@
+Artículo 159.—La Municipalidad de Orotina le permitirá permutas en la disponibilidad a los trabajadores por un período completo de servicio o fracción de éste, siempre que tal cambio haya sido aprobado por la Dirección respectiva y que ésta considere que las razones aducidas son válidas para permitirla.

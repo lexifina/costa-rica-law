@@ -1,0 +1,1 @@
+Artículo 154.—El concepto de “disponibilidad” no es excluyente de otros sobresueldos como la Dedicación Exclusiva, Carrera Profesional, etc., por lo que el funcionario en calidad de disponible puede recibir pago por disponibilidad siempre y cuando el ordenamiento legal vigente se lo permita.
