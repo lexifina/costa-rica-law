@@ -23,3 +23,4 @@ Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Delimitación del 
 | 8 | 1997-02-12 | Decreto Ejecutivo 25902 (1997-02-12) |
 | 9 | 2000-11-09 | Reglamento 0 (2000-11-09) |
 | 10 | 2001-03-28 | Decreto Ejecutivo 29415 (2001-03-28) |
+| 11 | 2007-04-11 | Decreto Ejecutivo 33757 (2007-04-11) |
