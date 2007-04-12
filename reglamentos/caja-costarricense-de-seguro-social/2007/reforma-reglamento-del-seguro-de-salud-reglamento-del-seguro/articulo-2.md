@@ -1,0 +1,11 @@
+II).—Reformar el artículo 38 del Reglamento del Seguro de Invalidez, Vejez y Muerte, para que en adelante se lea de esta manera:
+REGLAMENTO DEL SEGURO DE INVALIDEZ, VEJEZ Y MUERTE
+“Artículo 38.—Responsabilidad patronal y pago de intereses y recargos.
+Los patronos deberán presentar dentro de los plazos y en la forma que disponga la administración (disquete, cintas, facsímil, etc.), la planilla de sus trabajadores, correspondiente al mes inmediato anterior, con las modificaciones o cambios obrero patronales ocurridos en dicho período.
+Cuando el día establecido para el pago de la planilla coincida con un feriado o asueto declarado oficialmente, esa fecha se prorrogará en forma automática al primer día hábil siguiente. Frente a situaciones de fuerza mayor que hagan materialmente imposible el cumplimiento de la obligación establecida al efecto, la Gerencia de la División Financiera podrá extender el plazo de pago hasta por cinco días hábiles.
+En caso de que excepcionalmente llegaran a requerirse prórrogas mayores, su aprobación será competencia de la Junta Directiva.
+En ningún caso se aceptará el pago global de una o más cotizaciones mensuales vencidas con el propósito de revalidar o adquirir derechos dentro de este Seguro. Es entendido que los patronos responderán íntegramente por todas las prestaciones que esta Ley y este Reglamento otorgan a los asegurados, cuando por su culpa, dolo u omisión no los hayan afiliado a régimen oportunamente o no hayan pagado el número de cotizaciones para adquirir el derecho respectivo, tal como se establece en el artículo 44 de la Ley Constitutiva de la Caja.
+Los patronos que no presenten o cancelen sus planillas dentro del plazo reglamentario, estarán obligados al pago de intereses moratorios conforme a lo dispuesto en el artículo 49 de la Ley Constitutiva de la Caja (interés legal establecido en el artículo 1163 del Código Civil). Adicionalmente, aplican recargos según los siguientes incumplimientos:
+1. Por presentación tardía de las planillas: 2% del monto total de las cuotas obrero-patronales.
+2. Por omisión o falsedad de los datos identificativos de los trabajadores: un 1% del salario en cada caso que se omita esa información.
+Lo anterior sin perjuicio de la aplicación de las sanciones establecidas en los artículos 44 y siguientes de la Ley Constitutiva de la Caja”.
