@@ -1,0 +1,1 @@
+5º—Conservación de documentos. Las dependencias responsables de tramitar, aplicar o implementar las disposiciones y recomendaciones, tanto de la Contraloría General de la República como de la Auditoría Interna, conservarán en sus archivos debidamente organizados, la documentación que evidencia su tramitación, implementación o cumplimiento.

@@ -1,0 +1,2 @@
+8º—Transitorio único. Los informes emitidos tanto por la Contraloría General de la República, como por la Auditoría Interna, cuyo trámite de implementación, seguimiento, control y fiscalización ya estaba ejecutándose a la fecha de publicación del presente Manual se diligenciarán conforme con la normativa que se encontraba vigente en la fecha en que se inició su tramitación.
+Rige a partir de su publicación.
