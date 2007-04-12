@@ -1,0 +1,1 @@
+Artículo 2º—Suprímase el párrafo segundo del artículo 9º del Reglamento Orgánico del Centro de Formación de Formadores y de Personal Técnico para el Desarrollo Industrial de Centroamérica, Decreto Ejecutivo Nº 31596-MICIT-MEP, publicado en La Gaceta Nº 16 del 23 de enero del 2004, que dice: “El Director Ejecutivo podrá ser removido libremente por el Consejo Directivo”.
