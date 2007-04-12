@@ -1,0 +1,1 @@
+Artículo 20.—Proyecciones a largo plazo. Anualmente se realizará un análisis financiero que permita conocer el comportamiento del Fondo de Vivienda; el cual será utilizado como parámetro para proyectar a futuro y anticipar en la medida de lo posible alguna situación que incida con la disponibilidad de recursos y/o crecimiento del mismo.

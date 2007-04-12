@@ -1,0 +1,1 @@
+Artículo 31.—De la recuperación de los créditos. Los créditos que otorgue el fiduciario deberán ser recuperados por éstos y para tal efecto deberán los destinatarios de los mismos suscribir las garantías y documentos contractuales correspondientes.

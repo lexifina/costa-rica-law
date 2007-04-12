@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Del control y supervisión del Fideicomiso
+Artículo 36.—Ratificación de los Términos de Referencia de las auditorías realizadas sobre el fondo fideicometido con vista de las actuaciones del Fiduciario. El Fiduciario deberá remitir los Términos de Referencia de las auditorías del Fondo Fideicometido contratadas con fondos del fideicomiso así como, de las actuaciones habidas por el fiduciario al Comité del Fideicomiso para su ratificación, a más tardar el último día hábil del mes de Noviembre de cada año para su conocimiento.
+El Comité del Fideicomiso, de tener alguna observación, deberá comunicársela al Fiduciario a más tardar quince días hábiles después si considera conveniente que se incluyan o modifiquen los Términos de Referencia; en caso de no pronunciarse se entenderá que el Comité del Fideicomiso está de acuerdo con los términos remitidos.

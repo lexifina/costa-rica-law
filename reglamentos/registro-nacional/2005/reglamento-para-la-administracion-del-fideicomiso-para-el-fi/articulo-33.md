@@ -1,0 +1,5 @@
+Artículo 33.—Parámetros para las Inversiones Financieras. Las inversiones se realizarán en títulos de primer orden según la clasificación de la Comisión de Valores, incluyendo los títulos de primer orden emitidos por el Gobierno de Costa Rica, el Banco Central y los emitidos por instituciones financieras fiscalizadas por la Superintendencia de Instituciones Financieras.
+No deberán efectuarse inversiones en títulos del mercado de valores de tipo especulativo en que se esperen altos rendimientos pero con altos niveles de riesgo.
+El Fiduciario deberá dirigir las políticas globales en cumplimiento del fin del fideicomiso, este Reglamento y también emitirá y realizará revisiones periódicas de las directrices para las inversiones financieras.
+Estas directrices se pondrán además, en conocimiento de los Auditores del Fideicomiso.
+Es responsabilidad del Fiduciario comunicar al Fideicomitente de hechos relevantes que puedan afectar la política de inversión debiendo proponer los cambios que considere más adecuados para afectar lo menos posible el capital fideicometido.

@@ -1,0 +1,7 @@
+Artículo 30.—Lineamientos operativos para la administración de la cartera de crédito por parte del Fiduciario y del Comité Técnico. El Fiduciario deberá establecer normativa para el otorgamiento de crédito a los fideicomisarios, vigente dentro de la normativa del Banco y establecer los lineamientos por manual que deben cumplir los miembros del Comité Técnico para coadyuvar en la adecuada y diligente administración y recuperación, procediendo a las gestiones judiciales del caso para la recuperación de los créditos.
+Los manuales para los miembros del Comité Técnico deberán contemplar al menos los siguientes aspectos:
+a) Supervisión: debe contemplar el procedimiento administrativo de las recuperaciones y de la gestión de cobro.
+b) Monitoreo: debe contemplar los sistemas de control para el seguimiento del comportamiento de la cartera de crédito. Dichos sistemas deben ofrecer información actualizada y completa.
+c) Proceso judicial y legal, el control legal y la ejecución judicial de las operaciones de crédito.
+d) Procedimiento de garantías: debe contemplar el establecimiento y mantenimiento de los tipos de garantías, y su eventual ejecución por medio de procedimientos judiciales u otros, y la elaboración de procedimientos de costo reducido.
+e) Estimación de incobrables: El Fiduciario-BCR Fideicomiso crearán una estimación de incobrables de conformidad con las prácticas usuales de los entes financieros afines a los créditos que se otorgan con los recursos del presente Fideicomiso.
