@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE GARABITO
+El Concejo Municipal de Garabito en sesión ordinaria N° 46, celebrada el 21 de marzo del 2007, acuerda:
+1. Aprobar moción presentada por la señora Damaris Arriola Coles, que textualmente dice lo siguiente:
+“Primero: Que la Sala Constitucional ha establecido reiteradamente que corresponde a las Municipalidades asumir la planificación urbana local por medio de la promulgación de los respectivos reglamentos y planes reguladores y la aplicación de la normativa que dicte el INVU como institución encargada de la planificación urbana a nivel nacional, de conformidad con los Votos de esa Sala números 6706-93, 4205-96, 4856-96 y 431-2000, entre otros.
+Segundo: Que los votos anteriores señalan que en ausencia de planes reguladores y con carácter provisional hasta tanto esos planes se aprueben, las Municipalidades pueden aprobar las normas promulgadas por el INVU.
+Tercero: Que el Transitorio Segundo de la Ley de Planificación Urbana, número 4240 del 15 de noviembre de 1968, interpretado por el voto de la Sala Constitucional número 4205-96 de las 14:30 horas del 20 de agosto de 1996, le confieren esa potestad al INVU, en tanto las Municipalidades las acojan, en ejercicio de sus potestades y competencias en materia de autonomía municipal, con el propósito de no generar un vacío en el ordenamiento jurídico y un serio perjuicio en la seguridad jurídica nacional.
+Cuarto: Que lo propio es que la Municipalidad de Garabito adopte como normativa aplicable en su territorio el Reglamento de Construcciones aprobado por la Junta Directiva del INVU. Por tanto,
+SE ACUERDA:
+Adoptar el Reglamento de Construcciones del INVU como normativa aplicable en el territorio de la Municipalidad de Garabito, para todos los proyectos de construcción que inicien su trámite a partir de la entrada en vigencia del presente acuerdo. Se ordena la publicación de este acuerdo en por lo menos tres periódicos de circulación nacional. Este acuerdo rige a partir del día siguiente a su primera publicación y se mantendrá vigente hasta tanto entre en ejecución el Plan Regulador y sus Reglamentos”.
+2º—Trasladar el documento al Departamento de Proveeduría, para que se proceda en forma inmediata a las publicaciones correspondientes, y remitan a este Concejo copia de la publicación que se realicen en el Diario Oficial La Gaceta.
+Aprobado con cuatro votos a favor y uno en contra, el del regidor Luis Diego Chaves Solís.
+Garabito, 23 de marzo del 2007.
