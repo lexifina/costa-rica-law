@@ -1,0 +1,1 @@
+Artículo 2º—La cuota de importación indicada en el artículo anterior deberá negociarse en tractos de mil kilogramos (1.000 kg.), hasta que se agote la cuota establecida y el producto deberá ingresar al país a más tardar el 31 de agosto del 2007.
