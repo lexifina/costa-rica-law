@@ -1,0 +1,1 @@
+Artículo 15.—La Auditoría Interna, dispondrá de un Reglamento de organización y funcionamiento, acorde con la normativa que rige la actividad. Dicho Reglamento deberá ser aprobado por la Contraloría General de la República, publicarse en el diario oficial y divulgarse en el ámbito institucional.

@@ -1,0 +1,2 @@
+Artículo 47.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación del Concejo Municipal.
+Grecia, 2 de abril del 2007.

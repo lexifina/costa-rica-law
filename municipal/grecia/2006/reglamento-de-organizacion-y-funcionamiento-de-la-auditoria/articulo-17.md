@@ -1,0 +1,1 @@
+Artículo 17.—El personal de la Auditoría Interna, mantendrá un rango superior a los demás funcionarios de la Institución, al ejercer funciones de fiscalización, por lo que su nomenclatura debe ser diferente al resto del personal administrativo.

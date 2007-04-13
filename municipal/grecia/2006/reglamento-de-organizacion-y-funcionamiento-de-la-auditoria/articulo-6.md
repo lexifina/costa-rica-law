@@ -1,0 +1,1 @@
+Artículo 6º—En la Municipalidad de Grecia existirá una sola Unidad de Auditoría Interna, y proporcionará a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
