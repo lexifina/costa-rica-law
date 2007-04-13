@@ -1,0 +1,1 @@
+4º—No se permitirá la sustitución de embarcaciones de pequeña escala, mediana escala, avanzada y semi-industrial, cuando la nueva embarcación no cumpla con las disposiciones relativas al tipo de licencia que posee el permisionario, de toda suerte la sustitución de la embarcación nunca implicará la modificación de la licencia por una distinta a la original.

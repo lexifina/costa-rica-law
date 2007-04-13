@@ -1,0 +1,1 @@
+3º—No se permitirá la sustitución de embarcaciones de manera cuya medida supere los 24 metros de eslora total lineal entendiéndose esta como la medida que se hace desde la popa hasta la proa en línea recta en su medida superior.
