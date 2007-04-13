@@ -1,0 +1,5 @@
+Artículo 4º—Aplicación de los criterios objetivos. Tomando en consideración los criterios de oportunidad, conveniencia y razonabilidad, siempre que se tenga por demostrado que la transgresión cometida sea producto de un error donde no se manifieste la intención objetiva de evadir las normas de seguridad social; no procederá la tramitación de denuncias en sede judicial por infracción al artículo 44, incisos a) y c), en los siguientes casos:
+Sobre el inciso a): Cuando el patrono o trabajador independiente se presente a solicitar la inscripción o reanudación, durante el transcurso del mes en el cual inició su actividad como tal.
+Sobre el inciso c):
+1) Cuando la infracción cometida corresponda a error no imputable al administrado.
+2) Cuando el patrono o trabajador independiente por su voluntad se apersone en un tiempo prudencial a solicitar la confección de planilla adicional, demostrando que se incurrió en la infracción por error circunstancial o material. Resulta necesario para la aplicación de este criterio que el patrono o trabajador independiente se encuentre al día en el pago de sus obligaciones con la Caja.

@@ -1,0 +1,1 @@
+Artículo 5º—De la elaboración de las denuncias. Las denuncias judiciales por infracción a los incisos a) y c) del artículo 44 de la Ley Constitutiva de la Caja, serán elaboradas por los Inspectores de Leyes y Reglamentos de la Institución.
