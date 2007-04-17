@@ -1,0 +1,1 @@
+Artículo 2°—Póngase en conocimiento de la Asamblea Legislativa esta iniciativa para su decisión, conforme a lo dispuesto en el art. 13 de la Ley 8492, Ley Sobre Regulación de Referéndum. A tal efecto, conforme a lo establecido por el inciso a) del artículo supraindicado se adjunta el texto del proyecto de Ley que será sometido a consulta popular.
