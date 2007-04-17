@@ -1,0 +1,1 @@
+2º—Se autoriza a la Administración para que, a solicitud de la Entidad deudora, sean modificados los contratos de crédito vigentes, para que el ajuste en las tasas de interés se realice con una periodicidad mensual. Es entendido que las eventuales modificaciones a la periodicidad del ajuste en las tasas de interés, no se podrán aplicar en forma retroactiva.
