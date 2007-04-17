@@ -1,0 +1,1 @@
+Artículo 3º—Proceda el Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía, representada por su Dirección General a continuar con el procedimiento establecido para tal efecto, para la adquisición de dicho lote, con especial observancia de los plazos fijados y en estricto apego a lo establecido en la Ley de Expropiaciones y sus reformas.
