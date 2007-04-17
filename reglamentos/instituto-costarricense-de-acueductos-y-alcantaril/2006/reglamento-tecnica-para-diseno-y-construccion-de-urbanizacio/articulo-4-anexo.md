@@ -1,5 +1,6 @@
 Anexo Nº 4
 Simbología y detalles constructivos
+(NOTA: Mediante acuerdo N° 189 de la sesión N° 022 del 17 de abril, con respecto a este anexo, se dispone : "... que en todas las figuras en que se haga referencia a previstas domiciliares para alcantarillado sanitario debe leerse: "Prevista domiciliaria con silleta YEE de PVC" en lugar de “Prevista domiciliaria con silleta YEE de PVC”)
 [imagen]
 [imagen]
 [imagen]

@@ -35,7 +35,8 @@ En los fraccionamientos con parques perimetrales se permitirá colocar la tuber�
 2.2.2. Pozos de registro
 Los pozos de registro serán de concreto reforzado. Se permitirá el pozo de registro de polietileno de alta densidad.
 Contarán con una tapa de inspección de acuerdo con las figuras 13, 14, 15, 16 y 17 del Anexo N° 4. Estas tapas serán del material indicado en el apartado 4.2.2 del Capítulo No. 4 Especificaciones Técnicas.
-La boca de la losa superior, se desplazará del eje del pozo de tal manera que facilite el acceso a la misma por peldaños que se construirán con varilla de 25 mm.
+La boca de la losa superior, se desplazará del eje del pozo de tal manera que facilite el acceso a la misma por peldaños que se construirán con varilla Nº 6” .
+(Así reformado el párrafo anterior en sesión N° 022 del 17 de abril de 2007)
 Ver detalles constructivos de los pozos de registro en las figuras 18, 19, 20, 21, 22, 23, 24, 25, 26, 27, 28, 29, 30, 31, 32, 33 y 34 del Anexo N° 4.
 2.2.3 Canal de fondo de los pozos de registro
 El canal de fondo tendrá una longitud mínima de 0.90 m en línea recta y en el sentido del flujo.
