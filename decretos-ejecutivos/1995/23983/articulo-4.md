@@ -1,5 +1,2 @@
-Artículo 4º.- Se faculta a la Biblioteca Nacional para organizar y
-establecer los procedimientos de implantación de la Agencia Nacional
-ISSN, así como la organización y edición de publicaciones de índices e
-información relacionada con el registro y control de publicaciones
-seriadas.
+Artículo 4º—Se faculta a la Dirección General de Bibliotecas del Sistema Nacional de Bibliotecas para que organice y establezca los procedimientos de cobro y recaudación de la Agencia ISSN, así como la organización y la edición de publicaciones, índices e información relacionada con el registro y el control de publicaciones seriadas y periódicas.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33863 del 18 de abril del 2007).

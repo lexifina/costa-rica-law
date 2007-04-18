@@ -14,3 +14,4 @@ Declara Utilidad Nacional Uso Sistema ISSN Número InternacionalNormalizado de P
 | --- | --- | --- |
 | 1 | 1995-02-16 | la propia norma |
 | 2 | 1995-02-16 | SINALEVI (sin norma nombrada) |
+| 3 | 2007-04-18 | Decreto Ejecutivo 33863 (2007-04-18) |
