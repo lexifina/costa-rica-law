@@ -14,3 +14,4 @@ Declara de utilidad nacional el uso del sistema ISBN (número internacional del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-21 | la propia norma |
+| 2 | 2007-04-18 | Decreto Ejecutivo 33893 (2007-04-18) |
