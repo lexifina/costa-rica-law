@@ -1,1 +1,0 @@
-Artículo 7°—Todos los bancos de sangre y los establecimientos de salud deberán contar con el personal y equipo necesario para efectuar las pruebas correspondientes que se mencionan en el presente decreto.

@@ -1,1 +1,0 @@
-Artículo 4°—No obstante la prohibición del artículo 1°, las personas incluidas en los grupos de alto riesgo podrán donar órganos, si estuvieren libres de anticuerpos al virus de inmunodeficiencia humana, según criterio del receptor o del médico tratante.
