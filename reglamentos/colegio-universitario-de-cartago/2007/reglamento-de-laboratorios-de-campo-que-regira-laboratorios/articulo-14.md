@@ -1,0 +1,1 @@
+Artículo 14.—Cada estudiante tendrá, una vez finalizado el Laboratorio de Campo, el derecho de presentar, si In considera necesario, un informe sobre anomalías e inconformidades presentadas en el Laboratorio de Campo ante la Coordinación de la Carrera; para ello contará con un máximo de cinco días hábiles.

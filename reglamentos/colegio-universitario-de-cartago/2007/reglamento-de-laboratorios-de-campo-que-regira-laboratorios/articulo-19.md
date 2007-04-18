@@ -1,0 +1,1 @@
+Artículo 19.—Cada estudiante está obligado a respetar la opinión y la integridad física de sus compañeros, profesores, acompañantes (si los hubiera) y de todas aquellas personas con las que se relacione durante el respectivo Laboratorio de Campo.

@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento tiene como finalidad regular los aspectos de planificación, dirección, ejecución, evaluación y disciplina, aplicables en los Laboratorios de Campo de la Carrera de Empresas y Actividades Turísticas.

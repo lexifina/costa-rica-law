@@ -1,0 +1,1 @@
+Artículo 20.—Es de carácter obligatorio para cada estudiante utilizar el uniforme de giras establecido por la Carrera, así como llevar consigo todos los implementos necesarios para desarrollar en forma adecuada sus responsabilidades durante la ejecución del Laboratorio de Campo.

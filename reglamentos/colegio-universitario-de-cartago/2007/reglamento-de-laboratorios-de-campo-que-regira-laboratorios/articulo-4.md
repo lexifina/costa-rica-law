@@ -1,0 +1,1 @@
+Artículo 4º—El objetivo fundamental del Laboratorio de Campo es el que el estudiante ponga en práctica los conocimientos adquiridos en el aula, que conozca y valore diferentes atractivos turísticos, así como la planta turística, infraestructura, problemas socioeconómicos de la población visitada y posibles problemas ambientales que pueda presentar la zona visitada.

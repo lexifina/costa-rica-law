@@ -1,0 +1,1 @@
+Artículo 18.—Está absolutamente prohibido el consumo de licor, de tabaco o drogas ilícitas durante el desarrollo del Laboratorio de Campo; así mismo se prohíbe el irrespeto de las normas socialmente aceptadas.

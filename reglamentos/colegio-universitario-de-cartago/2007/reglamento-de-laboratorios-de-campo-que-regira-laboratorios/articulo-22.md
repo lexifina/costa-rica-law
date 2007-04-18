@@ -1,0 +1,1 @@
+Artículo 22.—Cada estudiante asumirá la responsabilidad económica y moral de sus actos sobre accidentes, conductas indebidas y/o hechos producto del caso fortuito o fuerza mayor no imputable a la Institución y exonera al Colegio Universitario de Cartago sobre los costos que conlleve su reparación.

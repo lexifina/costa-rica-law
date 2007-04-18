@@ -1,0 +1,1 @@
+Artículo 6º—La correcta aplicación del presente Reglamento corresponderá a los profesores encargados de la respectiva materia, quien a mas tardar una semana después de finalizado el Laboratorio de Campo, deberá entregar un reporte de actos disciplinarios (en caso de que se presenten) contrarios a este Reglamento con el propósito de realizar la investigación respectiva.

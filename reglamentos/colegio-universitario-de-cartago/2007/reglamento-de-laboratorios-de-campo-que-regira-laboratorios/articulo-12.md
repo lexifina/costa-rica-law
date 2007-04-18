@@ -1,0 +1,1 @@
+Artículo 12.—Si por fuerza mayor o caso fortuito no pueda visitarse el sitio seleccionado; los profesores encargados estarán autorizados, previo consentimiento de la Coordinación de la Carrera, a hacer las variaciones necesarias, siempre y cuando no vaya en detrimento de los objetivos del Laboratorio de Campo, o de los estudiantes.

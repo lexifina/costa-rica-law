@@ -1,0 +1,1 @@
+Artículo 8º—Los cursos contenidos en el Plan de Estudios de la Carrera de Empresas y Actividades Turísticas que contengan Laboratorios de Campo, serán definidos por la Coordinación de la Carrera, con la autorización de la Dirección.
