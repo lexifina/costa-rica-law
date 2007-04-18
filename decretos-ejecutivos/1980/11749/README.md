@@ -13,3 +13,4 @@ Disposiciones Normalización y Estandarización Procedimientos TécnicosCataloga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-08-25 | la propia norma |
+| 2 | 2007-04-18 | Decreto Ejecutivo 33906 (2007-04-18) |
