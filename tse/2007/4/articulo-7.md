@@ -1,0 +1,1 @@
+Artículo 7º—Todas aquellas firmas que, a juicio de los analistas, presenten dudas, sea por incongruencias manifiestas de sus trazos, o bien por su no correspondencia con los números de cédula y nombre, serán descartadas del cómputo total, debiendo en todo caso el órgano encargado motivar dicho acto.

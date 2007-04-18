@@ -1,0 +1,5 @@
+Artículo 2º—Las hojas que contengan las firmas de apoyo al proyecto de ley de iniciativa popular, necesariamente deberán contener los requisitos que señala el artículo 2 inciso c) de la Ley N° 8491; de lo contrario no se validarán las firmas constantes en éstas. Para ello, el Tribunal pondrá a disposición de los interesados una plantilla con el formato requerido de las hojas para la recolección de firmas. Los requisitos de forma son los siguientes:
+a- Cada hoja deberá contener una breve reseña del proyecto;
+b- Todas las hojas deberán estar debidamente foliadas de manera consecutiva;
+c- Cada hoja deberá contener tres columnas debidamente identificadas: la primera para la inclusión del número de cédula, la segunda para indicar el nombre del ciudadano y la tercera para que se estampe la firma correspondiente.
+Para los casos de personas que no puedan firmar debido a un impedimento físico permanente que les afecte para ello y que dicha condición efectivamente conste en el padrón electoral de éste Tribunal, dichas personas deberán imprimir la huella dactilar del dedo índice de cualquiera de sus manos en la columna correspondiente a la firma.
