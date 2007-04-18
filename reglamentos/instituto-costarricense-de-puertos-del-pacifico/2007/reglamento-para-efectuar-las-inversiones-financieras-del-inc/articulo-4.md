@@ -1,0 +1,1 @@
+Artículo 4º—Del riesgo y utilidades en las inversiones. Las inversiones que realice el INCOP deberán de efectuarse bajo el menor riesgo posible de pérdida, procurando mayores utilidades y a la vez una fácil conversión de lo invertido en dinero en efectivo.

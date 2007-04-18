@@ -1,0 +1,1 @@
+Artículo 18.—De las recomendaciones del Comité Técnico. Las recomendaciones que este Comité emita serán de acatamiento obligatorio, ya que constituye una instancia técnica especializada en materia inversiones.

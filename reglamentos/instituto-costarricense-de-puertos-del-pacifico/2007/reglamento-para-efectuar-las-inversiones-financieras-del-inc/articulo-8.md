@@ -1,0 +1,1 @@
+Artículo 8º—De los rendimientos que generan las inversiones. Los rendimientos que se generen de las operaciones expuestas en los dos artículos anteriores, deberán de ser incluidos dentro del presupuesto con el mismo fin que tienen los fondos invertidos de los cuales provienen y considerados dentro de la nueva reinversión al vencimiento de la anterior.
