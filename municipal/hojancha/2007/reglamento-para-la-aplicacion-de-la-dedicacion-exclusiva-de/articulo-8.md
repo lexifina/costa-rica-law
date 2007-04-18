@@ -1,0 +1,1 @@
+Artículo 8º—Después de firmado el contrato, el Departamento de Personal (Alcaldía) procederá a confeccionar la acción de personal respectiva, que deberá seguir el trámite usual que rige en esta materia.
