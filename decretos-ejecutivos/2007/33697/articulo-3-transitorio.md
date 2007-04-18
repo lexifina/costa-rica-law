@@ -1,0 +1,1 @@
+Transitorio III. Registro de colecciones ex situ. Los propietarios o responsables de colecciones ex situ, o sus representantes legales, tendrán un plazo máximo de diez meses a partir de la publicación de este Decreto Ejecutivo, para registrar sus colecciones ante la Oficina Técnica de la CONAGEBIO. La Oficina Técnica establecerá los formatos correspondientes.
