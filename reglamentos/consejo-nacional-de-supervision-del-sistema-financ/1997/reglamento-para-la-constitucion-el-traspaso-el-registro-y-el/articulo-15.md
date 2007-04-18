@@ -1,3 +1,3 @@
-Artículo 15.
-La sociedad controladora podrá realizar todos aquellos actos de administración y disposición necesarios para el cumplimiento de sus fines, incluida la suscripción de obligaciones y el otorgamiento de avales y garantías a favor de sus subsidiarias.
-La sociedad controladora podrá invertir sus recursos en las empresas integrantes del grupo y estará imposibilitada para realizar operaciones propias de esas empresas.
+Artículo 15.La sociedad controladora tendrá como único objeto adquirir y administrar las acciones emitidas por las sociedades del grupo y no podrá realizar operaciones propias de las entidades financieras pertenecientes al grupo. Podrá realizar sólo aquellos actos de administración y disposición necesarios para el cumplimiento de sus fines de acuerdo con su objeto único.
+La sociedad controladora sólo podrá otorgar garantías subsidiarias sobre obligaciones contraídas por las empresas integrantes del grupo. El contrato o documento en que se formalice la garantía deberá indicar en forma expresa que el acreedor sólo podrá requerir el pago de la obligación a la empresa controladora cuando haya agotado contra la deudora todas las acciones administrativas y judiciales para el cobro de la obligación y ésta no cuente con activos para cumplir con la obligación contraída.
+(Así reformado mediante sesión N° 641 del 18 de abril de 2007).

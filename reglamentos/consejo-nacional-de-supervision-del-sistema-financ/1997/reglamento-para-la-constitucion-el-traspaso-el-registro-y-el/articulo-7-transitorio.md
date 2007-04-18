@@ -1,2 +1,4 @@
 Transitorio VII.—Para efecto de la aplicación de las modificaciones que se establecen al Artículo 25 de este Reglamento, se entenderá que las mismas aplicarán en forma prospectiva a partir de su fecha de publicación en el Diario Oficial La Gaceta. En el plazo de tres meses a partir de dicha fecha de publicación, cada grupo financiero por intermedio de su sociedad controladora, someterá a la aprobación del respectivo órgano supervisor, un plan de adecuación para regularizar su situación.
-(Así adicionado mediante acuerdo tomado en sesión N° 305 de 22 de junio del 2002)
+(Así adicionado mediante acuerdo tomado en sesión N° 305 de 11 de junio del 2002)
+Transitorio VII.—Los avales y garantías solidarias otorgadas por las sociedades controladoras a favor de sus subsidiarias, vigentes a la entrada en vigencia de esta modificación, deben ser canceladas en un plazo máximo de 24 meses, y en el caso de aquellas garantías y avales con plazo fijo, se mantendrán vigentes hasta su vencimiento y en ningún caso podrán ser renovadas
+(Así adicionado mediante sesión N° 641 de 18 de abril del 2007).
