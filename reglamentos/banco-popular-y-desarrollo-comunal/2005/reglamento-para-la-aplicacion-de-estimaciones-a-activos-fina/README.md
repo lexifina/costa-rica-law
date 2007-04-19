@@ -15,3 +15,4 @@ Reglamento para la Aplicación de Estimaciones a Activos Financieros por Incobra
 | --- | --- | --- |
 | 1 | 2005-10-04 | la propia norma |
 | 2 | 2006-07-24 | Reglamento 4411 (2006-07-24) |
+| 3 | 2007-04-19 | Reglamento 4478 (2007-04-19) |
