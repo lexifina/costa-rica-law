@@ -1,0 +1,1 @@
+Artículo 3º—La aprobación de las modificaciones presupuestarias corresponderá en principio al Jerarca Institucional, quien podrá delegar dicha competencia conforme a lo establecido en el artículo 4º del presente Reglamento.

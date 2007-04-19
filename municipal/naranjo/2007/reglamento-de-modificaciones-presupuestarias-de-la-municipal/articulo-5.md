@@ -1,0 +1,1 @@
+Artículo 5º—La cantidad de modificaciones presupuestarias que de forma razonable se ajustan a las necesidades institucionales y buscando el fomentar una mejor planificación de los recursos desde la misma formulación del plan anual operativo y presupuesto ordinario, se definen en la cantidad máxima de 10 modificaciones presupuestarias en el año.
