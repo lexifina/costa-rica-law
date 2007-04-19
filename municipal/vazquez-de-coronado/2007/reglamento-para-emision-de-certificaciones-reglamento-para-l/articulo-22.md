@@ -1,0 +1,3 @@
+Artículo 22.—La venta de timbres a lo interno de la Municipalidad, se realiza tomando en cuenta que es un servicio nuevo que se le brindará al contribuyente, evitándole largas filas para la adquisición en Bancos y agilizando la entrega de las certificaciones.
+Acuerdo Nº 2007-044-039: Se acoge la recomendación de la Comisión de Hacienda y Presupuesto, para que se ponga en vigencia el Reglamento para la compra y distribución de timbres en la Municipalidad Vázquez de Coronado. Publíquese en el Diario Oficial La Gaceta. Acuerdo. Cuenta con siete votos afirmativos.
+Vázquez de Coronado, 7 de marzo del 2007

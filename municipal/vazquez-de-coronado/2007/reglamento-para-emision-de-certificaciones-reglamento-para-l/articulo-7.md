@@ -1,0 +1,1 @@
+Artículo 7º—El cliente podrá solicitar el estudio de registro, en formulario suministrado por la Municipalidad, el cual necesariamente deberá contener, el nombre y apellidos completos, el número de cédula y adjuntar el recibo de pago correspondiente.

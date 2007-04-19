@@ -1,0 +1,1 @@
+Artículo 3º—El cliente podrá solicitar la certificación, en un formulario suministrado por la Municipalidad, el cual necesariamente deberá contener, el nombre y apellidos completos, el número de cédula, con indicación expresa del tipo de certificación que solicita y adjuntar el recibo de pago correspondiente.

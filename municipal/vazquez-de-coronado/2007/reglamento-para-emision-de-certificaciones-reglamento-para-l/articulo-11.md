@@ -1,0 +1,1 @@
+Artículo 11.—El cliente deberá apersonarse a la plataforma de servicios, y solicitar la misma aportando la información necesaria (nombre completo y número de cédula) y cancelar el importe correspondiente.
