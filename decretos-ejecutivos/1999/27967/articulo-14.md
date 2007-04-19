@@ -1,2 +1,5 @@
-Artículo 14.—Instalaciones deportivas. Los proyectos de construcción de instalaciones públicas destinadas a la educación física, al deporte y recreación, deberán sujetarse a la reglamentación del Instituto del Depone para estos efectos y contener la aprobación del plano básico por parte del Instituto del Deporte.
-En estos casos además de los requisitos establecidos en el artículo 12 de este decreto, el interesado deberá presentar una copia adicional al Ministerio de Salud, el cual actuará como receptor de los planos y los distribuirá inmediatamente al Instituto del Deporte para su correspondiente aprobación. En este caso, se entenderá el párrafo segundo del artículo 12 referido a la resolución de ambos entes.
+Artículo 14.—Coordinación CFIA-Ministerio de Salud. Para el cumplimiento de lo establecido en los artículos 3º, 5º y el presente capítulo, el Ministerio de Salud y el CFIA suscribirán un convenio de cooperación, en el cual se establecerá dentro de los compromisos por parte del CFIA:
+a) Informar diariamente, vía electrónica, a las diferentes Áreas Rectoras del Ministerio de Salud sobre los proyectos de planos recibidos, detallando la siguiente información: nombre del profesional responsable del diseño y de la inspección, número de colegiado, ubicación de la obra.
+b) Suministrar las copias digitales de las declaraciones juradas correspondientes.
+c) Facilitar copia digital de los planos autorizados al Ministerio de Salud, cuando éste lo solicite.
+(Así adicionado mediante artículo 2° del decreto ejecutivo N° 33799 del 19 de abril de 2007)

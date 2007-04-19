@@ -1,3 +1,5 @@
-CAPITULO VI
-Disposiciones varias
-Artículo 13.—Estacionamientos. Para el trámite de visado de proyectos de estacionamientos y edificaciones con estacionamientos, los accesos a las carreteras nacionales deberán contar de previo con el visto bueno del Ministerio de Obras Públicas y Transportes (MOPT). Para tal fin, el interesado presentará dos copias de la planta de conjunto correspondientes de los planos básicos al MOPT para su correspondiente autorización. En estos casos, dicha autorización deberá presentarse a la Municipalidad respectiva, junto con los requisitos establecidos en el artículo 2 del presente decreto.
+CAPÍTULO VI
+De la fiscalización y responsabilidad profesional
+del visado de planos de construcción
+Artículo 13.—Responsabilidades del profesional. En adición a todas las obligaciones y responsabilidades que se derivan del ejercicio profesional, y del cumplimiento de la normativa vigente en materia de construcciones, el profesional responsable del diseño y la inspección deberán mantener en el sitio de la obra los planos constructivos finales, debidamente autorizados, a efecto de que los inspectores de las instituciones competentes puedan realizar su labor de fiscalización.
+(Así adicionado mediante artículo 2° del decreto ejecutivo N° 33799 del 19 de abril de 2007)

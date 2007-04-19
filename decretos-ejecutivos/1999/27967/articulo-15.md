@@ -1,1 +1,2 @@
-Artículo 15.— (Derogado por Artículo 7° del Decreto Ejecutivo N° 32688 del 12 de setiembre del 2005)
+Artículo 15.—Fiscalización de los proyectos por parte del Ministerio de Salud. Con la información suministrada por el CFIA, según el artículo anterior, el Área Rectora correspondiente del Ministerio de Salud, podrá realizar inspecciones en cualquier momento, durante la construcción o después de su finalización, para verificar el cumplimiento de lo declarado bajo fe de juramento por el profesional responsable.
+(Así adicionado mediante artículo 2° del decreto ejecutivo N° 33799 del 19 de abril de 2007)
