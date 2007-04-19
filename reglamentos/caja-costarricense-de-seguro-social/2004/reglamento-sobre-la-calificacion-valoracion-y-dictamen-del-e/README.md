@@ -16,3 +16,4 @@ Reglamento sobre la calificación, valoración y dictamen del estado de invalide
 | 1 | 2004-12-15 | la propia norma |
 | 2 | 2005-09-01 | Reglamento 7990 (2005-09-01) |
 | 3 | 2005-12-15 | Reglamento 8019 (2005-12-15) |
+| 4 | 2007-04-19 | Reglamento 8145 (2007-04-19) |
