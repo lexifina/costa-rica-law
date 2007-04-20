@@ -1,0 +1,1 @@
+Artículo 18.—Partes en los procedimientos de nulidad absoluta. Cuando se trate de procedimientos que versen sobre posible nulidad absoluta de actos y contratos administrativos, se llamará como parte a quien o a quienes se lesione un derecho subjetivo con la declaratoria de nulidad. Asimismo, se tendrá como parte a la Administración Pública correspondiente.

@@ -1,0 +1,1 @@
+Artículo 6º—Procedimiento administrativo ordinario. Para la determinación de nulidades de actos o contratos administrativos se aplicará el procedimiento ordinario de la Ley General de la Administración Pública y en caso de integración por laguna, se aplicarán supletoriamente las reglas del procedimiento administrativo de la Hacienda Pública regulado en este Reglamento.

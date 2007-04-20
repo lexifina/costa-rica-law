@@ -1,0 +1,1 @@
+Artículo 48.—Alegatos. Las partes deberán presentar por escrito todos sus alegatos dentro del plazo de ocho días hábiles contados a partir del día siguiente a la notificación del acto de apertura del procedimiento.

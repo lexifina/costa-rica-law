@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 65.—Normativa supletoria. En ausencia de disposición expresa de su texto, se aplicarán supletoriamente, la Ley General de la Administración Pública, la Ley Reguladora de la Jurisdicción Contencioso Administrativa, las demás normas, escritas y no escritas, con rango legal o reglamentario, del ordenamiento administrativo y, en último término, el Código Procesal Civil, la Ley Orgánica del Poder Judicial y el resto del Derecho común.

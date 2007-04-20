@@ -1,0 +1,1 @@
+Artículo 53.—Normativa supletoria. Las disposiciones del procedimiento administrativo de la Hacienda Pública se aplicarán supletoriamente al procedimiento administrativo abreviado, en la medida que sean compatibles con la naturaleza de este último.

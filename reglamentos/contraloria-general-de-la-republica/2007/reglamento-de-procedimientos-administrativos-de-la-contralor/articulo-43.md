@@ -1,0 +1,3 @@
+Artículo 43.—Prueba después de la comparecencia. Después de celebrada la comparencia oral y privada y antes de emitir el informe de actuaciones, el órgano director podrá recabar la prueba que considere necesaria para la búsqueda de la verdad real de los hechos, sin necesidad de autorización del órgano decisor.
+Cuando esa prueba sea de carácter documental, se otorgará audiencia escrita a las partes por tres días para que aleguen cuanto estimen conveniente acerca de su alcance e importancia.
+En caso de que sea necesario evacuar otro tipo de prueba, se convocará a las partes para que ejerzan su derecho de defensa.
