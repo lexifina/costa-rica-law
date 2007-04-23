@@ -1,0 +1,3 @@
+Artículo 18.—Renovación de los Contratos del Régimen de Disponibilidad:
+a) Corresponde a la Oficina de Recursos Humanos, con el visto bueno del Alcalde aprobar o rechazar las solicitudes de renovación de los contratos de disponibilidad.
+b) La renovación de los contratos por disponibilidad, establece la posibilidad y facultad para que dicho acto se realice antes de que caduque el contrato originalmente suscrito. Si la vigencia de un contrato vence, sin que previo se haya renovado siendo procedente que continúe la condición de disponibilidad del servidor deberá suscribirse un nuevo contrato entre las partes, cuya vigencia lo será a partir de la firma del mismo.

@@ -1,0 +1,1 @@
+Artículo 20.—El incumplimiento de lo establecido en el presente Reglamento y contrato de disponibilidad, por parte del servidor, se tipifica como falta grave y se aplicarán las sanciones correspondientes, además de reintegrar a la Municipalidad de San Isidro, lo percibido por este concepto.

@@ -1,0 +1,1 @@
+Artículo 13.—El trabajador con permiso o que se encuentre incapacitado por enfermedad, maternidad o riesgo de trabajo, accidente de transito o se encuentre suspendido disciplinariamente, no tendrá derecho a recibir la respectiva retribución económica, correspondiendo a la oficina encargada de Recursos Humanos de oficio rebajar el pago de dicha retribución.

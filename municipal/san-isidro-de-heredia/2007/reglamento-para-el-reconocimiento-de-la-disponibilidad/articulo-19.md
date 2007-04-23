@@ -1,0 +1,3 @@
+Artículo 19.—Eliminación de la autorización para el pago de la disponibilidad:
+a) Cuando la Oficina de Recursos Humanos en conjunto con el Alcalde, determinen que han variado las circunstancias que originaron la autorización para que determinado puesto fuera afectado por el Régimen de Disponibilidad, deberán ponerlo en conocimiento del Concejo Municipal acerca de la necesidad de que dicha autorización sea revocada.
+b) Cuando las justificaciones y condiciones que mediaron para la suscripción del contrato por disponibilidad hayan desaparecido la oficina de Recursos Humanos deberá proceder a rescindir el contrato de Disponibilidad.

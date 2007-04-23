@@ -1,0 +1,1 @@
+Artículo 10.—El servidor deberá abstenerse de participar en actividades remuneradas o no, ajenas a la institución que le impidan cumplir con la obligación adquirida que contiene el Régimen de Disponibilidad.

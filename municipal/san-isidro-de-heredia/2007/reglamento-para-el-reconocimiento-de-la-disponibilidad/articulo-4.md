@@ -1,0 +1,3 @@
+Artículo 4º—Para los efectos de ser sujeto de este Régimen de Disponibilidad considérense necesidad institucional los siguientes casos y tipos de actividad:
+a) Personal de mantenimiento de un servicio, cuando éste deba prestarse en días y horas inhábiles, en donde por escasez de personal o tipo de servicio, no se pueda cubrir cada turno de manera adecuada y sea necesario disponer de algún personal, que solamente se llamará si se necesita, en donde se conoce que dicha necesidad es impostergable.
+b) Profesionales y especialistas indispensables en la atención de emergencias de ocurrencia frecuente, en áreas de salud, ingeniería u otras específicas

@@ -1,0 +1,1 @@
+Artículo 11.—Por causa justificada el servidor podrá solicitar en forma previa y por escrito la no disponibilidad en cierto horario, en cuyo caso la Municipalidad determinará la posibilidad de acceder a dicha petición. De ser ésta aceptada, el servidor señalará otro horario similar y más ventajoso para su situación particular en que podrá estar disponible.

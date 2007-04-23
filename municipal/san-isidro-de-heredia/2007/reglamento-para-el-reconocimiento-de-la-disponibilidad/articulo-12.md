@@ -1,0 +1,1 @@
+Artículo 12.—El servidor tiene derecho durante dos días por mes, en común acuerdo con la Municipalidad , a declararse no disponible, este derechodeberá constar por escrito y deberá estar plasmado en el contrato.

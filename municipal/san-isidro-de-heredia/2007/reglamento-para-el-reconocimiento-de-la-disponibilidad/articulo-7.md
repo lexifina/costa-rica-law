@@ -1,0 +1,1 @@
+Artículo 7º—Esta compensación tiene aplicación para los servidores indicados en el artículo 4º arriba indicado y que cumplen con las normas contenidas en el presente Reglamento, previa determinación del Concejo Municipal, órgano que no podrá autorizar más del cinco (5%) del personal de la institución como afectos a este régimen.
