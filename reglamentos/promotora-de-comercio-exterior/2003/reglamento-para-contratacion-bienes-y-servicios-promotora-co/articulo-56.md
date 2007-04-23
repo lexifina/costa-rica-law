@@ -1,4 +1,0 @@
-Artículo 56.—Contratación general. Procede la contratación general en las compras y contrataciones iguales o superiores a ¢.7.780.000,00 (siete millones setecientos ochenta mil colones) e inferiores a ¢.47.000.000,00 (cuarenta y siete millones de colones).
-En estos casos, el Departamento de Servicios Generales y Compras o la Gerencia o Departamento que desee tramitar la contratación, cursará invitación a no menos de tres potenciales proveedores idóneos e inscritos en el Registro de Proveedores, sin perjuicio de que se cotice además a otros proveedores no inscritos y se adjudicará a la oferta de menor precio, sin perjuicio de que se valoren otros factores que se estimen relevantes, lo cual deberá definirse en la invitación. La Administración considerará únicamente las ofertas de proveedores a los que haya cursado invitación.
-La administración otorgará un plazo mínimo de dos días hábiles para recibir ofertas.
-(Así reformado en sesión N° 166 del 4 de mayo de 2006)

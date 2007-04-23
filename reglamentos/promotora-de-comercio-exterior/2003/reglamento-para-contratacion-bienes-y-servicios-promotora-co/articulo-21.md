@@ -1,5 +1,0 @@
-Artículo 21.—Derecho de modificación. PROCOMER podrá modificar, disminuir o aumentar durante la ejecución del contrato la prestación objeto de la contratación, cuando concurran al menos las siguientes circunstancias:
-a) Que la modificación permita satisfacer plenamente el interés de PROCOMER, perseguido con la contratación.
-b) Que el monto de la suma de la contratación original, más el incremento adicional que la modificación implica, no exceda el límite previsto por el presente reglamento para la determinación del procedimiento de contratación seguido, ni tampoco sea superior al ciento por ciento del precio de adjudicación original. En caso de que la suma de las contrataciones supere los montos de adjudicación establecidos en el artículo 61 del presente reglamento, de previo a la ejecución de la modificación se requerirá de la autorización previa por parte del órgano competente para adjudicar el monto total de la contratación, incluyendo su prórroga.
-c) Que exista contenido presupuestario para la erogación.
-(Así reformado en sesión N° 166 del 4 de mayo de 2006)
