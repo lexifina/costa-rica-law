@@ -1,0 +1,5 @@
+Artículo XII
+Efectos de la Convención sobre las convenciones internacionales y demás disposiciones legales
+1. La presente Convención no afectará a la codificación y ulterior desarrollo del derecho del mar por la Conferencia del Derecho del Mar de las Naciones Unidas convocada en aplicación de la Resolución 2750 C (XXV) de la Asamblea General de las Naciones Unidas, así como tampoco a las actuales o futuras reivindicaciones y posiciones jurídicas de cualquier Estado relativas al derecho del mar así como a la naturaleza y extensión de su competencia ribereña y de la competencia que ejerza sobre los buques que naveguen bajo su pabellón.
+2. Las disposiciones de la presente Convención no afectan en modo alguno a los derechos y obligaciones de las Partes que se deriven de cualquier tratado, convención o acuerdo actualmente vigente.
+3. Las disposiciones de la presente Convención no afectan en modo alguno al derecho de las Partes a adoptar medidas internas más estrictas en orden a la conservación de las especies migratorias enumeradas en los Apéndices I y II o medidas internas en orden a la conservación de las especies no enumeradas en los Apéndices I y II.
