@@ -1,0 +1,1 @@
+Artículo 7º—Para hacer efectiva la entrega del monto económico correspondiente al segundo tracto INCOPESCA deberá verificar y actualizar la información suministrada con base en este decreto. Dicha información será remitida al IMAS, dentro de los primeros cinco días hábiles del mes de julio del 2007.
