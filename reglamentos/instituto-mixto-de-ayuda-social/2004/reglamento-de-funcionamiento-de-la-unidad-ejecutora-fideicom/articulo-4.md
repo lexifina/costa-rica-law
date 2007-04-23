@@ -23,7 +23,7 @@ q. Participar en la sesiones de Comité Director del con voz y voto, y preparar 
 r. Otras que le asigne el Comité Director del Fideicomiso.
 4.3. REQUISITOS DEL PUESTO
 Para ser nombrado Gerente de la Unidad Ejecutora se deberá contar con los siguientes requisitos:
-Nivel académico: | Maestría y Licenciatura en Administración de Negocios. Experiencia: 5 años de experiencia en las labores relacionadas con el puesto. 2 años de experiencia en manejo de fideicomisos, programas de crédito y garantías. 3 años de experiencia en la supervisión de personal.
+Nivel académico: | Maestría o Licenciatura en Administración de Negocios o carreras afines a los propósitos del Fideicomiso. (Así reformado y publicado en La Gaceta N° 77 del 23 de abril de 2007) Experiencia: 5 años de experiencia en las labores relacionadas con el puesto. 2 años de experiencia en manejo de fideicomisos, programas de crédito y garantías. 3 años de experiencia en la supervisión de personal.
 Otros requisitos: | Conocimiento del enfoque de género. Conocimiento de la operación de microcomputadoras. Buena presentación personal.
 Habilidades especiales: | Habilidad en trabajo con mujeres y grupos de mujeres. Habilidad para relacionarse con las personas. Habilidad para manejar recurso humano. Imprevistas. Habilidad Analítica. Ser responsable, respetuoso (a) y dinámico (a).
 4.4. LÍNEA DE MANDO

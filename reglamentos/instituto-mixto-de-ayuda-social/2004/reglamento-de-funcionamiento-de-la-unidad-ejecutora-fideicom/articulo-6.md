@@ -13,7 +13,7 @@ h. Efectuar los pedidos de bienes y servicios, distribuirlos y velar por el uso 
 i. Otras que le asigne la o el Gerente de la Unidad Ejecutora.
 6.3. REQUISITOS DEL PUESTO
 Para ser nombrado Asistente Administrativo del Fideicomiso se deberá contar con los siguientes requisitos:
-Nivel académico: | Bachiller Universitario en Administración de Negocios o Contabilidad. Experiencia: Experiencia en las labores relacionadas con el puesto.
+Nivel académico: | técnico o Bachiller Universitario en Administración de Negocios o carreras afines a los propósitos del Fideicomiso. (Así reformado y publicado en La Gaceta N° 77 del 23 de abril de 2007) Experiencia: Experiencia en las labores relacionadas con el puesto.
 Otros requisitos: | Conocimiento de la operación de microcomputadoras. Buena presentación personal
 Habilidades especiales: | Habilidad especial: sensibilidad de género en el trato con mujeres. Destreza en el uso de máquinas de oficina: microcomputador, fotocopiadora, fax, calculadora, máquina de escribir. Habilidad para relacionarse con las personas. Habilidad para el manejo del recurso humano. Imprevistas. Ser discreta (o), responsable, respetuoso (a) y dinámico (a).
 6.4. LÍNEA DE MANDO
