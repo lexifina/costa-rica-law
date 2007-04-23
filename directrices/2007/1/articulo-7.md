@@ -1,0 +1,4 @@
+Artículo 7º—En el caso de las actas de las sesiones del Concejo se considerará que su acceso es absolutamente libre cuando las mismas ya se encuentren aprobadas por el Concejo y en firme. Si alguna acta no estuviere aprobada o en firme el interesado sólo podrá tener acceso una vez que el encargado de la Secretaría Municipal haya podido levantar el texto de la misma y lo haya revisado a su satisfacción. En estos casos a las copias generadas de estos documentos se les deberá colocar un sello o leyenda que indique su condición de no estar en firme o de no haber sido aprobadas aún. El plazo para la entrega de estos documentos es de tres días hábiles luego de formulada la solicitud y una vez que los textos ya hayan sido levantados por el secretario respectivo.
+Artículo 7º—Rige a partir de su comunicación”.
+(NOTA: En la publicación de esta directriz se consignó dos veces este artículo)
+Pérez Zeledón, 12 de abril del 2007.
