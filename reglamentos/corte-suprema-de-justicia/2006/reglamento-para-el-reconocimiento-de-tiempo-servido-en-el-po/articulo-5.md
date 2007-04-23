@@ -1,0 +1,1 @@
+Artículo 5º—Prohibición de cómputo de pasos por cursos para la jubilación. Para los efectos del tiempo reconocido para la jubilación, se tomará en cuenta únicamente el tiempo laborado en forma efectiva en los entes públicos, no así, aquellos “anuales” o pasos otorgados por aprobación de cursos de capacitación en la Escuela Judicial o bien los aprobados en materia policial.

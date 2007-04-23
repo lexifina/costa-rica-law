@@ -1,0 +1,2 @@
+Artículo 17.—Devolución de montos cobrados de más. Cuando se haya cobrado de más con motivo del supuesto contemplado en el inciso 2) del artículo 13 de este Reglamento, el Poder Judicial deberá reintegrar al servidor, exservidor o bien al albacea de la sucesión en caso de que haya muerto aquel, las sumas cobradas de más, para eso se seguirá el siguiente procedimiento:
+La devolución de montos cobrados de más, será realizada de oficio por el Fondo de Jubilaciones y Pensiones, debiendo quedar constancia de los detalles de la misma.

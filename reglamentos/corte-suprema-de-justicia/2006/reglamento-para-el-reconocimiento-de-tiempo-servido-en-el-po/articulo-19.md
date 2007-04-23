@@ -1,0 +1,1 @@
+Artículo 19.—Manual de Procedimientos. El Departamento de Planificación deberá emitir el Manual de Procedimientos de este Reglamento, en el plazo de tres meses a partir de la fecha de su aprobación por la Corte Plena.
