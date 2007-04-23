@@ -1,0 +1,1 @@
+Artículo 8º—De la conducción de la comisión: La Comisión será conducida por uno de sus integrantes quien la coordinará y de un secretario, quienes serán escogidos por la totalidad de los integrantes de la Comisión en su primera sesión y durarán en sus cargos un año pudiendo ser reelectos.
