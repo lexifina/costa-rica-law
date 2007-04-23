@@ -1,0 +1,2 @@
+Artículo 16.—Será responsabilidad del Gestor de Portafolios, o de quien le sustituya en su ausencia, llevar un control diario de las compras y ventas de valores realizadas en cada uno de los Fondos de Inversión administrados, todo ello de conformidad con los parámetros definidos en el prospecto y aprobados por la Superintendencia General de Valores para cada Fondo de Inversión.
+El Comité podrá solicitar información particular sobre los movimientos diarios realizados.

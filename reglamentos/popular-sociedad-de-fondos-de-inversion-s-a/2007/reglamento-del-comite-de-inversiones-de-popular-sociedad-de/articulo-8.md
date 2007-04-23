@@ -1,0 +1,3 @@
+Artículo 8º—Los miembros independientes indicados en el artículo 4, inciso d) del presente Reglamento serán propuestos por la Gerencia de Popular SAFI y nombrados por la Junta Directiva, designación que será por dos años prorrogables.
+Estos miembros independientes se identificarán bajo la nomenclatura de miembro independiente. Corresponderá a los miembros independientes brindar asesoría sobre los fondos de inversión financieros y asesoría sobre fondos no financieros o no típicos, tales como fondos inmobiliarios, hipotecarios, garantizados y otros.
+Corresponderá a la Presidencia del Comité convocar a los miembros independientes a las sesiones que el Comité celebre y su participación será con voz y voto.
