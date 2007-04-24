@@ -1,0 +1,12 @@
+Nº 33723
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la “Constitución Política”; 1, 11, 28 aparte segundo inciso b) de la Ley Nº 6227 de 2 de mayo de 1978 y sus reformas, “Ley General de la Administración Pública”; 1, 2, 4, 37, 38, 39, 95, 96, 97, 100, 101, 102, 103, 104, 112, 113, 114, 115, 132, 133, 135, 136, 140, 141, 258, 260, 337, 338, 339, 340, 341, 342, 344, 346, 347, 348, 349, 355, 356, 357, 358, 359, 362, 363 y 364 de la Ley Nº 5395 de 30 de octubre del 1973 y sus reformas, “Ley General de Salud”; Ley Nº 10 del 7 de octubre de 1936 y sus reformas, “Ley de Licores”; ordinales 2, 3, 4, 6, 7, 8, 9, 10, 12, 13, 14, 15, 16, 17, 18, 19, 20, 21, 22, 23, 24 y 25 del Decreto Ejecutivo Nº 17757-G de 28 de setiembre de 1987 y sus reformas, “Reglamento a la Ley de Licores” y los numerales 1, 2, 3, 4, 5, 6, 7, 10 y 11 de la Ley 7633, “Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas, publicado en La Gaceta Nº 201 del 21 de octubre de 1996.
+Considerando:
+1º—Que es función esencial del Estado, velar por la salud de la población por medio del Ministerio de Salud, Institución competente para definir la política, normación, planificación y la coordinación de todas las actividades públicas y privadas relacionadas con la salud.
+2º—Que el Estado en estricto apego a la Constitución Política y a la jurisprudencia constitucional, ejercerá las funciones dichas, siempre respetando los derechos individuales y garantías sociales reconocidos en la Carta Magna y en las leyes.
+3º—Que de conformidad con la “Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas”, Ley Nº 7633, publicada en La Gaceta 201 del 21 de octubre de 1996, el Estado debe velar por la venta de bebidas alcohólicas a menores de edad.
+4º—Que la citada “Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas”, fue reglamentada, mediante “Decreto Ejecutivo No 26084-MP” del 7 de abril de 1997 y sus reformas, donde se establecen una serie de regulaciones y prohibiciones a la venta y consumo del bebidas alcohólicas a menores de edad.
+5º—Que se hace indispensable regular algunos aspectos no contemplados sobre el consumo y expendio gratuito o venta de bebidas alcohólicas.
+DECRETAN:
+Artículo 1º—Se prohíbe el consumo, expendio gratuito y venta de bebidas alcohólicas, en los establecimientos tales como farmacias, boticas, droguerías, laboratorios o fábricas farmacéuticas, botiquines y similares.
