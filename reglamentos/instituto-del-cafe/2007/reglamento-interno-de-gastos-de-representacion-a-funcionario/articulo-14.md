@@ -1,0 +1,1 @@
+Artículo 14.—El funcionario del ICAFE, cuya liquidación de gastos de representación no se ajuste a lo dispuesto por este reglamento no se le reconocerá la liquidación correspondiente, y deberá asumir de su peculio cualquier erogación realizada.

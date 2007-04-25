@@ -1,0 +1,1 @@
+Artículo 12.—Los gastos de representación fijados, autorizados y recibidos por el funcionario respectivo no liquidados en el plazo previsto en el artículo 6º de este Reglamento, será informado al superior inmediato y en el caso de miembros de Junta Directiva a este órgano colegiado para que determine el procedimiento a seguir.

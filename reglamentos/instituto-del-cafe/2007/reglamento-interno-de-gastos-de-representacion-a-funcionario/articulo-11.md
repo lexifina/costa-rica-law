@@ -1,0 +1,1 @@
+Artículo 11.—Cuando un funcionario haya retirado un adelanto para gastos de representación y la reunión o evento fue cancelado o pospuesto, el funcionario deberá reintegrar en las cajas del ICAFE, el dinero adelantado a más tardar el día hábil siguiente de haber recibido la comunicación verbal o escrita correspondiente.

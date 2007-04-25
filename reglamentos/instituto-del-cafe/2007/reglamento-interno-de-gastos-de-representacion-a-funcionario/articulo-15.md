@@ -1,0 +1,3 @@
+Artículo 15.—Los funcionarios expresamente autorizados para incurrir en gastos de representación deberán hacer uso de dichos fondos en estricto apego a lo dispuesto en este Reglamento y siempre dentro de los límites de racionalidad y hasta el disponible en la partida presupuestaria asignada para este concepto.
+Aprobado mediante acuerdo Nº 11 de la sesión N° 1680 de la Junta Directiva del ICAFE del 25 de abril del año 2007. Publíquese en el Diario Oficial La Gaceta y comuníquese a lo interno del Instituto del Café de Costa Rica. Rige a partir de la aprobación por Junta Directiva.
+San José, 3 de mayo del 2007.

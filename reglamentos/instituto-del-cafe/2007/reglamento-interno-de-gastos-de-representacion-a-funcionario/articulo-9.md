@@ -1,0 +1,1 @@
+Artículo 9º—Límites presupuestarios para la partida de gastos de representación: Los montos a presupuestar para la partida de Gastos de Representación no podrán superar el 4% del total del presupuesto correspondiente a la Unidad operativa (Junta Directiva, Dirección Ejecutiva, Auditoría Interna Gerencias de Promoción, Técnica y Administrativo Financiera).

@@ -1,0 +1,5 @@
+INSTITUTO DEL CAFÉ DE COSTA RICA
+REGLAMENTO INTERNO DE GASTOS DE REPRESENTACIÓN
+A FUNCIONARIOS DEL INSTITUTO DEL CAFÉ DE COSTA RICA
+La Junta Directiva del Instituto del Café de Costa Rica, con base en el “Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos”, así como en los oficios de la Contraloría General de la República: DGAJ de las 15:00 horas del 21 de mayo de 1999, DGAJ-453-2003, FOE-GU-0048, Informe sobre Gastos de Representación de la División de Fiscalización Operativa y Evaluativa - Secretaría Técnica - Equipo de Admisibilidad y Valoración de Denuncias, aprobamos en sesión número 1680 del 25 de abril del año 2007 el presente Reglamento Interno de Gastos de Representación a Funcionarios del Instituto del Café de Costa Rica
+Artículo 1º—Definición de gastos de representación: Se entenderá como gastos de representación las erogaciones en que incurran los personeros con ocasión del ejercicio de sus funciones, con el objeto de brindar atención de carácter oficial a personas físicas o representantes de instituciones o empresas, sean nacionales o extranjeros, relacionados con la actividad cafetalera de evidente interés para el ICAFE.

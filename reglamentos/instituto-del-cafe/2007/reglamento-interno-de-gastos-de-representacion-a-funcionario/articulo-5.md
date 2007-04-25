@@ -1,0 +1,6 @@
+Artículo 5º—Procedimiento de adelanto de gastos de representación: Para cubrir los gastos de representación se seguirá el procedimiento siguiente:
+a) La solicitud de gastos de representación en el exterior será tramitada por el funcionario interesado ante la Unidad Contable Financiera, adjuntando a la solicitud de adelanto el acuerdo de la Junta Directiva correspondiente.
+b) La solicitud de gastos de representación en el interior del país será tramitada por el funcionario responsable ante la Unidad Contable Financiera adjuntando la solicitud de adelanto con una autorización del Presidente de la Junta Directiva o Director Ejecutivo o Subdirector Ejecutivo según corresponda.
+c) Los gastos de representación deben de solicitarse a la Unidad Contable Financiera por lo menos con tres días de anticipación a la fecha de inicio del evento o gira al exterior.
+d) La Unidad Contable Financiera podrá tramitar el adelanto de gastos de representación mediante cheque el cual se contabilizará como una cuenta por cobrar a nombre el funcionario que tenga a cargo la atención.
+e) Los gastos de representación a nivel nacional serán adelantados en colones para gastos a nivel nacional y en dólares de los Estados Unidos de Norteamérica para gastos en el exterior.

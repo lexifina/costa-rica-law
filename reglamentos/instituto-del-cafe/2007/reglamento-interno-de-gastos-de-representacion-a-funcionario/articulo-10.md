@@ -1,0 +1,1 @@
+Artículo 10.—Unidad encargada del control de adelantos: La Unidad Contable Financiera será la encargada de controlar estas erogaciones, verificar el contenido presupuestario, y recibir las liquidaciones correspondientes dentro del término señalado en el artículo 6 de este Reglamento.
