@@ -14,3 +14,4 @@ Reglamento de Popular Pensiones para Invertir en los Mercados Financieros Intern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-28 | la propia norma |
+| 2 | 2007-04-25 | Reglamento 250 (2007-04-25) |
