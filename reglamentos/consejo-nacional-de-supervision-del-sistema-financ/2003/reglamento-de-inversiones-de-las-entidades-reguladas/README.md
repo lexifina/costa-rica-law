@@ -18,3 +18,4 @@ Reglamento de Inversiones de las Entidades Reguladas
 | 3 | 2004-04-13 | Reglamento 431 (2004-04-13) |
 | 4 | 2006-03-02 | Reglamento 562 (2006-03-02) |
 | 5 | 2006-04-20 | Reglamento 570 (2006-04-20) |
+| 6 | 2007-04-25 | Reglamento 642 (2007-04-25) |

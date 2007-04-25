@@ -1,3 +1,10 @@
-Transitorio II. De la implementación del libro de actas electrónico.
-Los Regímenes tendrán un plazo de tres meses para poner en funcionamiento el libro de actas electrónico del Comité de Inversiones y del Comité de Riesgos. Dicho plazo correrá a partir de que se les comunique oficialmente los aspectos operativos, se les suministre la capacitación, así como el manual técnico respectivo para su uso.
-(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+Transitorio II—Cumplimiento del límite máximo estipulado en el artículo 36.
+Se establece la siguiente transitoriedad para alcanzar la vigencia plena del límite establecido en el artículo 36:
+a) A partir de la publicación de esta reforma en el diario oficial:
+30%
+b) A partir del 31 de diciembre del 2007: 35%
+c) A partir del 30 de junio del 2008: 40%
+d) A partir del 31 de diciembre del 2008: 45%
+e) A partir del 30 de junio del 2009: 50%
+Para los fondos voluntarios del régimen de pensiones complementarios denominados en dólares el límite entrará en vigencia a partir de la publicación de esta reforma en el Diario Oficial
+(Así reformado mediante sesión N°642 del 25 de abril del 2007).

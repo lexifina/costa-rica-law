@@ -1,3 +1,4 @@
-Artículo 64.—Responsabilidades de entidades reguladas* al depositar valores en custodia. Las entidades reguladas* serán las responsables de mantener un adecuado control de las transacciones que registra el custodio.
-*(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+Artículo 64.—Responsabilidades de entidades reguladas al depositar valores en custodia. Las entidades reguladas serán las responsables de mantener un adecuado control de las transacciones que registra el custodio.
+Las operaciones con valores que ejecute el intermediario bursátil, por cuenta de los fondos administrados, deben ser aceptadas por la entidad gestora ante el custodio dentro de los plazos que se establezcan en el marco del proceso de liquidación. La custodia de las notas estructuradas y las participaciones en fondos de inversión abiertos de emisores extranjeros deberá realizarse en entidades que cumplan los requisitos establecidos en los artículos 59, 60 y 61 antes detallados.
+(Así reformado mediante sesión N°642 del 25 de abril del 2007).
 (Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°61 al N°64 actual).

@@ -11,6 +11,6 @@ AÑO | % ROPC | % FCL | % RVPC | % RE
 ROPC: Régimen obligatorio de pensiones complementarias.
 FCL: Fondos de capitalización laboral.
 RVPC: Régimen voluntario de pensiones complementarias.
-RE: Régimen o Regímenes Especiales según lo definido en el Artículo 2º de este reglamento.
-Los Regímenes Especiales cuya administración ha sido contratada con una Operadora de Pensión complementaria se sujetarán a los límites de inversión correspondientes a los Regímenes Especiales.
-(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
+RE: Régimen o Regímenes Especiales según lo definido en el Artículo 2º de este reglament
+Los Regímenes Especiales cuya administración haya sido contratada con una Operadora de Pensiones se sujetarán a los límites de inversión correspondientes al Régimen Obligatorio de Pensiones Complementarias. Si con motivo del traslado así se requiriere, deberá aplicarse un plan de reducción de riesgos para el cumplimiento de los límites establecidos. Las entidades que hayan alcanzado límites de adecuación superiores a los que, como mínimo, le hubieren correspondido, de conformidad con el cuadro anterior, no podrán ser posteriormente reducidos.
+(Así reformado el párrafo anterior mediante sesión N°642 del 25 de abril del 2007).
