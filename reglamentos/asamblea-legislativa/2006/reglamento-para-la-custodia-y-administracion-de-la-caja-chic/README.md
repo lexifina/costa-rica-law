@@ -14,3 +14,4 @@ Reglamento para la Custodia y Administración de la Caja Chica de la Asamblea Le
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-13 | la propia norma |
+| 2 | 2007-04-25 | Reglamento 52 (2007-04-25) |
