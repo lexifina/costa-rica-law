@@ -35,3 +35,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 20 | 2006-08-10 | Reglamento 596 (2006-08-10) |
 | 21 | 2007-02-15 | Reglamento 631 (2007-02-15) |
 | 22 | 2007-04-09 | Reglamento 640 (2007-04-09) |
+| 23 | 2007-04-25 | Reglamento 642 (2007-04-25) |
