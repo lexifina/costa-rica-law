@@ -16,3 +16,4 @@ Reglamento para la Inversión de las Reservas de Invalidez, Vejez y Muerte.
 | 1 | 2005-02-24 | la propia norma |
 | 2 | 2005-06-02 | Reglamento 7963 (2005-06-02) |
 | 3 | 2005-06-09 | Reglamento 7965 (2005-06-09) |
+| 4 | 2007-04-26 | Reglamento 8047 (2007-04-26) |

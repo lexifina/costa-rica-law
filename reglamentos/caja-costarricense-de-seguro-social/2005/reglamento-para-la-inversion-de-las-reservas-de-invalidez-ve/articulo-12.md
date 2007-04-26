@@ -10,7 +10,8 @@ a) Títulos del Banco Central, del Estado y de otras entidades públicas que cue
 b) Depósitos a plazo, certificados de inversión y otros títulos e instrumentos emitidos por el Sistema Bancario Nacional.
 c) Títulos de otros emisores que estén garantizados por los bancos comerciales del Estado, siempre que dicha garantía cubra un 100% del valor del título emitido, incluyendo intereses hasta su efectivo pago.
 d) Títulos valores con respaldo hipotecario de los entes pertenecientes al Sistema Bancario Nacional y al Sistema Financiero Nacional para la Vivienda.
-e) Títulos del sector privado.
+e) Títulos del sector privado, incluyendo aquellos asociados al financiamiento de proyectos de infraestructura.
+(Así reformado el inciso anterior mediante sesión N° 8047 del 26 de abril de 2007).
 Condiciones:
 a) Se podrán realizar determinadas operaciones con instrumentos derivados, para coberturas de riesgo de tasa de interés y de tipo de cambio, solo con la autorización de la Junta Directiva.
 b) La compra de títulos valores del Sector Privado se podrá hacer únicamente en valores inscritos en el Registro Nacional de Valores e Intermediarios o en valores emitidos por entidades financieras supervisadas por la Superintendencia General de Entidades Financieras, de acuerdo con la Ley Reguladora del Mercado de Valores.
