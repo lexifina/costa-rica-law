@@ -1,0 +1,1 @@
+Artículo 19.—En un plazo de tres meses a partir de su vigencia, la Alcaldía Municipal elaborará el Manual para la elaboración, aprobación y ejecución de presupuestos extraordinarios y variaciones presupuestarias en la Municipalidad de Puriscal, donde se indiquen los procesos que se involucran las actividades y los funcionarios responsables de las mismas.

@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los presupuestos extraordinarios y las modificaciones presupuestarias tendrán efecto legal en el presupuesto, a partir de la aprobación definitiva por parte de la Contraloría General de la República, en el primer caso y del Concejo Municipal, en el segundo.
