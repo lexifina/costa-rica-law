@@ -15,3 +15,4 @@ Reforma Reglamento de Circulación por Carretera con Base en el Peso y las Dimen
 | --- | --- | --- |
 | 1 | 2005-01-19 | la propia norma |
 | 2 | 2006-11-01 | Decreto Ejecutivo 33458 (2006-11-01) |
+| 3 | 2007-04-26 | Decreto Ejecutivo 33773 (2007-04-26) |
