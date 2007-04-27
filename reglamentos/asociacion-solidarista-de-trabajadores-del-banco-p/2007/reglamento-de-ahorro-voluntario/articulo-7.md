@@ -1,0 +1,1 @@
+Artículo 7º—La Junta Directiva de ASEBANPO podrá modificar en cualquier momento el presente reglamento, en tal caso bastará la sola comunicación a los asociados con al menos treinta días naturales de antelación al momento en que deba entrar en vigencia la enmienda.

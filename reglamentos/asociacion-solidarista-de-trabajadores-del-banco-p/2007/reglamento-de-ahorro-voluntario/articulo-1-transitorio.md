@@ -1,0 +1,2 @@
+Transitorio I.—Los asociados que actualmente tengan ahorro voluntario en la Asociación, tendrán derecho a que el cálculo de los rendimientos se realice de acuerdo con el mecanismo previsto en el reglamento anterior, no obstante una vez publicado el presente reglamento, el mecanismo de calculo variará a partir del siguiente mes.
+El presente reglamento fue aprobado por la Junta Directiva de ASEBANPO en la sesión número 163-2007, celebrada el 12 de abril del 2007 y entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

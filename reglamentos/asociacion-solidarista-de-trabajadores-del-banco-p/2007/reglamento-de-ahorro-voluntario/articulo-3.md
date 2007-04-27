@@ -1,0 +1,1 @@
+Artículo 3º—El ahorro voluntario a que se refiere este Reglamento, supone una deducción mensual sobre el salario del asociado, la cual deberá ser establecida y autorizada por el propio asociado, ya sea que se trate de una suma fija o porcentual.

@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá a la Junta Directiva de ASEBANPO, fijar el rendimiento o tasa de interés que se reconocerá a este tipo de ahorros. Para el cálculo de este reconocimiento se tomará en cuenta el rendimiento que genere ASEBANPO y sus costos de operación.
