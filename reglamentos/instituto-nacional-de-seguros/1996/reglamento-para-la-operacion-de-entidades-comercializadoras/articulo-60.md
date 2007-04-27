@@ -1,1 +1,0 @@
-Artículo 60.—El Instituto podrá autorizar a los intermediarios de Banca-Seguros a realizar trámites de traslado o aceptación de riesgo de seguro, de conformidad con los requisitos, límites y condiciones del presente Reglamento.

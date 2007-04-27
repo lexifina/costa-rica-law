@@ -1,1 +1,0 @@
-Artículo 54.—Es aplicable a este canal de comercialización lo estipulado en el Artículo 7 del presente Reglamento, por lo que queda absolutamente excluida toda relación de carácter laboral con el Instituto Nacional de Seguros.

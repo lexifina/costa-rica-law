@@ -1,1 +1,0 @@
-Artículo 9º—El Instituto determinará los seguros y productos que ofertará y contratará con la Agencia Comercializadora, la que lo hará bajo las características; condiciones y propiedades técnicas, jurídicas, económicas y de mercadeo que se determinen en el respectivo contrato o en el anexo a ese convenio denominado Plan de Comercialización.

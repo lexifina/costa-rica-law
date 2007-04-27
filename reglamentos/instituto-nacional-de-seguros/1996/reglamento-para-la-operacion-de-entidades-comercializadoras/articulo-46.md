@@ -1,1 +1,0 @@
-Artículo 46.—Los límites para la autorización de trámites de traslado o aceptación de riesgos los definirá la Gerencia por medio de las Disposiciones Complementarias al Reglamento de Aceptación de Riesgos y Pagos por el Contrato Póliza.

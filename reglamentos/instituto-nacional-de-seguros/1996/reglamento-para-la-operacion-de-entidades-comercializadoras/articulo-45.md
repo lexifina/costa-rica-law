@@ -1,1 +1,0 @@
-Artículo 45.—La entidad comercializadora prestará colaboración oportuna y diligente, en las investigaciones preventivas o de hechos denunciados o conocidos internamente, que se relacionen con lo estipulado en el presente capítulo, realizadas por la Auditoría del Instituto, las unidades técnicas o por profesionales y técnicos contratados al efecto.

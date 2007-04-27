@@ -1,2 +1,0 @@
-Artículo 34.—El cambio de la denominación social de una entidad comercializadora, se regirá por las normas de la legislación comercial vigente al efecto y por las normas relativas a la defensa del consumidor.
-La denominación social de las entidades comercializadoras de seguros, deberá ser acorde con el servicio que brinda a los consumidores y clientes del Instituto, y con las políticas de proyección institucional y defensa del monopolio de seguros.

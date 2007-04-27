@@ -1,2 +1,0 @@
-Artículo 26.—De acuerdo con el objetivo de ampliación de la cobertura de territorios y servicios, el Instituto procurará una asignación técnicamente planificada de las carteras de clientes a atender por las Agencias Comercializadoras, evitando la concentración de operaciones en canales de mercados cautivos, que impidan una efectiva ampliación y consolidación de la cobertura nacional y del mercado de los seguros.
-Las Agencias Comercializadoras no podrán ceder en todo o en parte su cartera.

@@ -1,5 +1,0 @@
-CAPÍTULO IV
-Trámite de aceptación de riesgos por parte
-de las Entidades Comercializadoras
-Artículo 39.—Para los efectos del presente capítulo se entiende como trámite del traslado o aceptación de riesgos por parte de una entidad comercializadora, como un acto de comercio derivado de la representación que ejercen las comercializadoras como intermediarios (auxiliares de comercio no típicos), en la venta de seguros del Instituto, y que consiste en la facultad de dar inicio a la cobertura del seguro a nombre y por cuenta del Instituto, bajo los términos del contrato-póliza pactado; en virtud de que la entidad comercializadora ha comprobado de previo el cumplimiento de todos los requisitos de la propuesta y la oferta comercial del solicitante: cuestionarios, verificación del riesgo y del objeto del seguro, inspección y análisis del riesgo, etc., bajo los términos y condiciones del presente Reglamento y de las Normas Técnicas de Aseguramiento del Instituto.
-El cumplimiento de las formalidades en el trámite de traslado o aceptación del riesgo por parte de una entidad comercializadora, es un acto para cuya validez se requiere solemnidad ad substancia.

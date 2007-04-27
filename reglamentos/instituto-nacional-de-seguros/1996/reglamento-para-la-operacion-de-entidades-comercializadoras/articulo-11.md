@@ -1,2 +1,0 @@
-Artículo 11.—Independientemente de la promoción propia de sus productos en la venta de seguros y fianza que haga la Agencia Comercializadora, el Instituto podrá suministrarle o venderle publicidad propia, artículos promocionales, documentos de información, etc. Que coadyuven a la venta de dichos productos.
-La promoción que haga la Agencia deberá ser coherente con la del Instituto y respetar la imagen institucional, para lo cual coordinará lo pertinente con la Dirección de Mercadeo y Ventas.
