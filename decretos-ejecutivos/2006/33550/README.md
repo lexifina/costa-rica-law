@@ -14,3 +14,4 @@ Reglamento del Otorgamiento de Estímulos a la Iniciativa Privada en Materia de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-07 | la propia norma |
+| 2 | 2007-04-27 | Decreto Ejecutivo 33774 (2007-04-27) |
