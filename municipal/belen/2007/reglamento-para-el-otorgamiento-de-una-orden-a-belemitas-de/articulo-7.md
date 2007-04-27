@@ -1,0 +1,1 @@
+Artículo 7º—Corresponderá a la Unidad de Cultura de la Municipalidad de Belén, promover y divulgar la designación de la “Orden Rita Mora López”, así como confeccionar los expedientes de los candidatos presentados por las personas u organizaciones belemitas promovientes, de conformidad con lo establecido en el artículo quinto del presente reglamento.
