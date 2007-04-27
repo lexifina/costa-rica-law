@@ -1,1 +1,0 @@
-Artículo 4°—Los Agentes de Seguros únicamente podrán vender seguros cuando se encuentren acreditados debidamente por una Agencia Comercializadora de Seguros que cuente con contrato vigente con el Instituto. En consecuencia no habrá relación de subordinación profesional entre el agente y el Instituto, sino que dichas relaciones serán entre el Agente y su Agencia.

@@ -1,2 +1,0 @@
-Artículo 7°—Se entenderá que en su actividad de venta de seguros el Agente actúa en representación de la Agencia Comercializadora y en consecuencia la obligará de acuerdo con los Reglamentos de Seguros y el Contrato entre la Agencia y el Instituto.
-Los Agentes de Seguros son responsables ante las Agencias Comercializadoras que los acreditan y a quienes representan ante el Instituto, y ante terceros, de cualquier daño o perjuicio que cause una acción u omisión suya, cometida con dolo, imprudencia negligencia o impericia, en el desempeño o con ocasión de sus funciones.

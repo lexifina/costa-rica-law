@@ -1,1 +1,0 @@
-Artículo 5°—En la venta de seguros el Agente deberá ceñirse estrictamente a las regulaciones estipuladas en el contrato entre la Agencia y el Instituto, no sólo en cuanto a la operación de venta de seguros sino a las relaciones y condiciones que el Instituto haya determinado para cada línea de seguros.

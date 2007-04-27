@@ -1,2 +1,0 @@
-Artículo 6°—Para mantener la autorización de venta en cada línea o seguro , el agente deberá cada tres años cumplir con los requisitos que determine el Instituto en cuanto a cursos de actualización y exámenes de conocimiento necesarios.
-Si la licencia cubriera una o varias líneas de seguros y no todas, el agente podrá aplicar dentro del plazo de vigencia dicho para ampliar su licencia a otras líneas de seguros.

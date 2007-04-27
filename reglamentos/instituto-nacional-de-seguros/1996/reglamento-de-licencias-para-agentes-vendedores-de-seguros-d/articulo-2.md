@@ -1,1 +1,0 @@
-Artículo 2°—Son Agentes Vendedores de Seguros las personas físicas a quienes el Instituto conceda una licencia, para vender los seguros que éste determine, por medio de las Agencias Comercializadoras. El Instituto otorgará la licencia para la venta de una, varias o todas las líneas de seguros.
