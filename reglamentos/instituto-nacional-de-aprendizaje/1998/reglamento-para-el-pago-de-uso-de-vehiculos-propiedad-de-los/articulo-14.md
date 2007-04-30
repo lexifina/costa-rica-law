@@ -1,1 +1,0 @@
-Artículo 14.—Si la liquidación indicada en el artículo 12 no se presenta a la Unidad de Recursos Financieros en el plazo establecido, las subsiguientes giras no se podrán realizar bajo este sistema y será suficiente causa para que no se reconozca su pago.

@@ -1,1 +1,0 @@
-Artículo 6°—El funcionario propietario asumirá las responsabilidades civiles y penales que se pudieran derivar de la ejecución del contrato. En consecuencia el INA queda totalmente relevado de toda responsabilidad en cuanto afecten al funcionario o a terceros.

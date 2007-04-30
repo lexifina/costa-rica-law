@@ -1,1 +1,0 @@
-Artículo 9°—Como contrapresentación, el Instituto pagará tarifas por kilometraje recorrido, que en ningún caso serán mayores que las establecidas para tal efecto por la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 10.—El pago que se haga al funcionario propietario en virtud del presente sistema no constituye salario. Tampoco constituye una obligación del Instituto garantizar un mínimo mensual de kilómetros recorridos.

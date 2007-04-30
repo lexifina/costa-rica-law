@@ -1,2 +1,0 @@
-Artículo 15.—El funcionario propietario deberá dar preferencia a las necesidades de la Institución y solamente deberá usar su vehículo en el cumplimiento del propósito para el que fue autorizado en forma específica.
-Cuando los requerimientos de ésta indique que en una misma gira deba transportarse a otros servidores, así como materiales y equipos que no excedan la capacidad del vehículo, deberá transportarlos bajo los términos del contrato.
