@@ -7,5 +7,5 @@ III.—Que de conformidad con el artículo 4º del Decreto Ejecutivo No. 32456-H
 Con fundamento en las consideraciones de hecho y derecho citadas, el Director General de Aduanas, comunica lo siguiente:
 1º—Que a partir del próximo 31 de enero de 2007, los ingresos e importaciones definitivas de combustibles tramitadas por RECOPE, se realizarán por medio del nuevo Sistema de Información para el Control Aduanero TIC@.
 2º—Que a partir del *31 de marzo de 2007, se implementará el Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.
-(*NOTA: Mediante resolución RES-DGA-112-2007 del 12 de marzo de 2007, se resuelve trasladar para el 17 de abril de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.)
+(*NOTA: Mediante resolución RES-DGA-295-2007 del 30 de abril de 2007, se resuelve trasladar para el 14 de mayo de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.)
 3º—Comuníquese y publíquese en el Diario Oficial La Gaceta.

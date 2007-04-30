@@ -14,3 +14,4 @@ A partir de 31 de enero de 2007, los ingresos e importaciones de combustibles tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-28 | la propia norma |
+| 2 | 2007-04-30 | Resolución 295 (2007-04-30) |
