@@ -8,5 +8,6 @@ IV.—Que en cumplimiento de las consideraciones anteriores, la Dirección Gener
 V.—Que es interés del Ministerio de Hacienda proporcionar a los Auxiliares de la Función Pública Aduanera el mayor tiempo posible para finiquitar las acciones necesarias para lograr la interconexión con el sistema TICA.
 VI.—Que en vista de que la semana prevista para la implementación del sistema TICA, se celebran las conmemoraciones religiosas de la “Semana Mayor”, que podría afectar el flujo normal de las operaciones aduaneras, se ha considerado oportuno trasladar la fecha de implementación en la aduana de Limón. Por tanto,
 Con fundamento en las consideraciones de hecho y derecho citadas, el Director General de Aduanas, comunica lo siguiente:
-1. Trasladar para el día 17 de abril de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.
+1. Trasladar para el día *17 de abril de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.
+(*NOTA: Mediante resolución RES-DGA-295-2007 del 30 de abril de 2007, se resuelve trasladar para el 14 de mayo de 2007, la implementación del Sistema de Información para el Control Aduanero TIC@ en la Aduana de Limón.)
 2. Comuníquese y publíquese en el Diario Oficial La Gaceta.

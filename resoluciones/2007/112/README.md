@@ -14,3 +14,4 @@ Traslado para el día 17 de abril de 2007, la implementación del Sistema de Inf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-10 | la propia norma |
+| 2 | 2007-04-30 | Resolución 295 (2007-04-30) |
