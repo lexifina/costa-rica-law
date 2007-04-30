@@ -14,3 +14,4 @@ Prestación de Servicios y Otorgamiento de Beneficios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-20 | la propia norma |
+| 2 | 2007-04-30 | Acuerdo 151 (2007-04-30) |
