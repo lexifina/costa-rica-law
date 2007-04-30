@@ -1,0 +1,2 @@
+2. Incluir el siguiente transitorio VII:
+“Los avales y garantías solidarias otorgadas por las sociedades controladoras a favor de sus subsidiarias, vigentes a la entrada en vigencia de esta modificación, deben ser canceladas en un plazo máximo de 24 meses, y en el caso de aquellas garantías y avales con plazo fijo, se mantendrán vigentes hasta su vencimiento y en ningún caso podrán ser renovadas”.
