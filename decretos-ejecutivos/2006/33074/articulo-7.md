@@ -1,1 +1,0 @@
-Artículo 7º—La Comisión de Zonaje , que tiene carácter ad honórem, estará integrada por el Director General Administrativo, el Jefe del Departamento de Recursos Humanos, el Oficial Presupuestal y dos (2) representantes de los trabajadores escogidos en asamblea de los mismos.

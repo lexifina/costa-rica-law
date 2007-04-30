@@ -1,5 +1,0 @@
-Artículo 12.—En el caso de nombramientos, el Zonaje podrá ser reconocido desde la fecha de rige del movimiento de personal; siempre y cuando el interesado:
-- Cumpla con los requisitos necesarios,
-- La solicitud formal sea presentada -por el interesado o por el encargado de recursos humanos- para su disfrute, ante el Departamento de Recursos Humanos del MINAE, al menos con un mes de anticipación a la fecha de rige del nombramiento.
-- La solicitud sea conocida y aprobada por la Comisión de Zonaje.
-Cuando se trate de reubicación y/o traslado real de un funcionario, en que se configure la situación estipulada en el artículo 1° de este decreto; para el debido reconocimiento del Zonaje, su ajuste o supresión del derecho; los encargados de recursos humanos de las direcciones o áreas, deberán informar a la mayor brevedad posible sobre estos movimientos, a los miembros de la Comisión. En caso de omisión serán responsables solidariamente con las autoridades o jefaturas que lleven acabo los movimientos de personal; por los daños o errores en que incurra la administración, en la aplicación de este incentivo.

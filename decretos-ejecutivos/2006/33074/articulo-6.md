@@ -1,1 +1,0 @@
-Artículo 6º—El servidor que por razones de capacitación u otro motivo se vea obligado a permanecer más de un mes fuera de su lugar de trabajo y que en ese tiempo tuviera congelado el beneficio de Zonaje, a su regreso a laborar, recobrará el derecho del mismo, previa comunicación escrita de su reintegro, ante el Departamento de Recursos Humanos.

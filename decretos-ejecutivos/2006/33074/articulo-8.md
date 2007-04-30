@@ -1,1 +1,0 @@
-Artículo 8º—La Comisión nombrará un Presidente, un Vicepresidente, un Secretario, un Fiscal y un Vocal. Los miembros nombrados por los trabajadores durarán en sus cargos dos años, pudiendo ser reelectos.
