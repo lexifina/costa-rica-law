@@ -15,3 +15,4 @@ A partir del lunes 26 de marzo de 2007, el régimen de tránsito aduanero en el 
 | --- | --- | --- |
 | 1 | 2007-04-02 | la propia norma |
 | 2 | 2007-04-02 | Resolución 152 (2007-03-22) |
+| 3 | 2007-04-30 | Resolución 295 (2007-04-30) |
