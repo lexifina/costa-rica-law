@@ -1,0 +1,1 @@
+Artículo 2º—Los nombramientos del inciso a) serán por el tiempo que desempeñen sus cargos en la institución que representan. Los nombramientos de los representantes del Sector Privado, a saber, los incisos b) y c), serán por el resto del plazo legal establecido. Los integrantes de la Comisión no percibirán dietas ni emolumento alguno por participar e integrar dicho órgano.
