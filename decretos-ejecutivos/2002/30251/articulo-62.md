@@ -3,3 +3,4 @@ A. Que se haga necesario ajustar el presupuesto con los ingresos reales o bien r
 B. Cuando existan proyectos financiados por JUDESUR que se demuestre negligencia, o desinterés por parte de los grupos beneficiados.
 C. Por situaciones de emergencia debidamente declaradas por el Poder Ejecutivo.
 D. Cuando la Junta Directiva de JUDESUR así lo acuerde siempre y cuando esta decisión no se aparte de lo establecido en la Ley 7730.
+(Mediante el artículo 74 del decreto ejecutivo N° 33763 del 30 de abril de 2007 se modifica este artículo. No obstante, no se indica expresamente en que consiste dicha modificación).
