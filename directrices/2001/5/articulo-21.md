@@ -1,1 +1,0 @@
-ARTÍCULO 21.- Excusa del notario para continuar la tramitación del expediente: Cuando surja en el notario una causa justa, moral o legal, que le impida continuar tramitando el expediente, lo hará constar así mediante resolución fundada, y ordenará remitir los autos a la autoridad judicial competente.

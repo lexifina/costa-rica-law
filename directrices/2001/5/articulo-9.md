@@ -1,1 +1,0 @@
-ARTÍCULO 9.- Valor de las actuaciones: De conformidad con lo establecido por el artículo 133 del Código Notarial, las actuaciones y resoluciones que los notarios ejecuten o emitan en uso de la competencia en actividad judicial no contenciosa, para todos los efectos legales, tendrán igual valor que las desplegadas por los funcionarios judiciales.

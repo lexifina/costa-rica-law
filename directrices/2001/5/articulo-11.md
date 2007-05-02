@@ -1,1 +1,0 @@
-ARTÍCULO 11.- Normas aplicables en el procedimiento a seguir: La tramitación del asunto se hará siguiendo los mismos procedimientos establecidos en la ley, para los tribunales de justicia, según lo indique la normativa instrumental aplicable.

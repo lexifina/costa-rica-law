@@ -1,1 +1,0 @@
-ARTÍCULO 13.- Cambio del lugar en que se encuentra ubicada la notaría: Si durante el curso del proceso, el notario trasladare su notaría o domicilio notarial, de previo, dictará resolución en que dará cuenta de ese acontecimiento a todas las partes intervinientes. Lo anterior, sin perjuicio de lo dispuesto por el artículo 143 inciso h) del Código Notarial.

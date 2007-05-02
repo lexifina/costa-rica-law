@@ -1,6 +1,0 @@
-ARTÍCULO 7.- Conformación del expediente: Para la conformación del expediente, se seguirán las siguientes indicaciones:
-a.- Para todas sus actuaciones dentro del expediente, el notario utilizará su papel notarial de seguridad.
-b.- Los folios del expediente deben estar cosidos (no prensados) a la carátula frontal y la contratapa señaladas en el artículo 3 de este Reglamento.
-c.- Cada folio deberá contener en su esquina superior derecha, el sello blanco del notario tramitador y el número respectivo de foliatura. Se foliarán también documentos originales y copias de otros documentos, ya sean éstas fotostáticas, al carbón, u obtenidas por otro medio de reproducción aceptado por el ordenamiento jurídico.
-d.- Si por alguna razón, no se pudiere agregar al expediente el original de un documento, en su lugar se adjuntará copia certificada, con indicación del motivo que impide contar con el original de ésta.
-e.- El expediente se conformará con un único juego de los documentos originales y las copias que deban agregarse al mismo. No formarán parte del expediente, duplicados de documentos originales, ni las copias destinadas a las partes involucradas en el proceso, que no hubieren sido retiradas por éstas, al momento de enviar el legajo a su archivo. Lo anterior, sin perjuicio de lo dispuesto en los artículos 47 y 48 del Código Notarial.
