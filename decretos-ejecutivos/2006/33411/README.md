@@ -14,3 +14,4 @@ Reglamento a la Ley de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-04 | la propia norma |
+| 2 | 2007-05-02 | Decreto Ejecutivo 33758 (2007-05-02) |
