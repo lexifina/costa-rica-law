@@ -1,1 +1,0 @@
-Artículo 98.—Sobreimpresión en la razón. La sobreimpresión de instrumentos en la razón de apertura, es causa de invalidez de la razón, de ahí que para que el notario continúe asentando instrumentos en ese tomo, el mismo deberá comparecer ante la Dirección, a fin de reproducirla.

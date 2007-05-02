@@ -1,1 +1,0 @@
-Artículo 17.—Actividad no contenciosa. Las actuaciones notariales respecto de la competencia en actividad judicial no contenciosa, tendrán igual valor que las practicadas por los funcionarios judiciales competentes, por lo cual, el notario deberá actuar conforme a los valores propios de la actividad jurisdiccional.

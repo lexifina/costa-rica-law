@@ -1,2 +1,0 @@
-Artículo 106.—Autenticación de firma del notario público.
-Concepto. Es una potestad propia del Estado asignada por ley a la Secretaría de la Corte, delegada a la vez por disposición de la misma a la DNN, que consiste en autenticar la firma del notario activo cuando se trate de traducción, certificación, expedición de testimonios, certificaciones de fotocopias, y cualquier otro documento que se dirija fuera del país; lo que se lleva a cabo mediante la verificación de la similitud de la rúbrica con la firma inscrita en el RNN.

@@ -1,1 +1,0 @@
-Artículo 56.—Autenticación de la firma del notario. Cuando la traducción notarial requiera la autenticación de la firma del notario por parte de la DNN, el mismo deberá indicar mediante razón que conoce el idioma extranjero, señalando el lugar de destino y una suscinta referencia del contenido del documento.

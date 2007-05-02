@@ -1,1 +1,0 @@
-Artículo 49.—Ámbito de la potestad certificadora. La autorización que tiene el notario para extender certificaciones se constriñe al ámbito documental, por lo que no es viable la certificación de manifestaciones verbales o de acontecimientos observados por el notario, pues para ello la legislación ha reservado otros mecanismos.

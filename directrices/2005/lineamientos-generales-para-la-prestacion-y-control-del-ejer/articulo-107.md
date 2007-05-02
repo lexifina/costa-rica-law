@@ -1,1 +1,0 @@
-Artículo 107.—Contenido del acto. Con la autenticación de la firma de notario, la DNN no está avalando el contenido del documento, corresponde al fedatario garantizar su eficacia y validez. Esta oficina únicamente se limita a confirmar la semejanza de la firma y sello que el notario ha impreso en el documento, comparándolos con la estructura oficial de los registrados en la DNN.

@@ -1,1 +1,0 @@
-Artículo 61.—Rechazo de trámite. Cualquier incumplimiento en las disposiciones administrativas citadas, genera el rechazo del trámite del documento y si hubiera algún incumplimiento de directrices o normas legales podría, ser susceptible de una denuncia ante los órganos competentes.

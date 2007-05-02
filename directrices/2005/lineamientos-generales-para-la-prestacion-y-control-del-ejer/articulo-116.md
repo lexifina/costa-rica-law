@@ -1,1 +1,0 @@
-Artículo 116.—Control notarial en las oficinas públicas. El control en las oficinas públicas respecto de los notarios de planta, estará dirigido al cumplimiento del ejercicio exclusivo para la institución para la cual laboran y sujeto a los presupuestos mediante los cuales se le autorizó ese ejercicio.

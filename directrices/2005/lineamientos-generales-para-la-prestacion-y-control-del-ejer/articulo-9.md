@@ -1,1 +1,0 @@
-Artículo 9º—Deber de abstención. Abstenerse de brindar el servicio notarial estando suspendido por aplicación del régimen disciplinario notarial, del Colegio de Abogados y cuando sobrevenga a su ejercicio la inhabilitación legal.

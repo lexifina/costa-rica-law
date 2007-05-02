@@ -1,1 +1,0 @@
-Artículo 92.—Incorporación al Colegio de Abogados. Se establece que para presentar la solicitud para ser y ejercer como notario a partir de la vigencia del inciso c) del artículo 3º del CN, el interesado deberá contar con dos años de incorporación al Colegio de Abogados y contar como mínimo con el título de especialista en Derecho Notarial y Registral.

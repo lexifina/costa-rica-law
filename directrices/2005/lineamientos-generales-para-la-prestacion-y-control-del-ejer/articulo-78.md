@@ -1,5 +1,0 @@
-CAPÍTULO X
-Reposición de tomo o folios de protocolo
-Artículo 78.—Concepto de reposición de tomo y folios de protocolo. La reposición de tomo o folios de protocolo consiste en un medio de seguridad jurídico notarial cuando por extravío, destrucción, inutilización, deterioro total o parcial, la DNN a requerimiento y bajo la responsabilidad del notario público, repone folios no utilizados o reproducciones de instrumentos asentados en los folios utilizados, una vez concluido el plazo concedido por medio de citación por edictos de los interesados.
-(Así corregido mediante publicación hecha por la Dirección Nacional de Notariado, en el Boletín Judicial N° 159 del 19 de agosto del 2005)
-Es una gestión de naturaleza administrativa que de conformidad con el CN, suspende la autorización del uso del tomo de protocolo hasta que no se consigne la razón mediante la cual se le autoriza a seguir utilizándolo o la autorización para que adquiera el tomo de protocolo siguiente, y sino no se autoriza se informará a los registros y archivo notarial para los controles respectivos.

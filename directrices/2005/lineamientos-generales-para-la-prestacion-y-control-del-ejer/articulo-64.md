@@ -1,1 +1,0 @@
-Artículo 64.—Medidas de seguridad notarial. El papel de seguridad notarial, numeración, sello blanco y firma del notario público, determinan los medios idóneos de seguridad que deberán contener todos los documentos extendidos por los notarios públicos activos.

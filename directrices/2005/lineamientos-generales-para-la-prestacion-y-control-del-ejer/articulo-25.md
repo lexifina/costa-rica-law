@@ -1,5 +1,0 @@
-Artículo 25.—Servicio notarial para el estado. El servicio notarial brindado por el estado manifiesta tres formas posibles:
-a). Servicio al Estado bajo una remuneración salarial, con dedicación exclusiva y sujeto al régimen de empleo público. Tiene como prohibiciones brindar el servicio privado y el cobro de honorarios al Estado por la prestación de estos servicios. Llamado también notario de planta, con salario o retribución fija.
-b). Servicio que presta el notario que teniendo un cargo público concomitantemente puede brindar el servicio privadamente con la prohibición de atender esos asuntos en las oficinas públicas. También puede brindar ese servicio para la propia entidad pública sin cobro.
-c). El servicio de notario que, contratado a plazo fijo por el Estado para brindar ese servicio por medio de honorarios, sin mediar salario alguno. Tiene como prohibición brindarlo a más de tres instituciones públicas (notario externo).
-(Así corregido mediante publicación hecha por la Dirección Nacional de Notariado, en el Boletín Judicial N° 159 del 19 de agosto del 2005)

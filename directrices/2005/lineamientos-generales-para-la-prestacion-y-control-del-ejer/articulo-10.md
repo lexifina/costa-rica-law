@@ -1,1 +1,0 @@
-Artículo 10.—Asesoramiento y ética. El asesoramiento presupone un contenido ético moral que define siempre un comportamiento notarial ajustado a los principios que rigen la materia y los principios universales de transparencia, probidad, decoro y lealtad al usuario.

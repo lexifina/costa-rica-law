@@ -1,2 +1,0 @@
-Artículo 90.—Publicidad de la información general del notario.
-El control que ejerce la DNN respecto al ejercicio y el servicio notarial se refleja en el RNN, medio por el cual ese órgano realiza la publicidad del estado activo o no del notario público, firmas, sellos blancos, direcciones de su despacho, salidas y entradas del país, el tomo de protocolo en uso, régimen disciplinario, reposición de protocolo entre otros.

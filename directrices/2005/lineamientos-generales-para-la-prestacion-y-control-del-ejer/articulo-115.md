@@ -1,1 +1,0 @@
-Artículo 115.—Tipos de selección. La resolución que ordene el control del ejercicio del notariado a que hace referencia el artículo anterior, deberá indicar el tipo de selección de los notarios por visitar- aleatoria o específica - y se realizará tanto para notarios con oficina abierta al público como para los notarios en régimen de empleo público.

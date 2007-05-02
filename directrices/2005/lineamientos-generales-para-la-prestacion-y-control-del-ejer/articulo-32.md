@@ -1,1 +1,0 @@
-Artículo 32.—Deber de presentación. La presentación de documentos que por ley deben acompañar el índice respectivo, corresponderá al notario que autorizó el uso del protocolo en el cual se actúa. (ejemplo, testamentos).

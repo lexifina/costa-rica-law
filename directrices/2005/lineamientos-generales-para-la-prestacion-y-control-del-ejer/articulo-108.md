@@ -1,1 +1,0 @@
-Artículo 108.—Datos consignados mediante razón. El fedatario estará obligado a consignar en ellos la razón notarial correspondiente, indicando el país al que serán remitidos, así como la oficina o el lugar específico de destino y además el lugar, la hora y la fecha en que se consigna dicha razón.

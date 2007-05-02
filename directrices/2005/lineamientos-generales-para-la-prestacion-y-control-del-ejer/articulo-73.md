@@ -1,1 +1,0 @@
-Artículo 73.—Cambio de oficina. Cuando el notario público activo traslade la oficina a lugar diferente al registrado, deberá informarlo a la DNN en el momento de ejecutar el referido traslado sin que supere el período que establece la ley.

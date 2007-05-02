@@ -1,1 +1,0 @@
-Artículo 118.—Denuncia. Concepto. La DNN denunciará al notario ante el Tribunal Disciplinario, cuando, al aplicar el control o ante solicitud de una autoridad jurisdiccional, detecte una irregularidad grave que merezca sanción y que perjudique a las partes, terceros o a la misma fe pública.
