@@ -1,4 +1,6 @@
+(Derogado)
 DIRECTRIZ N° 2001-03
+(Esta Directriz fue derogada por el Artículo 261 de Lineamientos para el ejercicio y control del servicio notarial de fecha 2 de mayo del 2007)
 DIRECCION NACIONAL DE NOTARIADO.- A las catorce horas treinta minutos del dos de mayo de dos mil uno.-
 RESULTANDO:
 1.- Que el Código Notarial reservó en esta Dirección la potestad reglamentaria en aspectos propios de la función notarial, y el artículo 24, inciso d) y m), de ese cuerpo legal, le atribuye competencia para emitir lineamientos de orden general y de acatamiento obligatorio, para que los notarios presten sus servicios a los usuarios en forma eficiente y segura, por cuyo cumplimiento deberán velar las oficinas públicas encargadas de recibir y tramitar los documentos notariales y resolver las gestiones o cuestiones planteadas respecto de la actividad notarial.-
