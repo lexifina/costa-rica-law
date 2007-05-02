@@ -1,0 +1,3 @@
+3º—Emitir un nuevo documento que derogue el publicado y ponerlo a la disposición de los interesados, publicando en el Diario Oficial una invitación, indicando que el documento completo corregido podrá adquirirse en la Proveeduría de Acueductos y Alcantarillados, sita en Pavas, 3 días hábiles después de la publicación. Rige a partir de su publicación. Publíquese en el Diario Oficial La Gaceta. Comuníquese.
+Acuerdo firme.
+Acuerdo número 2007-189, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados en el inciso b), del artículo 6, de la sesión ordinaria Nº 2007-022, celebrada el 17/04/2007. San José, 24 de abril del 2007.
