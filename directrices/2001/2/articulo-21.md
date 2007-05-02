@@ -1,3 +1,0 @@
-ARTÍCULO 21
-TRÁMITE DE DEVOLUCIÓN:
-Este trámite deberá realizarse por escrito por el notario interesado o la parte legitimada en el caso de fallecimiento, adjuntando copia del comprobante de depósito definitivo del tomo de protocolo en uso, extendido por el Archivo Notarial. El notario, debe estar al día en sus obligaciones y quien gestione, deberá señalar medio o lugar para oír notificaciones. Vencido el plazo a que hace referencia el artículo 18 de este Reglamento, se procederá a dictar la resolución que corresponda; una vez firme, la Dirección ordenará a la Operadora, que gire las sumas determinadas en sentencia.

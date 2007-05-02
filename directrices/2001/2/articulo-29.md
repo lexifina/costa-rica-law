@@ -1,3 +1,0 @@
-ARTÍCULO 29
-PLURALIDAD DE ACCIONES CIVILES RESARCITORIAS:
-Si recibidas las certificaciones indicadas en el anterior artículo, se determinare la existencia de otros procesos contra el mismo notario, en los que se pretende el reconocimiento de acciones civiles resarcitorias, la Dirección dejará constancia de ese hecho, el cual podrá ser tomado en cuenta para la determinación del monto máximo a pagar, de conformidad con la capacidad económica del fondo. Todo lo anterior, sin perjuicio de la aplicación de las reglas de acumulación de procesos y pretensiones, contenidas en el ordenamiento procesal civil vigente.

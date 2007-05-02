@@ -1,3 +1,0 @@
-ARTICULO 6
-EFECTOS DE LA MOROSIDAD:
-El pago de la cuota mensual deberá realizarse anticipadamente, sin perjuicio de que voluntariamente se efectúe en forma bimensual, trimestral, etc., todo de conformidad con lo establecido en el presente Reglamento. El Fondo de Garantía no responderá por los eventuales efectos que se deriven de los actos o contratos autorizados o expedidos en el período en que un notario se encuentre en mora en sus cotizaciones para dicho Fondo. La circunstancias de que posteriormente el notario proceda a cumplir con ese requisito, no convalida la cobertura de esos eventuales efectos, ya que durante el período en que omitió su obligación de cotización sus actuaciones no se encontraban garantizadas.
