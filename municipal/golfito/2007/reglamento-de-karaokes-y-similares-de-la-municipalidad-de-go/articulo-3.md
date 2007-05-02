@@ -1,0 +1,1 @@
+Artículo 3º—Toda actividad social con “Karaokes” que se programe en establecimientos comerciales, deberá de contar con el correspondiente permiso de la Municipalidad de Golfito, para su realización, en caso de no tener patente.

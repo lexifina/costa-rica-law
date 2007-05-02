@@ -1,0 +1,1 @@
+Artículo 10.—Las personas físicas o jurídicas que se dediquen a brindar el servicio de “Karaokes”, los patentados de negocios de ese cantón deberán de contar con una licencia municipal de acuerdo con el artículo 79 del Código Municipal.
