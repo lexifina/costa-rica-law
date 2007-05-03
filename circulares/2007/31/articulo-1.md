@@ -1,0 +1,8 @@
+CIRCULAR Nº 031-07
+ASUNTO: Procedimiento a aplicar en casos de requerimiento de la devolución de licencias a infractores en caso de ebriedad.
+A TODOS LOS DESPACHOS JUDICIALES QUE
+CONOCEN MATERIA DE TRÁNSITO
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión Nº 16-07, celebrada el 1º de marzo del año en curso, artículo LXX, dispuso comunicarles la recomendación de la Comisión Interinstitucional de Tránsito, cuyo texto literalmente dice:
+“En atención a la problemática actual que afronta el país, con relación al aumento en la incidencia de conducción temeraria, ya sea por hacerlo bajo los efectos del licor, por exceso de velocidad, etc., esta Comisión considera prudente hacer la recomendación a los jueces con relación al procedimiento a aplicar en casos de requerimiento de la devolución de licencias a dichos infractores. Tomando en cuenta que el retiro de la licencia implica una medida cautelar de suspensión provisional de la misma; ésta se debe mantener, independientemente de que haya o no impugnación de la infracción, hasta el dictado de la sentencia, momento procesal en donde el juez valorará si se mantiene la suspensión por el tiempo establecido por la normativa vigente, -previa verificación de reincidencia-; máxime si hay una aceptación tácita de cargos por parte del conductor, que puede extraerse del pago de la multa impuesta en la boleta de citación; o en su defecto, levantar dicha suspensión de no probarse la falta atribuida, momento en el cual se procederá a la devolución de la licencia, previa verificación de requisitos conforme lo dispone el artículo 207 de la Ley de Tránsito.”
+San José, 21 de marzo de 2007.
