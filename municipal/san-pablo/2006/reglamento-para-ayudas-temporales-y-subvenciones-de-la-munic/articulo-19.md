@@ -1,0 +1,1 @@
+Artículo 19.—Fuera del plazo establecido en el artículo anterior, el área de Desarrollo Social podrá, en casos calificados, recomendar subvenciones para que sean consideradas por el Concejo Municipal, en “presupuestos extraordinarios” o en “modificaciones presupuestarias”, según las posibilidades financieras de la Municipalidad.

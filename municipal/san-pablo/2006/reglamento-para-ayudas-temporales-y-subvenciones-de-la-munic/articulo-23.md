@@ -1,0 +1,1 @@
+Artículo 23.—Los Centro Educativos y las organizaciones de beneficencia social, que hayan sido objeto de ayuda Municipal, quedarán obligados a presentar, los libros contables y los demás informes que necesiten, con el fin de fiscalizar que los fondos o recursos transferidos se apliquen a los fines propuestos.
