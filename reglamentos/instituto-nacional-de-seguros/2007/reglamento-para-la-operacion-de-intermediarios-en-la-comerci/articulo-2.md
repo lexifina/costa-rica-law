@@ -1,0 +1,1 @@
+Artículo 2º—Diversidad de vías para la comercialización de seguros. La contratación de Intermediarios para la comercialización de productos y servicios de seguros, no excluye ni limita de manera alguna, la facultad del Instituto para promocionar, gestionar y vender directamente sus productos y servicios a los clientes, coordinando lo pertinente con el intermediario si lo hubiere.

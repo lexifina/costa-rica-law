@@ -1,0 +1,3 @@
+Artículo 31.—Daños y perjuicios ocasionados por el Intermediario. El Intermediario será responsable ante el Instituto, por los daños y perjuicios ocasionados a terceros, a clientes o al mismo Instituto, producto de la no entrega o entrega inoportuna de dineros, valores, o cualquiera otro aspecto derivado de la inobservancia de sus obligaciones contractuales.
+El Intermediario será responsable ante el Instituto de las actuaciones del personal a su cargo así como de aquellas figuras auxiliares contratadas para darle soporte a su gestión.
+Para resarcirse el Instituto podrá liquidar la garantía de cumplimiento, subrogarse en contra del Intermediario, o activar cualquier otro mecanismo administrativo o legal que resulte pertinente.

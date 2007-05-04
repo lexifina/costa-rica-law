@@ -1,0 +1,1 @@
+Artículo 28.—Potestad de verificación de trámites. La facultad otorgada al Intermediario no inhibe ni limita la potestad del Instituto y sus unidades técnicas de verificar que los trámites se realicen dentro de las condiciones estipuladas para cada riesgo.

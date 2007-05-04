@@ -1,0 +1,2 @@
+Transitorio II.—En el momento que entre en vigencia la Ley Reguladora del Mercado de Seguros las partes podrán entrar a negociar nuevas condiciones y términos para prorrogar la relación, o para constituir una nueva al amparo de dicha legislación. Para ello se establece un plazo máximo de seis meses. En caso de no llegar a un acuerdo podrán dar por terminada la relación comercial según lo pactado en el contrato original.
+27 de abril del 2007.

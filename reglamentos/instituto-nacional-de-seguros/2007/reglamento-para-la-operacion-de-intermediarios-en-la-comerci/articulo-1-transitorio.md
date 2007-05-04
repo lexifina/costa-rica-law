@@ -1,0 +1,1 @@
+Transitorio I.—Los contratos con intermediarios que se encuentren vigentes a la fecha de aprobación del presente Reglamento podrán continuar en las mismas condiciones hasta el vencimiento del plazo o solicitar su acreditación en las nuevas condiciones. En el segundo caso, deberán suscribir un finiquito con la Administración para dar por concluido el actual contrato.

@@ -1,0 +1,1 @@
+Artículo 21.—Comisión por seguros con soporte de reaseguro facultativo. En el caso de pólizas con soporte de Reaseguro Facultativo, la comisión en favor del Intermediario se calculará sobre la base del porcentaje de comisión que el reasegurador reconozca al Instituto, por la fracción del negocio cedido.

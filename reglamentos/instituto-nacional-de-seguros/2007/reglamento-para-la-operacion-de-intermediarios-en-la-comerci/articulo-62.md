@@ -1,0 +1,1 @@
+Artículo 62.—Concentración de operaciones. En ningún caso podrá el Intermediario, sea éste persona física o jurídica, concentrar sus operaciones en la atención exclusiva de un solo Grupo Económico de Empresas.

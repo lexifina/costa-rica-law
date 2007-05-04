@@ -1,0 +1,4 @@
+Artículo 58.—Suspensión o cancelación de la autorización. El Instituto queda facultado para suspender o cancelar las autorizaciones a los Agentes de Seguros, cuando dejen de cumplir alguno de los requisitos indicados en el presente Reglamento o violen sus obligaciones, siguiendo para ello el debido proceso que les garantice su derecho de defensa.
+La suspensión podrá ser en una, varias o todas las líneas de seguros, y por un plazo máximo de 10 años.
+En el caso de cancelación de la autorización, el Agente puede solicitar la rehabilitación de ésta, una vez transcurridos al menos 10 años desde su decreto, previa demostración del cumplimiento de los requisitos estipulados a la fecha de la solicitud de rehabilitación, para la obtención de la autorización.
+En los casos de suspensión o cancelación, el Instituto Nacional de Seguros ejecutará el retiro del carné que identifica al titular de la autorización.

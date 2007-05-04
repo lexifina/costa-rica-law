@@ -1,0 +1,4 @@
+Artículo 19.—Pago de comisiones. Las comisiones podrán liquidarse bajo dos modalidades:
+1) Neteo de comisiones. El intermediario remitirá al INS la prima de seguro menos la comisión. Este sistema se utilizará en los casos que expresamente el INS autorice, entidad que deberá registrar contablemente la totalidad de la operación.
+2) Liquidación quincenal. Las comisiones devengadas en la quincena anterior, serán liquidadas al respectivo Intermediario a más tardar el cuarto día hábil después de la fecha de corte de cada quincena. Esta liquidación estará a cargo de la Dirección de Mercadeo y Ventas, y los intermediarios deberán presentar la factura correspondiente a las comisiones devengadas en la quincena inmediata anterior, durante los siguientes cinco días hábiles.
+En caso de no presentación de la factura en el plazo establecido, la vía del pago se modificará de acuerdo a lo que establece el procedimiento interno del pago de comisiones.

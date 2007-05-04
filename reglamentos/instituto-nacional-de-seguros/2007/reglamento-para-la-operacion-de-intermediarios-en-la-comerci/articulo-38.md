@@ -1,0 +1,1 @@
+Artículo 38.—Faltas leves. Se considerarán faltas leves aquellos actos u omisiones de los Intermediarios, que violen lo dispuesto en el contrato, la oferta, este reglamento o la normativa conexa pero que no causen daños económicos al INS o a terceros y que no estén tipificadas como infracciones graves o muy graves en la normativa aplicable.

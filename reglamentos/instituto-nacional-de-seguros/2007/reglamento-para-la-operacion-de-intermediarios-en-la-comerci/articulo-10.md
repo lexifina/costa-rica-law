@@ -1,0 +1,1 @@
+Artículo 10.—Cumplimiento de condiciones contractuales y reglamentarias. El Intermediario deberá cumplir a cabalidad, y durante todo el plazo de la contratación, aquellas condiciones contenidas en la contratación, así como actualizaciones incorporadas con posterioridad a la suscripción del contrato tanto en el presente Reglamento como en las regulaciones conexas.

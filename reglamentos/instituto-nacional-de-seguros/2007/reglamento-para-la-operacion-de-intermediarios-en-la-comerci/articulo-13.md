@@ -1,0 +1,7 @@
+Artículo 13.—Requisitos mínimos para la operación. Empresas de Mercadeo Masivo, Banca Seguros u Organizaciones sociales:
+a) Contar con la infraestructura física, de equipo y tecnológica, requerida para una eficiente comercialización de los seguros, de acuerdo con los modelos que suministre el Instituto. La plataforma tecnológica informática deberá ser compatible con la del Instituto, de acuerdo con sus especificaciones.
+b) Contar con el soporte administrativo y de control suficiente para el ejercicio de la actividad, acorde con el volumen de operaciones.
+c) Contar con el número de promotores autorizados por el Instituto, necesarios para la realización de sus operaciones.
+d) Rendir una garantía de cumplimiento para responder por sus obligaciones frente al Instituto y sus clientes por un monto no menor al 5% del volumen de primas promedio mensuales. Esta garantía no podrá ser inferior al equivalente en colones de novecientas cincuenta (950) unidades de desarrollo y deberá estar debidamente actualizada a más tardar el décimo día hábil del mes de enero de cada año y mantenerse vigente ininterrumpidamente durante toda la vigencia del contrato.
+e) Suscribir y mantener vigentes, de manera continua, una póliza de fidelidad de posiciones y otra de dinero en tránsito, u otra que contemple ambas coberturas, a efecto de proteger la manipulación y trasiego de dineros, valores y documentos del Instituto.
+f) Cualquier otro que expresamente consigne el Instituto.

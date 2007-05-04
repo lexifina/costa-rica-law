@@ -1,0 +1,1 @@
+Artículo 24.—Comisión ante cambio de Intermediario. Cuando el asegurado manifieste por escrito ante el Instituto su voluntad de cambiar de Intermediario, la comisión se reconocerá al nuevo Intermediario a partir de la próxima renovación del contrato póliza, sea ésta anual o semestral.
