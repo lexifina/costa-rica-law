@@ -14,3 +14,4 @@ Reglamento para la administración del Fondo Rotatorio del Poder Judicial
 | --- | --- | --- |
 | 1 | 2005-10-27 | la propia norma |
 | 2 | 2006-10-26 | Circular 140 (2006-10-26) |
+| 3 | 2007-05-07 | Circular 49 (2007-05-10) |

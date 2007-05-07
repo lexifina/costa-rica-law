@@ -1,2 +1,2 @@
-Artículo 4—Gastos autorizados. Los recursos del fondo deberán ser depositados en cuenta corriente en cualquiera de los bancos del Estado, y podrán utilizarse únicamente para erogaciones en las partidas de materiales y suministros, servicios no personales, salarios, y en la adquisición de los equipos contemplados en las subpartidas 310, 320, 340, 350, 360 y 390.
-(Así reformado mediante circular N° 140 del 26 de octubre del 2006).
+Artículo 4º—Gastos autorizados. Los recursos del fondo deberán ser depositados en una cuenta corriente en cualquiera de los bancos del Estado y podrán utilizarse únicamente para erogaciones en las partidas de materiales y suministros, servicios no personales, salarios y en la adquisición de los bienes y equipos contemplados en las subpartidas 5.01.01, 5.01.03, 5.01.04, 5.01.05, 5.01.07, 5.01.99, 5.01.06 y 5.99.03.
+(Así reformado mediante circular N° 049 del 10 de mayo del 2007).
