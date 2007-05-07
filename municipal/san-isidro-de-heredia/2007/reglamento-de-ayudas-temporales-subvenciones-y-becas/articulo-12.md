@@ -1,0 +1,1 @@
+Artículo 12.—El Concejo Municipal otorgará, si procede y si hay disponibilidad presupuestaria, la ayuda dentro de un plazo de 15 días hábiles, después de haber conocido la recomendación del concejo de distrito y analizada la misma.

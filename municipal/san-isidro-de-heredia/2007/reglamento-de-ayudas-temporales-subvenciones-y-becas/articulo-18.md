@@ -1,0 +1,1 @@
+Artículo 18.—El Concejo de Distrito, está facultado para requerir a la organización solicitante de la subvención de los documentos que estime como necesarios y pertinentes. El Concejo de Distrito remitirá su dictamen al Concejo Municipal en un plazo máximo al 31 de julio del año en curso.

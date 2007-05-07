@@ -1,0 +1,1 @@
+Artículo 10.—De los plazos: La ayuda que señala el artículo 62 del Código Municipal, deberá solicitarla el propio vecino damnificado, en el transcurso de treinta días naturales posteriores al día en que ocurrió el evento. Si la solicitud es presentada posterior a la fecha se rechazará por resultar extemporánea.
