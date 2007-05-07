@@ -1,1 +1,0 @@
-Artículo 18.—Todo sobrante de dinero, originado en la liquidación del adelanto de Caja Chica, deberá ser depositado en el Fondo de Caja Chica, dentro del día hábil siguiente a la liquidación, luego del cual el funcionario deberá notificarlo a la Dirección Administrativa.

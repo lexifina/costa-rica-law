@@ -1,1 +1,0 @@
-Artículo 34.—Toda infracción a las disposiciones contenidas en el presente Reglamento, podrá ser motivo suficiente para la suspensión o supresión temporal de la Caja Chica sin perjuicio de lo establecido en la Ley de la Administración Financiera de la República y Presupuestos Públicos.

@@ -1,2 +1,0 @@
-Artículo 31.—Cualquier faltante al momento de practicarse el arqueo deberá ser cubierto, de forma inmediata, por el Encargado de la Caja Chica. Si existiera sobrante, este deberá ser depositado al día siguiente de efectuado el arqueo, en la cuenta bancaria del Tribunal Registral Administrativo.
-Si el encargado de la Caja Chica incumple con alguna de estas obligaciones se considerará falta grave, susceptible de ser sancionada como tal de acuerdo con la normativa aplicable al caso.

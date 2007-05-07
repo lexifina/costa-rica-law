@@ -1,2 +1,0 @@
-Artículo 7º—Los únicos pagos en efectivo que podrá realizar el Tribunal Registral Administrativo son los que se efectúen a través del Fondo de Caja Chica y la suma inicial a cubrir con este fondo, para la adquisición de bienes y servicios es por la suma de ¢50.000,00 (cincuenta mil colones).
-Cuando se requiera hacer erogaciones por un monto superior a ¢50.000.00 (cincuenta mil colones), solicitado por una misma unidad y finalidad; se debe seguir el procedimiento señalado en el artículo 25 del presente Reglamento.

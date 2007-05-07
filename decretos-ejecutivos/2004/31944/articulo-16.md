@@ -1,1 +1,0 @@
-Artículo 16.—El funcionario que concluyó una gira deberá verificar la presentación de las cuentas y/o liquidación definitiva, dentro del plazo improrrogable de siete días hábiles posteriores contados a partir del día siguiente a su regreso, según lo estipula el artículo 10 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
