@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 1° del decreto ejecutivo N° 33832 del 7 de mayo de 2007)
 Nº 32384
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE JUSTICIA Y GRACIA
