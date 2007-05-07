@@ -1,0 +1,1 @@
+Artículo 9º—Las asociaciones de desarrollo y las organizaciones sociales sin fines de lucro podrán nombrar un representante el cual, podrá participar con voz, pero sin voto en las sesiones del Concejo de Distrito. Asimismo, brindará el apoyo necesario a las organizaciones distritales, zonales o cantonales del desarrollo comunal.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Organización interna
+Artículo 10.—La jurisdicción territorial del Concejo de Distrito, es el distrito y deberá aprobar un domicilio exacto para sus reuniones y notificaciones, que comunicarán a la Municipalidad, sin perjuicio de realizar reuniones y actividades en cualquier otra dirección, previo acuerdo y conocimiento de los miembros integrantes.
