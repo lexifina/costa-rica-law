@@ -6,8 +6,10 @@ d) Velar por la limpieza, custodia y conservación en buen estado del vehículo 
 e) Velar porque el vehículo se encuentre en buen estado de funcionamiento y posea las herramientas y accesorios necesarios.
 f) Rehusar la operación de un vehículo que se encuentre en condiciones de poner en peligro la integridad física del servidor y de terceros, previo diagnóstico del funcionario o funcionaria competente, comunicándolo a su jefe inmediato y a la instancia encargada de los Recursos Humanos, por escrito de las razones que le asisten para negarse.
 g) En caso de accidente, informar a la jefatura, realizando un informe detallado y por escrito conforme lo establece el artículo 26 de este Reglamento. Este informe deberá rendirse a más tardar ocho días después de acaecido el hecho.
-h) Los vehículos municipales sólo podrán ser conducidos por funcionarios o funcionarias municipales sin excepción.
+h) Los vehículos municipales sólo podrán ser conducidos por funcionarios o funcionarias municipales o en su defecto por terceras personas siempre y cuando cuenten con el viso bueno de la alcaldía
+(Así reformado el inciso anterior mediante sesión N° 54 del 7 de mayo de 2007)
 i) Utilizar los vehículos exclusivamente en las labores asignadas en la administración municipal de conformidad con las siguientes disposiciones:
 Anotar en la bitácora de salida, el destino específico al que se dirige y en ocasión del servicio que va a prestar.
-Ingresar los vehículos al predio municipal, a más tardar a las 18 horas y nunca retirarlos en días no hábiles, salvo autorización razonada. Con excepción de aquel de uso discrecional.
-Los conductores o choferes, que hagan usos no laboral de los vehículos municipales, se harán acreedores de las sanciones establecidas por ley.
+Ingresar los vehículos al predio municipal, a más tardar a las 18 horas y nunca retirarlos en días no hábiles, salvo autorización previa del concejo o la acaldía justiticando.
+Los conductores o choferes, que hagan uso no laboral de los vehículos municipales, se harán acreedores de las sanciones establecidas por ley siempre y cuando no sea con previo visto bueno del concejo o la alcaldía justificando
+(Así reformado el inciso anterior mediante sesión N° 54 del 7 de mayo de 2007)

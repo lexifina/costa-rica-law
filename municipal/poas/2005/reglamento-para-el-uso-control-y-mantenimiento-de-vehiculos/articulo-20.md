@@ -1,1 +1,2 @@
-Artículo 20.—Personas ajenas: En los vehículos de uso administrativo u operativo es prohibido que viajen personas ajenas a la Municipalidad, salvo en aquellos casos justificados por razones de emergencia u oportunidad, las cuales serán justificadas por escrito, en el espacio para observaciones en el debido reporte y analizadas por la Alcaldía. Queda prohibida la utilización de los mismos en actividades político electorales.
+Artículo 20.—Personas ajenas: En los vehículos de uso administrativo u operativo es prohibido que viajen personas ajenas a la municipalidad, salvo en aquellos casos justificados por razones de emergencia u oportunidad, debidamente autorizados por el alcalde o el concejo municipal.
+(Así reformado mediante sesión N° 54 del 7 de mayo de 2007)

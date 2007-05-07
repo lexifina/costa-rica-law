@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de vehículos de la municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-07 | la propia norma |
+| 2 | 2007-05-07 | Reglamento municipal 54 (2007-05-07) |
