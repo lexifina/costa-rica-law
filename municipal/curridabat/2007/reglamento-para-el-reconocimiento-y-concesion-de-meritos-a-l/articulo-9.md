@@ -1,0 +1,1 @@
+Artículo 9º—Las personas honradas con tal distinción recibirán una estatuilla con la imagen metálica del cacique Currirava con una pequeña placa con un texto que señale el año y la categoría de la actividad premiada,así como un pergamino.

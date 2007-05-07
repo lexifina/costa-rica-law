@@ -1,0 +1,1 @@
+Artículo 7º—En la categoría de la cultura será distinguida aquella persona residente de Curridabat que sobresale en actividades culturales y contribuya al aporte de las artes, letras, música y folclore.

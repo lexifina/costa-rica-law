@@ -1,0 +1,1 @@
+Artículo 2º—Se establece que la Comisión Municipal de Cultura se instituye como jurado para otorgar la distinción de “Ciudadano distinguido de Curridabat”. Este honor es preferible otorgado en vida pero podrá darse a personas fallecidas como homenaje póstumo.

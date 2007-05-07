@@ -1,0 +1,1 @@
+Artículo 8º—En la categoría de servicio comunal será distinguido aquel ciudadano curridabatense que se destaque por su servicio serio, responsable y ejemplar en instituciones como la Fuerza Pública, Cruz Roja Costarricense, Municipalidad de Curridabat y Asociaciones de Desarrollo destacadas en el cantón.

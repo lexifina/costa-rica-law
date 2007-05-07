@@ -1,0 +1,1 @@
+Artículo 6º—En la categoría del deporte se le otorgará tal distinción al ciudadano curridabatense que destaque en competencias deportivas a escala cantonal, nacional e internacional así como en el caso de los juegos nacionales que glorifiquen el buen nombre de Curridabat.
