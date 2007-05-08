@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Cláusula interpretativa
+En relación con el inciso (ii) del artículo 1 del Acuerdo marco de cooperación financiera entre la República de Costa Rica y el Banco Europeo de Inversiones, para Costa Rica se entenderá que, cuando una solicitud no provenga directamente del Gobierno de Costa Rica, la financiación se someterá al dictamen del Gobierno de la República, mediante el órgano encargado, según la legislación interna.
