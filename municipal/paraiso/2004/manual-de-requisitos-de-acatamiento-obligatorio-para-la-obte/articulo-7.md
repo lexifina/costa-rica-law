@@ -1,1 +1,0 @@
-7º—De otras regulaciones. En los locales donde se autorice la instalación se deberá respetar las regulaciones que sobre seguridad disponen las leyes nacionales, especialmente en lo referente al espacio y a los niveles de movilidad de los usuarios.
