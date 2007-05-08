@@ -1,0 +1,5 @@
+ARTÍCULO 7
+Estatuto del Banco, trato dispensado al mismo
+En el territorio de Costa Rica el Banco gozará de plena personalidad jurídica, lo cual incluirá en particular capacidad para contratar, para adquirir y enajenar bienes muebles e inmuebles y para comparecer ante los tribunales.
+En el ejercicio de sus actividades en el territorio de Costa Rica, el Banco recibirá el trato dispensado a la institución internacional con un trato más favorable en relación con tales actividades, o bien el trato más favorable previsto por cualquier convenio internacional en relación con dichas actividades.
+En particular, el Banco gozará de libertad de acceso al mercado financiero nacional de Costa Rica y sus obligaciones y títulos recibirán, en materia fiscal y en otros aspectos, un trato al menos tan favorable como el dispensado a los organismos públicos de Costa Rica, incluido el Estado, y a la institución financiera internacional más favorecida, salvo en lo referente a la garantía con que cuentan los depósitos de los bancos comerciales del Estado.
