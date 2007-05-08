@@ -1,0 +1,1 @@
+Artículo 2º—La CONAO tiene como objetivo crear y desarrollar el sistema nacional de prevención, regulación, vigilancia y control de la obesidad a fin de disminuir el riesgo de morbimortalidad de las enfermedades asociadas a la misma, y contribuir a mejorar la calidad de vida de la población.

@@ -1,0 +1,1 @@
+Artículo 5º—El Consejo Ministerial de la SEPAN ampliado está conformado por la Ministra de Salud quien lo preside, el Ministro de Educación Pública y el Presidente Ejecutivo de la Caja Costarricense de Seguro Social.
