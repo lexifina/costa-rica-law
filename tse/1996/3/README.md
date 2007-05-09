@@ -19,3 +19,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 4 | 2004-04-13 | Decreto TSE 4 (2004-04-13) |
 | 5 | 2005-08-30 | Decreto TSE 13 (2005-08-30) |
 | 6 | 2006-12-08 | Decreto TSE 19 (2006-12-08) |
+| 7 | 2007-05-09 | Decreto TSE 5 (2007-05-09) |
