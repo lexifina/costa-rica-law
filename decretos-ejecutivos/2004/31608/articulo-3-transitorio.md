@@ -1,2 +1,1 @@
-Transitorio III.—A los concesionarios de frecuencias para el servicio de Radiodifusión Sonora que la condición de la concesión otorgada así lo permita, tendrán un plazo hasta el 30 de septiembre del 2007 para que realicen los ajustes técnicos necesarios, con el fin de ampliar sus señales a todo el territorio nacional.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 32786 del 17 de noviembre de 2005).
+Transitorio III.—(Así derogado por el artículo 2° del Decreto Ejecutivo N° 33856 del 09 de mayo 2007).

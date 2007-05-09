@@ -6,5 +6,5 @@ Previo procedimiento administrativo ordinario ajustado a las disposiciones que e
 4. Cuando se traspase temporal o definitivamente la concesión de uso de frecuencias del espectro radioeléctrico sin la autorización correspondiente de Control Nacional de Radio.
 5. Cuando interrumpa por un periodo de tres meses y sin causa justificada los servicios que se encuentre obligado a prestar según el contrato de concesión respectivo.
 6. Cuando incumpla con las disposiciones del contrato de concesión.
-7. Cuando la o las frecuencias sean utilizadas en comunicaciones que coadyuven en el desarrollo de actividades o prestación de un servicio no autorizado.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 32786 del 17 de noviembre de 2005).
+7. Cuando la o las frecuencias sean utilizadas en comunicaciones que coadyuven en el desarrollo de actividades ilícitas, prestación de un servicio no autorizado o, que coadyuven en actividades del transporte renumerado de personas sin la respectiva concesión.
+(Así reformado el inciso anterior por el artículo 1° del Decreto Ejecutivo N° 33856 del 09 de mayo de 2007).
