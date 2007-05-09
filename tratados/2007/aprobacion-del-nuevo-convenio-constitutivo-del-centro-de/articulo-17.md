@@ -1,0 +1,2 @@
+Artículo 17.- Denuncia
+El presente Convenio tendrá una duración indefinida, pero podrá ser denunciado por cualquiera de los Estados parte mediante aviso anticipado de un año, transcurrido el cual, sin perjuicio del cumplimiento de las obligaciones contraídas, cesará en sus efectos para el denunciante, quedando subsistente para los demás Estados partes. La denuncia será transmitida a la Secretaría General del SICA y ésta lo comunicará a los demás Estados partes.

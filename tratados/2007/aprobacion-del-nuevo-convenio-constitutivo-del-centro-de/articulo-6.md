@@ -1,0 +1,2 @@
+Artículo 6.- Representación Legal
+El Presidente del Consejo de Representantes y el Secretario Ejecutivo tienen la representación legal del Centro, pudiendo actuar separada o conjuntamente. Para la enajenación de activos del patrimonio del Centro y la aceptación de herencias, legados y donaciones, así como para la suscripción de créditos o deudas se requerirá el acuerdo del Consejo de Representantes.
