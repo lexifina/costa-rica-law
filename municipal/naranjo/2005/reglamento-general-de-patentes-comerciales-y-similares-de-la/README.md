@@ -14,3 +14,4 @@ Reglamento General de Patentes comerciales y Similares de la Municipalidad de Na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-31 | la propia norma |
+| 2 | 2007-05-09 | Reglamento municipal 0 (2007-05-09) |
