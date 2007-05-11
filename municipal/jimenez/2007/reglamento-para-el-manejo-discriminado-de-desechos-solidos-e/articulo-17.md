@@ -1,0 +1,1 @@
+Artículo 17.—Las entidades que manejen desechos peligrosos o altamente peligrosos a nivel del cantón, deberán proveer a los trabajadores de la recolección, de todo el equipo e indumentaria de protección necesaria para asegurar que su salud no sea afectada por el manejo de este tipo da desechos, según la normativa legal existente.

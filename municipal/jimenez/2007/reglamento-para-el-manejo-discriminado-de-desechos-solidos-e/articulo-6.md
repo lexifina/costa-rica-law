@@ -1,0 +1,2 @@
+Artículo 6º—Se realizará un reconocimiento público mediante distintivos a aquellas instituciones, industrias y comercios que incorporen medidas de evitación, manejo discriminado de desechos sólidos y separación en la fuente de desechos sólidos aprovechables, en especial a aquellas entidades que realicen la separación completa de desechos sólidos.
+La Municipalidad promoverá la realización de proyectos tendientes a la transferencia y desarrollo tecnológico para aprovechar los desechos sólidos generados en el cantón.

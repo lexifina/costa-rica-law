@@ -1,0 +1,1 @@
+Artículo 74.—Toda entidad del cantón donde laboran más de diez (10) personas deberá nombrar una persona responsable del manejo discriminado de desechos sólidos. Ese nombramiento deberá ser comunicado a la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 18.—La entidad privada que vaya a disponer desechos altamente peligrosos generados en el cantón, deberá avisar a la Municipalidad de su transporte con cinco días hábiles de anterioridad a su traslado y coordinar con las autoridades de tránsito el traslado de tales productos.
+Se deberá presentar a la Municipalidad, con cinco días hábiles de anticipación, un plan de gestión y traslado de desechos peligrosos, que incluya un plan de contingencia en caso de accidente o derrame de este tipo de sustancias.

@@ -1,0 +1,1 @@
+Artículo 72.—Las operaciones técnicas así como el cobro de la tasa de recolección de desechos, pueden ser realizadas por la Municipalidad o por otras entidades autorizadas por ésta, previo establecimiento de un contrato o convenio que los faculte para realizar esas labores.
