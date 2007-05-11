@@ -7,3 +7,5 @@ Artículo 1º—Integrar la Comisión Nacional de División Territorial Administ
 En representación del Ministerio de Gobernación y Policía a la señora Ana Eugenia Durán Salvatierra, cédula 1-633-150, como miembro titular, a la señora Giovanna Siles Pérez, cédula 3-320-040, como miembro suplente.
 En representación del Instituto Geográfico Nacional al señor Max Lobo Hernández, cédula 4-132-688, como miembro titular, al señor Luis Alberto Wong Wong, cédula 6-152-916, como miembro suplente.
 En representación del Instituto Nacional de Estadísticas a la señora María Elena González Quesada, cédula 2-314-500, como miembro titular, a la señora Patricia Solano Mayorga, cédula 3-233-049, como miembro suplente.
+(*)IEn representación de Instituto de Fomento y Asesoría Municipal, al señor Dagoberto Cerdas Rodríguez, cédula de identidad Nº 3-210-430, como miembro titular, a la señora Marissa Lucía Chang Wong, cédula de identidad Nº 5-192-123, como miembro suplente.
+(*)(Así adicionado por Acuerdo N°041 de 11 de mayo de 2007).

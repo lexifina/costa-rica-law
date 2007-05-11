@@ -14,3 +14,4 @@ Integra Comisión Nacional de División Territorial Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-25 | la propia norma |
+| 2 | 2007-05-11 | Acuerdo 41 (2007-05-11) |
