@@ -1,0 +1,1 @@
+Artículo 40.—Del fondo de reserva legal. De sus ingresos anuales, el FMS creará un fondo de reserva legal equivalente al 10% del capital obtenido para ser invertido en las mejores condiciones de seguridad y liquidez.

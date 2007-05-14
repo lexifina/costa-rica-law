@@ -1,0 +1,1 @@
+Artículo 19.—De los permisos. La junta administrativa podrá conceder, en caso calificado y por única vez, permiso por escrito a cualquiera de los miembros para que se ausente a las sesiones por un período máximo de tres meses.

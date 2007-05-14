@@ -1,0 +1,2 @@
+Artículo 16.—De la aprobación de las actas. El acta deberá ser revisada, aprobada y firmada por el presidente y el secretario de la junta administrativa en la sesión ordinaria inmediata siguiente. El desacuerdo de algún miembro con el acta o parte de ella, deberá consignarse haciendo la indicación pertinente, la cual deberá firmar en conjunto con los miembros autorizados.
+La interposición de un recurso de revisión contra uno o más acuerdos, no impide la aprobación del acta en lo que no ha sido objeto de recurso.

@@ -1,0 +1,4 @@
+Artículo 18.—De la sustitución de los miembros de la junta administrativa. En cualquiera de los casos del artículo anterior, y si se tratara de alguno de los miembros de la junta directiva, ésta comunicará por escrito a la persona correspondiente la pérdida de la credencial y deberá nombrar en su sustitución a uno de los vocales en su orden de elección (excepto el primer vocal), para que ocupe el cargo en cuestión.
+Si se tratara de uno de los colegiados electos por la junta directiva, ésta comunicará por escrito a la persona correspondiente la pérdida de la credencial y deberá nombrar a otro colegiado en su sustitución, para que ocupe el cargo por el resto del período legal.
+En igual forma se procederá en caso de muerte o renuncia de alguno de los miembros de la junta administrativa.
+En cualquier caso la sustitución deberá efectuarse a más tardar treinta días naturales después de producida la vacante.

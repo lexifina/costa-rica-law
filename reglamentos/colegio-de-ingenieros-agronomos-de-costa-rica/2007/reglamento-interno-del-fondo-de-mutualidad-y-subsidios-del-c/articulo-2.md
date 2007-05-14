@@ -1,0 +1,1 @@
+Artículo 2º—Del objetivo. El presente Reglamento tiene como objetivo regular lo concerniente al Fondo de Mutualidad y Subsidios del Colegio de Ingenieros Agrónomos de Costa Rica, su operación y administración interna, así como lo relativo a los servicios y beneficios que el mismo concede a los colegiados.

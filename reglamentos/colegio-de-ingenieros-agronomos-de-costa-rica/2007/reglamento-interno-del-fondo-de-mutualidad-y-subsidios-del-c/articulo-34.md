@@ -1,0 +1,1 @@
+Artículo 34.—De la inexistencia del beneficiario. En caso, de que, la muerte del colegiado se presente sin que exista beneficiario designado y donde se abre mortual, el dinero por subsidio se depositará en el Tribunal correspondiente. A falta de beneficiarios o herederos, la cuota respectiva quedará a beneficio del FMS.

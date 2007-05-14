@@ -1,0 +1,1 @@
+Artículo 26.—De la estructura administrativa. La junta administrativa recomendará a la junta directiva la estructura de administración del FMS; la cual podrá operar con personal propio del Colegio o mediante una subcontratación especializada. La aprobación de esa estructura recaerá en la junta directiva.

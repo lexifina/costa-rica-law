@@ -1,0 +1,1 @@
+Artículo 30.—De la revisión de los beneficios. Cada cinco años, la asamblea general examinará los beneficios que los miembros puedan derivar del FMS, previa propuesta de la junta administrativa ante la junta directiva.

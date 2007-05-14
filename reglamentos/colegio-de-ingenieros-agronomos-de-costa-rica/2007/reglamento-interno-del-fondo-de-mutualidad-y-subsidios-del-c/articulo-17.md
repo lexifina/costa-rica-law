@@ -1,0 +1,6 @@
+Artículo 17.—De la pérdida de la condición de miembro de la junta administrativa. Perderá su condición de miembro de la junta administrativa:
+a) Quien se separe del Colegio temporal o definitivamente, o quien perdiere su condición de miembro del Colegio conforme lo establece la Ley Orgánica;
+b) Quien se ausentare a tres reuniones consecutivas sin previa justificación, o a seis reuniones consecutivas justificadas o seis alternas injustificadas o a nueve alternas justificadas. Las justificaciones se deben exponer por escrito ante el secretario de la junta administrativa o quien lo sustituya, dentro de los dos días siguientes a la sesión. No se aceptarán justificaciones pasado ese plazo y la ausencia quedará como injustificada, salvo caso fortuito o fuerza mayor. Recibida la justificación, la junta administrativa resolverá si acepta o no la justificación presentada.
+c) Quien por acuerdo de la junta directiva, a solicitud de la junta administrativa, sea así declarado, previa oportunidad de descargo del miembro en cuestión;
+d) Quien quedare legalmente incapacitado;
+e) Quien, por sentencia firme, fuera declarado culpable de haber infringido algunas disposiciones contenidas en las leyes, en los decretos o en los reglamentos aplicables al Colegio.

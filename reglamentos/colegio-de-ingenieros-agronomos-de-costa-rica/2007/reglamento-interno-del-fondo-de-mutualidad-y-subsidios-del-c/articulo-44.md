@@ -1,0 +1,1 @@
+Artículo 44.—De las reformas. Toda reforma a este reglamento deberá ser aprobada por los votos de los dos tercios de los miembros presentes, en una asamblea general convocada para tal efecto y la reforma deberá ser publicada en La Gaceta.

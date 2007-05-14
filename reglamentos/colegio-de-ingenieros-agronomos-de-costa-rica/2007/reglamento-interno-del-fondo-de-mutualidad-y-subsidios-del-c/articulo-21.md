@@ -1,0 +1,1 @@
+Artículo 21.—De la obligación de informar. La junta administrativa presentará por escrito un informe semestral administrativo-financiero (en los meses de junio y diciembre) a la junta directiva y un informe anual sobre la gestión realizada en el último período, para ser considerado en la memoria que se presenta a la asamblea general ordinaria.

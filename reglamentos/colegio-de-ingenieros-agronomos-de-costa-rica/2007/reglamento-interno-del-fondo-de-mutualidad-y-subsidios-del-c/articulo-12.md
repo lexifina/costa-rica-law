@@ -1,0 +1,1 @@
+Artículo 12.—De la conformación de la junta administrativa. La junta administrativa será presidida por el presidente de la junta directiva y tendrá un tesorero que será el tesorero de la junta directiva. Nombrará entre sus miembros un secretario y dos vocales.
