@@ -1,0 +1,1 @@
+8º—Participación repetitiva: El cliente puede participar tantas veces como lo desee. En este caso deberá comprar varias acciones diferentes para la fecha del sorteo que desee. Únicamente participan en la rifa, las acciones que fueron vendidas, de manera que siempre habrá ganadores.

@@ -1,0 +1,1 @@
+21.—Acciones legales: El patrocinador tiene todo el derecho de entablar las acciones legales que considere necesario, en la vía jurisdiccional de su elección, en caso de que se detectara que algún cliente o favorecido hizo fraude o engaño para obtener su premio o para participar de la presente promoción.

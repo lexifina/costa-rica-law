@@ -1,0 +1,1 @@
+6º—Definición de términos: La persona que participa de la presente rifa se le denominará, en adelante, “el cliente”. El cliente que haya obtenido algún premio se denominará en adelante “El favorecido”. Las personas menores de edad no podrán participar del juego, ni siquiera con el consentimiento de sus padres.
