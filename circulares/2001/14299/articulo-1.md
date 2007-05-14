@@ -38,8 +38,9 @@ d) Fotocopia de la cédula jurídica, certificada por un Notario Público.
 e) Certificación de la personería jurídica.
 f) Copia fiel del acta o transcripción del acuerdo del órgano superior del sujeto privado (v.g. Junta Directiva, Consejo de Administración, Junta Administrativa), en el cual conste la aprobación del plan de trabajo del programa o proyecto y del presupuesto respectivo, autenticada por un Notario Público.
 g) Copia de los estados financieros, firmados por el Contador que los preparó y por el representante legal del sujeto privado, necesariamente acompañados de una certificación emitida por un Contador Público Autorizado, en la cual se haga constar que las cifras que presentan dichos estados financieros corresponden a las que están contenidas en los registros contables de la entidad. Lo anterior sin perjuicio de que la entidad concedente solicite estados financieros dictaminados por un Contador Público Autorizado. Ello cuando a juicio de la Administración, de conformidad con su responsabilidad, lo estime pertinente.
-Si la eventual transferencia del órgano o entidad público para el sujeto privado se estima que podría superar los ¢50 millones, el concedente deberá exigir la presentación de estados financieros dictaminados por un Contador Público Autorizado.
-(Así reformado por resolución de la Contraloría General de la República, de 22 de octubre del 2002)
+Si la eventual transferencia del órgano o entidad pública para el sujeto privado se estima que superará el monto expresado en Unidades de desarrollo de 150,733 UD(a), el concedente deberá exigir la presentación de estados financieros dictaminados por un Contador Público Autorizado.
+(a) El valor de la unidad de desarrollo se encuentra disponible en la siguiente dirección electrónica: http://www.sugeval.fi.cr/esp/utilidades/novunidades.html.
+(Así reformado el párrafo anterior por resolución R-CO-21 del 14 de mayo de 2007)
 Organigrama.
 2. La información del plan de trabajo y del presupuesto, de acuerdo con los formatos que se proponen como ejemplo en los anexos Nos. 1 y 2, citados en los puntos b) y c) del numeral 1 anterior, es la información mínima que deberán presentar los sujetos privados. La entidad u órgano público determinará el grado de detalle, la cantidad y la forma de presentación de la información que a su juicio requiera para otorgar un beneficio patrimonial a un sujeto privado.
 III. Asignación de recursos.
@@ -99,5 +100,4 @@ Gerencias de Área DFOE
 CENREL
 Secretaría Técnica
 Archivo Central
-[imagen]
 Normativa para fiscalización
