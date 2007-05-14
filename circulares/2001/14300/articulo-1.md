@@ -10,7 +10,12 @@ Con base en lo dispuesto en los artículos 5, 6, 7 y 25 de la Ley Orgánica de l
 I. Ámbito de aplicación.
 1. Las regulaciones contenidas en este documento se aplicarán al sujeto privado que se encuentre al menos en una de las siguientes condiciones:
 a.Que por disposición legal o decreto ejecutivo tenga la obligación expresa de presentar su presupuesto a la Contraloría General de la República, independientemente del monto de las fondos de origen público que se le asignen o giren.
-b. Que en un determinado año (año vigente) cuente con ingresos de origen público, por una suma superior a Ë 50 millones.
+b. Que para un determinado año cuente con ingresos de origen público, por un monto expresado en Unidades de Desarrollo que sea superior a 150,733 UD (a)
+(a) El valor de la unidad de desarrollo se encuentra disponible en la siguiente dirección electrónica: http://www.sugeval.fi.cr/esp/utilidades/novunidades.html.
+Para determinar si el presupuesto ordinario del año siguiente debe ser aprobado por la Contraloría General de la República, el monto de los ingresos de origen público para ese año deberá dividirse entre el valor de la Unidad de Desarrollo del primer día hábil del mes de agosto del año anterior, y si ese monto de ingresos expresado en Unidades de Desarrollo supera el límite establecido (150,733 UD), el presupuesto deberá enviarse a la Contraloría General para su correspondiente aprobación.
+También para el caso del presupuesto del año siguiente, si en fecha posterior al primer día hábil del mes de agosto del año anterior el monto –expresado en Unidades de desarrollo- de los recursos de origen público asignados al sujeto privado para el respectivo periodo llegara a superar el límite establecido (150,733 UD(b)), deberá remitirse a la Contraloría General el correspondiente presupuesto para su aprobación, únicamente con los recursos que a la fecha no se hayan ejecutado.
+(b) Se tomará como referencia el valor de la unidad de desarrollo a la fecha en que se realice el respectivo incremento de los ingresos.
+(Así reformado mediante resolución R-CO-21 del 14 de mayo de 2007)
 El monto antes citado se entenderá como la suma de los siguientes conceptos:
 i. Partidas específicas y transferencias incluidas en el Presupuesto de la República del año anterior, que se espera recibir, en el período vigente.
 i. Partidas específicas y transferencias incluidas en el Presupuesto de la República del año vigente.
@@ -22,7 +27,9 @@ vii. El reintegro de retenciones o recaudación de fondos para sujetos privados,
 (Así adicionado el subinciso vii) por resolución de la Contraloría General de la República, de 22 de octubre del 2002)
 Para determinar el monto antes citado no se consideran las transferencias por concepto de membresías ni las cuotas patronales por concepto de cargas sociales o deducciones a favor de para organizaciones de trabajadores. Tampoco se incluirán los aportes por concepto de contraprestación de servicios, aunque aparezcan en las partidas de transferencias de los presupuestos de los órganos y entidades públicos.
 (Así reformado por resolución de la Contraloría General de la República, de 22 de octubre del 2002)
-c) Que en el año vigente tenga fondos públicos asignados, por cualquier monto, y que en el año anterior al año vigente haya recibido una suma superior a Ë 50 millones.
+c) Que para un determinado año tenga fondos públicos asignados por cualquier monto y que en el año anterior reciba una suma expresada en Unidades de Desarrollo superior a 150,733 UD 8 (c)
+(c) Se tomará como referencia el valor promedio anual del periodo anterior de la unidad de desarrollo.
+(Así reformado el inciso anterior mediante resolución R-CO-21 del 14 de mayo de 2007)
 II. Sobre asuntos presupuestarios.
 1. Se entenderá como presupuesto ordinario el instrumento que expresa en términos financieros un plan de trabajo anual de una entidad o el instrumento que detalla los ingresos y egresos de un programa o proyecto.
 2. Los presupuestos para la Contraloría General de la República deberán ser preparados, en lo que concierna, con apego a los principios presupuestarios indicados en el Artículo 5 de la Ley de la Administración Financiera y Presupuestos Públicos, N° 8131 del 18 de setiembre del 2001.
