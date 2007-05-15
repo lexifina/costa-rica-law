@@ -14,3 +14,4 @@ Reglamento Interno para la Tramitación de Modificaciones Presupuestarias de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-30 | la propia norma |
+| 2 | 2007-05-15 | Reglamento municipal 20 (2007-05-15) |
