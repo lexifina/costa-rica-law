@@ -1,0 +1,1 @@
+Artículo 4º—De los Entes Generadores. Los entes generadores serán responsables de entregar las llantas usadas a los vendedores finales al proceder a su sustitución por una nueva o recauchada. Los entes generadores importadores y fabricantes de llantas, serán responsables de entregar las llantas de desecho a los sitios de tratamiento.

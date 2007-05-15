@@ -1,0 +1,1 @@
+Transitorio I.—Se otorga un plazo de seis (6) meses a partir de la publicación de este Reglamento para que los vendedores finales, fabricantes e importadores de llantas existentes, presenten ante las Áreas Rectoras de Salud, el Plan de Manejo de Desechos Sólidos para llantas de desecho mencionado en los artículos 8º y 9º de este Reglamento.

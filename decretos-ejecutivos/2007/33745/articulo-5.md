@@ -1,0 +1,1 @@
+Artículo 5º—De los Vendedores Finales. Los vendedores finales de llantas están obligados a recibir las llantas usadas entregadas por los usuarios finales al comprar nuevas o recauchadas y serán responsables del almacenamiento y transporte de las llantas de desecho al sitio de tratamiento.

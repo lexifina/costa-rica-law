@@ -1,0 +1,3 @@
+CAPÍTULO III
+Control y vigilancia
+Artículo 8º—De la presentación del Plan de Manejo de Desechos Sólidos. Los fabricantes, importadores y vendedores finales de llantas, deberán presentar ante las Áreas Rectoras de Salud un Plan de Manejo de Desechos Sólidos específico para llantas de desecho. El documento que se presente deberá ajustarse a lo consignado en el “Instructivo para la elaboración del Plan de Manejo de Desechos Sólidos”, publicado en La Gaceta Nº 146 del 31 de julio del 2002. Las Áreas Rectoras de Salud en coordinación con el Nivel Regional serán las dependencias encargadas de su revisión, y aprobación cuando corresponda.

@@ -1,0 +1,2 @@
+Artículo 10.—De las instituciones públicas. Todas las instituciones públicas deberán exigir a sus proveedores de llantas el Plan de Manejo de Desechos Sólidos, debidamente aprobado por el Ministerio de Salud, en concordancia con el presente reglamento.
+Los proveedores de llantas de las instituciones públicas deberán recibir al menos un número igual de llantas al ofertado, de acuerdo a lo establecido en el artículo 5º de este reglamento.
