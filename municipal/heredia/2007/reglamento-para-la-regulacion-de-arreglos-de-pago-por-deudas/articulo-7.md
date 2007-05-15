@@ -1,0 +1,1 @@
+Artículo 7º—Sobre la responsabilidad de la Unidad de Cobro Administrativo. La unidad de Cobro Administrativo será la responsable por el cumplimiento de este reglamento en cuanto al cobro se refiere. El responsable de llevar el control de los arreglos de pago y que los deje prescribir responderá por su pago personalmente.
