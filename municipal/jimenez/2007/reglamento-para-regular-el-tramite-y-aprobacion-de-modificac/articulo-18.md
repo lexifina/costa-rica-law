@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Contabilidad deberá comunicar al ente contralor por medio del SIPP, sobre cada modificación presupuestaria que se autorice, a más tardar cinco días hábiles posteriores a su aprobación.

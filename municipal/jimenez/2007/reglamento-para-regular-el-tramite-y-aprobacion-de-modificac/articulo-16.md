@@ -1,0 +1,1 @@
+Artículo 16.—Las necesidades de cambios presupuestarios que demanden de una modificación, deben presentarse por parte del Departamento responsable con ocho días naturales de anterioridad ante el Departamento de Contabilidad que es el encargado de formular el documento, con el fin de que se tome en cuenta todos los aspectos que se deben elevar ante la unidad de aprobación.

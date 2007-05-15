@@ -1,0 +1,22 @@
+MUNICIPALIDAD DE JIMÉNEZ
+Asunto: Transcripción del artículo 1° del capítulo I
+La Municipalidad de Jiménez, en sesión extraordinaria Nº 145, celebrada el día miércoles 2 de mayo del año en curso, acordó:
+Este Concejo acordó por unanimidad; transcurrido el plazo para consulta pública respecto al Proyecto de Reglamento para Regular el Trámite y Aprobación de Modificaciones Presupuestarias, el cual fue publicado en La Gaceta Nº 72 del viernes 13 de abril del 2007, el Concejo Municipal de Jiménez, acuerda por unanimidad; Aprobar el presente Reglamento para Regular el Trámite y Aprobación de Modificaciones Presupuestarias, conforme al texto original el cual no sufrió modificaciones.
+Acuerdo definitivamente aprobado. Publíquese en el Diario Oficial La Gaceta.
+Juan Viñas, Jiménez, 3 de mayo del 2007
+(NOTA SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en La Gaceta N° 72 del 13 de abril de 2007)
+REGLAMENTO PARA REGULAR EL TRÁMITE Y APROBACIÓN
+DE MODIFICACIONES PRESUPUESTARIAS
+El presente Reglamento contiene los lineamientos legales establecidos en el Reglamento R-CO-67-2006, de la Contraloría General de la República, publicado en La Gaceta Nº 170 del martes 5 de setiembre del dos mil seis, y que fue aprobado por el Concejo Municipal de Jiménez mediante acuerdo número 2 del capítulo IV de la sesión ordinaria Nº 711 del lunes 22 de enero del 2007.
+CAPÍTULO I
+Definiciones para efectos de este reglamento
+Artículo 1º—Las siguientes definiciones se tomarán en cuenta en este reglamento:
+Autoridad superior administrativa: Alcalde (sa).
+Aprobación presupuestaria interna: Proceso por medio del cual el jerarca superior u órgano colegiado con la competencia necesaria, conoce y estudia el contenido del presupuesto formulado o de las variaciones que se le presenten, en función de los objetivos y metas institucionales, de igual forma deberá verificar el fiel cumplimiento de las disposiciones legales y técnicas que le son aplicables. Como resultado de este proceso, el jerarca superior u órgano colegiado, emite mediante el acto administrativo establecido para el efecto, su aprobación o improbación, total o parcial al presupuesto inicial y sus variaciones. Esta aprobación otorgará validez y eficacia jurídica, permitiendo su ejecución para el período respectivo, únicamente en aquellos casos en que no se requiera de la aprobación presupuestaria externa.
+Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos, los principios generales y las reglas de la ciencia o de la técnica.
+Clasificador por objeto del gasto: Conjunto de cuentas de gastos, ordenados y agrupados de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o la operación financiera que se esté efectuando. Jerarca superior: Superior jerárquico del ente o lo que es lo mismo el órgano colegiado, en este caso el Concejo Municipal, quien ejerce la máxima autoridad.
+Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados, y que tenga por objeto, disminuir o aumentar los diferentes conceptos de éstos, o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado.
+Nivel de aprobación presupuestaria interna: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria interna por parte del jerarca superior u órgano colegiado con la competencia necesaria para ello.
+Ámbito de aplicación: Esta normativa deberá atenderse, en lo que corresponda, por parte de los órganos, unidades ejecutoras, fondos, programas y cuentas, que no presentan el presupuesto para aprobación del órgano contralor, de conformidad con lo señalado en el párrafo tercero del artículo 18 de la Ley Orgánica de la Contraloría General de la República-Ley Nº 7428 y su respectivo Reglamento.
+Alcance: Estas normas constituyen un marco de referencia de carácter general, a partir del cual debe darse la emisión de la normativa específica por parte de la Administración.
+Asimismo, la Contraloría General de la República, según su ámbito de competencia, podrá emitir la normativa específica que corresponda, por parte de la Gerencia de la División de Fiscalización Operativa y Evaluativo.

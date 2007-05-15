@@ -1,0 +1,1 @@
+Artículo 20.—El Departamento de Tesorería debe constatar mediante justificación que se debe adjuntar a cada documento de modificación, la existencia del correspondiente contenido presupuestario de la o las subpartidas a rebajar.

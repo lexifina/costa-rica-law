@@ -1,0 +1,1 @@
+Artículo 13.—La Unidad de Auditoría Interna o ante la inexistencia de ésta, el Departamento de Contabilidad, deberá presentar una justificación a cada modificación, que asegure que la misma se ajusta a los procedimientos establecidos por la administración y que respeta el bloque de legalidad aplicable.
