@@ -1,6 +1,6 @@
 Artículo 6º—Tasas de interés. La tasa de interés vigente para cada línea de crédito, es la siguiente:
-a. LÍNEA GASTOS PERSONALES | 18,00% Anual fija s/ saldos
-b. LÍNEA DE MICROEMPRESA | 18,00% Anual fija s/ saldos
+a. LÍNEA GASTOS PERSONALES (Así reformado el inciso anterior mediante sesión N° 054 del 15 de mayo de 2007) | 16,00% Anual fija s/ saldos
+b. LÍNEA DE MICROEMPRESA (Así reformado el inciso anterior mediante sesión N° 054 del 15 de mayo de 2007) | 16,00% Anual fija s/ saldos
 c. LÍNEA PARA ENTIDADES SOCIALES Y FINANCIERAS DEL MAGISTERIO NACIONAL | 18,00% Anual fija s/ saldos
 d. LÍNEA DE SALUD | 12,00% Anual fija sobre saldos
 e. DERECHOS SUCESORIOS | 15,00% Anual fija sobre saldos
