@@ -1,0 +1,1 @@
+Artículo 16.—El procedimiento establecido para la ejecución y funcionamiento del fondo fijo es de carácter obligatorio para todas las personas involucradas en el mismo y en caso de anomalías se procederá de acuerdo a o establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 19.—El funcionario que ignore una situación como la anterior se hará acreedor de una sanción disciplinaria tal y como lo establece el Reglamento Autónomo de Trabajo en su articulo 57 y en lo que a esta materia se refiera la Convención Colectiva de Trabajo.

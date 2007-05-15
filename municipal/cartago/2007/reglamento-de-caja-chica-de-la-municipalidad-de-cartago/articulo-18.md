@@ -1,0 +1,1 @@
+Artículo 18.—Si por alguna razón alguna persona incurriera en el pago de impuestos cargará a titulo personal con la erogación, es decir, la factura de liquidación del vale de caja chica se aceptará por el sub-total sin impuesto.
