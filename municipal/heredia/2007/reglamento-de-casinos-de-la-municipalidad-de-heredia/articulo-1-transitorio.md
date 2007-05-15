@@ -1,0 +1,1 @@
+Transitorio 1º—Deberá cada Casino informar en un plazo de quince días hábiles después de entrada en vigencia de este Reglamento, de informar por escrito la cantidad de mesas que tienen funcionando y de máquinas que tienen autorizadas, debiendo aportar en este último caso la copia de la última resolución donde se indique dicha cantidad.

@@ -1,0 +1,1 @@
+Transitorio 3º—Obtenida la lista indicada en el transitorio anterior, se otorgará un plazo de treinta días, a los hoteles cuya categoría esté por debajo de las tres estrellas para normalizar su situación, vencido el mismo se procederá a la clausura del casino y abrir un proceso de órgano Director para resolver sobre si procede revocar la patente.

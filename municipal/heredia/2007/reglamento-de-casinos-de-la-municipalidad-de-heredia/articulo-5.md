@@ -1,0 +1,1 @@
+Artículo 5º—Los casinos para funcionar en un hotel, es porque tienen comunicación física con el mismo, así comunicación física, se entiende como que están dentro de una misma propiedad, o en una misma construcción, o que existe comunicación interna entre los locales, pero en todo caso que nunca existe entre ambos calle pública que los separe.

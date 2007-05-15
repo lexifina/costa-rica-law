@@ -1,0 +1,1 @@
+Artículo 6º—Los requisitos para la tramitación de una patente comercial de Casino, son los mismos que se requieren para la obtención de una patente comercial conforme a las leyes y los reglamentos, siendo el requisito legal más específico la obligación de que el local opere en un hotel de tres o más estrellas.
