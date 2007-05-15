@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión sesionará ordinariamente al menos una vez por semana y será convocada por su. Presidente, pudiendo sesionar en forma extraordinaria, a solicitud de al menos tres de sus miembros o del Presidente y dispone de cuatro meses para entregar la propuesta al jerarca del MICIT y dos más para incorporar las modificaciones necesarias.

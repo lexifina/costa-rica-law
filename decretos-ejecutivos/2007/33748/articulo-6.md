@@ -1,0 +1,1 @@
+Artículo 6º—Lo no previsto en el presente decreto ejecutivo, se regirá por lo establecido en materia de órganos colegiados en los artículos 49 y siguientes de la Ley General de la Administración Pública, N° 6227.
