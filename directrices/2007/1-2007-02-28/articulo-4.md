@@ -1,0 +1,1 @@
+Artículo 4º—De la utilización del método. Las instituciones públicas pueden utilizar cualquiera de los métodos indicados en el artículo 3 y deberán indicarlo en las notas explicativas en los estados financieros.

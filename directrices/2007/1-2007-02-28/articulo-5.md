@@ -1,0 +1,1 @@
+Artículo 5º—De la determinación de la pérdida. El monto de la pérdida en las cuentas por cobrar se establece, una vez agotado el trámite administrativo y el judicial, existiendo de por medio una resolución legal en la cual queda constancia de la acción.
