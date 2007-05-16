@@ -1,0 +1,17 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/126-2007.—Puntarenas, a los veintisiete días del mes de abril del 2007.
+Considerando:
+1º— Que de conformidad con la Ley N° 7384, Ley de Creación del INCOPESCA, y la Ley N° 8436, Ley de Pesca y Acuicultura, es atribución y competencia del INCOPESCA proteger y conservar los recursos hidrobiológicos, en aras de garantizar a las generaciones venideras, los recursos vivos del mar.
+2º—Que mediante acuerdo AIDIP/074-2007, esta Junta Directiva, estableció la regulaciones aplicables durante el período de veda del 2007.
+3º—Que esta Junta Directiva ha analizado solicitudes planteada por diversos sectores pesqueros y ha determinado necesario modificar el acuerdo supracitado.
+Por tanto, se acuerda:
+1. Adicionar al Acuerdo AJDIP/074-2007, artículo 3º de la pesca por parte de la Flota Artesanal en Pequeña Escala, un inciso F), que se leerá de la siguiente manera:
+“F, De la Pesca de Atún y Macarelas (pequeñas pelágicas) con red agallera a la deriva.
+Se establece como zona autorizada para el uso de este tipo de pesca el área comprendida entre la línea recta imaginaria que va desde el Muelle de Cruceros de Puntarenas (84°49551” Longitud Oeste, 9°58’26” Latitud Norte) hasta la parte más Oriental de la Isla de Cedros (84°51’59” Longitud Oeste, 9°51’00” Latitud Norte) y de esas dos líneas imaginarias aguas hacia afuera del Golfo de Nicoya. Dicha red deberá tener una luz de malla mínima de 3½ pulgadas, una longitud máxima de 500 metros y una altura máxima de 100 mallas y deberá estar provista de boyas, galones o cualquier otro dispositivo que permita a las autoridades competentes su identificación.
+Aquellos permisionarios que se dediquen a este tipo de pesca facilitarán sus embarcaciones para que funcionarios del INCOPESCA, puedan obtener a bordo de éstas información de sus capturas y de las características del arte de pesca utilizada, cuando así lo designe la Institución”.
+El incumplimiento a esta normativa será sancionada, según lo estipulado en el articulo de la Ley N° 8436.
+2. Modifíquese el Acuerdo AJDIP/074-2007, artículo 4º, de la pesca de sardina por parte de la Flota Semi-Industrial sardinera con red de cerco, para que en lo sucesivo se lea de la siguiente manera:
+“Durante el periodo comprendido entre los meses de mayo, jumo y julio de cada año, se permitirá la pesca de la sardina con red de cerco, durante los días lunes, martes y miércoles de cada semana en la zona interna comprendida, entre una línea recta imaginaria que va desde Punta Torres, conocida como Peñón (84°43’52” Longitud Oeste, 09°53’31” Latitud Norte) hasta el Faro de las Islas Negritos Afuera (84°49’35” Longitud Oeste, 09°49’14” Latitud Norte) y de aquí, en línea recta imaginaria que va hasta el Muelle de Cruceros en la Ciudad de Puntarenas (84°49’51” Longitud Oeste, 09°58’26” Latitud Norte).
+Aquellos permisionarios que se dediquen a este tipo de pesca facilitarán sus embarcaciones para que funcionarios del ESTCOPESCA, puedan permanecer y obtener a bordo de éstas, la información de sus capturas, de acuerdo a las posibilidades cíe la Institución.
+Previo a la llegada del barco sardinero a puerto, el permisionario deberá de notificar al Departamento de Protección y Registro para efecto .de inspeccionar todas las descargas.
+Si el permisionario no cumpliera lo estipulado en este artículo, se dará por terminada la autorización acordada...”
