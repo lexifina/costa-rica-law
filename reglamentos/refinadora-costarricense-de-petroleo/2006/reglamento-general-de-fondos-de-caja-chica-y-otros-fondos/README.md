@@ -14,3 +14,4 @@ Reglamento General de Fondos de Caja Chica y Otros Fondos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-02 | la propia norma |
+| 2 | 2007-05-16 | Reglamento 4152 (2007-05-16) |
