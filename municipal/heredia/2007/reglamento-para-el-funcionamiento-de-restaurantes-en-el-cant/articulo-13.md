@@ -1,0 +1,1 @@
+Artículo 13.—Cuando se deje de ejercer la actividad, es obligación del patentado solicitar por escrito ante el Departamento de Rentas y Cobranzas, el retiro de la Patente respectiva, caso contrario esta seguirá activa con sus respectivas consecuencias Fiscales y Legales.

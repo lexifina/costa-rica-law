@@ -1,0 +1,2 @@
+DE LA FISCALIZACIÓN Y LAS SANCIONES
+Artículo 8º—En los casos que el Departamento de Rentas y Cobranzas constate por medio de una inspección en el sitio u otros elementos probatorios, que existe una posible variación de la actividad principal de un restaurante y que se utiliza únicamente como bar u otro tipo de negocio no autorizado, los inspectores municipales realizarán una prevención para que en un plazo de cinco días hábiles corrija la situación y se sujete a la actividad comercial autorizada.

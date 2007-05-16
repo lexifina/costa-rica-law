@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que el establecimiento comercial no corrija o sea reincidente en dos oportunidades más variando la actividad autorizada, el Departamento de Rentas y Cobranzas iniciará un procedimiento administrativo sumario tendiente a cancelar las licencias comercial y de licores y proceder con el cierre del negocio.
