@@ -1,0 +1,1 @@
+Artículo 5º—Reconocimiento y clasificación de los inventarios. Los inventarios se reconocen y clasifican de acuerdo con su naturaleza, en bienes o mercaderías procesadas, adquiridos para la venta o en existencia, materias primas, suministros, bienes en tránsito y productos en proceso.

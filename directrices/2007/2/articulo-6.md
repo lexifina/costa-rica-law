@@ -1,0 +1,1 @@
+Artículo 6º—Forma de registro de los inventarios. Los inventarios deben de registrarse por su costo histórico o precio de adquisición, conformado por las erogaciones y cargos directos e indirectos necesarios para colocarlos en condiciones de utilización o venta.
