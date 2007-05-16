@@ -16,3 +16,4 @@ Reglamento del Colegio de Contadores Públicos de Costa Rica
 | 2 | 1982-05-25 | Decreto Ejecutivo 17594 (1987-05-05) |
 | 3 | 2002-04-30 | Decreto Ejecutivo 30370 (2002-04-30) |
 | 4 | 2002-09-12 | Decreto Ejecutivo 30726 (2002-09-12) |
+| 5 | 2007-05-16 | SINALEVI (sin norma nombrada) |
