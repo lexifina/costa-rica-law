@@ -1,0 +1,1 @@
+Artículo 12.—Para el cumplimiento de lo indicado en el artículo anterior, la Dirección Ejecutiva podrá firmar convenios con esas organizaciones, donde se estipulen las obligaciones de colaboración entre las partes.

@@ -1,0 +1,1 @@
+Artículo 20.—Al finalizar cada proyecto, la Dirección Ejecutiva deberá presentar un informe final a la Junta Directiva General, indicando los aspectos relevantes del mismo y el grado de cumplimiento obtenido con su ejecución.

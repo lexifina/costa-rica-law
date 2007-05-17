@@ -1,0 +1,2 @@
+Artículo 3º—Bajo ninguna circunstancia se podrá brindar ayudas, de cualquier tipo, a personas físicas, que implique la solución de problemas individuales, de conformidad con lo indicado en el artículo 113 del Reglamento Interior General.
+Toda solicitud para que pueda ser atendida por la Administración del Colegio Federado de Ingenieros y de Arquitectos, deberá ser presentada por una entidad jurídica, de conformidad con lo se indicará más adelante.

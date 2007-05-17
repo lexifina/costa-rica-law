@@ -1,0 +1,1 @@
+Artículo 11.—El Colegio Federado de Ingenieros y de Arquitectos, podrá solicitar que los solicitantes aporten contrapartidas al proyecto de ayuda e igualmente, podrá rechazar aquellos proyectos, donde las comunidades involucradas no acepten colaborar o aportar a la ejecución del proyecto, cuando así la Junta Directiva General lo establezca.

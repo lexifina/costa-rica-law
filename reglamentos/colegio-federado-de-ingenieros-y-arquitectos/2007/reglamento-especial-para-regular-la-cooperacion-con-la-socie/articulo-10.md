@@ -1,0 +1,1 @@
+Articulo 10.—El contenido social de estas organizaciones deberá estar relacionado con aspectos referidos al medio ambiente, a la salud de las personas, apoyo a grupos en condiciones de necesidad, a las condiciones de vida de las comunidades y al desarrollo intelectual y a la educación de los grupos que representan.

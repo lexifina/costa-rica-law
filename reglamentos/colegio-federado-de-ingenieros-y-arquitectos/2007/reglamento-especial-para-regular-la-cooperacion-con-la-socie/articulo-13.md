@@ -1,0 +1,1 @@
+Artículo 13.—En aquellos casos, debidamente justificados, donde no exista una organización privada debidamente constituida, quedará a criterio de la Junta Directiva General brindar la ayuda correspondiente. Sin embargo, en esta situación la ayuda que brinde el Colegio Federado únicamente podrá estar referida a proyectos de consultoría profesional.

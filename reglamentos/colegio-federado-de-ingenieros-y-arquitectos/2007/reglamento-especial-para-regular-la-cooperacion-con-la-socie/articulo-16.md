@@ -1,0 +1,1 @@
+Artículo 16.—En el caso del artículo anterior, informada la Junta Directiva General podrá cancelar en forma definitiva el proyecto de ayuda social, para lo cual instruirá a la Dirección Ejecutiva a tomar las medidas correspondientes e informar a las organizaciones que corresponda.

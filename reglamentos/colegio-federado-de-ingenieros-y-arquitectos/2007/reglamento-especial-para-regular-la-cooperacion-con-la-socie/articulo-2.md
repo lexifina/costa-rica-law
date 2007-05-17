@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección Ejecutiva, como órgano ejecutor de los proyectos de cooperación, podrá delegar los aspectos operativos y administrativos que implique la tramitación de esos proyectos, en los órganos que estime convenientes. Sin embargo, la recomendación que se dirija a la Junta Directiva General será exclusiva de su competencia.

@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes de cooperación deberán ser presentadas en la Sede Central del Colegio Federado de Ingenieros y de Arquitectos, o bien en cualquiera de las sedes regionales, situadas en todo el país.

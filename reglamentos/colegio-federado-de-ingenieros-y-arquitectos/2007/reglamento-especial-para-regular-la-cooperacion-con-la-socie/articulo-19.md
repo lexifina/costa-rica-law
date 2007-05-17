@@ -1,0 +1,1 @@
+Artículo 19.—En todo momento los estudiantes indicados en el artículo anterior, estarán bajo la supervisión de un miembro habilitado de este Colegio Federado y respaldados por las Universidades a las que pertenecen.
