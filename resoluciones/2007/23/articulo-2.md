@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 86-2006 de las doce horas del día veinte de noviembre del dos mil seis, de la Dirección General de Hacienda, publicada en La Gaceta Nº 245, del 21 de diciembre del 2006.
