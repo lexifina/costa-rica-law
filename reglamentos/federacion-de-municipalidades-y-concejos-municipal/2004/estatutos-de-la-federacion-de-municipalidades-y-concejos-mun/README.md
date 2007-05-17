@@ -14,3 +14,4 @@ Estatutos de la Federación de Municipalidades y Concejos Municipales de Distrit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-16 | la propia norma |
+| 2 | 2007-05-17 | Reglamento 0 (2007-05-17) |
