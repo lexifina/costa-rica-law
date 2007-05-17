@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue derogado, mediante sesión N° 8151 del 17 de mayo de 2007)
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 16 de la sesión 7715, celebrada el 12 de diciembre del 2002, acuerda aprobar la reforma integral al Reglamento del Régimen no Contributivo de Pensiones, en los siguientes términos:
 RÉGIMEN NO CONTRIBUTIVO DE PENSIONES
 REFORMA REGLAMENTARIA
