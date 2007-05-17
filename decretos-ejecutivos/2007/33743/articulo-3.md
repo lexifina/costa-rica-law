@@ -1,0 +1,1 @@
+Artículo 3º—Normas aplicables a las solicitudes. Sin perjuicio de lo previsto en la Ley de Marcas y las disposiciones contenidas en este Reglamento, en lo que corresponda, son aplicables a las solicitudes relativas a indicaciones geográficas y denominaciones de origen los artículos 3, 4, 5, 6, 7, 8, 12, 13, 14 y 15 del Reglamento de la Ley de Marcas.

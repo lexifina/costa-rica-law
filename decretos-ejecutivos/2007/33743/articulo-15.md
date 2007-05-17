@@ -1,0 +1,1 @@
+Artículo 15.—Supletoriedad. Para los procedimientos relativos al examen y registro regirá supletoriamente las disposiciones sobre el registro de las marcas establecido en la Ley de Marcas y el Reglamento a la Ley de Marcas.

@@ -1,0 +1,1 @@
+Artículo 13.—Inscripción. La indicación geográfica y la denominación de origen reconocida se inscribirá en un registro especial, en el que figurarán tanto las nacionales y extranjeras, los números de las solicitudes, los nombres de quienes integran su consejo regulador y, si fuere el caso, su respectivo logotipo oficial.

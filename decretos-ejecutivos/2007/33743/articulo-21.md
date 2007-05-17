@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Del Registro de Indicaciones Geográficas
+y Denominaciones de Origen Extranjeras
+Artículo 21.—Indicaciones geográficas y denominaciones de origen extranjeras. Sin perjuicio de lo establecido en acuerdos internacionales de los que Costa Rica sea parte, a solicitud de la persona legitimada el Registro inscribirá las indicaciones geográficas y las denominaciones de origen de productos y servicios de otros países, sujeto a lo dispuesto en los párrafos 4, 5 y 9 del artículo 24 del Acuerdo sobre los Aspectos de los Derechos de Propiedad Intelectual relacionados con el Comercio, Anexo 1C del Acta Final en que se incorporan los resultados de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 7475 del 15 de abril de 1994, publicada en La Gaceta Nº 245 del 26 de diciembre de 1994 y a las disposiciones pertinentes de la Ley de Marcas y este Reglamento.

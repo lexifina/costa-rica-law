@@ -1,0 +1,1 @@
+Artículo 26.—Derogatoria. Se derogan los artículos 46 y 47 del Reglamento de la Ley de Marcas y otros Signos Distintivos, Decreto Ejecutivo Nº 30233-J del 20 de febrero de 2002, publicado en el Diario Oficial La Gaceta Nº 65 del 4 de abril de 2002.

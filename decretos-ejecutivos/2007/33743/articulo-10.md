@@ -1,0 +1,1 @@
+Artículo 10.—Oposiciones a la solicitud. Cualquier persona interesada podrá presentar oposición contra el registro de una indicación geográfica o denominación de origen, aplicándose al efecto los procedimientos y plazos previstos en el artículo 16 de la Ley de Marcas y en las disposiciones correspondientes del Reglamento de la Ley de Marcas, en lo pertinente.

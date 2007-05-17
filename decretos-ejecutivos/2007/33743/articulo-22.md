@@ -1,0 +1,1 @@
+Artículo 22.—Protección en el país de origen. El o los solicitantes del registro de una indicación geográfica o denominación de origen deberán acreditar mediante certificación, constancia o documento análogo la protección de la misma en su país de origen.
