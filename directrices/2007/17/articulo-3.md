@@ -1,0 +1,1 @@
+Artículo 3º—Los entes públicos deberán realizar las gestiones internas y externas, presupuestarias y administrativas necesarias, para contar con los recursos para el cumplimiento de este lineamiento presidencial.

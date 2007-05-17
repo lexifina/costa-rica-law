@@ -1,0 +1,1 @@
+Artículo 2º—Que dichos planes deberán ser remitidos en un plazo no mayor a 15 días hábiles al Ministerio de Ambiente y Energía, para su respectiva revisión. Igualmente, los entes públicos deberán informar en forma mensual al MINAE sobre la reducción en el consumo eléctrico.
