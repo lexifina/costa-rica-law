@@ -1,0 +1,1 @@
+Artículo 16.—Compra de bienes y servicios. Se podrán adquirir, con cargo a esta partida, cualquier tipo de bien o servicio que sea compatible y necesario para la adecuada realización de la actividad, incluida alimentación, bebidas y presentes para ser entregados a visitantes distinguidos. Se excluye la compra de cualquier tipo de licor o cigarrillos.

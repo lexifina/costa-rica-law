@@ -1,0 +1,1 @@
+Artículo 23.—Promociones ofrecidas por los proveedores. En caso de que los proveedores lo deseen, podrán ofrecer a la Municipalidad, por medio de la Proveeduría Municipal: descuentos, servicios gratuitos y otros factores que hagan su oferta más atractiva a los intereses municipales, siempre y cuando no contravengan las leyes aplicables a la materia.

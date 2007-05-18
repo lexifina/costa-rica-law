@@ -1,0 +1,1 @@
+Artículo 21.—Procedimiento de pago. En el supuesto del artículo anterior, una vez concluido el acto que motivó el gasto, el Alcalde deberá informar a la Proveeduría Municipal para que formalice el procedimiento de pago, debiendo emitirse una orden de compra definitiva.

@@ -1,0 +1,1 @@
+Artículo 25.—Deber de informar. El Alcalde deberá presentar un informe mensual al Concejo, sobre los gastos ejecutados con cargo a las partidas aquí reguladas, en el que se indique, al menos, el nombre del proveedor, monto, concepto y la justificación.
