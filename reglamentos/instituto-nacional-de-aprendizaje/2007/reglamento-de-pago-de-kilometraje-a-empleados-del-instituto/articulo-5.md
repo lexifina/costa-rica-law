@@ -1,0 +1,1 @@
+Artículo 5º—El Proceso de Servicios Generales o la Unidad Regional correspondiente llevará un expediente individual por cada arrendatario, que deberá contener el contrato original firmado entre las partes y los documentos de respaldo indicados en el artículo 4º de este reglamento.

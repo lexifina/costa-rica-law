@@ -1,0 +1,1 @@
+Artículo 14.—Si la liquidación indicada en el artículo 13 no se presenta a la Unidad de Recursos Financieros o al Proceso Financiero Contable en el plazo establecido, los subsiguientes desplazamientos no se podrán realizar bajo este sistema, y será suficiente causa para que no se reconozca su pago.

@@ -1,0 +1,1 @@
+Artículo 6º—El funcionario propietario asumirá las responsabilidades civiles y penales que se pudieran derivar de la ejecución del contrato y de la conducción de su vehículo. El INA queda totalmente relevado de toda responsabilidad en cuanto se afecten al funcionario o a terceros.

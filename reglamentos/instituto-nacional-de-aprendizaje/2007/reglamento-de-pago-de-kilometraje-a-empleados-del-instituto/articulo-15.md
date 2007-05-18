@@ -1,0 +1,2 @@
+Artículo 15.—El propietario solamente deberá usar su vehículo para el propósito para el que fue autorizado en forma específica mientras esté en el desempeño de sus funciones.
+Cuando sea necesario transportar a otros servidores, así como materiales y equipos que no excedan la capacidad del vehículo, el propietario que arriende su vehículo al INA bajo el sistema, deberá transportarlos bajo los términos del contrato.

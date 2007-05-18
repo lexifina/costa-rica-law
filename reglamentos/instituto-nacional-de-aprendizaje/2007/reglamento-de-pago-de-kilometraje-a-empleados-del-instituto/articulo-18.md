@@ -1,0 +1,1 @@
+Artículo 18.—Se deroga el anterior Reglamento para el pago de uso de vehículos propiedad de los funcionarios del Instituto Nacional de Aprendizaje que fuera aprobado por Junta Directiva en sesión Nº 3520 de enero de 1998.

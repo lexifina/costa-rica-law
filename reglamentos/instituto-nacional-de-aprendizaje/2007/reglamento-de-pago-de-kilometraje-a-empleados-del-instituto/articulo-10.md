@@ -1,0 +1,1 @@
+Artículo 10.—El pago que se haga al funcionario propietario en virtud del presente sistema no constituye salario en especie. Tampoco constituye una obligación del INA garantizar un mínimo mensual de kilómetros recorridos.

@@ -1,0 +1,1 @@
+Artículo 7º—Correrá por cuenta del propietario del vehículo los gastos inherentes al uso del mismo, tales como materiales, combustible, lubricantes, seguros, servicios de mantenimiento, partes de tránsito, derechos de circulación y reparaciones de cualquier naturaleza.
