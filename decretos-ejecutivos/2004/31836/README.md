@@ -15,3 +15,4 @@ Reglamento de los Proyectos de Iniciativa Privada de Concesión de Obra Pública
 | --- | --- | --- |
 | 1 | 2004-07-07 | la propia norma |
 | 2 | 2005-10-26 | Decreto Ejecutivo 32782 (2005-10-26) |
+| 3 | 2007-05-18 | Decreto Ejecutivo 33779 (2007-05-18) |
