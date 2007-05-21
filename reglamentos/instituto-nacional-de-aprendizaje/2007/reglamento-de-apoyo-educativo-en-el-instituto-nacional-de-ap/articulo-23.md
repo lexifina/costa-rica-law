@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Capacitación del recurso humano
+Artículo 23.—De la capacitación del Recurso Humano en materia de accesibilidad y equiparación de oportunidades:
+a. Todas las jefaturas de todas las unidades de la estructura orgánica de la institución deberán identificar las necesidades de capacitación del personal a su cargo, en lo referente a la atención adecuada y apropiada de participantes con necesidades educativas especiales en Formación Profesional y realizar las gestiones pertinentes a nivel institucional para que éstas sean satisfechas.
+b. El Proceso de Desarrollo de Recursos Humanos, debe considerar de manera permanente la atención de las necesidades de capacitación del personal técnico y administrativo en lo atinente a accesibilidad y equiparación de oportunidades de participantes con discapacidad y con necesidades educativas especiales en Formación Profesional.
+c. Todas las jefaturas de todas las unidades institucionales deben promover y facilitar la participación del personal a su cargo en acciones de capacitación en el ámbito de accesibilidad y equiparación de oportunidades para participantes con discapacidad y necesidades educativas especiales (adecuaciones curriculares, ayudas técnicas, adaptación de puestos de trabajo, accesibilidad, LESCO, sistemas alternativos y aumentativos de la comunicación, etc.).

@@ -1,0 +1,3 @@
+Artículo 30.—Presentación de recursos. La presentación de los recursos debe ser por escrito en donde se indique nombre y apellidos de la persona afectada, número de cédula o de identificación, dirección, subsector, programa y módulo, el acto que se impugna y alguna otra información que se estime necesaria.
+Para los participantes que presenten limitaciones en cuanto a la comunicación verbal o escrita, estos recursos podrán ser presentados de la siguiente manera:
+Grabado en cinta magnetofónica o video, oral, braille o por intermediación de otras personas de su confianza, con la debida autorización para ello, de conformidad con lo que establece la legislación vigente.

@@ -1,0 +1,6 @@
+Artículo 12.—De las sesiones del Comité de Apoyo Educativo.
+a. Convocatoria:
+Este Comité sesiona ordinariamente cuatro veces al año como mínimo y las veces que sean necesarias según la demanda de solicitudes de apoyo educativo y la ejecución del Plan de Trabajo Anual. La primera sesión ordinaria debe realizarse en febrero de cada año y tiene como objetivo la elaboración del Plan de Trabajo Anual de este Comité, para presentarlo ante la CIMAD.
+b. Actas:
+De cada sesión debe levantarse un acta, que contiene la indicación de la asistencia, así como las circunstancias de lugar y tiempo en que se ha celebrado, el orden del día, la forma y resultados de votación, así como el fundamento y contenido de los acuerdos. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecen de firmeza los acuerdos tomados en la respectiva sesión, a menos que quienes estén presentes acuerden su firmeza por votación de dos tercios de integrantes de la totalidad. Las actas serán firmadas por la Presidencia y quienes manifiesten su voto disidente.
+Las actas se llevarán en un libro de actas que debe estar debidamente foliado, el que puede ser llevado en formato electrónico, sin embargo deberá existir el documento en papel y con las respectivas firmas.
