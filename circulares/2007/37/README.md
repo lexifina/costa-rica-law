@@ -14,3 +14,4 @@ Implementación del régimen de tránsito, en todas las aduanas con Sistema TICA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-14 | la propia norma |
+| 2 | 2007-05-21 | Circular 77 (2007-05-21) |
