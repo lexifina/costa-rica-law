@@ -1,0 +1,1 @@
+Artículo 75. Tanto estacionamientos, independientemente del material de piso, plazoletas, piscinas, calles y aceras internas, corredores, terrazas y cualquier tipo de impermeabilización del terreno mediante pavimentos, piedras, lastre, concreto, adoquines, entre otros; son considerados como área de cobertura independientemente si tienen o no cerramientos.

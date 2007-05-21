@@ -1,0 +1,1 @@
+Artículo 145. Se permite la creación de conjuntos habitacionales en condominio rural cuya altura no exceda los tres pisos o bien los 11 metros de altura. Ver Capítulo 11 "Condominios Rurales” del Reglamento de Construcciones.

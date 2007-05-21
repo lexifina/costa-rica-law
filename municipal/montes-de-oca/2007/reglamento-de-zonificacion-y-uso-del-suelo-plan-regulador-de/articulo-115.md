@@ -1,0 +1,1 @@
+Artículo 115. Sobre acceso de áreas verdes para discapacitados: Se deben cumplir con los requerimientos mínimos establecidos en la “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”, Ley No. 7600.

@@ -1,0 +1,1 @@
+Artículo 167. La zona ubicada entre el Río Torres y el anillo de contención, puede urbanizarse en aquellas zonas cuyas pendientes sean menores al 20% y debe respetarse los 15 metros de protección para ambos lados de las riberas de los ríos.

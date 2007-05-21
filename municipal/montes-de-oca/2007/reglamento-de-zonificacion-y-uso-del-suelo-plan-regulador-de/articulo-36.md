@@ -1,0 +1,1 @@
+Artículo 36. Los usos Comercial “A” deben crear áreas para la disposición temporal de la basura, protegidas de la intemperie y que no obstaculicen o causen molestias a los peatones. Además cumplir con la normativa para contener olores del Ministerio de Salud

@@ -1,0 +1,2 @@
+Artículo 64. Los usos Transportes “B” deben cumplir con los siguientes requisitos adicionales:
+- Terminal de Buses: Deben contar con accesos y salidas eficientes que impidan la ocurrencia de conflictos vehiculares. Las paredes del edificio deben tener aislamiento acústico o bien se deben aumentar los retiros laterales a fin de absorber el ruido y disiparlo, cumpliendo con la normativa del Ministerio de Salud. Se deben crear zonas especiales para taxis y estacionamientos de vehículos dentro de la terminal de buses.

@@ -1,0 +1,1 @@
+Artículo 193. Altura Máxima en la zona de destino: Podrán aumentarse el número de pisos permitido según el reglamento de zonificación del uso del suelo y utilizarse los topes máximos de altura planteados en la tabla 2 en las zonas destinatarias, siempre y cuando no se llegue a alturas que sobrepasen 1.5 veces el ancho de la calle actual.

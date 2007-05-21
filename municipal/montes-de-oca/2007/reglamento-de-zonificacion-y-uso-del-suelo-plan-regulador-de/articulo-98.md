@@ -1,0 +1,1 @@
+Artículo 98. En el caso de hospitales, clínicas y sanatorios, para asegurar el aislamiento acústico, conveniente ventilación e iluminación solar, deberán de cumplir con un retiro mínimo de 6 metros para cada uno de los linderos incluyendo la línea de frente de la construcción.

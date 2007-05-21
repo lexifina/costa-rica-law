@@ -1,0 +1,6 @@
+Capítulo 23. Uso Protección Ambiental
+Artículo 65. Definiciones de Uso de Protección Ambiental
+Se definirán para efectos de este Reglamento como usos Protección Ambiental a los que tienen como finalidad favorecer el aprovechamiento del suelo con actividades de poco impacto ambiental, tanto a nivel hidrológico como paisajístico.
+- Parque, área deportiva o recreativa pública: Áreas acondicionadas para el ocio y esparcimiento de los habitantes. Puede o no tener facilidades para el descanso, deportivas o recreativas.
+- Zonas Protegidas: Áreas que por la legislación vigente o por consideraciones especiales del Plan Regulador de Montes de Oca, están vedadas para construcción y cuya vocación es primordialmente de conservación, aunque pueden ser explotadas turística o recreativamente, en el tanto no se construya en ellas.
+Dentro de las zonas protegidas se incluyen zonas que han sido afectadas por inundaciones, zonas donde se encuentren manantiales, zonas de protección de ríos y zonas de alta pendiente. En estos casos deben ser adquiridas por la Municipalidad para su protección o ser cedidas como áreas verdes por parte de los urbanizadores siempre y cuando cumplan con todos los requisitos de Áreas Verdes del Título 6 “Áreas Verdes” de este reglamento.

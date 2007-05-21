@@ -1,0 +1,1 @@
+Artículo 102. Las especies de árboles que se utilicen en las áreas verdes públicas, tienen que ser al menos en un 50% de individuos nativas de la zona. Las características de tamaño, forma y crecimiento deben ser tales que los tipos de árboles utilizados no alteren la infraestructura existente, sobretodo que sus raíces no rompan la acera. Ver Anexo sobre Arborización

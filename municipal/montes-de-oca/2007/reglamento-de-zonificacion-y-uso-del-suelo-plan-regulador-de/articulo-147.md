@@ -1,0 +1,1 @@
+Artículo 147. No se permitirá la construcción de urbanizaciones, viveros, con excepción de los orgánicos, ni actividades mineras. Únicamente los usos indicados en este Reglamento Ver Tabla 1 Resumen de Usos Permitidos según Zona y Tabla 2 Usos no permitidos en Montes de Oca así como el Título “Actividades Permitidas en las diferentes Zonas del Cantón” de este Reglamento.

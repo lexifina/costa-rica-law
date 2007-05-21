@@ -1,0 +1,2 @@
+Capítulo 32. MANTENIMIENTO DE LAS ÁREAS VERDES, RECREATIVAS Y DEPORTIVAS
+Artículo 131. La Comisión Especial Estratégica Territorial colaborará con la fiscalización con el Comité Cantonal de Deportes y Recreación en el sistema para el mantenimiento e inspección de las áreas verdes, recreativas y deportivas del cantón. En el caso de las áreas verdes de urbanizaciones se debe coordinar con los vecinos o algún grupo autorizado de representantes dentro de la CEET.

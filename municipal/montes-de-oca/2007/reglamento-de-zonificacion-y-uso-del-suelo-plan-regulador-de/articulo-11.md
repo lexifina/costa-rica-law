@@ -1,0 +1,1 @@
+Artículo 11. Para los usos señalados desde el Capítulo 2 hasta el Capítulo 23 del Título 2 “Actividades permitidas en las distintas Zonas del Cantón” rigen las restricciones por área de cobertura, del Título 3 “Área de Cobertura” del presente Reglamento.

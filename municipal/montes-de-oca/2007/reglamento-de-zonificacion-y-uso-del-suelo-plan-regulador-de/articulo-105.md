@@ -1,0 +1,1 @@
+Artículo 105. Se autoriza la ubicación de áreas verdes de cualquier tamaño en la zona este de San Rafael. De tal manera que para este tipo de uso no existirán restricciones de área. Ver Capítulo 33 “Zonas definidas para el distrito de San Rafael” de este reglamento

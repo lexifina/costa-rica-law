@@ -1,0 +1,1 @@
+Artículo 38. Los usos Comercial “B” deben proveer áreas especiales para disponer de los desechos sólidos de forma que no causen molestias a los peatones tales como polvo y olores. La basura no puede quedar a la intemperie.

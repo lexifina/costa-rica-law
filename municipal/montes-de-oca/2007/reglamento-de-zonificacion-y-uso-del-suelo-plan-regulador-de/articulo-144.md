@@ -1,0 +1,1 @@
+Artículo 144. La franja de protección de los ríos para todo San Rafael será de 15 metros, medidos desde el borde del río en proyección horizontal para ambos lados. Sin embargo se recomienda utilizar 50 metros a ambos lados por cuestiones de seguridad. En caso de relleno se debe presentar certificado que compruebe la pendiente original así como un estudio de suelo.

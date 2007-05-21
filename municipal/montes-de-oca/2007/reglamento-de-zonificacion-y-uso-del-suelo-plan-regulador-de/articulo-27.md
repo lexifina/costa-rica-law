@@ -1,0 +1,1 @@
+Artículo 27. Los usos Educacional “C” deben cumplir los siguientes requisitos adicionales: no deben ser colindantes con edificios vecinos o alternativamente proveer un excelente aislamiento acústico con respecto a sus estructuras vecinas. Deben acondicionarse áreas especiales para el abordaje de los autobuses, conocidas como bahías, o dentro del lote.

@@ -1,0 +1,8 @@
+Artículo 201. Para la Zona de Renovación Urbana por Riesgo atravesada por la Zona de Control Especial del Anillo Periférico, mantendrá sus disposiciones hasta que se construya la obra.
+Tabla 13. Resumen de restricciones para las diferentes zonas..
+ZONA | Retiros | Coberturas
+Residencial Predominantemente Residencial | -Antejardín: 2 metros -Lateral: (si existe ventana en colindancia o paredes combustibles) Para 1 piso: 1.5 metros Para 2-3 pisos: 3 metros Para 4 pisos: 5 metros -Posterior: Para 1-3 pisos: 3 metros Para 4 pisos: 5 metros | Se define según zonificación por frente de lote y área: -Para lotes que se encuentran en zonas cuya área mínima es igual a 130m²,y con un frente mínimo de 9 metros; el porcentaje máximo a cubrir será del 75% para usos habitacionales y 85% para usos no habitacionales -Para lotes que se encuentran en zonas cuya área mínima es igual a 240m²,y con un frente mínimo de 12 metros; el porcentaje máximo a cubrir será del 70% para usos habitacionales y 85% para usos no habitacionales
+Mixta | -Antejardín: 2 metros -Lateral: -3 metros de 1-4 pisos -6 metros de 5-8 pisos -Posterior: 3 metros
+Comercial
+Zonas Residenciales Especiales | -Antejardín: no es obligatorio, pero es recomendable -Lateral: (si existe ventana en colindancia o paredes combustibles) Para 1 piso: 1.5 metros Para 2 o más pisos: 3 metros -Posterior: (obligatorio) 3 metros | El máximo a cubrir será del 90% del área total del lote, excepto en caso que sean zonas de renovación urbana (Ver Título 8 “Zonas Especiales”)
+(Por el tipo de formato ver Mapas en el Alcance N° 51 a La Gaceta N° 165 del 29 de agosto de 2006)

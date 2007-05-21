@@ -1,0 +1,1 @@
+Artículo 149. El frente mínimo de terreno para construir en San Rafael, salvo para usos agropecuarios no puede ser menor a 100 metros; para Condominio Rurales, Hoteles de Montaña y Clubes Campestres, el mínimo serán 120 metros.

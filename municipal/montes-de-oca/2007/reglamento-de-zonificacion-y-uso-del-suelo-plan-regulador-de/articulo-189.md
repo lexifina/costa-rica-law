@@ -1,0 +1,1 @@
+Artículo 189. El porcentaje de cobertura base será el establecido en el Título 3 “Áreas de Cobertura de este reglamento, según la zona en la que se ubique el edificio y no podrá aumentarse. La transferencia de derechos le permitirá aumentar su área constructiva.

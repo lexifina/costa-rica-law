@@ -1,0 +1,1 @@
+Artículo 130. En el caso de la utilización de cercas en áreas deportivas o recreativas comunales, estas deben permitir una visibilidad mayor al 90%. Preferiblemente se utilizarán elementos “verdes” como setos o árboles. Si estas cercas permiten que el área sea cercada por las noches, se debe garantizar que el ingreso a estas áreas durante el día no se limite.

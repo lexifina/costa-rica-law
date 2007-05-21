@@ -1,0 +1,1 @@
+Artículo 83. En zonas de Transferencia de Derechos de Construcción se permitirán alturas de hasta 8 pisos o 26 metros, pero solo en caso de hacer uso de esta modalidad. Si la construcción no ha adquirido los derechos de transferencia, no podrá sobrepasar la altura máxima establecida según zonificación. Ver Capítulo 40 “Zonas Especiales de Carácter Histórico-Arquitectónico”.

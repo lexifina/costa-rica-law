@@ -1,0 +1,1 @@
+Artículo 95. El área correspondiente a la franja verde en zonas comerciales y mixtas, podrá impermeabilizarse en los tramos donde se incorporen maceteras con arborización y mobiliario urbano, para tales efectos dichos árboles no podrán distanciarse más de 5 metros entre sí y al menos un 50% serán especies nativas. Ver Anexo de Arborización.

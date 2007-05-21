@@ -1,0 +1,1 @@
+Artículo 12. En el caso de las restricciones y requisitos para áreas verdes y recreativas, para los usos desde el Capítulo 2 hasta el Capítulo 23 del Título 2 “Actividades permitidas en las distintas Zonas del Cantón” rige lo establecido en el Título 6 “Áreas Verdes” de este Reglamento

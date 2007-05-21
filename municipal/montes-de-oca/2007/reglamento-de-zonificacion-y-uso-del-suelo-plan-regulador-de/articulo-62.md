@@ -1,0 +1,1 @@
+Artículo 62. Los autobuses que dan servicio a los estudiantes y funcionarios de la Universidad de Costa Rica y otras instituciones educativas públicas y privadas deben tener un Estacionamiento de Autobuses.

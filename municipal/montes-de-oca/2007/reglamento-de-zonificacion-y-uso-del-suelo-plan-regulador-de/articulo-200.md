@@ -1,0 +1,1 @@
+Artículo 200. En el caso de solicitar un cambio en el uso del suelo o renovación de patentes, se mantendrán las restricciones correspondientes a la Zona Mixta o Zona Residencial, cumpliendo además con las restricciones del artículo 197.

@@ -1,0 +1,1 @@
+Artículo 28. Aceras amplias. Si el lote ocupa frentes de cuadra completos deben proveerse anchos de acera de al menos 2,4 metros más un metro de franja verde y utilizando arborización. Ver Capítulo de Infraestructura Peatonal en el Reglamento de Vialidad de este Plan.

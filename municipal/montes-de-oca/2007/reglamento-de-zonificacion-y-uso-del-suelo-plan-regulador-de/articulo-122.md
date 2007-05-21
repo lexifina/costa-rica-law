@@ -1,0 +1,2 @@
+Capítulo 31. SEGURIDAD EN PARQUES O JUEGOS INFANTILES
+Artículo 122. En las áreas verdes infantiles se debe proporcionar mobiliario para que los adultos puedan cuidarlos así se tiene más seguridad, de tal manera que puede tenerse un área verde con un uso principal y a la vez algún uso secundario. De esta manera se promueve además el uso del mobiliario Urbano de tipo secundario. Ver Anexo de Mobiliario Urbano

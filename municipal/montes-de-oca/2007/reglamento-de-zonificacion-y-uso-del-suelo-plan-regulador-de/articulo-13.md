@@ -1,0 +1,1 @@
+Artículo 13. Para los usos señalados desde el Capítulo 2 hasta el Capítulo 23 del Título 2 “Actividades permitidas en las distintas Zonas del Cantón” rigen las restricciones por altura, del Título 4 “Alturas Permitidas” del presente Reglamento.

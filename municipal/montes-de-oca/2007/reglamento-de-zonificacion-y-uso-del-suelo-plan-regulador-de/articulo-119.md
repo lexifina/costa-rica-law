@@ -1,0 +1,1 @@
+Artículo 119. Cuando los urbanizadores o desarrolladores no utilicen las lámparas suministradas por la CNFL en sus proyectos, las lámparas utilizadas deben cumplir con los niveles de iluminación mínimos establecidos en este Capítulo.

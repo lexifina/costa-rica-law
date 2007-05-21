@@ -1,0 +1,1 @@
+Artículo 17. Los usos “Habitacional” se permiten en todas las zonas a excepción de la zona de Protección Ambiental. No se permite la construcción de viviendas en las zonas de protección de márgenes de ríos ni zonas de alta pendiente según se especifica en el mapa de zonificación y en los consideraciones de amenazas naturales adjuntos.

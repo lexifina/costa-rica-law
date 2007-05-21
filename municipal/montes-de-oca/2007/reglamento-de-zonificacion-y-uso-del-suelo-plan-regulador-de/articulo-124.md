@@ -1,0 +1,1 @@
+Artículo 124. En el caso de que el área de juegos infantiles esté inmediata a una quebrada o río, canal o calle primaria y en general sitios peligrosos es obligación del urbanizador cerrar el sitio con malla, u otro sistema que ofrezca seguridad.

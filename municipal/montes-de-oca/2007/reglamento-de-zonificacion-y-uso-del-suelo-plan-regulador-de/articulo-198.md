@@ -1,0 +1,1 @@
+Artículo 198. En la Zona de Control Especial del Anillo Periférico no se permitirá la construcción de nuevas edificaciones. Tampoco serán permitidas las remodelaciones o ampliaciones de las edificaciones actuales.

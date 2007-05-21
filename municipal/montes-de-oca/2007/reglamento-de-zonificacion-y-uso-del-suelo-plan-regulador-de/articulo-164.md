@@ -1,0 +1,2 @@
+Artículo 164. Al separar una propiedad de otra, no pueden utilizarse muros de concreto ni mampostería, más bien deberá trabajarse las colindancias a base de separaciones naturales, como arbustos, árboles bajos, o elementos de materiales que se encuentren acorde con la armonía del paisaje tales como cercas de madera, cercas de púas, mallas, entre otros, o bien combinaciones de los mismos.
+Cuando dichos elementos garanticen al menos un 80% de visibilidad entre un predio y otro podrán tener alturas de hasta 3 metros.

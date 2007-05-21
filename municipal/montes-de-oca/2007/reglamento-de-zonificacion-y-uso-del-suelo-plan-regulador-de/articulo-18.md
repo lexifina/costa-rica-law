@@ -1,0 +1,1 @@
+Artículo 18. En uso habitacional en condominio, residencia universitarias, y estudiantiles, apartamento o cualquiera con más de una unidad habitacional y con un solo acceso a la vía pública debe tener zonas especiales para la disposición temporal de los desechos sólidos para su recolección posterior.

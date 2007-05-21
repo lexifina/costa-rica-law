@@ -1,0 +1,1 @@
+Artículo 94. En aquellos casos en que un lote que no cumpla con el tamaño mínimo aceptado y ubicado fuera de las Zonas Especiales, pero ya inscrito en el Registro de la Propiedad y la Municipalidad, sus retiros serán los mismos de la zona donde se ubique.

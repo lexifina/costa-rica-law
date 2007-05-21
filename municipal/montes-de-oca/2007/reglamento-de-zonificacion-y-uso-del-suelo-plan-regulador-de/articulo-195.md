@@ -1,0 +1,1 @@
+Artículo 195. El derecho de transferencia solo será otorgado una vez, esto se podrá supervisar a través de un título de derecho de propiedad de los cuales, propietarios y municipalidad tendrán copia, para evitar la doble transferencia.

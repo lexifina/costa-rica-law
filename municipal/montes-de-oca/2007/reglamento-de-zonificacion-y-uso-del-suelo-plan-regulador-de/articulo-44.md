@@ -1,0 +1,2 @@
+Artículo 44. Los usos Servicios “A” deben cumplir con los siguientes requisitos adicionales específicos:
+- Clínicas Veterinarias:. Se deben tomar medidas especiales para proveer aislamiento acústico y eliminación de malos olores. Los desechos sólidos deben ser dispuestos en zonas especiales para disposición temporal y deben estar aisladas de la intemperie. y cumplir con las normativas contra ruido del Ministerio de Salud.

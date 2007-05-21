@@ -1,0 +1,1 @@
+Artículo 73. Para la Zona no Urbana de San Rafael el porcentaje máximo de cobertura será de un 10% del área total del lote. Ver Capítulo 24 “Regulaciones para la Zona Urbana de San Rafael” y el Mapa de Zonificación del Uso del Suelo de San Rafael.

@@ -1,0 +1,1 @@
+Artículo 29. Cambio de Uso. Si se diera un cambio de uso para aquellos clasificados como Educacional “A” y señalados de esta manera en el Mapa de Zonificación, regirá la clasificación de la zona adyacente a su frente de lote. Si existiesen dos o más tipos de zonificación adyacentes, se clasificará con la más restrictiva de las zonas adyacentes.

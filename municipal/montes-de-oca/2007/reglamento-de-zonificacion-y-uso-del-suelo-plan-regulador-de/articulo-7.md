@@ -1,0 +1,1 @@
+Artículo 7. Se establecen las siguientes categorías de usos: Habitacional, Cultural, Educacional A, B, C; Salud A, B; Comercial A, B, C, D; Servicios A, B ,C; Entretenimiento A, B, C; Almacenamiento, Industrias, Vialidad A, B y Protección Ambiental. Los usos categoría A son aquellos con posibles impactos mínimos y cada categoría subsiguiente aumenta los posibles impactos.

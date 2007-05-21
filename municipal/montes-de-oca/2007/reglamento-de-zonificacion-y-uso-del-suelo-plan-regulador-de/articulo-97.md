@@ -1,0 +1,1 @@
+Artículo 97. El tramo que va sobre calle 3, tendrá un nuevo alineamiento de su línea de propiedad de 3 metros sobre las propiedades ubicadas al oeste, con el propósito de sumar 1,5 metros para la acera de cada lado para su ampliación, a este nuevo lineamiento se le debe sumar el antejardín respectivo.

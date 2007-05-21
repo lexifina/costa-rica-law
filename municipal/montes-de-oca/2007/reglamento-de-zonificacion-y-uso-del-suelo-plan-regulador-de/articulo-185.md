@@ -1,0 +1,2 @@
+Capítulo 40. ZONA ESPECIAL DE CARÁCTER HISTÓRICO - ARQUITECTÓNICO
+Artículo 185. Definición de zonas de control especial de carácter histórico-arquitectónico: La ubicación específica de estas zonas se detalla en el Mapa de Zonas Especiales de este reglamento. Estas han sido ubicadas alrededor de tres de los inmuebles declarados patrimonio arquitectónico por el MCJD dentro del cantón de Montes de Oca:

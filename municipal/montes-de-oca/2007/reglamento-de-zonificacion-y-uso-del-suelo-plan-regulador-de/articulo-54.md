@@ -1,0 +1,1 @@
+Artículo 54. Los usos Entretenimiento “C” permitidos deben contar con sistemas de aislamiento acústico de acuerdo con la normativa del Reglamento de Ruido del Ministerio de Salud. Se deben controlar los malos olores y el almacenamiento de residuos sólidos y líquidos de forma que no causen molestias a los vecinos y peatones.

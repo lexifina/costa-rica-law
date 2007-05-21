@@ -1,0 +1,1 @@
+Artículo 127. Los columpios deben ser colocados en zonas con espacios libres, horizontales y verticales, lo suficientemente amplios para que no haya peligro de que los niños choquen con algún tipo de barrera como paredes, mallas, árboles, otros columpios, otros juegos, al columpiarse. Esto aplica para cualquier otro tipo de juego que implique el riesgo de algún tipo de colisión.

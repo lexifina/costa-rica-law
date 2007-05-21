@@ -1,0 +1,1 @@
+Artículo 163. Cuando la propiedad colinde con un río, regirá el retiro en área de protección de ríos, que consiste en 15 metros en proyección horizontal, a excepción del retiro posterior que será siempre de 30 metros.

@@ -1,0 +1,1 @@
+Artículo 121. En las áreas verdes en las que existan vías peatonales internas o circundantes que puedan ser utilizadas en la noche donde no hay paso restringido según el horario, aún cuando el área verde no pueda ser utilizada, se debe cumplir con los valores mínimos de iluminación establecidos.

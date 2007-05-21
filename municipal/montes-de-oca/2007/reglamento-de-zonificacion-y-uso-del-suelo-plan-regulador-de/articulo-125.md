@@ -1,0 +1,1 @@
+Artículo 125. Las zonas de juego no deben incluir objetos o partes punzantes, cortantes, cristales u otros materiales que produzcan heridas. Esto aplica para todos objetos incluidos dentro del parque, desde las mallas o cualquier forma de cercamiento, hasta las estructuras de los juegos infantiles.

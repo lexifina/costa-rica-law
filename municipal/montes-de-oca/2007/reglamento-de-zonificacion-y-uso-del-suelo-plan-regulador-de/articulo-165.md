@@ -1,0 +1,2 @@
+Capítulo 36. REGULACIONES PARA LA ZONA URBANA DE SAN RAFAEL
+Artículo 165. La zona urbana de San Rafael se dividirá en dos sectores. El límite será el anillo de contención. Esta división se realiza con el fin permitir usos urbanos regulados, en los lugares que se encuentran al este del límite propuesto que prácticamente coincide con el anillo de contención. Ver Mapa de Zonificación del Usos del Suelo de San Rafael.

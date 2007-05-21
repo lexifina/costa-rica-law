@@ -1,0 +1,1 @@
+Artículo 14. Para los usos señalados desde el Capítulo 2 hasta el Capítulo 23 del Título 2 “Actividades permitidas en las distintas Zonas del Cantón” rigen las restricciones por retiros, del Título 5 “Regulaciones en Retiros” del presente Reglamento.
