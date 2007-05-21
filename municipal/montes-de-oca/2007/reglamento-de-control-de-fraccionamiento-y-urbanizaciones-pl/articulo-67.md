@@ -1,0 +1,1 @@
+Artículo 67. Cuando existan proyectos municipales o de alguna institución pública para el entubamiento de dichas aguas, el urbanizador deberá pagar la parte proporcional que le corresponde de las obras.

@@ -1,0 +1,1 @@
+Artículo 48. Los pasos peatonales contarán con los requisitos necesarios como: rampas, pasamanos, señalizaciones visuales, auditivas y táctiles, con el fin de garantizar que sean utilizadas sin riesgo alguno por las personas con discapacidad.

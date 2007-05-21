@@ -1,0 +1,1 @@
+Artículo 20. Dentro del área comunal se contemplan las áreas verdes, que deberán ser al menos un 10% del área total urbanizable, la superficie restante podrá destinarse a infraestructura comunal, esta área consistirá en el 2% o más del área urbanizable, esto según el tamaño de la urbanización.

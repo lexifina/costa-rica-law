@@ -1,0 +1,1 @@
+Artículo 70. Previo a la presentación de los requisitos ante las instancias correspondientes, el interesado deberá contar con el uso del suelo aprobado por la Municipalidad de Montes de Oca. En cuanto al plano catastrado de la finca madre, este deberá estar visado por la Municipalidad de Montes de Oca.

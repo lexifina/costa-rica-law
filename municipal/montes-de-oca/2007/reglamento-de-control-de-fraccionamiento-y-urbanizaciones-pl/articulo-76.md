@@ -1,0 +1,3 @@
+Artículo 76. Aceptación de obras: La aceptación de las obras y de las áreas públicas se efectuará conforme a las disposiciones reglamentarias que tengan en vigor la Municipalidad de Montes de Oca y los demás organismos públicos que al respecto ejerzan funciones de control.
+Ninguna omisión de detalles en los planos aprobados libera al urbanizador y al profesional responsable de las obligaciones que les conciernen en cuanto al total y satisfactoria entrega de las obras, al tenor de lo establecido en este reglamento.
+El urbanizador y el profesional responsable que firman la solicitud de visado de los planos de construcción, son garantes de la estricta conformidad de las obras con los requisitos reglamentarios exigibles, conforme a lo indicado en las leyes aplicables.

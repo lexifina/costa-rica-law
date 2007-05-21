@@ -1,0 +1,1 @@
+Artículo 40. La proporción de las manzanas deberá estar en razón de 2/3 a 1 como máximo, aceptando proporciones de ½ a 1 sólo en casos especiales, donde la topografía de la zona o bien la colindancia con zonas de protección de ríos imposibilite el cumplimiento de la norma antes indicada.

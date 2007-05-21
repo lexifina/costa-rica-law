@@ -1,0 +1,1 @@
+Artículo 74. Los solicitantes inconformes con las razones en que se funde una negativa de visado podrán ejercer los recursos legales correspondientes dentro de los quince días hábiles al de la notificación hecha conforme al artículo anterior, podrán recurrir ante la instancia administrativa superior, para que se reconsidere la decisión.

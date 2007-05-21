@@ -1,0 +1,1 @@
+Artículo 8. Se entenderá por servidumbre pública aquella que sea declarada para tal fin por alguna autoridad competente o bien la Municipalidad, por lo que sería de uso común y de carácter público, como es el caso de las servidumbres pluviales, ecológicas, entre otras. Su mantenimiento es responsabilidad de la Municipalidad.

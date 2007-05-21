@@ -1,0 +1,3 @@
+Artículo 12. En lo que respecta a futuras construcciones que no cumplan los requerimientos anteriores se regulará de la siguiente manera:
+a. Lotes segregados y debidamente inscritos, cuyas dimensiones oscilen entre seis y nueve metros de frente, con áreas mayores a 90m² , tendrán un porcentaje de cobertura del 75%, y podrán efectuar su construcción siempre y cuando respeten los retiros respectivos. Ver Reglamento de Zonificación, Tabla 13, de Restricciones para las diferentes zonas.
+b. Lotes existentes no segregados deberán de sujetarse a los lineamientos del Plan Regulador del 2003, si desean construir o segregarse.

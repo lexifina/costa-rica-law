@@ -1,0 +1,1 @@
+Artículo 43. En alamedas se tendrá un derecho de vía de seis metros, deberán contar con las aceras y cordones de caño respectivos y al menos el 50% de la alameda deberá destinarse a área verde. Es terminantemente prohibido cerrar cualquier acceso a la alameda.

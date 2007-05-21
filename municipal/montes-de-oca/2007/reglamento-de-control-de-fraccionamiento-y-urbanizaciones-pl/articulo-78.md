@@ -1,0 +1,1 @@
+Artículo 78. La inspección y la aceptación de las obras no relevan al urbanizador a realizar por su cuenta la reparación de los defectos de construcción que se descubrieron durante los 18 meses siguientes al recibo municipal de las obras.

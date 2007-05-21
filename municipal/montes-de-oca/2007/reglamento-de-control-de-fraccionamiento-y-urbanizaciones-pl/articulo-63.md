@@ -1,0 +1,1 @@
+Artículo 63. Los urbanizadores deben acondicionar la franja de protección de ríos que les corresponde, pero lo más importante debe ser garantizar la estabilidad geotécnica de los mismos y corregir problemas de erosión.

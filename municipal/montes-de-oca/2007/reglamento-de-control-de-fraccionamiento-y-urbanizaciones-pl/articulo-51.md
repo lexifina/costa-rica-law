@@ -1,0 +1,1 @@
+Artículo 51. No se permitirá la colocación de áreas temporales de desechos sólidos sobre las aceras, si es una canasta de recolección de basura para una urbanización esta deberá colocarse sobre la franja verde, y si es de uso privado deberá de estar dentro de la edificación.

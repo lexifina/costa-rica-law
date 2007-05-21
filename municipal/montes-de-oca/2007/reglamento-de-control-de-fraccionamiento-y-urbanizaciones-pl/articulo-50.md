@@ -1,0 +1,1 @@
+Artículo 50. Bajo ninguna circunstancia se podrá obstruir el flujo peatonal sobre las aceras. En el caso de nuevas construcciones no podrán disponer de las aceras para colocar temporalmente materiales de construcción. Si se va a cercar temporalmente un predio ya sea para remodelación o nueva construcción, dicha cerca no puede incluir la acera.

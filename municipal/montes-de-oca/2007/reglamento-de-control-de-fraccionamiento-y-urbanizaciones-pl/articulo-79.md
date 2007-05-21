@@ -1,0 +1,1 @@
+Artículo 79. Es entendido que la venta de lotes del fraccionamiento o la urbanización y la construcción en ellos, sólo será permitida si se han ejecutado las obras de urbanización indicadas en el respectivo permiso o en su lugar se ha rendido la garantía de ejecución de obras faltantes a que hace referencia el artículo 39 de la Ley No.4240 de Planificación Urbana.

@@ -1,0 +1,1 @@
+Artículo 52. La acera estará al menos 15 centímetros sobre el nivel de la calle, la transición entre la acera y la calle será el cordón del caño el cual deberá de tener mínimo 20 centímetros de profundidad.

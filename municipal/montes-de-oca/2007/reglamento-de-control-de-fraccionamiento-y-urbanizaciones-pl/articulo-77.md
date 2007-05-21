@@ -1,0 +1,1 @@
+Artículo 77. Del área total a fraccionar o urbanizar, deberá cederse gratuitamente para vías, parques y facilidades comunales, el porcentaje que corresponda, según el tamaño promedio de los lotes, el uso que se pretenda dar al terreno y las normas señaladas en el Capítulo 2 de este reglamento.

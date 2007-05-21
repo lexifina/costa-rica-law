@@ -1,0 +1,1 @@
+Artículo 4. Para autorizar el visado de planos es indispensable que el interesado presente el plano de la finca madre en donde se muestren todas las porciones resultantes. Si alguna de ellas no cumple con las normas mínimas establecidas en este reglamento se denegará el visado.

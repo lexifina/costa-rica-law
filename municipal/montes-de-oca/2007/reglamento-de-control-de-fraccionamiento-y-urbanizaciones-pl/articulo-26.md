@@ -1,0 +1,1 @@
+Artículo 26. No se permitirá ningún tipo de muro que sobrepase un metro de altura. No se podrá delimitar la urbanización con ningún tipo de muralla, ni crear arcos de entrada ni ningún elemento que sobrepase la altura indicada; ya que se considera contaminación visual.

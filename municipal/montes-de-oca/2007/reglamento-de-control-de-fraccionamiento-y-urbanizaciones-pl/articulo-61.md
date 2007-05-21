@@ -1,0 +1,3 @@
+Capítulo 8. MOVIMIENTOS DE TIERRA Y AMENAZAS NATURALES
+Para más información ver Reglamento de Construcciones, Capítulos 30 “Aspectos Hidrológicos e Inundaciones” y Capítulo 31 “Prevención de deslizamientos y protección de cauces de ríos”.
+Artículo 61. En zonas urbanas, donde se pretenda urbanizar fincas atravesadas por ríos o quebradas o que colinden con éstos, deberá proveerse una franja de no construcción con un ancho mínimo de 10 metros a partir de la orilla del río y medidos a cada lado del mismo, en la proyección horizontal. Esta franja no puede ser disminuida por ninguna razón, pues el fin de la misma es proteger al río. En ríos y quebradas intermitentes se deben dejar 10 metros de franja de protección a cada lado del lecho máximo.

@@ -1,0 +1,1 @@
+Artículo 24. Deben destinarse para juegos infantiles un mínimo de 10m² por unidad habitacional. Esta porción no cuenta como área verde si su superficie es impermeable, pero sí esta incluida en el área comunal.

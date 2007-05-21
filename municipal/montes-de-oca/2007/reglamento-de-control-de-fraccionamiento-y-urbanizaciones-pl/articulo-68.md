@@ -1,0 +1,2 @@
+Capítulo 9. DISPOSICIONES GENERALES Y PRESENTACION DE PLANOS
+Artículo 68. Presentación de Planos: Todo interesado en realizar un fraccionamiento o una urbanización deberá presentar inicialmente un plano de consulta preliminar al Instituto Nacional de Vivienda y Urbanismo, suscribiendo para ello la solicitud, en un original y dos copias, de la fórmula respectiva que facilitará el INVU y que debe acompañar al plano preliminar del anteproyecto. La fórmula original se reintegrará para efectos fiscales conforme lo exige la ley.

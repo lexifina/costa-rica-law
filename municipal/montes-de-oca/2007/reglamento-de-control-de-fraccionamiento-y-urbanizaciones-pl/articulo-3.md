@@ -1,0 +1,2 @@
+Capítulo Único. NUEVOS FRACCIONAMIENTOS
+Artículo 3. La Municipalidad aceptará el fraccionamiento únicamente en propiedades que se encuentren frente a vías existentes y debidamente reglamentadas. El fraccionador deberá hacer todas las mejoras que determine la municipalidad sobre la mitad de la calle a que enfrenten los lotes incluida su ampliación y acera repectiva. Esta mitad será medida desde el eje central longitudinal de la calle hasta el borde interno de la acera

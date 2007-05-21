@@ -1,0 +1,1 @@
+Artículo 22. Las especies de árboles que se utilicen en las áreas verdes tienen que ser al menos en un 50% nativas de la zona con el propósito de restaurar, mantener y preservar el carácter propio de la zona de vida. Ver anexo de Especies Arbóreas.

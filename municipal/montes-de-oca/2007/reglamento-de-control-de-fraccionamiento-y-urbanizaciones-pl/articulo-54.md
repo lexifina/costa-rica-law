@@ -1,0 +1,1 @@
+Artículo 54. Toda urbanización mayor a 50 unidades habitacionales deberá de disponer de al menos un sitio para paradas de autobús con su respectiva bahía, lo anterior si la urbanización se encuentra dentro de una ruta de autobuses importante.
