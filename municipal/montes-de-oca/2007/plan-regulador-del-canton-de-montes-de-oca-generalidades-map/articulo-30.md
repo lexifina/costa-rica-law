@@ -1,0 +1,1 @@
+Artículo 30. Inventario de Terrenos Municipales no incluidos en los anteriores. Corresponden a propiedades con infraestructura que no son de uso comunal. Se enumeran en la Lista #2 “Terrenos Municipales Adicionales” al final del Reglamento y su localización se muestra en el Mapa Oficial Oeste y en el Mapa Oficial Este.

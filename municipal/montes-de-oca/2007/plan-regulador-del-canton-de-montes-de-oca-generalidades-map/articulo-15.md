@@ -1,0 +1,1 @@
+Artículo 15. Los funcionarios responsables por el incumplimiento del Plan Regulador de Montes de Oca, serán merecedores de las sanciones administrativas, disciplinarias, civiles y penales contempladas en este Reglamento y demás leyes.

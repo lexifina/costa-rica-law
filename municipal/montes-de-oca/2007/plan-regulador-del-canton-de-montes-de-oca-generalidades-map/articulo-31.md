@@ -1,0 +1,1 @@
+Artículo 31. El inventario de Terrenos Estatales que no están bajo la administración de la Municipalidad se muestra en la Lista #3 “Terrenos Estatales No Municipales” al final del Reglamento y su localización se muestra en el Mapa Oficial Oeste y en el Mapa Oficial Este.

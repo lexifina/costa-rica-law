@@ -1,0 +1,1 @@
+Artículo 17. La Municipalidad de Montes de Oca, al tener conocimiento del incumplimiento de las normas establecidas en los Reglamentos del presente Plan Regulador, levantará el informe correspondiente y comunicará al infractor a fin de que se ponga a derecho, de conformidad con lo establecido en las regulaciones de las diferentes materias.

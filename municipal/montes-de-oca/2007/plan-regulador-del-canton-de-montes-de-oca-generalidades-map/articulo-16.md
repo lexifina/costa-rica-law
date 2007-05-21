@@ -1,0 +1,1 @@
+Artículo 16. Además de las infracciones contempladas en el artículo 89 de la Ley de Construcciones, se considerarán infracciones el incumplimiento a las regulaciones establecidas en los diferentes reglamentos que conforman el presente Plan Regulador.

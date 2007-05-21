@@ -1,0 +1,1 @@
+Artículo 14. La Municipalidad de Montes de Oca además, deberá poner en conocimiento de las autoridades judiciales a los infractores que incurran en sanciones civiles y penales contempladas en el presente Plan Regulador y demás leyes.

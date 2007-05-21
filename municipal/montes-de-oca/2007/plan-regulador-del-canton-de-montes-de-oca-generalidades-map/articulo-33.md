@@ -1,0 +1,1 @@
+Artículo 33. Área de Reserva para ampliar el Parque del Este. Corresponde a la Finca Municipal y terrenos aledaños al Parque del Este declarados en el Reglamento de Zonificación como Zonas no aptas para construcción. Se muestra en el Mapa Oficial Este.

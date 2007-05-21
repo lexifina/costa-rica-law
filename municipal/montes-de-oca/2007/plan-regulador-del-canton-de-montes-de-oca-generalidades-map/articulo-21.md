@@ -1,0 +1,6 @@
+Artículo 21. Formas de selección de miembros
+Los representantes del Concejo Municipal deberán elegirse con el cambio de Gobierno y de acuerdo a los procedimientos para ser miembros de las comisiones municipales.
+El funcionario será elegido por el Alcalde. Es potestad del Alcalde o su sucesor mantenerle o removerle.
+Los representantes de los distritos serán elegidos por los Concejos de Distrito para cada período de Gobierno.
+El procedimiento para la elección de los representante de los vecinos será por postulación de los interesados. Esta postulación debe dirigirse a los tres representantes del Concejo Municipal nombrados en la CEET. Además debe acompañarse de una carta explicando las razones por las que desea formar parte de la Comisión Especial Estratégica Territorial. Será potestad de los tres miembros de Concejo Municipal en la CEET el seleccionar los tres representantes de los vecinos. El único requisito es que sea comprobado habitante de Montes de Oca y ser mayor de edad.
+Los puestos de los vecinos y funcionarios podrán ser reelegidos en cualquier período. Las personas que ocuparon un puesto en la CEET como representantes de la administración, Concejo o a título personal, podrán ser nombrados en la CEET como representante de otro sector, pero nunca podrá asumir una doble representación durante el mismo período.

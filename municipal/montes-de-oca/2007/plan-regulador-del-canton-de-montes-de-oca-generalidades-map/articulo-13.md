@@ -1,0 +1,1 @@
+Artículo 13. La Municipalidad de Montes de Oca, deberá comunicar a las instituciones judiciales relacionadas con las áreas de tránsito, salud, ambiente, entre otras, para la aplicación de las respectivas sanciones administrativas a que se hagan acreedores los administrados.

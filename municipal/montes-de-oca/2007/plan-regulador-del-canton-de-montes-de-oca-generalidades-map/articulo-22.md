@@ -1,0 +1,2 @@
+Artículo 22. Remoción de Miembros.
+En aquellos casos en que exista comprobada falta de ética o irresponsabilidad de alguno de los integrantes de la CEET, los representantes del Concejo Municipal tendrán la potestad de anular la membresía. En el caso de miembros del Concejo de Distrito o del funcionario, solicitaran un nuevo nombramiento. En el caso de los vecinos, anunciarán la vacante del puesto para una nueva postulación.
