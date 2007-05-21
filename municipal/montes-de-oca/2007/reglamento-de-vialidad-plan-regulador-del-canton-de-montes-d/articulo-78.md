@@ -1,0 +1,1 @@
+Artículo 78. En el caso de algunos locales comerciales que no cuenten con la cantidad adecuada de espacios de estacionamiento para suplir sus necesidades, se podrán usar estacionamientos ubicados en otros locales, si se cumplen los requisitos establecidos en los artículos 55, 56 y 57 de este reglamento.

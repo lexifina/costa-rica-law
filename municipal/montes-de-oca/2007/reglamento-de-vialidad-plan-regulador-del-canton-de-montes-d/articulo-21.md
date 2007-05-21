@@ -1,0 +1,1 @@
+Artículo 21. La red vial de Montes de Oca, carreteras nacionales y cantonales, debe permanecer con las suficientes señales de tránsito; prevención, reglamentación e información de forma horizontal o vertical según corresponda, para evitar limitaciones al conductor debidas a la infraestructura, así como para garantizar la seguridad de los peatones.

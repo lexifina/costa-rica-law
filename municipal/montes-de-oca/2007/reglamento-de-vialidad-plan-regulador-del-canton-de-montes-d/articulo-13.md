@@ -1,0 +1,1 @@
+Artículo 13. En calles urbanas el ancho de pavimentación debe ser igual a la distancia entre los caños derecho e izquierdo. Tanto el MOPT como la Municipalidad deben habilitar el ancho total disponible en cada tramo de calle para la comodidad del conductor o para darle otros usos opcionales como paradas de autobuses.

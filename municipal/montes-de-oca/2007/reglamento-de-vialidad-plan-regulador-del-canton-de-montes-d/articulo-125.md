@@ -1,0 +1,2 @@
+Artículo 125. Si se colocan vallas publicitarias en ambos lados de la vía, deberá respetarse la distancia de separación entre vallas que se indican en la tabla 10 de este Reglamento. Esa distancia será medida a partir de la valla publicitaria que se encuentre más cercana al lugar donde se quiere instalar la nueva valla.
+La valla que se tome de referencia para medir la distancia puede estar ubicada en el mismo lado donde se quiere colocar la nueva valla o en el lado opuesto, siempre deberá respetarse la separación entre ellas. Pero podrán utilizarse las dos caras de la valla.

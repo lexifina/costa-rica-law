@@ -1,0 +1,3 @@
+Artículo 96. Rampas
+a. En esquinas: En todas las esquinas se construirán rampas con una pendiente igual o inferior al 15% para salvar el desnivel existente entre la calle y la acera. Estas rampas deberán tener un ancho mínimo de 1,50 metros, ser de material antideslizante, tener una estría de 1 centímetro de profundidad mínima cada 10 centímetros y estar ubicadas fuera de la sección curva de la intersección, con el propósito de hacer más fácil el acceso a la acera por parte de personas con algún tipo de discapacidad o bien transeúntes en general.
+b. En general: cualquier desnivel de la acera, en sentido longitudinal, deberá ser salvado con una rampa cuya pendiente no sobrepase el 10%. Es recomendable utilizar entre 6 y 8 %.

@@ -1,0 +1,2 @@
+Artículo 132. En las aceras en las que se ubiquen paradas de buses, la franja verde se interrumpirá 1,2 metros antes de esta en ambas direcciones, para evitar interrupciones en el flujo peatonal en estos tramos, crear un espacio para los usuarios del transporte público que hacen fila y para recuperar el espacio utilizado por el parabús dentro de la acera.
+( Corregido mediante Fe de Erratas, publicada en la Gaceta N ° 165 del 29 de agosto de 2007).

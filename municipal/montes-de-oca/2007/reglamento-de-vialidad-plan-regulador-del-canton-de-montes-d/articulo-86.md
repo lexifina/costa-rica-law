@@ -1,0 +1,1 @@
+Artículo 86. El mobiliario urbano que incluye basureros públicos, letreros, arborización, bancas, focos, faroles, paradas, hidrantes, tensores; cualquier elemento a colocarse deberá ser ubicado en la franja verde, y no deberá interrumpir el paso peatonal ni reducir el espacio de circulación.

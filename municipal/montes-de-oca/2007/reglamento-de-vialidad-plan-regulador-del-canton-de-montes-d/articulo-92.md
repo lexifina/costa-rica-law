@@ -1,0 +1,1 @@
+Artículo 92. En el caso de acceso vehicular a los predios, el desnivel debe de salvarse con rampas construidas en la franja verde. Bajo ninguna circunstancia se permitirán estas rampas en el ancho destinado a aceras, excepto que no exista franja verde, en este caso dicha rampa no podrá sobrepasar los 50 centímetros de longitud.

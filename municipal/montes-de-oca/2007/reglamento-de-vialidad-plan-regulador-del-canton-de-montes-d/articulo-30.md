@@ -1,0 +1,1 @@
+Artículo 30. Accesos. Toda terminal deberá tener al menos un ingreso y un salida claramente diferenciados entre sí, preferiblemente desde calles distintas, tales accesos deberán estar contemplados para un giro de 14 metros de radio, en caso que se necesite girar para ingresar.

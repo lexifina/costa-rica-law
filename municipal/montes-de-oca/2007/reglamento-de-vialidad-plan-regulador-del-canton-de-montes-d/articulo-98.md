@@ -1,0 +1,1 @@
+Artículo 98. Toda urbanización mayor a 50 unidades habitacionales deberá de disponer de al menos un sitio para paradas de autobús con su respectiva bahía. Lo anterior si la urbanización se encuentra cerca de una ruta de autobuses importante.

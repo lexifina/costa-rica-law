@@ -1,0 +1,1 @@
+Artículo 18. Si en la ejecución de una obra debe ocuparse temporalmente una vía o acceso público, el subsuelo o el espacio aéreo de la misma se deberá obtener un permiso de ocupación de vía de parte de la Municipalidad de Montes de Oca o del MOPT, según corresponda.

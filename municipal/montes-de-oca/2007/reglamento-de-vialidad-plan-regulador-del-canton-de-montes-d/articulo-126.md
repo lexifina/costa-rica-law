@@ -1,0 +1,1 @@
+Artículo 126. Las vallas publicitarias solo serán permitidas en las zonas comerciales; con excepción de la zona comercial de San Rafael. Se prohíbe su colocación en zonas mixtas, predominantemente residenciales y residenciales.

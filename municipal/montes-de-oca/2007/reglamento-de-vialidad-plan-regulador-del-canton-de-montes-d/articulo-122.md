@@ -1,0 +1,1 @@
+Artículo 122. Se prohíbe mantener rótulos en estado de deterioro o abandono evidente, desde el punto de vista estético, o que represente un peligro para la integridad física de las personas, animales, muebles o inmuebles; y rótulos que obstruyan la visibilidad de las señales de tránsito, que puedan confundirse con estas, que obstruyan la vía peatonal.

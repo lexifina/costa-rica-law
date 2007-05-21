@@ -1,0 +1,1 @@
+Artículo 24. En los sectores donde la Municipalidad de Montes de Oca haya indicado la ubicación del cordón de caño, deberá solicitarse permiso a la Municipalidad para colocar o modificar los accesos y rampas que afecten el cordón de caño y/o el caño.

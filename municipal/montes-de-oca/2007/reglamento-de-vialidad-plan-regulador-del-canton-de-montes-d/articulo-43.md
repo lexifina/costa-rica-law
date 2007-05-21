@@ -1,0 +1,1 @@
+Artículo 43. En los establecimientos comerciales en los cuales se exijan más de 10 estacionamientos se deberá proporcionar al menos un 15% de espacios para vehículos más grandes con dimensiones de 3,0 metros x 6,0 metros.

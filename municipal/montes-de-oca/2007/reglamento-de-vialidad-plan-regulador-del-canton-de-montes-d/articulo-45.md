@@ -1,0 +1,1 @@
+Artículo 45. Por razones de accesibilidad, en la zona no urbana de San Rafael, nunca se podrán proporcionar menos de dos espacios de estacionamiento en cualquier tipo de uso comercial, sin importar su tamaño.

@@ -1,0 +1,1 @@
+Artículo 65. Frente a la ventanilla de pago debe construirse una acera con un ancho mínimo de 1 metro y con una elevación mínima de 15 centímetros, si se deben poner varios escalones la contrahuella no será mayor a 17,5 centímetros y deberá acondicionarse para que pueda ser utilizada por personas con discapacidad.

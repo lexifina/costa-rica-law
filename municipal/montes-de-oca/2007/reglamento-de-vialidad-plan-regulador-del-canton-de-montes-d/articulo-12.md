@@ -1,0 +1,1 @@
+Artículo 12. En las zonas urbanas las cunetas deben ser sustituidas por sistemas pluviales subterráneos, como alcantarillas y caños, con lo cual puede ampliarse la calzada sin afectar el derecho de vía ni las aceras.

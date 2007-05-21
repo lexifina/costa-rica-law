@@ -1,0 +1,1 @@
+Artículo 46. La longitud de los frentes de los locales comerciales y oficinas que se destinarán al ingreso y salida de vehículos no podrán ser menores a tres metros, si el acceso es exclusivo para la entrada o salida. Cuando en el acceso se dan la entrada y salida juntos, el acceso debe tener un ancho mínimo de seis metros.

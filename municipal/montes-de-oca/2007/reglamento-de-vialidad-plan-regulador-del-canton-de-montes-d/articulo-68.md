@@ -1,0 +1,1 @@
+Artículo 68. La altura mínima desde el nivel de piso hasta el nivel del cielo raso o del nivel inferior de la estructura o instalación de cubierta en edificios de estacionamientos o en las plantas de edificios de uso mixto utilizadas para el estacionamiento de vehículos será de 2,4 metros.

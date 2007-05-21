@@ -1,0 +1,1 @@
+Artículo 22. No se permitirá la colocación de áreas temporales de desechos sólidos sobre las aceras o franjas verdes. Las canastas o infraestructura que se utilice para la colocación de los desechos, deberán colocarse dentro de los linderos de la propiedad. No podrán utilizar los derechos de vía para su instalación.

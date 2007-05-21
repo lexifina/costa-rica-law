@@ -1,0 +1,2 @@
+Capítulo 9. Autorización por parte Municipal para la Colocación de Rótulos
+Artículo 103. Para instalar, construir, reconstruir, exhibir y colocar anuncios, rótulos, letreros, avisos deberá solicitarse licencia a la Municipalidad. La licencia será solicitada por el propietario de la estructura en que se va a fijar el anuncio y con la conformidad del propietario del predio en que se coloque la estructura cuando sea del caso.

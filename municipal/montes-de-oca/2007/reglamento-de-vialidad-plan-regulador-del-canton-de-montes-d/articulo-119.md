@@ -1,0 +1,1 @@
+Artículo 119. Los anuncios o rótulos luminosos deben ser de materiales tales que no permitirán deslumbrar, dañar o simplemente molestar la vista de las personas. Se prohíben reflejos de concentraciones de luz intensas, las alternativas de oscuridad absoluta y luz y los contrastes perjudiciales de colores vivos.

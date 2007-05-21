@@ -1,0 +1,1 @@
+Artículo 85. Los vecinos destinarán un espacio común para colocar la basura o varios ubicados estratégicamente. Todo siempre dentro de la propiedad, a una altura no menor de 1 metro. Se prohíbe su ubicación dentro del derecho de vía.

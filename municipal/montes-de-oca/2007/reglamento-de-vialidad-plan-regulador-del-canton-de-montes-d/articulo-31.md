@@ -1,0 +1,1 @@
+Artículo 31. Toda terminal deberá tener como mínimo servicios sanitarios públicos, iluminación, señalización, una sala de estar, soda y áreas para servicios administrativos. Los Centros de Transferencia de autobuses urbanos no necesitarán negocios en los mismos.

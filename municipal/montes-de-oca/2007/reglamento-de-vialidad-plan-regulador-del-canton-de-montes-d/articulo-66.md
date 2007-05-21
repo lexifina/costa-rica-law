@@ -1,0 +1,1 @@
+Artículo 66. Los accesos de entrada y salida, deben estar demarcados horizontalmente con las palabras “ENTRADA” y “SALIDA”, respectivamente, de tal manera que sean legibles en la dirección de circulación del vehículo. Además se debe indicar la dirección de circulación en la vía pública cuando se sale del estacionamiento.

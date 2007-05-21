@@ -1,0 +1,1 @@
+Artículo 10. Los derechos de vía para carreteras nacionales y caminos vecinales corresponden a los especificados en el artículo 4 de la Ley General de Caminos Públicos; por lo que los valores que se indican en la tabla 1 para estas categorías quedarán sujetas a cualquier modificación que realice el Ministerio de Obras Públicas y Transportes.

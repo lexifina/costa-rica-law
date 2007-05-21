@@ -1,0 +1,1 @@
+Artículo 89. Todas las tapas y placas a colocarse en la acera ya sean de ventilación, medidores u otros deberán de quedar a nivel de piso, eliminando los relieves, para evitar obstrucciones en la vía.

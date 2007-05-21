@@ -1,0 +1,1 @@
+Artículo 59. Los espacios de estacionamientos de motocicletas y bicicletas deben estar achurados y rotulados con la leyenda “MOTOS” y “BICICLETAS”, con una orientación que permitan que sea legible en la dirección de entrada de las motocicletas y bicicletas.

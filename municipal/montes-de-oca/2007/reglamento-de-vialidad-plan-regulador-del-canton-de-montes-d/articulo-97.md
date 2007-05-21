@@ -1,0 +1,3 @@
+Artículo 97. En el caso de colocación de paradas de autobuses sobre nuevas aceras deberán ser colocadas de manera tal que frente a ellas exista un ancho libre de al menos 2 metros para el paso de los peatones.
+Si la colocación de la parada es sobre una acera existente, deberá dejarse como mínimo 1,30 metros de ancho libre para la circulación peatonal.
+En caso de que se realice una ampliación de acera donde exista parada de autobuses, se procurará en medida de lo posible la incorporación de bahías. La bahía deberá tener como mínimo 3,5 metros de ancho y 12 metros de largo; pero no podrá alterarse el ancho efectivo de la acera.

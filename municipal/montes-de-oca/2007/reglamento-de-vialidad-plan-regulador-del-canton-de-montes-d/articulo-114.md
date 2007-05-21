@@ -1,0 +1,2 @@
+Capítulo 11. Dimensionamiento y ubicación de Rótulos
+Artículo 114. La distancia vertical entre el borde inferior del rótulo y la acera no podrá ser menor de 2,60 metros. No podrán colocarse rótulos a distancias menores de 1 metro en cualquier dirección, de la placa de nomenclatura de las calles o en sitios en que estorben la visibilidad de señales de tránsito, o en lugares que afecten la perspectiva panorámica o la armonía de un paisaje.

@@ -1,0 +1,1 @@
+Artículo 101. Los desniveles dentro de una acera pueden salvarse dando al transeúnte tanto la opción de gradas y rampa, siempre y cuando no se prescinda de ésta última. Para este propósito puede disponerse de la mitad del ancho efectivo de la acera para cada uno de los fines.

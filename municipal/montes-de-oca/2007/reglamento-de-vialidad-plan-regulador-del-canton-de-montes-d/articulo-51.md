@@ -1,0 +1,1 @@
+Artículo 51. En hoteles, se puede construir una bahía de acceso para automóviles techada que permita a los huéspedes entrar desde ella hacia la recepción. Deberá tener un ancho mínimo de 3 metros si la circulación se da en una sola dirección y de 6 metros si es en dos sentidos.

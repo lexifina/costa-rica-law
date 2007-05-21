@@ -1,0 +1,1 @@
+Artículo 53. En edificios donde se desarrollen diferentes actividades o usos, el garaje no podrá servir como acceso único a locales destinados al alojamiento de personas o al ingreso de los clientes o empleados a los locales comerciales u oficinas.

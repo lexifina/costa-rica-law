@@ -1,0 +1,1 @@
+Artículo 115. Los rótulos que se ubiquen debajo de las marquesinas, no excederán los 0,75 m2 por local comercial y deben respetar la distancia mínima entre el borde inferior del rótulo y el nivel de piso de 2,60 metros.

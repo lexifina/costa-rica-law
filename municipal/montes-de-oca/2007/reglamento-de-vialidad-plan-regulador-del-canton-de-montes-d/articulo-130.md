@@ -1,0 +1,1 @@
+Artículo 130. El mobiliario urbano para información, MUPI, solo podrá ser colocado de manera paralela a la vía pública, y su estructura de conexión con el suelo deberá permitir como mínimo un 75% de visibilidad.

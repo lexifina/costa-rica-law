@@ -1,0 +1,1 @@
+Artículo 4. De acuerdo al artículo 3 de la Ley General de Caminos Públicos el Ministerio de Obras Públicas y Transportes designará una o varias calles alrededor de la Avenida Central de San Pedro, que serán consideradas como parte de la red vial nacional, para satisfacer la demanda de tránsito correspondiente.

@@ -1,0 +1,1 @@
+Artículo 54. Para la entrada y salida de los peatones dentro de cualquier estacionamiento, deberá dejarse al menos una acera libre con dimensiones mínimas de 1 metro de ancho y 15 centímetros de altura sobre el nivel del piso.

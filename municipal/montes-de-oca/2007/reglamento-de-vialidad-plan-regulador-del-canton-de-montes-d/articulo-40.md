@@ -1,0 +1,1 @@
+Artículo 40. En los inmuebles declarados patrimonio histórico en los espacios disponibles para estacionamiento que no sean suficientes para cumplir con los requisitos respectivos para el tipo de uso, se permitirá que estos se ubiquen fuera del establecimiento si cumplen con los requisitos de los artículos 55, 56 y 57 de este reglamento.

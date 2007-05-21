@@ -1,0 +1,1 @@
+Artículo 63. Debe instalarse un servicio sanitario para hombres y otro para mujeres, ambos con su correspondiente distintivo. Se debe proporcionar al menos un inodoro y un lavatorio por servicio sanitario. Debe habilitarse al menos una ducha. Esta infraestructura deberá cumplir con las normas establecidas por el Ministerio de Salud.

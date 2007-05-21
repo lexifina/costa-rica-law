@@ -1,0 +1,3 @@
+Artículo 56. Se demostrará la disponibilidad de estos espacios de estacionamiento ubicados fuera de la propiedad del establecimiento, por diferentes condiciones:
+a. Espacios dentro de un estacionamiento público: deberá presentarse a la Municipalidad un contrato explícito y una declaración jurada del propietario del estacionamiento público donde se indique la cantidad de espacios. La adjudicación y traspaso de la patente estará condicionada a estos requisitos.
+b. Espacios de algún otro local comercial o edificio que tenga un horario alterno que permita que se aprovechen estos espacios, de forma más continua en diferentes horarios. De igual forma, debe existir un contrato que garantice esta disponibilidad de espacios.

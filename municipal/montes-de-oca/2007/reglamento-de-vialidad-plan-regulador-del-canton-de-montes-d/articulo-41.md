@@ -1,0 +1,2 @@
+Capítulo 6. Regulaciones por tipo de uso
+Artículo 41. La autorización de patentes o permisos de funcionamiento por parte de la municipalidad está condicionada al cumplimiento de los requisitos de espacios de estacionamiento mínimos establecidos en este Reglamento. Estos requisitos dependen del tipo de actividad, de su ubicación y del tamaño del establecimiento. El incumplimiento de estos requisitos será suficiente para negar la autorización o traspaso de la patente o permiso.

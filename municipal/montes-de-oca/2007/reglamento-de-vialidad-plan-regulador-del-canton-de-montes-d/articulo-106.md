@@ -1,0 +1,1 @@
+Artículo 106. La Municipalidad debe limitar la superficie que en una fachada ocupará un aviso o un conjunto de avisos y autorizar o no su colocación. La altura máxima del borde superior de los rótulos o avisos será de 6 metros sobre el nivel de la calle. El área máxima, así como su alineamiento para cada zona funcional se indica en el presente Reglamento.
