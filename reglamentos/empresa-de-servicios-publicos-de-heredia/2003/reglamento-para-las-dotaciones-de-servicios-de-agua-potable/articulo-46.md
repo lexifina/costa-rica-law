@@ -1,1 +1,0 @@
-Artículo 46.—Recepción de Obras: Todos los activos del sistema de energía eléctrica quedarán traspasados a la ESPH S. A. sin costo alguno para la institución, en el acto en que se verifique el buen funcionamiento del mismo y se apruebe su interconexión con los sistemas de la Empresa.

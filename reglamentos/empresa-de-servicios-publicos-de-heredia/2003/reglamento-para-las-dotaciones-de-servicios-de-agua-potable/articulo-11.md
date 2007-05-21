@@ -1,1 +1,0 @@
-Artículo 11.—Reserva Presupuestaria: Cada Dirección deberá verificar y certificar la existencia de contenido presupuestario antes de enviar un estudio o proyecto de extensión de servicios a Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 40.—Alcantarillados Sanitarios en Proyectos de Interés Social: Toda urbanización que sea declarada de "interés social" por los organismos competentes deberá poseer red prevista de alcantarillado sanitario.
