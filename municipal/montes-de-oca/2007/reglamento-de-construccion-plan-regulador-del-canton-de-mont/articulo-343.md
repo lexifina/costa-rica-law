@@ -1,0 +1,2 @@
+Artículo 343. Puertas. Las puertas retardatorias al fuego deberán montarse con sumo cuidado para que no queden aberturas entre la puerta y el marco y entre éste y la pared.
+Se acepta como material para las hojas resistentes al fuego por una hora la madera dura sólida, madera laminada o conglomerada de 25 milímetros de espesor. Se debe construir cada hoja de una sola pieza. Puertas de mayor resistencia al fuego necesitan un diseño especial.

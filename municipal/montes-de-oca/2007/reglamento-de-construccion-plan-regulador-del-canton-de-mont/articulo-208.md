@@ -1,0 +1,1 @@
+Artículo 208. Autorización. Para otorgar la licencia de construcción, o modificación de un edificio que se dedique parcial o totalmente para los usos indicados anteriormente será requisito indispensable que previamente se apruebe su ubicación conforme al mapa de Zonificación del Plan Regulador de Montes de Oca.

@@ -1,0 +1,1 @@
+Artículo 324. Abastecimiento de combustible. Para el abastecimiento de combustible a la estación de servicio es necesario dejar un área de 4 metros por 15 metros ubicada dentro de la propiedad, para que los camiones tanques hagan la entrega del combustible.

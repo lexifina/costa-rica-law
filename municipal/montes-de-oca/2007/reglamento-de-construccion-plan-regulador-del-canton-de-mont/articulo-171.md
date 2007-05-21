@@ -1,0 +1,1 @@
+Artículo 171. Taquillas. Las taquillas para la venta de boletos no deberán obstruir la circulación por los accesos y se localizarán en sitios visibles y estará ubicada en tal forma que no interfiera la libre circulación por la acera pública ni por las calles.

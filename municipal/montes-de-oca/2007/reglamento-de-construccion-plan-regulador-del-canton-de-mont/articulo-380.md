@@ -1,0 +1,1 @@
+Artículo 380. No se permite el vertido de escombros y terrenos conformados como un relleno, a menos que se asegure la estabilidad geotécnica y protección ante procesos erosivos a largo plazo, mediante el estudio de un profesional competente en la materia.

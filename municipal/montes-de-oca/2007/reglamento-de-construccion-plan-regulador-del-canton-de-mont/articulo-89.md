@@ -1,0 +1,1 @@
+Artículo 89. El área de cobertura para un condominio residencial no sobrepasará el 75% del área total del lote, dentro de este porcentaje estarán incluidos parqueos y las calles internas con sus respectivas aceras. El 10% del área del lote restante podrá cubrirse con materiales que dejen libre el paso a la infiltración del agua tales como zacate block, lastre, piedra o similares.

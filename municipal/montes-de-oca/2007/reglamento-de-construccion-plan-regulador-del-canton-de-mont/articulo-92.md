@@ -1,0 +1,2 @@
+Capítulo 9. condominios comerciales
+Artículo 92. Retiro Frontal. La zona verde correspondiente al antejardín puede sustituirse por algún adoquinado con maceteras, mobiliario urbano y árboles separados a lo más 3,50 metros entre sí, siempre y cuando se prescinda de cualquier muro divisorio entre la acera y la línea de propiedad del establecimiento, además debe colocarse el mobiliario de tal forma que obstaculice cualquier intención de estacionamiento en dicho retiro frontal, de acuerdo con el Reglamento de Zonificación y Uso del Suelo de este Plan Regulador.

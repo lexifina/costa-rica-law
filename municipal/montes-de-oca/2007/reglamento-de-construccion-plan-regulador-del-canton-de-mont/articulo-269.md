@@ -1,0 +1,1 @@
+Artículo 269. Clínicas y casas de salud. Los locales que se destinen a. consultorios o a tratamiento de enfermos, cumplirán con los requisitos fijados en el Capítulo 13 “Edificios para Comercios y Oficinas” de este Reglamento así como los adjuntos en el Reglamento de Usos permitidos.

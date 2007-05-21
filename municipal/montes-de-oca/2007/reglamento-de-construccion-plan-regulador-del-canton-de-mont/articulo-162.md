@@ -1,0 +1,1 @@
+Artículo 162. En apego a la Ley 7600 de Igualdad de Oportunidades se establece que todo edificio donde se desarrollen actividades culturales, deportivas o recreativas debe ser accesible para todas las personas, esto incluye sitios de reunión pública e instalaciones deportivas en general.

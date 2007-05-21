@@ -1,0 +1,1 @@
+Artículo 249. Paredes. Las paredes divisorias no deberán ser muros de carga ni contener instalaciones eléctricas, hidráulicas o sanitarias. Las instalaciones deberán situarse en las paredes posteriores o de fachada.

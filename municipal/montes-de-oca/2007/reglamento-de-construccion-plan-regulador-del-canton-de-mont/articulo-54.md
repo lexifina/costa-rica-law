@@ -1,0 +1,1 @@
+Artículo 54. Iluminación y ventilación naturales. Las piezas habitables, deberán tener iluminación y ventilación por medio de ventanas, linternillas o tragaluces abiertos directamente a patios o al espacio público.

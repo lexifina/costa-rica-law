@@ -1,0 +1,1 @@
+Artículo 85. Podrán existir condominios en los centros de las cuadras, siempre y cuando la el acceso común hacia los mismos cuente con una ancho mínimo de 7 metros, más un metro de acera a cada lado o dos metros de un solo lado. Este acceso común deberá estar pavimentada.

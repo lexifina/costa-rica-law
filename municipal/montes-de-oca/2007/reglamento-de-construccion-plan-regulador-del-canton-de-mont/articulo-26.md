@@ -1,0 +1,1 @@
+Artículo 26. Drenaje pluvial. No se permitirá caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto los bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente. Según el Reglamento para el cobro de multas y tarifas por las omisiones a los propietarios de bienes inmuebles localizados en el Cantón de Montes de Oca.

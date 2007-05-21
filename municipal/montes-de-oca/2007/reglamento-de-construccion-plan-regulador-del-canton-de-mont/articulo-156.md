@@ -1,0 +1,1 @@
+Artículo 156. Dimensiones de sanitarios. En cuanto a las características físicas de los servicios sanitarios se cumplirá con lo normado en el Capítulo 15 “Instalaciones Deportivas y Baños de Uso Público” , el número de baños se calculará basándose en lo establecido en el Capítulo 18 “Sitios de Reunión Pública”.

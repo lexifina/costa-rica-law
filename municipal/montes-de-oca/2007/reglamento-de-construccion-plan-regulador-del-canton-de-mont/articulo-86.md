@@ -1,0 +1,1 @@
+Artículo 86. Tanto condominios comerciales como residenciales deben contar con las áreas verdes respectivas así como restringir el área se cobertura máxima, dichas regulaciones se mencionan en las consideraciones específicas de cada uno.

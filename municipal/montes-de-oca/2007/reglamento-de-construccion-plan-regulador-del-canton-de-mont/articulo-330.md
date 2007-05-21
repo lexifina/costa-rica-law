@@ -1,0 +1,1 @@
+Artículo 330. Para cualquier modalidad ya sea de apartamentos o condominios, con excepción de los estudios o planta libre, queda abierta la posibilidad de que no sean exclusivamente para alquiler, sino también puedan ser adquiridos por el usuario como propios, sin embargo para ambas situaciones se debe cumplir con los requisitos mínimos de este reglamento.

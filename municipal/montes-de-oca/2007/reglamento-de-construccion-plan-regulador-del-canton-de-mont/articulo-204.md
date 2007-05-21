@@ -1,0 +1,1 @@
+Artículo 204. Cocina. En caso de que exista una cocina dentro del salón multiuso o comunal debe acatarse los requerimientos que se dan en el Capítulo 24 “Expendio de Alimentos del presente Reglamento”.

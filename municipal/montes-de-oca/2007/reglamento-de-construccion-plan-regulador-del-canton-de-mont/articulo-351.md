@@ -1,0 +1,2 @@
+Artículo 351. Las salidas de emergencia no deben estar a más de 46 metros de recorrido y su ancho mínimo no debe ser menor de 1,20 metros. Deben existir como mínimo 2 salidas alternas, tanto en puertas como en escaleras de emergencia.
+La iluminación de emergencia deberá instalarse de manera que ilumine las rutas de evacuación por medio de lámparas autónomas de emergencia de un mínimo de 90 minutos de servicio.

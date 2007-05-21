@@ -1,0 +1,1 @@
+Artículo 139. Permisos y dimensiones. En cuanto a las dimensiones que debe tener un gimnasio para desarrollar las actividades deportivas, sea en forma profesional o recreacional, es el Instituto Costarricense del Deporte quien se encargará de hacer las recomendaciones pertinentes, en función del tipo de deporte que se desee desarrollar.

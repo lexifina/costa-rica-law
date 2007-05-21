@@ -1,0 +1,1 @@
+Artículo 94. Cobertura. El porcentaje de cobertura para un condominio comercial será de un 85% como máximo; dentro de este porcentaje estarán incluidos parqueos y las calles internas con sus respectivas aceras.

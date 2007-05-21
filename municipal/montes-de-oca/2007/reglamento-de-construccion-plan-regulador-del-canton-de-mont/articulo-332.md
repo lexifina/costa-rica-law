@@ -1,0 +1,6 @@
+Artículo 332. Cada departamento deberá contar con la debida protección contra ruido, al menos con los requerimientos mínimos actuales. Los materiales que pueden utilizarse como barreras contra el ruido son: bloques de mampostería, paneles de hormigón prefabricados u hormigón in situ, postes y tablas de madera, alfombras paneles de madera, diques de tierra y paneles de metal u otro material con propiedades equivalentes. Algunas barreras pueden ser combinaciones de 2 o más de estos tipos de materiales. Las barreras absorbentes del sonido pueden construirse de:
+a. Tableros compuestos de virutas de madera cementosa con un respaldo de hormigón.
+b. Paneles de acero con un frente perforado y en su interior listones o una plancha de fibra de vidrio, lana mineral o lana de roca.
+c. Hormigón poroso que cubre la superficie de un panel de hormigón convencional.
+El absorbente del sonido en una autopista será 0,65, aunque es muy deseable un valor entre 0,80 y 0,85 , valor mínimo del coeficiente de reducción del ruido “NRC” para una barrera.
+En el anexo “Control de ruido en unidades habitacionales” se muestra una lista de materiales con sus coeficientes de absorción, que pueden ser utilizados con el propósito de reducir la transmisión de ruido de un espacio hacia otro, así como los valores recomendados de ruido admisible para los espacios.

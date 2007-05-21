@@ -1,0 +1,1 @@
+Artículo 88. Un mínimo del 15% del área total del lote sea destinado a área verde, en donde al menos un 60% de dichas zonas debe de ser un área continua con un ancho mínimo de 12 metros, con el propósito de un aprovechamiento de manera más integral y efectiva. Además se destinarán para juegos infantiles un mínimo de 10m² por unidad habitacional.

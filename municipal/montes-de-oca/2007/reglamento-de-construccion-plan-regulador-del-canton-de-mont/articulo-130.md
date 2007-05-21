@@ -1,0 +1,1 @@
+Artículo 130. Servicios sanitarios para el público. Se colocará como mínimo un servicio sanitario y un lavabo por sexo para uso público, al menos un servicio sanitario contará con las dimensiones adecuadas para discapacitados. Los servicios sanitarios destinados al público no podrán ser los mismos que los de los trabajadores.

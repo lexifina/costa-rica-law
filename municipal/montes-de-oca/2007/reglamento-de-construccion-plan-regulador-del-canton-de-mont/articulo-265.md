@@ -1,0 +1,2 @@
+Capítulo 21. EDIFICIOS DE ASISTENCIA HOSPITALARIA Y PARA CONSULTA EXTERNA
+Artículo 265. Edificios de asistencia hospitalaria. Para expedir licencia de construcción, ampliación o modificación de una clínica, su ubicación debe ser conforme con la zonificación del Plan Regulador. Cualquier edificio que tenga instalaciones de laboratorios clínico y / o radiológico, deberá cumplir con los mismos requisitos.

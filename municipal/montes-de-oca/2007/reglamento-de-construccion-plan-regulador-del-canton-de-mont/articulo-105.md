@@ -1,0 +1,1 @@
+Artículo 105. El área destinada para juegos infantiles será de 20m² por unidad habitacional como mínimo y no podrá estar ubicada en pendientes mayores al 15%. Se permitirá el uso de zacate block en un área no mayor de 1/5 del área total de juegos, podrá usarse también camas de arena.

@@ -1,0 +1,1 @@
+Artículo 319. Autorización de funcionamiento. Para poner en funcionamiento aparatos mecánicos se requerirá autorización del Departamento de Ingeniería Municipal o del Ministerio de Salud, lo cual se dará con base en los resultados de las pruebas de seguridad que se efectúen. La municipalidad podrá revocar en cualquier momento dicha autorización.

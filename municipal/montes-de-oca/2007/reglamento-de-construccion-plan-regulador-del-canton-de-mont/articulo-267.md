@@ -1,0 +1,2 @@
+Artículo 267. Materiales y acabados. Las salas de curaciones y los servicios sanitarios deberán tener pisos impermeables, recubrimientos de muro también impermeables hasta una altura mínima de 2 metros y los ángulos que formen los muros entre sí y con el pavimento y el cielo raso, serán redondeados o achatados; la superficie de los muros y cielo rasos pintados en aceite sin decoraciones salientes ni entrantes, en acabados acústicos.
+Los demás locales y anexos deberán tener muros con pintura lavable y pisos lavables, susceptibles de ser fácilmente desinfectados.

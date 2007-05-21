@@ -1,0 +1,1 @@
+Artículo 27. Aguas Servidas. No se permitirá mezclar las aguas servidas con las pluviales. Es permitido verter las aguas pluviales en los ríos mientras no estén mezcladas con aguas servidas, además debe verificarse que el vertido de dichas aguas no provoque saturación en el alcantarillado ni riesgo inundaciones aguas abajo.

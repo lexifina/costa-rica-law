@@ -1,0 +1,1 @@
+Artículo 313. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para sodas y restaurantes se cumplirá con lo establecido en el Titulo 4 “Restricciones de Estacionamientos” del Reglamento de Vialidad.

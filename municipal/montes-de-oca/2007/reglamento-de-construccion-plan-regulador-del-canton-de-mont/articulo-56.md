@@ -1,0 +1,1 @@
+Artículo 56. Espacios comunes de circulación. Todas las viviendas de un edificio multifamiliar deberán tener acceso a pasillos o corredores que conduzcan directamente a las puertas de salida o a las escaleras. El ancho de pasillos o corredores no será menor de 1,20 metros, los barandales deberán tener cuando menos, 90 centímetros de altura.

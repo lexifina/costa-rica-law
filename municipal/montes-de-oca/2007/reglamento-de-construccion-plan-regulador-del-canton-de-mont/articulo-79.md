@@ -1,0 +1,5 @@
+Artículo 79. Se exigen los siguientes retiros para Condominios Comerciales
+a. Laterales. Si existiera ventana en colindancia o si las paredes que paralelas a dicha colindancia son de material combustible, se exigirá un retiro mínimo de 3 metros, para condominios de 1 a 4 pisos o 15 metros de altura, si la edificación tiene de 5-8 pisos se exigirá un retiro de 6 metros.
+b. Posterior. Bajo las mismas condiciones que el retiro lateral se exigirá un retiro mínimo de 3 metros, para condominios de 1 a 4 pisos o 15 metros de altura, si la edificación tiene de 5-8 pisos se exigirá un retiro de 6 metros.
+c. En caso de haber retiro se exigirá una barrera visual en la colindancia respectiva, dicha barrera no podrá ser menor a 3 metros de altura.
+Tanto los retiros laterales como los posteriores podrán ser sustituidos por jardines internos. Podrán suprimirse los retiros en zonas comerciales siempre y cuando se solucione la ventilación en espacios no habitables o servicios sanitarios, mediante sistemas mecánicos aprobados por el Ministerio de Salud. Los espacios habitables como el caso de oficinas, cocinas, entre otros, deberán ventilarse naturalmente.

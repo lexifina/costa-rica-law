@@ -1,0 +1,1 @@
+Artículo 239. Superficie libre mínima. La superficie libre mínima es la diferencia entre el área del lote y el área de cobertura. Deberá calcularse a razón de 4 m2 por alumno. Se deberá comparar este valor con el dado en el Título 3 “Áreas de Cobertura” del Reglamento de Zonificación y Uso del Suelo. Regirá el área mínima mayor entre los 2 métodos de cálculo.

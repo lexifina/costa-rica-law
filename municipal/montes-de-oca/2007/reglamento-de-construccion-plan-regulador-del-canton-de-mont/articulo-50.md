@@ -1,0 +1,1 @@
+Artículo 50. Estética de los edificios. Las fachadas de los edificios deberán guardar relación estética con la zona en que se ubiquen. Si sobre este punto hubiere discrepancia entre el interesado y la Municipalidad, el asunto se someterá a la decisión del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

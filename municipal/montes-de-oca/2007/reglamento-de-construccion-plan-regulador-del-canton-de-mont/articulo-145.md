@@ -1,0 +1,1 @@
+Artículo 145. Servicios sanitarios. Para efectos de diseño, construcción, características, número y dimensiones mínimas serán conforme a lo especificado en el Capítulo 15 “Instalaciones Deportivas y Baños de Uso Público”.

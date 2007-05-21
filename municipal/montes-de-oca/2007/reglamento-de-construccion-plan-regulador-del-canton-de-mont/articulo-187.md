@@ -1,0 +1,1 @@
+Artículo 187. Los usos Entretenimiento “A”, que incluyen los dedicados a actividades de esparcimiento para toda clase de público y de todas las edades, deben acondicionar la estructura con sistemas de aislamiento acústico, de forma tal que se cumpla con la legislación vigente sobre ruido del Ministerio de Salud.

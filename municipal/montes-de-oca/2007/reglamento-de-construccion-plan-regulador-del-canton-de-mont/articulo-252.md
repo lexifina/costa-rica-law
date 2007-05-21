@@ -1,0 +1,4 @@
+Artículo 252. Escaleras. Las escaleras serán construidas con materias incombustibles. Su ancho se calculará de acuerdo con la superficie de espacio educativo a que sirvan, excluyendo el área de circulación, de la siguiente manera:
+a. 1,20 metros por los primeros 200 m2 y 60 centímetros por cada 100 m2 o fracción adicional.
+b. En ningún caso el ancho podrá exceder de 2,40 metros. Cuando el cálculo indique un ancho mayor de este máximo, deberán colocarse escaleras adicionales en el número que se requieran.
+c. Los tramos serán rectos, los escalones tendrán huellas no menores de 28 centímetros y contrahuellas no mayores de 16 centímetros. Los barandales deberán estar a 90 centímetros de altura, medidos a partir de la arista de los escalones. Deberán diseñarse de modo que brinden seguridad a los niños.

@@ -1,0 +1,1 @@
+Artículo 373. Protección del cauce por pendiente. En distritos urbanos, en el caso de que una vez cumplido los puntos anteriores y queden franjas no aptas para construir, a orillas de cauces de agua, éstas deberán conformar una sola finca entrecalles, no aptas para la construcción y deben tener carácter de protección al cauce.

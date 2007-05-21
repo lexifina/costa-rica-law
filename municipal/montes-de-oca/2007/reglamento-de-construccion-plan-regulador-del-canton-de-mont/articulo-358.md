@@ -1,0 +1,1 @@
+Artículo 358. En casos de lotes independientes que sean urbanizados como edificios comerciales, casas, talleres, condominios, entre otros, el propietario deberá proveer el sistema propuesto u otro equivalente, tales como tanques elevados que pudieran servir para el suministro del edificio para algunas actividades que lo permitan como mantenimiento como servicios sanitarios.

@@ -1,0 +1,1 @@
+Artículo 158. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para estadios deberá cumplirse con lo establecido en el Reglamento de Vialidad, bajo la clasificación de instalaciones deportivas.

@@ -1,0 +1,1 @@
+Artículo 384. Las zonas de relleno solo podrán ser utilizadas para realizar construcciones si los estudios de suelo y estabilidad geotécnica garantizan la seguridad del mismo ante posibles deslizamientos. Caso contrario, la Municipalidad deberá prohibir la construcción hasta que no se garantice la estabilidad del terreno.

@@ -1,0 +1,1 @@
+Artículo 243. Área mínima para las salas de clase. El área de las salas de clase se calculará a razón de 1,50 m2 por alumno, como mínimo. El área total de construcción de los centros educativos no deberá ser mayor a la establecida en el Reglamento de Zonificación y Uso del Suelo, al incluírseles los espacios citados en el artículo anterior.

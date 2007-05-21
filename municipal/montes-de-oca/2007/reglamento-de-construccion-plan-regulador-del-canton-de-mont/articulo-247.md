@@ -1,0 +1,1 @@
+Artículo 247. Iluminación artificial. La iluminación artificial será directa y uniforme y sus niveles mínimos en lúmenes serán los indicados en el Código Eléctrico Nacional. Se recomienda que para pasillos y zonas comunes se utilicen sistemas con sensores para su activación.

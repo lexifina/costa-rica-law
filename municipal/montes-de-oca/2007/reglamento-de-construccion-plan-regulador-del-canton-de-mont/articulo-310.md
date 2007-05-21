@@ -1,0 +1,1 @@
+Artículo 310. Comunicación con la vía pública. Las sodas y restaurantes deberán tener acceso y salida directa a la vía pública o comunicarse con ella por pasillos con una anchura mínima igual a la suma de las anchuras de todos los espacios de circulación que converjan a ella.

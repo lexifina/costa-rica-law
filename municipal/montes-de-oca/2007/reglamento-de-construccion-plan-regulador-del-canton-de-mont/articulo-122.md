@@ -1,0 +1,1 @@
+Artículo 122. Ventilación e iluminación. La ventilación e iluminación de los edificios para comercio y oficinas podrá ser natural o artificial, cuando sea artificial se deberán satisfacer las condiciones mínimas necesarias del Ministerio de Salud. Si no existe iluminación natural deberá contarse con instalaciones de alumbrado de emergencia.

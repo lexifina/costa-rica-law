@@ -1,0 +1,1 @@
+Artículo 148. Pararrayos. Debido a que un gimnasio es una estructura con una superficie grande de metal y con forma de “A”, lo cual lo hace susceptible de ser dañado por descargas eléctricas atmosféricas, será exigido colocar un pararrayos en el mismo. La barra de un pararrayo está ubicada por lo menos a 1 metro por encima de las partes más elevadas de la estructura.

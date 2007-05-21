@@ -1,0 +1,1 @@
+Artículo 274. Servicios sanitarios. Las secciones destinadas a hospitalizar enfermos deberán estar dotadas de servicios a razón de un lavabo, un inodoro, un mingitorio y una ducha, por cada 5 enfermos y una pila de aseo por cada diez enfermos o fracción de diez.

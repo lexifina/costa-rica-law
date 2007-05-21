@@ -1,0 +1,1 @@
+Artículo 255. Pasillos. Los pasillos tendrán como mínimo 2,40 metros para los primeros 400 m2 de planta útil y se aumentarán a razón de 60 centímetros por cada cien metros adicionales o fracción. No deberán colocarse gradas aisladas en ellos. La altura de los barandales cuando los hubiere serán de 90 centímetros como mínimo.

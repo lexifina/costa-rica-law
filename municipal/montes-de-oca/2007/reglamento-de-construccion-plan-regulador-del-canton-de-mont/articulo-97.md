@@ -1,0 +1,1 @@
+Artículo 97. Se admitirán condominios de alturas mayores a las citadas únicamente en aquellos casos donde se goce de recepción de Derechos de Transferencia. Ver Capítulo 40 “ Zona Especial de Carácter Histórico-Arquitectónico” en Reglamento de Zonificación y Uso del Suelo.

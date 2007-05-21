@@ -1,0 +1,1 @@
+Artículo 205. Estacionamientos. Deberá suministrarse un estacionamiento por cada 10 personas o por cada 10 m², de ambas alternativas se escogerá la opción que de cómo resultado un mayor número, además para efectos redondeo siempre se hará a la unidad más próxima.

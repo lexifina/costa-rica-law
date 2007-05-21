@@ -1,0 +1,4 @@
+Artículo 77. Todo condominio deberá contar con un antejardín cuyo ancho mínimo será de 2 metros el cuál debe ser área verde.
+Si existiera algún tipo de barrera visual como muros o setos entre la línea de construcción y la calle, ésta no puede sobrepasar el metro de altura, a partir de la cual podrán incorporarse elementos, tales como verjas, mallas u otro que garanticen la transparencia necesaria y permitan al menos un 80% de visibilidad desde la calle a la propiedad.
+Bajo ninguna circunstancia se permitirá la creación de muros que excedan la altura antes indicada, si se desea delimitar de alguna forma la propiedad con respecto a la calle deberá hacerse con los lineamientos indicados en este artículo.
+No se recomiendan configuraciones que nieguen la apertura visual hacia la calle, prescindiendo de ventanería hacia el antejardín y negando la posibilidad de convivencia con el espacio urbano.

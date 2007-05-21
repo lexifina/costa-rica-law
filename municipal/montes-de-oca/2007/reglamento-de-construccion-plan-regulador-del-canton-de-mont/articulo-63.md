@@ -1,0 +1,2 @@
+Artículo 63. Calderas. Las instalaciones de calderas, calentadores de agua y aparatos similares, se harán de manera que no causen molestias ni pongan en peligro a los habitantes, de acuerdo con las normas establecidas por el Reglamento de Calderas, del Ministerio de Trabajo y Seguridad Social.
+Todo calentador debe cumplir con normas internacionales de Eficiencia Energética “Energy Star”. Se sugiere la utilización de calentadores no contaminantes como los calentadores solares.

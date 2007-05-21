@@ -1,0 +1,1 @@
+Artículo 15. Instalaciones provisionales. Para colocar estructuras de cualquier tipo o hacer instalaciones de carácter provisional en las vías públicas urbanas, el interesado debe obtener la previa autorización municipal.

@@ -1,0 +1,1 @@
+Artículo 76. Salvo que el Reglamento de Condominio y Administración lo establezca diferente, está prohibido hacer excavaciones y otras obras en vestíbulos, jardines, patios, sótanos, y en el subsuelo. También es prohibido realizar reformas de cualquier tipo en los bienes de uso común, ni está permitido construir baños o ventanas en estas áreas.

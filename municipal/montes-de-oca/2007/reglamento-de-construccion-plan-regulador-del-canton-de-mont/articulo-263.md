@@ -1,0 +1,1 @@
+Artículo 263. Aceras amplias. Si el lote ocupa frentes de cuadra completos deben proveerse anchos de acera de al menos 2,4 metros más un metro de franja verde o utilizando arborización. Para mayor detalle de las obras deberá consultarse el Capítulo 8 Infraestructura Peatonal en el Reglamento de Vialidad del Plan Regulador de Montes de Oca.

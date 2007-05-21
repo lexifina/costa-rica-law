@@ -1,0 +1,7 @@
+Capítulo 28. PROTECCION DE ESTRUCTURAS CONTRA INCENDIO
+Artículo 339. Protección de las columnas. Las columnas de acero para una estructura de ese material y el acero longitudinal en aquellas de concreto armado, deberán ser protegidas, contra el calor intenso de un incendio, rodeándolas de una capa protectora de un material retardatorio al fuego. Esta protección deberá ser completa, desde el piso hasta la parte inferior del piso superior o de las vigas, incluyendo ménsulas, capiteles y otras piezas que transmitan esfuerzo o el calor. No debe ser interrumpida por agujeros, tubos o ductos que permitan la entrada al calor.
+a. En los edificios comerciales de almacenamiento o en los que guarden mucho material combustible, la protección al fuego deberá ser de materiales retardatorios por 3 horas, en todos los pisos dedicados a ese uso.
+b. En edificios residenciales, de oficinas, hoteles y en los que haya poco material combustible, esa protección deberá ser de 2 horas.
+c. La cara exterior de las columnas exteriores, deberá protegerse cuando el edificio vecino esté construido con materiales combustibles.
+d. La protección en las columnas de acero deberá sujetarse por medio de alambres arrollados a la misma, cedazo grueso u otro medio que le impida desprenderse durante un incendio o durante el uso del edificio o algún otro sistema semejante o más efectivo.
+e. La protección de las varillas longitudinales en las columnas de concreto armado será suficiente con el recubrimiento más el repello.

@@ -1,0 +1,1 @@
+Artículo 262. No deben ser colindantes con edificios o alternativamente proveer un excelente aislamiento acústico con respecto a sus estructuras vecinas. Deben acondicionarse áreas especiales para el abordaje de los autobuses o dentro del lote.

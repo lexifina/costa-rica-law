@@ -1,0 +1,1 @@
+Artículo 325. Servicios sanitarios. Deberán existir, cuando menos, 3 servicios sanitarios, uno para los trabajadores y 2 para uso del público, de los cuales será uno para mujeres y otro para hombres. Estos servicios contaran cuando menos con un inodoro y un lavabo cada uno.

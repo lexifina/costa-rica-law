@@ -1,0 +1,2 @@
+Artículo 298. Instalaciones. Cuando exista posibilidad de contacto con las instalaciones de agua caliente, éstas deberán aislarse. Las regaderas tendrán termostato para control automático de la temperatura. Todos los controles de temperatura de agua tendrán una altura máxima de 100 centímetros y mínima de 60 centímetros y serán de fácil manejo.
+El botón del timbre de puertas exteriores se colocarán una altura mínima de 90 centímetros y máxima de 100 centímetros.

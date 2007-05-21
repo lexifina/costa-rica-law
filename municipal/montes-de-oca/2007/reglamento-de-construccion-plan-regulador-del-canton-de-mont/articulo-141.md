@@ -1,0 +1,1 @@
+Artículo 141. Altura libre. La altura libre sobre las gradas en ningún punto será menor de 3 metros. En cuanto a la altura libre en la zona de juego debe respetarse las recomendaciones que haga el ICODER.

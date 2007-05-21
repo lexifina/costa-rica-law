@@ -1,0 +1,1 @@
+Artículo 108. De existir calles internas, tendrán un ancho mínimo de 7 metros y deberán contar con las aceras respectivas, tanto las calles como las aceras se incluyen dentro del área de construcción independientemente del material del que estén constituidas.

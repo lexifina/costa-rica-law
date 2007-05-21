@@ -1,0 +1,1 @@
+Artículo 31. No se permite realizar ninguna construcción sobre el área de absorción del tanque séptico ni actividades que puedan producir compactación significativa del terreno. Debe mantenerse una capa de césped y arbustos sobre el campo de drenaje que aumenten la capacidad de absorción del terreno.

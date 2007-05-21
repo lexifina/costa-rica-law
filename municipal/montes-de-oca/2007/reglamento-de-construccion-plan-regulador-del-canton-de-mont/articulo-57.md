@@ -1,0 +1,1 @@
+Artículo 57. Paredes comunes. Los tabiques que separen unos apartamientos de otros, o que separen los apartamentos de los pasillos comunes, o de secciones destinadas a otros usos, deberán ser material con coeficiente retardatorio al fuego de un mínimo de una hora, hasta la altura de la cubierta de techo.

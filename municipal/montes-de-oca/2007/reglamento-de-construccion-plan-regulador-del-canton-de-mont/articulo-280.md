@@ -1,0 +1,1 @@
+Artículo 280. Resistencia al fuego. La construcción deberá ser de materiales resistentes al fuego con un coeficiente retardatorio no menor de 3 horas. En lo demás deberán cumplir con lo indicado en el Capítulo 5 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 278. Temperatura. Los locales en donde permanezcan enfermos estarán construidos de forma que se asegure una temperatura mínima de 18º y máximo de 24º y una renovación total del volumen de aire cada 8 minutos.

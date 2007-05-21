@@ -1,0 +1,1 @@
+Artículo 303. Distancia a lugares insalubres. Los locales a que se refiere este capítulo, no podrán ubicarse a menos de 200 metros de establecimientos clasificados como insalubres por el Ministerio de Salud.

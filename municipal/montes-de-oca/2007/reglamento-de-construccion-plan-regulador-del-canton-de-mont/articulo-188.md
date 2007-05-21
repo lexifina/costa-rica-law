@@ -1,0 +1,1 @@
+Artículo 188. Los usos Entretenimiento “B”, que incluyen las actividades de dispersión para un público variado pero caracterizado por la venta de licor para consumo en el sitio, deben tener sistemas de control de olores como extractores y de aislamiento acústico de forma tal que se cumpla con la legislación vigente sobre ruido del Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 260. Para las Escuelas de Baile o academias de Educación Técnica, ambos dentro de la clasificación de centros educativos “B”, deberá contarse con aislamiento acústico que reduzca el ruido a un nivel tal que garantice el cumplimiento de la Ley de Ruido vigente.

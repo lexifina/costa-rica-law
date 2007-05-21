@@ -1,0 +1,7 @@
+Artículo 107. Todo condominio rural deberá ceder gratuitamente a la municipalidad, una porción de su terreno, de conformidad con lo siguiente
+a. Cuando la porción a ceder colinda con propiedad pública destinada a recreación, y la misma se ubique en borde del río, que corresponde a la zona de protección de 15 metros a cada lado, el valor será de un 5% del área total del lote.
+b. Cuando la porción a ceder se ubique al frente de la propiedad: Tendrá que cederse un 4% del área total del lote, la distribución de esta área se regirá de la siguiente forma:
+b.1 Tanto la longitud paralela a la vía como la perpendicular a esta, deberán tener una longitud mínima de 20 metros. La longitud paralela a la vía podrá ser menor en el caso de que se cumpla el punto b.2 ó b.3.
+b.2 La longitud paralela a la vía podrá ser de 15 metros si la porción a ceder colinda con otra porción de terreno de la misma naturaleza, o sea un área de carácter público cedida por otro propietario.
+b.3 La longitud paralela a la vía podrá ser igual a 15 metros, si uno de sus límites laterales tiene un ángulo de inclinación mayor o igual a 120° con respecto a la vía, en ningún caso el ancho efectivo de esta porción será menor a 15 metros.
+b.4 Para cualquiera de los puntos b.1, b.2 y b.3; se permitirá la construcción de un muro lateral. En caso que se desee construir un muro al fondo del terreno a ceder, será posible únicamente si el nivel de la calle se encuentra al menos 3 metros más arriba que el punto donde se construirá el muro posterior.

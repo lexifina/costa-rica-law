@@ -1,0 +1,1 @@
+Artículo 386. Cuando sea necesario utilizar la vía pública para el transporte del material removido en el movimiento de tierras o el que se va a colocar en el relleno, el método utilizado para el transporte debe garantizar que el material no será esparcido por la vía pública.

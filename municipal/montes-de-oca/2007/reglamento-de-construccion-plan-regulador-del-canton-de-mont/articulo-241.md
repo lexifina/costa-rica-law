@@ -1,0 +1,1 @@
+Artículo 241. Zonas verdes. Según el porcentaje de cobertura, aquella superficie que deba dejarse libre, se destinará a jardines o cualquier tipo de superficie que no dificulte la infiltración del agua. Revisar el Capítulo 4 “Uso Educacional A” del Reglamento de Zonificación y Uso del Suelo.

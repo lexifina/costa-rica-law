@@ -1,0 +1,2 @@
+Artículo 235. Ubicación. Para la construcción de este tipo de edificios deberá contarse con la aprobación previa del Ministerio de Educación Pública en cuanto a su ubicación. El terreno seleccionado deberá reunir las mejores condiciones posibles respecto a topografía, vegetación, orientación y estar protegido de los elementos perturbadores de la tranquilidad, y salud de los educandos.
+Además debe ajustarse con las restricciones para su localización señaladas en el “Reglamento de Zonificación y Uso del Suelo” de este Plan.

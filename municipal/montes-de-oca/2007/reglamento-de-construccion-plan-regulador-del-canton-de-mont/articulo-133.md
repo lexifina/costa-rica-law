@@ -1,0 +1,2 @@
+Capítulo 14. INSTALACIONES DEPORTIVAS Y BAÑOS DE USO PUBLICO
+Artículo 133. Instalaciones deportivas. La infraestructura de toda instalación deportiva, pública o privada, deberá cumplir con las especificaciones dadas en éste Reglamento. Los proyectos de construcción de instalaciones públicas destinadas a la educación física, al deporte y recreación, deberán presentarse al ICODER, quien deberá dar el visto bueno a los planos constructivos.

@@ -1,0 +1,1 @@
+Artículo 189. En los usos Entretenimiento “C”, que incluye salones de baile y clubes nocturnos, se deben controlar los malos olores de forma que no causen molestias a los vecinos y peatones. También será obligatorio el control del ruido contar con sistemas de aislamiento acústico, de forma tal que se cumpla con la legislación vigente sobre ruido del Ministerio de Salud.

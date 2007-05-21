@@ -1,0 +1,1 @@
+Artículo 302. Tubos colgantes. Cualquier tubo colgante de instalación, deberá protegerse para evitar que por condensación puedan caer líquidos sobre los alimentos o dentro de cualquier receptáculo o aparato utilizado para almacenarlos o prepararlos.

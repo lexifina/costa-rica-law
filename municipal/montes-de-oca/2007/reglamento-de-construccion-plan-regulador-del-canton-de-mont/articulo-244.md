@@ -1,0 +1,1 @@
+Artículo 244. Altura. La altura de piso a cielo raso será de un mínimo de 2,50 metros, siempre que exista cielo raso aislante y ventilación cruzada del aire que permita la renovación constante del mismo. De no cumplirse el primer requisito, la altura mínima será de 2,70 metros.

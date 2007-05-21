@@ -1,0 +1,1 @@
+Artículo 368. Cuando la propiedad se encuentre ya afectada por servidumbre, las redes de alcantarillado y obras de manejo de aguas pluviales deberán quedar igualmente en área pública pudiendo incorporarse en calles, parques o juegos infantiles.

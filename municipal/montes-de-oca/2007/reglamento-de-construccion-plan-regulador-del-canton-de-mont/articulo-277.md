@@ -1,0 +1,1 @@
+Artículo 277. Crematorios. Todos los establecimientos de hospitalización, estarán provistos de un horno crematorio de basuras y desperdicios, de capacidad y modelo aprobado por el Ministerio de Salud.

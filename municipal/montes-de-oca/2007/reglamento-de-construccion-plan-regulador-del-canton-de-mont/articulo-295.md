@@ -1,0 +1,1 @@
+Artículo 295. Protectores. Se colocarán protectores de material resistente al roce continuo, a lo largo de los pasillos, muros, puertas y en las esquinas, tanto en el interior, como en el exterior a una altura de 60 centímetros, con un ancho no menor de 10 centímetros.

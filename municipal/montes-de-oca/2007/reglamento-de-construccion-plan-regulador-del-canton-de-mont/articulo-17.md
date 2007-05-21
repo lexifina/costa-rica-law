@@ -1,0 +1,1 @@
+Artículo 17. Construcciones provisionales. Toda edificación a un cuando sea con carácter provisional, ha de contar con la previa autorización municipal. Se emplearán material y sistemas constructivos que faciliten su remoción y que garanticen seguridad, higiene y buen aspecto.

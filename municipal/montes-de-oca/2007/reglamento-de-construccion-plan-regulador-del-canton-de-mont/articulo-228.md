@@ -1,0 +1,1 @@
+Artículo 228. Desagües pluviales. Regirá lo estipulado en el Capítulo 5 “Edificios para habitación unifamiliar y multifamiliar” de este Reglamento y los artículos correspondientes a los Capítulos 30 y 31 sobre amenazas Naturales.

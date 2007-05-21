@@ -1,0 +1,1 @@
+Artículo 286. Salidas al exterior y escaleras de emergencia. En materia de salidas se aplicará lo estipulado en el Capítulo 3 “Disposiciones Generales para Edificios” del presente Reglamento. En los edificios de asistencia hospitalaria de más de un piso, se deben instalar escaleras de emergencia de acuerdo con lo establecido en el capítulo mencionado anteriormente.

@@ -1,0 +1,1 @@
+Artículo 106. El área no construible deberá de ser área verde, incluyendo juegos infantiles, los cuales podrán contar con la infraestructura necesaria, y no se tomará en cuenta como área de construcción, siempre y cuando su superficie no sea pavimentada o bien cumpla con los requerimientos antes mencionados.

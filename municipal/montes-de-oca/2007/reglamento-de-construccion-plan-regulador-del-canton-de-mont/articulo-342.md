@@ -1,0 +1,1 @@
+Artículo 342. Edificaciones de madera. Las edificaciones de madera deberán construirse de manera que su combustión sea lenta para evitar un colapso en menos de 20 minutos de su estructura ajustándose a requisitos de diseño aprobados por el Colegio Federado de Ingenieros y Arquitectos.

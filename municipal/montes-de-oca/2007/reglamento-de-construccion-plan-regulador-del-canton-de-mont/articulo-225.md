@@ -1,0 +1,2 @@
+Artículo 225. Servicios sanitarios destinados al público. Los servicios sanitarios destinados al público que concurra al establecimiento y los del personal, deberán constituirse independientes para hombres y mujeres. El servicio para hombres contará como mínimo con un mingitorio y orinal, un inodoro y un lavabo y el de mujeres con un inodoro y un lavabo.
+Se aplicará lo conducente dado en el Capítulo 5 “Edificios para habitación unifamiliar y multifamiliar”

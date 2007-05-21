@@ -1,0 +1,1 @@
+Artículo 114. Pasillos y corredores. Las oficinas y locales comerciales de un edificio deberán tener salida directa a la calle o a pasillos y corredores que conduzcan directamente a las escaleras o salida a la calle. La anchura de los pasillos y corredores nunca será menor de 1,20 metros ni menor a la de las escaleras que desemboquen a ellos.

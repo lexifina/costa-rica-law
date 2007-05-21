@@ -1,0 +1,1 @@
+Artículo 237. Aprobación de Planos. Los planos deberán ser aprobados por la Dirección General de Edificaciones Nacionales y la de Planeamiento Educativo de los Ministerios de Obras Públicas y Transportes y de Educación Pública, respectivamente.

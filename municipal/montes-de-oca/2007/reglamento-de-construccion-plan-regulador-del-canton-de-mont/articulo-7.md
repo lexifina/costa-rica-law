@@ -1,0 +1,2 @@
+Capítulo 2. VÍAS PÚBLICAS
+Artículo 7. Generalidades. Para la definición, pertenencia e inalienabilidad de las vías públicas urbanas, los derechos de usuarios y colindantes y la temporalidad de los derechos o concesiones que se otorguen para su uso o ocupación, se deberá recurrir a la Ley de Caminos Públicos y a la Ley de Construcciones, que son las que regulan estas materias. En el Reglamento de Vialidad se detallan otros aspectos relacionados con este Capítulo.

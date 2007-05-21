@@ -1,0 +1,1 @@
+Artículo 226. Instalaciones de agua potable. Las instalaciones de agua potable serán diseñadas de acuerdo al Reglamento de Instalaciones Electromecánicas o en su defecto para permitir el funcionamiento simultáneo de una tercera parte de los artefactos como mínimo.

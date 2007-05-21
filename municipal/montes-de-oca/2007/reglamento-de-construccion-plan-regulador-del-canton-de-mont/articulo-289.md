@@ -1,0 +1,1 @@
+Artículo 289. Garaje. Se proveerá un espacio de garaje o cochera con acceso directo y sin gradas a la vivienda, con una anchura mínima de trescientos cincuenta centímetros y cerrojo de accionar eléctrico si existe portón.

@@ -1,0 +1,5 @@
+Artículo 337. Pueden existir diferentes modalidades de residencias estudiantiles:
+a. Habitaciones individuales con servicios colectivos: Son aquellas habitaciones para una persona, que están equipadas con una cama, escritorio y ropero, sin embargo los servicios de cocina y lavandería son de carácter colectivo, o sea existe uno o varios núcleos de este tipo para varias habitaciones.
+b. Habitaciones para varios estudiantes con servicios colectivos: Son aquellas habitaciones para varias personas, y están equipadas con camas, escritorios y roperos. Donde los servicios de cocina y lavandería abastecen a varios usuarios.
+c. Apartamentos con servicios individuales: Son aquellas residencias donde las unidades habitacionales están constituidas por apartamentos, donde cada uno cuenta con todos los servicios necesarios: cocina, cuarto de pilas, tendido, comedor y dormitorios.
+d. Apartamentos con servicios colectivos: Son aquellas residencias donde las unidades habitacionales están constituidas por apartamentos, donde cada uno puede contar con ciertos servicios; pero tienen áreas de uso común, como lavandería o cocina.

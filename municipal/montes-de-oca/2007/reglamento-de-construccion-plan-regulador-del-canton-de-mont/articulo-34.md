@@ -1,0 +1,1 @@
+Artículo 34. Ventanas a colindancia. No se permite abrir ventanas hacia el predio vecino, a menos que intervenga una distancia mínima de 1,5 metros en casas de 1 piso o 3,0 metros en casas de 2 pisos o más. Ver Reglamento de Zonificación y Uso del Suelo para más detalles.

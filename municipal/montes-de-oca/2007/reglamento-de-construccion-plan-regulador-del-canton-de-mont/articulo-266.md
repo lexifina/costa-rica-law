@@ -1,0 +1,2 @@
+Artículo 266. Espacios y alturas requeridas. Los hospitales y clínicas de consulta deberán tener cuando menos salas de espera para el público, salas para la atención de enfermos independientes de las primeras, salas para médicos y para practicantes, para farmacia y servicios sanitarios independientes para el personal y para los enfermos.
+La altura de los locales destinados a salas de espera, vestíbulos y salas de curaciones no será inferior a 3 metros y la superficie mínima de estas últimas será de 6 m².

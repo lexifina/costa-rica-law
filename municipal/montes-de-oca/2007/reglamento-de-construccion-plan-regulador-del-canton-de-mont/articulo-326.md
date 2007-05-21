@@ -1,0 +1,1 @@
+Artículo 326. Instalaciones. Las instalaciones eléctricas, sanitarias y de los tanques de almacenamiento de las estaciones de servicio se harán de acuerdo con las disposiciones legales vigentes en esta materia.

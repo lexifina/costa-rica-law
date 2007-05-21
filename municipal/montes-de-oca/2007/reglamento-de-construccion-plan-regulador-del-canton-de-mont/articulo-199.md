@@ -1,0 +1,1 @@
+Artículo 199. Capacidad con usos mixtos. En aquellos casos en los cuales se darán 2 o más usos al mismo tiempo debe especificarse el porcentaje de área dedicado a cada uno, a fin de calcular correctamente la capacidad del salón.

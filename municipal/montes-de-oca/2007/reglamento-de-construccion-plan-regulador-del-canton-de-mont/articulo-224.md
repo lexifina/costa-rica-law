@@ -1,0 +1,1 @@
+Artículo 224. Inodoros y baños. Las piezas destinadas a inodoros, los cuartos de baño y demás locales de servicio sanitario, tendrán recubrimientos de material impermeable en pisos y muros hasta una altura mínima de un 1,20 metros, el resto de las paredes deberá ser recubierto con materiales resistentes al agua.

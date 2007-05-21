@@ -1,0 +1,1 @@
+Artículo 42. Rampas. En caso de utilizarse rampas, su declive no será mayor de 1 en 10 y deberán construirse con superficie antiderrapante, tanto en condiciones secas como húmedas. Cumplirán con todos los requisitos especificados para las escaleras en cuanto éstos les sean aplicables. La longitud máxima entre descansos será de 9 metros.

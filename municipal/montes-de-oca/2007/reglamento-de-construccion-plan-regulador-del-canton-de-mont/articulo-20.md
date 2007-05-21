@@ -1,0 +1,1 @@
+Artículo 20. Usos permitidos. La ubicación de edificios con diferentes usos será de la forma en que se detalla en el Reglamento de Zonificación y Uso del Suelo y el Mapa Oficial de Zonificación del Cantón, ambos documentos del Plan Regulador de Montes de Oca.

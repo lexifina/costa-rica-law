@@ -1,0 +1,1 @@
+Artículo 62. Desagües pluviales. Las aguas pluviales de techos, terrazas y patios, deberán ser conducidas a sistemas de alcantarillado pluvial o a cursos de aguas naturales. Para más detalle revisar los artículos correspondientes a este tema en el Título de Amenazas Naturales en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 146. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para gimnasios deberá acatarse lo establecido en el Capítulo de Requerimientos de Estacionamientos por tipo de Uso del Reglamento de Vialidad, bajo la clasificación de instalaciones deportivas.

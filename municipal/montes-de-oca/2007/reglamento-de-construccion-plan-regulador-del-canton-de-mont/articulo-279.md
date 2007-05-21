@@ -1,0 +1,1 @@
+Artículo 279. Salas de operación recuperación. Las salas de operación o de curaciones deberán contar con anexos para médicos, instrumental, ropas y servicios higiénicos y estar aislados de los demás departamentos.

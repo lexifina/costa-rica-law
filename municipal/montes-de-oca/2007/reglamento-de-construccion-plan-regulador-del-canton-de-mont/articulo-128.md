@@ -1,0 +1,1 @@
+Artículo 128. Superficie y altura. La altura libre mínima en la edificación será de 4,5 metros. Esta última puede ser disminuida hasta 3,5 metros a condición de que haya ventilación mecánica o bien se construya con una nave central de 4,5 metros de alto que ocupe la tercera parte del área.

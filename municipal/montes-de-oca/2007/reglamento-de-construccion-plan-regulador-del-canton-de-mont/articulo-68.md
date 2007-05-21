@@ -1,0 +1,1 @@
+Artículo 68. El régimen de propiedad horizontal podrá establecerse en edificios ya construidos cuando, entre otras condiciones, existan elementos comunes indivisibles y puedan ajustarse los edificios a las exigencias técnicas que se establecen mediante las presentes normas.

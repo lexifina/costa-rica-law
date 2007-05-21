@@ -1,0 +1,1 @@
+Artículo 331. En edificios que contengan 8 o más apartamentos, se deberá mezclar al menos 2 tipos de los descritos anteriormente y el número mínimo de apartamentos de cualquier tipo no podrá ser en ningún caso inferior al 30% del total de unidades habitacionales del edificio. Ver Tabla 9.

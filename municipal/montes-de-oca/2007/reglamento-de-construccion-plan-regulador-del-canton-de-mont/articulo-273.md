@@ -1,0 +1,1 @@
+Artículo 273. Cocinas. Las áreas destinadas a preparar alimentos tendrán las dimensiones mínimas indicadas para los hoteles. Ver Capítulo 20 “Hoteles y Similares” de este Reglamento. En las proximidades de cada pabellón que albergue enfermos deberá proveerse un sitio adecuado para calentar alimentos.

@@ -1,0 +1,1 @@
+Artículo 209. Instalaciones. Las instalaciones eléctricas, sanitarias de maquinaria u otras de servicio en los establecimientos indicados en este capítulo, deberán cumplir con lo que fije este Reglamento en la sección correspondiente y lo indicado en el Código Eléctrico y en el Reglamento de Instalaciones Electromecánicas en sus versiones más actualizadas.

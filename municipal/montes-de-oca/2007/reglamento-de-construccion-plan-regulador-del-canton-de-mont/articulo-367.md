@@ -1,0 +1,1 @@
+Artículo 367. El paso de redes de alcantarillado pluvial deberá estar localizado en los derechos de vía y, en todo caso, a través o sobre áreas de uso público, para facilitar su mantenimiento y reducir el impacto de posibles daños de las tuberías pluviales sobre las viviendas.

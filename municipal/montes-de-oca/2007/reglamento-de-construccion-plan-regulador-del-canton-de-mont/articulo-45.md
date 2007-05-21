@@ -1,0 +1,1 @@
+Artículo 45. Áreas comunes no cubiertas. Cuando 2 o más propietarios establezcan servidumbre recíproca para formar patios de luz o de ventilación comunes, éstos se calcularán para efectos de sus dimensiones mínimas, usando como área del lote aquella formada por la suma de las áreas de todos los terrenos que comparten los correspondientes patios de luz o de ventilación.

@@ -1,0 +1,1 @@
+Artículo 345. Plásticos y otros materiales aislantes. En el interior de los edificios queda prohibido el uso de plásticos y otros materiales que produzcan mucho humo o gases venenosos al calentarse. El uso de materiales similares, deberá ser aprobado por el Ministerio de Salud.
