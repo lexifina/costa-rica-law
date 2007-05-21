@@ -1,0 +1,3 @@
+29.—Calificación de ofertas. Solo se calificarán aquellas ofertas que sean elegibles. La que obtenga la mayor calificación será considerada la más conveniente y la Administración, deberá dictar el acto de selección del adjudicatario.
+Cuando la Administración, decida declarar desierto un procedimiento de contratación, deberá dejar constancia de los motivos específicos de interés público considerados para adoptar esa decisión, mediante resolución que deberá incorporarse en el respectivo expediente de la contratación.
+Cuando se haya invocado motivos de interés público para declarar desierto el concurso, para iniciar un nuevo procedimiento, la Administración deberá acreditar el cambio en las circunstancias que justifican tal medida.

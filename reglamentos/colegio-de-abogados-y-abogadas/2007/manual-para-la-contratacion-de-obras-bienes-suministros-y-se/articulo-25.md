@@ -1,0 +1,1 @@
+25.—Entrega inmediata. Cuando un oferente ofrezca plazo de entrega inmediata se entenderá que corresponde al consignado en el cartel o en su defecto, un día hábil posterior a la entrega del pedido u orden de compra.

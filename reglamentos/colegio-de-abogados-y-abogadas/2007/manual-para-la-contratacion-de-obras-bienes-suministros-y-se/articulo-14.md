@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Aspectos económicos
+14.—Precio. El precio deberá ser cierto y definitivo, sujeto a las condiciones establecidas en el cartel o pliego de condiciones y sin perjuicio de eventuales reajustes o revisiones. En caso de divergencia entre el precio cotizado en números y letras, prevalecerá este último. Se podrá cotizar en cualquier moneda. Cuando se requiera el oferente deberá presentar el desglose de la estructura del precio junto con un presupuesto detallado y completo con todos los elementos que lo componen. De la misma forma la Administración, podrá solicitar en el cartel a los oferentes que coticen precios unitarios y totales y el oferente podrá ofrecer descuentos globales a sus precios, indicando esta situación.
