@@ -1,0 +1,1 @@
+Artículo 5. En las zonas de renovación por mejoramiento vial se reservarán espacios de la vía pública para el mejoramiento y ampliación de aceras. Aplicarán las disposiciones vigentes del MOPT y de la Ley de Expropiaciones en los casos respectivos.

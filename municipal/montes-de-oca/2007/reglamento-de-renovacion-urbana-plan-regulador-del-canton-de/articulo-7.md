@@ -1,0 +1,2 @@
+Capítulo 2. Regulaciones en las zonas de renovación por vialidad
+Artículo 7. Las zonas definidas como de renovación urbana por vialidad están debidamente señalada en el “Mapa de Jerarquía del Sistema Vial del Cantón de Montes de Oca” del Reglamento de Vialidad. En el mapa se detallan los sectores y los tramos de carretera que se proponen sean renovados por medio de ampliaciones o creaciones de conexiones o vías nuevas.
