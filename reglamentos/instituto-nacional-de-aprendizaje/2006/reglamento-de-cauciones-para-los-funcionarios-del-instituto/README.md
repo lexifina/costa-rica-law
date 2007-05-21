@@ -14,3 +14,4 @@ Reglamento de Cauciones para los Funcionarios del Instituto Nacional de Aprendiz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-29 | la propia norma |
+| 2 | 2007-05-21 | Reglamento 4298 (2007-05-21) |
