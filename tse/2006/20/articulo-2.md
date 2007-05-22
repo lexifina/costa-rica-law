@@ -9,9 +9,11 @@ g) Suspender la relación laboral con los servidores que incapacita el Instituto
 h) Aprobar todo tipo de publicaciones institucionales, excepto las de carácter electoral. Cuando corresponda, la oficina respectiva confeccionará los avisos para los concursos de plazas vacantes, esquelas, cambios de horario, licitaciones y otros eventos de similar naturaleza.
 i) Aprobar asuetos en virtud de celebrarse los festejos cívicos o religiosos de las diferentes localidades. El Jefe de la Oficina Regional presentará la solicitud de asueto, el Departamento de Recursos Humanos hará el estudio y la Dirección resolverá lo que corresponda.
 j) Aprobar, previa solicitud de la Proveeduría, la reparación de bienes en mal estado o la devolución de estos a la Dirección de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda.
-k) Autorizar ajustes de inventario en caso de variación del precio del combustible. Mediante gestión de la Proveeduría, la Dirección Ejecutiva autorizará el ajuste de inventario en caso de variación del precio de los combustibles.
+k) Autorizar ajustes de inventario en caso de variación del precio de combustibles a gestión de la Unidad de Transportes de Servicios Generales.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto del TSE N° 6 del 22 de mayo de 2007).
 l) Aprobar órdenes de pedido internas de Caja Chica, excepto las de carácter electoral.
-m) Aprobar solicitudes de pedido hasta por el monto autorizado para realizar contrataciones directas. La Proveeduría hará la solicitud, la Dirección Ejecutiva otorgará el visto bueno y la Contaduría seguirá el trámite que corresponda. Las solicitudes por sumas mayores serán aprobadas por el Tribunal.
+m) Aprobar solicitudes de pedido. La Proveeduría hará la solicitud, la Dirección Ejecutiva otorgará el visto bueno y la Contaduría seguirá el trámite que corresponda. Las solicitudes por sumas mayores serán aprobadas por el Tribunal.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto del TSE N° 6 del 22 de mayo de 2007).
 n) Aprobar gastos de viaje dentro del país, así como los reintegros que se generen. La Dirección Ejecutiva aprobará los gastos de las giras, incluyendo la jornada extraordinaria que de ellas se derive y autorizará, por vía de excepción, a otros funcionarios a conducir los vehículos oficiales, quienes deberán cumplir con la formativa aplicable.
 o) Aprobar los acuerdos de pago. La Contaduría verificará el contenido económico y la Dirección Ejecutiva resolverá lo que corresponda.
 p) Aprobar las facturas y las reservas de crédito. La Contaduría presentará a la Dirección Ejecutiva la documentación respectiva para que resuelva lo pertinente.
