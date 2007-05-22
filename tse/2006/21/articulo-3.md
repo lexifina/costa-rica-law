@@ -2,7 +2,8 @@ Artículo 3º—En materia presupuestaria, concretamente en lo que concierne al 
 a) Participar activamente, en coordinación con la Dirección Ejecutiva, en la formulación del anteproyecto de presupuesto, el seguimiento al proyecto de ley y las modificaciones a la ley de presupuesto vigente.
 b) Coadyuvar en la programación financiera de la ejecución presupuestaria.
 c) Aprobar o dar visado a aquellos documentos de ejecución presupuestaria que le corresponde, a saber:
-i) Solicitudes de pedido hasta por el monto autorizado para realizar contrataciones directas.
+i) Solicitudes de pedido
+(Así reformado el aparte anterior mediante artículo 1° del decreto del Tribunal Supremo de Elecciones N° 7 del 22 de mayo de 2007).
 ii) Reservas de recursos.
 iii) Órdenes de compra interna.
 iv) Gastos de viaje dentro del país, así como los reintegros que se generen.
