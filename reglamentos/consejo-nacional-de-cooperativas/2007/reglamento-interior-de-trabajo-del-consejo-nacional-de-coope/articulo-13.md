@@ -1,0 +1,2 @@
+Artículo 13.—Cambios en el horario. Se considera tiempo efectivo de trabajo aquél en que los trabajadores permanezcan bajo las órdenes o dirección inmediata, o delegada, del patrono.
+La Institución podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los trabajadores. El cambio deberá ser comunicado a los trabajadores afectados con un mínimo de tres días de anticipación.

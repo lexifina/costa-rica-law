@@ -1,0 +1,5 @@
+Artículo 5º—Clases de nombramientos: los nombramientos serán:
+a) Por tiempo indefinido: que se llevarán a cabo con aquellos empleados indispensables para satisfacer las necesidades propias y permanentes de la Institución;
+b) Por tiempo determinado: que se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentran disfrutando de vacaciones, bajo licencia, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar;
+c) De aprendizaje: que se formalicen por escrito de acuerdo a las disposiciones de la ley de Aprendizaje, su Reglamento, y disposiciones conexas y supletorias, y que tendrán a la formación profesional metódica y completa del individuo.
+d)Por obra determinada: que se podrá celebrar para satisfacer necesidades que eventualmente se presenten en la Institución y en el cual, sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.

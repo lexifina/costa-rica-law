@@ -1,0 +1,1 @@
+Artículo 105.—Gradualidad de los beneficios. La implementación y puesta en ejecución de la carrera profesional, de carrera administrativa, programas de capacitación y beneficios patrimoniales que se crean en forma originaria en este reglamento, serán efectivizados en un proceso gradual conforme a las posibilidades económicas institucionales.

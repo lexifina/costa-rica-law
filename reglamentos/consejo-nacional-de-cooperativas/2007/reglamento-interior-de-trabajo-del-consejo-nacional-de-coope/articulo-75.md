@@ -1,0 +1,1 @@
+Artículo 75.—Licencias. Todas las licencias que se concedan a los trabajadores serán sin goce de salario, salvo aquellos caso previstos en la Ley, o que sin serlos, la Institución considere oportuno otorgarlas con goce de salario.

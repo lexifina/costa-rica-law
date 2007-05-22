@@ -1,0 +1,1 @@
+Artículo 85.—Procedimiento para otorgar puntos. Los empleados formularán por escrito sus solicitudes a la Comisión aportando los atestados correspondientes, el diploma y el programa del curso en original y dos copias. Un juego de copias será presentado a la unidad de Recursos Humanos y el otro a la Comisión. Los originales serán devueltos al empleado.

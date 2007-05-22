@@ -1,0 +1,1 @@
+Artículo 63.—Amonestación verbal. La amonestación verbal se aplicará cuando el trabajador en forma expresa o tácita, cometa alguna falta leve a las obligaciones que le impone el contrato o relación de trabajo.

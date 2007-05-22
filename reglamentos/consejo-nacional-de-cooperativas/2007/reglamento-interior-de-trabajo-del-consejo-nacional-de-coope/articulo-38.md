@@ -1,0 +1,1 @@
+Artículo 38.—Aplicación de escala de puestos. Para los nombramientos y los ascensos se aplicara la escala de puestos tomando en cuenta la idoneidad, la antigüedad, la carrera administrativa, la especialización y el resultado de la calificación de méritos realizada periódicamente de acuerdo al sistema de evaluación del desempeño utilizado en la Institución.

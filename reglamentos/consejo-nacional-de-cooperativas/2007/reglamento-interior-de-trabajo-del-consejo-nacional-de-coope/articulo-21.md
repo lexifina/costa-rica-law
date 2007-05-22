@@ -1,0 +1,1 @@
+Artículo 21.—Remuneración de recargo de funciones. Los recargos de funciones a puestos de mayor categoría podrán ser remunerados siempre y cuando el servidor recargado cumpla con los requisitos académicos y legales establecidos para el puesto, y se trate de plazo mayor a diez días hábiles.

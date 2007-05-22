@@ -1,0 +1,1 @@
+Artículo 96.—Impugnación del informe de la Comisión de Carrera Profesional. Si la solicitud no es aceptada por la Comisión, el empleado podrá recurrir ante aquella en un plazo de ocho días contados a partir del día de recibo de la comunicación. La Comisión , en igual plazo, se pronunciará sobre el recurso. Cabrá recurso de alzada ante el Secretario Ejecutivo.

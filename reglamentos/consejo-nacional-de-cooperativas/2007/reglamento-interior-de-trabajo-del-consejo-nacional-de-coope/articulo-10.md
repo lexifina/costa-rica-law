@@ -1,0 +1,1 @@
+Artículo 10.—Jornada de trabajo. La jornada ordinaria de trabajo para los empleados del CONACOOP será de cuarenta y dos y media horas por semana, con un horario continuo diario de lunes a viernes de las 8:00 horas a las 16:30 horas, con 45 minutos para almorzar.

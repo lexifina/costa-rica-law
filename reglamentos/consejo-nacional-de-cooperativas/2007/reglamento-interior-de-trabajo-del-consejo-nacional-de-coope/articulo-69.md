@@ -1,0 +1,1 @@
+Artículo 69.—Deber de acatar las medidas de seguridad y salud ocupacional. Es deber de todo trabajador de la Institución acatar y hacer cumplir las medidas que tiendan a prevenir el acaecimiento de accidentes de trabajo y enfermedades profesionales.

@@ -1,0 +1,8 @@
+Artículo 70.—Obligación de adoptar medidas de seguridad y salud ocupacional. La Institución deberá adoptar las medidas necesarias para proteger eficazmente la vida, la salud, la integridad corporal y la moralidad de sus trabajadores; en este sentido se obliga a mantener en condiciones adecuadas lo relativo a:
+a) Edificaciones, instalaciones y condiciones ambientales;
+b) Operaciones y procesos de trabajo; y
+c) Suministros, uso y mantenimiento de los equipos de protección personal.
+También la Institución se obliga a:
+a) Promover la capacitación de su personal en materia de Medicina,
+Higiene y Seguridad Ocupacional; y
+b) Permitir a las autoridades competentes la colocación en los centros de trabajo de textos legales, avisos, carteles y anuncios similares referentes a Seguridad e Higiene de Trabajo.

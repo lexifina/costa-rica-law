@@ -1,0 +1,1 @@
+Artículo 7º—Expediente personal: la Unidad de Recursos Humanos formará un expediente personal a cada empleado en el que constará, además de datos personales, todo acto referente a la relación de trabajo debidamente comunicado al interesado.

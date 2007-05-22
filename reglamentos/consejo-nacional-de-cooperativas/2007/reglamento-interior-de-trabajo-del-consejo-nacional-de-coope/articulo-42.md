@@ -1,0 +1,1 @@
+Artículo 42.—Permutas. Las permutas y traslados, definitivos o temporales, entre puesto de igual clase y remuneración, serán efectuadas por el Secretario Ejecutivo. En el caso de permutas definitivas es necesaria la anuencia de los interesados.

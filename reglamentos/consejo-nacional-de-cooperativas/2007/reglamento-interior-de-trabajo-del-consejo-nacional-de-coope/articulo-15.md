@@ -1,0 +1,1 @@
+Artículo 15.—Días feriados. Son hábiles para el trabajo todos los días del año menos los feriados establecidos en el Código de Trabajo y los que sean declarados de asueto por el Poder Ejecutivo. Sin embargo podrá trabajarse en tales días siempre y cuando ello fuere posible al tenor de las excepciones contenidas en los artículos 150 y 151 del Código de Trabajo.

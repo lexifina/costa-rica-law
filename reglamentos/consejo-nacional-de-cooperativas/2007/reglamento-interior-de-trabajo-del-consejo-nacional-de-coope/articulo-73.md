@@ -1,0 +1,1 @@
+Artículo 73.—Obligación del patrono de dar aviso al INS. De conformidad con lo establecido en el artículo 214 inciso b) y 221 del Código de Trabajo el Patrono deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo profesional que le ocurra a sus trabajadores.

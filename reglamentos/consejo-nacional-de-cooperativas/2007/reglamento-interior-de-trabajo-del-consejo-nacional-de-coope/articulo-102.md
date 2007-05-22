@@ -1,0 +1,1 @@
+Artículo 102.—Capacitación del personal. El Consejo Nacional de Cooperativas, pondrá en vigor un programa de capacitación para sus empleados. Con este fin le dará becas y otros auxilios pecuniarios, para asistir a cursos, seminarios y eventos similares, dentro o fuera del país, todo conforme a sus posibilidades y necesidades, y al Reglamento que se dictará sobre la materia.

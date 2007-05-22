@@ -1,0 +1,1 @@
+Artículo 35.—Deber de colaboración. Las jefaturas superiores estarán obligadas a colaborar con la unidad de Recursos Humanos en la preparación y valoración de las pruebas y exámenes que han de rendir los aspirantes a un puesto.

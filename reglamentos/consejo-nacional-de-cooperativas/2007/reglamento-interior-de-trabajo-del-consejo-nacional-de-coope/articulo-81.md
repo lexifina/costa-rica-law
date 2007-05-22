@@ -1,0 +1,1 @@
+Artículo 81.—Integración de la Comisión de Carrera Profesional. El Secretario Ejecutivo integrará la Comisión de Carrera Profesional, en adelante la Comisión, así: el jefe de la Unidad de Recursos Humanos que presidirá y dos empleados profesionales escogidos por méritos. El nombramiento será por dos años pudiendo ser reelectos. La Comisión se dará su propia organización.

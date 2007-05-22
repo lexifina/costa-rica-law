@@ -1,0 +1,1 @@
+Artículo 23.—Goce de las vacaciones. El patrono señalará la época en que le trabajador gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplan las cincuenta de servicio continuo, tratando de que no se altere la buena marcha de la Institución, ni la efectividad del descanso.

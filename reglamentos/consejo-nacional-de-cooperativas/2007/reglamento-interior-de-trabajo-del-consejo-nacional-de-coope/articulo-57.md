@@ -1,0 +1,1 @@
+Artículo 57.—Obligación de justificación. Las ausencias por enfermedad deberán ser comprobadas, preferentemente, mediante dictamen médico emanado por la Caja Costarricense de Seguro Social, o por cualquier otro medio idóneo.

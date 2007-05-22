@@ -1,0 +1,4 @@
+Artículo 100.—Beneficio de la dedicación exclusiva. Operara en la institución el beneficio de la dedicación exclusiva, todo a criterio discrecional de ésta y según las necesidades del servicio institucional. A tales efectos se firmará un contrato entre el funcionario y la institución en el cual se establecerá con toda claridad la obligación del funcionario de abstenerse de ejercer su actividad profesional que sirve, para otros patronos o en forma liberal.
+El beneficio consistirá en un 40% del salario base para los funcionarios que posean el grado académico de bachiller y del 55% para aquellos que posean el de licenciatura u otro superior.
+El régimen jurídico aplicable a esta figura, y al cual se remiten las partes, será el establecido en la resolución de la Dirección General del Servicio Civil DG-070-94.
+La dedicación exclusiva es excluyente con la prohibición, de manera que no se podrán otorgar ambos beneficios en forma simultánea.
