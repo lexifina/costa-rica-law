@@ -1,0 +1,1 @@
+Artículo 64.—En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo si no media el pago de los gastos administrativos, honorarios e intereses a la fecha, necesarios para la regularización.

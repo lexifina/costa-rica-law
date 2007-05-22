@@ -1,0 +1,1 @@
+Artículo 22.—En el caso de que JUDESUR perciba líneas de financiamiento internacionales o fondos de fuentes externas, deberá someterse a las condiciones que establezcan dichos convenios y a los fines y objetivos establecidos en la Ley 7012 y este Reglamento.

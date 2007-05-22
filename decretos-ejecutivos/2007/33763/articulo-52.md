@@ -1,0 +1,1 @@
+Artículo 52.—Los abogados contarán con ocho días hábiles a partir de la fecha de recibido del expediente respectivo, para entregar a La Unidad de Administración de Cobro copia de la demanda debidamente interpuesta y recibida ante el Despacho Judicial competente, o en su defecto, justificar a satisfacción de JUDESUR si tiene imposibilidad de dirigir el proceso.

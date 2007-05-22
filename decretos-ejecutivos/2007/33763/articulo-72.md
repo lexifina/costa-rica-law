@@ -1,0 +1,1 @@
+Artículo 72.—La Junta estará facultada para cubrir anualmente los gastos de operación y funcionamiento del Departamento de Desarrollo de JUDESUR, con los recursos destinados por Ley para el Programa de Desarrollo, para lo cual destinará los recursos que sean necesarios con el propósito de lograr su óptimo funcionamiento.

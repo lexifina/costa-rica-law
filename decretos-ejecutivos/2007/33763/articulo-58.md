@@ -1,0 +1,1 @@
+Artículo 58.—Los abogados encargados de los cobros judiciales deberán mantener una comunicación constante con La Dirección Ejecutiva e informar sobre el desarrollo del proceso judicial, además de coordinar oportunamente con La Unidad Administrativa y La Dirección Ejecutiva, los remates y las diligencias de embargo.

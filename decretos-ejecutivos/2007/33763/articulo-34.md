@@ -1,0 +1,3 @@
+Artículo 34.—A juicio de La Junta y previo informe por parte del Departamento de Desarrollo se podrán conceder prórroga. Las prórrogas deberán ser solicitadas con 10 días de anticipación a la fecha del vencimiento de pago de la cuota respectiva.
+La Junta podrá conceder prórrogas para la amortización durante la vigencia del crédito, valorando la factibilidad económica del proyecto, su impacto social, e imprevistos que justifiquen el atraso en la ejecución del proyecto.
+En todo caso, para darle curso a una solicitud de prórroga, será condición mantener totalmente al día el pago de los intereses y amortización de la operación cuya prórroga se gestiona. Los casos de excepción estarán sujetos al criterio de La Junta.

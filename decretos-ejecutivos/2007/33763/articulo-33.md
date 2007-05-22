@@ -1,0 +1,1 @@
+Artículo 33.—En los casos que se compruebe incumplimiento por parte del beneficiario, del plan de inversión o de la utilización de los recursos, el ente ejecutor tendrá un plazo de 30 días hábiles a partir del aviso respectivo para subsanar o corregir las irregularidades.

@@ -1,0 +1,1 @@
+Artículo 70.—Los abogados designados no podrán suspender en forma definitiva el proceso judicial hasta tanto JUDESUR se lo manifieste por escrito, siendo responsabilidad del Departamento Administrativo Financiero llevar a cabo la comunicación formal.

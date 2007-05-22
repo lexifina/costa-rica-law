@@ -1,0 +1,7 @@
+CAPÍTULO XII
+De los financiamientos incobrables
+Artículo 67.—Se considerarán como financiamientos incobrables los siguientes casos:
+a. Cuando se haya dictado sentencia en el juicio de cobro respectivo y ninguno de los demandados tenga bienes muebles o inmuebles o salarios, sobre los cuales pueda recaer embargo que haga factible la recuperación del crédito, o cuando durante el proceso se determine por parte de los abogados de que no existen posibilidades de recuperación.
+b. Cuando se hayan rematado los bienes que garantizaban la obligación y se haga imposible recuperar un eventual saldo en descubierto, por no existir bienes que perseguir.
+c. Cuando por resolución judicial se declare prescrita una operación y sea imposible para JUDESUR la recuperación del saldo adeudado.
+La declaratoria de incobrable será facultad exclusiva de La Junta, quien analizará cada caso de acuerdo al informe fundamentado y por escrito del abogado interno o externo, donde expresamente se defina que se han presentado las circunstancias y hechos que justifican esta declaratoria de incobrable.

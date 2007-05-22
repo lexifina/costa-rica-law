@@ -1,0 +1,2 @@
+IV.—A partir de la publicación de este Reglamento, La Junta Directiva a través de la Dirección Ejecutiva de JUDESUR, podrá tomar las acciones necesarias con el fin de que se reestructure el Área de Desarrollo, de forma tal que pueda cumplir con sus objetivos y lo estipulado en el presente Reglamento.
+Dado en la Presidencia de la República.—San José, a los treinta días del mes de abril del año dos mil siete.

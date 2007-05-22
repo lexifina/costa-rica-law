@@ -1,0 +1,1 @@
+Artículo 73.—El presente reglamento podrá ser modificado, adicionado, o derogado por La Junta, mediante la aprobación de la mayoría calificada de sus miembros. Cualquier reforma tendrá validez y podrá aplicarse a partir de la fecha en la que el Poder Ejecutivo efectúe la publicación del decreto en el Diario Oficial La Gaceta.

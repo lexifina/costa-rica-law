@@ -1,0 +1,1 @@
+Artículo 51.—A los abogados externos se les comunicará su designación por escrito, remitiéndose, por parte de la Proveeduría, el acuerdo mediante el cual La Junta les adjudica el caso. Dentro de los diez días siguientes a la adjudicación, deberán presentarse a la asesoría legal interna para la firma del contrato respectivo.

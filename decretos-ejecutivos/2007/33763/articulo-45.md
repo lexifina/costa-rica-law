@@ -1,0 +1,1 @@
+Artículo 45.—Para la cancelación total del principal del arreglo de pago se utilizará el mismo procedimiento que para la cancelación total de la deuda con JUDESUR, descrito en el artículo 46 del presente reglamento.

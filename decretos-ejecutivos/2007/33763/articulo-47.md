@@ -1,0 +1,9 @@
+Artículo 47.—Los gastos de cobro administrativo deberán ser cubiertos por los beneficiarios que se encuentren atrasados a partir de la primera cuota. Los montos que se carguen serán establecidos por la administración de JUDESUR, dependiendo del tipo y cantidad de comunicaciones que se deba realizar para cada caso particular.
+La normativa de cobro será la siguiente:
+a. Para todas las operaciones reembolsables deberá remitirse mensualmente, a través de los medios más idóneos, el aviso de cobro administrativo, independientemente de que éstas estén al día o no.
+b. Para las operaciones contempladas en el inciso a) del artículo 40 de este reglamento, las gestiones deben iniciarse a partir del primer día de atraso y hasta un plazo máximo de treinta días naturales. En este caso se procederá de la siguiente forma:
+b.1. Se notificará al deudor en el domicilio estipulado en el contrato de financiamiento, por los medios señalados en la Ley de Notificaciones y Citaciones Judiciales. En todos los casos, será obligatorio efectuar la gestión de cobro administrativo de manera escrita y dejar constancia de ello en el expediente respectivo.
+b.2. Se generará un recibo equivalente al costo de los gastos incurridos, con cargo al deudor, por concepto de gastos administrativos.
+c. Transcurridos treinta días de atraso, la operación debe ser enviada a cobro judicial. Se exceptúa de lo anterior, los casos relacionados con las prórrogas y readecuación de créditos. La preparación de la documentación será parte del procedimiento de cobro administrativo.
+d. Para los casos contemplados en el inciso a) del artículo 40, la acción judicial se iniciará en forma inmediata.
+e. El funcionario que realice los arreglos de pago con los deudores o fiadores, tendrá la obligación de dejar constancia por escrito en el expediente, así como de incluirlo en el sistema de cómputo.

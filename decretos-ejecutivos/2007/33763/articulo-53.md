@@ -1,0 +1,1 @@
+Artículo 53.—Los abogados externos serán evaluados anualmente, por los encargados de cobro judicial y el Director Ejecutivo, con el fin de determinar la calidad de los servicios prestados. De esta evaluación, deberá enviarse un informe completo a La Junta Directiva para su conocimiento.

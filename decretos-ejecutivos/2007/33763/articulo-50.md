@@ -1,0 +1,1 @@
+Artículo 50.—Para el cobro judicial de los créditos La Junta podrá emplear los servicios de abogados externos. Esta designación se regirá de conformidad con la Ley de Contratación Administrativa y su reglamento.

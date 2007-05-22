@@ -1,0 +1,1 @@
+Artículo 57.—Es responsabilidad de los abogados brindar información y asesoría oportuna a La Junta con respecto a los procesos asignados bajo su dirección, sugerir alternativas que faciliten la recuperación judicial de los recursos, así como manifestar oportunamente por escrito si considera inconveniente o riesgosa cualquier situación relacionada con cada caso.
