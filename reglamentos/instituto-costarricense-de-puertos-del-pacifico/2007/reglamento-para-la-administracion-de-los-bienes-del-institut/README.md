@@ -14,3 +14,4 @@ Reglamento para la Administración de los Bienes del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-09 | la propia norma |
+| 2 | 2007-05-22 | Reglamento 3421 (2007-05-22) |
