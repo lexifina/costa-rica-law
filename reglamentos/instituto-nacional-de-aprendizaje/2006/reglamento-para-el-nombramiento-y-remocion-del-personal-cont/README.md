@@ -14,3 +14,4 @@ Reglamento para el nombramiento y remoción del personal contratado en plazas po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-23 | la propia norma |
+| 2 | 2007-05-22 | Reglamento 0 (2007-05-22) |
