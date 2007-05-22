@@ -1,0 +1,1 @@
+Artículo 7º—De la autorización para la emisión de cada tarjeta electrónica. El Secretario Ejecutivo es la persona que autoriza la emisión de tarjetas electrónicas para la compra de combustible, conforme el presente Reglamento.

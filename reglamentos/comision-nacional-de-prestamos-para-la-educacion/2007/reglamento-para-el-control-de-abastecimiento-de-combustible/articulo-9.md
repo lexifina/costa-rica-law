@@ -1,0 +1,2 @@
+Artículo 9º—De los Tarjetahabientes con permanencia temporal en la Empresa o que cesen en sus funciones. Cuando el funcionario dejare de laborar para CONAPE o finalice su período de suplencia o por cualquier otra causa que no requiera el uso de la tarjeta, devolverá dicha tarjeta a la Sección Administrativa con una nota de entrega para su respectiva custodia.
+La Jefatura de la Sección Administrativa deberá bloquear y eliminar dicha tarjeta en el sistema.
