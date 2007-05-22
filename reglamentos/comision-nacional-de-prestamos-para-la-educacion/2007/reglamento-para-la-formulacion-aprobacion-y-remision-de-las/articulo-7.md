@@ -1,0 +1,1 @@
+Artículo 7º—Cantidad anual de modificaciones presupuestarias. Se establece en total para los diferentes niveles de aprobación un máximo de diez modificaciones al año, para atender las necesidades institucionales.

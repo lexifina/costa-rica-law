@@ -1,0 +1,1 @@
+Artículo 11.—Periodicidad de aprobación y de información. El Secretario Ejecutivo deberá informar al Consejo Directivo respecto de las modificaciones aprobadas por éste, a más tardar en la segunda sesión del Consejo Directivo después de la fecha de aprobación.

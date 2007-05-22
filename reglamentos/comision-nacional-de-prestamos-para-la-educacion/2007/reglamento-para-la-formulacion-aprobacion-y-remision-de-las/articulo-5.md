@@ -1,0 +1,1 @@
+Artículo 5º—Registro de acuerdos. En todos los casos se deberá mantener un archivo y un expediente separado donde consten los acuerdos de modificación presupuestaria, accesible tanto a las instancias de control interno como a la Contraloría General de la República, para sus funciones de fiscalización posterior.

@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidad. Corresponde al Jerarca establecer los mecanismos y procedimientos formales que estime convenientes para que de previo al trámite interno de formulación y aprobación de las modificaciones presupuestarias, se establezcan con precisión, las disposiciones exigidas por la Contraloría General de la República, en el artículo 14 de la Resolución R-CO-67-2006.

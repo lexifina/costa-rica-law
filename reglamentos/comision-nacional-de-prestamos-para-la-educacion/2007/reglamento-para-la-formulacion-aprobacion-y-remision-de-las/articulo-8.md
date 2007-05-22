@@ -1,0 +1,1 @@
+Artículo 8º—Nivel de detalle requerido. Las modificaciones presupuestarias así como los presupuestos extraordinarios, mantendrán el nivel de detalle de los ingresos y egresos del presupuesto inicial y sus variaciones, aprobado por la Contraloría General de la República el cual es definido por ésta.

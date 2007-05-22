@@ -1,0 +1,13 @@
+Artículo 14.—Requisitos. La formulación, aprobación presupuestaria interna y remisión de los proyectos de presupuesto extraordinario considerarán al menos los siguientes aspectos:
+a. Se cumpla con la aplicación del bloque de legalidad vigente.
+b. Se formule atendiendo el nivel de detalle establecido en los clasificadores de ingresos y por objeto de gasto del Sector Público vigentes y de conformidad con la normativa aprobada por la Contraloría General de la República al respecto.
+c. Se apruebe por el Consejo Directivo, al mismo nivel de detalle con que fue formulado.
+d. Se remitan a la Contraloría General de la República, a más tardar cinco días hábiles después de la fecha de aprobación por parte del
+Consejo Directivo
+e. Se remita a la Contraloría General en original y una copia, para el trámite de aprobación presupuestaria externa, según el detalle definido en el clasificador de ingresos vigente. Por su parte, lo correspondiente a la sección de egresos se presentará en el nivel de partida de los programas presupuestarios y del resumen institucional.
+f. Se acompañe el documento presupuestario, como mínimo, de las justificaciones de los movimientos propuestos, de su incidencia en el cumplimiento de los objetivos y metas del plan anual operativo y de un detalle de origen y aplicación de los recursos.
+g. Se firme el oficio de aprobación del documento por el Secretario Ejecutivo de la Institución, indicando el número de sesión, la fecha en que fue aprobada por el Consejo Directivo y adjuntar copia del acuerdo respectivo. La Secretaría Ejecutiva dispondrá de dos días hábiles para trasladar a la Sección de Programación y Evaluación el acuerdo correspondiente.
+h. La Sección de Programación y Evaluación, una vez recibido el oficio de aprobación correspondiente, dispondrá de dos días hábiles para ingresar al Sistema de Información sobre Presupuestos Públicos (SIPP) de la Contraloría General de la República.
+i. Se presenten anualmente a la Contraloría General un máximo de tres presupuestos extraordinarios, salvo casos excepcionales debidamente justificados y previamente autorizados por parte de la instancia competente de ese órgano contralor
+j. Se presenten ante la Contraloría General de la República los proyectos de presupuesto extraordinario en el período comprendido entre el 1º de enero y el último día hábil del mes de setiembre. En este último mes solo podrá presentarse un documento, salvo casos excepcionales.
+k. Se solicite a la Contraloría General de la República autorización para la presentación de documentos adicionales o en fechas posteriores a los establecidos, en casos excepcionales debidamente justificados.

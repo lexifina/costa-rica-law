@@ -1,0 +1,1 @@
+Artículo 19.—Aprobación y vigencia. Este Reglamento fue aprobado por el Consejo Directivo de CONAPE en la sesión Nº 16-4-2007 celebrada el 24 de abril de 2007 y rige a partir de la publicación en La Gaceta.
