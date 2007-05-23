@@ -2,6 +2,7 @@
 Nº 32825
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+(Este Decreto Ejecutivo fue ANULADO mediante resolución de la Sala Constitucional N° 7137-07 del 23 de mayo de 2007, aclarada por resolución N° 13161-2007 del 12 de setiembre del 2007.)
 En ejercicio de las facultades que les confieren los incisos 1), 3) y 18) de los artículos 140 y 146 de la Constitución Política; el artículo 27 Ley General de la Administración Pública, Nº 6227 de 2 de mayo de 1978, la Ley de Creación del Servicio de Parques Nacionales, Ley Nº 6084, publicada en La Gaceta Nº 169 del 7 de setiembre de 1977; la Ley de Conservación de la Vida Silvestre, Ley Nº 7317 publicada en La Gaceta Nº 235 del 7 de diciembre de 1992; la Ley Orgánica del Ambiente, Ley Nº 7554, publicada en La Gaceta Nº 215 del 13 de noviembre de 1995; la Ley Forestal, Ley Nº 7575, publicada en La Gaceta Nº 72 del 16 de abril de 1996; la Ley de Biodiversidad, Ley Nº 7788, publicada en La Gaceta Nº 101, del 27 de mayo de 1998, y
 Considerando:
 1º—Que el artículo 50 de la Constitución Política establece que el Estado debe preservar y garantizar el derecho de los habitantes del país a gozar de un ambiente sano y ecológicamente equilibrado, ya que la acción garantizadora que debe llevar adelante el Estado implica velar por la existencia de condiciones que permitan el surgimiento de espacios ambientalmente puros, obligación que ha sido reiterada por la jurisprudencia de la Sala Constitucional.

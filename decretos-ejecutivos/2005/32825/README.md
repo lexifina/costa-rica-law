@@ -14,3 +14,4 @@ Las personas contratadas por organizaciones conservacionistas para que laboren e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-15 | la propia norma |
+| 2 | 2007-05-23 | SINALEVI (sin norma nombrada) |
