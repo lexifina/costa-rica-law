@@ -14,3 +14,4 @@ Reforma Crea Programa Nacional de Apoyo a la Micro y Pequeña Empresa " PRONAMYP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-05 | la propia norma |
+| 2 | 2007-05-23 | Decreto Ejecutivo 33848 (2007-05-23) |
