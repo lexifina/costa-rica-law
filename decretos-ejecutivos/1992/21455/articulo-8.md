@@ -1,3 +1,3 @@
-Artículo 8º—La población beneficiaria del programa serán las personas costarricenses, de escasos recursos económicos, con emprendimientos productivos; o micro empresas de baja productividad.
+Artículo 8°—La población beneficiaria del programa serán las personas costarricenses o extranjeros en condiciones regularizadas, de escasos recursos económicos, con emprendimientos productivos; o micro empresas de baja productividad.
 Se entienden por micro empresas de baja productividad, las de subsistencia, de acumulación simple y acumulación ampliada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33057 del 26 de abril de 2006)
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 33848 del 23 de mayo de 2007).

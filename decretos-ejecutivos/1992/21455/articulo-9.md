@@ -1,3 +1,3 @@
-Artículo 9º—El Programa Nacional de Apoyo a la Micro Empresa se financiará, complementariamente, con recursos del Fondo de Desarrollo Social y Asignaciones Familiares, los cuales, en ningún caso, podrán ser utilizados para asumir gastos administrativos. Estos recursos deberán ser dirigidos, estrictamente, a la población beneficiaria del programa.
+Artículo 9°—El Programa Nacional de Apoyo a la Micro Empresa se financiará, complementariamente, con recursos del Fondo de Desarrollo Social y Asignaciones Familiares, los cuales, en ningún caso, podrán ser utilizados para asumir gastos administrativos. Los recursos provenientes del FODESAF deberán ser dirigidos, estrictamente, a la población beneficiaria del programa de acuerdo con lo establecido en el Artículo 2° de la Ley de Desarrollo Social y Asignaciones Familiares N° 5662.
 Sin embargo, el programa podrá recibir recursos de cualquier otra fuente, sea pública o privada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33057 del 26 de abril de 2006)
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 33848 del 23 de mayo de 2007).
