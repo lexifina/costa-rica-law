@@ -1,3 +1,5 @@
+(Derogado)
+(Este reglamento fue derogado mediante sesión N° 545 del 24 de mayo del 2007)
 INSTITUTO COSTARRICENSE
 DEL DEPORTE Y LA RECREACIÓN
 PROGRAMA DE JUEGOS DEPORTIVOS NACIONALES

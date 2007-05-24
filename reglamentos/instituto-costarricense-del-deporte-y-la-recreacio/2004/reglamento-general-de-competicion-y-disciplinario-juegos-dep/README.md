@@ -14,3 +14,4 @@ Reglamento General de Competición y Disciplinario Juegos Deportivos Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-03 | la propia norma |
+| 2 | 2007-05-24 | Reglamento 545 (2007-05-24) |
