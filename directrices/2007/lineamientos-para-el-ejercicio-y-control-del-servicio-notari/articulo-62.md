@@ -1,0 +1,1 @@
+Artículo 62.—Corrección de errores. Se podrán corregir escrituras mediante razón notarial sin necesidad de la firma de las partes cuando se trate de correcciones comprobables por medio del archivo de referencia o cualquier otra fuente objetiva y no constituyan variación de las voluntades consentidas.

@@ -1,0 +1,1 @@
+Artículo 160.—Ejecución de sentencia. Tratándose del depósito del protocolo por efectos del artículo 55 del CN respecto de la cesación del ejercicio, y con base en el voto 7053-04 de la Sala Constitucional que admite que el proceso de inhabilitación constituye la formación de un acto sancionatorio, esta medida cautelar se convierte en una ejecución de sentencia.

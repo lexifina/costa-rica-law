@@ -1,0 +1,1 @@
+Artículo 37.—Fondo de garantía. La actividad del notario consular, salvo disposición expresa en contrario, exige el cumplimiento de todos los requisitos esenciales para el ejercicio del notariado, dentro de los cuales se encuentra el pago al Fondo de Garantía, cuya obligación constituye un requisito esencial y su incumplimiento deviene en inhabilitación.

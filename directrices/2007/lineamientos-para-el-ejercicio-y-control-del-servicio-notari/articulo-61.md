@@ -1,0 +1,1 @@
+Artículo 61.—Forma de documentos. Deberá observarse especialmente la forma, esto es, de manera continua, sin dejar espacios en blanco ni introducir tachaduras, raspaduras, entrerrenglonaduras, borrones, enmiendas ni otras correcciones. Los errores o las omisiones deben salvarse por medio de nota al final, antes de la firma del notario.

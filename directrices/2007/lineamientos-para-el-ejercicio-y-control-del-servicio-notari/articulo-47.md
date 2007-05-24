@@ -1,0 +1,1 @@
+Artículo 47.—Presentación de índices. En lo relativo a la presentación de índices, el notario consular deberá ajustarse a las disposiciones contenidas en el CN, así como a los acuerdos que sobre el particular tome la Junta Administrativa del Archivo Nacional.

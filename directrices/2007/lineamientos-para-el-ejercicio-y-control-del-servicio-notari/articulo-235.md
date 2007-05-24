@@ -1,0 +1,1 @@
+Artículo 235.—Pluralidad de responsabilidades. Cuando la sentencia encuentre responsables del hecho generador de la obligación indemnizatoria, a dos o más notarios y no estableciere un porcentaje de responsabilidades para el pago de la indemnización, la DNN dividirá éste a prorrata entre los notarios vinculados, aplicando posteriormente lo establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 92.—Cambio del lugar de la notaría. Si durante el curso del proceso el notario trasladare su notaría o domicilio notarial, dictará una resolución en que dará cuenta de ese acontecimiento a las partes. Lo anterior sin perjuicio de lo dispuesto por el art. 143 inciso h) del CN.

@@ -1,0 +1,1 @@
+Artículo 64.—Testigos de conocimiento. Los testigos participantes en la celebración de matrimonio que se realizan ante notario público, deben tener conocimiento pleno de la aptitud legal y libertad de estado de los contrayentes lo cual debe consignarse en el instrumento.

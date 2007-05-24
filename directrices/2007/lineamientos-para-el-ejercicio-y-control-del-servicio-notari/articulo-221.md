@@ -1,0 +1,1 @@
+Artículo 221.—Fondo de reserva. Es un fondo independiente al FG conformado con la primera cuota del notario activo y los rendimientos que éste genere, con el objeto de tener en él inversiones a la vista.

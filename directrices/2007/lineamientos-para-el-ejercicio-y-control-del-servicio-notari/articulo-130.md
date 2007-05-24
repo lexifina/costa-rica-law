@@ -1,0 +1,1 @@
+Artículo 130.—Concepto de reposición de tomo o folios de protocolo. La reposición de tomo o folios de protocolo consiste en un medio de seguridad notarial cuando por extravío, destrucción, inutilización, deterioro total o parcial, la DNN a requerimiento y bajo la responsabilidad del notario, repone folios no utilizados o reproducciones de instrumentos autorizados.

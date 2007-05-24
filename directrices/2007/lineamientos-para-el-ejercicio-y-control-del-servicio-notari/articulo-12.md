@@ -1,0 +1,1 @@
+Artículo 12.—Actualización. La constancia en la actualización de las nuevas doctrinas, legislación y los diversos cambios que afectan el ejercicio del notariado es una necesidad intrínseca a la actividad notarial.

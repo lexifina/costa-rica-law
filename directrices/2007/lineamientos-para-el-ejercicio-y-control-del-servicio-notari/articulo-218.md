@@ -1,0 +1,1 @@
+Artículo 218.—Cuota obligatoria. Es la suma mensual que cancela todo notario activo, cuyo pago constituye requisito esencial para ser notario y ejercer como tal; establecida por la DNN de conformidad con las normas vigentes.

@@ -1,0 +1,1 @@
+Artículo 71.—Certificación de medios electrónicos. Cuando lo certificado es extraído de una base informática, el notario está obligado a conservar una impresión de la información obtenida en su archivo de referencias, indicando el nombre del solicitante, la fuente, fecha y hora de la consulta.

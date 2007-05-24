@@ -1,0 +1,1 @@
+Artículo 13.—Abstención. La suspensión del ejercicio del notariado por aplicación del régimen disciplinario de la Dirección Nacional de Notariado3, Tribunales Notariales, o cuando sobrevenga inhabilitación legal, obliga a la abstención de servicio.

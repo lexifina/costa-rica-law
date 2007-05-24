@@ -1,0 +1,1 @@
+Artículo 203.—Sellos blancos. En razón de la materia de que se trata, estos asientos también están constituidos por un archivo físico que custodia el archivo de la DNN, y en éste se consigna la fecha del cumplimiento de ese requisito por parte del notario.

@@ -1,0 +1,1 @@
+Artículo 5º—Asesoramiento y secreto profesional. Dar un asesoramiento cuyo contenido esté definido por las normas que rigen la materia y los principios de transparencia, probidad y lealtad al usuario. El servicio debe ser seguro y eficaz, tanto respecto del documento como de su legitimidad, todo lo cual está sujeto al secreto profesional.

@@ -1,0 +1,1 @@
+Artículo 220.—Fondo de garantía obligatorio. Se denomina obligatorio por cuanto es un requisito indispensable para ejercer el notariado. Las cotizaciones constituirán una garantía por los daños y perjuicios que los notarios puedan ocasionar.

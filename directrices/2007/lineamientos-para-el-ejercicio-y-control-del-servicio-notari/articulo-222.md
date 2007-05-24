@@ -1,0 +1,1 @@
+Artículo 222.—Hecho generador de la obligación indemnizatoria. Es la conducta dolosa, culposa u omisiva que origina los daños y perjuicios dentro de la actividad notarial, acreditada en el proceso respectivo.

@@ -1,0 +1,1 @@
+Artículo 24.—Notario contratado a plazo fijo. El servicio de notario que es contratado a plazo fijo por el Estado para brindarlo por medio de honorarios, sin mediar salario alguno. Tiene como prohibición ejercerlo en más de tres instituciones públicas (notario externo).

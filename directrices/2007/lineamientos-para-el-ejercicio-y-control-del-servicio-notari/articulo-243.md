@@ -1,0 +1,1 @@
+Artículo 243.—Vencimiento del plazo para formular oposiciones o reclamos. Publicado el edicto y vencido el plazo concedido sin que se formularen oposiciones o reclamos, se continuará con el trámite de devolución aquí dispuesto.

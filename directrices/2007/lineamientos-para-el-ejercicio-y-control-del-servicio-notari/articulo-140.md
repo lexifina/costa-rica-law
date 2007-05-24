@@ -1,0 +1,1 @@
+Artículo 140.—Notarios a fiscalizar. La resolución que ordene el control del ejercicio del notariado a que hace referencia el artículo anterior, deberá indicar si se trata de notarios con oficina abierta al público o notarios institucionales.

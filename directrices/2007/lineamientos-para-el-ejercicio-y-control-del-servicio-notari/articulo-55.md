@@ -1,0 +1,1 @@
+Artículo 55.—Requisitos del conotario. La solidaridad profesional obliga a los notarios copartícipes en este tipo de actuación protocolar, de conformidad con la ley, a encontrarse al día en el cumplimiento de los requisitos establecidos para ejercer como tal.

@@ -1,0 +1,1 @@
+Artículo 238.—Reintegro de cotizaciones y rehabilitación. El notario que cese voluntariamente o sea inhabilitado en el ejercicio del notariado y retire los aportes realizados al FG, si quisiera ser autorizado nuevamente, deberá reintegrar el monto que le fuera devuelto y si existieren, los saldos en descubierto.

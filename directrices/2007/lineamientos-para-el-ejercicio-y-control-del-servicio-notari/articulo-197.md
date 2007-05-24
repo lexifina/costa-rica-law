@@ -1,0 +1,1 @@
+Artículo 197.—Reposición de credencial. El notario deberá reportar la pérdida, extravío, sustracción o deterioro de su credencial. Su reposición se efectuará a requerimiento del fedatario y bajo su responsabilidad.

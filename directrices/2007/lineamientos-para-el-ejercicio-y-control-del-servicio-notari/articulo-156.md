@@ -1,0 +1,1 @@
+Artículo 156.—Entrega de protocolo. La entrega del tomo protocolo con la razón respectiva se hará en forma personal, para que, en presencia del funcionario respectivo, el notario proceda a suscribir dicha razón. Lo anterior una vez que se haya realizado el asiento de autorización del tomo en el RNN.

@@ -1,0 +1,1 @@
+Artículo 234.—Cobertura de daños y perjuicios. La cobertura por daños y perjuicios, alcanzará hasta un máximo de doscientos salarios base, de acuerdo con el límite que la DNN defina y según las posibilidades económicas del FG, y con respecto a las sumas que haya definido el estudio actuarial.

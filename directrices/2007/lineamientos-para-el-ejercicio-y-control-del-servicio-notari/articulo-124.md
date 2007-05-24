@@ -1,0 +1,1 @@
+Artículo 124.—Firma y sello blanco. El sello debe contener el nombre completo y apellidos sin abreviaturas, número de carné del Colegio de Abogados, la frase “notario público” y al igual que la firma, estar registrados ante la DNN y las demás instituciones públicas que así lo requieran.

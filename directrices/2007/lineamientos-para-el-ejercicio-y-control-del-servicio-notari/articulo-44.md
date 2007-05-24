@@ -1,0 +1,1 @@
+Artículo 44.—Razón de apertura. La razón de apertura consignará el nombre del notario consular, la circunscripción territorial en que ejerce y el nombre y cargo del funcionario debidamente autorizado que hace retiro del tomo, en caso de que el protocolo no sea retirado personalmente, además, aquellas circunstancias que por su naturaleza sean pertinentes.

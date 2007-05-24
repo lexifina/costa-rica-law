@@ -1,0 +1,1 @@
+Artículo 139.—Fiscalización. La fiscalización en despachos notariales inicia con una resolución de la DNN en la que se notifica el acto de control. Tal resolución contiene fecha y lugar donde se realizará la fiscalización, la cual, una vez cumplida, quedará consignada en un acta y se registrará mediante informe en un asiento del RNN.

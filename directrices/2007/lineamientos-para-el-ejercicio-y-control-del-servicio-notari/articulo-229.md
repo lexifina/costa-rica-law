@@ -1,0 +1,1 @@
+Artículo 229.—Fecha límite de corte. La Operadora realizará corte de los pagos percibidos el día veinticinco de cada mes, tomando en cuenta que si este día o fracción de éste, queda en un día inhábil, se trasladará al inmediato día hábil siguiente.

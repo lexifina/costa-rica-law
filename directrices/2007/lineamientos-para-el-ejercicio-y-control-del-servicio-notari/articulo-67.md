@@ -1,0 +1,1 @@
+Artículo 67.—Potestad certificadora. Parte de la actividad del Estado depositada en el notario autorizado para que, bajo su responsabilidad, extienda certificaciones relativas tanto a inscripciones, expedientes, resoluciones y actos públicos como a documentos o piezas privadas que produzcan efectos públicos.

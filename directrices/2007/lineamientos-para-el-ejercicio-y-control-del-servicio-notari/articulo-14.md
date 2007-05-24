@@ -1,0 +1,1 @@
+Artículo 14.—Publicidad. Todo usuario, tercero o interesado, puede conocer la información respecto del ejercicio del notariado. El Estado, por medio de la DNN, asegura al usuario, tercero y a la misma fe pública, la certeza de la información sobre la actividad notarial a nivel físico, informático o cualquier otra forma accesible.

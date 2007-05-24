@@ -1,0 +1,1 @@
+Artículo 219.—Cuota voluntaria. Es la cuota pagada en forma voluntaria por el notario inactivo. Esta cuota será - como mínimo - de igual cuantía que la fijada para el FG obligatorio, para el período respectivo.

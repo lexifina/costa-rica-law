@@ -1,0 +1,1 @@
+Artículo 223.—Operadora. Es la operadora de planes de pensiones complementarios, establecida conforme la legislación costarricense, que resulte designada por la DNN para realizar la labor de gestión en la administración del FG.

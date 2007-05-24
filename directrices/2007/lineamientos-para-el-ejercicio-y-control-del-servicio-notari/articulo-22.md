@@ -1,0 +1,1 @@
+Artículo 22.—Notario en régimen de empleo público: notario institucional. Servicio al Estado bajo una remuneración salarial, con dedicación exclusiva y sujeto al régimen de empleo público. Tiene como prohibiciones brindar el servicio privado y el cobro de honorarios al Estado por la prestación de estos servicios. Llamado también notario de planta, con salario o retribución fija.

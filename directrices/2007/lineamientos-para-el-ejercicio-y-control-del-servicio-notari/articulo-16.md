@@ -1,0 +1,1 @@
+Artículo 16.—Condiciones. Se ejerce dentro o fuera del país respecto de actos que tengan efectos en Costa Rica, protocolar o extraprotocolarmente, siempre y cuando el notario no haya salido del país por más de tres meses en actos protocolares y seis meses en actos extraprotocolares.

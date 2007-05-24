@@ -1,0 +1,1 @@
+Artículo 27.—Disposiciones institucionales. El notario institucional, aparte de estar sujeto al ordenamiento jurídico en general, debe cumplir con las disposiciones excepcionales en materia de control interno que establece la Entidad para la cual labora y brindar la asesoría especializada que le solicite su empleador.

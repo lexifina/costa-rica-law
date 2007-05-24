@@ -1,0 +1,1 @@
+Artículo 10.—Actividad no contenciosa. Actuar conforme a los valores propios de la actividad jurisdiccional, dado que las actuaciones notariales respecto de la actividad judicial no contenciosa, tendrán igual valor que las practicadas por los funcionarios judiciales competentes.

@@ -1,0 +1,1 @@
+Artículo 170.—Objetivo. Procura la registración de toda aquella información en materia notarial propia del control y eficacia del ejercicio del notariado, así como aquella que constituye materia de interés histórico y organizacional respecto de la actividad.

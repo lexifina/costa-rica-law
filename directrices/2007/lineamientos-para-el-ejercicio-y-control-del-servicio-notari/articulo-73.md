@@ -1,0 +1,1 @@
+Artículo 73.—Control de certificaciones. El notario deberá asignar un consecutivo a toda certificación que expida. Además deberá llevar un registro con el número de certificación, nombre del solicitante y el número del pliego de papel de seguridad que utilizó, salvo si certifica en la copia misma, sin perjuicio de las copias que se deben incorporar al archivo de referencia.

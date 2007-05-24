@@ -1,0 +1,1 @@
+Artículo 2º—Conciencia de función e implicaciones. Tener conciencia de la función pública y de las implicaciones inherentes a los requisitos, condiciones, deberes, impedimentos y responsabilidades del notario.

@@ -1,0 +1,1 @@
+Artículo 152.—Intervención de la DNN en los juicios. Representa en la actividad notarial, la intervención que por ley ejerce la DNN en los procesos que tramitan los tribunales jurisdiccionales en contra de los notarios.

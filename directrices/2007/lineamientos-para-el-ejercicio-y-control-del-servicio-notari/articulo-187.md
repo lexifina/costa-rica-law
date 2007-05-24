@@ -1,0 +1,1 @@
+Artículo 187.—Mecanismos de seguridad. Toda gestión de parte del notario que produzca efectos registrales, deberá ser presentada en documento original debidamente firmado y sellado por el notario. No se aceptará fax ni correo electrónico.

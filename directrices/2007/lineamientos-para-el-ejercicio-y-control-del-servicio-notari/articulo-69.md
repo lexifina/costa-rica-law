@@ -1,0 +1,1 @@
+Artículo 69.—Congruencia documental. La certificación de documentos - públicos o privados - debe realizarse a partir del documento original tenido a la vista, a efecto de transcribir, reproducir o expedir documentos notariales que guarden congruencia con los documentos originales.

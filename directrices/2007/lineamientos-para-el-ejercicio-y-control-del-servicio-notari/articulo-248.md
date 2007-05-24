@@ -1,0 +1,1 @@
+Artículo 248.—Iniciación. Una vez comprobado el interés legítimo del promoverte y aportada la ejecutoria, la DNN procederá a ordenar a la operadora el pago de acuerdo con las capacidades económicas del fondo y las disposiciones vigentes.
