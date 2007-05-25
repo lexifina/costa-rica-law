@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria la CNFL, previa autorización de la Oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las áreas que así se requieran.

@@ -1,0 +1,1 @@
+Artículo 4º—Las distintas instancias del MINAE, del Estado y Gobiernos locales tramitarán, con criterio de prioridad, los otros trámites y autorizaciones que gestione la CNFL en concurso con sus contratistas, para el adecuado desarrollo del Proyecto Hidroeléctrico Balsa Superior.
