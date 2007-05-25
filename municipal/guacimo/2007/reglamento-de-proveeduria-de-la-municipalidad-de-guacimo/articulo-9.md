@@ -1,0 +1,1 @@
+Artículo 9º—Si para una contratación directa, de las referidas en el artículo 136 del Reglamento General de la Contratación Administrativa, el Departamento de Proveeduría no dispone de oferentes idóneos en su registro de proveedores, podrá invitar a otros que no lo estén, considerando únicamente las ofertas de proveedores a los que se haya cursado invitación.

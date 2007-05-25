@@ -1,0 +1,1 @@
+Artículo 18.—Por Licitación Pública: Corresponderá al Departamento de Proveeduría, en coordinación con la asesoría jurídica institucional, verificar los trámites correspondientes a este tipo de contratación, de acuerdo a lo establecido en el artículo 42 de la Ley de Contratación Administrativa.
