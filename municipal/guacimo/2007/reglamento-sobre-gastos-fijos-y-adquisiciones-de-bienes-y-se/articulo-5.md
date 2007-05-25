@@ -1,0 +1,1 @@
+Artículo 5º—Se autoriza al Alcalde Municipal para realizar comprar o adquisiciones de bienes y servicios, así como suscribir gastos fijos y convenios en los cuales la Municipalidad de Guácimo actúe como parte, hasta por la suma de ¢2.100.000,00 (dos millones cien mil colones exactos).

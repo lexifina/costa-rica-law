@@ -1,0 +1,1 @@
+Artículo 6º—Semestralmente rendirá el Alcalde un informe al Concejo Municipal, el cual contendrá los egresos que hubiese autorizado, lo anterior de conformidad con el artículo 17 inciso f, del Código Municipal.
