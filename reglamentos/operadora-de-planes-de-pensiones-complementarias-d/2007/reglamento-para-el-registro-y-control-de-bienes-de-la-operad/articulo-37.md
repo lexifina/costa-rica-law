@@ -1,0 +1,1 @@
+Artículo 37.—Aplicación supletoria. Cualquier disposición no contemplada en el presente Reglamento se integrará de forma supletoria con todas aquellas normas de rango legal o reglamentario vigente que regulen la materia objeto de la presente reglamentación.

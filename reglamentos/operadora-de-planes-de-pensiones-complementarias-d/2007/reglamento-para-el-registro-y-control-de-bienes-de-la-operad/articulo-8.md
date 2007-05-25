@@ -1,0 +1,2 @@
+Artículo 8º—Inventario. Los colaboradores designados como Jefes de Departamento o Sección, al tomar posesión de sus cargos, exigirán a su antecesor y a falta de éste al superior inmediato, el inventario y entrega de los bienes que queden a su cargo.
+Si el inventario y la entrega fuesen correctos, se hará constar así, de lo contrario el colaborador entrante hará las observaciones que sean del caso en cuanto a faltantes o estado de los bienes y en ambos casos firmará con quién le hubiese hecho la entrega.

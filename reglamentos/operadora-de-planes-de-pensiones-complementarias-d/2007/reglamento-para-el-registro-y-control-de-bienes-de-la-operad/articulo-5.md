@@ -1,0 +1,2 @@
+Artículo 5º—Formularios. El Sistema Informático de Registro y Control de Bienes contará con los formularios correspondientes para tramitar la asignación, reasignación, préstamo, concesión, alta y baja de bienes.
+Las Jefaturas respectivas deberán realizar los trámites de adquisición, asignación, reasignación, préstamo, concesión, alta y baja de bienes en los formularios correspondientes, no pudiendo realizar ninguno de estos trámites sin la autorización de la Jefatura respectiva y en el formulario correspondiente.

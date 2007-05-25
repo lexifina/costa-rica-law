@@ -1,0 +1,1 @@
+Artículo 23.—Aprovechamiento de parte servibles. Cuando se dan de baja bienes o activos inservibles, de los cuales puedan utilizarse parte de ellos, se hará una relación de aquellas partes aprovechables que servirá para su registro físico y contable.

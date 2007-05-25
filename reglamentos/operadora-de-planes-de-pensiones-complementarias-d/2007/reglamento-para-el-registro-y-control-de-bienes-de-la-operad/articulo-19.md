@@ -1,0 +1,4 @@
+Artículo 19.—Baja de bienes por hurto o robo. Para dar de baja bienes de la Operadora cuya pérdida se haya acreditado por hurto o robo, sin culpa grave o dolo imputable al responsable de los bienes, además de las obligaciones estipuladas en el artículo 16 y 17 de este Reglamento, se deberá cumplir con los siguientes requisitos:
+a) Elaborar un acta detallando la relación de los hechos. En dicha elaboración deberán intervenir el colaborador responsable de la administración del bien desaparecido, el jefe de la respectiva Sección o Departamento y la Jefatura del Departamento de Administración y Finanzas.
+b) El Gerente General o el delegado al efecto, una vez que cuente con el acta antes señalada, así como con el material probatorio correspondiente, dictará la resolución final autorizando la baja de los bienes.
+c) El Jefe del Departamento de Administración y Finanzas dará aviso de lo ocurrido a la Gerencia General; comunicando la baja de los bienes.
