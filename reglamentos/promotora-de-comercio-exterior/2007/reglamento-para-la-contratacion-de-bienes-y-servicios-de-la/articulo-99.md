@@ -1,0 +1,1 @@
+Artículo 99.—Adjudicación. La adjudicación de la Licitación Privada será realizada por la Comisión Administrativa en un plazo máximo de diez días hábiles, prorrogable por un plazo igual en casos debidamente justificados, contados a partir del día de la apertura de ofertas.

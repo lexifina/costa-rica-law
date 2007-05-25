@@ -1,0 +1,1 @@
+Artículo 109.—Adjudicación. El acto de adjudicación, deberá dictarse en un plazo máximo de cinco días hábiles, prorrogable por un plazo igual en casos debidamente justificados, contados a partir del día de la apertura de ofertas y de inmediato será comunicado a los participantes.

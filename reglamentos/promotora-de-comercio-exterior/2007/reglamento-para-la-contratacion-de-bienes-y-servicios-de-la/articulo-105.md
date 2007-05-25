@@ -1,0 +1,1 @@
+Artículo 105.—Adjudicación. La adjudicación de las Contrataciones Generales será realizada por la Comisión Administrativa, en un plazo de diez días hábiles, prorrogable por un plazo igual en casos debidamente justificados, contados a partir del día de la apertura de ofertas.

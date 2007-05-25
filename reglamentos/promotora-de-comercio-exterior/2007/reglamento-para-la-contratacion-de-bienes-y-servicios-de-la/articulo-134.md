@@ -1,0 +1,1 @@
+Artículo 134.—Acumulación de recursos. Cuando ante la Administración se presenten recursos de revocatoria sobre las mismas líneas impugnadas en un recurso de apelación, se procederá a acumular los recursos en el auto inicial, el cual deberá ser notificado a todos los recurrentes.

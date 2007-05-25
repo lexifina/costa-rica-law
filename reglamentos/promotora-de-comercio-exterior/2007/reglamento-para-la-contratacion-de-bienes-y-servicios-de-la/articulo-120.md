@@ -1,0 +1,1 @@
+Artículo 120.—Vicios de nulidad no alegados en el expediente. Cuando en el conocimiento de un recurso PROCOMER considere que se encuentra en presencia de un vicio causante de nulidad absoluta no alegado en el expediente lo pondrá en conocimiento de las partes por un plazo de entre tres a cinco días hábiles para que manifiesten su posición al respecto.

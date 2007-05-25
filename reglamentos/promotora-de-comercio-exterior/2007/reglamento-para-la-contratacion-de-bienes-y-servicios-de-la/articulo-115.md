@@ -1,0 +1,3 @@
+Artículo 115.—Del responsable del procedimiento. La Gerencia o Dirección responsable de la contratación deberá:
+1. Verificar que la contratación se realice con estricto apego a lo establecido en el presente reglamento, el cartel o pliego de condiciones y la oferta presentada. Lo anterior, sin perjuicio del control que al efecto realice la Gerencia Administrativa Financiera de previo a realizar el pago.
+2. Efectuar los actos de verificación necesarios para establecer que PROCOMER reciba los bienes, obras o servicios dentro de las condiciones de calidad, plazo y demás condiciones establecidas en el correspondiente proceso de contratación.

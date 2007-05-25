@@ -1,0 +1,1 @@
+Artículo 131.—Trámite de admisibilidad. Dentro de los diez días hábiles siguientes al vencimiento del plazo para apelar, PROCOMER deberá analizar la admisibilidad y procedencia general del recurso, procurando detectar en esta etapa las gestiones inadmisibles o manifiestamente improcedentes, para proceder a su rechazo inmediato.

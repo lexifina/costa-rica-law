@@ -1,0 +1,1 @@
+Artículo 144.—Formalización en escritura pública. Sólo requerirá formalización en escritura pública las contrataciones administrativas que por su naturaleza requieran de dicho documento y deban inscribirse en el Registro Nacional, así como las que por ley tengan que sujetarse a ese requisito.

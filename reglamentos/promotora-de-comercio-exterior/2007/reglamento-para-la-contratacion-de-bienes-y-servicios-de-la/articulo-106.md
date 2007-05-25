@@ -1,0 +1,3 @@
+SECCIÓN CUARTA
+La Contratación Directa de Escasa Cuantía
+Artículo 106.—Montos de la contratación directa de escasa cuantía. Se podrá utilizar el procedimiento de contratación directa de escasa cuantía en aquellas contrataciones inferiores a ¢10.000.000. En este caso, cuando el monto de la contratación supere los dos mil dólares de los Estados Unidos de América o se trate de la compra de boletos aéreos a agencia de viajes, sin importar su monto, se debe solicitar la cotización de al menos tres proveedores del bien o servicio a contratar. La Administración considerará únicamente las ofertas de proveedores a los que haya cursado invitación.

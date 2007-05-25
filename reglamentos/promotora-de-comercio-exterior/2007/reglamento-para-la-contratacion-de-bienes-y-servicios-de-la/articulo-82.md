@@ -1,0 +1,1 @@
+Artículo 82.—Revocación del acto no firme. Tomado el acuerdo de adjudicación o el que declara desierto o infructuoso el concurso, éste puede ser revocado por PROCOMER por razones de oportunidad o legalidad, mediante resolución debidamente razonada; dicha revocación solo procederá, en tanto el acuerdo se tome antes de que el acto adquiera firmeza.
