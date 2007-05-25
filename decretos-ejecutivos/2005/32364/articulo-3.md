@@ -1,2 +1,0 @@
-Artículo 3º—Las modificaciones de los “Lineamientos Técnicos y Metodológicos para la Elaboración de la Estructura de Plan Anual Operativo para las Entidades Públicas, Ministerios y demás órganos” estarán a cargo del Ministerio de Planificación Nacional y Política Económica y del Ministerio de Hacienda, en consulta previa ante la Controlaría General de la República; se publicarán en los sitios electrónicos de ambos Ministerios y se comunicarán vía circular a los jerarcas institucionales.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 33587 de 31 de enero de 2007)
