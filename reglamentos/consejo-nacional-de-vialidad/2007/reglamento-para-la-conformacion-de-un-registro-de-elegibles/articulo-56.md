@@ -1,0 +1,6 @@
+Artículo 56.—De la extinción de la relación contractual. Serán causa de la extinción de funciones las siguientes:
+a. La resolución contractual por incumplimiento.
+b. La rescisión contractual.
+c. El cumplimiento del objeto contractual.
+d. La evaluación semestral no satisfactoria.
+e. Que multas alcancen el límite establecido.

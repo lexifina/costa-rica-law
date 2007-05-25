@@ -1,0 +1,1 @@
+Artículo 16.—Conformación de la base de datos. Firme la aprobación de las solicitudes respectivas, la Proveeduría procederá a conformar la base de datos del Registro de Elegibles de las organizaciones para prestar servicios de inspección de los proyectos de conservación vial de la Red Vial Nacional.

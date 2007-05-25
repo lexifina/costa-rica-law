@@ -1,0 +1,1 @@
+Artículo 29.—En lo no previsto. En lo no previsto en este capítulo se aplicarán las disposiciones pertinentes de la Ley de General de la Administración Pública y Ley de Contratación Administrativa y su Reglamento.

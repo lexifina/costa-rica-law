@@ -1,0 +1,9 @@
+Artículo 18.—Deber de comunicar. Las organizaciones proveedoras de servicios de inspección inscritos en el Registro de Elegibles, están obligados a comunicar a la Proveeduría del CONAVI los cambios que se produzcan, tales como:
+a. Cambio de nombre o razón social de la organización.
+b. Sustitución del apoderado o representante legal.
+c. Cambios en la dirección, teléfono, facsímil o en la línea comercial.
+d. Modificación del capital social; la vigencia de la empresa o sociedad, o de los propietarios de las acciones o capital social.
+e. Cambios del profesional responsable (ingeniero de proyecto).
+f. Cualquier otro cambio, de interés para la Institución.
+g. Currículos de los inspectores y asistentes que laboren para la
+organización.

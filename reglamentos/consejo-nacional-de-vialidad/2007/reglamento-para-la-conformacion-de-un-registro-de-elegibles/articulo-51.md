@@ -1,0 +1,3 @@
+Artículo 51.—Sustitución de personal. En caso de que la organización requiera sustituir su personal, aplican las siguientes reglas:
+a. Si el personal requerido a sustituir es el ingeniero de proyecto, debe proponer otro ingeniero que obtenga una calificación igual ó superior a la calificación obtenida por el profesional originalmente propuesto para determinar el orden de mérito.
+b. Para el resto del personal, será suficiente que el personal cumpla con los requisitos mínimos establecidos. En cualquier caso, el personal a sustituir debe ser aceptado por la Unidad Supervisora, previa presentación del currículum vitae y demás documentos que respalden el cumplimiento de los requisitos establecidos.

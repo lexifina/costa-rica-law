@@ -1,0 +1,1 @@
+Artículo 45.—La organización deberá rendir los informes gerenciales mensualmente (por mes vencido). El plazo máximo para la entrega de dichos informes es de una semana posterior al cierre del período de estimación mensual (último día de cada mes).

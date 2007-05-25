@@ -1,0 +1,1 @@
+Artículo 36.—Criterios de selección. La selección y asignación de los servicios de inspección se realizará en la fecha que el CONAVI defina en la invitación a publicar en el Diario Oficial La Gaceta y al menos dos medios de comunicación nacional escrita.

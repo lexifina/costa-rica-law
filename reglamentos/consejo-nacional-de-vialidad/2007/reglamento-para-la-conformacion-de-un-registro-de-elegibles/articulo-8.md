@@ -1,0 +1,1 @@
+Artículo 8º—Reglamento Interno Aplicable. El procedimiento de contratación (sistema especial de contratación) regulado en este Reglamento interno, se regirá por todos los principios constitucionales y legales en materia de contratación administrativa, así como las prohibiciones y requisitos de Ley.

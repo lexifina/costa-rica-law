@@ -1,0 +1,3 @@
+CAPÍTULO II
+Invitación a integrar el Registro
+Artículo 7º—Invitación. El Consejo Nacional de Vialidad, a través de la Unidad de Proveeduría y Suministros, a fin de conformar y mantener actualizado el Registro de Elegibles para la prestación de los servicios de inspección de los proyectos del conservación vial de la Red Vial Nacional, invitará a los interesados en integrarlo, mediante publicación en el Diario Oficial La Gaceta y en al menos dos diarios de circulación nacional. Las personas jurídicas o grupos de profesionales interesados en formar parte del registro, podrán solicitar y gestionar su incorporación ante la Proveeduría del CONAVI.

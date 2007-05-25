@@ -1,0 +1,1 @@
+Artículo 21.—De los controles al Registro de Elegibles. La Auditoria Interna del CONAVI deberá realizar un estudio para valorar el ejercicio del presente Reglamento especial de contratación y pronunciarse con un dictamen, haciendo las observaciones y recomendaciones que considere convenientes para la optimización del mismo, cada año.
