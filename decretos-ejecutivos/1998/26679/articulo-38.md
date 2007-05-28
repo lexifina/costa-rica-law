@@ -1,1 +1,2 @@
-Artículo 38°- La justificación de omisiones de marca, tardías, ausencias o cualquier irregularidad en la marca de tarjeta, deberá justificarse ante su superior inmediato a más tardar en los dos días hábiles siguientes en que sucedió el hecho y ante la Unidad de Recursos Humanos dentro de los tres días hábiles después de finalizado el mes en que se cometió la falta.
+Artículo 38º—La justificación de omisiones de marca, tardías, ausencias o cualquier irregularidad en la asistencia, deberá realizarse ante el superior inmediato a más tardar el segundo día hábil después de sucedido el hecho y ante el Departamento de Recursos Humanos al tercer día hábil después de cometida la falta.
+(Asi reformado mediante artículo 1° del decreto ejecutivo N° 33825 del 28 de mayo de 2007).
