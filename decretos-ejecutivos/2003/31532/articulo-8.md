@@ -1,1 +1,0 @@
-Artículo 8º—Este decreto deroga el Decreto Ejecutivo Nº 29719-S del 3 de agosto del 2001, publicado en La Gaceta Nº 160 del 22 de agosto del 2001; y cualquier otra disposición de igual o inferior rango que se le oponga.
