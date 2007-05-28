@@ -1,0 +1,1 @@
+Transitorio III.—Pólizas de seguros. Las entidades de custodia y de depósito centralizado de valores, cuentan con un plazo de de tres meses, contados a partir de la entrada en vigencia de este Acuerdo, para el cumplimiento de la contratación de coberturas de riesgo establecidas en el artículo 6 (Pólizas de Seguros).

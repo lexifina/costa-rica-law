@@ -1,0 +1,3 @@
+Artículo 9º—Comunicación de cambios en las tarifas. Para los efectos de lo dispuesto en el artículo 12 del Reglamento, todas las entidades de custodia deben comunicar la aplicación de nuevas tarifas, por los siguientes medios:
+1. Mediante notificación que incluya el detalle de las tarifas actuales, las propuestas y la fecha a partir de la cual estarán vigentes, a la dirección aceptada por el titular de los valores para que se le remita información referente a la actividad de custodia.
+2. Mediante comunicación de hecho relevante, que informe sobre la modificación de tarifas y la fecha a partir de la cual estarán vigentes.
