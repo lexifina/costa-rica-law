@@ -14,3 +14,4 @@ Reglamento para la solicitud de financiamiento adicional a proyectos de vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2007-05-28 | Reglamento 34 (2007-05-28) |
