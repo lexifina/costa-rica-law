@@ -1,0 +1,23 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 32-2007, artículo 2, del 21 de mayo del presente año, tomó el acuerdo Nº 1, que indica lo siguiente:
+“Acuerdo Nº 1:
+Considerando:
+I.—Que por medio del oficio GG-ME-0273-2007 del 18 de mayo de 2007, la Gerencia General remite y avala el informe DF-OF-1068-2007 de la Dirección Fosuvi, referido a la propuesta para eliminar algunos requisitos para la postulación al Bono Familiar de Vivienda, con el objetivo de simplificar los trámites de las familias para obtener el beneficio de este subsidio y como resultado del análisis llevado a cabo por parte de la citada Dirección y el aporte de las Entidades Autorizadas, a la luz de la Ley Nº 8220 y de la Ley del Sistema Financiero Nacional para la Vivienda.
+II.—Que conocida y suficientemente discutida la propuesta de la Administración, esta Junta Directiva considera que la recomendación de la Dirección Fosuvi es razonable y se ajusta a los intereses del Sistema Financiero Nacional para la Vivienda. No obstante, con el propósito de cumplir el objetivo que persigue la simplificación de requisitos, pero sin descuidar los aspectos medulares de control que exige la Ley, y sobre los cuales se han manifestado tanto la Asesoría Legal como la Auditoría Interna, se coincide en que lo procedente es acoger parcialmente lo propuesto por la Administración en el sentido de autorizar la eliminación de los siguientes requisitos: a) la obligatoriedad de un aporte mínimo del 5%; b) la protocolización de las declaraciones juradas de unión de hecho y de las declaraciones de separación de hecho de personas casadas que se postulan solo con hijos; c) la escritura de la propiedad; d) la certificación sobre ayudas obligatorias; y e) las certificaciones del INVU y del IMAS sobre la adjudicación de vivienda; y a su vez, modificar y adicionar la denominada “Declaración Jurada de Condición Socioeconómica para Calificación al Bono Familiar de Vivienda y/o Solicitud de Crédito para la Vivienda”, en cuanto a que los postulantes también declaren lo siguiente: a) si tienen ingresos por ayudas voluntarias u obligatorias; b) el estado civil en el país de origen (para los casos de extranjeros); y c) si han sido adjudicatarios de propiedades por parte del IMAS o del INVU.
+Por tanto,
+SE ACUERDA:
+1º—Eliminar los siguientes requisitos para la postulación al Bono Familiar de Vivienda:
+a) La obligatoriedad de un aporte mínimo del 5%, para los casos en que la capacidad de endeudamiento de la familia permita completar el precio de la solución habitacional producto del préstamo a otorgar más el Bono asignado.
+b) La protocolización de las declaraciones juradas de unión de hecho y de las declaraciones de separación de hecho de personas casadas que se postulan solo con hijos. En su lugar se aceptará la declaración jurada en papel de seguridad del notario (autenticación de las firmas de los declarantes y testigos), la que deberá estar firmada por dos testigos ajenos al núcleo familiar, que no tengan ningún grado de parentesco o consaguinidad.
+c) La escritura de la propiedad.
+d) La certificación emitida por el Juzgado de Pensiones de ayuda obligatoria, para aquellos expedientes de solicitud de Bono Familiar de Vivienda que presenten núcleo familiar con hijos reconocidos.
+e) Las certificaciones del INVU y del IMAS sobre las adjudicaciones de propiedades.
+2º—Modificar y adicionar la “Declaración Jurada de Condición Socioeconómica para Calificación al Bono Familiar de Vivienda y/o Solicitud de Crédito para la Vivienda” (Formulario BANHVI 2-99), en sentido que los postulantes también deberán declarar lo siguiente:
+a) Si tienen ingresos por ayudas voluntarias u obligatorias.
+b) El estado civil en el país de origen (para los casos de extranjeros).
+c) Si han sido adjudicatarios de una propiedad por parte del IMAS o del INVU.
+3º—Adicionalmente, considera oportuno reiterar esta Junta Directiva que la responsabilidad del análisis de los expedientes corresponde a las Entidades Autorizadas, por lo que éste debe ser riguroso y detallado. Si por alguna razón la Entidad Autorizada demostrare la falsedad de la información presentada por el beneficiario, se aplicarían los alcances establecidos en el artículo 169 de la Ley del Sistema Financiero Nacional para la Vivienda.
+4º—El presente acuerdo rige a partir de la fecha en que adquiera firmeza el acta que lo contiene.
+5º—Comuníquese al Ministerio de Vivienda y Asentamientos Humanos, y a las Entidades Autorizadas del Sistema Financiero Nacional para la Vivienda.
+6º—Publíquese en el Diario Oficial La Gaceta.
+Acuerdo Unánime.’’
