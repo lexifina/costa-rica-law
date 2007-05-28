@@ -14,3 +14,4 @@ Reglamento para el Proceso del Cobro Administrativo Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-26 | la propia norma |
+| 2 | 2007-05-28 | Reglamento municipal 57 (2007-05-28) |
