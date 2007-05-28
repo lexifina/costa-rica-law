@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de los vehículos de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-26 | la propia norma |
+| 2 | 2007-05-28 | Reglamento municipal 34 (2007-05-28) |
