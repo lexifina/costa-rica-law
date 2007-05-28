@@ -1,0 +1,3 @@
+Artículo 10.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la Dirección Administrativa y Financiera, bajo el cumplimiento de las siguientes condiciones:
+a. El solicitante deberá cancelar un pago inicial del 30% del monto adeudado, quedando facultada dicha Dirección para autorizar pagos iniciales con un mínimo del 15% de la deuda, en casos de extrema dificultad para el contribuyente para hacer frente al porcentaje inicialmente señalado.
+b. En caso de incumplimiento de las condiciones en que fue otorgado el Arreglo de Pago, el Encargado de Cobros procederá a comunicarlo a la Dirección Administrativa y Financiera y a efectuar la tramitación pertinente del caso para su remisión al tramite de cobro judicial.

@@ -1,0 +1,6 @@
+Artículo 18.—De la Dirección Administrativa y Financiera. Corresponderán a la Dirección Administrativa y Financiera las siguientes funciones:
+a- Fiscalizar la labor de los abogados externos , cuando ejecuten cobros, para ello, compete a esta Dirección , recibir los informes trimestrales que realicen los abogados externos de conformidad con este Reglamento, analizarlos y emitir trimestralmente un informe sobre los mismos para conocimiento de la Alcaldía.
+b- Solicitar a la Alcaldía la aplicación de las sanciones que en este Reglamento se establecen a los abogados externos que incumplan con sus obligaciones.
+c- Solicitar a la Alcaldía el nombramiento de nuevos abogados o la resolución de la contratación de abogados externos, de conformidad con la demanda que de esta gestión requiera la Municipalidad.
+d- Llevar un expediente de cada uno de los abogados externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+h. Gestionar internamente el avalúo de los bienes inmuebles que garanticen las obligaciones vencidas, a efectos de determinar si en la fase de remate, la Municipalidad estaría interesada en solicitar la adjudicación del bien.
