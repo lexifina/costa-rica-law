@@ -1,0 +1,1 @@
+Artículo 2º—Se reconocerá únicamente a los funcionarios que ocupen puestos del Programa Presupuestario, Dirección de Inteligencia y Seguridad Nacional, un plus salarial del veinticinco por ciento (25 %) por concepto del incentivo contenido en el artículo 1º del presente decreto, porcentaje que se aplicará al salario base de cada clase de puesto de los funcionarios.

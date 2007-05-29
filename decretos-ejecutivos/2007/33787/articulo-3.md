@@ -1,0 +1,1 @@
+Artículo 3º—El Director General de la Dirección de Inteligencia y Seguridad Nacional mediante resolución razonada que constará al expediente administrativo del funcionario, otorgará el beneficio del plus salarial establecido en el artículo 1°.

@@ -1,0 +1,1 @@
+Artículo 4º—El reconocimiento efectivo del plus salarial entrará en vigencia a partir de que la Dirección de Inteligencia y Seguridad Nacional cuente en su presupuesto con la partida presupuestaria que autoriza el gasto.
