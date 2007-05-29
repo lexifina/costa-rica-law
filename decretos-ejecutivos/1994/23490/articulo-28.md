@@ -4,15 +4,12 @@ Provincia | Cantón | Distrito Administrativo
 Heredia | Heredia | Heredia
 | | Mercedes
 | | San Francisco Ulloa
-| | Vara blanca
-| |
+| | Vara Blanca
 | Barva | Barva
 | | San Pedro
 | | San Pablo
-| | San Roque
 | | Santa Lucía
 | | San José de la Montaña
-| |
 | Santo Domingo | Santo Domingo
 | | San Vicente
 | | San Miguel
@@ -20,26 +17,21 @@ Heredia | Heredia | Heredia
 | | Santo Tomás
 | | Santa Rosa
 | | Tures
-| | Pará
-| |
-| Santa Bárbara | Santa Bárbara
+| | Para
+| Santa Barbara | Santa Barbara
 | | San José
 | | Concepción
-| |
 | Belén | San Antonio
-| | La Rivera
 | | Asunción
-| |
 | Flores | San Joaquín
 | | Barrantes
 | | Llorente
-| |
 | San Pablo | San Pablo
-b) Existirá una Subdirección Regional de Enseñanza de Sarapiquí, adscrita a la Dirección Regional de Educación de Heredia, cuya sede estará en Sarapiquí, conformada por la siguiente área geográfica:
+b) Dirección Regional de Enseñanza de Sarapiquí, cuya sede estará en Sarapiquí, conformada por la siguiente área geográfica:
 Provincia | Cantón | Distrito Administrativo
 Heredia | Sarapiquí | Puerto Viejo
 | | La Virgen
 | | Horquetas
-| | Llanuras del Gaspar
-| | Cureña
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32855 del 2 de noviembre del 2005)
+| | Llanuras de Gaspar
+| | Cureña”
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33835 del 29 de mayo del 2007).

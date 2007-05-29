@@ -17,3 +17,4 @@ Reglamento de la Organización Administrativa de las Direcciones Provinciales de
 | 2 | 1998-08-18 | Decreto Ejecutivo 27270 (1998-08-18) |
 | 3 | 2004-11-25 | Decreto Ejecutivo 32188 (2004-11-25) |
 | 4 | 2005-11-02 | Decreto Ejecutivo 32855 (2005-11-02) |
+| 5 | 2007-05-29 | Decreto Ejecutivo 33835 (2007-05-29) |
