@@ -1,1 +1,0 @@
-Artículo 2°—Todos los puestos y bienes que hubieren estado autorizados para la Dirección Regional de Enseñanza de Sarapiquí, deberán entenderse automáticamente trasladados y autorizados para la Subdirección Regional de Enseñanza de Sarapiquí.
