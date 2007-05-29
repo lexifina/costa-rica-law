@@ -1,0 +1,1 @@
+Artículo 18.—Manejo de fondos. El Fondo de Caja Chica de Trabajo debe estar bajo la custodia de una sola persona, respectivamente. En caso de ausencia de alguno de los Encargados de ambos Fondos, los jefes de las unidades organizativas deberán asignar un funcionario para ejercer la suplencia, previo arqueo de esos Fondos.

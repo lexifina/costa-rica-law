@@ -1,0 +1,1 @@
+Artículo 9º—Cierre. El cierre de un Fondo de Trabajo o de Caja Chica será responsabilidad exclusiva de la Unidad de Recursos Financieros, quien deberá elaborar un informe escrito debidamente fundamentado con indicación clara de las razones que justifican el cierre.

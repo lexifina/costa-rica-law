@@ -1,0 +1,1 @@
+Artículo 21.—Control de Auditoría. La Auditoría Interna está facultada para efectuar las verificaciones o arqueos sorpresivos totales en cualquiera de los Fondos existentes, o los que en el futuro se establezcan en el INA.

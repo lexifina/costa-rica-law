@@ -1,0 +1,3 @@
+Artículo 19.—Arqueos. Las Tesorerías respectivas efectuarán verificaciones o arqueos sorpresivos totales a la Caja Chica o al Fondo de Trabajo al menos una vez al mes.
+El responsable de la Caja Chica realizará diariamente un arqueo para el cierre de caja y en caso de detectar alguna inconsistencia emitirá un informe a la Tesorería correspondiente.
+En caso de faltantes o sobrantes deberá cumplirse con el procedimiento que la Unidad de Recursos Financieros tenga previsto para tal fin, sin perjuicio de las medidas disciplinarias que correspondan si se demuestra la existencia de una administración irregular de los Fondos.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+Operación y control de los fondos rotativos
+Artículo 10.—Requisitos de validez. La operación de los Fondos de Trabajo y de Caja Chica está sujeta al correcto cumplimiento de los siguientes requisitos:
+a) Firma y nombre del funcionario debidamente autorizado en las fórmulas respectivas. Dicho servidor deberá verificar que se cumple con los requisitos establecidos en este Reglamento y los procedimientos correspondientes, así como de que no hay fraccionamiento y que no se dispone del bien o servicio. Además, en el caso de los Fondos de Caja Chica, debe verificar que el precio es el normal del mercado y conveniente para la Institución.
+b) Las erogaciones de los Fondos de Trabajo se realizarán utilizando el documento denominado “Orden de Compra” o “Orden de confección de cheque”, según lo establezcan los procedimientos de contratación administrativa.
+c) Los diversos formularios que se utilicen en la operación de los Fondos de Trabajo y de Caja Chica, deben ser escritos a máquina o en los medios electrónicos disponibles en la institución y no deben presentar tachaduras, borrones, rupturas o alteraciones de cualquier naturaleza que hagan dudar de su legitimidad. Tampoco deben presentar agregados o modificaciones posteriores. Cualquier enmienda debe hacerse mediante justificación expresa o al reverso del documento y debe ser suscrita por los funcionarios autorizados para aprobarlos.
+d) El Vale de Caja Chica deberá ser presentado para el aval presupuestario dentro de los cinco días hábiles posteriores a su emisión.

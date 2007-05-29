@@ -1,0 +1,1 @@
+Artículo 25.—Derogatoria. Derogar el Reglamento para el Pago de Viáticos de Servidores del Instituto Nacional de Aprendizaje, aprobado en sesión de la Junta Directiva número 2091 del 7 de marzo de 1984 y sus reformas.
