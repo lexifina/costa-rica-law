@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Ministerio de Hacienda llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar el inmueble inscrito en el Registro Nacional, Folio Real Nº 2.169370.000 ubicado en el distrito primero del cantón primero de la provincia de Alajuela.
