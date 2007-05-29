@@ -1,1 +1,0 @@
-Artículo 2º—Conformación. Esta Unidad contará con un Coordinador quien será asistido por un Técnico Especialista en Evaluación, un Especialista en Sistemas de Información Gerencial y el personal de apoyo que resulte necesario.

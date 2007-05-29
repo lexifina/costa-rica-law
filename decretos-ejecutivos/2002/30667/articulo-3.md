@@ -1,9 +1,0 @@
-Artículo 3º—Funciones. La Unidad de Apoyo a la Gestión de Proyectos tendrá las siguientes funciones:
-a. Evaluar la cartera actual de proyectos, sobre la base de una metodología capaz de producir un inventario de desfases y causas precisas, que permitan asegurar la completa y efectiva ejecución de las operaciones que conforman la cartera de préstamos vigente.
-b. Examinar las necesidades de fortalecimiento de la capacidad para formular y administrar proyectos, mediante la identificación de oportunidades y obstáculos en los ámbitos individual, institucional y sistémico, con el propósito de asegurar una gestión eficiente y sostenible.
-c. Instaurar instancias apropiadas de consulta y coordinación interinstitucionales e intersectoriales, mediante la identificación y caracterización de actores interesados y la definición de políticas y mecanismos de operación de estas instancias, con el propósito de promover la integración entre las prioridades nacionales y los temas de los proyectos.
-d. Introducir el concepto de sinergias y encadenamientos asociados a proyectos, mediante la producción de metodologías apropiadas de análisis, su difusión y la creación de un comité de alto nivel que conozca y apruebe las iniciativas de inversión social, con el propósito de promover el logro de efectos desencadenantes.
-e. Fortalecer los mecanismos de seguimiento y evaluación, mediante la implementación de sistemas de apoyo íntimamente ligados al Sistemas Nacional de Evaluación (SINE), para introducir una cultura de ejecución con compromisos de resultados y de rendición de cuentas.
-f. Evaluar la cartera actual, sobre la base de una metodología capaz de producir un inventario de desfases y causas precisas.
-g. Establecer conjuntamente con las Unidades Ejecutoras un calendario de actividades necesarias para ordenar y actualizar la ejecución de cada uno de los proyectos.
-h. Colaborar en el diseño de reestructuración y reformulación de los proyectos que están en ejecución.

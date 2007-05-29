@@ -1,1 +1,0 @@
-Artículo 5º—Estructura Organizativa. El Coordinador de la Oficina de Apoyo a la Gestión de Proyectos reportará al Ministro de Hacienda, mientras que el personal de apoyo reportará directamente a dicho Coordinador.
