@@ -1,0 +1,10 @@
+CAPÍTULO II
+De los beneficiarios
+Artículo 8º—Tipología de beneficiarios. Las prestaciones y beneficios que ofrece este Régimen se asignarán a las personas que reúnan alguna de las siguientes condiciones:
+a. Personas adultas mayores: A las personas mayores de 65 años (sesenta y cinco) de edad.
+b. Personas inválidas: Toda aquella persona que por debilitamiento de su estado físico o mental, perdiera dos terceras partes (66%) o más de su capacidad para generar ingreso y que por tal motivo no pudiese obtener una remuneración suficiente para velar por sus necesidades básicas de subsistencia. La determinación del estado de invalidez lo realizará la Dirección de Calificación del Estado de Invalidez de la Gerencia de la División de Pensiones.
+Asimismo, en el caso de menores de edad, se entenderá por invalidez, cuando el criterio médico determine que por los padecimientos o impedimentos físicos o mentales, el menor requiere de cuidados especiales y apoyo del Estado para mejorar su calidad de vida. En todo caso este tipo de solicitudes debe ser sujeto de un informe social.
+En ambos casos dicho criterio será emitido en formulario de dictamen médico previamente elaborado para tal efecto.
+c. Viudas (os) desamparadas (os): Aquellas mujeres solas con hijos menores de 18 años de edad, que debido a la defunción de su cónyuge o compañero, hubiesen quedado en desamparo económico.
+d. Menores huérfanos: Aquellos menores de 18 años de edad, cuyos padres han fallecido. En el caso de huérfanos no reconocidos legalmente por el padre, cumplirán este requisito con sólo acreditar el fallecimiento de la madre.
+e. Indigentes: Aquellas personas que por razones culturales y sociales, se les imposibilite incorporarse a un trabajo remunerado, y quienes no cuentan con redes de apoyo familiares, soporte económico de otras Instituciones, ni medios económicos para satisfacer sus necesidades básicas de subsistencia. Para la concesión de la pensión del Régimen no Contributivo, deberá solicitarse un informe de trabajo social del área de pensiones.

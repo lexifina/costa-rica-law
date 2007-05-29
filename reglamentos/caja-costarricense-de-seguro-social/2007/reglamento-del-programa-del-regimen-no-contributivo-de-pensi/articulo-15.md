@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del ingreso al Régimen
+Artículo 15.—Del análisis de la solicitud. Para determinar si la persona solicitante cumple con las condiciones señaladas en los artículos 3º, 4º, 5º, 6º y 8º, se aplicarán los mecanismos de selección aprobados por la Junta Directiva de la Caja, junto con los documentos necesarios para la resolución de los trámites según lo establezca el instructivo pertinente en las unidades autorizadas para tramitar las solicitudes. En todo momento habrá de garantizarse al solicitante un trámite expedito y eficiente de conformidad con lo establecido en la Ley Nº 8220 Protección al ciudadano del exceso de requisitos y trámites administrativos.

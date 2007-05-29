@@ -1,0 +1,1 @@
+Artículo 31.—Administración del Régimen no Contributivo. Los fondos y recursos del Régimen no Contributivo de Pensiones, se administrarán con absoluta independencia, de los correspondientes a los otros regímenes administrativos de la Caja Costarricense de Seguro Social. En consecuencia, no podrán tomarse dineros de este Régimen para sufragar gastos de otros ni viceversa.
