@@ -1,0 +1,1 @@
+Transitorio 1º—Todos los perfiles de clase cuyos puestos a la fecha se les reconoce el presente plus de compensación económica por dedicación exclusiva, continuarán con la misma, debiendo modificarse los respectivos contratos, conforme a la presente normativa, hasta su vencimiento.

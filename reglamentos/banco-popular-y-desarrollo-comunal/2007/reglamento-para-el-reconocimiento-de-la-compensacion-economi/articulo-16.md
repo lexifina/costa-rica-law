@@ -1,0 +1,1 @@
+Artículo 16.—Derogatorias. Este Reglamento deroga el reglamento aprobado por la Junta Directiva Nacional en la sesión 4070, celebrada el 9 de diciembre del 2002, debidamente publicado en el Diario Oficial La Gaceta número 246, del 20 de diciembre del 2002.
