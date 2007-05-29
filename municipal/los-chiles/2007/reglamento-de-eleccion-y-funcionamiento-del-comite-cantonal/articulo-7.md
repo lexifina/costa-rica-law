@@ -1,0 +1,1 @@
+Artículo 7º—Una vez cumplido con el artículo anterior las organizaciones que se describen en el artículo 5º deberán elegir por consenso sus representantes ante el Comité de Deportes, enviando la terna de los electos al Concejo Municipal junto con un currículo personal. El Concejo postulará a dos y las Asociaciones Comunales un representante.

@@ -1,0 +1,1 @@
+Artículo 13.—Una vez electo el Comité de Deportes, tendrá treinta días naturales para presentar al Concejo Municipal un plan de trabajo. A medio periodo de su administración deberá rendir un informe de sus labores igual lo hará al entregar su administración.

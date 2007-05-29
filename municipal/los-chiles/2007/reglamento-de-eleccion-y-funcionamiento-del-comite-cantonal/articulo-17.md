@@ -1,0 +1,1 @@
+Artículo 17.—El Concejo Municipal a la hora de elegir el Comité de Deportes, deberá plasmar el principio de idoneidad, apegándose al currículo de cada postulado y a las disposiciones del presente Reglamento. Eliminando todo tipo de discriminación y favoritismo.

@@ -1,0 +1,1 @@
+Artículo 9º—De todas las ternas recibidas el Concejo Municipal elegirá cinco miembros del Comité de Deportes, dos representantes de la Municipalidad, dos representantes de las Asociaciones Deportivas y un representante de las Asociaciones de Desarrollo.

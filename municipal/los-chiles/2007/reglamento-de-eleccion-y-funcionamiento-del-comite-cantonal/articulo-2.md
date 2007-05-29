@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Deportes tendrá a cargo bajo la supervisión del Concejo Municipal la administración de todos aquellos centros deportivos y recreativos que se encuentran dentro del cantón de Los Chiles.

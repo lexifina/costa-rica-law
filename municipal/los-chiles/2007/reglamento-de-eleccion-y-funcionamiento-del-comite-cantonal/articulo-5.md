@@ -1,0 +1,1 @@
+Artículo 5º—El Comité de Deportes, llevará a cabo un Libro de Registro donde deben estar inscritos todos los grupos deportivos y comunales que operen en el cantón con sus domicilios o lugar para recibir notificaciones. De esta lista el Comité Cantonal de Deportes, debe enviar copia a la Secretaría del Concejo Municipal para su respectivo registro.

@@ -1,0 +1,1 @@
+Artículo 10.—De no aportar las agrupaciones indicadas en el artículo cinco su representante el Concejo Municipal tendrá la potestad de elegir y llenar las vacantes con aquellas personas que demuestren interés y que cumplan requisitos. Luego de 22 días que los grupos no manden ternas el Concejo Municipal puede hacer los nombramientos directamente.

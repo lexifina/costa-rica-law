@@ -1,0 +1,1 @@
+Artículo 3º—El Comité de Deportes será electo por un periodo de dos años en el mes de noviembre del año correspondiente. Pudiendo ser reelectos sus miembros por un periodo igual y si no existieran postulantes nuevos para usar los cargos.
