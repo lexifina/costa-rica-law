@@ -14,3 +14,4 @@ Características y requisitos que deben contener las facturas comerciales y la i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-01 | la propia norma |
+| 2 | 2007-05-29 | Circular 6 (2007-05-29) |
