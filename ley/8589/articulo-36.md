@@ -1,0 +1,2 @@
+ARTÍCULO 36.- Limitación al ejercicio del derecho de propiedad
+Será sancionada con pena de prisión de ocho meses a tres años, la persona que impida, limite o prohíba el uso, el disfrute, la administración, la transformación, la enajenación o la disposición de uno o varios bienes que formen parte del patrimonio de la mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no.
