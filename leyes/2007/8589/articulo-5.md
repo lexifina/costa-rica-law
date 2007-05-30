@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Obligaciones de las personas en la función pública
+Quienes, en el ejercicio de sus funciones, estén obligados a conocer de situaciones de violencia contra las mujeres, en cualquiera de sus formas, o a resolverlas, deberán actuar ágil y eficazmente, respetando tanto los procedimientos como los derechos humanos de las mujeres afectadas; de lo contrario, podrán incurrir en el delito de incumplimiento de deberes.

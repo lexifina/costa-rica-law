@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Maltrato. A quien de manera grave o reiterada agreda o lesione físicamente a una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, se le impondrá una pena de prisión de seis meses a dos años, siempre que la agresión o lesión infringida no constituya un delito de lesiones graves o gravísimas.

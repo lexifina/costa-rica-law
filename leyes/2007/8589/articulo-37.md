@@ -1,0 +1,2 @@
+ARTÍCULO 37.- Fraude de simulación sobre bienes susceptibles de ser gananciales
+Será sancionada con pena de prisión de ocho meses a tres años, la persona que simule la realización de un acto, contrato, gestión, escrito legal o judicial, sobre bienes susceptibles de ser gananciales, en perjuicio de los derechos de una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, siempre que no configure otro delito castigado más severamente.

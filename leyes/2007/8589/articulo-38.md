@@ -1,0 +1,2 @@
+ARTÍCULO 38.- Distracción de las utilidades de las actividades económicas familiares
+Será sancionada con pena de prisión de seis meses a un año, la persona que unilateralmente sustraiga las ganancias derivadas de una actividad económica familiar o disponga de ellas para su exclusivo beneficio personal y en perjuicio de los derechos de una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no.

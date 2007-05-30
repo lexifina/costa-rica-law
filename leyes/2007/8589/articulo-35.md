@@ -1,0 +1,2 @@
+ARTÍCULO 35.- Daño patrimonial
+La persona que en perjuicio de una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, destruya, inutilice, haga desaparecer o dañe en cualquier forma, un bien en propiedad, posesión o tenencia o un bien susceptible de ser ganancial, será sancionada con una pena de prisión de tres meses a dos años, siempre que no configure otro delito castigado más severamente.
