@@ -15,4 +15,5 @@ Calidad de Vida de la Población Adulta Mayor
 TÍTULO I
 Disposiciones preliminares
 CAPÍTULO ÚNICO
-Artículo 1º—Créase el Premio Dr. Diego Fernando Trejos Corrales por el mejoramiento de la calidad de vida de la población adulta mayor, con el fin de reconocer los aportes que realizan tanto personas físicas, instituciones públicas y organizaciones privadas, para el mejoramiento de la calidad de vida de la población adulta mayor de Costa Rica, el cual será otorgado cada año por el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) a criterio de un jurado, quien tendrá potestad de declararlo desierto si es el caso.
+Artículo 1º—Créase el Premió Dr. Diego Fernando Trejos Corrales por el Mejoramiento de la Calidad de Vida de la Población Adulta Mayor, con el fin de reconocer los aportes que realizan tanto personas físicas, instituciones públicas y organizaciones privadas, para el mejoramiento de la calidad de vida de la población adulta mayor de Costa Rica, el cual será otorgado cada dos años, dando inicio el presente año, por el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) a criterio de un jurado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33838 del 30 de mayo del 2007)

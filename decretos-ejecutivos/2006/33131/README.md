@@ -14,3 +14,4 @@ Reglamento para la Creación del Premio Dr. Diego Fernando Trejos Corrales por e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-03 | la propia norma |
+| 2 | 2007-05-30 | Decreto Ejecutivo 33838 (2007-05-30) |
