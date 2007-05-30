@@ -14,3 +14,4 @@ Reglamento para el Control de Activos Fijos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-04 | la propia norma |
+| 2 | 2007-05-30 | Reglamento 40 (2007-05-30) |

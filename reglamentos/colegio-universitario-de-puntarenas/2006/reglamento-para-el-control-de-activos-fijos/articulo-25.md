@@ -1,3 +1,5 @@
 Artículo 25.—Para dar de baja bienes, cuya pérdida se haya acreditado, conforme los alcances anteriores, por hurto o robo, sin culpa imputable al custodio de los bienes desaparecidos, además de los requisitos señalados en el artículo Nº 24 de este Reglamento de Activos Fijos, y las obligaciones estipuladas en el artículo Nº 10 del mismo Reglamento se deberá cumplir con los siguientes requisitos:
-a) Se debe conformar un órgano que haga la investigación del caso a solicitud del Decano de la institución o a quién haya delegado esta función.
-b) El Decano de la Institución, una vez que cuente con la resolución final del órgano, así como el material probatorio correspondiente, dictará la resolución final, autorizando la baja de los bienes.
+a) Cuando el Activo o los Activos en cuestión sobrepasen el valor de los cien dólares americanos, se debe conformar un órgano que haga la investigación del caso a solicitud del Decano de la institución o a quién haya delegado esta función y en su defecto cuando el valor sea inferior a los cien dólares americanos el Decano o a quién haya delegado esta función deberá realizar la investigación pertinente.
+(Así reformado el inciso anterior mediante sesión N° 40 del 30 de mayo de 2007).
+b) El Decano de la institución, una vez que cuente con la resolución final del órgano o de la investigación realizada, así como el material probatorio correspondiente, dictará la resolución final, autorizando la baja de los bienes.
+(Así reformado el inciso anterior mediante sesión N° 40 del 30 de mayo de 2007).
