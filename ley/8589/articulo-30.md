@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Conductas sexuales abusivas
+Se le impondrá sanción de pena de prisión de tres a seis años, a quien obligue a una mujer con la cual mantenga una relación de matrimonio, en unión de hecho declarada o no, a soportar durante la relación sexual actos que le causen dolor o humillación, a realizar o ver actos de exhibicionismo, a ver o escuchar material pornográfico o a ver o escuchar actos con contenido sexual.
