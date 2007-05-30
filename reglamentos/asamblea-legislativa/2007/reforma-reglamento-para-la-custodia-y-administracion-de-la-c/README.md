@@ -14,3 +14,4 @@ Reforma Reglamento para la Custodia y Administración de la Caja Chica de la Asa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-10 | la propia norma |
+| 2 | 2007-05-30 | Reglamento 59 (2007-05-30) |
