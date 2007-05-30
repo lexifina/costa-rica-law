@@ -1,0 +1,17 @@
+N° 33783
+EL PRESIDENTE DE LA REPÚBLICA;
+EL MINISTRO DE LA PRESIDENCIA;
+EL MINISTRO DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En ejercicio de las atribuciones que les confieren los artículos 140, incisos 3), 8), 18) y 146, de la Constitución Política; 25.1 y 27.1 de la Ley General de la Administración Pública (N° 6227 de 2 de mayo de 1978); 2º, 3º, 4º, 16 y 18 de la Ley de Planificación Nacional (N° 5525 de 2 de mayo de 1974); y 3º de la Ley Marco para la Transformación Institucional y Reformas de la Ley de Sociedades Anónimas Laborales (N° 7668 de 9 de abril de 1997).
+Considerando:
+I.—Que hasta la emisión del reciente Decreto Ejecutivo N° 33713-MP-PLAN-MTSS de 26 de marzo del 2007, el Ministerio de Planificación Nacional y Política Económica fue el órgano estatal encargado de dictaminar los procesos de reorganización de la Administración Pública.
+II.—Que a partir de la promulgación de dicho decreto, corresponde a los jerarcas de cada ente u órgano asumir la responsabilidad por la aprobación interna de sus procesos de reorganización.
+III.—Que el Decreto Ejecutivo N° 33151-MP de 8 de mayo del 2006 establece la organización sectorial del Poder Ejecutivo con sus correspondientes Ministros Rectores, con el objeto de recuperar la capacidad de conducción y dirección sectorial de la Administración Pública, por lo que se estima necesario que las reorganizaciones institucionales cuenten con el aval del Ministro Rector correspondiente, a efecto de garantizar que respondan a una visión de conjunto y a los objetivos del sector respectivo.
+DECRETAN:
+Artículo 1º—Refórmese el artículo 2° del “Reglamento a la Ley Marco para la Transformación Institucional y Reformas a la Ley de Sociedades Anónimas Laborales” (Decreto Ejecutivo N° 26893-MTSS-PLAN de 6 de enero de 1998, reformado por el Decreto Ejecutivo N° 33713-MP-PLANMTSS de 26 de marzo de 2007) para que en adelante se lea de la siguiente manera:
+“Artículo 2º—La aprobación de la organización administrativa de órganos, entes y empresas públicas será competencia del jerarca institucional.
+El Ministerio de Planificación Nacional y Política Económica, por medio del Sistema Nacional de Planificación constituido por la Ley de Planificación Nacional (N° 5525 de 2 de mayo de 1974) dictará directrices, lineamientos generales, manuales, instructivos y otros instrumentos en materia de reorganización administrativa de las instituciones para el mejor cumplimiento del servicio público, asegurando su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios.
+De previo a su aprobación por el jerarca institucional y como requisito de validez, toda propuesta de reorganización de los órganos, entes y empresas públicas deberá contar con el visto bueno del respectivo Ministro Rector del Sector al que pertenezca el órgano, ente o empresa. Se excluyen de esta disposición los Entes Públicos no Estatales que no administran recursos públicos y las Empresas Públicas que actúan en mercados abiertos.
+La Unidad de Leyes y Decretos del Ministerio de la Presidencia no tramitará decreto ejecutivo alguno ni proyecto de ley gubernativo que contemple medidas de organización y reorganización que no hayan sido aprobadas por el correspondiente Ministro Rector de Sector”.
