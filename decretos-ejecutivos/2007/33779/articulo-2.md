@@ -1,0 +1,1 @@
+Artículo 2º—En todo lo demás se mantienen los términos del Decreto Ejecutivo Nº 31836-MOPT de 10 de junio del 2004, publicado en La Gaceta Nº 132 de 7 de julio del 2004, “Reglamento de los Proyectos de Iniciativa Privada de Concesión de Obra Pública o de Concesión de Obra Pública con Servicio Público”.
