@@ -1,0 +1,1 @@
+Artículo 2º—El Presidente Ejecutivo del INCOPESCA, conjuntamente con la Junta Directiva del Instituto, en uso de las facultades que les confiere la Ley de Pesca y Acuicultura, Nº 8436, del 1º de marzo del 2005, podrán designar a algún funcionario técnico de la Institución, que consideren pertinente, para que asista a las reuniones de los Grupos de Trabajo Técnicos de la CIAT.
