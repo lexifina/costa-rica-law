@@ -23,3 +23,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 8 | 2006-09-29 | Resolución 744 (2006-09-29) |
 | 9 | 2007-03-14 | Resolución 131 (2007-03-14) |
 | 10 | 2007-04-23 | Resolución 279 (2007-04-23) |
+| 11 | 2007-06-01 | Resolución 349 (2007-06-01) |
