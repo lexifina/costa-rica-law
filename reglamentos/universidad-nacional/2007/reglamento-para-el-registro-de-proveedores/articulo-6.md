@@ -1,0 +1,1 @@
+Artículo 6º-Uso de medios electrónicos. La Proveeduría está facultada para utilizar todos los medios electrónicos y tecnológicos disponibles y confiables para obtener la información que permita la inscripción de los Proveedores en el registro.

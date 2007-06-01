@@ -1,0 +1,5 @@
+CAPITULO III
+De la utilización del Registro en procesos
+de contratación y la materia recursiva
+Artículo 20.-Sobre la utilización del Registro. La Proveeduría de conformidad con lo que establece el régimen jurídico de la Contratación Administrativa de la Universidad establecerá, vía resolución interna, las políticas y lineamientos para la escogencia de los Proveedores del Registro para participar en las contrataciones directas y las licitaciones abreviadas. Estas políticas y lineamientos además de respetar el orden cronológico establecido por el Reglamento a la Ley, deberá incorporar la posibilidad de invitar Proveedores escogidos por variables tales como, recurrencia de la compra, evaluación de la ejecución contractual, cantidad de oferentes registrados, proyección de consumo, garantía de recibir ofertas idóneas que eviten declaratorias de desierto o infructuosas, y antecedentes del Proveedor.
+Las políticas y lineamientos anteriores deben en todo momento garantizar a la Universidad el realizar procesos de contratación en plazos cortos, eficientes, eficaces y permitir una administración gerencial del proceso de contratación.

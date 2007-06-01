@@ -1,0 +1,3 @@
+Artículo 10.-Proveedores extranjeros. Los Proveedores extranjeros podrán solicitar la incorporación al Registro, mediante simple documento dirigido a la Proveeduría, el cual deberá contener la información que se requiere en el artículo 9 de este Reglamento: El detalle de la información y documentos que deben aportar, será definida por la Dirección, mediante resolución publicada en La Gaceta.
+Tanto la solicitud de incorporación como la documentación que debe adjuntarse a la misma, deberán presentarse en idioma español o bien con la respectiva traducción oficial, así como satisfacer la diligencia consular, éste último cuando sean emitidos en el exterior.
+Todos los anteriores documentos, deberán tener una fecha de expedición no superior a tres meses.

@@ -1,0 +1,4 @@
+Artículo 19.-Del procedimiento de exclusión. La Proveeduría está facultada para excluir, unilateralmente y en forma automática, a cualquier Proveedor del Registro cuando:
+Se haya dado el vencimiento de su inscripción (transcurrido 24 meses) y el Proveedor no haya manifestado su interés de renovar su inscripción,
+Cuando se ha procedido a invitar, a un mismo Proveedor para la compra de la misma naturaleza de bienes y servicios, en tres ocasiones, en el plazo máximo de tres años, y el Proveedor no haya participado, ni remitido justificación alguna que explique su no participación.
+En los demás supuestos de exclusión se deberá ejecutar un procedimiento en el cual se le otorgue audiencia al Proveedor por un plazo de cinco días hábiles, y la resolución podrá ser objeto de impugnación de conformidad con la normativa interna de la Universidad.

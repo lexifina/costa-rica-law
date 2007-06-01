@@ -1,0 +1,1 @@
+Artículo 12.-Verificación posterior del Proveedor. Sin perjuicio de lo establecido en el artículo Nº 11 de este Reglamento, todo Proveedor está obligado a verificar su inclusión en el Registro dentro del plazo de veinte días hábiles posteriores a la aceptación de los documentos que se requieran para integrar el Registro y mantener actualizada su inscripción.

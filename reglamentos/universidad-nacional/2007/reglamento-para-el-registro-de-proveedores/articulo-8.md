@@ -1,0 +1,1 @@
+Artículo 8º-De la solicitud de inscripción al Registro. El Proveedor puede solicitar su inscripción en el Registro, en cualquier momento, para ello deberá presentar ante la Proveeduría la documentación correspondiente y cumplir con los requisitos previamente establecidos, de conformidad con lo que se establece en el presente Reglamento.
