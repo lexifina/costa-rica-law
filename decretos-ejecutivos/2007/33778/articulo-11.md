@@ -1,0 +1,1 @@
+Artículo 11.—Compromisos de resultados. El COREDES - PROLI evaluara anualmente los programas de las distintas instituciones y el Plan de Desarrollo Regional cuando exista, con el propósito de medir el impacto de sus acciones y garantizar el logro de los objetivos propuestos para el periodo.

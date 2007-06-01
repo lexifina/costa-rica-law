@@ -1,0 +1,2 @@
+Artículo 8º—Sobre el o la Coordinador (a) del COREDES PROLI. El COREDES - PROLI contará con una Coordinadora o un Coordinador general que será electo por mayoría de los miembros de la Asamblea General y su mandato durará dos años, pudiendo ser reelecto sucesivamente por una única vez.
+Para mayor flexibilidad y funcionamiento del COREDES - PROLI se nombrarán tres sub-coordinadores (as), quienes podrían sustituir de común acuerdo al Coordinador(a) general en su ausencia. El nombramiento será por dos años pudiendo ser reelectos sucesivamente, una sola vez.

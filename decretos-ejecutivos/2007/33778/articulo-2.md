@@ -1,0 +1,1 @@
+Artículo 2º—Convocatoria. Corresponderá al Despacho del Ministro de Coordinación Interinstitucional propiciar la participación de las instituciones del Estado, así como de los Gobiernos Locales de la provincia; bajo las disposiciones organizativas y operativas del presente Decreto.

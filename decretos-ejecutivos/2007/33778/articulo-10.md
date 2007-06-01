@@ -1,0 +1,2 @@
+Artículo 10.—Sobre las Sesiones del COREDES – PROLI. Las sesiones generales ordinarias del COREDES - PROLI se celebrarán cada dos meses. De igual manera pero en forma alterna, se reunirán cada una de las áreas estratégicas, Se establecerá un calendario de reuniones anual.
+La Secretaría Técnica enviará a cada integrante del COREDES - PROLI, con ocho días naturales de antelación a la realización de cada sesión, el orden del día y el acta de la sesión anterior.

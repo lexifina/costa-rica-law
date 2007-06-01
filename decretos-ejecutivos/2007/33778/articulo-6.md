@@ -1,0 +1,4 @@
+Artículo 6º—Asamblea General del COREDES – PROLI. La Asamblea General del COREDES - PROLI estará constituida por la representación presencial de las instancias públicas inscritas en la organización, la que se constituirá de la siguiente manera:
+· El director o directora regional de las instituciones públicas destacadas en la Región Huetar Atlántica o su suplente, que en caso de imposibilidad de asistencia del o la primero(a), lo (la) representará.
+· Un (a) representante por cada una de las Municipalidades a nivel regional
+· Dos representantes Comunales, uno de las Asociaciones de Desarrollo Comunal y otro de la Unión Cantonal -cuando exista- por cantón. Tales dirigentes deberán ser presentados, avalados y ratificados en una Asamblea General Ordinaria del COREDES - PROLI y aceptados por las dos terceras partes de la Asamblea presente (representantes institucionales y gobiernos locales inscritos en el COREDES -PROLI).
