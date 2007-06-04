@@ -14,3 +14,4 @@ Reglamento de Licencias Municipales para las Ventas Ambulantes y Estacionarias d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-30 | la propia norma |
+| 2 | 2007-06-04 | Reglamento municipal 58 (2007-06-04) |
