@@ -1,7 +1,8 @@
 CAPÍTULO XIV
 Beneficios laborales
 Artículo 55.—Además de los derechos establecidos en los Códigos de Trabajo y Municipal, Leyes conexas y este Reglamento, los funcionarios tendrán derecho a:
-a) Recibir capacitación conforme la naturaleza de su trabajo cuando el desarrollo científico y tecnológico lo requiera para su mejor desempeño y estímulo.
+a) Recibir capacitación conforme la naturaleza de su trabajo cuando el desarrollo científico y tecnológico lo requiera para su mejor desempeño y estímulo, de acuerdo al presupuesto municipal.
+(Así reformado el punto anterior mediante sesión N° 58 del 4 de junio de 2007).
 b) Estabilidad en el puesto.
 c) Reasignación y Recalificación de los puestos conforme a las regulaciones establecidas en esta materia.
 d) Carrera administrativa.
@@ -13,6 +14,7 @@ i) Ser escuchado (a) y atendido (a) por las instancias establecidas para resolve
 j) Garantía al debido proceso y derecho de defensa en todo acto administrativo laboral de índole disciplinaria.
 k) Un 3% por concepto de anualidad sobre el salario base vigente, con un tope de hasta 30 anualidades. Siempre y cuando la o el servidor haya obtenido como mínimo una calificación de servicios de Bueno, tal y como lo establece el Código Municipal en el artículo 137.
 l) Celebraciones especiales el día 31 de agosto, día del Régimen Municipal y el día del Aniversario del cantón.
-m) Se brindará ayuda económica por una sola vez, en caso de infortunio (desastres naturales, muerte súbita de familiares hasta el segundo grado de consanguinidad) a criterio del Concejo Municipal. Ayuda económica en salud (casos calificados y definidos por la Comisión de Salud Ocupacional), para el empleado o empleada y sus dependientes directos.
+m) Se brindará ayuda económica por una sola vez, en caso de infortunio (desastres naturales, muerte súbita de familiares hasta el segundo grado de consanguinidad) a criterio del Concejo Municipal. Ayuda económica en salud (casos calificados y definidos por la Comisión de Salud Ocupacional), para el empleado o empleada y sus dependientes directos, según el fondo de asociación o según presupuesto, a criterio del Concejo Municipal.
+(Así reformado el punto anterior mediante sesión N° 58 del 4 de junio de 2007).
 n) Disfrutar de permisos para participar en actividades culturales, deportivas y de estudio en casos especiales y a criterio del jerarca inmediato y el visto bueno del Alcalde.
 o) Disfrutar del cierre institucional de fin de año, hasta por una semana, a criterio y mediante acuerdo del Concejo Municipal, el cual será descontado de vacaciones a criterio de la Alcaldía Municipal.

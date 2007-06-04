@@ -1,1 +1,2 @@
-Artículo 22.—La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los centros de trabajo de la Municipalidad, donde se mantendrá por un plazo no inferior a diez días, anteriores a la fecha del cierre del concurso.
+Artículo 22.—La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los centros de trabajo de la Municipalidad , donde se mantendrá por un plazo no inferior a diez días naturales, anteriores a la fecha del cierre del concurso.
+(Así reformado mediante sesión N° 58 del 4 de junio de 2007).

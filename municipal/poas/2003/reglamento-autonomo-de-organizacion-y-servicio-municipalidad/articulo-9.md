@@ -14,7 +14,8 @@ Artículo 9º—Para la correcta interpretación de este Reglamento, se definen 
 - CONCURSO: La participación de varias personas en distintos tipos de pruebas que efectúa la Municipalidad con la finalidad de llenar plazas vacantes.Estos pueden ser internos o externos según la circunstancia que los motiven.
 - I. N. S: Instituto Nacional de Seguros
 - PATRONO: La Municipalidad del Cantón de Poás, en su condición de empleador de los servicios de las y los trabajadores.
-- PREPARACIÓN EQUIVALENTE: Podrán ser admitidos a concurso de selección de personal, o ser ascendidos directamente cuando proceda, aquellas o aquellos candidatos que sin tener los requisitos mínimos establecidos en el Manual de Clases, hayan aprobado estudios de similar naturaleza o posean un mínimo de dos años de experiencia comprobada y un año de estudios. Lo anterior no será aplicable en casos de puestos que deban ser ocupados por funcionarias o funcionarios con grado profesional.
+- PREPARACIÓN EQUIVALENTE: Podrán ser admitidos a concurso de selección de personal, o ser ascendidos directamente cuando proceda, aquellas o aquellos candidatos que sin tener los requisitos mínimos establecidos en el Manual de Clases, hayan aprobado estudios de similar naturaleza o posean un mínimo de dos años de experiencia comprobada en el área requerida para el puesto.Lo anterior no será aplicable en casos de puestos que deban ser ocupados por funcionarias o funcionarios con grado profesional
+(Así reformado el término anterior mediante sesión N° 58 del 4 de junio de 2007).
 - PUESTO: Conjunto de deberes y responsabilidades, y requisitos asignados a una o un funcionario para que sean atendidos durante la jornada de trabajo.
 - REASIGNACIÓN: Cambio que se hace a la clasificación de un puesto cuando ha variado sustancial y permanente en sus tareas
 - RECLASIFICACIÓN: Procedimiento en el que se rectifica la clasificación de un puesto por haber sido reasignado erróneamente.
