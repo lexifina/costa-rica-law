@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios del Concejo Municipal de Distr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-25 | la propia norma |
+| 2 | 2007-06-04 | Reglamento municipal 0 (2007-06-04) |
