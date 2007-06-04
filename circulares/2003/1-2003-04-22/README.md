@@ -14,3 +14,4 @@ Determina aplicar cobro de intereses a usuarios que presenten atraso mayor de tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-30 | la propia norma |
+| 2 | 2007-06-04 | Circular 6 (2007-07-03) |
