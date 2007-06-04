@@ -17,3 +17,4 @@ Reglamento para la Autorización de Constitución, la Apertura y Funcionamiento 
 | 2 | 2002-06-11 | Reglamento 305 (2002-06-11) |
 | 3 | 2002-06-11 | Ley 8 |
 | 4 | 2007-03-01 | Reglamento 633 (2007-03-01) |
+| 5 | 2007-06-04 | Reglamento 650 (2007-06-04) |
