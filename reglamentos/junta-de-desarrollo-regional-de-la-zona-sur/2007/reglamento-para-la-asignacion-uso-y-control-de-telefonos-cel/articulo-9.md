@@ -1,0 +1,6 @@
+CAPÍTULO III
+De los montos asignados
+Artículo 9º—De los montos asignados: Las tarifas para el pago de estos servicios se regirán por las siguientes disposiciones:
+a) Presidente, Vicepresidente, de la Junta Directiva, Auditor Interno, Director Ejecutivo, y Asesor (a) del Departamento Legal tendrán acceso a llamadas nacionales e internacionales siempre y cuando sean para atender asuntos estrictamente relacionados en función de su cargo.
+b) Al miembro de la Junta Directiva que desempeñe el cargo de Presidente de Junta Directiva y al Director Ejecutivo se les cubrirá la totalidad del costo del servicio; a los restantes miembros de Junta Directiva se les cubrirá hasta cinco veces el monto de la tarifa básica mensual y otros funcionarios, JUDESUR asumirá el pago de hasta cuatro veces la tarifa básica mensual, pero el excedente será cubierto por el funcionario, previa autorización para el respectivo rebajo de la planilla de su salario mensual.
+c) El Director Ejecutivo tendrá la facultad de solicitar el desglose de llamadas que se hayan efectuado del teléfono celular asignado, aún para aquellos servicios que no tienen restricciones, especialmente cuando los montos por cobro del servicio se consideren excesivos, y la auditoria interna cuando lo considere pertinente.

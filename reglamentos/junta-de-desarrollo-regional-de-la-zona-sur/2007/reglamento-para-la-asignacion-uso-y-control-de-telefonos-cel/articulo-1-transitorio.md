@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Transitorio único.—Una vez que este Reglamento haya sido publicado en el Diario Oficial La Gaceta, la asignación vigente de los teléfonos celulares y radiolocalizadores será revisada por el Director Ejecutivo y Proveeduría Institucional, con el fin de actualizar la asignación, o revocar las asignaciones de equipo, sin que ello signifique ninguna responsabilidad para la Administración. Las nuevas asignaciones de teléfonos celulares o radiolocalizadores deberán ajustarse a las disposiciones contenidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Uso del teléfono celular en vacaciones o incapacidad: Queda prohibido el uso del teléfono propiedad de JUDESUR, cuando el funcionario disfrutare de licencias, permisos o vacaciones o se encontrare incapacitado por más de cinco días hábiles. Para este efecto se pondrá el aparato y accesorios bajo custodia de la Proveeduría Institucional.

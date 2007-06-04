@@ -1,0 +1,1 @@
+Artículo 3º—Definición de procedimientos: La Dirección Ejecutiva será la encargada de establecer, a través del correspondiente manual, los procedimientos a seguir para la contratación, uso y control del servicio de los teléfonos celulares y radiolocalizadores en un plazo de treinta días, una vez que el presente Reglamento haya sido publicado en el Diario Oficial La Gaceta.
