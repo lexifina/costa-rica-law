@@ -1,0 +1,1 @@
+Artículo 10.—Para la utilización de los gastos regulados en el Capítulo III de este Reglamento se deben de presentar por escrito de previo conocimiento y aprobación de la Junta Directiva de JUDESUR la debida justificación de la actividad a realizar.

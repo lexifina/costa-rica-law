@@ -1,0 +1,1 @@
+Artículo 2º—A las disposiciones de este Reglamento estarán sujetos a los miembros de Junta Directiva y el Director Ejecutivo. El incumplimiento a sus disposiciones acarreará responsabilidad administrativa, civil o penal, según corresponda.

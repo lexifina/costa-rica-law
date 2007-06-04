@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde al Área Administrativa Financiera de JUDESUR el verificar el correcto cumplimiento de este Reglamento, dependiendo del origen de los recursos del gasto a cubrir, según el medio de compra idóneo que corresponda.

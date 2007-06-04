@@ -1,0 +1,3 @@
+CAPÍTULO III
+Sobre los Gastos de Actividades Protocolarias y Sociales
+Artículo 9º—La subpartida presupuestaria Actividades Protocolarias y Sociales, esta constituida por erogaciones destinadas al pago de los servicios necesarios para efectuar celebraciones propias de la institución y cualquier otra atención que se brinde a funcionarios o personas ajenas a la institución, tales como recepciones oficiales, conmemoraciones, atención a reuniones de Junta Directiva, Exposiciones, Congresos, eventos especiales y otros con características similares, previa autorización mediante acuerdo de Junta Directiva de JUDESUR, los cuales deben estar acordes a las restricciones técnicas y jurídicas correspondientes.

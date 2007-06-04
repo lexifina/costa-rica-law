@@ -1,0 +1,1 @@
+Artículo 11.—Los gastos de actividades protocolarias y sociales, se cubrirán por el método idóneo que corresponda. Deberán adjuntar los respectivos acuerdos donde autorizan la realización de la actividad correspondiente.

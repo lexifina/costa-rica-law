@@ -1,0 +1,1 @@
+Artículo 6º—Los gastos de representación estarán sujetos a la disponibilidad presupuestaria respecto a su quantum y pueden ser acreedores de los mismos miembros de la Junta Directiva por delegación expresa mediante acuerdo de esta.
