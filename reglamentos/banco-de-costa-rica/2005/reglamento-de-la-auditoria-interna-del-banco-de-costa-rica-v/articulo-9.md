@@ -1,9 +1,0 @@
-Artículo 9º—Sin perjuicio de lo establecido en otros artículos de este reglamento, en la Ley general de control interno y lo dispuesto en materia de Auditoría Interna por parte de la Contraloría General de la República, el auditor general tendrá las siguientes obligaciones o responsabilidades:
-a) Definir las ideas rectoras de la auditoría interna.
-b) Implantar las medidas necesarias para el manejo eficaz de las relaciones y coordinaciones que en el ejercicio de las competencias de la auditoría interna procedan con el jerarca, los titulares subordinados y otras instancias internas y externas.
-c) Regular los distintos tipos de planificación para el desarrollo de las labores, basados en la valoración del riesgo.
-d) Diseñar e implantar los procesos inherentes a la auditoría interna, así como, la elaboración de efectivos instrumentos para su administración (procesos típicos de auditoría: auditorías en sus distintas combinaciones, estudios especiales de auditoría irregularidades, control interno, presupuesto, etc.-, asesorías, advertencias, autorización de libros). e) Supervisar los distintos trabajos que se realizan.
-f) Establecer los distintos trámites que se darán a los resultados de la auditoría interna.
-g) Referirse por escrito y comunicar lo que corresponda (a nivel interno y externo), en los casos de recomendaciones, comentarios, observaciones u otros resultados de la auditoría interna no aceptados.
-h) Formular los criterios mínimos que se tomarán en cuenta para mantener y divulgar un programa de aseguramiento continuo de calidad y mejora de todos los aspectos de la auditoría interna, incluida la aplicación de la normativa jurídica y técnica pertinente.
-i) Presentar al jerarca y a las autoridades superiores de la organización, informes periódicos sobre aspectos relevantes de la auditoría interna y de rendición de cuentas sobre el uso de los recursos de fiscalización.
