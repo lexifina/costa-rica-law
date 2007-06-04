@@ -1,0 +1,1 @@
+Artículo 96.—Es obligación del armador procurar que la carga destinada al puerto se encuentre distribuida de manera equilibrada por escotillas para mejorar la productividad de la operación de descargue.

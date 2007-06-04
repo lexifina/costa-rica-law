@@ -1,0 +1,1 @@
+Artículo 222.—El servicio de lancha consiste en el servicio que se brinda para transportar al piloto oficial desde puerto hasta las embarcaciones o viceversa. La tarifa es por TRB. Este servicio es básico a la nave. Así mismo, existe el servicio de alquiler de lancha, cuya tarifa es por hora o fracción.

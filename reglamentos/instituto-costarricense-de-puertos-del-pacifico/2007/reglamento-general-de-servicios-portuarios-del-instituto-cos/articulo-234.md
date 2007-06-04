@@ -1,0 +1,1 @@
+Artículo 234.—La prestación del servicio de estas lanchas a los usuarios del INCOP debe ser comunicada previamente, indicando con claridad la clase de servicio que prestará, el día y la hora en que se realizará.

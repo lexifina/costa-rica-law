@@ -1,0 +1,1 @@
+Artículo 211.—Servicio de báscula: Consiste en pesar los vehículos de carga cuando entran al recinto portuario o cuando salen del mismo. Incluye la emisión del tiquete de peso. La tarifa es por vehículo por ciclo de entrada y salida.

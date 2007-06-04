@@ -1,0 +1,1 @@
+Artículo 177.—Los vagones deben ser debidamente cerrados y marchamados en la bodega donde toman carga. En la puerta de salida se verificarán los documentos y el estado de los precintos colocados a los vagones y contenedores.

@@ -1,0 +1,1 @@
+Artículo 68.—Terminadas las operaciones de carga y descarga, el buque deberá abandonar el puesto de atraque hasta una hora después. De no hacerlo se deberá cancelar la suma de $1.200,00 (Un mil doscientos dólares sin centavos) por hora o fracción que permanezca atracado.

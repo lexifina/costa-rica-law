@@ -1,0 +1,1 @@
+Artículo 92.—El Prestatario del Servicio de carga responde por la desestiba, descargue, transferencia y colocación en bodegas y patios de la carga de importación lo mismo que de su entrega a los consignatarios o sus representantes cuando cumplan los requisitos para retiro.

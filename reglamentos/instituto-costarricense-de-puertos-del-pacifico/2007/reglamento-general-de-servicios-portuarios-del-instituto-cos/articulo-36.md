@@ -1,0 +1,1 @@
+Artículo 36.—Los buques que se encuentren trabajando fondeados o atracados no podrán hacer reparaciones al casco por su parte exterior que requieran equipo de soldar, piquetear, pintar, etc., sin obtener el previo permiso del Prestatario del Servicio.

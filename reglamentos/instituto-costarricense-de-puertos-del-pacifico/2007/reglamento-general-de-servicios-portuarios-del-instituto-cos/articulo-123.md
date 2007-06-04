@@ -1,0 +1,1 @@
+Artículo 123.—Para los efectos de este Reglamento, se considera como buque con carga inflamable el que tenga un compartimiento o tanque vacío y sin limpiar y en el cual se han transportado inflamables.

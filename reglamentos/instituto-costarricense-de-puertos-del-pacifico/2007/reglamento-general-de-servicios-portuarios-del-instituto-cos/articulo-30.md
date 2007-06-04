@@ -1,0 +1,1 @@
+Artículo 30.—Ningún buque deberá aproximarse al muelle mientras no estén puestas las banderas de atraque durante el día o las luces rojas intermitentes durante la noche. Una vez colocadas las señales y antes de comenzar a aproximarse al muelle, el barco obligadamente emitirá un pitazo largo como señal de que procede al atraque.

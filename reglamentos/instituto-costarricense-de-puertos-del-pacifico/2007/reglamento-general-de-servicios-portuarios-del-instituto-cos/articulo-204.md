@@ -1,0 +1,1 @@
+Artículo 204.—Servicio de alquiler de equipos y maquinaria: Consiste en el suministro de equipos operativos a un usuario, por solicitud del mismo. La tarifa es por tipo de equipo por hora y con base en su capacidad.

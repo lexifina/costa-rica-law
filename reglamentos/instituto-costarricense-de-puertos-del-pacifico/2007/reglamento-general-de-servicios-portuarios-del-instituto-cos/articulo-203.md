@@ -1,0 +1,1 @@
+Artículo 203.—Servicio de reembalaje y rotulación: Consiste en reembalar y rotular la carga que se reciba de las naves o de los medios de transporte terrestre mal paletizada o con daños en el empaque. La tarifa es por hora hombre o fracción y es a cargo del dueño de la carga cuando lo solicite.

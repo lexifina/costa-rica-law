@@ -1,0 +1,1 @@
+Artículo 63.—El Prestatario del Servicio podrá disponer el movimiento de una nave a otra posición de atraque o a fondeo por necesidades operacionales; en este caso, los movimientos son por cuenta del concesionario. Los costos serán responsabilidad del armador, agente naviero o su representante, si el movimiento es a solicitud de éstos.

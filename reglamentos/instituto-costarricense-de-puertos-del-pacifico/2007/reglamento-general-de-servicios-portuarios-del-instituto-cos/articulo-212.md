@@ -1,0 +1,1 @@
+Artículo 212.—Servicio de consolidación o desconsolidación de contenedores: Consiste en el llenado o vaciado de un contenedor o furgones, utilizando para ello personal y equipo suministrado por el Prestatario del Servicio de carga. Su tarifa es por TM.

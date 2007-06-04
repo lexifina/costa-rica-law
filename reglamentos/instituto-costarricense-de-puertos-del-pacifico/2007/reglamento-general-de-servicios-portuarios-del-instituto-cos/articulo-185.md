@@ -1,0 +1,1 @@
+Artículo 185.—Los camiones cisterna que operan con carga peligrosa deben cumplir los requisitos establecidos en este Reglamento para el manejo de esta clase de carga y contar con la autorización de la autoridad competente para el transporte de estos productos.
