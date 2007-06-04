@@ -11,7 +11,9 @@ El Concejo Municipal de Distrito de Colorado, comunica que en acta número 21-20
 8. En proyectos con Bono de Vivienda, para la exoneración del 50% del impuesto de construcción según Ley Nº 7208, artículo 147, se debe presentar una fotocopia de la Declaratoria de Interés Social.
 9. En proyectos frente a carreteras nacionales, para el alineamiento vial, la Municipalidad firmará un convenio con el MOPT, para realizar dicho trámite.
 10. El dueño de la propiedad donde se va realizar la obra deberá estar al día con los impuestos municipales, tasas y de Bienes Inmuebles.
-11 El desarrollador de la actividad, obra o proyecto no puede iniciar actividades hasta tanto no se le haya otorgado por SETENA, la viabilidad ambiental correspondiente, de conformidad con el artículo 17 de la Ley Orgánica del Ambiente, en relación con el artículo 11, de la Ley de Biodiversidad.
+11. El desarrollador de la actividad, obra o proyecto no puede iniciar actividades hasta tanto no se le haya otorgado por SETENA, la viabilidad ambiental correspondiente, de conformidad con el artículo 17 de la Ley Orgánica del Ambiente, en relación con el artículo 11, de la Ley de Biodiversidad.
+12. Aportar certificación de CCSS de estar al día en el pago de sus cuotas o el arreglo de pago aceptado.
+(Así adicionado el punto anterior y publicado en La Gaceta N° 136 del 16 de julio de 2007)
 *(Así reformado y publicado en La Gaceta N° 188 del 2 de octubre del 2006).
 002: REQUISITOS PARA SOLICITUD DE PATENTES COMERCIALES
 1) Llenar solicitud.
@@ -90,6 +92,8 @@ El Concejo Municipal de Distrito de Colorado, comunica que en acta número 21-20
 3) Estar al día con el pago de los impuestos, tasas y precios municipales respectivos.
 4) Estar al día con la declaración del Impuesto de Bienes Inmuebles.
 5) Adicionar ¢10 de timbres municipales por cada plano a visar.
+6) El área según el plano deberá estar delimitada con sus respectivos puntos, los cuales deberán estar visibles, para la verificación de campo.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 136 del 16 de julio del 2007).
 012: REQUISITOS PARA SOLICITUD DE BECA
 1) Llenar el formulario de solicitud suministrado por la Municipalidad.
 2) Constancia municipal en donde se indique que los padres del interesado o bien, el interesado; se encuentra al día con el pago de los impuestos municipales respectivos.

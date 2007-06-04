@@ -15,3 +15,4 @@ Requisitos y Trámites Establecidos por el Concejo Municipal de Distrito de Colo
 | --- | --- | --- |
 | 1 | 2003-06-13 | la propia norma |
 | 2 | 2006-08-28 | Acuerdo municipal 0 (2006-08-28) |
+| 3 | 2007-06-04 | Acuerdo municipal 0 (2007-06-04) |
