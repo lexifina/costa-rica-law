@@ -1,0 +1,1 @@
+Artículo 12.—Salario en especie. La asignación del teléfono no se considera como parte del salario o beneficio personal, por lo que el funcionario no tendrá derecho alguno a cobrar el uso del teléfono, como parte del pago por concepto de prestaciones laborales.

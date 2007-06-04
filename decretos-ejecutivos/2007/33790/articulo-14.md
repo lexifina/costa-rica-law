@@ -1,0 +1,1 @@
+Artículo 14.—Restricción de asignación. A excepción del Ministro, Viceministros, Oficial Mayor y/o Director General del Área Administrativa, Director General de la Fuerza Pública y los Directores de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, ningún funcionario podrá tener asignado más de un teléfono celular.

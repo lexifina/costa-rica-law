@@ -1,0 +1,1 @@
+Artículo 19.—Retiro del teléfono celular. El Jefe de Programa tiene la facultad para retirar en cualquier momento el uso del teléfono celular a los funcionarios respectivos, sea por haber desaparecido la necesidad institucional, por limitaciones presupuestarias, o por cualquier otra razón de conveniencia u oportunidad que discrecionalmente determine.

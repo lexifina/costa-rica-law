@@ -1,0 +1,1 @@
+Artículo 7º—De la firma del Acta de Asignación. Confeccionada el Acta de Asignación, la firmarán el Jefe de Programa y el funcionario a quien se le asignará el teléfono celular. El aparato y los accesorios se entregan posteriormente a la formalización de dicha acta.

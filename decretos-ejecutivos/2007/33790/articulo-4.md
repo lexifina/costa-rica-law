@@ -1,0 +1,1 @@
+Artículo 4º—Asignación del servicio de telefonía celular. Se asignará solamente una línea y un teléfono celular por funcionario, salvo disposiciones en contrario que contenga el presente Reglamento. El funcionario autorizado para el uso del teléfono o de la línea en su caso, asume el uso del servicio con las responsabilidades y garantías que le otorga este Reglamento.
