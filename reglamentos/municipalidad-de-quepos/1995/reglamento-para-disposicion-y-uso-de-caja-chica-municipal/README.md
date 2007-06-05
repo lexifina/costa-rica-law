@@ -15,3 +15,4 @@ Reglamento para Disposición y Uso de Caja Chica Municipal
 | --- | --- | --- |
 | 1 | 1995-05-23 | la propia norma |
 | 2 | 1999-01-11 | Reglamento municipal 54 (1999-01-11) |
+| 3 | 2007-06-05 | Reglamento municipal 98 (2007-06-05) |
