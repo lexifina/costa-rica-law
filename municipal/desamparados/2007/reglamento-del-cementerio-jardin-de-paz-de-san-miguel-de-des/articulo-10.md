@@ -1,0 +1,1 @@
+Artículo 10.—Los poseedores de derechos a nombre de familias deberán nombrar dos representantes responsables, para que los represente cuando sea necesario realizar cualquier gestión propia del Cementerio.

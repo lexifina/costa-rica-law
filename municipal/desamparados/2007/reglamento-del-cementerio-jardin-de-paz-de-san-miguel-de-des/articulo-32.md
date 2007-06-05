@@ -1,0 +1,1 @@
+Artículo 32.—Transcurrido el plazo señalado en el artículo anterior, el panteonero del cementerio procederá a trasladar los restos de la fosa al osario general, donde se colocarán con la debida identificación.

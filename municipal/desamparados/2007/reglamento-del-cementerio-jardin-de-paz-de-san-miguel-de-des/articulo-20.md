@@ -1,0 +1,1 @@
+Artículo 20.—El adquirente en el momento de firmar el contrato y pagar la primera cuota, obtendrá simultáneamente el derecho de uso y posesión por un período de noventa y nueve años, renovable por un plazo igual, siempre y cuando cumpla con las obligaciones establecidas en el presente Reglamento y en el contrato de adquisición respectivo.

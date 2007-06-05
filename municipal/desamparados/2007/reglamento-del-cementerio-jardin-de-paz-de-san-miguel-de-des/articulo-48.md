@@ -1,0 +1,1 @@
+Artículo 48.—Las exhumaciones ordinarias se realizarán a solicitud de los parientes mencionados en el artículo 24 del presente Reglamento. Dichas exhumaciones se realizarán bajo el horario de las ocho horas a las dieciséis horas.

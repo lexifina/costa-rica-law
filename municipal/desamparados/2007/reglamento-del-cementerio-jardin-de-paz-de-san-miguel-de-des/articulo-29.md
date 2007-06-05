@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los nichos de alquiler
+Artículo 29.—La Junta dispondrá la construcción de nichos para alquiler en sitios estratégicos del cementerio, para darlos en arriendo por un período de cinco años, el cual puede ser renovado. Tendrá acceso a un nicho de alquiler cualquier interesado que no tenga derechos en el cementerio y aquel que poseyendo un derecho, no pueda utilizarlo en ese momento por estar ocupado. Los nichos que se encuentran alquilados al momento de entrar en vigencia el presente reglamento, mantendrán los cuerpos inhumados hasta que completen los cinco años, contados desde el momento en que fueron enterrados.

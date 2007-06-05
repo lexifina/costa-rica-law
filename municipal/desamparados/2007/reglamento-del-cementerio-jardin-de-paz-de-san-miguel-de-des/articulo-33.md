@@ -1,0 +1,1 @@
+Artículo 33.—En caso de encontrarse momias o restos blandos dentro de la fosa, se ampliará el arriendo por un período de dos años más para verificar al final de dicho plazo, si se pueden exhumar los restos. En este caso , el arrendatario deberá cancelar lo correspondiente al arriendo y mantenimiento durante ese período.

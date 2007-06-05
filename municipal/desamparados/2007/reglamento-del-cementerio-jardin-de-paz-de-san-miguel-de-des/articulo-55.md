@@ -1,0 +1,1 @@
+Artículo 55.—Dentro de la racionalidad del caso, la Junta se reserva el derecho de realizar todo tipo de construcciones, reparaciones y obras de mantenimiento y embellecimiento necesarias en las instalaciones del Cementerio, ya sea en su terreno propio o en los derechos ya adquiridos. El traspaso de derechos se hará con tales limitaciones.

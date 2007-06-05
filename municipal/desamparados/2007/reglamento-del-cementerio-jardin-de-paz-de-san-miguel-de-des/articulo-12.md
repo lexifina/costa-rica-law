@@ -1,0 +1,3 @@
+Artículo 12.—La junta administrativa podrá decretar la expulsión de un poseedor de derecho:
+a) Cuando su derecho se encuentre abandonado, sin construir o con construcción inconclusa y no atienda las llamadas de atención de la Junta.
+b) Cuando se encuentre en mora hasta cinco años en el pago de sus obligaciones con el cementerio sin que el interesado cancele la deuda o solicite un arreglo de pago. El acuerdo que decrete la expulsión deberá cumplir con el debido proceso y será ratificado por la Junta Administradora y consistirá en la ejecución de dos notificaciones y una publicación en el Diario Oficial.

@@ -1,0 +1,1 @@
+Artículo 7º—La Junta Administrativa sesionará ordinariamente por lo menos una vez al mes, en el sitio, hora y fecha determinada por sus integrantes. Sesionará también extraordinariamente cuando la convoque el Presidente, o tres de sus miembros. El quórum para sesionar válidamente será de tres de sus integrantes y los acuerdos serán tomados por simple mayoría.

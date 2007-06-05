@@ -1,0 +1,1 @@
+Artículo 56.—Todos los ingresos que generen los servicios del cementerio, serán recibidos en la Oficina Administrativa asignada para tal efecto y depositados en la cuenta corriente de la Junta. La administración emitirá un recibo oficial, debidamente sellado y firmado por el funcionario que corresponda.

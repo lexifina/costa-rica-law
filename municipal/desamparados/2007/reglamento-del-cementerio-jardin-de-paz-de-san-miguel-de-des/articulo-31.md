@@ -1,0 +1,1 @@
+Artículo 31.—La Junta comunicará al arrendatario con un mes de anticipación, el vencimiento de su contrato de arrendamiento. El arrendatario tendrá además un plazo de ocho días naturales posteriores al vencimiento de los cinco años, para desocuparlo.

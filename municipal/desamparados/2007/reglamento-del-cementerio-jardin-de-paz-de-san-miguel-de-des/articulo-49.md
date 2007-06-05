@@ -1,0 +1,1 @@
+Artículo 49.—Las exhumaciones se harán siempre con la presencia del administrador del Cementerio y dos testigos, quienes pueden ser parientes de la persona fallecida. Será responsabilidad del Administrador, efectuar la comprobación de la identidad del cadáver por medio de acta firmada por los testigos y registrada en los libros respectivos.
