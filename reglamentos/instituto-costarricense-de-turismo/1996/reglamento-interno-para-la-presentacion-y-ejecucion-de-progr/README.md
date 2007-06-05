@@ -14,3 +14,4 @@ Reglamento Interno para la Presentación y Ejecución de Programas Cooperativos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-12 | la propia norma |
+| 2 | 2007-06-05 | Reglamento 5472 (2007-06-05) |
