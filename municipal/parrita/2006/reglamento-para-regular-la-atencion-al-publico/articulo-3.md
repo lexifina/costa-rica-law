@@ -1,0 +1,2 @@
+Artículo 3º—La Unidad del Servicio al Cliente deberá contar con un sello único, que deberá contener, al menos, la siguiente información:
+“Municipalidad de Parrita”, “Oficina de Recepción de Documentos”, “RECIBIDO”, “Fecha”, “Hora” y firma del funcionario que recibe. Este sello se pondrá tanto en el libelo presentado a la Municipalidad como en la copia del libelo que se lleva quien presenta el original. También se deberá contar con un reloj de pared el cual marcará la hora oficial del ayuntamiento.

@@ -1,0 +1,1 @@
+Artículo 18.—La copia puede ser certificada o no dependiendo de la solicitud, cada departamento que se le solicita un expediente, cuenta con 5 días hábiles para realizar el fotocopiado y buscar la firma del Secretario Municipal si es certificado.

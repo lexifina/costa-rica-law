@@ -1,0 +1,1 @@
+Artículo 9º—No se podrá atender a ninguna persona fuera del horario establecido en el artículo anterior, ya que se requiere al personal para otras labores que son vitales para la buena marcha de la Municipalidad de Parrita.

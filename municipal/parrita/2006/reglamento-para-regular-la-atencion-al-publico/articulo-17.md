@@ -1,0 +1,1 @@
+Artículo 17.—Toda persona física o jurídica, que desee una copia de un expediente, deberá hacer la solicitud por escrito ante el funcionario del departamento, la solicitud deberá cumplir con lo expuesto en este Reglamento en el capítulo II Recepción de documentos.

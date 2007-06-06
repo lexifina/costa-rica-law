@@ -1,0 +1,1 @@
+Artículo 12.—Los Departamentos de Zona Marítimo Terrestre, Desarrollo Urbano, Patentes, Bienes Inmuebles y otros que requieran realizar inspecciones deberán hacerlo los martes solo se podrá realizar otro día cuando el superior inmediato o el Señor Alcalde lo soliciten.

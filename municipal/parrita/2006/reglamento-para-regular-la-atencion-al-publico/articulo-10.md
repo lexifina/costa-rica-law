@@ -1,0 +1,1 @@
+Artículo 10.—Si alguna persona física o jurídica requiere ser atendido en un día que no sea el lunes en los departamentos descritos en el artículo 8º, deberá hacer la solicitud por escrito al señor Alcalde o a quien este designe y este decidirá la fecha que le otorgará la audiencia.

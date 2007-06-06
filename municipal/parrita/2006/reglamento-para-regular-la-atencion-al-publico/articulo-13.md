@@ -1,0 +1,1 @@
+Artículo 13.—Sin excepción los miércoles se hará labor de oficina para todos los departamentos, excepto el Departamento de Zona Marítimo Terrestre que en la tarde después de la 01:30 p. m. estará a la orden de la Comisión de la Zona Marítimo Terrestre o del mismo Concejo Municipal, para colaborar y evacuar dudas relacionadas con la Zona Marítimo Terrestre.

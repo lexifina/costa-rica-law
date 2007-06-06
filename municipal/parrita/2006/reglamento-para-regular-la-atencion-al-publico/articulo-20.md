@@ -1,0 +1,1 @@
+Artículo 20.—Se excluye de este capítulo las solicitudes judiciales, o de la Contraloría General de la República o la Auditoría Interna o los requerimientos del OIJ cuando sea necesario o por secuestro de expedientes.

@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE PARRITA
+El Concejo Municipal de la Municipalidad del cantón de Parrita, conforme a las potestades conferidas por los artículos 4º, inciso a), 13, incisos c) y e), y 17, incisos a) y h) del Código Municipal, Ley Nº 7794 y el artículo 170 de la Constitución Política, mediante acuerdo Nº 2, artículo cuarto, asunto Nº 3, de la sesión ordinaria Nº 1995-2006, del 12 de junio del 2006, acuerda de forma unánime emitir el:
+REGLAMENTO PARA REGULAR
+LA ATENCIÓN AL PÚBLICO
+CAPÍTULO I
+Principios
+Artículo 1º—Principios: Este Reglamento regula todo lo referente a la atención al público y la recepción de documentos y correspondencia y fotocopiado de expedientes de toda clase que se presente a la Municipalidad de Parrita, para que por este medio se logre una mayor eficiencia y control en la distribución de las diferentes gestiones que realizan los administrados ante el ayuntamiento. El propósito es modernizar, depurar y agilizar el servicio, haciéndolo más ordenado, ágil y seguro. Ya que la atención al público es una actividad importante pero debe regularse en lo referente a la recepción de documentos y correspondencia se exceptúa de la aplicación del presente Reglamento aquella documentación de tipo judicial, que por su naturaleza, deba notificarse personalmente al Alcalde Municipal o a los señores Regidores o a cualquier otro funcionario municipal, y el tramite de permisos de construcción que debe realizarse directamente en el Departamento de Desarrollo Urbano.
