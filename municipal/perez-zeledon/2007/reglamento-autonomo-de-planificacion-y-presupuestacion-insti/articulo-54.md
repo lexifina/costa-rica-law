@@ -1,0 +1,3 @@
+Artículo 54.—Aprobación de los presupuestos extraordinarios
+1) Los presupuestos extraordinarios deberán ser sometidos, previo a su ejecución, a la aprobación interna del Concejo Municipal y a la aprobación externa de la Contraloría General.
+2) Para ello deberán seguirse las normas establecidas en los artículos 10 y siguientes del Reglamento sobre Variaciones al Presupuesto de los Entes y Órganos Públicos, Municipalidades y Entidades de carácter municipal, fideicomisos y sujetos privados emitido por la CGR bajo el Nº R-1-2006-CO-DFOE y publicado en La Gaceta Oficial Nº 170 del 5 de Setiembre de 2006.

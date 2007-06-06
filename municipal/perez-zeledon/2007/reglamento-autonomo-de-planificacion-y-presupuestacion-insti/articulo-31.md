@@ -1,0 +1,7 @@
+Artículo 31.—Sistema de Evaluación del POA
+1) El Proceso de evaluación del POA se realizará en dos oportunidades durante el año. La primera al finalizar el mes de junio y la segunda durante el mes de diciembre y al iniciar el mes de enero del año inmediato siguiente.
+2) Esta evaluación se realizará a través de los instrumentos de medición que establece la Plantilla de Desempeño Programático del POA y conforme a los criterios establecidos al momento de la formulación.
+3) Cada órgano responsable de la formulación o modificación de metas en el POA Institucional deberá informar, de acuerdo al cronograma establecido en la evaluación, los resultados de la gestión obtenida considerando las metas que se programaron para cada periodo de tiempo que se evalúa.
+4) En caso de existir incumplimiento de las metas deberá además adjuntarse una justificación amplia del desempeño logrado y de las razones por las cuales no se pudo cumplir satisfactoriamente una meta de manera total y parcial.
+5) Igualmente deberá justificarse ampliamente y por escrito las solicitudes que deben plantearse de cambios en alguna o algunas de las variables del POA producto del proceso de evaluación semestral.
+6) El órgano encargado de desarrollar y llevar a cabo la evaluación del POA será el Proceso de Asesoría en Planificación el cual además deberá preparar el Informe de Evaluación a nombre del Alcalde Municipal para que éste, una vez avalado, lo presente a conocimiento del Concejo y de los órganos de control internos y externos conforme al último capitulo del Título III de este Reglamento.

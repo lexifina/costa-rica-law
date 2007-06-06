@@ -1,0 +1,3 @@
+Artículo 29.—Instrumentos de Formulación del POA y Asesoría
+1. La plantilla oficial (denominada Plantilla de Desempeño Programático o PDP por sus siglas) para desarrollar el proceso de formulación del POA se instalará en la Red Interna Institucional al servicio de todos los usuarios. A los órganos desconcentrados se les enviará oficial y oportunamente por los medios adecuados a este fin.
+2. Asimismo tanto el Proceso de Asesoría en Planificación como el Subproceso de Gestión Presupuestaria y los funcionarios de la Hacienda Municipal establecerán un programa de capacitación e inducción generales a fin de poder hacer uso efectivo de los instrumentos de formulación tanto del Presupuesto como del POA y comunicarán el cronograma de actividades.

@@ -1,0 +1,4 @@
+Artículo 32.—Sanciones por Incumplimiento
+1) Los funcionarios que no cumplan satisfactoriamente con sus obligaciones en cuanto a los procedimientos y los plazos establecidos por el Proceso de Asesoría en Planificación en materia de formulación y evaluación del POA quedarán sujetos a la instrucción de un procedimiento disciplinario por falta grave la primera vez y por falta gravísima la segunda vez.
+2) Igual sanción recibirán los funcionarios municipales que incumplan los términos y condiciones de sus obligaciones en cuanto a los procedimientos y los plazos establecidos por el Subproceso de Gestión Presupuestaria en materia de formulación y evaluación del Plan Presupuesto.
+3) Estos procedimientos se instruirán de acuerdo con el Reglamento Autónomo de Organización y Servicios de la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 34.—Naturaleza del Sistema de Evaluación de los Planes de Trabajo
+El Sistema de Evaluación Institucional de los Planes de Trabajo con énfasis en la Evaluación del Riesgo de la Municipalidad de Pérez Zeledón se establece como un instrumento de Control y de Mejoramiento de la Calidad de la Gestión Institucional a efectos de cumplir con lo dispuesto en las normas jurídicas que así lo imponen y además como una herramienta gerencial de gestión de nuestras políticas públicas.

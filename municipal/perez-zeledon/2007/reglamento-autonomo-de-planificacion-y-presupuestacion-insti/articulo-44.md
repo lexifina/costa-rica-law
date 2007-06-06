@@ -1,0 +1,4 @@
+Artículo 44.—Monitoreo de la Ejecución Cronograma de Actividades
+1) El Despacho del Alcalde Municipal a través de uno de sus funcionarios, procederá a realizar el monitoreo de la ejecución del Cronograma de Actividades a fin de garantizar que el mismo se cumpla satisfactoriamente o bien que se logre la modificación del mismo cuando exista necesidad en este sentido.
+2) Este funcionario designado por el Despacho igualmente procederá a informar a la Alcaldía de los incumplimientos a este cronograma de actividades, definiendo los responsables de los mismos y solicitando la instrucción del correspondiente procedimiento disciplinario.
+3) Los incumplimientos injustificados de las actividades o de los términos del cronograma de actividades se sancionarán como falta grave la primera vez y como falta gravísima la segunda vez, todo de conformidad con el Reglamento Autónomo de Organización y Servicios.

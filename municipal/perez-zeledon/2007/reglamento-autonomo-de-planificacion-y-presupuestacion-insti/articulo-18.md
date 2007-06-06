@@ -1,0 +1,3 @@
+Artículo 18.—Procedimiento de Modificación de Programas
+1) En caso de resultar necesaria la modificación total o parcial, la ampliación o reducción o la reformulación de un programa ya en curso éste deberá someterse al mismo procedimiento descrito en los artículos 16 y 17 de este Reglamento si la modificación implica una alteración del mismo en al menos un 50% de su diseño original.
+2) Si la modificación no llega al 50% del diseño original ésta podrá hacerse a través de decisión debidamente motivada del Despacho del Alcalde al cual deberá justificársele plenamente los cambios propuestos de manera directa.

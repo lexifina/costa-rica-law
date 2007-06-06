@@ -1,0 +1,5 @@
+Artículo 66.—Cronograma de Actividades para el Procedimiento de Emisión del Informe
+1) Los Procesos de Hacienda Municipal y de Asesoría en Planificación convocarán a una sesión de trabajo en la primera quincena del mes de diciembre de cada año a fin de determinar las principales actividades necesarias para realizar el Informe, así como su programación en el tiempo y los responsables de cada procedimiento.
+2 Listo el cronograma de trabajo éste será comunicado por ambos coordinadores de los Procesos de Hacienda Municipal y Asesoría en Planificación a través de circular a los diferentes actores institucionales involucrados en el manejo de la información a más tardar el 15 de diciembre de cada año.
+3) Los incumplimientos injustificados de las actividades o de los términos del cronograma de actividades se sancionarán como falta grave la primera vez y como falta gravísima la segunda vez, todo de conformidad con el Reglamento Autónomo de Organización y Servicios.
+4) Asimismo aplicarán las mismas reglas de monitoreo de las actividades del cronograma establecidas en el artículo 44 de este Reglamento.

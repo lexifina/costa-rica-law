@@ -1,0 +1,11 @@
+Artículo 47.—Estimación de Egresos
+1) De conformidad con el cronograma de actividades propuesto el Subproceso de Gestión Presupuestario solicitará a los diferentes actores institucionales la estimación de las necesidades en servicios, materiales, suministros y bienes duraderos, cuyos precios deberán ajustarse a las listas que publique y comunique internamente la Actividad de Proveeduría oportunamente.
+2) Para estos propósitos el Subproceso de Gestión Presupuestaria confeccionará una fórmula oficial de remisión de la información a la cual deberán adjuntársele al menos los siguientes requisitos:
+a. Que las solicitudes estén debidamente firmadas.
+b. Las solicitudes de bienes duraderos deben tener el visto bueno de los correspondientes órganos municipales que tengan criterio técnico al respecto (equipos de cómputo de parte del Proceso de Servicios Informáticos; vehículos o medios de transporte y mobiliario de oficina, pinturas y remodelaciones por parte del Subproceso de Obras y Servicios).
+c. Los bienes duraderos (maquinaria y equipo solicitados) debe contar con el precio en forma individual.
+d. Se les debe adjuntar las justificaciones que consideren convenientes, con el fin de tener mayores elementos de juicio al realizar la distribución de los recursos.
+3) Igualmente el Subproceso de Gestión Presupuestaria confeccionará los oficios correspondientes para solicitar a las unidades la estimación sobre algunas partidas, como servicios personales, deuda y servicios no personales, según se detalla:
+a. Proceso de Recursos Humanos: quien realizará la estimación de los montos a presupuestar por concepto de remuneraciones con base en los insumos que le provean los diferentes órganos municipales en sus requisiciones (sueldos fijos, horas extras, suplencias, recargo de funciones, jornales, servicios especiales) así como los detalles de: calculo del salario de la alcalde municipal, del pago de prohibición, del pago de dedicación exclusiva y servicios especiales. Además las implicaciones de convención colectiva.
+b. Actividad de Tesorería Municipal: que realizará la estimación por concepto de servicios públicos y deuda.
+c. Actividad de Proveeduría: que realizará la estimación por concepto de contratos existentes por vigilancia, limpieza, relleno sanitario y otros.

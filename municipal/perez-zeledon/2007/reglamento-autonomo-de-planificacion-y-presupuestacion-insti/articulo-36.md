@@ -1,0 +1,3 @@
+Artículo 36.—Los Responsables del Sistema
+1) Los órganos responsables del sistema de evaluación, de acuerdo a sus distintas funciones, serán los mismos que define el párrafo 4 del artículo 33 de este Reglamento.
+2) Además los titulares de los procesos y actividades quienes tendrán como función esencial participar en las distintas actividades que se realizan a efectos de formular, cumplir y evaluar sus propios Planes en cada periodo de análisis, deberán además presentar los informes parciales por actividad que se les requieran de manera oportuna y satisfactoria y además deberán rendir las justificaciones de los inconvenientes existentes en el desempeño de las metas no alcanzadas de manera total o parcial y de las actividades inconclusas, pendientes o rezagadas.

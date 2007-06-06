@@ -1,0 +1,4 @@
+Artículo 9º—Competencias orgánicas de acuerdo a los Proyectos
+1) Para los fines de este Reglamento el Proceso de Asesoría en Planificación deberá conocer, revisar, recomendar y ajustar técnicamente los Proyectos Macro de la Municipalidad a las condiciones, términos y modos establecidos en las políticas públicas y los objetivos y áreas estratégicas que haya definido la Municipalidad en sus instrumentos de Reflexión Estratégica.
+2) Los Proyectos Micro serán responsabilidad de cada órgano que deba generarlos, formularlos, desarrollarlos, ejecutarlos y finiquitarlos dentro el ámbito de sus competencias y estarán sujetos únicamente a la aprobación por parte del Despacho del Alcalde y a la autorización del contenido presupuestario por parte del Concejo Municipal.
+3) Se excluyen de esta normativa los Proyectos de la Auditoría Interna los cuales deberán ser aprobados por el Concejo Municipal de manera directa, una vez que les hayan sido trasladados a su conocimiento.
