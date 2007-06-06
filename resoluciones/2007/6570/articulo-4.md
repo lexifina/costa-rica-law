@@ -1,0 +1,2 @@
+IV- Derogar las resoluciones RRG-2196-2000, publicada en La Gaceta 160 del miércoles 22 de agosto de 2001; RRG-3051-2003, publicada en La Gaceta 67 del 4 de abril de 2003;RRG-3277-2003 , publicada en La Gaceta 252 del 31 de diciembre de 2003 y la RRG-4476 publicada en La Gaceta 66 del 6 de abril de 2005.
+Publíquese en el Diario Oficial. De dicha publicación avísese en un diario de circulación nacional. Téngase esta resolución a disposición del público en un lugar visible dentro de la institución y en la página en Internet de la Autoridad Reguladora.

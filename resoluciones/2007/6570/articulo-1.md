@@ -1,0 +1,16 @@
+Resolución RRG-6570-2007.—San José, a las quince horas veintinueve de mayo de dos mil siete.
+Simplificación de trámites de las solicitudes tarifarias que se presenten ante la Autoridad Reguladora de los Servicios Públicos.
+Considerando:
+1°—Que la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley N° 7593, establece los procedimientos, requisitos y condiciones a que se someterán las peticiones tarifarias.
+2°—Que la Ley de Protección al ciudadano del exceso de requisitos, y trámites administrativos. Ley N° 8220, establece en su articulo 4° que todo trámite o requisito que sea exigible a un administrado, deberá estar fundamentado en una norma juridica.
+3°—Que los requisitos que deben cumplir las peticiones tarifarias para ser tramitadas en esta Autoridad Reguladora, fueron establecidos en las resoluciones RRG-2196-2001. publicada en La Gaceta 160 del miércoles 22 de agosto de 2001: RRG-3051-2003. publicada en La Gaceta 67 del, 4 de abril de 2003. RRG-3277-2003, publicada en La Gaceta 252 del 31 de diciembre de 2003 y la RRG-4476-2005 publicada en La Gaceta 66 del 6 de abril de 2005.
+4°—Que para facilitar el análisis tarifario y adaptarlo al contexto normativo citado, se hace necesario redefinir los requisitos para tramitar las solicitudes tarifarias que se presenten ante la Autoridad Reguladora. que deberán cumplirse con la presentación de la solicitud y cuyo cumplimiento será constatado por la Autoridad Reguladora en la fase de admisibilidad dela gestión. Por tanto:
+Al amparo de lo dispuesto en los artículos 123 inciso 1) y 285 de la Ley General de la Administración Pública; 5, 6, 9, 11, 14, 33, 59 y 33 de la Ley N° 7593; en el Decreto Ejecutivo 29732-MP; 4° de la Ley N° 8220; en la Ley 5292 y su reglamento y en la Ley 3503,
+EL REGULADOR GENERAL, RESUELVE:
+I. —Establecer como requisitos de admisibilidad para toda petición tarifaria que se presente en la Autoridad Reguladora, los siguientes:
+1.Presentarse en idioma español o con su debida traducción oficial, y conforme al Sistema Internacional de Unidades de Medidas (Ley 5292 del 9 de agosto de 1973 y su reglamento).
+2.Contener el nombre y apellidos, residencia, lugar y/o medio para recibir notificaciones, de la parte y de quien la representa (artículo 285-LGAP).
+3.Estar firmada por el petente (artículo 285-LGAP).
+4.En el caso que el petente sea una persona jurídica, deberá aportarse certificación registral o notarial de su personería, en la que acredite su vigencia y las facultades de su representante para actuar a su nombre. Dicha certificación no podrá tener más de tres meses de expedida.
+5.Presentar su solicitud en original y dos copias. Además, deberá presentarse al menos en un medio digital de uso común (word, excel, etc.) con el detalle de las fuentes de información y de los cálculos efectuados (fórmulas explícitas). (artículo 29-Ley 7593 y 41.1.b-Decreto 29732-MP).
+6.Deberá estar jurídica y técnicamente sustentada en los modelos de fijación de precios vigentes al momento de la solicitud. Debe indicar cual es la tarifa que solicita y su variación tarifaria con respecto a las tarifas vigentes (variación absoluta y porcentual). En caso de variaciones escalonadas. se requiere indicar los datos anteriores en cada escalón y el total acumulado (artículo 33-Ley 7593).

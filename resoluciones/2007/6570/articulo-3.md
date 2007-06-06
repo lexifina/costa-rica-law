@@ -1,0 +1,3 @@
+III.—Además de los requisitos enunciados en los puntos I y II anterior, se establecen como requisitos de admisibilidad de las peticiones tarifarias propuestas por los prestadores de los servicios públicos de transporte remunerado de personas en la modalidad de autobús, los siguientes:
+1. Indicar los acuerdos vigentes otorgados por el ente público competente en la materia, que detallen la flota, horarios y distancias autorizadas para prestar el servicio público (artículos 9 y 11 -Ley 7593).
+2. Aportar estudio económico financiero, elaborado y firmado por un contador público autorizado, que justifique la petición (artículo 3 1.b.2-Ley 3503).
