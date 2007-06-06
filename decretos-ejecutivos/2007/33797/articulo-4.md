@@ -1,0 +1,1 @@
+Artículo 4º—En el momento que se cuente en Costa Rica con un modelo de geoide y un programa de interpolación adecuado, el Instituto Geográfico Nacional procederá a su evaluación y una vez aprobado, el Instituto Geográfico Nacional autorizará su utilización mediante una resolución administrativa razonada.

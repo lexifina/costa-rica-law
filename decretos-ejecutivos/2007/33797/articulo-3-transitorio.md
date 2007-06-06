@@ -1,0 +1,2 @@
+Transitorio III.—Una vez publicada y oficializada la cartografía en el sistema de proyección cartográfica CRTM05 para una determinada zona del país, conforme al artículo 6º anterior, para esa zona se dará un plazo máximo de tres (3) años, prorrogables a dos (2) períodos iguales, para que todos los trabajos geodésicos y cartográficos oficiales, puedan trasladarse al nuevo sistema.
+Dado en la Presidencia de la República.—San José, a los treinta días del mes de marzo de dos mil siete.

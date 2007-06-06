@@ -1,0 +1,1 @@
+Transitorio II.—Será responsabilidad de cada dependencia pública, la transformación de datos referenciados atinentes a sus tareas de competencia institucional en los anteriores sistemas de proyección cartográfica Lambert Costa Rica Norte y Lambert Costa Rica Sur, al nuevo sistema de proyección cartográfica CRTM05.

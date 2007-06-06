@@ -1,0 +1,1 @@
+Artículo 2º—Se declara como proyección oficial para la representación cartográfica, la Proyección Transversal de Mercator para Costa Rica con el acrónimo CRTM05, con el meridiano central de 84º Oeste, paralelo central 0°, coordenada norte del origen 0 metros, coordenada este del origen 500000 metros, proyectada con un factor de escala de 0,9999 válida para todo el país.
