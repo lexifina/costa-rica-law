@@ -1,0 +1,1 @@
+Artículo 15.—Los y las profesionales en Física pueden asociarse entre sí y aun es recomendable que lo hagan para asegurarse un mejor desarrollo y conocimiento científico, siempre que no se haga con fines ilícitos o inmorales.

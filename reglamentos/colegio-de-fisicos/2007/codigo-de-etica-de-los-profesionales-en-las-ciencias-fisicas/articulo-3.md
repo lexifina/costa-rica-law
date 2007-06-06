@@ -1,0 +1,1 @@
+Artículo 3º—Para los y las profesionales en las Ciencias Físicas estará antes que su propio interés, la búsqueda del conocimiento en Física, su comprensión, su enseñanza, y su adecuada utilización para el bienestar de la sociedad y de la naturaleza.

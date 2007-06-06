@@ -1,0 +1,1 @@
+Artículo 17.—Deben los y las profesionales en Física al impartir cursos en instituciones educativas cubrir, dentro de lo razonable y lo que estipule la libertad de cátedra, los temas fundamentales del programa del curso en cuestión. No es correcto que un profesor o profesora dedique el tiempo lectivo en demasía a enseñar contenidos ajenos al programa del curso.

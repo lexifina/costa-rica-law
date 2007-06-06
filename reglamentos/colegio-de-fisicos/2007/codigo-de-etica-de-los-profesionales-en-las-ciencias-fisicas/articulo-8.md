@@ -1,0 +1,1 @@
+Artículo 8º—En sus actuaciones, deben los y las profesionales en Física abstenerse de realizar actos de competencia desleal. No deben aprovecharse de los esfuerzos de otros y atribuírselos como propios.

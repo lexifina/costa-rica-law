@@ -1,0 +1,1 @@
+Artículo 4º—En su vida, los y las profesionales deben cuidar su honor con todo esmero, eludiendo cuanto pueda afectar los principios morales, la dignidad y las responsabilidades que implica el ejercicio de su profesión.

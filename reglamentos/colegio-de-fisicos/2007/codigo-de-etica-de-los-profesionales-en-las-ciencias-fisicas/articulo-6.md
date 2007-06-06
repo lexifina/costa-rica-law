@@ -1,0 +1,1 @@
+Artículo 6º—Es censurable que los y las profesionales en las Ciencias Físicas divulguen propaganda de cualquier tipo en sus publicaciones; publiquen investigaciones ajenas sin el consentimiento de su titular o presenten información no verídica o no comprobada.
