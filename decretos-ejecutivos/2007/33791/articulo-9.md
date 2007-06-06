@@ -1,0 +1,5 @@
+Artículo 9º—De la forma de reconocimiento. Se procederá a reconocer pago o compensación de la jornada extraordinaria, de la siguiente forma:
+a) La que exceda la jornada ordinaría, a tiempo y medio.
+b) La laborada los días de descanso o feriados, las primeras 8 horas se reconocerán a tiempo sencillo y las siguientes horas serán contabilizadas a doble tiempo.
+El reconocimiento se deberá calcular de conformidad con el tipo de horario del servidor, sea este administrativo o especial, según lo estipulado en los artículos 9º y 10 del decreto Nº 22060-G, denominado “Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería”. Del horario correspondiente dependerá la determinación de los días de descanso.
+Tratándose de servidores que brinden sus servicios en virtud de acuerdos o resoluciones administrativas que determinen el préstamo de sus plazas a favor de la Dirección General, únicamente se podrá reconocer la jornada extraordinaria mediante su compensación en tiempo, salvo en los casos en los que los servidores devenguen el incentivo denominado “disponibilidad”, todo conforme a los artículos 29 y 30 del presente Reglamento.

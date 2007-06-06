@@ -1,0 +1,1 @@
+Artículo 31.—Fiscalización. Recursos Humanos será la unidad administrativa responsable del registro, verificación y control del uso y reconocimiento, ya sea en dinero o compensación, de la cantidad de horas extraordinarias autorizadas.

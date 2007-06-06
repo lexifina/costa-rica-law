@@ -1,0 +1,1 @@
+Artículo 32.—Derogatoria. Deróguese los artículos 13 y 13 bis del decreto Nº 22060-G, denominado “Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería” así como cualquier disposición de la Dirección General de Migración y Extranjería de carácter interno que resulten contrarios al presente Reglamento.

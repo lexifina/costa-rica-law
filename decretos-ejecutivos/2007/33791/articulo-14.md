@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Jornada extraordinaria imprevisible
+Artículo 14.—Horas extraordinarias imprevisibles. Los Directores, Jefes de Departamentos o Gestiones de la Dirección General podrán solicitar a Recursos Humanos, la autorización de jornada extraordinaria imprevisible, ante situaciones que por su naturaleza resulten imposibles de prever, y deban ser atendidas de manera apremiante con el objeto de no causar perjuicio al cumplimiento de cualquiera de las funciones de la Dirección General establecidas por el artículo 13 de la Ley de Migración y Extranjería Nº 8487, o al funcionamiento de cualquiera de sus oficinas.

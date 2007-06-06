@@ -1,0 +1,1 @@
+Artículo 15.—Las horas extraordinarias imprevisibles serán compensadas en tiempo, salvo traslado de horas extraordinarias según lo dispuesto en el artículo 24 del presente Reglamento, en cuyo caso el Director General o la persona que ocupe el cargo de Subdirección, en caso de delegación del primero, podrá disponer el pago de la jornada extraordinaria en dinero.

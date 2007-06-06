@@ -1,0 +1,1 @@
+Artículo 3º—Cuando las necesidades del servicio así lo requieren los servidores quedan en la ineludible obligación de laborar horas extraordinarias, dentro de los límites señalados por el presente Reglamento, salvo causa justa o fuerza mayor para negarse. La negativa injustificada para hacerlo será tomado como falta grave para efectos disciplinarios.
