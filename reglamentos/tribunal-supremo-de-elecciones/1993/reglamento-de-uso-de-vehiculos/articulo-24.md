@@ -1,0 +1,5 @@
+Artículo 24.—De las obligaciones de los conductores y del Tribunal por las declaraciones judiciales. Los conductores que en el cumplimiento de sus funciones, sufran algún tipo de accidente de tránsito, tendrán la obligación de comparecer ante la autoridad judicial competente, a rendir, dentro del plazo respectivo, la declaración correspondiente.
+El Tribunal sufragará los gastos en que pudieran incurrir esos funcionarios por concepto de viáticos siempre que el Despacho Judicial esté localizado fuera de la distancia establecida en el Decreto N° 8-2004, “Regulaciones para gastos de viaje y de transporte dentro del país del Tribunal Supremo de Elecciones”, tanto desde el centro de trabajo como desde el domicilio del conductor.
+El Tribunal además, sufragará el gasto por concepto de combustible.
+Si el funcionario, en el proceso judicial, resultare declarado culpable tendrá la obligación de resarcir al Tribunal las sumas pagadas según lo dispuesto en el párrafo anterior, previa realización del procedimiento administrativo correspondiente.”
+(Así adicionado por decreto del Tribunal Supremo de Elecciones N°10 de 6 de junio de 2007).
