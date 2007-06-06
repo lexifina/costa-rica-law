@@ -1,0 +1,1 @@
+Artículo 6º—El Director Nacional no aprobará el pago o reconocimiento de horas extras ya laboradas, salvo situaciones especiales, calificadas y razonadas, siempre que no se contravenga la normativa técnica y legal vigente.

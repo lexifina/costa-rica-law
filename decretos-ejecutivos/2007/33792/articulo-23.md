@@ -1,0 +1,1 @@
+Artículo 23.—Regularmente el Departamento de Recursos Humanos presentará un informe a la Dirección Nacional del total de horas extras laboradas, pagadas o reconocidas en tiempo efectivo, así como el saldo a dicho momento.

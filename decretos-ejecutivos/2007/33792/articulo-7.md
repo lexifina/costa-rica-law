@@ -1,0 +1,1 @@
+Artículo 7º—Se podrá autorizar el tiempo extraordinario a funcionarios que laboren como mínimo una hora extra después de concluida su jornada ordinaria y que al momento no gocen del incentivo de disponibilidad

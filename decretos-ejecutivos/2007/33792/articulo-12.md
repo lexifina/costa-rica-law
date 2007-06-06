@@ -1,0 +1,1 @@
+Artículo 12.—Los funcionarios que laboren jornada extraordinaria sean de la institución o que se encuentren en calidad de préstamo o trasladados temporalmente en DINADECO, se les podrán reconocer en tiempo efectivo laborado extraordinariamente si han cumplido con lo estipulado en el artículo 7, y por el valor que corresponda.

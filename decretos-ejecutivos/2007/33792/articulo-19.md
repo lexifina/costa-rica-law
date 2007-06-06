@@ -1,0 +1,1 @@
+Artículo 19.—Una vez que Recursos Humanos cuente con el detalle de horas extras laboradas por funcionario, aplicará las operaciones matemáticas necesarias, a fin de determinar la cantidad económica para reconocer al funcionario o la cantidad de tiempo de descanso al cual tendrá derecho.

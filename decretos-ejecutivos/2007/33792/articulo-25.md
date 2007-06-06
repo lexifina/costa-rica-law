@@ -1,0 +1,1 @@
+Artículo 25.—El formato de los Informes y Estudios Técnicos indicados en este Reglamento y los procedimientos respectivos y/o relacionados, deberán ser aprobados por la Dirección Administrativa Financiera mediante resolución razonada.
