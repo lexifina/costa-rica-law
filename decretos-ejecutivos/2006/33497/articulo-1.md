@@ -11,4 +11,5 @@ IV.—Que mediante oficio STAP-0755-06 de 4 de abril del 2006, se comunicó al M
 V.—Que la señora Ministra Rectora del Sector Cultural, avala la solicitud planteada por el Museo, mediante los oficios DM-807-06 y DM-896-06 de 2 y 18 de octubre del 2006, respectivamente.
 VI.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo de Arte Costarricense para el 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase al Museo de Arte Costarricense el gasto presupuestario máximo para el período 2007, establecido según el artículo 1º del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, de manera que éste no podrá exceder la suma de ¢1.387.6 millones (mil trescientos ochenta y siete millones seiscientos mil colones).
+Artículo 1º—Modifícase al Museo de Arte Costarricense el gasto presupuestario máximo para el período 2007, establecido según el artículo 1º del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, de manera que éste no podrá exceder la suma de ¢1.406.520.000,00 (mil cuatrocientos seis millones quinientos veinte mil colones con cero céntimos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33844 del 6 de junio de 2007).

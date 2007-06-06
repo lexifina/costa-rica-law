@@ -14,3 +14,4 @@ Modifica al Museo de Arte Costarricense el gasto presupuestario máximo para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2007-06-06 | Decreto Ejecutivo 33844 (2007-06-06) |
