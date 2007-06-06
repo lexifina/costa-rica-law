@@ -1,0 +1,6 @@
+Artículo 19.—El Sistema Nacional de Áreas de Conservación (SINAC) a través de sus oficinas subregionales podrá autorizar la realización de torneos de caza de conformidad con el Art. 24 del reglamento de la Ley de Conservación de la Vida Silvestre, mediante resolución administrativa, solo cuando se trate de:
+a) Se prohíben los torneos de caza en los meses de junio – julio –agosto.
+b) Rastreo de huellas preparadas para los efectos del torneo en un día determinado; para lo cual no se autoriza el acoso, maltrato o muerte de animales silvestres.
+c) Torneos de caza menor de aves canoras y de plumaje y su liberación en el mismo sitio de captura, con un máximo de 2 fechas por sitio por el período autorizado. Las asociaciones únicamente podrán realizar un torneo por sitio por año.
+d) Torneos de canto de aves canoras en sitios bajo techo o cerrados y acondicionados para tal efecto.
+Para los torneos de caza menor de aves canoras y de plumaje, los participantes deberán portar y mostrar si fuera requerido la correspondiente licencia de caza vigente. Los torneos de caza deberán ser fiscalizados por funcionarios del SINAC del Área de Conservación correspondiente. Las asociaciones deberán presentar un informe sobre las aves capturadas y liberadas.
