@@ -1,6 +1,9 @@
-ARTÍCULO 85.- Existirá además un Consejo Asesor de Facultad integrado por un mínimo de cinco y un máximo de doce miembros. Son miembros ex-oficio del Consejo Asesor de Facultad:
-a) El Decano, quien preside; en su ausencia presidirá el Vicedecano y en ausencia de ambos, el miembro que en el acto se designe.
-b) Los Directores de Escuela.
-c) Los Directores de los Institutos de Investigación adscritos a la Facultad.
-ch) Una representación estudiantil no mayor del 25% del número total de los profesores miembros de dicho Consejo.
-Las Asambleas de cada Facultad determinarán el número y nombrarán a los miembros del Consejo Asesor de Facultad, excepto a los miembros ex-oficio, por períodos de dos años, pudiendo ser reelectos una sola vez.
+ARTÍCULO 85.- Existirá además un Consejo Asesor de Facultad constituido por un mínimo de cinco integrantes. Son miembros exoficio del Consejo Asesor de Facultad:
+a) El decano o la decana, quien preside; en su ausencia presidirá la vicedecana o el vicedecano, y en ausencia de ambos, la persona miembro a quien en el acto se designe.
+b) Los directores y directoras de escuela. En caso de las facultades no integradas por escuelas, las personas que desempeñan puestos de dirección docente-administrativos de los departamentos o de dependencias similares, quienes están en relación jerárquica inmediata con la decanatura.
+c) Los directores y las directoras de los institutos de investigación adscritos a la Facultad.
+d) Un director o directora en representación de los centros de investigación afines a la Facultad, definidos así por la Vicerrectoría de Investigación, cuyo nombramiento será rotativo, con vigencia de hasta dos años, efectuado en reunión de directores y directoras de esos centros y convocada para tal efecto por el decano o decana.
+e) Un director o directora en representación de los programas de posgrado de la Facultad. El nombramiento será rotativo, con vigencia de hasta dos años, efectuado en reunión de directores y directoras de esos programas, convocada por el decano o la decana para tal efecto.
+f) Una representación estudiantil no mayor del veinticinco por ciento, según lo establece el artículo 170 de este Estatuto.
+Las asambleas de cada Facultad determinarán el número y nombrarán los miembros del Consejo Asesor de Facultad, excepto a los miembros ex oficio, por períodos de dos años, pudiendo ser reelectos una sola vez. El Consejo Asesor podrá sesionar de manera ampliada con otras autoridades de la Facultad y sus disposiciones serán consideradas por el Consejo Asesor, para la toma de decisiones.
+(Así reformado en Asamblea Colegiada Representativa Nº 125 del 7 de junio del 2007).
