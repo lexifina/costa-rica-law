@@ -1,0 +1,1 @@
+Artículo 2º—La cuota de importación indicada en el artículo anterior, será importada bajo los términos y condiciones establecidos en el Decreto Ejecutivo Nº 33521-MAG-MEIC-COMEX, entre los meses de febrero y julio del 2007.
