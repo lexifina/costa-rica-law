@@ -15,3 +15,4 @@ Horario Vigente en Aduanas y Puestos Aduaneros y derogatoria de Circular DGT-038
 | --- | --- | --- |
 | 1 | 2007-05-07 | la propia norma |
 | 2 | 2007-05-21 | Circular 78 (2007-05-21) |
+| 3 | 2007-06-08 | Circular 89 (2007-06-08) |

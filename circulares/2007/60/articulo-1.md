@@ -1,3 +1,5 @@
+(Derogado)
+(Esta circular fue derogada por la circular DGT-089 del 8 de junio de 2007)
 DIRECCIÓN GENERAL DE ADUANAS
 San José, 30 de abril del 2007
 Circular DGT-060-2007
