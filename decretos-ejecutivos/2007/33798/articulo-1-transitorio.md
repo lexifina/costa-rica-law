@@ -1,0 +1,2 @@
+Transitorio único.—Todos aquellos funcionarios que a la fecha de entrada en vigencia del presente Reglamento tengan en su poder un teléfono celular del Ministerio de Hacienda y no se encuentren contemplados en su artículo 2º, tienen un plazo de 7 días naturales para hacer entrega del mencionado bien a la Proveeduría Institucional del Ministerio de Hacienda.
+Dado en la Presidencia de la República.—San José, a los nueve días del mes de abril del dos mil siete.

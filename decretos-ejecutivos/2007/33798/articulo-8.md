@@ -1,0 +1,1 @@
+Artículo 8º—Acceso a llamadas internacionales. Únicamente el Ministro y los Viceministros se encuentran autorizados para efectuar llamadas internacionales por medio del teléfono celular asignado, en razón de su cargo.
