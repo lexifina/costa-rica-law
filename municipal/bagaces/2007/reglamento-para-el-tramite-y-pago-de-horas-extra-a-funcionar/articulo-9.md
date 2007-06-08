@@ -1,0 +1,1 @@
+Articulo 9º—La Unidad de Recursos Humanos,( mientras no exista el departamento de recursos Humanos y en adelante en el presente reglamento, entiéndase que esas funciones le serán asignadas a la Directora Financiera Administrativa) ese departamento revisará las solicitudes para laborar tiempo extraordinario y velará que cumplan con la normativa y procedimientos establecidos.

@@ -1,0 +1,1 @@
+Artículo 11.—Si El Alcalde es quien autoriza la jornada extraordinaria, comunicará a la Unidad de Recursos Humanos (Directora Financiera Administrativa), las solicitudes aprobadas para laborar en jornada extraordinaria, especificando la cantidad de horas autorizadas. La autorización puede también ser dada por la Directora Financiera Administrativa.

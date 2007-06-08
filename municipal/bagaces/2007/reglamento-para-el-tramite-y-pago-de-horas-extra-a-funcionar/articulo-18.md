@@ -1,0 +1,1 @@
+Artículo 18.—La Unidad de Recursos Humanos (Directora Financiera Administrativa) verificará la información de los reportes de horas extras, velando que se cumpla lo establecido en el artículo 12, inciso c), de este Reglamento para posteriormente remitirlos a las Unidades de Contabilidad y Tesorería de efectuar el pago correspondiente.
