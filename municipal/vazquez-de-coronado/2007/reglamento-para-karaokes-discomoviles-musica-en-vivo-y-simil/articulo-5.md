@@ -1,0 +1,1 @@
+Artículo 5º—Este permiso estará vigente por un periodo de seis meses y será renovado por un período igual y así sucesivamente, sino existiera oposición documentada y razonada del vecindario en relación con los niveles de contaminación sónica producidos por la operación del karaoke, este permiso estará vigente por un periódo de seis meses y será

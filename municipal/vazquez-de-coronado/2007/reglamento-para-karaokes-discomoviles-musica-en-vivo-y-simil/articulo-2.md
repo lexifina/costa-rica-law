@@ -1,0 +1,1 @@
+Artículo 2º—Definición de karaoke: Aquel sistema de sonido amplificado o no que permite el canto interactivo de los aficionados o expertos, con acompañamiento de pistas musicales pregrabadas, interpretadas en vivo o directamente de temas originales. Esta actividad que resulta de la combinación interactiva descrita, necesariamente genera niveles de ruido en el ambiente localizado.
