@@ -1,0 +1,3 @@
+Artículo 38.—Sobre el trabajo comunal y el encuentro de jóvenes becarios:
+a) Como forma de motivar la solidaridad hacia la comunidad y retribuir el beneficio recibido, se establece el trabajo comunal de los becarios, que deberá ser realizado anualmente por el grupo de éstos, dirigido por la Comisión de Asuntos Sociales. Estos becarios deberán de aportar 4 (cuatro) horas mensuales de trabajo comunal.
+b) Las áreas de investigación, reflexión y/o servicio, bajo las cuales se desarrollará el trabajo comunal, serán definidas anualmente por la dependencia municipal señalada en el inciso anterior, quien de considerarlo pertinente, someterá a consulta de la indicada Comisión su propuesta.

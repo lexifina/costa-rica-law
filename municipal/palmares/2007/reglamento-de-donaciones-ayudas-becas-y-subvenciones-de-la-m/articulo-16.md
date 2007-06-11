@@ -1,0 +1,1 @@
+Artículo 16.—El Concejo Municipal conocerá la solicitud en la sesión inmediata posterior a la fecha de su presentación y la trasladará para su estudio y dictamen a la Comisión de Asuntos Sociales, quien para determinar en forma fehaciente el objeto y fin que conlleva la subvención solicitada, pasará el expediente del caso para el análisis de rigor, a la sección que corresponda.

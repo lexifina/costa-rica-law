@@ -1,0 +1,1 @@
+Artículo 26.—Trámites para renovación de la beca: Para la tramitación de las solicitudes de renovación, sean para secundaria o estudios superiores, la Secretaría del Concejo Municipal anexará a los cheques correspondientes al mes de septiembre de cada año, una nota indicándole al becario que en la primer semana del mes de octubre deberá retirar el formulario de solicitud de beca.

@@ -1,0 +1,2 @@
+Artículo 42.—Por la naturaleza jurídica de este Reglamento y para cumplir con las disposiciones del artículo 43 del Código Municipal, se somete a consulta pública no vinculante por un plazo de diez días hábiles, contados a partir de su publicación en el Diario Oficial La Gaceta, debiendo hacer cualquier interesado hacer sus oposiciones en memorial razonado, ante el Despacho del Alcalde Municipal.
+Reglamento aprobado en la sesión ordinaria Nº 36, cap. V, artículo 9º, de fecha 8 de enero del 2007.

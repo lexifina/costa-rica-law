@@ -1,0 +1,1 @@
+Artículo 34.—El becario de secundaria está obligado a enviar a la Secretaría del Concejo, el informe de las calificaciones obtenidas al completar cada trimestre y al concluir cada curso lectivo deberá comprobar la aprobación de los mismas, mediante la presentación del reporte de calificaciones expedida por la dirección del centro educativo donde realiza los estudios.

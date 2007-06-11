@@ -1,0 +1,1 @@
+Artículo 7º—La municipalidad debe de disponer del 1.5% de los recursos asignados anualmente en sus presupuestos ordinarios y extraordinarios a través de una partida especifica para estos efectos, pues si no cuenta con dichos recursos, la entidad está inhibida para conferir ayudas de esa naturaleza , de acuerdo con la normativa vigente.

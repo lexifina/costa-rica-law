@@ -1,0 +1,1 @@
+Artículo 24.—Del órgano encargado de adjudicar becas municipales: La adjudicación de becas le corresponde a la Corporación Municipal, quien se basará para tales efectos, en el dictamen que en cada caso, le brinde la Comisión Asuntos Sociales, así como en los antecedentes del interesado y en la recomendación que se derive del estudio social realizado.

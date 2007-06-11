@@ -1,0 +1,1 @@
+Artículo 36.—En el caso de los estudiantes de educación superior o técnica, éstos deben de aportar la certificación de notas de todas las materias matriculadas y de las aprobadas semestrales o cuatrimestrales, extendidas por el Departamento de Registro del centro educativo que corresponda.

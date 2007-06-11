@@ -1,0 +1,1 @@
+Artículo 8º—En caso de que un acontecimiento de grandes proporciones afecte a varios(as) vecinos(as) del cantón, la municipalidad ayudará a tantos(as) vecinos(as) como lo permitan los recursos establecidos anualmente en su presupuesto ordinario y extraordinarios destinado para tales fines. Además coordinará con instituciones de ayuda social.

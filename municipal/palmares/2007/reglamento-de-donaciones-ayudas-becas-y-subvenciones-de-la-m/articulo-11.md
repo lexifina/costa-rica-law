@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad otorgará al o los(as) vecinos(as) las ayudas cuando ésta proceda, dentro de un plazo máximo de 30 días hábiles, después de recibida la solicitud ante el Concejo Municipal.

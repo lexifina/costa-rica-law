@@ -1,0 +1,8 @@
+Artículo 25.—Sobre la distribución de los formularios: Los formularios de solicitud de beca municipal serán distribuidos de la siguiente manera:
+1.- Formularios para becas de Segunda Enseñanza:
+a) Para tramitar solicitudes de becas por primera vez, la Municipalidad enviará a la Dirección Administrativa de las escuelas y colegios del Cantón un comunicado de invitación para que aquellos estudiantes que cumplan con los requisitos establecidos en este Reglamento y tengan interés en la beca, retiren los formularios de solicitud.
+b) En dicho comunicado se les indicará que la entrega de los formularios se realizará durante los primeros cinco días hábiles del mes de julio de cada año y deberán ser retirados por el interesado en la Secretaría del Concejo.
+c) Para tal efecto, el aspirante deberá presentar una carta de recomendación expedida por el centro de enseñanza, donde estudia y en la que se indique que es buen estudiante.
+d) Las situaciones serán corroboradas mediante el estudio social que se hará a cada aspirante por parte de la Comisión de Asuntos Sociales, y con base en la nota de fin de curso lectivo que en su oportunidad se le requerirá al solicitante.
+2.-Formularios de becas para estudios superiores y carreras técnicas:
+Para solicitar por primera vez una beca para cursar estudios universitarios, la Secretaría del Concejo Municipal, entregará durante los primeros cinco días hábiles de cada cuatrimestre o semestre, los formularios de solicitud. Para tal efecto el solicitante deberá aportar comprobante de matrícula y plan de estudios de la carrera que cursará, extendido por el centro educativo seleccionado.
