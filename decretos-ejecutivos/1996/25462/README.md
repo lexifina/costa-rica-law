@@ -15,3 +15,4 @@ Reglamento a la Ley Reguladora del Fumado
 | --- | --- | --- |
 | 1 | 1996-09-24 | la propia norma |
 | 2 | 1998-09-28 | Decreto Ejecutivo 27356 (1998-09-28) |
+| 3 | 2007-06-11 | Decreto Ejecutivo 33760 (2007-03-30) |
