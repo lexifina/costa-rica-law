@@ -1,0 +1,1 @@
+Artículo 6º—Deróguense las siguientes disposiciones normativas: artículo 1º del Decreto Ejecutivo Nº 30310-MINAE publicado en La Gaceta Nº 88 del 9 de mayo del 2002 y el Decreto Ejecutivo Nº 29147-MINAE publicado en La Gaceta Nº 241 del 15 de diciembre del 2000.

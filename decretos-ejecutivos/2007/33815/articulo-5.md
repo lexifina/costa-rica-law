@@ -1,0 +1,1 @@
+Artículo 5º—En todos los artículos del Decreto Ejecutivo Nº 27695-MINAE y del Decreto Ejecutivo 25721-MINAE donde se refiere a las siglas CNCF (Comisión Nacional de Certificación Forestal), en lo sucesivo debe leerse CNSF (Comisión Nacional para la Sostenibilidad Forestal).
