@@ -1,1 +1,0 @@
-Articulo 12.—De la aprobación e interpretación de este Reglamento. Basados en las potestades que le confiere la Ley Orgánica de INCOP le corresponderá a su Junta Directiva aprobar los Reglamentos e interpretarlos correctamente en caso de duda.
