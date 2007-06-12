@@ -1,0 +1,2 @@
+Artículo 4 bis.- Páguese a los Regidores y Síndicos, Propietarios y Suplentes que corresponda el monto correspondiente a transporte según la tabla vigente de la Contraloría General de la República , debiendo liquidarse por cada uno de los interesados tomando en cuenta las Leyes de la República imperantes en dicha materia. Lo anterior tomando en cuenta el ordinal Nº 30 del Código Municipal.
+(Así adicionado mediante sesión N° 92 del 12 de junio de 2007).

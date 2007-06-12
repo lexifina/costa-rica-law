@@ -15,3 +15,4 @@ Reglamento para el pago de gastos por alimentación y transporte a los regidores
 | --- | --- | --- |
 | 1 | 2004-01-29 | la propia norma |
 | 2 | 2007-03-27 | Reglamento municipal 76 (2007-03-27) |
+| 3 | 2007-06-12 | Reglamento municipal 92 (2007-06-12) |
