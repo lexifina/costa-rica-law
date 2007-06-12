@@ -14,3 +14,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-17 | la propia norma |
+| 2 | 2007-06-12 | Reglamento municipal 57 (2007-06-12) |

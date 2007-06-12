@@ -1,1 +1,2 @@
-Artículo 3°—El Alcalde Municipal podrá autorizar egresos por gastos fijos y la adquisición de bienes y servicios, tal y como lo señala el artículo 17, inciso "h" del Código Municipal, hasta por la suma de quinientos mil colones.
+Artículo 3°—El Alcalde Municipal podrá autorizar egresos por gastos fijos y adquisición de bienes y servicios, tal y como lo señala el inciso h) del artículo 17 del Código Municipal, hasta por la suma de ¢2.000.000,00 (dos millones de colones), esta autorización estará sujeta a lo dispuesto por la Ley de Contratación Administrativa y su reglamento en lo conducente. Publíquese en el Diario Oficial La Gaceta. Acuerdo cuenta con siete votos afirmativos
+(Así reformado y publicado en La Gaceta N° 119 del 21 de junio del 2007).
