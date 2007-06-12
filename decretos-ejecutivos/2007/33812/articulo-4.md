@@ -1,0 +1,1 @@
+Artículo 4°— Los incumplimientos a la presente regulación serán sancionados, según sea el caso, de acuerdo con los artículos 57,59, 60, 61 y 63 de la Ley de la promoción al Consumidor y sus Reformas, salvo que el incumplimiento implique violación a disposiciones típicas concretas de carácter administrativo en materia sanitaria; el Código Penal vigente.
