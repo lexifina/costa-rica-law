@@ -1,0 +1,2 @@
+Artículo 2º—La modificación del gasto presupuestario máximo para el año 2008 establecido a la Autoridad Reguladora de los Servicios Públicos indicado en el Decreto Ejecutivo Nº 33646-H, para la formulación del presupuesto rige a partir de su publicación, y para su ejecución rige a partir de enero del 2008.
+Dado en la Presidencia de la República, a los treinta días del mes de mayo del año dos mil siete.
