@@ -14,3 +14,4 @@ Traspaso de Tierras al INDER del programa de titulación de los Santos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-12 | la propia norma |
+| 2 | 2007-06-13 | Ley 7 |
