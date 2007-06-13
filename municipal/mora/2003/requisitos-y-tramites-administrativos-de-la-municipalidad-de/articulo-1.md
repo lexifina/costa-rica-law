@@ -278,12 +278,16 @@ ii. Solicitud de permiso de construcción para condominios.
 4. Presentar estudios de percolación de suelos para efectos de construcción de tanques sépticos y drenajes.
 5. Dependiendo de la dimensión del condominio, la Municipalidad se reserva el derecho de solicitar un Formulario de Evaluación de Ambiental Preliminar debidamente revisado por la Secretaría Técnica Nacional. Dicho documento definirá a su vez si la Municipalidad solicita o no un estudio de impacto ambiental.
 6. La Municipalidad resolverá cada solicitud en un plazo máximo de 30 días naturales.
+7. Presentar Índice de Fragilidad Ambiental (IFA), establecido por el Decreto Ejecutivo Nº 32967-MINAE “Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental”, del día 20 de febrero del 2006, publicado en el Diario Oficial La Gaceta N º 85 del 04 de mayo del 2006.
+(Así adicionado mediante sesión N° 14 del 13 de junio de 2007)
 iii. Solicitud de permiso de construcción para urbanizaciones.
 1. Documentos que debe presentar el interesado:
 1. Debe cumplirse con todos los requisitos para permisos de construcción en general, anteriormente señalados.
 2. Aplican los requisitos para permisos de construcción para condominios, anteriormente señalados.
 3. Una vez recibida toda la información anterior el Departamento de Ingeniería elevará ante el Concejo Municipal el informe correspondiente para que se tome la resolución final. La Municipalidad resolverá cada solicitud en un plazo de treinta días naturales.
 4. La Municipalidad puede sugerir a los interesados que con anterioridad a la solicitud de un permiso de construcción para urbanizaciones, se someta al conocimiento de la Municipalidad el diseño de sitio del proyecto para su valoración preliminar.
+5. Presentar Índice de Fragilidad Ambiental (IFA), establecido por el Decreto Ejecutivo Nº 32967-MINAE “Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental”, del día 20 de febrero del 2006, publicado en el Diario Oficial La Gaceta N º 85 del 04 de mayo del 2006
+(Así adicionado mediante sesión N° 14 del 13 de junio de 2007)
 iv. Solicitud de alineamiento.
 1. Documentos que debe presentar el interesado:
 1. Solicitud formal ante la Municipalidad, lo que debe hacerse antes de presentar su solicitud de permiso de construcción o reconstrucción, para que se le indique cuál es el alineamiento y nivel oficial que corresponde a su propiedad. Esa fijación deberá hacerse dentro de los tres meses siguientes a la fecha de presentación de la solicitud respectiva, y si no se hiciere, quedará de pleno derecho como línea de construcción el límite de la propiedad con la vía pública. (Artículo 18 Ley Nº 833).
@@ -304,6 +308,8 @@ v. Requisitos para permisos de movimientos de tierra.
 5. Copia de la cédula de identidad del propietario. Si es persona jurídica, copia de la cédula jurídica y personería jurídica.
 6. Contrato de consultoría entre el propietario y el profesional responsable del movimiento de tierra, sellado por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica.
 7. Recibo de pago de la póliza de Riesgos del Trabajo emitida por el Instituto Nacional de Seguros.
+8. Presentar Índice de Fragilidad Ambiental (IFA), establecido por el Decreto Ejecutivo Nº 32967-MINAE “Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental”, del día 20 de febrero del 2006, publicado en el Diario Oficial La Gaceta N º 85 del 04 de mayo del 2006.
+(Así adicionado mediante sesión N° 14 del 13 de junio de 2007)
 vi. Solicitud para demoliciones.
 1. Documentos que debe presentar el interesado:
 1. Solicitud por escrito de demolición total o parcial de construcciones ante el Departamento de Ingeniería.
@@ -347,6 +353,14 @@ ii. Documentos que debe presentar el interesado:
 a. Cantidad de metros cúbicos de cada producto vendido durante el mes correspondiente.
 b. Precio de venta por metro cúbico de cada uno de los productos durante el mismo mes.
 c. Monto del impuesto a pagar. (Artículo 8º Reglamento)
+xii. Solicitud de permisos de construcción para rellenos sanitarios, manejo de residuos o disposición final de desechos sólidos.
+1. Aplica todos los requisitos para permisos de construcción en general.
+2. Presentar Índice de Fragilidad Ambiental (IFA), establecido por el Decreto Ejecutivo Nº 32967-MINAE “Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental”, del día 20 de febrero del 2006, publicado en el Diario Oficial La Gaceta N º 85 del 04 de mayo del 2006.
+(Así adicionado mediante sesión N° 14 del 13 de junio de 2007)
+xiii. Solicitud de permisos de construcción para aprovechamientos del recurso hídrico
+1. Aplica todos los requisitos para permisos de construcción en general.
+2. Presentar Índice de Fragilidad Ambiental (IFA), establecido por el Decreto Ejecutivo Nº 32967-MINAE “Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental”, del día 20 de febrero del 2006, publicado en el Diario Oficial La Gaceta N º 85 del 04 de mayo del 2006.
+(Así adicionado mediante sesión N° 14 del 13 de junio de 2007)
 IV.—Sección de Servicios Municipales
 a. Procedimiento para regular el alquiler de niveladora y equipo municipal.
 De conformidad con lo que establece el Reglamento para Alquiler de Niveladora y Equipo Municipal, aprobado en sesión 298 del 4 de abril de 1994, los requisitos y trámite para el uso de este tipo de maquinaria son los siguientes:

@@ -14,3 +14,4 @@ Requisitos y Trámites Administrativos de la Municipalidad de Mora.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-04 | la propia norma |
+| 2 | 2007-06-13 | Acuerdo municipal 0 (2007-06-13) |
