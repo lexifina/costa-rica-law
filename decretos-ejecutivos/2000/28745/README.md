@@ -14,3 +14,4 @@ Traspaso tierras al INDER programa de Titulación Cuenca del Río Aranjuez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-11 | la propia norma |
+| 2 | 2007-06-13 | Ley 7 |
