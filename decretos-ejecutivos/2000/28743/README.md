@@ -14,3 +14,4 @@ Traspaso Tierras al INDER Programa Titulación Tierras Altas de Santa Cruz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-10 | la propia norma |
+| 2 | 2007-06-13 | Ley 7 |
