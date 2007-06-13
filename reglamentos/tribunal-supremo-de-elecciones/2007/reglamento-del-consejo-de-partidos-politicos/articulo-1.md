@@ -1,0 +1,10 @@
+TRIBUNAL SUPREMO DE ELECCIONES
+Nº 09-2007.—En uso de las atribuciones que le confieren los artículos 99, 102 inciso 10) de la Constitución Política y 19 inciso f) del Código Electoral; y,
+Considerando:
+Primero.—Que constitucionalmente corresponde al Tribunal Supremo de Elecciones, en forma exclusiva e independiente, organizar, dirigir y vigilar los actos relativos al sufragio; razón por la cual el artículo 19 del Código Electoral le reconoce, entre otras, la potestad de dictar los reglamentos propios de la materia electoral.
+Segundo.—Que la Constitución Política también contempla el derecho de los ciudadanos de agruparse en partidos políticos para intervenir en la política nacional; dichas agrupaciones expresarán el pluralismo político, concurrirán a la formación y manifestación de la voluntad popular y serán instrumentos fundamentales para la participación política.
+Tercero.—Ese reconocimiento constitucional del Tribunal y los partidos políticos como componentes básicos de la institucionalidad electoral obliga a visualizar, como reto esencial de la democracia, su fortalecimiento y la necesidad de lograrlo, entre otras vías posibles, por intermedio de un diálogo institucionalizado que promueva una vinculación más estrecha y funcional entre aquél y éstos.
+Cuarto.—Que mediante acuerdo tomado por el Tribunal en sesión Nº 30-2007 del 29 de marzo del 2007, artículo segundo, se concedió audiencia a todas las agrupaciones partidarias para que pudieran referirse al proyecto de reglamento que ahora se promulga.
+Por tanto, decreta el siguiente:
+REGLAMENTO DEL CONSEJO DE PARTIDOS POLÍTICOS
+Artículo 1º—Creación. Créase el Consejo de Partidos Políticos como un órgano colegiado de carácter consultivo, cuya finalidad es la de servir de instancia asesora y propositiva del Tribunal Supremo de Elecciones y de vínculo permanente de éste con las agrupaciones partidarias, a los efectos de que por su medio puedan contribuir en la actualización y mejoramiento continuo de la institucionalidad y los procesos electorales, así como de la normativa que los rige.

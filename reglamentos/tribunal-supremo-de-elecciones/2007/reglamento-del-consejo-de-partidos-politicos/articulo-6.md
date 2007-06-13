@@ -1,0 +1,1 @@
+Artículo 6º—Vigencia y normativa supletoria. El presente reglamento rige a partir de su publicación en el Diario Oficial. En ausencia de norma de éste, regirá supletoriamente lo dispuesto en los artículos 49 a 58 de la Ley General de la Administración Pública.

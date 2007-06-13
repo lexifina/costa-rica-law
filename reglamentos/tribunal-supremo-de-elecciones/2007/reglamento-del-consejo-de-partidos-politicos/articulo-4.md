@@ -1,0 +1,4 @@
+Artículo 4º—Sesiones. El Consejo de Partidos Políticos sesionará ordinariamente una vez al mes. Extraordinariamente lo hará cuando sea convocado, con al menos una semana de antelación, por la Coordinación de Programas Electorales a solicitud de no menos del diez por ciento de los miembros acreditados o cuando el Tribunal Supremo de Elecciones así lo disponga. Cuando las circunstancias así lo ameriten, por la materia a tratarse, el Tribunal podrá circunscribir la convocatoria a los partidos inscritos a una escala particular (nacional, provincial o cantonal).
+Para sesionar válidamente en primera convocatoria se requerirá la presencia de la mayoría absoluta de los miembros acreditados; en segunda convocatoria, podrá hacerlo con cualquier cantidad de miembros presentes.
+Los miembros suplentes participarán en las sesiones únicamente en ausencia del respectivo propietario.
+Las decisiones se tomarán por mayoría simple de los miembros presentes y mediante votación pública.
