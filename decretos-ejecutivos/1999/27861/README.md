@@ -14,3 +14,4 @@ Traspaso en forma gratuita al Instituto de Desarrollo Rural Tierras Fuera de las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-17 | la propia norma |
+| 2 | 2007-06-13 | Ley 7 |
