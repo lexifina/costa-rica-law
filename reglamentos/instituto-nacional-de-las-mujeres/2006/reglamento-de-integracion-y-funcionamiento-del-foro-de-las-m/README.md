@@ -14,3 +14,4 @@ Reglamento de Integración y Funcionamiento del Foro de las Mujeres del Institut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-19 | la propia norma |
+| 2 | 2007-06-14 | Reglamento 0 (2007-06-14) |
