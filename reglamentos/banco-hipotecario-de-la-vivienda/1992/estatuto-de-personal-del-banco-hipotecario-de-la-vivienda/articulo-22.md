@@ -1,1 +1,2 @@
-Artículo 22.—Recargo y sustitución de funciones: El Banco reconocerá el pago por recargo y sustitución de funciones superior a cinco días hábiles, al amparo de las disposiciones que para ambos casos emita la Gerencia General.
+Artículo 22.—Recargo y sustitución de funciones: El Banco reconocerá el pago por recargo y sustitución de funciones superior a veinte días hábiles, al amparo de las disposiciones que para ambos casos emita la Gerencia General. Lo anterior, con excepción de los recargos y sustituciones superiores a cinco cías hábiles e inferiores o iguales a veinte días hábiles, los cuales por excepción podrá autorizar la Junta Directiva en casos que considere calificados”.
+(Así reformado mediante sesión N° 39 del 14 de junio de 2007)
