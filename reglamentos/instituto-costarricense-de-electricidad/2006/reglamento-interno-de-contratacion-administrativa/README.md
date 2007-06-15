@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-27 | la propia norma |
+| 2 | 2007-06-15 | Reglamento 0 (2007-06-15) |
