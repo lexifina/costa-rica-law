@@ -1,0 +1,9 @@
+Artículo 59 Entrada en vigor; plazo para la recusación
+o la formulación de reservas
+1. De conformidad con lo preceptuado en el Artículo 22 de la Constitución de la OMS, el plazo hábil para recusar el presente Reglamento o una enmienda del mismo o para formular reservas a sus disposiciones o a las enmiendas será de 18 meses desde la fecha en que el Director General notifique la adopción del Reglamento o de una enmienda del mismo por la Asamblea de la Salud. No surtirán efecto las notificaciones de recusación ni las reservas que reciba el Director General después de vencido ese plazo.
+2. El presente Reglamento entrará en vigor 24 meses después de la fecha de la notificación a que se hace referencia en el párrafo 1 del presente artículo, salvo para:
+a) los Estados que hayan recusado el presente Reglamento o una enmienda del mismo de conformidad con el artículo 61;
+b) los Estados que hayan formulado una reserva, para los que el presente Reglamento entrará en vigor según lo previsto en el artículo 62;
+c) los Estados que pasen a ser Miembros de la OMS después de la fecha de la notificación del Director General a que se hace referencia en el párrafo 1 del presente artículo y que no sean ya partes en el presente Reglamento, para los cuales éste entrará en vigor según lo previsto en el artículo 60; y
+d) los Estados que no son Miembros de la OMS pero aceptan el presente Reglamento, para los cuales entrará en vigor de conformidad con las disposiciones del párrafo 1 del artículo 64.
+3. Si un Estado no puede ajustar plenamente sus disposiciones legislativas y administrativas al presente Reglamento dentro del plazo establecido en el párrafo 2 del presente artículo, dicho Estado presentará al Director General, dentro del plazo establecido en el párrafo 1 del presente artículo, una declaración sobre los ajustes pendientes, y ultimará esos ajustes a más tardar 12 meses después de la entrada en vigor del presente Reglamento para ese Estado Parte.

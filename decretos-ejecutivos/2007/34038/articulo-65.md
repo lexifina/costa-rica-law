@@ -1,0 +1,3 @@
+Artículo 65 Notificaciones del Director General
+1. El Director General notificará a todos los Estados Miembros y Miembros Asociados de la OMS, y a las demás partes en los acuerdos o reglamentos sanitarios internacionales mencionados en el artículo 58, la adopción del presente Reglamento por la Asamblea de la Salud.
+2. El Director General notificará además a esos Estados, y a cualquier otro que llegue a ser parte en el presente Reglamento o en cualquier modificación del mismo, todas las enmiendas que la OMS reciba de conformidad con lo dispuesto en los artículos 60 a 64, respectivamente, y todas las decisiones que tome la Asamblea de la Salud en cumplimiento del artículo 62.

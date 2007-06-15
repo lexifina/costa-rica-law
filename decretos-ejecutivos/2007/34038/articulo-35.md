@@ -1,0 +1,3 @@
+TÍTULO VI - DOCUMENTOS SANITARIOS
+Artículo 35 Disposición general
+En el tráfico internacional no se exigirán otros documentos sanitarios que los previstos en el presente Reglamento o en las recomendaciones formuladas por la OMS, aunque debe tenerse en cuenta, sin embargo, que este artículo no se aplicará a los viajeros que soliciten residencia temporal o permanente ni a las prescripciones sobre la documentación de la salubridad de las mercancías o cargas objeto de comercio internacional contenidas en los acuerdos internacionales pertinentes. A condición de que cumpla con los requisitos establecidos en el artículo 23, la autoridad competente podrá pedir que se cumplimenten formularios sobre datos de contacto y cuestionarios sobre la salud de los viajeros.

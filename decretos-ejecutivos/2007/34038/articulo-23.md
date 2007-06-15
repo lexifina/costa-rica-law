@@ -1,0 +1,13 @@
+TÍTULO V - MEDIDAS DE SALUD PÚBLICA
+Capítulo I - Disposiciones generales
+Artículo 23 Medidas sanitarias a la llegada o la salida
+1. Sin perjuicio de los acuerdos internacionales aplicables y de lo dispuesto en los artículos pertinentes del presente Reglamento, un Estado Parte podrá exigir, con fines de salud pública, a la llegada o la salida:
+a) a los viajeros:
+i) información sobre su destino para poder tomar contacto con ellos;
+ii) información sobre su itinerario, para averiguar si han estado en una zona afectada o sus proximidades, o sobre otros posibles contactos con una infección o contaminación antes de la llegada, así como el examen de los documentos sanitarios de los viajeros que prescriba el presente Reglamento; y/o
+iii) un examen médico no invasivo lo menos intrusivo posible que permita lograr el objetivo de salud pública;
+b) la inspección de equipajes, cargas, contenedores, medios de transporte, mercancías, paquetes postales y restos humanos.
+2. Sobre la base de las pruebas obtenidas mediante las medidas previstas en el párrafo 1 del presente artículo, o por otros medios, sobre la existencia de un riesgo para la salud pública, los Estados Partes podrán aplicar medidas adicionales de salud de conformidad con el presente Reglamento, en particular en relación con viajeros sospechosos o afectados, según el caso, el examen médico lo menos intrusivo e invasivo posible que permita lograr el objetivo de salud pública consistente en prevenir la propagación internacional de enfermedades.
+3. No se realizará ningún examen médico ni se procederá a ninguna vacunación ni se adoptará ninguna medida profiláctica ni sanitaria en virtud del presente Reglamento sin el consentimiento informado previo y explícito del viajero o de sus padres o tutores, con la salvedad de lo dispuesto en el párrafo 2 del artículo 31, y de conformidad con la legislación y las obligaciones internacionales del Estado Parte.
+4. Los viajeros que deban ser vacunados o recibir medidas profilácticas en virtud del presente Reglamento, o sus padres o tutores, serán informados de los posibles riesgos relacionados con la vacunación o la no vacunación y con la aplicación o no aplicación de medidas profilácticas de conformidad con la legislación y las obligaciones internacionales del Estado Parte. Los Estados Partes informarán al personal médico de estos requisitos de conformidad con su respectiva legislación.
+5. Sólo se llevarán a cabo exámenes médicos o se someterá a los viajeros a protocolos médicos, vacunas u otras medidas profilácticas que entrañen un riesgo de transmisión de enfermedades si ello se hace de conformidad con normas de seguridad reconocidas nacionalmente o internacionalmente para reducir al mínimo ese riesgo.

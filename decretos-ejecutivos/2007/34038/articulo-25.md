@@ -1,0 +1,5 @@
+Artículo 25 Embarcaciones y aeronaves en tránsito
+Sin perjuicio de lo dispuesto en los artículos 27 y 43, o salvo que lo autoricen los acuerdos internacionales aplicables, ningún Estado Parte aplicará medida sanitaria alguna:
+a) a las embarcaciones que, no procediendo de una zona afectada, transiten por un canal u otra vía de navegación dentro del territorio de un Estado Parte en ruta hacia un puerto situado en el territorio de otro Estado. La autoridad competente permitirá, bajo su vigilancia, el aprovisionamiento de combustible, agua, víveres y suministros;
+b) a las embarcaciones que naveguen por sus aguas jurisdiccionales sin atracar en un puerto ni fondear en la costa, y
+c) a las aeronaves en tránsito en un aeropuerto bajo su jurisdicción, con la salvedad de que éstas podrán ser obligadas a permanecer en una zona determinada del aeropuerto sin efectuar embarques o desembarques ni carga o descarga. No obstante, bajo la supervisión de las autoridades competentes, esas aeronaves se podrán aprovisionar de combustible, agua, víveres y suministros.

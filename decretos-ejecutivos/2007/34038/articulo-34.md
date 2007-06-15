@@ -1,0 +1,6 @@
+Artículo 34 Contenedores y zonas de carga de contenedores
+1. Los Estados Partes se asegurarán, en la medida de lo posible, de que los expedidores utilizan en el tráfico internacional contenedores que se mantienen exentos de fuentes de infección o contaminación, incluidos vectores y reservorios, particularmente durante el proceso de empaquetado.
+2. Los Estados Partes se asegurarán, en la medida de lo posible, de que las zonas de carga de contenedores se mantienen exentas de fuentes de infección o contaminación, incluidos vectores y reservorios.
+3. Cuando, en opinión de un Estado Parte, el volumen del tráfico internacional de contenedores tenga una magnitud suficiente, las autoridades competentes adoptarán todas las medidas practicables compatibles con el presente Reglamento, incluida la realización de inspecciones, para evaluar las condiciones sanitarias de las zonas de carga de contenedores y de los contenedores, a fin de cerciorarse de que se cumplen las obligaciones estipuladas en el presente Reglamento.
+4. En las zonas de carga de contenedores se habilitarán instalaciones para la inspección y el aislamiento de contenedores, cuando sea factible.
+5. Los consignadores y consignatarios de contenedores harán todo lo posible por evitar la contaminación de la carga de unos contenedores por la de otros cuando se utilicen para múltiples fines.

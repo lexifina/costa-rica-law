@@ -1,0 +1,2 @@
+Artículo 61 Recusación
+Si un Estado notifica al Director General su recusación del presente Reglamento o de una enmienda del mismo dentro del plazo previsto en el párrafo 1 del artículo 59, dicho Reglamento o la enmienda en cuestión no entrará en vigor para ese Estado. Los acuerdos o reglamentos sanitarios internacionales enumerados en el artículo 58 y en los que ese Estado sea ya Parte se mantendrán en vigor para ese Estado.

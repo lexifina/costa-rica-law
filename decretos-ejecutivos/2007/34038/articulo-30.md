@@ -1,0 +1,3 @@
+Capítulo III - Disposiciones especiales relativas a los viajeros
+Artículo 30 Viajeros sometidos a observación de salud pública
+Sin perjuicio de lo dispuesto en el artículo 43 o salvo que lo autoricen los acuerdos internacionales aplicables, los viajeros sospechosos que a la llegada sean sometidos a observación de salud pública podrán continuar su viaje internacional si no suponen un riesgo inminente para la salud pública y si el Estado Parte informa a la autoridad competente en el punto de entrada en destino, de conocerse este último, de su prevista llegada. A su llegada, el viajero deberá informar a esa autoridad.

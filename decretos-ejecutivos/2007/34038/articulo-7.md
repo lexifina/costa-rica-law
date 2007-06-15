@@ -1,0 +1,2 @@
+Artículo 7 Notificación de información durante eventos imprevistos o inusuales
+Si un Estado Parte tiene pruebas de que se ha producido un evento imprevisto o inusual, cualquiera que sea su origen o procedencia, que podría constituir una emergencia de salud pública de importancia internacional, facilitará a la Organización Mundial de la Salud toda la información concerniente a la salud pública. En esos casos, se aplicarán en su totalidad las disposiciones previstas en el artículo 6.

@@ -1,0 +1,3 @@
+Artículo 51 Funcionamiento
+1. Las decisiones del Comité de Examen se adoptarán por mayoría de los miembros presentes y votantes.
+2. El Director General invitará a los Estados Miembros, las Naciones Unidas y sus organismos especializados y otras organizaciones intergubernamentales u organizaciones no gubernamentales pertinentes que mantienen relaciones oficiales con la OMS a que designen representantes para que asistan a las reuniones del Comité. Esos representantes podrán presentar memorandos y, con la anuencia del presidente, hacer declaraciones sobre los temas que se examinen, pero no tendrán derecho de voto.

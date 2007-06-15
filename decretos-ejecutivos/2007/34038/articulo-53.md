@@ -1,0 +1,9 @@
+Artículo 53 Procedimiento relativo a las recomendaciones permanentes
+Cuando el Director General entienda que es necesaria y apropiada una recomendación permanente en relación con un riesgo específico para la salud pública, recabará la opinión del Comité de Examen. Además de los párrafos pertinentes de las artículos 50 a 52, se aplicarán también las disposiciones siguientes:
+a) las propuestas relativas a las recomendaciones permanentes, su modificación o su anulación podrán ser sometidas al Comité de Examen por el Director General o por los Estados Partes, por conducto del Director General;
+b) todo Estado Parte podrá presentar información pertinente para que el Comité la examine;
+c) el Director General podrá solicitar a cualquier Estado Parte, organización intergubernamental u organización no gubernamental que mantenga relaciones oficiales con la OMS, que ponga a disposición del Comité de Examen la información que obre en su poder concerniente al objeto de la recomendación permanente propuesta, según lo especifique el Comité;
+d) el Director General, a petición del Comité de Examen o por propia iniciativa, podrá designar uno o más expertos técnicos que asesoren al Comité. Esos expertos técnicos no tendrán derecho de voto;
+e) los informes en que se consigne el dictamen del Comité de Examen con respecto a las recomendaciones permanentes se presentarán al Director General, para que los examine y decida al respecto. El Director General comunicará el dictamen del Comité a la Asamblea de la Salud;
+f) el Director General comunicará a los Estados Partes las recomendaciones permanentes, así como sus modificaciones o su anulación, junto con el dictamen del Comité de Examen;
+g) el Director General someterá las recomendaciones permanentes a la consideración de la Asamblea de la Salud siguiente.

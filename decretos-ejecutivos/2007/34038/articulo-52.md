@@ -1,0 +1,4 @@
+Artículo 52 Informes
+1. En cada reunión, el Comité de Examen preparará un informe en el que se expondrá el dictamen del Comité. Este informe será aprobado por el Comité de Examen antes de que finalice la reunión. Su dictamen no obligará a la Organización y se emitirá al solo efecto de asesorar al Director General. El texto del informe no podrá ser modificado sin la anuencia del Comité.
+2. Si el Comité de Examen no logra unanimidad en sus conclusiones, todo miembro tendrá derecho a expresar su opinión profesional discrepante en un informe individual o colectivo en el que se expondrán las razones por las cuales se sostiene una opinión divergente y que formará parte del informe del Comité.
+3. El informe del Comité de Examen se someterá al Director General, quien comunicará el dictamen del Comité a la Asamblea de la Salud o al Consejo Ejecutivo, para que lo examinen y actúen al respecto.

@@ -1,0 +1,10 @@
+Artículo 31 Medidas sanitarias relacionadas con la entrada de viajeros
+1. No se exigirá un examen médico invasivo, la vacunación ni otras medidas profilácticas como condición para la entrada de viajeros en el territorio de un Estado Parte, no obstante, sin perjuicio de lo dispuesto en los artículos 32, 42 y 45, el presente Reglamento no impide que los Estados Partes exijan un examen médico, la vacunación u otras medidas profilácticas, o certificado de vacunación o prueba de la aplicación de otras medidas profilácticas, en los casos siguientes:
+a) cuando sea necesaria para determinar si existe un riesgo para la salud pública;
+b) como condición para la entrada de viajeros que pretenden solicitar una residencia temporal o permanente;
+c) como condición para la entrada de viajeros de conformidad con lo dispuesto en el artículo 43 o en los anexos 6 y 7; o
+d) cuando se efectúen de conformidad con lo dispuesto en el artículo 23.
+2. Si un viajero al que un Estado Parte puede exigir un examen médico, la vacunación u otras medidas profilácticas de conformidad con el párrafo 1 del presente artículo no da su consentimiento para tales medidas o se niega a facilitar la información o los documentos a que hace referencia el párrafo 1(a) del artículo 23, el Estado Parte de que se trate podrá denegar, de conformidad con los artículos 32, 42 y 45, la entrada de ese viajero. Si hay pruebas de un riesgo inminente para la salud pública, el Estado Parte, de conformidad con su legislación nacional y en la medida necesaria para controlar ese riesgo, podrá obligar al viajero, con arreglo al párrafo 3 del artículo 23, a someterse a lo siguiente:
+a) el examen médico lo menos invasivo e intrusivo posible que permita lograr el objetivo de salud pública;
+b) la vacunación u otra medida profiláctica; o bien
+c) otras medidas sanitarias reconocidas que impidan o controlen la propagación de la enfermedad, con inclusión del aislamiento, la cuarentena o el sometimiento del viajero a observación de salud pública.
