@@ -14,3 +14,4 @@ Autoriza la importación como desabasto adicional al volumen autorizado de trein
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-07 | la propia norma |
+| 2 | 2007-06-15 | Decreto Ejecutivo 33830 (2007-06-15) |
