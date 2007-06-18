@@ -1,0 +1,5 @@
+Artículo 15.—De la revisión de los acuerdos. Las mociones, acuerdos y demás disposiciones aprobadas por la Junta Promotora, podrán revisarse una sola vez, a solicitud de cualquier director siempre que la revisión se pida a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+En caso de que alguno de los miembros de la Junta Promotora interponga recurso de revisión contra un acuerdo, el mismo será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+El recurso de la revisión deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior, como recurso.
+Los miembros de la Junta Promotora votarán afirmativa o negativamente, sin que les sea permitido abstenerse de emitir el voto.

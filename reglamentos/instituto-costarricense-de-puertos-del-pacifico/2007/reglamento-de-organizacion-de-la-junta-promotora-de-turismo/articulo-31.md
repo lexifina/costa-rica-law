@@ -1,0 +1,1 @@
+Artículo 31.—Convocatoria a sesiones de la junta directiva. Será responsabilidad de la Presidencia de la Junta Directiva convocar a la Presidencia de la Junta Promotora a las sesiones de Junta Directiva en donde se discutan temas relacionados con las funciones propias de la Junta Promotora.

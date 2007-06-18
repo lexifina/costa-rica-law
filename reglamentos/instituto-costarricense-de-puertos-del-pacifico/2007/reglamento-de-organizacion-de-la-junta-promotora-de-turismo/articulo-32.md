@@ -1,0 +1,1 @@
+Artículo 32.—Administrador. La Gerencia del INCOP en coordinación con la Junta Promotora de Turismo designará a un funcionario el cual será el responsable de la adecuada vigilancia y supervisión de los edificios, establecidos en los artículo 23 y 25, inciso c) de ley 1721. Este funcionario estará supervisado directamente por la Junta Promotora de Turismo.

@@ -1,0 +1,1 @@
+Artículo 6º—Nombramientos. Los miembros de la Junta Promotora serán nombrados por un período de dos años pudiendo ser reelegidos. En caso de renuncia o incumplimiento de funciones de alguno de sus miembros, la organización a la que representa procederá, en un plazo no mayor a los quince días hábiles, a designar un nuevo representante ante la Junta

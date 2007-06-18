@@ -1,0 +1,1 @@
+Artículo 16.—De las comisiones. La Junta Promotora nombrará las Comisiones Especiales que considere convenientes, para el estudio, examen o investigación de cualquier asunto relativo a la institución.
