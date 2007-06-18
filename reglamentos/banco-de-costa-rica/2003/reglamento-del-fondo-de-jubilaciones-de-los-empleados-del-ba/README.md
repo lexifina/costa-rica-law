@@ -14,3 +14,4 @@ Reglamento del Fondo de Jubilaciones de los Empleados del Banco de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2007-06-18 | Reglamento 29 (2007-06-18) |
