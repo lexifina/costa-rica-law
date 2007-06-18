@@ -21,3 +21,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto de Fomento y Ases
 | 6 | 1996-03-12 | Reglamento 2579 (1996-03-12) |
 | 7 | 2001-09-17 | Reglamento 3123 (2001-09-17) |
 | 8 | 2006-11-27 | Reglamento 3614 (2006-11-27) |
+| 9 | 2007-06-18 | Reglamento 3668 (2007-06-18) |
