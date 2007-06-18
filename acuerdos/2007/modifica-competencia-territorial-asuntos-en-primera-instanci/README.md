@@ -13,3 +13,4 @@ Modifica competencia territorial asuntos en primera instancia, que no son compet
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-02 | la propia norma |
+| 2 | 2007-06-18 | Acuerdo 20 (2007-06-18) |

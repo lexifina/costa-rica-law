@@ -10,7 +10,8 @@ Familia | Juzgado de Familia de Cartago
 Penal Juvenil | Juzgado Penal Juvenil de Cartago
 Penal | Juzgado Penal de Cartago
 Agrario | Juzgado Agrario de Cartago
-Laboral (mayor cuantía) | Juzgado de Trabajo Cartago
-Civil (mayor cuantía) | Juzgado Civil de Cartago
-Conforme a lo anterior, la atención de asuntos de primera instancia en los cuales el Juzgado Contravencional y de Menor Cuantía de Tarrazú, Dota y León Cortés y los asuntos en alzada provenientes de ese mismo despacho, serán atendidos de forma centralizada en los Tribunales de Cartago, situación que desde el punto de vista del servicio público y acceso a la justicia por distancia, parece viable.
+Laboral (mayor cuantia) | Juzgado de Trabajo de Cartago
+Civil (mayor cuantia) | Juzgado Civil de Cartago
+Conforme a lo anterior, la atención de asuntos de primera instancia que nos son competencia del Juzgado Contravencional y de Menor Cuantía de Tarrazú, Dota y León Cortés y los asuntos en alzada provenientes de ese mismo despacho, serían atendidos de forma centralizada en los Tribunales de Cartago, situación que desde el punto de vista del servicio público y acceso a la justicia por distancia, parece viable
+(Así reformado mediante el aviso N° 20 del 18 de junio de 2007).
 San José, 13 de marzo de 2007.
