@@ -1,0 +1,7 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+REGLAMENTO PARA LA ADMINISTRACIÓN DE LOS BIENES DEL
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+Que la junta directiva de esta Institución mediante Acuerdo N° 1 tomado en la Sesión N° 3421, celebrada el día 22 de mayo del año en curso acordó modificar los artículos 41 y 42 del Reglamento para la Administración de los Bienes del Instituto Costarricense de Puertos del Pacífico, para que se lean como sigue:
+Artículo 41.—El inventario de los suministros de oficina será responsabilidad del Encargado de la Oficina de Materiales, el cual deberá reportar a la Proveeduría el resultado del mismo cada vez que los realiza, a fin de que esta Unidad lleve un control al respecto. Estos deben sustentarse en una entrada (boleta) prenumerada. Mensualmente, el Área de Contabilidad confirmará estas entradas con el mayor auxiliar y con la cuenta mayor, todas las salidas deben sustentarse en una orden de pedido o requisición prenumeradas, estas requisiciones o solicitudes de retiro tendrán los valores de costo que se refieren a las facturas de compras.
+Las boletas de entradas y salidas de bodega, serán autorizadas por la Jefatura del departamento solicitante.
+Artículo 42.—Cada tres meses, el encargado de la oficina de materiales hará comprobaciones físicas de los aumentos o disminuciones de los inventarios de suministros de oficina, así como de sus saldos. Posterior a estas intervenciones, el Encargado de la oficina de materiales hará un reporte a las Áreas de Proveeduría y Contabilidad.
