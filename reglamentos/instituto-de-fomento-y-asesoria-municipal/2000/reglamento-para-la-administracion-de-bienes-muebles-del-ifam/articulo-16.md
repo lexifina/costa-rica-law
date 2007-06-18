@@ -1,1 +1,0 @@
-Artículo 16.— La Sección de Contabilidad y Finanzas debe efectuar el cálculo y registro de los cargos por depreciación de todos los activos de la Institución , para lo cual debe actualizar e! sistema de cómputo respecto a las tasas de depreciación, según las establecidas en el Reglamento General de Impuesto sobre la Renta.

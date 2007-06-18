@@ -1,1 +1,0 @@
-Articulo 41.—De existir equipo dañado en una Dependencia y se requiera su reparación, la Jefatura interesada deberá solicitar, por escrito, esos servicios a la Sección de Proveeduría mediante el formulario "Solicitud de Bienes y Servicios".

@@ -1,1 +1,0 @@
-Articulo 7°—Es responsabilidad de cada usuario firmar el correspondiente formulario al recibir un activo, previa verificación de que los bienes anotados están en las condiciones que se Indica y que todas las casillas contengan la información correcta.

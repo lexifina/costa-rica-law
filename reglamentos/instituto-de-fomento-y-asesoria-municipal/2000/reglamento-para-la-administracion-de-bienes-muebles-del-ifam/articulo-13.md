@@ -1,1 +1,0 @@
-Articulo 13. — La Sección de Proveeduría en coordinación con la Sección de Contabilidad y Finan/as, anualmente, entre los meses de octubre y diciembre, efectuará un inventario físico para verificar que los bienes asignados a cada Departamento sean realmente los existentes.

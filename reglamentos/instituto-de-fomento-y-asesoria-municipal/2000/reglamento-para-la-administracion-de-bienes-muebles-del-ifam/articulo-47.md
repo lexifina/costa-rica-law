@@ -1,1 +1,0 @@
-Articulo 47.—Cuando el IFAM modifique su organigrama, ya sea total o parcialmente, la Dirección Ejecutiva deberá comunicar oportunamente a la Sección de Proveeduría los cambios por efectuar, con el propósito de hacer los ajustes correspondientes y mantener actualizada la base de datos de Control de Bienes.

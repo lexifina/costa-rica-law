@@ -1,1 +1,0 @@
-Articulo 36.—Cada Director y Jefe de Sección implantará los mecanismos necesarios a Un de que pueda tener su propio control sobre el equipo y hacer las observaciones que considere pertinentes al informe anual que enviará la Sección de Proveeduría.
