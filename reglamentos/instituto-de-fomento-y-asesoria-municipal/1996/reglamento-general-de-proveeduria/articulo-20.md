@@ -1,4 +1,0 @@
-Artículo 20.— Las órdenes de compra por un monto máximo de trescientos mil colones, deberán ser firmadas por el Proveedor y el Director de Administración Interna de la Institución. En ausencia de alguno de estos funcionarios, la firmará el Director Ejecutivo o el funcionario que éste designe como sustituto, para cada uno de los casos. Los montos superiores a trescientos mil colones y hasta dos millones de colones, deberán contar con la aprobación del Director Ejecutivo o el Presidente Ejecutivo; la que se hará constar en el documento. Los montos superiores a dos millones de colones, deberán ser autorizados por la Junta Directiva.
-(Así reformado por Acuerdo de Sesión Nº 2762 de 14 de enero de 1998)
-(Así reformado por Acuerdo de Sesión Nº 2851 de 14 de diciembre de 1998)
-(Así reformado por Acuerdo de Sesión Nº 2956 de 17 de enero de 2000)

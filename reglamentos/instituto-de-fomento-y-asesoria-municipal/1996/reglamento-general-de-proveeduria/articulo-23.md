@@ -1,1 +1,0 @@
-Artículo 23.—En el caso de la mercadería que es recibida en la bodega, el encargado enviará a la Sección de Proveeduría la factura original y la respectiva orden de compra para su registro, posteriormente esta última deberá trasladar ambos documentos a la Sección de Contabilidad y Finanzas para el trámite de pago.

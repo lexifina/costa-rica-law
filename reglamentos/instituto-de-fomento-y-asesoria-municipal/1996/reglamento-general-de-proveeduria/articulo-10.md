@@ -1,1 +1,0 @@
-Artículo 10.—Cuando así se disponga, las cotizaciones serán recibidas por la Sección de Proveeduría en sobre cerrado. En caso contrario, se aceptará su remisión por cualquier otro medio, de forma tal que ingresen en el momento indicado.

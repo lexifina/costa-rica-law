@@ -1,1 +1,0 @@
-Artículo 15.—Corresponderá a la Sección de Proveeduría encauzar y dirigir los trámites internos para la obtención de los informes técnicos. jurídicos u otros necesarios, en relación con las contrataciones que deban someterse al conocimiento de la Comisión de Contratación Administrativa.

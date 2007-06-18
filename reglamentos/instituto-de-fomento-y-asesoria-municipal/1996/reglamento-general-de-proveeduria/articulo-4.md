@@ -1,2 +1,0 @@
-Artículo 4°—A fin de elaborar el plan anual de adquisiciones, en cada mes de noviembre la Sección de Proveeduría solicitará a las diferentes unidades información sobre los requerimientos de bienes y servicios específicos necesarios para sus actividades.
-Sin excepción, en la oportunidad que le corresponda, cada unidad presentará a la Sección de Proveeduría la solicitud de bienes y servicios con las especificaciones necesarias para iniciar el proceso de contratación.
