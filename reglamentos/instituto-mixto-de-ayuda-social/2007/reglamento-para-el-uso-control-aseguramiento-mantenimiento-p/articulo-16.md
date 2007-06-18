@@ -1,0 +1,1 @@
+Artículo 16.—De la selección y contratación de talleres para mantenimiento y reparación de vehículos: Lo relativo a la selección y contratación de talleres para el mantenimiento y reparación de los vehículos del Fideicomiso será regulado por el REGLAMENTO PARA LA UTILIZACIÓN DE LOS RECURSOS PARA GASTOS OPERATIVOS del Fideicomiso.

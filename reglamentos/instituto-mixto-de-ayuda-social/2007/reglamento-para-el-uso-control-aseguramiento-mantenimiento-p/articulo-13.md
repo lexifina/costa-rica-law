@@ -1,0 +1,2 @@
+Artículo 13.—Del pago de las multas: Los conductores del vehículo deberán asumir el pago de multas por infracciones a la Ley de Tránsito y su reglamento.
+En caso de que el cobro recaiga sobre el vehículo, el Fideicomiso procederá a su cancelación, no obstante, una vez identificado el nombre del conductor que cometió dicha infracción en las entidades pertinentes el funcionario deberá reintegrar al Fideicomiso la suma (s) de dichas multas.

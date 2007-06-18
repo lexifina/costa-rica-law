@@ -1,0 +1,1 @@
+Artículo 29.—Vigencia. El presente Reglamento así como sus modificaciones rigen a partir de su aprobación por parte del Comité Director del Fideicomiso “Fideicomiso 32-04 BANCREDITO-IMASBANACIO/ 73-2002”.

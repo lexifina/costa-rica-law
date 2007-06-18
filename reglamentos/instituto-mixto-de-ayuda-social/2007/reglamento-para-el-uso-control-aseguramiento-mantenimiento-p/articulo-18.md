@@ -1,0 +1,1 @@
+Artículo 18.—De la liquidación de combustible: La liquidación de combustible deberá realizarse, a más tardar el tercer día hábil después de concluida la gira según la Boleta indicada en el artículo anterior ya sea que la compra se realicen en efectivo ó a través de la tarjeta electrónica de combustible del MOPT.

@@ -1,0 +1,14 @@
+Artículo 5º—Funciones de la Unidad Ejecutora: La Unidad Ejecutora realizará las siguientes funciones:
+1. Llevar un registro detallado del vehículo bajo su control. El expediente incluirá un historial que refiera documentalmente su adquisición, las medidas de conservación y mantenimiento que se le hayan aplicado y las que deben aplicarse, el régimen de aseguramiento que lo protege, las acciones de aseguramiento que se hayan ejecutado y cualquier otra información de importancia que se contribuya a demostrar la propiedad, la tenencia, el uso y la conservación del vehículo.
+2. Atender y tramitar en coordinación con el Fiduciario con prontitud los asuntos administrativos relativos al uso del vehículo.
+3. Designar el vehículo tomando en cuenta criterios de utilidad y uso racional de este recurso.
+4. Designar los conductores que deberán conducir el vehículo
+5. Utilizar controles individuales cada vez que el vehículo sea utilizado.
+Ello comprenderá el sudo de “BOLETA DE INGRESO Y SALIDA DE VEHÍCULOS”, donde se hará constar las condiciones del vehículo, los implementos, el combustible y las herramientas que acompañan al vehículo. Asimismo llevará un registro foliado y sellado donde se hará constar cada ingreso y salida del vehículo.
+6. Controlar las facturas por combustible, que deben estar únicamente a nombre del Fideicomiso 32-04 BANCREDITO IMAS BANACIO/73-2002. Asimismo controlar el kilometraje requerido por cada servicio de transporte y las autorizaciones que justifican el uso del vehículo. Cuando se estén realizando giras deberá llevar registros especiales que informen del control de kilometraje y del uso de combustible durante las mismas.
+7. Velar por que el vehículo esté debidamente asegurado y dar seguimiento a denuncias presentadas ante el Instituto Nacional de Seguros e informar al Fiduciario de las mismas.
+8. Informar, previa instrucción sumaria, al Comité Director del Fideicomiso sobre accidentes de tránsito y cualquier otra irregularidad acaecida con respecto al vehículo, así como efectuar los trámites y denuncias ante las instancias administrativas y judiciales que correspondan, con inclusión de aquellas que deben presentarse ante el Instituto Nacional de Seguros e informar al Fiduciario de las mismas.
+9. Velar por el adecuado mantenimiento, las reparaciones y en general por el buen estado del vehículo, con inclusión de las medidas permanentes de limpieza y las de revisión periódica en talleres especializados según el kilometraje acumulado.
+10. Rendir informes anuales ante el Comité Especial del Fideicomiso sobre la tenencia, el uso, el mantenimiento y situaciones especiales del vehículo.
+11. Velar porque el vehículo sea ordinariamente depositado y custodiado en los estacionamientos previamente establecidos por la Unidad Ejecutora
+12. Dictar directrices a los conductores ó usuarios cuando sea necesario para el buen uso y conservación del vehículo.

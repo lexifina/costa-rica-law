@@ -1,0 +1,2 @@
+Artículo 21.—De la responsabilidad del conductor por daños a terceros, en caso de accidente: El conductor que sea declarado responsable por los Tribunales de Justicia, por causa de un accidente de tránsito, deberá pagar el monto correspondiente al deducible o las indemnizaciones que deba hacer el Fideicomiso, en favor de terceros afectados, cuando el costo del daño sea inferior al monto del deducible.
+Es igualmente responsable quien permita a otra persona conducir un vehículo sin causa justificada o sin la debida autorización.

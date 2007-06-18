@@ -1,0 +1,1 @@
+Artículo 17.—Responsables en el control de combustible: La Unidad Ejecutora, será la responsable, del control y evaluación del rendimiento del combustible del vehículo del Fideicomiso, para eso se utilizará la BOLETA DE LIQUIDACIÓN DE COMBUSTIBLE GASTOS DE VIAJE Y TRANSPORTE.

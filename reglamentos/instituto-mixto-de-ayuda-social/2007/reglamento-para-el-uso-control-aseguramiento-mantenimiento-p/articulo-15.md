@@ -1,0 +1,1 @@
+Artículo 15.—Programación del mantenimiento: La Unidad Ejecutora realizará la programación y definirá las características técnicas del programa para el mantenimiento preventivo del vehículo, señalando su periodicidad y los términos en que se llevará a cabo.

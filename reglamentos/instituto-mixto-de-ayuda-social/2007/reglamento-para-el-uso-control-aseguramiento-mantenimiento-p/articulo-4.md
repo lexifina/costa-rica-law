@@ -1,0 +1,1 @@
+Artículo 4º—Unidad Ejecutora: La Unidad Ejecutora del Fideicomiso será la encargada de ejecutar las medidas de conservación y control en cuanto al uso del vehículo, así como de velar por que las disposiciones de este Reglamento sean debidamente acatadas.

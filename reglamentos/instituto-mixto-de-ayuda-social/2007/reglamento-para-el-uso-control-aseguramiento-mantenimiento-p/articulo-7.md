@@ -1,0 +1,1 @@
+Artículo 7º—Mejor aprovechamiento del vehículo: Para lograr un mejor aprovechamiento del vehículo, la Unidad Ejecutora podrá agrupar varias boletas de transporte dentro de una misma ruta en un solo trayecto.

@@ -1,0 +1,1 @@
+Artículo 25.—Del arreglo extrajudicial: De conformidad con el artículo 237 de la Ley de Tránsito, se prohíbe al conductor efectuar arreglos extrajudiciales en caso de accidente con un vehículo oficial. El conductor le indicará al tercero que se comunique con la Gerente de la Unidad Ejecutora, quien efectuará las gestiones correspondientes.
