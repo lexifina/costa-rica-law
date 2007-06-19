@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE AGUIRRE
+La Municipalidad de Aguirre en sesión ordinaria Nº 98 celebrada el 5 de junio del 2007, artículo segundo, asuntos de trámites urgentes acuerdo Nº 5. Acordó: Modificar el artículo 1 del Reglamento de Caja Chica y se aumente el fondo de la misma a la suma de ¢200.000,00 debido a que el fondo actual (¢100.000,00) no alcanza, a la vez se modifica el artículo 4 del mismo reglamento donde establece que la suma máxima para girar por caja chica sea de ¢41.300,00 y no de ¢24.500,00. Tomando en cuenta que la Contraloría General de la República autoriza pagos por este medio hasta la suma indicada. Por el Concejo Municipal.
+Quepos, 7 de junio del 2007.
