@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Proyección y responsabilidad social
+1º—RACSA y el PROVEEDOR DE ACCESO deberán velar por los principios de calidad y responsabilidad social, inmersos e inherentes a los aspectos legales, éticos, morales y ambientales que deriven de la relación contractual entre las partes procurando que el potencial de la tecnología de la información y comunicación sirva para cerrar la brecha digital y se dirija hacia los sectores menos favorecidos de la sociedad, facilitando soluciones de Internet hacia esos colectivos y procurando generar nuevos mercados a futuro.
+2º—El PROVEEDOR DE ACCESO se comprometerá a suplir el servicio de acceso al costo, o en forma gratuita, en cada distrito en que dé cobertura al menos a una escuela pública y a la municipalidad del cantón, sin que esto implique pérdidas o perjuicio para su propio negocio.
