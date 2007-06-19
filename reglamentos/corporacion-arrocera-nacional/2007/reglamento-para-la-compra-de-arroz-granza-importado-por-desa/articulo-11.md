@@ -1,0 +1,1 @@
+Artículo 11.—Orden de compra. Presentada la garantía y aceptada por la Corporación, se entregará la Orden de Compra, la cual debe ser aceptada mediante documento escrito por parte de la adjudicataria.

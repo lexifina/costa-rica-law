@@ -1,0 +1,1 @@
+Artículo 10.—Presentación de la garantía. Firme la adjudicación, se procederá a solicitar a la empresa adjudicada la presentación de la Garantía de Cumplimiento dentro de un plazo de cinco días hábiles, en los términos y condiciones y por el porcentaje que se indiquen en el pliego.

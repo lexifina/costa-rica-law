@@ -1,0 +1,1 @@
+Artículo 4º—Invitación a los oferentes. Con la aprobación del Pliego de Especificaciones, se procederá a invitar a los oferentes en medios de comunicación escrita de cobertura nacional y por cualquier otro medio que se consideren adecuados para garantizar el libre ejercicio de los derechos derivados de los principios generales de la contratación.

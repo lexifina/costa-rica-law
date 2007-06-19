@@ -1,0 +1,1 @@
+Artículo 5º—Recepción de ofertas. Las ofertas deberán ser presentadas en el plazo y en las condiciones que se establezcan en el pliego, en sobre cerrado a la hora y en el lugar que se señale. Para tales efectos regirá la hora que marque en el reloj de las Oficinas Centrales de la Corporación.
