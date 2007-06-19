@@ -1,0 +1,5 @@
+Artículo 18.—La prestación del servicio ordinario tendrá como objetivo el manejo de las siguientes clases de desechos:
+a) Desechos sólidos, los cuales se clasifican en: orgánicos, siendo éstos los compuestos de sustancia de origen animal o vegetal, viodegradables a corto plazo, por ejemplo restos de alimentos, follajes, cáscaras de frutas, legumbres y raíces, entre otros; inorgánicos, siendo éstos los compuestos de sustancia mineral y/o sintética, en todo caso no animal y no vegetal, biodegradable a mediano o largo plazo, por ejemplo productos industriales, papel, vidrio, plástico y cartón, entre otros; no aprovechables, siendo éstos aquellos orgánicos o inorgánicos que no pueden ser reutilizados o reciclados para un nuevo uso.
+b) Desechos que por su naturaleza, composición, tamaño y volumen no pueden ser incorporados, en el manejo ordinario por la entidad de aseo de acuerdo con su capacidad de operación.
+c) Desechos no incluidos en el servicio especial.
+Con excepción del barrido y limpieza de vías y áreas públicas, lo que no aparece en la lista anterior se considerará servicio especial de manejo de desechos.

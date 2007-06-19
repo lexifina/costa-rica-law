@@ -1,0 +1,1 @@
+Artículo 22.—Las normas sobre el diseño, operación, localización y acceso de los vehículos a las estaciones de transferencia, y las medidas y controles sobre su instalación serán determinados por reglamento propio.

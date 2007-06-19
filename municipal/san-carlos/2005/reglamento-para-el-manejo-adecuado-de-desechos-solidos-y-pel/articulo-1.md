@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE SAN CARLOS
+La Municipalidad de San Carlos avisa que el Concejo Municipal, mediante artículo número 24, inciso 2) del acta Nº 44, celebrada el viernes veintinueve de julio del dos mil cinco, acordó publicar como Reglamento el Proyecto para el Manejo Adecuado de Desechos Sólidos, el cual fue debidamente publicado en La Gaceta Nº 209, del jueves 30 de octubre del 2003, toda vez que la Sala Tercera del Tribunal Contencioso Administrativo dictaminó que el recurso fue mal presentado.
+Acuerdo definitivamente aprobado. Rige a partir de su publicación.
+(NOTA SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en la Gaceta N° 209 del 30 de octubre de 2003)
+MUNICIPALIDAD DE SAN CARLOS
+Avisa que el Concejo Municipal de San Carlos, mediante artículo número diecisiete, contenido en acta número seis, sesión ordinaria del lunes veintisiete de enero del dos mil tres, definitivamente aprobado. En el acta número nueve, sesión ordinaria del lunes diez de febrero del dos mil tres, acordó: Aprobar el “Proyecto de Reglamento para el Manejo Adecuado de Desechos Sólidos y Peligrosos” cuyo texto se expone adelante, autorizando su publicación en el Diario Oficial La Gaceta.
+En acatamiento de lo dispuesto en el artículo cuarenta y tres párrafo segundo del Código Municipal, se somete tal proyecto de reglamento a consulta pública no vinculante, por un plazo de diez días hábiles, a efecto de que cualquier ciudadano o Institución que tenga oposiciones u observaciones, las presente por escrito en la Secretaría del Concejo Municipal de San Carlos dentro del plazo señalado.
+PROYECTO DE REGLAMENTO PARA EL MANEJO
+ADECUADO DE DESECHOS SÓLIDOS Y PELIGROSOS
+Es reconocido por el Concejo Municipal de la Municipalidad de San Carlos, que uno de los problemas más graves, si no el más, en el Cantón, es el referido a la producción y manejo de desechos sólidos y peligrosos.
+Por tal razón, con base en la legislación vigente que faculta a las Municipalidades al efecto, a saber artículos cuatro, trece incisos a), c), d), y cuarenta y tres del Código Municipal y conforme al Proyecto de “Manejo Adecuado y Tratamiento de los Desechos Sólidos en el Cantón de San Carlos”, aprobado por el Concejo Municipal en Sesión Extraordinaria del viernes veinte de setiembre de dos mil dos, acta número sesenta y cinco, artículo números seis y once, así como a la normativa atinente contenida en la Constitución Política, Tratados Internacionales, Ley General de Salud y Ley Orgánica del Ambiente, entre otras, se emite el presente Proyecto de Reglamento, con el fin de atender la apremiante necesidad social de dar solución al problema de referencia.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—El presente Proyecto de Reglamento establece como principio para alcanzar el desarrollo sostenible y una mejor calidad de vida, que la Municipalidad y los individuos deben reducir y eliminar las modalidades de producción y consumo insostenibles.

@@ -1,0 +1,1 @@
+Transitorio único.-En las normas de este Reglamento en que no se haya fijado plazo para alcanzar el objetivo de que se trate y tal plazo sea necesario en virtud del contenido del precepto, se establece al efecto un lapso de tiempo máximo de doce meses.

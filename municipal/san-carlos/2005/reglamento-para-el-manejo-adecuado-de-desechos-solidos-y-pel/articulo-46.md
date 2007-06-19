@@ -1,0 +1,1 @@
+Artículo 46.—Las tarifas deben cubrir los gastos de recolección, transporte, transferencia, tratamiento y disposición de los desechos. Las actividades de recuperación de residuos deberán ser consideradas como alternativas de disposición y por lo tanto financiables por el concepto de costo evitado.

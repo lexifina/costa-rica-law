@@ -1,0 +1,3 @@
+Artículo 9º—El Gobierno Local debe contar con planes de manejo de desechos que incluyan campañas de educación sobre: reducción de la cantidad y peligrosidad de los desechos, recuperación, separación y reciclaje de residuos, comercialización de productos reciclables, alternativas de procesamiento y disposición ambientalmente adecuada.
+Deberán impulsarse campañas especializadas dirigidas a los empresarios grandes y pequeños, a los jóvenes y a los niños.
+Además, podrán apoyarse las actividades que realicen grupos organizados de programas no formales de educación a la población.

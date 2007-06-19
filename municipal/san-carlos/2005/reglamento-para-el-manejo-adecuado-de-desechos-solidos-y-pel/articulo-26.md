@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Sobre procesos de minimización, separación, recuperación y reciclaje
+Artículo 26.—Las empresas mayoristas, tiendas de departamentos y centros comerciales en general, tienen la obligación de separar todo material reciclable, en particular cartón corrugado, cartulina, papel, plástico, vidrio y aluminio, colocándolo en recipientes apropiados para facilitar su recolección separada. Estos negocios deberán disponer de sitios apropiados para que los consumidores dispongan y depositen los empaques innecesarios en el mismo momento en que se realiza la transacción de compraventa.
+Es obligación de los propietarios de los centros comerciales, ferias, turnos, centros deportivos, terminales de transporte aéreos o terrestres, locales para espectáculos públicos, iglesias, colocar basureros, recoger los desechos y realizar el barrido y limpieza de los sitios donde estén ubicados.
+Se establece un período de transición de doce meses para cumplir con esta obligación, a participar de la publicación de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.—Relleno Sanitario manual es aquel que solo utiliza maquinaria pesada para la creación de las trincheras de deposición. El relleno sanitario manual se utilizará como método de disposición final de los desechos ordinarios, cuando los estudios económicos y ambientales prueben que es la alternativa más adecuada.

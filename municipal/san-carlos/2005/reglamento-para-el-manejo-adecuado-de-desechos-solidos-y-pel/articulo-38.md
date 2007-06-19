@@ -1,0 +1,2 @@
+Artículo 38.—La autoridad competente ejercerá un monitoreo constante sobre las emisiones de aire que emita la planta de incineración. Las cenizas resultantes deberán ser dispuestas en sitios que prevengan la difusión de los productos, si su composición química lo amerita.
+Los administradores o propietarios de la planta de incineración deberán realizar reportes semestrales y enviar dicha información a la autoridad competente y a la Municipalidad para su evaluación y control.

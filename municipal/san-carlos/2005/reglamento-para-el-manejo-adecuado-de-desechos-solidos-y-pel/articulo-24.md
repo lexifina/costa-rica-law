@@ -1,0 +1,2 @@
+Artículo 24.—Toda empresa agrícola, industrial o agroindustrial tendrá la obligación de procesar los residuos biodegradables generados en sus procesos productivos utilizándolos como fuente energética, transformándolos en compostaje o utilizando técnicas equivalentes que no deterioren el ambiente.
+Se otorga un plazo de veinticuatro meses para cumplir esta obligación a partir de la publicación de este reglamento.

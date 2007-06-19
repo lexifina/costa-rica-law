@@ -1,0 +1,3 @@
+CAPÍTULO XV
+Sobre multas y sanciones
+Articulo 48.-Caso de incumplimiento de las obligaciones establecidas por los Artículos doce, veintiséis y veintisiete, referentes a la acción, recolección y acumulación para el transporte y la disposición de los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones de construcción, agrícolas, ganaderas industriales, comerciales y turística, mediante los sistemas de disposición final existentes, se aplicará trimestralmente la sanción o multa establecida en el Artículo setenta y seis inciso C del Código Municipal, que corresponde a cien colones por metro cuadrado del área total de la propiedad.
