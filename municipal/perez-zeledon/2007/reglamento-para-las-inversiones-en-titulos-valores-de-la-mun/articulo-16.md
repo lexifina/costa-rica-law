@@ -1,0 +1,1 @@
+Artículo 16.—Control cruzado de información. Los registros que se lleven para el control financiero y contable de los títulos valores o las inversiones servirán de control cruzado entre ellos junto con los informes que remita la entidad encargada de administrar la inversión.

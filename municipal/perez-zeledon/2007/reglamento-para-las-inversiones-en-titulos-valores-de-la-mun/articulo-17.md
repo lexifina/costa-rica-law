@@ -1,0 +1,1 @@
+Artículo 17.—Arqueos e inventarios. El Subproceso de Gestión Presupuestaria, practicará inventarios de los valores en las custodias de las instituciones financieras por lo menos cada tres meses. Quienes participen en el arqueo dejarán evidencia escrita y firmada a través del mecanismo del acta; asimismo, un reporte para el Coordinador de la Hacienda Municipal.

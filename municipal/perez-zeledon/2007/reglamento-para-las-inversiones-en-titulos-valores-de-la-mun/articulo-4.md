@@ -1,0 +1,1 @@
+Artículo 4º—Condiciones para realizar inversiones en títulos valores. En caso de excedentes temporales de efectivo o donaciones que así lo requieran, deberán destinarse a inversiones a plazo, siempre y cuando no afecte los compromisos financieros y operativos de la Municipalidad.

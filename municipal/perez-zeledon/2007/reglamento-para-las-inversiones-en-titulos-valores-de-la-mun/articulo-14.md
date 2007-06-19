@@ -1,0 +1,1 @@
+Artículo 14.—Información de las inversiones. El coordinador del Subproceso de Gestión Presupuestaria dispondrá las medidas pertinentes para que los registros contengan la información veraz, suficiente, relevante y oportuna, que le permita a la Administración activa y los órganos control internos y externos ejercer un control estricto de las inversiones.

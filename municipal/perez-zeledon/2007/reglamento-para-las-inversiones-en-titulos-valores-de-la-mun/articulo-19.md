@@ -1,0 +1,1 @@
+Artículo 19.—De la elaboración de informes para la Administración. El Proceso de Gestión Presupuestaria remitirá a sus superiores informes periódicos sobre el estado de las inversiones en títulos valores. El contenido mínimo y la periodicidad de estos informes serán establecidos por el Coordinador del Proceso de Hacienda Municipal.

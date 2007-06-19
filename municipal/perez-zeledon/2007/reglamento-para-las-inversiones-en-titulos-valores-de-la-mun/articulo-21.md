@@ -1,0 +1,1 @@
+Artículo 21.—De la integración. El EII estará integrado por el Coordinador del Proceso de Hacienda Municipal, el Coordinador del Subproceso de Gestión Presupuestaria y el Tesorero Municipal. El coordinador de la hacienda Municipal ostentará la condición de Coordinador del equipo y entre los restantes miembros seleccionarán al tenedor de libros de actas.
