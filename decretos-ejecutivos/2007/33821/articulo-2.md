@@ -1,0 +1,1 @@
+2º—Se faculta a la Fundación Pro Zoológico a establecer tarifas diferentes a las fijadas en el artículo anterior cuando se trate de grupos que lo ameriten, cuando sean paquetes promocionales o publicitarios o cuando se trate de actividades promovidas o establecidas o ejecutadas en virtud de contratos de concesión o arrendamiento, ello a criterio de la Fundación Pro Zoológico.
