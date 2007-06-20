@@ -1,0 +1,1 @@
+Artículo 7º—Orden cronológico. Los folios siguientes a la solicitud y documentos que la acompañan, seguirán un orden sucesivo según fecha de recibido, sin importar la fecha de emisión, siguiendo el sistema consecutivo establecido en el artículo anterior.

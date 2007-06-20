@@ -1,0 +1,1 @@
+Artículo 13.—Personal autorizado. Respecto del personal autorizado referido en el artículo anterior, entiéndase el Concejo Municipal, el Alcalde, el Jefe del Departamento de ZMT o bien el encargado del Departamento en ausencia de éste.

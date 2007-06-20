@@ -1,0 +1,1 @@
+Artículo 11.—Acceso al Archivo. El acceso al archivo es restringido, por lo tanto, el encargado debe llevar un control escrito de quienes lo solicitan. Tratándose de personas jurídicas, el solicitante deberá aportar certificación vigente que lo faculte para actuar.

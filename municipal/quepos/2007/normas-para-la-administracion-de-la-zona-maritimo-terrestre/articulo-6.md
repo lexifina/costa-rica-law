@@ -1,0 +1,1 @@
+Artículo 6º—Numeración inicial. El número de expediente se consignará en la parte superior central de la portada según consecutivo de solicitud y año. El consecutivo iniciará con la solicitud y continuará con la numeración de los folios que la acompañan, según orden de presentación por parte del solicitante, junto a la fecha, hora de recepción y firma del funcionario.

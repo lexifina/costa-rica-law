@@ -1,0 +1,1 @@
+Artículo 9º—Ubicación del Archivo. El archivo se ubicará en un lugar que garantice su adecuada custodia y acceso limitado. Los documentos que constituyen el archivo deberán resguardarse en un mueble preferiblemente metálico con cierres bajo llave.

@@ -1,0 +1,1 @@
+Artículo 3º—Encargado del Archivo. Se asignará un encargado del archivo y de la llave o llaves que permiten su acceso, quien es responsable ante la administración de la integridad y seguridad de su contenido. Esta designación estará a cargo del Jefe del Departamento de ZMT, sin perjuicio de las decisiones que al respecto realice su superior jerárquico.
