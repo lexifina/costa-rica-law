@@ -1,0 +1,1 @@
+Artículo 6º—Los propietarios de las fincas señaladas, gozarán de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, Nº 7317, para lo cual el Área de Conservación Osa, y las dependencias ministeriales involucradas, emitirán los documentos pertinentes.

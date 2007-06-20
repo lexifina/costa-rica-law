@@ -1,0 +1,1 @@
+Artículo 4º—El manejo y aprovechamiento racional de la vida silvestre, estará sujeto a un reglamento de uso elaborado por el Ministerio del Ambiente y Energía a través del Sistema Nacional de Áreas de Conservación, y el Área de Conservación Osa.

@@ -1,0 +1,1 @@
+Artículo 5º—La administración, vigilancia y mantenimiento de este Refugio y el cumplimiento de las disposiciones técnicas que al efecto emita el Área de Conservación Osa, serán responsabilidad de los propietarios de los inmuebles.

@@ -1,0 +1,2 @@
+Transitorio- Para el caso de los ocupantes descritos en las propiedades señaladas anteriormente, tendrán un periodo de seis meses para tramitar como a derecho corresponde los permisos de uso respectivos, ante el Área de Conservación Osa, con apego a la legislación vigente aplicable para tal efecto y el Plan de Manejo.
+Dado en la Presidencia de la República.—San José, a los veintidós días del mes de marzo del año dos mil siete.
