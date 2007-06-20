@@ -1,1 +1,2 @@
-Artículo 53.—Es responsabilidad directa de la Dirección Ejecutiva, la definición diaria de los criterios de aprobación de precios de contratos, labor que sólo podrá ser delegada en la Subdirección.
+Artículo 53.—Los contratos deberán presentarse para su inscripción, dentro de los quince días hábiles siguientes a su inclusión en el respectivo Informe Diario de Compras. Expirado este plazo para efectos del Instituto se tendrá por no existente la transacción informada. Una vez presentado el informe diario la Dirección Ejecutiva deberá resolver la inscripción o no, en un plazo máximo de dos días hábiles.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 44 al 53 actual).

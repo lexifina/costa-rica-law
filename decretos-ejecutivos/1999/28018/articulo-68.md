@@ -1,1 +1,2 @@
-Artículo 68.—El Instituto tendrá su domicilio legal en la ciudad de San José y podrá establecer agencias y representaciones en cualquier lugar de la República o fuera de ella. a juicio de su Junta Directiva.
+Artículo 68.—Toda partida de café para la exportación deberá cumplir con los requisitos estipulados o derivados de leyes o convenios internacionales de los que Costa Rica sea parte, los que serán comunicados por el ICAFE a los interesados.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 59 al 68 actual).

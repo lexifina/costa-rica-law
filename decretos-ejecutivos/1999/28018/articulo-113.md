@@ -1,3 +1,3 @@
-Artículo 113.—El Director Ejecutivo y el Subdirector Ejecutivo quedarán sujetos a las mismas disposiciones que para los miembros de la Junta Directiva establece este Reglamento.
-La remoción del Director Ejecutivo o del Subdirector Ejecutivo sólo podrá acordarse de la misma forma en que fueron nombrados.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 90 al 113 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+Artículo 113.—La Junta Directiva elegirá de su seno, por mayoría de votos, un Presidente, un Vicepresidente y un Secretario, que durarán un año en sus funciones, pudiendo ser reelectos.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 81 al 104 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 104 al 113 actual).

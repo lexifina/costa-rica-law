@@ -1,9 +1,5 @@
-Artículo 79.—De la emisión de las papeletas de votación. El ICAFE elaborará las papeletas de votación en forma previa a la realización de las Asambleas, una vez realizada la publicación que establece el artículo anterior. Las papeletas se imprimirán en cantidades suficientes para dar abasto a las necesidades del acto, situación que quedará bajo la responsabilidad del ICAFE. Todas tendrán la misma forma, diseño y tamaño, además deberán contener el sello del ICAFE.
-Las papeletas de votación deberán incluir la siguiente información:
-1. El Nombre de la correspondiente Región Electoral.
-2. Se deberá indicar si la papeleta es para la elección de delegados al Congreso Nacional Cafetalero o para terna de candidatos para Junta Directiva. Estas papeletas deben ser de colores diferentes.
-3. Las mismas constarán de dos columnas: en la columna de la izquierda se anotará el nombre de los candidatos al azar, siendo dicha selección al azar realizada frente a Junta Directiva. En la columna de la derecha una casilla para cada candidato, para que las personas puedan votar.
-4. En el caso de la papeleta de votación para delegados al Congreso, deberá indicar el máximo de candidatos por los cuales hay que votar en la respectiva región electoral. En la papeleta de votación para terna de Junta Directiva, se deberá indicar que se debe votar por un máximo de tres candidatos.
-5. En la medida de las posibilidades las papeletas deberán incluir una fotografía del candidato, pero en tales casos solo se hará de esa forma si se tiene a disposición fotografías de todos los candidatos.
-6. Las papeletas de votación deben estar confeccionadas con ocho días naturales de antelación a la celebración de la correspondiente Asamblea Regional Electoral. Estas quedarán bajo custodia de la Dirección Ejecutiva hasta el día que se celebre las respectivas elecciones.
-(Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+CAPITULO II
+Ejercicio financiero y reservas
+Artículo 79.—La cancelación del impuesto contemplado en el artículo 108 de la Ley será realizada por los exportadores dentro de los seis días hábiles siguientes a la aprobación de la exportación. Toda mora implicará intereses moratorios equivalentes a la tasa pasiva a seis meses que el Banco Nacional de Costa Rica aplique a sus operaciones en dólares, más diez puntos porcentuales.
+(Así reformado por Art. 1° del Decreto Ejecutivo N° 29585 del 30 de mayo del 2001)
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 70 al 79 actual).

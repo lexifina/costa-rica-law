@@ -1,2 +1,2 @@
-Artículo 32.—El Instituto del Café llevará un Registro de Divisas Extranjeras, cuya finalidad es el registro de los recursos en divisas extranjeras que se otorgan para efectos de financiar al productor en moneda nacional en etapas de asistencia y recolección.
-(Así reformado por Art. 1° del Decreto Ejecutivo N° 32183 del 2 de diciembre del 2004)
+Artículo 32.—La Junta de Liquidaciones deberá celebrar la primera sesión el primer lunes de julio del año en que hayan sido nombrados sus miembros, debiendo nombrar un Presidente y un Secretario e igualmente acordará la periodicidad de sus reuniones y se tomara nota de los fiscales acreditados. La Junta de Liquidaciones tendrá su sede en el Instituto.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 23 al 32 actual).

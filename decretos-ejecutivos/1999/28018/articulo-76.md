@@ -1,6 +1,6 @@
-Artículo 76.—De las Juntas Escrutadoras de Votos. El control de la votación en cada centro de votación estará a cargo de una Junta de Escrutadora integrada por 3 personas: dos productores de la respectiva región y un funcionario de ICAFE, quien la presidirá. Los dos productores serán escogidos al azar por la Junta Directiva, de las personas postuladas para tal propósito. Podrán postular candidatos para la Junta Escrutadora los productores de la zona, así como aquellos productores que se postulen directamente. El representante de ICAFE será designado por la Dirección Ejecutiva de ICAFE.
-La Auditoría Interna del ICAFE fiscalizará conforme a sus potestades el proceso electoral.
-En caso de que no exista la cantidad suficiente de productores postulados para conformar las Juntas Escrutadoras, la Dirección Ejecutiva de ICAFE nombrará de oficio productores de la región que corresponda para llenar el espacio vacante.
-En la publicación del primer domingo de mayo que se indica en el artículo siguiente de este Reglamento, la Dirección Ejecutiva comunicará a los interesados el plazo para postular candidatos para las Juntas Escrutadoras de Votos.
-La Postulación de candidatos para las Juntas Escrutadoras podrá hacerse a través de nota dirigida a la Dirección Ejecutiva de ICAFE, la cual se puede entregar directamente en el Despacho de la Dirección Ejecutiva y/o en las Sedes Regionales de ICAFE, también puede hacerse por correo electrónico y fax.
-(Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+TITULO TERCERO
+Del Instituto del Café de Costa Rica y del Congreso Nacional Cafetalero
+CAPITULO I
+Nombre, personería y domicilio
+Artículo 76.—El Instituto tendrá responsabilidad propia en la ejecución de sus funciones, lo cual impone a los miembros de su Junta Directiva la obligación de actuar conforme con su criterio en la dirección y administración del mismo y dentro de las disposiciones de las leyes y reglamentos respectivos.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 67 al 76 actual).

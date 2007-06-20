@@ -1,1 +1,3 @@
-Artículo 35.—La Junta de Liquidaciones, salvo lo dispuesto por el artículo 60 de la Ley, a más tardar el último día del mes de noviembre siguiente a la cosecha, deberá de oficio, concluir la revisión de las liquidaciones proforma y los proyectos de liquidación presentados por la Unidad de Liquidaciones y haber determinado los precios oficiales de Liquidación.
+Artículo 35.—Además de las Liquidaciones provisionales trimestrales ordinarias y pagos correspondientes, los beneficiadores deberán efectuar liquidaciones provisionales extraordinarias y sus respectivos pagos, en el momento en que las ventas efectivas acumuladas alcancen el cien por ciento de la totalidad del café recibido.
+Por ventas efectivas se entenderán aquellas cuyo pago hubiere recibido el beneficiador o fuere legalmente exigible por éste.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 26 al 35 actual).

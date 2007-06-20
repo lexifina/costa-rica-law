@@ -1,1 +1,2 @@
-Artículo 71.—El ejercicio financiero del Instituto se extenderá del primero de octubre al treinta de setiembre, al final de cada ejercicio financiero se hará una liquidación completa de sus operaciones, las cuales una vez auditadas por una auditoría externa, pasarán a conocimiento del Congreso Nacional Cafetalero y de la Contraloría General de la República.
+Artículo 71.—A fin de cumplir con lo previsto en el anículo 89 de la ley, la Dirección Ejecutiva podrá ejercer los controles que considere oponunos de previo a que el exponador. torrefactor o comprador comerciante reciba el café por pane del beneficiador.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 62 al 71 actual).

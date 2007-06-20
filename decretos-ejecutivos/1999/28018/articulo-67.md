@@ -1,5 +1,2 @@
-TITULO TERCERO
-Del Instituto del Café de Costa Rica y del Congreso Nacional Cafetalero
-CAPITULO I
-Nombre, personería y domicilio
-Artículo 67.—El Instituto tendrá responsabilidad propia en la ejecución de sus funciones, lo cual impone a los miembros de su Junta Directiva la obligación de actuar conforme con su criterio en la dirección y administración del mismo y dentro de las disposiciones de las leyes y reglamentos respectivos.
+Artículo 67.—En el caso de exportaciones de café tostado cuyo contrato de compra haya sido aprobado por el Instituto no se requerirá el visto bueno previo del ICAFE. Mensualmente las firmas que hayan efectuado transacciones de esta índole presentarán al Instituto una liquidación de las cantidades exportadas y los contratos de exportación que las amparan, en formatos establecidos para ese efecto por la administración del ICAFE.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 58 al 67 actual).

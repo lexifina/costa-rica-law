@@ -1,1 +1,4 @@
-Artículo 21.—Los miembros suplentes de la Junta de Liquidaciones asistirán a todas las sesiones de ésta con voz pero sin voto, salvo cuando sustituyan al respectivo propietario, en cuyo caso tendrán voto.
+CAPITULO II
+De la elaboración
+Artículo 21.—Para cubrir cualquier contingencia de las contempladas por el artículo 24 de la ley, los beneficiadores están en la obligación de mantener una póliza flotante contra incendio, que cubra el café recibido desde el momento en que ingresa a su esfera de custodia. hasta su entrega.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 12 al 21 actual).

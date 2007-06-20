@@ -1,5 +1,2 @@
-TITULO SEGUNDO
-De las relaciones entre beneficiador y exportador
-CAPITULO I
-De los contratos para exportación
-Artículo 43.—Los exportadores de café deberán informar diariamente a la Unidad de Liquidaciones del Instituto sobre las compras de café para exportación, realizadas durante el mismo día. El informe deberá presentarse al Instituto, en las fórmulas que al efecto se establezcan. Dicho informe, podrá ser enviado al Instituto del Café por fax o por cualquier otro medio electrónico que se establezca al efecto.
+Artículo 43.—Si al once de octubre siguiente a la respectiva cosecha, las firmas beneficiadoras no hubieren presentado la declaración de cuentas para la liquidación final, o no presentaran lo requerido por la Junta de Liquidaciones conforme lo dispuesto por el artículo 57, inciso 4) de la Ley, dicha Junta procederá a tasar de oficio los precios oficiales de liquidación, tomando como base el proyecto de liquidación de oficio que al efecto deberá elaborar la Unidad de Liquidaciones y los informes y demás referencias enumeradas en la Ley, considerando el rendimiento obtenido por el beneficiador en el año inmediato anterior o en el año en curso, si se comprobare que cualquiera de ellos es superior al mínimo.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 34 al 43 actual).

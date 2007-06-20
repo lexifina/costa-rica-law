@@ -1,14 +1,12 @@
-Artículo 90.—De la Publicación de información relacionada con la elección de las Asambleas Nacionales Electorales de los sectores beneficiador, exportador y torrefactor.
-a) El cuarto domingo del mes de mayo del año en que corresponda la elección para Delegados al Congreso Cafetalero y la Junta Directiva del Instituto del Café de Costa Rica, el ICAFE publicará en tres diarios de circulación nacional, así como por otros medios de comunicación tanto nacionales como regionales que se consideren necesarios, la siguiente información relacionada con las Asambleas Nacionales de los Sectores beneficiador, exportador y torrefactor, indicando como mínimo lo siguiente:
-1. La finalidad del proceso electoral.
-2. El número de Delegados Propietarios y Suplentes al Congreso Nacional Cafetalero a ser electos por cada sector, así como la información de la respectiva terna para miembros de Junta Directiva.
-3. Plazo para la postulación de candidatos para formar parte de las respectivas Juntas Escrutadoras de Votos.
-4. Plazo para la postulación de candidatos para delegados al Congreso Nacional Cafetalero y postulación de candidatos para terna de Junta Directiva. Este plazo será de quince días naturales improrrogable y se deberá indicar la fecha de inicio y finalización.
-5. Fecha, hora y lugar donde se llevarán a cabo en forma simultánea las asambleas de los sectores Beneficiador, Exportador y Torrefactor.
-6. Información sobre la acreditación de representantes para participar en las correspondientes Asambleas, lo cual debe de llevarse a cabo durante el mes de junio del año respectivo.
-b) Para la postulación de candidatos para delegados al Congreso Nacional Cafetalero y para terna de Junta Directiva, se debe cumplir con los siguientes lineamientos:
-1. Las postulaciones deben realizarse por escrito, en forma directa, por correo electrónico o por fax ante la Dirección Ejecutiva de ICAFE, dentro del plazo señalado en la publicación del cuarto domingo del mes de mayo. Debe especificarse claramente a cual puesto aspira la persona postulada (Delegado al Congreso o Terna Junta Directiva).
-2. La postulación de candidatos puede ser personal, sea que el candidato se ofrece a sí mismo, o por interpósita persona del correspondiente sector, sea ofrecido por otra persona física o jurídica.
-3. En los casos en que la postulación sea personal, la nota deberá indicar el nombre completo, dirección para ser localizado, el sector por el que participa, así como el número de cédula o identificación, debidamente firmada y autenticada por notario, procediendo el ICAFE a aceptar su postulación una vez corroborado que son miembros activos del sector que representan.
-4. En los casos en que se postula a otra persona, la nota de postulación deberá indicar necesariamente el nombre completo, dirección para ser localizado, el sector por el que participa, así como el número de cédula o identificación, debidamente firmada y autenticada por notario, procediendo el ICAFE a aceptar su postulación una vez corroborado que son miembros activos del sector que representan. Asimismo la nota de postulación deberá estar acompañada por una carta de aceptación por parte del candidato postulado.
+Artículo 90.—De la apertura de las Votaciones. El ICAFE entregará a cada una de las Juntas Escrutadoras de Votos una caja con la totalidad del material a utilizar, que será:
+1. Papeletas de votación para elección de Delegados al Congreso Nacional Cafetalero.
+2. Papeletas de votación para elección Terna Junta Directiva ICAFE.
+3. Padrón Electoral.
+4. Bolígrafos.
+5. Acta de apertura y cierre.
+6. Tinta indeleble.
+7. Servilletas.
+8. Cinco sobres de Manila.
+Los miembros de cada Junta Escrutadoras de Votos procederán a llenar el acta de apertura correspondiente, donde se hará constar necesariamente el nombre de los miembros, el número de papeletas de votación, indicación de que todas se encuentran en blanco y la inclusión de los demás materiales antes indicados. Todos los miembros procederán a firmar el acta de apertura. El período de votación iniciará a las nueve horas y finalizará a las trece horas.
 (Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 81 al 90 actual).

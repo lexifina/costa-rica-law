@@ -1,3 +1,2 @@
-CAPITULO IV
-Del rendimiento
-Artículo 19.—El plazo para informar el rendimiento al que se refiere el artículo 49 de la Ley se tendrá por prorrogado en aquellos casos en que la Junta Directiva extienda el período de venta, prórroga que se extenderá hasta dos semanas antes de la nueva fecha límite de venta fijada.
+Artículo 19.—En caso de que se solicite una segregación de zonas de acuerdo a lo previsto en el Art. 18 de la ley; el Instituto deberá notificar a los interesados y hacer publicar en La Gaceta y en dos diarios de circulación nacional, por lo menos con dos meses de anticipación al inicio de la recolección de la cosecha a partir de la cual deberá regir la fijación de zonas de recibo y el porcentaje de diferencia de precio entre las mismas. Una vez autorizada esta diferencia por zonas, se considerará permanente y para dejarla sin efecto en futuras cosechas, se requiere publicación en los mismos términos que para su implementación.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 10 al 19 actual).

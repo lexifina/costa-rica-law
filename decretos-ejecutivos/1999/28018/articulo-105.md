@@ -1,11 +1,8 @@
-Artículo 105.—El Presidente tendrá las siguientes facultades y atribuciones:
-a) Presidir, con todas las facultades necesarias para ello. Las reuniones de la Junta Directiva, las que podrá suspender en cualquier momento por causa justificada;
-b) Velar porque la Junta Directiva cumpla con las leyes y reglamentos relativos a su función;
-c) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos de las labores de la Junta Directiva;
-d) Convocar, cuando sea del caso. a sesiones extraordinarias;
-e) Confeccionar el orden del día, teniendo en cuenta, en su caso, las peticiones de los demás Diembros formuladas al menos con tres días de antelación;
-f) Resolver cualquier asunto cuando haya empate, en cuyo caso tendrá voto de calidad;
-g) Ejecutar o hacer ejecutar los acuerdos de Junta Directiva;
-h) Nombrar las comisiones de Junta Directiva que considere necesarias para el estudio y ejecución de las políticas institucionales; y
-i) Las demás que le asignen la Ley y sus reglamentos.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 82 al 105 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+Artículo 105.—De la emisión de votos. Cuando el representante acreditado se haga presente al Centro de Votación para emitir su voto, se seguirá el siguiente procedimiento:
+1. Verificar que está acreditado por un ente que figura en el respectivo padrón electoral.
+2. Los miembros de la Junta Escrutadora de Votos entregarán al representante dos papeletas debidamente firmadas por todos sus miembros, una para la elección de Delegados al Congreso y otra para terna de candidatos a la Junta Directiva de ICAFE.
+3. Los representantes votarán en forma secreta en las papeletas marcando con una X en la casilla correspondiente. En la papeleta para elegir Delegados al Congreso, debe votar hasta por la cantidad de Delegados que haya que elegir en representación del correspondiente sector. En la papeleta para elegir terna de candidatos a Junta Directiva debe votar hasta por tres de los candidatos postulados.
+4. Los votos serán depositados en cajas destinadas al efecto, las cuales estarán debidamente identificadas.
+Al ser las dieciocho horas, se cerrará el centro electoral, indiferentemente de que hayan o no personas afuera del recinto, procediendo solamente a aceptar el voto de la persona que en ese momento se encontrara dentro del recinto en proceso de votación.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo que lo traspasó del antiguo 73 al 96 actual y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 96 al 105 actual).

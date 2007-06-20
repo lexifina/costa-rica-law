@@ -1,1 +1,2 @@
-Artículo 57.—El Instituto del Café de Costa Rica, gestionara ante los organismos competentes la centralización de tramites de exportación de café en sus oficinas.
+Artículo 57.—La inscripción de contratos de compra - venta de café para la exportación se iniciará el primero de abril inmediato anterior al año cafetero a que corresponden y se cerrará el último de setiembre del respectivo año cafetero. Queda la Junta Directiva facultada para anticipar la fecha de inicio o prorrogar la de cierre.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 48 al 57 actual).

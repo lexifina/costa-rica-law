@@ -1,1 +1,1 @@
-Artículo 8°—Las firmas beneficiadoras reportarán para cada cosecha los cambios efectuados por cierre o apertura de recibidores. No podrán usar simultáneamente un mismo recibidor dos beneficios.
+Artículo 8°—(Así derogado mediante artículo N° 1 del Decreto Ejecutivo N° 33861 del 20 de junio de 2007)

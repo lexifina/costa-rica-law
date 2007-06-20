@@ -1,4 +1,5 @@
-CAPÍTULO IX
-Del Congreso Nacional Cafetalero
-Artículo 126.—La organización y funcionamiento del Congreso se hará de conformidad con el Reglamento emitido al efecto, el que deberá ser aprobado en el seno del mismo.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 103 al 126 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+Artículo 126.—La Auditoría Interna tendrá las competencias, deberes, potestades y prohibiciones establecidos en el capítulo V de la Ley General de Control Interno.
+Su actuación se regula por lo establecido fundamentalmente en la Ley General de Control Interno, Ley Nº 8292 y su Reglamento; en la Ley Orgánica de la Contraloría General de la República, Nº 7428 del 7 de setiembre de 1994; el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como en las normas, lineamientos, disposiciones, criterios u otros emitidos por la Contraloría General de la República y supletoriamente por lo establecido en las normas y prácticas profesionales pertinentes
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 94 al 117 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 117 al 126 actual).
+(Así reformado mediante artículo N° 3° del decreto ejecutivo N° 33861 del 20 de junio de 2007)

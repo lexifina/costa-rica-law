@@ -1,9 +1,3 @@
-Artículo 45.—Los contratos a que se refiere el artículo anterior, deberán contener, cuando menos, los siguientes datos:
-a) Cosecha;
-b) Nombre y calidades del vendedor y del comprador o consignatario
-c) Nombre y localización de la planta de beneficio que elaboró el café;
-d) Cantidad de café en kilogramos;
-e) Tipo y clasificación del café;
-f) Precio en rieles y condiciones de pago, salvo en los contratos de compra - venta de café para la exportación por consignación, o con fines de financiación, en que pueden no anotarse estos datos:
-g) Mes o meses de entrega; y
-h) Lugar y fecha de suscripción del contrato.
+Artículo 45.—Antes de la publicación establecida por el artículo 60 de la Ley, en ningún caso después del diez de diciembre siguiente a la comercialización de la cosecha respectiva, el Instituto deberá comunicar por escrito a las firmas beneficiadoras, los precios de liquidación final que hubiere aprobado la Junta de Liquidaciones, a fin de que éstas en caso de inconformidad, interpongan dentro del plazo de tres días hábiles siguientes a la notificación, recurso de revocatoria.
+Interpuesto el citado recurso, la Junta de Liquidaciones deberá resolverlo en su siguiente sesión. Si fuera del caso. las firmas beneficiadoras podrán interponer dentro de los tres días posteriores al día de la notificación de la resolución, recursos de apelación ante la Junta Directiva, la que una vez recibido el o los escritos, los conocerá en la sesión inmediata siguiente y los resolverá en el menor plazo posible. Su resolución no tendrá recurso alguno. Si la inconformidad de los beneficiadores versare sobre los gastos deducibles por la elaboración de café o sobre el rendimiento mínimo obligatorio, la Junta de Liquidaciones podrá acordar resolver todos los recursos en una sola oportunidad, aunque para ello deba excederse el plazo aquí previsto.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 36 al 45 actual).

@@ -1,1 +1,2 @@
-Artículo 66.—Para darle cumplimiento al Artículo 98 de la ley, el Instituto del Café anualmente determinará de acuerdo con estudios técnicos, el monto de gastos por unidad de 46 kg. que puede deducir el exportador y que formara parte de la conversión del precio rieles a FOB.
+Artículo 66.—El Instituto del Café de Costa Rica, gestionara ante los organismos competentes la centralización de tramites de exportación de café en sus oficinas.
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 57 al 66 actual).

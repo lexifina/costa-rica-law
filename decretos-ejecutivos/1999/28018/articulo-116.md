@@ -1,6 +1,4 @@
-CAPÍTULO VII
-De la Auditoría
-Artículo 116.—El Instituto del Café tendrá una unidad de Auditoría que funcionará bajo la responsabilidad y dirección inmediata del auditor, o en su defecto o por delegación, del Subauditor. La remoción del Auditor o Subauditor sólo podrá acordarse de la misma manera en que fueron nombrados y en el caso del Auditor con previa autorización de la Contraloría General de la República según lo establece la Ley Nº No 7428 del 7 de setiembre de 1994.
-La Auditoría depende directamente de la Junta Directiva para ejercer en su nombre y representación, la vigilancia, inspección y fiscalización sistemática de la situación y marcha del Instituto y del sector cafetero en general.
-El Auditor y Subauditor deberán reunir los mismos requisitos exigidos al Director Ejecutivo y adicionalmente deberán ser contadores públicos autorizados debidamente incorporados al colegio respectivo. No podrán ser empleados de ningún otro departamento del Instituto del Café de Costa Rica, ni entidad vinculada al sector cafetalero, ni miembros de su Junta Directiva.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 93 al 116 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+Artículo 116.—La Junta Directiva se reunirá en sesión ordinaria una vez por semana y extraordinariamente cuando ella así lo acuerde o cada vez que sea convocada al efecto por el Director Ejecutivo, por sí o a petición del Presidente o de cuatro de los miembros de la Junta Directiva.
+Los miembros de la Junta Directiva, propietarios y suplentes. devengarán dietas, cuyo monto se determinará en los presupuestos anuales del Instituto.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 84 al 107 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 107 al 116 actual).
