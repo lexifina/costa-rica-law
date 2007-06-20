@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8434 de Autorización al Instituto de Desarrollo Rural (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-05 | la propia norma |
+| 2 | 2007-06-20 | Decreto Ejecutivo 34086 (2007-06-20) |
