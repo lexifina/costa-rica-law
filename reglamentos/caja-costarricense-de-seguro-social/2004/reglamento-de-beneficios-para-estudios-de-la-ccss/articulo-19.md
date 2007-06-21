@@ -1,1 +1,0 @@
-Artículo 19.—Informes. Los beneficiarios deben informar al CENDEISSS de las calificaciones obtenidas en cada periodo de estudio, de acuerdo al plan académico. Deben rendir un informe dentro de los 30 días naturales siguientes a la finalización de los estudios.

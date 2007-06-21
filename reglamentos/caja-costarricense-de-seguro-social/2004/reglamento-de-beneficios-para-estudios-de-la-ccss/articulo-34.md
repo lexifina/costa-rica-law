@@ -1,1 +1,0 @@
-Artículo 34.—Deberes. Cuando un funcionario reciba financiamiento para asistir a una actividad debe firmar una carta de compromiso, realizar una actividad de divulgación bajo la metodología didáctica acorde al tema y presentar un informe escrito de la misma.

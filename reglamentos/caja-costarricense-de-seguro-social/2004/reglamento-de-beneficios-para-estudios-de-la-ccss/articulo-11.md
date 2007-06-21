@@ -1,1 +1,0 @@
-Artículo 11.—Capacidad de pago. En forma previa a la recomendación para otorgamiento de un beneficio de los aquí previstos y cuando de su otorgamiento se derive o se pudiera derivar una obligación económica, el CENDEISSS debe analizar la capacidad de pago del solicitante y de sus fiadores.
