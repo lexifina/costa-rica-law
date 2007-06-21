@@ -14,3 +14,4 @@ Reglamento Interior de Servicio de Apartados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-09 | la propia norma |
+| 2 | 2007-06-21 | Reglamento 21 (2007-06-21) |

@@ -3,4 +3,7 @@ Si el cliente extravía la llave, el Equipo de Tesorería procederá a prestarle
 Al pasar el período establecido el Equipo de Tesorería procederá a girar la orden para cerrar el apartado y el notario o cliente deberá asumir el costo del cambio del llavín, duplicado de llaves y llavero si fuere extraviado.
 Las tarifas a aplicar se determinan con la siguiente tabla:
 Detalle Tarifa
-Cambio de llavín ¢ 2.300,00
+(*) Cambio de llavín ¢ 8.500,00
+(*) (Así reformado mediante sesión N° 21 del 21 de junio del 2007).
+(*) Extravío del llavero ¢ 2.500,00
+(*) (Así adicionado mediante sesión N° 21 del 21 de junio del 2007).
