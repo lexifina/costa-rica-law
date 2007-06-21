@@ -1,0 +1,1 @@
+Artículo 11.—De los roles para el ejercicio de la disponibilidad. El Director del Departamento en donde existan puestos sujetos al régimen de disponibilidad, establecerá un rol semanal para el ejercicio efectivo de las condiciones del régimen, para lo cual deberá aplicar la igualdad de participación en él.

@@ -1,0 +1,1 @@
+Artículo 5º—Eliminación de la compensación económica. El pago por concepto de disponibilidad se eliminará cuando se desafecte el puesto adherido a dicho régimen, en virtud de haber desaparecido las condiciones objetivas que motivaron su sujeción a éste, según criterio razonado de la Administración.

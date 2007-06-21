@@ -1,0 +1,1 @@
+Artículo 9º—Procedimiento. La División Administrativa ordenará un estudio técnico del caso y con vista en sus resultados deberá recomendar al respectivo Superior Jerárquico Administrativo si procede o no la afectación del puesto a este régimen, siendo esta última instancia la que decidirá lo que corresponda en sede administrativa.
