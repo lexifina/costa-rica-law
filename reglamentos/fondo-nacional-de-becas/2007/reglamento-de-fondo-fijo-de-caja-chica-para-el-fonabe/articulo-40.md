@@ -1,0 +1,1 @@
+Artículo 40.—Procedimiento de cierre del Fondo Fijo-Caja Chica por parte de la Institución. En caso de que el Responsable del Fondo Fijo-Caja Chica considere pertinente el cierre, procederá de acuerdo con los lineamientos que establezca la Junta Directiva e informará a la Tesorería Nacional al respecto.

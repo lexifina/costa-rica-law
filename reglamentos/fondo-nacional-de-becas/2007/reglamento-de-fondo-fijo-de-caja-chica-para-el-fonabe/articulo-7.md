@@ -1,0 +1,1 @@
+Artículo 7º—Registro de nombres y firmas. El responsable del Fondo de Caja Chica, constituirá un registro actualizado con el nombre, número de cédula de identidad y registro de firmas de los funcionarios autorizados para realizar las gestiones de compra y uso del fondo de Caja Chica.

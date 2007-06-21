@@ -1,0 +1,1 @@
+Artículo 11.—Transferencias electrónicas de fondos. El monto aprobado por la Junta Directiva del FONABE para el Fondo de Caja Chica, así como los aumentos permanentes o temporales se harán efectivos por medio de transferencias electrónicas de fondos, de la cuenta domiciliada en Caja Única a la cuenta corriente exclusiva para la Caja Chica del FONABE.

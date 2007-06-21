@@ -1,0 +1,1 @@
+Artículo 6º—Contenido presupuestario y económico. Todas las compras o pagos que se realicen por medio de Fondo Fijo de Caja Chica, deberán contar con el debido contenido presupuestario y económico autorizado por el Dirección Administrativa Financiera y será responsabilidad de las jefaturas y funcionarios autorizados velar por el fiel cumplimiento de esta disposición.

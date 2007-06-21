@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 41.—Ero gaciones con fondos propios. Las erogaciones que realicen las jefaturas departamentales u otros funcionarios no autorizados con su peculio personal, para pagar materiales y suministros del Estado y aquellas erogaciones que incumplen con las estipulaciones de este Reglamento o con los lineamientos emanados por la Junta Directiva y por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo Fijo-Caja Chica, salvo que excepcionalmente hubieran sido autorizadas previamente por el Responsable del Fondo Fijo-Caja Chica.
