@@ -14,3 +14,4 @@ Fija salarios mínimos que regirán en todo el país a partir del 1° de enero d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2007-06-22 | Decreto Ejecutivo 33840 (2007-06-22) |
