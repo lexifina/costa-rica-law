@@ -1,0 +1,2 @@
+Artículo 8º—Si el funcionario deja de laborar para el Banco, o es trasladado a otro puesto en que no deba rendir la póliza de fidelidad, deberá solicitar ante la Dirección de Recursos Humanos la exclusión de la póliza.
+La Dirección de Recursos Humanos será el órgano encargado de mantener el control de los funcionarios que rindan la póliza de fidelidad, y a la vez de mantener de forma actualizada el listado de servidores que deben rendir dicha póliza.
