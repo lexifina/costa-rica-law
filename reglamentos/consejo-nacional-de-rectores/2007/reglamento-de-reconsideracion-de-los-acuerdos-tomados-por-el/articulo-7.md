@@ -1,0 +1,2 @@
+Artículo 7º—Gastos del procedimiento. En caso de que se obtuviera un dictamen desfavorable para la carrera que presenta el recurso, todos los gastos en que se incurra para tramitar y resolver los recursos presentados correrán por cuenta de ésta. El depósito correspondiente deberá realizarse al SINAES dentro de los 5 días hábiles siguientes a la decisión del Consejo.
+San José, 15 de junio del 2007.
