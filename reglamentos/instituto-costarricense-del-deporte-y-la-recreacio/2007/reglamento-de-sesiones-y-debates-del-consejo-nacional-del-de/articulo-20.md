@@ -1,0 +1,1 @@
+Artículo 20.—Orden en el uso de la palabra: Toda moción, proposición o informe deberá ser puesto a discusión y la Presidencia concederá el uso de la palabra de acuerdo con el orden en que se le haya solicitado.

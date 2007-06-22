@@ -1,0 +1,1 @@
+Artículo 3º—Conformación del directorio: En la primera sesión del mes de agosto de cada año, el Consejo designará a un Vicepresidente, un secretario y un prosecretario. En las ausencias del Presidente y el Secretario, serán sustituidos por el Vicepresidente y el Prosecretario, según el caso.

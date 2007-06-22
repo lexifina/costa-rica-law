@@ -1,0 +1,1 @@
+Artículo 5º—Funciones y atribuciones del vicepresidente: En caso de ausencia o de enfermedad del presidente, y en general cuando concurra alguna justa causa, el vicepresidente lo sustituirá y ejercerá sus mismas funciones y atribuciones.

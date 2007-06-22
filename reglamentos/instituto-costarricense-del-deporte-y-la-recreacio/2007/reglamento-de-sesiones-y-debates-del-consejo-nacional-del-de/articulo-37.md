@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las actas
+Artículo 37.—Contenido: De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, los acuerdos y el resultado de la votación. También constarán en el acta aquellas manifestaciones que los integrantes del Consejo soliciten en forma expresa que sean transcritos en forma literal, incluidos los razonamientos de sus votos. El acta se hará llegar a los señores miembros del Consejo al menos con un día de antelación a la siguiente sesión, ya sea por medio electrónico o en forma personal.

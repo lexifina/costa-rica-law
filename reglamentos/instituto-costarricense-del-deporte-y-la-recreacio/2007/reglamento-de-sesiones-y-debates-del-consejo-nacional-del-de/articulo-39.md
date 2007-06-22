@@ -1,0 +1,1 @@
+Artículo 39.—Aprobación: Finalizado el período de lectura y discusión del acta, el Presidente someterá a votación su aprobación. No podrán votar los miembros que no estuvieron presentes en dicha sesión. El Secretario incorporará en la siguiente acta las correcciones aprobadas.

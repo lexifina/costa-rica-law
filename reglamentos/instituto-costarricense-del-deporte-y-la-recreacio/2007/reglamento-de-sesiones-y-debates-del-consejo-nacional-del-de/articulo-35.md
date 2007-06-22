@@ -1,0 +1,1 @@
+Artículo 35.—Firmeza de los acuerdos: Los acuerdos carecerán de firmeza mientras no haya sido aprobada el acta respectiva, a menos que en la misma sesión los miembros presentes acuerden su firmeza por votación calificada y así conste en el acta que será conocida y aprobada en la sesión siguiente.
