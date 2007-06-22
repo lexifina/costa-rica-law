@@ -13,3 +13,4 @@ Reglamento para el Reconocimiento de Tiempo Servido en el Poder Judicial y en ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-23 | la propia norma |
+| 2 | 2007-06-22 | Circular 56 (2007-06-22) |
