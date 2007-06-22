@@ -1,0 +1,1 @@
+Artículo 21.—Será requisito indispensable para optar por los beneficios del Fondo de Ayuda Mutua, que las y los colegiados se encuentren activos, de acuerdo a lo que dispone el artículo 3º de la Ley Orgánica del Colegio Profesional de Psicólogos y del artículo 6º del Reglamento General de esta Ley.

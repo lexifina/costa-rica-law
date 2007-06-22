@@ -1,0 +1,1 @@
+Artículo 3º—La administración del Fondo de Ayuda Mutua estará a cargo del Comité creado para tales fines. Este fondo, contará con la colaboración de personal administrativo del Colegio de Psicólogos, para la ejecución de sus proyectos. Este personal, será designado por la Junta Directiva y será denominado “Unidad Ejecutora”.

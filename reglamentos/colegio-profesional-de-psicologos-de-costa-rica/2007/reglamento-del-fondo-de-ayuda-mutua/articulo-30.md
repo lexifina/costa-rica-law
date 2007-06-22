@@ -1,0 +1,1 @@
+Artículo 30.—Quien reingrese al Fondo de Ayuda Mutua, será considerado en todo efecto legal derivado de este beneficio, como nuevo colegiado(a), debiendo cumplir cada vez que reingrese, con el mínimo de cotizaciones estipulado en este Reglamento, para hacerse acreedor para sí o para sus beneficiarios, de las prestaciones correspondientes.
