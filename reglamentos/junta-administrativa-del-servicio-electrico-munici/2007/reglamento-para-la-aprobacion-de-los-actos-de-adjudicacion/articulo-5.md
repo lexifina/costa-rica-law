@@ -1,0 +1,1 @@
+Artículo 5º—Tratándose de Licitaciones Públicas o de contratos administrativos de cualquier otra índole, cuyo monto sea superior a ¢118.400.000,00 (ciento dieciocho millones cuatrocientos mil colones), corresponderá el acto de adjudicación a la Junta Directiva, previa recomendación del Proceso Contratar Bienes y Servicios y de la UEN de Apoyo Administrativo.
