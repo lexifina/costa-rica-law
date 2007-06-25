@@ -1,2 +1,2 @@
-Artículo 116. De la designación y cese de funciones
-El auditor interno deberá ser nombrado por la junta directiva de la entidad autorizada. Su nombramiento y requisitos deberán ser documentados ante la Superintendencia y en caso de renuncia o despido también deberá informarse a la Superintendencia, todo conforme a lo dispuesto en el Artículo 10 de este Reglamento.
+Artículo 116. De la designación y cese de funciones. El auditor interno deberá ser nombrado por la junta directiva de la entidad regulada. Su nombramiento, remoción o renuncia será comunicado a la Superintendencia de Pensiones en los plazos y a través de los medios que esta establezca mediante acuerdo. La documentación por medio de la cual se acredite el cumplimiento de los requisitos establecidos deberá mantenerse bajo la custodia de las entidades para los efectos de la supervisión que corresponda realizar.
+(Así reformado mediante sesión N° 655 del 25 de junio de 2007).
