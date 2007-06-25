@@ -1,8 +1,10 @@
 Artículo 34.—Requisitos de emisores e instrumentos elegibles. Los valores deberán estar denominados en dólares, libras esterlinas, euros o yenes. Además, deberán cumplir con los siguientes requisitos:
-a. Requisitos de los instrumentos de renta fija:
-i. La emisión deberá poseer un valor no menor a doscientos millones de dólares, o su equivalente en euros, libras esterlinas o yenes.
-ii. La emisión deberá contar con una calificación de riesgo internacional mínima de “BBB”.
-iii. Para el caso de los valores emitidos por el gobierno de los países miembros del G8, con excepción de aquellos países que hubieren cesado el pago de sus obligaciones en los últimos quince años, se considerará la calificación país o de riesgo soberano, ante ausencia de una calificación específica de una emisión.
+(*)a) Requisitos de los instrumentos de renta fija:
+i) La emisión deberá poseer un valor no menor a doscientos millones de dólares, o su equivalente en euros, libras esterlinas o yenes.
+ii) La emisión deberá contar con una calificación de riesgo internacional mínima de “BBB”.
+iii) Para el caso de los valores emitidos por el gobierno de los países miembros del G8, con excepción de aquellos países que hubieren cesado el pago de sus obligaciones en los últimos quince años, se considerará la calificación país o de riesgo soberano, ante ausencia de una calificación específica de una emisión.
+iv) Para el caso de entidades multilaterales de crédito, con calificaciones de riesgo de crédito superiores a “AA”, se autoriza la inversión en emisiones no menores a cincuenta millones de dólares o su equivalente en las monedas autorizadas o colones costarricenses.
+(*)(Así reformado este inciso anterior mediante sesión N° 654 del 25 de junio de 2007)
 b. Requisitos de las cuotas de participación de los fondos de inversión:
 i. La sociedad administradora del fondo deberá contar con, al menos, cinco años de experiencia en la administración de carteras y emisión de participaciones.
 ii. El fondo deberá contar con un patrimonio de al menos cien millones de dólares o su equivalente en euros, libras esterlinas o yenes.
