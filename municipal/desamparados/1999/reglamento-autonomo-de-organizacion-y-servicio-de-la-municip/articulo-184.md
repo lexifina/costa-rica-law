@@ -1,0 +1,5 @@
+Artículo 184.—En el plazo de quince días naturales después de la comparecencia y evacuación de la prueba, el Órgano Director rendirá resolución sobre las conclusiones del trámite administrativo, e impondrá las sanciones disciplinarias en caso de que se considere probada la falta. Contra la resolución del Órgano Director cabrá recurso de revocatoria con apelación de subsidio, pudiendo presentar ambos recursos o solo uno de ellos, dentro del tercer día contado a partir del día siguiente de la notificación de la resolución.
+En segunda instancia, la Alcaldía conocerá de la disconformidad de cualquiera de las partes, disponiendo de ocho días naturales para resolver en definitiva.
+La resolución final que proceda deberá dictarse dentro de un término que en ningún caso podrá exceder de tres meses contados a partir de la interposición de la denuncia.
+Agotados los procedimientos internos, se puede acudir a los tribunales laborales ordinarios, de conformidad con el artículo 18 de la Ley Contra el Hostigamiento Sexual en el empleo y la docencia Ley Nº 7476.
+(Así adicionado mediante acuerdo Nº 9 de la sesión Nº 400 del 26 de junio de 2007).

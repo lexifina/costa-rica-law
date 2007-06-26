@@ -1,0 +1,2 @@
+Artículo 183.—Para la valoración de las pruebas, se tomarán en consideración todos los elementos indiciarios aportados, dentro de los que se contemplarán todos aquellos que se refieren a las alteraciones provocadas por los hechos que se denuncian, en el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral. El Órgano Director no podrá emitir valoración alguna sobre la vida personal del (de la) denunciante.
+(Así adicionado mediante acuerdo Nº 9 de la sesión Nº 400 del 26 de junio de 2007).
