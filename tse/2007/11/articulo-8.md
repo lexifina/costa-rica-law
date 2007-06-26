@@ -1,0 +1,1 @@
+Artículo 8º—Distribución de electores. El Tribunal Supremo de Elecciones fijará el número de Juntas Receptoras de Votos en cada distrito electoral y distribuirá a los electores que habrán de votar en cada una, para lo cual deberá tomar en consideración lo dispuesto en el último párrafo del artículo 25 del Código Electoral.

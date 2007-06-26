@@ -1,0 +1,1 @@
+Artículo 44.—Aplicación del Código Electoral. De conformidad con el numeral 5 de la Ley Nº 8492, en todo lo relativo a la realización del referéndum, se podrán aplicar supletoriamente, las disposiciones el Código Electoral en lo que resulte compatible con la naturaleza consultiva del proceso.

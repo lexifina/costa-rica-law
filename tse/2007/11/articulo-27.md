@@ -1,0 +1,1 @@
+Artículo 27.—Prohibición. De conformidad con lo dispuesto en el artículo 21 de la Ley Nº 8492, queda prohibida la difusión total o parcial o el comentario de resultados de cualquier encuesta o sondeo de opinión o cualquier otro proceso de opinión, dos días antes y el mismo día de la votación.

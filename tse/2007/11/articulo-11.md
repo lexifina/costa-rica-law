@@ -1,0 +1,1 @@
+Artículo 11.—Ubicación de las Juntas Receptoras de Votos. Las Juntas Receptoras de Votos se ubicarán en locales públicos, preferiblemente escuelas y colegios, y sólo por excepción el Tribunal autorizará ocupar locales particulares. El lugar definido debe ser de fácil acceso para personas en situación de discapacidad.

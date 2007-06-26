@@ -1,0 +1,1 @@
+Artículo 13.—Cantidad de recintos secretos en Juntas Receptoras de Votos. En las Juntas Receptoras de Votos de hasta 250 electores se instalará un solo recinto secreto. En las que tengan más de 250 electores y hasta 500, se podrá instalar dos recintos secretos y en las que tengan más de 500 electores, se podrá instalar hasta tres recintos secretos de votación.

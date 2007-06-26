@@ -1,0 +1,1 @@
+Artículo 3º—El Tribunal Supremo de Elecciones. Corresponde al Tribunal Supremo de Elecciones, en forma exclusiva, la organización, dirección, vigilancia, escrutinio y declaratoria y comunicación de los resultados del proceso de referéndum.

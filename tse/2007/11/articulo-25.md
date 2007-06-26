@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Encuestas de opinión pública
+Artículo 25.—Acreditación. A partir de la comunicación oficial de la convocatoria a referéndum, sólo se permitirá la publicación o divulgación de encuestas sobre la opinión de los ciudadanos a favor o en contra del proyecto de ley a consultar, cuando la empresa que las realice se encuentre previamente inscrita en el Tribunal Supremo de Elecciones, quedando sometida a lo que dispone el artículo 85 ter del Código Electoral. Para llevar a cabo su ejercicio comercial, dichas empresas deberán registrarse, a más tardar, dentro de los diez días hábiles posteriores a la comunicación oficial de la convocatoria del referéndum.

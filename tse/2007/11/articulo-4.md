@@ -1,0 +1,1 @@
+Artículo 4º—De la división territorial. Para los efectos propios del referéndum se aplicará la División Territorial Administrativa que se encuentre vigente a la fecha del acto de comunicación oficial de la convocatoria a referéndum, así como los distritos electorales que para ese momento se encuentren debidamente establecidos conforme a la División Territorial Electoral.

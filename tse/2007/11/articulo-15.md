@@ -1,0 +1,1 @@
+Artículo 15.—Cierre de la votación. A las 18 horas en punto deberá suspenderse la votación; después de esa hora únicamente se recibirán los votos de quienes, en ese momento, se encuentren en el recinto secreto ejerciendo su derecho al sufragio.

@@ -1,0 +1,1 @@
+Artículo 21.—Tarifas vigentes. Dentro de los tres días hábiles posteriores a la comunicación oficial de la convocatoria, los medios de comunicación deberán remitir las tarifas que se encuentren vigentes y que rigen para cualquier clase de contrato publicitario. Cualquier cambio en esas tarifas, deberá ser comunicado al Tribunal Supremo de Elecciones dentro de tercero día.

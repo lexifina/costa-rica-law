@@ -1,0 +1,1 @@
+Artículo 31.—Fiscales del escrutinio definitivo. Los partidos políticos tendrán el derecho a fiscalizar el escrutinio definitivo de votos que efectúe el Tribunal Supremo de Elecciones, mediante tres representantes propietarios y seis suplentes, correspondiéndole a cualquier miembro del respectivo comité ejecutivo superior acreditarlos ante la Secretaría del Tribunal.

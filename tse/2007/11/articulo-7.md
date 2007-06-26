@@ -1,0 +1,3 @@
+CAPÍTULO II
+Juntas Receptoras de Votos
+Artículo 7º—Integración. Dentro de los treinta días naturales posteriores a la publicación de la comunicación oficial de la convocatoria, el Tribunal Supremo de Elecciones deberá integrar las juntas receptoras de votos que funcionarán el día en que se lleve a cabo la consulta. Cada junta estará integrada por un delegado del Tribunal Supremo de Elecciones y un asistente, designado por el mismo Tribunal, quien, además de colaborar con el delegado, podrá suplirlo. A ambos funcionarios les será aplicable, en lo que sea compatible, el Reglamento de Auxiliares Electorales, Decreto Nº 16-2001 del 8 de noviembre del 2001 y sus reformas.
