@@ -1,0 +1,19 @@
+BANCO CENTRAL DE COSTA RICA
+REGLAMENTO SOBRE DIVULGACIÓN DE INFORMACIÓN
+Y PUBLICIDAD DE PRODUCTOS FINANCIEROS
+El Consejo Nacional de Supervisión del Sistema Financiero en el Artículo 9 del Acta de la Sesión 652-2007, celebrada el 11 de junio del 2007,
+considerando que:
+a) La divulgación de información relacionada con los productos financieros fomenta la transparencia del mercado y coadyuva en la toma de decisiones de quienes demandan esos productos.
+b) Es necesario establecer las condiciones mínimas para propiciar un marco de transparencia que facilite al público la toma de decisiones sobre productos financieros ofertados en los medios de difusión.
+c) La tasa de interés efectiva, en nuestro medio, es una variable útil para comparar el costo efectivo de los créditos que ofrecen las diferentes entidades, y es determinante en las decisiones de los usuarios de productos financieros. De ahí la necesidad de dictar reglas para que los sujetos supervisados calculen y expresen dicho costo de manera uniforme.
+d) El Acuerdo SUGEF 28-02 “Normas sobre Publicidad de los Servicios Financieros que ofrecen las Entidades y Grupos Financieros Supervisados por la SUGEF” requiere de una actualización a la luz de los cambios apreciados en las prácticas publicitarias de los participantes del mercado.
+e) Es competencia del Consejo Nacional de Supervisión, según lo dispuesto en el artículo 171 de la Ley 7732 “Ley Reguladora del Mercado de Valores” y sus reformas, aprobar las normas atinentes a la, regulación, supervisión, fiscalización y vigilancia que conforme a la ley, debe ejecutar la Superintendencia General de Entidades Financieras, necesarias para el establecimiento de sanas prácticas, en salvaguarda del interés de la colectividad.
+f) El artículo 131, inciso k) de la Ley Orgánica del Banco Central de Costa Rica, faculta al Superintendente General de Entidades Financieras, para ordenar a las entidades supervisadas la suspensión de toda publicidad errónea o engañosa.
+g) La Ley 7472 “Ley de Promoción de la Competencia y Promoción Efectiva del Consumidor”, establece definiciones para los términos como consumidor y publicidad, publicidad errónea o engañosa, los cuales con el propósito de no generar un trato asimétrico entre las regulaciones que rigen esta materia, resulta apropiado adoptarlos en la regulación sobre publicidad que apruebe este Consejo.
+h) El artículo 37 de la Ley 7472, establece que la publicidad debe realizarse de acuerdo con la naturaleza y las características de los bienes y servicios. En lo que respecta a la publicidad de productos financieros, deben emitirse criterios particulares enfocados a determinar el valor real de los productos financieros, determinado por su tasa efectiva. La tasa efectiva debe calcularse tomando en consideración las características de los productos financieros y debe incluir toda la información necesaria para determinar el valor real de los mismos.
+dispuso:
+Aprobar el Acuerdo SUGEF 10-07 “Reglamento sobre divulgación de información y publicidad de productos financieros”, conforme al texto que se adjunta.
+ACUERDO SUGEF 10-07
+REGLAMENTO SOBRE DIVULGACIÓN DE INFORMACIÓN
+Y PUBLICIDAD DE PRODUCTOS FINANCIEROS
+Artículo 1º—Objeto y alcance. Este reglamento establece las disposiciones relativas a la divulgación de información y la publicidad sobre productos financieros que ofrecen los intermediarios financieros y las entidades creadas por Ley especial, supervisados por la Superintendencia General de Entidades Financieras (en adelante SUGEF). Además de las disposiciones establecidas en la Ley 7472 “Ley de Promoción de la Competencia y Promoción Efectiva del Consumidor” y su reglamento, en materia de publicidad de productos financieros las entidades supervisadas por la SUGEF están sujetas a las disposiciones establecidas en este reglamento.

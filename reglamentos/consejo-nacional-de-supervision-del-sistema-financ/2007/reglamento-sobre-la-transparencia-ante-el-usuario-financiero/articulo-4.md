@@ -1,0 +1,1 @@
+Artículo 4º—Indicación del costo efectivo del crédito. Siempre que en la publicidad se haga referencia a tasas de interés o cuotas, o a características de éstas, debe indicarse el costo efectivo del crédito. La entidad debe divulgar junto al costo efectivo del crédito, la frase “seguros incluidos”, cuando los mismos sean requisitos para acceder al crédito.
