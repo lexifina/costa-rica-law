@@ -1,0 +1,3 @@
+18.—Remisión y recepción del informe.
+El informe deberá ser remitido al Ministro, en el caso de funcionarios del Ministerio o al jerarca respectivo en caso de otros entes, con las respectivas recomendaciones. Si del informe se desprende la posible existencia de un hecho delictivo, el asunto también deberá remitirse al Ministerio Público para lo de su competencia.
+Únicamente se remitirá copia del informe al denunciante cuando él mismo haya presentado y firmado la denuncia, y siempre que los resultados del estudio no involucren procesos administrativos o judiciales para determinar eventuales responsabilidades, y que los plazos definidos en los artículos 36, 37 y 38 de la Ley General de Control Interno se hayan cumplido y no existan conflictos en trámite.
