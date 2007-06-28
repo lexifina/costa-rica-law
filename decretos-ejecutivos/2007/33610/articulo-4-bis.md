@@ -1,0 +1,2 @@
+Artículo 4º bis.—La Dirección Administrativa podrá mediante resolución razonada establecer y/o aprobar políticas, manuales, procedimientos, metodologías, instructivos y demás instrumentos administrativos de gestión, con el fin de normar y/o mejorar las acciones realizadas con base en el presente cuerpo normativo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 34374 del 28 de junio de 2007)
