@@ -1,0 +1,1 @@
+Artículo 3º—La comisión deberá establecer su organización interna, para lo cual dictará un manual de procedimientos. Dicho manual contendrá, al menos, los principios establecidos por la Ley General de la Administración Pública para el funcionamiento de los órganos colegiados.

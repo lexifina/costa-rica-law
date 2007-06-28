@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión coadyuvará con el Archivo Central de este Ministerio a implementar lo establecido en la Directriz emitida por la Junta Administrativa del Archivo Nacional en cuanto a las Regulaciones Técnicas sobre la Administración de los Documentos Producidos por Medios Automáticos.
