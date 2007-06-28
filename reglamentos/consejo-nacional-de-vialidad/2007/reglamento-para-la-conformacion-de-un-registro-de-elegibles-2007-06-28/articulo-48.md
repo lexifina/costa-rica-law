@@ -1,0 +1,1 @@
+Artículo 48.—Del plazo de ejecución. El plazo de ejecución de las contrataciones que se generen amparadas en este reglamento será 12 meses, renovales por plazos iguales en caso de mantenerse vigente este reglamento de contratación especial y del desempeño mostrado por la organización.

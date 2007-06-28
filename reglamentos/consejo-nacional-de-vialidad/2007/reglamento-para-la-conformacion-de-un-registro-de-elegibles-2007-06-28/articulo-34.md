@@ -1,0 +1,1 @@
+Artículo 34.—Todas las boletas de aceptación o rechazo de lo requerido por CONAVI deberán venir debidamente firmadas por el representante legal de la organización, con una vigencia de 15 días hábiles y archivadas en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 46.—Los informes mensuales de inspección deben ser remitidos por escrito y correo electrónico a la unidad supervisora del contrato. Los informes semanales podrá enviarlos la organización vía electrónica o fax.

@@ -1,0 +1,1 @@
+Artículo 42.—Previo al inicio de los servicios, el profesional asignado deberá estudiar todos los documentos contractuales acumulados en los proyectos en ejecución en la zona asignada, documentación la cual será suministrada por la Unidad Ejecutora correspondiente previo a la emisión de la orden de inicio.

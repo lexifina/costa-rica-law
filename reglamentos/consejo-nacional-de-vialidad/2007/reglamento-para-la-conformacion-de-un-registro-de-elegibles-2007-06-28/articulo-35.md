@@ -1,0 +1,1 @@
+Artículo 35.—La oferta de la organización. La respuesta por parte de la organización, deberá venir debidamente firmada por el representante legal de este. En caso de respuesta positiva se entenderá que la oferta tendrá una vigencia de 15 días hábiles.
