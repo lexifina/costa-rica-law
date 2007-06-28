@@ -1,4 +1,0 @@
-Artículo 5º—Los vehículos de uso discrecional estarán sometidos a las siguientes regulaciones de conformidad a la Ley de Tránsito.
-a. Podrán portar placas particulares y no se les pondrán marcas visibles que los distingan como vehículos del Estado salvo que por normativa específica se determine lo contrario.
-b. Las personas responsables de estos vehículos deberán velar por su custodia, mantenimiento y uso racional conservación, y porque sean sometidos a las reparaciones necesarias y deberán devolverlos al INAMU en el momento de la finalización de la relación contractual.
-c. Servicios Generales deberá ejercer controles sobre estos vehículos en cuanto kilometraje recorrido por período, reparación y mantenimiento, cobertura de los seguros necesarios de conformidad con lo que establezcan las leyes y reglamentos aplicables, así como por su inscripción en el Registro Público como propiedad del INAMU.

@@ -1,5 +1,0 @@
-Artículo 16.—En ambas circunstancias descritas en el artículo anterior, la institución que se vea beneficiada con el préstamo de vehículos deberá atenerse a las siguientes condiciones:
-a) Velar porque los vehículos sean conducidos por personal capacitado.
-b) Practicar las reparaciones, limpieza y mantenimiento necesarios de manera que se encuentren en condiciones apropiadas para atender el propósito del préstamo convenido, así mismo asumirá las responsabilidades por el uso y operación de los vehículos prestados, con inclusión de las derivadas por daños y perjuicios contra terceros, así como los costos derivados de pérdidas totales o parciales de los vehículos en caso de accidentes, robos, extravíos.
-c) Los gastos por concepto de combustible correrán por cuenta de los beneficiarios, salvo acuerdos escritos en contrario. Los gastos de marchamo se regirán de conformidad a lo que se disponga en los respectivos convenios.
-d) El INAMU podrá en cualquier momento dar por resueltos los prestamos acordados, debiendo los vehículos ser devueltos a la institución propietaria en los términos en que se convenga.
