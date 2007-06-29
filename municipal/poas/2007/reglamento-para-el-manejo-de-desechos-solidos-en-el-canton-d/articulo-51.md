@@ -1,0 +1,1 @@
+Artículo 51.—No se recibirán, en las jornadas de recolección de basura cotidiana, aquellos desechos sólidos que de alguna forma puedan dañar los sistemas compactadores de las unidades recolectoras municipales o de empresas recolectoras, o aquellos que atenten contra la integridad física de los funcionarios que laboran en esta actividad.

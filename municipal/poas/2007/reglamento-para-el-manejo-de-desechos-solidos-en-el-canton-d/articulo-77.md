@@ -1,0 +1,1 @@
+Artículo 77.—Las operaciones técnicas pueden consistir en: Recolección y coordinar con el Ministerio de Salud entre otras instituciones sobre Planta de Compostaje, Centro de Acopio, Control Relleno Sanitario, entre otros.

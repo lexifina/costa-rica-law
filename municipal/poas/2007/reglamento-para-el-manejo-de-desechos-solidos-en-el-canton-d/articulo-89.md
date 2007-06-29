@@ -1,0 +1,1 @@
+Artículo 89.—La Municipalidad establecerá multas e intereses moratorios por incumplimientos a este reglamento y por atrasos en el pago del servicio de recolección de los desechos sólidos, de acuerdo con lo establecido en la legislación vigente.

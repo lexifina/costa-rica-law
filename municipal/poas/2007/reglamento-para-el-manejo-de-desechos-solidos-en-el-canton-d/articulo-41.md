@@ -1,0 +1,1 @@
+Artículo 41.—La entidad recolectora establecerá un horario de recolección para los diferentes sectores del Cantón, el cual será comunicado por un medio de circulación nacional y local a los usuarios del servicio. Cualquier modificación permanente del horario de recolección, deberá ser comunicada por escrito a los usuarios con ocho días naturales de anticipación.

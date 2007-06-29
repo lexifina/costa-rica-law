@@ -1,0 +1,1 @@
+Artículo 20.—Los desechos aprovechables por otros métodos y no biodegradables, deberán ser entregados libres de residuos biodegradables y sin residuos líquidos. Igual tratamiento se le dará al cartón y al papel.

@@ -1,0 +1,1 @@
+Artículo 52.—La Municipalidad podrá realizar la recolección de desechos sólidos con su propio equipo y personal, o podrá contratar los servicios de entidades externas para que presten este servicio y en áreas definidas, cumpliendo con lo que establece la Ley de Contratación Administrativa en lo referente a la contratación externa del servicio.

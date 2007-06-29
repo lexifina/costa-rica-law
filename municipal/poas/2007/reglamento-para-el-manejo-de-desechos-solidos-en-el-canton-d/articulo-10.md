@@ -1,0 +1,1 @@
+Artículo 10.—Si en determinado momento, o caso, se llegare a dar o crearse una nueva clasificación o nominación de patente, la Municipalidad podrá previo estudio clasificarla y tasarle la basura donde cree que sea necesario.

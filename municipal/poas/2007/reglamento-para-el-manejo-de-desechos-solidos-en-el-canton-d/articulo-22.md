@@ -1,0 +1,1 @@
+Artículo 22.—Los desechos punzocortantes de origen domiciliario deberán ser envueltos de manera tal que se reduzca al máximo el riesgo de que el personal de la recolección de desechos o de los centros de acopio sufra lesiones. Estos desechos se deben depositar de manera separada en bolsas de color amarillo o en cajas de cartón debidamente cerradas y rotuladas.

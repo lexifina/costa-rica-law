@@ -1,0 +1,1 @@
+Artículo 75.—La persona responsable de la gestión operativa para el manejo discriminado de los desechos sólidos será el Alcalde Municipal, quien podrá delegar esta función en un miembro de la administración municipal.

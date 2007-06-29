@@ -1,0 +1,1 @@
+Artículo 67.—En el Relleno Sanitario se discriminarán en los siguientes grupos: Escombros y cerámica (que se podrán negociar como material para drenajes y otros), empaques, compuestos por más de tres láminas de materiales, tierra, metales y plásticos.

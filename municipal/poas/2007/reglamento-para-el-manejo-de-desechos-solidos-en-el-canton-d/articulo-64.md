@@ -1,0 +1,1 @@
+Artículo 64.—Los centros de acopio deben presentar condiciones higiénicas y no provocar molestias por malos olores, mal aspecto o ruido a las personas que en ellos trabajan o ajenas al mismo. Además deberán cumplir con las normas de salud ocupacional establecidas por el Ministerio de Salud.
