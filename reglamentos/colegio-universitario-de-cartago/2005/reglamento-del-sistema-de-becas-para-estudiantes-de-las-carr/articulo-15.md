@@ -1,6 +1,1 @@
-Artículo 15.—La Comisión de Becas establecerá un calendario para la realización de los siguientes trámites:
-a) Recepción de solicitudes.
-b) Investigación y estudio.
-c) Resoluciones.
-d) Apelación y revisión.
-e) Formalización y firma de carta compromiso.
+Artículo 15.—Beca Cultural: La beca por representación cultural, se otorga al estudiante que participe en actividades culturales en representación del Colegio Universitario de Cartago; este tipo de beca tendrá una duración de un cuatrimestre y exige un promedio ponderado mínimo de 7.50. La beca asignada corresponde a la beca 1 descrita en el artículo 14 de este reglamento, para su otorgamiento debe aportar certificación del compromiso y participación por parte del promotor.

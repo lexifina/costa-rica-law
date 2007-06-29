@@ -1,11 +1,1 @@
-CAPÍTULO SEGUNDO
-De las definiciones y clases de becas
-Artículo 3º—Para efectos de este Reglamento, beca es la ayuda financiera que otorga la Institución sin obligación de reembolso, para cubrir los gastos del pago total o parcial de las materias matriculadas. Las becas se categorizan o clasifican de la siguiente manera:
-Clasificación de Becas
-Tipo de Beca | Especificación
-0 | Exoneración del pago total por concepto de las materias matriculadas e incluye apoyo económico.
-Beca 1 | Exoneración total del pago de las materias matriculadas.
-Beca 2 | Exoneración del pago del 75% de las materias matriculadas.
-Beca 3 | Exoneración del pago del 50% de las materias matriculadas.
-Beca 4 | Exoneración del pago del 25% de las materias matriculadas.
-Las becas no cubrirán los cargos administrativos correspondientes al pago de matrícula, como cuota de la Asociación de Estudiantes, Pólizas del Instituto Nacional de Seguros, cuota de Bienestar Estudiantil y Calidad de Vida, pago por uso de laboratorios, ni daños ocasionados en estos y material informativo.
+Artículo 3º— La Comisión de Becas estará integrada por la Jefatura del Departamento de Bienestar Estudiantil y Calidad de Vida, quien la preside, el Director Académico o por su representado, la Jefatura del Departamento de Registro, o por su representado, el Director Administrativo-Financiero, o por su representado, y un estudiante nombrado por la Representación Estudiantil , el cual durará un año en su cargo y podrá ser reelecto.

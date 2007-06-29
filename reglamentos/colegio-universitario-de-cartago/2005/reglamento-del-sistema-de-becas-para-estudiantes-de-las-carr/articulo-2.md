@@ -1,9 +1,4 @@
-Artículo 2º—Para la solicitud de Beca se deberá cumplir con los siguientes requisitos:
-a) Haber sido admitido como alumno de la Institución.
-b) Adquirir los formularios para la solicitud de becas.
-c) Llenar con claridad y veracidad la solicitud oficial.
-d) Entregar al Departamento de Bienestar Estudiantil y Calidad de Vida, dentro de periodo señalado para tal efecto, la solicitud y los documentos requeridos.
-e) Que demuestre un rendimiento académico de 8,5 y más.
-f) Matrícula del bloque completo de materias.
-g) Aceptar por escrito y cumplir con las obligaciones que estipula este
-Reglamento.
+Artículo 2º—Son los objetivos del presente Reglamento:
+1. Contribuir con la tarea de propiciar una sociedad más justa, libre y próspera que le fue encomendado a la Institución a través de la Ley 6541 y su Reglamento, decreto ejecutivo 3341-MEP.
+2. Facilitar el ingreso y permanencia de los estudiantes en el Colegio Universitario de Cartago, otorgando beneficios que les faciliten la conclusión de su meta académica, cuya condición socioeconómica los sitúa en condiciones de desventaja.
+3. Estimular en los estudiantes, la excelencia académica y la participación en actividades de carácter formativo y de interés institucional, a través del otorgamiento de becas y beneficios a los estudiantes.

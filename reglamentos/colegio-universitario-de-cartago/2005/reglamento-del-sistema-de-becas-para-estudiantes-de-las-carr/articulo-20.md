@@ -1,1 +1,1 @@
-Artículo 20.—El becario con beca 2, beca 3 o beca 4, deberá pagar la diferencia en el monto de matrícula -según corresponda en las fechas señaladas en el calendario respectivo-.
+Artículo 20.— La Institución dará por periodos definidos y según criterio de la Comisión de Becas, ayuda extraordinaria a estudiantes que por alguna situación imprevista no puedan pagar el costo de giras, materiales y equipo básico de su carrera u otros costos adicionales.

@@ -1,1 +1,10 @@
-Artículo 11.—La Comisión de Becas estará integrada por la Jefatura del Departamento de Bienestar Estudiantil y Calidad de Vida, quien la preside, el Director Académico o a quien éste designe, la Jefatura del Departamento de Registro, o quien éste designe, el Director Administrativo- Financiero, o quien éste designe y un Representante Estudiantil nombrado por la Asociación de Estudiantes, el cual durará un año en su cargo.
+CAPÍTULO III
+De las solicitud de beca
+Artículo 11.—Para realizar la solicitud de beca se deberá cumplir con los siguientes requisitos:
+a) Adquirir el formulario correspondiente para la solicitud de Beca, en las fechas y lugares establecidos en el Cronograma Institucional.
+b) Entregar al Departamento de Bienestar Estudiantil y Calidad de Vida, el formulario y documentos requeridos dentro del período señalado en el Cronograma Institucional.
+c) Matricular en cada cuatrimestre el bloque completo o el que legalmente le corresponda.
+d) Tener un promedio ponderado mínimo de 8.00 en el penúltimo cuatrimestre al que disfrutará la beca, para estudiantes regulares.
+e) Para continuar disfrutando de su categoría de beca, además de cumplir con el inciso d), el estudiante deberá de mantener un promedio ponderado de 8.00.
+En el caso de estudiantes de primer ingreso, únicamente se realizará una valoración de su condición socioeconómica.
+Los casos especiales, que por alguna razón no reúnan alguno de los requisitos anteriores, serán valorados por la Comisión de Becas.

@@ -1,1 +1,1 @@
-Artículo 27.—Para efectos del artículo anterior el estudiante podrá solicitar por escrito el cambio del tipo de beca, argumentando los motivos de su solicitud y cumplimiento con la forma y calendario establecido para este efecto por la Comisión de Becas.
+Artículo 27.—La falta de contenido presupuestario en el rubro de becas, conlleva a la suspensión del beneficio de becas y de las ayudas económicas, lo anterior será debidamente comunicado al interesado y entrará en vigencia el cuatrimestre siguiente.

@@ -1,1 +1,9 @@
-Artículo 6º—Becas Especiales son becas que se otorgan a lo funcionarios del Colegio Universitario de Cartago, que laboren una jornada mínima de medio tiempo, tengan dos años como mínimo de trabajar continuamente en la Institución, y a pensionados que hayan laborado durante los últimos cinco años en la Institución. Se extiende también a los cónyuges o compañeros en unión de hecho y a sus hijos; en este último caso deberán tener una edad igual o menor a veinticinco años. Los funcionarios, sus cónyuges o compañero de hecho, podrán matricular como mínimo el 50% del bloque y en caso de los hijos deberán obligatoriamente cursar el bloque completo. En caso de no aprobar las materias matriculadas deberá obligatoriamente cancelar los aranceles correspondientes.
+Artículo 6º—Corresponde al Departamento de Bienestar Estudiantil y Calidad de Vida realizar las siguientes acciones:
+a. Recepción, y revisión de solicitudes.
+b. Recepción de la Carta Compromiso debidamente firmada una vez asignada la beca.
+c. Calendarización del proceso concerniente a la materia de becas.
+d. Apertura de un expediente debidamente foliado para cada una de las solicitudes de beca presentadas.
+e. Realización de talleres complementarios para estudiantes becados.
+f. Seguimiento y control de las horas estudiantes.
+g. Ubicación de los estudiantes con Servicio Becario, en las dependencias institucionales que requieran su servicio.
+h. Presentación de los respectivos informes de becas al Consejo Directivo.

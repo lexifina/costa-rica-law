@@ -1,3 +1,3 @@
-CAPÍTULO TERCERO
-De las becas
-Artículo 7º—La beca no cubrirá el valor de otras materias que sean acreditadas, convalidadas o cualquier otra forma de acreditación que no sea el programa de estudios de la carrera que cubre la beca.
+Artículo 7º—Corresponde a la Comisión de Becas:
+a. Estudiar y resolver toda solicitud de beca, remitida por el Departamento de Bienestar Estudiantil y Calidad de Vida.
+b. Estudiar y resolver toda solicitud de ayuda extraordinaria, remitida por el Departamento de Bienestar Estudiantil y Calidad de Vida.

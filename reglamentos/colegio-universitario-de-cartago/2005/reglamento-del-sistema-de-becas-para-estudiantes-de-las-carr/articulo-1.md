@@ -1,14 +1,8 @@
 COLEGIO UNIVERSITARIO DE CARTAGO
-Capítulo
-I De los objetivos y requisitos de las becas
-II De las definiciones y clases de becas
-III De las becas
-IV Del procedimiento para obtención de becas
-V De los apoyos financieros
-VI De los compromisos de los becarios por apoyos financieros
-VII De las renovaciones, modificaciones y cancelaciones
-Transitorios
-Glosario
-CAPÍTULO PRIMERO
-De los objetivos y requisitos de las becas
-Artículo 1º—El Colegio Universitario de Cartago otorgará becas a estudiantes regulares matriculados en carreras en el nivel de Diplomado, para estimular a los mejores estudiantes y apoyar a aquellos de escasos recursos económicos que posean un historial académico con un promedio ponderado igual o superior a 8,50.
+Este Reglamento fue reformado parcialmente y reproducido su texto en forma Integra y publicado en la Gaceta N ° 138 del 18 de julio de 2007, por lo que se reproduce a continuación:
+REGLAMENTO DEL SISTEMA DE BECAS
+CAPÍTULO I
+De las disposiciones generales
+Artículo 1º—El presente Reglamento regula el sistema de adjudicación de becas a los estudiantes del Colegio Universitario de Cartago.
+Para efectos de este Reglamento se entenderá por beca el beneficio
+otorgado a estudiantes, el cual podría consistir en la exoneración del pago de materias, ayudas económicas o cualquier otro beneficio estudiantil contemplado en este Reglamento.

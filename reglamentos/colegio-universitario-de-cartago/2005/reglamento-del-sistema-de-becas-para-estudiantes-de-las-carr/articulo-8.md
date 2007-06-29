@@ -1,1 +1,1 @@
-Artículo 8º—La beca se otorgará anualmente, se revisará cada cuatrimestre y puede ser revocada si no se cumple con los requisitos establecidos.
+Artículo 8º—Una vez publicados los resultados de la solicitud de beca, el interesado, en caso de encontrarse inconforme con la beca asignada, tendrá a partir de la fecha de publicación, tres días hábiles para interponer recurso de revisión ante la Comisión de Becas; cabra recurso de apelación ante la Decanatura del Colegio Universitario de Cartago. Las dependencias tendrán tres días hábiles para resolver dichos recursos.

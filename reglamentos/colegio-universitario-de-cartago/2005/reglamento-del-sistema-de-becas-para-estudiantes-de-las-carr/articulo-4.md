@@ -1,1 +1,5 @@
-Artículo 4º—Becas por Excelencia Académica son becas 1; que se otorgan a los estudiantes egresados de secundaria que ocupen los cinco mejores promedios de ingreso a la Institución y a los estudiantes activos del Colegio Universitario de Cartago, que llevaren carga académica completa con un promedio ponderado de rendimiento académico igual o superior a 9,0.
+CAPÍTULO II
+De las funciones en materia de becas del Departamento
+de Bienestar Estudiantil y Calidad de Vida
+y la Comisión de Becas
+Artículo 4º—El Departamento de Bienestar Estudiantil y Calidad de Vida será el encargado de velar por el cumplimiento de los compromisos indicados en este reglamento.
