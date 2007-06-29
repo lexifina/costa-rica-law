@@ -1,0 +1,1 @@
+Artículo 28.—Los criterios y observaciones a los proyectos u obras presentados en la asamblea pública, serán analizados por el Concejo Municipal quien definirá la asignación de los recursos antes del día 15 de julio de cada año, atendiendo criterios de población, pobreza y extensión geográfica de cada distrito.

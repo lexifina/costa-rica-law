@@ -1,0 +1,1 @@
+Artículo 31.—El Comité de la Cruz Roja Costarricense del cantón de Esparza así como el Hogar de Ancianos de este cantón presentarán en los primeros diez días hábiles del año siguiente un informe sobre la ejecución de los recursos girados trimestralmente por la Municipalidad con fundamento en el inciso e) y f) del artículo 17 de la Ley Nº 5582 y sus reformas.

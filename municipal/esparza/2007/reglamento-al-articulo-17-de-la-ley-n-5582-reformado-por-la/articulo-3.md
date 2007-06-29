@@ -1,0 +1,1 @@
+Artículo 3º—Las Juntas referidas en el artículo primero establecerán planes anuales de inversión de los recursos asignados y los remitirán a la Municipalidad previo a iniciar las transferencias periódicas en las cuentas bancarias que estas indiquen.

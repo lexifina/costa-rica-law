@@ -1,0 +1,1 @@
+Artículo 6º—En los primeros diez días hábiles del año siguiente cada una de las Juntas debe presentar a la administración municipalidad y al Concejo un informe de ejecución de recursos, de los resultados obtenidos, de los montos invertidos y de los saldos disponibles para cada concepto, con sus respectivas justificaciones.

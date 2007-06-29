@@ -1,0 +1,1 @@
+Artículo 2º—El Concejo Municipal acordará el monto asignado a cada categoría educativa y distribuirá anualmente a cada junta los recursos indicados en el artículo 1º de este capítulo de acuerdo con el número de estudiantes de cada centro educativo.

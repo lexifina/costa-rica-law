@@ -1,0 +1,1 @@
+Artículo 25.—La formulación de los proyectos se realizarán en los formularios que dispondrá la administración municipal, donde se debe incluir las especificaciones generales, el costo aproximado, la documentación necesaria que justifique la inversión para el cumplimiento de la meta y los objetivos propuestos, además de la trascripción del acuerdo del Concejo de Distrito.

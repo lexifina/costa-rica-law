@@ -1,0 +1,1 @@
+Artículo 29.—Los saldos remanentes de proyectos u obras ejecutadas y los ingresos extraordinarios podrán ser invertidos en los proyectos u obras que el Concejo Municipal determine incluyéndolos en próximas modificaciones al presupuesto municipal.

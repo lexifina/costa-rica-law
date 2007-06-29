@@ -1,0 +1,1 @@
+Artículo 23.—Los proyectos u obras a ejecutar deben estar sustentados en las prioridades que externen los ciudadanos y respaldados en criterios técnicos que garanticen la viabilidad de los mismos. Los recursos de este inciso no podrán utilizarse para crear plazas ni para pagar salarios.

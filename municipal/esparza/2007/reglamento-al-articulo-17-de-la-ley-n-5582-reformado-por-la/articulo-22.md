@@ -1,0 +1,1 @@
+Artículo 22.—Para los fines de este capítulo, un proyecto se define como el plan para la obtención de un producto o resultado que fortalecerá el servicio y el interés público, donde se incluye al menos los objetivos, el costo estimado, las especificaciones y el proceso general de como lograrlo.

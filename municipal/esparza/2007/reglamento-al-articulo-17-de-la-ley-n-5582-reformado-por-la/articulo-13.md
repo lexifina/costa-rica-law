@@ -1,0 +1,1 @@
+Artículo13.—Los estudiantes interesados solicitarán a través de la fórmula suministrada por la Municipalidad la beca correspondiente, llenando en su totalidad la información requerida y presentando los requisitos que se indiquen. En caso de menores de edad la solicitud también debe firmarla el padre o encargado.

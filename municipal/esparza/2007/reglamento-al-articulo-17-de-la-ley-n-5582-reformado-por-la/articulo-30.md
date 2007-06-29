@@ -1,0 +1,1 @@
+Artículo 30.—Se destinará al menos un 2% de lo percibido por la ley para invertir en señalización vial vertical y promover sitios de interés turístico con fines informativos, de seguridad y de interés general. Para lo cual la Municipalidad coordinará con el MOPT, el ICT y la Cámara de Turismo de Esparza.

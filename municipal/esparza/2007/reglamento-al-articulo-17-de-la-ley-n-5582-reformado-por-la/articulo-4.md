@@ -1,0 +1,1 @@
+Artículo 4º—En formulario suministrado por la Municipalidad las Juntas de Educación y Juntas Administrativas acordarán y presentarán los planes de inversión que se financiarán con los recursos a transferir.

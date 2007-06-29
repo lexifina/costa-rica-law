@@ -1,0 +1,1 @@
+Artículo 19.—Serán causales de pérdida automática de la beca: la interrupción de los estudios, reprobar una o más materias en Parauniversitaria y Universitaria, que el promedio de notas del período anterior sea inferior a 70%, que se detecte información falsa dentro del expediente.
