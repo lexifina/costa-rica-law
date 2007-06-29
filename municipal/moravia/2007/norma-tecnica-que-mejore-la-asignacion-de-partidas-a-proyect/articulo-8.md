@@ -1,0 +1,1 @@
+8º—El Departamento de Ingeniería de la Municipalidad será informado, detalladamente y por medio del despacho del señor Alcalde, del presente acuerdo municipal, y de las previsiones que deberán guardar en sus respectivas áreas técnicas, para la aplicación de esta norma técnica.

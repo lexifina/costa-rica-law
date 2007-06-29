@@ -1,0 +1,1 @@
+11.—El Concejo Municipal se reserva el derecho de excluir los proyectos presentados por los Concejos de Distrito cuando lo considere oportuno al amparo de lo establecido en el Dictamen Nº C-385-2003 de la Procuraduría General de la República.

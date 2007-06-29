@@ -1,0 +1,1 @@
+5º—Los Concejos de Distrito remitirán a la Municipalidad , a más tardar el primero de junio de cada año, la lista de los proyectos aprobados por los Concejos de Distrito para ser financiados, así como, los expedientes respectivos y copia certificada de las actas en las que consten los acuerdos adoptados.

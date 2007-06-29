@@ -1,0 +1,1 @@
+16.—El ente municipal por medio del despacho del señor Alcalde informará a toda la comunidad de esta norma técnica, utilizando los medios más idóneos, tratando de que la información pueda ser acezada por la mayoría de la población.

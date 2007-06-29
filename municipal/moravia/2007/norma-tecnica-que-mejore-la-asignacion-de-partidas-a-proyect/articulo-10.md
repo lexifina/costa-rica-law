@@ -1,0 +1,1 @@
+10.— La Comisión de Hacienda vigilará que, en el programa operativo (Programa Presupuesto), solo se incorporen proyectos que hayan cumplido con las normas del formulario aprobado por el Concejo Municipal, y que hayan sido aprobados por los Concejos de Distrito, el Alcalde y, finalmente por el Consejo Municipal.

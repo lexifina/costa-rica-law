@@ -1,0 +1,1 @@
+7º—Los Consejos de Distrito son los responsables de vigilar que la ejecución presupuestaria, la calidad de la obra y el uso del dinero llevados a cabo por el aparato administrativo de la Municipalidad sea lo más racional y efectivo posible, con la asesoría de los departamentos municipales respectivos.

@@ -1,0 +1,1 @@
+9º—En los casos de proyectos aprobados, el Departamento de Ingeniería será el responsable de vigilar la ejecución del proyecto antes de comenzar durante su ejecución y después de finalizado, para el control de la calidad y el uso racional del dinero.
