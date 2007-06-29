@@ -1,0 +1,1 @@
+Artículo 16.—Las variaciones presupuestarias no contempladas en los artículos 12, 13 y 14 serán de aprobación de Junta Directiva del Banco Central y del Consejo Nacional de Supervisión del Sistema Financiero, según corresponda.
