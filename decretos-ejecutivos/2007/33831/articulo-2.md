@@ -1,0 +1,1 @@
+Artículo 2º—En adelante el Tribunal Registral Administrativo se regirá por las disposiciones del Reglamento General del Fondo de Cajas Chicas para las instituciones gubernamentales autorizadas de conformidad con la Ley de Administración Financiera y Presupuestos Públicos.
