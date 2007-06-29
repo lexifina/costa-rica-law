@@ -1,0 +1,1 @@
+Artículo 3º—Dentro del plazo de tres meses después de publicado este Decreto, proceda el Tribunal Registral Administrativo a emitir su “Reglamento Interno sobre los Procedimientos de Contratación Administrativa”, si acaso no lo tuviere.
