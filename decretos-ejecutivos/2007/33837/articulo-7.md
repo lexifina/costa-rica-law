@@ -1,0 +1,1 @@
+Artículo 7º—Con fundamento en el artículo 64 de la Ley de Migración y Extranjería 8487, se autoriza a la Dirección General de Migración y Extranjería a emitir los duplicados a los que se refiere el artículo anterior, con una vigencia hasta por dos años.

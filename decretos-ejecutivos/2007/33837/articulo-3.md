@@ -1,0 +1,1 @@
+Artículo 3º—Los documentos de residencia de todos los extranjeros que hayan obtenido esa categoría migratoria, que al momento de entrada en vigencia del presente decreto se encuentren vencidos, se considerarán renovados hasta la fecha que corresponda, en el año 2008.

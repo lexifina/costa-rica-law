@@ -1,0 +1,1 @@
+Artículo 4º—Oportunamente, para renovar sus documentos de residencia, los extranjeros deberán cancelar todos los impuestos de ley correspondientes dejados de sufragar en virtud de la renovación operada en el marco del presente decreto, así como los costos por la emisión de documento.
