@@ -13,3 +13,4 @@ Considerando:
 8º—Que se hace necesario emitir el presente Decreto para sustanciar efectivamente lo encomendado en la legislación vigente. Por tanto,
 DECRETAN:
 Artículo 1º—Emítase el documento denominado “Clasificador Funcional del Sector Público”, el cual será distribuido a través de los mecanismos pertinentes, y estará a disposición de los mismos, así como al resto de la ciudadanía, en la página electrónica del Ministerio de Hacienda https://www.hacienda.go.cr y en forma impresa, en los archivos que obran en la Dirección General de Presupuesto Nacional.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 33875 del 02 de julio del 2007, se modifica el documento denominado “Clasificador Funcional del Sector Público” y cuyo nuevo texto se encuentra en el decreto citado y en la dirección electrónica https://www.hacienda.go.cr/Msib21/Espanol/Direccion+General+de+Presupuesto+Nacional/clasificadores.htm).
