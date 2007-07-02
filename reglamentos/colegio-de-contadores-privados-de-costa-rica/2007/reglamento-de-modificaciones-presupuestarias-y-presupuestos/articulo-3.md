@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. Estas normas constituyen un marco de referencia general, a partir del cual, debe darse la emisión de normativa específica por parte de la Administración, la cual debe ser de previo conocida y consultada a los organismos afectados para ser presentado para su aprobación

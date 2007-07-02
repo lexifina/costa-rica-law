@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidades relacionadas con la aprobación presupuestaria. La autoridad superior administrativa deberá de manera oportuna conocer, verificar y pronunciarse mediante acto razonado sobre las variaciones o modificaciones presupuestarias propuestas.

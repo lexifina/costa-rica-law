@@ -1,0 +1,1 @@
+Artículo 5º—Límite de acción en el uso y disposición de los recursos. El presupuesto constituye el límite de acción de los entes y órganos que conforman la estructura administrativa del Colegio de Contadores Privados de Costa Rica y solo podrá ser variado mediante los mecanismos que se establezcan en este reglamento.

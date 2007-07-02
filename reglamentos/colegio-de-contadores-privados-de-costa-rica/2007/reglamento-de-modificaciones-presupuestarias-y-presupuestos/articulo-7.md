@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los presupuestos extraordinarios y las modificaciones presupuestarias podrán ejecutarse, a partir de la aprobación por parte de las instancias competentes, según corresponda.
