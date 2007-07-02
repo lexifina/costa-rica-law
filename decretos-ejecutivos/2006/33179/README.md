@@ -14,3 +14,4 @@ Reglamento Unidad de Información Documental de Patrimonio Cultural "Luis Ferrer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-29 | la propia norma |
+| 2 | 2007-07-02 | Decreto Ejecutivo 33904 (2007-07-02) |
