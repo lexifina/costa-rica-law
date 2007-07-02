@@ -1,0 +1,1 @@
+Artículo 7º—Con el fin de asegurar el control de los bienes y servicios adquiridos al amparo de este reglamento, se aplicará el procedimiento de clasificación y registro de la Municipalidad. Es responsabilidad del contratante gestionar el registro y plaqueo de los bienes adquiridos.

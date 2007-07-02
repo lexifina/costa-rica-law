@@ -1,0 +1,1 @@
+Artículo 9º—Las disposiciones de este Reglamento entrarán en vigencia a partir de su publicación en el Diario Oficial La Gaceta. La Alcaldía Municipal deberá realizar la comunicación a los Órganos que se facultan y de emitir las directrices que estime necesarias para su ejecución.
