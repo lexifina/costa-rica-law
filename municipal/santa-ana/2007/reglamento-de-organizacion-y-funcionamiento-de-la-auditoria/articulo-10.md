@@ -1,0 +1,1 @@
+Artículo 10.—La Auditoría Interna deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica, e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones, para tales propósitos planteará sus necesidades ante su superior jerárquico.

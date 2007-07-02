@@ -1,0 +1,1 @@
+Artículo 11.—La Auditoría Interna deberá establecer y actualizar periódicamente su misión, visión y principales políticas que regirán su accionar. Asimismo, los funcionarios de la Auditoría deberán respetar los lineamientos éticos y morales establecidos por la Municipalidad y por el auditor interno.

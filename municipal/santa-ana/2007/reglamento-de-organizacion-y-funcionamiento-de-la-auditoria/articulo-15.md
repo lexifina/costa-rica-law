@@ -1,0 +1,1 @@
+Artículo 15.—El auditor interno no debe participar permanentemente en las sesiones o reuniones del Concejo Municipal, salvo que el Concejo Municipal así lo requiera. Cuando se requiera su participación en estas sesiones o reuniones, su actuación ha de ser conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General al respecto.

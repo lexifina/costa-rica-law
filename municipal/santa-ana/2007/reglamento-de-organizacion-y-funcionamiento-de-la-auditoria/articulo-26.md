@@ -1,0 +1,1 @@
+Artículo 26.—El auditor establecerá los normas seguir en materia de admisibilidad de denuncias para ser atendidas por parte de la Auditoría Interna. Podrá servir como guía para la auditoría interna el manual emitido por el órgano contralor.

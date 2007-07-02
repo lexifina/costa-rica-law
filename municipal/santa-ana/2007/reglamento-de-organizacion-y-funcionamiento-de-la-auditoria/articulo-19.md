@@ -1,0 +1,1 @@
+Artículo 19.—El auditor gestionará ante la asesoría legal de la Municipalidad de Santa Ana el servicio oportuno y efectivo de los estudios jurídicos que requiera conforme lo estipula el artículo 33, inciso c), de la Ley General de Control Interno.
