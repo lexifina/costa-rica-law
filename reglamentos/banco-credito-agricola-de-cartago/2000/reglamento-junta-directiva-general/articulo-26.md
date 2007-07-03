@@ -1,1 +1,0 @@
-Artículo 26.—La comunicación de los acuerdos de la junta estará a cargo del jefe de la secretaría, salvo aquellos casos en que expresamente la misma Junta Directiva disponga que la haga el gerente general del Banco o su propio presidente, o cuando éste lo estime pertinente.
