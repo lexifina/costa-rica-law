@@ -14,3 +14,4 @@ Reglamento para la operación y control de fondos de caja chica de Popular Pensi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-23 | la propia norma |
+| 2 | 2007-07-04 | Reglamento 256 (2007-07-04) |

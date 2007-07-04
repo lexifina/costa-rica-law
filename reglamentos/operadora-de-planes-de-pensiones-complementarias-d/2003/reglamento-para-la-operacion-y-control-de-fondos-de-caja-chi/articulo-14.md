@@ -1,3 +1,2 @@
-Artículo 14.—En el evento de que el vale provisional no se liquide dentro del plazo establecido en el artículo 12 del presente Reglamento, el custodio lo hará del conocimiento inmediato de la Gerencia y le indicará el nombre del empleado responsable de que se trate.
-E1 Gerente procederá de inmediato a girar la orden, ante quien corresponda, de retener del salario del empleado responsable, mediante una sola deducción, la totalidad del monto del vale provisional no liquidado.
-Lo anterior sin perjuicio de las sanciones laborales que corresponda, de acuerdo con las normas del Código de Trabajo.
+Artículo 14.—En el evento de que el vale provisional no se liquide dentro del plazo establecido en el artículo 12 del presente Reglamento, el custodio remitirá una solicitud al Área de Recursos Humanos para que proceda a realizar la deducción de planilla respectiva por el monto que corresponda, para lo cual se contará con la autorización expresa del colaborador de conformidad con lo establecido por el artículo 11 del presente Reglamento.
+Lo anterior, sin perjuicio de aplicar la sanción disciplinaria que corresponda, de acuerdo con las normas del Código de Trabajo.

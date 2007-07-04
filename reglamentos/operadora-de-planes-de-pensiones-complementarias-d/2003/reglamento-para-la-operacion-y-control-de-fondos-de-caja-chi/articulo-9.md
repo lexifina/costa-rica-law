@@ -1,1 +1,1 @@
-Artículo 9º—El custodio y los empleados autorizados, serán los responsables directos de la operación de la caja chica de acuerdo con las disposiciones del presente Reglamento y las normas de control interno que correspondan.
+Artículo 9º—El custodio y los colaboradores autorizados, serán los responsables directos de la operación de la caja chica de acuerdo con las disposiciones del presente Reglamento y las normas de control interno que correspondan.

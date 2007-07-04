@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la operación y control de la caja chica
-Artículo 3º—La Gerencia autorizará la apertura de una caja chica por un monto de ¢500.000,00 (quinientos mil colones). Este monto deberá actualizarse anualmente, de acuerdo con el índice de la inflación.
+Artículo 3º—La Gerencia autorizará la apertura de dos cajas chicas por un monto de 500.000,00 (quinientos mil colones) cada una, de las cuales una estará a cargo de la jefatura del Departamento de Administración y Finanzas y otra a cargo del Gerente General. Este monto deberá actualizarse anualmente, de acuerdo con el índice de inflación que determine el Banco Central.
