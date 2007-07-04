@@ -1,0 +1,2 @@
+Artículo 28.—Entrega de la mercadería: Al hacer efectiva la entrega, del bien o servicio contratado, el encargado de recibirlo tendrá la obligación de verificar el estado en que éstos se encuentran así como la cantidad, calidad, precios y plazos de entrega, los cuales deben corresponder a las especificaciones del contrato.
+La mercadería debe venir acompañada con la factura y orden de compra correspondiente. Solamente se procederá al pago respectivo, cuando se cumpla con lo dispuesto en este numeral y sea recibida conforme.

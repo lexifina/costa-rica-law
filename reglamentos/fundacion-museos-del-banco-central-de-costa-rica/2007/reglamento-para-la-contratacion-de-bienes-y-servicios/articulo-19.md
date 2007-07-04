@@ -1,0 +1,1 @@
+Artículo 19.—Cierre de Ofertas y Apertura: Se considerará cerrada la recepción de las ofertas en la hora y día señalado en el reglamento del concurso. Posteriormente, el Gerente Financiero-Administrativo de la Fundación procederá a abrir las ofertas en presencia de dos testigos, junto con un asesor o asesora legal, quien levantará el acta respectiva.

@@ -1,0 +1,1 @@
+Artículo 4º—Disponibilidad Presupuestaria: La Gerencia Financiera-Administrativa de la Fundación, será la encargada de valorar la solicitud, el monto de la contratación, verificar la existencia de los recursos económicos y determinar el procedimiento de contratación que se desarrollará. Trasladar esto a un artículo en particular sobre autorizaciones.

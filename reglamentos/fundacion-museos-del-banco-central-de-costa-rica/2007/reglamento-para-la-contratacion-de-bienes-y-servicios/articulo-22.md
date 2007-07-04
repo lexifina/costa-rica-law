@@ -1,0 +1,1 @@
+Artículo 22.—Calificación de las Ofertas: El Gerente Administrativo-Financiero será el encargado de calificar las ofertas elegibles, en atención a los criterios de valoración que para tal efecto se hayan dispuesto en el reglamento especial del concurso respectivo.

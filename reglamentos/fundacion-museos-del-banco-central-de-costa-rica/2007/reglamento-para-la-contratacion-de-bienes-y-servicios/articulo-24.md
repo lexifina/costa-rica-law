@@ -1,0 +1,1 @@
+Artículo 24.—Adjudicación: El contrato será adjudicado a la oferta que obtenga mayor puntaje, según los criterios de valoración y puntajes que se hayan definido en el reglamento del concurso correspondiente. La adjudicación deberá ser notificada a todos los oferentes participantes por cualquier medio escrito o electrónico.

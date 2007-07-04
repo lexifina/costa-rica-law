@@ -1,0 +1,1 @@
+Artículo 2º—Principios Jurídicos: Las contrataciones realizadas por la Fundación serán realizadas con observancia a los principios generales de la Contratación Administrativa, en especial al principio de formalismo de los procedimientos, igualdad, publicidad y de eficiencia.

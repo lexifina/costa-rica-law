@@ -1,0 +1,1 @@
+Artículo 26.—Recursos: Contra los actos de adjudicación cabrán los recursos ordinarios de revocatoria ante el Gerente Administrativo-Financiero y el de Apelación ante la Junta Administrativa de la Fundación así como los extraordinarios de adición y aclaración.

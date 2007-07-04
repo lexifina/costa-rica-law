@@ -1,0 +1,1 @@
+Artículo 15.—Publicación. La invitación a participar se publicará en un diario de circulación nacional. Cualquier modificación a las reglas del concurso será publicada por igual medio, con el fin de que la mayoría de oferentes puedan participar en igualdad de condiciones.

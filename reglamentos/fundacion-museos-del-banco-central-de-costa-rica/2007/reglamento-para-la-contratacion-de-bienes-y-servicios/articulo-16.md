@@ -1,0 +1,1 @@
+Artículo 16.—Presentación de la Oferta: La sola presentación de la oferta por el oferente se considerará como una manifestación expresa del conocimiento de los extremos del concurso y del presente Reglamento.

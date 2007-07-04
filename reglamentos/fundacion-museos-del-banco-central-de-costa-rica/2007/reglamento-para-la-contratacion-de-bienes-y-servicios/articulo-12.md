@@ -1,0 +1,3 @@
+Artículo 12.—Contratación de Servicios: La contratación de servicios técnicos y profesionales se hará de conformidad a los procedimientos establecidos en el presente Reglamento. No obstante, en este tipo de contratación el precio del contrato no constituye un elemento determinante para la selección de la persona física o jurídica, sino que se deberá valorarse además las condiciones personales, profesionales, idoneidad técnica o profesional del oferente, entre otros.
+La contratación de servicios no origina relación laboral entre la Fundación y la persona física o jurídica seleccionada.
+La remuneración de estos servicios se hará de conformidad con las respectivas tarifas u honorarios, cuando así se encuentren reglados por aranceles obligatorios.
