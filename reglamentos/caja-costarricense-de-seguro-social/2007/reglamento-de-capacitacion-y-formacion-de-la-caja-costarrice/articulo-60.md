@@ -1,0 +1,2 @@
+Artículo 60.—Todo beneficiario que sea funcionario de la Institución, debe autorizar a la CAJA la deducción salarial de las cuotas correspondientes para atender su deuda en caso de que se le haya otorgado un beneficio especial reembolsable, a partir del segundo mes que se integre a trabajar con la Institución.
+Aquellos beneficiarios que no son funcionarios deberán realizar los pagos en la unidad que se les asigne, a partir del segundo mes en que inicien su trabajo en la Institución.

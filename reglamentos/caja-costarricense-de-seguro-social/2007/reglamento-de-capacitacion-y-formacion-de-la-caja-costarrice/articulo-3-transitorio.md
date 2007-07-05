@@ -1,0 +1,1 @@
+III.—Se concede un plazo de dos meses a las Gerencias Administrativa y Médica y otras Gerencias representadas por el Consejo Intergerencial, para la revisión de la Política Institucional de Capacitación y Formación”.

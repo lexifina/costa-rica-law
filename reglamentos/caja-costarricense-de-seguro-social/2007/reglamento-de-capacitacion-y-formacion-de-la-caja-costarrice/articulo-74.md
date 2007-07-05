@@ -1,0 +1,1 @@
+Artículo 74.—Solamente se prorrogará el inicio del cumplimiento de la obligación contraída, cuando previo análisis sea aprobado por el Comité de Beneficios para Estudio del CENDEISSS. Esta prórroga no será mayor a dos años. El CENDEISSS informará a la Gerencia de la División a que pertenece el beneficiario, sobre la resolución de tales prórrogas.

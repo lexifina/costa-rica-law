@@ -1,0 +1,1 @@
+Artículo 17.—Para la capacitación y formación de cuadros de reemplazo, se deberá contar con perfiles de los puestos previamente diseñados, que facilite y promueva el crecimiento y desarrollo de aquellos funcionarios (as) que potencialmente sean aptos para formar parte de los cuadros de reemplazo.

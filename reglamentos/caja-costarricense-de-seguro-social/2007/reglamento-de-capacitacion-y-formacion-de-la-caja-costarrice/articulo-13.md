@@ -1,0 +1,1 @@
+Artículo 13.—Los Centros de Trabajo incluidos en la Ley Nº 7852, Ley de Desconcentración de Hospitales y Clínicas de la CCSS, deberán desarrollar sus actividades educativas según lo estipulado en el capítulo IV del Reglamento a dicha ley. Para el fin indicado, podrán solicitar la asesoría del CENDEISSS.

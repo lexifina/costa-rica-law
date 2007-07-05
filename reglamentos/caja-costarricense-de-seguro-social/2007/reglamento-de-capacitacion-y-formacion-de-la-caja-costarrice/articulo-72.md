@@ -1,0 +1,9 @@
+Artículo 72.—En caso de incumplimiento los becarios tienen que devolver a la CAJA la suma total invertida en su beneficio más el 25 % a título de gastos administrativos por la administración del beneficio, más los intereses legales (Código Civil, artículo 1163). Cuando se produzca incumplimiento por parte del beneficiario, el CENDEISSS suspenderá el pago del beneficio y se le otorgará el derecho de defensa al interesado según el artículo anterior. Para los efectos de este artículo se considera incumplimiento:
+a) La cancelación del beneficio de estudio por los motivos previstos en el artículo anterior.
+b) La negativa injustificada del beneficiario de presentarse a asumir sus funciones en el plazo de tres meses después de la fecha en que se hubiere graduado o terminado sus estudios.
+c) La negativa injustificada del beneficiario, si se trata de una persona no ligada a la Institución por una relación de servicio, de presentarse a asumir el puesto en que lo requiere la Institución dentro del mes siguiente a la fecha en que se le notifica el nombramiento.
+d) Cualquier cambio unilateral que el beneficiario realice en relación a sus estudios.
+e) La separación del beneficiario de la Institución en cualquier circunstancia.
+f) La no formalización dentro del período reglamentario.
+g) La no presentación del Certificado de conclusión de estudios para los cuales fue becado, en un período máximo a un año después de la finalización del programa académico.
+Cuando se produzca incumplimiento por parte del beneficiario, el CENDEISSS debe suspender el pago del beneficio y proceder de acuerdo a lo establecido en el artículo anterior. Una vez demostrado el incumplimiento, el cobro se ejecutará a partir del segundo mes después de su comprobación. El período máximo de pago de cumplimiento se regirá por lo estipulado para la duración del compromiso visible en el artículo 56 y se hace mediante cuotas mensuales, consecutivas y fijas.

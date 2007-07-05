@@ -1,0 +1,2 @@
+3.2.1 De los cursos de capacitación
+Artículo 11.—La capacitación en la CAJA estará siempre orientada a complementar y perfeccionar las competencias de cada funcionario, acorde con el nivel de exigencia de los perfiles de los puestos. La prioridad en la capacitación será otorgada a aquellas actividades que se originen en una determinación de necesidades Institucionales de capacitación y en los objetivos del Plan Bienal Operativo del Centro de Trabajo correspondiente.

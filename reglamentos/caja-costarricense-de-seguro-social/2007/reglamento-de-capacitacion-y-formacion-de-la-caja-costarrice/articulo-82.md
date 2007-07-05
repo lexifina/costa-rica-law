@@ -1,0 +1,2 @@
+5.1.7. De la suspensión de los beneficios por razones propias del interesado
+Artículo 82.—En los casos que por causas no imputables al beneficiario éste no pueda continuar con el programa de estudio para el cual se le otorgó el beneficio, el CENDEISSS a solicitud del interesado, analizará el caso y lo presentará a la Junta Directiva o a las Gerencias de División, según las competencias, quien valorará la posibilidad de rescisión o resolución del contrato de beca. Esta condición no aplica para el auxilio especial reembolsable que le haya sido girado.

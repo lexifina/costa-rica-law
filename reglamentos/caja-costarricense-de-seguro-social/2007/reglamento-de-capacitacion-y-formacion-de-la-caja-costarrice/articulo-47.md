@@ -1,0 +1,1 @@
+Artículo 47.—El CENDEISSS es responsable de recopilar y divulgar la información, referente a ofertas de beneficios procedentes de instituciones nacionales e internacionales, a los funcionarios de la Institución que corresponda.

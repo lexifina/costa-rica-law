@@ -1,0 +1,2 @@
+Transitorios
+I.—Los incentivos para los funcionarios y los instructores internos en el ámbito institucional, deberán ser revisados por una Comisión Ad-Hoc, conformada por miembros de la Dirección de Recursos Humanos, quien coordina, y el CENDEISSS, en un plazo no mayor a seis meses posterior a la publicación del presente Reglamento, con el propósito de incentivar las prácticas docentes en todas las áreas, en cumplimiento de lo estipulado en la Política Institucional de Capacitación y Formación aprobada por la Junta Directiva en febrero del año 2005.

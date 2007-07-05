@@ -1,0 +1,1 @@
+Artículo 64.—El estudiante que por razones de enfermedad o maternidad debe separarse temporalmente del programa de estudio, se debe regir en materia laboral, por lo estipulado en el Reglamento del Seguro de Salud y el Reglamento para el Otorgamiento de Incapacidades.

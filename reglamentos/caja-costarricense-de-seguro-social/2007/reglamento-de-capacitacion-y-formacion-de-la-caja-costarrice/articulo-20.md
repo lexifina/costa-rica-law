@@ -1,0 +1,2 @@
+3.3 Los horarios para la capacitación
+Artículo 20.—Las actividades educativas podrán programarse y ejecutarse dentro de la jornada laboral, fuera de ella o en forma mixta, en todos los casos deberá velarse porque se mantenga la prestación de los servicios a la población. Cuando las actividades educativas son programadas en tiempo no laboral del trabajador, la Institución no incurrirá en el pago de tiempo extraordinario.

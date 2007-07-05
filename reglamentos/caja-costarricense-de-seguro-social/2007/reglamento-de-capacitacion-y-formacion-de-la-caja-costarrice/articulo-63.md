@@ -1,0 +1,3 @@
+Artículo 63.—El beneficiario que no tiene relación laboral con la CAJA y realice estudios en el país, deberá acogerse al seguro voluntario con el objetivo de obtener sus derechos al seguro de salud y de invalidez, vejez y muerte; además es necesario estar afiliado a un seguro estudiantil cuando lo hubiere.
+Los beneficiarios que realizan estudios en el exterior deben afiliarse a un seguro de gastos médicos.
+Todos los beneficiarios deberán afiliarse a un seguro de vida, en la que la CCSS será el beneficiario, durante el tiempo que el beneficiario esté realizando sus estudios y hasta que haya cumplido con su obligación contractual. El monto del seguro debe ser igual al valor del beneficio otorgado por la Institución.

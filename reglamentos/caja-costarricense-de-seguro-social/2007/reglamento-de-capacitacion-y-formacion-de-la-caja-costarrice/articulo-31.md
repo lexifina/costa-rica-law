@@ -1,0 +1,3 @@
+4.1 De las residencias en especialidades en ciencias de la salud en el país
+Artículo 31.—Para todos los efectos de la regulación de las Residencias en Especialidades en Ciencias de la Salud, deberá acatarse lo dispuesto en el Reglamento que regula la Formación de Especialistas en Ciencias Médicas de la Caja Costarricense de Seguro Social en las Unidades Docentes Autorizadas.
+La Gerencia de la División Médica informará a la Gerencia de la División Administrativa, las necesidades de apertura de nuevas plazas para residencias médicas, con fundamento en el resultado anual del diagnóstico de necesidades institucionales.

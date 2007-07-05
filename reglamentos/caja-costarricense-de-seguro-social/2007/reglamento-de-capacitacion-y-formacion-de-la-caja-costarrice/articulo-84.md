@@ -1,0 +1,2 @@
+Artículo 84.—En el caso de la suspensión temporal el beneficiario deberá solicitar formalmente ante la Subárea de Beneficios para Estudio del CENDEISSS, la reactivación de la beca para continuar sus estudios o para trasladarse a otro centro académico donde pueda concluirlos. Estas gestiones deberán realizarse en un plazo que no podrá exceder los dos años.
+Los beneficiarios que recuperando las condiciones de tal y que puedan reintegrarse a cumplir el beneficio otorgado, no lo hagan, deberán asumir las obligaciones correspondientes, según lo establece el presente Reglamento.

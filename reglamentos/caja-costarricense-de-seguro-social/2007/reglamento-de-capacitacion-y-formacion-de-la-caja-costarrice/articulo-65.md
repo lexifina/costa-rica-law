@@ -1,0 +1,2 @@
+5.1.3 Procedimientos y controles para el otorgamiento de becas
+Artículo 65.—Toda petición de beneficio para estudio que implique la formalización de una beca, debe ser presentada al CENDEISSS por escrito, en el formulario correspondiente. El beneficiario debe firmar el contrato y los documentos respectivos inmediatamente después de que se le notifique su aprobación y antes de iniciar sus estudios.

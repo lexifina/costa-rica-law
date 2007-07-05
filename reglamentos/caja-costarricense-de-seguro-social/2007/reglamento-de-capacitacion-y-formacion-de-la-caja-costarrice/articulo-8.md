@@ -1,0 +1,1 @@
+Artículo 8º—En los casos en que la actividad educativa deba realizarse fuera del centro de trabajo, se deberá contar con el visto bueno del Director, y cumplir con las regulaciones establecidas en el ámbito institucional.

@@ -1,0 +1,2 @@
+4. De la gestión de la formación
+Artículo 26.—Para aquellos funcionarios que requieran de formación académica, y que hayan sido nombrados antes de la entrada en vigencia de la política de capacitación y formación (enero 2005) el CENDEISSS, deberá desarrollar, con el apoyo de sus respectivas unidades, planes basados en las necesidades Institucionales identificadas y en las competencias exigidas por el puesto.

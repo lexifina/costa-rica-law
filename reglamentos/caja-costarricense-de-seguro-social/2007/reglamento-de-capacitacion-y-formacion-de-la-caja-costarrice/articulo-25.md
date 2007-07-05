@@ -1,0 +1,1 @@
+Artículo 25.—El CENDEISSS y los Centros de Trabajo que realizan actividades de capacitación realizarán evaluaciones aleatorias para medir los resultados de la capacitación en el mejoramiento de la prestación de servicios y en la atención al usuario.

@@ -1,0 +1,1 @@
+Artículo 33.—El presupuesto para los salarios e incentivos ordinarios de las residencias médicas serán financiados con el presupuesto aprobado al CENDEISSS para tal efecto. Cada Centro de trabajo asumirá el costo de los pagos extraordinarios derivados de las guardias médicas mensualmente programadas.

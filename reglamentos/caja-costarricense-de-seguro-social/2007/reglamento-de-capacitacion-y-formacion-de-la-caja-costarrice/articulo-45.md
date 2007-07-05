@@ -1,0 +1,1 @@
+Artículo 45.—Los permisos con goce de salario para la asistencia a las actividades de capacitación en el país o en el extranjero, se rigen por lo establecido en el Esquema de Delegación vigente, tanto para centros desconcentrados como no desconcentrados.

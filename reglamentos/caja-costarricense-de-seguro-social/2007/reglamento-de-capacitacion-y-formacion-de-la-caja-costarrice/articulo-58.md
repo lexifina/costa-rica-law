@@ -1,0 +1,1 @@
+Artículo 58.—El beneficiario tendrá la obligación de participar en actividades docentes con el propósito de que otros funcionarios se favorezcan de los conocimientos adquiridos. Se pueden establecer otras obligaciones en el contrato de beca, en casos particulares, atendiendo a la modalidad del estudio que se va a realizar y los intereses de la Institución.

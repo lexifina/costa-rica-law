@@ -1,0 +1,1 @@
+Artículo 27.—La Institución no aprobará beneficios económicos para formación universitaria y parauniversitaria básica a aquellos funcionarios(as) que ingresen a plazas en que el requisito de ingreso conlleve ser profesional o técnico, a excepción de casos de inopia comprobada, por lo que deberá contar con la autorización del Gerente de División correspondiente.

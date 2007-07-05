@@ -1,0 +1,1 @@
+Artículo 54.—En forma previa a la recomendación para el otorgamiento de un beneficio de los aquí previstos y cuando de su otorgamiento se derive o se pudiera derivar una obligación económica, el CENDEISSS debe analizar la capacidad de pago del solicitante y de sus fiadores.

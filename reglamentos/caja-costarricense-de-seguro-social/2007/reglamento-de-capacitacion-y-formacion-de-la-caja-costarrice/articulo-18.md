@@ -1,0 +1,1 @@
+Artículo 18.—Cada Centro de Trabajo en coordinación con la Gerencia de la División de Pensiones, deberá realizar programas de “preparación para la jubilación” con el fin de propiciar condiciones adecuadas para el retiro de los funcionarios.

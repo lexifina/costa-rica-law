@@ -1,0 +1,4 @@
+Artículo 32.—
+a) El CENDEISSS identificará las necesidades de formación de especialistas, según estudios en los diferentes Centros de Trabajo y avalado por las Redes de Servicios. Con base en dichas necesidades y tomando en cuenta las posibilidades institucionales, elaborará un plan quinquenal que deberá ser ajustado según corresponda.
+b) En atención a lo establecido la asignación de los códigos de los profesionales seleccionados se hará según el promedio de calificación obtenido.
+c) Además, se contempla la posibilidad de incorporar al posgrado, profesionales que ganando el examen de admisión no cuenten con plaza del CENDEISSS, pero obtenga una plaza de un Centro de Trabajo que requiera que esa especialidad determinada con el compromiso que al finalizar, el especialista se traslada con esa misma plaza al Centro que lo apoyó. Todo bajo la firma del Contrato de Aprendizaje.

@@ -1,0 +1,8 @@
+Artículo 44.—La responsabilidad de aprobar las actividades de capacitación y formación se hará según el siguiente detalle:
+-En el ámbito nacional:
+· Actividades con un costo menor a EUA $1000 (mil dólares) o su equivalente en colones, por persona cuya duración sea menor a 30 (treinta) días serán aprobadas por los directores de los centros con desconcentración máxima o por los directores regionales en el caso de centros no desconcentrados, por los directores de sede y por el Auditor según corresponda. En ningún caso este monto puede ser invertido en actividades de formación sin recomendación del CENDEISSS.
+· Actividades con un costo menor a EUA $1000 (mil dólares) o su equivalente en colones, por persona cuya duración sea mayor a 30 (treinta) días se aprobará en la Gerencia de División respectiva, previa recomendación del CENDEISSS.
+· Actividades con un costo igual o mayor a EUA $1000 (mil dólares) o su equivalente en colones y menor a EUA $10.000 (diez mil dólares) o su equivalente en colones, por persona, independientemente de la duración, serán de aprobación exclusiva de la Gerencia de División respectiva según corresponda, previa recomendación del CENDEISSS.
+· Toda actividad que tenga un costo igual o mayor a EUA $10.000 (diez mil dólares) o su equivalente en colones, por persona, será de aprobación exclusiva de la Junta Directiva, previa recomendación del CENDEISSS.
+En el ámbito internacional:
+· Las actividades en el ámbito internacional serán aprobadas por el Presidente Ejecutivo. Cuando el costo sea mayor a los EUA $10.000 (diez mil dólares) o su equivalente en colones, deberán aprobarse por parte de la Junta Directiva, previa recomendación del CENDEISSS.

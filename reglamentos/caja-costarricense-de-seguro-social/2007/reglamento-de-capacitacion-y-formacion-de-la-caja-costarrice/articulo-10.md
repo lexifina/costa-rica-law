@@ -1,0 +1,1 @@
+Artículo 10.—Los congresos de los profesionales en ciencias de la salud y administrativos son actividades de actualización técnica y profesional. Las Gerencias de División serán las responsables de emitir la declaración de interés Institucional de dichos eventos, cuando la actividad represente un impacto positivo sobre la prestación de los servicios de salud y seguridad social.
