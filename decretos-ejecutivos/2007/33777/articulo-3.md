@@ -1,0 +1,1 @@
+Artículo 3º—Cuando la actividad sea realizada por un contratista a nombre de la municipalidad, previa autorización de la Dirección de Geología y Minas, éste será solidariamente responsable con la municipalidad en el cumplimiento de las obligaciones.
