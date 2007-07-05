@@ -14,3 +14,4 @@ Reglamento General para Contratar Servicios en las Áreas de Planta Externa, Civ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-20 | la propia norma |
+| 2 | 2007-07-05 | Reglamento 5799 (2007-07-05) |

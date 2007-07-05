@@ -1,5 +1,6 @@
 Artículo 14.—Adjudicación por precio cotizado.
-14.1) La Proveeduría del ICE o la Unidad Estratégica de Negocios gestionante de la contratación, invitará a los potenciales oferentes inscritos en el Registro de Elegibles, para que retiren el pliego de condiciones para la respectiva contratación, en la hora, lugar y fecha designada para tal fin. El plazo entre la invitación y la fecha para la apertura de ofertas será de cinco días hábiles como mínimo.
+14.1 La Dirección Administrativa de Proveeduría del ICE, o la División o Dirección Técnica gestionante de la contratación, invitará a los potenciales oferentes inscritos en el Registro de Elegibles, para que retiren el pliego de condiciones para la respectiva contratación, en la hora, lugar y fecha designada para tal fin. El plazo entre la invitación y la fecha para la apertura de ofertas será de cinco días hábiles como mínimo.
+(Así reformado el punto anterior mediante sesión N° 5799 del 5 de julio de 2007)
 14.2) Las ofertas deben ser presentadas en original y dos copias. Las ofertas deben indicar claramente el nombre de la empresa oferente y de la persona que suscribe la oferta. Deberán ser entregadas en sobres cerrados antes de la hora señalada para el cierre de recepción de ofertas, con indicación clara, en la parte exterior y visible del sobre, de la siguiente leyenda:
 INSTITUTO COSTARRICENSE DE ELECTRICIDAD
 CONTRATACIÓN NÚMERO -------------___________
