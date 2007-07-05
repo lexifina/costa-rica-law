@@ -1,0 +1,1 @@
+Artículo 6º—Del superior jerárquico. La Unidad Administrativa de Presupuesto estará ubicada en la Dirección de Gestión Administrativo-Financiero y dependerá del Director de Gestión Administrativo-Financiero.

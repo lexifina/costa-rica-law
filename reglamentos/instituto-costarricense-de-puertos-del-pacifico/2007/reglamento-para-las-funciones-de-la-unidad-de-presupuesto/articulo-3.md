@@ -1,0 +1,1 @@
+Artículo 3º—De las políticas y procedimientos. Para lograr el propósito de la Oficina de Presupuesto será necesario determinar las políticas y procedimientos a seguir en cada una de las actividades como son específicamente los ingresos y egresos; así como planificar, coordinar y controlar los gastos e ingresos de la Institución.
