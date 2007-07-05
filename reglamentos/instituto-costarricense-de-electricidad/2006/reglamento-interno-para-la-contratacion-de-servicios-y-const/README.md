@@ -14,3 +14,4 @@ Reglamento Interno para la Contratación de Servicios y Construcción de Obras e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-29 | la propia norma |
+| 2 | 2007-07-05 | Reglamento 5799 (2007-07-05) |
