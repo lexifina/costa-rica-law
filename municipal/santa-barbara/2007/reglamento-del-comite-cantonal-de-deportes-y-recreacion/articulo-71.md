@@ -1,0 +1,1 @@
+Artículo 71.—El mantenimiento de canchas de fútbol. Específicamente de su granalla, deberá producirse una vez al año, utilizando los meses de la temporada lluviosa, preferiblemente septiembre, octubre y/o noviembre, debiendo permanecer totalmente cerradas al público mientras duren los trabajos de mantenimiento. Lo anterior salvo que la necesidad determine otra forma

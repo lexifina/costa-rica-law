@@ -1,0 +1,1 @@
+Artículo 63.—En el uso de las instalaciones deportivas existentes, el Comité Cantonal y los comités comunales, deberán darle participación a todos los grupos deportivos organizados de la comunidad, debiendo tener a todos los grupos deportivos de la comunidad debidamente registrados.

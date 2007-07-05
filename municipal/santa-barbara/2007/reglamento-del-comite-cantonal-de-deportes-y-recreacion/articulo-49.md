@@ -1,0 +1,1 @@
+Artículo 49.—El Comité Cantonal, abrirá una cuenta, que podrá ser corriente o de ahorros, en donde se depositarán todos los fondos del Comité Comunal. Esa cuenta se encontrará bajo supervisión del Comité Cantonal de Deportes Los gastos por contratación de servicios que aprueben los Comités Comunales les serán debitados por el Comité Cantonal de sus cuentas.

@@ -1,0 +1,1 @@
+Artículo 50.—En ningún caso el Comité Comunal asumirá más del 30% de los recursos comprometidos en el pago de los servicios personales de los empleados asignados y/o que llegare a tener a este durante el periodo a que corresponda el pago.

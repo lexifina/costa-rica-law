@@ -1,0 +1,10 @@
+Artículo 20.—Son funciones del Tesorero las que se detallan enseguida.
+a) Vigilar que los recursos económicos del Comité y el manejo de éstos, se ajuste en forma estricta a las más sanas prácticas financieras, contables y de control, de manera que se obtenga el mayor provecho de ellos.
+b) Fiscalizar que la recaudación de los ingresos económicos, ordinarios y extraordinarios del Comité, se realice siguiendo la normativa legal y de control vigente, de forma que los dineros ingresen a la cuenta corriente inmediatamente y se inviertan sanamente.
+c) Vigilar que la contabilidad se lleve siguiendo modernas prácticas, de forma que se asegure el correcto manejo del dinero.
+d) Fiscalizar que las cuotas, participaciones, donaciones y demás tipos de ingreso que entren a los fondos del Comité sean inmediatamente depositados y se extiendan los respectivos recibos por el o los funcionarios autorizados.
+e) Autorizar con su firma, los cheques que emita la administración, previo verificación del procedimiento y acuerdo de pago conforme a la ley, de manera que se garantice la correcta y legal emisión de los mismos.
+f) Vigilar que las recomendaciones de la Auditoría Municipal, en materia financiera y económica, se apliquen en forma estricta por parte de la administración y hacer las recomendaciones, que considere convenientes y prudente, a la Junta Directiva para que el manejo económico del Comité, sea absolutamente sano y el presupuesto se emplee de la forma en que fue aprobado y de la mejor manera posible
+g) Preparar y autorizar trimestralmente con su firma el informe económico que debe presentar la Junta Directiva del Comité Cantonal de Deportes y Recreación de Santa Bárbara al Concejo Municipal.
+h) Vigilar que la caja chica autorizada por el Comité, sea manejada, cumpliendo en forma estricta las disposiciones que sean vigentes para esta modalidad de gastos y con estricto apego a la racionalidad en el gasto de dineros públicos; y de conformidad con los reglamentos existentes en el municipio.
+i) Cualquier otra atinente al cargo.
