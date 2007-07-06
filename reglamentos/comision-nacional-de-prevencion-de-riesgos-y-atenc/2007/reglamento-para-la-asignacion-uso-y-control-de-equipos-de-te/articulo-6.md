@@ -1,0 +1,1 @@
+Artículo 6º—Valoración de la solicitud. Una vez estudiado y valorado el caso, el Director Ejecutivo decide si lo aprueba o rechaza y comunica el resultado al Departamento de Comunicaciones para que se proceda con los trámites que corresponda.

@@ -1,0 +1,1 @@
+Artículo 11.—Del contrato. Es el documento que especificará las condiciones de asignación del equipo, su uso y control, tarifa mensual reconocida y otras disposiciones que son de acatamiento obligatorio y que deberá suscribir previamente el beneficiario del servicio.
