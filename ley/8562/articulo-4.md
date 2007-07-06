@@ -30,4 +30,5 @@ A solicitud de la Contraloría General de la República, el Ministerio de Hacien
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a La Gaceta N° 250 del 29 de diciembre de 2006.
 (Modificado por el artículo 1° del decreto ejecutivo N° 33574 del 2 de febrero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33666 del 12 de marzo de 2007)
-(Modificado por el artículo 1° del decreto ejecutivo N° 33795 del 22 de mayo de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33795 del 22 de mayo de 2007).
+(Modificado por el artículo 1° del decreto ejecutivo N° 33869 del 06 de julio del 2007).
