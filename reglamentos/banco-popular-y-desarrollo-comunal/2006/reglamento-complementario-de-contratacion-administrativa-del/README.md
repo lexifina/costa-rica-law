@@ -14,3 +14,4 @@ Reglamento Complementario de Contratación Administrativa del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-07 | la propia norma |
+| 2 | 2007-07-09 | Reglamento 4501 (2007-07-09) |
