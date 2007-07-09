@@ -1,0 +1,7 @@
+CAPÍTULO IV
+Otros aspectos a considerar en la preparación
+del Informe de Liquidación Presupuestaria
+Artículo 9º—De los Ingresos: El total de los ingresos efectivos que reciba la institución por las gestiones ordinarias o extraordinarias deberán ser debidamente registrados y clasificados conforme al Clasificador de Ingresos del Sector Público. Deben poseer evidencia documental de su fuente de origen y concepto de ingreso. El registro de ingresos deberá efectuarse conforme a lo normado en los registros correspondientes del Departamento de Contabilidad y Tesorería Municipal, respetando lo que se establezca en instrumentos de control.
+La unidad técnica o administrativa responsable de la generación del ingreso deberá trasladar al Departamento de Contabilidad tota la información referente a cualquier ingreso recibido de forma inmediata a su generación.
+El registro de información de ingresos falsa o fraudulenta y la provocación de registros incorrectos por medio de información indebida por funcionario alguno; será sancionado conforme a lo establecido en la Ley de Control Interno, Ley de Administración Financiera, Reglamentos Internos de Organización y otra normativa vinculante. El incurrir en falta a lo determinado en el presente artículo, se considerara falta grave para la aplicación del régimen de sanciones de la institución y todos los demás efectos.
+Se excluye de lo establecido el control y registro de los saldos resultantes de partidas específicas de períodos anteriores al año 1999.

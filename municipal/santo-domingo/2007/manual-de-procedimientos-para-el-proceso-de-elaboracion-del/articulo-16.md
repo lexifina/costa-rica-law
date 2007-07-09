@@ -1,0 +1,1 @@
+Artículo 16.—De la conciliación de saldos: El Departamento de Contabilidad o Presupuesto y el Departamento de Tesorería, deberán garantizar de previo a la entrega de los informes de Ejecución Presupuestaria la conciliación de los registros de ingresos y egresos correspondientes; garantizando la aplicación inmediata debidamente justificada de los ajustes resultantes.

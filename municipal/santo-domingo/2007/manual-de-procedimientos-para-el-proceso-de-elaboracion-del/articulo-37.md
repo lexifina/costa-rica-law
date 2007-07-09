@@ -1,0 +1,1 @@
+Artículo 37.—De los conflictos entre normas: En caso de conflicto de lo dispuesto en este Manual de Procedimientos con lo establecido por la Legislación Vinculante, se aplicará lo que determine la legislación o normativa vigente superior de la Contraloría General de la República u órgano superior de fiscalización.

@@ -1,0 +1,1 @@
+Artículo 30.—De la remisión del Informe de Liquidación Presupuestaria: Conforme a lo definido en el artículo 105 del Código Municipal vigente, el informe de Liquidación Presupuestaria, así como la documentación complementaria deberá ser presentado antes del 15 de febrero a la Contraloría General de la República para su aprobación definitiva.
