@@ -29,3 +29,5 @@ articulo-28.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
+articulo-1-anexo.md
+articulo-2-anexo.md

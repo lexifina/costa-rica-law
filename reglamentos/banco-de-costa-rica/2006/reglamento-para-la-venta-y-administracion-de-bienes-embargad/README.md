@@ -14,3 +14,4 @@ Reglamento para la Venta y Administración de Bienes Embargados y Adquiridos en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-06 | la propia norma |
+| 2 | 2007-07-09 | Reglamento 33 (2007-07-09) |
