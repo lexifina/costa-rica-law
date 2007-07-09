@@ -1,0 +1,2 @@
+Transitprio I.: Los comités comunales de deportes tienen plazo hasta el 30 de agosto del presente año para presentar Los Proyectos al Comité Cantonal de Deportes y Recreación de Santo Domingo y los fondos de los proyectos que no sean utilizados se trasladarán al Comité Cantonal de Deportes quienes los utilizarán para alcanzar sus metas.
+(Así adicionado mediante sesión N° 42 del 9 de julio de 2007)
