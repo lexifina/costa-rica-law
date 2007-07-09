@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza al Departamento del Seguro Obligatorio de Automotor del Instituto Nacional de Seguros, para que inscriba en la Tarjeta del Derecho de Circulación la referencia a la alteración de señas y marcas así como la identificación o mecanismo de seguridad registral asignado.
