@@ -1,2 +1,3 @@
-Artículo 3º—Corresponderá al Concejo Municipal, por la vía del acuerdo y con fundamento en el artículo 13, inciso e) del Código Municipal, autorizar egresos de la Municipalidad por gastos fijos y la adquisición de bienes y servicios, cuando estos superen la suma de un millón de colones (¢1.000.000,00).
-(Así reformado en sesión N° 8 del 9 de febrero de 2004)
+Artículo 3º—Corresponderá al Concejo Municipal, por la vía del acuerdo y con fundamento en el artículo 13 inciso e) del Código Municipal, autorizar egresos de la Municipalidad por gastos fijos y para la adquisición de bienes y servicios, por un monto igual o mayor a cinco millones novecientos veinte mil colones exactos (¢5.920.000,00) que es el límite que establece la legislación vigente para el Procedimiento de Contratación Directa por escasa cuantía en esta Corporación Municipal.
+Este monto se incrementará automáticamente conforme se produzcan las modificaciones a los límites económicos para la determinación de los procedimientos de contratación administrativa.
+(Así reformado mediante acuerdo N° 1375-1 de la sesión N° 50 del 10 de julio de 2007)

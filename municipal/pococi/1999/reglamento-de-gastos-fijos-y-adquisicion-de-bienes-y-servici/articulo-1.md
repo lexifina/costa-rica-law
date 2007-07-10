@@ -15,5 +15,6 @@ e) Que la Municipalidad podrá usar o disponer de su patrimonio mediante toda cl
 Por lo tanto, en uso de las potestades que le confiere el Código Municipal en sus artículos 2°, 3°, 4°, 13 Y 62, se acuerda aprobar el siguiente Reglamento:
 CAPITULO I
 De la autorización de los egresos
-Artículo 1º—El Alcalde Municipal podrá autorizar egresos por gastos fijos y la adquisición de bienes y servicios, tal y como lo señala el artículo 17, inciso h) del Código Municipal, hasta por la suma de un millón de colones (¢1.000.000,00).
-(Así reformado en sesión N° 8 del 9 de febrero de 2004)
+Artículo 1º—El Alcalde Municipal podrá autorizar egresos por gastos fijos y por la adquisición de bienes y servicios, tal y como lo señala el artículo 17 inciso h) del Código Municipal por un monto menor a cinco millones novecientos veinte mil colones exactos (¢5.920.000,00) que es el límite que establece la legislación vigente para el Procedimiento de Contratación Directa por escasa cuantía en esta Corporación Municipal.
+Este monto se incrementará automáticamente conforme se produzcan las modificaciones a los límites económicos para la determinación de los procedimientos de contratación administrativa.
+(Así reformado mediante acuerdo N° 1375-1 de la sesión N° 50 del 10 de julio de 2007)
