@@ -1,0 +1,1 @@
+Artículo 68.—Para que una orden de inversión pueda ser registrada en Central Directo, debe ajustarse a los requisitos de moneda, plazo, monto mínimo, múltiplos y periodicidad para el pago de intereses, que determine el BCCR para sus instrumentos financieros en oferta.

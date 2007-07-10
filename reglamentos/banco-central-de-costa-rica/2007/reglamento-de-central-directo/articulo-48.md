@@ -1,0 +1,2 @@
+Artículo 48.—Como requisito para garantizar que las cuentas registradas son propiedad exclusiva del inversionista, Central Directo valida que el número de identificación suministrado por el inversionista para suscribirse, corresponda al número de identificación de la CC en trámite de registro.
+El registro de una CC no será posible si la validación de su número de identificación no resulta exitosa.

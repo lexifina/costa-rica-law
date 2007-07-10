@@ -1,0 +1,1 @@
+Artículo 30.—Mediante el Centro de Atención al Cliente, el BCCR tiene a disposición del inversionista los procedimientos operativos necesarios para que ordene el bloqueo de su código de usuario, en caso de que por medidas de seguridad así lo requiera.

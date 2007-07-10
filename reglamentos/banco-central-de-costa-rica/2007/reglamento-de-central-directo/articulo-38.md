@@ -1,0 +1,1 @@
+Artículo 38.—Central Directo valida que la clave auxiliar registrada por el inversionista cumpla con las condiciones de estructura y longitud establecidas por razones de seguridad. En cuanto a su estructura, la clave auxiliar debe cumplir con los mismos requisitos establecidos para la clave de acceso.

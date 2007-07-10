@@ -1,0 +1,1 @@
+Artículo 72.—Salvo que la orden sea calendarizada, el inversionista podrá registrar órdenes de inversión únicamente si en su CCI mantiene fondos suficientes para cubrir el monto invertido, por cuanto tales órdenes son liquidadas bajo el mecanismo de Entrega contra Pago del SINPE inmediatamente después de que el inversionista confirma su registro.
