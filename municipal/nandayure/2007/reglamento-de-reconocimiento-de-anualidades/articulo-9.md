@@ -1,0 +1,1 @@
+Artículo 9º—Las solicitudes aprobadas se tendrán válidas para efectos del reconocimiento económico desde la fecha en que la Alcaldía Municipal haya efectuado su pronunciamiento positivo, por lo que una vez presupuestadas deberá hacerse retroactivo su pago a partir de tal fecha.
