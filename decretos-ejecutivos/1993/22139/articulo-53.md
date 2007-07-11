@@ -1,5 +1,6 @@
-SECCIÓN CUARTA: DE LA TOMA DE DECISIÓN EN MATERIA
-DISCIPLINARIA
-Artículo 53.— Remisión de lo instruido y toma de decisión. Finalizada la instrucción el funcionario competente remitirá la misma al Consejo de Valoración para que éste resuelva lo que en derecho corresponda.
-El Consejo de Valoración deberá determinar, previo conocimiento de lo instruido, la existencia del hecho, su tipificación, autores y grados de participación. Si procede, impondrá la sanción, cualquier medida de atención técnica o ambas según corresponda.
-Para ese efecto deberá considerar, necesariamente, las circunstancias personales, familiares y sociales, así como aquellas otras condiciones del privado o privada de libertad que puedan ser determinantes.
+SECCIÓN IV
+De la toma de decisión en materia
+Disciplinaria
+Artículo 53.—Comisión disciplinaria. Es el órgano colegiado del centro o ámbito penitenciario, encargado de resolver sobre el régimen disciplinario, en atención al informe debidamente fundamentado en la investigación e instrucción realizada, por el funcionario designado para el efecto.
+Deberá pronunciarse mediante resolución motivada, según sea el caso, sobre la existencia del hecho imputado e imponer la sanción o procedimiento técnico de atención.
+(Así adicionado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)

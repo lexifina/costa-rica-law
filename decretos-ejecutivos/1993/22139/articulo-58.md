@@ -1,1 +1,3 @@
-Artículo 58.—Ejecución del acto. Cuando no tenga carácter de recomendación, el acto emanado del Consejo de Valoración se ejecutará una vez notificado al privado o privada de libertad. La interposición de los recursos procedentes no suspenderá su ejecución, excepto en aquellos casos en que, de oficio o a petición de parte, el Consejo de Valoración o el Instituto Nacional de Criminología decidan suspenderlo para evitar un perjuicio irreparable.
+Artículo 58.—Notificación. La resolución deberá ser notificada íntegramente al privado o privada de libertad, dejando constancia de ello en el expediente y copia del acuerdo con la firma de recibido del privado o privada de libertad.
+(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
+(Así corrida su numeración mediante artículo 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 56 al 58 actual).

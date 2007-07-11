@@ -1,5 +1,5 @@
-Artículo 55.— Casos de competencia exclusiva del Instituto Nacional de Criminología y procedimiento a aplicar.
-El pronunciamiento del Consejo de Valoración tendrá el carácter de recomendación y deberá elevarse ante el Instituto Nacional de Criminología en aquellos casos en los que la sanción disciplinaria implique la reubicación del privado o privada de libertad, del Nivel Semi Institucional al Nivel Institucional.
-Para tal efecto, el Director del ámbito de convivencia respectivo deberá remitir la recomendación del caso al Instituto Nacional de Criminología en un lapso no mayor de cinco días hábiles.
-Para el Nivel En Comunidad, será el responsable de la Oficina quién elevará al Instituto Nacional de Criminología una recomendación acerca de la reubicación en el Nivel Semi Institucional o Institucional.
-Recibida la recomendación, el Instituto Nacional de Criminología deberá emitir su decisión en un plazo máximo de quince días naturales tratándose de medidas cautelares. En los demás casos deberá ajustarse al período máximo para concluir el procedimiento.
+Artículo 55.—Remisión de lo instruido y toma de decisión. Finalizada la instrucción el funcionario competente remitirá la misma a la Comisión Disciplinaria para que ésta resuelva lo que en derecho corresponda.
+La Comisión Disciplinaria deberá determinar, previo conocimiento de lo instruido, la existencia del hecho, su tipificación, autores y grados de participación. Si procede, impondrá la sanción, cualquier medida de atención técnica, o ambas, según corresponda.
+Para ese efecto deberá considerar, necesariamente, las circunstancias personales, familiares y sociales, así como aquellas otras condiciones del privado o privada de libertad que puedan ser determinantes.
+(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
+(Así corrida su numeración mediante artículo 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 53 al 55 actual).

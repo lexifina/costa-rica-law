@@ -1,3 +1,3 @@
-Artículo 59.— Recursos. Las resoluciones del Consejo de Valoración y del Instituto Nacional de Criminología serán susceptibles de los recursos previstos en el Reglamento Orgánico y Operativo de la Dirección General de Adaptación Social.
-Dichos recursos deberán interponerse por el interesado en los términos y formas estipuladas en tal Título.
-Para los efectos de este Artículo se considerará interesados al privado o privada de libertad y a la Defensoría de los Derechos del privado y privada de Libertad.
+Artículo 59.—Plazo de conclusión del procedimiento. El procedimiento deberá concluirse en un plazo máximo de dos meses. Queda a salvo la posibilidad de suspender dicho plazo, a petición de parte o de oficio, cuando se presente fuerza mayor o caso fortuito. En todo caso, la suspensión deberá ser notificada al interesado o interesada.
+(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
+(Así corrida su numeración mediante artículo 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 57 al 59 actual).
