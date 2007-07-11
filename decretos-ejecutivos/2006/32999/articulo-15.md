@@ -1,1 +1,0 @@
-Artículo 15.—Trabajo Penitenciario. Las labores de trabajo penitenciario por las que las personas privadas de libertad en el régimen de máxima seguridad podrán descontar su pena, en el tanto les sea autorizado ese beneficio por el Instituto Nacional de Criminología, serán las de formación profesional, de estudio y formación académica.

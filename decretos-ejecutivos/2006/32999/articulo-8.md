@@ -1,1 +1,0 @@
-Artículo 8º—Clasificación. Para efectos de su atención técnica y ubicación, la población privada de libertad se clasificará en dos categorías: de contención individual y de contención grupal. En ambos casos se respetará la separación por condición jurídica.
