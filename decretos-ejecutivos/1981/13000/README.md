@@ -14,3 +14,4 @@ Reglamento para Recaudación de Impuesto 3% sobre Hospedaje a favor ICT
 | --- | --- | --- |
 | 1 | 1981-10-07 | la propia norma |
 | 2 | 1981-10-15 | SINALEVI (sin norma nombrada) |
+| 3 | 2007-07-11 | Decreto Ejecutivo 33972 (2007-07-11) |
