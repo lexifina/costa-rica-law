@@ -1,4 +1,1 @@
-Artículo 107: Presentación del Recurso
-El recurso se deberá presentar ante la Dirección del Centro o Ambito
-quien deberá consignar en el documento la fecha en que lo recibió y lo
-hará llegar ante el órgano correspondiente.
+Artículo 107: Presentación del Recurso(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

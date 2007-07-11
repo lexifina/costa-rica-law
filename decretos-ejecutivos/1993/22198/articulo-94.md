@@ -1,1 +1,1 @@
-Artículo 94: Así Derogado por el artículo 22 del decreto ejecutivo N° 32754 del 3 de octubre del 2005.
+Artículo 94:(Así derogado por el artículo 22 del decreto ejecutivo N° 32754 del 3 de octubre del 2005 y posteriormente se volvio a derogar mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

@@ -1,5 +1,1 @@
-Artículo 77: Presentación Voluntaria
-Cuando un privado o privada de libertad se presentare en forma
-voluntaria en las dependencias del Ministerio de Justicia debe ser
-remitido al Centro más cercano del Nivel al que pertenecía, donde se
-procederá a valorar su ubicación.
+Artículo 77: Presentación Voluntaria(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

@@ -1,3 +1,1 @@
-Artículo 117: Plazo para Resolverla
-La interposición de la queja no suspende los procedimientos, pero la
-misma deberá resolverse en un término de quince días.
+Artículo 117: Plazo para Resolverla(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

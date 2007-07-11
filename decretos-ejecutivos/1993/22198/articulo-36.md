@@ -1,4 +1,1 @@
-Artículo 36: El Area de Atención de la Drogadicción
-Es la responsable de atender las necesidades de los privados y
-privadas de libertad y niños, niñas y adolescentes en su problemática de
-dependencia a las drogas, en sus diferentes formas.
+Artículo 36: El Area de Atención de la Drogadicción(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

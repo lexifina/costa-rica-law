@@ -18,3 +18,4 @@ Reglamento Orgánico y Operativo Dirección General Adaptación Social
 | 4 | 2005-01-31 | Decreto Ejecutivo 32265 (2005-01-31) |
 | 5 | 2005-10-03 | Decreto Ejecutivo 32754 (2005-10-03) |
 | 6 | 2006-11-03 | Decreto Ejecutivo 33432 (2006-11-03) |
+| 7 | 2007-07-11 | Decreto Ejecutivo 33876 (2007-07-11) |

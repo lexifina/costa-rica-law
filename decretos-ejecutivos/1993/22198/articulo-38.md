@@ -1,4 +1,1 @@
-Artículo 38: El Area Educativa
-Es la responsable de atender las necesidades de las personas
-privadas de libertad, niños, niñas y adolescentes relacionadas con la
-formación educativa: académica, desarrollo personal y socioproductiva.
+Artículo 38: El Area Educativa(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

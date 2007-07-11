@@ -1,4 +1,1 @@
-Artículo 110: Instancia de Alzada
-Cualquiera que fuere la procedencia del acto recurrido, el Instituto
-Nacional de Criminología se constituye en la única instancia de alzad y
-su resolución agota la vía administrativa.
+Artículo 110: Instancia de Alzada(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

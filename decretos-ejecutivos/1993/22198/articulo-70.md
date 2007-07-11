@@ -1,5 +1,1 @@
-Artículo 70: Registro de los Informes de Areas
-Cada Responsable de Area consignará en el expediente, en el
-instrumento de registro respectivo, la información sobre la atención
-brindada y la respuesta del Privado o Privada de Libertad al Plan de
-Atención. De la información hará una devolución a la persona atendida.
+Artículo 70: Registro de los Informes de Areas(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

@@ -1,4 +1,1 @@
-Artículo 101: De quien Puede Recurrir
-Tendrá el derecho de recurrir sólo la parte que tenga interés
-legítimo su representante legal o el Coordinador de la Defensoría de los
-derechos del privado o privada de libertad.
+Artículo 101: De quien Puede Recurrir(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

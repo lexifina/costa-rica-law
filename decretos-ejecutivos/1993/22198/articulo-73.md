@@ -1,5 +1,1 @@
-Artículo 73: Ubicación de Indiciados
-Para determinar la ubicación de privados o privadas de libertad que
-se encuentran únicamente indiciados, se deberá considerar además si
-cuentan con la excarcelación concedida, aunque esta no haya podido ser
-rendida.
+Artículo 73: Ubicación de Indiciados(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

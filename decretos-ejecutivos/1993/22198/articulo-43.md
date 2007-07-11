@@ -1,4 +1,1 @@
-Artículo 43: El Area de Investigación
-Es la responsable de atender las necesidades de investigación e
-información de las distintas áreas de atención y de la institución en
-general.
+Artículo 43: El Area de Investigación(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

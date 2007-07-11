@@ -1,3 +1,1 @@
-Artículo 39: El Area Jurídica
-Es la responsable de atender todas las necesidades derivadas de la
-privación de libertad y la tutela, susceptibles de satisfacción jurídica.
+Artículo 39: El Area Jurídica(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

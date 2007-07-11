@@ -1,4 +1,1 @@
-Artículo 42: El Area de Capacitación de Recursos Humanos Es la
-responsable de atender las necesidades de capacitación que identifiquen
-las distintas áreas de atención, de la coordinación general en esta
-materia, así como la difusión del pensamiento penitenciario vigente.
+Artículo 42: El Area de Capacitación de Recursos Humanos(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

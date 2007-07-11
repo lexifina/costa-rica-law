@@ -1,2 +1,1 @@
-Artículo 102: Del plazo
-Se podrá recurrir únicamente dentro de los plazos aquí establecidos.
+Artículo 102: Del plazo(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).

@@ -1,5 +1,2 @@
 SECCION IV: DE LA QUEJA
-Artículo 115: Momento Procesal para la Presentación
-En cualquier momento podrá reclamarse en queja contra los defectos
-de tramitación que puedan subsanarse antes de la resolución definitiva
-del asunto.
+Artículo 115: Momento Procesal para la Presentación(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).
