@@ -1,1 +1,0 @@
-Artículo 14.—Con base en el Cómputo de la Pena fijado por el Tribunal sentenciador en el Auto de Liquidación de Pena, o en la resolución de unificación o adecuación de penas del Juez de Ejecución, la Oficina de Cómputo de Penas confeccionará una ficha de información en que consten las fechas de cumplimiento de la pena de la persona sentenciada.

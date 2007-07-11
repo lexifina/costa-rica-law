@@ -1,1 +1,0 @@
-Artículo 20.—En el caso de los sentenciados que deben cumplir varias penas privativas de libertad, el acto administrativo de autorización del beneficio del artículo 55 del Código Penal se dictará por separado para cada una de ellas.

@@ -1,1 +1,0 @@
-Artículo 9º—Al momento del ingreso del privado de libertad al centro penal, la Dirección del mismo enviará al Instituto Nacional de Criminología la solicitud de autorización del beneficio del artículo 55 del Código Penal. Este documento deberá remitirlo la Dirección del centro dentro del lapso de 5 días a partir de la entrevista de ingreso.

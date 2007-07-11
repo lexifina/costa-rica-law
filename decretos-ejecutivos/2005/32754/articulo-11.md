@@ -1,1 +1,0 @@
-Artículo 11.—El acuerdo emitido por el Instituto Nacional de Criminología sobre la autorización del beneficio del artículo 55 del Código Penal, será comunicado al director del centro penal dentro del lapso de 3 días, para los efectos correspondientes. A su vez, este acuerdo deberá notificarse al privado de libertad en el plazo de 24 horas.
