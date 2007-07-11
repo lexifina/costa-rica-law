@@ -15,3 +15,4 @@ Reglamento Empresas Hospedaje Turístico
 | --- | --- | --- |
 | 1 | 1980-03-07 | la propia norma |
 | 2 | 2005-06-06 | Decreto Ejecutivo 32592 (2005-06-06) |
+| 3 | 2007-07-11 | Decreto Ejecutivo 33972 (2007-07-11) |
