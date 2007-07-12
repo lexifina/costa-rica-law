@@ -1,0 +1,1 @@
+Artículo 11.—Para la aplicación de estos gastos, se debe contar con el contenido en la respectiva partida presupuestaria, la que debe estar ubicada en cada Dirección, sea regional o de nivel central, y estará bajo el estricto control y cuidado de la Dirección de cada Área.

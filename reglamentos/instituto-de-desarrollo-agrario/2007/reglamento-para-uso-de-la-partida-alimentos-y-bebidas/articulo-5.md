@@ -1,0 +1,1 @@
+Artículo 5º—Los Directores Regionales o Nacionales tendrán derecho a utilizar este servicio, conforme lo requieran las circunstancias, considerando la suma anual que para este concepto dispongan en sus respectivos presupuestos. Esto en cumplimiento de las funciones a su cargo y cuando por el horario, sea razonable brindar el servicio y se busque el bienestar común institucional.
