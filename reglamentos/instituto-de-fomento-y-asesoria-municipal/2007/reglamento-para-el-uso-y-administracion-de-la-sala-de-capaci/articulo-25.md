@@ -1,0 +1,1 @@
+Artículo 25.—Tratándose de cualquier otro aspecto sobre uso de la Sala de Capacitación no previstos en este Reglamento, regirán las regulaciones que dispongan la Junta Directiva del Instituto de Fomento y Asesoría Municipal.

@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde a la Dirección de Administración Interna del Instituto de Fomento y Asesoría Municipal, velar porque las instalaciones, equipo y mobiliario se mantengan en perfecto estado de uso y conservación.

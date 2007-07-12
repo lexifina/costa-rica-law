@@ -1,0 +1,1 @@
+Artículo 23.—Queda terminantemente prohibido ingresar a las instalaciones de la Sala de Capacitación con cualquier tipo de animales. Se exceptúan los animales adiestrados para asistir a personas con alguna discapacidad física.

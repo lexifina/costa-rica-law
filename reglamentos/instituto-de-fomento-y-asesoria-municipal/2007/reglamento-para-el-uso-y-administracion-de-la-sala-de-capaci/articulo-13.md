@@ -1,0 +1,1 @@
+Artículo 13.—Todo usuario de la Sala de Capacitación, acepta que el Instituto de Fomento y Asesoría Municipal no asume ninguna responsabilidad con relación a los objetos o pertenencias que tengan o transporten consigo, salvo en los casos en que hubiera una acción directa de la Institución o de sus agentes, que hubiera determinado causalmente el daño sufrido.

@@ -1,0 +1,1 @@
+Artículo 12.—El Instituto de Fomento y Asesoría Municipal no será responsable en ningún grado en relación con eventuales daños perjuicios o accidentes que ocurran dentro de las instalaciones por descuido, falta o negligencia de parte de los participantes. Quedan excluidos de esta disposición los Funcionarios del Instituto de Fomento y Asesoría Municipal.

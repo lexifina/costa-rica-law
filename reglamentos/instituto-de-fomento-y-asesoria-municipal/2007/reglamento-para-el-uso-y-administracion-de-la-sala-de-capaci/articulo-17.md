@@ -1,0 +1,1 @@
+Artículo 17.—Los usuarios, deben acatar y respetar las sugerencias del personal encargado de la Sala de Capacitación, quienes tienen la obligación de velar por el cumplimiento de lo estipulado en este Reglamento.

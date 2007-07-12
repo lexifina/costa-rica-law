@@ -1,0 +1,1 @@
+Artículo 7º—La Sección de Capacitación, resolverá y comunicará al solicitante el resultado de su gestión. En caso de que ésta sea positiva, se comunicarán las condiciones en que se otorga el permiso para hacer uso de las instalaciones.

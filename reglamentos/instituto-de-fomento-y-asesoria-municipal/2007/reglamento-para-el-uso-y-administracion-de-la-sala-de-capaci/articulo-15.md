@@ -1,0 +1,1 @@
+Artículo 15.—Todo usuario de la Sala de Capacitación, tiene el derecho y el deber de denunciar ante el personal de la Institución a cargo del cuido de la sala de Capacitación, aquellos actos que en su concepto hayan ofendido las reglas convencionales de la moral o que hayan dañado las instalaciones físicas.

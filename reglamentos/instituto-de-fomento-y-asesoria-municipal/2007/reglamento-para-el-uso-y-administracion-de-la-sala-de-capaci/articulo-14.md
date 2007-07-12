@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la observancia de este Reglamento
+Artículo 14.—Los solicitantes, responsables y usuarios de la Sala de Capacitación, estarán en la obligación de acatar las reglas básicas de la moral, la decencia y del respeto mutuo, de forma que sus acciones no dañen el decoro y las buenas costumbres o lesionen la sensibilidad del resto de los usuarios. En atención a lo anterior, quedan autorizadas la Presidencia Ejecutiva, la Dirección Ejecutiva y la Sección de Capacitación del Instituto de Fomento y Asesoría Municipal para que mediante avisos que se colocarán en las instalaciones, señale todos aquellos actos que no están permitidos.

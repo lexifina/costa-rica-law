@@ -1,0 +1,1 @@
+Artículo 24.—Queda terminantemente prohibido ingerir cualquier clase de alimento o bebida dentro de la sala de capacitación, exceptuando los integrantes de la mesa principal o expositores los cuales en razón de sus intervenciones se les permitirá ingerir agua.

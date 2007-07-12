@@ -1,0 +1,1 @@
+Artículo 20.—Para ingresar a las instalaciones del Instituto de Fomento y Asesoría municipal y utilizar la Sala de Capacitación, todas las personas deberán cumplir con los sistemas de registro de ingreso previsto por la administración.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se compruebe la comisión de alguna falta por parte de algún usuario que se considere grave, el personal encargado de la Sala de capacitación procederá a desalojar de las instalaciones a él o los causantes, sin perjuicio de cualquier otra sanción que en las instancias respectivas se pueda imponer.
