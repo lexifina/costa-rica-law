@@ -1,2 +1,2 @@
-Artículo 9º—Identificación de los permisos PEC-AGV. Cada Permiso Especial de Circulación deberá identificarse con un número de permiso especial de circulación AGV alfanumérico y un código que identificará a la empresa de vehículos respectiva, y del cual se guardará una copia en el respectivo archivo.
-La oficina respectiva del MOPT determinará lo anterior así como el formato más oportuno de los permisos, identificándose cada año con un color diferente, así como el año al que pertenecen.
+Artículo 9º—Identificación de los permisos PEC-AGV. Cada permiso especial de circulación deberá identificarse con un número de permiso especial AGV alfanumérico que identifique a la respectiva empresa, y en donde el número o dígitos finales consignarán el mes en que vence el respectivo permiso.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 33975 del 12 de julio de 2007)

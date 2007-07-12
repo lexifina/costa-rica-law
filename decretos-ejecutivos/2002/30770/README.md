@@ -14,3 +14,4 @@ Reglamento para el otorgamiento y uso de los permisos especiales de circulación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-09 | la propia norma |
+| 2 | 2007-07-12 | Decreto Ejecutivo 33975 (2007-07-12) |

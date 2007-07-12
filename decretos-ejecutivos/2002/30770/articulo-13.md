@@ -1,2 +1,2 @@
-Artículo 13.—Vigencia del derecho a obtener los permisos PEC_AGV. El derecho para obtener los "Permisos Especiales de Circulación AGV" tendrá una vigencia de cuatro años, a cuyo término podrá renovarse previo cumplimiento de los requisitos establecidos en el presente Reglamento, debiendo especificarse en la solicitud que se trata de la renovación de dicho derecho.
-El órgano competente del Ministerio de Obras Públicas y Transportes constatará que no existe proceso de caducidad o cancelación pendiente y emitirá de inmediato el acto respectivo.
+Artículo 13.—Vigencia del permiso PEC-AGV. Los permisos especiales de circulación PEC-AGV tendrán una vigencia de dos años, pudiendo renovarse por periodos sucesivos en los términos y condiciones establecidos por el presente Reglamento.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 33975 del 12 de julio de 2007)

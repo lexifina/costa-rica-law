@@ -1,1 +1,1 @@
-Artículo 6º—Prohibición de garantías de cumplimiento conjuntas. En ningún caso se admitirán garantías de cumplimiento conjuntas para cubrir dos o más números de "Permisos Especiales de Circulación AGV".
+Artículo 6º—(Así derogado mediante artículo 2° del Decreto Ejecutivo N° 33975 del 12 de julio de 2007)

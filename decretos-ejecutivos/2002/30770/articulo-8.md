@@ -1,2 +1,2 @@
-Artículo 8º—Cantidad máxima de permisos PEC-AGV a otorgar. La cantidad máxima de permisos especiales de circulación que podrán solicitarse no podrá ser mayor de quinientos al año para cada empresa comercializadora, a juicio de la oficina competente del MOPT.
-Se exceptúa de lo anterior aquellos casos en donde se demuestre de manera fehaciente la necesidad de expedir un número mayor de permisos.
+Artículo 8º—Cantidad máxima de permisos PEC-AGV a otorgar. Cada empresa podrá optar a que se le otorguen permisos PEC-AGV según el número de vehículos que así lo requieran, independientemente del total que ya se le hayan autorizado, en el tanto se sujete a las disposiciones del presente Reglamento.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 33975 del 12 de julio de 2007)
