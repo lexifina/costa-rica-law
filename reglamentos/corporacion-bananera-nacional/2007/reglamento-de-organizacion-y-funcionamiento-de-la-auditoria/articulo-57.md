@@ -1,0 +1,1 @@
+Artículo 57.—Potestades. Para el desempeño de sus funciones, el auditor y subauditor internos y los funcionarios de la Auditoría Interna tendrán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.
