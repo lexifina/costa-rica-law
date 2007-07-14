@@ -1,0 +1,1 @@
+Artículo 6º—Los organizadores deberán someterse a todos los requerimientos que le indique el Inspector Municipal, el desacato a cualquier indicación podrá paralizar la corrida de toros, sin ninguna responsabilidad para el funcionario y el Ente Municipal.

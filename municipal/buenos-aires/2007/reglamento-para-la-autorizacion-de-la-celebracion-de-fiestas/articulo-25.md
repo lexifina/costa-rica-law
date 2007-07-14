@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad otorgará permisos de actividades reguladas en este reglamento, a dos comunidades ubicadas en el mismo distrito administrativo, en la misma fecha únicamente si ambas cuentan con el aval del respectivo Concejo de Distrito.

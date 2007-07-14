@@ -1,0 +1,1 @@
+Artículo 4º—En el caso de uso de pólvora, se requiere de la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, póliza del INS para dicha actividad específica y el compromiso formal y por escrito, de utilizar un tubo de hierro ajustado a un brazo en tierra firme, para las detonaciones.

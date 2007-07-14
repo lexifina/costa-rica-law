@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros del Concejo Municipal no serán responsables de daños y perjuicios que se causen como producto de los permisos regulados por el presente reglamento, por el mal uso del mismo, por el abuso, el exceso de demás circunstancias que se produzcan en la actividad.

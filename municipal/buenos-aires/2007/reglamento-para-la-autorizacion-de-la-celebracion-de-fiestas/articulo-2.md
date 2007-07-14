@@ -1,0 +1,1 @@
+Artículo 2º—Si en la actividad van a operar carruseles, el propietario o encargado del mismo deberá entregar el original o copia certificada de la póliza respectiva extendida por el INS, que en ningún caso podrá ser de una cobertura menor a diez millones de colones (¢.10.000.000,00).

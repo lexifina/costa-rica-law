@@ -1,0 +1,1 @@
+Artículo 9º—En el caso de uso de pólvora, se requerirá la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, póliza del INS para dicha actividad específica y el compromiso formal por escrito, de utilizar un tubo de hierro ajustado a un brazo y en tierra firme para las detonaciones.
