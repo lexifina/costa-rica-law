@@ -1,0 +1,1 @@
+Artículo 6º—El Médico Veterinario tiene el deber moral de advertir a los propietarios que maltraten a sus animales que cesen en su actitud, y el de denunciar las conductas inhumanas o penadas por la normativa vigente sobre protección animal de las que tenga conocimiento.

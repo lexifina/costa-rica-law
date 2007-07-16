@@ -1,0 +1,3 @@
+TÍTULO V
+Del secreto profesional
+Artículo 48.—El Médico Veterinario está obligado a guardar secretos de todos aquellos hechos que haya conocido, presenciado, oído o deducido con motivo del ejercicio de su actividad profesional, exceptuando aquellos hechos que interesen al bien común o por imposición judicial, la revelación del secreto se hace obligatoria en los casos de enfermedades infectotrasmisibles y/o de declaración obligatoria e igualmente el Médico Veterinario debe empeñarse en transmitir a sus auxiliares la misma obligación de guardar secreto en lo referente, al ejercicio de su profesión.

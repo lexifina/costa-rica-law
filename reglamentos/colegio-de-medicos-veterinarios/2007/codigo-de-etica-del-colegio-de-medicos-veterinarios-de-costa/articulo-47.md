@@ -1,0 +1,1 @@
+Artículo 47.—Los Médicos Veterinarios que participen en campañas sanitarias, en publicaciones generales, en emisiones radiofónicas o televisivas destinadas a la información o divulgación sanitaria, observarán las reglas de dignidad, objetividad y discreción propias de la profesión Médico Veterinaria.

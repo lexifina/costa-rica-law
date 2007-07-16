@@ -1,0 +1,1 @@
+Artículo 36.—El Médico Veterinario no debe perjudicar, despreciar, o ridiculizar la posición profesional de sus colegas o el carácter de sus actos profesionales respetando siempre la honra y dignidad de los mismos.

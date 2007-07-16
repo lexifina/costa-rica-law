@@ -1,0 +1,1 @@
+Artículo 25.—El cliente tiene derecho a obtener un informe o certificado emitido por el Médico Veterinario, referente al estado de salud, enfermedad o sobre la asistencia prestada al animal. El contenido de dicho informe será veraz y detallado, y en él figurará el número de colegiado y el sello del Médico Veterinario que lo firma.

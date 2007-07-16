@@ -1,0 +1,1 @@
+Artículo 24.—Si el cliente, debidamente informado, no accediera a someter a su animal a un examen o tratamiento que el Médico Veterinario considerase imprescindible, o si se exigiera del Médico Veterinario un procedimiento que éste por razones científicas o éticas juzgase inadecuado o inaceptable, el Médico Veterinario queda dispensado de su obligación de asistencia.

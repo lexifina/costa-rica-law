@@ -1,0 +1,1 @@
+Artículo 26.—El Médico Veterinario está obligado a informar al cliente de los posibles riesgos para su salud en el caso de que su animal padezca enfermedades transmisibles a la especie humana, y ha de primar y velar siempre por la salud pública.

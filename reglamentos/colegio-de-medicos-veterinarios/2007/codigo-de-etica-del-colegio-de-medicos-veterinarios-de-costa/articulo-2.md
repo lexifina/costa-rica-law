@@ -1,0 +1,1 @@
+Artículo 2º—Los deberes que impone este Código obligan a todos los Médicos Veterinarios en el ejercicio de su profesión, cualquiera que sea la modalidad en la que la ejerzan, función o cargo que desempeñen.

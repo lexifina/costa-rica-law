@@ -1,0 +1,1 @@
+Artículo 49.—En anuncio profesional, entrevista a la prensa u otros medios publicitarios el Médico Veterinario no puede revelar sin consentimiento del propietario, insertar fotografías u otro elemento que identifique a éste o al paciente, debiendo adoptar el mismo criterio en los relatos o publicaciones en las sociedades científicas.

@@ -1,0 +1,1 @@
+Artículo 51.—El Médico Veterinario no está obligado a atender el paciente enfermo cuando lo solicita el cliente, correspondiendo sin embargo hacerlo en caso de urgencia cuando no exista en la localidad algún colega con condiciones de practicar la asistencia necesaria.

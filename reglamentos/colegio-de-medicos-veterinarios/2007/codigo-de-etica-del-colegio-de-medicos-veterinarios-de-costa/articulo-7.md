@@ -1,0 +1,1 @@
+Artículo 7º—El Médico Veterinario acomodará el ejercicio de su actividad profesional a lo regulado por la Ley Orgánica del C.M.V.C.R., así como a las Leyes sobre Defensa de la Competencia, Competencia Desleal y General de Publicidad, y demás leyes del país en cuanto fueren aplicables. Asimismo respetará las normas de derecho internacional ratificadas por Costa Rica.

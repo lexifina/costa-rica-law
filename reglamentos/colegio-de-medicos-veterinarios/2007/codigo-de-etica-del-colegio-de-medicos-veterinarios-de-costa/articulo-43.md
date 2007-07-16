@@ -1,0 +1,1 @@
+Artículo 43.—El Médico Veterinario no debe formular delante de los interesados críticas a los servicios profesionales prestados por otro colega, debiendo dirigir sus apreciaciones al Colegio de Médicos Veterinarios de Costa Rica o a las autoridades respectivas.

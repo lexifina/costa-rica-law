@@ -1,0 +1,1 @@
+Artículo 40.—Constituye práctica atentatoria a la ética profesional del Médico Veterinario la disputa desleal para sí del empleo, cargo o función que esté siendo ejercido por otro colega o que esté en negociaciones de mejor remuneración o beneficios laborales y sea del conocimiento del colega.

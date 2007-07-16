@@ -1,0 +1,1 @@
+Artículo 70.—El Médico Veterinario no podrá ser perito de su cliente, ni de familiares hasta tercer grado de afinidad o consaguinidad, o enemigo, y cuando se tratara de un colega, debe abstraerse del espíritu de clase profesional, debiendo servir bien a la justicia.

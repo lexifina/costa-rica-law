@@ -1,0 +1,1 @@
+Artículo 12.—El Médico Veterinario está obligado a denunciar al Colegio todo acto de usurpación de competencias que llegue a su conocimiento, así como los casos de ejercicio ilegal, tanto por no ser colegiado como por hallarse suspendido o inhabilitado el denunciado.

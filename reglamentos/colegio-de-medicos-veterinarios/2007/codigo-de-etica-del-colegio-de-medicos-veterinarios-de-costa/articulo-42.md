@@ -1,0 +1,1 @@
+Artículo 42.—La admisión de un alumno en el marco de un convenio de prácticas implica que el Médico Veterinario titular se compromete a tutelar las actuaciones clínicas del mismo y asume la completa responsabilidad de las mismas.

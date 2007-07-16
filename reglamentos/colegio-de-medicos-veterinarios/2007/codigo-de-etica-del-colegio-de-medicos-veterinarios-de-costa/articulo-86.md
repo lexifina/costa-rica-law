@@ -1,0 +1,1 @@
+Artículo 86.—Los infractores del presente Código serán juzgados por el Tribunal de Honor y sancionados de acuerdo con la Ley, las denuncias sobre infracciones del presente Código serán remitidas por la Junta Directiva al Tribunal de Honor.

@@ -1,0 +1,1 @@
+Artículo 22.—El Médico Veterinario debe informar al propietario del animal, en un lenguaje comprensible, del diagnóstico, pronóstico y opciones de tratamiento del padecimiento de su animal. Asimismo debe explicar claramente la posología y normas de administración de los fármacos que prescriba, así como el resto de las medidas terapéuticas.

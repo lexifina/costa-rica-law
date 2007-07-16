@@ -1,0 +1,1 @@
+Artículo 37.—Cuando el Médico Veterinario fuere llamado en caso de emergencias para sustituir a un colega ausente debe prestar el auxilio que el caso requiera y reenviar el cliente al colega después de su retorno.

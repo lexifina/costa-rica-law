@@ -1,0 +1,1 @@
+Artículo 46.—Nunca podrá hacer mención en la publicidad de un título académico o profesional que no se posea. Sólo se podrá mencionar el título académico oficial registrado en el Colegio y reconocido por la normativa vigente.

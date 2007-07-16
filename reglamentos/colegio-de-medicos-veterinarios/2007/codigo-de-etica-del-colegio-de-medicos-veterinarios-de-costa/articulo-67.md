@@ -1,0 +1,1 @@
+Artículo 67.—El Médico Veterinario no debe remitir a los servicios gratuitos de instituciones asistenciales, particulares u oficiales, pacientes cuyos propietarios sean de reconocida solvencia económica, salvo casos de interés gremial o científica.

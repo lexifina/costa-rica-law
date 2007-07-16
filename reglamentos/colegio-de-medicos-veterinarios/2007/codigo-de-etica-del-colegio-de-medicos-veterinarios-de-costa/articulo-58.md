@@ -1,0 +1,1 @@
+Artículo 58.—Está prohibida la práctica de servicios gratuitos o por servicios inferiores a los usuales en la práctica o a los establecidos por el Colegio, excepto en aquellos casos expresamente establecidos por dicha fijación.

@@ -1,0 +1,1 @@
+Artículo 34.—Con independencia de los aspectos económicos ligados a la producción que puedan limitar las actuaciones y procedimientos diagnósticos y terapéuticos, el Médico Veterinario tiene el deber de proponer al cliente la realización de todos los procedimientos clínicos necesarios para el correcto diagnóstico y tratamiento de los animales.

@@ -1,0 +1,1 @@
+Artículo 84.—Concierne al Colegio de Médicos Veterinarios la determinación de las infracciones que se cometen a este Código, y la aplicación de las penalidades previstas en la legislación en vigencia.

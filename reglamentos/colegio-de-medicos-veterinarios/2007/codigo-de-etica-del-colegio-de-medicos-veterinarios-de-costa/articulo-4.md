@@ -1,0 +1,1 @@
+Artículo 4º—El Colegio de Médicos Veterinarios de Costa Rica, (C.M.V.C.R.) asume, como uno de sus objetivos primordiales, la promoción, desarrollo y constante actualización de las normas deontológicas profesionales, ocupándose de la difusión de los preceptos de este Código, y obligándose a velar por su cumplimiento.

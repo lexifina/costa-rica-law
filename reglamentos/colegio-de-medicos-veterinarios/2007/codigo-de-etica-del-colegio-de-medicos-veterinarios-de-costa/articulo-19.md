@@ -1,0 +1,1 @@
+Artículo 19.—La expedición de cartas, tarjetas y otros anuncios dando a conocer al Médico Veterinario y/o la dirección del consultorio, hospital u otro lugar del trabajo debe limitarse a los elementos tendientes a su exacta identificación.

@@ -1,0 +1,1 @@
+Artículo 53.—El Médico Veterinario, salvo en caso de inminente peligro de muerte del paciente, no practicará la intervención quirúrgica sin previo consentimiento, tácito o expreso del propietario o del responsable.
