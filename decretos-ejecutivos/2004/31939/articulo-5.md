@@ -14,9 +14,13 @@ Artículo 5°—Se exonera también de todo tributo y sobretasas, excepto de los
 · Láminas de espuma de poliuretano para banano.
 · Otras materias primas para la elaboración de insumos agropecuarios, siempre y cuando se encuentren registradas como tales en el Ministerio de Agricultura y Ganadería.
 · Papel Kraft para fabricar cajas de cartón para banano.
+· (*) Papel kraft, médium, semiquímico para fabricar cajas de cartón para banano.
+(*) (Así adicionado mediante resolución N° 050 del 16 de julio del 2007).
 · Papel adhesivo para etiquetas.
 · Parafinas para banano.
 · Resinas sintéticas para ser utilizadas en la producción de plástico para la protección y empaque de banano.
+· (*) Resinas sintéticas para ser utilizadas en la producción de mecate y plástico para la protección y empaque de banano.
+(*) (Así adicionado mediante resolución N° 050 del 16 de julio del 2007).
 · Sellos para empaque de banano.
 · Soda cáustica para banano.
 · Troqueles para uso en banano.

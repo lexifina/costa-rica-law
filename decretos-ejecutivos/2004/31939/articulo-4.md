@@ -326,6 +326,8 @@ Artículo 4°—Se exonera de todo tributo y sobretasas la importación de la ma
 · Tableros de corriente eléctrica para riego y luminosidad.
 · Tanques desinfectantes.
 · Tatuadoras.
+· (*)Tatuadoras, juego de número y juego de letras
+(*) (Así adicionado mediante resolución N° 050 del 16 de julio del 2007).
 · Tensiómetros.
 · Tensores para cable.
 · Termo para nitrógeno líquido para el almacenamiento de semen.

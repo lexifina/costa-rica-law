@@ -15,3 +15,4 @@ Reglamento de Exoneración a la Actividad Agropecuaria Fundamentada en el Art. 5
 | --- | --- | --- |
 | 1 | 2004-10-06 | la propia norma |
 | 2 | 2005-01-28 | Resolución 8 (2005-01-28) |
+| 3 | 2007-07-16 | Resolución 50 (2007-07-16) |
