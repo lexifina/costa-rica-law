@@ -15,3 +15,4 @@ Reglamento del Comité de Riesgos de Popular Sociedad de Fondos de Inversión S.
 | --- | --- | --- |
 | 1 | 2006-08-16 | la propia norma |
 | 2 | 2007-07-02 | Reglamento 212 (2007-07-02) |
+| 3 | 2007-07-16 | Reglamento 213 (2007-07-16) |
