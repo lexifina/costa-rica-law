@@ -1,0 +1,1 @@
+Artículo 7º—De la exclusión de la póliza. Si alguna de las personas obligadas a rendir póliza de fidelidad renuncia a su cargo; se acoge a un permiso temporal o es despedida por una causal que no implique responsabilidad en el manejo de fondos públicos, deberá solicitar a la Unidad de Recursos Humanos que se le excluya de la póliza.

@@ -1,0 +1,2 @@
+Transitorio único.—Los funcionarios y funcionarias que están obligadas a rendir la garantía descrita y que estén ocupando los cargos a la fecha de rige de este Reglamento, tendrán hasta treinta días naturales después de adoptada esta normativa, para suscribir la póliza de fidelidad y presentar la respectiva documentación a la Unidad de Recursos Humanos.
+Aprobado por el Consejo Director en la sesión 1832 del 16 de julio del 2007.
