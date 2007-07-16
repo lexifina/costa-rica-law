@@ -1,1 +1,0 @@
-Artículo 2°—Corresponderá a la Contabilidad Nacional como órgano rector del sistema de contabilidad pública, velar por el cumplimiento de estos principios en cada una de las dependencias del sector público, así como brindar asesoría para su correcta interpretación y aplicación.

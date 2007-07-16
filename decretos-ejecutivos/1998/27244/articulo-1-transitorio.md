@@ -1,2 +1,0 @@
-Transitorio l.—Con el propósito de que las instituciones bajo el alcance de este decreto realicen los ajustes necesarios en sus sistemas contables, a efecto de cumplir con lo dispuesto en el mismo, se establece un período de transición de seis meses, a partir de la publicación del presente decreto.
-Dado en San José, en la Presidencia de la República , a los doce días del mes de agosto de mil novecientos noventa y ocho.
