@@ -1,0 +1,1 @@
+Artículo 63.—Los documentos agregados a la denuncia podrán ser presentados en original o en copia auténtica, y podrá acompañarse copia simple que, una vez certificada como fiel y exacta por el respectivo Despacho, podrá ser devuelta con valor igual al del original.
