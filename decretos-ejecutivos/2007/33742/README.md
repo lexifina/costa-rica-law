@@ -14,3 +14,4 @@ Modifica al Consejo Nacional de Vialidad, el gasto presupuestario máximo del 20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-23 | la propia norma |
+| 2 | 2007-07-16 | Decreto Ejecutivo 33913 (2007-07-16) |

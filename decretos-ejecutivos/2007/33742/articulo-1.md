@@ -12,4 +12,5 @@ Considerando:
 6º—Que mediante el Decreto Ejecutivo Nº 33439-H, publicado en La Gaceta Nº 230 del 30 de noviembre del 2006, se modificó el gasto presupuestario máximo del CONAVI para el presente año.
 7º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al CONAVI para el año 2007. Por tanto;
 DECRETAN:
-Artículo 1º—Modifícase para el Consejo Nacional de Vialidad, el gasto presupuestario máximo del 2007, establecido en el Decreto Ejecutivo Nº 33439-H, publicado en La Gaceta Nº 230 del 30 de noviembre del 2006, quedando el límite de gasto presupuestario en la suma de ¢88.000.000.000,00 (ochenta y ocho mil millones de colones exactos) en ese período.
+Artículo 1º—Modifícase para el Consejo Nacional de Vialidad, el gasto presupuestario máximo del 2007, establecido en el Decreto Ejecutivo Nº 33439-H, publicado en La Gaceta Nº 230 del 30 de noviembre del 2006, quedando el límite de gasto presupuestario en la suma de ¢98.000.000.000,00 (noventa y ocho mil millones de colones exactos) en ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33913 del 16 de julio de 2007).
