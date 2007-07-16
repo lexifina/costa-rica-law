@@ -9,7 +9,8 @@ BALANCE GENERAL
 MODELO N° 2
 NOMBRE DE LA ENTIDAD
 ESTADO DE RESULTADOS
-(NOTA: Por lo extenso de su contenido ver La Gaceta N° 19 del 28 de enero de 2004)
+[imagen]
+(Así reformado el Modelo anterior mediante sesión N° 659 del 16 de julio del 2007).
 MODELO N° 3
 NOMBRE DE LA ENTIDAD
 ESTADO DE FLUJOS DE EFECTIVO
