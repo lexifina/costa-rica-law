@@ -1,0 +1,1 @@
+Artículo 18.—Copias de las actas. Copias de los borradores de las actas serán distribuidas, por lo menos con 36 horas de anticipación a la sesión en la cual deban aprobarse una para cada Director, Gerente General, Subgerentes, Auditor General y Asesor Legal y para el archivo de la Junta Directiva.

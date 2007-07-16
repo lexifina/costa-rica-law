@@ -1,0 +1,4 @@
+CAPÍTULO III
+De las comisiones
+Artículo 29.—De las comisiones. Para el mejor desempeño de sus funciones, la Junta Directiva Nacional nombrará comisiones de trabajo integradas por tres Directores, salvo en caso de los comités corporativos que por su naturaleza requieren la participación de uno o más representantes de las juntas directivas del Conglomerado. Estas comisiones podrán invitar a sesiones a quien consideren oportuno. Cuando determinado asunto por la complejidad o importancia no pueda ser estudiado y resuelto inmediatamente en sesiones de Junta Directiva, ésta podrá encargarle a una Comisión Especial que se designe expresamente para ello o a una de las comisiones de estudio creadas al efecto, a fin de que rinda dictamen sobre el asunto en cuestión.
+En el acuerdo de traslado de las comisiones especiales creadas para conocer un asunto concreto, se deberá señalar necesariamente, el término dentro del cual deberá ser presentado el referido informe.

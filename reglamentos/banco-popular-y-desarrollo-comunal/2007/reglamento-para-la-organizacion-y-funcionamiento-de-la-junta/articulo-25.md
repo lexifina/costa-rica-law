@@ -1,0 +1,2 @@
+Artículo 25.—Comunicación de los acuerdos y resoluciones. Las partes dispositivas de los acuerdos y resoluciones deberán ser comunicados por la Secretaría a la Gerencia General Corporativa, a la Auditoría y a los terceros interesados, cuando proceda.
+Toda persona interesada podrá solicitar por escrito a la Secretaría de Junta Directiva, que le certifique el contenido de las resoluciones de asuntos de su interés.

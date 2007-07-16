@@ -1,0 +1,1 @@
+Artículo 17.—Aprobación de actas. En la sesión ordinaria siguiente se deberá poner a discusión el acta para efectos de su aprobación y las modificaciones que se le hagan se le incorporarán inmediatamente, salvo cuando por motivos de fuerza mayor no estuviere lista para ese día, en cuyo caso se conocerá en la siguiente sesión de la Junta Directiva.

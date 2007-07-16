@@ -1,0 +1,1 @@
+Artículo 28.—Otorgamiento de poderes a funcionarios del Banco. La Junta Directiva concederá los poderes necesarios a los funcionarios cuando ello sea requerido para el cumplimiento de las respectivas funciones. Sin detrimento de los poderes que la Gerencia General pueda otorgar.

@@ -1,0 +1,1 @@
+Artículo 11.—Participación de la Gerencia, Auditor y Asesor Legal. Salvo que la Junta Directiva disponga lo contrario, el Gerente General, el Auditor General y el Asesor Legal, deberán asistir con voz pero sin voto a las sesiones de Junta Directiva Nacional.

@@ -1,0 +1,1 @@
+Artículo 2º—Sesiones ordinarias. La Junta Directiva Nacional se reunirá ordinariamente por lo menos una vez por semana, los días y a la hora que ésta acuerde en su primera sesión ordinaria de cada período cuatrienal.

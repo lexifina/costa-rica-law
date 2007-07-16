@@ -1,0 +1,1 @@
+Artículo 30.—Del quórum. En las reuniones de comisión se formará quórum con la asistencia de dos integrantes, excepto cuando esté conformada por más de tres miembros en cuyo caso se conformará con la mayoría absoluta de los integrantes.

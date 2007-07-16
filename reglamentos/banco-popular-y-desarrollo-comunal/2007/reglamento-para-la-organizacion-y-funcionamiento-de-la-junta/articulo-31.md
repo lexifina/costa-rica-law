@@ -1,0 +1,1 @@
+Artículo 31.—De los suplentes. La Junta Directiva nombrará a tres directores en categoría de suplentes para cada comisión a afecto de cubrir las ausencias temporales de los titulares de la comisión quiénes alternativamente sustituirán de manera temporal a los titulares.

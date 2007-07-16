@@ -1,0 +1,1 @@
+Artículo 24.—De la revisión de los acuerdos. Cada Director podrá, por una sola vez, solicitar la revisión de una determinada actuación de la Junta Directiva, ello antes de que el acuerdo haya sido adoptado en firme.

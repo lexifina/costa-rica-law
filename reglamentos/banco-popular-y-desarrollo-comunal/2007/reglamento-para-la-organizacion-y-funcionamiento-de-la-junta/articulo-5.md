@@ -1,0 +1,1 @@
+Artículo 5º—Sede de sesiones. Las sesiones de la Junta Directiva deberán celebrarse en la Sala de Sesiones de Junta Directiva en el domicilio principal del Banco Popular, salvo que excepcionalmente, la Junta Directiva acuerde celebrarla en otro lugar.

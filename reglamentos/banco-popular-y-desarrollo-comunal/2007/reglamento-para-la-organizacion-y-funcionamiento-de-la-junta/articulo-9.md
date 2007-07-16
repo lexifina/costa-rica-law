@@ -1,0 +1,1 @@
+Artículo 9º—Limitaciones en asuntos de interés personal. Cuando se vaya a tratar asuntos en que por ley algún director deba abstenerse de votar, el Director de que se trate se ausentará de la sesión durante el tiempo de su discusión y resolución.

@@ -1,0 +1,1 @@
+Artículo 26.—Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración, así como otros que la ley autorice, contra los acuerdos del la Junta Directiva, dentro del plazo legal establecido al efecto.

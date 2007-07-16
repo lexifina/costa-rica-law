@@ -1,0 +1,2 @@
+Artículo 27.—Potestad de inspección de los directores nacionales. Previo acuerdo de la Junta Directiva Nacional, los Directores tendrán la facultad de inspeccionar conjunta o separadamente cualquiera de las dependencias del Banco.
+Cualquier Director podrá solicitar al Gerente o al Auditor, por medio de la Junta Directiva, los antecedentes e informaciones que estime necesarios relacionados con cualquier operación o asunto de la Institución.
