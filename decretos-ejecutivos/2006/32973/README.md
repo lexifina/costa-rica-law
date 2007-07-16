@@ -56,3 +56,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 41 | 2007-06-21 | Decreto Ejecutivo 33885 (2007-06-21) |
 | 42 | 2007-06-26 | Decreto Ejecutivo 33868 (2007-06-26) |
 | 43 | 2007-07-02 | Decreto Ejecutivo 33886 (2007-07-02) |
+| 44 | 2007-07-16 | Decreto Ejecutivo 33913 (2007-07-16) |
