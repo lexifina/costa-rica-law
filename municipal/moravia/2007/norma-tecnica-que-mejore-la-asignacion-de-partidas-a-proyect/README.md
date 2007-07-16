@@ -14,3 +14,4 @@ Norma Técnica que Mejore la Asignación de Partidas a Proyectos Solicitados por
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-29 | la propia norma |
+| 2 | 2007-07-16 | Reglamento municipal 63 (2007-07-16) |
