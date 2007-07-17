@@ -1,0 +1,3 @@
+Artículo 3º—Las áreas prioritarias para el trámite de las presolicitudes del año 2007 en las diferentes modalidades serán las mismas que rigieron para el año 2006, de conformidad al Decreto Ejecutivo Nº 33226-MINAE publicado en el Diario Oficial La Gaceta Nº 141 del 21 de julio del 2006.
+Para los proyectos de reforestación con especies nativas, establecidos como prioritarios y contenidos en los decretos de vedas y especies amenazadas o en peligro de extinción, (Decreto Nº 25663-MINAE y Decreto Nº 25700-MINAE), se establece como prioritario todo el país.
+En cada una de las Oficinas Subregionales del SINAC y Regionales del FONAFIFO, se mantendrá un mapa con las áreas prioritarias para ubicar las fincas que apliquen al Programa de Pago por Servicios Ambientales.

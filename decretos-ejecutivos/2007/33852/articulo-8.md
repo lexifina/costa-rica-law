@@ -1,0 +1,1 @@
+Artículo 8º—Únicamente, para efectos de gozar de Pago de Servicios Ambientales, los inmuebles que tengan planes de manejo de bosque vigentes, podrán solicitar el reconocimiento de los Servicios Ambientales en la modalidad de protección de bosque si a la fecha de presentar la presolicitud han transcurrido más de diez años de la firma de dichos contratos y permisos.
