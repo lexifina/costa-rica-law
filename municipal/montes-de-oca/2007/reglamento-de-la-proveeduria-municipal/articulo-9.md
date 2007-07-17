@@ -1,0 +1,1 @@
+Artículo 9º—Bienes en existencia. Si la Proveeduría Municipal tiene existencias del bien solicitado lo despachará de acuerdo al horario establecido, siempre y cuando, previamente se haga la respectiva solicitud de bienes y servicios.
