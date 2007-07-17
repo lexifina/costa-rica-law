@@ -16,3 +16,4 @@ Manual Descriptivo de Clases de la Asamblea Legislativa (En La Gaceta N° 146 de
 | 1 | 2000-05-25 | la propia norma |
 | 2 | 2005-11-30 | Acuerdo 32 (2005-11-30) |
 | 3 | 2005-12-20 | Acuerdo 41 (2005-12-22) |
+| 4 | 2007-07-17 | Acuerdo 22 (2007-07-17) |

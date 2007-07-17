@@ -1738,6 +1738,7 @@ Diplomado de una carrera a nivel universitario que lo faculte para el desempeño
 Cursos formales de computación
 Experiencia mínima de cuatro años en la ejecución de labores relacionadas con el cargo
 Experiencia mínima de dos años en la coordinación de grupos de trabajo.
+(NOTA DE SINALEVI: Mediante el acuerdo N° 22 tomado en sesión N° 60 celebrada el 6 de junio del 2007 , se establece modificar los requisitos de la clase Técnico Especialista D, con el propósito de eliminar de esa categoría la obligación de cumplir con experiencia mínima de un año en el manejo y supervisión de personal).
 TRABAJADOR ESPECIALISTA (niveles A, B y C)
 Objetivo del trabajo: Colaborar en el desarrollo de las funciones de la Asamblea Legislativa mediante la ejecución de labores operativas de carácter rutinario que pueden requerir aplicar conocimientos específicos de un determinado oficio y experiencia específica.
 Ubicación:
