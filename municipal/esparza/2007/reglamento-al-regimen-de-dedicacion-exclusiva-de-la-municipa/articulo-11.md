@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad de Esparza a través de la Unidad de Gestión de Recursos Humanos, verificará cuando lo considere necesario y conveniente, de conformidad con los procedimientos que al respecto hayan sido previamente establecidos por la Unidad citada, el fiel cumplimiento de todas las disposiciones de este Reglamento por parte del trabajador.
