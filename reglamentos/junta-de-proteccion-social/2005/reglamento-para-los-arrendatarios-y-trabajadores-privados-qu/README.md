@@ -14,3 +14,4 @@ Reglamento para los Arrendatarios y Trabajadores Privados que realizan labores e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-14 | la propia norma |
+| 2 | 2007-07-17 | Reglamento 25 (2007-07-17) |
