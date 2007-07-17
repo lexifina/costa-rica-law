@@ -1,0 +1,1 @@
+Artículo 80.—Derogatoria. Este Reglamento deroga el Reglamento de Organización y Funciones de la Auditoría aprobado en el artículo 4º-acuerdo CD-088 del acta Nº- 28-92, correspondiente a la sesión ordinaria del Consejo Directivo, celebrada el 22 de abril de 1992 y publicado en el Diario Oficial La Gaceta Nº- 148 del 5 de agosto de 1993.
