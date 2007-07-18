@@ -15,3 +15,4 @@ Reglamento sobre el Refrendo de las Contrataciones de la Administración Públic
 | --- | --- | --- |
 | 1 | 2006-03-15 | la propia norma |
 | 2 | 2007-02-21 | Resolución 7 (2007-02-21) |
+| 3 | 2007-07-18 | Resolución 29 (2007-07-18) |
