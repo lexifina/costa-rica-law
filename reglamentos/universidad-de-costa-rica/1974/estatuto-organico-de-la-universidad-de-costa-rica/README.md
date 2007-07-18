@@ -18,3 +18,4 @@ Estatuto Orgánico de la Universidad de Costa Rica
 | 3 | 2006-06-08 | Reglamento 121 (2006-06-08) |
 | 4 | 2006-11-30 | Reglamento 124 (2006-11-30) |
 | 5 | 2007-06-07 | Reglamento 125 (2007-06-07) |
+| 6 | 2007-07-18 | Reglamento 0 (2007-07-18) |
