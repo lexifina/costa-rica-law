@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión de Seguimiento deberá establecer las comisiones o grupos consultivos que considere necesario, para someter a análisis temas o problemas específicos relacionados a las acciones definidas por el PNDF.

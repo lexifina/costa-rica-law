@@ -1,0 +1,1 @@
+Artículo 5º—Eventualmente las instituciones que integran la Comisión de Seguimiento podrán designar como apoyo para sus representantes, a uno o más de sus funcionarios; los mismos tendrán voz más no voto en las sesiones correspondientes.

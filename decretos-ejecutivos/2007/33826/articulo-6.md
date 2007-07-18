@@ -1,0 +1,1 @@
+Artículo 6º—En caso de ausencia de algunos de los miembros acreditados, la institución correspondiente podrá asignar a uno de sus funcionarios en reemplazo, previa notificación al Coordinador de la Comisión de Seguimiento con cinco días hábiles de antelación.

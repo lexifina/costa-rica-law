@@ -1,0 +1,1 @@
+Artículo 11.—En virtud del artículo anterior, se faculta a todos los entes y órganos públicos, particularmente a los que integran a la Comisión de Seguimiento, para que designen y autoricen los recursos económicos y técnicos necesarios para coordinar, apoyar y ejecutar las acciones relacionadas al PNDF y sus planes de acción futuros, incluyendo a las de SIReFOR.
