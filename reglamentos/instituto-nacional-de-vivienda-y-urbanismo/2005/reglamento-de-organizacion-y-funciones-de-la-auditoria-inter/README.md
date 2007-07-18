@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna del Instituto N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-12 | la propia norma |
+| 2 | 2007-07-18 | Reglamento 5623 (2007-07-18) |

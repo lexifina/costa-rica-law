@@ -1,0 +1,2 @@
+Artículo 97.- Información adicional a presentar. El denunciante también deberá brindar a la Auditoría Interna, la información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.
+(Así adicionado mediante sesión N° 5623 del 18 de julio de 2007)
