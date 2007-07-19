@@ -1,0 +1,2 @@
+Artículo 7º—Participación de funcionarios públicos y de extranjeros. La participación de los funcionarios públicos en el proceso de referéndum se regirá por lo establecido en la resolución de este Tribunal Nº 1119-E-2007, así como por lo dispuesto en el artículo 24 del Reglamento.
+De conformidad con el artículo 20, inciso b) de la Ley Nº 8492 y 24 del Reglamento, queda prohibido a toda persona física o jurídica extranjera participar en campañas de publicidad o propaganda a favor o en contra del proyecto sometido a referéndum.

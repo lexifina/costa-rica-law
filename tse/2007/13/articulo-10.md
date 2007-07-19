@@ -1,0 +1,1 @@
+Artículo 10.—Veda publicitaria. Con base en los artículos 85, inciso g), del Código Electoral y 24 del Reglamento, durante los dos días inmediatos anteriores, así como el propio día de la votación, no podrá difundirse propaganda de ninguna especie relativa al proyecto objeto de la presente consulta.

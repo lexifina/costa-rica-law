@@ -1,0 +1,1 @@
+Artículo 13.—Traslado de la Fuerza Pública. A partir de hoy se hará efectivo el mandato contenido en el artículo 102, inciso 6) de la Constitución Política, relativo al traspaso de la Fuerza Pública a este Tribunal, con el fin de adoptar las medidas pertinentes para que el proceso de referéndum se desarrolle en condiciones de garantías y libertad irrestrictas.
