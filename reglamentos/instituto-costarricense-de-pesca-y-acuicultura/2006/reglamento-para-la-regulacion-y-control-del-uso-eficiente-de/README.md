@@ -15,3 +15,4 @@ Reglamento para la Regulación y Control del Uso Eficiente del Combustible a Pre
 | --- | --- | --- |
 | 1 | 2006-05-18 | la propia norma |
 | 2 | 2006-05-18 | Reglamento 0 (2006-05-04) |
+| 3 | 2007-07-19 | Acuerdo 272 (2007-07-19) |

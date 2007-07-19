@@ -52,6 +52,15 @@ Rango de Potencia (kW) | Litros de Gasolina por hora de viaje
 37.01 a 40.70 | 21.20
 40.71 a 44.40 | 23.25
 44.41 a 48.10 | 25.20
+TABLA 4
+Montos máximos de gasolina a asignar por día de ausencia, a las embarcaciones pertenecientes a la Flota Artesanal en Pequeña Escala cuya faena de pesca se realizó en la Zona Interna del Golfo de Nicoya:
+Rango de potencia CKw | Factor de multiplicación
+Menor o igual a 3.7265 | 4.49
+3.7266-7.4530 | 7.62
+7.4531-11.1795 | 11.55
+11.1796-14.9060 | 13.91
+Mayores a 14.9061 | 16.05
+(Así adicionada la tabla anterior por acuerdo AJDIP/272 del 19 de julio de 2007)
 Las embarcaciones que operen fuera del Golfo de Nicoya y que tengan una potencia superior a 48.11 kW, recibirán combustible como si tuvieran una potencia equivalente a 48.10 kW.
 Las embarcaciones que operen en el Golfo de Nicoya y que tengan una potencia superior a 29.61 kW, recibirán combustible como si tuvieran una potencia equivalente a 29.60 kW.
 Se reconocerá como máximo hasta 3,5 horas por día para todas las comunidades pesqueras del país, salvo para las embarcaciones que realicen las faenas de pesca en la parte Interna del Golfo de Nicoya, a las que se les otorgará como máximo hasta 2,5 horas por día.
