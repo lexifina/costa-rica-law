@@ -1,0 +1,1 @@
+Artículo 24.—Firma y vigencia de la oferta. Todas las ofertas deberán venir debidamente firmadas por el representante legal de la empresa y tendrán una vigencia de diez días hábiles, contados a partir del día establecido para la apertura de las ofertas.

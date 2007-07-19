@@ -1,0 +1,3 @@
+Artículo 17.—Inicio del procedimiento de contratación. La decisión de iniciar un procedimiento y el tipo de procedimiento a seguir amparado a éste reglamento, deberá ser dictada por la Dirección de cada programa presupuestario y comunicada a la jefatura del Departamento de Servicios Generales.
+La jefatura del Departamento de Servicios Generales deberá presentar los términos de referencia o especificaciones técnicas. La Dirección de cada Programa Presupuestario certificará la disponibilidad presupuestaria para la ejecución del contrato y todo aquello necesario para la ejecución del servicio.
+La información recabada, debe ser enviada a la Proveeduría Institucional para el desarrollo del procedimiento de contratación.

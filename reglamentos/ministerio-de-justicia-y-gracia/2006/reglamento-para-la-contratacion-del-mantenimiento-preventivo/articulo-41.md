@@ -1,0 +1,1 @@
+Artículo 41.—Orden de Pedido. Una vez firme la adjudicación, la Proveeduría procederá a emitir la correspondiente orden de pedido, en un plazo no mayor a cinco días hábiles. El plazo para la ejecución comenzará a regir a partir de la entrega de la orden de pedido y del vehículo a reparar.

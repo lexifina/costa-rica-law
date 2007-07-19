@@ -1,0 +1,1 @@
+Artículo 47.—Aprobación por Contraloría. Este Reglamento fue sometido a aprobación de la Contraloría General de la República, la cual lo aprobó, mediante oficio 11816 (DCA – 2472) de fecha 17 de agosto de 2006, notificado el 4 de setiembre de 2006.

@@ -1,0 +1,1 @@
+Artículo 35.—Prórroga de vigencia. En caso de que el Ministerio de Justicia lo requiera, podrá solicitar a los interesados, la prórroga de vigencia de las ofertas, por una única vez, hasta 10 días hábiles, a fin de que la institución pueda adjudicar.

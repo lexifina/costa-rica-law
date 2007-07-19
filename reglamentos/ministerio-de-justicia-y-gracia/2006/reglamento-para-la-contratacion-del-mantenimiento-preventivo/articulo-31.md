@@ -1,0 +1,1 @@
+Artículo 31.—Modificaciones. Si la institución lo considera conveniente, dentro del primer tercio del plazo para recibir ofertas, podrá hacer modificaciones al cartel del concurso, las cuales deberá comunicar al menos un día antes de la fecha límite de recepción de ofertas.

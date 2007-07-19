@@ -1,0 +1,23 @@
+Artículo 8º—Requisitos para integrar el Registro de Elegibles. Los proveedores interesados en conformar el Registro de Elegibles, deberán presentar ante la Proveeduría, en el plazo de quince días hábiles, contados a partir de la publicación en el Diario Oficial La Gaceta, los requisitos que se indicarán. Los proveedores que ya forman parte del mismo, deberán obligatoriamente indicar en forma escrita si la información suministrada se mantiene invariable o indicar detalladamente los cambios operados, a efecto de verificar el cumplimiento de los requisitos establecidos en este Reglamento, dentro del plazo ya indicado.
+A) Requisitos legales
+1. Aportar una declaración jurada de que no le comprenden las prohibiciones del artículo 22 y 22bis de la Ley de Contratación Administrativa. Por lo tanto no podrán integrar el Registro, las personas físicas y jurídicas que se encuentran comprendidas en alguno de los supuestos previstos en el Capítulo V, artículo 24.1 y siguientes del Reglamento a la Ley de Contratación Administrativa.
+2. Aportar declaración jurada de que se encuentra al día en el régimen e impuestos nacionales.
+3. Aportar certificación de naturaleza y propiedad de las acciones con vista en el Registro de accionistas o cuotistas.
+4. Presentar original de certificación vigente, de que se encuentra al día con las obligaciones con la Caja Costarricense del Seguro Social.
+5. Aportar certificación de la personería y constitución de la empresa con vista en el Registro Público, así como copia de la cédula jurídica de la sociedad.
+6. Las personas físicas deberán aportar su nombre completo, calidades, dirección exacta y copia de la cédula de identidad.
+7. La Solicitud de Inscripción en el Registro de Elegibles deberá venir debidamente firmada. Tratándose de personas jurídicas, la misma deberá ser firmada por el representante legal de la empresa solicitante. No será necesario autenticar la firma.
+8. En todo caso si la información solicitada consta actualizada en el Registro de Proveedores del Ministerio de Justicia, podrá hacerse referencia de tal circunstancia en la solicitud de incorporación al Registro de Elegibles a efecto de corroborar tal información.
+9. Deberá indicarse la dirección exacta del domicilio del oferente, incluyendo la ciudad, provincia, país, código postal y los números de teléfono y fax y correo electrónico.
+10. Deberá señalar un fax o lugar para recibir notificaciones. Este será el mecanismo de notificación que operará en los diferentes procesos de contratación, tanto para la asignación de trabajos, como para la invitación a cotizar. En caso de que la empresa no cuente con fax, el lugar para notificaciones será el que se indique.
+11. Deberá indicar en forma expresa la(s) actividad (es) en la(s) cual (es) desea quedar registrado.
+12. El taller deberá contar con pólizas de incendio, de responsabilidad civil, de riesgos del trabajo vigentes.
+13. El taller deberá contar con el Permiso Sanitario de Funcionamiento vigente, y contar con la patente respectiva vigente para ejercer la actividad.
+14. Certificación mínima de dos años de experiencia en la actividad respectiva, respaldada con las Declaraciones de Renta u otros documentos idóneos verificables.
+B) Requisitos Técnicos de las Actividades
+1. Corresponde a la jefatura del Departamento de Servicios Generales fijar los requerimientos técnicos que formarán parte de la Hoja de Evaluación de Talleres para cada tipo de actividad a contratar.
+2. La jefatura del Departamento de Servicios Generales evaluará, de previo a la inscripción del oferente en el Registro de Elegibles, si los talleres de los oferentes, cumplen con los requisitos técnicos establecidos.
+3. Los requisitos técnicos a cumplir por los solicitantes, son los definidos por la jefatura del Departamento de Servicios Generales en las Hojas de Evaluación de Talleres, las cuales calificarán aspectos como el de las Instalaciones, experiencia de la empresa, el equipo con que cuenta el taller, la seguridad que se brinda a los vehículos en reparación, entre otros; estableciéndose criterios de evaluación en cada uno de estos rubros, atendiendo a la actividad en la cual desea inscribirse, de conformidad con el artículo 4 de este Reglamento.
+4. En caso de que un mismo taller desee inscribirse en varias de las actividades señaladas en el artículo 4 de este Reglamento, será calificado para cada actividad por aparte.
+5. Para formar parte del Registro de Elegibles, el taller deberá obtener una nota mínima de 80 puntos, conforme a la calificación establecida en la Hoja de Evaluación de Talleres.
+6. Respecto a los puntos 1 y 3 anteriores, se indica que los requerimientos establecidos a nivel cartelario, se adjuntan como insertos y forman parte del presente Reglamento.

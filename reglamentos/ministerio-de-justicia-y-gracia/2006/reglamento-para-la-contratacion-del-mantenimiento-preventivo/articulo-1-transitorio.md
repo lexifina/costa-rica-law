@@ -1,0 +1,2 @@
+Transitorio I.—Respecto a la publicación de la convocatoria a que se refiere el artículo 7 de este Reglamento, una vez obtenida la aprobación por parte de la Contraloría General de la República de este Reglamento, se hará la publicación de la invitación, aunque esta sea fuera del plazo de los 30 días naturales que dispone dicho numeral.
+NOTA: Ver formularios en páginas 28 a la 30, en La Gaceta impresa N° 197 del 13 de octubre de 2006.

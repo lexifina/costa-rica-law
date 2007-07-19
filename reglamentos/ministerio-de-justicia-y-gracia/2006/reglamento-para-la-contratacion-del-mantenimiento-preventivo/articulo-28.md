@@ -1,0 +1,1 @@
+Artículo 28.—Monto y plazo de la garantía de participación. Cuando se requiera en el concurso la Garantía de Participación, esta se fijará entre un 1% y un 5% del valor total de la oferta y deberá tener una vigencia de diez días hábiles, contados a partir de la fecha fijada para la apertura de las ofertas.

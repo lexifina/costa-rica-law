@@ -1,0 +1,1 @@
+Artículo 38.—Recurso de Revocatoria o Apelación. La resolución de adjudicación será comunicada a todos los oferentes, por el mismo medio por el cual se cursó la invitación, contra ella cabrá, según corresponda, los recursos de revocatoria o apelación, los cuales se regirán por la Ley y el Reglamento de Contratación Administrativa.

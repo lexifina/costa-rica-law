@@ -1,0 +1,2 @@
+Artículo 25.—Copias y otros documentos. Junto con la oferta original deberá adjuntarse toda la información requerida, además de suplir cualquier otra información adicional que se considere pertinente. Las ofertas deberán ajustarse a las Especificaciones Técnicas y/o Términos de Referencia de cada contratación.
+La empresa oferente deberá aportar junto con la oferta, la certificación de estar al día con las obligaciones obrero-patronales con la Caja Costarricense del Seguro Social.
