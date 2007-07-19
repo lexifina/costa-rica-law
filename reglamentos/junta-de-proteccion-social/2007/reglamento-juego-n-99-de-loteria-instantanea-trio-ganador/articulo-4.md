@@ -1,0 +1,1 @@
+Artículo Nº 4: Convalidación computarizada: si el premio es superior a ¢50.000 (cincuenta mil colones), requiere convalidación computarizada y se pagará únicamente en las oficinas centrales de la Junta de Protección Social de San José.

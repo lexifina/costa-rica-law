@@ -1,0 +1,1 @@
+Artículo Nº 3: Participación en el sorteo de La Rueda de la Fortuna: las personas que al raspar su boleto comprueben que aparece la palabra “RASPA” participan directamente en el sorteo de La Rueda de la Fortuna.
