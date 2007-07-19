@@ -1,0 +1,2 @@
+Transitorio único.—Que las funciones para dar el debido soporte y seguimiento a las Unidades Ejecutoras que originalmente fueron asignadas a la Unidad de Apoyo a la Gestión de Proyectos, se trasladarán a la Unidad de Gestión de Deuda de la Tesorería Nacional , mientras se realiza el reordenamiento de la Dirección de Crédito Público de este Ministerio y se concrete el Sistema Nacional de Inversión Pública y un Plan Nacional de Inversión Pública.
+Dado en Presidencia de la República , a los veintinueve días del mes de mayo del 2007.
