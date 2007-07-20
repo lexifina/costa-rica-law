@@ -1,0 +1,1 @@
+Artículo 6º—Asignación presupuestaria de recursos. Los recursos financieros destinados a cubrir gastos de alimentación, se distribuirán dentro del presupuesto institucional, de acuerdo a los requerimientos de cada Programa.
