@@ -14,3 +14,4 @@ Reglamento de Gastos de Representación para Funcionarios del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-20 | la propia norma |
+| 2 | 2007-07-20 | Reglamento 3754 (2000-08-13) |
