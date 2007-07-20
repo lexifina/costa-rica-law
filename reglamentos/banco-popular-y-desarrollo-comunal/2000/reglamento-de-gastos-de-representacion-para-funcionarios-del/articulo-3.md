@@ -1,0 +1,1 @@
+Artículo 3°— Los funcionarios autorizados para incurrir en gastos de representación son: los integrantes de la Junta Directiva Nacional, el Gerente General, los Subgerentes, el Auditor General, los Gerentes de Sucursales.
