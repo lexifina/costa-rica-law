@@ -1,0 +1,3 @@
+Artículo 12.—Cuando una solicitud sea procedente, se incorporará al Plan de Inversiones según el tipo de proyecto y la Política de Crédito definida por la Junta Directiva. Esta acción se le hará saber al sujeto de crédito mediante un oficio en el cual se indicará también, las condiciones en que se le podrá otorgar el crédito así como los demás requisitos vigentes establecidos.
+Cuando se trate de situaciones de urgente solución, se podrá tramitar solicitudes en forma preferencial, previo dictamen técnico.
+Cuando las solicitudes sean rechazadas o postergadas, las dependencias administradoras del crédito del IFAM comunicarán al sujeto de crédito la decisión y las razones que la motivaron.

@@ -1,0 +1,1 @@
+Artículo 26.—Cuando el costo total del proyecto fuere menor que el estimado, se mantendrá la relación de financiamiento original, haciéndose los ajustes pertinentes entre las partes. Caso contrario, de ser mayor el costo del proyecto que el estimado, el prestatario asumirá la diferencia o se acogerá a lo estipulado en el Artículo 24 de este Reglamento.

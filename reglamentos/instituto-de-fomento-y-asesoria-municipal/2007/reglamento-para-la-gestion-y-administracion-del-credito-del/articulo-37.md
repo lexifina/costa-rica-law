@@ -1,0 +1,1 @@
+Artículo 37.—Las dependencias administradoras del crédito del IFAM, fiscalizarán la ejecución del proyecto y presentarán en los casos que originen problemas, un informe a la Junta Directiva lo pertinente.

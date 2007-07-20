@@ -1,0 +1,1 @@
+Artículo 23.—Cuando el monto del financiamiento para un determinado proyecto sea insuficiente para su finalización, el prestatario podrá solicitar un crédito adicional. El monto y las condiciones de este nuevo financiamiento serán aprobados por la Junta Directiva, previo dictamen de las dependencias administradoras del crédito y la Comisión Técnica.

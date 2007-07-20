@@ -1,0 +1,1 @@
+Artículo 2º—Las operaciones crediticias del IFAM se otorgarán y administrarán según lo establecido en el presente Reglamento, en los instrumentos de la Política de Crédito y en las necesidades de los entes municipales a criterio de la Junta Directiva.

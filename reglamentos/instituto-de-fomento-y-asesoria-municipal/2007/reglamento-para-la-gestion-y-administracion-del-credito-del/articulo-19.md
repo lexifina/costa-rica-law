@@ -1,0 +1,1 @@
+Artículo 19.—En caso de que el IFAM, a solicitud del sujeto de crédito, efectúe labores de supervisión durante la ejecución de los proyectos, cobrará los servicios conforme lo establece el Reglamento de Asistencia Técnica de la Institución.

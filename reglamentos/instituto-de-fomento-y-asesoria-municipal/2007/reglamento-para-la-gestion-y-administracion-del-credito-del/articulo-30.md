@@ -1,0 +1,2 @@
+Artículo 30.—El prestatario deberá elaborar, oportunamente, el presupuesto extraordinario donde incorpore los recursos del préstamo y el aporte, si lo hubiere, así como los intereses respectivos, y tramitar su aprobación ante la Contraloría General de la República.
+Para los proyectos que se financien en el primer y cuarto trimestre del año, se le permitirá al prestatario presupuestar solamente el crédito, comprometiéndose a incluir el aporte, cuando exista, y los intereses en el primer presupuesto extraordinario que tramite ante la Contraloría General de la República.

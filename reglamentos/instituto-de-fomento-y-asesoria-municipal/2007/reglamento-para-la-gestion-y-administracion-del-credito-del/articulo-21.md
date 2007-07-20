@@ -1,0 +1,2 @@
+Artículo 21.—Los plazos para amortiguar el pago de los préstamos, los períodos de gracia y los porcentajes y tipos de interés, así como la fuente de recursos, se fijarán de acuerdo con lo que determine la Política de Crédito, salvo las excepciones aprobadas por la Junta Directiva.
+El prestatario, podrá renunciar al período de gracia concedido por el IFAM, para lo cual debe emitir el correspondiente acuerdo donde así lo manifieste.
