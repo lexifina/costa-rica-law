@@ -21,3 +21,4 @@ Reglamento de Funcionamiento del Programa Integral de Mercadeo Agropecuario (PIM
 | 6 | 1994-02-22 | Decreto Ejecutivo 23039 (1994-02-22) |
 | 7 | 1996-04-18 | Decreto Ejecutivo 25122 (1996-04-18) |
 | 8 | 2006-06-20 | Decreto Ejecutivo 33217 (2006-06-20) |
+| 9 | 2007-07-20 | Decreto Ejecutivo 33916 (2007-07-20) |

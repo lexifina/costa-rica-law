@@ -13,8 +13,11 @@ Artículo 13.—Son atribuciones del Consejo:
 10) Acordar los presupuestos ordinarios y extraordinarios del PIMA;
 11) Aprobar las operaciones de crédito necesarias para el cumplimiento de los fines de PIMA;
 12) Aceptar las donaciones, herencias y legados que se hagan al PIMA;
-13) Aprobar los carteles y adjudicar las Licitaciones por Registro y Públicas, conforme a lo establecido en la Ley de Contratación Administrativa y su Reglamento”.
-(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33217 del 20 de junio del 2006).
+13) Aprobar los carteles y adjudicar las Licitaciones Públicas, conforme a lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33916 del 20 de julio del 2007).
 14) Nombrar al Gerente y al Auditor del PIMA y al Administrador del CENADA;
 15) Conocer el informe anual de labores que preparará la Gerencia antes del 30 de junio del año siguiente al considerado; y
-16) Las demás atribuciones que le señale la ley.
+16) Aprobar el tope máximo de caja chica hasta por un 10% de monto máximo establecido para la Contratación Directa.
+(Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33916 del 20 de julio del 2007).
+17) Las demás atribuciones que le señale la ley.
+(Así adicionado el inciso anterior mediante el artículo 4° del decreto ejecutivo N° 33916 del 20 de julio del 2007).
