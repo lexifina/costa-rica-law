@@ -1,1 +1,2 @@
-Artículo 40.—Todos los acuerdos deberán constar en el Libro de Actas. Los pagos e ingresos constarán en los Libros de Tesorería y deberán estar respaldados por los comprobantes respectivos, facturas de gastos y libro de recibo.
+Artículo 40.—Los Comités Comunales se reunirán una vez a la semana. Los miembros que no asistan a cuatro reuniones sin causa justificada perderán su credencial como miembros. Su sustituto será escogido por el Comité Cantonal de una terna que presenten los restantes miembros.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 38 al 40 actual del artículo)

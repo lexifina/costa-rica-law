@@ -1,7 +1,8 @@
-Artículo 11.—Corresponde al tesorero:
-a) La recaudación, custodia y control de los valores que constituyen el patrimonio del Comité.
-b) Llevar los registros contables al día y debidamente foliados financieros y contables del Comité.
-c) Presentar mensualmente a la Municipalidad los estados financieros y contables del Comité.
-d) Administrar la caja chica y establecer los mecanismos de control necesarios para una adecuada utilización de los recursos económicos.
-e) Cualquier otra función que se le encomiende y que sea compatible con su cargo, y
-f) Firmar con el presidente los cheques y las órdenes de pago.
+Artículo 11.—Corresponde al secretario:
+a) Levantar y confeccionar el acta de cada sesión en donde se hará constar los acuerdos tomados.
+b) Firmar junto con el presidente las actas.
+c) Llevar las actas en un libro foliado y sellado por la Municipalidad.
+d) Formar un expediente por cada asunto o proyecto presentado.
+e) Transcribir o notificar los acuerdos del Comité o cualquier función que el Comité o la directiva le encargue, y
+f) Redactar y firmar la correspondencia a enviar.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 10 al 11 actual del artículo)

@@ -1,1 +1,2 @@
-Artículo 23.—Los miembros del Comité podrán presentar recurso de revisión de acuerdos antes de la aprobación del acta.
+Artículo 23.—La decisión de separación tendrá recurso de apelación en forma escrita y especificando las razones que tiene para oponerse a tal decisión. Para ello contará con cinco días hábiles después de haber recibido la notificación. Transcurrido ese tiempo y si no se recibe ninguna oposición el acto quedará en firme.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 21 al 23 actual del artículo)

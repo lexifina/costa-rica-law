@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Otras disposiciones
-Artículo 47.—El Comité no podrá autorizar el uso de instalaciones deportivas que estén en condiciones de riesgo para los usuarios.
+Artículo 47.—Las organizaciones deportivas adscritas al Comité Cantonal tendrán derecho al uso de las instalaciones deportivas y a participar en los proyectos y programas del Comité Cantonal. Deberán someterse a la programación del uso de instalaciones deportivas elaborado por el Comité Cantonal.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 45 al 47 actual del artículo)

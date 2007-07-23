@@ -1,1 +1,2 @@
-Artículo 29.—Para los efectos del artículo anterior, el Auditor Municipal realizará estudios contables y de aplicación de recursos, debiendo informar al Concejo y a la Contraloría General de la República sobre el resultado de dichos estudios.
+Artículo 29.—El Comité podrá suscribir convenios para subvencionar instituciones deportivas debidamente inscritas ante el Registro de Asociaciones Deportivas para el desarrollo de las ligas menores y la promoción del deporte a través de programas, competencias y torneos.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 27 al 29 actual del artículo)

@@ -1,1 +1,2 @@
-Artículo 37.—Los miembros de los Comités Comunales durarán en su cargo dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.
+Artículo 37.—Los Comités Comunales serán los responsables de organizar, dirigir, promover y divulgar toda la actividad deportiva de su comunidad. Asimismo, promoverán la construcción, y administración y mantendrán las instalaciones deportivas de la comunidad otorgadas en administración.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 35 al 37 actual del artículo)

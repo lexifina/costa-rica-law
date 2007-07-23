@@ -1,1 +1,2 @@
-Artículo 21.—La decisión de separación tendrá recurso de apelación en forma escrita y especificando las razones que tiene para oponerse a tal decisión. Para ello contará con cinco días hábiles después de haber recibido la notificación. Transcurrido ese tiempo y si no se recibe ninguna oposición el acto quedará en firme.
+Artículo 21.—Cuando se presente alguna destitución por las causales indicadas en el artículo anterior, el Comité deberá comunicarlo por escrito al Concejo Municipal, a la entidad u organización a la cual representa y a la (s) persona (s) afectadas, dando las razones que fundamentaron su decisión.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 19 al 21 actual del artículo)

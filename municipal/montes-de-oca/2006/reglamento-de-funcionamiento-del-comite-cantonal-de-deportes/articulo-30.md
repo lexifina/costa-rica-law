@@ -1,2 +1,2 @@
-Artículo 30.—El Comité dispondrá de una Caja Chica por la suma que la Junta Directiva acuerde como razonable según sus ingresos y gastos, respetando cualquier disposición que al respecto determine la Auditoría y la Contraloría General de la República o las leyes que regulan la materia.
-El control y la fiscalización de los gastos será ejercido por el Tesorero de acuerdo con el reglamento que la rija.
+Artículo 30.—El Comité Cantonal de Deportes y Recreación llevará registros contables, los que estarán sujetos a la fiscalización de la Auditoría Municipal y de la Contraloría.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 28 al 30 actual del artículo)

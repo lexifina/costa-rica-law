@@ -1,3 +1,2 @@
-CAPÍTULO V
-De los Comités Comunales
-Artículo 34.—Habrá Comités Comunales en los distritos del cantón y en los barrios y comunidades que así lo manifiesten al Comité Cantonal, por solicitud expresa de sus organizaciones comunales y deportivas.
+Artículo 34.—La Municipalidad no podrá anotar en sus libros contables como contribuciones, las partidas específicas o cualquier otra ayuda que reciba de instituciones públicas o privadas para el Comité.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 32 al 34 actual del artículo)

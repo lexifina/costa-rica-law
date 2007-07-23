@@ -1,1 +1,2 @@
-Artículo 39.—Cada Comité Comunal llevará un Libro de Actas y un Libro de Tesorería, que tengan hojas numeradas los cuales deberán ser presentados al Comité Cantonal, quien los autorizará sellando cada hoja de los libros.
+Artículo 39.—Los miembros de los Comités Comunales durarán en su cargo dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 37 al 39 actual del artículo)

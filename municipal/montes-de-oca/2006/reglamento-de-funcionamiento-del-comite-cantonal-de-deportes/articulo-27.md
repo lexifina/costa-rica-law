@@ -1,1 +1,2 @@
-Artículo 27.—El Comité podrá suscribir convenios para subvencionar instituciones deportivas debidamente inscritas ante el Registro de Asociaciones Deportivas para el desarrollo de las ligas menores y la promoción del deporte a través de programas, competencias y torneos.
+Artículo 27.—Son susceptibles de revisión todos aquellos acuerdos que no hayan sido aprobados definitivamente.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 25 al 27 actual del artículo)

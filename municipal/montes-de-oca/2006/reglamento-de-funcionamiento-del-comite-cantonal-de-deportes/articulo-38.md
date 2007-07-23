@@ -1,1 +1,2 @@
-Artículo 38.—Los Comités Comunales se reunirán una vez a la semana. Los miembros que no asistan a cuatro reuniones sin causa justificada perderán su credencial como miembros. Su sustituto será escogido por el Comité Cantonal de una terna que presenten los restantes miembros.
+Artículo 38.—La asamblea general para el nombramiento de los Comités Comunales estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad.
+(Así corrida su numeración en sesión N° 65 del 23 de julio de 2007, que lo traspaso del antiguo artículo 36 al 38 actual del artículo)
