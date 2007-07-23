@@ -1,0 +1,1 @@
+Artículo 13.—La cuota de ahorro que debe aportar el afiliado al FODEAP corresponde a un 5% de su salario mensual nominal, que debe ser deducido automáticamente, previa autorización escrita del interesado.

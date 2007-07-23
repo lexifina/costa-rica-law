@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección de Administración Interna hará las deducciones pertinentes en el salario del afiliado; asimismo, controlará la vigencia de las pólizas del INS que garanticen la operación de crédito.

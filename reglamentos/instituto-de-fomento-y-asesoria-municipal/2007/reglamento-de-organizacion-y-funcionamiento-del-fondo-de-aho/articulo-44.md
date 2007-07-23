@@ -1,0 +1,1 @@
+Artículo 44.—Los afiliados al Fondo, en caso de emergencia nacional o catástrofe natural debidamente declarada y que les afecte directamente, podrán requerir un crédito emergente para reconstruir o reparar su vivienda, el cual se tramitará con carácter prioritario en las mismas condiciones y requisitos a que se refieren los artículos 19, 20 y 25.

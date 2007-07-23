@@ -1,0 +1,1 @@
+Artículo 26.—Cumplido lo establecido en el artículo anterior y hecha la verificación por parte de la Comisión Administradora, ésta analizará el cumplimiento de los demás requisitos pertinentes regulados en este Reglamento y dictaminará el crédito para luego someterlo a consideración de la Junta Directiva del IFAM.

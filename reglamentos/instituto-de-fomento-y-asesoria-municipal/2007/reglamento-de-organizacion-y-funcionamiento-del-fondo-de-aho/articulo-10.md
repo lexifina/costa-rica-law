@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión presentará a la Junta Directiva y a los afiliados en el primer trimestre de cada año, un informe de la gestión realizada en el año anterior; también el estado financiero del FODEAP.

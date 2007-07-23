@@ -1,0 +1,1 @@
+Artículo 14.—Los afiliados tendrán derecho a devengar intereses sobre sus ahorros que la Junta Directiva fijará periódicamente. Los intereses se acumularán anualmente al capital principal del ahorro de cada afiliado.

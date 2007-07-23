@@ -1,0 +1,2 @@
+Artículo 18.—La amortización mensual no podrá exceder del 35% del ingreso familiar neto demostrado. Se entenderá por ingreso familiar, además del salario del afiliado y/o su cónyuge, toda otra renta demostrable documentalmente.
+Cuando se conceda un préstamo con ingreso familiar demostrado, la suma que por concepto de amortización e intereses, pago de pólizas y cuota de ahorro que debe rebajarse al afiliado, no podrá en ningún caso superar el 70% del salario neto que percibe el servidor en la Institución.

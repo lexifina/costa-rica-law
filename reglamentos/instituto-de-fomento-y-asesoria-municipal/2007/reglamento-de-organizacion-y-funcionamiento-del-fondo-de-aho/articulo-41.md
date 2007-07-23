@@ -1,0 +1,1 @@
+Artículo 41.—Además de la sanción económica que proceda, el FODEAP se reserva el derecho de hacer exigible la obligación cuando se den las circunstancias establecidas en el artículo anterior; también cuando se produzca un traspaso del inmueble dado en garantía a la Institución, sin autorización previa de la Junta Directiva.
