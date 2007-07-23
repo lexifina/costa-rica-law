@@ -1,0 +1,1 @@
+Artículo 4º—La Junta Directiva definirá la política de asistencia técnica que regirá en el IFAM para cada año, debiendo establecerse las áreas que se atenderán, la estimación de los recursos humanos, financieros y materiales que se requieran, así como su distribución en cada uno de los estratos municipales, conforme al informe técnico correspondiente.

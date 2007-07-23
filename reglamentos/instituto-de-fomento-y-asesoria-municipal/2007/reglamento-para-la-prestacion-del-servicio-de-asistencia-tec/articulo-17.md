@@ -1,0 +1,1 @@
+Artículo 17.—Es responsabilidad de la entidad beneficiaria, el cumplimiento de los requisitos que se le soliciten dentro de los plazos previamente establecidos, conforme con las características de la solicitud de que se trate, objeto o fin del servicio. De no atenderse en los plazos conferidos, previa valoración técnica del área correspondiente, se desestimará la solicitud.

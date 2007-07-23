@@ -1,0 +1,1 @@
+Artículo 11.—El IFAM se reserva el derecho de proponer modificaciones o, rechazar las solicitudes de Asistencia Técnica según se estime procedente para los fines institucionales o los del gestionante.

@@ -1,0 +1,1 @@
+Artículo 27.—En los casos de asistencia técnica reembolsable, el informe técnico se remitirá a la Dirección Ejecutiva para conocimiento de la Comisión Técnica, la cual emitirá el dictamen correspondiente ante la Junta Directiva.

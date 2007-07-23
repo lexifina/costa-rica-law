@@ -1,0 +1,1 @@
+Artículo 10.—La asistencia técnica que se brinde en forma conjunta con otras instituciones u organizaciones nacionales e internacionales, también se regirá por el presente Reglamento en concordancia con las disposiciones de las organizaciones participantes.

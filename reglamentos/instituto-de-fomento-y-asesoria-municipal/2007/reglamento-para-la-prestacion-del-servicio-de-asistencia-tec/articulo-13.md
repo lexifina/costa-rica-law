@@ -1,0 +1,1 @@
+Artículo 13.—Conforme con el concepto de asistencia técnica que aplica el IFAM, se brindará un servicio moderno, ágil y oportuno a las estructuras locales, para el mejoramiento y modernización de la gestión pública local.

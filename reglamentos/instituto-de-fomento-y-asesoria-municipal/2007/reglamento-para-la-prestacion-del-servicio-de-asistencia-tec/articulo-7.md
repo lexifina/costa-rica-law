@@ -1,0 +1,1 @@
+Artículo 7º—Conforme con lo estipulado en el artículo anterior, el IFAM implementará un centro de información sistematizado y actualizado, en el cual se consignará la demanda y la información que generen las instituciones y organizaciones vinculadas al sector local.

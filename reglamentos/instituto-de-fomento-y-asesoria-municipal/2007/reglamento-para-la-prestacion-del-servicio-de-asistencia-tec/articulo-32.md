@@ -1,0 +1,1 @@
+Artículo 32.—En caso de que en el estudio de viabilidad realizado por el IFAM, se determine la necesidad de un estudio de factibilidad del proyecto a ejecutar, el IFAM podrá realizarlo en el entendido de que se contemplará en los costos del servicio de asistencia técnica que deberá cubrir el beneficiario, lo cual quedará consignado en el respectivo contrato.

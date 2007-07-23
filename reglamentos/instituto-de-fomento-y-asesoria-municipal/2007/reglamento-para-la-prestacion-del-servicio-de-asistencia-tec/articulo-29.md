@@ -1,0 +1,1 @@
+Artículo 29.—Para la prestación de los servicios de asistencia técnica, se considerará la capacidad financiera y operativa del Instituto y el equilibrio en la atención a los diversos Gobiernos Locales que gestionan dicho servicio en sus diversas modalidades.

@@ -1,0 +1,1 @@
+Artículo 8º—En acatamiento de las competencias establecidas en la Ley Orgánica del IFAM Nº 4716, el IFAM otorgará el servicio de asistencia técnica bajo dos modalidades: reembolsable y no reembolsable, de conformidad con lo que dispone el presente Reglamento.

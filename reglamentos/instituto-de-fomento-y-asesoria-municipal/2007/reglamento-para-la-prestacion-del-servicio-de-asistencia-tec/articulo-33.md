@@ -1,0 +1,1 @@
+Artículo 33.—En las solicitudes de asistencia técnica a título reembolsable, la entidad solicitante deberá acompañar a la solicitud, la acreditación de su capacidad para la atención del costo del servicio.

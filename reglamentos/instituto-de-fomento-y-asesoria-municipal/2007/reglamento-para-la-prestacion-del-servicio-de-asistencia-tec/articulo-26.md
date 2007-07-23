@@ -1,0 +1,1 @@
+Artículo 26.—Habiéndose aceptado expresamente por el órgano superior de la entidad beneficiaria los términos en los que eventualmente se prestaría el servicio, la unidad responsable procederá a la elaboración de la planificación de la prestación del servicio requerido.

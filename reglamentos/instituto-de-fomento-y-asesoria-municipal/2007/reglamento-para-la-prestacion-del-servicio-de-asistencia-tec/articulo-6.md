@@ -1,0 +1,1 @@
+Artículo 6º—De conformidad con el presente Reglamento, el Sistema de Asistencia Técnica integrará la oferta en esta materia dirigida al desarrollo local, proveniente del ámbito nacional e internacional, de manera que se racionalicen y optimicen los recursos y resultados de la Política de Asistencia Técnica institucional.

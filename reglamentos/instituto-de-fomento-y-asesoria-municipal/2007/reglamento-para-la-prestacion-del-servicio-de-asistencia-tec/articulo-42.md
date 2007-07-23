@@ -1,0 +1,1 @@
+Artículo 42.—Al finalizar la asistencia técnica, la unidad responsable de la prestación del servicio, realizará el informe de finiquito correspondiente, en el cual deberá incluir entre otros datos, los recursos efectivamente aplicados, a fin de que se establezca el costo real de la asistencia técnica brindada.

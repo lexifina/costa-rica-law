@@ -1,0 +1,1 @@
+Artículo 31.—Para la prestación de los servicios de asistencia técnica, se considerará el historial existente en los registros institucionales, sobre la responsabilidad y compromiso del solicitante, así como su condición operativa y capacidad financiera.

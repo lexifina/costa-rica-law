@@ -1,0 +1,2 @@
+Artículo 20.—Una vez identificada la demanda y la oferta, la unidad responsable de IFAM, procederá a clasificar y seleccionar los temas conforme la priorización establecida en el Plan Institucional.
+Para determinar la prioridad de los proyectos a ejecutar se considerarán entre otros los siguientes criterios: estratificación municipal, la viabilidad de ejecución, cobertura de los proyectos y el impacto que éstos aporten al desarrollo local.

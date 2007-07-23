@@ -1,0 +1,1 @@
+Artículo 9º—La asistencia técnica, será brindada conforme a la Política de Asistencia Técnica que apruebe el IFAM. El beneficiario deberá rendir los informes que se le soliciten y el IFAM podrá verificarlos.

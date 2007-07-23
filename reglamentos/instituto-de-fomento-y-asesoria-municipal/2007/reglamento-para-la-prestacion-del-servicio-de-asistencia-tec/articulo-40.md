@@ -1,0 +1,1 @@
+Artículo 40.—El IFAM cobrará el costo de la asistencia técnica cuando la municipalidad incumpla con los compromisos derivados de la misma, todo de conformidad con las disposiciones del presente Reglamento y los términos del contrato.

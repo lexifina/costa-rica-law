@@ -1,0 +1,1 @@
+Artículo 39.—La asistencia técnica de costo reembolsable se refiere a la que genera cobro al beneficiario según lo dispuesto en el artículo 22 del presente Reglamento en acatamiento a lo dispuesto en la Ley Orgánica del IFAM.

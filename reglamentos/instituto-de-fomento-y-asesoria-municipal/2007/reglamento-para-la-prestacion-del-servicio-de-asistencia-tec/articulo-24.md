@@ -1,0 +1,1 @@
+Artículo 24.—Los solicitantes podrán realizar las consultas y solicitudes por los medios que tengan a su disposición, la institución dispondrá de las condiciones para recibirlas, tramitarlas y documentarlas.

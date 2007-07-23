@@ -1,0 +1,1 @@
+Artículo 38.—El control del gasto del servicio de asistencia técnica que se ejecute durante el plazo establecido, será responsabilidad de la unidad que brinde el servicio. Las unidades vinculadas con el servicio, deberán informar a la unidad responsable, sobre los costos de la prestación del mismo.

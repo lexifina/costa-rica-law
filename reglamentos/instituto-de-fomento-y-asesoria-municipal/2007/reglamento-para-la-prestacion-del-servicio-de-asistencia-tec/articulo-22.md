@@ -1,0 +1,1 @@
+Artículo 22.—La administración del servicio de asistencia técnica se sustentará en un sistema integrado de información, el cual incluye los requerimientos de los gobiernos locales, la oferta institucional y el resultado del servicio brindado.

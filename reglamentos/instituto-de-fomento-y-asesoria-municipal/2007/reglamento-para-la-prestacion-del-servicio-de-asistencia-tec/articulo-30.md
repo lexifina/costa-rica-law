@@ -1,0 +1,1 @@
+Artículo 30.—En casos de emergencia nacional, regional o local, incluso de crisis financieras insostenibles, el IFAM podrá brindar asistencia técnica excepcionado lo regulado en el presente Reglamento. Estas medidas serán siempre de carácter temporal y se regirán conforme a lo establecido en la ley orgánica de IFAM.

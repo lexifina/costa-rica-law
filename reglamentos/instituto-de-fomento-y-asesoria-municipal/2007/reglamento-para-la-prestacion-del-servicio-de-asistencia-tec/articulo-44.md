@@ -1,0 +1,1 @@
+Artículo 44.—Las unidades responsables de la ejecución del servicio, deberán aplicar las recomendaciones resultantes de las evaluaciones, de forma tal que, permita la actuación oportuna para la correcta y satisfactoria ejecución del servicio.

@@ -1,0 +1,1 @@
+Artículo 41.—Cuando el IFAM brinde el servicio de asistencia técnica conjuntamente con otros socios, tratándose de un servicio de costo reembolsable, cuantificará y cobrará únicamente lo que corresponde a sus propios costos, o bien, mediante el mecanismo particular que se establezca en cada caso de común acuerdo con los socios de que se trate.
