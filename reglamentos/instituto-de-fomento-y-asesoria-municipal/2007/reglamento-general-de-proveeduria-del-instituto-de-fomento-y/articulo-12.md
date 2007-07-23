@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que no se indique el plazo en los términos de las contrataciones directas, las cotizaciones recibidas por la Sección de Proveeduría serán analizadas y adjudicadas en un plazo de diez días hábiles.

@@ -1,0 +1,1 @@
+Artículo 10.—Cuando así se disponga el cartel o la invitación de la cotización, las ofertas serán recibidas por la Sección de Proveeduría en sobre cerrado. En caso contrario, se aceptará su remisión por cualquier otro medio, de forma tal que ingresen en el momento indicado.

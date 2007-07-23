@@ -1,0 +1,1 @@
+Artículo 11.—Las contrataciones directas se abrirán el día y hora señalados, conforme a la invitación, por el Encargado de Compras. En ausencia de éste las abrirá el funcionario designado por la Jefatura de la Sección de Proveeduría.
