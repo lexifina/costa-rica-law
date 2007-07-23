@@ -1,0 +1,1 @@
+Artículo 7º—La Sección de Proveeduría entregará los activos nuevos mediante el formulario “Entrega de Activos”, del cual debe remitir copia a las Secciones de Contabilidad y Finanzas y de Servicios Generales, para los respectivos controles.

@@ -1,0 +1,1 @@
+Artículo 6º—Antes de comprar un activo, la Sección de Proveeduría deberá consultar a la Sección de Servicios Generales, si existe posibilidad de asignar mobiliario y equipo en desuso en otras dependencias asegurándose, en caso de que exista, que se elabore y firme el formulario de traslado de activos.

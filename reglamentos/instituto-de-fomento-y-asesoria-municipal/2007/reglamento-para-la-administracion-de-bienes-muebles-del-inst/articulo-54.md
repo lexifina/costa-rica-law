@@ -1,0 +1,1 @@
+Artículo 54.—Se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad del IFAM, que han sido adquiridos por las diferentes Unidades Administrativas para su uso, por estar a cargo de la Biblioteca del IFAM.

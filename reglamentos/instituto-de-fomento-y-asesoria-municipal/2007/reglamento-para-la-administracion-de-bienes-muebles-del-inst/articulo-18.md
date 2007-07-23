@@ -1,0 +1,3 @@
+Artículo 18.—La Sección de Servicios Generales será la encargada de llevar el control de pólizas de activos para lo cual deberá incluir y excluir los activos de la póliza de aseguramiento que corresponda, además, debe llevar el control de pagos de esas pólizas.
+La Sección de Servicios Generales deberá indicar a la Sección de Contabilidad y Finanzas en forma anual y de acuerdo con las pólizas existentes los montos que debe incluir en las respectivas partidas presupuestarias para hacerle frente a esos pagos, asimismo deberá solicitar los ajustes presupuestarios según las variaciones que durante el año se originen.
+La Sección de Contabilidad y Finanzas será la encargada de llevar el control de amortización de cada póliza.
