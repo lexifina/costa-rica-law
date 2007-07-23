@@ -1,0 +1,1 @@
+Artículo 52.—Seguro de vehículos. Además del seguro obligatorio que la ley establece para vehículos automotores que circulan dentro del territorio nacional, para cubrir la responsabilidad civil por lesión o muerte de personas, todos los vehículos propiedad de PROCOMER deben estar cubiertos con una póliza de seguro voluntario.

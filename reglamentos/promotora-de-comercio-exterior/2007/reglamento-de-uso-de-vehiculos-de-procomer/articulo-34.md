@@ -1,0 +1,1 @@
+Artículo 34.—Programación de los servicios. El Departamento de Servicios General y Compras realizará una programación periódica de los servicios de transportes en vehículos de uso administrativo, de acuerdo con las solicitudes presentadas y la capacidad de servicio.

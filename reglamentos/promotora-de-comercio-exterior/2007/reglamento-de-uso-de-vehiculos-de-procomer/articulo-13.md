@@ -1,0 +1,1 @@
+Artículo 13.—De la circulación de vehículos. Para que un vehículo propiedad de PROCOMER pueda circular, es indispensable, que se encuentre registrado como activo de la Institución y que cumpla con todos los requisitos que exige la Ley de Tránsito, Ley N° 7331 de fecha 22 de abril de 1993.

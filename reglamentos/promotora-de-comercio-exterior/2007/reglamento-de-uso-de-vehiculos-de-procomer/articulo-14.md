@@ -1,0 +1,1 @@
+Artículo 14.—Rango de acción. El uso de los vehículos de PROCOMER queda restringido al territorio nacional, excepto cuando exista autorización expresa de la Junta Directiva. En estos casos, el Departamento de Servicios Generales deberá gestionar los trámites respectivos para la salida de los vehículos.

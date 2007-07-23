@@ -1,0 +1,1 @@
+Artículo 51.—Inscripción de vehículos. Para efectos de control de los vehículos propiedad de PROCOMER, el Departamento de Servicios Generales es la unidad administrativa encargada de efectuar los trámites de inscripción o desinscripción, según corresponda en el Registro de la Propiedad de Vehículos Automotores del Registro Público.

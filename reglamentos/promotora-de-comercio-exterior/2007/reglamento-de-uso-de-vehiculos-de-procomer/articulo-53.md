@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los accidentes de tránsito
+Artículo 53.—Prohibición de arreglo extrajudicial. Queda prohibido al conductor, efectuar arreglos extrajudiciales en caso de accidentes con vehículos de PROCOMER. Asimismo, deberá indicar al particular que se apersone o comunique al Departamento de Servicios Generales y Compras de PROCOMER para efectuar las gestiones correspondientes. En aquellos casos en que convenga a los intereses de PROCOMER, el Gerente General, en calidad de apoderado generalísimo sin límite de suma de la Institución, podrá autorizar la celebración de arreglos extrajudiciales, previa autorización de la Junta Directiva de PROCOMER.

@@ -1,0 +1,1 @@
+Artículo 40.—Reemplazo de herramientas y otros. Los accesorios, repuestos, herramientas u otros implementos de los vehículos, perdidos injustificadamente, serán reemplazados por el funcionario que tuvo a cargo el vehículo, lo cual se debe realizar en un plazo no mayor a un mes.

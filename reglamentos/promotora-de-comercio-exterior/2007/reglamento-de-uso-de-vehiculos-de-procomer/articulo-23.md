@@ -1,0 +1,3 @@
+Artículo 23.—El vehículo de uso discrecional podrá circular con placa particular y sin estar identificado con el logotipo de la Institución. Cuando no estuviera en uso, deberá dejarse bajo custodia del Departamento de Servicios Generales. Este vehículo sólo debe de ser conducido por el Gerente General o por los chóferes de la Institución, en ninguna circunstancia por otra persona.
+No podrán usarse este vehículo para fines contrarios a la ley, a la moral y a las buenas costumbres o para usos en lugares que no contribuyan al cumplimiento de los fines y objetivos de la Institución.
+La asignación del vehículo de uso discrecional no generará derechos adquiridos, ni constituye salario en especie.

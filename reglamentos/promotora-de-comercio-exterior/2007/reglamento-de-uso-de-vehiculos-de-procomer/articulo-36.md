@@ -1,0 +1,1 @@
+Artículo 36.—Uso de vehículos los días no laborales. Para el retiro de vehículos de uso administrativo los días sábados, domingos, feriados o fuera de horas de oficina (8:00 a.m. a 5: 00 p.m.), se debe contar con la autorización expresa del Departamento de Servicios Generales y Compras. El conductor deberá portar en el vehículo la respectiva autorización.

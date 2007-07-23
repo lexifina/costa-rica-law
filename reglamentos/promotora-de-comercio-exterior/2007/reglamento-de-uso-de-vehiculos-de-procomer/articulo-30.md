@@ -1,0 +1,1 @@
+Artículo 30.—Custodia de los vehículos en gira. Cuando un vehículo se encuentre en gira, deberá guardarse en lugares que brinden condiciones de seguridad adecuadas y no podrá circular después de las horas indicadas en el permiso, salvo que el permiso así lo contemple o en situaciones de necesidad debidamente comprobada.

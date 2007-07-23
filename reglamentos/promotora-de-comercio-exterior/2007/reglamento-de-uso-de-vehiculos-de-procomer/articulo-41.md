@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los registros y controles
+Artículo 41.—Registro de operaciones. Toda actividad relacionada con el uso, control y mantenimiento de vehículos deberá poseer documentación idónea que la respalde y justifique. Para tales efectos, el Departamento de Servicios Generales y Compras deberá establecer los registros necesarios para facilitar que las diferentes actividades que se ejecuten para una adecuada administración de los vehículos estén sustentadas por documentos que señalen su origen, naturaleza, objetivo y resultados obtenidos, así como también las autorizaciones necesarias cuando correspondan.

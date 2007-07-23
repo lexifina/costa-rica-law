@@ -1,0 +1,1 @@
+Artículo 27.—Uso de transporte público. Cuando la naturaleza de la labor a desarrollar, así como la conveniencia y oportunidad del medio a usar, permitan la utilización de medios de transporte públicos, se preferirán estos, en el tanto resulten más económicos y no afecten las labores encomendadas.

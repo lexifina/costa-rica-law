@@ -1,0 +1,2 @@
+Artículo 2º—Definición de políticas. Corresponde a la Junta Directiva de PROCOMER dictar las políticas que orienten el accionar de la Institución para lograr los objetivos definidos para el uso, control y mantenimiento de vehículos, así como para orientar a los funcionarios de esta Promotora en el desarrollo de las actividades.
+Dichas políticas deberán difundirse oportunamente en todos los niveles de la Institución.

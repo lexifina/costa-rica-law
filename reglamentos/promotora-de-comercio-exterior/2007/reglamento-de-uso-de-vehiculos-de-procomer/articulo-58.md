@@ -1,0 +1,1 @@
+Artículo 58.—Uso irregular de vehículos. Todos los funcionarios de PROCOMER están obligados a reportar al Departamento de Servicios Generales y Compras las irregularidades que detecten en la utilización de los vehículos de la Institución, señalando lugar, hora y fecha, a fin de sentar las responsabilidades del caso.

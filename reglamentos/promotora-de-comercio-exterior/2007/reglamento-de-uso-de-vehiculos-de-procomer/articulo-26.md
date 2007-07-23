@@ -1,0 +1,1 @@
+Artículo 26.—Uso de placa oficial. Todos los vehículos de uso administrativo deberán portar la respectiva placa oficial y tendrán un distintivo visible en ambos costados, el cual, debe indicar con claridad el emblema y el nombre de la Institución, así como la leyenda “SOLO PARA USO OFICIAL”. Se exceptúan de tal requisito los vehículos de uso discrecional.

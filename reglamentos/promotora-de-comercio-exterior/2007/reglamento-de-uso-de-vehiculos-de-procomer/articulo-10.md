@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad. Será responsabilidad del Departamento de Servicios Generales y Compras el establecer la coordinación que se requiera entre las diferentes unidades administrativas de la institución que necesiten el servicio de transporte.

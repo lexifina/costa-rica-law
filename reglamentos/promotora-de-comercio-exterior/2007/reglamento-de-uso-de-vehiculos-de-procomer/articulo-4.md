@@ -1,0 +1,1 @@
+Artículo 4º—Propósito. El propósito de las presentes disposiciones es lograr una mayor eficiencia y efectividad de las acciones administrativas relativas al control sobre el uso y mantenimiento adecuado de los vehículos propiedad de PROCOMER, de manera que estos bienes se utilicen de forma racional y se destinen a la consecución de los fines para los cuales han sido designados.
