@@ -1,1 +1,0 @@
-Artículo 17.—Si la Gerencia aprueba las recomendaciones citadas en el artículo anterior, esta solicitará a la División Jurídica la confección del contrato correspondiente enviando copia de dicha solicitud al Departamento de Recaudación de la División Comercial del Área Metropolitana o Jefatura de la División Regional.

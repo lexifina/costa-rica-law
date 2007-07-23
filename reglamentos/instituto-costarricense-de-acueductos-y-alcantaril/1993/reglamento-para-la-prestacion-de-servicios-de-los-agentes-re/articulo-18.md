@@ -1,1 +1,0 @@
-Artículo 18.—La División Jurídica, previo al análisis de los aspectos legales involucrados, procederá a confeccionar el contrato de servicios indicado y a formalizar la garantía de cumplimiento respectiva.

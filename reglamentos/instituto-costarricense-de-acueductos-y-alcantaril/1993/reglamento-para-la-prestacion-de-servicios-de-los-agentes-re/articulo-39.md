@@ -1,5 +1,0 @@
-Artículo 39.—Dichas dependencias aplicarán los siguientes controles;
-a) Visitar periódicamente por medió de personal debidamente identificado las instalaciones de los Agentes Recaudadores para verificar el correcto funcionamiento del servicio de recaudación, medidas de seguridad con que opera y trato que se le brinda a los usuarios del Instituto.
-b) Controlar la correcta cancelación de los recibos revisando la documentación soporte de la gestión de cobro del Agente Recaudador (talones de recibos, colillas de depósitos bancarios, control de entrega de talones, depósitos bancarios, notas de débito de los cheques devueltos portes bancos, etc.),
-c) Revisar los contratos de los Agentes Recaudadores para determinar su fecha de vencimiento y planificar sus prórrogas. Se deberá suspender la autorización de recaudación cuando venza el contrato y este no se haya renovado.
-d) Revisar la fecha de vencimiento de las garantías de cumplimiento en los contratos de recaudación y solicitar su renovación con un mes de anticipación a dicho vencimiento.

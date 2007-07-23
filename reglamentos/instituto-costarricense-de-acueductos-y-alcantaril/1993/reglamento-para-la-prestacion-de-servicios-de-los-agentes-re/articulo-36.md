@@ -1,1 +1,0 @@
-Artículo 36.—El Departamento de Recaudación o la Oficina de Subregión colectiva solicitará a la División de Administración de Fondos, la confección del cheque para el pago de la comisión en forma mensual, previa verificación de los montos recaudados.

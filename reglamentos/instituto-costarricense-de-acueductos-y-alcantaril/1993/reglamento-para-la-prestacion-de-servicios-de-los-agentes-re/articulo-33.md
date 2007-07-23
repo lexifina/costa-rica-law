@@ -1,1 +1,0 @@
-Artículo 33.—El Agente Recaudador asume total responsabilidad por daños, siendo sancionado con suspensión de servicios como consecuencia de la no entrega a tiempo del recibo cancelado o el extravío del mismo. También será responsable en los casos en que reciban pagos después de la fecha, de vencimiento indicada en este, salvo lo expresado en el artículo 28.

@@ -1,1 +1,0 @@
-Artículo 7°—El Instituto podrá aceptar o rechazar las ofertas de prestación de servicios de recaudación, tomando en consideración los requisitos exigidos y la conveniencia de sus intereses institucionales.

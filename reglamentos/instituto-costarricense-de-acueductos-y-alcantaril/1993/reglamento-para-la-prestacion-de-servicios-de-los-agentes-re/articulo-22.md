@@ -1,1 +1,0 @@
-Artículo 22—En el caso de agentes recaudadores nuevos, el monto de la garantía se calculará tomando como parámetro una estimación de su recaudación anual, basado en las estadísticas de recaudaciones que mantiene el Instituto.

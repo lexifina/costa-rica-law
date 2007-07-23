@@ -1,1 +1,0 @@
-Artículo 19.-Formalizado el contrato señalado en el artículo anterior División Jurídica remitirá copia del mismo a las partes interesadas, con el fin de que se coordine lo necesario para poner en marcha el servicio.

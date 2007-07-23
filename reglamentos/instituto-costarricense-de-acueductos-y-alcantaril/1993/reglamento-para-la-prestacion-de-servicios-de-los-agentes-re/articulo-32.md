@@ -1,1 +1,0 @@
-Artículo 32.—El Agente Recaudador deberá manipular con el debido cuidado entregar en perfecto estado al Instituto los recibos cobrados, los comprobantes de depósitos bancarios y la lista indicada en el artículo 30.

@@ -1,2 +1,0 @@
-Artículo 30.—El Agente Recaudador, deberá entregar, antes del mediodía a la Sección de Control de Ingresos del Departamento de Recaudación o a la Oficina Regional correspondiente del Instituto, todos los talones de recibos cobrados el día anterior, adjuntando una copia del depósito bancario realizado, y lista que contenga número de cuenta y el monto de los recibos cobrados.
-En el caso de agentes recaudadores de comunidades rurales contempladas artículo anterior, la entrega de esta documentación podrá realizarse cada 8 días.

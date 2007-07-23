@@ -1,1 +1,0 @@
-Artículo 40.—La Unidad de Control de Agentes Recaudadores del Departamento de Recaudación y las oficinas Subregionales atenderán e investigarán solamente los reclamos de los abonados por deficiencias de la cobranza realizada, por los Agentes Recaudadores. Asimismo elaborarán reportes semestrales, para la garantía sobre el funcionamiento de estos.
