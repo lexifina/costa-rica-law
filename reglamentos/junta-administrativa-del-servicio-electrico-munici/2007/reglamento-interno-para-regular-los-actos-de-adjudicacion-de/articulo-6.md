@@ -1,0 +1,1 @@
+Artículo 6- Cuando las ofertas recomendadas se presenten en moneda extranjera, para efectos de determinar cuál es órgano competente para adjudicar, se tomará como limite económico la suma de todas las fórmulas adjudicadas, calculadas al tipo de cambio vigente al día del acto de apertura de las ofertas.
