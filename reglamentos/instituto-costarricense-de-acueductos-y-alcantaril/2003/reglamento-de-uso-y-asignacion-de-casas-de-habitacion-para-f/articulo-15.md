@@ -1,1 +1,2 @@
-Artículo 15.—En todos los casos el funcionario asumirá la totalidad del importe por concepto del recibo telefónico y luz eléctrica.
+Artículo 15.—En todos los casos el funcionario asumirá la totalidad del pago por concepto de recibo telefónico y AyA le reconocerá únicamente la tarifa básica. Para efectos del pago, el funcionario enviará al Área Financiera el recibo pagado y se le confeccionará un cheque para devolverle el monto correspondiente a la tarifa básica. AYA asumirá el pago de los impuestos territoriales y municipales.
+(Así reformado mediante sesión N° 046 del 24 de julio de 2007)

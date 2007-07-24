@@ -14,3 +14,4 @@ Reglamento de uso y asignación de casas de habitación para funcionarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-27 | la propia norma |
+| 2 | 2007-07-24 | Reglamento 46 (2007-07-24) |

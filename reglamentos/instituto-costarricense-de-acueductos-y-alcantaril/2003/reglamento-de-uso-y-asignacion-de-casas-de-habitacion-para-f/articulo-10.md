@@ -1,1 +1,1 @@
-Artículo 10.—Cesará de inmediato el beneficio de vivienda, a los funcionarios que realicen fiestas que alteren el sosiego público, que introduzcan drogas prohibidas en su seno familiar, o realicen actos de violencia doméstica u otros ilícitos, para ello bastará con que exista denuncia en trámite en la vía judicial o administrativa.
+Artículo 10.—(Así derogado mediante sesión N° 046 del 24 de julio de 2007)
