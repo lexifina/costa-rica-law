@@ -14,3 +14,4 @@ Reforma Reglamento del Comité de Riesgos de Popular Sociedad de Fondos de Inver
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-24 | la propia norma |
+| 2 | 2007-07-24 | Reglamento 213 (2007-07-16) |
