@@ -3,4 +3,5 @@ a. Ser documentos originales, estar timbrados, membretados o dispensados del mis
 b. Especificar claramente la y detalle de la compra o servicio recibido, la cual deberá ser igualo posterior a la fecha de emisión del vale.
 c. Indicar claramente y con detalle la compra o servicio recibido, la cual debe coincidir con lo estipulado en el vale y traer impreso el sello de cancelado de la casa proveedora o tiquete de caja y por ningún motivo, deben contener tachaduras ni borrones.
 d. Si la factura no tiene logotipo debe indicarse el nombre, el número de cédula de la persona t1sica o jurídica que suministra el bien o servicio y sus especificaciones.
-e. Venir firmados por el reverso, por la Jefatura inmediata, como requisito de comprobación de la adquisición del bien o servicio correspondiente.
+e. Venir firmados por el reverso, por el encargado de la bodega, como requisito de comprobación de la adquisición del bien o servicio correspondiente, si este no se encontrara deberá venir avalado en segunda instancia por el jefe Inmediato de cada departamento.
+(Así reformado el inciso anterior mediante sesión N° 53 del 24 de julio de 2007)

@@ -18,5 +18,6 @@ h. Fondo de Caja Chica: Fondo que contiene recursos para la adquisición de bien
 i. Liquidación: Rendición de cuentas que efectúa el responsable del vale de caja chica mediante presentación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos.
 j. Municipalidad: La Municipalidad del Cantón de Pococí.
 k. Tesorero Municipal: El jefe del departamento de tesorería, en la persona de su titular, o bien, en la persona de quien lo sustituya en ese mismo cargo por motivo de vacaciones, incapacidad, permiso con o sin goce de salario o cualesquiera otro motivo.
-l. Reintegro de fondos: Solicitud de reintegro de dinero que efectúa la tesorería municipal al fondo de caja chica para cubrir los gastos efectuados.
-m. Viáticos: Son los gastos de viaje en el interior del país y se pagarán por medio de este fondo siempre y cuando no supere el monto máximo establecido para el vale; también puede conceptuarse como tales, los gastos de viaje fuera del país, referente al pago de timbres de salida y los gastos menores como la compra de presentes que deban llevar los funcionarios en tales viajes.
+l. Reintegro de fondos: Liquidación de gastos que efectúa el responsable o encargado del fondo de Caja Chica para reponer el efectivo o dinero gastado
+(Así reformado el inciso anterior mediante sesión N° 53 del 24 de julio de 2007)
+m. (Eliminado este inciso mediante sesión N° 53 del 24 de julio de 2007)

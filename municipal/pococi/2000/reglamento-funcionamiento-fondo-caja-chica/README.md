@@ -14,3 +14,4 @@ Reglamento Funcionamiento Fondo Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-02 | la propia norma |
+| 2 | 2007-07-24 | Reglamento municipal 53 (2007-07-24) |
