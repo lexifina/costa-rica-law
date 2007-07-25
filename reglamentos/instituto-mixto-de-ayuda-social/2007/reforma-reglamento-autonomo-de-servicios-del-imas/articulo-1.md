@@ -1,0 +1,12 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+MODIFICACIÓN AL ARTÍCULO 97 DEL
+REGLAMENTO AUTÓNOMO DE SERVICIOS
+El Consejo Directivo del IMAS en el acuerdo número ciento setenta y cuatro, del catorce de mayo del dos mil siete, aprueba la modificación del artículo 97 del Reglamento Autónomo de Servicios.
+Considerando:
+I.—Que mediante acuerdo Nº 386-99 del 6 de octubre de 1999, se aprobó por parte del Consejo Directivo el Reglamento Autónomo de Servicios del Instituto Mixto de Ayuda Social.
+II.—Que una vez implementado el mismo y al darse algunos cambios en la normativa laboral a nivel nacional, se hace necesario su adaptación a la coyuntura actual, por lo que la Presidencia Ejecutiva y la Gerencia General giraron las instrucciones respectivas a efectos de actualizar el Reglamento Autónomo de Servicios propiamente en lo relativo al artículo 97, a efectos de que se reconozca la licencia con goce de salario a los funcionarios que cumplen años de nacimiento.
+III.—Que de conformidad con información recolectada por Recursos Humanos, en otras instituciones del sector público se tiene implementado el reconocimiento institucional del natalicio a sus funcionarios, otorgándoles tiempo libre, tal y como es el caso de la Dirección General del Servicio Civil, Ministerio de Trabajo y Seguridad Social, Ministerio de Seguridad Pública, Ministerio de Justicia y Gracia, Ministerio de Salud, Acueductos y Alcantarillados. Por lo que con la finalidad de reconocer el esfuerzo del capital humano en su lucha por erradicar la pobreza así como de instaurar un sistema equitativo entre los servidores públicos, se considera conveniente el reconocimiento del día del cumpleaños de cada colaborador.
+IV.—Que en conformidad con lo dispuesto en el artículo 17, inciso f), del Reglamento a la Ley del IMAS (Decreto Ejecutivo Nº 26940-MIVAH-MTSS), es competencia de este Consejo Directivo aprobar los Reglamentos de la Institución. Por tanto:
+SE ACUERDA:
+1º—Modificar el artículo 97 del Reglamento Autónomo de Servicios aprobado por acuerdo Nº CD-386-99 de acta 080-99 de fecha 6 de octubre de 1999 de Consejo Directivo, con el fin de que se le adicione un inciso 13) que establezca como parte de las licencias con goce de salario para los servidores de la Institución, lo siguiente:
+“El día en que el servidor cumpla años de edad, siempre y cuando esa fecha coincida con un día hábil. Dicha licencia no podrá ser acumulada, pospuesta o fraccionada, excepto que por razones de interés público así se requiera”.
