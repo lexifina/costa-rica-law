@@ -1,0 +1,1 @@
+Articulo 12.—Formato de presentación de liquidaciones. Para la presentación de las liquidaciones, todas las entidades beneficiarias deberán utilizar un único formato el que será suministrado por la Unidad Administrativo-Financiero por medios electrónicos.

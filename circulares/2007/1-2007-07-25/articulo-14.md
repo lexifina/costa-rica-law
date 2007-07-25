@@ -1,0 +1,1 @@
+Artículo 14.—Presentación de resultados. Con el fin de dar cumplimiento al artículo 8, el jerarca de la institución solicitante deberá aportar un informe anual, al 31 de diciembre de cada año, sobre los logros alcanzados y el cumplimiento de los objetivos institucionales, de manera que la Dirección General y el Consejo Directivo puedan tomar las acciones correspondientes.
