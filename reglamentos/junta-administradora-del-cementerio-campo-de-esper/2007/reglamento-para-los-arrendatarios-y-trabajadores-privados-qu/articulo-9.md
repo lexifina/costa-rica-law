@@ -1,0 +1,2 @@
+Artículo 9º—Los trabajadores privados no podrán realizar labores de albañilería en el cementerio, durante los dos días anteriores y el mismo día del padre, de la madre y de los difuntos.
+Del mismo modo, todos los residuos de materiales, escombros y similares deberán ser eliminados o en su defecto recogidos para esas fechas, de modo tal, que los trabajos que se están realizando, permanezcan bajo estricto orden, ornato, aseo, así como las instalaciones respectivas para evitar accidentes o pérdidas materiales a funcionarios, arrendatarios y público en general en esas fechas.

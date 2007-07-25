@@ -1,0 +1,1 @@
+Artículo 14.—Ningún trabajador privado o persona alguna podrá sacar del Campo Santo, imágenes, placas y otros objetos similares, sin la autorización escrita firmada por el arrendatario y autenticada por un abogado y el visto bueno por parte de la Junta Administradora.

@@ -1,0 +1,6 @@
+Artículo 17.—La Junta Administradora determina que las medidas de construcción de los nichos es la siguiente: 0,80 x 2,50 m, con una altura de 60 cm o aquellas que previamente y por escrito hayan sido autorizadas por la Junta Administradora. Los nichos deberán construirse de conformidad con lo siguiente:
+a) Construir las paredes en ladrillo de barro cocido, colocados a tesón y soga. En este caso se necesitan como mínimo, 400 ladrillos, 3 sacos de mortero de pega de cemento. El nicho debe quedar repellado y afinado por dentro y por fuera.
+b) Construir las paredes en concreto armado, usando bloques de 12x20x40. En este caso se deben utilizar mínimo, 45 blocks, 3 sacos de cemento, 5 varillas de 3/8 y medio metro de arena. El nicho debe quedar repellado y afinado por dentro y por fuera.
+c) Para la fosa de cierre se requiere una chorrea de una losa de 10 cm. de espesor.
+d) Las bases sobre las que se construyen los nichos deben medir 2,20 metros de largo por 1,25 metros de ancho. Los nichos deberán quedar debidamente “d) aplomados y nivelados”. Por último, una vez finalizado el trabajo se debe de dejar limpio el lugar y recoger la basura y el escombro sobrante.
+e) La Junta Administradora proporcionará el plano con el diseño de la construcción de las bóvedas, con el fin de conservar la uniformidad de las construcciones.
