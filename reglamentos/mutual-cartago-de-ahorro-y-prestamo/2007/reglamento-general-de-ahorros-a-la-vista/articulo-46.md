@@ -1,0 +1,2 @@
+Artículo 46.—Del bloqueo al acceso remoto. Ante una situación como la descrita en el artículo anterior, MUCAP tomará nota de la comunicación y procederá a deshabilitar el acceso remoto a la cuenta del denunciante.
+Para habilitar el acceso remoto nuevamente, el denunciante deberá presentarse a MUCAP y solicitar una nueva clave de banca electrónica. Si el perjudicado es un tercero autorizado el cuenta ahorrante titular deberá presentarse a MUCAP y autorizarlo nuevamente.

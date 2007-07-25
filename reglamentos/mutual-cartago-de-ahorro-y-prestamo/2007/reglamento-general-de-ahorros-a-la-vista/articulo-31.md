@@ -1,0 +1,3 @@
+Artículo 31.—De la actualización de la libreta o reporte de transacciones. En la libreta o reporte de transacciones de las cuentas de ahorros, se indicará el saldo y las transacciones de depósitos, notas de crédito, acreditación de intereses, retiros y notas de débito.
+Las actualizaciones en el reporte o libreta se realizarán únicamente en las oficinas de la MUCAP por los medios que ésta tenga dispuestos para ese fin, y dentro del horario normal de atención para el público.
+La información del reporte o libreta se actualizará cada vez que se realice una transacción o que expresamente el cliente solicite su actualización.

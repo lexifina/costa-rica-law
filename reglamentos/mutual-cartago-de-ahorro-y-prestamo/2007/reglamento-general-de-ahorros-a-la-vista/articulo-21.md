@@ -1,0 +1,1 @@
+Artículo 21.—Constitución de la cuenta de ahorros a la vista. La cuenta de ahorros a la vista se constituye mediante la firma del contrato respectivo en aceptación, por parte del cuenta ahorrante, de las cláusulas contractuales que contiene este Reglamento, a lo que se agregará la firma del “Control de Firmas” y la “Solicitud de Servicios Financieros”.

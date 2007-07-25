@@ -1,0 +1,1 @@
+Artículo 11.—De la sustitución de beneficiarios. El cuenta ahorrante podrá revocar, en cualquier tiempo, los beneficiarios designados en su cuenta o cuentas, siempre y cuando lo haga por escrito, y podrá instituir otro u otros beneficiarios.
