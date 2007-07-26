@@ -1,2 +1,0 @@
-Artículo 37.—Subperíodos a considerar en la programación financiera. Para efectos de la programación financiera mensual corresponderá a la Tesorería Nacional establecer los subperíodos que deberán considerarse y lo comunicará formalmente con al menos un mes de anticipación a su entrada en vigencia.
-La presentación mensual de la programación financiera debe indicar los ingresos y egresos para cada subperíodo de conformidad con los criterios que al efecto establezca la Tesorería Nacional.

@@ -1,1 +1,0 @@
-Artículo 62.—Cierre de cuentas temporales. Una vez transcurrido el plazo para el que fueron autorizadas, será responsabilidad de las entidades participantes gestionar ante su entidad financiera el cierre de las cuentas abiertas que hayan sido autorizadas temporalmente, coordinando lo correspondiente con la Tesorería Nacional para el traslado de los fondos a la CCU.

@@ -1,1 +1,0 @@
-Artículo 40.—Pagos programados que se deban postergar. Las entidades participantes están en la obligación de actualizar su programación financiera mensual en forma inmediata para aquellos casos en que se determine que un pago programado no se va a realizar, o se va a realizar en un mes posterior.

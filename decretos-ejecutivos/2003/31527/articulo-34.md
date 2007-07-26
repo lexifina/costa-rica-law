@@ -1,1 +1,0 @@
-Artículo 34.—Formulación. La formulación de la programación financiera será responsabilidad de cada entidad participante. Dicha formulación deberá considerar los ingresos y egresos totales, en función de las necesidades y compromisos de cada entidad, en atención a los lineamientos y orientaciones que establezca la Tesorería Nacional para su formulación.

@@ -1,1 +1,0 @@
-Artículo 16.—Operación del Sistema de Caja Única. Será responsabilidad de la entidad participante la correcta utilización del Sistema de Caja Única, así como definir, divulgar y utilizar procedimientos internos adecuados para su uso. De igual forma, será responsable por definir un ambiente y/o esquema de seguridad que garantice un acceso restringido al mismo.

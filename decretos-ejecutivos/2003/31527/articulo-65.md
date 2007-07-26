@@ -1,1 +1,0 @@
-Artículo 65.—Modelo de operación transitorio. Mientras se desarrolla el sistema de caja única, se operará transitoriamente utilizando la plataforma tecnológica del SINPE y sus diferentes servicios, recurriéndose a la apertura de cuentas de reserva para cada una de las entidades participantes que se incorporen a este modelo de operación transitorio.

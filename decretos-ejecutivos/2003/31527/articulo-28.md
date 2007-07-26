@@ -1,1 +1,0 @@
-Artículo 28.—Cambios en operativas de pago y cobro. La Tesorería Nacional podrá solicitar cambios en las modalidades de pago utilizadas por determinada entidad participante, con el objetivo de disminuir los costos asociados a esta operativa.

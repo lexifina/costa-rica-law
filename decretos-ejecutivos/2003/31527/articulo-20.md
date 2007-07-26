@@ -1,2 +1,0 @@
-Artículo 20.—Servicios de recaudación. La recaudación por la prestación de los diversos servicios brindados por cada entidad participante, se realizará por medio de cobros electrónicos a las cuentas de los clientes, a excepción de aquellos autorizados por la Tesorería Nacional para operar con algún otro mecanismo.
-En todo caso, la entidad participante será responsable de incentivar el uso de los servicios electrónicos de recaudación, considerando la disminución de costos operativos y la calidad del servicio obtenido con este tipo de mecanismos.

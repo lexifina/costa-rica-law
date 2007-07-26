@@ -1,1 +1,0 @@
-Artículo 11.—Intereses. Los saldos depositados en las CCU formarán parte de la Caja Única de Estado y no generarán intereses a favor de la entidad participante, habida cuenta de que el Banco Central no reconoce intereses sobre los saldos depositados en las cuentas de reserva.

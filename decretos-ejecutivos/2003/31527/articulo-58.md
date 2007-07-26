@@ -1,1 +1,0 @@
-Artículo 58.—Intereses generados en cuentas autorizadas. Los dineros que reciba la entidad participante producto de intereses generados en alguna cuenta autorizada, deberán ser trasladados en forma mensual a la Tesorería Nacional. Estos intereses serán acreditados al Fondo General del Gobierno.

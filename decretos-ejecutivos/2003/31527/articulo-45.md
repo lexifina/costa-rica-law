@@ -1,1 +1,0 @@
-Artículo 45.—Mecanismos de traslado de fondos. El traslado de fondos a la Caja Única se debe gestionar por medio de la entidad financiera en donde la institución participante mantenga sus fondos, para lo cual se utilizará una transferencia electrónica de fondos hacia la Cuenta de Caja Única de la entidad participante.

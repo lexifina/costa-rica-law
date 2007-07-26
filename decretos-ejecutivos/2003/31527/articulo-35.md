@@ -1,1 +1,0 @@
-Artículo 35.—Presentación anual. Las entidades participantes deberán presentar ante la Tesorería Nacional su programación financiera anual, la cual abarcará el periodo del 1 de enero al 31 de diciembre del año en cuestión. Esta información se enviará por los medios que defina la Tesorería Nacional, a más tardar el 15 de diciembre del año previo al que se está programando.

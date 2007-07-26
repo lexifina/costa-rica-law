@@ -1,3 +1,0 @@
-CAPÍTULO X
-Incorporación de recursos a la Caja Única
-Artículo 43.—Cierre de cuentas existentes en entidades financieras. Las entidades participantes deberán gestionar el cierre de todas sus cuentas corrientes o de ahorro. Los saldos existentes al momento del cierre deberán ser trasladados a la Caja Única debiendo dejarse constancia precisa de la razón del traslado. Será responsabilidad de la entidad participante coordinar todas estas acciones con suficiente antelación ante la respectiva entidad financiera, con el objetivo de hacer los traslados de fondos según se haya coordinado con la Tesorería Nacional.

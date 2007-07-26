@@ -1,1 +1,0 @@
-Artículo 24.—Cambios en operativas de recaudación. La Tesorería Nacional podrá solicitar cambios en los mecanismos de recaudación utilizados por determinada entidad participante, con el objetivo de disminuir los costos asociados a los procesos de recaudación en general.

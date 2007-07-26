@@ -1,3 +1,0 @@
-Artículo 12.—Tipos de Saldo. Las CCU mantendrán dos tipos de saldos:
-a) Saldo contable: Este saldo especifica el importe total depositado en la CCU. Equivale al monto registrado por la Contabilidad Nacional como Pasivo (cuenta por pagar a la entidad participante), así como al monto registrado por la propia entidad participante como Activo en sus registros contables.
-b) Saldo disponible: Este saldo especifica el saldo a la vista que tiene la entidad participante. Este saldo estará en función de la programación financiera realizada por la propia entidad participante, así como los pagos efectivamente realizados durante el período en cuestión y equivale al límite de gasto en determinado momento, independientemente del monto especificado en el saldo contable de la CCU.

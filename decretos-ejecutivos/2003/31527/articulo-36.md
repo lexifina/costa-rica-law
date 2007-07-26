@@ -1,1 +1,0 @@
-Artículo 36.—Presentación mensual. Las entidades participantes deberán presentar ante la Tesorería Nacional su programación financiera mensual, misma que permitirá precisar con mayor exactitud la información de la programación anual. Esta información se enviará por los medios que defina la Tesorería Nacional, dentro de los cinco días hábiles anteriores al inicio de cada mes.

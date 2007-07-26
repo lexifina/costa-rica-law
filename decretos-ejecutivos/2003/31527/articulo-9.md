@@ -1,1 +1,0 @@
-Artículo 9º—Naturaleza contable de las cuentas. Los saldos existentes en las CCU pertenecerán a la respectiva entidad participante. La Contabilidad Nacional deberá clasificar estos importes como pasivos en la contabilidad patrimonial del Gobierno Central.

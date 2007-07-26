@@ -1,3 +1,0 @@
-CAPÍTULO III
-De la estrategia para la implementación
-Artículo 5º—Proceso para la Implementación del Principio de Caja Única. A efecto de llevar a cabo la implementación eficaz y eficiente del principio de Caja Única se desarrollará un proceso gradual y ordenado bajo la coordinación de la Tesorería Nacional en su papel de Ente Rector del Subsistema de Tesorería. Para la definición de las etapas del proceso y de las instituciones que se incorporarán en cada una de ellas se tomará en consideración los requerimientos de sistemas de información, equipo, capacitación y demás aspectos que resulten necesarios, tanto para el Ente Rector como para las entidades participantes.

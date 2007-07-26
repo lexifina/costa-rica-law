@@ -1,2 +1,0 @@
-Artículo 23.—Comisiones. Las comisiones por concepto de recaudación que se tengan con alguna entidad financiera, deben ajustarse a las tarifas establecidas entre el Ministerio de Hacienda y dichas entidades.
-El Ministerio de Hacienda será el responsable de velar por el establecimiento de una tarifa justa en relación al servicio de recaudación. Cualquier cambio en esta tarifa deberá ser comunicado a todas las entidades participantes con al menos tres meses de antelación.

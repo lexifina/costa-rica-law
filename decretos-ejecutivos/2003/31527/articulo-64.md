@@ -1,3 +1,0 @@
-CAPÍTULO XII
-Operativas transitorias
-Artículo 64.—Objetivo. Con el objetivo primordial de disminuir la complejidad del cambio de la operativa actual a la operativa propuesta para el Sistema de Caja Única, se dispondrá de un modelo de operación transitorio que permitirá a las entidades participantes interactuar con un sistema similar al Sistema de Caja Única. Este modelo operará a partir de la entrada en vigencia de este reglamento y hasta que entre en operación el Sistema de Caja Única. Asimismo, con el fin de propiciar la utilización de dicho modelo transitorio podrá coordinar con la entidad el traslado de fondos a la Caja Única y la utilización de transferencias periódicas para hacer frente a los gastos programados por la entidad participante.

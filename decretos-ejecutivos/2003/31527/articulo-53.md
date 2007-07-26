@@ -1,1 +1,0 @@
-Artículo 53.—Acceso en línea a consulta de saldos y movimientos. Una vez que la cuenta solicitada esté abierta, la entidad participante deberá comunicar a la Tesorería Nacional los datos generales de la misma, así como los códigos de acceso para acceder en modo "consulta" a sus saldos y movimientos.

@@ -1,2 +1,0 @@
-Artículo 67.—Traslado de fondos a la Caja Única. La Tesorería Nacional podrá solicitar el traslado de fondos de la Cuenta de Reserva de la entidad participante al Fondo General del Gobierno, siempre y cuando la entidad participante no requiera de dichos fondos para hacer frente a sus compromisos.
-La Tesorería Nacional está en la obligación de presentar Estados de Cuenta mensuales por los fondos recibidos y de reponer estos dineros conforme lo convenido con la entidad participante.

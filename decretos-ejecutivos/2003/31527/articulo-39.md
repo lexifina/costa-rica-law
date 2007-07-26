@@ -1,1 +1,0 @@
-Artículo 39.—Cambios en los períodos establecidos. La Tesorería Nacional podrá realizar cambios en cuanto al período de la programación financiera, así como las fechas de envío de ésta, de tal forma que se pueda reaccionar ante cambios relacionados con los períodos de recaudación nacional y otros mecanismos de captación tales como subasta, entre otros.

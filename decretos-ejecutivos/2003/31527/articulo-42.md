@@ -1,2 +1,0 @@
-Artículo 42.—Acciones en caso de no realización de pagos. En caso de que la Tesorería Nacional detecte una desviación mayor o igual a un 5% en la programación financiera presentada por la entidad participante procederá a notificar por escrito de esta situación.
-En caso de que se presente durante tres meses seguidos este tipo de situaciones, la Tesorería Nacional estará en potestad de ajustar los límites de gasto para la entidad, sin responsabilidad por los eventuales retrasos en los pagos solicitados por ésta.
