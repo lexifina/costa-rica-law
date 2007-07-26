@@ -1,1 +1,1 @@
-Artículo 35.—La Subárea Gestión de Crédito, es la unidad designada para analizar las ofertas con financiamiento, bajo los términos del Reglamento de Créditos y remitirlas al Comité de Créditos, para su aprobación final.
+Artículo 35.— La Subárea Gestión de Crédito, es la unidad designada para analizar las ofertas con financiamiento, bajo los términos del Reglamento de Créditos y remitirlas al Comité de Créditos, para su aprobación final.

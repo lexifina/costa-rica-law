@@ -1,1 +1,2 @@
-Artículo 40.—El oferente tendrá cinco días hábiles para depositar el dinero respectivo, según las condiciones de la oferta presentada, una vez en firme el acto. No obstante, este plazo será de 90 días para aquellas ofertas con financiamiento externo.
+Artículo 40.—Contra el acto de adjudicación procederán los recursos de revocatoria y apelación, cuyo plazo de interposición será dentro de los cinco días hábiles siguientes al día en que se comunicó formalmente la respectiva adjudicación. Deberá ser presentado y tramitado ante el Órgano que dictó la adjudicación.
+(Este artículo fue renumerado, mediante sesión N° 8172 de 26 de julio de 2007, que lo trasladó del anterior artículo 39 al 40 actual).

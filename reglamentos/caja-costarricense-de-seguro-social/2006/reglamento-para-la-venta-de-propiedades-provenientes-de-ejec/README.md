@@ -14,3 +14,4 @@ Reglamento para la Venta de Propiedades Provenientes de Ejecuciones de Garantía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-03 | la propia norma |
+| 2 | 2007-07-26 | Reglamento 8172 (2007-07-26) |

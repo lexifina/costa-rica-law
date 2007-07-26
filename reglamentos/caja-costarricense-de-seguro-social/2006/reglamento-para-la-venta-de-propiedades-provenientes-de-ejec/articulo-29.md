@@ -1,1 +1,1 @@
-Artículo 29.—La Institución contará con un máximo de treinta días hábiles desde la apertura de las ofertas para llevar a cabo la adjudicación del inmueble. Bajo los principios de inmediatez y economía procesal, la Caja podrá adjudicar la venta por ítem separado.
+Artículo 29.— La Institución contará con un máximo de treinta días hábiles desde la apertura de las ofertas para llevar a cabo la adjudicación del inmueble. Bajo los principios de inmediatez y economía procesal, la Caja podrá adjudicar la venta por ítem separado.

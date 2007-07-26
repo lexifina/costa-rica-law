@@ -1,2 +1,3 @@
 Del traspaso del inmueble:
-Artículo 42.—Los trámites y gastos de formalización en el caso de venta directa con Instituciones del Estado, estará a cargo de la Notaría del Estado.
+Artículo 42.—En firme el acto de adjudicación se procederá al traspaso del inmueble mediante escritura pública otorgada por Notario Externo de la Caja. Este otorgamiento no podrá superar de quince días hábiles, pasada la firmeza indicada. Los gastos de traspaso correrán por cuenta del adquirente (lo destacado corresponde al texto que se reforma; así reformado en el artículo 12º de la sesión número 8172 del 26 de julio del presente año).
+(Este artículo fue reformado y renumerado, mediante sesión N° 8172 de 26 de julio de 2007, que lo trasladó del anterior artículo 41 al 42 actual).

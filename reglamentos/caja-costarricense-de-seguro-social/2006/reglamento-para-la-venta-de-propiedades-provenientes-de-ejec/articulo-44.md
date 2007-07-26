@@ -1,1 +1,2 @@
-Artículo 44.—El presente Reglamento deja sin efecto el procedimiento establecido por la Junta Directiva mediante el artículo 2º de la sesión Nº 7124 celebrada el 6 de mayo de 1997 y sus reformas posteriores.
+Artículo 44.—Dentro del mes calendario una vez aprobado este Reglamento por parte de la Junta Directiva , se promulgará el respectivo Instructivo de Procedimientos para la Venta de Propiedades Provenientes de Ejecuciones de Garantías Hipotecarias o Pago de Obligaciones del Régimen de Pensiones de la Caja Costarricense de Seguro Social.
+(Este artículo fue renumerado, mediante sesión N° 8172 de 26 de julio de 2007, que lo trasladó del anterior artículo 43 al 44 actual).
