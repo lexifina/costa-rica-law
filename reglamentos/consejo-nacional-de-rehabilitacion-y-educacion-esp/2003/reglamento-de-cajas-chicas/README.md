@@ -14,3 +14,4 @@ Reglamento de Cajas Chicas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-08 | la propia norma |
+| 2 | 2007-07-26 | Reglamento 887 (2007-07-26) |
