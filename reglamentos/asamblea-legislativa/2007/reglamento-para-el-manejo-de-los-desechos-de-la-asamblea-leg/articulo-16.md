@@ -1,0 +1,1 @@
+Artículo 16.—Las empresas recuperadoras, en coordinación con las instituciones beneficiadas con la donación de desechos, harán llegar a la Dirección Ejecutiva de la Asamblea Legislativa un reporte mensual sobre el uso y destino de los fondos recaudados por la venta de desechos.

@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Comisión Institucional de Reciclaje
+Artículo 19.—La Dirección Ejecutiva designará a los integrantes de la Comisión Institucional de Reciclaje, de conformidad con el articulo 21 del presente Reglamento. Esta Comisión se encargará de recomendar a la administración de la Asamblea Legislativa, las políticas relativas al reciclaje; además, periódicamente coordinará, con el Departamento de Relaciones Públicas, Prensa y Protocolo, campañas de concientización sobre la recuperación de materiales sólidos para reciclaje; asimismo, coordinará con el Departamento de Recursos Humanos la capacitación de todos los funcionarios sobre el manejo de dichos materiales.

@@ -1,0 +1,1 @@
+Artículo 11.—En cuanto al manejo del recurso hídrico y en la medida de sus posibilidades, los ujieres que atienden las comisiones y el Plenario Legislativo, deberán reembasar el agua no utilizada, para que esta se utilice posteriormente en el riego de jardines, lavado de carros o limpieza de pisos, esto con el fin de maximizar este recurso.

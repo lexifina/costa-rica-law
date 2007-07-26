@@ -1,0 +1,1 @@
+Artículo 6º—La Unidad de Ujieres proporcionará por cada oficina y máquina fotocopiadora, una caja de cartón, en la que el funcionario depositará el papel de desecho. El papel periódico deberá almacenarse en un sitio específico de la oficina y, cuando ya se haya acumulado cierta cantidad de material, se comunicará a la Unidad de Ujieres para su debida recolección.

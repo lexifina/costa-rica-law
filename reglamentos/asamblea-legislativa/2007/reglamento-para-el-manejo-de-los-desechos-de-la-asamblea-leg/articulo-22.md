@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Sanciones
+Artículo 22.—Cualquier infracción que un funcionario cometa en contra de este Reglamento, autoriza a su jefe inmediato a llamarle la atención. Si el hecho se repite, el jefe deberá reportar la infracción al Director Ejecutivo en forma inmediata, a fin de que se inicie el procedimiento administrativo, de conformidad con la Ley de Personal de la Asamblea Legislativa, El Reglamento Autónomo de Servicio de la Asamblea Legislativa, la Ley General de la Administración Pública, el Estatuto del Servicio Civil y su Reglamento, el Código de Trabajo y la demás legislación vigente aplicable al caso.

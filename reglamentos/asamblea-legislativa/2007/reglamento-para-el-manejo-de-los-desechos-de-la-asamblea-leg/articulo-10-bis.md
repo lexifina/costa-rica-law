@@ -1,0 +1,1 @@
+Artículo 10 bis.—Para el manejo de desechos de tipo médico, el Departamento de Servicios de Salud deberá proveer su recolección en forma adecuada y ser trasladada en forma independiente a los desechos ordinarios.

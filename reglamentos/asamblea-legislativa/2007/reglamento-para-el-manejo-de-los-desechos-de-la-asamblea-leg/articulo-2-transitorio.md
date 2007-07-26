@@ -1,0 +1,1 @@
+Transitorio II.—En un plazo de treinta días hábiles, contados a partir de la vigencia del presente Reglamento, el Departamento de Recursos Humanos iniciará la capacitación de los funcionarios legislativos en cuanto a la importancia del adecuado manejo de desechos sólidos y del reciclaje. Iniciará esta capacitación el personal de la Unidad de Ujieres.

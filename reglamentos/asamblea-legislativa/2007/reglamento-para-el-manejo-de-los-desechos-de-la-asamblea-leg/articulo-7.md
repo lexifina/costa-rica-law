@@ -1,0 +1,1 @@
+Artículo 7º—El ujier encargado de limpiar cada oficina deberá contar con dos bolsas para realizar su recorrido, una para depositar la basura en general, y otra para los desechos de papel de las oficinas. Estos últimos deberán ser transportados por el funcionario hasta el centro de acopio.

@@ -1,0 +1,1 @@
+Artículo 12.—El Departamento de Proveeduría se encargará del control y almacenamiento de los cartuchos de tinta para fotocopiadora (tóner) y deberá adecuar un espacio para almacenarlos, a la espera de que el Directorio Legislativo apruebe la suscripción de convenios para la donación de esos materiales.

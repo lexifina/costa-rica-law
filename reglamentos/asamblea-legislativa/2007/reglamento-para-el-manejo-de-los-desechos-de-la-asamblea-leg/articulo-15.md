@@ -1,0 +1,1 @@
+Artículo 15.—Las empresas recuperadoras deberán mantener los centros de acopio totalmente limpios y ordenados, después de cada recolección de los desechos en general; asimismo, deberá ubicar los recipientes en los espacios designados para ello y procederá a reponerlos cuando sea necesario.

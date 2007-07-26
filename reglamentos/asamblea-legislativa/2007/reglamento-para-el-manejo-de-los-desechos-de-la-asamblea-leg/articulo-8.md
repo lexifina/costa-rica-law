@@ -1,0 +1,1 @@
+Artículo 8º—En la medida de lo posible, el papel que se deposite en los recipientes deberá estar extendido; no podrá estar doblado ni arrugado; tampoco podrá contener residuos de productos químicos ni de materia biodegradable, alimentos, cenizas, materiales adhesivos, goma, cinta engomada, cejillas plásticas, grapas, resortes ni otros materiales extraños al papel.

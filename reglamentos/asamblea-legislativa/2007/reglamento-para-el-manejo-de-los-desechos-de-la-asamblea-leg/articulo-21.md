@@ -1,0 +1,1 @@
+Artículo 21.—La Comisión Institucional de Reciclaje estará integrada por un representante de cada uno de los siguientes órganos: Dirección Ejecutiva, departamentos de Recursos Humanos, Servicios de Salud, Servicios Generales y Organización y Métodos.
