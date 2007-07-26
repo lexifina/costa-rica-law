@@ -1,1 +1,0 @@
-2.Sustituir la resolución R- LACOMET-029-2005, de “Costos de Servicios Metrológicos” emitida por la COMISIÓN DE METROLOGÍA DEL LABORATORIO COSTARRICENSE DE METROLOGÍA, a las nueve horas treinta minutos del día siete de setiembre del año dos mil cinco por la presente resolución.
