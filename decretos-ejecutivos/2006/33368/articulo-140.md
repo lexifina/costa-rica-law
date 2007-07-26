@@ -1,1 +1,0 @@
-Artículo 140.—Función de los fiscales. Los fiscales de la tendencia velarán porque el proceso transcurra con la transparencia, a la vez informarán al presidente de la mesa sobre la concurrencia de situaciones especiales.

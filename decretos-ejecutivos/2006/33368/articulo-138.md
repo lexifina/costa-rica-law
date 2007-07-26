@@ -1,1 +1,0 @@
-Artículo 138.—Acondicionamiento sitio de votación. Para garantizar el secreto del voto se acondicionará un sitio separado de la mesa receptora de modo que impida observar la decisión de los electores.

@@ -1,1 +1,0 @@
-Artículo 158.—Requisitos para el ejercicio del auxiliar de enfermería. Toda persona que desee trabajar como Auxiliar de Enfermería deberá haber completado el programa de formación para auxiliares de enfermería impartido por el CENDEISSS o en cumplimiento del artículo 163 de este reglamento y contar con la licencia respectiva otorgada por este Colegio.

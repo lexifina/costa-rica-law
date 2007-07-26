@@ -1,1 +1,0 @@
-Artículo 32.—Plazo de la convocatoria. En el caso de las asambleas ordinarias y extraordinarias deberán convocarse al menos con ocho días hábiles de antelación, mediante la publicación de un aviso, en un diario de circulación nacional.

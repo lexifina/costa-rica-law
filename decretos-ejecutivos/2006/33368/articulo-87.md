@@ -1,1 +1,0 @@
-Artículo 87.—Acceso a la información para realizar el peritaje. Es entendido que el interesado que solicitó el peritaje debe de suministrarle al perito toda la información y documentos necesarios para su labor.

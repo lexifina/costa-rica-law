@@ -1,1 +1,0 @@
-Artículo 38.—Vigencia del nombramiento. Los miembros de la Junta Directiva durarán dos años en sus funciones, no pudiendo ser reelectos por períodos sucesivos. No obstante será renovada anualmente por mitades, en el siguiente orden: Presidencia, Vocal 1, Vocal 2, Vocal 4. Fiscalía, Tesorería, Secretaria y Vocal 3.

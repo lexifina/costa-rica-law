@@ -1,2 +1,0 @@
-Artículo 50.—Definición de los alcances de las comisiones. El órgano que crea la comisión le define el área de su competencia, las obligaciones y derechos, los alcances y límites (temporales y materiales). En todo caso, el plazo máximo para rendir el informe final no podrá exceder de tres meses.
-La Asamblea General podrá delegar en la Junta Directiva la definición o concreción de las funciones de las comisiones creadas por ella.

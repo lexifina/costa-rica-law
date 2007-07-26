@@ -1,1 +1,0 @@
-Artículo 152.—Utilización del referéndum. El Colegio podrá utilizar la figura del referéndum cuando la considera conveniente para aprobar propuestas de modificación de su régimen jurídico. El referéndum no se utilizará para aumento de cuotas o aprobación o modificaciones al presupuesto. Lo que se decida en el referéndum será vinculante para los órganos del Colegio.

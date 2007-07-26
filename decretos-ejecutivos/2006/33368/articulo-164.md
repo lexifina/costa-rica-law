@@ -1,1 +1,0 @@
-Artículo 164.—Registro y archivo de auxiliares de enfermería. El Colegio llevará un registro y un archivo de aquellas personas a las que se les otorgue la licencia de auxiliares de enfermería, como requisito indispensable para trabajar aplicando los conocimientos técnicos adquiridos. En lo que fuere aplicable, se regirán por lo dispuesto en el artículo 16 de este Reglamento.

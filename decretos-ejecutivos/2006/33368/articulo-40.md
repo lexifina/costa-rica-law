@@ -1,1 +1,0 @@
-Artículo 40.—Quórum de funcionamiento. La Junta Directiva funcionará válidamente con cinco de sus miembros presentes. Los acuerdos se tomarán por mayoría simple; salvo que la Ley y el reglamento establezcan expresamente una mayoría diferente.
