@@ -1,0 +1,1 @@
+Artículo 18.—La convocatoria a sesiones extraordinarias deberá hacerse de acuerdo con lo que estipula/n el/los artículo/s del Código Municipal, con veinticuatro horas de anticipación o más y en ella se indicará él o los asuntos a tratar. Se convocará a los señores/as Regidores/as, Síndicos/as, Propietarios y Suplentes.

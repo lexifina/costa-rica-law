@@ -1,0 +1,1 @@
+Artículo 61.—Formarán quórum la mitad más uno de los miembros de la Comisión y sus reuniones serán públicas; lo anterior no quiere decir que se habilitará la participación abierta de quienes asistan, debiendo mediar acuerdo que se otorgue audiencia por situación especial o para que hagan uso de la palabra.

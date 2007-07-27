@@ -1,0 +1,1 @@
+Artículo 21.—El quórum para las sesiones por la conformación actual del Concejo Municipal, será de cuatro Regidores Propietarios. Este número de regidores deberá encontrarse presente en el Salón de Sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

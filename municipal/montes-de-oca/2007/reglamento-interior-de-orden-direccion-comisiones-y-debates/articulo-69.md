@@ -1,0 +1,1 @@
+Artículo 69.—De acuerdo con el artículo 52 del Código Municipal, el Auditor, Contador y Secretario del Concejo Municipal, dependen directamente de éste y su nombramiento y remoción son de su absoluta competencia. En la misma condición se encuentra el Asesor Legal del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 27.—Las sesiones del Concejo serán públicas tal y como lo estipula el Código Municipal. Por razones de espacio en el local sede (sala de sesiones) y con el fin de salvaguardar la integridad física y seguridad de quienes asistan, el sector considerado para uso del público no podrá exceder a las 40 personas.

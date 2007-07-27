@@ -1,0 +1,6 @@
+Artículo 42.—Respecto a la aprobación de las Actas del Concejo se deberá observar lo siguiente:
+a. Las actas no se votan, solo se someten a aprobación mediante un acuerdo de mero trámite que, por demás, carece de recursos, al suponer la unanimidad de los regidores.
+b. Con el trámite de aprobación del acta no debe someterse a discusión ni votación los acuerdos en ella contenidos; en su lugar conlleva la verificación de que la transcripción sucinta de las deliberaciones y acuerdos emitidos en la sesión a la que corresponde el acta, es fiel y no presenta omisiones o modificaciones.
+c. Contra el acta que presente omisiones, errores o modificaciones respecto a lo ocurrido en la sesión a la que corresponde, procede que los regidores interesados manifiesten las razones, aclaraciones, enmiendas o adiciones que estime necesarias, las que serán consignadas por el Secretario.
+d. Cuando el acta presenta errores lo que corresponde es enmendarlos y luego aprobarla, pues no es admisible la aprobación parcial de actas.
+e. Con la aprobación del acta los acuerdos que consigna adquieren firmeza y por ende eficacia, es decir, pueden ser ejecutados. A lo anterior se excepciona el caso de aquellos acuerdos que en la misma sesión en que son tomados sean declarados definitivamente aprobados, de conformidad con lo establecido en el numeral 45 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 45.—Las actas deberán ser firmadas por el Presidente y el Secretario, una vez aprobadas por el Concejo. Podrán levantarse en hojas sueltas solo si fueren previamente foliadas y selladas en la Auditoría Municipal y de acuerdo con las directrices por ellos emitidas.

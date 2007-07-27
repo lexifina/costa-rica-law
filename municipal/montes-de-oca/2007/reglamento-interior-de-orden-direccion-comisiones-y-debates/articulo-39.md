@@ -1,0 +1,1 @@
+Artículo 39.—Las sesiones del Concejo Municipal serán grabadas y de ellas, la Secretaria del Concejo poseerá un archivo electrónico de las mismas, con el fin de salvaguardar en caso de duda o prueba (instancia judicial), un respaldo de lo acontecido en dichas reuniones.

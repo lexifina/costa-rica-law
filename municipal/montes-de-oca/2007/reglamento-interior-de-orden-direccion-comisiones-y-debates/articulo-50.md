@@ -1,0 +1,1 @@
+Artículo 50.—Cuando el Código Municipal requiera para la adopción de un acuerdo, mayoría absoluta, en el caso de aquel Concejo compuesto por 7 regidores, ésta se obtendrá con cuatro votos. Cuando se señale que es mayoría simple, se requiere igual número de cuatro votos; y cuando se requiera de una mayoría calificada, se obtendrá con cinco votos de siete.

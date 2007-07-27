@@ -1,0 +1,1 @@
+Artículo 19.—En la sesión extraordinaria se conocerán exclusivamente los asuntos indicados en la convocatoria, no convirtiéndose esta en continuación -por la temática- de lo no cubierto en la sesión ordinaria anterior.

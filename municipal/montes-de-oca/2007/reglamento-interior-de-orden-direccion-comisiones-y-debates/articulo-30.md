@@ -1,0 +1,1 @@
+Artículo 30.—Dado que como ya en el Orden del Día aparece la lista de toda la correspondencia en general (en forma clara y resumiendo el fondo del asunto), no será necesario que el Secretario del Concejo la lea, sino que solamente aquella que antes o en la sesión haya sido seleccionada por algún edil y que solicite su lectura.

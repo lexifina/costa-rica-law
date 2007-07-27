@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones extraordinarias deberán celebrarse el día, hora, lugar y agenda que se indique en la respectiva convocatoria, la cual deberá responder a lo que establece el Código Municipal en esta materia.

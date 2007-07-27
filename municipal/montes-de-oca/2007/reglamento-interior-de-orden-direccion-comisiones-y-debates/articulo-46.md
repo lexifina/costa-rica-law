@@ -1,0 +1,1 @@
+Artículo 46.—Una vez aprobada y firmada el acta, así como efectuado el cierre del libro oficial por parte de la Auditoría Municipal, la Secretaria del Concejo deberá enviarlo para su debido empaste y será de acatamiento obligatorio lo que establecen las reglas de manejo y custodia establecidas por el Archivo Nacional y el Reglamento Interior del Archivo Municipal.
