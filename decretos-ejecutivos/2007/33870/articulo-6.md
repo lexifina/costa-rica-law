@@ -1,0 +1,1 @@
+Artículo 6º—El servidor que por razones de capacitación u otro motivo se vea obligado a permanecer más de un mes fuera de su lugar de trabajo y que en ese tiempo tuviera congelado su beneficio a su regreso, lo recobrará previa comunicación por escrito al Departamento de Recursos Humanos de su reintegro a las labores respectivas.

@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión de zonaje está integrada por el Director General Administrativo, el Jefe de Recursos Humanos, el Oficial Presupuestal y dos (2) representantes de los trabajadores escogidos en Asamblea de los mismos.
