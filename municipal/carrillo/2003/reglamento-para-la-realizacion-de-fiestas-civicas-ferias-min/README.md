@@ -14,3 +14,4 @@ Reglamento para la Realización de Fiestas Cívicas, Ferias, Mini-Ferias, Corrid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-01 | la propia norma |
+| 2 | 2007-07-27 | Reglamento municipal 13 (2007-07-27) |

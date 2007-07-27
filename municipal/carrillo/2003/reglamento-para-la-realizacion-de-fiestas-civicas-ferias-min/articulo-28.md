@@ -1,0 +1,2 @@
+Artículo 28.-Los artículos que modifican el presente Reglamento para la realización de Fiestas Cívicas, Ferias, Mini-ferias, Corridas de Toros, Carreras de Cintas, Topes, Motocross y Actividades Bailables en el cantón de Carrillo, deroga cualquier disposición reglamentaria municipal que se le oponga y una vez publicado en el Diario Oficial La Gaceta , entrará a regir a partir de su publicación.
+(Así adicionado mediante sesión N° 13 del 27 de julio de 2007)

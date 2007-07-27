@@ -10,5 +10,8 @@ e) Cuando se contemple el cierre de vías públicas, se debe solicitar la respec
 f) Las solicitudes promovidas por la Iglesia Católica deben contar con el aval del respectivo Párroco o bien de la Diócesis de Tilarán.
 g) Indicar los juegos que se van a realizar en la actividad (solo autorizados por ley).
 h) Para el respectivo permiso, se deberán cancelar todos los servicios que otorga la Municipalidad e impuestos municipales.
-i) Las solicitudes deberán formularse por lo menos con cuatro meses de anticipación al inicio de la actividad y la Municipalidad deberá resolver la solicitud a más tardar en treinta (30) días naturales después de su presentación.
+i) Las solicitudes deberán formularse en un término de seis (6) meses de anticipación al inicio de la actividad y el Concejo Municipal deberá aprobar la solicitud a más tardar en un mes calendario después de su presentación, caso contrario se tendrá por aprobada tácitamente. Dichas solicitudes deberán ser presentadas en fechas estipuladas por los Concejos de Distrito tratando que de esta manera exista mayor formalidad, transparencia e igualdad”. Además los Concejos de Distrito, podrán aprobar o denegar solicitudes de fiestas deliberando cuáles tienen prioridad (cuál solicitud está mayormente enfocada al bienestar de una sociedad y comunidad), y recomendando posteriormente al Concejo Municipal.
+(Así reformado el inciso anterior mediante sesión N° 13 del 27 de julio de 2007)
 j) Visto bueno de la autoridad policial cantonal.
+k) Cada solicitud presentada ante los Concejos de Distrito deberá indicar razón de recibido, señalando hora y fecha de presentación, así como nombre y cédula de identidad de quien presenta y quien recibe.
+(Así adicionado el inciso anterior mediante sesión N° 13 del 27 de julio de 2007)
