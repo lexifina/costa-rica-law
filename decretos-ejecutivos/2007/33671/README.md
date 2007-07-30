@@ -14,3 +14,4 @@ Declara obligatoria la vacunación contra la fiebre amarilla en personas proveni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-30 | la propia norma |
+| 2 | 2007-07-30 | Decreto Ejecutivo 33738 (2007-04-24) |
