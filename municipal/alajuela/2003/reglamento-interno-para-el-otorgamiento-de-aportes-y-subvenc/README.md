@@ -16,3 +16,4 @@ Reglamento interno para el otorgamiento de aportes y subvenciones para centros e
 | 1 | 2003-12-12 | la propia norma |
 | 2 | 2004-03-30 | Reglamento municipal 13 (2004-03-30) |
 | 3 | 2005-01-18 | Reglamento municipal 3 (2005-01-18) |
+| 4 | 2007-07-30 | Reglamento municipal 31 (2007-07-30) |
