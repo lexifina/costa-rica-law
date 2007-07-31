@@ -14,3 +14,4 @@ Aprueba Reglamento Técnico sobre Metrología, Instrumentos de Medición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-05 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |
