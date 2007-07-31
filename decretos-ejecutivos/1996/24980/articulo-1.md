@@ -2081,9 +2081,9 @@ características particulares.
 8 CONTROLES METROLOGICOS
 8.1 Aprobación del modelo.
 8.1.1 Aplicación para la aprobación del modelo. La aplicación para
-la aprobación del modelo, debe incluir normalmente, el envío a la Oficina
-nacional de normas y unidades de medida (ONNUM), autoridad aprobatoria,
+la aprobación del modelo, debe incluir normalmente, el envío al (*) Laboratorio Costarricense de Metrología (LACOMET), autoridad aprobatoria,
 de un instrumento representativo del modelo cuya aprobación se solicita.
+(*) (Modificada su denominación mediante el inciso 6 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 Sujeto al acuerdo con la autoridad aprobatoria, el fabricante puede
 definir y someter módulos para ser examinados separadamente. La siguiente
 información y documentos deben disponerse por el aplicante, tanto como

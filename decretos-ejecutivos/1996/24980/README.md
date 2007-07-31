@@ -13,3 +13,4 @@ Aprueba NCR 179:1994 Metrología Instrumentos Pesaje No Automático
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-01 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |
