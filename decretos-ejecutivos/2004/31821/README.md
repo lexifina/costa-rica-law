@@ -14,3 +14,4 @@ Reglamento de structura interna y funcionamiento del Ente Costarricense de Acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-09 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33963 (2007-07-31) |

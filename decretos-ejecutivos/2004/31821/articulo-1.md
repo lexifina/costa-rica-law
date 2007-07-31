@@ -1,4 +1,6 @@
+(Derogado)
 Nº 31821-MICIT
+(Este decreto fue derogado por el artículo 41° del decreto ejecutivo N° 33963 del 31 de julio de 2007)
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 En uso de las atribuciones que les confieren los artículos 140 incisos 3), y 18) y artículo 146 de la Constitución Política, 28 inciso b) de la Ley General de la Administración Pública, y la Ley Nº 8279, "Ley del Sistema Nacional para la Calidad".
 Considerando:
