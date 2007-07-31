@@ -14,3 +14,4 @@ Aprueba Norma 253:1995. Metrología.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |
