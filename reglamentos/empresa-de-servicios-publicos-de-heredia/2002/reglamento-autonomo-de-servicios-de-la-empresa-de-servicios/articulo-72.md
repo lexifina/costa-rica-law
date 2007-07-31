@@ -1,1 +1,1 @@
-Artículo 72.—Las remuneraciones que deben pagarse a los servidores por conceptos tales como dedicación exclusiva, carrera profesional, disponibilidad, horas extras y peligrosidad viáticos y similares se pagarán de acuerdo con las normas que la Empresa establecerá y cualesquiera otra disposición jurídico-administrativa que resulte aplicable.
+Artículo 72.—Cuando la Junta Directiva apruebe los aumentos salariales, Recursos Humanos ejecutará de inmediato los trámites necesarios para hacer efectivo su pago.

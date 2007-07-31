@@ -1,1 +1,1 @@
-Artículo 75.—Todas aquellas erogaciones que por concepto de gastos de viaje y de transporte dentro y fuera del país en las que incurran los funcionarios de la E.S.P.H., S. A., se regirán por el Reglamento de Gastos de Viaje y de Transporte para funcionarios de la ESPH., S. A.
+Artículo 75.—Las incapacidades extendidas por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, no afectarán el cálculo del aguinaldo para efectos de pago.

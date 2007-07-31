@@ -1,1 +1,1 @@
-Artículo 76.—La E.S.P.H., S. A., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarle a sus servidores el alojamiento o la alimentación o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.
+Artículo 76.—Todas aquellas erogaciones en que incurran los funcionarios de la ESPH S. A. por concepto de gastos de viaje y de transporte - dentro y fuera del país - se regirán por el respectivo Reglamento.

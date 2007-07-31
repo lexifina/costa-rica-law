@@ -1,0 +1,1 @@
+Artículo 195.—El presente Reglamento modifica integralmente el Reglamento Autónomo de la ESPH S. A., publicado en el Diario Oficial La Gaceta Nº 77 del Martes 23 de Abril del año 2002, aprobado en Acuerdo JD-027 del indicado año 2002 y sus reformas; y deroga cualquier otra disposición reglamentaria anterior que se le oponga .

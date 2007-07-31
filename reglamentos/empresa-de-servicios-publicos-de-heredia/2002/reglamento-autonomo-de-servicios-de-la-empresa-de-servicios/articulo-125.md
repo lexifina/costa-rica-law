@@ -1,1 +1,1 @@
-Artículo 125.—El Departamento de Recursos Humanos será el responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en esta materia.
+Artículo 125.—Los uniformes, ropa de trabajo, equipo de seguridad o cualquier otra prenda de vestir que sea suministrada por la E.S.P.H. S. A., a sus servidores, lo será en forma gratuita y no constituye salario en especie; ni podrá considerarse como un derecho adquirido incorporado al salario. Es responsabilidad de cada trabajador el buen uso que de ellos haga.

@@ -1,1 +1,1 @@
-Artículo 105.—Los coordinadores de dirección pueden otorgar discrecionalmente a sus subalternos permiso, con o sin goce de salario, hasta por un máximo de un día hábil, cuando existan motivos que a su juicio, lo justifiquen. En este caso, la jefatura respectiva notificará al Departamento de Recursos Humanos el otorgamiento del permiso.
+Artículo 105.—De persistir la inconformidad del servidor, éste podrá acudir ante la Gerencia General, la cual deberá resolver el conflicto en un plazo no mayor de 15 días hábiles contados a partir de la recepción del expediente respectivo.

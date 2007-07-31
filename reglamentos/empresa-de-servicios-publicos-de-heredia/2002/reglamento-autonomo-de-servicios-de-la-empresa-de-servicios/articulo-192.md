@@ -1,2 +1,1 @@
-Artículo 192.—El Presente reglamento modifica en lo que se le oponga, el Reglamento Autónomo de la ESPH., S. A. Publicado en el Diario Oficial La Gaceta Nº 183 de fecha 21 de setiembre de 1999 y sus reformas.
-Publíquese en el Diario Oficial La Gaceta.
+Artículo 192.—El pago del auxilio de cesantía se hará conforme a lo dispuesto en la Ley de Protección al Trabajador (Nº 7983 de 16 de febrero del año 2000).

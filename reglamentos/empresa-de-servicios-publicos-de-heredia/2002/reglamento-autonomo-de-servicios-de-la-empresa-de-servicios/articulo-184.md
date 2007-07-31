@@ -1,1 +1,4 @@
-Artículo 184.—Los recursos ordinarios contra la resolución final deberán interponerse dentro de los tres días hábiles siguientes a aquél en que ésta fue notificada. Es potestativo usar ambos recursos ordinarios o uno sólo de ellos, pero será inadmisible el que se interponga pasado el término antes señalado.
+Artículo 184.—La Empresa suministrará a los trabajadores que se encuentren disponibles:
+El medio de transporte (cualquiera que este fuere) para trasladarse al sitio donde ocurra la falla o avería durante el período de disponibilidad.
+Derecho individual a tres semanas de tiempo libre, en sus horas fuera de la jornada ordinaria de trabajo, para los técnicos que laboran en condiciones de disponibilidad, una semana al mes.
+Remuneración adicional por concepto de disponibilidad, que no podrá ser menor de un 15%, ni mayor de un 25% del salario base mensual para el respectivo puesto, en un todo de acuerdo con lo consignado en el artículo 193 de este Reglamento.

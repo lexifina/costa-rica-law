@@ -1,1 +1,4 @@
-Artículo 98.—Con el visto bueno de su coordinador o coordinadora inmediato, el servidor podrá solicitar al Departamento de Recursos Humanos un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.
+CAPÍTULO XII
+De la evaluación y calificación de servicios
+Artículo 98.—El desempeño de los servidores nombrados en propiedad será evaluado y calificado, como mínimo, una vez al año.
+La calificación del desempeño se expresará en términos de: “desempeño sobresaliente”, “muy buen desempeño”, “desempeño promedio aceptable”, “regular”, “desempeño deficiente”. Es responsabilidad personal del superior en grado realizar una calificación objetiva de la prestación efectiva de servicios.

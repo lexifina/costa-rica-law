@@ -1,1 +1,1 @@
-Artículo 86.—El pago del auxilio de cesantía se hará conforme a lo dispuesto en el artículo 29 del Código de Trabajo y sus reformas.
+Artículo 86.—El período de vacaciones se suspende, si durante su disfrute el servidor es incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.

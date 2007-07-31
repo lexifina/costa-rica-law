@@ -1,1 +1,1 @@
-Artículo 71.—Cuando la Junta Directiva apruebe los aumentos salariales, el Departamento de Recursos Humanos ejecutará de inmediato los trámites necesarios para hacer efectivo su pago.
+Artículo 71.—El salario será pagado por períodos mensuales, con un adelanto quincenal del cincuenta por ciento de su importe total. El pago se hará en días hábiles, para lo cual Tesorería elaborará un calendario de pagos para cada año.

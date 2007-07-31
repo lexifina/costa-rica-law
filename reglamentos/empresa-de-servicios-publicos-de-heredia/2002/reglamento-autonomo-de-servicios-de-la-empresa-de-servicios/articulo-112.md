@@ -1,1 +1,1 @@
-Artículo 112.—La evaluación y la calificación deberán notificarse por parte de Recursos Humanos al servidor dentro de los tres días hábiles siguientes de obtenidos los resultados correspondientes.
+Artículo 112.—Todos los servidores de la E.S.P.H. S. A., están obligados a prestar a la Comisión de Salud Ocupacional y al encargado de la salud ocupacional, el apoyo y la colaboración necesarios para que cumplan con su cometido.

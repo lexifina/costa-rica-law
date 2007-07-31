@@ -1,1 +1,1 @@
-Artículo 88.—Son días hábiles para el trabajador todos los días del año, salvo los feriados señalados en el Código de Trabajo y los permisos colectivos que autorice la Junta Directiva o la Gerencia.
+Artículo 88.—Con el visto bueno de su coordinador o coordinadora inmediatos, el servidor podrá solicitar a Recursos Humanos un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

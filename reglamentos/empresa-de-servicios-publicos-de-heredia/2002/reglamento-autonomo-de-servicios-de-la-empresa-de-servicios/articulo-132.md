@@ -1,2 +1,7 @@
-Artículo 132.—El servidor no deberá devolver los uniformes o ropa de trabajo deteriorada y una vez sustituidos no podrá volver a utilizarlos si estos se encuentran en muy mal estado.
-Sin embargo, en caso de que el servidor se retire de la Empresa deberá devolver el o los uniformes.
+Artículo 132.—Sanciones Administrativas. Según la gravedad de las faltas, el Gerente y los titulares subordinados serán sancionados así:
+a) Amonestación escrita.
+b) Amonestación escrita con comunicación al colegio profesional respectivo, cuando corresponda.
+c) Suspensión sin goce de salario, de 8 a 15 días hábiles y;
+d) Separación del cargo sin responsabilidad patronal.
+Las sanciones a que se refiere el presente artículo, regirán igualmente en cuanto: al Contralor Interno y demás funcionarios de la Contraloría Interna, cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa ética aplicable o el régimen de prohibiciones establecido en el artículo 34 de la Ley General de Control Interno; sin perjuicio de las responsabilidades que les puedan ser impuestas civil y penalmente. Competerá su aplicación a la Junta Directiva en el evento de que las faltas sean imputables al Gerente General y Subgerente Administrativa y al Contralor interno.
+Por su parte corresponderá al jerarca de la Unidad Contralora, imponer la corrección disciplinaria de rigor cuando dichas infracciones sean atribuirles a sus subordinados.

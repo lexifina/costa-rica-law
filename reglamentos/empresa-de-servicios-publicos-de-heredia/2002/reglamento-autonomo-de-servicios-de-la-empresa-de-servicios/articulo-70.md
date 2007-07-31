@@ -1,1 +1,3 @@
-Artículo 70.—El salario será pagado por períodos mensuales, con un adelanto quincenal del cincuenta por ciento de su importe total. El pago se hará en días hábiles, para lo cual Recursos Humanos elaborará un calendario de pago para cada año para fijar los días en que se retribuirá el trabajo.
+CAPÍTULO IX
+Del salario, aguinaldo, cesantía y otros pluses salariales
+Artículo 70.—Los salarios estipulados para las distintas clases de puestos, no podrán ser inferiores a los establecidos en el Decreto de Salarios Mínimos, para el Sector Privado.

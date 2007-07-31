@@ -1,1 +1,1 @@
-Artículo 113.—Si el servidor estima que la calificación es incorrecta, podrá impugnarla por escrito ante su jefe correspondiente, dentro de los tres días hábiles siguientes al de la notificación, debiéndole ser también notificada la resolución de dicha impugnación.
+Artículo 113.—La Unidad de Gestión integrada será la responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en esta materia.

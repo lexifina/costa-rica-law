@@ -1,1 +1,4 @@
-Artículo 190.—Este Reglamento entrará en vigencia treinta días después de su publicación en el Diario Oficial La Gaceta y no tendrá efecto retroactivo en perjuicio de los trabajadores.
+Artículo 190.—La Retribución por disponibilidad, se calculará sobre el salario base mensual del servidor, de acuerdo al siguiente detalle:
+Un 25% para los puestos de nivel profesional y/o jefaturas técnicas, pudiéndose fraccionar el porcentaje por semana, de acuerdo a la necesidad de la UEN y a discreción de la Gerencia. Se entenderá por Jefatura Técnica, tanto a los supervisores de cuadrilla, como a los ingenieros encargados de la operación del acueducto, alcantarillado sanitario, energía eléctrica y alumbrado público.
+Un 20% para los puestos operativos, que por el trabajo que realicen, deban vivir en las instalaciones de la Empresa para prestar servicios en forma permanente y continúa.
+Un 15% para los puestos de nivel técnico que presten sus servicios durante una semana por mes. Se excluye del reconocimiento de este incentivo, a los Directores de UEN.

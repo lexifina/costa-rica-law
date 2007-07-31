@@ -1,4 +1,1 @@
-CAPÍTULO XII
-De la evaluación y calificación de servicios
-Artículo 108.—El desempeño de los servidores nombrados en propiedad será evaluado y calificado como mínimo una vez al año.
-La calificación del desempeño se expresará en términos de "excelente", "muy bueno", "bueno", "regular", "malo" y "muy Malo".
+Artículo 108.—El Comité de Evaluación será coordinado y presidido por el coordinador de Recursos Humanos. Formarán quórum dos de sus miembros. Las decisiones se adoptarán por simple mayoría y en caso de empate, quien preside tendrá doble voto.

@@ -1,1 +1,4 @@
-Artículo 134.—El encargado de Salud Ocupacional, y todos los servidores deberán velar porque todos los trabajadores que tengan la obligación de portar equipo de seguridad, lo utilicen en forma adecuada y que éste sea de óptima calidad.
+Artículo 134.—Se amonestará por escrito:
+a) Al servidor que quebrante cualquiera de las obligaciones o prohibiciones contempladas en este Reglamento, cuando la falta no diere mérito para una sanción más severa.
+b) Al servidor que incurra por primera vez en cualquiera de las faltas respecto de las cuales la legislación laboral exija el apercibimiento antes del despido.
+c) En los casos en que así lo disponga expresamente el presente Reglamento.

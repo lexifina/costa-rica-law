@@ -1,1 +1,1 @@
-Artículo 173.—En la misma audiencia oral y privada del servidor investigado o después de ésta, el instructor u órgano director del procedimiento evacuará la prueba de descargo ofrecida por aquel, así como cualquier otra que estime necesaria para determinar la verdad real de los hechos.
+Artículo 173.—Los términos y plazos se interrumpirán por la presentación de los recursos mencionados en este Reglamento.

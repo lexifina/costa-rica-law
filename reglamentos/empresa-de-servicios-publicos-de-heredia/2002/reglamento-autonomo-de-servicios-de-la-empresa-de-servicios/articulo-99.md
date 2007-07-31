@@ -1,1 +1,1 @@
-Artículo 99.—En caso de conclusión de la relación de servicio antes de completar las cincuenta semanas consecutivas de trabajo anual, el servidor tendrá derecho al pago del período proporcional de vacaciones.
+Artículo 99.—Recursos Humanos deberá enviar la herramienta de evaluación del desempeño, incluyendo la lista con los nombres de los servidores a evaluar, a cada Director de UEN, Director de Apoyo, coordinador o supervisor de cuadrilla, en su caso.

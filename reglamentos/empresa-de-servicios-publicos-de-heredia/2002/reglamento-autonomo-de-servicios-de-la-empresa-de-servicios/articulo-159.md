@@ -1,1 +1,1 @@
-Artículo 159.—Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica, esto es, de acuerdo a la lógica, la ciencia y la experiencia.
+Artículo 159.—Cuando por razones muy calificadas de necesidad o conveniencia evidentes, se requiera separar temporalmente del cargo al servidor durante el desarrollo del procedimiento de investigación disciplinaria, la Gerencia o la Contraloría Interna en su caso, a su criterio o por recomendación del Órgano Director del proceso, podrán suspenderlo cautelarmente con goce de salario, mediante resolución motivada.

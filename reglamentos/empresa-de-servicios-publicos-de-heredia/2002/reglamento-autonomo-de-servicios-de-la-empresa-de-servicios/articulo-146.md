@@ -1,4 +1,1 @@
-Artículo 146.—Se amonestará por escrito:
-a) Al servidor que quebrante cualquiera de las obligaciones o prohibiciones contempladas en este Reglamento, cuando la falta no diere mérito para una sanción más severa.
-b) Al servidor que incurra por primera vez en cualquiera de las faltas respecto de las cuales la legislación laboral exija el apercibimiento antes del despido.
-c) En los casos en que así lo disponga expresamente el presente reglamento.
+Artículo 146.—En el procedimiento disciplinario, se deberán verificar los hechos que sirven de motivo al acto final en la forma más fiel y completa posible, para lo cual el instructor deberá adoptar todas las medidas probatorias pertinentes o necesarias, aún si no hubieren sido propuestas por las partes.

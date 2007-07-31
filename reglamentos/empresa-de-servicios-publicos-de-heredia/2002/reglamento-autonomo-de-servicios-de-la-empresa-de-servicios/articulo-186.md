@@ -1,1 +1,1 @@
-Artículo 186.—El recurso de revocatoria deberá resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación dentro de los ocho días hábiles posteriores al recibo del expediente.
+Artículo 186.—Los técnicos y profesionales en energía eléctrica, alumbrado público, acueducto y alcantarillado sanitario, deberán indicar el nombre de la persona que los remplazará durante el período de sus vacaciones, licencias o incapacidades; en cuyo caso, el pago del concepto de disponibilidad, se cubrirá en forma proporcional.

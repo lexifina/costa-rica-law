@@ -1,1 +1,3 @@
-Artículo 142.—La ESPH S.A. estará regulada en lo que a becas y capacitación se refiere mediante el "Reglamento para la adjudicación de becas de estudio y adiestramiento complementario al Personal de la ESPH., S. A.
+CAPÍTULO XVII
+Del procedimiento disciplinario
+Artículo 142.—El procedimiento que se establece en este capítulo será de observancia obligatoria. Cuando las faltas atribuidas a los servidores puedan dar lugar a la imposición de sanciones de suspensión, se respetará el debido proceso; y en consecuencia, la sanción que corresponda, no podrá imponerse sin formación previa de expediente, con amplia audiencia al servidor para que haga valer sus derechos. Sin embargo, tratándose de llegadas tardías o ausencias, no se requerirá formación previa de expediente, ni audiencia anticipada al servidor, pero éste podrá justificar su falta y gozará de todos los recursos que el presente Reglamento y las leyes conexas le confieren.

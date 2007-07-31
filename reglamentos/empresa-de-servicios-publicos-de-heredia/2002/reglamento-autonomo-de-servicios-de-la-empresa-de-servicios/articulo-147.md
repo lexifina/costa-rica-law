@@ -1,4 +1,1 @@
-Artículo 147.—Se suspenderá sin goce de salario hasta por ocho días naturales:
-a) Al servidor que, amonestado por escrito, incurra de nuevo en una falta que merezca esa misma sanción dentro del plazo de reincidencia fijado en el artículo 175 del presente Reglamento.
-b) Al servidor que cometa una falta de indudable gravedad con relación a los deberes inherentes a su contrato de servicio con la E.S.P.H, siempre que no se trate de una conducta tipificada como causal de despido.
-c) En los casos en que así lo disponga expresamente el presente Reglamento.
+Artículo 147.—El instructor o el Órgano director podrán citar a cualquier servidor de la E.S.P.H. S. A., para que declare o realice cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final. El servidor citado que, sin justa causa, no compareciere el día y hora que se le indiquen, incurrirá en responsabilidad disciplinaria.

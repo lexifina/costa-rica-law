@@ -33,7 +33,6 @@ articulo-32.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
-articulo-35-bis.md
 articulo-36.md
 articulo-37.md
 articulo-38.md
@@ -191,3 +190,8 @@ articulo-189.md
 articulo-190.md
 articulo-191.md
 articulo-192.md
+articulo-193.md
+articulo-194.md
+articulo-195.md
+articulo-196.md
+articulo-1-transitorio.md

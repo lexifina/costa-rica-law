@@ -1,3 +1,1 @@
-CAPÍTULO XVII
-Del régimen disciplinario
-Artículo 143.—El servidor de la E.S.P.H., S. A., está sujeto al régimen de responsabilidad previsto, en el Código de Trabajo y al régimen disciplinario contemplado en este reglamento u otro que la empresas emita o adopte.
+Artículo 143.—El fin primordial del procedimiento disciplinario es la verificación real de los hechos, por todos los medios de prueba admisibles. La Gerencia o la Contraloría Interna en su caso, procurarán precisar los hechos en su real configuración, a fin de establecer el objeto del proceso; y nombrarán para la investigación un Órgano director, el cual podrá ser unipersonal o colegiado, de acuerdo a la complejidad, trascendencia o especialidad de la materia.

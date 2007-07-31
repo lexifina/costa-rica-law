@@ -1,1 +1,3 @@
-Artículo 178.—El Departamento de Recursos Humanos notificará y ejecutará la resolución que emita la Gerencia o la Contraloría en su caso. Los efectos de dicha resolución empezarán a regir a partir de la fecha en el superior jerárquico le indico que deberá hacerlo en el plazo que corresponda.
+CAPÍTULO XVIII
+Régimen de disponibilidad y del auxilio de cesantía
+Artículo 178.—El presente capítulo, tiene por finalidad regular la atención de los trabajadores que se realice en horas no laborables, como consecuencia de averías en los sistemas de energía eléctrica, alumbrado público, acueductos y alcantarillado sanitario.

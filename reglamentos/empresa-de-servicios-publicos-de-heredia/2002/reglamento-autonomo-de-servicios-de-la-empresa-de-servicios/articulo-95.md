@@ -1,1 +1,1 @@
-Artículo 95.—Para el disfrute de las vacaciones, se excluirá del computo los días sábados para aquellos funcionarios que laboran jornada acumulativa.
+Artículo 95.—Los coordinadores de dirección pueden otorgar discrecionalmente a sus subalternos permisos, con o sin goce de salario, hasta por un máximo de un día hábil, cuando existan motivos que a su juicio, lo justifiquen. En este caso, la jefatura respectiva notificará a Recursos Humanos el otorgamiento del permiso.

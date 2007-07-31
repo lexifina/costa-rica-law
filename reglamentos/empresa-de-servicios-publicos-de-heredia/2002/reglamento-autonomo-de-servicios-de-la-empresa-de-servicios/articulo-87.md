@@ -1,3 +1,1 @@
-CAPÍTULO X
-Del descanso semanal, los días feriados y las vacaciones anuales
-Artículo 87.—Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada semana o de cada seis días de trabajo continuo.
+Artículo 87.—Las vacaciones no podrán acumularse por más de dos períodos. Únicamente y sólo en forma excepcional se podrán acumular, cuando el servidor desempeñe labores técnicas, de dirección, de confianza u otras análogas que hagan difícil su reemplazo. A este efecto, la jefatura respectiva solicitará a Recursos Humanos la correspondiente autorización.

@@ -1,1 +1,1 @@
-Artículo 111.—Corresponderá a cada jefatura evaluar el desempeño de sus subalternos inmediatos, con la asesoría del Departamento de Recursos Humanos.
+Artículo 111.—La labor de la Comisión de Salud Ocupacional será desarrollada dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales de los servidores que la conforman y de las funciones laborales a ellos asignadas.

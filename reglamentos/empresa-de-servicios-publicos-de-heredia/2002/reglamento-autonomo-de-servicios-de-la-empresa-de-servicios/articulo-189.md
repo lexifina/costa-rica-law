@@ -1,3 +1,1 @@
-CAPÍTULO XIX
-Disposiciones finales
-Artículo 189.—A partir de su vigencia el presente Reglamento será de observancia obligatoria y su violación implica la invalidez del acto respectivo.
+Artículo 189.—Se podrá pagar disponibilidad en forma permanente o temporal, a los servidores cuyas funciones del cargo exijan dicho reconocimiento. Es necesario que las circunstancias mismas del trabajo exijan acudir a éste en cualquier momento (circunstancias de emergencias por daños o averías del servicio), durante las 24 horas del día.

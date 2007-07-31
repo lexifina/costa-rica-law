@@ -1,1 +1,3 @@
-Artículo 130.—La Comisión de Salud Ocupacional tramitará todo lo relacionado con uniformes y ropa de trabajo y mantendrá el control de existencia, reposición y suministro con el propósito de que las entregas se realicen en el momento oportuno. Asimismo en coordinación con el Departamento de Recursos Humanos evaluará periódicamente la calidad, diseños y cualquier otro aspecto importante de aquellos.
+CAPÍTULO XVI
+Del régimen disciplinario
+Artículo 130.—El servidor de la E.S.P.H. S. A., está sujeto al régimen de responsabilidad previsto en el Código de Trabajo y al régimen disciplinario contemplado en este Reglamento u otro que la empresas emita o adopte.

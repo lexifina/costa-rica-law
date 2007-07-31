@@ -1,1 +1,1 @@
-Artículo 182.—Los recursos no requieren una redacción ni una presentación especial y bastará para su correcta formulación que de su texto se infiera claramente la pretensión del recurrente.
+Artículo 182.—Son parte integrantes del contrato adicional de trabajo que se celebre, las disposiciones del presente capítulo que a continuación se enumeran.

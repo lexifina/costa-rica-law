@@ -1,1 +1,1 @@
-Artículo 43.—Los servidores están obligados a prestar sus servicios en las horas reglamentarias durante los días hábiles y las Coordinadores no podrán conceder privilegios, prerrogativas o permisos que autoricen una asistencia irregular, con excepción de los casos específicamente establecidos en este reglamento y con la debida autorización.
+Artículo 43.—La Gerencia podrá modificar los horarios siempre que existan razones de conveniencia institucional y que con ello no se afecten los derechos de los servidores ni el servicio que prestan.

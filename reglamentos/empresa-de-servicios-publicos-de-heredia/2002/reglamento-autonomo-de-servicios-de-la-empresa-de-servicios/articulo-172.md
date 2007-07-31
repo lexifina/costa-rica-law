@@ -1,1 +1,1 @@
-Artículo 172.—El derecho de defensa deberá ser ejercido por el servidor en forma razonable. El instructor u órgano director podrá excepcionalmente limitar la intervención de éste a lo prudentemente necesario, sin llegar a la supresión de los derechos de audiencia y defensa antes consagrados.
+Artículo 172.—Los recursos no requieren una redacción ni una presentación especial y bastará para su correcta formulación que de su texto se infiera claramente la pretensión del recurrente.

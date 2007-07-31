@@ -1,1 +1,4 @@
-Artículo 131.—El uniforme, la ropa de trabajo o cualquier otra prenda de vestir que suministre la E.S.P.H., S. A., a cualquier servidor, debe ser utilizado por éste únicamente durante la jornada de trabajo. Sólo con autorización superior podrán ser utilizados fuera de ésta, pero en todo caso nunca en días de descanso o feriados.
+Artículo 131.—A fin de garantizar la probidad, la corrección, la eficacia y la eficiencia en la prestación de los servicios públicos encomendados a la E.S.P.H. S. A., se establecen las siguientes clases de sanciones disciplinarias:
+a) Amonestación escrita.
+b) Suspensión sin goce de salario, hasta por ocho días naturales.
+c) Despido sin responsabilidad patronal.

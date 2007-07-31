@@ -1,1 +1,1 @@
-Artículo 33.—Los representantes de la E.S.P.H., S. A., podrán recomendar el nombramiento del personal que requieran, de las nóminas de elegibles que les envíe el Departamento de Recursos Humanos.
+Artículo 33.—Los directores de unidades administrativas y líderes de procesos de la E.S.P.H. S. A., podrán recomendar el nombramiento del personal que requieran, de las nóminas de elegibles que les envíe Recursos Humanos.

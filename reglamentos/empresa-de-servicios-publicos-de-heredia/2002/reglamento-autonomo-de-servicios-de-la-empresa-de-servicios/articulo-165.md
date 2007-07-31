@@ -1,1 +1,1 @@
-Artículo 165.—La denuncia se presentará por escrito y deberá contener una relación circunstanciada de los hechos, con indicación de los servidores partícipes. El denunciante deberá, asimismo, aportar u ofrecer las pruebas en que funda sus cargos.
+Artículo 165.—A partir del momento en que la Gerencia o la Contraloría interna en su caso, reciban la recomendación definitiva del Órgano director del proceso, contará con un plazo de un mes para dictar la resolución final, con la salvedad prevista en el artículo 152 de este Reglamento.

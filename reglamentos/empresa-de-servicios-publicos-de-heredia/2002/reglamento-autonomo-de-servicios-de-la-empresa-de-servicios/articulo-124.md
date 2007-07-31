@@ -1,1 +1,8 @@
-Artículo 124.—Todos los servidores de la E.S.P.H., S. A., están obligados a prestar a la Comisión de Salud Ocupacional y el encargado de la salud ocupacional el apoyo y la colaboración necesaria para que cumplan con su cometido.
+Artículo 124.—El servidor que reincidiere en presentarse sin usar el uniforme o ropa de trabajo; o no utilizare los equipos de seguridad, será sancionado de la siguiente forma:
+a) Primera vez: amonestación por escrito.
+b) Segunda vez: Dos días de suspensión sin goce de salario.
+c) Tercera vez: cuatro días de suspensión sin goce de salario.
+d) Cuarta vez: ocho días de suspensión sin goce de salario.
+e) Quinta vez: despido sin responsabilidad patronal.
+Estas sanciones procederán de igual forma, cuando el servidor haga uso de los uniformes, ropa de trabajo o equipo de seguridad para su propio beneficio, en horas o días que no correspondan a la jornada diaria laboral establecida por la E.S.P.H. S. A., Para efectos de reincidencia se computará un período de seis meses.
+El deterioro excesivo o el extravío de cualquiera de estas prendas o equipo de trabajo, deberán ser reportados de inmediato a la jefatura correspondiente, para su debida reposición.

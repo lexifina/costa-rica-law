@@ -1,1 +1,1 @@
-Artículo 22.—Las Coordinadores también podrán solicitar de oficio al Departamento de Recursos Humanos la reasignación de cualquier puesto, de conformidad con los procedimientos establecidos para tal efecto y con el artículo 21 de este Reglamento.
+Artículo 22.—Las Coordinadores también podrán solicitar de oficio Recursos Humanos la reasignación de cualquier puesto, de conformidad con los procedimientos establecidos para tal efecto y con base en el artículo 21 de este Reglamento.

@@ -1,2 +1,1 @@
-Artículo 61.—El servidor debe registrar personalmente su asistencia, utilizando el procedimiento establecido por la Empresa.
-Cuando dicho control se realice mediante reloj marcador deberá cuidar que quede impresa con claridad. Las marcas que exhiban defectos o manchas no atribuibles a desperfectos del reloj marcador se tendrán por no hechas, salvo prueba en contrario.
+Artículo 61.—La asistencia al trabajo será fiscalizada mediante el registro de asistencia que la Empresa establezca; y en el que todo servidor deberá registrarse, al comienzo y conclusión de la jornada laboral o bien a la hora que se retire de su centro de trabajo.
