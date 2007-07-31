@@ -1,6 +1,2 @@
-Artículo 4º- Toda persona que haciendo uso de esta Norma encuentre
-errores tipográficos, ortográficos, inexactitudes o ambigüedades, podrá
-notificarlo sin demora a la Oficina Nacional de Normas y Unidades de
-Medida, aportando si fuese posible, la información correspondiente para
-que esa Oficina efectúe las investigaciones pertinentes y tome las
-previsiones correspondientes.
+Artículo 4º- Toda persona que haciendo uso de esta Norma encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, podrá notificarlo sin demora al (*) Laboratorio Costarricense de Metrología , aportando si fuese posible, la información correspondiente para que ese (*) Laboratorio efectúe las investigaciones pertinentes y tome las previsiones correspondientes.
+(*) (Modificada su denominación mediante el inciso 4 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
