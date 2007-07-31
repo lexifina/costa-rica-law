@@ -1,1 +1,0 @@
-Artículo 3º—No podrán ingresar al territorio nacional las personas provenientes de áreas geográficas de riesgo, que no porten el Certificado Internacional de vacunación contra la fiebre amarilla, vigente.
