@@ -14,3 +14,4 @@ Reglamento para Surtidores de Combustibles Líquidos (Gasolina, Diesel, Kerosene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-05 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |

@@ -41,7 +41,9 @@ Las características del liquido pueden ser tanto medidas usando instrumentos de
 2.23 incertidumbre en la determinación del error: estimado que caracteriza el rango de valores dentro de los cuales se encuentra el valor verdadero, incluyendo componentes debido al patrón y su uso y componentes debido a la propia verificación y calibración del instrumento.
 2.24 instrumentos de medición asociados: instrumentos conectados a la calculadora, al dispositivo corrector o de conversión para la medición de ciertas magnitudes características del liquido. sujeto a medición con el objetivo de hacer correcciones y lo conversiones.
 2.25 magnitud de influencia: magnitud que no es el mensurando pero que afecta al mensurando o la indicación del sistema de medición.
-2.26 ONNUM: Oficina Nacional de Normas y Unidades de Medida. 2.27 punto de transferencia: punto en el cual el líquido se define como entregado o recibido.
+2.26 (*) (LACOMET): Laboratorio Costarricense de Metrología.
+(*) (Modificada su denominación mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
+2.27 punto de transferencia: punto en el cual el líquido se define como entregado o recibido.
 2.28 sistema de medición: sistema que comprende al contador volumétrico y todos los dispositivos auxiliares y adicionales.
 2.29 surtidores: sistema de medición compuesto por dispositivos principales. adicionales y auxiliares en los cuales el volumen y el costo del combustible es medido en forma automática de una manera continua durante el paso del mismo o desde el tanque de almacenamiento de la estación de servicio al tanque o depósito receptor.
 2.30 transductor de medición: parte del contador volumétrico que transforma el volumen del líquido o el flujo medido en una señal que es pasada a la calculadora. Este incluye el sensor de flujo o volumen.
@@ -89,16 +91,20 @@ volumen claramente visibles.
 8 CALIBRACIÓN
 8.1 Todo surtidor de combustible, una vez instalado, debe ser calibrado, es decir, controlado su volumen por medio de una medida de capacidad calibrada.
 8.2 Los surtidores deberán tener, en cada uno del los dispositivos utilizados para ajustar la medida de suministro, una perforación adecuada para la colocación de un sello ( marchamo, preCinto u otro material ) que impida la modificación del ajuste.
-8.3 El sello de verificación será colocada por los inspectores de la ONNUM en el mismo lugar en que se colocó el marchamo por medio del personal encargado de la calibración; ya sea éste de la empresa suministradora o personal técnico designado por la estación de servicio, todos debidamente autorizado por la ONNUM.
-8.4 La ONNUM utilizará como "sello de verificación" marchamos, precintos u otros medios, los cuales estarán identificados individualmente. Adicionalmente podrá colocar una etiqueta u otro distintivo en el exterior del surtidor para informar al publico que el surtidor ha sido verificado.
+8.3 El sello de verificación será colocada por los inspectores del (*)(LACOMET) en el mismo lugar en que se colocó el marchamo por medio del personal encargado de la calibración; ya sea éste de la empresa suministradora o personal técnico designado por la estación de servicio, todos debidamente autorizado por el (*) (LACOMET).
+(*) (Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
+8.4 El (*)(LACOMET) utilizará como "sello de verificación" marchamos, precintos u otros medios, los cuales estarán identificados individualmente. Adicionalmente podrá colocar una etiqueta u otro distintivo en el exterior del surtidor para informar al publico que el surtidor ha sido verificado.
+(*) (Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 9 Verificación
-9.1 La verificación de los surtidores de combustible, que de acuerdo con la Ley le incumbe a la ONNUM, será realizada en cualquier momento que se considere conveniente o lo estipulado en el numeral 9.6.1, ésta la llevarán a cabo los inspectores de la misma, previa presentación de la credencial que los acredite como tales.
+9.1 La verificación de los surtidores de combustible, que de acuerdo con la Ley le incumbe al (*)(LACOMET), será realizada en cualquier momento que se considere conveniente o lo estipulado en el numeral 9.6.1, ésta la llevarán a cabo los inspectores de la misma, previa presentación de la credencial que los acredite como tales.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 9.2 La verificación tendrá por objeto comprobar si los surtidores funcionan, si presentan señales de alteración o violencia, si tiene los marchamos intactos, si cumplen en las pruebas de los errores máximos
 permitidos bajo las condiciones de operación dadas por el fabricante, o cualquier otra irregularidad o deficiencia que origine el incorrecto funcionamiento del mismo.
 9.3 Cuando en la verificación efectuada resultare comprobada alguna irregularidad o el incumplimiento de las disposiciones de este reglamento y su aplicación o de disposiciones complementarias a los mismos , el inspector que haya realizado la verificación levantará, la correspondiente acta, la cual entregará una copia al dueño, arrendatario o quien este representado a la estación de servicio, para los fines que procedan.
 9.4 Si al realizar la verificación se comprueba que no se cumple con las disposiciones del presente Reglamento técnico, se aplicará lo dispuesto en los numerales 9.7.1 a 9.7.5
 9.5 VERIFICACIÓN INICIAL:
-9.5.1 A este efecto el propietario o arrendatario, según proceda, debe dirigirse por escrito a la ONNUM dentro del plazo de cinco días después de la instalación con las siguientes indicaciones:
+9.5.1 A este efecto el propietario o arrendatario, según proceda, debe dirigirse por escrito al (*)(LACOMET) dentro del plazo de cinco días después de la instalación con las siguientes indicaciones:
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 9.5.1.1 Marca, modelo y número o serie del surtidor
 9.5.1.2 Lugar de ubicación
 9.5.1.3 Nombre y dirección de la Estación de Servicio
@@ -106,7 +112,8 @@ permitidos bajo las condiciones de operación dadas por el fabricante, o cualqui
 9.5.2 El error máximo permitido el la verificación inicial bajo las condiciones de operación de los surtidores debe ser como máximo de 0,3%, ( 60 mL para una capacidad nominal de 20 L).
 9.5.3 La presión de succión de los surtidores de succión debe estar entre 29330,84 Pa y 53328,80 Pa.
 9.6 VERIFICACIÓN EVENTUAL:
-9.6.1 Esta se realiza cuando así lo disponga la ONNUM.
+9.6.1 Esta se realiza cuando así lo disponga al (*)(LACOMET).
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 9.7 La verificación eventual se llevará a cabo siguiendo lo establecido de 12.1 a 12.1.3.2 y las disposiciones de los numerales 9.7.1, 9.7.2, 9.7.3, 9.7.4 Y 9.7.5.
 9.7.1 Si al realizar la verificación de un surtidor, se constata que no cumple con las disposiciones fijadas en este reglamento técnico, el mismo no podrá ser utilizado en el suministro y venta del combustible y se procederá a sellar las pistolas para asegurar su no funcionamiento hasta tanto no haya sido subsanada la deficiencia o irregularidad observada.
 9.7.2 Todo surtidor que no cumpla con las disposiciones fijadas en este reglamento técnico o se encuentre en las condiciones descritas en el numeral 9.7.1, le será colocado en lugar visible un rótulo que indique:
@@ -123,8 +130,8 @@ HASTA TANTO HAYA SIDO REPARADO".
 9.9 Si los sellos se rompieran, o se quitan los carteles enunciados en los numerales 9.7.2 a 9.7.5, sin haber subsanado las deficiencias, los responsables se harán acreedores a las sanciones estipuladas, en las leyes.
 9.10 Cuando un surtidor no cumpla con lo establecido en este reglamento técnico le serán retiradas cualquier etiqueta o distintivo que indique que el <;urtidor esta verificado.
 10 INSTALACIÓN INICIAL
-10.1 Los surtidores podrán entrar en servicio, antes de su verificación, siempre y cuando, queden sellados y marchamados por el personal técnico de las empresas suministradoras, debidamente autorizados por la ONNUM. Estos sellos o marchamos deben identificar claramente a este
-personal autorizado. En estos casos las empresas suministradoras se dirigirán por escrito a la ONNUM proporcionando la información los numerales 9.5.1 a 9.5.1.4
+10.1 Los surtidores podrán entrar en servicio, antes de su verificación, siempre y cuando, queden sellados y marchamados por el personal técnico de las empresas suministradoras, debidamente autorizados por el (*)(LACOMET). Estos sellos o marchamos deben identificar claramente a este personal autorizado. En estos casos las empresas suministradoras se dirigirán por escrito al(*) (LACOMET) proporcionando la información los numerales 9.5.1 a 9.5.1.4
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 11 CONTROL DIARIO DEL SURTIDOR
 11.1 Es obligatorio que el propietario u arrendatario de cada Estación de Servicio controle el suministro de sus surtidores diariamente; para ello debe poseer una medida de capacidad de 20 L, con divisiones mínimas menor o igual a 20 mL, que debe estar calibrado y trazado a los Patrones Nacionales.
 12 PRUEBAS DE SUMINISTRO
@@ -139,22 +146,29 @@ personal autorizado. En estos casos las empresas suministradoras se dirigirán p
 12.1.3.2 Si el surtidor cuenta con un dispositivo programador, además de realizar la prueba descrita en 11.1.3.1., se debe realizar la prueba operando este dispositivo y donde los errores máximos permitidos son los establecidos en 12.1.3.1.
 13 REPARACIÓN Y PUESTA EN SERVICIO
 13.1 Para la reparación de un surtidor, siempre que la misma suponga la reparación en el sistema de medida, y su puesta inmediata en servicio deberá cumplirse lo siguiente:
-13.1.1 Cuando un surtidor instalado tenga que sufrir una reparación () ajuste, bien por decisión del propietario, concesionario, arrendatario o empresa suministradora, bien por disposición taxativa de la ONNUM. deberá ser reparado o ajustado por personal técnico de las empresas suministradoras u otro personal designado por el propietario o arrendatario de la estación de servicio, todos debidamente autorizados por la ONNUM. Este personal podrá romper los sellos oficiales colocados en el surtidor en presencia de la autoridad pública quien levantará una acta de los hechos y lo enviará a la ONNUM.
+13.1.1 Cuando un surtidor instalado tenga que sufrir una reparación o ajuste, bien por decisión del propietario, concesionario, arrendatario o empresa suministradora, bien por disposición taxativa del (*)(LACOMET) . deberá ser reparado o ajustado por personal técnico de las empresas suministradoras u otro personal designado por el propietario o arrendatario de la estación de servicio, todos debidamente autorizados por el (*) (LACOMET) . Este personal podrá romper los sellos oficiales colocados en el surtidor en presencia de la autoridad pública quien levantará una acta de los hechos y lo enviará a el (*) (LACOMET).
 Una vez terminada su labor, el personal técnico selIará nuevamente el surtidor con la marca que lo identifique.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 13.1.2 El personal técnico autorizado deberá disponer, como mínimo de:
-Una medida de capacidad volumétrica calibrada de veinte litros ( 20 L),debidamente trazada a los Patrones Nacionales, identificación, sellos y marchamos aprobados por la ONNUM, que lo identifiquen indeleblemente., bitácora de calibraciones, medida de capacidad.
+Una medida de capacidad volumétrica calibrada de veinte litros ( 20 L),debidamente trazada a los Patrones Nacionales, identificación, sellos y marchamos aprobados por el (*)(LACOMET), que lo identifiquen indeleblemente., bitácora de calibraciones, medida de capacidad.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 13.1.3 La calibración de esta medida de capacidad volumétrica tendrá la validez que se hará consignar en el certificado correspondiente que portará cada una de las personas autorizadas. Pasado este tiempo deben ser calibrados nuevamente.
 13.1.4 El propietario o arrendatario del surtidor debe comprobar el cumplimiento de estos requisitos.
-13.1.5 El surtidor reparado o ajustado podrá ser puesto de inmediato en servicio, si no hay disposición expresa en contra, de parte de la ONNUM, debiéndose cumplir en forma análoga lo dispuesto en el numeral 9.9 agregándose la información relativa a la operación del ajuste o reparación que se haya realizado. Si en la subsiguiente visita que se le realice a la Estación de Servicio, para cerciorarse de que las faltas aludidas han sido debidamente subsanadas y poder realizar la verificación de ley, se encontrase que éstas persisten, se responsabilizará al personal técnico autorizado y al dueño o arrendatario por el incumplimiento de las obligaciones.
+13.1.5 El surtidor reparado o ajustado podrá ser puesto de inmediato en servicio, si no hay disposición expresa en contra, de parte del (*)(LACOMET), debiéndose cumplir en forma análoga lo dispuesto en el numeral 9.9 agregándose la información relativa a la operación del ajuste o reparación que se haya realizado. Si en la subsiguiente visita que se le realice a la Estación de Servicio, para cerciorarse de que las faltas aludidas han sido debidamente subsanadas y poder realizar la verificación de ley, se encontrase que éstas persisten, se responsabilizará al personal técnico autorizado y al dueño o arrendatario por el incumplimiento de las obligaciones.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 13.1.6 Cuando un surtidor haya sido verificado y no se encuentre objeción alguna al mismo se le podrá colocar a la vista del publico la siguiente indicación:
 "ESTE SURTIDOR FUNCIONA CORRECTAMENTE
 CUANDO FUE COMPROBADO".
 Esta indicación no es obligatoria.
 14 ELEMENTOS Y FACILIDADES PARA LA VERIFICACION
-14.1 Los propietarios, concesionarios o arrendatarios de los surtidores deberán facilitar la realización de las operaciones de verificación al personal de la ONNUM en la forma siguiente:
-14.1.1 Aportando el personal necesario que solicite el personal de la ONNUM para la realización de la verificación y proporcionando las cantidades de combustibles que fueran pre~isas para la realización de las pruebas y readmitiéndolas una vez terminadas.
+14.1 Los propietarios, concesionarios o arrendatarios de los surtidores deberán facilitar la realización de las operaciones de verificación al personal del (*)(LACOMET) en la forma siguiente:
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
+14.1.1 Aportando el personal necesario que solicite el personal del (*)(LACOMET) para la realización de la verificación y proporcionando las cantidades de combustibles que fueran pre~isas para la realización de las pruebas y readmitiéndolas una vez terminadas.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 14.1.2 La medida de capacidad volumétrica que debe tener cada expendio deben conservarse en perfecto estado de limpieza evitando también que reciban golpes que los inutilicen como medida de capacidad volumétrica.
 15 VARIOS
-15.1 Corresponderá a la ONNUM realizar la verificación inicial o eventual de los surtidores de combustible, sin más requisitos que los determinados en este Reglamento técnico.
-15.2 Los inspectores de verificación de la ONNUM no deben realizar calibración o ajuste de surtidores de combustible, su función es la de verificación.
+15.1 Corresponderá al (*)(LACOMET) realizar la verificación inicial o eventual de los surtidores de combustible, sin más requisitos que los determinados en este Reglamento técnico.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
+15.2 Los inspectores de verificación del (*)(LACOMET) no deben realizar calibración o ajuste de surtidores de combustible, su función es la de verificación.
+(*)(Modificada mediante el inciso 7 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 15.2 Los importadores de surtidores de combustibles, las personas autorizadas por el MEIC y el MINA E para operar gasolineras y las empresas suministradoras de los mismos, serán directamente responsabilidad del cumplimiento de este Reglamento técnico en la parte que les incu~
