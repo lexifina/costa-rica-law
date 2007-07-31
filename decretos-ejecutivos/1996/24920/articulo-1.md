@@ -494,8 +494,9 @@ CONTROLES METEOROLOGICOS
 13 SUMISION A CONTROLES METROLOGICOS
 13.1 Aprobación del Modelo.
 13.1.1 Cada fabricante o representante autorizado puede proponer un
-modelo de las pesas destinadas a manufactura a la ONNUM con el fin de que
+modelo de las pesas destinadas a manufactura al (*) LACOMET con el fin de que
 se asegure que se cumple con los requerimientos de esta Norma.
+(*) (Modificada su abreviatura mediante el inciso 5 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 13.1.2 Un modelo aprobado no deberá ser modificado sin autorización
 especial.
 13.1.3 Los certificados de conformidad con algún modelo extendidos

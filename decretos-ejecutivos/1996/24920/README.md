@@ -14,3 +14,4 @@ Norma NCR 254:1995 Metrología. Pesas de Clases E1 E2 F1 F2 M1 M2 M3
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |
