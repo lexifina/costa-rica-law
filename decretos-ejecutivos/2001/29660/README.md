@@ -14,3 +14,4 @@ Reglamento RTCR 26:2000 Metrología. Unidades Legales de Medida. CDU 53.081:003.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-08 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |
