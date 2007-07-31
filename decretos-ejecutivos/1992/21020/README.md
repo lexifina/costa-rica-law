@@ -14,3 +14,4 @@ Aprueba Norma NCR 145:1991. Metrología. Llenado de Tanques usados en el Transpo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-03-04 | la propia norma |
+| 2 | 2007-07-31 | Decreto Ejecutivo 33951 (2007-07-31) |

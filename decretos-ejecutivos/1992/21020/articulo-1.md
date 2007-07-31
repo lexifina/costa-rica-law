@@ -18,7 +18,8 @@ Esta norma tiene por objeto garantizar la seguridad metrológica para las transa
 2.8 Escotillas: válvulas de fondo.
 2.9 “Manhole": bocas de inspección o boca de llenado, en cada compartimento de un cisterna.
 3. VERIFICACION
-3.1 Ningún cisterna podrá ser usado para transportar combustibles, si no está verificado por la Oficina Nacional de Normas y Unidades de Medida.
+3.1 Ningún cisterna podrá ser usado para transportar combustibles, si no está verificado por el (*)Laboratorio Costarricense de Metrología.
+(*) (Modificada su denominación mediante el inciso 1 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 3.2 Antes de la verificación deberá comprobarse que las válvulas y otros accesorios o dispositivos que pudieran afectar la capacidad nominal del compartimento del cisterna, no presenten fugas.
 3.3 La verificación de cada compartimento se efectuará con diesel vertido con instrumentos de medidas de capacidad, calibrados para tal fin.
 3.4 Para la verificación, el cisterna debe colocarse en posición horizontal totalmente nivelado.
