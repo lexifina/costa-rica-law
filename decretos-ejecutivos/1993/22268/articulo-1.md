@@ -74,7 +74,8 @@ Una vez seleccionadas todas las unidades que componen la muestra, se procede a e
 5.4.1 El muestreo para el control metrológico de productos preempacados se llevará a cabo en el sitio de empaque, bodegas o lugares de venta.
 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 26480 del 25 de agosto de 1997).
 5.4.2 El responsable del producto facilitará un lugar adecuado para efectuar las pruebas y, si es del caso, prestará el personal necesario para efectuar el control.
-5.4.3 Cuando, por algún motivo las pruebas no se puedan realizar en los lugares indicados en 5.4.1, las pruebas se realizarán en el lugar que la Oficina Nacional de Normas y Unidades de Medida, considere adecuado.
+5.4.3 Cuando, por algún motivo las pruebas no se puedan realizar en los lugares indicados en 5.4.1, las pruebas se realizarán en el lugar que el (*) Laboratorio Costarricense de Metrología, considere adecuado.
+(*) (Modificada su denominación mediante el inciso 2 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
 6 ENSAYOS
 6.1 Determinación del contenido neto en productos preempacados por masa. El contenido neto en productos preempacados por masa se controlará con balanzas verificadas, cuya división de escala de verificación de acuerdo con el contenido neto nominal no sea mayor que los fijados en la Tabla 3.
 6.2 Determinación del contenido neto en productos preempacados por volumen.
