@@ -1,1 +1,0 @@
-Artículo 10.—El Área de Deporte Competitivo no podrá autorizar el giro de los recursos a los sujetos privados que incumplan total o parcialmente con los requisitos indicados en el presente Reglamento.

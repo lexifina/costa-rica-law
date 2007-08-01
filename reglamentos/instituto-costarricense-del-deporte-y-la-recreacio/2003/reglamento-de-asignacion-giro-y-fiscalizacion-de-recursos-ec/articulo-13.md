@@ -1,2 +1,0 @@
-Artículo 13.—Los informes se referirán tanto a la liquidación y ejecución presupuestaria así como presentación de comprobantes originales de los aportes entregados en el ejercicio económico anterior. Igualmente se referirán al logro de los objetivos planteados en el respectivo plan de trabajo que dio origen a los aportes entregados por el ICODER, todo con aprobación de la Junta Directa de cada beneficiario.
-(Así reformado por acuerdo del Consejo Nacional del Deporte y la Recreación, y publicado en La Gaceta N° 139 del 16 de julio del 2004)
