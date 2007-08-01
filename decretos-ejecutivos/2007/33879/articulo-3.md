@@ -1,0 +1,2 @@
+Artículo 3º—Este decreto tendrá una vigencia de treinta (30) días o hasta que el Consejo se reúna, y se comunicará a los gobiernos centroamericanos y a la Secretaría de Integración Económica Centroamericana (SIECA), a efecto de dar cumplimiento con lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
+Dado en la Presidencia de la República, a los dieciséis días del mes de julio del año dos mil siete.
