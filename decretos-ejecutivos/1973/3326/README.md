@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Certificados de Explotación
 | --- | --- | --- |
 | 1 | 1973-11-23 | la propia norma |
 | 2 | 1992-09-28 | Decreto Ejecutivo 21614 (1992-09-28) |
+| 3 | 2007-08-01 | SINALEVI (sin norma nombrada) |
