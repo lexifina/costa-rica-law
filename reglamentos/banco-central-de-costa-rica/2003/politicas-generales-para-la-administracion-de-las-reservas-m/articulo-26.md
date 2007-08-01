@@ -1,2 +1,4 @@
-Artículo 26.—Emisiones de Papel Comercial. El Comité de Reservas establecerá el tamaño mínimo de las emisiones (outstanding) de papel comercial que se podrán adquirir. El perfil de la deuda de esas emisiones deberá ser el denominado senior unsecured o unsecured debt, no pudiéndose adquirir emisiones respaldadas por carteras de activos particulares, como es el caso de los denominados Assets Backed Commercial Papers.
-El papel comercial que se adquiera deberá son emitido por participantes regulares, entendidos como aquellos que periódicamente participan en el mercado de papel comercial o cuyas emisiones regularmente forman parte de los inventarios proporcionados por agentes negociadores especializados en la transacción de este tipo de valores.
+CAPÍTULO IV
+Portafolio de Dólares: Tramo de Inversión - Bonos soberanos
+con cobertura cambiaria
+Artículo 26.—Gestión. Este sub portafolio será gestionado por administradores externos, previamente nombrados por la Junta Directiva del Banco, según las políticas de inversión definidas en este capítulo.

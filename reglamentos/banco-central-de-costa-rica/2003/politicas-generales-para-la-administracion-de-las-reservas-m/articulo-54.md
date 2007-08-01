@@ -1,0 +1,1 @@
+Artículo 54.—Contrapartes y bolsas para contratos de futuros. Los Contratos Futuros sobre bonos podrán ser negociados únicamente con Futures Commission Merchants members de alguna de las bolsas autorizadas.

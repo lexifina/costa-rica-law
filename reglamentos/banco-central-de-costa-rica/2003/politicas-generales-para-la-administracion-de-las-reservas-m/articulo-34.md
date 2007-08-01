@@ -1,4 +1,1 @@
-Artículo 34.—Acciones a tomar ante una pérdida de requisitos de inversión
-En caso de presentarse una pérdida de requisitos de inversión, si la inversión tiene un plazo al vencimiento menor a 6 meses, el Comité de Reservas determinará la conveniencia de mantenerla o liquidarla en un periodo no mayor a cinco días hábiles. Para esto los Departamentos Administración de Activos y Pasivos (DAAP) y Análisis y Control de Riesgos (DACR) proveerán la información necesaria para tomar la decisión. En caso de que la inversión tenga un plazo al vencimiento mayor a 6 meses o la calificación de riesgo de riesgo sea inferior al grado de inversión, la inversión deberá liquidarse en un plazo de 5 días hábiles.
-El Comité de Reservas deberá mantener informada a la Junta Directiva sobre los acontecimientos y decisiones adoptadas.
-(Así adicionado mediante sesión N 5284 del 21 de junio de 2006)
+Artículo 34.—Duración. La duración efectiva del portafolio deberá mantenerse en un rango de +/- 1 año con respecto a la duración efectiva del índice de referencia N1G1.

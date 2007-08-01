@@ -1,3 +1,1 @@
-CAPÍTULO V
-Otras Disposiciones
-Artículo 24.—Prohibición. No será permitido colocar inversiones en entidades clasificadas como paralelas ("offshore").
+Artículo 24.—Apalancamiento. No será permitido el apalancamiento. No se considerará que el portafolio está apalancado si la suma del valor de mercado de todas las posiciones del portafolio (excluyendo los instrumentos del mercado de dinero y el efectivo), más la exposición nominal neta de los futuros; es menor o igual al valor total de mercado del portafolio.

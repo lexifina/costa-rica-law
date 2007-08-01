@@ -1,0 +1,1 @@
+Artículo 43.—Composición por moneda. El portafolio en euros se invertirá en activos denominados en esa moneda y se mantendrá calzado con los pasivos que mantenga el Banco Central de Costa Rica en euros.

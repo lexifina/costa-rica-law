@@ -1,1 +1,5 @@
-Artículo 28.—Calificaciones de Riesgo. En el caso de que no exista equivalencia entre las calificaciones de riesgo de una entidad, gobierno o país que cuentan con ratings de dos o más de las agencias calificadoras de riesgo internacional, de Standard & Poor’s, Moody’s Investor Services y Fitch Iba, aplicará la calificación menor.
+Artículo 28.—Instrumentos elegibles. Este sub portafolio podrá ser invertido en los siguientes activos:
+a. Instrumentos de corto plazo: Certificados de Depósito a Plazo (CDs) y Euro Certificados de Depósito a Plazo (ECD); Papel Comercial y Euro Papel Comercial; Depósitos Bancarios a la vista y a plazo.
+b. Instrumentos de largo plazo: Bonos, notas y otros instrumentos de deuda incluyendo instrumentos de descuento, emitidos con garantía incondicional de pagos puntuales de intereses, principal y premio (si existe), emitidos por alguna de las entidades autorizadas en el artículo 29 de la presente normativa.
+c. Contratos “forward” sobre tipos de cambio denominados en alguna de las monedas autorizadas en el artículo 27; siempre y cuando la contraparte cumpla con las condiciones establecidas en el artículo 30 de la presente normativa.
+d. Contratos de Futuros donde el subyacente es un bono de gobierno soberano y emitidos por alguna de las bolsas de futuros autorizadas y denominada en alguna de las monedas autorizadas en el artículo 27.

@@ -1,1 +1,6 @@
-Artículo 32.—Agentes negociadores. El Banco Central efectuará las operaciones de compra y venta de títulos a través de agentes negociadores de activos en los mercados internacionales. Estos deberán ser reconocidos como primary dealers por: el Banco de la Reserva Federal de Nueva York, la Security Exchange Commission o la European Primary Dealers Association.
+Artículo 32.—Montos máximos por emisiones y emisores. Aplican los siguientes límites:
+a. La inversión en los instrumentos autorizados en el inciso b del
+artículo 28, se harán únicamente en las emisiones cuyo monto total sea igual o superior a US$500 millones o su equivalente en la moneda autorizada en el artículo 27 de la presente normativa.
+b. El monto máximo de inversión por emisión autorizada en el inciso b del artículo 28 de esta normativa, será como máximo un 20% del monto en circulación de dicha emisión.
+c. El monto máximo permitido para inversiones en emisores incluidos en el índice de referencia N1G1 con calificación crediticia menor a A+/A1/A+ de Standard & Poor´s, Moody´s Investor Servicies and Fitch, respectivamente, no debe exceder el mismo porcentaje de participación que poseen en el índice de referencia.
+d. El monto máximo permitido para inversiones en emisores no incluidos en el índice de referencia N1G1, será de un 5% del valor de mercado del portafolio. Además, el valor total en emisores que no pertenecen al índice de referencia N1G1 no puede exceder el 50% del valor de mercado del subportafolio.

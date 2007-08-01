@@ -1,4 +1,1 @@
-Artículo 9º—Composición por moneda. Las reservas monetarias internacionales del Banco Central de Costa Rica estarán denominadas en dólares de los Estados Unidos de América y en euros.
-Las RMI Disponibles constituidas en dólares y en euros, son aquellos activos líquidos que constituyen un pasivo en dólares de los Estados Unidos de América y en euros, respectivamente, para el Banco Central de Costa Rica.
-Las RMI denominadas en dólares se invertirán en activos emitidos en dólares de los Estados Unidos de América o bien en otras divisas internacionales. La exposición en monedas diferentes al dólar de los Estados Unidos de América deberá ser contrarrestada mediante la adquisición de instrumentos de cobertura.
-Las RMI denominadas en euros se invertirán en activos emitidos en esa misma moneda.
+Artículo 9º—Control de políticas. La Auditoria Interna es responsable de ejercer el control y la supervisión sobre la custodia, la administración y la ejecución de las Políticas Generales para la Administración de las Reservas Monetarias Internacionales. Al menos una vez cada año presentará a la Junta Directiva del Banco Central un informe sobre la labor realizada.

@@ -1,0 +1,1 @@
+Artículo 55.—Administración de cuentas para contratos de futuros. Se autoriza la apertura de cuentas de margen con el clearing broker que autorice el Comité de Reservas para efectos de los contratos de futuros. Estas cuentas deberán mantenerse en su saldo mínimo exigido.

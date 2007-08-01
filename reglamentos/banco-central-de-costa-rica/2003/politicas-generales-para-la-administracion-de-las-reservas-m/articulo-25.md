@@ -1,3 +1,1 @@
-Artículo 25.—Montos y plazos máximos de inversión.
-Corresponderá al Comité de Reservas definir los montos máximos que podrán ser invertidos en los diferentes instrumentos y entidades, de conformidad con los parámetros de riesgo indicados en el presente reglamento.
-Este comité cuando lo considere necesario, podrá limitar aún más los plazos máximos de inversión de los tramos de liquidez y de inversión para los portafolios de dólares y euros.
+Artículo 25.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse a través de agentes negociadores de activos en los mercados internacionales. Estos deberán ser reconocidos como primary dealers por: el Banco de la Reserva Federal de Nueva York, la Security Exchange Commission o la European Primary Dealers Association.

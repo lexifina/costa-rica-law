@@ -1,0 +1,1 @@
+Artículo 35.—Error de seguimiento. El error de seguimiento anual (tracking error) deberá mantenerse por debajo de los 100 b.p. Si dicho límite fuera excedido a raíz de movimientos propios del mercado, el portafolio deberá ser rebalanceado dentro de los 30 días naturales siguientes, con el fin de cumplir con el límite establecido.

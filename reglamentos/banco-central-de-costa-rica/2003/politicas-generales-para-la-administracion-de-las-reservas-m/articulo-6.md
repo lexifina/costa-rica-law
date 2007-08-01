@@ -1,14 +1,17 @@
 Artículo 6º—Funciones del Comité. Las funciones del Comité serán las siguientes:
-a) Establecer límites cuantitativos de inversión.
-b) Definir el tamaño de cada uno de los tramos que conforman las Reservas Monetarias Internacionales.
-c) Establecer anualmente metas de desempeño para el tramo de liquidez y los sub-portafolios de la gestión interna y externa del tramo de inversión, del portafolio de dólares, que forman parte de las reservas monetarias internacionales y los procedimientos para evaluar dichas metas.
-d) Autorizar las inversiones en los instrumentos elegibles, de acuerdo con esta normativa, la primera vez que dichas inversiones se efectúen.
-e) Otorgar el reconocimiento de "banco extranjero de primer orden" a las entidades que cumplan con los requisitos establecidos en las "Normas para el reconocimiento de Bancos Extranjeros de Primer Orden".
-f) Hacer de conocimiento de la Junta Directiva del Banco Central, las decisiones tomadas en virtud de las facultades antes señaladas.
-g) Ejercer las demás atribuciones que le confiera la Junta Directiva del Banco Central.
-*g) Decidir la conveniencia de mantener o liquidar anticipadamente una posición en caso que se presente una pérdida de requisitos de inversión. Para esto, utilizará información aportada por los Departamento de Administración de Activos y Pasivos y de Análisis y Control de Riesgos.
-*(NOTA: Este inciso fue adicionado mediante sesión Nº 5284 del 21 de junio de 2006)
-h) Autorizar las entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las Reservas Monetarias Internacionales, a la luz de la normativa que regula esta materia.
-(Así adicionado el inciso anterior en sesión N° 5305 del 15 de noviembre de 2006)
-i) Aprobar las Bolsas de Valores de interés para el Banco Central de Costa Rica en las que se podrán negociar los contratos de futuros.
-(Así adicionado el inciso anterior en sesión N° 5305 del 15 de noviembre de 2006)
+a. Definir el tamaño de cada uno de los tramos que conforman las Reservas Monetarias Internacionales.
+b. Con respecto a los portafolios que se gestionan en forma interna:
+i. Establecer límites cuantitativos de inversión.
+ii. Establecer anualmente metas de desempeño y los procedimientos para fijar dichas metas.
+iii. Autorizar las inversiones en los tipos de instrumentos elegibles, cuando sus características y riesgos sean muy distintas a los inversiones que componen el portafolio hasta ese momento.
+c. Con respecto a los portafolios que se gestionan en forma externa:
+i. Revisar la gestión y desempeño del administrador en forma periódica.
+ii. Establecer lineamientos adicionales a lo dispuesto en estas políticas, cuando lo estime prudente para la gestión de los riesgos del portafolio.
+iii. Definir detalles metodológicos para la medición de riesgos, cuando lo estime necesario.
+d. Autorizar las contrapartes con las que se podrán efectuar operaciones.
+Esta función incluirá:
+i. La autorización de las entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las Reservas Monetarias Internacionales, a la luz de la normativa que regula esta materia.
+ii. Otorgar el reconocimiento de “banco extranjero de primer orden” a las entidades que cumplan con los requisitos establecidos en las “Normas para el reconocimiento de Bancos Extranjeros de Primer Orden”.
+iii. Aprobar las Bolsas en las que se podrán negociar los contratos de futuros.
+e. Decidir la conveniencia de mantener o liquidar anticipadamente una posición, en caso que se presente una pérdida de requisitos de inversión. Para esto, utilizará información aportada por los Departamentos de Análisis y Control de Riesgos y de Administración de Reservas Monetarias Internacionales y, cuando aplique, la información aportada por los gestores externos.
+f. Hacer de conocimiento de la Junta Directiva del Banco Central, las decisiones tomadas en virtud de las facultades antes señaladas.

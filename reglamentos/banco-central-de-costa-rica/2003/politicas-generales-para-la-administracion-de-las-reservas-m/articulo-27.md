@@ -1,1 +1,3 @@
-Artículo 27.—Riesgo soberano. El Comité de Reservas, cuando lo considere necesario, podrá limitar aún más las inversiones en el tramo de liquidez de los portafolios de dólares y euros, para los depositarios y emisores, cuyo país de residencia cuenta con una calificación de riesgo soberano de largo plazo menor a AA-, Aa3 o AA- según las agencias calificadoras de riesgo Internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+Artículo 27.—Monedas de inversión. La moneda base de este sub portafolio es el dólar de los Estados Unidos de América.
+Este sub portafolio podrá ser invertido en activos denominados en las monedas de los países incluidos en el índice de referencia y en dólares de los Estados Unidos de América.
+La exposición en monedas diferentes al dólar de los Estados Unidos de América será contrarrestada mediante la adquisición de instrumentos de cobertura.
