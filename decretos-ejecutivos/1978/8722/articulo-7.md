@@ -1,1 +1,2 @@
 Artículo 7º.- Es prohibida la instalación de máquinas para juegos de cualquier clase de las mencionadas en este reglamento, en lugares en donde se expendan licores.
+(La Sala Constitucional mediante resoluciones N° 11154-07 de las 14:48 horas del 01 de agosto del 2007 y 11627-07 de las 8:36 horas del 15 de agosto del 2007, interpretó que no es inconstitucional este artículo, en tanto se interprete que no se aplica a los lugares donde sólo se expendan licores, como bares y cantinas.)
