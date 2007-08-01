@@ -14,3 +14,4 @@ Reglamento del Plan de Manejo de Aplicación en el Refugio Nacional de Vida Silv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-16 | la propia norma |
+| 2 | 2007-08-01 | SINALEVI (sin norma nombrada) |
