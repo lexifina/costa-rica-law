@@ -1,0 +1,3 @@
+CAPÍTULO II
+DE LA CLASIFICACIÓN LOS VEHICULOS
+Artículo 3º—Ningún vehículo estará asignado a funcionaria determinada o funcionario determinado, con excepción de aquellos que se destinan a uso discrecional. No obstante lo anterior de acuerdo con la naturaleza de las funciones y la necesidad del servicio, se podrá asignar vehículos, de manera excepcional, a determinadas áreas o unidades del INAMU. Los vehículos asignados a unidades o dependencias administrativas alejadas de las oficinas centrales estarán bajo la responsabilidad de la persona de más alto nivel de acuerdo al Manual de Clases y la Escala de Clasificación de Puestos y sujeto a los controles establecidos para el resto de los vehículos.

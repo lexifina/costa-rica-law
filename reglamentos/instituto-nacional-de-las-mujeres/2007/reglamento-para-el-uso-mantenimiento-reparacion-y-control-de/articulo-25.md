@@ -1,0 +1,1 @@
+Artículo 25º—Las infracciones a las disposiciones del presente reglamento serán sancionadas, según la gravedad, de conformidad con el Reglamento Autónomo de Servicios del INAMU lo anterior sin perjuicio de lo correspondiente según el ordenamiento jurídico vigente.
