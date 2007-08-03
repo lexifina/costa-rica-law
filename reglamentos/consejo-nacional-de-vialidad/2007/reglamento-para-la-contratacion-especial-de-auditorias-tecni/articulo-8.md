@@ -1,0 +1,1 @@
+Artículo 8º—Reglamento aplicable para auditorias técnicas. El procedimiento de contratación (Sistema Especial de Contratación) regulado en este reglamento interno se regirá por todos los principios constitucionales y legales en materia de Contratación Administrativa.

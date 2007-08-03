@@ -1,0 +1,1 @@
+Artículo 36.—La oferta del Proveedor. La respuesta por parte del Proveedor, sea ésta de aceptación o rechazo justificado de lo requerido por el CONAVI, deberá venir debidamente firmada por el representante legal de este. En caso de respuesta positiva se entenderá que la oferta tendrá una vigencia de 10 días hábiles.

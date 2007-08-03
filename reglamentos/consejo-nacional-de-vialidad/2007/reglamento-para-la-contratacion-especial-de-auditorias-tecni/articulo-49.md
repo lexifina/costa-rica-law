@@ -1,0 +1,3 @@
+Artículo 49.—Resultado de la Evaluación. La evaluación de la organización de servicios de auditoria técnica será aceptable cuando en tres de las cuatro aspectos que valora la unidad encargada de verificar el cumplimiento contractual, el resultado sea ACEPTABLE. Caso contrario el resultado de la evaluación será NO ACEPTABLE.
+Si el resultado de Evaluación del Desempeño fuera NO ACEPTABLE en dos períodos consecutivos o no, la organización será excluida del Registro por el período de 1 (un) año; al cabo del cual deberá gestionar nuevamente su incorporación.
+Una vez que reingrese, si obtuviere un Resultado en su Evaluación del Desempeño de NO ACEPTABLE, se dará por excluida definitivamente del registro de elegibles.

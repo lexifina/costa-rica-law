@@ -1,0 +1,1 @@
+Artículo 44.—Del plazo de ejecución. El plazo de ejecución de las contrataciones que se generen amparadas en este Reglamento será de un año y medio prorrogable por un período anual adicional, a criterio de la Administración.
