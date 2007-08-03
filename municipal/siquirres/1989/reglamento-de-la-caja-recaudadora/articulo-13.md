@@ -1,4 +1,4 @@
 CAPITULO CUARTO
 Del ingreso de la Caja Recaudadora
-Artículo 13.-A la Caja Recaudadora ingresará únicamente dinero efectivo salvo cheque por el monto completo que se adeuda a nombre de la Municipalidad de Siquirres y que dicho cheque esté debidamente firmado por el dorso con el número de cédula del endosante y su número de teléfono.
-Cuando el cheque preste alguna duda, se procederá a hacer la consulta con el señor Ejecutivo Municipal.
+Artículo 13.—A la Caja Recaudadora ingresará únicamente dinero en efectivo, cheques debidamente firmados a nombre de la Municipalidad de Siquirres y tarjetas de débito o crédito emitidas por el sistema Bancario Estatal. Cuando el cheque presente alguna duda se consultará al Banco Emisor.
+(Así reformado y publicado en La Gaceta N° 148 del 03 de agosto del 2007).
