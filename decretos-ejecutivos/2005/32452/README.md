@@ -14,3 +14,4 @@ Lineamientos que regulan la aplicación del artículo 6 de la Ley N° 8131, cons
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-06 | la propia norma |
+| 2 | 2007-08-06 | Decreto Ejecutivo 33960 (2007-08-06) |
