@@ -14,3 +14,4 @@ Reglamento para Emisión de Certificaciones (Reglamento para la Compra y Distrib
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-19 | la propia norma |
+| 2 | 2007-08-06 | Reglamento municipal 67 (2007-08-06) |
