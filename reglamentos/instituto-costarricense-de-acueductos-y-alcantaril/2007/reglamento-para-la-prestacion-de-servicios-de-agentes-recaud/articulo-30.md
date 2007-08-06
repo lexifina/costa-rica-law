@@ -1,0 +1,1 @@
+Artículo 30.—El agente recaudador que aplique la modalidad de cobro manual y/o por conectividad, asume la responsabilidad por los daños que pueda ocasionar a terceros, por la suspensión de los servicios, como consecuencia de la no entrega oportuna de las cancelaciones o recaudación a AyA.

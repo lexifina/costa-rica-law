@@ -1,0 +1,1 @@
+Artículo 33.—Es obligación de todo agente recaudador presentar a AyA la documentación correspondiente a su personería y titularidad de sus acciones, con el objeto de verificar el régimen de prohibiciones para contratar con la administración.

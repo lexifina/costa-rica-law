@@ -1,0 +1,1 @@
+Artículo 4º—Acueductos y Alcantarillados, facilitará a sus clientes la cancelación de los servicios que brinda, por medio de la contratación de personas físicas o jurídicas, de derecho público o privado como Agentes Recaudadores Externos, a Nivel Nacional.

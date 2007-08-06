@@ -1,0 +1,1 @@
+Artículo 42.—Se deroga el actual Reglamento para la Prestación de Servicios de Agentes Recaudadores, aprobado en el Diario Oficial La Gaceta 217 del doce de noviembre de mil novecientos noventa y tres y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 41.—Para los agentes recaudadores que utilicen el sistema de conectividad de AyA y que incurran en inconsistencias que atenten contra la integridad sobre la infraestructura tecnológica, asumirán los gastos por daños y perjuicios que AyA deba incurrir para normalizar la situación.

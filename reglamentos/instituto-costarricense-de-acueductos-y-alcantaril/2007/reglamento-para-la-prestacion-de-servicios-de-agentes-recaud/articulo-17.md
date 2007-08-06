@@ -1,0 +1,1 @@
+Artículo 17.—Los encargados de Control de Agentes Recaudadores de cada Región, serán los responsables de procurar los ajustes, prórrogas y vigencias de las garantías que deberá realizar cada seis meses e informar al Área Financiera por escrito de cualquier cambio que afecte las garantías para que ésta proceda con el trámite respectivo.

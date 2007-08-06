@@ -1,0 +1,1 @@
+Artículo 32.—Durante el plazo de la vigencia del contrato, será de acatamiento obligatorio para el agente recaudador todas y cada una de las disposiciones contenidas en este reglamento, el Manual de Políticas para la Prestación de Servicios de Agentes Recaudadores, el contrato suscrito y las directrices que AyA emita para el mejor cumplimiento del servicio.

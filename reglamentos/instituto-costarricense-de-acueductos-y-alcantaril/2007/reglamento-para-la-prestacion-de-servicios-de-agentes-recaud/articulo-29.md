@@ -1,0 +1,1 @@
+Artículo 29.—El agente recaudador que aplique la modalidad de cobro manual, deberá entregar en perfecto estado al Instituto los recibos cobrados, comprobantes de depósitos bancarios y la lista de los recibos cobrados, indicada en el artículo 23 de este reglamento.
