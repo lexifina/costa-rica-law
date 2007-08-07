@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del Consejo de Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-23 | la propia norma |
+| 2 | 2007-08-07 | Decreto Ejecutivo 34094 (2007-08-07) |
