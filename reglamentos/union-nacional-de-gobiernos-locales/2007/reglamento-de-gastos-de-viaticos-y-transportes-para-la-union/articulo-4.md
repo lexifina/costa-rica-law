@@ -1,0 +1,1 @@
+Artículo 4º—Oportunidad del gasto: El fundamento de esta erogación por parte de la UNGL nace con relación al párrafo segundo del Artículo Único de la Ley 7888 que es reforma al Articulo 30 del vigente Código Municipal publicado en el Diario Oficial La Gaceta No 138 del 16 de julio del 2000 y en sus Estatutos.
