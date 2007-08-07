@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Disposiciones finales
+Artículo 29.—De acuerdo con el interés público involucrado y las posibilidades, la Institución podrá brindar el transporte a los asociados y beneficiarios que participen en actividades de capacitación y otras, programadas por la UNGL y que se realicen fuera de sus respectivos centros de trabajo, dentro o fuera de la jornada laboral, y que tengan lugar en el territorio nacional. En su defecto podrá sufragar los gastos que el traslado implique acogiéndose a las tarifas establecidas para los medios colectivos de transporte, para lo cual se autorizará el monto máximo sufragable, que sólo podrá comprender el recorrido entre el centro de trabajo y el lugar donde se realice la actividad y viceversa.

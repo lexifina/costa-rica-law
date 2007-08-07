@@ -1,0 +1,1 @@
+Artículo 25—El encargado de Contabilidad revisa que la documentación entregada por el usuario cumpla coincida con lo registrado en la fórmula “Solicitud de Materiales”. Cumplido lo anterior, se da por liquidada la cuota anterior.

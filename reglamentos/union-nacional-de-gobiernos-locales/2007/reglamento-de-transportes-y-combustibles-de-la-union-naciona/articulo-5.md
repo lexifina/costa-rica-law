@@ -1,0 +1,1 @@
+Artículo 5º—Todos los conductores de vehículos propiedad de la UNGL, están obligados a conocer y cumplir con lo dispuesto en la “Ley de Tránsito por Vías Públicas Terrestres de Costa Rica”, así como sus reglamentos y demás normativa vigente.

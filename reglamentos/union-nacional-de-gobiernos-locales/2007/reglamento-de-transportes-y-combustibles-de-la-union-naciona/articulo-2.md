@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento regula todo lo relativo a la administración de los recursos y equipos de transporte automotor, su utilización y prestación de los servicios de transporte de personas, objetos y materiales de la Unión Nacional de Gobiernos Locales.

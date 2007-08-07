@@ -1,0 +1,1 @@
+Artículo 22.—La Contabilidad archiva la fórmula y envía a la Proveeduría la solicitud de compra de combustible, con el debido trámite de contenido presupuestario, con la cual el conductor podrá hacer retiro de los cupones o dinero solicitados.

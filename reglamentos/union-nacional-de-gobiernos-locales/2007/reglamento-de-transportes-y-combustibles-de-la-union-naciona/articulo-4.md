@@ -1,0 +1,1 @@
+Artículo 4º—Los vehículos de uso administrativo general, además de lo establecido en la Ley 7331 de Tránsito por Vías Públicas Terrestres, deberán mantener los permisos de circulación, revisión técnica y emisión de gases vigente.

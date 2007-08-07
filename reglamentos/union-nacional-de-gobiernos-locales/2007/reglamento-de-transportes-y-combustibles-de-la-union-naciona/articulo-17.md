@@ -1,0 +1,1 @@
+Articulo 17.—Para lograr un mayor aprovechamiento, el conductor deberá acumular en un solo viaje, varias solicitudes de transporte que se generen hacia una misma zona, región, sitio o ruta, facilitando una adecuada coordinación del viaje.
