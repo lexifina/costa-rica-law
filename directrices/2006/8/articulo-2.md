@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El Ministerio de Hacienda dará trámite únicamente a las denuncias que versen sobre posibles hechos irregulares o ilegales e relación con el uso, manejo, recaudación y distribución de fondos públicos que afecten la Hacienda Pública y lo dispuesto por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422.

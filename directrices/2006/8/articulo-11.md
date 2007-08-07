@@ -1,0 +1,1 @@
+Artículo 11.—Seguimiento. Las dependencias del Ministerio de Hacienda darán el seguimiento de las denuncias que se presenten ante éstas o que les sean remitidas por otros órganos del Ministerio de Hacienda.
