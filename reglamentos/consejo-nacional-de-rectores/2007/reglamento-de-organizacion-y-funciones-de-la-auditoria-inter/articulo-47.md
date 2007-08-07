@@ -1,0 +1,1 @@
+Artículo 47.—Capacitación permanente. El auditor interno y el personal de auditoría interna deberán cumplir un compromiso de formación permanente, mejorando continuamente sus habilidades y la efectividad y calidad de los servicios.

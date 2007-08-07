@@ -1,0 +1,1 @@
+Artículo 38.—Denuncia penal en contra del jerarca. En caso de que la investigación genere una denuncia penal en contra del jerarca o alguno de sus miembros, la denuncia ante el Ministerio Público deberá interponerla la auditoría interna, en los demás casos recomendará a la administración la apertura del trámite respectivo de la denuncia.

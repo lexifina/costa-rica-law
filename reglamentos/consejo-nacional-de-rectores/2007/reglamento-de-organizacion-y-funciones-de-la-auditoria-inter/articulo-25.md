@@ -1,0 +1,8 @@
+Artículo 25.—Metodologías, procedimientos y prácticas. Sin perjuicio de lo estipulado en otros artículos de este reglamento, en la Ley No. 8292 de Control Interno y lo dispuesto por la Contraloría General de Control Interno en cuanto a las regulaciones para la auditoría interna, el auditor interno tendrá las siguientes obligaciones o responsabilidades:
+a) Establecer las regulaciones rectoras de la Unidad de Auditoría Interna del CONARE.
+b) Actualizar e implementar los mecanismos para el manejo eficaz de las relaciones y coordinaciones que en el ejercicio de las competencias de la auditoría interna, sean aplicables con el jerarca, titulares subordinados y otras instancias internas o externas, en coordinación con los funcionarios de las unidades internas del CONARE.
+c) Regular la planificación de la auditoría interna para el desarrollo de las labores, basados en la valoración de riesgos.
+d) Diseñar e implementar los diferentes procesos inherentes a la auditoría interna, así como la elaboración de instrumentos para la ejecución del trabajo (procesos típicos en las diferentes labores de auditoría, estudios especiales de auditoría, irregularidades, control interno, presupuesto, etc., asesorías, advertencias, autorización de libros).
+e) Establecer los trámites que se le darán a los resultados de los estudios de la auditoría interna.
+f) Establecer los procedimientos que se le darán (internamente y externamente) a las recomendaciones no aceptadas por la administración.
+g) Establecer los criterios mínimos que se tomarán en cuenta para mantener un programa de aseguramiento continuo de la calidad y mejora de la auditoría interna en todos los ámbitos incluyendo la aplicación de la normativa técnica y jurídica aplicable.

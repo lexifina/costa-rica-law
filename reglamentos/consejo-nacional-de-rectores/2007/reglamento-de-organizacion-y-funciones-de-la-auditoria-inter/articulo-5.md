@@ -1,0 +1,1 @@
+Artículo 5º—Obligación de contar con una auditoría interna. El Consejo Nacional de Rectores, dentro de su estructura orgánica cuenta con una auditoria interna, que es parte integral y vital del sistema de control en concordancia con el artículo 20 de la Ley General de Control Interno.

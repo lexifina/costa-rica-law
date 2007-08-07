@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Ejecución de la auditoría
+Artículo 26.—El auditor interno deberá formular y mantener actualizado un Manual de Normas Técnicas y Administrativas, con el propósito de brindar un marco de referencia que defina las normas y procedimientos de auditoría aplicables al CONARE. Este manual debe estar fundamentado en los lineamientos generales que emite la Contraloría General de la República en el “Manual de Procedimientos de Auditoría para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización”, las emitidas por el Colegio de Contadores Públicos de Costa Rica aplicables al sector público y las establecidas por la institución.

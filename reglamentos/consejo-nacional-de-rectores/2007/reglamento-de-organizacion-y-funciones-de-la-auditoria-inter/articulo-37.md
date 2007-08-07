@@ -1,0 +1,1 @@
+Artículo 37.—Denuncia penal. En caso de que los hechos ameriten la aplicabilidad de una denuncia penal, se valorará con el asesor legal todos los extremos del expediente respectivo en lo que sea aplicable, para el envío de la misma al Ministerio Público y que se proceda como a derecho corresponda.

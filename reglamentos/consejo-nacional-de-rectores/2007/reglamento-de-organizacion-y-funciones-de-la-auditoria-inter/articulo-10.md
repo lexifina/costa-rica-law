@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización
+Artículo 10.—Ubicación. El auditor interno depende orgánicamente del Consejo Nacional de Rectores, quien establecerá las regulaciones de tipo administrativo que le sean aplicables. Los demás funcionarios de la auditoría interna se regirán de acuerdo con las disposiciones aplicables al resto del personal. Su nombramiento será conforme las directrices emitidas por la Contraloría General de la República, y salvo disposición contraria, su jornada laboral será de tiempo completo, con las consabidas prerrogativas en materia de remuneración contempladas por el ente contralor y el presente reglamento.

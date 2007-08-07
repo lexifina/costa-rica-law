@@ -1,0 +1,2 @@
+Artículo 16.—Presupuesto anual de la auditoría. La auditoría interna elaborará su presupuesto anual en forma independiente de acuerdo con los lineamientos establecidos por la Contraloría General de la República, y con los términos definidos por la administración, cumpliendo con los requisitos establecidos.
+El auditor interno presentará el plan anual operativo que justifique el presupuesto de la auditoría interna, el cual deberá contener al menos objetivos específicos, indicadores y fechas de cumplimiento.

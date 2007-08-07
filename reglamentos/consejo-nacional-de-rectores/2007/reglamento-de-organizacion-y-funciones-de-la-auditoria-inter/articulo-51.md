@@ -1,0 +1,1 @@
+Artículo 51.—Se deberá evaluar al personal de auditoría interna una vez al año, por medio de la aplicación de herramientas y controles actualizados de acuerdo con la normativa vigente y según los lineamientos de la Contraloría General de la República.

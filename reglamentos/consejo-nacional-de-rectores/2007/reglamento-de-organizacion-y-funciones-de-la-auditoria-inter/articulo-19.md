@@ -1,0 +1,1 @@
+Artículo 19.—Relaciones y coordinaciones. En la comunicación e intercambio de información con la Contraloría General de la República, la Procuraduría General de la República, u otros entes fiscalizadores establecidos por ley en el ejercicio de sus competencias, la auditoría interna goza de total independencia.
