@@ -13,3 +13,4 @@ Reglamento Ley Asociaciones Solidaristas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-08-14 | la propia norma |
+| 2 | 2007-08-08 | Decreto Ejecutivo 34776 (2007-08-08) |
