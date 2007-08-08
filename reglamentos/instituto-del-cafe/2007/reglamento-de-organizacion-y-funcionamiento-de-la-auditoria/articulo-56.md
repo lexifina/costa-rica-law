@@ -1,0 +1,1 @@
+Artículo 56.—Acceso a Junta Directiva. Debe existir comunicación entre el Auditor(a) Interno(a) y la Junta Directiva, para los aspectos de interés común, referentes al interés institucional. El acceso a la Junta Directiva se dará a petición de ambas partes, conforme sea requerido en el cumplimiento de la función de Auditoría Interna.

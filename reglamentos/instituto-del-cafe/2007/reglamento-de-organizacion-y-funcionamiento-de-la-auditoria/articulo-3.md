@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este Reglamento es de carácter obligatorio para la Auditoría Interna del ICAFE y para la administración activa, en todos aquellos artículos que les sean aplicables, conforme lo dispuesto por la Ley General de Control Interno y las disposiciones de la Contraloría General de la República.

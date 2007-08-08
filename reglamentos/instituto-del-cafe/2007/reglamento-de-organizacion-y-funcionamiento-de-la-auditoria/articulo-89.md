@@ -1,0 +1,4 @@
+Artículo 89.—Comunicación del oficial de resultados. El Auditor(a) Interno(a) comunicará oficialmente los resultados de los servicios de auditoría, mediante informes escritos, u oficios dirigidos a la Junta Directiva, Dirección Ejecutiva o titulares subordinados de la Administración, con competencia y autoridad para ordenar la implantación de las recomendaciones o atender los asuntos comunicados.
+La comunicación oficial de resultados se regirá por lo dispuesto en los artículos 35, 36, 37 de la Ley General de Control Interno. Se remitirá copia de estos informes a tercero auditado u otras instancias de control conforme la normativa vigente.
+Lo comunicación oficial de los servicios preventivos será comunicada por oficios u otros medios conforme jurisprudencia emitida por la Contraloría General de la República.
+Se remitirá copia de estos documentos a tercero auditado u otras instancias de control conforme la normativa vigente.

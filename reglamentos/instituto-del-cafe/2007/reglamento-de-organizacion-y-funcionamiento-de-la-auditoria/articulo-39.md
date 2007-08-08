@@ -1,0 +1,1 @@
+Artículo 39.—Medidas administrativas. Las medidas administrativas tomadas por la Junta Directiva respecto al Auditor(a) Interno(a) no podrán afectar negativamente la actividad de la Auditoría Interna.

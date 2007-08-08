@@ -1,0 +1,2 @@
+Artículo 75.—Estructura de los informes, oficios y memorandos. El texto de los informes de auditoría o estudio especiales de auditoría constará, como principal división, de los cuatro siguientes capítulos: introducción, comentarios, conclusiones y recomendaciones.
+Sin embargo, los oficios, memorandos u otros, no necesariamente deben ordenarse de acuerdo con la división antes mencionada, siempre y cuando no vaya en demérito de la concisión, exactitud, objetividad y claridad de la información.

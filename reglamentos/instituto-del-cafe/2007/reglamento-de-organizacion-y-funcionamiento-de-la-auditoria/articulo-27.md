@@ -1,0 +1,3 @@
+Del Auditor(a) Interno(a)
+Artículo 27.—Posición. El puesto de Auditor(a) Interno(a) le corresponde la dirección superior y administración de la Auditoría Interna, debiendo administrar su personal (planificar, organizar, coordinar, dirigir, supervisar, evaluar, motivar, informar de decisiones, y brindar apoyo de capacitación entre otros) hacia el logro adecuado de los objetivos y metas de la Auditoría Interna, así como garantizar un recurso humano competitivo en el ejercicio de las labores respectivas.
+Su ubicación en la estructura organizativa y salarial deberá corresponder con los niveles que dependan directamente de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 90.—Recibido de los informes oficiales. La Auditoría Interna debe revisar que en una copia de la nota de remisión del informe, conste la fecha de recibido, y el responsable de la recepción por parte de la Administración, la Junta Directiva, tercero auditado u otras instancias de control.

@@ -1,0 +1,2 @@
+Artículo 22.—Dependencia orgánica y regulaciones aplicables. El Auditor(a) Interno(a) dependerá orgánicamente de la Junta Directiva, quien nombrará y establecerá las regulaciones de tipo administrativo que le serán aplicables. Su rol es de asesor de la Junta Directiva.
+Corresponderá al Auditor(a) Interno(a) la dirección superior de la Auditoría Interna. En cuanto a las regulaciones de tipo administrativo de personal de la Auditoría Interna deberá atenderse lo dispuesto en los artículos 24 y 28 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 111.—Planteamiento de conflictos ante la Contraloría. Si la resolución de la Junta Directiva ordena soluciones distintas de las recomendadas emitidas por la Auditoría Interna, esta manifestara por escrito su inconformidad, rigiéndose esta situación de conflicto por lo establecido en el artículo 38 de la Ley Nº 8292.

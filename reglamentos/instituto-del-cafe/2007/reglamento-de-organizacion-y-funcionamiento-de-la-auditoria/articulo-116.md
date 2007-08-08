@@ -1,0 +1,1 @@
+Artículo 116.—Modificaciones y reformas al Reglamento. El Auditor(a) Interno(a) será el responsable de someter a aprobación de la Junta Directiva las reformas que puedan ser necesarias para mantener vigente el Reglamento.

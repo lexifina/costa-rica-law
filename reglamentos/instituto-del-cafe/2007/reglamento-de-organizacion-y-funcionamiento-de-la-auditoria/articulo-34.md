@@ -1,0 +1,1 @@
+Artículo 34.—Recursos de la Auditoría. La Administración Activa, deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión, los cuales serán tramitados por el Auditor(a) Interno(a), conforme lo dispuesto en el artículo 27 de la Ley General de Control Interno.

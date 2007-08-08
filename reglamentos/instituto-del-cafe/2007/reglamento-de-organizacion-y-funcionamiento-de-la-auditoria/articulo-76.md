@@ -1,0 +1,1 @@
+Artículo 76.—Difusión de resultados de los servicios de Auditoría. El Auditor(a) Interno(a) debe disponer la difusión de los resultados a las partes apropiadas, bajo las regulaciones existentes para dichos efectos.

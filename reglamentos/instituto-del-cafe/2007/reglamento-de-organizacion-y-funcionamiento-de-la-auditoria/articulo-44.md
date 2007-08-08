@@ -1,0 +1,2 @@
+Artículo 44.—Establecimiento del programa de calidad. El Auditor(a) Interno (a) deberá establecer un programa de aseguramiento de la calidad, el cual asegure todos los aspectos de la actividad de la Auditoría.
+Este programa deberá incluir: supervisión, evaluaciones internas y evaluaciones externas. La definición del programa de aseguramiento de la calidad, la evaluación, los componentes, las herramientas y el proceso estará definido en el Manual de Políticas y Procedimientos de Auditoría Interna.
