@@ -1,0 +1,1 @@
+Artículo 2º—Dentro del marco legal respectivo, las dependencias podrán contribuir con recursos económicos en la medida de sus posibilidades, para la ejecución del Congreso, lo anterior en observancia del principio de legalidad al que se encuentra sujeta la Administración Pública.
