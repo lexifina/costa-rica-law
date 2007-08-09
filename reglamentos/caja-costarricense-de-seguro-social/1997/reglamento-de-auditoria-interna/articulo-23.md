@@ -1,3 +1,0 @@
-Artículo 23.—La Auditoría obtendrá material de prueba suficientemente competente y relevante, aplicando las técnicas y prácticas de auditoría, que permitan sustentar los memorandos e informes que proporcione.
-En toda auditoría se hará uso de los papeles de trabajo consistentes en cédulas, cuestionarios, diagramas y otros documentos en los cuales quedarán registrados los datos e información relativa a cada actividad realizada.
-El tipo de pruebas, extensión y su alcance serán determinadas según las técnicas de muestreo o juicio profesional. Dichas pruebas serán aplicadas de conformidad con las atribuciones de la Auditoría y lo que fuere de aplicación en las disposiciones de la Contraloría General de la República, según sea el caso.

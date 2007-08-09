@@ -1,1 +1,0 @@
-Artículo 20.—Al auditor interno le competen las funciones propias de la Administración de Recursos Humanos de la Auditoría. Las potestades y competencias en esta materia estarán normadas según el esquema vigente de delegación para aprobar movimientos de personal.

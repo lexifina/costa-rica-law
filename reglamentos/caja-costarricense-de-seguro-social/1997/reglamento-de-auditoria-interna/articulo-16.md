@@ -1,1 +1,0 @@
-Artículo 16.—Los servidores de la Auditoría desempeñarán sus funciones de modo que su labor sea medio de mejoramiento de la organización y funcionamiento general de la Caja. Por ello, actuarán con buen trato verbal, tacto y cortesía en el desempeño de sus funciones, sin que por ello se deje de mantener la objetividad del trabajo.

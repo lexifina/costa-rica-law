@@ -1,1 +1,0 @@
-Artículo 5°—La Auditoría interna de la Caja, evalúa a la Administración activa en forma oportuna, independientemente y posterior, en cuanto a las operaciones contables, financieras, técnicas y administrativas, como base para dar la asesoría constructiva y de protección a que se refiere el artículo segundo de este reglamento.

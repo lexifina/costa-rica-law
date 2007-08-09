@@ -1,1 +1,0 @@
-Artículo 25.—Las informaciones obtenidas por los funcionarios de la Auditoría en el ejercicio de sus funciones, tendrán carácter confidencial y no podrán revelar o comentar los datos, hechos, conclusiones, recomendaciones o acciones tomadas y la evidencia que los respalda, salvo en cumplimiento de sus deberes legales y reglamentarios y con autorización del Auditor o Subauditor.

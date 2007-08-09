@@ -1,1 +1,0 @@
-Artículo 31.—Al concluir la auditoría programada o el estudio i especial, la jefatura de la sede auditada debe atender al funcionario de la Auditoría Interna, para efectuar la conferencia final sobre los resultados de la evaluación. Del resultado de esta conferencia debe dejarse constancia escrita.

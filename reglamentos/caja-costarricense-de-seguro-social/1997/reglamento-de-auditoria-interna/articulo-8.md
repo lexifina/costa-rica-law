@@ -1,1 +1,0 @@
-Artículo 8°—Le corresponde a la Junta Directiva el nombramiento del Auditor y del Subauditor, quienes ejercerán sus cargos en forma indefinida y responderán directamente ante aquella por su gestión. Para su validez, el nombramiento requiere el voto favorable de al menos dos tercios de la totalidad de los miembros de esa Junta.

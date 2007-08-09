@@ -1,1 +1,0 @@
-Artículo 12.—La Auditoría interna debe tener los recursos humanos, tecnológicos, asesoría técnica y profesional interna o externa e instalaciones físicas apropiadas, para el cumplimiento de sus funciones.

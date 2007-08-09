@@ -1,4 +1,0 @@
-Artículo 37.—Las disposiciones de este Reglamento son de acatamiento obligatorio por todo el personal de la Caja. La negativa injustificada a atender oportunamente las solicitudes de información o de otro tipo planteadas por la Auditoría Interna se considerará como falta grave, para los efectos laborales y sin perjuicio de las responsabilidades de cualquier otra naturaleza.
-Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por la Junta Directiva, teniendo el criterio del Auditor Interno, previo a la toma de la decisión final.
-Rige a partir del primero de julio de 1997, y se deroga el Reglamento de Auditoría, aprobado en el artículo 4° de la sesión numero 5944, celebrada el 19 de agosto de 1985 y sus modificaciones".
-San José, 22 de mayo de 1997.

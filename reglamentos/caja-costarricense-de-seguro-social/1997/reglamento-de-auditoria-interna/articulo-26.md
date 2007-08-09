@@ -1,3 +1,0 @@
-CAPITULO V
-De la comunicación de resultados
-Artículo 26.—La Auditoría Interna debe comunicar los resultados de las auditorías de programas o estudios especiales, mediante memorandos, oficios o informes parciales durante la ejecución del trabajo o cuando situaciones graves así lo justifiquen, y al finalizar la intervención por medio de informe final, a efecto que se tomen las decisiones del caso en tiempo, propósito y conveniencia. Dicha comunicación se dirigirá al funcionario ejecutivo que corresponda: a la Presidencia Ejecutiva, a las Gerencias de División y a la Junta Directiva cuando la gravedad o importancia de los hechos lo ameriten o cuando las decisiones a tomar sean de su exclusiva competencia.

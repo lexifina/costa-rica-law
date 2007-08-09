@@ -1,1 +1,0 @@
-Artículo 10.—El Subauditor será el colaborador inmediato del Auditor y lo sustituirá en sus ausencias. Deberá cumplir las funciones que le encargue el Auditor, de conformidad con las disposiciones legales y reglamentarias pertinentes.

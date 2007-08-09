@@ -1,1 +1,0 @@
-Artículo 35.—La exhibición de informes a entidades legitimadas, en forma parcial o total, será atribución de la Presidencia Ejecutiva y Gerencias de División, según sea el caso. La Auditoría Interna lo podrá hacer en función de sus actividades o por requerimiento judicial.
