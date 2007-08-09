@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar como integrante del Consejo de Administración del Consejo Nacional de Vialidad en representación de la Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada (UCCAEP) al señor Jorge E. Montero Cabezas, mayor, casado, Ingeniero Civil, vecino de San Sebastián, con cédula Nº 2-0187-0095; en sustitución del señor Eduardo Ulloa Clare.
