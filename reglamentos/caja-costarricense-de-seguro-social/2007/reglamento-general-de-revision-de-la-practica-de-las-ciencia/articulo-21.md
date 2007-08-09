@@ -1,0 +1,6 @@
+Artículo 21.—Potestades de la Comisión. Serán potestades de la Comisión, para el cumplimiento de sus fines, las siguientes:
+a) La Comisión tendrá acceso al expediente de salud del afectado, en los casos en que se ha interpuesto un reclamo administrativo o recurso de queja. Podrá solicitar al Director Médico de cada centro de salud, el respectivo expediente.
+b) La Comisión citará al reclamante para realizar los exámenes físicos y prescribir los exámenes de gabinete que considere oportuno para fundamentar su criterio. Asimismo, podrá citar a los familiares, para obtener información relativa a las eventuales lesiones, la muerte o el incumplimiento de deberes denunciado. Podrá solicitar cualquier otra prueba que considere necesaria para rendir el criterio respectivo.
+c) La Comisión citará al médico tratante o al director de un procedimiento y al profesional o profesionales en ciencias de la salud que sean presuntos implicados en el reclamo o queja.
+d) La Comisión podrá solicitar la presencia de cualquier médico o profesional en ciencias de la salud que labore para la Caja, en calidad de asesor o auxiliar, quien rendirá un informe escrito con el criterio sobre lo consultado.
+e) Los funcionarios y dependencias de la Caja estarán obligadas a brindar la ayuda solicitada por la Comisión dentro de los plazos establecidos en la solicitud.

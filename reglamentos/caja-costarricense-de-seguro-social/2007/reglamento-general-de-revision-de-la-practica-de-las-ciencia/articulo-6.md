@@ -1,0 +1,1 @@
+Artículo 6º—De la admisibilidad del reclamo. Si se cumpliere con todos los requisitos formales, y no existiere ninguna denuncia o demanda en sede judicial se determinará la admisibilidad del reclamo y se continuará con el trámite hasta el dictado de la resolución; deberá comunicarse al gestionante la admisibilidad del reclamo.

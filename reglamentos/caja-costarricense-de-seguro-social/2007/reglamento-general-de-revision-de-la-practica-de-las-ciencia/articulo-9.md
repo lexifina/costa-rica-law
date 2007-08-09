@@ -1,0 +1,1 @@
+Artículo 9º—De la autorización de acceso al expediente de salud. La Gerencia de la División Médica prevendrá al reclamante para que autorice a los diferentes órganos el acceso al expediente de salud, de forma que garantice la protección del derecho a la intimidad.

@@ -1,0 +1,1 @@
+Artículo 14.—De la resolución en que se determine que no hay responsabilidad objetiva. La Gerencia, con fundamento en el criterio técnico emitido por la Comisión Revisora de la Práctica de las Ciencias de la Salud, en el que se concluya la inexistencia de responsabilidad, emitirá la resolución debidamente fundamentada declarando sin lugar el reclamo administrativo.

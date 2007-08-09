@@ -1,0 +1,1 @@
+Artículo 19.—Del ámbito de acción de la Comisión. El ámbito de acción de la Comisión será a nivel nacional, en todos los centros de la Caja, incluidos aquellos que ostenten la desconcentración máxima.

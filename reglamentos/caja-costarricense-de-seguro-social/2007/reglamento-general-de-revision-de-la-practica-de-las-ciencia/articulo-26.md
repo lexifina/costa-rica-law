@@ -1,0 +1,1 @@
+Artículo 26.—De la sede de la Comisión. La Comisión tendrá su sede en el lugar que designe la Gerencia de la División Médica; o bien, en el sitio en que las circunstancias lo demanden y así quede justificado en el expediente del caso.

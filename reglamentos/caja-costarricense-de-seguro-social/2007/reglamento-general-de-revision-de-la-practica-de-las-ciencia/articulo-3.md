@@ -1,0 +1,1 @@
+Artículo 3º—Del acuse de recibo del reclamo. La Gerencia de la División Médica extenderá un acuse de recibo al gestionante o petente, en el que se le indicará el trámite de análisis de admisibilidad del caso por parte de los órganos técnicos y que en su oportunidad se le dará respuesta, siguiendo lo establecido en el presente Reglamento.

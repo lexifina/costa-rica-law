@@ -1,0 +1,1 @@
+Artículo 22.—Integración de la Comisión. La Comisión estará conformada por tres miembros propietarios y tres suplentes. La Gerencia de la División Médica nombrará a los miembros y podrá aumentar o disminuir el número de integrantes de la Comisión, cuando lo requiera. Los miembros serán profesionales en ciencias de la salud.

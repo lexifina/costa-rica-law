@@ -1,0 +1,1 @@
+Artículo 7º—De la audiencia al Patronato Nacional de la Infancia. En el caso de menores de edad se dará audiencia al Patronato Nacional de la Infancia por el plazo de cinco días donde se le pondrá en conocimiento del reclamo y se le prevendrá que señale para recibir notificaciones de lo contrario se le tendrá por notificado con el transcurso de veinticuatro horas.

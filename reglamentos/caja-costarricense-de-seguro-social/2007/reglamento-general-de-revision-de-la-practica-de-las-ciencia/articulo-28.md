@@ -1,0 +1,1 @@
+Artículo 28.—Del apoyo logístico para la Comisión. La Comisión contará con una sala de reuniones debidamente acondicionada, para realizar los exámenes físicos y entrevistas a los afectados. Contará con una secretaria que brinde la asistencia administrativa para el archivo, correspondencia, levantado de actas, trascripción de informes y demás funciones afines al cargo.

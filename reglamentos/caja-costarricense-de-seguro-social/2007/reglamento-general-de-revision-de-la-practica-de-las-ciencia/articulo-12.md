@@ -1,0 +1,1 @@
+Artículo 12.—De la partida y contenido presupuestario. La Gerencia de la División Médica incluirá en su presupuesto anual, en la cuenta que corresponda, el contenido económico para pagar las indemnizaciones por concepto de responsabilidad objetiva, derivada de la práctica de las ciencias de la salud.

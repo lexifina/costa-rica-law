@@ -1,0 +1,1 @@
+Artículo 29.—De la capacitación de los integrantes de la Comisión. El Coordinador de la Comisión propondrá anualmente a la Gerencia de la División Médica las necesidades de capacitación de los integrantes de la Comisión, previa coordinación con el CENDEISSS (Centro de Desarrollo Estratégico e Información en Salud y Seguridad Social).

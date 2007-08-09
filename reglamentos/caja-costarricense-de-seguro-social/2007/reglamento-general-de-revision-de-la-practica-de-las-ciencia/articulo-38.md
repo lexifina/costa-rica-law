@@ -1,0 +1,1 @@
+Artículo 38.—De la aplicación supletoria. En lo no previsto en el presente reglamento se aplicarán supletoriamente las disposiciones de la Ley General de la Administración Pública y demás normas del Derecho común.

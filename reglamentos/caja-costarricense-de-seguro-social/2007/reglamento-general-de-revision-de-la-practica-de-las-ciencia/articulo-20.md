@@ -1,0 +1,1 @@
+Artículo 20.—Competencias de la Comisión. Tendrá competencia para analizar, desde el punto de vista médico, los procedimientos y protocolos en el ejercicio de las ciencias de la salud, en los casos concretos que remita la Gerencia de la División Médica.

@@ -1,0 +1,1 @@
+Artículo 27.—Horario de las sesiones. La Comisión sesionará en horario hábil. El horario será propuesto por el coordinador de la Comisión a la Gerencia de la División Médica, en forma anual. Una vez autorizado por la Gerencia, el coordinador lo hará del conocimiento de los integrantes y de los directores médicos de cada centro.

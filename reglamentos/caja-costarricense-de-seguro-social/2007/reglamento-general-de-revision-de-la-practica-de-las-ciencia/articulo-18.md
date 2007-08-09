@@ -1,0 +1,3 @@
+SECCIÓN II
+De la Comisión Revisora de la práctica de las ciencias de la salud
+Artículo 18.—De la constitución de la Comisión. Créase la Comisión Revisora de la Práctica de las Ciencias de la Salud, como un órgano técnico que dependerá administrativamente de la Gerencia de la División Médica, con independencia técnica. Estará encargada de analizar los casos de supuesta mala práctica en las ciencias de la salud, a solicitud de la Gerencia de la División Médica, y a ese efecto deberá rendir un informe recomendativo dentro del plazo de un mes según lo establecido en el artículo 30 de este Reglamento.

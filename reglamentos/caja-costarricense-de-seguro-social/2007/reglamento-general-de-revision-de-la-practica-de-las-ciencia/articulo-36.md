@@ -1,0 +1,1 @@
+Artículo 36.—De la ampliación o adición del informe de la Comisión. La Gerencia de la División Médica una vez analizado el contenido del informe de la Comisión, si existe duda podrá solicitar ante la misma una ampliación o adición indicando concretamente los aspectos que requieran ser ampliados o adicionados.

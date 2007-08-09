@@ -1,0 +1,1 @@
+Artículo 25.—De los permisos para los integrantes de la Comisión. El Coordinador de la Comisión, previa programación de las sesiones de conformidad con los artículos 27 y 31 del presente Reglamento, solicitará al Director Médico del centro donde labora el integrante, el respectivo permiso con goce de salario, si es del caso, el pago del transporte y viáticos respectivos.

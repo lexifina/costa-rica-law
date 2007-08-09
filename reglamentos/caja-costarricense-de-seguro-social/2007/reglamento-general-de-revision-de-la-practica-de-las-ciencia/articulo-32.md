@@ -1,0 +1,1 @@
+Artículo 32.—De las disidencias a lo interno y de la revisión de las actas de la Comisión. La disidencia de los acuerdos y la revisión de las actas de la Comisión se regularán por lo establecido en los artículos 54 al 58 de la Ley General de la Administración Pública.
