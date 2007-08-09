@@ -1,4 +1,4 @@
-Artículo 5º—Tiene derecho a pensión por vejez el asegurado que alcance los 65 años de edad, siempre que haya contribuido a este Seguro con al menos 300 cuotas. En el caso de aquellos asegurados que habiendo alcanzado esa edad, no cumplen con el número de cuotas requeridas, pero tengan aportadas al menos 180 cuotas, tienen derecho a una pensión reducida, según se establece en el artículo 24 del presente Reglamento.
+Artículo 5º—Tiene derecho a pensión por vejez el asegurado que alcance los 65 años de edad, siempre que haya contribuido a este seguro con al menos 300 cuotas. En el caso de aquellos asegurados que habiendo alcanzado esa edad, no cumplen con el número de cuotas requeridas, pero tengan aportadas al menos 180 cuotas, tienen derecho a una pensión proporcional, según se establece en el artículo 24º del presente reglamento.
 El asegurado podrá anticipar su retiro con derecho a pensión de vejez, siempre que cumpla los requisitos y condiciones que se indican en la siguiente tabla:
 Edad de retiro | Cuotas requeridas
 Años-meses | Hombres | Mujeres
@@ -64,29 +64,6 @@ Años-meses | Hombres | Mujeres
 64-10 | 314 | 310
 64-11 | 307 | 305
 65-00 | 300 | 300
-Alternativamente, el asegurado podrá acceder a un retiro anticipado con derecho a pensión reducida, si se cumplen los requisitos y condiciones indicadas en la tabla siguiente:
-Edad de retiro | Cotizaciones requeridas | Porcentaje de Reducción
-| | Hombres | Mujeres
-64 años y 9 meses | 300 | 2.0% | 1.5%
-64 años y 6 meses | 300 | 3.8% | 3.3%
-64 años y 3 meses | 300 | 5.5% | 5.0%
-64 años | 300 | 7.3% | 6.8%
-63 años y 9 meses | 300 | 9.0% | 8.5%
-63 años y 6 meses | 300 | 10.8% | 10.3%
-63 años y 3 meses | 300 | 12.5% | 12.0%
-63 años | 300 | 14.3% | 13.8%
-62 años y 9 meses | 300 | 16.0% | 15.5%
-62 años y 6 meses | 300 | 17.8% | 17.3%
-62 años y 3 meses | 300 | 19.5% | 19.0%
-62 años | 300 | 21.3% | 20.8%
-61 años y 9 meses | 300 | | 22.5%
-61 años y 6 meses | 300 | | 24.3%
-61 años y 3 meses | 300 | | 26.0%
-61 años | 300 | | 27.8%
-60 años y 9 meses | 300 | | 29.5%
-60 años y 6 meses | 300 | | 31.3%
-60 años y 3 meses | 300 | | 33.0%
-60 años | 300 | | 34.8%
-Los porcentajes de reducción indicados en la tabla anterior, se calculan en relación con el monto de la pensión que se indica en el artículo 24 de este Reglamento.
-Asimismo, el asegurado podrá anticipar su retiro de este Régimen, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que para tales efectos apruebe la Junta Directiva.
-(Así reformado en sesión N° 8106 del 9 de noviembre de 2006)
+Alternativamente, el asegurado(a) que haya aportado 300 cotizaciones mensuales podrá acceder a un retiro anticipado respecto al correspondiente en la tabla anterior, a partir de los 62 años de edad los hombres y de los 60 años de edad las mujeres y tendrá derecho a una pensión reducida de acuerdo con lo que se indica en el artículo 24º del presente Reglamento.
+Asimismo, el asegurado podrá anticipar su retiro de este Régimen, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que para tales efectos aprueba la Junta Directiva.
+(Así reformado mediante sesión N° 8174 del 9 de agosto de 2007)

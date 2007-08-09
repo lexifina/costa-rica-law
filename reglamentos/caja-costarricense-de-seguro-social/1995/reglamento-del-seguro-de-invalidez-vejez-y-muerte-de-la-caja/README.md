@@ -38,3 +38,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 23 | 2005-12-15 | Reglamento 8019 (2005-12-15) |
 | 24 | 2006-11-09 | Reglamento 8106 (2006-11-09) |
 | 25 | 2007-03-22 | Reglamento 8140 (2007-03-22) |
+| 26 | 2007-08-09 | Reglamento 8174 (2007-08-09) |
