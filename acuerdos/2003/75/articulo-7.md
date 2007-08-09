@@ -9,5 +9,7 @@ Auxiliar de inversiones propias de puestos de bolsa
 Anexo 36 "Cambios en la Información Inmobiliaria"
 Código del inquilino del Anexo 22 "Reporte de composición de cartera de fondos inmobiliarios"
 Reportes correspondientes a inversiones en títulos internacionales y posiciones abiertas a plazo por parte de los Puestos de Bolsa.
+Informe del Anexo 44 sobre participaciones significativas que reportan los emisores accionarios.
+(Así adicionado el inciso anterior por el artículo 1° punto d) del acuerdo SGV-A-135 del 9 de agosto de 2007)
 En consecuencia, con excepción de los reportes indicados, toda la información periódica requerida en virtud de este Acuerdo será incorporada al Registro Nacional de Valores e Intermediarios.
 (Así reformado mediante acuerdo N°114 del 17 de enero del 2006).
