@@ -14,3 +14,4 @@ Reglamento de la Actividad Clínica Docente en la Caja Costarricense de Seguro S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-01 | la propia norma |
+| 2 | 2007-08-09 | Reglamento 8174 (2007-08-09) |
