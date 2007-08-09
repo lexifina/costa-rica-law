@@ -1,1 +1,0 @@
-Artículo 20.—Será estrictamente confidencial la información que el Auditor Interno o cualesquiera de sus subalternos obtenga en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la máxima autoridad de la Contraloría General ni cuando haya solicitud expresa de autoridad competente.

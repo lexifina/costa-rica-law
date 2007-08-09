@@ -1,1 +1,0 @@
-Artículo 3°—La Auditoría Interna es parte integral y vital del sistema de control interno de la Contraloría General y tendrá como función principal la comprobación del cumplimiento, la suficiencia y la validez de dicho sistema.

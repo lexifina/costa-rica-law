@@ -1,1 +1,0 @@
-Artículo 4°—Es responsabilidad exclusiva de la Administración de la Contraloría General, establecer, mantener y perfeccionar el sistema de control interno, siendo específicamente responsable del mismo el titular o máxima autoridad y ante él. con respecto a cada órgano componente de la Contraloría, el funcionario encargado de su dirección.

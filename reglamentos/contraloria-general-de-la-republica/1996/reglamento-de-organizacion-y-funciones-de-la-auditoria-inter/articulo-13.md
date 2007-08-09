@@ -1,1 +1,0 @@
-Artículo 13.—La Auditoría Interna deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica e instalaciones físicas necesarios para el adecuado cumplimiento de sus funciones. Para tales propósitos planteará sus necesidades ante la máxima autoridad de la cual depende.
