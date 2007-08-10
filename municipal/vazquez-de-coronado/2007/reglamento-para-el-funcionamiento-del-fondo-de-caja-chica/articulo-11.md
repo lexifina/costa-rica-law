@@ -1,0 +1,1 @@
+11.—Todo vale debidamente autorizado y denotando la existencia de la partida donde se encuentran presupuestados los recursos, deberá, ser presentado ante el Tesorero, quien verificará el contenido y entregará el dinero, contra la firma de recibido.

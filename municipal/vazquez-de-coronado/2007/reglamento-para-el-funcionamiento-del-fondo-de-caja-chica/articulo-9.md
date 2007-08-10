@@ -1,0 +1,1 @@
+9º—Para tal efecto, deberá tramitarse la solicitud de dinero por medio del documento, Vale de Caja Chica, que se emitirá en estricto orden numérico, debidamente autorizado por el Alcalde o la persona que este designe, el cual deberá contener la exoneración del Impuesto de Ventas según corresponda

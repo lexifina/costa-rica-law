@@ -1,0 +1,1 @@
+4º—El Concejo Municipal, revisará el monto definido para el Fondo fijo, cuando lo considere necesario, o bien a petición del Alcalde, y procederá a realizarle las modificaciones, según acuerdo tomado por mayoría simple.

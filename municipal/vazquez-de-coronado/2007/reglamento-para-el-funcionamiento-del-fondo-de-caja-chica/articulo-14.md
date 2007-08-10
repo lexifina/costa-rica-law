@@ -1,0 +1,1 @@
+14.—Todo vale entregado deberá ser liquidado en un plazo no mayor de 8 horas hábiles. De no realizarse la compra el interesado deberá devolver la suma girada al Tesorero, en caso de negativa el monto le será rebajado por planilla, o bien solicitar otro en sustitución

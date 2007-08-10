@@ -1,0 +1,1 @@
+19.—El tesorero verificará las facturas, su fecha y entrada en bodega y emitirá el comprobante de Liquidación, debidamente numerado, con el mismo orden que se emitió el vale, denotando los códigos de presupuesto realmente gastados y mediante su firma y sello, la validez del mismo.

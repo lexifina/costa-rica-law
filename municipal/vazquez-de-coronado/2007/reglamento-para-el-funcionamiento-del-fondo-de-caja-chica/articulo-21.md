@@ -1,0 +1,1 @@
+21.—El Tesorero podrá delegar funciones en sus subalternos, quienes serán solidarios en el manejo de fondos, sin detrimento de la responsabilidad que le atañe. Asimismo, es de su exclusiva responsabilidad el verificar, custodiar y controlar todo lo relativo a la Caja Chica. Acuerdo. Cuenta con siete votos afirmativos.

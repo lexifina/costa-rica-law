@@ -1,0 +1,1 @@
+16.—Solo se aceptarán facturas que cumplan con los requisitos de inscripción ante la Tributación Directa, sin cargos por concepto de impuesto de ventas, debiendo aplicar las exoneraciones correspondientes.

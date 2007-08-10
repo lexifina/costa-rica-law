@@ -1,0 +1,1 @@
+17.—Una vez realizada la compra o pago respectivo, deberá presentar las facturas ante el Bodeguero Municipal, a efectos de anotar la entrada del material, tanto física como en el sistema. Los pagos de servicios no requieren ingreso en el sistema de bodega

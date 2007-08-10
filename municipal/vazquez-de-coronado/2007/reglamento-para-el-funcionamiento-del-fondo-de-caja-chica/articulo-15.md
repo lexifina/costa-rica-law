@@ -1,0 +1,1 @@
+15.—No se admitirán facturas de fechas anteriores a la indicada en el Vale. Quien realice compras sin la respectiva autorización, deberá correr con los gastos de su propio peculio, y el Tesorero será el responsable de velar porque esto se cumpla

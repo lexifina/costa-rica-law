@@ -1,0 +1,1 @@
+8º—Dicho monto se tendrá disponible para realizar pagos con carácter de urgencia, de menor cuantía, que resulten de la gestión propia de la Municipalidad, entendiéndose como tal, aquellas compras de materiales y pago de servicios menores a cien mil colones (¢100.000,00).
