@@ -1,0 +1,3 @@
+CAPÍTULO 10
+Capacitación
+Artículo 43.—El Agente recaudador está obligado a nombrar las personas encargadas de realizar las funciones de gestión de cobro de facturas por servicios, para que reciban la debida capacitación por parte de ESPH, cuando ésta así se lo solicite. Para tales efectos ESPH le remitirá comunicación escrita indicándole hora y fecha en que se efectuará la capacitación. Por su parte el agente recaudador designará el personal que recibirá la capacitación y mantendrá a disposición de ESPH la lista de los empleados a cuyo cargo está la realización de las funciones de recaudación, para la actualización de la base de datos de ESPH.

@@ -1,0 +1,1 @@
+Artículo 37.—El pago de la Comisión al agente recaudador se deberá pactar, según sea más conveniente a los intereses de la Institución; pudiéndose cancelar mediante deducción de la Comisión del monto de la recaudación respectiva y acreditando el saldo neto en la cuenta corriente de ESPH que ésta indique.

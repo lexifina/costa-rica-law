@@ -1,0 +1,1 @@
+Artículo 14.—De recomendarse la contratación del oferente, Tesorería remitirá a la Gerencia General de ESPH la oferta respectiva, con los documentos de soporte y las justificaciones de su recomendación.

@@ -1,0 +1,3 @@
+CAPÍTULO DUODÉCIMO
+Conectividad
+Artículo 45.—El agente recaudador se compromete a disponer del equipo de cómputo y de telecomunicaciones necesarios, así como los esquemas de seguridad adecuados (que van a depender de la forma de conectarse en línea con ESPH) , a fin de que en el momento que ésta lo disponga, se pueda realizar una conexión directa con la base de datos para el descargo de facturas y se restablezca el servicio de conectividad, según las disposiciones técnicas correspondientes.

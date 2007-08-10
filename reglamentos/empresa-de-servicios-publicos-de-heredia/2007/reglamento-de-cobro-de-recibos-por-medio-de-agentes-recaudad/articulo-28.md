@@ -1,0 +1,2 @@
+Artículo 28.—El agente recaudador entregará el día hábil siguiente a Tesorería todas las colillas de las facturas cobradas el día anterior, adjuntando una copia del depósito bancario realizado y reporte correspondiente. Se exime del envío de las colillas de pago a las cajas que están con conectividad.
+La recaudación que se realice, sábados, domingos o en días feriados, se registrará con la fecha de cancelación; pero las transacciones se introducirán en la transferencia, con la fecha de cierre correspondiente a la recaudación del siguiente día hábil.

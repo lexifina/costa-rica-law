@@ -1,0 +1,1 @@
+Artículo 50.—En caso de que ESPH optare por realizar la conectividad por medio de un multirecaudador externo, se comunicará al agente recaudador, las condiciones del servicio, comisiones y procedimientos de implementación que conformarán el plan de trabajo respectivo.

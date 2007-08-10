@@ -1,0 +1,1 @@
+Artículo 34.—ESPH y el agente recaudador podrán coordinar aspectos de publicidad y promoción del cobro de servicios, utilizando los locales de recaudación, por intermedio de la Unidad de Comunicación de la Empresa.
