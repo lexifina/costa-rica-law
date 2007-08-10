@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SANTO DOMINGO DE HEREDIA
+El Concejo conoce y acuerda incluir un Transitorio I del Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Santo Domingo de Heredia, que los comités comunales de deportes tienen plazo hasta el 30 de agosto del presente año para presentar Los Proyectos al Comité Cantonal de Deportes y Recreación de Santo Domingo y que los fondos de los proyectos que no sean utilizados se trasladarán al Comité Cantonal de Deportes quienes los utilizarán para alcanzar sus metas. Publíquese en el diario oficial La Gaceta. Votos de los señores Regidores Salas Quesada, Guerrero Sánchez, Madrigal Ledezma, Araya Nájar y Ramírez Zamora.
+Sesión 42-2007 de fecha 9 de julio del 2007, Artículo V, inciso 7.
+Santo Domingo de Heredia, 18 de julio del 2007.
