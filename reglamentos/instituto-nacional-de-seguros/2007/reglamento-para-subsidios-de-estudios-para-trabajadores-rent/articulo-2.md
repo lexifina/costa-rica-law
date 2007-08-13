@@ -1,0 +1,1 @@
+Artículo 2º—Se establece este beneficio para aquellos trabajadores rentistas del Régimen de Riesgos del Trabajo a los que se les haya fijado una pérdida igual o superior al 50% de su capacidad general.

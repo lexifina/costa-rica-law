@@ -1,0 +1,4 @@
+Artículo 10.—Para mantener el subsidio aprobado el interesado deberá presentar certificado de rendimiento académico o conclusión de materia o curso anterior, así como los comprobantes de cancelación por parte de la institución que lo está capacitando, a fin de justificar su adecuado uso.
+Es entendido que la suspensión de estudios, o un notorio bajo rendimiento en los mismos, hará perder el derecho al subsidio, excepto en los casos en que el beneficiario pueda demostrar incapacidad física prolongada por más de un mes, eventualidad en la que se podrá continuar otorgando el subsidio si se comprueba la reanudación de los estudios.
+El rentista deberá matricular al menos el 75% de las materias o cursos que componen el bloque lectivo.
+Se entenderá por bajo rendimiento, cualquier calificación o nota inferior al promedio requerido para la aprobación del curso o materia de acuerdo con las normas del centro de enseñanza en que estudia el beneficiario.
