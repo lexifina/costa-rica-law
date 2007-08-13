@@ -1,0 +1,1 @@
+Artículo 13.—De conformidad con lo establecido en el artículo 43 del Código Municipal vidente, este Reglamento se somete a consulta pública no vinculante por un plazo de diez días hábiles, transcurrido éste, el presente Reglamento quedará en firme. Publíquese una vez.

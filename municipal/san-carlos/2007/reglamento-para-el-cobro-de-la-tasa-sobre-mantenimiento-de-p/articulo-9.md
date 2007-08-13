@@ -1,0 +1,1 @@
+Artículo 9º—El diez por ciento de utilidad para el desarrollo, en que se incrementa la tasa señalada en el artículo anterior, se destinará para el mantenimiento y remodelación de lo ya existente en el distrito correspondiente .

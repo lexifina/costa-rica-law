@@ -1,0 +1,1 @@
+Artículo 8º—El costo de esta tasa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su mantenimiento, incrementándose en un diez por ciento de utilidad para el desarrollo. Queda facultada la Municipalidad de San Carlos para incrementar la tarifa supra mencionada previo estudio y tarifario aprobado por el Concejo Municipal.
