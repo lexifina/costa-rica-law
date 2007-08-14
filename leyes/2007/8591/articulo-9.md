@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Autorización para suscribir convenios de cooperación interinstitucional y convenios con entidades no gubernamentales
+Autorízase a todas las instituciones de la Administración Pública, por medio de los órganos competentes, para que suscriban convenios interinstitucionales y convenios con organizaciones no gubernamentales, con el propósito de desarrollar, fomentar y realizar actividades de promoción para cumplir los fines señalados en la presente Ley.

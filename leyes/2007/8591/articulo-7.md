@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Readecuación de procedimientos referentes al desarrollo de procesos productivos e industriales
+Las instituciones de la Administración Pública, por medio de sus diferentes órganos especializados, generarán la apertura institucional para desarrollar procesos productivos e industriales acordes con las condiciones, dimensiones y ventajas de la producción agropecuaria orgánica, con el fin de cumplir la normativa relacionada con el cuidado de la salud y el ambiente.

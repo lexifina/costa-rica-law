@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Recursos de pymes para financiar la actividad
+Autorízase al Fondo Especial para el Desarrollo de las Micro, Pequeñas y Medianas Empresas (Fodemipyme), para que, con sus recursos, financie créditos, transferencias, avales o garantías a las personas y organizaciones beneficiarias de esta Ley, en los términos señalados en la Ley de fortalecimiento de las pequeñas y medianas empresas, N.º 8262, de 2 de mayo de 2002, y sus Reglamentos.
