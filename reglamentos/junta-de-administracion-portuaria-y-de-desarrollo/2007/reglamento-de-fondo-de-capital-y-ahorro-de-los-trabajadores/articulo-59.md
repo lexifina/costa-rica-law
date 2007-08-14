@@ -1,0 +1,2 @@
+Artículo 59.—Préstamo automático. Préstamo automático de hasta ¢550.000,00 (Quinientos cincuenta mil colones), con un interés del quince por ciento (15%) anual sobre saldos, a un plazo de tres (3) años – treinta y seis meses, sin fiadores, con capacidad de pago y formalización a través de un pagaré a favor del Fondo de Capital y Ahorro.
+Para ser sujeto de crédito de préstamo automático, deberá tener tres meses de estar cotizando.

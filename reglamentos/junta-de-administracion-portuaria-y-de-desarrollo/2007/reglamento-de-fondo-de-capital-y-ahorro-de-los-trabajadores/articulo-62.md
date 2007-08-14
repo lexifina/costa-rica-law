@@ -1,0 +1,1 @@
+Artículo 62.—Del desvío de los fondos. Aquel asociado que se le compruebe desvío en el uso de los fondos o cuando el Fondo haya tenido que recurrir a la vía judicial para recuperar los saldos, se le aplicará la tasa actual de mercado.

@@ -1,0 +1,3 @@
+Artículo 64.—La concesión de un préstamo implica la autorización del deudor al Fondo y a JAPDEVA en forma irrevocable para deducir del salario vía planillas la suma mensual convenida para amortización del capital e interés del préstamo.
+Todos los gastos y obligaciones relacionados con el préstamo se deducirán del monto aprobado.
+En caso de que por cualquier razón no se hubiere rebajado el préstamo vía planilla, el deudor se compromete a cancelar a favor del Fondo en la cuenta Bancaria correspondiente, la cuota preestablecida. Debiendo presentar copia de dicho depósito en las oficinas del Fondo. De lo contrario el Fondo tendrá por vencida la obligación y procederá a ejecutar la misma según lo establecido en el artículo 41 de este Reglamento.

@@ -1,0 +1,5 @@
+Artículo 60.—De las pólizas. Todo prestatario de crédito del Fondo debe suscribir ante el Instituto Nacional de Seguros o una Entidad Financiera y mantener una póliza de incendio a favor de JAPDEVA y una póliza colectiva de saldos deudores para todos los acreedores del Fondo.
+En caso de que el afiliado(a) fallezca durante la vigencia del crédito, la administración suspenderá a partir de esa fecha el registro contable de los intereses y solicitará al Instituto Nacional de Seguros el reintegro del principal adeudado hasta la fecha de su fallecimiento, es decir, no correrán nuevos intereses
+El Fondo automáticamente dentro de cada crédito rebajará la póliza que corresponda.
+En los préstamos para adquisición de vehículo, donde se ofrece en garantía el auto, el Fondo incluirá en la cuota mensual el monto correspondiente a todas las coberturas de riesgo, durante todo el plazo que dure el préstamo.
+El propietario en todas las pólizas tiene que dejar como acreedor a JAPDEVA (Fondo de Capital y Ahorro).

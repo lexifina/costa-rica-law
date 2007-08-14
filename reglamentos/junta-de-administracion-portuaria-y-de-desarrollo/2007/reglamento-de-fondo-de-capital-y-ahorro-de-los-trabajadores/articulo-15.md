@@ -1,0 +1,2 @@
+Artículo 15.—De las ausencias. El miembro de la Junta Administradora que acumule tres ausencias consecutivas e injustificadas a las sesiones de la Junta será destituido de ésta y reportado a su representado.
+Para los representantes de los trabajadores si se remueve el titular, el suplente que se encuentra en la Junta Administradora lo sustituirá, y si se remueve al suplente, lo sustituye el asociado que quedo de segundo en la votación para la elección del suplente.
