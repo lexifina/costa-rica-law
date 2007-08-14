@@ -1,0 +1,4 @@
+ARTÍCULO 26.- Exoneración de impuestos a los grupos de personas productoras orgánicas organizadas (GPO)
+Los GPO, debidamente registrados en el MAG, gozarán de las siguientes exoneraciones de impuestos:
+a) Del pago de todo tributo o impuesto que se aplique a la importación de equipo, maquinaria e insumos, debidamente avalados por el reglamento de exoneración que confeccionará el MAG y utilizados en las diferentes etapas de producción y agroindustrialización de productos agropecuarios orgánicos.
+b) Del pago de los impuestos correspondientes a la importación de un vehículo de trabajo tipo “pick-up”, con capacidad de carga igual o superior a dos toneladas. Si luego de usar lo importado en virtud del presente artículo, se decide venderlo a un tercero que no goce de una exención similar, deberán cancelarse los impuestos, las tasas y sobretasas no cancelados del automotor vendido. El vehículo no podrá venderse antes de cuatro años de haber sido adquirido por el GPO.

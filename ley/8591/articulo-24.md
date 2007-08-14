@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Apoyo bancario a la actividad agropecuaria orgánica
+Autorízase a los bancos públicos para que desarrollen y promuevan programas de apoyo a la producción orgánica, patrocinando procesos de investigación campesina e indígena, así como actividades de promoción y comunicación sobre los aspectos medulares de este tipo de agricultura. Igualmente, se les autoriza para que implementen el establecimiento de crédito diferenciado, o bien, servicios complementarios que impliquen un fácil acceso al crédito, para las personas y organizaciones beneficiarias de esta Ley.

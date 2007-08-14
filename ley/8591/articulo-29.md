@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Trámite de exoneraciones
+La oficina correspondiente del MAG emitirá la justificación y autorización correspondiente para tramitar las exoneraciones contempladas en este capítulo, ante los órganos competentes del Ministerio de Hacienda. Cualquier exoneración deberá ser aprobada con base en un plan de desarrollo productivo acordado por el MAG con la persona que haya solicitado tal incentivo.
