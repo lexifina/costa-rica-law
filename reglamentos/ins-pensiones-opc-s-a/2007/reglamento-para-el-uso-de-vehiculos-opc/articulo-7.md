@@ -1,0 +1,1 @@
+Artículo 7º—Sin excepción, todos los vehículos de uso administrativo deberán ser identificados con el logotipo de INS Pensiones OPC a ambos costados, en un tamaño apropiado para que sean perfectamente visibles. Ningún vehículo de uso administrativo podrá utilizar un logotipo diferente al oficial de la Institución.

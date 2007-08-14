@@ -1,0 +1,2 @@
+Artículo 3º—Los vehículos de uso administrativo general son todos aquellos que encontrándose inscritos a nombre del Instituto Nacional de Seguros, son utilizados para los servicios regulares de transporte de INS Pensiones OPC. Para efectos prácticos del presente reglamento, se hará referencia a dichos vehículos como “vehículo (s) de INS Pensiones.
+Las regulaciones sobre ellos se consignan en el Capítulo II de este Reglamento.

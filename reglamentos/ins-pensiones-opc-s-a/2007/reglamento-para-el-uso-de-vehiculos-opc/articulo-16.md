@@ -1,0 +1,1 @@
+Artículo 16.—Para un mejor aprovechamiento de las unidades disponibles, la jefatura de Ventas, deberán agrupar en un solo viaje, siempre que las circunstancias lo permitan, varias solicitudes de transporte que se generen hacia un mismo sitio o ruta, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje

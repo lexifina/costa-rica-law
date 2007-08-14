@@ -1,0 +1,2 @@
+Artículo 15.—Una vez concluidas las labores diarias, los vehículos deberán ser concentrados en los estacionamientos oficiales para dicho fin.
+Si lo anterior no fuera posible o si se encuentra en gira, el vehículo deberá guardarse en lugares que brinden condiciones de seguridad adecuadas y no podrá circular después de las horas indicadas en el permiso, salvo situaciones de caso fortuito o de fuerza mayor debidamente comprobadas.

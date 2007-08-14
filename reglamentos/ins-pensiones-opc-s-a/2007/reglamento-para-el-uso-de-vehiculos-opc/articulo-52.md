@@ -1,0 +1,1 @@
+Artículo 52.—El Departamento de Ventas por medio de la Jefatura definirá claramente y por escrito los procedimientos esenciales para desarrollar adecuadamente las actividades relacionadas con el uso, mantenimiento y administración de los vehículos institucionales.

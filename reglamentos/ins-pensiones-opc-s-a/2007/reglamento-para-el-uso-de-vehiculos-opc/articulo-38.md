@@ -1,0 +1,1 @@
+Artículo 38.—Será responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en este Capitulo. Si acatare instrucciones que lo contravengan, lo hará bajo su exclusiva responsabilidad.

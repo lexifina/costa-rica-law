@@ -1,0 +1,2 @@
+Artículo 36.—Los conductores autorizados por INS Pensiones, no podrán bajo ninguna circunstancia permitir que funcionarios no autorizados o personas ajenas a la Institución conduzcan los vehículos a su cargo.
+Asimismo solo en casos de emergencia podrán ceder la conducción de la unidad a otro funcionario de INS Pensiones que no cuente con autorización para conducir los vehículos de INS Pensiones, pero si deberá contar y portar la licencia de conducir apropiada para el tipo de vehículo de que se trate.
