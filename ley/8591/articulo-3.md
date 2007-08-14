@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Fines de la Ley
+Son fines de esta Ley, la regulación, el desarrollo, la promoción y el fomento de la actividad agropecuaria orgánica. Deberán tenerse como prioritarios el beneficio especial de las personas micro, pequeñas y medianas productoras y de sus familias, la promoción de la equidad de género, el respeto de la diversidad cultural y el adecuado reparto de la riqueza, así como la protección del ambiente y la salud de todos los seres humanos.

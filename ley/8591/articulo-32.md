@@ -1,0 +1,6 @@
+CAPÍTULO IX
+SANCIONES
+ARTÍCULO 32.- Infracciones administrativas
+Quien, por cualquier medio, venda, divulgue o promocione como “orgánicos” productos que, de conformidad con la presente Ley no reúnen tal condición, incurrirá en la infracción regulada por el inciso b) del artículo 34 de la Ley N.º 7472, Promoción de la competencia y defensa efectiva del consumidor, de 20 de diciembre de 1994, en relación con el deber de brindarle información veraz al consumidor, y será sancionado según lo dispuesto en el artículo 57 de dicho cuerpo normativo.
+La Comisión Nacional del Consumidor, del Ministerio de Economía, Industria y Comercio, será el órgano competente para conocer y sancionar esta infracción, para lo cual serán aplicables los procedimientos establecidos en la Ley Nº 7472.
+Para estos efectos, se presume como “no orgánico” cualquier producto importado, que no esté certificado, de acuerdo con las condiciones y los requisitos establecidos por las normas internacionales certificadas nacionalmente para que un producto pueda ser denominado orgánico, o bien, cualquier producto certificado por una entidad certificadora extranjera acreditada en Costa Rica, que no haya cumplido los procedimientos establecidos por la ley costarricense. Esta sanción se aplica también para los productos nacionales que se vendan como orgánicos cuando se compruebe que no lo son.

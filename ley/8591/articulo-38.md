@@ -1,0 +1,5 @@
+ARTÍCULO 38.- Reforma del artículo 5 de la Ley de simplificación y eficiencia tributarias, Nº 8114
+Refórmase el primer párrafo del artículo 5 de la Ley de simplificación y eficiencia tributarias, N.º 8114, de 4 de julio de 2001. El texto dirá:
+“Artículo 5.- Destino de los recursos
+Del producto anual de los ingresos provenientes de la recaudación del impuesto único sobre los combustibles, se destinará un treinta por ciento (30%) a favor del Consejo Nacional de Vialidad (Conavi), un tres coma cinco por ciento (3,5%), exclusivamente para el pago de servicios ambientales, a favor del Fondo Nacional de Financiamiento Forestal (Fonafifo), y un cero coma uno por ciento (0,1%) para el pago de beneficios ambientales agropecuarios a favor del Ministerio de Agricultura y Ganadería, para el financiamiento de los sistemas de producción agropecuaria orgánica, según lo regulado por la ley específica. El destino de este treinta y tres coma seis por ciento (33,6%) tiene carácter específico y su giro es de carácter obligatorio para el Ministerio de Hacienda.
+[...]”

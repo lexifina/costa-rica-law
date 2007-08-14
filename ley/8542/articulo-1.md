@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el inciso b) del artículo 41 de la ley N° 8591 del 28 de junio del 2007).
 LEYES
 Nº 8542
 LA ASAMBLEA LEGISLATIVA
