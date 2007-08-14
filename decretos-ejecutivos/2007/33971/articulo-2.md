@@ -1,0 +1,1 @@
+Artículo 2º—Solicitar a las autoridades de las instituciones públicas nacionales involucradas, y a las instancias del sector agropecuario, promover la divulgación de esta actividad y la participación de sus funcionarios interesados.
