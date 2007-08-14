@@ -1,0 +1,1 @@
+3º—El Corredor Biológico Paso de Las Lapas, es una estrategia para el ordenamiento territorial de los cantones involucrados del Área de Conservación Pacífico Central y tendrá como misión la Conservación de la Biodiversidad y el uso sostenible de los Recursos Naturales.
