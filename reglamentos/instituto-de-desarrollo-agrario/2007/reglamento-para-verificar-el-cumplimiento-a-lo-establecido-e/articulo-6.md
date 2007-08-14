@@ -1,0 +1,1 @@
+Artículo 6º—Momento de la garantía. La garantía que se otorgue ante el Instituto de Desarrollo Agrario por parte de los funcionarios, tendrá como fecha límite el 1º de enero de cada año, para presentarla.

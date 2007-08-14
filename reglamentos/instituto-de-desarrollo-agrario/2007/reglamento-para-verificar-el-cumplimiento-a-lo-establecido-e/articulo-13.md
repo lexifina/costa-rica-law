@@ -1,0 +1,1 @@
+Artículo 13.—La Institución podrá tomar Pólizas Colectivas de Fidelidad, en el tanto se adopten -como requisito sine qua non- las medidas necesarias a efecto de que aquellos funcionarios o empleados obligados a caucionar personalmente su gestión, reintegren al erario institucional, la parte proporcional del valor de la póliza que se adquiere.

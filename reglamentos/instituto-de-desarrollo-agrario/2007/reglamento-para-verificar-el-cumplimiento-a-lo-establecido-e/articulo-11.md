@@ -1,0 +1,1 @@
+Artículo 11.—Control y monto de la póliza. Le corresponde al Área de Recursos Humanos, en coordinación con el jerarca y los titulares subordinados, establecer los montos de las pólizas de garantía que deben rendir los funcionarios de la Institución. Entre mayor sea la responsabilidad del funcionario, mayor será el monto de la póliza que debe rendir.

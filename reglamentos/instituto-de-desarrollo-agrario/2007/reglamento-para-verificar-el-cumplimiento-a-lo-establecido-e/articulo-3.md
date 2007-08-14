@@ -1,0 +1,1 @@
+Artículo 3º—La garantía que ofrezca el funcionario del Instituto de Desarrollo Agrario, puede ser hipotecaria, fianza, depósito en efectivo o “Póliza de Fidelidad”, suscrita con el Instituto Nacional de Seguros.
