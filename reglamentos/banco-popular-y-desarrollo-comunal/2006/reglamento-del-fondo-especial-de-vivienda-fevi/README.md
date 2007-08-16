@@ -14,3 +14,4 @@ Reglamento del Fondo Especial de Vivienda (FEVI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-25 | la propia norma |
+| 2 | 2007-08-16 | Reglamento 4510 (2007-08-16) |
