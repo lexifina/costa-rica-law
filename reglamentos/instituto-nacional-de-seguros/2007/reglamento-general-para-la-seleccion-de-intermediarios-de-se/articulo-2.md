@@ -1,0 +1,1 @@
+Artículo 2º—Fundamento jurídico. El presente reglamento se emite al amparo de lo dispuesto por el artículo 2 bis, inciso c, de la Ley de Contratación Administrativa y el artículo 138 del Reglamento a la Ley de Contratación Administrativa.

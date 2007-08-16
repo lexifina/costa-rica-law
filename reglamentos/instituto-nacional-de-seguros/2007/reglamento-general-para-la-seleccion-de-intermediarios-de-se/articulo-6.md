@@ -1,0 +1,1 @@
+Artículo 6º—Regulaciones específicas. Las regulaciones específicas del servicio a contratar se establecerán por medio del Reglamento para la operación de intermediarios en la comercialización de productos y servicios de seguros del Instituto Nacional de Seguros y las disposiciones que al efecto se emitan.
