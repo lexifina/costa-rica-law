@@ -1,1 +1,0 @@
-Artículo 44.—Plan anual operativo. Conjuntamente con el presupuesto de gastos e inversiones, se elaborara el Plan Anual Operativo de la Auditoría, el cual deberá contener, al menos: Objetivos Específicos, Políticas. Metas y Acciones para el próximo año.

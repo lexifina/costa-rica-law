@@ -1,1 +1,0 @@
-Artículo 46.—Presupuestos extraordinarios. En los presupuestos extraordinarios en que se afecten los recursos asignados a la Auditoría, también se deberá incluir el anexo mencionado en el artículo anterior.
