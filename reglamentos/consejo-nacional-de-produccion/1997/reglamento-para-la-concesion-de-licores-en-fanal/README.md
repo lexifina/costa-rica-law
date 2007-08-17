@@ -15,3 +15,4 @@ Reglamento para la Concesión de Licores en FANAL
 | --- | --- | --- |
 | 1 | 1997-10-03 | la propia norma |
 | 2 | 2006-03-08 | Reglamento 2628 (2006-03-08) |
+| 3 | 2007-08-17 | Reglamento 2685 (2007-08-17) |
