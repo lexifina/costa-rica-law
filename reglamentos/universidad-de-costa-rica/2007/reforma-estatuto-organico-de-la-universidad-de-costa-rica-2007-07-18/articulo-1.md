@@ -1,0 +1,4 @@
+UNIVERSIDAD DE COSTA RICA
+ARTÍCULO 66 ESTATUTO ORGÁNICO
+El Consejo Coordinador del Área de Artes y Letras y el de Ciencias Básicas estará integrado por los Consejos de las Áreas correspondientes y además por el Director o la Directora de la Escuela de Estudios Generales. Será presidido, en forma alterna y por períodos anuales, por una de las personas coordinadoras de Área; en ausencia del coordinador o de la coordinadora, lo presidirá la persona integrante de este Órgano que en el acto se designe. Se reunirá ordinariamente por lo menos una vez al año y extraordinariamente cuando lo convoque uno de los coordinadores o una de las coordinadoras de Área o alguno de los Vicerrectores o alguna de las Vicerrectoras.
+San José, 18 de julio del 2007.
