@@ -1,0 +1,1 @@
+Artículo 11.—Las ayudas que concederá la Municipalidad de Grecia podrán ser en dinero, en materiales o en víveres, según la recomendación que, de acuerdo con lo establecido en el artículo 5° anterior, realizará el Área de Desarrollo Social.
