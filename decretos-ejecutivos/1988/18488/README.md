@@ -15,3 +15,4 @@ Reglamento de Becas de la Dirección General de Migración y Extranjería
 | --- | --- | --- |
 | 1 | 1988-10-10 | la propia norma |
 | 2 | 1999-04-28 | Decreto Ejecutivo 27856 (1999-04-28) |
+| 3 | 2007-08-17 | Decreto Ejecutivo 33983 (2007-08-17) |

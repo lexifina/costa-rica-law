@@ -1,0 +1,2 @@
+Artículo 4º bis.—La cancelación de los montos acordados por la Comisión de Becas, podrá pagarse en forma directa al funcionario, o bien, al centro de estudios, donde el interesado cursa la carrera o el evento formativo, a través de la forma usual de pago de la Institución o el organismo auspiciador para tal efecto
+(Así adicionado mediante artículo 2° del decreto ejecutivo N° 33983 del 17 de agosto de 2007).
