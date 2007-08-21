@@ -14,3 +14,4 @@ Reglamento para la Contratación del Mantenimiento Preventivo y Correctivo de Ve
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-19 | la propia norma |
+| 2 | 2007-08-21 | Reglamento 0 (2007-08-21) |

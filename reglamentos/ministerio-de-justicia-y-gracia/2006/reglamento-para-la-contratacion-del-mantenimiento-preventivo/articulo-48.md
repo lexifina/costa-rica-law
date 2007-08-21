@@ -1,1 +1,3 @@
 Artículo 48.—Vigencia. Este Reglamento rige por un plazo máximo de un año, a partir del 4 de setiembre del año 2006.
+(NOTA DE SINALEVI: Mediante publicación efectuada en La Gaceta N° 168 del 03 de setiembre del 2007, se modifica el presente artículo a efecto de que la vigencia de este mecanismo de contratación sea de dos años, a partir del 4 de setiembre de 2007(*), según oficios 11861(DCA-2472) de fecha 17 de agosto de 2006 y 07984 (DCA-2428) de fecha 18 de julio de 2007, ambos de la División de Contratación Administrativa de la Contraloría General de la República.
+(*)(Corregido mediante Fe de Erratas, publicada en La Gaceta N ° 30 del 12 de febrero de 2009).
