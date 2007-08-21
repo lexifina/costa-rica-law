@@ -1,0 +1,22 @@
+MUNICIPALIDAD DE SAN RAMÓN
+(Nota de Sinalevi:El Concejo Municipal de Distrito de Peñas Blancas, mediante publicación en La Gaceta N° 134 del 14 de julio de 2022, y con el con el propósito de continuar con los procedimientos correspondientes informa que por medio de acuerdo N° 06 del acta N° 11-2022 de la sesión ordinaria, celebrada el día 08 de marzo del dos mil veintidós, acordó acogerse al reglamento para el funcionamiento del fondo de caja utilizado por parte de la Municipalidad de San Ramón, publicado por parte de la Municipalidad de San Ramón en La Gaceta N° 159-martes 21 de agosto del 2007 para efectos de ser aplicado según corresponda dentro del Concejo Municipal de Distrito de Peñas Blancas de San Ramón, mismo que regirá a partir del día de su publicación en Diario Oficial La Gaceta.)
+CONCEJO MUNICIPAL
+Atendiendo lo establecido en los artículos 169 y 170, de la Constitución Política, en relación con los numerales 4 inciso a), 12, 13 incisos c) y d) y artículos 43 y 50 del Código Municipal, se aprueba, en forma definitiva, mediante acuerdo Nº 2 de la sesión ordinaria Nº 102 del 7 de agosto del 2007, el siguiente Reglamento para el Funcionamiento del Fondo de Caja Chica de la Municipalidad de San Ramón:
+REGLAMENTO PARA EL FUNCIONAMIENTO
+DEL FONDO DE CAJA CHICA
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Para los efectos de este Reglamento se entenderá por:
+a) Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige la Caja Chica. Es la constatación de que la documentación que da soporte a los egresos concuerda con los montos autorizados por Caja Chica.
+b) Bienes y servicios de uso común: Son los bienes y servicios de uso periódico y repetitivo, utilizados en las operaciones regulares y normales de la Municipalidad. Las dependencias deben asegurarse de tener siempre en existencia este tipo de artículos o prever con suficiente anticipación sus necesidades.
+c) Caso fortuito: Llámase así al suceso que sin poder preverse o que, previsto, no pudo evitarse, puede ser producido por la naturaleza o por hechos del hombre.
+d) Compra menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen los límites preestablecidos para los vales de caja chica y cuya necesidad sea urgente y requieran atención inmediata.
+e) Dependencia usuaria del servicio: Se denomina como tal la dirección, departamento, sección y unidad.
+f) Encargado de Caja Chica: El Tesorero Municipal, quien según el numeral 109 del Código Municipal vigente, es quien debe tener a cargo las cajas chicas.
+g) Fuerza mayor: Acontecimiento (fuerza de la naturaleza, hecho de un tercero, hecho del príncipe) que no ha podido ser previsto ni impedido y que libera al deudor de cumplir su obligación frente al acreedor, o exonera al autor de un daño, frente al tercero, víctima de éste por imposibilidad de evitarlo.
+h) Fondo de Caja Chica: Fondo que contiene recursos para la adquisición de bienes y servicios que no son de uso común o que no hay en existencia en la bodega municipal. Las adquisiciones son de uso exclusivo de las dependencias administrativas y operativas que las gestionan, utilizando también criterios de compra emergente y compra menor.
+i) Liquidación: Rendición de cuentas que efectúa el funcionario responsable del vale de caja chica, mediante comprobación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos.
+j) Tesorero Municipal: El Jefe del Departamento de Tesorería, en la persona de su titular, o bien, en la persona de quien lo sustituya en ese mismo cargo por motivo de vacaciones, incapacidad, permiso con o sin goce de salario o cualesquiera otro motivo.
+k) Reintegro de fondos: Solicitud de reintegro de dinero que efectúa la Tesorería Municipal al fondo de Caja Chica para cubrir los gastos efectuados.
+l) Vale de Caja Chica: El comprobante que autoriza la entrega por parte del Tesorero Municipal de dinero en efectivo a un funcionario municipal autorizado para tal efecto, de conformidad con este Reglamento.
+m) Viáticos y transportes: Son los gastos de viaje y transporte en el interior del país y se pagarán por medio de este fondo, siempre y cuando no supere el máximo establecido para el vale y se tramitarán mediante el formulario diseñado para tal fin. Este concepto se regirá conforme se establece en el Reglamento de Gastos de Viaje y Transportes para el Sector Público y sus modificaciones.

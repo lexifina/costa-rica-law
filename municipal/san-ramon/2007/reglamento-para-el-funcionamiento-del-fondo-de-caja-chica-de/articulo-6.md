@@ -1,0 +1,1 @@
+Artículo 6º—La Caja Chica funcionará mediante el sistema de cuenta corriente y mantendrá dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios de conformidad con el artículo 9º de este Reglamento, así como para pagar gastos de viaje y transportes.
