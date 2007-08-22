@@ -13,3 +13,4 @@ Sobre las personas llamadas a audiencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-02 | la propia norma |
+| 2 | 2007-08-22 | Circular 113 (2007-08-22) |
