@@ -13,3 +13,4 @@ Designa Laboratorio Central de AyA Como Laboratorio Nacional de Aguas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-09 | la propia norma |
+| 2 | 2007-08-22 | Decreto Ejecutivo 33953 (2007-08-22) |
