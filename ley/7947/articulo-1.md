@@ -14,10 +14,11 @@ sociales, venta de vehículos, marisquerías, agencias de viajes y
 discotecas, pagarán una tarifa de dos colones (¢2,00) por cada mil colones
 (¢1.000,00) sobre los ingresos brutos.
 2.- Tiendas, ferreterías, depósitos, industrias, servicios,
-licoreras, zapaterías, farmacias, servicios profesionales, fábricas, ropa,
+licoreras, zapaterías, farmacias, fábricas, ropa,
 maquiladoras, buhoneros, veterinarias y sodas, pagarán una tarifa de un
 colón cincuenta (¢1,50) por cada mil colones (¢1.000.00) sobre los
 ingresos brutos.
+(Así reformado mediante resolución de la Sala Constitucional N° 11923-2007 del 22 de agosto del 2007. )
 3.- Pulperías, supermercados, carnicerías, verdulerías, gasolineras,
 ingenios, taxis, servicio público de empresas de transporte remunerado de
 personas, imprentas, lubricentros, talleres mecánicos, industriales, de
