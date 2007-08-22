@@ -1,0 +1,1 @@
+Artículo 2º—Designar al Presidente Ejecutivo del Instituto Costarricense de Pesca y Acuicultura como contraparte de la organización de este Evento Internacional para que coordine todas las acciones necesarias con el Western Pacific Regional Fishery Management Council y las diversas instituciones del Estado, a efectos de garantizar el éxito de esta actividad.
