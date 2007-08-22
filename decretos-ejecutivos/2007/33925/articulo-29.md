@@ -1,0 +1,1 @@
+Artículo 29.—Funcionamiento de las comisiones: Para el adecuado funcionamiento de las Comisiones y el Equipo de Desarrollo de Proyectos, PROARTES podrá elaborar formularios, manuales y hojas de trabajo que faciliten su labor, las que ayudarán a que el proceso sea más transparente, homogéneo y ágil.

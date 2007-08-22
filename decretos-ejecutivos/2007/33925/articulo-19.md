@@ -1,0 +1,1 @@
+Artículo 19.—Respeto a los derechos de autor: Toda propuesta deberá ser respetuosa de los derechos de autor de sus creadores, de manera que cuando sea procedente, el proyecto deberá contar con las respectivas autorizaciones –por escrito- de los autores de las obras, coreógrafos, directores escénicos, compositores y cualquier otro que posea derechos de autor sobre ellas.

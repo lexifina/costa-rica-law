@@ -1,0 +1,1 @@
+Artículo 34.—Control de entrega de propuestas: PROARTES definirá mecanismos fehacientes que permitan registrar cada una de las propuestas, con la fecha y hora en que fueron recibidas y el funcionario que las ingresó, para un adecuado control del proceso.

@@ -1,0 +1,1 @@
+Artículo 18.—Contenido del proyecto: El proyecto que presente el postulante y las copias respectivas deberán contener, al menos lo siguiente: título, objetivos, lugar de realización del proyecto y cobertura, descripción, justificación, duración, parámetros de evaluación, presupuesto detallado, impacto y sostenibilidad del proyecto.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Proceso de selección
+Artículo 30.—Convocatoria Nacional: Para la ejecución de los recursos de PROARTES designados como apoyo económico al sector independiente, se realizarán las convocatorias necesarias para que los postulantes presenten sus proyectos, buscando siempre una masiva participación nacional. La convocatoria se publicará en, al menos, un diario de circulación y cobertura nacional y en el sitio Web de la institución; sin perjuicio de la utilización de otros medios que la Administración considere efectivos para dicho fin.
+La convocatoria se trabajará de manera coordinada con la Dirección General de Cultura y sus Direcciones Regionales, para lograr una amplia divulgación nacional. El Teatro Popular Melico Salazar podrá gestionar el apoyo de otros medios de comunicación para la divulgación gratuita de la convocatoria en radio y televisión.

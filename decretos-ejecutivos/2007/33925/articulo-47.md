@@ -1,0 +1,2 @@
+Artículo 47.—Supervisión del desarrollo de los proyectos: La Comisión de Desarrollo de Proyectos establecerá un cronograma de visitas de supervisión de los proyectos seleccionados, a efecto de determinar que su avance sea acorde al cronograma y objetivos planteados.
+La programación de visitas se hará dependiendo del tiempo de ejecución del proyecto y de los mecanismos de distribución de recursos, todo lo cual será definido por PROARTES, con el respectivo aval de la Junta Directiva y se dará a conocer en las Bases de Participación de cada convocatoria

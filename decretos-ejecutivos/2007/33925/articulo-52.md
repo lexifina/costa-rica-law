@@ -1,0 +1,1 @@
+Artículo 52.—Opinión pública: Como parte del proceso de evaluación, PROARTES programará canales de diálogo para que los participantes de cada convocatoria del programa puedan emitir sus opiniones acerca de los procesos, de manera que se logre dar un seguimiento efectivo a los avances del programa.

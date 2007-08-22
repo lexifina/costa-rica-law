@@ -1,0 +1,1 @@
+Artículo 22.—Desecho de material: Una vez finalizados los procesos, los participantes disponen de 30 días calendario para el retiro del material entregado a PROARTES, con excepción del original que permanecerá en custodia en los archivos. Al terminar el período indicado, todo material será desechado, sin responsabilidad alguna por parte de PROARTES ni de sus funcionarios.
