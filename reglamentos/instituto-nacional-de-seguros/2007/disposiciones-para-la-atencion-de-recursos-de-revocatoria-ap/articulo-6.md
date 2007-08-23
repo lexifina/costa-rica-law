@@ -1,0 +1,1 @@
+Artículo 6º—Plazos de Resolución. La apelación deberá resolverse en el plazo máximo de diez días hábiles contados a partir del día siguiente al que se reciba la solicitud del Asegurado o Gestionante o, de la Sede.

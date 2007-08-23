@@ -1,0 +1,5 @@
+Artículo 9º—Criterio jurídico. Toda solicitud de agotamiento de vía administrativa deberá contar con el criterio jurídico previo a su resolución.
+Para esos efectos, resueltos los recursos previos cuando el agotamiento sea requerido de forma subsidiaria, o luego de planteada la solicitud de agotamiento de vía en forma principal, la Dirección Técnica remitirá a la Dirección Jurídica en el plazo de dos días, los antecedentes del caso, el criterio técnico, su fundamentación y el expediente completo incluyendo la póliza objeto del reclamo.
+La Dirección Jurídica contará con un plazo de 10 días para realizar el análisis correspondiente y remitir su criterio a la Dirección Técnica, contados a partir del día siguiente en que se recibió toda la documentación de parte de la Dirección Técnica.
+Transitorio
+Durante los primeros 3 meses de vigencia de estas disposiciones, la Dirección Jurídica contará con un plazo de 20 días para atender los criterios para el trámite de agotamiento de vía administrativa. Luego de ese período y hasta los 6 meses contará con un plazo de 15 días. A partir del sexto mes el plazo será de 10 días según lo dispuesto en el artículo 9 de cita.
