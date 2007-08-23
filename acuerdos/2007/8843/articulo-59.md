@@ -1,0 +1,1 @@
+Artículo 59.—La Auditoría Interna verificará lo actuado por la Administración respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno o de responsabilidades (Relaciones de Hechos), u otros pertinentes.

@@ -1,0 +1,1 @@
+Artículo 32.—El Auditor Interno tiene la potestad de incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Institución para que lleven a cabo labores de su especialidad como soporte a los estudios que se realicen, cumpliendo los aspectos presupuestarios y de contratación administrativa que le son aplicables.

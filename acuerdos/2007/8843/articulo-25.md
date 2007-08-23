@@ -1,0 +1,16 @@
+Artículo 25.—En cuanto a la dirección superior y administración de la Auditoría Interna, el Auditor Interno, por su competencia, tiene las siguientes atribuciones:
+Definición, establecimiento y actualización de:
+i) Normativa interna: Las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de dicha Unidad, incluyendo los que se refieren a la administración, acceso y custodia de la documentación de la Auditoría Interna.
+ii) Planificación estratégica: Regular la planificación estratégica y anual de sus procesos (de auditoría y preventivos), conforme a las normas sobre la planificación que contiene el “Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público”, en la valoración del riesgo de la administración (institucional) hasta donde sea posible, con especial énfasis en temas sensibles por su impacto en los objetivos institucionales y del sistema de control interno, incluidos los referentes a la prevención de la corrupción y el enriquecimiento ilícito.
+iii) Plan Anual de Trabajo: Elaborar, el contenido y las modificaciones del plan anual de trabajo, de conformidad con la normativa vigente, sin perjuicio de que se atiendan las sugerencias que le manifieste la Junta Directiva y la Administración Superior. El Auditor Interno deberá presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y deberá exponer a la Junta Directiva su contenido y relación con el plan estratégico de fiscalización, así como proponer al Jerarca, debidamente justificados, los requerimientos de recursos para cumplir su plan, incluidas las necesidades administrativas de la Unidad, en concordancia con lo que señala el artículo 27 de la Ley General de Control Interno.
+iv) Presupuesto de la Auditoría: Presentar el proyecto de presupuesto de la Auditoría Interna para que se incorpore al Presupuesto Institucional, en el momento que las disposiciones internas lo determinen.
+La Auditoría Interna tendrá una categoría programática; para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del auditor interno y las instrucciones que emita al respecto la Contraloría General de la República.
+iv) Programa de aseguramiento de calidad: Establecer un programa de aseguramiento de calidad para la Auditoría Interna. Lo anterior comprende formular criterios mínimos que se tomarán en cuenta para mantener y divulgar un programa de aseguramiento continuo de la calidad y mejora de los principales procesos de la Auditoría Interna, que incluirá supervisión, evaluaciones internas cada año y evaluaciones externas al menos una vez cada tres años.
+v) Redacción de informes: Elaborar los siguientes informes:
+Ø Informe anual de labores
+Ø Informe anual del estado de las recomendaciones emitidas por la Auditoría Interna y los entes contralores externos.
+Ø Informes trimestrales de labores
+Ø Informes semestrales del estado de los Acuerdos tomados por la Junta Directiva pendientes de ejecución
+Ø Informes trimestrales sobre el estado de cumplimiento de las disposiciones emitidas por la Contraloría General de la República
+Ø Informes trimestrales de ejecución presupuestaria
+Ø Cualquier otro reporte que soliciten el Jerarca o los entes contralores externos.

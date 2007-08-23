@@ -1,0 +1,2 @@
+f) Ámbito de acción
+Artículo 27.—El ámbito de acción de la Auditoría Interna está conformado por el Instituto Nacional de Seguros, toda empresa que el Instituto posea o llegase a fundar como una sociedad mercantil del Estado, los Agentes y Sucursales a que se refiere el Capítulo VIII del Decreto Ejecutivo Nº 29 de 24 de junio de 1964 y sus reformas, empresas o personas que presten servicios de apoyo contratados y cualquier otra entidad u organismo si así lo dispone la Junta Directiva.

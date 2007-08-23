@@ -1,0 +1,1 @@
+Artículo 37.—Los servicios de auditoría son los referidos a los distintos tipos de auditorías e incluyen auditorías financieras, auditorías operativas, auditorías informáticas y estudios especiales de auditoría.

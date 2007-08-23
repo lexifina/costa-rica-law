@@ -1,0 +1,1 @@
+Artículo 39.—La asesoría consiste en proveer al jerarca criterios, opiniones u observaciones que coadyuven a la toma de decisiones, puede brindarse en forma oral o escrita, y se emite sobre asuntos estrictamente de su competencia y sin que menoscabe o comprometa la independencia y objetividad en el desarrollo posterior de sus demás competencias.

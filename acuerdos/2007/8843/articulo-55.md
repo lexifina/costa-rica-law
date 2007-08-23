@@ -1,0 +1,1 @@
+Artículo 55.—La Junta Directiva o el funcionario con la competencia para iniciar el procedimiento administrativo por recomendación de la Auditoría Interna, deben tomar las medidas para que éste se atienda dentro de los plazos que correspondan a fin de que se interrumpa la prescripción de la responsabilidad.

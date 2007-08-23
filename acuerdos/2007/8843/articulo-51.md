@@ -1,0 +1,1 @@
+Artículo 51.—La Junta Directiva o el titular subordinado, una vez aceptadas las recomendaciones de la Auditoría Interna, debe girar por escrito la orden para su implantación al responsable designado, con copia a la Auditoría Interna, disponiendo las fechas de inicio y de finalización probable para dicha implantación.

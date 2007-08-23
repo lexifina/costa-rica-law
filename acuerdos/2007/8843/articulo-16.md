@@ -1,0 +1,1 @@
+Artículo 16.—La Unidad Técnica de Auditoría brinda apoyo en las labores administrativas de la Auditoría. Ejerce funciones de aseguramiento de la calidad de la Auditoría y entre sus principales labores están las de instrumentalizar los procesos de revisión, estandarización y control sobre su correcta aplicación.

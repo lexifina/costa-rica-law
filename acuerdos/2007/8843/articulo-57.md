@@ -1,0 +1,1 @@
+Artículo 57.—A la Auditoría Interna le corresponde formular y ejecutar un programa de seguimiento enfocado a verificar la efectividad con que se implantaron los resultados de los servicios de auditoría, así como de las disposiciones de la Contraloría General de la República y demás recomendaciones de otros órganos de control externos puestas en su conocimiento.

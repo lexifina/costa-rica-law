@@ -1,0 +1,2 @@
+d) Del Auditor y Subauditor
+Artículo 17.—El Auditor es el delegado directo de la Junta Directiva para ejercer en su nombre y representación la vigilancia, inspección, fiscalización sistemática de la situación y marcha general del Instituto. El puesto de Auditor Interno corresponde al máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna. El Auditor Interno responderá por su gestión ante la Junta Directiva y, en lo conducente, ante la Contraloría General de la República.
