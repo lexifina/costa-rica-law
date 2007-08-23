@@ -1,0 +1,3 @@
+Artículo 4º—Excepción a la Norma de Confidencialidad. En caso que la denuncia dé origen a la apertura de un procedimiento administrativo, las partes involucradas tendrán libre acceso a todos los documentos y pruebas que obren en el expediente.
+Asimismo, la Asamblea Legislativa, al tenor de lo dispuesto en el artículo 12 inciso 23) de la Constitución Política, podrá acceder a los informes, documentación y las pruebas que obren en poder de las auditorias internas y la administración.
+También podrán tener acceso a toda la documentación las autoridades judiciales y quienes se encuentren legitimados, ante la posible existencia de un delito contra el honor de la persona denunciada.

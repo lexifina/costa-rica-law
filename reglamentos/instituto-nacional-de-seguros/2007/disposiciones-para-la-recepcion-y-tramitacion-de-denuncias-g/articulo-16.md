@@ -1,0 +1,1 @@
+Artículo 16.—Fundamento del Acto de Desestimación o Archivo de Denuncias. La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado en un documento formal, donde acredite los argumentos valorados para tomar esa decisión. Esta resolución deberá ser aprobada por el jefe de la Dependencia competente para conocer la denuncia.
