@@ -1,0 +1,1 @@
+Artículo 2º—Es responsabilidad de la Administración activa del Consejo el cumplimiento del Decreto Ejecutivo Nº 32452-H, publicado en La Gaceta Nº 130 del 6 de julio del 2005, así como lo dispuesto en el artículo 6º de la Ley Nº 8131.
