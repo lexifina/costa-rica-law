@@ -1,1 +1,0 @@
-Artículo 78.-En un plazo de quince días hábiles, el Organo Director emitirá el informé que trasladará al Miembro Presidente con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva en un plazo de cinco días naturales.

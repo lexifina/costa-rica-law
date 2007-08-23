@@ -1,1 +1,0 @@
-Artículo 17.—Los servidores del Tribunal tendrán la posibilidad de que se les brinde la debida capacitación, mediante cursos, seminarios, becas y otros, canalizados a través de la Secretaría Administrativa.

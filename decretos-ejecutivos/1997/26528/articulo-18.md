@@ -1,1 +1,0 @@
-Artículo 18.—Los servidores nombrados en propiedad podrán solicitar á la Secretaría Administrativa el trámite ante la Dirección General de Servicio Civil de reasignación, siempre que consideren que las funciones han variado sustancialmente, y esté conforme con la normativa.

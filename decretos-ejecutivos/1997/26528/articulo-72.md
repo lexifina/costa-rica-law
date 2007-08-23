@@ -1,1 +1,0 @@
-Artículo 72.—-La persona afectada por acoso u hostigamiento sexual podría plantear la denuncia sea en forma verbal o escrita ante cualquiera de los miembros del Tribunal, quien deberá poner en conocimiento de los restantes miembros la denuncia presentada.

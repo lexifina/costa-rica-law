@@ -1,1 +1,0 @@
-Artículo 9°—Sin perjuicio de lo establecido en los artículos 26 y 31 del Código de Trabajo, los contratos de trabajo a plazo fijo o por obra determinada una vez vencido el plazo o concluida la obra, terminaran sin responsabilidad para el Tribunal.

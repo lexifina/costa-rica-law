@@ -1,1 +1,0 @@
-Artículo 84.—Los servidores tendrán desecho a contar con los servicios médicos asistenciales dentro de la Institución, o mediante la utilización de los servicios médicos destacados en la Dirección General de Servicio Civil.

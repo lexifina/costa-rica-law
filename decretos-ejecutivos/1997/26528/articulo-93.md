@@ -1,1 +1,0 @@
-Artículo 93.—-Los servidores del Tribunal podrán recurrir contra todas aquellas resoluciones o disposiciones de sus jefes administrativos ante el Presidente del Tribunal, cuya resolución agotará la vía administrativa.

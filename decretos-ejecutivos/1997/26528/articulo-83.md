@@ -1,1 +1,0 @@
-Artículo 83.—Los servidores, previa autorización del Tribunal podrán realizar fuera de la jornada laboral, actividades de formación humanística intelectual, deportiva y recreativa que les permita el desarrollo dé sus aptitudes.

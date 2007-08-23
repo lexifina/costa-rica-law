@@ -1,1 +1,0 @@
-Artículo 61.—La compensación económica por concepto de, Prohibición del Ejercicio Particular, de la Profesión, se regulará conforme con las disposiciones de la ley N° 5867 del 15 de diciembre de 1975, sus reformas y Sus reglamentos; y en cuanto al incentivo por dedicación exclusiva, su pago se regirá por las disposiciones aplicables.

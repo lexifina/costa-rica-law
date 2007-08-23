@@ -1,1 +1,0 @@
-Artículo 90.—Las advertencias orales o escritas, deberán imponerse dentro de los quince días posteriores a aquél' en que el hecho fue del conocimiento de los. superiores;, las suspensiones y el despido deberán acordarse en el transcurso del mes posterior al día en que el Presidente del Tribunal tuvo conocimiento de la falta.

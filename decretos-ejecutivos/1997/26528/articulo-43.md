@@ -1,1 +1,0 @@
-Artículo 43.—Todo servidor ausenté deberá comunicar en las primeras horas de la jornada correspondiente, por el medio que considere más idóneo, a la Secretaría Administrativa, que no podrá presentarse a sus labores, sin que tal aviso signifique la justificación de su inasistencia.

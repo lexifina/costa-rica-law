@@ -1,2 +1,0 @@
-Artículo 31.—Los días de asueto serán libres para los funcionarios del .Tribunal cuando el acto que los declare como tales así lo establezca.
-Se tomaran como libres los días feriados reconocidos de esa forma por ley. Se exceptúan del disfrute de estos días aquellos servidores que por la naturaleza de sus funciones deban laborarlos, en cuyo caso se les aplicará lo dispuesto en el artículo 28 de este Reglamento.

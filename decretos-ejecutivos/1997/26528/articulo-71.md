@@ -1,1 +1,0 @@
-Artículo 71.—-Incurrirá en falta en el desempeño de su cargo y dará mérito para la aplicación del régimen disciplinario el servidor que injustificadamente, entorpezca o atrase una investigación, sé negare a declarar o a brindar informaron sobre los hechos denunciados.

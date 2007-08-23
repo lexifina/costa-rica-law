@@ -1,1 +1,0 @@
-Artículo 55.—Las licencias sin goce de salario se otorgarán en casos muy calificados, presentando los documentos en que se fundamenten y respalden. Se regirán por lo que establece el artículo 33 del Reglamento del Estatuto y serán aprobadas por el Presidente del Tribunal.

@@ -1,1 +1,0 @@
-Artículo 35,—El servidor que por dolo o complacencia haga una marca ajena, incurrirá en falta grave, excepto si demuestra que lo hizo por error, O aquel a quien le marcaron informa del hecho a la Secretaría Administrativa en la siguiente jornada de trabajo.

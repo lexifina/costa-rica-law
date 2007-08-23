@@ -1,1 +1,0 @@
-Artículo 39.—Solo en casos muy calificados a juicio de la Secretaría Administrativa se justificarán las llegadas tardías y las salidas antes dé la hora oficial. Queda al cuidado del servidor presentar tal justificación antes de que finalice el mes en que se produjo la falta.

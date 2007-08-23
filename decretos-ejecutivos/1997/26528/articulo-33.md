@@ -1,1 +1,0 @@
-Artículo 33.—Las marcas de asistencia deben ser claras y precisas, aquellas que presenten irregularidades que no se deban a defectos del sistema, se tendrán por no hechas, a menos que se presente y acepte la justificación del caso.

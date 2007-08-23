@@ -1,1 +1,0 @@
-Artículo 98.—Cuando se trate de puestos excluidos; del Régimen de Servicio Civil procederá el despido sin responsabilidad patronal cuando se 'incurra en las causales que determina el Código de Trabajo, y demás normativas que corresponda.

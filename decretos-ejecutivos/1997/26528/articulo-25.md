@@ -1,1 +1,0 @@
-Artículo 25,—Se exceptúan de la jornada y horario general de servicio señalados en el artículo anterior, los servidores cuyo puesto involucra funciones de una naturaleza que exija su presencia en el lugar de trabajo durante horario especial, a los cuáles la Secretaría Administrativa les asignará un horario acorde con la naturaleza de esas funciones.

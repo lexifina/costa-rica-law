@@ -1,1 +1,0 @@
-Artículo 10.—Terminarán igualmente su responsabilidad para el Tribunal aquellos nombramientos que se efectúen en puestos amparados por el Régimen de Servicio Civil con carácter de "interino", siempre que no sean efectuados por un período superior a un ano; de conformidad con el Reglamento del Estatuto de Servicio Civil.

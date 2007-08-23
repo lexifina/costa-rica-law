@@ -1,1 +1,0 @@
-Artículo 12.-—El Tribunal está facultado para utilizar a sus servidores en las labores que considere necesario asignarles, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición y dentro de aquellas para cuya ejecución hayan sido contratados y no les cause perjuicio.
