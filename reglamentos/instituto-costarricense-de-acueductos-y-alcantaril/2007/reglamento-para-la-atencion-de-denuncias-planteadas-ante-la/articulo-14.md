@@ -1,0 +1,1 @@
+Artículo 14.—De la desestimación de la denuncia. Cuando la Auditoría Interna desestime una denuncia deberá motivar y quedar evidencia en los expedientes correspondientes los motivos por los cuales se desestimó dicha denuncia.

@@ -1,0 +1,1 @@
+Artículo 10.—De las denuncias anónimas. No se dará trámite a las denuncias que sean presentadas en forma anónima. En casos excepcionales podrá abrirse de oficio una investigación preliminar, cuando con ésta se reciban elementos de prueba que den mérito para ello. En caso contrario, se dispondrá su archivo sin más trámite.

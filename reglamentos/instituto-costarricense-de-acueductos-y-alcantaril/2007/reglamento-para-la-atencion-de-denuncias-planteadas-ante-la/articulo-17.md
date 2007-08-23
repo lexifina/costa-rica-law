@@ -1,0 +1,1 @@
+Artículo 17.—Del seguimiento de los resultados de la investigación producto de las denuncias. La Auditoría Interna, de acuerdo con los procedimientos establecidos, dará seguimiento a los resultados de las denuncias sometidas a su atención, para verificar el cumplimiento de las recomendaciones emitidas en razón de éstas.

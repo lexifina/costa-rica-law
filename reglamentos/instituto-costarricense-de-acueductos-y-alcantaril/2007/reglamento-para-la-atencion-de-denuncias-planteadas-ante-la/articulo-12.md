@@ -1,0 +1,1 @@
+Artículo 12.—Del traslado de la denuncia a la administración activa. La Auditoría Interna analizará y trasladará a la administración activa las denuncias que por su naturaleza le correspondan, la que deberá atenderlas e informar los resultados a esta unidad fiscalizadora, denunciante e interesados.

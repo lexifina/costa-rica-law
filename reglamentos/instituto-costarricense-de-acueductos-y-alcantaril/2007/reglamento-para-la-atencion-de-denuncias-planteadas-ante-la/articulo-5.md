@@ -1,0 +1,1 @@
+Artículo 5º—Recibo de denuncia. Las denuncias se recibirán en las oficinas de la Auditoría Interna ya sean en forma escrita, verbal, o cualquier otro medio y serán valoradas en su admisibilidad, conforme a lo que dicta la Sección Segunda del Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

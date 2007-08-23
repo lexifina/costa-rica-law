@@ -1,0 +1,1 @@
+Artículo 18.—De los procedimientos de auditoría. La Auditoría Interna utilizará los procedimientos establecidos en el manual para el ejercicio de la Auditoría o aquellos que sean necesarios cumpliendo con el ordenamiento jurídico.

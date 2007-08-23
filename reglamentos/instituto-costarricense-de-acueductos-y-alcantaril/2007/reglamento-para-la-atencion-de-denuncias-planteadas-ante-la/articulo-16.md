@@ -1,0 +1,1 @@
+Artículo 16.—De los resultados de la investigación. La auditoria interna informará al jerarca o la gerencia según corresponda de los resultados de las investigaciones efectuadas en razón de denuncias; quien deberá resolver de acuerdo con los tiempos regulados en la Ley General de Control Interno y los períodos de prescripción y caducidad que establezca la normativa pertinente.
