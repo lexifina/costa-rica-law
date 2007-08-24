@@ -2,7 +2,8 @@ Articulo 7°—Requisitos para obtener un permiso de transporte por primera vez:
 A. Personas físicas:
 · Formula de solicitud debidamente llena y firmada (F.P.C.).
 · Presentar cedula de identidad vigente, en original y aportar fotocopia por ambos lados o cedula de residencia vigente y aportar fotocopia completa.
-· Presentar original del permiso sanitario de funcionamiento vigente, extendido por el Ministerio de Salud y aportar fotocopia.
+· Presentar original del Certificado Veterinario de funcionamiento vigente, extendido por el SENASA y aportar fotocopia.
+(Así reformado el punto anterior mediante Acuerdo N° 320 del 22 de agosto de 2002)
 · Estar al día con sus obligaciones obrero patronales.
 · Presentar original del certificado de participación del curso de manipulación de productos pesqueros, por parte del interesado o su conductor y aportar fotocopia.
 · Presentar original de la tarjeta de circulación vigente y aportar fotocopia.
@@ -14,7 +15,8 @@ B. Personas jurídicas:
 · Presentar original de la cedula de persona jurídica y aportar fotocopia por ambos lados.
 · Aportar una certificación registral o notarial de la empresa en original, con no mas de un mes de haber sido expedida y que contenga como mínimo los siguientes elementos:
 Citas de inscripción en el Registro Publico Nacional. o Numero de cedula de persona jurídica. o Personería jurídica.
-Presentar original del permiso sanitario de funcionamiento vigente, extendido por el Ministerio de Salud y aportar fotocopia.
+Presentar original del Certificado Veterinario de funcionamiento vigente, extendido por el SENASA y aportar fotocopia.
+(Así reformado el punto anterior mediante Acuerdo N° 320 del 22 de agosto de 2002)
 Estar al día con sus obligaciones obrero patronales.
 · Presentar original del certificado de participación del curso de manipulación de productos pesqueros, por parte del interesado o su conductor y aportar fotocopia.
 · Presentar original de la tarjeta de circulación vigente y aportar fotocopia.

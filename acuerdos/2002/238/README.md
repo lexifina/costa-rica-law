@@ -18,3 +18,4 @@ Requisitos para otorgra licencias, permisos y carné de pesca, sustitución, ina
 | 3 | 2005-07-14 | Acuerdo 378 (2005-07-14) |
 | 4 | 2005-08-31 | Acuerdo 430 (2005-08-31) |
 | 5 | 2005-10-26 | Acuerdo 542 (2005-10-26) |
+| 6 | 2007-08-24 | Acuerdo 320 (2007-08-24) |

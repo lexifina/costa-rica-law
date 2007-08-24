@@ -2,7 +2,8 @@ Articulo 5°—Requisitos para obtener un permiso para puesto de recibo, pescade
 A. Personas físicas:
 · Formula de solicitud debidamente llena y firmada (F.P.C.).
 · Presentar cedula de identidad vigente en original y aportar fotocopia por ambos lados o cedula de residencia vigente y aportar fotocopia completa.
-· Presentar original del permiso sanitario de funcionamiento vigente, extendido por el Ministerio de Salud y aportar fotocopia (este requisito rige para puesto de recibo y pescadería).
+· Presentar original del Certificado Veterinario de funcionamiento vigente, extendido por el SENASA y aportar fotocopia (este requisito rige para puesto de recibo y pescadería).
+(Así reformado el punto anterior mediante Acuerdo N° 320 del 24 de agosto de 2007)
 · Presentar original del permiso sanitario para establecimientos de procesamiento de productos animales vigente, extendido por el Ministerio de Salud y el Ministerio de Agricultura y Ganadería y aportar fotocopia (este requisito rige para planta de proceso).
 · Estar al día con sus obligaciones obrero patronales.
 · Presentar original del certificado de participación del curso de manipulación de productos pesqueros, por parte del interesado o su administrador y aportar fotocopia.
@@ -18,8 +19,10 @@ B. Personas jurídicas:
 Citas de inscripción en el Registro Publico Nacional.
 Numero de cedula de persona jurídica.
 Personería jurídica.
-· Presentar original del permiso sanitario de funcionamiento vigente, extendido por el Ministerio de Salud y aportar fotocopia (este requisito rige para puesto de recibo y pescadería).
-· Presentar original del permiso sanitario para establecimientos de procesamiento de productos animales vigente, extendido por el Ministerio de Salud y el Ministerio de Agricultura y Ganadería y aportar fotocopia (este requisito rige para plantas de proceso).
+· Presentar original del Certificado Veterinario de funcionamiento vigente, extendido por el SENASA y aportar fotocopia (este requisito rige para puesto de recibo y pescadería).
+(Así reformado el punto anterior mediante Acuerdo N° 320 del 24 de agosto de 2007)
+· Presentar original del Certificado Veterinario para establecimientos de procesamiento de productos animales vigente, extendido por el SENASA y el Ministerio de Agricultura y Ganadería y aportar fotocopia (este requisito rige para plantas de proceso).
+(Así reformado el punto anterior mediante Acuerdo N° 320 del 24 de agosto de 2007)
 · Estar al día con sus obligaciones obrero patronales.
 · Presentar original del certificado de participación del curso de manipulación de productos pesqueros, por parte del representante legal o su administrador y aportar fotocopia.
 · Cancelación del canon respectivo.
