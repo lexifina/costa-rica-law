@@ -1,0 +1,1 @@
+Artículo 15.—Asamblea general. La asamblea general es la autoridad democrática superior de la AGICUP. Tiene carácter decisorio en relación con elecciones, reformas de estatuto, reglamentos y otros asuntos atinentes a ella.

@@ -1,0 +1,1 @@
+Artículo 25.—De los vocales y sus atribuciones. Corresponde a los vocales ayudar en las tareas que les sean encomendadas expresamente por la junta directiva, además de sustituir en forma temporal, la ausencia de alguno de los miembros de la misma. Podrán ser reelectos y trabajarán por el período de un año.

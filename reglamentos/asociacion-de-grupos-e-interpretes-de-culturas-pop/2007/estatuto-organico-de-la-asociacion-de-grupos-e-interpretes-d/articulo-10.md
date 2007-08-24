@@ -1,0 +1,1 @@
+Artículo 10.—Motivos de desafiliación. Los asociados dejarán de pertenecer a la AGICUP por las siguientes causas: a) Cuando la agrupación se disuelva, b) Renuncia voluntaria, presentada por escrito a la junta directiva y firmada por los representantes de la agrupación o su junta directiva, c) Por atraso en el pago de las cuotas mensuales por más de doce meses.

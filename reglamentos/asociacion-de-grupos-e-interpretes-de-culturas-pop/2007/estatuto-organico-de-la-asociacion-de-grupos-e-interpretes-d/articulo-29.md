@@ -1,0 +1,1 @@
+Artículo 29.—Integración normativa de este estatuto. Los preceptos de este Estatuto no dejarán de aplicarse por falta de reglamentación, sino que ésta será suplida de conformidad con la Ley de Asociaciones y su Reglamento.

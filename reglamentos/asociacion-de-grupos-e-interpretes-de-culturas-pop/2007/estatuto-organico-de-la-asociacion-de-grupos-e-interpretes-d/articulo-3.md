@@ -1,0 +1,1 @@
+Artículo 3º—De los Principios. Son principios fundamentales de la AGICUP. a) La participación efectiva de los asociados en la toma de decisiones, b) El derecho de los asociados a la libre expresión y discusión, en un marco de respeto mutuo, c) El respeto a las diversas posiciones teóricas, metodológicas, ideológicas, religiosas y filosóficas de los asociados.
