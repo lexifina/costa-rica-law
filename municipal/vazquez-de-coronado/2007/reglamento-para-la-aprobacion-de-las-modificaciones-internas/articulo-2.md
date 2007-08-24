@@ -1,0 +1,23 @@
+CAPÍTULO II
+De las modificaciones internas
+3) Se determina que la cantidad de Modificaciones que deban ser presentadas ante el Concejo no deberá exceder de 12 al año,
+4) En casos de excepción, dada la urgencia del caso se pueden realizar modificaciones adicionales, previa solicitud debidamente justificada ante el Presidente Municipal quien decidirá la conveniencia o no.
+5) Podrán realizarse modificaciones para trasladar recursos que provengan de excedentes presupuestarios, y para incorporar gastos que no fueron contemplados, como contrapartida.
+6) Para iniciar su elaboración, cada Director, responsable del proceso, deberá presentar, ante el Alcalde los cambios que se pretenden, debidamente justificados, con indicación clara de las partidas a rebajar y las partidas a aumentar en concordancia con el PAO.
+7) El Alcalde autorizará las propuestas si proceden y las remitirá al Director Financiero.
+8) La Dirección Financiera elaborará el documento de modificación atendiendo los formatos establecidos por la Contraloría General de la República, y los integrará en el sistema de control presupuestario, sin aplicarlo.
+9) Una vez emitida la modificación, el Tesorero Municipal será el responsable de certificar que los saldos de las partidas rebajadas tienen suficiente contenido presupuestario, verificando que las partidas a rebajar cumplan con los lineamientos establecidos por la Contraloría.
+10) La Modificación será trasladada al Concejo, por la Dirección Financiera, para su estudio y aprobación. El Concejo, la analizará y tomará el acuerdo respectivo
+11) Una vez aprobada, la Secretaria deberá adjuntar la siguiente información para cumplir con el bloque de legalidad:
+a) Certificación vigente de la Caja de estar al día.
+b) Certificación vigente del INS de estar al día con un mes mínimo.
+c) En el caso de tomar recursos específicos o comprometidos por leyes, licitaciones o contratos, se deberá de previo contar con el acuerdo donde se autoriza el cambio.
+d) En el caso de incrementos salariales, se deberá adjuntar el Convenio simple debidamente aprobado por el Concejo, con justificación clara que el porcentaje cumple con lo indicado en el artículo Nº 100 del Código Municipal.
+e) En el caso anterior, se deberá elaborar la nueva relación de puestos, con indicación del monto a incrementar.
+f) Adjuntar la justificación de las partidas a rebajar y aumentar.
+12) Una vez aprobado, la Secretaria adjuntará al expediente certificación del acuerdo y se reserva el original.
+13) La Secretaria será la responsable de velar que toda la documentación esté integrada en un expediente debidamente foliado, el cual mantendrá bajo custodia para eventuales revisiones.
+14) La Secretaria remitirá copia del documento a la Auditoría Interna, Tesorería, Contabilidad, Analista Financiera y Dirección Financiera, para lo que corresponda.
+15) Una vez aprobada la modificación el Tesorero verifica que lo aprobado concuerde con lo establecido en el Sistema de Control Presupuestario y lo aplica.
+16) El Contador procede a realizar las anotaciones correspondientes.
+17) La Analista financiera procede a la digitación de los datos en el SIPP durante los siguientes 5 días después de aprobado, para posterior validación por parte del Director Financiero, con un plazo de 3 días después de digitada.
