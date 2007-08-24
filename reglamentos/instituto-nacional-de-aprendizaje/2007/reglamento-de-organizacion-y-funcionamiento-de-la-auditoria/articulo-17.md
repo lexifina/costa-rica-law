@@ -1,0 +1,2 @@
+Artículo 17.—Dependencia orgánica y funcional del personal de Auditoría.
+Los funcionarios de la Auditoría Interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal del INA; sin embargo, el nombramiento, traslado, la suspensión, remoción, concesión de licencias y demás movimientos de personal, deberán contar con la autorización del Auditor Interno; todo de acuerdo con el marco jurídico que rige para el INA y según se establece en los artículos 24 y 28 de la Ley General de Control Interno.

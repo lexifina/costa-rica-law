@@ -1,0 +1,2 @@
+Artículo 64.—Resultados de advertencias.
+Las advertencias serán emitidas en un documento u oficio de la Auditoría Interna conteniendo “observaciones” previniendo lo que legal, administrativa y técnicamente corresponda a un asunto determinado. Deben tener un tono constructivo y de apoyo, y estar fundamentadas y documentadas adecuadamente, dada la responsabilidad que implicaría inducir a error a quienes las reciben. El formato y estructura del documento será definido en el Manual de Procedimientos de Trabajo de la Auditoría Interna.

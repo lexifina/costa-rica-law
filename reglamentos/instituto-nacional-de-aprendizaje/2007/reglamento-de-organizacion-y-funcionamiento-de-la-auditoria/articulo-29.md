@@ -1,0 +1,2 @@
+Artículo 29.—Dependencia orgánica y funcional del Auditor y Subauditor Internos.
+El Auditor y el Subauditor internos del INA dependerán orgánicamente de la Junta Directiva, quien los nombrará y establecerá las regulaciones de tipo administrativo que les serán aplicables a dichos funcionarios. Tales regulaciones de tipo administrativo no deberán afectar negativamente la actividad de Auditoría Interna, la independencia funcional y de criterio del Auditor y el Subauditor Interno y su personal; en caso de duda, la Contraloría General dispondrá lo correspondiente.

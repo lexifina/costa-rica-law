@@ -1,0 +1,2 @@
+Artículo 77.—Funciones que competen al Subauditor Interno.
+Al Subauditor Interno le corresponderá apoyar al Auditor Interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales, y deberá responder ante él por su gestión.

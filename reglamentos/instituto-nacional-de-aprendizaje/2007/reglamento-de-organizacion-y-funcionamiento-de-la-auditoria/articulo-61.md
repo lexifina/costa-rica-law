@@ -1,0 +1,2 @@
+Artículo 61.—Planteamiento de conflictos ante la Contraloría General de la República.
+Firme la resolución de la Junta Directiva del INA, que ordene soluciones distintas de las recomendadas por la Auditoría Interna, ésta podrá acogerse a lo dispuesto en el artículo Nº 38 de Ley General de Control Interno.

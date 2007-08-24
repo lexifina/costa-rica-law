@@ -1,0 +1,2 @@
+Artículo 51.—Advertencia.
+La Auditoría Interna debe advertir a los órganos pasivos que fiscaliza, incluyendo al jerarca, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.

@@ -1,0 +1,2 @@
+Artículo 35.—Intercambio de información con la Contraloría General de la República.
+En el marco de sus competencias, el Auditor Interno está facultado para proveer e intercambiar información con la Contraloría General de la República, así como con los entes y órganos de control que le corresponda atender, sin perjuicio de la coordinación interna que al respecto deba darse en el INA y sin que implique limitación para la efectiva actuación de la Auditoría Interna.
