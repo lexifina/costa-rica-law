@@ -1,0 +1,1 @@
+Artículo 14.—El Auditor General deberá proponer oportuna y debidamente justificada a la Junta Directiva General del Banco Nacional de Costa Rica, la creación de plazas y recursos técnicos que considere indispensables para el cumplimiento de su plan anual de labores y el buen funcionamiento de la Auditoría General.

@@ -1,0 +1,1 @@
+Artículo 13.—El Auditor General presentará a Junta Directiva General para su aprobación, el plan anual de labores de conformidad con los lineamientos que establece la Contraloría General de la República, el cual incorpore las actividades que deben realizarse durante el periodo, dejando la holgura necesaria para trabajos especiales que se presenten.

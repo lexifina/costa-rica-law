@@ -1,0 +1,5 @@
+Del personal de la auditoría general
+Artículo 20.—El Auditor General actuará como jefe de personal de la Auditoría, en ese sentido ejercerá y autorizará todas las funciones que le son propias en la administración de personal, entre ellas:
+a) Nombramientos, traslados, suspensiones, remociones, concesión de licencias y demás movimientos de personal, todo de acuerdo con el marco jurídico que en la materia, rige para el Banco Nacional de Costa Rica; lo anterior de conformidad con los artículos 24 de la Ley General de Control Interno y el 41 de la Ley Orgánica del Sistema Bancario Nacional.
+b) Gestionar oportunamente lo relativo a las plazas vacantes de la Auditoría General de conformidad con el artículo 28 de la Ley General de Control Interno.
+c) Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría General cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de auditoria) que les sean aplicables.

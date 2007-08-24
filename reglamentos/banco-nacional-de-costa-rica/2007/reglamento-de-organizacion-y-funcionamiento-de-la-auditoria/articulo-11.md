@@ -1,0 +1,1 @@
+Artículo 11.—El Auditor General y el Subauditor General deberán observar las respectivas funciones establecidas en el Manual Institucional de Cargos y Clases y obedecer los requisitos establecidos por la Contraloría General de la República en la normativa correspondiente.

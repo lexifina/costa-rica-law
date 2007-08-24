@@ -1,0 +1,2 @@
+Artículo 27.—La Dirección Jurídica del Banco Nacional de Costa Rica brindará oportuna y efectivamente, la asesoría legal que la Auditoría General requiera a fin de atender adecuadamente su ámbito de acción y sus necesidades de orden jurídico.
+La Auditoría General podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios de la Institución o externos, para que lleven a cabo labores de su especialidad en apoyo a las actividades que realice la Auditoría.
