@@ -1,0 +1,2 @@
+Artículo 8º—Invitación. La Unidad de Recursos Materiales, invitará a formar parte del Registro de Proveedores, por lo menos una vez al año. Para ello deberá mediar publicación preferiblente durante el primer mes de cada año, en el Diario Oficial La Gaceta y en dos diarios de circulación nacional, así como mediante los sistemas electrónicos disponibles.
+Para la incorporación al registro de proveedores la Administración podrá invitar de manera particular o masiva cuando así lo requiera.
