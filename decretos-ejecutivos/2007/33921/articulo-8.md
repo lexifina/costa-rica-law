@@ -1,0 +1,2 @@
+Artículo 8º—De los funcionarios interinos. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en los incisos a), b), c), d), e), f), g), o h); o bien desempeñen labores de acuerdo con el inciso i) todos del artículo 3, deberán rendir garantía si su nombramiento es mayor a seis meses. La garantía se suscribirá una vez cumplidos los seis meses por todo el plazo de su nombramiento en alguno de los cargos indicados.
+( Corregido mediante Fe de Erratas, publicada en la Gaceta N ° 189 del 02 de octubre de 2007).
