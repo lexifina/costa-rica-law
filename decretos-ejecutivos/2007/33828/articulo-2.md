@@ -1,0 +1,1 @@
+Artículo 2º—Se restringe la comercialización e internamiento al país de el chile dulce que no cumpla con las exigencias relativas a pudrición, según lo establecido en la Tabla 1, del apartado 5 de disposiciones sobre tolerancias.
