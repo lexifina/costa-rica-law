@@ -1,15 +1,6 @@
-ARTICULO 6º.- Toda embarcación atunera de bandera extranjera
-interesada en obtener una licencia o permiso de pesca, deberá pagar la
-suma de $ 54,00 pesos centroamericanos (dólares) por tonelada neta de
-registro.
-El canon por registro de los barcos pesqueros, equipados con redes,
-o los llamados "chinchorreros" será de $ 10,00 pesos centroamericanos
-(dólares), por tonelada neta de registro del barco, debiendo adquirirse
-durante el mes de diciembre para el año inmediatamente posterior.
-En el caso de que se solicite durante el mismo año en que se va a
-utilizar, dicho canon será de $ 20,00 pesos centroamericanos (dólares)
-por tonelada neta de registro del barco, y su vigencia será,
-exclusivamente, por el resto del año calendario en que se otorgue.
-El producto monetario obtenido por tal concepto será aplicado por el
-Banco Central de Costa Rica, conforme a lo estipulado en el artículo 8º
-de la Ley Nº 6267.
+Artículo 6º—Toda embarcación atunera de bandera extranjera interesada en, obtener una licencia o permiso de pesca, deberá pagar la suma de $54.00 (dólares) por tonelada neta de registro. La licencia o permiso tendrá una vigencia por viaje de pesca, hasta por sesenta días naturales contados desde la fecha de obtención de la licencia o hasta la descarga en cualquier país, de cualquier cantidad del producto obtenido.
+El canon por registro anual de los barcos pesqueros, equipados con redes, o los llamados “chinchorreros” será de $10.00 (dólares), por tonelada neta de registro del barco, debiendo adquirirse durante el mes de diciembre para el año inmediatamente posterior.
+En el caso de que se solicite durante el mismo año en que se va a utilizar, dicho canon será de $20.00 (dólares), por tonelada neta de registro del barco y su vigencia será, exclusivamente, por el resto del año calendario en que se otorgue.
+El producto monetario obtenido por los conceptos indicados, será recaudarlo v aplicado por el Instituto Costarricense de la Pesca y Acuicultura, conforme lo estipulado en el artículo 51 de la Ley Nº 8436.
+En adición con los cánones definidos anteriormente, las embarcaciones atuneras supracitadas, debelan cancelar la suma de $10.00 (dólares), por tonelada neta de registro del barco, que serán destinados para atender el seguimiento de las políticas de conservación y preservación del recurso atunero, ante la Comisión Interamericana del Atún Tropical (CIAT). El Instituto Costarricense de la Pesca y Acuicultura, mediante los procedimientos correspondientes, en los meses de marro y setiembre de cada año, realizara las acciones, para aplicar el producto obtenido por tal concepto, al pago de la cuota país, ante la Comisión Interamericana del Atún Tropical, mediante la transferencia y depósito en la cuenta de la Interamerican Tropical Tuna Comniis (CIAT), los cuales tendrán ese destino específico y único.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34085 del 27 de agosto de 2007)
