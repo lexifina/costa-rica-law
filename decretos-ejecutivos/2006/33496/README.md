@@ -14,3 +14,4 @@ Modifica a la Junta Administrativa de la Imprenta Nacional el gasto presupuestar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-27 | la propia norma |
+| 2 | 2007-08-27 | Decreto Ejecutivo 33968 (2007-08-27) |
