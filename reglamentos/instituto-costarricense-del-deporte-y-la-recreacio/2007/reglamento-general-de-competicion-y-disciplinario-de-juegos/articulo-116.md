@@ -1,0 +1,7 @@
+ARTICULO 116 NORMAS DE COMPETENCIA
+116.1 El tenista que gane dos de tres sets, será declarado ganador del partido en disputa.
+116.2 Se aplicará el "default" (W.O. walk-over no presentación) después de quince minutos de la hora programada para cada partido, la hora oficial será la del reloj del fiscal o réferee designado para la eliminatoria
+116.3 Los partidos se realizarán en canchas abiertas o techadas.
+116.4 El partido que inicie en una cancha debe terminar en la misma, salvo que el Fiscal o réferee y los jugadores acuerden de forma unánime trasladar el partido a otra cancha, pero siempre dentro de la misma sede, cubriendo los costos que ello implica, de no existir acuerdo en el traslado del partido, de una cancha a otra, el partido continuará en la misma cancha en que fue suspendido en el día y hora que indique el fiscal o referee.
+116.5 Cada jugador deberá presentarse a cada partido con un tarro de bolas nuevo, sin abrir y con presión. Se abrirá uno de los tarros para el partido, el ganador se llevará el tarro no abierto y el perdedor se llevará el tarro abierto. El jugador que se presente a un partido sin el tarro de bolas en las condiciones indicadas, perderá el partido por "default". Esta norma es aplicable para todas las etapas eliminatorias, excepto en la etapa final que las proveerá la Federación Nacional.
+116.6 En cada partido, se jugará con el sistema NO-AD (no advantage) es decir, sin ventajas, el jugador que recibe escoge el lado.

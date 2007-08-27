@@ -1,0 +1,4 @@
+FUTBOL
+ARTICULO 84 CATEGORIAS, RAMAS Y EDADES
+84.1 Categoría infantil MASCULINO U-17 DE ANAFA
+84.2 Categoría juvenil FEMENINO hasta 19 años

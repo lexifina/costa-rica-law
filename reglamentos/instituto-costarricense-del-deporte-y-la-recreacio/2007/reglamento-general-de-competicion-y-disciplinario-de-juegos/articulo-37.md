@@ -1,0 +1,3 @@
+ARTÍCULO 37. LAS NOTIFICACIONES
+37.1 Todas las agrupaciones deportivas que participen en Juegos Deportivos Nacionales deberán indicar a la hora de su inscripción datos del delegado general y entrenador, al menos un número telefónico, un número de fax y un correo electrónico para recibir notificaciones. Ante la imposibilidad de ser notificado alguna de las partes, se tendrá por notificado de oficio al segundo día del primer intento de notificación y constado en los documentos pertinentes.
+37.2 Para los efectos en la etapa final el lugar para notificaciones será la villa deportiva donde ha sido asignado el hospedaje del deporte que presenta la denuncia o apelación. En caso de no alojarse en ninguna villa, se utilizará los datos contenidos en la inscripción.

@@ -1,0 +1,6 @@
+CAPITULO VII
+FALTAS DISCIPLINARIAS Y SANCIONES
+ARTICULO 39 DE LOS ORGANOS Y LA NORMATIVA APLICABLE
+39.1 El Tribunal Nacional de Primera Instancia y el Tribunal Nacional de Segunda Instancia, tendrán en el Reglamento General de Competición y Disciplinario de Juegos Deportivos Nacionales el instrumento para establecer las sanciones a las faltas al Reglamento o de índole disciplinarias realizadas durante las actividades oficiales de competencias por parte de cualquier participante debidamente inscrito y ante denuncia presentada por una agrupación deportiva, Federación Nacional o informe por parte de la Oficina de Juegos Deportivos Nacionales.
+39.2 Las Federaciones Nacionales recurrirán a sus Reglamentos Administrativos y Disciplinarios como los referentes para aplicar las sanciones administrativas y disciplinarias a todos los participantes (personas y agrupaciones deportivas), originadas en las competencias bajo su responsabilidad como órgano de encargado de la competencia. Las decisiones de la Federación Nacional serán denunciadas ante el Tribunal Nacional de Primera Instancia.
+39.3 Una Federación Nacional podrá en caso que la normativa de la misma no contemplase la falta y sanción que se produzca, podrá recurrir al Reglamento General de Competición y Disciplinario de Juegos Deportivos Nacionales para imponer la sanción.

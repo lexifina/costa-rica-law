@@ -1,0 +1,3 @@
+ARTICULO 110 DE LA INSCRIPCIÓN
+110.1 Cada agrupación deportiva podrá inscribir tantos taekwondoistas por categoría, rama y peso como se desee y se deberá inscribir obligatoriamente un entrenador cuando la agrupación presente de uno a cinco atletas y un asistente cuando la delegación sea más de seis taekwondoistas.
+110.2 Los entrenadores y asistentes deben estar certificados por la Asociación Costarricense de Taekwondo, por tanto deben estar afiliados a la Asociación Costarricense de Taekwondo, cumplir con al menos un curso de capacitación por año, tanto a nivel técnico como de planificación de los principios de aptitud física, ser cinturón negro acreditado por la Comisión Técnica de la ACT y poseer el certificado de Kukkiwon con su debida documentación.
