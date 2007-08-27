@@ -14,3 +14,4 @@ Modifica al Centro Nacional de la Música, el gasto presupuestario máximo del 2
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-07 | la propia norma |
+| 2 | 2007-08-27 | Decreto Ejecutivo 34037 (2007-08-27) |
