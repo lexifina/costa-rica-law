@@ -17,3 +17,4 @@ Reglamento de servicios notariales de Bancrédito.
 | 2 | 2004-12-02 | Reglamento 7784 (2004-12-02) |
 | 3 | 2005-03-10 | Reglamento 7812 (2005-03-10) |
 | 4 | 2005-05-24 | Reglamento 7834 (2005-05-24) |
+| 5 | 2007-08-28 | Reglamento 8063 (2007-08-28) |
