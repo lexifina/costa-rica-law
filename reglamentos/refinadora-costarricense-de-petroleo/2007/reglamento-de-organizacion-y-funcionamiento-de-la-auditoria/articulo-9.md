@@ -1,0 +1,4 @@
+Artículo 9º—Impedimentos. El Auditor General y su personal considerarán durante la ejecución de sus funciones, los deberes y prohibiciones establecidos en los artículos Nos. 32 y 34 de la Ley General de Control Interno (Nº 8292). Asimismo, deberán:
+a. Abstenerse de auditar operaciones por las cuales hayan sido previamente responsables como funcionarios de la Administración, proveedores u otras relaciones, en el último año.
+b. Abstenerse de ejecutar sus competencias de asesoría y advertencia, en relación con operaciones de las cuales hayan sido previamente responsables, en el último año.
+c. El Auditor General establecerá medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho o de apariencia) la objetividad e independencia de la Auditoría Interna.

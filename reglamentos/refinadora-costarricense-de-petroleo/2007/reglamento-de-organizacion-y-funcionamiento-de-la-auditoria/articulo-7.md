@@ -1,0 +1,1 @@
+Artículo 7º—Marco orientador. Para operativizar el accionar de la Auditoría Interna se establecerá y mantendrá actualizada su visión, misión, valores y principales políticas, así como el código ético que deben cumplir los funcionarios de la auditoría al conducirse en sus distintas relaciones internas y externas.

@@ -1,0 +1,1 @@
+Artículo 16.—Estructura de la Auditoría Interna. La estructura apropiada de la Auditoría Interna para cumplir con sus responsabilidades, está constituida por tres dependencias que deberán estar definidas en la estructura orgánica empresarial. Esas dependencias son la Auditoría General, la Subauditoría Técnica y la Subauditoría Operativa Financiera.

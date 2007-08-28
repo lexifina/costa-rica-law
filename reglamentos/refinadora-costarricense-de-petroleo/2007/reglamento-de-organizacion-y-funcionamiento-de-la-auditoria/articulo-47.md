@@ -1,0 +1,1 @@
+Artículo 47.—Trámite de informes de los servicios de auditoría. El trámite a seguir para la aceptación, rechazo o planteamiento de conflicto de las recomendaciones emitidas en los informes de auditoría, estará regido por lo dispuesto en los artículos Nos. 36, 37 y 38 de Ley General de Control Interno (Nº 8292).

@@ -1,0 +1,5 @@
+Artículo 28.—Potestades del Auditor General. El Auditor General tendrá las siguientes potestades sobre el personal a su cargo:
+a. Autorizará los movimientos de personal en la Auditoría Interna de conformidad con lo que establecen los artículos 24 de la Ley General de Control Interno (Nº 8292) y demás normas aplicables.
+b. Gestionará oportunamente lo relativo a las plazas vacantes y recursos humanos adicionales de la unidad a su cargo, necesarios para la ejecución de las funciones considerando lo establecido en el artículo Nº 28 de la Ley General de Control Interno.
+(Nº 8292) y en el Manual de Normas para el Ejercicio de la Auditor Interna en el Sector Público.
+c. Vigilará y tomará las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas sanas y demás disposiciones administrativas (empresariales y de la Auditoría Interna) que les sean aplicables, tomando en cuenta, cuando corresponda, las responsabilidades, opiniones y criterios del Subauditor General y los Subauditores de Área.

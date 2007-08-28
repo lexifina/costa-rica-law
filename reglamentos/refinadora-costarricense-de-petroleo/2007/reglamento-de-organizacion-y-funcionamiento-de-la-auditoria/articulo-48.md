@@ -1,0 +1,1 @@
+Artículo 48.—Implantación de las recomendaciones. La atención oportuna de las recomendaciones de los informes de la auditoría será responsabilidad del destinatario de las mismas, quién deberá considerar lo que al respecto se establece en los artículos Nos. 17, 39 y 41 de la Ley General de Control Interno (Nº 8292) y Nº 44 de este Reglamento.

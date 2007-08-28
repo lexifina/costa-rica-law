@@ -1,0 +1,1 @@
+Artículo 46.—Comunicación escrita de los servicios de auditoría. La Auditoría Interna comunicará en forma escrita los resultados de las auditorías que realicen de conformidad con el artículo Nº 35 de la Ley General de Control Interno (Nº 8292), mediante informes, los cuales podrán ser de Control Interno o de Relaciones de Hecho.
