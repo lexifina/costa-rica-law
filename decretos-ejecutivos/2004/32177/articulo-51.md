@@ -12,7 +12,7 @@ Articulo 51.—El Departamento Disciplinario Legal además de las funciones cont
 9) Coordinar con la Dirección de Recursos Humanos la suspensión sin goce de salario de los servidores con grado profesional, cuando hayan sido suspendidos de sus respectivos colegios profesionales.
 10) Recomendar o no la procedencia de una causa administrativa disciplinaria, en asuntos de daño o perdida de bienes y/o derechos del Estado, posterior a las diligencias administrativas de reparación o reposición que corresponda.
 11) Disponer el archivo interno de asuntos que no ameriten apertura de causa administrativa, previa resolución emitida en ese sentido por el órgano competente, que no representan interés actual para la Administración o no constituyan perdida económica para el Estado.
-12) Ordenar las diligencias correspondientes para la investigación de asuntos por presuntas faltas disciplinarias de los funcionarios del Ministerio.
+12) (Este inciso fue eliminado por el artículo 2° del decreto ejecutivo N° 33974 del 28 de mayo de 2007)
 13) Remitir al Ministerio Publico, previa aprobación del Ministro, los tramites administrativos correspondientes, cuando de los procesos disciplinarios se evidencie la posible comisión de un delito por parte de un servidor del Ministerio.
 14) Tramitar los recursos de revocatoria que suscribirá el órgano decisorio competente y los recursos de amparo que se interpongan contra los mismos o contra cualquiera de los Órganos, por razones de procedimientos disciplinarios. Entramándose de recursos de amparo, redactar el proyecto de contestación o de informe, según el trate.
 15) Notificar al Patronato Nacional de la Infancia las causas administrativas en donde se involucre a una persona menor de edad.
