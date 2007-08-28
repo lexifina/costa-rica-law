@@ -1,0 +1,3 @@
+ARTICULO 5.
+De los recursos humanos aprobados en la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio del 2007, N° 8562, en su titulo 213 Ministerio de Cultura, Juventud y Deportes, se autoriza a esa Institución para que destine una parte de ellos a brindar apoyo administrativo y operativo al Centro Costarricense de la Ciencia y la Cultura.
+El Ministerio de Cultura, Juventud y Deportes podrá destacar para estos efectos los siguientes puestos: 010485, 014370, 014371, 014380, 014426, 014314, 014342, 055064, 014338, 014339, 014360, 014362, 014364, 014365, 014405, 014409, 014420, 014421, 014431, 014432, 014444, 014451, 014458, 014460, 014464, 014465, 014472, 014474, 014476, 014484, 014487, 014492, 014498,14500,014501,014504,014509.
