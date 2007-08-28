@@ -1,0 +1,1 @@
+Artículo 21.—Atendiendo la información obtenida y necesidades detectadas, la Sección de Capacitación indicará a la Sección de Contabilidad y Finanzas el monto presupuestario requerido para el siguiente periodo, a fin de hacer frente a los requerimientos solicitados por las Unidades Administrativas.

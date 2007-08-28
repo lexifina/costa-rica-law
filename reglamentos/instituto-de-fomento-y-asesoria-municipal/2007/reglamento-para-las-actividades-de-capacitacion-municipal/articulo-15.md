@@ -1,0 +1,1 @@
+Artículo 15.—El planeamiento y organización, ejecución y evaluación de los programas tendrán como base la política del IFAM, las necesidades técnicas y administrativas que presenten y demanden los recursos humanos municipales, para el cumplimiento de sus objetivos y funciones.

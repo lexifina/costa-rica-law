@@ -1,0 +1,1 @@
+Artículo 41.—Una vez aprobado el programa, y discutido con el coordinador de la actividad, los instructores no podrán realizar modificaciones sustanciales, sin la aprobación del Jefe de la Sección de Capacitación, para lo cual deberá presentar en forma previa la justificación escrita.

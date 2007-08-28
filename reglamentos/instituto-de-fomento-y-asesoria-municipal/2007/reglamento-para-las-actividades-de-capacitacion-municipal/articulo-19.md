@@ -1,0 +1,2 @@
+Artículo 19.—A más tardar el 15 de mayo de cada año, la Sección de Capacitación deberá solicitar a las diferentes unidades administrativas del IFAM, que informen sobre las necesidades de capacitación municipal que requieran para el año siguiente, a fin de establecer la programación de actividades dentro del Plan Anual Operativo.
+Las Unidades Administrativas deberán enviar a la Sección de Capacitación, la información solicitada a más tardar el 30 de mayo del año correspondiente.

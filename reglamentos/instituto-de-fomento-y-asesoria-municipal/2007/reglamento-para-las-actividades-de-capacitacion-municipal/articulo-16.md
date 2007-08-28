@@ -1,0 +1,1 @@
+Artículo 16.—Las áreas prioritarias del Plan y Programas de Capacitación serán determinadas por las Autoridades del IFAM, que se valorarán en relación a las solicitudes y al diagnóstico de necesidades de capacitación de los Gobiernos Locales.

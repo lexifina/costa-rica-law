@@ -1,0 +1,1 @@
+Artículo 53.—La Sección de Capacitación de IFAM, definirá los tipos, mecanismos e instrumentos de evaluación de conformidad con la naturaleza de las acciones de capacitación, las cuales deberán establecerse en el Manual de Procedimientos del Área de Capacitación.

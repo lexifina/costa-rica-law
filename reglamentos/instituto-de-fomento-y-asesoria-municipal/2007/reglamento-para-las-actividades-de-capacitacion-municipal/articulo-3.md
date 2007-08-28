@@ -1,0 +1,1 @@
+Artículo 3º—El Sistema de Capacitación de los servidores municipales estará regulado por el presente Reglamento, el Manual de Procedimientos del Sistema de Capacitación de IFAM, las disposiciones legales correspondientes contenidas en la Ley de Organización y Funcionamiento del IFAM y demás disposiciones normativas que se emitan sobre la materia.

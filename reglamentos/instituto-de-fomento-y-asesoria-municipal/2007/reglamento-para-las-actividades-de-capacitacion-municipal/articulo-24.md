@@ -1,0 +1,1 @@
+Artículo 24.—En el mes de febrero de cada año la Sección de Capacitación presentará a la Dirección Ejecutiva el informe de los resultados obtenidos de la ejecución del Programa Anual de Capacitación, del año anterior.

@@ -1,0 +1,1 @@
+Artículo 42.—Los materiales didácticos y el equipo audiovisual, forman parte del apoyo logístico que se utilizará en cada actividad de capacitación, por lo que el Coordinador de la actividad, deberá llevar un inventario de los recursos existentes para facilitar su custodia y uso a los instructores.

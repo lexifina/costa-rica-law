@@ -1,0 +1,2 @@
+Artículo 22.—De acuerdo con la disponibilidad presupuestaria la Sección de Contabilidad y Finanzas indicará a la Sección de Capacitación la suma asignada para el Programa de Capacitación.
+En caso de que el monto asignado sea inferior al solicitado, la Sección de Capacitación atendiendo las necesidades detectadas, procederá a elaborar el estudio técnico de las mismas, analizando y validando las distintas propuestas de capacitación y comunicará a las Unidades Administrativas solicitantes las observaciones, ajustes y recomendaciones que estime conveniente.

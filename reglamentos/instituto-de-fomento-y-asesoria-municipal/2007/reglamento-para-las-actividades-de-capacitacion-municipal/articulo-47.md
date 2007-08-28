@@ -1,0 +1,2 @@
+Artículo 47.—Será responsabilidad del Jefe de la Sección de Capacitación o el funcionario en que éste delegue dicho acto, el determinar qué personas tienen derecho a la obtención de certificado que acredite la participación en los distintos eventos de capacitación recibida e impartida, al amparo de este reglamento.
+Para lo anterior es requisito indispensable considerar las evaluaciones correspondientes a la actividad, asistencia de participantes y facilitadores.

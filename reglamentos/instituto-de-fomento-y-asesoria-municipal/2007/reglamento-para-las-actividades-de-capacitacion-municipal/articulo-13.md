@@ -1,0 +1,1 @@
+Artículo 13.—Los programas de capacitación en el puesto e inducción (pasantías) que se coordinen al amparo del presente reglamento, estarán en concordancia con las necesidades reales de las municipalidades y entes afines, de los enfoques de áreas estratégicas del IFAM y sus socios estratégicos.

@@ -1,0 +1,1 @@
+Artículo 18.—Las autoridades del IFAM podrán gestionar donaciones y apoyos financieros para las acciones y programas de capacitación ante organismos públicos y privados, técnico-políticos, de cooperación.

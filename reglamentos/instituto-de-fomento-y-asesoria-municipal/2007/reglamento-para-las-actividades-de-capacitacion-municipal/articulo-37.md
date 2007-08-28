@@ -1,0 +1,1 @@
+Artículo 37.—El instructor o coordinador, según corresponda, tiene la obligación de realizar las evaluaciones del evento de capacitación, así como también informar sobre la asistencia y cualquier aspecto relacionado con el mismo.

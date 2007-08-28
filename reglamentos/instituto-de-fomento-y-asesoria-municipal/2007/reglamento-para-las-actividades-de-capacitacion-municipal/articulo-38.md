@@ -1,0 +1,1 @@
+Artículo 38.—El instructor deberá ser puntual a los horarios establecidos y si por fuerza mayor en alguna oportunidad no imparte la lección, o bien, suspende antes de la hora indicada dentro del programa, deberá notificar con anticipación, en el entendido de que el tiempo se deberá reponer de común acuerdo con los participantes del evento.

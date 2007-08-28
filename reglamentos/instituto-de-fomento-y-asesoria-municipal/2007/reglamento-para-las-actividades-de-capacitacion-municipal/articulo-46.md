@@ -1,0 +1,2 @@
+Artículo 46.—Para obtener derecho a certificado los participantes a los programas de formación y capacitación deberán cumplir con una asistencia puntual y efectiva de no menos del 90% del tiempo real del evento.
+A los participantes en eventos de Aprovechamiento la calificación mínima para la aprobación de las actividades es de 70%, o su equivalente, según sea la escala aplicada para la evaluación de los participantes.
