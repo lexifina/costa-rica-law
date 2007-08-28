@@ -1,1 +1,0 @@
-Artículo 8°-Ni el Auditor Interno ni sus subalternos, ejercerán labor alguna de tipo administrativo, ni integrarán comisiones u otros grupos de trabajo que tengan como objeto la implementación de acciones, diseños de formularios u otros procedimientos y actividades que normalmente deben examinar posteriormente en el desarrollo de sus funciones.

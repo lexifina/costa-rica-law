@@ -1,1 +1,0 @@
-Artículo 16.-EI Auditor Interno deberá formular un Manual de Procedimientos de Auditoría Interna con el objeto de que cuente con un instrumento que defina las características y procedimientos de auditoría aplicables al Ministerio.

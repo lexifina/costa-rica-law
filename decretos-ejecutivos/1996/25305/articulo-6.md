@@ -1,2 +1,0 @@
-Artículo 6°-El nombramiento del Auditor Interno lo hará el señor Ministro, será por tiempo indefinido y podrá ser removido del cargo por el mismo funcionario cuando exista causa justa y con la aprobación previa de la Contraloría General de la República, según lo establece la Ley sobre Enriquecimiento Ilícito de los Servidores Públicos y el artículo 15 de la Ley Orgánica de la Contraloría General de la República.
-El Auditor Interno dependerá directamente del Ministro y será responsable ante él por su gestión.

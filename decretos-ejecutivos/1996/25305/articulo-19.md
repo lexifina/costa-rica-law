@@ -1,1 +1,0 @@
-Artículo 19.-La comunicación de resultados debe hacerse por escrito durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorando u oficio e informes parciales, o al finalizar el trabajo mediante el informe final.
