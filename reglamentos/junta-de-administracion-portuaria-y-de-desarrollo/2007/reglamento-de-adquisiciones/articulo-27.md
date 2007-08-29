@@ -1,0 +1,1 @@
+Artículo 27.—Comunicación: La Proveeduría (Portuaria o de Desarrollo) será la encargada de comunicar los actos de adjudicación o resoluciones dentro de los plazos previstos en el artículo 88 del RLCA, por los mismos medios utilizados para invitar a participar.

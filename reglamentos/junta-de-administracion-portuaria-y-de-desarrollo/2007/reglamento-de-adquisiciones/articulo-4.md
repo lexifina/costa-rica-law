@@ -1,0 +1,1 @@
+Artículo 4º—Actualización del sistema: Las Proveedurías Portuaria y de Desarrollo, serán las responsables de mantener actualizado el sistema de adquisición de bienes y servicios y deberán elaborar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes y servicios que requieran las diversas dependencias institucionales.

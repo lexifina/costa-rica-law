@@ -1,0 +1,4 @@
+Artículo 42.—Forma de pago: Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción de JAPDEVA, exceptuando los casos previstos en el artículo 35 del RLCA.
+En contratos continuados de servicios, los pagos se harán mensualmente contra el avance en la prestación de los mismos, recibidos a entera satisfacción de JAPDEVA, o dentro del plazo establecido en el cartel o términos de referencia.
+En las contrataciones de obra los pagos se harán contra avance y de manera mensual; si el período de ejecución es por un plazo menor, se pagará al finalizar satisfactoriamente los trabajos.
+El funcionario que ejecute un pago en contravención de estas disposiciones incurrirá en responsabilidad laboral y patrimonial al igual que el funcionario que, careciendo de motivo, retenga un pago a un proveedor determinado.

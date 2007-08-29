@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: Quedan comprendidas por esta reglamentación, todas las contrataciones de bienes, servicios y obras, de la actividad no ordinaria y ordinaria de JAPDEVA. Los órganos encargados de realizar los trámites, serán las Proveedurías, tanto de la Administración Portuaria como de Desarrollo.

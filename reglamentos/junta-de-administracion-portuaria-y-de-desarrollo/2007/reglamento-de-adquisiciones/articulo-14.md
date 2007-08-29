@@ -1,0 +1,1 @@
+Artículo 14.—Expediente administrativo: La solicitud de compra y sus anexos dará inicio al expediente administrativo de la respectiva contratación, cuya conformación, actualización, custodia y numeración consecutiva será responsabilidad de la Proveeduría (Portuaria o de Desarrollo), según los lineamientos definidos en el artículo 11 del RLCA.
