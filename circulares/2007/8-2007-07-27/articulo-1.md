@@ -1,0 +1,26 @@
+DIRECCIÓN GENERAL DE ADUANAS
+San José, 27 de julio de 2007
+Circular ONVVA-008-2007
+Señores (as)
+Gerentes, Subgerentes y Jefes de Departamento de Aduanas
+Directores y Jefes de Departamento, de la Dirección General de Aduanas
+Asesores y Funcionarios Aduaneros
+Tribunal Aduanero Nacional
+Agentes y Agencia de Aduanas
+Importadores
+Servicio Nacional de Aduanas
+S. M.
+ASUNTO: Determinación del monto de transportes
+como parte del valor en aduana, cuando
+la mercancía importada fue objeto de
+tránsito internacional.
+Estimados (as) señores (as):
+La Dirección General de Aduanas de conformidad con las potestades y atribuciones que le confieren los artículos 11, 24 y 245 de la Ley General de Aduanas Nº 7557 con sus reformas y modificaciones; artículos 5 y 25 del Reglamento a la Ley General de Aduanas con sus reformas y modificaciones, el Acuerdo sobre Valoración en Aduana de la OMC, el Reglamento Centroamericano sobre la Valoración Aduanera de las Mercancías y la Ley 8013: Adición del Título XII a la Ley General de Aduanas Nº 7557, procede a emitir la siguiente directriz tendiente a definir la correcta declaración del monto de transporte internacional a utilizar en la determinación del valor en aduana, en los casos en que la mercancía importada fue objeto de tránsito internacional y en los que no fue objeto de tránsito internacional.
+I.—Determinación del monto de transporte como parte del valor en aduana. El gasto de transporte internacional está compuesto como mínimo por los siguientes elementos: una tarifa interna de transporte en el país de exportación, una tarifa básica asociada a la modalidad de transporte (flete marítimo, terrestre o aéreo), sobrecargos, gastos de carga, gastos de descarga y gastos portuarios (muellaje, documentación, manejo dentro del área portuaria (marítima, aérea o terrestre).
+Los elementos mencionados anteriormente, serán responsabilidad del vendedor o del comprador, dependiendo de las condiciones o términos de negociación (INCOTERM) pactados bajo el contrato de compraventa internacional, definiéndose así quien será el que se relaciona directamente con el transportista internacional y de ello dependerá también el monto de transporte que se consigne en el documento de transporte.
+Tomando en cuenta lo mencionado en los párrafos preliminares, el monto de transporte aceptado para la determinación del valor en aduana de las mercancías importadas, será el monto realmente pagado o por pagar por el importador, y este será el monto que cubra los gastos de transporte de la mercancía desde el país de exportación hasta el puerto o lugar de importación.
+II.—Determinación del monto de transporte como parte del valor en aduana, cuando la mercancía importada fue objeto de tránsito internacional. Cuando las mercancías sean expedidas del país exportador haciendo tránsito o transbordo en un tercer país pero sin nacionalizar las mercancías, hasta llegar al puerto o lugar de importación, el monto de transporte que debe considerarse para la determinación del valor en aduana, será el que deba consignarse en el documento de transporte (aéreo, marítimo o terrestre) desde la zona de procedencia de la mercancía (país exportador) hasta el puerto o lugar de importación, es decir desde el momento en el que se elabora el documento original y se inicia el servicio de transporte.
+Ejemplo: La mercancía es vendida de Japón (país de procedencia de la mercancía) hacia Costa Rica, sin embargo por la ruta del transporte la misma es objeto de tránsito internacional por Panamá pero la mercancía no se nacionaliza en ese país, sino que el destino final es Costa Rica, en este caso el monto de transporte a declarar para la determinación del valor en aduana en Costa Rica es el realmente pagado o por pagar por el comprador de la mercancía desde Japón hasta Costa Rica.
+III.—Determinación del monto de transporte como parte del valor en aduana, cuando la mercancía importada no fue objeto de tránsito internacional. Cuando las mercancías sean expedidas en forma directa (no hace tránsito internacional o transbordo en otro país) del país exportador (zona de procedencia de la mercancía) hasta llegar al puerto o lugar de importación, el monto de transporte que debe considerarse para la determinación del valor en aduana, será el que deba consignarse en el documento de transporte (aéreo, marítimo o terrestre) desde el momento en el que se elabora el documento original y se inicia el servicio de transporte.
+Ejemplo: La mercancía es vendida de Japón (país de procedencia de la mercancía) hacia Panamá y la mercancía se nacionaliza en este último país. Posteriormente, la mercancía es vendida por Panamá hacia Costa Rica, en este caso el monto de transporte a utilizar para la determinación del valor en aduana a declarar en Costa Rica es el realmente pagado o por pagar por el comprador de la mercancía desde Panamá hasta Costa Rica. Lo anterior, se explica por cuanto se supone que en la factura que emita el vendedor de Panamá al comprador de Costa Rica parte de los costos incluidos, son los de transporte de Japón a Panamá y en todo caso a Costa Rica le interesa verificar la transacción comercial de Panamá a Costa Rica, en este caso en particular.
+Ordénese la publicación por una única vez de la presente circular en el diario oficial La Gaceta. Rige a partir de su Publicación. San José, 27 de julio del 2007.
