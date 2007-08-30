@@ -1,0 +1,1 @@
+Artículo 14.—La solicitud de acreditación se hará mediante documento oficial emitido por la institución, organismo o entidad al que pertenece el observador que interesa, y deberá dirigirse al Programa de Atención a Observadores Internacionales o a la dependencia que el Tribunal designe para tal efecto.

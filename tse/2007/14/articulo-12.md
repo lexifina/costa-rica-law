@@ -1,0 +1,1 @@
+Artículo 12.—Serán observadores visitantes las demás personalidades extranjeras acreditadas de conformidad con los requisitos establecidos en esta normativa, según los trámites a que se refieren las normas subsiguientes.

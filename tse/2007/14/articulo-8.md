@@ -1,0 +1,1 @@
+Artículo 8º—La observación internacional, en principio, podrá dar inicio a partir de la comunicación de la acreditación del observador, y concluirá oficialmente con la finalización de la evaluación del proceso observado.

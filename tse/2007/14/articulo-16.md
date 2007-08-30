@@ -1,0 +1,1 @@
+Artículo 16.—La solicitud de acreditación deberá contener al menos los siguientes requisitos: razones que la motivan, calidades del observador a acreditar, su plan de observación, una manifestación inequívoca de haber leído, entendido y aceptado las disposiciones de este Reglamento, así como mención de la entidad que financia y patrocine la observación.
