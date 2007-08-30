@@ -1,0 +1,1 @@
+Artículo 26.—Al trabajador que se le adjudique una beca, será incorporado en el registro que para tal efecto lleve la Dirección de Relaciones Internacionales y el Departamento de Capacitación a fin de que este coordine la capacitación o el curso, que deberá impartir el beneficiario si fuese necesario.

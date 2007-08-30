@@ -1,0 +1,1 @@
+Artículo 39.—El Trabajador que incumpla con las disposiciones establecidas en el presente Capítulo para efectos de sanción se tomará como falta la cual se sancionará de conformidad con la normativa jurídica que regula la relación del Trabajador con la Empresa.

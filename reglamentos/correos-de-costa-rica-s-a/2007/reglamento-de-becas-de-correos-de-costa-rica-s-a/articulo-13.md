@@ -1,0 +1,1 @@
+Artículo 13.—En cuanto a su labor, los miembros del Comité responderán por sus actos de conformidad con lo estipulado en el Código de Trabajo, Convención Colectiva y demás normativa aplicable a la empresa.

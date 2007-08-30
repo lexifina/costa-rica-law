@@ -1,0 +1,1 @@
+Artículo 8º—Corresponderá a la Gerencia General nombrar a los miembros del Comité de Becas indicados en los incisos a), b) y c) del artículo 7º del presente Reglamento, y la remoción de cualquiera de sus miembros cuando éstos incumplan con sus obligaciones como miembros de dicho Comité.

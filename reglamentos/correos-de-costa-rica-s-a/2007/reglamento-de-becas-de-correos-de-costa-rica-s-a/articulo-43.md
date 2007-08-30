@@ -1,0 +1,1 @@
+Artículo 43.—En caso de disconformidad con cualquier recomendación del Comité, el solicitante o el Becario podrá solicitar una reconsideración por escrito, ofreciendo las pruebas del caso, ante el Comité, el cual realizará un estudio fundamentado, mismo que será sometido a conocimiento de la Gerencia General para que decida lo correspondiente en última instancia.

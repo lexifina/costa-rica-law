@@ -1,0 +1,1 @@
+Artículo 12.—El Comité recomendará ante la Gerencia General la adjudicación de becas bajo criterios de racionalidad y justicia, de acuerdo a las necesidades de profesionalización en el área operativa y en el área administrativa, guardando la proporción y dimensión de las mismas.

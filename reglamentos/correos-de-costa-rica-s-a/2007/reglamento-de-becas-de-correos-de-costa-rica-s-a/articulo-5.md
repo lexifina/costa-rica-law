@@ -1,0 +1,1 @@
+Artículo 5º—El financiamiento de las becas otorgadas de conformidad con el presente Reglamento se hará por medio del presupuesto de la empresa o mediante fondos que otorguen instituciones y organismos nacionales e internacionales, o países, dentro de sus programas de asistencia bilateral o multilateral.

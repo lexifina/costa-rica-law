@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde a la empresa, a través del Comité velar por la aplicación y cumplimiento del presente reglamento, para lo cual deberá elaborar un plan a corto y mediano plazo basado en las políticas y lineamientos generales aprobados por la Junta, y de acuerdo a las necesidades de profesionalización de la empresa.

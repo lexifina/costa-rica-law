@@ -1,0 +1,10 @@
+Artículo 9º—Funciones de los miembros del Comité y las áreas involucradas en el otorgamiento y control de becas:
+a. Corresponderá al Presidente presidir, coordinar y remitir las recomendaciones correspondientes, previo acuerdo del Comité, ante la Gerencia General para su análisis y aprobación. El presidente tendrá doble voto en caso de empate en una decisión.
+b. El Director de Recursos Humanos es el responsable de informar al Comité, de los movimientos de personal, realizar los estudios de expedientes o cualquier otro estudio concerniente al aspirante a una beca.
+c. El Departamento de Capacitación y Desarrollo es la unidad responsable de administrar el sistema de becas de la empresa e informar periódicamente al Comité del funcionamiento del sistema y del cumplimiento de las responsabilidades de los becarios.
+d. Los gerentes de la empresa determinarán las necesidades de profesionalización que requieran del apoyo de becas para los trabajadores. Dicho proceso será coordinado por la Dirección de Recursos Humanos en conjunto con el Departamento de Capacitación y Desarrollo.
+d. El representante de la Gerencia de Administración y Finanzas será el responsable de velar por la existencia de presupuesto y el buen manejo del mismo para efectos de becas.
+e. El representante del Departamento Legal será el responsable de velar por la legalidad de los contratos y del cumplimiento de los requisitos establecidos en el presente reglamento. Además dicho Departamento se encargará de confeccionar y custodiar los contratos, la letra de cambio o el pagaré, según corresponda.
+f. El representante de la Gerencia de Operaciones apoyará al Departamento de Capacitación en velar por las necesidades de profesionalización en determinadas áreas.
+g. La Junta, será la encargada de aprobar todos los contratos correspondientes al otorgamiento de becas a solicitud de la Gerencia General.
+h. La Gerencia General, remitirá a la Junta en forma semestral informes sobre la ejecución de los planes anuales de becas. Dichos informes serán preparados por el Comité.

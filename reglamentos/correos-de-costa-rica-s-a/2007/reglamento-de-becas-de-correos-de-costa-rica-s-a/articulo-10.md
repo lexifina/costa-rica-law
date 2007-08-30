@@ -1,0 +1,1 @@
+Artículo 10.—El Comité contará al menos con una secretaria de apoyo, la cual se encargará entre otras cosas, de la divulgación, recepción y verificación de las solicitudes de beca, así como de comunicar al interesado el acuerdo tomado por la Junta acerca de la solicitud. El Departamento de Capacitación y Desarrollo llevará la custodia de expedientes de los becados.

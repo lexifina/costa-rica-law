@@ -1,0 +1,1 @@
+Artículo 40.—El jefe de oficina o sucursal será el responsable de brindar y coordinar la capacitación básica de cada subalterno en su respectivo puesto, así como de suministrarle la información que emita la Empresa.

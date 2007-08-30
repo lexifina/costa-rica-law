@@ -1,0 +1,1 @@
+Artículo 17.—Salvo casos debidamente justificados, a juicio de la Gerencia General, no se aprobarán becas cuyos estudios deban realizarse durante horas laborales. En tal supuesto dicha aprobación quedará sujeta a que el jefe inmediato autorice la modificación de horario del trabajador.

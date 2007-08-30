@@ -1,0 +1,1 @@
+Artículo 33.—Una vez adjudicada una beca para realizar estudios en determinada carrera, no se permitirá al Becario cambio de la misma. Lo anterior, salvo en casos excepcionales solicitado por el Becario, recomendados por el Comité y autorizados por la Gerencia General.

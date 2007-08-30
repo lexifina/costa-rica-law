@@ -1,0 +1,1 @@
+Artículo 34.—La Empresa se obliga a pagar puntualmente las matrículas y aranceles del trabajador becado. Estos pagos los efectuará la Gerencia de Administración y Finanzas previa presentación de los documentos correspondientes al Departamento de Capacitación y Desarrollo.

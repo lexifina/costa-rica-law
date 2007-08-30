@@ -1,0 +1,1 @@
+Artículo 16.—La Institución en donde curse los estudios el becario deberá estar reconocida por el Ministerio de Educación y el Consejo de Educación Superior (CONESUP), según corresponda. En caso de estudios a nivel universitario se dará prioridad para efectos de aprobación de beca, a quienes estudien o vayan a estudiar en universidades estatales.

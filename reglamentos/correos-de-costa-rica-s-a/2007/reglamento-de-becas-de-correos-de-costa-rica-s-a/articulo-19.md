@@ -1,0 +1,1 @@
+Artículo 19.—El Comité, a través de la Secretaria de Apoyo será el encargado de brindar la más amplia información sobre la existencia de becas a los trabajadores, para lo cual utilizará cualquier medio de comunicación que garantice su objetivo.
