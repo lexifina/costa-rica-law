@@ -1,0 +1,7 @@
+CIRCULAR Nº 48-2007
+ASUNTO: REITERACIÓN CIRCULAR N° 47 REFERENTE A LA OBLIGACIÓN DE LOS DESPACHOS DE COMUNICAR DIRECTAMENTE A LOS PERITOS SU DESIGNACIÓN
+El artículo 25 del Reglamento para Regular la Función de los Ejecutores y Peritos en el Poder Judicial, publicado en el Boletín Judicial número 190 del 29 de setiembre del 2004, establece en lo que interesa que: “Efectuado el nombramiento del perito, el despacho lo comunicará directamente a éste para que dentro de tercero día comparezca a aceptar el cargo y a juramentarse (...)”.
+Es decir, el Despacho debe dictar la respectiva resolución en que dispone el nombramiento del perito, ejecutor o curador, incluyendo la prevención de que debe presentarse dentro del tercer día a aceptar el cargo. Esta resolución necesariamente debe notificarse en el lugar señalado indicado en la Lista Oficial de Peritos del Poder Judicial.
+No obstante lo anterior, las oficinas lejos de dictar la resolución y notificarla, realizan consultas telefónicas que no tienen mayor valor probatorio, en caso de incumplimiento de sus deberes de estos auxiliares de la justicia.
+Por tal motivo, la Dirección sólo le dará curso a comunicaciones de los Despachos, en que indique que estos auxiliares incumplen, siempre y cuando aporten copia de la resolución en la que se le designa como perito, el acta de notificación de ésta y cualquier otro elemento que sustente nombramiento e incumplimiento que se denuncia.
+San José, 21 de agosto del 2007.
