@@ -1,0 +1,12 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 14 del acta de la sesión Nº 5340-2007, celebrada el 7 de agosto del 2007,
+considerando que:
+1. el literal c, del artículo 28, de la Ley Orgánica del Banco Central establece entre las atribuciones, competencias y deberes de su Junta Directiva: “Dirigir la política monetaria, cambiaria y crediticia de la República y reglamentar de modo general y uniforme, las normas a que los intermediarios financieros deberán ajustarse.”,
+2. la Ley Orgánica del Banco Central en su artículo 97 faculta a esta Institución a establecer un cobro por participación a los entes autorizados a participar en el mercado cambiario que no podrá ser superior al veinticinco por ciento (25%) de la diferencia entre el tipo de cambio de venta y el de compra, independientemente del régimen cambiario que adopte,
+3. con fundamento en el mencionado artículo 97 de la Ley Orgánica, el Reglamento para las Operaciones Cambiarias de Contado dispone en su artículo 5º que las entidades autorizadas deberán trasladar al Banco Central un diez por ciento (10%) del margen de intermediación cambiaria total, en el tanto éste sea positivo,
+4. el Banco Central de Costa Rica incurre en pérdidas originadas al esterilizar el impacto monetario que genera su participación en el mercado cambiario con el fin de alcanzar los objetivos esenciales de estabilidad macroeconómica que le impone su Ley Orgánica. Como resultado de esas operaciones, el Banco Central incurre en pérdidas financieras que dada su magnitud y las escasas fuentes de financiamiento institucional, siguen siendo uno de los obstáculos para alcanzar tasas de inflación similares a las que muestran los principales socios comerciales,
+5. se estima que el aumento del cobro por participación tendría un impacto reducido sobre los márgenes de intermediación cambiaria prevalecientes en el mercado por sus reducidas posibilidades de traslación hacia los oferentes y demandantes finales de divisas,
+dispuso:
+1. Reformar el párrafo tercer del artículo 5º del “Reglamento para las Operaciones Cambiarias de Contado”, de manera que el texto diga:
+“Con fundamento en el artículo 97 de la Ley Orgánica del Banco Central de Costa Rica, las entidades autorizadas deberán trasladar al Banco Central un 25% del margen de intermediación cambiaria, en el tanto éste sea positivo”.
+2. La anterior modificación reglamentaria rige a partir del día hábil siguiente a su publicación en el Diario Oficial La Gaceta.
