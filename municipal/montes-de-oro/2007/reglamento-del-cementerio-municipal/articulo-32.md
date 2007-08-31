@@ -1,0 +1,1 @@
+Artículo 32.—Las construcciones de bóvedas quedan sujetas al pago de derechos de construcción, cuyo monto será objeto de determinación por parte del departamento de inspecciones de esta municipalidad, de acuerdo con el valor de la obra.

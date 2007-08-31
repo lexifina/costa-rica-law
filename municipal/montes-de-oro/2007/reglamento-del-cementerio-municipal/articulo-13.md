@@ -1,0 +1,1 @@
+Artículo 13.—Se consideran exhumaciones ordinarias por interés de la Administración Municipal, las que tengan un derecho pero se encuentren morosos con algunos de los conceptos de pago del cementerio.

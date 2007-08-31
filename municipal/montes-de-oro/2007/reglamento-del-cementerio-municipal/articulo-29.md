@@ -1,0 +1,1 @@
+Artículo 29.—En ninguna parcela se permitirá la construcción de más de un nicho subterráneo y dos sobre la superficie. Por encima de los nichos superficiales, solo se permitirá la construcción de osarios, cuyo diseño deberá ser previamente aprobado por la administración municipal.

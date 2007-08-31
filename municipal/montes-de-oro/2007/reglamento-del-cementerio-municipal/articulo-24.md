@@ -1,0 +1,1 @@
+Artículo 24.—El monto a pagar por los derechos será propuesto por la administración y aprobado por el Concejo Municipal, misma que entrará en vigencia una vez que se publique en el diario oficial La gaceta y será revisado cada vez que se juzgue conveniente, no debiendo exceder de dos años desde la ultima revisión.
