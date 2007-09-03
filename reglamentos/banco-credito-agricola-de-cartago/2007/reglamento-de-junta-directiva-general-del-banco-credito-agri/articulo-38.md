@@ -1,0 +1,1 @@
+Artículo 38.—Corresponderá asimismo a la Auditoría verificar, con la frecuencia que estime conveniente, que las firmas al pie de cada acta correspondan a los Directores, Gerente, Subgerentes, Asesor Legal y Auditor, asistentes a la respectiva reunión, y que han sido observadas las demás disposiciones de este Reglamento.

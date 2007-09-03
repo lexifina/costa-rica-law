@@ -1,0 +1,3 @@
+CAPÍTULO XV
+De la secretaría general de junta directiva
+Artículo 42.—La Oficina de Secretaría atenderá todo lo relacionado con la junta directiva General. El Jefe asistirá a todas las sesiones, salvo a las privadas, redactará las actas y hará las comunicaciones de las resoluciones de la junta directiva que le corresponda hacer, procederá a gestionar la legalización de los libros antes de iniciar su uso y cuidará que estos se mantengan limpios, ordenados y completos, sin permitir en ellos borrones, ni tachaduras, ya que cualquier corrección por error de copia, deberá hacerse por nota al final del acta respectiva. Asimismo, dicho funcionario deberá encargarse de recoger las firmas de los directores y de los funcionarios que participaron en las respectivas sesiones.

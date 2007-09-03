@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la agenda
+Artículo 7º—Corresponde al Presidente de la junta directiva, con la colaboración y asistencia del Gerente General, elaborar el orden del día para las sesiones de la junta directiva. La agenda deberá estar elaborada y complementada con los documentos y anexos de apoyo, salvo excepciones muy justificadas, con no menos de 16 horas hábiles antes del día y hora de la sesión. De cumplirse el plazo establecido sin que la Oficina de Secretaría disponga de la documentación respectiva, ésta queda facultada para que remita lo que hasta ese momento le haya sido suministrado, a efecto de que el Director reciba la documentación por los medios físicos o electrónicos a su conveniencia, con al menos 24 horas de anticipación a la fecha de las sesiones.

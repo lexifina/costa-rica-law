@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión deberá estar integrada por no menos de dos miembros de la junta directiva y podrán formar parte de ellos, funcionarios de la Administración y en caso de que se requiera la participación de funcionarios de la Auditoria, ésta será con carácter de asesoría en asuntos de su competencia.
