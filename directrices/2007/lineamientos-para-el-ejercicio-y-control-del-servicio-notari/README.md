@@ -13,3 +13,4 @@ Lineamientos para el Ejercicio y Control del Servicio Notarial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-24 | la propia norma |
+| 2 | 2007-09-03 | Resolución 1183 (2007-09-03) |
