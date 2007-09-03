@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO DE DESARROLLO AGRARIO
+(Este Reglamento fue derogado mediante sesión N° 029 del 3 de setiembre de 2007)
 CAPÍTULO I
 Disposiciones generales
 Con fundamento en el artículo 6º, párrafo 2, de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas y en el inciso g) del artículo 18 de la Ley de Creación del Instituto de Desarrollo Agrario Nº 6735 del 29 de marzo de 1982, se dicta el presente Reglamento Autónomo, que regulará los procedimientos de selección para la adjudicación de tierras.
