@@ -13,4 +13,5 @@ Considerando:
 8º—Que la señora Ministra Rectora del Sector Salud, avala la solicitud planteada por el INCIENSA, en el oficio DG-021-07 de 23 de enero del 2007.
 9º—Que dada la importancia que tienen esos recursos para que el INCIENSA siga cumpliendo con sus funciones, se requiere de una modificación en el gasto presupuestario máximo autorizado a dicho órgano para el año 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, el gasto presupuestario máximo del 2007, establecido en el Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, quedando el límite de gasto presupuestario en la suma de ¢1.369.000.000,00 (mil trescientos sesenta y nueve millones de colones) en ese período.
+Artículo 1º—Modifícase para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, el gasto presupuestario máximo del 2007, establecido en el Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, quedando el límite de gasto presupuestario en la suma de ¢1.631.000.000,00 (mil seiscientos treinta y un millones de colones exactos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 33966 del 3 de setiembre de 2007)
