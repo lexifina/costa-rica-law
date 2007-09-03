@@ -63,3 +63,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 48 | 2007-08-22 | Decreto Ejecutivo 33980 (2007-08-22) |
 | 49 | 2007-08-27 | Decreto Ejecutivo 33968 (2007-08-27) |
 | 50 | 2007-08-27 | Decreto Ejecutivo 34037 (2007-08-27) |
+| 51 | 2007-09-03 | Decreto Ejecutivo 33966 (2007-09-03) |
