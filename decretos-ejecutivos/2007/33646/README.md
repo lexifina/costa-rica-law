@@ -17,3 +17,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 2 | 2007-05-30 | Decreto Ejecutivo 33816 (2007-05-30) |
 | 3 | 2007-06-21 | Decreto Ejecutivo 33939 (2007-06-21) |
 | 4 | 2007-08-22 | Decreto Ejecutivo 33976 (2007-08-22) |
+| 5 | 2007-09-03 | Decreto Ejecutivo 33977 (2007-09-03) |
