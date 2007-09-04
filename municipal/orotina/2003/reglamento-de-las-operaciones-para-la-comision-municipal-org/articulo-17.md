@@ -1,1 +1,0 @@
-Artículo 17.—Todos los ingresos que se obtengan durante la Feria Nacional de las Frutas, deberán ser depositados a más tardar el día hábil siguiente a su recepción, en la cuenta corriente bancaria que para tal efecto debe abrir la Comisión. Dichos ingresos deben estar registrados y clasificados en el Mayor Auxiliar de Ingresos.

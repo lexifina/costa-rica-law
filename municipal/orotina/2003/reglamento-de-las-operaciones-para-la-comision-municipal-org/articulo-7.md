@@ -1,2 +1,0 @@
-Artículo 7º—Utilidades. Las Utilidades, se destinarán a obras comunales por medio de proyectos que deben ser presentados y aprobados por el Concejo Municipal. Las utilidades obtenidas en los festejos serán depositadas íntegramente por la Comisión en la Municipalidad de Orotina, una vez finalizada la feria, para que después de los trámites pertinentes se proceda a hacer la distribución, conforme al acuerdo previamente tomado por el Concejo Municipal.
-(Así reformado mediante el artículo III, aparte 6 del acta de sesión ordinaria No. 230, del 18 de enero del 2005.)

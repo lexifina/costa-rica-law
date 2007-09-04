@@ -1,2 +1,0 @@
-Artículo 18.—Al efectuar los depósitos de los ingresos recaudados, el tesorero deberá anotar en los comprobantes de ingreso, el número de comprobante de depósito bancario. Además en el reverso de dicho comprobante, anotará el número de los comprobantes. El número de comprobantes que lo conforman, asimismo anotará en cada contrato por puestos vendidos, el número de depósito que sustenta el comprobante de ingreso.
-(Así reformado parcialmente mediante el artículo III, aparte 6 del acta de sesión ordinaria No. 230, celebrada el día 18 de enero del 2005.)

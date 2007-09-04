@@ -1,2 +1,0 @@
-Artículo 33.—Todos los reembolsos de caja chica deberán
-respaldarse con justificantes que reúnan los requisitos establecidos en el artículo 24 de este manual. Los cheques que se emitan para efectuar dichos reembolsos deberán girarse a nombre del Tesorero.

@@ -1,1 +1,0 @@
-Artículo 19.—Todos los fondos que perciban la Comisión y las donaciones en dinero efectivo, materiales y servicios deberán ser comunicados por el tesorero en la sesión próxima inmediata que realice la Comisión Municipal, y constar en el acta respectiva.
