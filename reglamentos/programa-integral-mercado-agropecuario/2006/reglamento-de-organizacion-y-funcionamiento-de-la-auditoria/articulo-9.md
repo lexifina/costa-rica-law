@@ -1,1 +1,0 @@
-Artículo 9º—Inamovilidad. La remoción o suspensión del Auditor y Subauditor Internos se hará de acuerdo con lo establecido en la Ley General de Control Interno y en la Ley Orgánica de la Contraloría General de la República.

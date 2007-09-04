@@ -1,1 +1,0 @@
-Artículo 36.—Divulgación. El material didáctico y demás información relativos a las actividades de capacitación, deben quedar debidamente registrados, documentados y disponibles como fuente de consulta para el personal de la Auditoría Interna.

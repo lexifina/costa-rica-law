@@ -1,1 +1,0 @@
-Artículo 26.—Servicios de Auditoría. Los Servicios de Auditoría corresponden a los estudios programados en el plan anual, los que se ejecuten a juicio del Auditor Interno y los especiales por petición de la Administración Activa, de la Contraloría y los que respondan a denuncias.

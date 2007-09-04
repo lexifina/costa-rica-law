@@ -1,1 +1,0 @@
-Artículo 28.—Denuncias. La recepción y trámite de las denuncias que reciba la Auditoría Interna, se hará con apego a lo establecido por la Ley General de Control Interno, garantizando en todo momento la confidencialidad tutelada por dicho cuerpo normativo.

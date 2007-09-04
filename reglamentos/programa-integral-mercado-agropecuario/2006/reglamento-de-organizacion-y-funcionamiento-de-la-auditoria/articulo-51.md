@@ -1,1 +1,0 @@
-Artículo 51.—Presupuesto. El Consejo Directivo debe asignar a la Auditoría Interna los recursos humanos, materiales, tecnológicos, de transporte y otros, necesarios y suficientes para el desempeño de su gestión. El Auditor Interno velará porque los requerimientos presupuestarios guarden proporcionalidad con el crecimiento económico del PIMA y con el universo auditable.
