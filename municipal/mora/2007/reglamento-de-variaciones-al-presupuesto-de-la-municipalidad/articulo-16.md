@@ -1,0 +1,2 @@
+Modificaciones presupuestarias de primer grado
+Artículo 16.—Aprobación presupuestaria interna de las modificaciones presupuestarias de primer grado. La aprobación de las modificaciones presupuestarias de primer grado corresponderá al Concejo. Se debe mantener un archivo o expediente separado donde conste este tipo de acuerdos, accesible tanto a las instancias de control interno como a la Contraloría General de la República, para sus funciones de fiscalización posterior.
