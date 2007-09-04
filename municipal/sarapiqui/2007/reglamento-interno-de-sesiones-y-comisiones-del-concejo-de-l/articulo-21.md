@@ -1,0 +1,1 @@
+Artículo 21.—El (la) proponente de una moción, sea de la que se trate, tiene prioridad en el uso de la palabra y, para tal efecto se le concederá hasta cinco minutos. Podrá intervenir de nuevo sobre la moción propuesta hasta por tres minutos más, a efectos de que ejerza la réplica a que tiene derecho, si su moción es combatida.

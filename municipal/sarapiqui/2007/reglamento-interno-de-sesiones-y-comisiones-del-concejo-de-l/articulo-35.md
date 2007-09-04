@@ -1,0 +1,1 @@
+Artículo 35.—Durante las Sesiones, la alteración de la orden del día se solicitará mediante una moción de orden, la cual puede hacerse verbalmente; para su justificación el (la) proponente hará uso de la palabra hasta por un máximo de cinco minutos, conforme a las reglas establecidas en el artículo 19.

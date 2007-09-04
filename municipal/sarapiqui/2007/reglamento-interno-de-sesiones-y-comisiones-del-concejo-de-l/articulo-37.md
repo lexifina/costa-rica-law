@@ -1,0 +1,1 @@
+Artículo 37.—Todo regidor (a) propietario (a) o suplente en propiedad, presentará sus mociones y proposiciones por escrito y se presentarán acorde con las reglas de establecidas en el artículo 19 del presente reglamento y bajo el formato previamente establecido, exceptuándose únicamente las mociones de orden, contempladas en el artículo 43.

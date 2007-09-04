@@ -1,0 +1,1 @@
+Artículo 50.—El quórum para las Sesiones de Comisión, será de dos regidores (as) propietarios (as) o suplentes. Ese mismo número deberá estar presente al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones, en el sitio designado para efectuarse las reuniones de Comisión.

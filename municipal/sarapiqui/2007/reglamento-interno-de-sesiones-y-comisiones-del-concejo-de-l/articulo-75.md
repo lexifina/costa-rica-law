@@ -1,0 +1,2 @@
+Artículo 75.—De la Votación. La votación es secreta y mediante documento escrito, para lo cual se facilitará una boleta, cuyo modelo se anexa. En la votación no cabe la abstención, y de existir, anulará únicamente el voto de quien se abstuvo.
+Deben realizarse votaciones independientes para la elección del cada cargo, sea Presidente (a) y Vicepresidente (a). Cualquier regidor propietario puede votar por sí mismo. Los votos en blanco se le sumarán al candidato con mayor cantidad de votos.

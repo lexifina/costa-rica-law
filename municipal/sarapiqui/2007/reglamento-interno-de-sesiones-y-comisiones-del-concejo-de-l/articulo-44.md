@@ -1,0 +1,1 @@
+Artículo 44.—Al dar por discutido un asunto, el (la) presidente (a) del concejo, dará un término prudencial, para recibir la votación correspondiente; procurando que ésta se realice cuando todos los (las) regidores (as) presentes estén ocupando sus curules; caso contrario, se aplicarán las reglas contempladas en el artículo 10 del presente Reglamento.

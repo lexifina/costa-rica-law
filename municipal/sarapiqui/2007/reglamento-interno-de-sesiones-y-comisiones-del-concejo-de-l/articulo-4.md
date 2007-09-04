@@ -1,0 +1,1 @@
+Artículo 4º—Las sesiones ordinarias y extraordinarias se efectuarán en el local sede de la Municipalidad, pudiendo celebrarse las segundas en los distritos del cantón cuando vayan a tratarse asuntos relativos a los intereses de los (las) vecinos (as) de la localidad. Se impone la obligación de convocar a todas las sesiones a los (las) síndicos (as).

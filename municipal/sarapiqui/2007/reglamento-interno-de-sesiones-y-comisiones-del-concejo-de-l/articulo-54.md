@@ -1,0 +1,1 @@
+Artículo 54.—Los Acuerdos en el seno de las comisiones, se tomarán con el carácter de firmes y se decidirán por mayoría simple, conformando parte del expediente de cada proyecto o asunto del cual rindieron recomendación.

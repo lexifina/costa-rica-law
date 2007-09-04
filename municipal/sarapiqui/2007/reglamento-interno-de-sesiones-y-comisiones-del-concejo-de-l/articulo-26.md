@@ -1,0 +1,1 @@
+Artículo 26.—Las actas de las sesiones deberán ser aprobadas en la Sesión Ordinaria inmediata posterior, salvo que circunstancias especiales de fuerza mayor lo impidan, en cuyo caso la aprobación se pospondrá para la Sesión Ordinaria siguiente.

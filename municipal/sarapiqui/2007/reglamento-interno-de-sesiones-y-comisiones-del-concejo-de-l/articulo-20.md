@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del uso de la palabra por parte de los miembros del Concejo
+Artículo 20.—Todos los miembros (as) del Concejo, tienen derecho al uso de la palabra, debiendo concentrarse en el tema que es objeto de discusión, si se desviara del mismo, repite conceptos y su participación no aporta nada nuevo al debate, de inmediato el (la) Presidente (a) le hará un llamado de atención para que desista de tal actitud, de persistir en lo mismo le suspenderá su derecho a continuar en el uso de la palabra.
+Para obtener la autorización del uso de la palabra, se hará levantando la mano en forma visible o bien poniéndose de pie y manifestando a viva voz en forma respetuosa “Señor (a) Presidente (a), pido la palabra.”
+Las manifestaciones propias de los señores (as) regidores (as) que estos deseen que no consten en actas, lo harán saber así, con anticipación a la Secretaria (o). Si la previsión anterior no se hace con la debida antelación, la Secretaria (o) deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.

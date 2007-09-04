@@ -1,0 +1,1 @@
+Artículo 3º—El Concejo Municipal podrá celebrar las sesiones extraordinarias que se requieran, pero solamente serán remuneradas dos de ellas, las dos primeras que se celebren en forma posterior a las sesiones ordinarias acordadas previamente y publicadas en La Gaceta. Deberán celebrarse el mes, día y hora que se indique en la convocatoria.

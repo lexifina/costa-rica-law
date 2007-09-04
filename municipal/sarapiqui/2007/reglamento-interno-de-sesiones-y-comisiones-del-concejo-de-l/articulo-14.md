@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la orden del día
+Artículo 14.—Las sesiones del Concejo se desarrollarán conforme a la orden del día previamente elaborada por el (la) Presidente (a) Municipal, y debe darse a conocer por lo menos al inicio de cada sesión. La orden del día solamente podrá ser alterada o modificada, mediante una moción de orden, aprobada por parte del Concejo. Tratándose de sesiones ordinarias, con votación de al menos dos terceras partes de los miembros (as) del Concejo, podría alterarse la orden de los asuntos que se van a conocer o bien ampliar la orden del día, incluyéndose otros asuntos nuevos. En el caso de sesiones extraordinarias, la inclusión de asuntos nuevos, sólo es procedente si media Acuerdo tomado por unanimidad de los (las) regidores (as) que sesionan.

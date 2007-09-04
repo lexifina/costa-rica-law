@@ -1,0 +1,1 @@
+Artículo 28.—Una vez entregada y antes de ser aprobada el acta, cualquier regidor (a) podrá plantear revisión de Acuerdos, salvo respecto de los que hayan sido aprobados definitivamente conforme al Código Municipal. Para la admisión de la moción que plantea el Recurso de Revisión, debe contarse con la mayoría mínima que se requirió para tomar el Acuerdo objeto del recurso.

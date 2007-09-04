@@ -1,0 +1,1 @@
+Artículo 43.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al (a la) proponente y luego a los regidores (as) que la soliciten, sin que pueda excederse de cinco minutos cada intervención.

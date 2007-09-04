@@ -1,0 +1,1 @@
+Artículo 74.—Puede haber cualquier número de candidatos, siempre que sean escogidos entre los regidores propietarios, presentes o no. En caso de que el candidato no se encuentre en la Sesión del 1° de mayo, éste debe dejar previo y por escrito su aceptación a la postulación. No es requisito para ser candidato, la postulación previa.

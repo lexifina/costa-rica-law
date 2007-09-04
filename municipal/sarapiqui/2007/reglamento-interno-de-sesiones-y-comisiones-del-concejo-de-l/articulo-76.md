@@ -1,0 +1,1 @@
+Artículo 76.—El conteo de votos debe hacerse por parte del Secretario (a) del Concejo y otra persona a designar por el Concejo Municipal mediante votación de mayoría absoluta en la Sesión Solemne en el cual se elige el Directorio.

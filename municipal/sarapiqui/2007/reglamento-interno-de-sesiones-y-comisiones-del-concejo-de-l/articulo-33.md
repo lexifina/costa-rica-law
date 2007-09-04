@@ -1,0 +1,1 @@
+Artículo 33.—Los Acuerdos del Concejo originados por iniciativa del Alcalde Municipal o los regidores, se tomarán previa moción o proyecto escrito y firmado por los proponentes, acorde con las reglas de presentación establecidas en el artículo 19 del presente reglamento.

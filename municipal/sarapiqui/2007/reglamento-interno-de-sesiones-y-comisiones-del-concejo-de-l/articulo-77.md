@@ -1,0 +1,1 @@
+Artículo 77.—El nuevo Directorio debe juramentarse ante el Presidente (a) saliente. Si el Presidente resultare reelecto, debe ser juramentado por el Vicepresidente, una vez que este último haya sido juramentado por el Presidente.
