@@ -14,3 +14,4 @@ Reglamento de Compras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-03 | la propia norma |
+| 2 | 2007-09-04 | Reglamento municipal 67 (2007-09-04) |
