@@ -19,3 +19,4 @@ Reglamento del Consejo Directivo y Gerencia General.
 | 4 | 1986-09-24 | Reglamento 721 (1986-09-24) |
 | 5 | 2003-09-18 | Reglamento 0 (2003-09-18) |
 | 6 | 2006-08-03 | Reglamento 2515 (2006-08-03) |
+| 7 | 2007-09-04 | Reglamento 2560 (2007-09-04) |

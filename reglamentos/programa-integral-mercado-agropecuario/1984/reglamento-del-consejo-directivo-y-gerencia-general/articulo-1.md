@@ -1,5 +1,6 @@
 PROGRAMA INTEGRAL DE MERCADEO AGROPECUARIO
-El Consejo Directivo del Programa Integral de Mercadeo Agropecuario (PIMA), con base en las facultades que le confieren el artículo 13. inciso 8) del Decreto Ejecutivo N° 7863-A del 20 de diciembre de 1977 en relación con la ley N° 6142 del 25 de noviembre de 1977 y en las demás leyes aplicables, promulga el siguiente Reglamento Interno del Consejo Directivo, Gerencia y Auditoria.
+El Consejo Directivo del Programa Integral de Mercadeo Agropecuario (PIMA), con base en las facultades que le confieren el artículo 13. inciso 8) del Decreto Ejecutivo N° 7863-A del 20 de diciembre de 1977 en relación con la ley N° 6142 del 25 de noviembre de 1977 y en las demás leyes aplicables, promulga el siguiente (*)Reglamento del Consejo Directivo y Gerencia General.
+(*)(Modificada su denominación mediante sesión N° 2560 del 04 de setiembre de 2007).
 TITULO I
 Del Consejo Directivo
 CAPITULO 1
