@@ -1,1 +1,0 @@
-Artículo 3°—El Consejo podrá convocar a representantes de otras instituciones del Sector Salud cuando se trate de asuntos específicos que les conciernan. Estos representantes tendrán voz pero no voto. Asimismo podrán ser invitadas otras personas para tratar asuntos de interés del Consejo, las que podrán participar con voz pero sin voto.
