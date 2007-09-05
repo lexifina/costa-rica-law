@@ -16,3 +16,4 @@ Modifica al Instituto Costarricense del Deporte y la Recreación (ICODER) el gas
 | 1 | 2006-02-21 | la propia norma |
 | 2 | 2006-03-14 | Decreto Ejecutivo 32954 (2006-03-14) |
 | 3 | 2006-08-14 | Decreto Ejecutivo 33339 (2006-08-14) |
+| 4 | 2007-09-05 | Decreto Ejecutivo 34018 (2007-09-05) |
