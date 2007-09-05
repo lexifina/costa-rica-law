@@ -13,3 +13,4 @@ Metodología Determinación Capacidad Uso Tierras Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-06-06 | la propia norma |
+| 2 | 2007-09-05 | Decreto Ejecutivo 33957 (2007-09-05) |

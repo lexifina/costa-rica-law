@@ -76,6 +76,8 @@ Las tierras de esta clase tienen severas limitaciones por lo cual sólo se permi
 Las limitaciones que se pueden presentar solas o combinadas son: relieve escarpado, erosión sufrida severa, suelos poco profundos, texturas en el suelo y subsuelo de muy finas a gruesas, fuertemente pedregosas, muy baja fertilidad, toxicidad y salinidad fuertes, drenaje excesivo o nulo, riesgo de inundación muy severo, zonas de vida seca y pluviales excepto páramo, periodo seco fuerte o ausente, condición de neblina y viento fuerte.
 3.8 Clase VIII
 Estas tierras no reúnen las condiciones mínimas para actividades de producción agropecuaria o forestal alguna. Las tierras de esta clase tienen utilidad sólo como zonas de preservación de flora y fauna, protección de áreas de recarga acuífera, reserva genética y belleza escénica. Para esta clase se incluye cualquier categoría de parámetros limitantes.
+3.9 En las distintas clases de uso del suelo podrán realizarse las obras de infraestructura civil que posibilita el ordenamiento jurídico, con ajuste a los requisitos previstos para cada caso.
+(Así adicionado mediante artículo 1° del decreto ejecutivo N° 33957 del 5 de setiembre de 2007)
 4. DESCRIPCION DE LAS SUBCLASES DE CAPACIDAD DE USO
 En este sistema se reconocen como factores para definir subclases, limitaciones debidas a erosión, suelo, drenaje y clima. Para determinar las subclases se deben comparar las condiciones del terreno con respecto a las permitidas en la clase 1.
 4.1 Erosión (e)
