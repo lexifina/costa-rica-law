@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense del Deporte y la Recreación (ICODER) la fin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-13 | la propia norma |
+| 2 | 2007-09-05 | Decreto Ejecutivo 34018 (2007-09-05) |
