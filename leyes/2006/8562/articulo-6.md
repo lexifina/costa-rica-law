@@ -41,3 +41,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a 
 (Modificado por el artículo 4° del decreto ejecutivo N° 33709 del 09 de abril de 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33795 del 22 de mayo de 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33864 del 12 de julio del 2007).
+(Reformado por el artículo 2° de la ley N° 8593 del 10 de agosto del 2007).

@@ -4,3 +4,4 @@ N° 8562
 Artículo 1°—Apruébase los siguientes Ingresos Ordinarios y Extraordinarios del Gobierno para el Ejercicio Económico de 2007.
 Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a La Gaceta N° 250 del 29 de diciembre de 2006.
 (Así adicionado el inciso "c" de este artículo por el artículo 1° del decreto ejecutivo N° 33709 del 09 de abril de 2007, que por su tipo de formato consultar el Alcance N° 13 a La Gaceta N° 72 del 13 de abril de 2007)
+(Reformado por el artículo 1° de la ley N° 8593 del 10 de agosto del 2007).
