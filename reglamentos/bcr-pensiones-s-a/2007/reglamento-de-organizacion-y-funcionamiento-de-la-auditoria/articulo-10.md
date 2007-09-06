@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno, y demás funcionarios de la Auditoría Interna deberán acatar en el cumplimiento de sus funciones, las prohibiciones establecidas en la Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás leyes y reglamentos aplicables.
