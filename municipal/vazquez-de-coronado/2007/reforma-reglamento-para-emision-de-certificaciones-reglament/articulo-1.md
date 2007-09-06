@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE VÁZQUEZ DE CORONADO
+Acuerdo 2007-067-017: Se acoge informe de la Comisión de Hacienda y Presupuesto y se modifica el artículo 5 del Reglamento de Certificaciones, para que se lea: A-Cobrar ¢ 3.500,00 a los clientes que demuestren ser contribuyentes municipales y B-Cobrar ¢ 5.000,00 al resto por cada certificación. Notificar a la persona autorizada para emitir certificaciones. Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo. Cuenta con seis votos afirmativos y un voto negativo. La Regidora Ivelise Saborio Chávez vota negativamente.
+Coronado, 24 de agosto del 2007.
