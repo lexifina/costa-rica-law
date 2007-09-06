@@ -13,4 +13,5 @@ VII.—Que mediante el oficio STAP-0736-06 de 4 de abril del 2006, se comunicó 
 VIII.—Que la señora Ministra Rectora del Sector Cultura avala la solicitud planteada por la Junta Administrativa del Archivo Nacional, mediante el oficio DM-1138-06.
 IX.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado a la Junta Administrativa del Archivo Nacional para el 2007. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase a la Junta Administrativa del Archivo Nacional el gasto presupuestario máximo para el año 2007, establecido según el artículo 1º del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, quedando el límite de gasto presupuestario en la suma de ¢734.600.000 (setecientos treinta y cuatro millones seiscientos mil colones), durante ese período.
+Artículo 1º—Modifícase a la Junta Administrativa del Archivo Nacional el gasto presupuestario máximo para el año 2007, establecido según el artículo 1º del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo del 2006, quedando el límite de gasto presupuestario en la suma de ¢909.850.000,00 (novecientos nueve millones ochocientos cincuenta mil colones exactos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34027 del 6 de setiembre de 2007)

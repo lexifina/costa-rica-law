@@ -14,3 +14,4 @@ Modifica a la Junta Administrativa del Archivo Nacional el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-08 | la propia norma |
+| 2 | 2007-09-06 | Decreto Ejecutivo 34027 (2007-09-06) |
