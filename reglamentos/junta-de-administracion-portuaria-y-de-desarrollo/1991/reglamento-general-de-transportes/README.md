@@ -14,3 +14,4 @@ Reglamento General de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-16 | la propia norma |
+| 2 | 2007-09-06 | Reglamento 32 (2007-09-06) |
