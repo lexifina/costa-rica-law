@@ -1,0 +1,1 @@
+Artículo 12.—De la designación. Recibida la recomendación de la Comisión Especial, el Concejo Municipal tomará el acuerdo, que por Unanimidad de los regidores propietarios, designe a la persona que será galardonada como “Hijo o Hija Predilecto/a o Ciudadano o Ciudadana Distinguido/a”.

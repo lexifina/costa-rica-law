@@ -1,0 +1,1 @@
+Artículo 10.—Del nombramiento de la comisión. El Presidente Municipal nombrará la Comisión Especial y en el mismo acto le hará entrega de toda la documentación acerca de las personas propuestas, para su evaluación.
