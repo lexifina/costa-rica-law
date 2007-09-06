@@ -1,0 +1,11 @@
+Artículo 14.—Exclusión del registro. Serán causales de exclusión del registro las siguientes:
+a) La muerte o la extinción de la persona física o jurídica.
+b) La manifestación expresa del proveedor inscrito.
+c) Los que hayan sido inhabilitados por haber recibido sanciones administrativas por incumplimientos en la ejecución de contratos con la administración pública de conformidad con el artículo 100 de la Ley de Contratación Administrativa.
+d) Por carencia de interés de la Municipalidad de continuar contratando determinado bien o servicio.
+e) Por la no sujeción a los estándares de calidad que indicare la Municipalidad mediante reglamentos o normas técnicas emanadas de los órganos competentes.
+f) Por vencimiento o expiración del plazo de inscripción, sin que medie solicitud expresa de renovación o no responder a la solicitud de la Municipalidad en tal sentido.
+h) La Sección de Proveeduría llevará un historial de los proveedores que han actuado contraviniendo este artículo o en general de forma negligente, dolosa, culposa, imprudente o con impericia y que como consecuencia de ello hayan causado daños al interés público, con base en lo cual procederá a excluirlos, para lo cual:
+1.- Se realizará un propósito de exclusión el cual contendrá una relación de las circunstancias de hecho y de derecho en las cuales se fundamenta la exclusión. Este propósito se notificara al medio o lugar aportado por el interesado.
+2.- Se concederá un plazo de cinco días al proveedor para que realice las manifestaciones que considere oportunas en defensa de su derechos, dentro del plazo podrá proponer la prueba que considere oportuna y que tenga estricta relación con el caso. Por la naturaleza sumaria del proceso, la prueba testimonial y pericial se aceptara sólo si su recepción es indispensable para resolver el asunto de fondo. Si ha criterio de la proveeduría no procede su recepción, tal denegatoria quedara justificada en resolución formal.
+3.- Evacuada la prueba se dictará la resolución final, que podrá ser confirmatoria o denegatoria de la exclusión. Dicho acto estará sujeto a los requisitos de todo acto administrativo, lo cual implica que el mismo será plenamente justificado. Esta resolución podrá ser recurrida conforme las previsiones de la ley 7794.

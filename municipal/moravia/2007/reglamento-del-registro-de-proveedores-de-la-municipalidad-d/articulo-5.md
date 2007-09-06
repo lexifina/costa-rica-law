@@ -1,0 +1,1 @@
+Artículo 5º—Todos los proveedores incluidos en el Registro de Proveedores, están en la obligación de comunicar el Departamento de Proveeduría de la Municipalidad, los cambios que se produzcan, tales como la sustitución del apoderado legal, cambio de dirección, teléfono, fax de la empresa o cambios en la línea comercial, etc.
