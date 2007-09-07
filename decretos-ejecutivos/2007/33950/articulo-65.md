@@ -1,0 +1,1 @@
+Artículo 65.—Acreditación de transferencias del Gobierno. Todas aquellas transferencias presupuestarias que las entidades cubiertas por el principio de caja única deban realizar a determinada entidad, sea pública o privada, serán depositadas en su correspondiente CCU.

@@ -1,0 +1,1 @@
+Artículo 35.—Programación anual. Las entidades participantes deberán presentar ante la Tesorería Nacional su programación financiera anual, la cual abarcará un lapso de 12 meses. Esta información se enviará mensualmente por los medios que defina la Tesorería Nacional.

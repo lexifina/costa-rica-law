@@ -1,0 +1,1 @@
+Artículo 45.—Mecanismos de traslado de fondos. El traslado de fondos a la Caja Única se debe gestionar por medio de los servicios del SINPE, para lo cual se utilizarán los instrumentos, que estime conveniente la Tesorería Nacional, para estos efectos, en procura de la mayor eficiencia para estas transacciones.

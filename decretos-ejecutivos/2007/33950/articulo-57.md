@@ -1,0 +1,1 @@
+Artículo 57.—Cuentas de Custodia de Garantías. Las entidades participantes podrán solicitar la apertura de cuentas en las entidades financieras para el depósito de aquellos importes que han sido entregados en efectivo por parte de un proveedor, por concepto de garantías de participación y/o cumplimiento en contrataciones públicas.
