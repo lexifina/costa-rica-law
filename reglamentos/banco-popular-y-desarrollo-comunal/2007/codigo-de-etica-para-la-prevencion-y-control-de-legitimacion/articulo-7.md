@@ -1,0 +1,1 @@
+Artículo 7º—Los funcionarios, colaboradores y agentes corredores deben comprometerse a cumplir con las disposiciones legales o reglamentarias relacionadas con el registro de las transacciones y a mantener en las oficinas del Conglomerado Financiero Banco Popular, los archivos y registros necesarios para cumplir con la normativa vigente en materia de “Conozca a su Cliente”.

@@ -1,0 +1,1 @@
+Artículo 3º—Los funcionarios, colaboradores y agentes corredores deben actuar conforme a las reglas de conducta y moral aceptadas por la sociedad costarricense y evitar aquellas situaciones en que pueda comprometerme o implicar al Conglomerado Financiero Banco Popular en actuaciones que no se apeguen a lo dispuesto en este Código.
