@@ -1,0 +1,1 @@
+Artículo 6º—Todos los días y horas son hábiles para practicar notificaciones por medios electrónicos. El notificando se tendrá por notificado a partir del día hábil siguiente del envío de la comunicación.

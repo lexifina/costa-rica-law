@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del artículo anterior, todos los miembros, asociados y empresas registradas en el Colegio Federado de Ingenieros y de Arquitectos deberán indicar al Departamento de Registro de la Responsabilidad Profesional del CFIA, además de una dirección física, una dirección de correo electrónico o un número de fax donde atender notificaciones.

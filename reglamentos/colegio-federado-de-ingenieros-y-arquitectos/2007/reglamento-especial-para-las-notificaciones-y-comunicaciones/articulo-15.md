@@ -1,0 +1,1 @@
+Artículo 15.—Las actas de notificación que se practiquen deberán incorporarse al expediente personal del miembro, asociado o empresa; o bien, al expediente del procedimiento disciplinario correspondiente. El incumplimiento de esta obligación por parte del funcionario encargado, se considerará falta grave para efectos de lo establecido en el Reglamento Interior de Trabajo.

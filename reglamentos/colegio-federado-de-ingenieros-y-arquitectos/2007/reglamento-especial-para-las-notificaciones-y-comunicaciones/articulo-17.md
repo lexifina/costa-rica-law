@@ -1,0 +1,1 @@
+Artículo 17.—Todo aquello que no se encuentre expresamente regulado por este reglamento y mientras no sea incompatible con lo indicado en él, se regirá por lo dispuesto en los artículos que corren del 239 al 247 de la Ley General de la Administración Pública.

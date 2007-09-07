@@ -1,0 +1,1 @@
+Transitorio II.—Los miembros, asociados y empresas del CFIA que no cumplan con lo dispuesto en el artículo 1º de este Reglamento, en el plazo otorgado en el transitorio anterior, no podrán tramitar el registro de ningún contrato profesional, en los términos que establece el artículo 54 de la Ley Orgánica de este Colegio Profesional.

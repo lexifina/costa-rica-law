@@ -1,0 +1,2 @@
+Artículo 9º—Si se tratare de procesos disciplinarios, los miembros, asociados o empresas registrados, deberán realizar un señalamiento especifico para atender notificaciones, por lo que, con relación a ese procedimiento, toda comunicación que debe realizarse, se hará en el lugar o medio señalado específicamente.
+El funcionario encargado que incumpliere con esta disposición, será sancionado con lo dispuesto en el Reglamento Interno de Trabajo por las faltas graves.

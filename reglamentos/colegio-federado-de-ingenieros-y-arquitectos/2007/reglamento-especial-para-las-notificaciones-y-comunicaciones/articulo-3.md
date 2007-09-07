@@ -1,0 +1,1 @@
+Artículo 3º—El Colegio Federado de Ingenieros y de Arquitectos podrá notificar los actos relacionados con los procedimientos administrativos, en cualquiera de las direcciones o medios electrónicos que al efecto hayan indicado los miembros, asociados y empresas al Departamento de Registro de la Responsabilidad Profesional.

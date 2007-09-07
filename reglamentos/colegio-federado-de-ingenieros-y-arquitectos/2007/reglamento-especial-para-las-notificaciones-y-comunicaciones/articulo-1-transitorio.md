@@ -1,0 +1,1 @@
+Transitorio I.—Todos aquellos miembros, asociados y empresas del Colegio Federado de Ingenieros y de Arquitectos, tendrán un plazo máximo de 3 meses, contados de su entrada en vigencia, para cumplir con lo indicado en el artículo 2º de este Reglamento.

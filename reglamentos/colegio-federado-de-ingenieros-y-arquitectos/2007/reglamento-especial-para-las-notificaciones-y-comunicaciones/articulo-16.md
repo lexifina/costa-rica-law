@@ -1,0 +1,1 @@
+Artículo 16.—Todos aquellos departamentos del Colegio Federado de Ingenieros y de Arquitectos que deban practicar notificaciones, se designará a un funcionario como responsable de practicarlas, para lo cual deberá llevar un registro de todas esas notificaciones.
