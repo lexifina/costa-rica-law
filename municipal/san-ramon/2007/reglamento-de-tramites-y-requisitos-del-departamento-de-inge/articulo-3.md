@@ -1,0 +1,1 @@
+Artículo 3º—La capa vegetal que se remueve durante los movimientos de tierra podrá utilizarse después del tratamiento final de los suelos como capa superficial. No podrá utilizarse para la conformación de rellenos donde se pretenda urbanizar en el futuro ni donde se pretenda ubicar zonas verdes.
