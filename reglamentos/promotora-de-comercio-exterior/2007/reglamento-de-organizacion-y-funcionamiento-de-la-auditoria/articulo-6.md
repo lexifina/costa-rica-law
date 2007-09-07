@@ -1,0 +1,1 @@
+Artículo 6º—Otras disposiciones. La Auditoría Interna, se regulará de acuerdo con las disposiciones de la LGCI, normas, políticas, procedimientos, y otros preceptos, emitidos o que en el futuro emita la Contraloría General de la República, en el ámbito de su competencia.

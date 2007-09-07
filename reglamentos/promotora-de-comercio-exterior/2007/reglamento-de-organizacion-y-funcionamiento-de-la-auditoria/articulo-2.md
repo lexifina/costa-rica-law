@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo General de la Auditoría Interna. Prestar a lo interno el mejor servicio de asesoría y consultoría, con el fin de mejorar el control interno de las diferentes áreas evaluadas y contribuir al mejoramiento de la calidad, efectividad, eficiencia, el logro de los objetivos y salvaguardar los activos de la institución.

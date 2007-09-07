@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 23.—Informes de Auditoría. Para cada uno de los estudios realizados, se elaboraran los correspondientes informes de auditoría Interna como medio escrito de la comunicación de resultados. Estos informes versarán sobre diversos asuntos de su competencia, así como sobre asuntos de los cuales pueden derivarse posibles responsabilidades para funcionarios, ex funcionarios de la institución y terceros. Cuando de un estudio se deriven recomendaciones sobre asuntos de responsabilidad y otras materias, la Auditoría Interna deberá comunicarlas en informes independientes para cada materia. En la comunicación de resultados deberán observarse las disposiciones contenidas en los artículos 36, 37 y 38 de la LGCI.
