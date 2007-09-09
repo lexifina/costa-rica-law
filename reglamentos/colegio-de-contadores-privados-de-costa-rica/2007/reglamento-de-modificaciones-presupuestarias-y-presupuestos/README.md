@@ -14,3 +14,4 @@ Reglamento de Modificaciones Presupuestarias y Presupuestos Extraordinarios del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-02 | la propia norma |
+| 2 | 2007-09-09 | Reglamento 104 (2007-09-09) |
