@@ -14,3 +14,4 @@ Acuerdo para la Implantación del Reglamento de Custodia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-28 | la propia norma |
+| 2 | 2007-09-10 | Acuerdo 137 (2007-09-10) |
