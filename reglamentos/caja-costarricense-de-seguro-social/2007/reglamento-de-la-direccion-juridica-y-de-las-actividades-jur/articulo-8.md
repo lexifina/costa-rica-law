@@ -1,0 +1,1 @@
+Artículo 8º—De los objetivos de eficiencia y oportunidad. La atención de los procesos judiciales en los que la Caja participe, será eficiente y oportuna, procurando salvaguardar los intereses institucionales, de acuerdo con el ordenamiento jurídico y los lineamientos que de manera vinculante emita la Dirección Jurídica.

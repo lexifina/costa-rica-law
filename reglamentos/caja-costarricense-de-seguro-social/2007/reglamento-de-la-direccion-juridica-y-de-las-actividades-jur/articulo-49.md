@@ -1,0 +1,1 @@
+Artículo 49.—De los equipos de trabajo. El Director Jurídico tiene la facultad de requerir colaboración y en su virtud, someter a consideración de otros abogados de las distintas áreas y subáreas, el estudio o trabajo específico respecto de aquellos contratos administrativos que, por su complejidad, requieran de un análisis conjunto para emitir criterio.

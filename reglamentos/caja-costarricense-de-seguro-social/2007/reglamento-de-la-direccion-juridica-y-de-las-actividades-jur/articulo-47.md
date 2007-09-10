@@ -1,0 +1,1 @@
+Artículo 47.—Del control de los contratos administrativos. Para el control de los contratos administrativos, estos serán registrados en el Sistema de Información de la Dirección Jurídica junto con el criterio o refrendo otorgado al ser atendidos.

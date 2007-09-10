@@ -1,0 +1,1 @@
+Artículo 37.—De las gestiones judiciales en órganos con asesoría legal. Las gestiones judiciales que sean notificadas en órganos institucionales que dispongan de asesoría legal, podrán atenderse en dichos centros, según la normativa vigente.

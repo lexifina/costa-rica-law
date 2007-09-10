@@ -1,0 +1,1 @@
+Artículo 34.—De la estructura y formato de la respuesta a las consultas. Corresponde al Jefe del Área, previa aprobación del Director Jurídico, la definición de la estructura, componentes, procedimientos y formato necesario para la respuesta definitiva de las consultas. Su uso será obligatorio por parte de los abogados.

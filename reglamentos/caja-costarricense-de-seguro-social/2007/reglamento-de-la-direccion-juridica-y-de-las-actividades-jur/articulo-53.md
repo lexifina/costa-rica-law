@@ -1,0 +1,1 @@
+Artículo 53.—De la derogación de otra normativa. El presente Reglamento deroga toda normativa institucional que se le oponga. En lo que no este previsto expresamente en éste, regirá la normativa institucional vigente.

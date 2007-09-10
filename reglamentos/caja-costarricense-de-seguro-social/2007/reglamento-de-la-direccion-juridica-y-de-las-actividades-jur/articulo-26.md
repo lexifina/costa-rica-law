@@ -1,0 +1,1 @@
+Artículo 26.—De las funciones del personal de soporte. Las funciones generales del personal de soporte administrativo y logístico de la Dirección Jurídica, serán proveer apoyo, de acuerdo con su especialidad profesional y técnica, al Director, Jefaturas de Áreas y Subáreas, abogados, notarios y Jefe de la Subárea Administrativa y Logística, en el cumplimiento de sus objetivos.

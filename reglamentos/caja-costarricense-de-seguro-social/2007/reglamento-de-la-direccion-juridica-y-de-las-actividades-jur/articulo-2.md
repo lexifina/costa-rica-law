@@ -1,0 +1,1 @@
+Artículo 2º—De la dependencia administrativa. La Dirección Jurídica depende jerárquicamente de la Gerencia de la División Administrativa, en materia de organización, supervisión y control. Dispone de independencia funcional y de criterio en materia jurídica a nivel institucional.

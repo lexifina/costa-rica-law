@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 51.—De la potestad de habilitación e inhabilitación de los asesores legales por parte del Director Jurídico. Corresponderá a la Dirección Jurídica determinar, mediante resolución razonada, el momento a partir del cual las gestiones judiciales inherentes a los establecimientos que cuenten con asesoría legal, deban ser atendidas directamente por ese cuerpo legal, en virtud de sus competencias técnicas y profesionales, para lo que decretará la habilitación pertinente. Igualmente, de forma razonada, y en aras del resguardo del interés institucional en el buen y adecuado ejercicio de la asesoría jurídica, podrá inhabilitar al asesor legal local, cuando exista fundamento para ello.

@@ -1,0 +1,1 @@
+Artículo 11.—De la reconsideración de criterios jurídicos. Los criterios jurídicos emitidos por la Dirección Jurídica podrán ser reconsiderados por el abogado que elabora el dictamen original con la aprobación de la respectiva jefatura o por el Director Jurídico.

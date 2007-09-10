@@ -1,0 +1,1 @@
+Artículo 25.—De las funciones del Jefe de la Subárea Administrativa y Logística. Las funciones generales del Jefe de la Subárea Administrativa y Logística, como subordinado del Director Jurídico, corresponden a la gestión y control de los servicios administrativos y logísticos necesarios para la acción jurídica.

@@ -1,0 +1,1 @@
+Artículo 4º—De los ámbitos de competencia. Los principales ámbitos de competencia de la Dirección Jurídica serán el de consultas legales, la gestión judicial, el notariado institucional y el refrendo de contratos administrativos.

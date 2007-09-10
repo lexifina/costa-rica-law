@@ -1,0 +1,1 @@
+Artículo 52.—De la elaboración de manuales y procedimientos. Corresponde a la Dirección Jurídica la confección y emisión de políticas, procedimientos y normativas necesarias para implementar lo establecido en este Reglamento y su divulgación oportuna.

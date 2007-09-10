@@ -1,0 +1,1 @@
+Artículo 43.—De la admisión de contratos administrativos. Los contratos administrativos que requieran el otorgamiento de refrendo de la Dirección Jurídica, deben provenir de las jefaturas institucionales que no cuenten con asesoría legal autorizada para tales efectos.

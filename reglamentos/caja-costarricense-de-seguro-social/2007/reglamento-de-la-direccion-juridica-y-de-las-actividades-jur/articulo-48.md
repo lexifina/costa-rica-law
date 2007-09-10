@@ -1,0 +1,1 @@
+Artículo 48.—De la facultad de la Dirección para requerir colaboración. El Director Jurídico podrá requerir la colaboración para la revisión técnico-jurídica y el refrendo de los contratos administrativos a los abogados de otros órganos de la Caja, de todo lo cual deberá llevar el registro correspondiente.

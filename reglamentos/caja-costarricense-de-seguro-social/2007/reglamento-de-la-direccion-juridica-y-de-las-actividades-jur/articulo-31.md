@@ -1,0 +1,4 @@
+Artículo 31.—Del control de las consultas. Para el control de las consultas se tendrán los siguientes criterios:
+a) En las consultas telefónicas y presenciales, el abogado que las atienda deberá registrar la atención de la misma en el Sistema de Información de la Dirección y señalar el órgano consultante, solicitud y un resumen del criterio externado; dicho registro será definido por el Jefe respectivo.
+b) En las consultas electrónicas, el abogado que las atienda será responsable por el registro y archivo conveniente de las mismas en soporte electrónico, pudiendo efectuar impresiones de las mismas para los expedientes que correspondan, según sea requerido.
+c) Las consultas escritas serán registradas en el Sistema de Información de la Dirección Jurídica, junto con el criterio emitido al ser atendidas.

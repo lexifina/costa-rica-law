@@ -1,0 +1,1 @@
+Artículo 35.—De la responsabilidad en la emisión del criterio en las consultas legales. La responsabilidad del criterio emitido en una consulta es del abogado o abogados que la suscriban. La responsabilidad de la decisión que se ampara en el criterio, es de la Administración Activa, sin perjuicio de la distribución interna de responsabilidades de los funcionarios participantes.

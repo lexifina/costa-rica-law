@@ -1,0 +1,1 @@
+Artículo 7º—Del refrendo de contratos administrativos. El refrendo de contratos administrativos consiste en la aprobación de los contratos que celebren las diferentes unidades de trabajo. A ese efecto se ejercerá el estudio técnico legal previo.

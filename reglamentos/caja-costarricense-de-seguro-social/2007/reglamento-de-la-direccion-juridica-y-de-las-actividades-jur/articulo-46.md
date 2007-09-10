@@ -1,0 +1,1 @@
+Artículo 46.—De la solicitud de refrendo ante la Dirección Jurídica. La solicitud de refrendo ante la Dirección Jurídica de los contratos administrativos la hará el funcionario competente del establecimiento, por escrito. Al efecto, deberá acompañar el expediente completo del procedimiento administrativo.

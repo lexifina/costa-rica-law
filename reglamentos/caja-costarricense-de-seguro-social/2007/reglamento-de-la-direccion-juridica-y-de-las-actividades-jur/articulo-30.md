@@ -1,0 +1,1 @@
+Artículo 30.—De las consultas legales en órganos con asesoría legal. Las consultas legales que se originen en órganos que dispongan de asesoría legal, deberán atenderse en dichos centros, según la normativa vigente.

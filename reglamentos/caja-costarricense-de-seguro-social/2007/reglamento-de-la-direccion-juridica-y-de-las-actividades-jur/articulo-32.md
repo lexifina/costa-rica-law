@@ -1,0 +1,1 @@
+Artículo 32.—De la facultad de la Dirección para asignar consultas legales. La Dirección Jurídica, en la figura del Director o el Subdirector, podrá requerir la colaboración para la función consultiva de los abogados de otros órganos de la Caja, de todo lo cual deberá llevar el registro correspondiente.

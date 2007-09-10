@@ -1,0 +1,2 @@
+Artículo 39.—Del Consejo Jurídico. Se conforma un Consejo Asesor de la Dirección Jurídica para atender aquellos asuntos que por su complejidad requieran de un análisis conjunto.
+Dicho Consejo estará conformado por el Director Jurídico o el Subdirector Jurídico, los coordinadores de Área y los Abogados de las Áreas que los respectivos coordinadores consideren oportuno asistan a determinada sesión, así como un funcionario, quien será el responsable de tomar el acta para la revisión final del Abogado coordinador de dicha sesión.
