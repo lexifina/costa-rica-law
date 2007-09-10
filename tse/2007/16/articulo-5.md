@@ -1,0 +1,1 @@
+Artículo 5º—Numeración de las papeletas. Las papeletas serán numeradas y encoladas en talonarios que tendrán en su parte izquierda un talón en donde se consigna el encabezado de la papeleta con la numeración, de forma tal que al desprender la papeleta, este talón es el que queda adherido al talonario.

@@ -1,0 +1,1 @@
+Artículo 3º—Color y diseño de las papeletas. Las papeletas se confeccionarán en papel ledger de 28 gramos color blanco, y serán impresas a full color por el tiro y a escala de grises en el retiro. Por el frente de la papeleta al lado superior izquierdo tiene el Escudo de Costa Rica y por el lado superior derecho el logotipo o identidad gráfica del Tribunal Supremo de Elecciones.

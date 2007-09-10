@@ -1,0 +1,1 @@
+Artículo 2º—Tamaño de las papeletas. Todas las papeletas tendrán el mismo tamaño. La medida de la papeleta se detalla a continuación: con pleca: 9 pulgadas de ancho x 6 pulgadas de alto. Sin Pleca: 7.5 pulgadas de ancho x 6 pulgadas de alto.

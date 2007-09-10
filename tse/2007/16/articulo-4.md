@@ -1,0 +1,1 @@
+Artículo 4º—Casillas de la papeleta. La papeleta consta de dos casillas, una ubicada a la izquierda en que se lee “SÍ” y otra ubicada a la derecha en que se lee “NO”, posiciones designadas por este Tribunal por sorteo el día 12 de julio del año en curso, fecha de la Comunicación oficial de la Convocatoria a referéndum.
