@@ -10,3 +10,5 @@ g) "PRESTACIÓN DE SERVICIO": Todas las actividades desempeñadas por la organiz
 h) "CALIDAD": Conjunto de propiedades o características de un producto o servicio, que leconfiere su habilidad para satisfacer necesidades explícitas o implícitas.
 i) "SISTEMA DE CALIDAD": Estructura, responsabilidades, procedimientos, procesos y recursos organizacionales para llevar a cabo la gestión de calidad.
 j) "SETENA": Secretaría Técnica Nacional Ambiental.
+k) Actividad Turística Temática: Son actividades turísticas temáticas todas aquellas que por su naturaleza recreativa o de esparcimiento y que por estar relacionadas con el turismo, tengan como finalidad ofrecer al turista una experiencia vivencial, incluyendo aquellas que lo ponen en contacto con manifestaciones históricas, culturales, fincas agropecuarias demostrativas, áreas naturales dedicadas a la protección y aprovechamiento de los recursos naturales, zoocriaderos, zoológicos, acuarios, parques de diversión y acuáticos. Las cuales obtendrán la declaratoria turística como actividad turística.
+(Así adicionado el inciso anterior mediante artículo 1° del decreto ejecutivo N° 34046 del 10 de setiembre de 2007)

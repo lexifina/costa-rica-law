@@ -1,7 +1,6 @@
 ANEXO 1
-EQUIPAMIENTO E INFRAESTRUCTURA MÍNIMA EMPRESAS DE
-HOSPEDAJE, GASTRONOMÍA Y CENTROS
-DE DIVERSIÓN NOCTURNA
+(*)Equipamiento e infraestructura mínima empresas de hospedaje, gastronomía, centros de diversión nocturna y actividades turísticas temáticas.
+(*)(Así reformado por el artículo 2° del decreto ejecutivo N° 34046 del 10 de setiembre del 2007)
 a) Equipamiento e infraestructura mínima de servicios de hospedaje:
 Todas las instalaciones, equipamiento e infraestructura de los proyectos de carácter turístico deberán de cumplir con la normativa especificada en las leyes, reglamentos y códigos vigentes en nuestro país, incluyendo el Reglamento a la Ley No- 7600 conocido como "Igualdad de oportunidad para personas son discapacidad en Costa Rica" que incluye entre otros, el "diseño arquitectónico sin barreras".
 1) Accesos de vehículos y de peatones, calles, rotondas, indicar las obras de accesibilidad para personas con discapacidad física.
@@ -31,3 +30,15 @@ b) Equipamiento e infraestructura mínima para servicios gastronómicas:
 8) Ubicar los depósitos de gas y los depósitos herméticos de basura.
 9) Ubicar los tableros eléctricos y de emergencia.
 (Así adicionado mediante el artículo 3 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).
+c) Equipamiento e Infraestructura Mínima para empresas dedicadas a actividades turísticas temáticas:
+1. Accesos de vehículos y de peatones, calles, rotondas, indicar las obras de accesibilidad para personas con discapacidad física.
+2. Estacionamientos: ubicarlos en la planta en conjunto, espacios para personas con discapacidad con accesibilidad a otras instalaciones, estacionamiento para servicio.
+3. Área de recepción: Espacio para la atención del público, puesto de información.
+4. Servicios sanitarios públicos separados para público de cada sexo.
+Uno con facilidades para personas con discapacidad.
+5. Área para uso de los empleados con facilidades de comedor, vestidores, lockers y servicios sanitarios separados para empleados de cada sexo (con ducha si así lo amerita), con accesibilidad para personas con discapacidad.
+6. Seguridad y prevención contra emergencias, planta eléctrica, señalización de salidas, luces de emergencia, extintores y alarmas contra incendios.
+7. Ubicar talleres de mantenimiento y bodegas indicando su uso.
+8. Ubicar tableros eléctricos, de emergencia, depósitos de gas y depósitos herméticos de basura.
+9. Dependiendo el tipo de proyecto se inspeccionará las diferentes facilidades e instalaciones de servicios complementarios (aulas, salas de conferencia, restaurantes, salones comedor y otras instalaciones). Todo conforme al reglamento de la Ley de Construcciones publicada en La Gaceta N ° 56, Alcance N° 17 del 22 de marzo de 1983 y la Ley N ° 7600).
+(Así adicionado el inciso c) mediante el artículo 3° del decreto ejecutivo N° 34046 del 10 de setiembre del 2007).
