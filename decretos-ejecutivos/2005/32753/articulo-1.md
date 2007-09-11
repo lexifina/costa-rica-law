@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado mediante el artículo 7° del decreto ejecutivo N° 34043, del 11 de setiembre del 2007.)
 N° 32753
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGÍA

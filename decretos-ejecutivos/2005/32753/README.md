@@ -14,3 +14,4 @@ Ratifica vigencia de los artículos 1°, 2°, 3°, 4°, 7° y 8° del decreto ej
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-25 | la propia norma |
+| 2 | 2007-09-11 | Decreto Ejecutivo 34043 (2007-09-11) |
