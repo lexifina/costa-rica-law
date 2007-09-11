@@ -1,0 +1,3 @@
+SECCIÓN II
+Otros aspectos sobre el funcionamiento de la auditoría
+Artículo 27.—Manual administrativo y técnico de la auditoría. El Auditor Interno deberá formular y mantener actualizado y en uso, un Manual Administrativo y Técnico, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables al Instituto. Este Manual deberá emitirse conforme a los lineamientos generales que dicte la Contraloría sobre la materia, en especial lo establecido al respecto en las Normas para el ejercicio y el Manual de Normas Generales de Auditoría para el Sector Público.

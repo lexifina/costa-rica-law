@@ -1,0 +1,1 @@
+Artículo 14.—Suspensión o remoción del Auditor Interno. El Auditor Interno podrá ser suspendido o removido de su puesto, según lo establecido en la Ley N° 1917 y se considerará lo previsto en el artículo 15 de la Ley N° 7428, así como lo establecido por el Ente Contralor en la normativa correspondiente.

@@ -1,0 +1,1 @@
+Artículo 59.—Responsabilidad de la Administración activa. Es responsabilidad de la Administración activa la adopción de todas las medidas y acciones que aseguren y permitan la efectiva, eficiente y oportuna aplicación de las recomendaciones emitidas por la Auditoría y aceptadas por la Administración activa.

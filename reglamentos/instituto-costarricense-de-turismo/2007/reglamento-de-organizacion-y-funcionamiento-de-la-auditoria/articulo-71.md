@@ -1,0 +1,1 @@
+Artículo 71.—Programa de trabajo. Los funcionarios de la Auditoría deben de preparar programas de trabajo de acuerdo a lo establecido en el Manual para el ejercicio, el Manual Técnico y Administrativo de la Auditoría y demás normativa relacionada emitida por la Contraloría.

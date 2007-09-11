@@ -1,0 +1,1 @@
+Artículo 69.—Planificación estratégica. El Auditor Interno debe establecer una planificación estratégica congruente con su universo auditable actualizado, la valoración del riesgo y los objetivos del Instituto.

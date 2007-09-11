@@ -1,0 +1,5 @@
+SECCIÓN VI
+Ámbito de acción
+Artículo 21.—Ámbito de acción. Los servicios de auditoría y servicios preventivos, se realizarán en forma oportuna, independiente y posterior, y abarcarán todas las actividades de Instituto; incluyendo las funciones administrativas, financieras, operativas, contables, presupuestarias, movimiento e inversión de recursos, deuda, obligaciones, desembolsos, sistemas, gastos en general, las que apliquen un cambio en el patrimonio del Instituto y de los servicios que presta y de otra naturaleza, así como a los entes u órganos públicos y privados sujetos a la competencia institucional de la Auditoría, de acuerdo con los artículos 5 y 6 de la Ley N° 7428, en tanto éstos se origen en transferencias efectuadas por componentes dentro de la competencia del ICT.
+Esa función podrá ejercerla directamente, por medio de unidades descentralizadas de la Auditoria General o por medio de la contratación de firmas externas.
+Es obligación del Auditor Interno mantener actualizado, el listado que para tal efecto elaborará, de los órganos y entes sujetos al ámbito de acción de la Auditoría, según el inciso a) del artículo 22 de la Ley N° 8292.

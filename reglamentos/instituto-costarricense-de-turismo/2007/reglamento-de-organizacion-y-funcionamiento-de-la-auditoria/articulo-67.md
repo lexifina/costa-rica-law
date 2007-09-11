@@ -1,0 +1,1 @@
+Artículo 67.—Comunicación de los riesgos que asume la Junta Directiva. Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la Auditoría propicia la ausencia de fiscalización oportuna del patrimonio del ICT, debe informar a la Junta Directiva del riesgo que está asumiendo y de la eventual imputación de responsabilidad que esta situación puede generarle.

@@ -1,0 +1,2 @@
+Artículo 2º—Del Reglamento y sus modificaciones. El presente reglamento es de acatamiento obligatorio para los funcionarios de la Auditoría y del resto de los funcionarios del Instituto en la materia que les concierne.
+A efecto de mantener el marco normativo de la Auditoría actualizado, le corresponde al Auditor Interno proponer y promover las modificaciones al mismo, en los términos emitidos por la Contraloría.

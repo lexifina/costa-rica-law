@@ -1,0 +1,1 @@
+Artículo 31.—Valoración del riesgo. La actividad de Auditoría conforme a sus competencias debe promover mejoras en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información del Instituto, en relación con lo estipulado en el artículo 8° de la Ley N° 8292.

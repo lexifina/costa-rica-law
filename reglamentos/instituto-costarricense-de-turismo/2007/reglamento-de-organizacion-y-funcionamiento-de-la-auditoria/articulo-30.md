@@ -1,0 +1,1 @@
+Artículo 30.—Sistema Específico de Valoración de Riesgo. La actividad de la Auditoría debe fiscalizar la efectividad del Sistema Específico de Valoración de Riesgo Institucional (SEVRI), de acuerdo a lo emitido al respecto por la Contraloría.
