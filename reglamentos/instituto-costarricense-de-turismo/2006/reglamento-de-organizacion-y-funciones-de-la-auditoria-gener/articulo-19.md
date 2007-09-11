@@ -1,1 +1,0 @@
-Artículo 19.—Declaración de bienes. El Auditor General está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley Nº 8422. También deberá dar cumplimiento a las disposiciones que se establece en esta materia.

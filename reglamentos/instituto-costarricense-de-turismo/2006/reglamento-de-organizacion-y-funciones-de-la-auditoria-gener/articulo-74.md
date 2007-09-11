@@ -1,3 +1,0 @@
-CAPÍTULO XI
-Remisión de informes a la Junta Directiva
-Artículo 74.—Conferencia final. Previo al envío de informes a la Junta Directiva que sean de gran trascendencia institucional, o que pudieran tener cualquier tipo de responsabilidad, la Auditoría General debe constatar que se ha cumplido con la presentación verbal del borrador del informe (conferencia final), con los miembros que conforman la Junta Directiva, o el Órgano Colegiado de que se trate, así como con los responsables de la implantación de las recomendaciones. También debe verificarse que la el acta esté debidamente suscrita. Anexar al informe los argumentos y soluciones alternativas proporcionadas por el responsable en casos de desacuerdo, o indicar que no fueron aportados a pesar de existir desacuerdo.

@@ -1,1 +1,0 @@
-Artículo 76.—Recibido por la Junta Directiva. La Auditoría General debe revisar que en una copia de la nota de remisión del informe, conste la fecha de recibido por parte de la Secretaría de la Junta Directiva.

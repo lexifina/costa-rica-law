@@ -1,3 +1,0 @@
-CAPÍTULO V
-Ejecución de la auditoría
-Artículo 32.—Manual Administrativo y Técnico de la Auditoría General. El Auditor General deberá formular y mantener actualizado y en uso, un Manual Administrativo y Técnico, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables al Instituto. Este manual deberá emitirse conforme a los lineamientos generales que dicte la Contraloría sobre la materia, en especial lo establecido al respecto en el manual de normas y en el “Manual de procedimientos de auditoría para la Contraloría y las entidades y órganos sujetos a su fiscalización”.

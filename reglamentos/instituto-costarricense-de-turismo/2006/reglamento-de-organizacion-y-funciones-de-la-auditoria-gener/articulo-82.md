@@ -1,1 +1,0 @@
-Artículo 82.—Planificación estratégica. El Auditor General debe establecer una planificación estratégica congruente con su universo fiscalizable actualizado, la valoración del riesgo y los objetivos del Instituto.

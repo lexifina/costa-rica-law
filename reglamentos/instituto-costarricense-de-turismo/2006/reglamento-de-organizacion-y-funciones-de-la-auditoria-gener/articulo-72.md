@@ -1,1 +1,0 @@
-Artículo 72.—Planteamiento de conflictos ante la Contraloría. Si la resolución de la Junta Directiva ordena soluciones distintas de las recomendadas por la Auditoría General, estas se regirán por lo establecido en el artículo 38º de la Ley Nº 8292.

@@ -1,1 +1,0 @@
-Artículo 20.—Creación de plazas. El Auditor General deberá proponer, debidamente justificada a la Junta Directiva para su aprobación, la creación de plazas y servicios que considere indispensable para el cumplimiento de su plan anual de trabajo, y en general, para el buen funcionamiento de la Auditoría General siguiendo los trámites que usualmente se requieren.

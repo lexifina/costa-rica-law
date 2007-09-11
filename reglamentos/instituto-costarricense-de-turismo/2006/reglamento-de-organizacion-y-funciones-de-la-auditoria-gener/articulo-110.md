@@ -1,1 +1,0 @@
-Artículo 110.—Derogación de reglamento. El presente Reglamento deroga el Reglamento de Organización y Funciones de la Auditoría General, publicado en La Gaceta Nº 24 del 4 de febrero de 1998, así como cualquier otra disposición interna que se le oponga.

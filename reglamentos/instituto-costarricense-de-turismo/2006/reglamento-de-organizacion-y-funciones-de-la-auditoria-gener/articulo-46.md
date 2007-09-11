@@ -1,1 +1,0 @@
-Artículo 46.—Subordinación del personal de la Auditoría General. El Personal de Auditoría General depende del Auditor General y es responsable ante él en el desempeño de sus funciones, las cuales ejercen de conformidad con este Reglamento, con las instrucciones recibidas y el manual de normas vigente.
