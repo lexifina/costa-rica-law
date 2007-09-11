@@ -8,6 +8,8 @@ v) Puestos de bolsa.
 vi) Sociedades cuyo objeto exclusivo sea el de custodia y depósito de valores.
 vii) Sociedades titularizadoras.
 b) Valores emitidos o garantizados en contravención a lo establecido en el Artículo 63 de la Ley 7983.
-c) Títulos o valores que hayan sido dados en garantía, o que sean objeto de gravámenes, embargos o anotaciones al momento de adquirirse, salvo las operaciones en recompras y reportes.
-d) Participaciones de fondos de inversión concentrados privados según la definición del Artículo 2.
-e) El otorgamiento de préstamos ni avales a sus afiliados o accionistas con recursos de los fondos administrados, ni con sus propios recursos. Se exceptúa el Régimen del Fondo de Pensiones del Poder Judicial en el cual los préstamos deben realizarse de conformidad con lo establecido en el Artículo 238 de la Ley Orgánica del Poder Judicial.
+c) Títulos o valores que hayan sido dados en garantía, o que sean objeto de gravámenes, embargos o anotaciones al momento de adquirirse, salvo las operaciones en recompras y reportos sobre la operación de venta a plazo.
+(Así reformado el inciso anterior mediante sesión N° 5806 del 11 de setiembre de 2007)
+d) (Este inciso fue eliminado mediante sesión N° 5806 del 11 de setiembre de 2007)
+e) El otorgamiento de préstamos ni avales a sus afiliados o accionistas con recursos de los fondos administrados, ni con sus propios recursos.
+(Así reformado el inciso anterior mediante sesión N° 5806 del 11 de setiembre de 2007)

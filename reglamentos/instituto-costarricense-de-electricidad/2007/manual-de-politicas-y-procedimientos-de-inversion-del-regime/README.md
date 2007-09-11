@@ -14,3 +14,4 @@ Manual de Políticas y Procedimientos de Inversión del Régimen de Pensión Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-05 | la propia norma |
+| 2 | 2007-09-11 | Reglamento 5806 (2007-09-11) |

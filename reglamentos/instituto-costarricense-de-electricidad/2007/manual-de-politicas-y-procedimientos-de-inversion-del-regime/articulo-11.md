@@ -15,4 +15,4 @@ Para esos fines, los intermediarios serán seleccionados conforme a los siguient
 11.13 Que se comprometan a realizar al menos una visita por semestre a Costa Rica, libre de costo para el régimen, para discutir con funcionarios del régimen su perspectiva del mercado, el desempeño del portafolio y eventuales ajustes de la estrategia.
 11.14 Que se depositen los valores en una cuenta de custodia expresamente identificada a nombre del régimen.
 11.15 Que demuestren que están en capacidad de proveer eventualmente servicios para la cobertura de riesgos de tasa de interés, mediante el uso de derivados financieros, atendiendo lo planteado en el punto ocho de esta política.
-11.16 Que estén en capacidad de ofrecer un mecanismo para inversiones de corto plazo (overnight) en algún banco de primer orden.
+11.16 (Este inciso fue eliminado mediante sesión N° 5806 del 11 de setiembre de 2007)
