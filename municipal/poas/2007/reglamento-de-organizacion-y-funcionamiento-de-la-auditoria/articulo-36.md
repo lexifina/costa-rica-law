@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la comunicación de resultados
+Artículo 36.—Comunicación de resultados. La Auditoría Interna deberá comunicar por escrito, los resultados de sus auditorías o estudios especiales de auditoría, mediante informes dirigidos al Concejo Municipal, a efecto de que se tomen las decisiones de caso en tiempo a propósito y conveniente, con la excepción que respecto al envío se establece en cuanto a memorandos u oficios, que pueden ser dirigidos al Alcalde o a otros servidores, para que se corrija algún aspecto que a juicio del Auditor es relevante y puede evitar un proceso que conlleve a pérdida, despilfarro, uso indebido, irregularidad o acto ilegal, sin perjuicio de otras causales previstas en el régimen aplicable a la respectiva relación de servicios.

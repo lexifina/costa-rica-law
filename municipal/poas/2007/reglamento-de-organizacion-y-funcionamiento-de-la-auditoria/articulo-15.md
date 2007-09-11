@@ -1,0 +1,1 @@
+Artículo 15.—Independencia en las funciones. La Auditoría Interna ejercerá sus funciones con independencia funcional y de criterio, respecto del Concejo Municipal y demás Órganos de la Administración Activa, y en lo conducente se someterá por lo establecido por la Contraloría General.

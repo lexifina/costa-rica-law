@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De las asignaciones presupuestarias para la Auditoría Interna
+Artículo 49.—Plan Operativo Anual. Conjuntamente con el presupuesto de gastos e inversiones, se elaborará el Plan Operativo Anual de la Auditoría, el cual deberá contener, al menos: objetivos específicos, políticas, metas y acciones para el próximo año, con sustento de un estudio técnico pertinente, y debe ser correspondiente y congruente con su presupuesto, juntos son la base de la rendición de cuentas.
+Es de exclusiva competencia de la Auditoría Interna la elaboración, el contenido y las modificaciones del plan operativo anual de su unidad, de conformidad con la normativa vigente, sin perjuicio de que se atiendan las sugerencias que le manifieste el jerarca y la obligación que le asiste al Auditor de dialogar y exponer con propiedad su contenido y la relación con un plan estratégico de fiscalización.
