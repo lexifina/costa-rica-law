@@ -1,1 +1,2 @@
-Artículo 6°—(Derogado por el artículo 2° del decreto ejecutivo N° 32753 de 16 de mayo de 2005, "Ratifica vigencia de los artículos 1°, 2°, 3°, 4°, 7° y 8° del decreto ejecutivo que creó el Refugio Nacional de Vida Silvestre Gandoca- Manzanillo")
+Artículo 6: Las áreas urbanas que de acuerdo con los estudios realizados por el Instituto Nacional de Vivienda y Urbanismo estén comprendidos dentro de las comunidades de Gandoca, Manzanillo y Puerto Viejo no estarán sometidas a las regulaciones del presente Decreto. Los casos que actualmente se encuentren con procesos judiciales o administrativos denunciados por el SINAC no se verán favorecidos por esta disposición.
+(Así reformado mediante el artículo 3° del decreto ejecutivo N° 34043 del 11 de setiembre del 2007).
