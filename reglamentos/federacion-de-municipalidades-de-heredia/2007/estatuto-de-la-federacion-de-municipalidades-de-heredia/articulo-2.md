@@ -1,0 +1,1 @@
+Artículo 2º—Para ingresar a la Federación de Heredia se requerirá del acuerdo previo del Concejo Municipal respectivo, por mayoría calificada. El retiro voluntario de una municipalidad requerirá una mayoría no menor de las dos terceras partes de los integrantes de su Concejo Municipal respectivo.

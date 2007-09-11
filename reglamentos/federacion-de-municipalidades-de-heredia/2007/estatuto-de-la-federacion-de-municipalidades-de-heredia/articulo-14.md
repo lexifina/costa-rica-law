@@ -1,0 +1,1 @@
+Artículo 14.—En caso de pérdida de credenciales como por causa de muerte, de renuncia, de impedimento absoluto o de dos ausencias consecutivas injustificadas o tres alternas de un miembro de la asamblea, desde su designación, será comunicado al Concejo Municipal respectivo a fin de que proceda a sustituirlo.

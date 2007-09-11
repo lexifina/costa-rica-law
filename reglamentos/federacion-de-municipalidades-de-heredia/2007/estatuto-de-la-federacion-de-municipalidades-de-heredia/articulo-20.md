@@ -1,0 +1,1 @@
+Artículo 20.—Los miembros propietarios tendrán derecho a dieta conforme al presupuesto de la Federación. Su aumento se decretará conforme al artículo 30 del Código Municipal y a las disposiciones de la Contraloría General de la República y Procuraduría General de la República.
