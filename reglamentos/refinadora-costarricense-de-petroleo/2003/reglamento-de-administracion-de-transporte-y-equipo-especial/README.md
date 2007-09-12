@@ -16,3 +16,4 @@ Reglamento de Administración de Transporte y Equipo Especial en RECOPE
 | 1 | 2004-01-23 | la propia norma |
 | 2 | 2006-02-14 | Reglamento 0 (2006-02-14) |
 | 3 | 2007-01-10 | Reglamento 4115 (2007-01-10) |
+| 4 | 2007-09-12 | Reglamento 4182 (2007-09-12) |
