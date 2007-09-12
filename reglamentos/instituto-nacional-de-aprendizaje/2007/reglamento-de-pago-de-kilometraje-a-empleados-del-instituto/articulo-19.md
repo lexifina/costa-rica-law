@@ -1,4 +1,2 @@
-Artículo 19.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
-2-) Autorizar a la Administración para que continúe con los trámites administrativos correspondientes para la puesta en vigencia de dicha normativa.
-Acuerdo aprobado.
-10 de mayo del 2007.
+Artículo 19.—Se deroga el anterior Reglamento para el pago de uso de vehículos propiedad de los funcionarios del Instituto Nacional de Aprendizaje que fuera aprobado por Junta Directiva en sesión Nº 3520 de enero de 1998.
+(Así corrida su numeración en sesión N° 4313 del 12 de setiembre de 2007, que lo traspasó del antiguo artículo 18 al 19 actual)

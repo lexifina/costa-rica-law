@@ -14,3 +14,4 @@ Reglamento de Pago de Kilometraje a Empleados del Instituto Nacional de Aprendiz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-18 | la propia norma |
+| 2 | 2007-09-12 | Reglamento 4313 (2007-09-12) |

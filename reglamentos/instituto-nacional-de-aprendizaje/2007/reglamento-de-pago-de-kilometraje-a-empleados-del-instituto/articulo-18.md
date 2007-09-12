@@ -1,1 +1,2 @@
-Artículo 18.—Se deroga el anterior Reglamento para el pago de uso de vehículos propiedad de los funcionarios del Instituto Nacional de Aprendizaje que fuera aprobado por Junta Directiva en sesión Nº 3520 de enero de 1998.
+Artículo 18.- Están excluidos de la aplicación del presente reglamento los miembros de junta directiva, el presidente ejecutivo, los subgerentes, auditor interno y subauditor interno.
+(Así adicionado mediante sesión N° 4313 del 12 de setiembre de 2007)
