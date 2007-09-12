@@ -1,0 +1,1 @@
+Artículo 22.—Contando la oficina correspondiente con la documentación que establece el artículo anterior, se procederá a su análisis y a la verificación de que el interesado no cuente con impedimento de ingreso o egreso del país.

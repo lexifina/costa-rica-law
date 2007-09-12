@@ -1,0 +1,1 @@
+Artículo 17.—Vencido el plazo por el cual se otorgó la visa múltiple, el interesado deberá gestionar una nueva cumpliendo nuevamente con todos los requisitos que el presente reglamento exige, salvo la certificación de nacimiento que así conste en el expediente administrativo.

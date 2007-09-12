@@ -1,0 +1,1 @@
+Artículo 24.—De cumplirse con los requisitos establecidos en el artículo 21 del presente reglamento, se otorgará la visa múltiple de transportista, la cual se consignará únicamente en el pasaporte ordinario del interesado.

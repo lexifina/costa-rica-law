@@ -1,0 +1,1 @@
+Artículo 13.—Completados todos los requerimientos y procedimientos legales y reglamentarios establecidos, la Dirección General resolverá lo pertinente dentro de un plazo que no excederá de veinte días naturales, para lo cual aplicará la sana crítica.

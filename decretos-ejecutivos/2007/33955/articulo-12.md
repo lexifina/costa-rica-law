@@ -1,0 +1,1 @@
+Artículo 12.—En el caso de peticiones de extranjeros que requieran visa restringida para ingresar al país, de conformidad con las Directrices Generales de Visas, se remitirá el expediente a la Comisión Consultora de Visas Restringidas para lo de su cargo, debiendo realizar la respectiva recomendación en un plazo no mayor a treinta días naturales.

@@ -1,0 +1,1 @@
+Artículo 23.—De no reunirse los requisitos establecidos en el artículo 21 del presente reglamento, o de contar el petente con impedimento de ingreso o egreso del país, se procederá a denegar la petición. La denegatoria de una solicitud de visa múltiple de transportista no tendrá recurso alguno, de conformidad con lo indicado en los artículos 52 y 220 de la Ley.

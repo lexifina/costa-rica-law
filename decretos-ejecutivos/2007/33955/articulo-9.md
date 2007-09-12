@@ -1,0 +1,1 @@
+Artículo 9º—El plazo para completar los requisitos adicionales establecidos en el artículo anterior, será de diez días hábiles si el documento es expedible en Costa Rica y de treinta días hábiles si es emitido en el exterior.

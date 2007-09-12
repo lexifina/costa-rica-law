@@ -1,0 +1,1 @@
+Artículo 5º—La Dirección General determinará en cada caso la vigencia de las visas múltiples que otorgue, que en ningún caso podrá exceder de cinco años, en los términos contemplados por el artículo 51 de la Ley de Migración y Extranjería.

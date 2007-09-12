@@ -1,0 +1,1 @@
+Artículo 29.—Para los efectos del artículo anterior, el interesado deberá presentar en la Gestión de Migraciones, los requisitos señalados en el artículo 21 del presente reglamento, salvo el de su inciso e).

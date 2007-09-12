@@ -1,0 +1,1 @@
+Artículo 14.—La denegatoria una solicitud de visa múltiple no tendrá recurso alguno, de conformidad con lo indicado en los artículos 52 y 220 de la Ley. Denegada la petición, se podrá gestionar nuevamente visa múltiple hasta cuatro meses después.
