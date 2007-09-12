@@ -1,0 +1,1 @@
+Artículo 3º—Para el desarrollo del programa el AyA coordinará esfuerzos con los otros entes operadores de acueductos como municipios, asociaciones o comités administradores y la Empresa de Servicios Públicos de Heredia (ESPH).
