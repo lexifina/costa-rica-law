@@ -14,3 +14,4 @@ Reglamento para el Uso de Equipos de Cómputo, Programas Informáticos y Accesor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-10 | la propia norma |
+| 2 | 2007-09-12 | Acuerdo 36 (2007-09-12) |
