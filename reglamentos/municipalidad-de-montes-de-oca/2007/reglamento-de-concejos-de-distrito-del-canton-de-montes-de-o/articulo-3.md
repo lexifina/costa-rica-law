@@ -1,0 +1,3 @@
+Artículo 3º—Los Concejos de Distrito, constituyen un vínculo entre sus comunidades y el Concejo Municipal y se establecen como uno de los principales medios de participación democrática de la ciudadanía.
+Los Concejos de Distrito se regulan por el capítulo VIII del Código Municipal y el presente reglamento; así como toda aquella normativa que como órgano colegiado le es aplicable de la Ley General de la Administración Pública.
+Los proyectos, planes y programas de los Concejos de Distrito se deben ejecutar a través de la Municipalidad, en razón de que estos no cuentan con personería jurídica propia.

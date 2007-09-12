@@ -1,0 +1,1 @@
+Artículo 2º—El propósito del presente proyecto de reglamento, es regular el funcionamiento de los Concejos de Distrito del Cantón y la coordinación que debe existir entre éstos y el Concejo Municipal.

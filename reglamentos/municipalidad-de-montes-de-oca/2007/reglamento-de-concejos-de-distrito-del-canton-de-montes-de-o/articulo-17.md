@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones deberán iniciarse dentro de los 15 minutos siguientes a la hora señalada. Transcurrido este tiempo si no se ha completado el quórum, no se podrá realizar la sesión. Los suplentes que asuman la propiedad a partir de transcurrido el lapso mencionado no podrán ser sustituidos por el propietario que llegare después.

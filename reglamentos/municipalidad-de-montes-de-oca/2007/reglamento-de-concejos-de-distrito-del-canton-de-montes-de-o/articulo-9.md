@@ -1,0 +1,1 @@
+Artículo 9º—Para la realización de consultas populares a través de los mecanismos del referéndum, plebiscitos y cabildos, se aplicará la normativa vigente en el respectivo reglamento de consultas populares en el cantón de Montes de Oca

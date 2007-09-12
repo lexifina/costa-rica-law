@@ -1,0 +1,1 @@
+Artículo 16.—El quórum para las sesiones será tres miembros. En las sesiones podrán participar los suplentes con derecho a voz, teniendo derecho al voto únicamente cuando sustituyan a miembros propietarios en ausencia de éstos o conforme el siguiente artículo. Al Síndico Propietario lo podrá sustituir su suplente.

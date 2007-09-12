@@ -1,0 +1,1 @@
+Artículo 11.—Los Concejos de Distrito podrán celebrar reuniones con los vecinos de su circunscripción territorial, con el fin de considerar problemas comunes y proponer las posibles soluciones a sus respectivos Concejos Municipales.

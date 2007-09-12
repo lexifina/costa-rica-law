@@ -1,0 +1,2 @@
+Artículo 18.—Las sesiones se desarrollarán conforme al orden del día, previamente confeccionado por el Síndico o quien lo sustituya, la cual podrá ser modificada mediante moción de alteración del orden del día. El orden del día de las sesiones extraordinarias solamente podrá ser variado mediante la aprobación de la totalidad de los miembros propietarios del Concejo de Distrito.
+Los libros de actas deberán estar legalizados por la Auditoría Municipal, y finalizado el cuatrienio, entregarse formalmente a la Secretaría Municipal, dentro del término de ocho días naturales.

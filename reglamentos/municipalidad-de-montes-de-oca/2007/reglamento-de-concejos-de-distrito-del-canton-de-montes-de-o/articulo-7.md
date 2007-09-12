@@ -1,0 +1,2 @@
+Artículo 7º—Los Concejos de Distrito impulsarán la mayor participación de los ciudadanos y las organizaciones sociales del distrito, en los temas que son de su competencia y colaborarán en la vigilancia del buen desempeño de la gestión municipal.
+Los Concejos de Distrito deberán convocar al menos una vez al año a las organizaciones comunales y a los vecinos que deseen participar para proponer los proyectos prioritarios.
