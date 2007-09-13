@@ -1,1 +1,0 @@
-Artículo 29.—Para sesionar extraordinariamente la convocatoria deberá hacerse por escrito con al menos veinticuatro horas de antelación, salvo casos de urgencia. En la convocatoria deberán indicarse los temas de la agenda y en la sesión se conocerán estrictamente los puntos contenidos en ella.

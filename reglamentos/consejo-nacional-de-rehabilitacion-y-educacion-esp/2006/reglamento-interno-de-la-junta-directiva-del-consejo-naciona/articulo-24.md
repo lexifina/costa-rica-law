@@ -1,1 +1,0 @@
-Artículo 24.—En caso de renuncia, separación o vencimiento del periodo de nombramiento del Presidente, Vicepresidente o Secretario, se deberá proceder con la elección de un nuevo delegado en dichos cargos, lo cual se deberá realizar en la sesión inmediata siguiente.

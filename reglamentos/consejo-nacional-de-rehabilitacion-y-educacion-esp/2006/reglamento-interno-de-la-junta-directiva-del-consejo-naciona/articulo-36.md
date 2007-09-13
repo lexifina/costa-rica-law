@@ -1,1 +1,0 @@
-Artículo 36.—La sesión podrá suspenderse temporal o permanentemente por decisión del Presidente de la Junta Directiva o por acuerdo de mayoría absoluta, cuando medien situaciones de caso fortuito o fuerza mayor.
