@@ -1,0 +1,10 @@
+Artículo 5º—Trámite interno de formulación, aprobación y ejecución de modificaciones presupuestarias. El procedimiento de trámite interno de formulación se regirá por los siguientes aspectos:
+a. Se debe remitir un total de cinco tantos (legibles) del documento, debidamente numerado y sus páginas adecuadamente sujetas.
+b. Las modificaciones se formularán respetando tanto la estructura presupuestaria, por su parte lo correspondiente a egresos deberá presentarse a nivel de programa-partida-grupo-subgrupo.
+c. Los traslados de asignaciones presupuestarias, entre programas, así como el rebajo y aumento del contenido de estos, se deberán vincular con los objetivos y metas establecidos para el programa.
+d. Consecuentemente todo documento de modificación debe acompañarse del ajuste al respectivo plan operativo anual. En los casos en que los movimientos propuestos no implican afectaciones al plan, la Administración deberá especificar las razones por las cuales este no se modifica.
+e. Toda modificación presupuestaria la presentará el Alcalde Municipal, ante el Concejo Municipal, la cual, seguirá el mismo procedimiento que el indicado en el capítulo III, sección IX del Reglamento Interno de Orden, Dirección y Debates del Concejo Municipal del Cantón de Orotina. La modificación quedará transcrita íntegramente en el acta correspondiente.
+f. El Concejo Municipal verificará que la modificación presupuestaria se ajuste a los procedimientos establecidos por la Contraloría General de la República y el resto del bloque de legalidad aplicable y sólo aprobará las modificaciones que cumplan con los requisitos legales y técnicos.
+g. Las modificaciones que sean improbadas podrán ser presentadas nuevamente a conocimiento del Concejo Municipal, en un nuevo documento de modificación una vez que se hayan corregido las causas de su rechazo e improbación.
+h. Cada modificación presupuestaria contará con su respectiva numeración y se incorporará en el expediente correspondiente, bajo la custodia de la dependencia administrativa y funcionario del caso.
+i. La copia que habla el inciso anterior permanecerá en el archivo del Concejo Municipal.
