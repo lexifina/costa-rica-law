@@ -14,3 +14,4 @@ Modifica al Colegio Universitario de Alajuela, el gasto presupuestario máximo p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-09 | la propia norma |
+| 2 | 2007-09-14 | Decreto Ejecutivo 34155 (2007-09-14) |
