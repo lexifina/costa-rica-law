@@ -1,0 +1,10 @@
+CAPÍTULO III
+Los documentos electrónicos en archivos de gestión
+AUTOMATIZACIÓN DE LOS ARCHIVOS
+Antes de automatizar un archivo, se deben desarrollar manualmente las funciones archivísticas, definir los procesos, procedimientos, y estructura orgánica, adquirir los recursos materiales y humanos, aplicar la legislación y normalización correspondientes, de manera que se cuente con un sistema de información completo.
+La administración electrónica de documentos consiste en ingresar a estos medios la información a partir de documentos textuales o digitales.
+Recomendaciones de aplicación en los archivos de gestión
+La administración de documentos o gestión de documentos electrónica, sufre el mismo procesamiento que la administración de información manual o tradicional. En este aspecto lo que varía es el soporte en el que está contenida la información. De tal manera que todas las funciones archivísticas incluidas en este manual, deben aplicarse al documento electrónico o digital.
+En el momento en que el Patronato Nacional de la Infancia, se inicie el proceso de manejo de la información electrónica, deben contemplarse todas las disposiciones contenidas en este manual; además de la normativa y directrices publicadas por la Junta Administrativa del Archivo Nacional, en el mes de noviembre del 2004, en conjunto con la Ley de firmas, certificados digitales y documentos electrónicos.
+En los archivos electrónicos o digitales, debe respetarse la estructura que se indicó en el apartado de “Clasificación” y representado por el cuadro de clasificación Uniforme. En el medio electrónico debe montarse la estructura en el árbol de cualquier software, de manera que pueda ser un espejo del archivo físico.
+El Archivo Central, tendrá a su cargo el planeamiento, la organización, dirección y control de los archivos electrónicos que el PANI disponga establecer, así como la custodia y administración de los mismos en coordinación con las oficinas productoras. A la vez, esta temática debe ser retomada por la Administración del Patronato Nacional de la Infancia en el debido momento e informar a los encargados de los sistemas de información, para su utilización.

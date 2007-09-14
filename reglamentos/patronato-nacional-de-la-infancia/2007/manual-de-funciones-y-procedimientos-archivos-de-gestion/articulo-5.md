@@ -1,0 +1,23 @@
+CAPÍTULO V
+Representación Gráfica de los Procedimientos (Fluxograma)
+1) REUNIR
+1.1. ACOPIO Y DISTRIBUCIÓN
+[imagen]
+[imagen]
+1.2. PRODUCCIÓN
+[imagen]
+1.3. UTILIZACIÓN Y MANTENIMIENTO
+[imagen]
+1.4. ELIMINACIÓN O CONSERVACIÓN PERMANENTE
+[imagen]
+2) CONSERVAR:
+[imagen]
+ORGANIZACIÓN DOCUMENTAL
+3) CLASIFICACIÓN DE DOCUMENTOS, ORDENACIÓN Y DESCRIPCIÓN
+[imagen]
+6) SELECCIONAR:
+[imagen]
+7) ADMINISTRAR
+[imagen]
+8) FACILITAR
+[imagen]
