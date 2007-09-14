@@ -1,3 +1,5 @@
+(Suspendida)
+(Mediante resolución DGA- 557-2007 del 14 de setiembre de 2007, se suspende por un mes los alcance de la presente resolución, con el proposito de aclarar y divulgar de una forma más efectiva las directrices dictadas hacia el efectivo cumplimiento de los fines de la normativa aduanera )
 HACIENDA
 DIRECCIÓN GENERAL DE ADUANAS
 RES-DGA-166-2007.—San José, a las catorce horas del veintinueve de marzo de dos mil siete.
