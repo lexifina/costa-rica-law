@@ -14,3 +14,4 @@ Establece algunas disposiciones en cuanto a las exportaciones, importaciones y p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-22 | la propia norma |
+| 2 | 2007-09-14 | Resolución 557 (2007-09-14) |
