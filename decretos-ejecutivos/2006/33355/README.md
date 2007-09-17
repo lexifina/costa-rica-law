@@ -14,3 +14,4 @@ Declara de interés público y nacional, las actividades que llevará a cabo la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-29 | la propia norma |
+| 2 | 2007-09-17 | Decreto Ejecutivo 34026 (2007-09-17) |

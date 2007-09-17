@@ -13,4 +13,5 @@ Considerando:
 8º—Que los organizadores del evento han solicitado al Ministerio de Salud la declaratoria de interés público y nacional de las actividades citadas.
 Por tanto,
 DECRETAN:
-Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Fundación Dra. Ana Gabriela Ross, con motivo de la celebración de la “Semana Nacional de Acompañamiento Psico Social para personas con cáncer Dra. Ana Gabriela Ross”, que tendrá lugar en nuestro país durante la primera semana del mes de octubre del 2006. El objetivo de dichas actividades es educar, concientizar y sensibilizar a los habitantes del país para que tomen medidas preventivas contra la enfermedad del cáncer.
+Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Fundación Dra. Ana Gabriela Ross, con motivo de la celebración de la “Semana Nacional contra el Cáncer Dra. Ana Gabriela Ross”, que tendrá lugar en nuestro país durante la primera semana del mes de octubre de cada año.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 34026 del 17 de setiembre de 2007)
