@@ -1,0 +1,1 @@
+Artículo 12.—Del responsable del muestreo y del análisis. El responsable de la toma y el análisis de la muestra de organismos bentónicos deberá ser un profesional en Biología incorporado al Colegio de Biólogos.

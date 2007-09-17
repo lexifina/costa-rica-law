@@ -1,0 +1,1 @@
+Artículo 14.—Del análisis de las muestras bentónicas. Para el análisis de las muestras de organismos macro invertebrados bentónicos se deberá seguir la metodología establecida en la última edición de los “Rapid Assesment Biological Protocols” de la Agencia de Protección Ambiental (EPA) de los Estados Unidos de América.

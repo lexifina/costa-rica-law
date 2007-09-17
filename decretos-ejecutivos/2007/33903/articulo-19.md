@@ -1,0 +1,1 @@
+Artículo 19.—Determinación de la calidad del agua. La calidad físico-química y biológica de un cuerpo de agua superficial se establecerá haciendo uso del Índice de Clasificación Holandés de Valoración y el Índice Biológico (BMWP-CR).

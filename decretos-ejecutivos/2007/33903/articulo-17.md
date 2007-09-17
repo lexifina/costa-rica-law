@@ -1,0 +1,1 @@
+Artículo 17.—De la colección de las muestras biológicas. Todas las muestras biológicas recolectadas en los monitoreos deberán ser entregadas al Museo de Zoología de la Escuela de Biología de la Universidad de Costa Rica o al Museo Nacional.

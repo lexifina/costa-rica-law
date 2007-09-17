@@ -1,0 +1,1 @@
+Artículo 6º—Clasificación físico-química de la calidad del agua. Para la clasificación de la calidad de los cuerpos de agua en una de las cinco categorías definidas en el presente Reglamento se utilizará el Índice Holandés de Valoración de la Calidad del Agua para Cuerpos Receptores. Los niveles Calidad serán determinados según la metodología presentada en el Apéndice I.

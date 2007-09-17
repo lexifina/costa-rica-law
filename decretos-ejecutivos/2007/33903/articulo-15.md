@@ -1,0 +1,1 @@
+Artículo 15.—De la identificación de los organismos bentónicos. Todos los organismos bentónicos recolectados deberán ser identificados hasta el máximo nivel taxonómico posible. El mínimo nivel que se aceptará es el de familia, con excepción del Filo Annelida.

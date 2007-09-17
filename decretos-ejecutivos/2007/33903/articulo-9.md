@@ -1,0 +1,1 @@
+Artículo 9º—Modificación en la asignación. Cuando la protección de la Salud Pública y del Medio Ambiente así lo requiera, y con la debida justificación técnica, el Ministerio del Ambiente y Energía podrá modificar la asignación de uso de un cuerpo de agua de una calidad determinada.
