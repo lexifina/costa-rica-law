@@ -13,3 +13,4 @@ Sobre listados trimestrales estadísticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-16 | la propia norma |
+| 2 | 2007-09-18 | Circular 90 (2007-09-18) |
