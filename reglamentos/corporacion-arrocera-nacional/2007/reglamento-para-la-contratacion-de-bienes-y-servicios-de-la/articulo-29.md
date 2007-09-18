@@ -1,0 +1,2 @@
+Artículo 29.—Subcontratación. El oferente podrá subcontratar hasta en un 50% del monto adjudicado, salvo que la Administración autorice un monto mayor. En todo caso, la subcontratación no relevará al contratista de su responsabilidad.
+No se considera subcontratación, la adquisición de suministros, aún cuando éstos conlleven su propia instalación, ni tampoco los compromisos asumidos por cada uno de los participantes consorciados.

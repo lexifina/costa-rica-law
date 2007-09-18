@@ -1,0 +1,1 @@
+Artículo 91.—Notificación. Es deber de las partes señalar lugar, fax o medio electrónico donde atender notificaciones. Para efectos de cómputo de los plazos contemplados en las resoluciones, éstos empezarán a correr a partir del día hábil siguiente de aquél en que se recibe la última notificación.

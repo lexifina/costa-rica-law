@@ -1,0 +1,2 @@
+Artículo 30.—Ofertas en conjunto. La Administración podrá autorizar en el cartel, la presentación de ofertas conjuntas, cuando el objeto lo permita y ello no coloque en riesgo el interés de la Administración.
+En ese caso, dos o más oferentes podrán unirse para cotizar y cada quien responderá por la ejecución de su parte, salvo que las obligaciones no puedan diferenciarse, en cuyo caso cada uno responderá solidariamente por la totalidad del contrato.

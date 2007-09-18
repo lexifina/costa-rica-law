@@ -1,0 +1,1 @@
+Artículo 47.—Adjudicación. La licitación deberá ser adjudicada dentro del plazo previsto en el cartel. El plazo para adjudicar podrá ser prorrogado en caso de que justificadas razones así lo ameriten. No obstante la renovación de la vigencia de la oferta o de la Garantía será facultativa, sin que les resulte aplicable al oferente sanción alguna por esa razón.

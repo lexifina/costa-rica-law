@@ -1,0 +1,1 @@
+Artículo 67.—Suscripciones y compra de material bibliográfico o por Internet. La suscripción de revistas, semanarios o diarios de circulación nacional o internacional, así como la compra de material bibliográfico en el extranjero, incluso el contenido en medios electrónicos y en páginas Web.

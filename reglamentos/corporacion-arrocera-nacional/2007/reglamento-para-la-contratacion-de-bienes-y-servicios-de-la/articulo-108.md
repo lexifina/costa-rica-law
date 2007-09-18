@@ -1,0 +1,2 @@
+Artículo 108.—Prórroga o suspensión del plazo. A solicitud del contratista, la Administración, podrá autorizar prórrogas o suspensiones al plazo de ejecución del contrato cuando existan demoras ocasionadas por ella misma o causas ajenas al contratista.
+El contratista solicitará la prórroga o suspensión dentro de los diez días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y la Administración contará con igual plazo para resolver si procede o no.

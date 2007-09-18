@@ -1,0 +1,3 @@
+Artículo 73.—Arrendamiento o compra de bienes únicos. La compra o arrendamiento de bienes que en razón de su ubicación, naturaleza, condiciones y situación se configuren como el más apto para la finalidad propuesta. En estos casos, el precio máximo será el que fije el personal especializado de la Institución.
+La Administración podrá pactar el arrendamiento de inmuebles por construir o en proceso de construcción, cuando ello convenga a sus intereses institucionales o comerciales, según los términos que las partes convengan.
+En el caso de la compra de inmuebles se requiere adicionalmente de la autorización de la Contraloría General de la República.

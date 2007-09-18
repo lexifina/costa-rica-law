@@ -1,0 +1,1 @@
+Artículo 106.—Rechazo del objeto. En caso de incumplimientos graves y evidentes, la Administración podrá rechazar el objeto en el mismo acto previsto para su recepción provisional y disponer el procedimiento de resolución contractual. Cuando el objeto esté compuesto por líneas independientes entre sí, la entidad podrá recibir provisionalmente unas y rechazar otras.

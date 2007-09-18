@@ -1,0 +1,4 @@
+Artículo 93.—Presentación del Recurso de Apelación. El recurso de apelación en contra del acto de adjudicación deberá presentarse ante la Contraloría General de la República. Cuando se apele el acto de adjudicación se tomarán en consideración los montos previstos en el artículo 84 de la Ley de Contratación Administrativa.
+En las Contrataciones Públicas, el recurso de apelación en contra del acto de adjudicación o contra el que declare infructuoso o desierto el concurso, deberá presentarse dentro de los diez días hábiles siguientes a la publicación del respectivo acto.
+Cuando se trate de Contrataciones Abreviadas, deberá presentarse dentro de los cinco días hábiles siguientes a la notificación o publicación del acto de adjudicación.
+La Contraloría General de la República sustanciará y tramitará el Recurso de Apelación de conformidad con las regulaciones afines del Reglamento a la Ley de Contratación Administrativa.

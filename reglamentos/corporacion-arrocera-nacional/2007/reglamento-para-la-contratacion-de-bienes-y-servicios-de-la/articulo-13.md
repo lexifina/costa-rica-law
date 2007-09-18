@@ -1,0 +1,2 @@
+Artículo 13.—Descuentos. El oferente podrá ofrecer descuentos globales a sus precios. Además, podrán ofrecerse descuentos a los precios unitarios, en razón de un mayor número de líneas que se llegaran a adjudicar, o por pronto pago, pudiendo la Administración, promover estos últimos también en su política de pago.
+Una vez abierta la oferta, los descuentos que se ofrezcan no serán tomados en cuenta al momento de comparar los precios, pero sí para efectos de pago, en la fase de ejecución contractual.

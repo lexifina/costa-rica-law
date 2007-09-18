@@ -1,0 +1,1 @@
+Artículo 66.—Medios de comunicación social. La contratación directa de medios de comunicación social para la difusión de mensajes relacionados con la gestión institucional. En estos casos se deberá realizar un plan en el cual se definan las pautas generales a seguir para la selección de los medios, atendiendo al público meta, necesidades institucionales y costos.

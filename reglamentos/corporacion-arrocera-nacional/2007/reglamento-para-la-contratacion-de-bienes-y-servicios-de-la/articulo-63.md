@@ -1,0 +1,1 @@
+Artículo 63.—Objetos de naturaleza o circunstancia concurrente incompatibles con el concurso. La Administración, podrá contratar de forma directa los siguientes bienes o servicios que, por su naturaleza o circunstancias concurrentes, no puede o no conviene adquirirse por medio de un concurso, así como los que habilite la Contraloría General de la República.

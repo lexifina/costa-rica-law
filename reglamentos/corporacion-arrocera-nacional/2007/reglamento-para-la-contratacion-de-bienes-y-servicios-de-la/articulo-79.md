@@ -1,0 +1,1 @@
+Artículo 79.—Asesoría a auditorías internas. La Auditoría Interna y los órganos de control podrán contratar servicios profesionales especiales para sus investigaciones, cuando la confidencialidad o agilidad así lo amerite.

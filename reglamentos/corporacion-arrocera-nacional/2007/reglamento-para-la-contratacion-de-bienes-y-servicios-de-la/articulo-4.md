@@ -1,0 +1,1 @@
+Artículo 4º—Delegación de adjudicación. Mediante un acto interno, la Junta Directiva podrá establecer los niveles de adjudicación que considere más convenientes en los diferentes departamentos, de acuerdo a los mejores principios de eficacia y eficiencia.

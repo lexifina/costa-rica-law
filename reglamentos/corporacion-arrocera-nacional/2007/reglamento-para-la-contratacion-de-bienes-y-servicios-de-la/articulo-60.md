@@ -1,0 +1,1 @@
+Artículo 60.—Actividad ordinaria. La importación de arroz por declaratoria de desabasto que realiza el Poder Ejecutivo es la Actividad Ordinaria de la Corporación Arrocera Nacional y se rige por un procedimiento propio, debidamente reglamentado, por lo que está sustraída de la aplicación de este Reglamento.

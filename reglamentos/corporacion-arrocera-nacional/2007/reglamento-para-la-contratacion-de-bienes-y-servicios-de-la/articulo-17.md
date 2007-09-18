@@ -1,0 +1,1 @@
+Artículo 17.—Garantía de participación insuficiente. La garantía de participación insuficiente en plazo o en monto, podrá subsanarse por el oferente o a petición de la Administración, cuando tales extremos no se hayan ofrecido por menos del 75% de lo fijado en el cartel y el ente emisor la ratifique expresamente, en aquellos casos en que sea necesario.

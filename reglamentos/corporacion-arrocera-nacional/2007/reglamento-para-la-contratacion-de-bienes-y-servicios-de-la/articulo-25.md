@@ -1,0 +1,1 @@
+Artículo 25.—Sistema de evaluación. En el cartel se establecerá un sistema de evaluación, el cual deberá contemplar los factores ponderables, el grado de importancia de cada uno de ellos, así como el método para valorar y comparar las ofertas en relación con cada factor.

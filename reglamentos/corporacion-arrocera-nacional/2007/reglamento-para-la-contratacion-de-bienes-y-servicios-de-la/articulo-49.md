@@ -1,0 +1,4 @@
+Artículo 49.—Participación al concurso. La Administración deberá invitar a un mínimo de cinco proveedores del bien o servicio, quienes deberán estar inscritos en el registro de proveedores. Si el número de proveedores para el objeto de la contratación es inferior a cinco, deberá cursar invitación mediante publicación en un diario de circulación nacional.
+Cuando el número de proveedores inscritos sea igual o superior a cinco, la Administración queda facultada para cursar la invitación mediante publicación en un diario de circulación nacional.
+Solo serán admisibles las ofertas de aquellas empresas que hayan sido invitadas. Cuando la Administración lo considere conveniente, podrá permitir desde el Cartel que se admitan ofertas de empresas no invitadas.
+Siempre que se invite por medio de una publicación en un diario de circulación nacional, deberán aceptarse todas las ofertas presentadas.

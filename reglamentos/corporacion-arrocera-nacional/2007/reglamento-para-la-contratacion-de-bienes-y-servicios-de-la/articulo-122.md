@@ -1,0 +1,1 @@
+Artículo 122.—Sanciones a funcionarios. Las sanciones administrativas deberán ser impuestas por el órgano que ostente la potestad disciplinaria, en contra de los funcionarios que realicen actuaciones contrarias a las disposiciones de la Ley de Contratación Administrativa y el presente Reglamento.

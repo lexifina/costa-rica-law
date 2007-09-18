@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Registro de Proveedores
+Artículo 56.—Registro de Proveedores. El Registro de Proveedores constituirá el instrumento idóneo en el que se inscribirán las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa que corresponda, de manera que se encuentren debidamente acreditados y evaluados en forma integral y particular para un determinado tipo de concurso, en cuanto a su historial, sanciones, capacidad técnica, financiera, jurídica y cualquier otra que resulte indispensable para una adecuada selección del contratista y del interés público. El registro podrá mantenerse en medios electrónicos.

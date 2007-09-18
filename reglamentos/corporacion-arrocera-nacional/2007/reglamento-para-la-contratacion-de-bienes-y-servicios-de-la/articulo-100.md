@@ -1,0 +1,3 @@
+CAPÍTULO XV
+Validez y ejecución del contrato
+Artículo 100.—Perfeccionamiento contractual. Se tendrá por perfeccionada la relación contractual entre la Administración y el contratista cuando el acto de adjudicación o readjudicación adquiera firmeza y, en los casos que se exija la constitución de la garantía de cumplimiento, ésta sea válidamente otorgada.

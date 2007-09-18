@@ -1,0 +1,1 @@
+Artículo 33.—Presentación de aclaraciones. Con posterioridad al cierre del plazo de recepción de las ofertas, no se admitirá su retiro ni su modificación, pero sí las aclaraciones que presenten los participantes por su propia iniciativa o a petición de la Administración, con tal que no impliquen alteración de sus elementos esenciales.

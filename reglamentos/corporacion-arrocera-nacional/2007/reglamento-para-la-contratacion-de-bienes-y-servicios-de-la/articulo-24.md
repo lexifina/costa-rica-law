@@ -1,0 +1,3 @@
+Artículo 24.—Audiencias previas al cartel. La Administración podrá celebrar audiencias con potenciales oferentes antes de elaborar el cartel definitivo. Para ello, deberá mediar una invitación formal en la que se indique, al menos, el lugar, la hora y la fecha de la audiencia, así como el objeto de la contratación, adjuntando un proyecto o borrador del pliego de condiciones cuando ello sea conveniente.
+La no asistencia de un potencial oferente no le generará ninguna consecuencia de frente al eventual procedimiento.
+La Administración, no se encuentra obligada a aceptar ninguna de las iniciativas que se le formulen.

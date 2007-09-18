@@ -1,0 +1,6 @@
+Artículo 105.—Recepción definitiva. La recepción definitiva del objeto será extendida dentro del mes siguiente a la recepción provisional o dentro del plazo establecido en el cartel o bien, vencido el plazo para corregir defectos.
+La recepción definitiva no excluye la ejecución de la garantía de cumplimiento, si los bienes y servicios presentan alguna inconformidad con lo establecido en el contrato. A partir de este momento, comenzarán a regir las garantías de funcionamiento ofrecidas por el contratista y no correrán multas.
+Para ello se levantará un acta en que quede constancia clara de la forma en que se ejecutó el contrato, indicando al menos, tiempo de ejecución y las prórrogas concedidas, cuando fuera pertinente, forma en que se cumplieron las obligaciones, garantías ejecutadas o penalidades impuestas, ajuste a las muestras aportadas.
+En caso de objetos y servicios muy simples y a criterio de la Administración, la recepción provisional podrá coincidir con la recepción definitiva y así se hará constar en la respectiva acta.
+Todo pago a cargo de la Administración se realizará luego de la recepción definitiva de los bienes y servicios.
+La recepción definitiva no exime al contratista de responsabilidad por vicios ocultos.
