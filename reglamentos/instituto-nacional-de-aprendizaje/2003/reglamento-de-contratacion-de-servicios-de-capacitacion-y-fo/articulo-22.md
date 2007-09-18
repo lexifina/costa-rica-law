@@ -1,4 +1,1 @@
-CAPÍTULO V
-Responsabilidades del INA
-Artículo 22.—Determinación de las condiciones de la contratación. El INA deberá determinar las condiciones de la contratación, lo cual debe quedar documentado en el respectivo expediente administrativo.
-En tal determinación deberán quedar previstos todos aquellos aspectos que aseguren una adecuada ejecución de la contratación.
+Artículo 22.—Plazo y vigencia de los contratos. Los contratos suscritos bajo este sistema tendrán el plazo que la Institución establezca en el cartel de la contratación, teniendo vigencia a partir de la firma por ambas partes y eficacia a partir de la fecha de refrendo o aprobación interna según sea el caso, de acuerdo a lo dispuesto por la Contraloría General de la República en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública , publicado en la Gaceta N º 53 del 15 de marzo del 2006. La Unidad contratante deberá emitir una orden de inicio.

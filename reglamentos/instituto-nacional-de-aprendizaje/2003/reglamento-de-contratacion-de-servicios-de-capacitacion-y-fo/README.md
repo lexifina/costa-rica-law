@@ -14,3 +14,4 @@ Reglamento de Contratación de Servicios de Capacitación y Formación Profesion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-19 | la propia norma |
+| 2 | 2007-09-18 | Reglamento 0 (2007-09-18) |

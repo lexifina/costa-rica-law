@@ -1,1 +1,3 @@
-Artículo 18.—Vigencia de los contratos. Los contratos suscritos bajo este sistema tendrán vigencia a partir de su suscripción y eficacia a partir de la fecha de refrendo según sea el caso.
+Artículo 18.—Garantía de cumplimiento. A fin de asegurar la correcta ejecución de las obligaciones contraídas, el INA solicitara al contratista una Garantía de Cumplimiento equivalente al cinco por ciento del monto adjudicado. En las contrataciones excluidas del procedimiento de contratación, esta disposición será facultativa.
+El contratista se entiende obligado a asegurar el contrato dentro del plazo indicado en el cartel, o en su defecto dentro de los diez días hábiles siguientes a la firmeza de la adjudicación y deberá cubrir una vigencia mínima de dos meses adicionales a la fecha probable de la recepción definitiva del servicio contratado.
+La garantía podrá rendirse en alguna de las formas previstas en el artículo 42 del Reglamento a la Ley de la Contratación Administrativa.

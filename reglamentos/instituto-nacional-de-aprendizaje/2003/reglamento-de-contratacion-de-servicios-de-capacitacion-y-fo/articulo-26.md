@@ -1,1 +1,3 @@
-Artículo 26.—Certificación. Una vez finalizada la capacitación, y previa comprobación de los conocimientos adquiridos por los participantes, el INA expedirá la certificación de los conocimientos adquiridos.
+CAPÍTULO VI
+Responsabilidades del INA
+Artículo 26.—Determinación de las condiciones de la contratación. El INA deberá determinar las condiciones de la contratación, lo cual debe quedar documentado en el respectivo expediente administrativo. En tal determinación deberán quedar previstos todos aquellos aspectos que aseguren una adecuada ejecución de la contratación.
