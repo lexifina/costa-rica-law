@@ -1,0 +1,1 @@
+Artículo 71.—Resolución Final. Recibidos el criterio del Área Técnica y de la Asesoría Legal, la Sección Administrativa remitirá en el plazo máximo de 5 días hábiles su recomendación al Comité de Licitaciones para que emita la resolución final.

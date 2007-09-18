@@ -1,0 +1,1 @@
+Artículo 49.—Estado de las Garantías. Será responsabilidad de la Sección Administrativa, velar por el estado de las garantías, especialmente en lo referente a su vigencia y monto, así como ordenar la devolución o ejecución en los casos que proceda conforme a lo estipulado en este Reglamento.

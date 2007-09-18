@@ -1,0 +1,5 @@
+Artículo 36.—Prórroga Fecha Máxima de Adjudicación. Las fechas máximas de adjudicación de las licitaciones o contrataciones directas que estén por vencerse, podrán ser prorrogadas por la Sección Administrativa, aplicando las pautas establecidas en el artículo 87 del Reglamento a la Ley de Contratación Administrativa.
+Esta prórroga se dará por una única vez, en casos calificados cuando resulte difícil para la Operadora resolver en el plazo estipulado en el cartel o invitación.
+La justificación de prórroga, deberá contener las razones de interés público para tomar tal decisión, además se debe indicar el tipo y número de contratación, descripción y monto de la compra, así como un cuadro donde se detallen las vigencias de las ofertas y de las garantías de participación si las hubiere.
+Únicamente, se prorrogarán los plazos para resolver las licitaciones públicas y abreviadas, si las ofertas y garantías están vigentes hasta la fecha que se pretende prorrogar.
+La resolución de prórroga que se adopte, deberá ser comunicada a las áreas involucradas para su debido control y seguimiento.

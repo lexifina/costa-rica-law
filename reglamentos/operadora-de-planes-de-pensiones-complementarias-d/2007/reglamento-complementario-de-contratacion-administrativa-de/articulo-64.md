@@ -1,0 +1,1 @@
+Artículo 64.—Remisión del Expediente Administrativo. Cuando la Contraloría General de la República solicite un expediente administrativo en casos de apelaciones, la Sección Administrativa deberá remitirlo dentro del día hábil siguiente y prevenir a los oferentes para que mantengan o restablezcan la vigencia de las ofertas y la garantía de participación.

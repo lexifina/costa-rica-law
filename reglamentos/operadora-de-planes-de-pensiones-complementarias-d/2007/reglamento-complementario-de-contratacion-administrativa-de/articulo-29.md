@@ -1,0 +1,1 @@
+Artículo 29.—Monto Presupuestado. Cuando se adjudique un monto inferior al presupuestado, la Operadora podrá adjudicar una mayor cantidad de bienes y servicios en una misma contratación si la necesidad así lo justifica y de conformidad con la reglamentación vigente.

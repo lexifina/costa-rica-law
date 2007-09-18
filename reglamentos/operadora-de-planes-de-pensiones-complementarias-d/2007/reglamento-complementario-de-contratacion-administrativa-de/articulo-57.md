@@ -1,0 +1,1 @@
+Artículo 57.—Comunicación de la Resolución. Dada la resolución respectiva por el órgano competente, se enviará a la Sección Administrativa para que comunique la respuesta a los recurrentes dentro de los plazos establecidos.

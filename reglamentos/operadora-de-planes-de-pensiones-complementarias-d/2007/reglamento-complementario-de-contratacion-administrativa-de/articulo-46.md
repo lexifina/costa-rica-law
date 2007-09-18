@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Garantías
+Artículo 46.—Garantías de Participación y Cumplimiento. Las garantías de participación y de cumplimiento serán opcionales únicamente en los casos de contrataciones directas y se solicitarán obligatoriamente en las licitaciones abreviadas y públicas.

@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Disposiciones Finales
+Artículo 77.—Plazo de las Contrataciones. Ninguna contratación de objeto continuo, sucesivo o periódico, podrá exceder el plazo de cuatro años, salvo casos debidamente justificados por la dependencia interesada en razón de la conveniencia institucional y que hayan sido aprobados previamente, antes del inicio del procedimiento por el Comité de Licitaciones. Asimismo debe contarse con el criterio de la Asesoría Legal.

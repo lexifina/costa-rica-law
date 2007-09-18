@@ -1,0 +1,1 @@
+Artículo 55.—Recurso de Objeción Procedente. Si el recurso es declarado con lugar, la Sección Administrativa en coordinación con la Unidad Usuaria se encargará de efectuar las modificaciones al cartel y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

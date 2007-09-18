@@ -1,0 +1,3 @@
+Artículo 18.—Invitación Anual. La Sección Administrativa invitará a formar parte del Registro de Proveedores, por lo menos una vez al año, a todos los potenciales oferentes que puedan satisfacer los requerimientos de la Operadora en cuanto a calidad, oportunidad y costo, procurando que sea en el mes de enero, mediante publicación en el Diario Oficial La Gaceta.
+Las personas físicas o jurídicas interesadas podrán asimismo solicitar su incorporación al Registro de Proveedores en cualquier momento.
+La invitación deberá contener, como mínimo, la siguiente información: lugar y plazo para el retiro y entrega de los formularios respectivos, documentación anexa a presentar y cualquier otra información que considere pertinente la Operadora.

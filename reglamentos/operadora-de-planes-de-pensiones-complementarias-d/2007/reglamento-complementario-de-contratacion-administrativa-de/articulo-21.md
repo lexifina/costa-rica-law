@@ -1,0 +1,2 @@
+Artículo 21.—Inscripción a Solicitud de Parte. Cuando un proveedor desee participar en un determinado proceso de contratación administrativa y no se encuentre inscrito en el Registro de Proveedores, podrá presentar la información junto con su oferta siempre que cumpla con todos los requisitos que se le solicitan en la contratación y en el Formulario “Registro de Proveedores”.
+Podrá quedar inscrito en dicho Registro por solicitud expresa del oferente y siempre que se cumpla lo establecido en el párrafo anterior.

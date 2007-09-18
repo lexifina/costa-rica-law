@@ -1,0 +1,2 @@
+Artículo 20.—Plazo de Subsanación. Una vez recibida la solicitud de los interesados para integrar el Registro de Proveedores de la Operadora, la Sección Administrativa en un plazo máximo de tres días hábiles verificará el cumplimiento de los requisitos y en el caso de existir un incumplimiento o defecto, concederá un plazo máximo de cinco días hábiles al proveedor para que se subsane.
+Si la prevención no es atendida en tiempo y forma, la solicitud no podrá ser aceptada, sin responsabilidad para la Operadora.
