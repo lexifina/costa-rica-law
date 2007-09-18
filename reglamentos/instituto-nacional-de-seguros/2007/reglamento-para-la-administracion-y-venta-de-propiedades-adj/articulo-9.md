@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Venta de Bienes, se reunirá cuando sea convocada por el Jefe de la Dirección Administrativa, y analizará el estado de los bienes sujetos a venta. La Comisión analizará y resolverá todos los casos que le sean remitidos a ese efecto por la Unidad de Bienes Temporales o Dirección Administrativa.

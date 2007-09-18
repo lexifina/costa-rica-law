@@ -1,0 +1,1 @@
+Artículo 32.—Realizado el trámite anterior, la Unidad de Bienes Temporales, confeccionará la carta de comunicación al adjudicatario en la cual le indica el detalle del bien y su valor, con el fin de que proceda a realizar su cancelación.

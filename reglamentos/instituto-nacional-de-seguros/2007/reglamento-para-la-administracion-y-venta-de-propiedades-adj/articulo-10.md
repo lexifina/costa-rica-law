@@ -1,0 +1,1 @@
+Artículo 10.—De cada sesión que celebra la Comisión de Venta de Bienes, debe levantarse un acta de los asuntos conocidos, discutidos y resueltos. El documento final debe ser firmado por los miembros presentes en cada sesión.

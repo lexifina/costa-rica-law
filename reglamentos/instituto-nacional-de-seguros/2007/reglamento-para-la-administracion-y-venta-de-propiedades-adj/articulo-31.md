@@ -1,0 +1,2 @@
+Artículo 31.—Realizada la apertura de ofertas, la Unidad de Bienes Temporales elaborará el acta de apertura, indicando las ofertas recibidas, nombre de los oferentes, montos, y forma de pago y seleccionarán la mejor oferta.
+Realizada la adjudicación se firmará el acuerdo y en los casos en los cuales el monto lo ameritará, solicitará la firma del acto de adjudicación ante la Dirección Administrativa o la Gerencia, según corresponda.

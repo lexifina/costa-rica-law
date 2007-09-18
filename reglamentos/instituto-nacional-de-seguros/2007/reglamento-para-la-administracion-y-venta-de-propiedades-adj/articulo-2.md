@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El proceso de administración y venta de bienes adquiridos como pago de obligaciones hipotecarias o dación en pago, estará a cargo de la Unidad de Bienes Temporales de la Dirección Administrativa (UBT).

@@ -1,0 +1,4 @@
+Artículo 12.—La administración de los bienes deberá hacerse con criterio comercial, sin detrimento de las obligaciones que impone la ley para su cuido.
+Dentro de este marco, las acciones necesarias para la vigilancia, mantenimiento y los gastos en que se incurra por estos conceptos, deberán autorizarse en beneficio de la “deseabilidad” comercial de los bienes, brindando seguimiento a los gastos adecuados a fin de evitar un incremento excesivo.
+La Unidad de Bienes Temporales realizará los estudios o consultas que estime pertinentes a efecto de valorar o estimar la deseabilidad de los bienes bajo su custodia.
+Asimismo, las inversiones que mejoren la condición de los bienes, se aprobarán siempre y cuando estas faciliten su venta y puedan ser recuperadas con ella, o por razones de costo-beneficio de conveniencia institucional justificada.

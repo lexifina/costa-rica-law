@@ -1,0 +1,2 @@
+III.- De la administración de los bienes
+Artículo 11.—Concluido el trámite de cobro judicial y formalizada la adjudicación del bien, el Departamento de Cobro Administrativo y Judicial, remitirá al Departamento de Servicios Generales, la composición de costos de la propiedad adjudicada, copia de la protocolización de piezas, escritura, plano de catastro, y cualquier otro documento que resulte necesario para proceder con la administración y venta del bien.

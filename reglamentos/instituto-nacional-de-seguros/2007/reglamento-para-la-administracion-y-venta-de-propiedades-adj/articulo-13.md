@@ -1,0 +1,1 @@
+Artículo 13.—La compra de bienes y servicios necesarios para la administración de los bienes, se regirá, en lo que corresponda por la Ley de Contratación Administrativa y su Reglamento, y así como los reglamentos y disposiciones vigentes en materia de contratación.
