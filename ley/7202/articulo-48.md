@@ -1,1 +1,1 @@
-Artículo 48.- Se decretará apremio corporal en materia civil, a solicitud del director general del Archivo Nacional, contra el representante de cualquiera de las instituciones citadas en el artículo 2 de la presente ley que no transfiera su documentación en los plazos reglamentarios, una vez requerido por escrito por el director general del Archivo Nacional.
+Artículo 48.- (Anulado mediante resolución de la Sala Constitucional N° 13579 del 19 de setiembre de 2007).
