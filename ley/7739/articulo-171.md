@@ -1,4 +1,5 @@
-Artículo 171°- Funciones. El Consejo tendrá las siguientes funciones:
+Artículo 171°- Funciones.
+El Consejo tendrá las siguientes funciones:
 a) Coordinar la acción interinstitucional e intersectorial en la formulación de las políticas y la ejecución de los programas de prevención, atención y defensa de los derechos de las personas menores de edad.
 b) Conocer y analizar los planes anuales operativos de cada una de las instituciones públicas miembros del Consejo, con el fin de vigilar que al formularlos se considere el interés superior de las personas menores de edad.
 c) Conocer y analizar los informes de seguimiento y evaluación elaborados por el Patronato Nacional de la Infancia, en cumplimiento del inciso d) del artículo 4 de su Ley Orgánica.
@@ -8,3 +9,4 @@ f) Conocer y aprobar los informes de las comisiones especiales de trabajo, que s
 g) Solicitar la asistencia técnica y financiera de organismos nacionales e internacionales de cooperación.
 h) Promover convenios de cooperación entre las instituciones públicas o entre estas y las privadas para el mejor cumplimiento de los acuerdos adoptados.
 i) Dictar los reglamentos internos para funcionar.
+(La Sala Constitucional mediante resolución N° 13583-2007 del 19/09/2007, dispuso que: ”…este artículo no puede interpretarse de manera tal que desconozca, perjudique o disminuya las potestades constitucionales del Patronato Nacional de la Infancia”. )
