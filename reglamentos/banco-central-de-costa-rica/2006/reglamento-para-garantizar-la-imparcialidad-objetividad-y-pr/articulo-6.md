@@ -1,1 +1,0 @@
-Artículo 6º—De la abstención. El deber de todo funcionario de excusarse cuando recaiga en él un motivo de abstención, se aplica cuando exista un conflicto de intereses que perjudique el cumplimiento del fin público a cargo de ese funcionario que eventualmente pueda afectar su imparcialidad, objetividad, independencia y criterio.
