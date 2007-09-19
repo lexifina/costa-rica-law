@@ -1,0 +1,7 @@
+CAPÍTULO II
+Del compromiso de construcción de las obras
+por parte del desarrollador o fraccionador
+Artículo 5º—De conformidad con la Ley de Planificación Urbana, el Desarrollador, Urbanizador o Fraccionador, según sea su caso, podrá comprometerse con el AyA a asumir el costo de las obras necesarias fuera de su propiedad, para construir los servicios de agua potable y/o alcantarillado sanitario, incluído el tratamiento de las aguas residuales y tengan esos servicios básicos alejados de sus linderos, para lo cual se suscribirá una carta de entendimiento.
+Para asegurar la ejecución de las obras necesarias para habilitar los servicios, el Desarrollador, Urbanizador o Fraccionador deberá constituir garantía satisfactoria mediante fideicomiso, póliza, hipoteca, garantía bancaria, o cualesquiera otras formas legalmente establecidas.
+Adicionalmente AyA podrá emitir, a través de la Gerencia General, una certificación de compromiso en la cual se haga constar sobre la existencia y viabilidad del proyecto, su cobertura, costo aproximado y el compromiso expreso del desarrollador de asumir el costo total de las obras, con el fin de que éste gestione los permisos correspondientes para su aceptación ante las instancias que consigna el artículo 38 de la Ley de Planificación Urbana.
+Por su parte el Desarrollador, Urbanizador o Fraccionador, según sea el caso, deberá suscribir documento mediante el cual libere de responsabilidad al AyA por cualesquier consecuencia provocada por el atraso o problemas en la construcción de las obras.
