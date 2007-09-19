@@ -1,4 +1,0 @@
-ANEXO 1
-SOLICITUD DE LEGALIZACIÓN DE LIBROS
-[imagen]
-[imagen]

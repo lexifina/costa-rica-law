@@ -1,1 +1,0 @@
-Artículo 7º—Recepción de solicitudes. Como una forma de garantizar el servicio de legalización a todos aquellos que así lo soliciten, la Administración recibirá un máximo de tres solicitudes por interesado o autorizado.
