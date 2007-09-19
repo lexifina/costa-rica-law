@@ -14,3 +14,4 @@ Reglamento al Consejo Nacional de la Niñez y la Adolescencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-03 | la propia norma |
+| 2 | 2007-09-19 | SINALEVI (sin norma nombrada) |
