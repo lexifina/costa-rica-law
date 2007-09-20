@@ -1,1 +1,1 @@
-Artículo 18.—La fecha para conceder los aumentos anuales a los arios de la Contraloría será la de ingreso en ésta, con lo cual no se reconocen en fracciones de tiempo laboradas en otras instituciones del Sector que pudieren variar la fecha de cumplimiento del aumento anual.
+Artículo 18.—(Así derogado mediante resolución R-SC-5 del 20 de setiembre de 2007)
