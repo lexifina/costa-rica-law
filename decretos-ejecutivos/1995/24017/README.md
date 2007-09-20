@@ -15,3 +15,4 @@ Reglamento Sobre Centros Docentes Privados
 | 1 | 1995-02-27 | la propia norma |
 | 2 | 1995-02-27 | SINALEVI (sin norma nombrada) |
 | 3 | 2000-02-07 | Decreto Ejecutivo 28490 (2000-02-07) |
+| 4 | 2007-09-20 | Decreto Ejecutivo 34205 (2007-09-20) |

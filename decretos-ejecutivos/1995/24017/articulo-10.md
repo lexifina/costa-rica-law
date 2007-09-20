@@ -1,5 +1,4 @@
-Artículo 10.- El proceso de enseñanza y el de aprendizaje en los
-centros docentes privados, deberá proponer a la consecución, como mínimo
-y sin perjuicio de la formación integral del educando, de los objetivos
-formativos y cognitivos que se establecen para el sistema estatal en las
-disciplinas de Español, Estudios Sociales, Ciencias y Matemática.
+Artículo 10.—El proceso de enseñanza y el de aprendizaje en los centros docentes privados, deberá propender a la consecución como mínimo y sin perjuicio de la formación integral del educando, de los objetivos formativos y cognitivos que se establecen para el sistema estatal en las disciplinas de Español Estudios Sociales, Ciencias y Matemática.
+Para el proceso de obtención del reconocimiento oficial de la enseñanza que imparte y durante la vigencia del mismo, todo centro docente privado debe garantizar que cumple adecuadamente con los requerimientos técnicos y legales necesarios para la atención de personas con discapacidad y a los estudiantes con necesidades educativas especiales, tanto en materia de infraestructura física, como en el desarrollo de un proceso de enseñanza aprendizaje inclusivo.
+La verificación de incumplimiento de lo dispuesto en este artículo, dará lugar a la revocación del reconocimiento otorgado, previa concesión de una audiencia de defensa a la entidad educativa correspondiente
+(Así adicionados los últimos dos párrafos por el artículo 1° del decreto ejecutivo N° 34205 del 20 de setiembre 2007).
