@@ -14,3 +14,4 @@ Reglamento del Proceso Disciplinario de los Miembros del Colegio Federado de Ing
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-12 | la propia norma |
+| 2 | 2007-09-20 | Reglamento 6 (2007-09-20) |
