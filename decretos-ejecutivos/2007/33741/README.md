@@ -14,3 +14,4 @@ Modifica al Instituto de Fomento y Asesoría Municipal, el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-20 | la propia norma |
+| 2 | 2007-09-20 | Decreto Ejecutivo 33984 (2007-09-20) |
