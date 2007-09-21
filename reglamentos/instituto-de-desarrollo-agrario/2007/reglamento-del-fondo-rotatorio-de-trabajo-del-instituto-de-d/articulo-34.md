@@ -1,0 +1,1 @@
+Artículo 34.—Será responsabilidad del Contador Regional, mantener el debido control sobre el contenido presupuestario, de forma tal que no se gire suma alguna del Fondo destinada a aquellos gastos que no estén contemplados en el presupuesto aprobado para cada región.

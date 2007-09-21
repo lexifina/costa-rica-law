@@ -1,0 +1,1 @@
+Artículo 16.—El responsable del Fondo no emitirá cheques que provoquen sobregiros bancarios, ya que si hubiese cargo por intereses, el responsable del Fondo y el Titular Subordinado, asumirán el cargo financiero que se produzca.

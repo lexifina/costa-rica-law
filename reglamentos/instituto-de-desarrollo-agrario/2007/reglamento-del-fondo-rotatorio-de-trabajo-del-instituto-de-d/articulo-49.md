@@ -1,0 +1,1 @@
+Artículo 49.—Vencido el término de liquidación del Fondo Auxiliar o de Caja Chica, sin que el funcionario responsable lo haya efectuado, el Encargado del Fondo Rotatorio de Trabajo o el Jefe Inmediato deberán comunicarlo al Superior Jerárquico, a la Auditoría Interna y al interesado, para que se tomen las medidas que el caso amerite.

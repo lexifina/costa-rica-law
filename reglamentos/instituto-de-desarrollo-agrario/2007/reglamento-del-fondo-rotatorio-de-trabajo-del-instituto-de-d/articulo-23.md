@@ -1,0 +1,1 @@
+Artículo 23.—Del Fondo de Trabajo únicamente se girarán cheques a nombre de la persona física o jurídica de quien se recibió el bien o servicio, así como a nombre de los funcionarios de la Institución que por la naturaleza de sus actividades, requieran de la utilización de este Fondo.

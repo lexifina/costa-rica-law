@@ -1,0 +1,1 @@
+Artículo 22.—El responsable de administrar un Fondo Rotatorio de Trabajo, deberá efectuar la conciliación bancaria correspondiente, inmediatamente después de recibir el estado de cuenta que le envía el Banco o la certificación de movimientos de cuenta. Dicho estado de cuenta debe archivarse en el lugar donde se administra el Fondo, en un consecutivo de fácil revisión y consulta.

@@ -1,0 +1,1 @@
+Artículo 35.—Los vales deben ser autorizados por el Encargado del Fondo, para la cual se tramita una requisición con el sello “PUEDE TRAMITARSE PRESUPUESTO”. No se autorizará un nuevo vale si existiera otro pendiente de liquidar. Los vales deben ser liquidados, máximo tres días hábiles después de solicitado el mismo.

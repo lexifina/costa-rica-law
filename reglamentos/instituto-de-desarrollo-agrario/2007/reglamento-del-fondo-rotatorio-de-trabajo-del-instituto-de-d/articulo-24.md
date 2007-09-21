@@ -1,0 +1,1 @@
+Artículo 24.—No se permitirán pagos hechos con dinero del Fondo de Trabajo, de comprobantes anteriores a 45 días de la emisión del cheque, por lo que las erogaciones deberán realizarse de conformidad con el presupuesto aprobado, el Clasificador por Objeto del Gasto y el monto del Fondo. Queda prohibido adquirir compromisos de crédito con el Fondo Rotatorio de Trabajo.

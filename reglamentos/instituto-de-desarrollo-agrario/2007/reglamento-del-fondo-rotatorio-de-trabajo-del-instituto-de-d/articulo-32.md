@@ -1,0 +1,1 @@
+Artículo 32.—Las chequeras o documentos del Fondo de Trabajo deberán de permanecer a buen resguardo en la Dirección Regional. El Encargado del Fondo será responsable por su adecuada custodia, salvaguarda y protección de estos documentos. Esta disposición es igualmente aplicable, para otros fondos que operen en el Instituto.

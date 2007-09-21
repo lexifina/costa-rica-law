@@ -1,0 +1,1 @@
+Artículo 33.—La Dirección Regional, en los casos que corresponda, deberá implantar y supervisar adecuadamente un sistema de control interno, que garantice que a un funcionario no se le gire de nuevo un adelanto de viáticos, sin haber liquidado el anterior oportunamente, de conformidad con los reglamentos respectivos.

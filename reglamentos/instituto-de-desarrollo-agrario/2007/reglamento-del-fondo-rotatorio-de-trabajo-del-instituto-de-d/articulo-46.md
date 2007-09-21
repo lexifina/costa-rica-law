@@ -1,0 +1,1 @@
+Artículo 46.—Todo gasto o pago efectuado con dinero del Fondo Auxiliar, deberá ser al contado y contra presentación de la respectiva factura a nombre del Instituto de Desarrollo Agrario, con referencia a la unidad ejecutora del gasto.

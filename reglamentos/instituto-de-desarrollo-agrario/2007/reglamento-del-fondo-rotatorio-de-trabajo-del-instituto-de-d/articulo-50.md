@@ -1,0 +1,1 @@
+Artículo 50.—El Encargado del Fondo Auxiliar o de Caja Chica no desembolsarán ningún vale a un funcionario que tenga vencida la liquidación de otro anterior. Estos vales serán de giro restringido y en caso de suma urgencia o situaciones especiales lo autorizará el Superior de la unidad donde se cuente con él.

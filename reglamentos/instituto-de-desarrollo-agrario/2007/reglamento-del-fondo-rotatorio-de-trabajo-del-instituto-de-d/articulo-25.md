@@ -1,0 +1,1 @@
+Artículo 25.—Depósito de intereses: Los intereses devengados por los saldos de las cuentas bancarias de los Fondos Rotatorios de Trabajo, deberán ser depositados en las cuentas corrientes que para tal efecto disponga la Tesorería de la Institución, dentro de un plazo de ocho días hábiles después de vencido el respectivo mes.

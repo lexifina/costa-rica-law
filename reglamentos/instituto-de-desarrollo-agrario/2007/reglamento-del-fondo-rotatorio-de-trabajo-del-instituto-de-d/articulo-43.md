@@ -1,0 +1,1 @@
+Artículo 43.—Toda erogación que se realice por medio del Fondo Rotatorio Auxiliar, debe estar amparado a la respectiva requisición, donde se haga constar que existe el respectivo contenido presupuestario. Los gastos que efectúe cada unidad administrativa, deben estar respaldadas por la correspondiente requisición y la partida disponible de presupuesto.

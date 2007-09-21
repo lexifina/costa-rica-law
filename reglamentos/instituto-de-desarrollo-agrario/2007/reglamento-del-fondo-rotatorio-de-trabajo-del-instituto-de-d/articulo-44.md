@@ -1,0 +1,1 @@
+Artículo 44.—El encargado del Fondo Rotatorio Auxiliar deberá solicitar los reintegros con la debida antelación, con el propósito de que el Fondo no llegue a agotarse. Es aconsejable efectuar un reintegro cuando el monto del Fondo ascienda como mínimo al 50% de la suma total del Fondo.

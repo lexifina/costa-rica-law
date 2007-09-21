@@ -1,0 +1,1 @@
+Artículo 39.—Una vez recibida a entera satisfacción la entrega formal de los recursos del Fondo Rotatorio Auxiliar, el responsable será responsable de la correcta operación de los fondos, de la custodia del efectivo, de los cheques y de los respectivos comprobantes.

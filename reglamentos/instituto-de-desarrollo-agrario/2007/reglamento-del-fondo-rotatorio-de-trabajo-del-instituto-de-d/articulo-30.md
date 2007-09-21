@@ -1,0 +1,1 @@
+Artículo 30.—Todo pago que se efectúa con dineros del Fondo de Trabajo, deberá ser respaldado con la respectiva justificación a nombre del Instituto, así como tener la debida referencia a la Unidad Ejecutora del gasto.
