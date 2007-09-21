@@ -1,0 +1,1 @@
+Artículo 25.—Cierre del concurso: Una vez elegida la terna, el Departamento de Recursos Humanos procederá a declarar el cierre del concurso mediante un acta y elevará los expedientes del concurso y los personales de los oferentes a la Presidencia Ejecutiva, para que se proceda con el nombramiento correspondiente.
