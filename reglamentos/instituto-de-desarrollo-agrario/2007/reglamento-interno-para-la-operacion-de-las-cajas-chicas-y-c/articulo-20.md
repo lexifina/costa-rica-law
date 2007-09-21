@@ -1,0 +1,1 @@
+Artículo 20.—Los gastos en que se incurra con el Fondo Fijo de Caja Chica o con la Caja General, en todo momento deben responder a partidas y subpartidas, grupos y subgrupos de gasto debidamente identificados en el “Clasificador del Gasto Según su Objeto”, y estar debidamente presupuestados. Por ningún motivo se podrá compensar partidas presupuestarias.

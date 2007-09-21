@@ -1,0 +1,1 @@
+Artículo 9º—Reintegro de Caja Chica: Es el reembolso que se hace al Fondo de la Caja Chica, por los dineros gastados y utilizados en la compra de bienes y servicios, adelantos de viáticos y otros, todos amparados en comprobantes originales.

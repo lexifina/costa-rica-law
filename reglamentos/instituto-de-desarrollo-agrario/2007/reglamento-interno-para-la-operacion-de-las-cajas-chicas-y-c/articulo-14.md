@@ -1,0 +1,5 @@
+Artículo 14.—De la autorización para la apertura de un Fondo de Caja Chica: Toda apertura de Fondo Fijo de Caja Chica en las oficinas centrales, será autorizada y aprobada por la Presidencia Ejecutiva, Gerencia General, Dirección Administrativa Financiera o Departamento Financiero, según corresponda a su área de trabajo; en oficinas regionales la apertura será aprobada por el Director Regional, mediante acto administrativo debidamente razonado. En atención a la aprobación, se deberá adjuntar para efecto de los Registros Contables y de Tesorería, la siguiente información:
+a).- Solicitud de apertura, con una exposición de las razones que justifiquen la existencia de un Fondo Fijo de Caja Chica.
+b).- Estimación de los recursos financieros necesarios para el Fondo Fijo de Caja Chica, el cual servirá para atender gastos menores (Flujo de Caja).
+c).- Presupuesto inicial y disponible en las subpartidas correspondientes, de acuerdo con el presupuesto aprobado.
+d).- Identificación del responsable del manejo del Fondo Fijo de Caja Chica, que deberá ser sin excepción, un funcionario con nombramiento en propiedad.

@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Disposiciones finales
+Artículo 56.—Erogaciones con fondos propios. Las erogaciones que realicen funcionarios no autorizados con su peculio personal, para pagar materiales y suministros del Instituto y aquellas erogaciones que incumplen con las estipulaciones de este Reglamento o con los lineamientos emanados por el Departamento Financiero, la Tesorería y por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo de la Caja Chica, salvo que previamente y por excepción hubieran sido autorizadas por el responsable de la Caja Chica o Caja General.

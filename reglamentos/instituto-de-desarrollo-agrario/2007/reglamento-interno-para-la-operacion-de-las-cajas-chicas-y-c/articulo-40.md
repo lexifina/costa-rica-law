@@ -1,0 +1,1 @@
+Artículo 40.—De la tramitación: Los vales de Caja Chica, se tramitarán con la requisición correspondiente, debidamente autorizada por los jefes respectivos o encargados del programa de cada Área de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 36.—De la solicitud del adelanto de viáticos: Las solicitudes de Adelanto de Viáticos así como su monto, se girarán bajo la responsabilidad de los respectivos Jefes que autoricen los trámites, quienes deberán exigir la liquidación del gasto mediante aplicación del formulario que para tal efecto se encuentra diseñado.

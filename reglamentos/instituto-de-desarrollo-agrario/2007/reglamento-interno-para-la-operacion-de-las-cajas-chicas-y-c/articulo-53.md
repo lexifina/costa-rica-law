@@ -1,0 +1,1 @@
+Artículo 53.—Del deber de conocer el Reglamento: Todo funcionario que haga uso del Fondo de Caja Chica o de la Caja General, tiene la obligación de conocer el presente Reglamento. Su desacato y desobediencia se sancionará de acuerdo con lo estipulado en el artículo 110 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.

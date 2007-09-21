@@ -1,0 +1,1 @@
+Artículo 37.—De los requisitos: En el caso de adelantos para gastos de viaje dentro del país, deberán indicar claramente la fecha de inicio y fin de la gira, los lugares a visitar y el motivo del viaje que deberá estar acorde con las funciones que el servidor realiza, utilizando los formularios establecidos para tal efecto.
