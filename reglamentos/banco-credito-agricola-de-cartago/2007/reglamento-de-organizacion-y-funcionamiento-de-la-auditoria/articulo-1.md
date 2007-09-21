@@ -1,0 +1,8 @@
+BANCO CRÉDITO AGRÍCOLA DE CARTAGO
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL BANCO
+CRÉDITO AGRÍCOLA DE CARTAGO
+Introducción. El presente Reglamento se emite en cumplimiento de lo que dispone el artículo 23 de la Ley Nº 8292, Ley General de Control Interno, así como el Manual de Normas Generales de Auditoría para el Sector Público, emitidas por la Contraloría General de la República; con el objeto de normar la organización y funcionamiento de la Auditoría Interna del Banco, de manera que su actividad constituya un apoyo permanente al éxito de la gestión institucional.
+1. Concepto de Auditoría Interna
+1.1 Definición. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al Banco, puesto que fue creada para validar y mejorar sus operaciones. En armonía con la visión y misión institucionales, contribuye a que se alcancen los objetivos, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, - del control y - de los procesos de dirección institucional. Dentro del Banco, la Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación de la Junta Directiva y la del resto de la administración, se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
+1.2 Revisión de planes y políticas. Anualmente la Auditoría Interna revisará su visión y misión, así como sus planes y principales políticas para ajustarlas en lo necesario a los objetivos del Banco. Asimismo, revisará las normas éticas que rigen el accionar de sus funcionarios.
