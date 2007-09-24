@@ -1,0 +1,1 @@
+Artículo 10.—La autorización que se contempla en el presente Reglamento es de carácter excepcional, por lo que la Municipalidad de San Rafael de Heredia, deberá evaluar cada dos años la razonabilidad de que continúen las casetas en el cantón, autorizadas con fundamento en este Reglamento.
