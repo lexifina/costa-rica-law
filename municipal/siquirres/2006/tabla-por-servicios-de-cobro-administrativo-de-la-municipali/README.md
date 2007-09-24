@@ -14,3 +14,4 @@ Tabla por servicios de Cobro Administrativo de la Municipalidad de Siquirrres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-18 | la propia norma |
+| 2 | 2007-09-24 | Reglamento municipal 73 (2007-09-24) |

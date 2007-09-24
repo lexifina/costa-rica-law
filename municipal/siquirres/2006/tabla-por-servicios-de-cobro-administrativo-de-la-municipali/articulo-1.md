@@ -8,6 +8,7 @@ De ¢ | Hasta ¢ | Costo ¢
 20.001,00 | 50.000,00 | 4.250,00
 50.001,00 | 100.000,00 | 6.750,00
 100.001,00 | En adelante | 10% de la deuda
+(NOTA: Mediante acuerdo N° 403 tomado en sesión N° 073 del 24 de setiembre de 2007 se indica “Que por no haberse tomado en cuenta en tabla por servicios de cobro administrativo, la publicación por edicto en caso de agotamiento de vía administrativa por imposibilidad de localización del contribuyente, se autoriza a la administración a trasladar el costo del edicto a la cuenta de contribuyente o al gestor asignado el valor del edicto”
 Con las aclaraciones de la dirección tributaria se aprueba la tabla de costos y tarifas para el cobro administrativo.
 Es conforme:
 Siquirres, a las 8:00 horas, 10 minutos del día 15 de noviembre del 2006, para los efectos que correspondan.—
