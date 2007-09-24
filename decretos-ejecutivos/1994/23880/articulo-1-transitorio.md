@@ -1,6 +1,2 @@
 Transitorios
-I.- El Consejo de Personal asumirá las funciones indicadas en el artículo 46 incisos a) y d) de la Ley General de Policía Nº 7410, así como aquellas señaladas en los artículos 68 y 69 de la Ley citada, según se vayan incorporando al Estatuto Policial los servidores de los cuerpos policiales siguiendo el procedimiento señalado al efecto en el Transitorio Único de la misma.
-Con excepción de lo dispuesto en el capítulo III , artículos 12, 13 y 14 del capítulo IV, capítulo VII , artículos 42 y 50 del capítulo IX, capítulo IX (sic), capítulo X, artículo 74 y 75 del capítulo XIV; el presente reglamento será de aplicación para los miembros policiales excluidos del estatuto policial; aplicándose supletoriamente al efecto de los procedimientos disciplinarios, los artículos 10 de la Ley Orgánica del Ministerio de Seguridad Pública, 7 y 16 del Reglamento a la Ley Orgánica del Ministerio de Seguridad Pública.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 24792 del 9 de octubre de 1995)
-Las facultades conferidas al Consejo de Personal que sean de aplicación serán asumidas por el Viceministro o Ministro respecto de los servidores excluidos del Estatuto Policial.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 24792 del 9 de octubre de 1995)
+I.-(Derogado por el artículo 3° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)

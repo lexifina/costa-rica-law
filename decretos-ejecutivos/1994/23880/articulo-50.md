@@ -1,1 +1,2 @@
-Artículo 50.- El Consejo de Personal resolverá la petición y si ésta fuera favorable, comunicará al Ministro para su aprobación y trámites correspondientes al menos con ocho días hábiles de anticipación a la fecha del disfrute del permiso. En caso contrario lo hará directamente al interesado dentro del mismo plazo.
+Artículo 50.—La Dirección de Recursos Humanos analizará la petición y si ésta fuera favorable, comunicará al Ministro para su aprobación y trámites correspondientes al menos con ocho días hábiles de anticipación a la fecha del disfrute del permiso. En caso contrario lo hará directamente al interesado dentro del mismo plazo.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)

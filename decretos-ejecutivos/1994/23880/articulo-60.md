@@ -1,11 +1,3 @@
 CAPITULO XII
 Promoción y concursos
-Artículo 60.- Para ascender dentro del Estrato Ocupacional, se requiere una Calificación del Desempeño inmediata anterior de Muy Bueno, haber cumplido con un mínimo de permanencia en el cargo y aprobar el Programa de Capacitación según la siguiente escala:
-a) Policía Raso, Cabo Primero y Cabo Segundo de Policía. l año de servicio en cada cargo. Haber aprobado satisfactoriamente el Programa Básico Policial.
-b) Agente I y II de Investigación. I año de servicio en cada cargo. Haber aprobado satisfactoriamente el Programa Básico de Investigación Criminal.
-c) Sargento Primero, Sargento Segundo y Sargento Mayor de Policía, Sub-Oficial l y II de Investigación. l año de servicio en cada cargo. Haber aprobado satisfactoriamente el Programa Básico Policial y el de Sub-Oficial de Policía.
-d) Para ocupar puestos de Oficial 1 de Apoyo Legal Policial: contar mínimo con el grado académico de Licenciado en Derecho, estar debidamente incorporado al Colegio de Abogados, aprobar el curso básico de inducción para abogados y demás pruebas y requisitos que determine el Departamento de Apoyo Legal Policial.
-Para ocupar los puestos de Oficial 2 de Apoyo Legal: haber pasado 2 años de servicio en el puesto anterior, haber aprobado el curso básico policial profesional.
-(La reforma practicada a este inciso por el artículo 1° del decreto ejecutivo N° 29294 del 5 de diciembre de 2000, posteriormente fue derogada por el artículo 1° del decreto ejecutivo N° 29423 del 23 de marzo de 2001. Se advierte que dicha derogación no se ha aplicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)
-e) Para ocupar los puestos de Jefe de Apoyo Legal y Jefe 2 de Apoyo Legal: haber pasado 3 años de servicio en el puesto anterior, además de los requisitos contemplados.
-(La reforma practicada a este inciso por el artículo 1° del decreto ejecutivo N° 29294 del 5 de diciembre de 2000, posteriormente fue derogada por el artículo 1° del decreto ejecutivo N° 29423 del 23 de marzo de 2001. Se advierte que dicha derogación no se ha aplicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)
+Artículo 60.- (Derogado por el artículo 3° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)

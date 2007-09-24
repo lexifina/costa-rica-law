@@ -1,1 +1,1 @@
-Artículo 62.- Podrán participar en los concursos internos todos los funcionarios nombrados en propiedad y aquellos interinos que tengan como mínimo seis meses consecutivos de laborar.
+Artículo 62.-(Derogado por el artículo 3° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)

@@ -1,1 +1,1 @@
-Artículo 61.- El Subsistema de Promoción se aplicará con base en concursos de antecedentes para llenar todas las plazas vacantes autorizadas y para llevar el registro de elegibles. Abarcará todas las clases de puestos existentes en el Manual de Clasificación de Puestos, excepto los de Ministro, Viceministro, Oficial Mayor, Directores y Subdirectores Generales.
+Artículo 61.-(Derogado por el artículo 3° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)
