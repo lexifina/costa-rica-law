@@ -1,1 +1,0 @@
-Artículo 38.—Cualquier adición o cambio que se produzca en los procedimientos de contabilidad y de control interno establecidos, deberá ser informado a la Auditoria Interna de inmediato por parte de la administración del BANHVI en lo relativo al manejo de recursos.

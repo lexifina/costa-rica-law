@@ -1,1 +1,0 @@
-Artículo 32.—Cuando existan diferencias, en cuanto a las recomendaciones emanadas por la Auditoria Interna , entre ésta y la administración activa, se aplicará lo establecido en el artículo 66 de la ley orgánica de la Contraloría General de La República.

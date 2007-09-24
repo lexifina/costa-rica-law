@@ -1,1 +1,0 @@
-Artículo 33.—En cuanto a los requisitos, revisión y remisión de los informes se aplicará, lo dispuesto sobre el particular en el "Manual para el ejercicio de la auditoria interna en las entidades y órganos sujetos a la fiscalización" de la Contraloría General de la República ".

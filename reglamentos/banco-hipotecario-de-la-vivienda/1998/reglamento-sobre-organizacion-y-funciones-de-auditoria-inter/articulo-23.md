@@ -1,1 +1,0 @@
-Artículo 23.—El Auditor Interno deberá formular y mantener actualizado y en uso de su unidad, un manual de procedimientos, con el objeto de contar con un instrumento que defina las características y los procedimientos de auditoria aplicables a cada revisión. Este Manual deberá emitirse conforme a los lineamientos generales que dicte la Contraloría General de la República.

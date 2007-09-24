@@ -1,1 +1,0 @@
-Artículo 4°—Es responsabilidad exclusiva de la administración del Banco, establecer, mantener y perfeccionar el sistema de control interno, siendo específicamente responsable del mismo, el Gerente y el Sub-Gerente del Banco y ante ellos, con respecto a cada unidad o departamento del Banco, el funcionario encargado de dicha unidad o departamento.

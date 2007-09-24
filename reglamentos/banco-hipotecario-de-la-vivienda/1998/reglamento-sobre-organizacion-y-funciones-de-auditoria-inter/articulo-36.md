@@ -1,1 +1,0 @@
-Artículo 36.—-Las recomendaciones formuladas por la Auditoria Interna , son de cumplimiento obligatorio para los funcionarios de la administración. Cualquier funcionario que incumpla u obstaculice la ejecución de esas recomendaciones, sin causa Justificada, incurrirá en falta grave de servicio.

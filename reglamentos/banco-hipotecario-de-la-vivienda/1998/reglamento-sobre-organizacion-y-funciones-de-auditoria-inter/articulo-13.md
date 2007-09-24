@@ -1,1 +1,0 @@
-Artículo 13.—El Auditor Interno, deberá proponer a la Junta Directiva cuando lo considere necesario y en forma debidamente justificada, la creación de plazas y servicios, o la modificación de la estructura de la Auditoria Interna , para mantener su adecuado funcionamiento.

@@ -1,1 +1,0 @@
-Artículo 29.—La comunicación de resultados se deberá hacer por escrito. Podrá efectuarse durante el desarrollo de la auditoria o estudio especial, mediante informes parciales y al finalizar la labor por medio del informe final.

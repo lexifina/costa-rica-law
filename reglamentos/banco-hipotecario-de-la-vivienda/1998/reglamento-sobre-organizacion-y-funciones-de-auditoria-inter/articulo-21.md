@@ -1,8 +1,0 @@
-Artículo 21.—En cuanto al Auditor Interno, este tendrá las siguientes obligaciones y atribuciones:
-a) Planificar el funcionamiento de la Auditoria Interna con el fin de obtener la mayor eficacia.
-b) Dirigir y supervisar las actividades del personal a su cargo, con el propósito de velar por e! oportuno y efectivo cumplimiento de todas las labores asignadas.
-c) Controlar que el personal de la Auditoria Interna cumpla las obligaciones comunes a todo el personal del BANHVI, así como los preceptos del Manual de normas y procedimientos de auditoria interna, las disposiciones reglamentarias respectivas y las disposiciones que emita la Contraloría General de la República.
-d) Vigilar qué el trabajo profesional que ha de ejecutar el personal de la Auditoria Interna , se realice con el mayor celo y diligencia, así como con la debida prontitud y al menor costo posible.
-e) Cuidar que al personal de la Auditoria Interna se le garantice en todo momento el libre ejercicio de los derechos y atribuciones que establece este Reglamento.
-f) Poner en conocimiento de la administración del BANHVI o de su Junta Directiva; según corresponda, cualquier caso de fraude, desfalco, malversación o distracción de fondos o de conducta impropia de algún funcionario o de otra irregularidad grave que pudiera conocer como resultado de alguna misión de auditoria interna o por cualquier otro medio comprobatorio o probatorio, conforme a lo estipulado en el artículo 30 de la ley 7052.
-g) Ejercer las demás funciones y atribuciones que le asigne la Junta Directiva del BANHVÍ, las leyes y reglamentos aplicables y las disposiciones que emitan la Contraloría General de la República y la Superintendencia General de Entidades Financieras.

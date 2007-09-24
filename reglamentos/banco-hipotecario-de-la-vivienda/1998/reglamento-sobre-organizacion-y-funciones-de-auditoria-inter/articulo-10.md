@@ -1,1 +1,0 @@
-Artículo 10.—La administración deberá brindar capacitación y entrenamiento al personal de Ia Auditoria, con el fin de lograr su adecuado desarrollo humano y profesional en el área propia de su competencia y en las disciplinas complementarias necesarias para el cumplimiento de sus funciones.

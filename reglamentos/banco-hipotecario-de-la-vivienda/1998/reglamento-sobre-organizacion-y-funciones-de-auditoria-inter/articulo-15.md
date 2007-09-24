@@ -1,1 +1,0 @@
-Artículo 15.— La Auditoria Interna elaborará un Plan de Trabajo, el cual deberá ser aprobado por la Junta Directiva , que contemple las auditorias o estudios especiales por ejecutarse en un período determinado, con la finalidad de lograr una mejor utilización de los recursos humanos y materiales de que dispone.
