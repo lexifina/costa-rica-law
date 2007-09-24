@@ -14,3 +14,4 @@ Reforma al decreto ejecutivo que crea la Dirección Jurídica como el órgano as
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-20 | la propia norma |
+| 2 | 2007-09-24 | Decreto Ejecutivo 34113 (2007-09-24) |
