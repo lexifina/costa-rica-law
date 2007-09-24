@@ -1,0 +1,1 @@
+Artículo 6º—Procedimiento para la adquisición de los productos alimenticios: Para la atención de estos gastos, se observará el procedimiento que corresponda de acuerdo al monto de conformidad con lo que establece la Ley de Contratación Administrativa y su Reglamento.

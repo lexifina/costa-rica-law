@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: La presente normativa aplicará para los gastos de alimentación sufragados con fondos públicos en los que se incurra durante la celebración de las jornadas de trabajo, así como sesiones ordinarias y extraordinarias de la Junta Directiva del INA.
