@@ -1,1 +1,2 @@
-Artículo 10.—Agotadas las gestiones Administrativas en la recuperación de las cuentas morosas, la Oficina Encargada entregará a los Abogados para el trámite de Cobro Judicial la documentación necesaria, para que inicie los trámites.
+Artículo 10.—La gestión administrativa en la recuperación de las cuentas morosas, será por parte de la oficina de cobro o en su defecto realizada por Abogados externos para tal fin, el pago por la gestión externa administrativa será basada en la tabla por servicios de cobro administrativo publicada en La Gaceta Nº 242 del 18 de diciembre del 2006, aplicando las modificaciones que sobre dicho acuerdo se realicen.
+(Así reformado mediante sesión N° 073 del 24 de setiembre de 2007)
