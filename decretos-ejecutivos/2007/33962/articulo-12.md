@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 12.—Reglamentación para los órganos con desconcentración máxima. Los órganos con desconcentración máxima adscritos a este Ministerio, a saber el Consejo Técnico de Aviación Civil, el Consejo Nacional de Vialidad, el Consejo Nacional de Concesiones, el Consejo de Seguridad Vial y el Consejo de Transporte Público deberán adoptar, cada uno, en el plazo no mayor a tres meses a partir de la publicación del presente acto, su propia reglamentación, la cual en todo caso deberá seguir los principios, términos, contenidos y procedimientos que por este acto se establecen, sin perjuicio de la inclusión de otros aspectos adicionales propios de la especificidad de sus respectivas competencias.
