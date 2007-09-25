@@ -1,1 +1,0 @@
-Artículo 3°-La unidad de Auditoría Interna es parte integral y vital del sistema de control interno del Incop, la cual tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.

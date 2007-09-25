@@ -1,1 +1,0 @@
-Artículo 27.-En toda intervención o examen de auditoría se hará uso de papeles de trabajo consistentes en cédulas, cuestionarios, diagramas y otros documentos en los cuales quedarán registrados la evidencia (dato. e información) relativa a cada actividad realizada.

@@ -1,1 +1,0 @@
-Artículo 12.-La Auditoría contará con la organización y personal asistencial necesario, el que debe poseer conocimientos básicos y experiencia en el campo de la Auditoría, Contabilidad, Administración, entre otros, además de disposiciones legales que rigen la Administración Pública, que lo califiquen para ejercer en forma apropiada las funciones a él encomendadas.

@@ -1,1 +1,0 @@
-Artículo 30.-La comunicación de los resultados de la auditoría deberá hacerse por escrito, mediante memorando (oficio), informe parcial y/o al finalizar la labor de campo, por medio del informe final, cuando el caso lo amerite.

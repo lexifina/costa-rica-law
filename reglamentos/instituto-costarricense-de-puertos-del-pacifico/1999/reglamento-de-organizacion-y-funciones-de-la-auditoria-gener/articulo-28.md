@@ -1,1 +1,0 @@
-Artículo 28.-EI tipo de pruebas, extensión y alcance de las mismas serán determinadas según el juicio profesional del Auditor o técnicas de muestreo. Dichas pruebas serán aplicadas de conformidad con las atribuciones de la Auditoría y lo que fuere de aplicación de disposiciones de la Contraloría al respecto, según el caso.

@@ -1,2 +1,0 @@
-Artículo 35.-Los hallazgos obtenidos en el transcurso de la auditoría deben ser comentados con los funcionarios responsables, de previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.
-Se exceptúan los casos con carácter reservados o denuncias, en la que sus resultados no deberán discutirse, o cuando la Auditoría es de índole especial y se obtenga información de naturaleza confidencial, en que la discusión podrá ser parcial.

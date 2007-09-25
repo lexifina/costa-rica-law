@@ -1,1 +1,0 @@
-Artículo 10.-La Institución a través del departamento que corresponda, mantendrá programas continuos de entrenamiento técnico y capacidad para el personal de Auditoría Interna, a efecto de lograr un adecuado desarrollo profesional de dichos funcionarios, debiendo destinar anualmente en su presupuesto los recursos necesarios para éste fin, previo coordinación con el Auditor.

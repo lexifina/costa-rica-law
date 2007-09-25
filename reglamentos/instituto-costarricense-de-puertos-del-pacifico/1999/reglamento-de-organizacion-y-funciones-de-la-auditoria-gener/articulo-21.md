@@ -1,5 +1,0 @@
-Artículo 21.-Para el acertado cumplimiento de su objeto, deberes y funciones, la unidad de Auditoría Interna tendrá al menos, las siguientes atribuciones:
-a) Libre acceso en cualquier momento a todos los registros, informes, libros, archivos, valores, documentos y unidades administrativas y operativas de la Institución, así como otras fuentes de información relacionadas con su actividad.
-b) Solicitar a cualquier funcionario o empleado, en la forma, condición y plazo que estime conveniente, libros registros, informes, estados financieros y documentos de cualquier otro tipo, incluso las actas de la Junta Directiva.
-c) Requerir de cualquier funcionario o empleado de cualquier nivel jerárquico de la Institución, la cooperación, la asesoría y las facilidades de toda índole, para el satisfactorio desempeño de su labor.
-d) Cualesquiera otras necesarias para el cumplimiento de sus deberes, de acuerdo con el ordenamiento jurídico, las normas y manuales de control y fiscalización, emitidos por la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 31.-Durante el desarrollo de la auditoría, la unidad de Auditoría Interna prepara y envía a quien corresponda, memorandos y oficios sobre los hechos investigados tendientes a recopilar la información necesaria para realizar su labor, la cual deberá ser atendida por la administración en los plazos y condiciones requeridos por el Auditor o delegado.

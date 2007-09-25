@@ -1,1 +1,0 @@
-Artículo 2°-La labor de la Auditoría Interna es la de evaluar en forma oportuna, independiente y a posterior, las operaciones contables financieras, administrativas y de otra naturaleza de la Institución como base para prestar un servicio constructivo y de protección a la administración.

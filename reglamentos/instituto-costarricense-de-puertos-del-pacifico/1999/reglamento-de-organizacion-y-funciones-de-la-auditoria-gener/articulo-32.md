@@ -1,1 +1,0 @@
-Artículo 32.-En cuanto a los aspectos no cont6mplados en este reglamento, se aplicará principalmente, lo dispuesto sobre el particular en el Manual para el Ejercicio de la Auditoría Interna en las Entidades y Organos Sujetos a la Fiscalización de la Contraloría General de la República.
