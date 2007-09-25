@@ -1,0 +1,1 @@
+Artículo 6º—Las oficinas subregionales del Sistema Nacional de Áreas de Conservación en las cuales el Instituto Costarricense de Electricidad o la Empresa Propietaria de la Red deba acudir a solicitar los permisos correspondientes, agilizarán los trámites con el fin de que el Proyecto SIEPAC entre a operar en el período programado.
