@@ -1,0 +1,1 @@
+Artículo 21.—Los vehículos de atención de emergencias administrados por el Cuerpo de Bomberos, sólo podrán ser conducidos y operados por personal debidamente autorizado y capacitado para ello. Dicho personal debe contar con la licencia vigente que le habilite para el manejo y operación de los mismos.

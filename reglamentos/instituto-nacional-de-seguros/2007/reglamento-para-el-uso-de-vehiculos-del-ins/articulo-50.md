@@ -1,0 +1,1 @@
+Artículo 50.—No podrán los conductores de vehículos del INS intercambiar accesorios entre unidades sin la aprobación de la Unidad de Transportes o la dependencia coadyuvante que administre o tenga asignados los vehículos.

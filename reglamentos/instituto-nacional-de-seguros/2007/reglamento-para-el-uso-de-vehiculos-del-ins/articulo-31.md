@@ -1,0 +1,1 @@
+Artículo 31.—La Sección de Transportes no asignará vehículos en aquellos casos en que existan posibilidades de realizar el viaje utilizando el servicio de transporte remunerado de personas, siempre que ello no perjudique la oportunidad y efectividad del trabajo y su costo sea menor que los costos de operación en que incurriría el INS al brindar el servicio con recursos propios.

@@ -1,0 +1,1 @@
+Artículo 53.—Los conductores autorizados por el INS no podrán dejar estacionados los vehículos institucionales donde se ponga en peligro su seguridad, accesorios o equipos o la seguridad de otras personas o bienes de terceros.

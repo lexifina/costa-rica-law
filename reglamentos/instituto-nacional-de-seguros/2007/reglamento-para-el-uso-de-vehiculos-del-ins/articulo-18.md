@@ -1,0 +1,1 @@
+Artículo 18.—Los vehículos asignados al Cuerpo de Bomberos para la atención de emergencias estarán identificados con el logotipo del Cuerpo de Bomberos a ambos costados y deberán portar placa oficial. Solamente estos vehículos podrán utilizar luces de emergencia rotativas, sirenas y cualquier otro aditamento necesario para facilitar su labor e identificación.

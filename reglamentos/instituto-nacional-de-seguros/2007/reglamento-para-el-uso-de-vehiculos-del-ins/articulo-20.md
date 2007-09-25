@@ -1,0 +1,1 @@
+Artículo 20.—Se llevará un sistema que permita controlar el uso de los vehículos de atención de emergencias en el cual se consignen al menos los datos básicos como son horas de salida e ingreso a su base, kilometrajes de salida y regreso, lugar de la emergencia, y cualquier otro que estime pertinente la Dirección de Bomberos.

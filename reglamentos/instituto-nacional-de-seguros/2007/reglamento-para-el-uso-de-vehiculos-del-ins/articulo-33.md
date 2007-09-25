@@ -1,0 +1,3 @@
+Artículo 33.—La circulación de vehículos del INS de uso administrativo en horas y días fuera del horario normal establecido en el artículo 16, estará restringida estrictamente a la realización de labores no postergables o la atención de emergencias y cualesquiera otra relacionadas con funciones inherentes a la Institución.
+La autorización para la circulación de vehículo de uso administrativo fuera del horario normal, se otorgará conforme con lo establecido en el artículo 16 de este Reglamento.
+Quedan a salvo del cumplimiento de esta norma los casos en que por fuerza mayor el funcionario se vea en la necesidad de circular fuera de tal horario. Si este caso se diera, una vez realizada la diligencia, deberá justificarse por escrito, a la Unidad de Transportes.

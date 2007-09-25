@@ -1,0 +1,1 @@
+Artículo 12.—Se incluyen dentro de la definición anterior los vehículos asignados a unidades o dependencias descentralizadas que así lo requieran. Tales vehículos estarán bajo la responsabilidad de los encargados de dichas oficinas y sujetos a los controles establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 5º—Los vehículos de uso en atención de emergencias son todos aquellos que estén asignados para ese fin específico, al Cuerpo de Bomberos de Costa Rica, a través de la Dirección de Bomberos. Las regulaciones correspondientes a esta clase de vehículos constan en el Capítulo IV del presente Reglamento.

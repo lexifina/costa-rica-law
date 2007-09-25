@@ -1,0 +1,1 @@
+Artículo 40.—Se denegará la autorización para conducir vehículos del INS a aquellos funcionarios que padezcan de enfermedades crónicas u otras que hagan peligrosa la conducción de vehículos, previa valoración médica extendida por el médico de empresa del INS.
