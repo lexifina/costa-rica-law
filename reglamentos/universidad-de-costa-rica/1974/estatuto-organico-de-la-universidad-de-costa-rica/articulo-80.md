@@ -14,3 +14,7 @@ g) Educación: Administración Educativa, Formación Docente, Orientación y Edu
 h)34 Medicina: Enfermería, Medicina, Nutrición, Salud Pública y Tecnologías en Salud35.
 34Modificación aprobada en la Asamblea Colegiada Representativa Nos. 93 del 25 de setiembre de 1995 y publicada en la Gaceta Oficial No. 17 del 24 de enero de 2002.
 35 Inclusión aprobada en Asamblea Colegiada Representativa No. 117 del 30 de agosto de 2004. Publicada en Gaceta Oficial. 215, 03-11-04.
+g) Educación: Administración Educativa, Formación Docente, Orientación y Educación Especial, Bibliotecología y Ciencias de la Información, Educación Física y Deportes.
+h)34 Medicina: Enfermería, Medicina, Nutrición, Salud Pública y Tecnologías en Salud35.
+34Modificación aprobada en la Asamblea Colegiada Representativa Nos. 93 del 25 de setiembre de 1995 y publicada en la Gaceta Oficial No. 17 del 24 de enero de 2002.
+35 Inclusión aprobada en Asamblea Colegiada Representativa No. 117 del 30 de agosto de 2004. Publicada en Gaceta Oficial. 215, 03-11-04.
