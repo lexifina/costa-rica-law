@@ -1,1 +1,0 @@
-Artículo 13.—Toda persona que desee construir, reconstruir o reparar una obra, deberá cumplir todos los requisitos señalados en el presente Reglamento. El incumplimiento de alguna disposición del mismo dará lugar a que la Municipalidad ordene la demolición de lo construido, corriendo los gastos por cuenta del particular que incumplió.

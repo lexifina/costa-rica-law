@@ -1,1 +1,0 @@
-Artículo 4°—Toda construcción, reparación, remodelación, ampliación o demolición de edificaciones que se pretenda hacer dentro de la jurisdicción territorial de la Municipalidad, procederá únicamente en virtud de permiso o autorización extendida por la Corporación.

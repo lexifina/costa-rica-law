@@ -1,1 +1,0 @@
-Artículo 19.—Todo edificio o casa de habitación que se construya o esté construida deberá tener canales o canoas de hierro y los tubos necesarios para recoger las aguas pluviales. Dichas aguas deberán ser descargadas directamente a la vía pública, y su paso por la acera deberá hacerse bajo el pavimento o ladrillo de la misma.

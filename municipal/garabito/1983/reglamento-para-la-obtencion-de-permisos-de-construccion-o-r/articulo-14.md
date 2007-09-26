@@ -1,1 +1,0 @@
-Artículo 14.—Finalizada la construcción, el supervisor de la obra dará su aprobación final y se procederá a enviar la copia del formulario “Solicitud de Permiso de Construcción”, a la Dirección General de la Tributación Directa.
