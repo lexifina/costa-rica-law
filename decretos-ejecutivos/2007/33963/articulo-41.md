@@ -1,0 +1,1 @@
+Artículo 41.—Derógase el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación, Decreto Ejecutivo Nº 31821-MICIT de fecha dieciocho de mayo del año dos mil cuatro, publicado en La Gaceta Nº 112 del nueve de junio de 2004.

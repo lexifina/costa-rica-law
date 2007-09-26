@@ -1,0 +1,1 @@
+Artículo 6º—De las funciones. Para el desarrollo de su misión, el ECA cumplirá con las funciones que la Ley Nº 8279 le asigna, realizará la promoción de organismos acreditados que brindan servicios de evaluación de la conformidad y brindará capacitación en materia de acreditación y evaluación de la conformidad.
