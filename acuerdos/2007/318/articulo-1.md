@@ -1,0 +1,18 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+MODIFICACIÓN AL REGLAMENTO AUTÓNOMO
+DE ORGANIZACIÓN Y SERVICIOS DEL INCOPESCA
+AJDIP/318-2007.—Puntarenas, a los veinticuatro días del mes de agosto del 2007.
+Considerando:
+1º—Que la Junta Directiva del INCOPESCA mediante Acuerdo AJDIP/255-97, publicado en el Diario Oficial La Gaceta N° 224 del 20 de noviembre de 1997, aprobó el Reglamento Autónomo de Organización y Servicios del Instituto Costarricense de Pesca y Acuicultura.
+2º—Que el artículo 29, del acuerdo AJDIP/255-97, establece:
+“Artículo 29.—Cuando las autoridades superiores del Instituto así lo requieran, y se cuente con la previa autorización de la Comisión de Recursos Humanos; los servidores quedan en la obligación de laborar horas extraordinarias, salvo negativa de previo justificada; de acuerdo con lo establecido en las normas generales que rigen para el pago de tiempo extraordinario en las entidades del sector público...”
+3º—Que mediante oficio DSA-150-2007, el señor Jorge López, Jefe Departamento de Servicios Administrativos, presenta recomendación para modificar el artículo 29, del acuerdo AJDIP/255-97.
+Por tanto, se acuerda:
+1º—Modificar el artículo 29 del “Reglamento Autónomo de Organización y Servicios del INCOPESCA”, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 29.—Cuando las autoridades superiores del instituto así lo requieran, los servidores quedan obligados de laborar horas extraordinarias, salvo negativa de previo justificada; de acuerdo con lo establecido en las normas generales que rigen para el reconocimiento de tiempo extraordinario en las entidades del sector público. La jornada ordinaria sumada a la extraordinaria, no deberá exceder de doce horas diarias.
+El tiempo extraordinario, tendrá dos modalidades de cancelación:
+a) En dinero en efectivo: El pago se hará en las planillas ordinarias o extraordinarias, siempre que haya contenido presupuestario. En los casos en que se ejecute labores extraordinarias sin el debido contenido presupuestario, este no podrá ser cancelado y generará responsabilidad para la jefatura que encargó u autorizó el trabajo frente al servidor en el pago del servicio. El dinero cancelado por horas extras será tomado en cuenta para los cálculos de aguinaldo y salario escolar del año correspondiente.
+b) En tiempo compensatorio: Esta modalidad será utilizada en los casos en que el servidor lo solicite o no se cuente con el contenido presupuestario para la cancelación de las horas extraordinarias en efectivo, se recurrirá a la compensación con tiempo libre las horas extras laboradas. Sin embargo la aceptación de laborar horas extras en esta modalidad, debe existir el acuerdo entre las partes, jefatura y funcionario, se reconocerá el máximo de horas extraordinarias establecidas en el artículo 140 del Código de Trabajo.
+Esta modalidad por no reflejarse en el salario, no será incluida en los cálculos de aguinaldo y salario escolar del año correspondiente.
+Excepto situaciones imprevisibles, el superior jerárquico deberá comunicar a los servidores con la debida antelación, la jornada extraordinaria que deben laborar, la cual será remunerada conforme con la ley, siempre y cuando no exista disposición legal en contrario”.
+2º—Rige a partir de su publicación.
