@@ -1,0 +1,1 @@
+Artículo 2º—La Universidad Nacional deberá llevar a cabo dentro de los dos meses siguientes a la entrada en vigencia del presente Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la elaboración de la respectiva escritura pública del inmueble que le fue asignado, de conformidad con la normativa vigente.
