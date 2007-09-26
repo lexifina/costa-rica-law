@@ -1,0 +1,2 @@
+Artículo 10.—Llamadas Internacionales: Únicamente tendrá acceso a llamadas internacionales, tanto entrantes como salientes la línea celular asignada al Director, siempre y cuando sean realizadas para atender asuntos propios del cargo.
+Las demás líneas celulares únicamente tendrán derecho al acceso de llamadas internacionales entrantes, sin que esto genere un costo para el Museo de Arte Costarricense.

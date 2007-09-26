@@ -1,0 +1,2 @@
+Artículo 2º—Objeto: El presente Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares, que el Museo de Arte Costarricense asigne a sus servidores (as), como una forma de facilitar el mejor desempeño de sus funciones, tareas y actividades.
+La asignación y uso de teléfonos celulares se debe sujetar a los principios de racionalidad y, en general a las prácticas de sana administración de los recursos públicos.

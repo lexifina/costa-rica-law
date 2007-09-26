@@ -1,0 +1,2 @@
+Artículo 13.—Control de teléfonos asignados: El Administrador de bienes de la institución deberá llevar un registro actualizado de los teléfonos celulares asignados.
+En ese registro, se consignará el nombre, número de cédula y el cargo del (a) funcionario (a) a quien se le asignó un teléfono celular, número de teléfono, el número de serie, marca, modelo, color, número de patrimonio del bien y sus accesorios, precio del mismo según factura , número de orden de compra y cualquier otro dato necesario para un adecuado control patrimonial del activo.

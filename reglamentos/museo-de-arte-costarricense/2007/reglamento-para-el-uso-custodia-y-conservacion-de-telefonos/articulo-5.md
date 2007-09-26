@@ -1,0 +1,1 @@
+Articulo 5º—Uso exclusivo: el teléfono celular es de uso exclusivo del funcionario (a) a quien se le asigne, para atender y realizar llamadas relacionadas con su gestión, funciones y tareas, propias a su cargo.
