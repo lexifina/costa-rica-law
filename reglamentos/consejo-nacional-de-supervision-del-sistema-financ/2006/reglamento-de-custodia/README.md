@@ -15,3 +15,4 @@ Reglamento de Custodia
 | --- | --- | --- |
 | 1 | 2006-08-15 | la propia norma |
 | 2 | 2007-06-04 | Reglamento 650 (2007-06-04) |
+| 3 | 2007-09-27 | Reglamento 675 (2007-09-27) |

@@ -1,3 +1,3 @@
-Transitorio VI. Participación de CEVAL como entidad adherida al Sistema de Anotación en Cuenta administrado por el Banco Central de Costa Rica.
-Hasta el 30 de setiembre de 2007, la Central de Valores de la Bolsa Nacional de Valores S. A. (CEVAL) puede actuar como entidad adherida al Sistema de Anotación en Cuenta para el registro de valores anotados electrónicamente en cuenta y como, entidad de depósito de valores físicos y de registro de valores representados por medio de macrotítulo que pertenecen a fondos de entidades reguladas por SUPEN.
-(Así reformado mediante sesión N° 650 del 4 de junio de 2007).
+Transitorio VI.—Participación de CEVAL como entidad adherida al Sistema de Anotación en Cuenta, administrado por el Banco Central de Costa Rica.
+Hasta el 31 de octubre del 2007, la Central de Valores de la Bolsa Nacional de Valores S. A. (CEVAL) puede actuar coma entidad adherida al Sistema de Anotación en Cuenta para el registro de valores anotados electrónicamente en cuenta y como, entidad de depósito de valores físicos y de registro de valores representados por medio de macrotítulo que pertenecen a fondos de entidades reguladas por SUPEN.
+(Así reformado mediante sesión N° 675 del 27 de setiembre de 2007).
