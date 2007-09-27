@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad está facultada para cargar en la misma cuenta en la que se cobran los servicios urbanos al munícipe. El costo efectivo de la obra o servicio, por el no ingreso de los montos respectivos en el plazo indicado en el artículo 7 anterior, y la multa respectiva en el artículo 11 de este Reglamento, así como los intereses moratorios correspondientes.
