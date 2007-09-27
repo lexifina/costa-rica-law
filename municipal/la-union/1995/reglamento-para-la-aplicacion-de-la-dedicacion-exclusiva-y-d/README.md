@@ -14,3 +14,4 @@ Reglamento para la Aplicación de la Dedicación Exclusiva y Disponibilidad en l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-24 | la propia norma |
+| 2 | 2007-09-27 | Reglamento municipal 113 (2007-09-27) |
