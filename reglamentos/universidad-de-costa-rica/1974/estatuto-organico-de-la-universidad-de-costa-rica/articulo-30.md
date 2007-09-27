@@ -12,7 +12,8 @@ ii) A los miembros del Tribunal Electoral Universitario, excepción hecha de los
 11Ver Transitorio 14.
 iii) A la Comisión de Régimen Académico.
 iv) A la Directiva de la Junta Administradora del Fondo de Ahorro y Préstamo de la Universidad de Costa Rica.
-g) Actuar como superior jerárquico inmediato de la Oficina de Contraloría.
+g) Actuar como superior jerárquico inmediato de la Oficina de Contraloría Universitaría.
+(Así reformado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
 h) Poner en ejecución las resoluciones del Congreso Universitario que considere pertinentes y comunicarlas a la Asamblea Colegiada Representativa. En cuanto a las que considere que no son viables, procederá de conformidad con lo dispuesto en el artículo 154 de este mismo Estatuto.
 i) Convocar al Congreso Universitario cada diez años, indicando el tema principal. Nombrar y remover a la Comisión Organizadora y su Presidente, excepción hecha de los representantes estudiantiles.
 j) Nombrar los integrantes de las Comisiones Permanentes que se establezcan en su Reglamento, integradas por al menos tres de sus miembros, quienes durarán en sus funciones un año y podrán ser nombrados para períodos sucesivos. 12
@@ -29,3 +30,6 @@ p) Conocer y resolver las apelaciones que sean de su competencia.
 q) Conferir el título de Doctor Honoris Causa, conforme al trámite que señale este Estatuto.
 r) Declarar agotada la vía administrativa en los reclamos contra la Universidad.
 s) Ejercer otras funciones que sean necesarias para la buena marcha de la Institución, siempre y cuando no estén, por este Estatuto, asignadas a otras instancias universitarias.
+t) Velar por la recopilación, la conservación, la actualización y la divulgación de la normativa, los acuerdos y
+los documentos, todo producto de su gestión.
+(Así adicionado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).

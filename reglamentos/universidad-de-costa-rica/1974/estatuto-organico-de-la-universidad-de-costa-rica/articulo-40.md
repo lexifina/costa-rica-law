@@ -10,7 +10,10 @@ f) Canalizar hacia los diversos órganos y autoridades universitarias los asunto
 g) Dilucidar los conflictos de competencia que puedan surgir entre los diversos órganos universitarios.
 h) Hacer los nombramientos no reservados a la Asamblea, Consejo Universitario, otros cuerpos colegiados o al Vicerrector de Docencia.
 h bis) Nombrar y remover a los Vicerrectores, informando de ello al Consejo Universitario.
-i) Aprobar y promulgar los reglamentos que sometan a su consideración las Vicerrectorías y que no sean de competencia del Consejo Universitario.
+i) Actuar como superior jerárquico administrativo inmediato de la Oficina Jurídica y de la Oficina de Planificación Universitaria y de aquellas otras oficinas administrativas que el Consejo Universitario no adscriba específicamente a una Vicerrectoría.
+(Así reformado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
+i bis) Velar por la recopilación, conservación, actualización y divulgación de la normativa específica, las resoluciones y los documentos, todo producto de su gestión.
+(Así adicionado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
 j) Publicar anualmente un informe sobre la marcha de la Universidad de Costa Rica en el que se indicará, entre otras cosas, como se han ejecutado los acuerdos de la Asamblea y del Consejo Universitario.
 k) Presidir la Junta Administradora del Fondo de Ahorro y Préstamo de la Universidad de Costa Rica.
 l) Actuar como superior jerárquico administrativo inmediato de las Oficinas Jurídica y de Planificación y de cualquier otra Oficina Administrativa que el Consejo Universitario no adscriba específicamente a una Vicerrectoría.

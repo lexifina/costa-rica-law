@@ -1,7 +1,8 @@
 ARTÍCULO 228.- Conocerán de las apelaciones:
 a) La Asamblea Universitaria, de las decisiones del Consejo Universitario tomadas en cumplimiento de lo dispuesto en los incisos b), d), h) y ll) del artículo 3066.
 66 Concordancia aprobada en sesión 4774, artículo 06 del 12 de febrero de 2003. Publicada en Gaceta Universitaria 02-2003 del 04 de marzo de 2003.
-b) El Consejo Universitario de las decisiones tomadas por el Rector, por los Vicerrectores, por la Comisión de Régimen Académico, por el Consejo del Sistema de Educación General, por el Consejo del Sistema de Estudios de Posgrado, por el Consejo Asesor de la Vicerrectoría de Investigación y por la Oficina de Contraloría.
+b) El Consejo Universitario de las decisiones tomadas por el Rector o la Rectora, por los Vicerrectores o las Vicerrectoras, por la Comisión de Régimen Académico, por el Consejo del Sistema de Educación General, por el Consejo del Sistema de Estudios de Posgrado, por el Consejo Asesor de la Vicerrectoría de Investigación y por la Oficina de Contraloría Universitaría.
+(Así reformado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
 c) El Rector, de las decisiones tomadas por los Jefes de las Oficinas Administrativas que de él dependan.
 ch) (Eliminado)67
 67Este inciso fue suprimido por acuerdo de la Asamblea Colegiada Representativa No. 23 del 25 de octubre de 1982.

@@ -1,2 +1,2 @@
-ARTÍCULO 158.- Los Jefes de las Oficinas Administrativas dependen directamente del respectivo Vicerrector, excepto el de la Oficina de Contraloría, que depende directamente del Consejo Universitario y los de las Oficinas de Asuntos Internacionales y Jurídica que dependen del Rector62.
-62 Modificación aprobada en la Asamblea Colegiada Representativa No. 81 del 7 de octubre de 1993 y publicada en la Gaceta Oficial No. 122 del 27 de junio de 1994.
+ARTÍCULO 158.- Las personas que ocupan las jefaturas de las Oficinas Administrativas adscritas a la Rectoría o a una Vicerrectoría dependen respectivamente del Rector o de la Rectora, o del Vicerrector o de la Vicerrectora correspondiente. El Contralor Universitario o Contralora Universitaría depende directamente del Consejo Universitariio62.
+62 Modificación aprobada en la Asamblea Colegiada Representativa No. 127 del 27 de setiembre de 2007 y publicada en la Gaceta Oficial No. 240 del 13 de diciembre de 2007.
