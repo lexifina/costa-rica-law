@@ -1,0 +1,1 @@
+Artículo 2º—Es responsabilidad de la administración activa del Instituto Costarricense de Turismo, el cumplimiento del Decreto Ejecutivo Nº 32452-H, publicado en La Gaceta Nº 130 del 6 de julio del 2005, así como lo dispuesto en el artículo 6º de la Ley Nº 8131 y sus reformas, publicada en La Gaceta Nº 198 del 16 de octubre del 2001.
