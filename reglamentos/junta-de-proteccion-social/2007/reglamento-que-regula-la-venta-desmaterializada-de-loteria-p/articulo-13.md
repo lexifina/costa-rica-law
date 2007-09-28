@@ -1,0 +1,2 @@
+Artículo 13.—Término para reclamos. En caso de que exista disconformidad por parte de algún jugador sobre la procedencia del pago de un premio o sobre el monto que se haya pagado, podrá presentar el reclamo ante el canal de distribución autorizado por la Junta donde adquirió su derecho de participación.
+La fecha límite para la presentación de estos reclamos es el término de caducidad del respectivo sorteo. Se atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de un mes posterior al recibo de la solicitud firmada por el reclamante.

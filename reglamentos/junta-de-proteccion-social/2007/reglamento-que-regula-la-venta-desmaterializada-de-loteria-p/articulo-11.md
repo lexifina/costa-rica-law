@@ -1,0 +1,1 @@
+Artículo 11.—Validación de compras. Para participar en el respectivo sorteo, cada compra de lotería debe estar válidamente registrada en el sistema automatizado de la Junta. Para efectos de control, cada compra registrada tendrá asignado un número de autorización y comprobante que la identifica dentro del sistema de la Junta.

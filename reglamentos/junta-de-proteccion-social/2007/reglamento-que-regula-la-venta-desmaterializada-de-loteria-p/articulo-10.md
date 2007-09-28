@@ -1,0 +1,1 @@
+Artículo 10.—Tiempo límite para la venta. La venta desmaterializada de la lotería preimpresa se inicia a partir del momento en que la Junta lo defina en el sistema automatizado y finaliza treinta minutos antes de la realización del sorteo respectivo.

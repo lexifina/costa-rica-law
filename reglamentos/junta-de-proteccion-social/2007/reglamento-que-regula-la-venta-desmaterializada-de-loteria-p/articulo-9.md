@@ -1,0 +1,2 @@
+Artículo 9º—Del Fondo Acumulado. Del total de los ingresos recibidos por concepto de ventas se tomará el porcentaje correspondiente al pago de premios. Si el monto de las apuestas ganadoras es menor al porcentaje presupuestado, la diferencia entre el porcentaje de premio presupuestado y el monto de las apuestas ganadoras se trasladará a un fondo acumulado.
+El fondo acumulado será utilizado cuando el monto de las compras ganadoras de otros sorteos supere el porcentaje presupuestado.

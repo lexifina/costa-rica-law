@@ -1,0 +1,2 @@
+Artículo 3º—Designación de canales autorizados. Previo cumplimiento de los requisitos previstos en la Ley de Loterías Nº 7395, su Reglamento y cualquier otra normativa atinente, la Junta Directiva autorizará los canales de distribución y venta desmaterializada de la lotería preimpresa.
+El convenio que se firme con el Canal autorizado para la venta desmaterializada de lotería preimpresa, no implica compromiso de la Junta para asignarle un mínimo o un máximo de cuota, ya que su fijación estará directamente relacionada con el histórico de ventas del canal.

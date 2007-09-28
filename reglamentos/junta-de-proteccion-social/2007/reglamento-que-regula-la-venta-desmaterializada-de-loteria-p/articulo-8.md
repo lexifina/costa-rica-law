@@ -1,0 +1,1 @@
+Artículo 8º—Del premio obtenido. El premio obtenido será la cantidad de dinero aprobada por la Junta para el plan de premios del sorteo específico y de la modalidad de lotería adquirida por el ganador.

@@ -1,0 +1,1 @@
+Artículo 4º—Comisiones. La Junta Directiva, de acuerdo con la recomendación técnica, determinará el porcentaje de comisión que se reconocerá a los canales autorizados. Esta comisión no podrá ser superior al 12%.
