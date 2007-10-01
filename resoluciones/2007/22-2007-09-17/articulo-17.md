@@ -1,0 +1,1 @@
+Artículo 17.—Divulgación. El Registro Especial de emisores receptores de facturación electrónica estará disponible y se podrá consultar en el sitio Web del Ministerio de Hacienda o en forma telefónica en la Administración Tributaria correspondiente.

@@ -1,0 +1,1 @@
+Artículo 9º—Controles y registros. Los sistemas de facturación electrónica deben disponer de controles, registros y bitácoras de cada transacción registrada, para llevar a cabo las labores de control tributario integral.
