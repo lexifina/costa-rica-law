@@ -14,3 +14,4 @@ Reglamento sobre Procedimiento de Registro de Temperatura de Productos Hidrobiol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-01 | la propia norma |
+| 2 | 2007-10-01 | Acuerdo 296 (2007-08-03) |
