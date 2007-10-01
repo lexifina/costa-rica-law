@@ -1,0 +1,1 @@
+Artículo 5º—El proceso de capacitación y en conjunto con los Directores y Jefes Regionales del INCOPESCA, tendrán la responsabilidad de realizar el proceso de capacitación sobre la implementación del presente reglamento o procedimiento en un período no menor a nueve meses a partir de su publicación.

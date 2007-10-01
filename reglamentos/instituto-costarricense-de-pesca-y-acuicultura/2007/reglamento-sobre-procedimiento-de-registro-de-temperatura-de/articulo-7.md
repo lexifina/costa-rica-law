@@ -1,0 +1,1 @@
+Artículo 7º—Los, barcos de bandera extranjera que deseen descargar productos pesqueros en el país deberán cumplir con el presente reglamento de manera obligatoria, a partir de la entrada en vigencia del mismo.
