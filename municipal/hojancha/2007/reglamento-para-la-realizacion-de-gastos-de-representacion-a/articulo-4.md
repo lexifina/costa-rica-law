@@ -1,0 +1,1 @@
+Artículo 4º—De las variaciones por medio de documentos extraordinarios de presupuesto. En el transcurso del ejercicio económico, el Alcalde Municipal podrá realizar, por la vía de presupuesto extraordinario, modificación externa o interna, los incrementos o decrementos al presupuesto disponible en esta partida que estime necesario, debiendo justificar el movimiento por realizar.

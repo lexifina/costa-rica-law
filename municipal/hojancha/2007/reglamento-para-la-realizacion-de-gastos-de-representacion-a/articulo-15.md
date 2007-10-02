@@ -1,0 +1,1 @@
+Artículo 15.—Alquiler de bienes y servicios. Podrán cubrirse gastos por alquiler de: instalaciones, equipos, mobiliario, audio, vídeo o cualquier otro tipo similar, así como cristalería, servicios de catering, toldos, plantas de energía y cualquier otro necesario para la adecuada realización de la actividad respectiva.

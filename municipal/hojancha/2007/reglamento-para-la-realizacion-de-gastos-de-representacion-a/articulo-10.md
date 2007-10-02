@@ -1,0 +1,1 @@
+Artículo 10.—Del tipo de gastos a cubrir. Los gastos que el Alcalde o persona autorizada por éste o el Concejo Municipal, podrán realizar con cargo a esta partida serán: alimentación y bebidas (sin alcohol), ya sea como servicio o como insumos para su preparación, incluyendo artículos tales como: vasos, platos y cucharas desechables, servilletas, alimentos y otros similares.

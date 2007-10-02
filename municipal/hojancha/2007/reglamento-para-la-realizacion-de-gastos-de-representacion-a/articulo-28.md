@@ -1,0 +1,2 @@
+Artículo 28.—Sanciones. El incumplimiento de los deberes establecidos en esta sección de este Reglamento será sancionado de conformidad con el Reglamento de Trabajo vigente en la Municipalidad como una falta grave la primera vez y como una falta gravísima en caso de cometerse por segunda vez.
+Lo anterior sin perjuicio de la responsabilidad civil y/o penal que pudiere recaer contra el accionado.

@@ -1,0 +1,1 @@
+Artículo 5º—De la clasificación de la partida. Los recursos serán presupuestados en las partidas denominadas “Gastos de Representación Institucional” y “Actividades Protocolarias y Sociales”, según corresponda en cada caso y de acuerdo al clasificador de cuentas que rige para el sector público.

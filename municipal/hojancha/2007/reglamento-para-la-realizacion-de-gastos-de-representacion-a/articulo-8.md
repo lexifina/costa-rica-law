@@ -1,0 +1,1 @@
+Artículo 8º—De la documentación para el adelanto. Todo adelanto deberá quedar debidamente documentado y para el efecto, la Tesorería Municipal, con la autorización del Alcalde deberá implementar los formularios necesarios.
