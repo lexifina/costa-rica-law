@@ -14,3 +14,4 @@ Publica Resolución 169-2006(COMIECO-XLIX): Aprueba Reglamentos Técnicos Centro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-28 | la propia norma |
+| 2 | 2007-10-02 | Decreto Ejecutivo 34123 (2007-10-02) |

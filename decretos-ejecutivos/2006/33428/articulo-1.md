@@ -46,11 +46,11 @@ Especificaciones
 CORRESPONDENCIA: Este reglamento es una adaptación de las especificaciones que aparecen en la norma ASTM D 4814-01ª (Clase B).
 ICS 75.160.20 RTCA 75.01.19:06
 Reglamento Técnico Centroamericano, editado por:
-· Ministerio de Economía, MINECO
-· Consejo Nacional de Ciencia y Tecnología, CONACYT
-· Ministerio de Fomento, Industria y Comercio, MIFIC
-· Secretaría de Industria y Comercio, SIC
-· Ministerio de Economía, Industria y Comercio, MEIC
+Ministerio de Economía, MINECO
+Consejo Nacional de Ciencia y Tecnología, CONACYT
+Ministerio de Fomento, Industria y Comercio, MIFIC
+Secretaría de Industria y Comercio, SIC
+Ministerio de Economía, Industria y Comercio, MEIC
 INFORME
 Los respectivos Comités Técnicos de Normalización o Reglamentación Técnica a través de los Entes de Normalización o Reglamentación Técnica de los Países de la Región Centroamericana y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
 Este documento fue aprobado como Reglamento Técnico Centroamericano, RTCA 75.01.19:06, Productos de Petróleo. Gasolina Regular. Especificaciones, por el Subgrupo de Medidas de Normalización y el Subgrupo de Hidrocarburos. La oficialización de este reglamento técnico, conlleva la aprobación por el Consejo de Ministros de Integración Económica.
@@ -134,9 +134,9 @@ Contenido de Benceno | % volumen | D-3606 | Reportar (d)
 Oxígeno | % volumen | D-4815 | Reportar (d)
 .
 (a) La información que se deberá presentar para cada aditivo que se agregó a este producto es la siguiente:
-· Hoja de Datos de Seguridad del Material (“Material Safety Data Sheet”)
-· Proporción agregada del aditivo (mezcla)
-· Propiedad del producto que el aditivo genera o mejora en el mismo, ejemplo: antiespumante, antioxidante, detergente, etc. Si se mantiene la fuente de suministro, la información se deberá proporcionar únicamente una vez, pero deberá informar al Ente Nacional Competente, cada vez que éste cambia de aditivo y también cuando se cambia de la fuente de suministro.
+Hoja de Datos de Seguridad del Material (“Material Safety Data Sheet”)
+Proporción agregada del aditivo (mezcla)
+Propiedad del producto que el aditivo genera o mejora en el mismo, ejemplo: antiespumante, antioxidante, detergente, etc. Si se mantiene la fuente de suministro, la información se deberá proporcionar únicamente una vez, pero deberá informar al Ente Nacional Competente, cada vez que éste cambia de aditivo y también cuando se cambia de la fuente de suministro.
 (b) El valor máximo del fósforo es de 0,0013 g P/L (0,005 g P/gal) tal como lo establece el método ASTM D 4814 Numeral X 3.2.1 de los apéndices.
 (c) El análisis del Índice de octano se realizará al menos una vez cada 3 (tres) meses.
 (d) Reportar indicando el resultado obtenido de acuerdo al método, por un período de un año y evaluar en los siguientes tres meses, con el propósito de definir si se mantiene reportar o se define un valor numérico. Nota 1: Los métodos ASTM indicados son los aprobados como métodos árbitros. Otros métodos aceptables se indican en el numeral 8. Nota 2: Para los casos de Reportar deberá indicarse el resultado obtenido de acuerdo al método.
@@ -169,9 +169,17 @@ ASTM D-4057: “Standard Practice for Manual Sampling of Petroleum and Petroleum
 8.23 ASTM D-4952: “Standard Test Method for Qualitative Analysis for Active Sulfur Species in Fuels and Solvents (Doctor Test). Método de Prueba Estándar para Análisis Cualitativo de Especies Activas de Azufre en Combustibles y Solventes (Prueba Doctor).
 8.24 ASTM D-4953: “Standard Test Method for Vapor Pressure of Gasoline and Gasoline-Oxygenate Blends (Dry Method). Método de Prueba Estándar para Presión de Vapor en Gasolina y Mezclas de Gasolina Oxigenada (Método Seco).
 8.25 ASTM D-5059: “Standard Test Method for Lead in Gasoline by X-Ray Spectroscopy”. Métodos de Prueba Estándar para Plomo en Gasolina por Espectroscopia de Rayos X.
+8.25 bis ASTM D-5191: “Standard Test Method for Vapor Pressure of Petroleum Products (Mini Method)”. Método de Prueba Estándar para Presión de Vapor de Productos de Petróleo (Mini Método).
+(Así adicionado el numeral anterior por Resolución N° 199-2007 (COMIECO-XLIV), la cual fue aprobada por decreto ejecutivo N° 34123 del 2 de octubre de 2007)
+ASTM D-5191: “Standard Test Method for Vapor Pressure of Petroleum Products (Mini Method)”. Método de Prueba Estándar para Presión de Vapor de Productos de Petróleo (Mini Método)
+(Así adicionado el párrafo anterior por Resolución N° 199-2007 (COMIECO-XLIV), la cual fue aprobada por decreto ejecutivo N° 34123 del 2 de octubre de 2007)
 8.26 ASTM D-5453: “Standard Test Method for Determination of Total Sulfur in Light Hydrocarbons, Motor Fuels and Oils by Ultraviolet Fluorescence”. Método de Prueba Estándar para Determinación de Azufre Total en Hidrocarburos Livianos, Combustibles de Motor y Aceites por Fluorescencia Ultravioleta.
 8.27 ASTM D 5580: “Standard Test Method for Determination of Benzene, Toluene, Ethylbenzene, p/m-Xylene, o-Xylene, C9 and Heavier Aromatics, and Total Aromatics in Finished Gasoline by Gas Chromatography”. Método de Prueba Estándar para la Determinación de Benceno, Tolueno, Ethylbenceno, p/o-Xileno, o-Xileno, C9 y Aromáticos más Pesados, y Aromáticos Totales en Gasolina Terminada por Cromatografía de Gas.
+ASTM D-6378: “Standard Test Method for Determination of Vapor Pressure (VPx) of Petroleum Products, Hydrocarbons, and Hydrocarbon-Oxygenate Mixtures (Triple Expansion Method)”. Método de Prueba Estándar para la Determinación de Presión de Vapor (VPx) de Productos de Petróleo, Hidrocarburos, y Mezclas Hidrocarburo-Oxigenado (Método de Triple Expansión).
+(Así adicionada la referencia anterior por Resolución N° 199-2007 (COMIECO-XLIV), la cual fue aprobada por decreto ejecutivo N° 34123 del 2 de octubre de 2007)
 8.28 ASTM D 5845 “Standard Test Method for Determination of MTBE, ETBE, TAME, DIPE, Methanol, Ethanol and Tert-Butanol in Gasoline by Infrared Spectroscopy” Método de Prueba Estándar para la Determinación de MTBE, ETBE, TAME, DIPE, Metanol, Etanol y Ter-Butanol en Gasolina por Espectroscopía Infrarroja.
+8.29 ASTM D-6378: “Standard Test Method for Determination of Vapor Pressure (VPx) of Petroleum Products, Hydrocarbons, and Hydrocarbon-Oxygenate Mixtures (Triple Expansion Method)”. Método de Prueba Estándar para la Determinación de Presión de Vapor (VPx) de Productos de Petróleo, Hidrocarburos, y Mezclas Hidrocarburo-Oxigenado (Método de Triple Expansión).
+(Así adicionado el numeral anterior por Resolución N° 199-2007 (COMIECO-XLIV), la cual fue aprobada por decreto ejecutivo N° 34123 del 2 de octubre de 2007)
 9º—Actualización y revisión del reglamento. Este Reglamento Técnico será revisado y actualizado al año contado a partir de su entrada en vigencia y posteriormente cada dos (2) años salvo que, a solicitud debidamente justificada de un (1) país, se requiera la revisión y actualización antes del periodo señalado.
 10.—Vigilancia y verificación. Corresponde la vigilancia y verificación de la aplicación y cumplimiento del presente Reglamento Técnico Centroamericano a la Dirección General de Hidrocarburos del Ministerio de Energía y Minas de Guatemala; a la Dirección de Hidrocarburos y Minas del Ministerio de Economía de El Salvador; a la Unidad Técnica del Petróleo de la Secretaría de Industria y Comercio de Honduras; a la Dirección General de Hidrocarburos del Instituto Nicaragüense de Energía de Nicaragua y, a la Dirección General de Transporte y Comercialización de Combustibles del MINAE de Costa Rica, o sus sucesores o entidades que en el futuro se les asigne específicamente estas funciones.
 11.—Normas que deben consultarse. Para la elaboración de este reglamento se consultó la siguiente norma ASTM:
@@ -186,11 +194,11 @@ Especificaciones
 CORRESPONDENCIA: Este reglamento es una adaptación de la Norma Chilena NCh 1856. Of 1985.
 ICS 23.060 RTCA 23.01.23:06
 Reglamento Técnico Centroamericano, editado por:
-· Ministerio de Economía, MINECO
-· Consejo Nacional de Ciencia y Tecnología, CONACYT
-· Ministerio de Fomento, Industria y Comercio, MIFIC
-· Secretaría de Industria y Comercio, SIC
-· Ministerio de Economía, Industria y Comercio, MEIC
+Ministerio de Economía, MINECO
+Consejo Nacional de Ciencia y Tecnología, CONACYT
+Ministerio de Fomento, Industria y Comercio, MIFIC
+Secretaría de Industria y Comercio, SIC
+Ministerio de Economía, Industria y Comercio, MEIC
 INFORME
 Los respectivos Comités Técnicos de Normalización o Reglamentación Técnica a través de los Entes de Normalización o Reglamentación Técnica de los Países de la Región Centroamericana y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno. Este documento fue aprobado como Reglamento Técnico Centroamericano, RTCA 23.01.23:06, Recipientes a Presión. Cilindros Portátiles para Contener GLP. Sello de Inviolabilidad (Marchamo). Especificaciones, por el Subgrupo de Medidas de Normalización y el Subgrupo de Hidrocarburos. La oficialización de este reglamento técnico, conlleva la aprobación por el Consejo de Ministros de Integración Económica.
 MIEMBROS PARTICIPANTES DEL SUBGRUPO DE HIDROCARBUROS
@@ -261,11 +269,11 @@ Especificaciones de seguridad.
 CORRESPONDENCIA: Este reglamento técnico es una adaptación de las especificaciones que aparecen en la Norma Oficial Mexicana NOM-010-SEDG-2000.
 ICS 23.020 RTCA 23.01.24:06
 Reglamento Técnico Centroamericano, editado por:
-· Ministerio de Economía, MINECO
-· Consejo Nacional de Ciencia y Tecnología, CONACYT
-· Ministerio de Fomento, Industria y Comercio, MIFIC
-· Secretaría de Industria y Comercio, SIC
-· Ministerio de Economía, Industria y Comercio, MEIC
+Ministerio de Economía, MINECO
+Consejo Nacional de Ciencia y Tecnología, CONACYT
+Ministerio de Fomento, Industria y Comercio, MIFIC
+Secretaría de Industria y Comercio, SIC
+Ministerio de Economía, Industria y Comercio, MEIC
 _
 INFORME
 Los respectivos Comités Técnicos de Normalización o Reglamentación Técnica a través de los Entes de Normalización o Reglamentación Técnica de los Países de la Región Centroamericana y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
@@ -296,8 +304,8 @@ Ministerio de Ambiente y Energía
 4.5 lb: libra (s).
 4.6 m: Metro (s)
 5º—Clasificación. Para propósitos de este Reglamento Técnico se utiliza la siguiente clasificación:
-· Clase 1: Vehículos con capacidad de hasta una (1) tonelada métrica.
-· Clase 2: Vehículos con capacidad de más de una (1) tonelada métrica. 6º—Revisión documental
+Clase 1: Vehículos con capacidad de hasta una (1) tonelada métrica.
+Clase 2: Vehículos con capacidad de más de una (1) tonelada métrica. 6º—Revisión documental
 6.1 El titular del permiso de transporte de cilindros de GLP concedido por el Ente Nacional competente debe mantener actualizados los siguientes documentos:
 a. Tarjeta de circulación vigente del vehículo.
 b. Autorización o permiso emitido por el Ente Nacional Competente para el transporte del producto.
