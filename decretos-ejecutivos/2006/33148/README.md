@@ -14,3 +14,4 @@ Debe Incorporar el Componente de Seguridad Vial en todas las Labores de Planific
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2007-10-02 | Decreto Ejecutivo 34088 (2007-10-02) |
