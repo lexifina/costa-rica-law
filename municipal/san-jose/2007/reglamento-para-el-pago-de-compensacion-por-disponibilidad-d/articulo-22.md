@@ -1,1 +1,2 @@
-Artículo 22.—Vigencia: El presente reglamento sólo será aplicable a los servidores municipales nombrados en propiedad. Y en cumplimiento del Artículo 43, del Código Municipal, entrará en vigencia a los cinco días de su publicación en La Gaceta.
+Artículo 22.—Vigencia: El presente Reglamento será aplicable a los servidores municipales nombrados en propiedad, así como a los contratados en condición de interinos (sustitutos temporales de personal permanente), o bajo la modalidad de sueldos por servicios especiales, siempre y cuando esa contratación no sea menor de 1 mes calendario.
+(Así reformado mediante sesión N° 75 del 02 de octubre de 2007)

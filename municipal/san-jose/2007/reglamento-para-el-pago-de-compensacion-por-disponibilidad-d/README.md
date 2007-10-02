@@ -14,3 +14,4 @@ Reglamento para el Pago de Compensación por Disponibilidad, Dedicación Exclusi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-30 | la propia norma |
+| 2 | 2007-10-02 | Reglamento municipal 75 (2007-10-02) |
