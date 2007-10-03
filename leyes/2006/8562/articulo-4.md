@@ -33,3 +33,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 33795 del 22 de mayo de 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33869 del 06 de julio del 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33864 del 12 de julio del 2007).
+(Modificado por el artículo 1° del decreto ejecutivo N° 33979 del 18 de setiembre de 2007)
