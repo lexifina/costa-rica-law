@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese el artículo 04 bis del Reglamento de Becas de la Dirección General de Migración y Extranjería, Decreto Ejecutivo número 18488-G, que en adelante se leerá de la siguiente manera:
+Artículo 4º bis.—La cancelación de los montos acordados por la Comisión de Becas, podrá pagarse en forma directa al funcionario, o bien, al centro de estudios, donde el interesado cursa la carrera o el evento formativo, a través de la forma usual de pago de la Institución o el organismo auspiciador para tal efecto.
