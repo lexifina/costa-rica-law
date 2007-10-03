@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad de Santa Ana, cédula de persona jurídica número tres-cero uno cuatro-cero cuatro dos cero cinco nueve (Nº 3-014-042059), para que done a la Junta Administrativa del Colegio Técnico Profesional de Santa Ana, cédula de persona jurídica número trescero cero ocho-tres siete seis ocho seis dos (Nº 3-008-376862), el bien inmueble individualizado en el artículo 1º de esta Ley, el cual se destinará a la construcción de las instalaciones de dicho Colegio.
