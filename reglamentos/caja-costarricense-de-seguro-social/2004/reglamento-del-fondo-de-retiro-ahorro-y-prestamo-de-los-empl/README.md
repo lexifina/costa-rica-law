@@ -14,3 +14,4 @@ Reglamento del Fondo de Retiro Ahorro y Préstamo de los Empleados de la Caja Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-10 | la propia norma |
+| 2 | 2007-10-04 | Reglamento 8190 (2007-10-04) |
