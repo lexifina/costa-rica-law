@@ -1,1 +1,0 @@
-Artículo 9º—Naturaleza de la actividad de capacitación. Los contenidos del Plan Anual de Capacitación y formación de los Recursos Humanos asignados al ICODER deberán estar estrechamente relacionados con las necesidades institucionales y las situaciones que los servidores enfrenten en el servicio que prestan en la Institución.

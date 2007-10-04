@@ -1,1 +1,0 @@
-Artículo 14.—Corresponderá a la secretaría preparar las convocatorias, tramitar los acuerdos tomados por las Comisión y llevar el libro de actas que será legalizado por la Auditoria Interna del ICODER. La secretaria ejercerá el cargo por el plazo señalado, salvo que la Comisión por mayoría simple lo releve de su cargo o renuncie al mismo.
