@@ -11,4 +11,4 @@ Considerando:
 6º—Que mediante publicación del Consejo de Inscripción de Medicamentos en La Gaceta Nº 107 del 5 de junio del 2002, se estableció un listado de los principios activos que deberían demostrar su bioequivalencia.
 7º—Que dicho listado no contiene los productos de referencia y que por lo tanto no es factible realizar los estudios correspondientes. Por tanto,
 DECRETAN;
-Artículo 1º—Deróguese el Transitorio I del Decreto Ejecutivo Nº 28466-S, Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos.
+Artículo 1º—(Así derogado por el artículo 1° del decreto ejecutivo N° 34189 del 04 de octubre de 2007).

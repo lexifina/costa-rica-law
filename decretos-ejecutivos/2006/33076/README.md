@@ -14,3 +14,4 @@ Deroga Transitorio I del Reglamento de Inscripción, Control, Importación y Pub
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-12 | la propia norma |
+| 2 | 2007-10-04 | Decreto Ejecutivo 34189 (2007-10-04) |
