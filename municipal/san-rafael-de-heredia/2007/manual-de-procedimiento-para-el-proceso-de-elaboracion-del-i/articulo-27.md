@@ -1,0 +1,1 @@
+Artículo 27.—Una vez conocidos los resultados económicos del período y recibidos los datos que reflejó el sistema de información, se llevará a cabo una amplia explicación y comentarios sobre el grado de cumplimiento de las metas fijadas para el período respectivo, en la tercera semana hábil de enero. Oficina responsable: señor Alcalde Municipal y Departamento Financiero Contable.

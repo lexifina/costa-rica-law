@@ -1,0 +1,1 @@
+Artículo 19.—Una vez realizados todos los registros de ingresos y gastos correspondientes al período, se llevará a cabo el proceso de conciliación en el Sistema de Contabilidad y en Sistema de Presupuesto. Esto se hará en la segunda semana de enero. Oficina responsable: Departamento Financiero Contable.

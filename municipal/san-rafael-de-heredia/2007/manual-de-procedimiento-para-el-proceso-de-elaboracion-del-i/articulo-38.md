@@ -1,0 +1,1 @@
+Artículo 38.—De los conflictos entre normas: En caso de conflictos de lo dispuesto en este Manual de Procedimientos con lo establecido por la Legislación Vinculante, se aplicará lo que determine la legislación o normativa vigente superior de la Contraloría General de la República u Órgano Superior de Fiscalización.

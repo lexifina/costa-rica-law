@@ -1,0 +1,2 @@
+Del detalle de identidades beneficiadas con Transferencia Corrientes del ejercicio.
+Artículo 26.—De acuerdo a los resultados del ejercicio, en la segunda semana hábil de enero, se debe preparar un detalle de las instituciones o identidades beneficiadas con transferencias del ejercicio: Juntas de Educación, Persona Joven, Comité Cantonal de Deportes y Recreación. Oficina responsable. Departamento Financiero Contable. De la evaluación y comentarios sobre el grado de cumplimiento y logros alcanzados en relación con los objetivos y metas definidas para el período.

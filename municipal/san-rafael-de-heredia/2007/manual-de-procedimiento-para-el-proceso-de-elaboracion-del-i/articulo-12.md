@@ -1,0 +1,1 @@
+Artículo 12.—Cualquier ingreso que se reciba deberá reflejarse, aunque no haya sido presupuestado, y clasificarlo de acuerdo con el clasificador oficial de ingresos del Sector Público. Se debe evidenciar documentalmente su fuente de origen y su justificación.

@@ -1,0 +1,1 @@
+Artículo 15.—Mediante el análisis del comportamiento de los ingresos y egresos consolidados se deberá preparar un detalle del superávit o déficit de acuerdo a los resultados del período e indicando la condición del superávit libre o específico.

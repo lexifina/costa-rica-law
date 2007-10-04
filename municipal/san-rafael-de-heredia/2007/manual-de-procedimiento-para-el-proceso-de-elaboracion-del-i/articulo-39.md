@@ -1,0 +1,1 @@
+Artículo 39.—De las modificaciones a los procedimientos: En caso de cambios en la normativa vinculante o por la existencia de nuevas técnicas o tecnología, que redunde en forma más eficiente de lograr los objetivos planteados se deberán tomar las medidas necesarias para la actualización de este Manual, conforme al procedimiento seguido para su aprobación.

@@ -1,0 +1,1 @@
+Artículo 23.—Se debe preparar un detalle del superávit o déficit de acuerdo a los resultados e indicando la condición del superávit libre y específico. Esto se realizará en la segunda semana de enero. Oficina responsable: Departamento Financiero Contable.

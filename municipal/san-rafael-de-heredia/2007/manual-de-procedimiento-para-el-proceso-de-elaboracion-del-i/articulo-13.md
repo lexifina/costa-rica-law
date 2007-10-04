@@ -1,0 +1,1 @@
+Artículo 13.—La liquidación correspondiente a los egresos deberá ser presentada al mismo nivel de la estructura programática (programa, subprograma, partida, subpartida según corresponde) y de acuerdo con la clasificación de ingresos y gastos aprobada por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 37.—En todo lo no previsto en el presente manual, respecto al régimen sancionatorio, se aplicará lo dispuesto en el Título X “Régimen de Responsabilidad” Ley de la Administración Financiera de la República y Presupuestos Públicos.

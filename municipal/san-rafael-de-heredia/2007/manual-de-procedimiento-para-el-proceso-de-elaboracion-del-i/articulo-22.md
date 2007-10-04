@@ -1,0 +1,2 @@
+De los egresos.
+Artículo 22.—Los Egresos Presupuestarios del Período Económico anterior se registrarán conforme a lo que corresponde a ejecución, de acuerdo a los procedimientos del Departamento de Contabilidad y Tesorería Municipal. De acuerdo a la estructura presupuestaria y los resultados del ejercicio. La presentación de los informes se realizará a más tardar el 15 de enero del año siguiente al del estudio, previa revisión por la unidad competente de previo a su entrega final. Oficina responsable: Departamento Financiero Contable y Departamento de Tesorería.
