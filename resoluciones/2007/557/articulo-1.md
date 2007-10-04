@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-557-2007.—Dirección General de Aduanas.—San José, a las trece horas del catorce de setiembre del dos mil siete.
+Resultando:
+I.—Que mediante resolución RES-DGA-968-2006 del veintidós de diciembre del 2006, esta Dirección General de Aduanas, en ejercicio de sus competencias y facultades, dispuso:
+“…I. Las exportaciones y los tránsitos internacionales con destino Centroamérica, deberán tramitarse en la aduana de partida, a efecto de que en la Aduana de Peñas Blancas solo se verifique la documentación que ampara la exportación, contribuyendo así a que esta sea utilizada únicamente para el paso de frontera, fomentando así la agilización.
+II. Las importaciones y tránsitos que vienen hacia Costa Rica, deberán tramitarse en forma anticipada, en caso contrario, contarán con tres horas para realizar los trámites.
+III. A partir del vencimiento de la tercera hora de la oficialización del manifiesto de carga, la estadía en las instalaciones aduaneras generarán un costo a cargo del usuario, que deberá pagar por medio de entero en el Banco.
+IV. El costo por permanecer en los patios de las Aduanas se fijará conforme a la tarifa más alta, fijada por el Poder Ejecutivo, para el depósito de mercancías en bodegas de administración portuaria, que de acuerdo a la tarifa vigente corresponde a $ 0.05 por tonelada métrica por día y 0.33 % por día sobre el valor CIF de la mercancía. Para los medios de transporte que ingresen vacíos el costo será de $12.5 por día.
+V. El pago deberá realizarse de previo a la autorización del levante, debiendo presentar la copia del entero ante la Aduana para la conclusión del trámite...”
+II.—Que mediante resolución RES-DGA-166-2007 del veintinueve de marzo del 2007, esta Dirección General de Aduanas, en ejercicio de sus competencias y facultades, establece para las exportaciones y los tránsitos internacionales con destino a Panamá, lo señalado en el Resultando anterior en el punto I., a efecto de que en la Aduana de Paso Canoas solo se verifique la documentación que ampara la exportación. Además, reitera las disposiciones del punto II. en adelante para esta Aduana.
+Considerando único:
+Que en uso de sus competencias de dirección técnica y administrativa de las funciones aduaneras y con el propósito de aclarar y divulgar de una forma más efectiva las directrices dictadas hacia el efectivo cumplimiento de los fines de la normativa aduanera, en virtud de los alcances que la disposición tiene en el ámbito nacional y centroamericano, esta Dirección considera en atención a razones de oportunidad y conveniencia suspender por el plazo de un mes a partir de la publicación de la presente resolución, las disposiciones establecidas en la resolución RES-DGA-968-2006 del veintidós de diciembre del 2006, así como lo indicado en la resolución RES-DGA-166-2007 del veintinueve de marzo del 2007. Por lo tanto:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+Suspender por el plazo de un mes a partir de la publicación de la presente resolución, los alcances de las resoluciones RES-DGA-968-2006 del veintidós de diciembre del 2006 y RES-DGA-166-2007 del veintinueve de marzo del 2007.
+Rige a partir de su publicación.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.—
