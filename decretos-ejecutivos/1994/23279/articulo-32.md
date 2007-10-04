@@ -1,2 +1,0 @@
-Días feriados
-Artículo 32.—Son hábiles para el trabajo todos los días del año, excepto los feriados y aquellos que el Poder Ejecutivo declare de asueto, conforme al decreto correspondiente. Sin embargo, podrá trabajarse en tales días siempre y cuando ello fuere posible, en observancia de lo dispuesto en el artículo 4° de la Ley General de la Administración Pública, a fin de garantizar la continuidad y eficiencia de los servicios que no puedan suspenderse sin evidente perjuicio, y con el propósito de satisfacer necesidades imperiosas e impostergables.

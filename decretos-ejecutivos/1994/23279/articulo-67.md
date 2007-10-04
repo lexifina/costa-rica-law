@@ -1,1 +1,0 @@
-Artículo 67.—La Dirección proveerá a cada dirección u oficina desconcentrada de un botiquín para primaros auxilios debidamente equipado. Asimismo, se asegurará de mantener el suministro permanente de medicamentos básicos.

@@ -1,1 +1,0 @@
-Articulo 95.—Las servidoras que desde el momento que presente el dictamen médico, donde se determine su estado de embarazo, se le eximirá de la marca de asistencia, hasta que regrese de su incapacidad* Asimismo, tendrán derecho a no marcar, los servidores de la Dirección que tengan veinte o más años de servicio.

@@ -1,3 +1,0 @@
-Artículo 8°—Terminarán igualmente sin responsabilidad para la Dirección ellos nombramientos que se efectúen en puestos amparados por el Régimen de Servicio Civil con carácter de "interino", siempre que no sean efectuados por un lo superior a un año; de conformidad con el Reglamento del Estatuto de Servicio.
-Se considerará servidor interino a quien fuere nombrado para sustituir temporalmente a uno regular cuya relación de servicio se suspenda temporalmente por motivo de riesgo profesional, enfermedad, beca o cualquier otra causa que suspenda la relación de servicios; o bien el nombrado para llenar plazas vacantes,
-las no existan candidatos elegibles en la Dilección General de Servicio Civil, tiempo que esta requiera, para realizar el concurso respectivo.

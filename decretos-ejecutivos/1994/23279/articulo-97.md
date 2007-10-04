@@ -1,2 +1,0 @@
-Artículo 97.—Los servidores de la Dirección, tendrán libre acceso a los parques recreativos administrados por la Dirección General de Deportes, junto con su familia.
-Asimismo, en todas las actividades culturales y deportivas patrocinadas por esta Dirección, en la medida que lo contemple el contrato de la Empresa presentadora del evento, los servidores debidamente identificados tendrán derecho al ingreso libre.

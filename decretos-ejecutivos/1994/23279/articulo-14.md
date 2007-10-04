@@ -1,1 +1,0 @@
-Artículo 14.—Los servidores de la Dirección están obligados a desempeñar sus cargos todos los días hábiles y durante las horas reglamentarias. No podrá concederse, por tanto, prerrogativas o ventaja que autorice una asistencia irregular, salvo lo establecido en otras disposiciones de este Reglamento.

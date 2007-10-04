@@ -1,1 +1,0 @@
-Artículo 60.—En caso de producirse una llegada tardía injustificada superior a veinte minutos, contados a partir de la hora de ingreso estipulada y que a juicio del jefe superior inmediato, carezca de justificación, acarreará al servidor la pérdida de media jornada para efectos de sanción y no pago del salario correspondiente.

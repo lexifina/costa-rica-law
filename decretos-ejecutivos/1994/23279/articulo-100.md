@@ -1,1 +1,0 @@
-Artículo 100.—Se les podrán otorgar permiso con goce de salario con la aprobación del Consejo Nacional de Deportes, siempre que no excedan de tres meses, para que los servidores se acojan a invitaciones de Gobiernos o de Organismos Internacionales para viajes de representación o participación en seminarios, congresos internos y al exterior, o actividades similares.

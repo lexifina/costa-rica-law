@@ -1,4 +1,0 @@
-CAPITULO XX
-De los expedientes de personal
-Artículo 103.—El Departamento de Recursos Humanos llevará un expediente debidamente foliado de cada uno de los servidores de la Dirección, en que conste el historial de sus servicios y atestados en la forma más exacta posible. Igualmente, contendrá una fotografía del servidor, quien estará obligado a suministrarla en el momento en que le sea solicitada. Dicha fotografía deberá ser renovada cada cinco años.
-También se llevará un prontuario para cada servidor, en el cual se anotará las calificaciones periódicas, las ausencias y llegadas tardías, indicándose el motivo cuando fueren justificadas, así como las correcciones disciplinarias y los datos más importantes de todas las acciones de personal. El prontuario se iniciará con el ingreso al servicio.

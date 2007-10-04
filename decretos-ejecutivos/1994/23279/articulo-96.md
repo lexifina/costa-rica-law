@@ -1,1 +1,0 @@
-Artículo 96.—Con motivo de la época de Navidad, Día de la Madre, Día del Padre y Día del Niño, la Dirección General nombrará un Comité Organizador de las actividades para conmemorar estas fechas. La Dirección General colaborará en el financiamiento según sus posibilidades. El Comité decidirá a cuales celebraciones participarán la familia de los funcionarios.

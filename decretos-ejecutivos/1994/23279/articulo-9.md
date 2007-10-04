@@ -1,2 +1,0 @@
-Artículo 9°—En toda relación de servicio por tiempo indeterminado, habrá un período de prueba de hasta tres meses, de conformidad con lo establecido por el 30 del Estatuto de Servicio Civil. Este período también se aplicará en los casos de ascensos y traslado, conforme a lo que dispone el Reglamento de dicho Estatuto.
-En consecuencia, el servidor podrá ser reintegrado a su anterior ocupación cuando la Dirección estime que no reúne satisfactoriamente las condiciones requeridas para el normal desempeño del empleo en cuestión.

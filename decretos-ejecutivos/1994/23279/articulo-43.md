@@ -1,1 +1,0 @@
-Artículo 43.—El servidor que por dolo, complacencia o negligencia, marque tarjetas o registro de asistencia que no le corresponde, incurrirá en falta grave a sus obligaciones, haciéndose acreedor, por primera vez a amonestación escrita y en caso de reincidencia, suspensión por tres días.

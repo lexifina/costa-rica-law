@@ -1,1 +1,0 @@
-Artículo 56.—Para los casos muy calificados, no previstos en este Reglamento, ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del director respectivo justificar ausencias que no sean por enfermedad comprobada a efecto de evitar sanción disciplinarias, sin que ello signifique obligación al pago de salario.

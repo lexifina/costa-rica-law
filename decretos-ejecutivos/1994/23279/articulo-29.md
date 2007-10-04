@@ -1,1 +1,0 @@
-Artículo 29.—Las vacaciones son absolutamente incompensables, pero si se tratare de labores que no sean pesadas, insalubres ni peligrosas y que exigen continuidad por la índole de las necesidades que satisfacen, el servidor podrá consentir en prestar sus servicios durante el periodo de vacaciones. En tal caso, se le remunerará con el doble del salario que ordinariamente devengue.

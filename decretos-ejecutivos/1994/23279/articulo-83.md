@@ -1,6 +1,0 @@
-Artículo 83.—Por vía de excepción todos los servidores de la Dirección podrán disfrutar licencia con goce de salario según k> dispuesto por el artículo 33 del Reglamento del Estatuto del Servicio Civil, las cuales serán concedidas por el Jefe inmediato que corresponda, con la aprobación del Director General y Subdirector, en los siguientes casos:
-a) Por matrimonio del servidor, hasta por una semana.
-b) Por fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge, hasta por una semana,
-Asimismo, se concederá licencia con goce de salario por tres días hábiles, en caso de nacimiento de un hijo del servidor. También por cumplir anos de nacimiento, mediodía.
-Tratándose de matrimonio, la licencia será concedida a solicitud del servidor, en la fecha de su matrimonio o dentro del mes anterior a dicho acto. En los casos de fallecimiento, debe ser solicitada por el trabajador a su Jefe inmediato, dentro de lo posible, en horas del mismo día en que ocurra el deceso.
-Los demás permisos podrán otorgarse por la Dirección Administrativa y el período de licencia con goce de salario se podrá deducir de las vacaciones correspondientes. 13a. estos casos, el número de días de la licencia no podrá exceder del que por concepto de vacaciones tenga derecho el servidor al momento de otorgarse el permiso.

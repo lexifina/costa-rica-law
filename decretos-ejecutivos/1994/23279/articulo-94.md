@@ -1,2 +1,0 @@
-Artículo 94.—Los servidores de la Dirección disfrutarán de medio día libre con goce de salario, cuando no incurran en llegada tardía durante el lapso de tres meses consecutivos. Dicho beneficio deberá solicitarse dentro de los quince días posteriores a la fecha en que vencieron los tres meses que originan el incentivo. Caso contrario, dicho derecho queda prescrito.
-Para estos efectos, el servidor deberá presentar una constancia emanada del Departamento de Recursos Humanos a su Jefe inmediato, donde se haga constar su asistencia.

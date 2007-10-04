@@ -1,1 +1,0 @@
-Artículo 4°—Los directores, tos Jefes de Departamento, Jefes de Unidad y en general todos aquellos funcionarios que tengan bajó su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Director, de velar por la correcta aplicación de todas las disposiciones de este Reglamento.
