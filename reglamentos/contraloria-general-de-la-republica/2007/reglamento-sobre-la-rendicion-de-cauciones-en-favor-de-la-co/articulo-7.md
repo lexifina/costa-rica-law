@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución ‘70ara el ejercicio de sus cargos el Contralor o Contralora General y el Subcontralor o Subcontralora General de la República, así como los (as) Gerentes de División, Gerentes de Área y los Gerentes Asociados.
