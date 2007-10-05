@@ -14,3 +14,4 @@ Modifica a Correos de Costa Rica S. A., el gasto presupuestario máximo fijado p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-26 | la propia norma |
+| 2 | 2007-10-05 | Decreto Ejecutivo 34099 (2007-10-05) |
