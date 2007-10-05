@@ -1,11 +1,2 @@
-ARTÍCULO 6.- Créase la contribución de la estabilización cafetalera
-que gravará la exportación de café como aporte del productor al Fondo, el
-cual la percibirá directamente como reintegro del adelanto referido en
-esta ley. Dicho aporte será parte de los recursos del Fondo y servirá para
-las finalidades citadas en el artículo 4 de esta ley.
-Cuando el monto total de la reserva, producto de la contribución o de
-otras fuentes, haya alcanzado el tope establecido en el inciso c) del
-artículo 4 de la presente ley, previo acuerdo y pública notificación por
-parte de la Junta Directiva del Fondo, se eximirá a los productores de la
-obligación de contribuir. El mismo procedimiento se seguirá cuando el
-cobro de la contribución deba reactivarse.
+Artículo 6.- Créase la contribución de la estabilización cafetalera, que gravará todas las ventas inscritas ante el Instituto del Café de Costa Rica por las firmas beneficiadoras de café, como aporte del productor al Fondo. El Fondo percibirá esta contribución directamente como reintegro del adelanto referido en esta Ley. Dicho aporte será parte de los recursos del Fondo y servirá para atender el pago del capital y los intereses de los bonos emitidos para la constitución del Fondo, así como de las deudas contraídas con el Estado, como consecuencia del aval otorgado por este. Las firmas beneficiadoras de café deducirán esa contribución de las cuentas de la liquidación al productor.
+(Así reformado mediante el artículo único de la Ley N° 8608 del 21 de setiembre de 2007)

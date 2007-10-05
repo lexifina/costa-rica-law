@@ -1,4 +1,2 @@
-ARTÍCULO 10.- Sin perjuicio de la posterior supervisión del manejo
-del Fondo que corresponde a la Contraloría General de la República, este
-será fiscalizado por una auditoría interna y una externa, que podrán ser
-las mismas del Instituto del Café de Costa Rica.
+Artículo 10.- Sin perjuicio de la posterior supervisión del manejo del Fondo, el cual corresponde a la Contraloría General de la República , este será fiscalizado por la Auditoría Interna del Instituto del Café de Costa Rica.
+(Así reformado mediante el artículo único de la Ley N° 8608 del 21 de setiembre de 2007)
