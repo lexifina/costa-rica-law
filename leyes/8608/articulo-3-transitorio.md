@@ -1,0 +1,1 @@
+TRANSITORIO III.- Al entrar en vigencia la presente Ley, quedan sin efecto los nombramientos de la Junta Directiva del Fonecafé, y de inmediato sus miembros serán cesados en sus funciones. Se autoriza la liquidación de todo el personal del Fonecafé, conforme lo decida el Icafé.
