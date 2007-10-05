@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE BARVA
+La Municipalidad de Barva mediante el acuerdo Nº 865-07 del Concejo Municipal tomado en su sesión ordinaria Nº 34-2007, acordó:
+1. Se reforme el Reglamento para el uso control y mantenimiento de los Vehículos de la Municipalidad de Barva, publicado en el Diario Oficial La Gaceta número 122 del lunes 26 de junio del 2006, específicamente en sus artículos 9, 11, 13, párrafo primero y segundo, para que donde dice “Proveeduría Municipal”, se lea correctamente, el “Departamento de Contabilidad de la Municipalidad”.
+2. Incorporar el artículo 20 bis, al mismo reglamento, que dice: En horas no laborales, fuera del Horacio de oficina, sábados, domingos o días feriados, los vehículos municipales deberán permanecer en el plantel municipal. No obstante lo anterior, por razones de necesidad o de urgencia debidamente comprobadas, la atención de visitantes o cualquier otro motivo de fuerza mayor, la Alcaldía Municipal podrá autorizar el uso del vehículo o la maquinaria municipal, según el caso, debiendo informar al Concejo Municipal sobre dicha autorización y de las razones que la motivaron.
+Barva de Heredia, 25 de setiembre del 2007.
