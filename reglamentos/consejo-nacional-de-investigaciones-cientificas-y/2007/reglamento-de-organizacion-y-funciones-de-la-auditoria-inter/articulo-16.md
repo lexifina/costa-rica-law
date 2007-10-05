@@ -1,0 +1,1 @@
+Artículo 16.—Jerarquía. La Auditoría Interna estará bajo la responsabilidad del Auditor Interno. Debe ser contador público autorizado, y estar incorporado al colegio profesional respectivo, deberá conocer las disposiciones legales que rigen en general a la Administración Pública, y específicamente, las que conciernen a la función de auditoría interna.

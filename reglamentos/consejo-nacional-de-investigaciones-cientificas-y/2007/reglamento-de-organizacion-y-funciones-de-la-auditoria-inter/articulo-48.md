@@ -1,0 +1,1 @@
+Artículo 48.—Informes dirigidos al Consejo Director. Cuando el informe de auditoría esté dirigido al Consejo Director, este se regirá por lo establecido en el artículo 37 de la Ley Nº 8292. Si la resolución del Consejo Director ordena soluciones distintas de las recomendadas por la Auditoría Interna, estas se regirán por lo establecido en el artículo 38 de la Ley Nº 8292.

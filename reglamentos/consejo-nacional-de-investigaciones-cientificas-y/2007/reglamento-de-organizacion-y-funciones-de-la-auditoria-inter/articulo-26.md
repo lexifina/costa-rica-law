@@ -1,0 +1,1 @@
+Artículo 26.—Declaración de bienes. El Auditor Interno está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley Nº 8422. También deberá dar cumplimiento a las disposiciones que se establecen en esta materia.

@@ -1,0 +1,11 @@
+Artículo 67.—Rechazo de denuncias. La Auditoría Interna rechazará en cualquier momento, incluso desde su presentación y mediante resolución motivada:
+a) Las denuncias que no sean de su competencia, en cuyo caso deberán canalizarlas a las instancias competentes de conformidad con la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos (Ley Nº 8220 del 4 del marzo del 2002).
+b) Las denuncias que sean manifiestamente improcedentes o infundadas.
+c) Las denuncias reiterativas que contengan aspectos que hayan sido atendidos, en cuyo caso se comunicará al interesado lo ya resuelto.
+d) Las denuncias que se refieran únicamente a intereses particulares del ciudadano, con relación a conductas u omisiones de la Administración activa que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente.
+e) Las gestiones que bajo el formato de denuncia, sean presentadas con la única finalidad de ejercer la defensa personal sobre situaciones cuya discusión corresponda a otras sedes, ya sean administrativas o judiciales.
+Asimismo, tomará en cuenta los siguientes parámetros:
+a) El detalle y la relación de los hechos denunciados deben ser claros, precisos y con el detalle necesario, de modo que permitan activar una investigación. En caso de imprecisión de los hechos, se otorgará al denunciante diez días hábiles para que complete la información que fundamenta la denuncia. Lo anterior bajo apercibimiento de que el incumplimiento de esta prevención facultará el archivo inmediato de la gestión, sin perjuicio de que sea presentada con mayores elementos posteriormente como una nueva denuncia.
+b) El costo en que se incurriría en el estudio, tomando en cuenta recurso humano, materiales, tiempo y económicos, etc.
+c) La complejidad del estudio que se tendría que desarrollar.
+d) El impacto que el asunto a estudiar tendría sobre la imagen del CONICIT, en los estados financieros, presupuesto, entre otros.

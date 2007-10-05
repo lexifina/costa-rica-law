@@ -1,0 +1,2 @@
+Artículo 14.—Organización. La Auditoría Interna se organizará y funcionará conforme lo disponga el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República y el Consejo Director, las cuales serán de acatamiento obligatorio.
+El Auditor Interno, deberá establecer las ideas rectoras que regirán la actuación del personal de la Auditoría Interna, en cuanto a visión, misión, valores y principales políticas. Lo anterior en estricto apego a la normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 69.—En lo no regulado por este capítulo, la admisibilidad y trámite de denuncias por parte de la Auditoria Interna se resolverá conforme a los criterios y parámetros que dispone el reglamento a la Ley 8422.

@@ -1,0 +1,1 @@
+Artículo 49.—Recordatorio plazo. El Auditor Interno debe recordar expresamente en el informe a enviar al Consejo Director, sobre el plazo de treinta días hábiles, con que cuenta para emitir el acuerdo respectivo en relación con las recomendaciones formuladas, y le hará saber que puede formular sus objeciones -dentro de ese mismo plazo mediante acuerdo motivado.

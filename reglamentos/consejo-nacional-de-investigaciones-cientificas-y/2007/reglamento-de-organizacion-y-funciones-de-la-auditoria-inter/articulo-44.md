@@ -1,0 +1,1 @@
+Artículo 44.—Desarrollo profesional. Los funcionarios de la Auditoría Interna deben perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.

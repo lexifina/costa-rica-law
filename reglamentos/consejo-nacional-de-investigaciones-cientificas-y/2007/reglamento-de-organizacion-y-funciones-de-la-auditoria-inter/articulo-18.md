@@ -1,0 +1,1 @@
+Artículo 18.—Asistencia del Auditor Interno a Junta Directiva. El Auditor Interno asistirá a las sesiones del Consejo Director, a invitación específica de este, o por solicitud expresa del Auditor, para tratar temas de su competencia y en su carácter de asesor, en ningún caso esta asistencia será permanente.

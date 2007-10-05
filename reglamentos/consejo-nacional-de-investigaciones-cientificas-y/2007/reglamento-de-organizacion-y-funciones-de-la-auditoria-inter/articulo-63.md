@@ -1,0 +1,1 @@
+Artículo 63.—La valoración del riesgo en el plan. El plan anual de trabajo debe estar basado en un proceso continuo de valoración de riesgos. En este proceso deben tenerse en cuenta los criterios de riesgo de la Secretaría Ejecutiva y coordinadores de área, entre otros que se consideren necesarios.
