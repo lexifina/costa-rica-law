@@ -1,0 +1,17 @@
+Artículo 7º—Registro y Validación de Información en los Distintos Sistemas Computarizados. Los responsables deberán registrar o incorporar oportunamente en los distintos sistemas la información que se genere durante los procesos contables y presupuestarios, según lo indiquen los entes correspondientes y otras disposiciones de este Reglamento.
+a) Sistema de Información sobre Presupuestos Públicos (SIPP)
+I. La información que los responsables registren o incorporen al SIPP, deberá corresponder exactamente con la que utiliza a lo interno de la institución y estar al mayor nivel de desagregación de los clasificadores de ingresos y por objeto del gasto vigentes.
+II. La información que se debe registrar dentro del SIPP es la referente al Presupuesto Ordinario, Presupuestos Extraordinarios, Modificaciones Presupuestarias y Ejecuciones Presupuestarias.
+III. En los casos en que la información presupuestaria no requiera de aprobación externa de la Contraloría General de la República (Modificaciones Presupuestarias), se deberá registrar o incorporar al SIPP a más tardar dentro de los cinco días hábiles contados a partir de su aprobación por parte del Consejo Directivo. Asimismo, se deberá validar la información registrada dentro de los tres días siguientes a su registro.
+IV. Los ajustes y correcciones que se requieran con motivo de las actividades de registro o incorporación y validación, se deben realizar dentro de los plazos antes indicados.
+V. En los casos en que la información presupuestaria requiera de aprobación externa de la Contraloría General de la República (Presupuestos Ordinarios y Extraordinarios), deberá registrarse o incorporarse al SIPP y validarse previo al envió de la documentación correspondiente al órgano contralor.
+VI. La información contenida en los informes de ejecución presupuestaria, deberá registrarse o incorporarse al SIPP y validarse previo al envió de la respectiva documentación al órgano contralor.
+b) Sistema de Consolidación de Cifras del Sector Público (SICCNET)
+I. La información que los responsables registren o incorporen al SICCNET, deberá corresponder exactamente con la que utiliza a lo interno de la institución.
+II. La información que se debe registrar dentro del SICCNET es la referente a Conciliaciones Bancarias, Inversiones, Flujo de Caja y Nivel de Empleo.
+III. La información sobre Conciliaciones Bancarias, Inversiones y Flujo de Caja debe ser registrada dentro del SICCNET en forma mensual, mientras que la información sobre Nivel de Empleo debe ser registrada en forma trimestral.
+IV. La información sobre Conciliaciones Bancarias, Inversiones y Flujo de Caja debe registrarse a más tardar 15 días naturales después de finalizado el mes anterior.
+V. La información trimestral sobre Nivel de Empleo, debe registrarse 5 días naturales después de finalizado el trimestre anterior.
+c) Sistema Administrativo Contable
+I. La información que los responsables registren o incorporen en los distintos módulos del Sistema Administrativo Contable, deberá estar acorde con la normativa vigente y con las directrices giradas por los entes contralores de nuestra institución.
+II. La información contable y presupuestaria generada por nuestra institución deberá ser registrada de forma diaria en los distintos módulos del Sistema Administrativo Contable, con el fin de que esta información sea oportuna y se convierta así en una herramienta esencial para la toma de decisiones de la administración superior.

@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. La Administración Activa mediante este reglamento establece los lineamientos internos para el registro o la incorporación y la validación de los distintos sistemas computarizados de la institución, los cuales deben ser de conocimiento y aplicación de los titulares subordinados respectivos.
