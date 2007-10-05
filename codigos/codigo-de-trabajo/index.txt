@@ -119,6 +119,7 @@ articulo-117.md
 articulo-118.md
 articulo-119.md
 articulo-120.md
+articulo-120-bis.md
 articulo-121.md
 articulo-122.md
 articulo-123.md
@@ -197,6 +198,7 @@ articulo-195.md
 articulo-196.md
 articulo-197.md
 articulo-198.md
+articulo-198-bis.md
 articulo-199.md
 articulo-200.md
 articulo-201.md
@@ -623,5 +625,3 @@ articulo-621.md
 articulo-622.md
 articulo-623.md
 articulo-624.md
-articulo-120-bis.md
-articulo-198-bis.md
