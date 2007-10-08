@@ -1,0 +1,1 @@
+Artículo 7º—El servidor que se acoja al Régimen de Dedicación Exclusiva está facultado para ejercer excepcionalmente la profesión comprometida en el contrato, únicamente en los supuestos previstos en el decreto ejecutivo que rige esta materia para el Poder Ejecutivo y las entidades autónomas.

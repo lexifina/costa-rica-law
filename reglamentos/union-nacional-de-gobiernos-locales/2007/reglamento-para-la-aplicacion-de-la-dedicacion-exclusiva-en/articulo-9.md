@@ -1,0 +1,3 @@
+Artículo 9º—Habrá incumplimiento por parte del servidor cuando realice acciones contrarias a lo estipulado en el presente Reglamento o en el Contrato de Dedicación Exclusiva que se suscriba, lo cual acarreará las siguientes sanciones:
+a. La resolución inmediata del contrato y el reintegro de las sumas otorgadas por concepto de Dedicación Exclusiva. El servidor no podrá firmar un nuevo contrato por un período de dos años a partir de la fecha de dicha resolución.
+b. El despido se aplicará, sin responsabilidad, al servidor que haga incurrir en error a la Administración en la recepción indebida de los requisitos que señalados en este Reglamento y cuando por segunda vez, infrinja las demás disposiciones.
