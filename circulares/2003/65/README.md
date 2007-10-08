@@ -13,3 +13,4 @@ Reforma Normas prácticas para el trámite de las comisiones para notificar y Es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-12 | la propia norma |
+| 2 | 2007-10-08 | Circular 74 (2007-10-08) |
