@@ -1,13 +1,16 @@
-(Esta circular fue reiterada y públicada en Boletín Judicial N° 103 del 30 de mayo de 2007)
-(La presente circular fue reiterada mediante circular 120-2005 de 8 de setiembre del 2005 publicada en Boletín Judicial N° 182 del 22 de setiembre del 2005)
 CIRCULAR No 28-2003
+(Reiterada mediante circular N° 117 del 13 de octubre de 2009, y publicada en el Boletín Judicial N° 210 del 29 de octubre de 2009)
+(Reiterada mediante circular 160-08 de 14 de enero del 2009 y publicada en el Boletín Judicial N° 22 del 2 de febrero de 2009)
+(Reiterada mediante circular y publicada en el Boletín Judicial N° 103 del 30 de mayo de 2007)
+(Reiterada mediante circular 120-2005 de 8 de setiembre del 2005 y publicada en el Boletín Judicial N° 182 del 22 de setiembre del 2005)
 ASUNTO: A) Normas prácticas para el trámite de las comisiones para notificar. B) Consulta telefónica.
 A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER:
 El Consejo Superior, en sesión No 23-03, celebrada el 1° de abril del 2003, artículos LXXX y XCIV, por su orden dispuso:
 A) A solicitud de la Comisión de Notificaciones, aprobar el siguiente procedimiento para la notificación de comisiones por parte de los Despachos Judiciales:
 1) En los Circuitos Judiciales con Oficina Centralizada de Notificaciones, las comisiones para notificación sólo podrán diligenciarse a través de estas oficinas, mediante los procedimientos y registros contenidos en los Manuales de Procedimientos que orientan el funcionamiento de las Oficinas Centralizadas de Notificaciones, aprobados por el Consejo Superior en sesión No 01- 03 del 14 de enero del presente año.
-2) Los Despachos Judiciales que comisionen para notificar, deben remitirlas a la Oficina Centralizada de Notificaciones del Circuito Judicial respectivo. En caso de no existir en el Circuito la mencionada oficina, se debe comisionar directamente a la Autoridad Judicial si el lugar donde debe practicarse la notificación se encuentra dentro del perímetro; caso contrario, deberá enviarla directamente a la Oficina de la Policía Administrativa que por territorio corresponda.
+2) Los Despachos Judiciales deben remitir las comisiones para notificar fuera del perímetro judicial, directamente al Juzgado que por materia corresponda o al Juzgado Contravencional de existir esta oficina en la jurisdicción en que se encuentra la persona a notificar, y por excepción a la policía de proximidad, que por territorio concierna. Aquellos asuntos en que por su naturaleza deben ser notificados en forma urgente, serán diligenciados por la Oficina Centralizada de Notificaciones.
+(Así reformado el punto anterior mediante circular N° 074 del 8 de octubre de 2007)
 3) En ambos casos las comisiones; pueden ser retiradas por el Abogado Director del proceso, personas autorizadas por éste mediante escrito, o por la parte interesada, previa identificación. De dicha entrega se dejará constancia en el expediente o en el libro de control correspondiente que utilice el Despacho Judicial o la Oficina CentraIizada de Notificaciones del Circuito respectivo.
 4) La entrega de las comisiones a los interesados, debe solicitarse expresamente por escrito y éstas se entregarán siempre que se encuentren en el despacho, ya que con estas medidas también se pretende que aquellas comisiones no retiradas oportunamente, se trasladen por los medios de comunicación internos con que cuenta el Poder Judicial, esto es, mediante el correo interno certificado o correo ordinario cuando se trate de despachos de la Guardia Civil, los cuales no son cubiertos por el correo institucional.
 5) Del mismo modo. cada oficina judicial según corresponda, deberá implementar los controles manuales o informáticos y de seguridad, de manera tal que la comisión para notificar ingrese efectivamente el despacho comisionado, por lo que deberá identificarse con un número interno consecutivo y tramitarse por los medios debidos.
