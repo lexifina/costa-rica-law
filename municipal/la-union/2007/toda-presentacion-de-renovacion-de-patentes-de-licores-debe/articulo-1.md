@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE LA UNIÓN
+El Concejo Municipal de La Unión, en su sesión ordinaria Nº 92 del 21 de junio, tomó acuerdo que ratificó el 12 de julio en su sesión ordinaria Nº 92 de la siguiente forma:
+“Instruir a la administración para que en lo sucesivo toda presentación de renovación de patentes de licores sea acompañada por un informe de inspección con menos de un mes de realizado. Además cada solicitud de renovación debe acompañarse por una recomendación de la Jefatura de Patentes en donde se refiera a cualquier problema, denuncia o intervención especial se haya recibido de ese local. 2. Que la Administración gire una circular escrita a todos los patentados de licores con esta disposición y que se les recuerde los alcances de la Ley de Licores y su Reglamento”.
