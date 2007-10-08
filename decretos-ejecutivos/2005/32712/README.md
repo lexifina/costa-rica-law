@@ -14,3 +14,4 @@ Manual de Instrumentos Técnicos para el Proceso de Evaluación de Impacto Ambie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-18 | la propia norma |
+| 2 | 2007-10-08 | Decreto Ejecutivo 34375 (2007-10-08) |
