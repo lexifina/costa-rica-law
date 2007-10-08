@@ -1,0 +1,1 @@
+Artículo 5º—Toda solicitud para la retribución de peligrosidad deberá ser presentada a la Dirección de Recursos Humanos la que a su vez solicitará en cada caso, a la mayor brevedad posible el estudio técnico y recomendación al Departamento de Salud Ocupacional, previa justificación del Superior Jerárquico del funcionario en estudio.

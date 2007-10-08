@@ -1,0 +1,27 @@
+Artículo 2º—De las definiciones técnicas:
+Accidente de trabajo: Toda lesión corporal que el trabajador sufra con ocasión o a consecuencia del trabajo que ejecuta en virtud de las funciones encomendadas por AYA.
+Consecuencias: Resultado más probable si se materializa el riesgo.
+Enfermedad del trabajo: De acuerdo con la Ley de Riesgos del Trabajo (Artículo 197) se denomina enfermedad del trabajo a todo estado patológico que resulte de la acción continuada de una causa que tiene su origen o motivo en el propio trabajo o en el medio y condiciones en que el trabajador labora y que debe establecerse que éstos han sido la causa de la enfermedad.
+Evaluación del riesgo: En la aplicación de la evaluación de condiciones de riesgo por peligro de mayor impacto para establecer el grado de peligrosidad al que está expuesto cada grupo ocupacional, se determina valorando factores como: Consecuencia, Exposición y Probabilidad, lograda la clasificación que corresponda a un valor determinado por la misma Norma Técnica que indica el tipo de riesgo por peligro al que está expuesto un trabajador en su puesto de trabajo, fijándose un rango de 500 a 100 puntos para ser tomados en cuenta para la retribución aquí fijada proporcionalmente, conforme los siguientes Grados de riesgo para cada grupo ocupacional.
+Grupo ocupacional | Grado riesgo
+Personal de alcantarillado sanitario | 500
+Personal de bodega de reactivos ó de sustancias tóxicas | 400
+Personal que manipula y transporta gas cloro y otras | 400
+Personal expuesto al alto voltaje (mantenimiento) | 300
+Personal que manipula y dosifica (operadores plantas) | 275
+Personal de laboratorio | 255
+Personal que realiza aforos | 180
+Personal expuesto a alto voltaje (operadores de bombeo) | 100
+Exposición: Relación que tiene el trabajador con el riesgo durante su jornada.
+Riesgos del trabajo: Acontecimientos o contingencia que pueden aproximar un daño o peligro a los trabajadores. El infortunio es la concreción del riesgo, o sea, cuando se produce el hecho.
+Peligrosidad: Denomínese retribución por riesgo de peligrosidad, aquellas situaciones incontrolables que atentan contra la integridad física de los funcionarios, por la manipulación directa de agentes transmisores de enfermedades infectocontagiosas o por el uso de productos altamente tóxicos, o de peligro extremo u otras actividades que en el futuro autorice la Junta Directiva de AYA por recomendación de la Gerencia, y que exponga al funcionario en las tareas habituales y permanentes del puesto, en las cuales no medie negligencia o falta de uso de los implementos de seguridad ocupacional por parte del trabajador.
+Prevención: El riesgo se previene utilizando los implementos de seguridad apropiados, pues existe la probabilidad de que generen enfermedades o accidentes laborales que funden incapacidades y de riesgo colectivo inclusive.
+Probabilidad: Grado de certeza que la secuencia de sucesos se complete y materialicen las consecuencias.
+Profesionales en ciencias medicas: Comprende los grupos profesionales comprendidos por ley especial de ciencias médicas y que gozan de incentivos específicos establecidos por ley especial, por lo que no tendrán acceso a los beneficios otorgados en este Reglamento.
+Riesgo extremo: Se refiere a riesgos cuya evaluación demuestra ausencia de control en el sitio de trabajo, o riesgos aleatorios y en tal sentido puede generar consecuencias importantes para los trabajadores. Se evidencia en el personal que almacena y manipula sustancias tóxicas, químicas, físicas o biológicas y reactivos químicos en Bodegas y Laboratorios. Asimismo el personal de gas cloro se expone a un riesgo extremo, el cual afecta directamente al funcionario, y presenta consecuencias que abarcan hasta la comunidad dependiendo de la magnitud de las consecuencias.
+Riesgos graves: Riesgos que presentan características que hacen requerir un nivel de acción donde la participación de equipos técnicos deben proponer medidas oportunas por cuanto puede generar consecuencias y efectos importantes en lesiones o enfermedades.
+Riesgos moderados: Riesgos que requieren una atención adecuada por parte de los funcionarios de AYA, por cuanto hay probabilidad de que los mismos generen accidentes de consecuencias incapacitantes. Si el funcionario contraviene la legislación nacional y por ello debe asumir su responsabilidad previo el debido proceso.
+Riesgo bajo: Todo funcionario debe desarrollar acciones que mantengan bajo control los factores de riesgo, presentes en los grupos ocupacionales, dentro las principales actividades que realiza la Institución.
+Riesgos soportables: El funcionario se encuentra bajo el control normal de los riesgos presentes en su actividad. Son subsanables mediante el uso adecuado de los implementos de seguridad
+Siniestralidad: Daño, destrucción o pérdida parcial o total que sufren las personas por causa de muerte, desastres causados por el hombre o desastres naturales durante la jornada laboral y que hacen entrar en acción la garantía de la póliza de Riesgos del INS.
+El Departamento de Salud Ocupacional mediante oficio Nº RHSO-2003-385 refiere a la Gerencia General el resultado del estudio de siniestralidad aplicado a los diferentes grupos ocupacionales en estudio, a través del cual se determinan los porcentajes (%) aplicables para la retribución del riesgo de peligrosidad en AYA. Dicho estudio consta para los efectos de este Reglamento en la Norma Técnica que fundamenta la propuesta.

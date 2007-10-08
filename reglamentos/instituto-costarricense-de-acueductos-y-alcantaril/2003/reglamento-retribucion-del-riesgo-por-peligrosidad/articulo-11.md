@@ -1,0 +1,1 @@
+Artículo 11.—La fecha de vigencia para la retribución por riesgo de peligrosidad será a partir del primer día del mes siguiente de solicitado y justificado por la Jefatura correspondiente, la cual se concretará mediante la acción de personal que aprobará la Gerencia General.
