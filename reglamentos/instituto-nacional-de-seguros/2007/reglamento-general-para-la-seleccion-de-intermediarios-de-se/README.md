@@ -14,3 +14,4 @@ Reglamento General para la Selección de Intermediarios de Seguros del Instituto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-16 | la propia norma |
+| 2 | 2007-10-08 | Reglamento 8857 (2007-10-08) |
