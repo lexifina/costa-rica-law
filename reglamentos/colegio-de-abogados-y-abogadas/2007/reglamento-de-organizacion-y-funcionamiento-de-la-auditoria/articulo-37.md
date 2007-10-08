@@ -1,0 +1,1 @@
+Artículo 37.—Pericia. El personal de la Auditoría debe cumplir con los requisitos de pericia y cuidado profesional establecidos en el Manual de Normas para el Ejercicio de la auditoría interna en el Sector Público.

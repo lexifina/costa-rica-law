@@ -1,0 +1,1 @@
+Artículo 32.—Informe de fin de gestión. Al concluir su relación laboral por la causa que fuere, el auditor interno deberá presentar un informe de fin de gestión, de acuerdo con las directrices emitidas por la Contraloría General de la República y, cuando proceda, por la administración activa.

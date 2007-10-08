@@ -1,0 +1,1 @@
+Artículo 18.—Ubicación orgánica. La ubicación orgánica de la Auditoría Interna debe obedecer a la de un órgano de muy alto nivel dentro de la estructura institucional del Colegio de Abogados de Costa Rica, que la distinga de los demás estratos de la organización.

@@ -1,0 +1,1 @@
+Artículo 38.—Plazas vacantes. Corresponde al auditor interno gestionar oportunamente lo relativo a las plazas vacantes de la unidad a su cargo. En ausencia del auditor interno, lo podrá hacer la persona que lo sustituya en forma interina.

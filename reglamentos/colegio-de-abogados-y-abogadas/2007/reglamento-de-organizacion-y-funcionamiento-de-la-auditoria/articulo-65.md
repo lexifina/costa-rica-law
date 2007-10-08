@@ -1,0 +1,3 @@
+Artículo 65.—Transitorios .
+I. El presente reglamento entrara a regir a partir de su publicación, por lo que antes de que eso ocurra, se mantendrá vigente las normativas emitidas por la Contraloría General de la República.
+II. Desde la fecha de vigencia, la administración activa y la auditoria interna contaran con un plazo máximo de tres meses para que según su competencia, se emprendan las medidas que se estime necesarias a fin de poner en práctica lo regulado en este Reglamento; durante ese periodo la fiscalización ejercida por el auditor interno y el jerarca se orientará a evaluar la puesta en marcha de tales medidas.

@@ -1,0 +1,1 @@
+Artículo 30.—Delegación de funciones. El auditor interno ejercerá sus funciones en relación con todas las direcciones y demás dependencias de la institución y podrá delegarlas en cualquier funcionario idóneo bajo su dirección quien será responsable del trabajo que se le asigne, de conformidad con el principio de delegación establecido en la Ley General de Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 3º—De la Naturaleza vinculante. El presente reglamento es de acatamiento obligatorio para los funcionarios de la auditoría Interna y administración activa relacionada a éste Reglamento, del Colegio de Abogados de Costa Rica.

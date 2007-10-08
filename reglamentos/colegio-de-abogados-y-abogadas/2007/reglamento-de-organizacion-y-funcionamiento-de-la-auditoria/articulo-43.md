@@ -1,0 +1,1 @@
+Artículo 43.—Control de presupuesto de auditoría. El Auditor Interno debe establecer mecanismos de coordinación para que la Dirección de Finanzas y Presupuesto lleve un registro separado del monto asignado y aprobado a la auditoría interna, detallado por objeto del gasto, para que pueda controlar la ejecución y modificaciones de los recursos presupuestados a la Auditoría.

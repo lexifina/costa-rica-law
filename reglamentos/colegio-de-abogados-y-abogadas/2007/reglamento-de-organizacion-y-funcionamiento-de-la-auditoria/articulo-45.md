@@ -1,0 +1,1 @@
+Artículo 45.—Apoyo de profesionales o técnicos de diferentes disciplinas. La Auditoría Interna podrá solicitar la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorias que realice la Auditoría Interna.

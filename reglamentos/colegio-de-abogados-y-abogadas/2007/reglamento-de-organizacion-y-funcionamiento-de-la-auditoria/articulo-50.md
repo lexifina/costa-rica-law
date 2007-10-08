@@ -1,0 +1,1 @@
+Artículo 50.—Servicio de la auditoría interna. Los servicios de fiscalización que realiza la Auditoría Interna conforme a sus competencias se clasifican en servicios de auditoría y servicios preventivos.
