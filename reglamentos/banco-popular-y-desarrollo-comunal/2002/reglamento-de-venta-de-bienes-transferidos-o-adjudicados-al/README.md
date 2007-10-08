@@ -15,3 +15,4 @@ Reglamento de Venta de Bienes Transferidos o Adjudicados al Banco Popular y de D
 | --- | --- | --- |
 | 1 | 2002-04-08 | la propia norma |
 | 2 | 2004-12-16 | Reglamento 4269 (2004-12-16) |
+| 3 | 2007-10-08 | Reglamento 4523 (2007-10-08) |
