@@ -14,3 +14,4 @@ Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-04 | la propia norma |
+| 2 | 2007-10-08 | Decreto Ejecutivo 34375 (2007-10-08) |
