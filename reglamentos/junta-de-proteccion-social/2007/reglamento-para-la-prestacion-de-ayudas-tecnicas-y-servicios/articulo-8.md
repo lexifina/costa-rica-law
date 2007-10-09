@@ -1,0 +1,1 @@
+Artículo 8°—Cuando a juicio de la Junta, sea necesario ampliar información, se establecerán las relaciones de coordinación necesarias, con instituciones públicas y privadas, las cuales deberán atenderse dentro de los cinco días siguientes a la solicitud realizada por la Junta.

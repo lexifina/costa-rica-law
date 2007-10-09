@@ -1,0 +1,1 @@
+Artículo 7°.—La Comisión de Aplicación de Fondos de Premios Prescritos, será la responsable de recomendar a la Junta Directiva la aprobación o no de las asignaciones de recursos para adquisición de ayudas técnicas, previo estudio de los expedientes. Para estos efectos, se deberá emitir un criterio por escrito.

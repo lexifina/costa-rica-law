@@ -1,0 +1,1 @@
+Artículo 3°—Los beneficios indicados en el artículo anterior, estarán dirigidos a las personas con discapacidad permanente, de escasos recursos económicos, que les impidan o limiten el acceso a las ayudas técnicas, todo fundamentado con el estudio social del caso.

@@ -1,0 +1,1 @@
+Artículo 9°—La prestación de ayudas técnicas tiene carácter permanente. El beneficiario deberá comprometerse a no vender, alquilar, donar, ceder, prestar, traspasar, ni cambiar, la ayuda técnica, sin contar con autorización previa y por escrito de la Junta. El beneficiario deberá suscribir un convenio ante la Junta, con anterioridad a retirar el bien.

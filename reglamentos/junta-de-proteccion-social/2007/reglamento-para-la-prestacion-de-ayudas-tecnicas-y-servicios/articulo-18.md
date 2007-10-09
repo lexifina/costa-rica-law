@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Revisión y Control de la Junta, deberá verificar el trámite de compra, levantar y mantener un inventario de las ayudas técnicas otorgadas por la Junta para su correspondiente Revisión y Monitoreo

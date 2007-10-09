@@ -1,0 +1,1 @@
+Artículo 17.—El Departamento de Acción Social, evaluará el efecto producido por las ayudas técnicas asignadas, al menos una vez después de efectuada la entrega de la ayuda técnica; utilizando el sistema de muestreo al azar. También para cumplir este fin podrá solicitar la ayuda interinstitucional que requiera.

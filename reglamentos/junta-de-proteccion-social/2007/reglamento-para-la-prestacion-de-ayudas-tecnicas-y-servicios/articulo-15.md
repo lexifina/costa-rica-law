@@ -1,0 +1,2 @@
+Artículo 15.—Para la reasignación de las ayudas técnicas entregadas a los centros hospitalarios referidos en el artículo anterior, los departamentos de trabajo social deben seleccionar los nuevos beneficiarios y remitir los expedientes al Departamento de Acción Social, que contengan el estudio social, receta, cédula de identidad del solicitante o constancia de nacimiento en caso de ser menor de edad.
+La Junta Directiva autorizará el cambio de beneficiario con fundamento en el criterio técnico emitido por el Departamento de Acción Social.
