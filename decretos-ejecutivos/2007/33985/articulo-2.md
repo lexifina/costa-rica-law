@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones contenidas en este Código son aplicables a todos los servidores del Consejo de Seguridad Vial, sin perjuicio de las normas especiales que otras disposiciones normativas establezcan en situaciones semejantes.

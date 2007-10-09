@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. El presente Código guía la conducta de los individuos en sus actividades laborales que se realicen con ocasión del ejercicio de la función pública, cualquiera que sea la denominación del puesto o jerarquía que ostenten.

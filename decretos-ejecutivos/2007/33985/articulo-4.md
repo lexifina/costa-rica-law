@@ -1,0 +1,1 @@
+Artículo 4º—Concepto de servidor público. Para efectos de este Código, se entiende por servidor del Consejo de Seguridad Vial, toda persona física que participa del ejercicio de funciones públicas, en el Consejo de Seguridad Vial, por nombramiento de autoridad competente.

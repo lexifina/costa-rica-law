@@ -1,0 +1,1 @@
+Artículo 11.—Deber de responsabilidad. El servidor del Consejo de Seguridad Vial es responsable de las acciones u omisiones relativas al ejercicio de su función; ha de actuar con un claro concepto del deber para el cumplimiento del fin público encomendado al COSEVI.

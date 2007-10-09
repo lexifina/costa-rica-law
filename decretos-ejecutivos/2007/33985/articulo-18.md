@@ -1,0 +1,1 @@
+Artículo 18.—Derecho de respetabilidad. El servidor del Consejo de Seguridad Vial tiene derecho a la dignidad, la honra, el buen nombre, la buena reputación y la intimidad personal y familiar, así como el deber de respetar el derecho de los demás.

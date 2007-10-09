@@ -1,0 +1,1 @@
+Artículo 5º—Concepto de función pública. Para los efectos de este Código, se entiende por función pública toda la actividad que presta el Consejo de Seguridad Vial, en sentido amplio, ejercida con miras a la satisfacción del interés público, por medio de sus servidores.

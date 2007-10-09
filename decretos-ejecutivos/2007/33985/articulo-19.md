@@ -1,0 +1,1 @@
+Artículo 19.—Deber de armonía laboral. El servidor del Consejo de Seguridad Vial debe promover un clima de armonía en sus relaciones laborales, proyectar siempre una imagen positiva de los servidores de la institución y contribuir al desarrollo de una cultura institucional.

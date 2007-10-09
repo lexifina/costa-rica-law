@@ -1,0 +1,1 @@
+Artículo 20.—Deber de superación. El servidor del Consejo de Seguridad Vial debe promover la autoestima, reconociendo su valor como ser humano y funcionario público, y procurando la superación personal y profesional que le permita incrementar sus conocimientos, experiencia y solidez moral.
