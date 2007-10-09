@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la autorización y del control
+Artículo 13.—De la autorización: Una vez que se ha presentado una boleta de solicitud y autorización de uso de vehículos, el Director del Área respectiva, luego de comprobar la disponibilidad del automotor, procederá a autorizarla con su firma. En caso de ausencia del director, la boleta la firmará el jefe en alzada (Art. 95 inc.1 LGAP). Para el uso de vehículos fuera del horario normal, se utilizará esa misma boleta; sin embargo, la misma sólo deberá ser autorizada por el Alcalde, y en ausencia del mismo lo autoriza los Vice-Alcaldes tratándose de una emergencia. Además en esos casos se deberá indicar expresamente en la boleta, que se autoriza el uso del vehículo fuera del horario normal.
