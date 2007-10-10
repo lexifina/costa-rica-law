@@ -1,0 +1,1 @@
+Artículo 6º—Con base en el capítulo VIII, artículo 59, y para los efectos de la aplicación del presente Reglamento, los Concejos de Distrito y los Síndicos obtendrán de la Municipalidad de La Unión el apoyo en materiales, servicios y equipo que esta le pueda proveer de acuerdo con sus posibilidades presupuestarias y de recursos disponibles.

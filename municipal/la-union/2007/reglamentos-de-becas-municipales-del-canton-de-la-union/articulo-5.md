@@ -1,0 +1,1 @@
+Artículo 5º—Los Concejos de Distrito del cantón serán los responsables de entregar los formularios de solicitud de beca a los centros educativos, así como, de recibir las propuestas de adjudicación que presenten dichos centros y recomendar al Concejo Municipal su aprobación final.

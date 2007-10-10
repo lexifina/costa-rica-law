@@ -1,0 +1,1 @@
+Artículo 14.—La Administración Municipal entregará los formularios de solicitud de beca a los Concejos de Distrito en la primera semana de setiembre de cada año y estos los entregarán a los Centros Educativos antes del 30 de setiembre de cada año para su divulgación a la comunidad educativa.

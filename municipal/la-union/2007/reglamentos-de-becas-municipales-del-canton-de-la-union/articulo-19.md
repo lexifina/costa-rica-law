@@ -1,0 +1,1 @@
+Artículo 19.—Si el Centro Educativo no utiliza el número de becas asignada en los dos primeros meses de iniciado el curso lectivo, le serán retiradas las becas sin utilizar y se procederá a reasignarlas a otros Centros Educativos.

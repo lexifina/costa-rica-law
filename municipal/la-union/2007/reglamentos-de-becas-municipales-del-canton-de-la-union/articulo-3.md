@@ -1,0 +1,1 @@
+Artículo 3º—Los Concejos de Distrito presentarán ante el Concejo Municipal y la Alcaldía las prioridades, necesidades y los requerimientos presupuestarios según lo establecido por el Código Municipal en sus artículos 43 y 94, a efecto de darle contenido económico del Programa de Becas Municipales.

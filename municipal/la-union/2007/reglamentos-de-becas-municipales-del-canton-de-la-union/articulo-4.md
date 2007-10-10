@@ -1,0 +1,1 @@
+Artículo 4º—A cada Concejo de Distrito se le asignará un número de becas de acuerdo al número de centros educativos y alumnos que tenga el distrito, dando prioridad a aquellos centros ubicados en las zonas de menor desarrollo socioeconómico del cantón.

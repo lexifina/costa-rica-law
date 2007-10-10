@@ -1,0 +1,1 @@
+Artículo 15.—En el mes de setiembre de cada año la Administración Municipal publicará en al menos un periódico de circulación cantonal y otro de circulación nacional información sobre la apertura del programa de becas de la municipalidad para el año siguiente.

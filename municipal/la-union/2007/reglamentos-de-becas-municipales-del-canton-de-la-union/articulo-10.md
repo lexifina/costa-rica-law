@@ -1,0 +1,1 @@
+Artículo 10.—Todo estudiante que haya sido becado tiene derecho a la renovación de la misma el año siguiente, siempre y cuando cumpla con todos los requisitos y deberes estipulados en este Reglamento y el aval del Comité de Becas del Centro Educativo donde realiza los estudios.

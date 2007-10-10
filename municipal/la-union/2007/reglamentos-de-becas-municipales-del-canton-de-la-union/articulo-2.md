@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo del presente Reglamento es regular el proceso para otorgar de la manera más justa y equitativa becas de estudio municipales a estudiantes de primaria de centros educativos públicos y de instituciones de bien social a las que autorice el Concejo Municipal.
