@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-20 | la propia norma |
+| 2 | 2007-10-10 | Acuerdo 42 (2007-10-10) |
