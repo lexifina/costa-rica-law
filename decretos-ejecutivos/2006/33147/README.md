@@ -14,3 +14,4 @@ Crea Comisión Intersectorial de Gobierno Digital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2007-10-10 | Decreto Ejecutivo 34093 (2007-10-10) |
