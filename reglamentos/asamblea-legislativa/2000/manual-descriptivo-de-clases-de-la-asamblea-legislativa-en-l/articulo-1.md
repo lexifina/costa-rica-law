@@ -1,4 +1,5 @@
 ACUERDOS
+(Nota de Sinalevi: La Asamblea Legislativa, mediante acuerdo N° 13 del 20 de mayo de 2009, publicó en La Gaceta N° 146 del 29 de julio de 2009, un nuevo Manual descriptivo de clases de puestos de la Asamblea Legislativa, el cual puede consultarse en el sistema)
 El Directorio de la Asamblea Legislativa, mediante artículo 51 de la sesión No 92-2000, celebrada el día 25 de abril del 2000, acordó aprobar el siguiente:
 MANUAL DESCRIPTIVO DE CLASES ASAMBLEA LEGISLATIVA
 PUESTOS ADMINISTRATIVOS
@@ -855,7 +856,10 @@ Vigilar el buen uso, estado y mantenimiento de los vehículos y recomendar el ca
 Ejecutar otras tareas propias del cargo.
 CONDICIONES ORGANIZACIONALES Y AMBIENTALES
 Supervisión ejercida: Le corresponde dirigir, organizar y supervisar el trabajo de personal profesional, técnico y administrativo de su respectivo ámbito, por lo que es responsable por el eficaz y eficiente cumplimiento de las actividades a ellos asignadas y por desarrollar y mantener niveles de motivación elevados en las personas que laboran en su unidad organizacional.
-Supervisión recibida: Trabaja con independencia, siguiendo la política de la institución aplicable a su proceso de actividad y la legislación que define y regula las actividades del organismo. Su labor es evaluada mediante informes que presenta, los aportes creativos al trabajo que realiza, la eficiencia y eficacia obtenidas en el cumplimiento de los objetivos asignados al proceso o actividad, evidenciada por su capacidad para dirigir y supervisar el personal bajo su responsabilidad, la comprobación de la calidad de los resultados obtenidos y el nivel de motivación personal.
+(*)SUPERVISIÓN RECIBIDA:
+Trabaja con independencia técnica, siguiendo las políticas internas de la institución y los lineamientos técnicos y legales emanados por el órgano competente.
+Su labor es evaluada y supervisada por los jerarcas del Departamento correspondiente, según el logro de objetivos y metas; por la calidad y oportunidad de los informes y oficios que emita; así como por las acciones llevadas a cabo para una coordinación adecuada con funcionarios tanto de niveles superiores como de otros departamentos e instancias que se involucran en el diario quehacer.
+(*) (Así reformado el punto anterior mediante acuerdo N° 37 tomado en sesión N° 77 celebrada el 10 de octubre del 2007).
 RESPONSABILIDAD
 Por actividades
 Es responsable por el proceso o actividad encomendado, el cual debe ser ejercido mediante la búsqueda del consenso y armonía entre todos lo; funcionarios a su cargo.
@@ -1323,8 +1327,9 @@ Elaborar informes analíticos en el campo jurídico, económico, hacendario, con
 Condiciones organizacionales y ambientales:
 Supervisión ejercida: A los puestos clasificados como Profesional nivel A, B, C o D no les corresponde ejercer supervisión sobre otros funcionarios.
 A los puestos clasificados con nivel E, les corresponde coordinar y supervisar equipos de trabajo formados por personal profesional, técnico y de apoyo, en calidad de responsable por los productos y servicios que se derivan del proceso a su cargo. La labor de los integrantes de su equipo de trabajo es evaluada por los resultados obtenidos, la calidad de los servicios y productos y las metas logradas en función de los planes y programas establecidos.
-Supervisión recibida:
+(*)SUPERVISIÓN RECIBIDA:
 Actúa con independencia de criterio profesional en el área de su especialidad, siguiendo instrucciones generales, métodos y procedimientos establecidos en manuales, circulares, resoluciones y en la legislación vigente. Su labor es supervisada y evaluada directamente por el jefe inmediato según el grado de cumplimiento de las metas que se le han establecido de manera particular, así como por la cantidad, calidad y oportunidad en la entrega de sus productos, y por la originalidad de los aportes y contribuciones al equipo de trabajo en el cual se ubica.
+(*) (Así reformado el punto anterior mediante acuerdo N° 37 tomado en sesión N° 77 celebrada el 10 de octubre del 2007).
 Responsabilidad:
 Por actividades
 Es responsable de su gestión en aspectos relacionados con el cumplimiento eficiente y oportuno de las metas establecidas, lo cual se debe reflejar en la calidad que imprime en estudios, proyectos, investigaciones o actividades en que participe.
@@ -1558,22 +1563,22 @@ Título de Bachiller en Educación Media.
 Experiencia mínima de un año en labores relacionadas con el cargo desarrollada en la Asamblea Legislativa.
 Experiencia mínima de un año en el manejo y supervisión de personal.
 Asimismo se incluye en la clase de Jefe de Área, las siguientes actividades específicas en materia de seguridad:
-Planear, dirigir, supervisar, coordinar y ejecutar las políticas que en materia de protección, seguridad y vigilancia establezca la Institución, así como todo lo referente a la organización interna y actuación administrativa.
-Coordinar la supervisión de todo lo relacionado con protección, seguridad y vigilancia a diputados(as), personal administrativo y de fracción y visitantes de la Asamblea Legislativa.
-Coordinar la supervisión de la seguridad y vigilancia a las instalaciones y bienes de la Institución mediante la ejecución de labores variadas.
-Emanar directrices a los supervisores de turno seguridad y agentes de seguridad, relacionados con los planes de operación de seguridad en la Institución.
-Velar porque se cumplan las instrucciones emanadas de los niveles superiores y se reporten las irregularidades ocurridas y observadas.
-Preparar y presentar reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
-Confeccionar los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
-Coordinar con los entes pertinentes para establecer medidas de seguridad tanto dentro, como fuera de la Institución, en caso de manifestaciones o huelgas que puedan poner en peligro la integridad de la Institución y los que laboran en ella.
-Establecer las estrategias necesarias de vigilancia para contrarrestar los daños ocasionados por personas ajenas a la Institución, en lugares y horas determinados.
-Ejercer la autoridad disciplinaria sobre todo el personal de la Unidad de Seguridad.
-Coordinar con el Departamento de Recursos Humanos, en el nombramiento del personal de seguridad, procurando que cumplan con los requisitos establecidos.
-Promover la capacitación técnica del personal de la Unidad.
-Ser parte activa del Plan de Emergencia Institucional.
-Colaborar con la Dirección de Departamento en el desarrollo y ejecución de los planes anuales y operativos de la Unidad.
-Velar porque todas las normas de control interno, dictadas por la administración y órgano competentes sean aplicadas conforme a lo reglamentado.
-Realizar todas las gestiones administrativas y operativas propias de la Unidad.
+o Planear, dirigir, supervisar, coordinar y ejecutar las políticas que en materia de protección, seguridad y vigilancia establezca la Institución, así como todo lo referente a la organización interna y actuación administrativa.
+o Coordinar la supervisión de todo lo relacionado con protección, seguridad y vigilancia a diputados(as), personal administrativo y de fracción y visitantes de la Asamblea Legislativa.
+o Coordinar la supervisión de la seguridad y vigilancia a las instalaciones y bienes de la Institución mediante la ejecución de labores variadas.
+o Emanar directrices a los supervisores de turno seguridad y agentes de seguridad, relacionados con los planes de operación de seguridad en la Institución.
+o Velar porque se cumplan las instrucciones emanadas de los niveles superiores y se reporten las irregularidades ocurridas y observadas.
+o Preparar y presentar reportes sobre las actividades realizadas, irregularidades observadas y hacer las recomendaciones pertinentes.
+o Confeccionar los turnos de trabajo y determinar la ubicación física de los funcionarios de seguridad y coordinar las actividades de vigilancia en los edificios de la Asamblea Legislativa y las investigaciones ante situaciones especiales y de peligrosidad.
+o Coordinar con los entes pertinentes para establecer medidas de seguridad tanto dentro, como fuera de la Institución, en caso de manifestaciones o huelgas que puedan poner en peligro la integridad de la Institución y los que laboran en ella.
+o Establecer las estrategias necesarias de vigilancia para contrarrestar los daños ocasionados por personas ajenas a la Institución, en lugares y horas determinados.
+o Ejercer la autoridad disciplinaria sobre todo el personal de la Unidad de Seguridad.
+o Coordinar con el Departamento de Recursos Humanos, en el nombramiento del personal de seguridad, procurando que cumplan con los requisitos establecidos.
+o Promover la capacitación técnica del personal de la Unidad.
+o Ser parte activa del Plan de Emergencia Institucional.
+o Colaborar con la Dirección de Departamento en el desarrollo y ejecución de los planes anuales y operativos de la Unidad.
+o Velar porque todas las normas de control interno, dictadas por la administración y órgano competentes sean aplicadas conforme a lo reglamentado.
+o Realizar todas las gestiones administrativas y operativas propias de la Unidad.
 (Así reformado mediante sesión N°186 celebrada el 30 de noviembre del 2005).
 TÉCNICO ESPECIALISTA (niveles A. B. C y D)
 Objetivo del trabajo: Facilitar el cumplimiento de planes y programas del proceso de trabajo mediante la ejecución de labores técnicas variadas, para lo que se requiere la aplicación de principios teóricos y prácticos propios de una disciplina o área determinada de conocimientos.
@@ -1898,4 +1903,4 @@ CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Título de Bachiller en Educación Media.
 Conclusión de estudios de Educación General Básica.
 Experiencia mínima de dos años en labores relacionadas con la actividad.
-Asamblea Legislativa, San José, 10 de mayo Julio del 20001999.
+Asamblea Legislativa, San José, 10 de mayo Julio del 2000.

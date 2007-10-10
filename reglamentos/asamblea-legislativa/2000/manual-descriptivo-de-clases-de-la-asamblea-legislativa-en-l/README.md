@@ -18,3 +18,4 @@ Manual Descriptivo de Clases de la Asamblea Legislativa (En La Gaceta N° 146 de
 | 3 | 2005-12-20 | Acuerdo 41 (2005-12-22) |
 | 4 | 2007-07-17 | Acuerdo 22 (2007-07-17) |
 | 5 | 2007-09-26 | Acuerdo 38 (2007-09-26) |
+| 6 | 2007-10-10 | Acuerdo 37 (2007-10-10) |
