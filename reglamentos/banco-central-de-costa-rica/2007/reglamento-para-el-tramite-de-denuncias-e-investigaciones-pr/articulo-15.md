@@ -1,0 +1,1 @@
+Artículo 15.—De los funcionarios nombrados por la Junta Directiva o el CONASSIF. En los casos en que las personas investigadas sean de nombramiento de Junta Directiva o del CONASSIF, la investigación preliminar estará a cargo de personas ajenas a la Institución, nombradas específicamente para ese cometido.
