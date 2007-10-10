@@ -1,0 +1,2 @@
+Artículo 30.—Potestades de la Auditoría Interna. Para el desempeño de sus funciones, el Auditor Interno y demás funcionarios de la Auditoría Interna tendrán las potestades establecidas en el artículo 33 de la Ley General de Control Interno.
+Además, cuando se trate de solicitudes de información o documentación para algún estudio, la Auditoría Interna determinará el plazo dentro del cual la Administración deberá remitirla.

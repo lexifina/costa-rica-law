@@ -1,0 +1,6 @@
+Artículo 19.—Ética y principios. Los funcionarios de Auditoría Interna deberán desempeñar sus labores apegados a las sanas prácticas y a la normativa vigente, tanto a nivel interno como externo de la Operadora y su desempeño debe estar basado en los siguientes principios:
+a) Integridad: La integridad de esos funcionarios establece confianza y como consecuencia, conforma la base para confiar en su juicio y dictamen.
+b) Objetividad: Dichos funcionarios deben dar muestras de su objetividad al reunir, evaluar y comunicar información pertinente a la investigación que estén realizando. Deben hacer una evaluación equilibrada de todas las circunstancias relevantes de manera que puedan tomar una actitud imparcial, neutral, y libre de influencias tanto por intereses propios como de otras personas.
+c) Confidencialidad: Deben respetar el valor y la propiedad de la información que reciben y no divulgarla sin la debida autorización, a menos que exista una obligación legal o profesional para hacerlo.
+d) Pericia: Deben poseer los conocimientos, aptitudes y otras competencias necesarias para cumplir con sus responsabilidades individuales.
+e) Independencia: Deben ejercer sus actividades con total independencia funcional y de criterio, respecto a los demás órganos de la administración activa.

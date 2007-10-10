@@ -1,0 +1,1 @@
+Artículo 21.—Protección del Personal de Auditoría. La Operadora es responsable de brindarle apoyo jurídico y técnico al personal de Auditoría Interna, en caso que éste se vea involucrado en algún conflicto legal en el cumplimiento de sus funciones, de tal manera que INS PENSIONES OPC, S.A. cubrirá los costos totales del proceso hasta la resolución final.

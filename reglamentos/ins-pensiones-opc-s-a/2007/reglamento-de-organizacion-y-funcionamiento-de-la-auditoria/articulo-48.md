@@ -1,0 +1,1 @@
+Artículo 48.—Conocimiento. Ningún funcionario puede alegar desconocimiento del presente reglamento, por lo anterior, es obligación y responsabilidad del jerarca, de la Auditoría Interna y de los respectivos titulares subordinados informar de su existencia al personal a su cargo.

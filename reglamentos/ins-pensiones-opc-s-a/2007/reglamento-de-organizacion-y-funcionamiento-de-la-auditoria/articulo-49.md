@@ -1,0 +1,1 @@
+Artículo 49.—Potestad para modificaciones. El presente reglamento puede ser modificado mediante recomendación de la Auditoría Interna y acuerdo específico de la Junta Directiva de INS PENSIONES OPC, S. A., y deberá ser remitido para su aprobación a la Contraloría General de la República.
