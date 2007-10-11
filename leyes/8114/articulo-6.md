@@ -8,4 +8,6 @@ f) Auditorías técnicas a los laboratorios que trabajan para el sector vial.
 g) Asesoramiento técnico al jerarca superior de la Dirección de Vialidad del MOPT, así como al ministro y viceministro del sector.
 h) Ejecución y auspicio de programas de cursos de actualización y actividades de transferencia de tecnología dirigidas a ingenieros e inspectores.
 i) Programas de investigación sobre los problemas de la infraestructura vial pavimentada del país.
+j) Con la finalidad de garantizar la calidad de la red vial cantonal y en lo que razonablemente sea aplicable, las municipalidades y la Universidad de Costa Rica, por intermedio del Lanamme, podrán celebrar convenios que les permitan realizar, en la circunscripción territorial municipal, tareas equivalentes a las establecidas en los incisos anteriores.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley N° 8603 del 14 de setiembre de 2007)
 El laboratorio citado en este artículo informará, para lo que en derecho corresponda, a la Asamblea Legislativa, al Ministerio de la Presidencia, al MOPT, a la Contraloría General de la República y a la Defensoría de los Habitantes, el resultado final de las auditorías técnicas realizadas a proyectos en ejecución y de las evaluaciones efectuadas a la red nacional pavimentada, las carreteras y los puentes en concesión.
