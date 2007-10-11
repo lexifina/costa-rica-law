@@ -1,0 +1,1 @@
+Artículo 3º—La Red se integrará con las instituciones y organizaciones de los sectores público y privado que se vinculan, principalmente, con los componentes de la cadena agroalimentaria de producción de frutas y vegetales.

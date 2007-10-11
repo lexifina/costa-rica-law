@@ -1,0 +1,1 @@
+Artículo 11.—Asesorías. Los órganos colegiados creados en el presente decreto podrán contar con los asesores necesarios para el cumplimiento de sus objetivos, lo cual no implica la contratación de personal o de consultorías.

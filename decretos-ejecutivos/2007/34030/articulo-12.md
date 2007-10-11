@@ -1,0 +1,1 @@
+Artículo 12.—Los integrantes de los órganos colegiados serán nombrados por el titular de cada institución y dependencia, por un período de dos años prorrogables, y ejercerán sus funciones en forma ad-honorem.

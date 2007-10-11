@@ -1,0 +1,1 @@
+Artículo 17.—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por al menos votación de dos tercios de la totalidad de los miembros.

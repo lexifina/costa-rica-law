@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Salud será el coordinador general de la Red a través del Despacho del Viceministro de Salud mediante la conducción técnica y operativa de la Unidad de Promoción de la Salud.
