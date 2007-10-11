@@ -1,0 +1,2 @@
+Artículo 7
+Las Partes Contratantes intercambiarán muestras de sus pasaportes diplomáticos y de servicio válidos a los que se refiere en el Artículo 1 de este Acuerdo, a través de los canales diplomáticos, dentro de los noventa días de la entrada en vigor del presente Acuerdo. En caso de la introducción de un nuevo pasaporte diplomático o de servicio así como también de la modificación del existente, las Partes Contratantes deberán enviarse - mutuamente, a-través de la vía diplomática, muestras de los nuevos pasaportes, al menos treinta días antes de su introducción.
