@@ -1,0 +1,1 @@
+Artículo 46.—La Auditoría Interna en sus informes y oficios de remisión, recordará los plazos con que cuenta el Ministro o Coordinador de Unidad para ordenar o resolver lo que corresponda; para ello en la copia del informe y oficios de remisión deberá quedar consignada la fecha de recibido de la Unidad Auditada.

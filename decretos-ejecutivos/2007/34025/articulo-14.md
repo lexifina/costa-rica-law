@@ -1,0 +1,1 @@
+Artículo 14.—El Auditor Interno deberá cumplir las funciones establecidas en el Manual de Cargos del Ministerio de Economía Industria y Comercio y con los requisitos dispuestos por la Contraloría General de la República.
