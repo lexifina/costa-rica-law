@@ -1,0 +1,1 @@
+Artículo 7º—El auditor interno y los demás funcionarios de la auditoría interna observarán las prohibiciones estipuladas en el artículo 34 de la LGCI y en el artículo 117 de Reglamento Autónomo de Servicios del BCCR.

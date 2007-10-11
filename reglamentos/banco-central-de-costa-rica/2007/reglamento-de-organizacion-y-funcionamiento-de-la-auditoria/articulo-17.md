@@ -1,0 +1,3 @@
+SECCIÓN V
+El personal de la auditoría interna
+Artículo 17.—La auditoría contará con el personal asistente necesario, el que debe ser especialista en control interno y poseer en conjunto conocimientos suficientes de las actividades sustantivas, tecnológicas y de apoyo administrativo que realiza el BCCR y demás órganos que conforman su universo fiscalizable. El nombramiento, traslado, suspensión, remoción, permuta, sanción, promoción, concesión de licencias, disminución de plazas por movilidad laboral y demás movimientos de personal requiere la autorización previa del auditor interno. [Ref: LGCI, artículos 24 y 28]

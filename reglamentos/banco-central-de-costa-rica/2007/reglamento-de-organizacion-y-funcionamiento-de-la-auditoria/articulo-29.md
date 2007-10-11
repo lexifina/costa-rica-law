@@ -1,0 +1,1 @@
+Artículo 29.—Los servicios de fiscalización de la actividad de auditoría interna se clasifican en servicios de auditoría (auditorías financieras, de cumplimiento, operacionales y estudios especiales) y servicios preventivos (asesorías, advertencias y autorización de libros). [Ref: MNEAISP, normas 1.1.1, 1.1.2 y 1.1.3]

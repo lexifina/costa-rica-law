@@ -1,0 +1,1 @@
+Artículo 11.—La auditoría interna dependerá orgánicamente de la junta directiva del BCCR. Su estructura orgánica la definirá el auditor interno de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República. [Ref: LGCI, artículo 23]

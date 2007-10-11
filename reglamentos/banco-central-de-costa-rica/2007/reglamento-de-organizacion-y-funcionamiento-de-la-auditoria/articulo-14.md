@@ -1,0 +1,1 @@
+Artículo 14.—El auditor y subauditor internos desempeñarán sus funciones conforme lo establecen el Manual de Organización, el Manual descriptivo de puestos del BCCR y los requisitos estipulados por la CGR. [Directrices relativas al reglamento inciso d, punto 2.3.2]

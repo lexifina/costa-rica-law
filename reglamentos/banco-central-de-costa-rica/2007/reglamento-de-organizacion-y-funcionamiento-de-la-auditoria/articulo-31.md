@@ -1,0 +1,1 @@
+Artículo 31.—Las comunicaciones relacionadas con asesorías y advertencias se remitirán al titular subordinado o al jerarca. Las comunicaciones sobre legalización de libros se remitirán a los responsables de las unidades administrativas encargados de esos libros. Su forma y contenido los definirá el auditor interno de acuerdo con las circunstancias.

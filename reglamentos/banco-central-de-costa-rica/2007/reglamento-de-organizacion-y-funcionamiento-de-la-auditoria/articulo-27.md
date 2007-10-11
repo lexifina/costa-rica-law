@@ -1,0 +1,1 @@
+Artículo 27.—Para la administración, custodia y conservación de los documentos se aplicarán las normas técnicas vigentes que regulan esta materia en el BCCR y los promulgados por la Contraloría General de la República, así como las modificaciones y nuevas normas que se emitan en el futuro.

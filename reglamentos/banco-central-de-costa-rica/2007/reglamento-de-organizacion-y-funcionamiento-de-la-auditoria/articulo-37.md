@@ -1,0 +1,3 @@
+SECCIÓN II
+Derogaciones y vigencia
+Artículo 37.—Queda derogado el Reglamento de organización y funciones de la auditoría interna del Banco Central de Costa Rica, aprobado en sesión de Junta Directiva 4344-89 del 15 de marzo de 1989 y modificado en sesión 4368-89 de 9 de agosto de 1989, promulgado con base en los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las auditorías internas de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en La Gaceta número 14 del 21 de enero de 1988. [Ref: ídem, inciso a, punto 2.3.4]

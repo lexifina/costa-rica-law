@@ -1,0 +1,1 @@
+Artículo 4º—El auditor interno establecerá y mantendrá actualizado el Código de Ética, el cual deberá ser acatado obligatoriamente por los funcionarios de la auditoría interna en el desempeño de sus actividades personales y profesionales.
