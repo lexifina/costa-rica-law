@@ -1,0 +1,1 @@
+Artículo 9º—Derogatoria: Se deroga el Decreto Ejecutivo Nº 27244-H, publicado en La Gaceta Nº 168 del 28 de agosto de 1998, denominado “Principios de Contabilidad Aplicables al Sector Público Costarricense”.

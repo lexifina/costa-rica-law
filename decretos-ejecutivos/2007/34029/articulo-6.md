@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidad del órgano rector: La Contabilidad Nacional, será responsable de efectuar un proceso oportuno de revisión, actualización y comunicación de las NICSP adoptadas; conforme con las modificaciones que realice la Federación Internacional de Contabilidad (IFAC) ante los requerimientos del Sector Público.

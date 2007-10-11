@@ -1,0 +1,1 @@
+Artículo 8º—Divulgación y capacitación: La Contabilidad Nacional será la responsable de iniciar un período de divulgación y capacitación de esta nueva normativa en las diferentes instituciones del Sector Público Costarricense.

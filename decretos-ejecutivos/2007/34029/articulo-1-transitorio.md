@@ -1,0 +1,1 @@
+Transitorio I: Para el cumplimiento de lo establecido en el artículo 5 del presente decreto ejecutivo (Órgano Técnico), la Contabilidad Nacional contará con un plazo de seis meses a partir de enero 2008, para capacitar a sus funcionarios en la nueva normativa, objeto de adopción e implementación.

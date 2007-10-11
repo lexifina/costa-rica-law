@@ -1,0 +1,1 @@
+Artículo 4º—Aplicación de temas no abordados en las NICSP: Todos aquellos temas no abordados en las NICSP, serán regulados por la Contabilidad Nacional en su condición de Órgano Rector del Subsistema, mediante las directrices y/o emisión de criterios que al efecto emita.

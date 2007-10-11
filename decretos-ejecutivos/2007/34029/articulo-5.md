@@ -1,0 +1,1 @@
+Artículo 5º—Órgano técnico: La Contabilidad Nacional será el órgano técnico que tendrá a cargo la potestad de interpretación oficial de las NICSP y la competencia para la atención de cualquier consulta que se presente relacionada con la aplicación de esas normas. Toda consulta deberá ser formulada por los interesados en forma escrita.
