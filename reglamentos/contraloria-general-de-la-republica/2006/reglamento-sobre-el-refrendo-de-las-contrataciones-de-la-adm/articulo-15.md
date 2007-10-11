@@ -1,4 +1,0 @@
-Artículo 15.—Disposiciones transitorias
-1. Para la determinación del rango en el cual se ubicará cada institución según su presupuesto de adquisición de bienes y servicios, regirá lo dispuesto en la resolución Nº R-SC-02-2006 de las catorce horas del quince de febrero de 2006, publicada en el Alcance Nº 10 a La Gaceta Nº 42 del 28 de febrero de 2006.
-2. Aquellas instituciones cuyos presupuestos no se encuentren incluidos en la citada resolución Nº R-SC-02-2006, ni hayan sido incorporados a sus regulaciones por otros medios, deberán remitir para refrendo contralor aquellas contrataciones cuyo monto sea igual o superior a quince millones de colones (¢15.000.000,00).
-3. Si se tratare de órganos desconcentrados con personalidad jurídica instrumental, cuyos presupuestos no se encuentran incluidos en la citada resolución Nº R-SC-02-2006, se regirán por el presupuesto de la entidad a la que están adscritos.

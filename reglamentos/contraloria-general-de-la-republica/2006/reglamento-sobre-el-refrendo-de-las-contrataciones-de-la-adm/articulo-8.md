@@ -1,3 +1,0 @@
-Artículo 8º—Formalización de contratos
-1. Las contrataciones que de conformidad con este Reglamento deben ser aprobadas por la Contraloría General, se formalizarán en simple documento.
-2. Únicamente requerirán formalizarse en escritura pública los negocios jurídicos que tengan impuesto este requisito por ley, en cuyo caso, de previo a la firma de dicha escritura deberá remitirse a refrendo contralor el borrador certificado del documento que se suscribirá. La certificación anterior deberá ser emitida por el órgano competente, en la cual conste que efectivamente las copias aportadas contienen de forma exacta los contenidos de la futura escritura.

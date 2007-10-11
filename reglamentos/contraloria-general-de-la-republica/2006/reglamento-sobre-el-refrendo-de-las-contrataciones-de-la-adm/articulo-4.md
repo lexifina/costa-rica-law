@@ -1,4 +1,0 @@
-Artículo 4º—Aprobación de modificaciones a contratos de obra
-1. En los casos de modificaciones a contratos administrativos de obra refrendados por la Contraloría General, originadas en el ejercicio de la potestad de modificación unilateral prevista en los artículos 12 de la Ley de Contratación Administrativa y 200 de su Reglamento, se requiere refrendo cuando la sumatoria de las modificaciones consistentes en aumentos al objeto contractual sea superior al 5% del monto del contrato, incluyendo reajustes y revisiones del precio. La Administración podrá compensar para el cálculo del porcentaje anterior, las disminuciones y los aumentos al objeto contractual. No requerirán refrendo las simples disminuciones.
-2. En los casos de las modificaciones excluidas del refrendo según el inciso anterior, requerirán la aprobación de la unidad interna a la que se refiere el artículo 10 de este Reglamento.
-(Así reformado mediante resolución N° CO-29 del 18 de julio del 2007).

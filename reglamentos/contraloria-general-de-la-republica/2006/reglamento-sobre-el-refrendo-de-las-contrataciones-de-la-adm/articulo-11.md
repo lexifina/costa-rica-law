@@ -1,3 +1,0 @@
-Artículo 11.—Plazo
-1. La Contraloría General de la República atenderá las gestiones de refrendo de contratos en un plazo que no podrá exceder de treinta días hábiles, que empezará a correr a partir del día siguiente al del recibo de la solicitud en el órgano contralor, todo de conformidad con lo establecido en el artículo 6 de este Reglamento.
-2. Cuando en el transcurso del trámite de una solicitud de refrendo la Administración remita un documento de modificación al texto contractual bajo examen, el plazo de treinta días para resolver se computará de nuevo a partir del día siguiente al del recibo del nuevo documento en el órgano contralor.
