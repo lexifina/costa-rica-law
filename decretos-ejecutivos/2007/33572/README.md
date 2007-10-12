@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense de Ferrocarriles, el gasto presupuestario m√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-23 | la propia norma |
+| 2 | 2007-10-12 | Decreto Ejecutivo 34082 (2007-10-12) |
