@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE ESPARZA
+El Concejo Municipal del cantón de Esparza, en acta Nº 74 de sesión ordinaria, artículo Nº 5, del Capítulo IV, efectuada el 24 de setiembre de 2007, acordó modificar el artículo 11 del Reglamento al artículo 17 de la Ley Nº 5582, reformado por la Ley Nº 8461, Ley Reguladora de la Actividad Portuaria de la Costa del Pacífico, publicado en el Diario Oficial La Gaceta Nº 125 del 29 de junio de 2007, para que diga:
+“Artículo 11.—La Comisión de Becas llevará un expediente debidamente numerado y foliado para cada estudiante seleccionado, en el que serán incorporados todos los documentos pertinentes que justifiquen el beneficio y la permanencia del estudiante en el sistema educativo. Esta Comisión estará integrada de acuerdo a lo establecido por el artículo 49 del Código Municipal.”
+Espíritu Santo de Esparza, 2 de octubre del 2007.
