@@ -7,4 +7,7 @@ Artículo 72.—Son causas para la cancelación del derecho de adjudicación o a
 6) Cuando se compruebe que la lotería de un adjudicatario está en manos de terceros y se cuente con tres seguimientos de series desfavorables, de un período de un año, se le cancela la adjudicación o autorización de venta.
 7) Cuando los vendedores autorizados entreguen depósitos bancarios sin el respaldo económico real para el retiro de lotería.
 8) Cuando un adjudicatario, no retire varias cuotas consecutivas, durante un plazo de tres meses, sin causa justificada, se le cancela la cuota hasta por cuatro años.
-9) En todos los casos de cancelación de cuota, si transcurrido el término a que se refiere este artículo, tuviesen interés en volver a ser vendedores de loterías, deben iniciar el trámite como nuevos adjudicatarios.
+9) Cuando los vendedores o adjudicatarios de loterías cometan una infracción al capítulo XX del presente cuerpo normativo.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 34102 del 16 de octubre de 2007)
+10) En todos los casos de cancelación de cuota, si transcurrido el término a que se refiere este artículo, tuviesen “interés en volver a ser vendedores de loterías, deben iniciar el trámite como nuevos adjudicatarios.
+(Así corrida la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 34102 del 16 de octubre de 2007, que lo traspaso del inciso 9) al inciso 10) actual)

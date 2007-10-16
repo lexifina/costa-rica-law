@@ -1,0 +1,2 @@
+Artículo 132.—Los vendedores de lotería, deben abstenerse en cualquier momento mientras realicen labores de venta al público consumidor o bien, se encuentren realizando cualquier trámite en las instalaciones de la Junta, de emplear lenguaje, gestos y actitudes vulgares, groseros, o que por las circunstancias se consideren indebidos de modo que ofendan el pudor, la moral, las buenas costumbres y/o perjudiquen la prestación del servicio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34102 del 16 de octubre de 2007)

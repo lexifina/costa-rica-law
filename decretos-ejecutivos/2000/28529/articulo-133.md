@@ -1,0 +1,2 @@
+Artículo 133.—Los vendedores de lotería, deberán respetar estrictamente el orden jerárquico establecido en la Junta de Protección Social de San José, y canalizar con riguroso apego a este principio, toda solicitud, reclamo o queja que estimen pertinente presentar, evitando de este modo generar conflictos en el desempeño normal de la jornada institucional.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34102 del 16 de octubre de 2007)
