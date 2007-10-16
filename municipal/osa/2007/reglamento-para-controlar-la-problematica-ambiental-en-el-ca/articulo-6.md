@@ -1,0 +1,1 @@
+Artículo 6º—De la inspección municipal previa en caso de movimientos de tierra. La Municipalidad realizará una inspección del sitio para verificar la veracidad de lo señalado por el administrado en su solicitud conforme al inciso a) del artículo 3º de este reglamento. De no cumplirse esta disposición no se podrá otorgar el respectivo permiso.

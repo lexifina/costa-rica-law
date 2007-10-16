@@ -1,0 +1,6 @@
+Artículo 10.—Procedimiento para la tramitación de la impugnación de las resoluciones que emita la oficina administrativa competente. En caso de impugnación de una resolución que rechace un permiso para obras constructivas, el trámite será el siguiente:
+a) Una vez recibida la impugnación la oficina administrativa competente que emitió la resolución procederá a recibir el recurso y consignar el sello de recibido. Los documentos se agregarán al expediente del caso, y procederá dentro de un término de cinco días hábiles a resolver si acoge o no el recurso de revocatoria.
+b) De acogerse la impugnación la oficina administrativa competente emitirá una resolución fundamentada en ese sentido y la comunicará a las partes.
+c) En caso de rechazo del recurso interpuesto, la oficina administrativa competente emitirá resolución fundamentada y trasladará el expediente al Despacho del Alcalde para que conozca del recurso de apelación, el cual recibirá el expediente y resolverá si acoge o no el recurso de apelación.
+d) Si el Despacho del Alcalde acoge el recurso emitirá resolución fundamentada en este sentido y la comunicará a las partes.
+e) Si no lo acoge emitirá la resolución fundada sobre las razones técnicas y legales para rechazar la apelación.

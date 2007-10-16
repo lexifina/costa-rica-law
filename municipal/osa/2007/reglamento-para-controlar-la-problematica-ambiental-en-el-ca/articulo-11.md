@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la Comisión de Control Ambiental
+Artículo 11.—De la conformación y de las funciones de la Comisión de Control Ambiental. La Administración Municipal por medio del Departamento de la Administración Tributaria y el de Servicios Jurídicos conformará una Comisión de Control Ambiental, la cual tendrá a su cargo velar por el cumplimiento de las disposiciones del ordenamiento jurídico en materia ambiental y de Desarrollo Sostenible, procurando que las dependencias municipales den seguimiento e implementen políticas de protección ambiental y de Desarrollo Sostenible al resolver las solicitudes de permisos de obras constructivas que presenten los administrados.

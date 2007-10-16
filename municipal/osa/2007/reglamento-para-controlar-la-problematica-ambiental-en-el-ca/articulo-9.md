@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los medios de impugnación y del procedimiento
+Artículo 9º—Impugnación de las resoluciones que emita la oficina administrativa competente sobre permisos para la realización de obras constructivas. En caso de disconformidad con la resolución emitida por la oficina administrativa competente rechazando el permiso para obras constructivas, el administrado podrá presentar en término de cinco días contados a partir de la notificación, un escrito que será firmado por el recurrente, donde señalará los fundamentos fácticos y jurídicos del mismo, la resolución que impugna, indicando el órgano administrativo que emitió y el tipo de recurso que presenta (si es revocatoria, de apelación o ambos) de conformidad con lo dispuesto en el artículo 162 del Código Municipal.
