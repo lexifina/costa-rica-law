@@ -1,0 +1,1 @@
+Artículo 61.—Las Direcciones Regionales previa verificación de requisitos estarán facultadas para autorizar las segregaciones en cabeza de su dueño, para lo cual procederá a emitir la resolución pertinente, donde se autoriza o no la segregación solicitada.

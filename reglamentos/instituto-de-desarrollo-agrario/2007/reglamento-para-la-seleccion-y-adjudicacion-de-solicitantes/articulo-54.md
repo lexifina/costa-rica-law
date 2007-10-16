@@ -1,0 +1,1 @@
+Artículo 54.—Finalizados los estudios anteriores, la Oficina Subregional, elevará un informe técnico detallado denominado “Estudio sobre solicitud de traspaso” a la Dirección Regional correspondiente, para su conocimiento y trámite ante la Junta Directiva, adjuntándose el expediente administrativo completo.

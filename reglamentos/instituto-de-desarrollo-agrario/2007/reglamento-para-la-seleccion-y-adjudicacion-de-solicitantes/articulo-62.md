@@ -1,0 +1,1 @@
+Artículo 62.—Una vez elaborada la resolución, la misma será comunicada a la Oficina Subregional, con copia al Área de Selección de Familias y al Área de Titulación. Las Oficinas Subregionales tendrán la responsabilidad de notificar por escrito a las personas interesadas, lo que corresponda según dichas resoluciones.

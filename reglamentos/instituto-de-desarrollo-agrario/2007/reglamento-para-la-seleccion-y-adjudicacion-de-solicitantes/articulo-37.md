@@ -1,0 +1,2 @@
+Artículo 37.—La Oficina Subregional valorará la solicitud la que deberá contener un análisis sobre la viabilidad del proyecto productivo para el cual se solicita un predio para ser remitida a la Junta Directiva con el visto bueno de la Asesoría Legal Regional y del Director Regional.
+La Junta Directiva aprobará o improbará la solicitud y la comunicará a la Oficina Subregional, con copia a la Dirección Regional, al Área de Selección de Familias y al Área de Titulación.

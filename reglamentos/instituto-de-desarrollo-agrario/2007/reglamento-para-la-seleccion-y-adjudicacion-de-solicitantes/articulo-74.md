@@ -1,0 +1,1 @@
+Artículo 74.—Los predios que quedasen disponibles por renuncias, revocatorias o nulidades de títulos, serán adjudicados en el plazo de sesenta días naturales, nuevamente entre las personas solicitantes de la Región, dando prelación a los restantes calificados a los cuales se refiere el artículo 13 de este Reglamento.

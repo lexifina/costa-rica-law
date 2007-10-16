@@ -1,0 +1,1 @@
+Artículo 64.—Una vez autorizada la segregación en cabeza de su dueño, deberá recurrir ante Notario para el trámite de inscripción ante el Registro Público de la Propiedad, para lo cual solicitará el refrendo ante la Asesoría Legal Regional y deberá adjuntar el Primer Testimonio (original y tres copias) y tres copias de la resolución de autorización.

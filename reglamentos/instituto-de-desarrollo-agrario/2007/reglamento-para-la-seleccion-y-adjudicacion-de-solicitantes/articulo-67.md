@@ -1,0 +1,1 @@
+Artículo 67.—En caso de la segregación para traspasar un lote conforme al artículo anterior, será necesario un informe técnico de la Oficina Subregional, donde indique que no se afecta la explotación de la parcela como unidad económica familiar.

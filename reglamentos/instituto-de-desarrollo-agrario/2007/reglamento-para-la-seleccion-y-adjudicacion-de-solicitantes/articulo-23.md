@@ -1,0 +1,1 @@
+Artículo 23.—Notificadas formalmente las familias solicitantes de la aprobación del estudio y del resultado del mismo y una vez efectuada la parcelación o segregación material de la finca en la que serán ubicadas, la Dirección Regional en coordinación con la Oficina Subregional correspondiente, realizará la asignación de parcelas, mediante sorteo, entre las familias elegibles.

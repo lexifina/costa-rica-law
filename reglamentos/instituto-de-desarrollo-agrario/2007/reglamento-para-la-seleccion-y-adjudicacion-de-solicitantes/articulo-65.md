@@ -1,0 +1,1 @@
+Artículo 65.—Si la segregación de parcelas es para traspasar áreas a personas físicas, éstas deberán presentarse con las personas adjudicatarias a la Oficina Subregional correspondiente a iniciar el trámite, para lo cual se seguirá el procedimiento establecido en el capítulo VI de este Reglamento.

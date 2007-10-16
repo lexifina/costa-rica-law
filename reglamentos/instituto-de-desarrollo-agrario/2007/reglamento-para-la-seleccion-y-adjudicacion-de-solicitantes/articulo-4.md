@@ -1,0 +1,1 @@
+Artículo 4º—El Área de Selección de Familias, será la responsable de supervisar y fiscalizar el proceso de selección y de mantener el Sistema de Selección y Adjudicación de Tierras. No se tramitará o aprobará ninguna adjudicación o traspaso si no ha cumplido previamente con el proceso que este Reglamento establece.

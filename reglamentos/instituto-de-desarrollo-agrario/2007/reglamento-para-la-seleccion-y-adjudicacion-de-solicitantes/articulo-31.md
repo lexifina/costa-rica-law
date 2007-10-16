@@ -1,0 +1,2 @@
+Artículo 31.—Los Beneficiarios en período de prueba deben comprometerse a explotar la parcela personalmente y con sus descendientes, hasta el segundo grado de consanguinidad y que vivan con ellos, siempre que estén en condiciones físicas de hacerlo.
+Respetando el debido proceso se dará por descalificada una familia solicitante de tierra si incurriere en alguna de las causales establecidas en los numerales 67 y 68 de la Ley 2825.
