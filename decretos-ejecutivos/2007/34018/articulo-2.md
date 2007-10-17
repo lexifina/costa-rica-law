@@ -1,0 +1,1 @@
+Artículo 2º—Modificase para la citada institución, el gasto presupuestario máximo del 2007, establecido en el artículo 3° del Decreto Ejecutivo Nº 33339-H, quedando el límite en la suma de ¢4.571.800.000,00 (cuatro mil quinientos setenta y un millones ochocientos mil colones exactos) para ese período.
