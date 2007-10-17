@@ -1,0 +1,1 @@
+Artículo 82.—Informes sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deben constar en un informe dirigido al Consejo de Administración. En ese mismo informe el Auditor debe presentar un plan de mejoras, si así lo requieren esos resultados. El Auditor es responsable de dar seguimiento adecuado al plan de mejoras.

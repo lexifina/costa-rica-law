@@ -1,0 +1,1 @@
+Artículo 51.—Planificación Estratégica. El Auditor General debe establecer una Planificación estratégica acorde con su universo fiscalizable actualizado, la valoración del riesgo y los objetivos institucionales.

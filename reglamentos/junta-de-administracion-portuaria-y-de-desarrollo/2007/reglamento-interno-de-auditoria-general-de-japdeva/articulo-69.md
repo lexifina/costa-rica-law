@@ -1,0 +1,8 @@
+Artículo 69.—Rechazo de denuncias. La Auditoría General rechazará en cualquier momento, incluso desde su presentación y mediante resolución motivada:
+1) Las denuncias que no sean de su competencia, en cuyo caso deberán canalizarlas a las instancias competentes de conformidad con la Ley de protección al ciudadano del exceso de trámites y requisitos administrativos (Ley 8220 del 4 de marzo del 2002).
+2) Las denuncias que sean manifiestamente improcedentes o infundadas.
+3) Las denuncias reiterativas que contengan aspectos que ya han sido atendidos, en cuyo caso se comunicará al interesado lo ya resuelto.
+4) Las denuncias que se refieran únicamente a los intereses particulares del ciudadano, con relación a conductas u omisiones de la Administración Activa que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente.
+5) Las gestiones que bajo el formato de denuncia, sean presentadas con la única finalidad de ejercer la defensa personal sobre situaciones cuya discusión corresponda a otras sedes, ya sean administrativas o judiciales.
+Asimismo tomará en cuenta los siguientes parámetros:
+El detalle y la relación de los hechos denunciados deben ser claros, precisos y con el detalle necesario, de modo que permitan activar una investigación. En caso de imprecisión de los hechos, se otorgará al denunciante diez días hábiles para que complete la información que fundamenta la denuncia. Lo anterior bajo apercibimiento de que con el incumplimiento de esta prevención, se procederá al archivo inmediato de la gestión, sin perjuicio de que sea presentada con mayores elementos posteriormente como una nueva denuncia.

@@ -1,0 +1,1 @@
+Artículo 76.—Incorporación del conocimiento sobre riesgos. Los funcionarios de la Auditoría General coadyuvarán con el SEVRI mediante la incorporación de los conocimientos del riesgo relacionados en los trabajos, mediante los productos de los servicios de fiscalización.

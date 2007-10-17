@@ -1,0 +1,1 @@
+Artículo 58.—Comunicación verbal de los resultados de los servicios de auditoría. El Auditor General dispondrá la discusión verbal de los resultados con quienes tengan parte en los asuntos, de previo a su comunicación oficial, excepto de los resultados relativos a las relaciones de hechos y otros que la normativa contemple.

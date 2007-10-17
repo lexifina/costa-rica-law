@@ -1,0 +1,1 @@
+Artículo 79.—Evaluaciones internas. Las evaluaciones internas deberán incluir tanto revisiones continuas del desempeño de la actividad de Auditoría, como revisiones periódicas mediante auto evaluación o mediante otras personas dentro de la institución, con conocimiento de las prácticas de Auditoría y de las Normas.

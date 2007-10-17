@@ -1,0 +1,2 @@
+Artículo 22.—Requisitos del personal de la Auditoría General. Los requisitos de este personal son los definidos en el Manual de Cargos y Clases de la Institución y de conformidad con los lineamientos que emita al respecto la Contraloría.
+El departamento de Recursos Humanos, con la colaboración de la Auditoría General, definirá en sus respectivos manuales de cargos y clases, la descripción de las funciones y los requisitos correspondientes para cada uno de los cargos.

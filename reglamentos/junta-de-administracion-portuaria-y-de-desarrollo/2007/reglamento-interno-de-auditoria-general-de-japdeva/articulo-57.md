@@ -1,0 +1,1 @@
+Artículo 57.—Comunicación escrita de los resultados. La comunicación de resultados debe hacerse por escrito durante el desarrollo de la Auditoría o estudio especial de Auditoría mediante memorandos, oficios o informes parciales, o al finalizar la labor de campo, por medio del informe final.

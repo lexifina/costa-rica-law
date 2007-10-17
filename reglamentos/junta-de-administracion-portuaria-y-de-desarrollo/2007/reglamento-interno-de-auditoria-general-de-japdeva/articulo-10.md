@@ -1,0 +1,1 @@
+Artículo 10.—No le está permitido al personal de la Auditoría, proveniente de la administración, examinar documentos o información, donde éste haya participado oportunamente en su elaboración o examinar procesos donde parientes de hasta el tercer grado de consanguinidad o segundo grado de afinidad hayan participado o sean responsables.

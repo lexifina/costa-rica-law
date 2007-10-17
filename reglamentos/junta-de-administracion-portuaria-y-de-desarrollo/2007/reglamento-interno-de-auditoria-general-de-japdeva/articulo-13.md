@@ -1,0 +1,1 @@
+Artículo 13.—El Auditor establecerá los mecanismos formales necesarios que permitan controlar y administrar cualquier situación de impedimento que comprometa la objetividad e independencia de la auditoría interna.

@@ -1,0 +1,1 @@
+Artículo 53.—Programas de Trabajo. Los funcionarios de la Auditoría deben de preparar de forma escrita programas de trabajo que contemplen las acciones a ejecutar de tal manera que permitan alcanzar los objetivos del trabajo. Los mismos previos a su ejecución deben contar con la aprobación del supervisor.

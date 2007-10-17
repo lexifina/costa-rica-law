@@ -1,0 +1,1 @@
+Artículo 46.—Responsabilidad de la supervisión. El Auditor General o a quien el delegue, será el responsable de que exista una adecuada supervisión del trabajo. La supervisión deberá iniciar con la planificación del trabajo y continuar a través de las fases del examen hasta su conclusión y elaboración del informe.

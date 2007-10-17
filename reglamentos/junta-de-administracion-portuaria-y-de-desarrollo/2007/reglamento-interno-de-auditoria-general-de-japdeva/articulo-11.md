@@ -1,0 +1,1 @@
+Artículo 11.—El personal de la Auditoria Interna debe evitar relaciones razonablemente inconvenientes con los directivos y el personal de la entidad fiscalizada y otras personas que puedan influir, comprometer o amenazar la independencia o capacidad de los auditores.

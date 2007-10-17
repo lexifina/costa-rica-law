@@ -1,0 +1,3 @@
+Artículo 32.—Solicitud de Recursos. El proyecto de presupuesto anual de la Auditoría Interna, será elaborado y presentado oportunamente, por el Auditor Interno, al Consejo de Administración para su estudio y resolución.
+El funcionario encargado del presupuesto institucional mantendrá un registro separado sobre el presupuesto asignado a la Auditoría, con el detalle por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esta unidad.
+El control y administración del presupuesto de la Auditoría, así como los bienes asignados a la misma, estarán bajo la responsabilidad del Auditor Interno.
