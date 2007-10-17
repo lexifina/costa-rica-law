@@ -1,0 +1,1 @@
+Artículo 16.—Comunicación del nombramiento a la Contraloría General de la República: De conformidad con lo que establece el artículo 31 de la Ley 8292 se comunicará a la Contraloría por parte del Concejo Municipal el nombramiento resultante a más tardar el primer día hábil del inicio de funciones en el respectivo cargo.

@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto: Los requisitos para el puesto de Auditor Municipal deberán contener al menos los mínimos establecidos en la resolución L-1-2006-CO-DAGJ de la Contraloría General de la República o en resoluciones posteriores que modifiquen dicha resolución y deberán ser presentados previa publicación al Concejo Municipal para su aprobación.

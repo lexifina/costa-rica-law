@@ -1,0 +1,1 @@
+Artículo 5º—Publicación del aviso de concurso: El concurso se dará a conocer públicamente mediante la publicación en al menos un diario de, circulación nacional. En dicho aviso se incluirán los requisitos del puesto así como el salario del mismo y sus componentes. Además se señalará el sitio en el que se recibirán las ofertas y las fechas durante las que se recibirán.
