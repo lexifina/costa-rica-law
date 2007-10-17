@@ -1,0 +1,1 @@
+Artículo 8º—El Concejo Municipal, aprobará la aplicación de las solicitudes de modificación presupuestaria cuyos montos sean superiores a los autorizados al Alcalde Municipal, así como las solicitudes de modificación presupuestaria que afecten el Plan Anual Operativo.

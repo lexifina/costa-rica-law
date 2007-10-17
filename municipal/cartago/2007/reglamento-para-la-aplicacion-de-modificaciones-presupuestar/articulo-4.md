@@ -1,0 +1,1 @@
+Artículo 4º—Toda modificación presupuestaria debe justificarse en función del Plan Anual Operativo (Política Específica, Objetivo General y Específico) e indicar la meta a la cual se está aportando. Debe justificar si se trata de un ajuste para operación o para iniciar, fortalecer o terminar un proyecto.
