@@ -5,4 +5,5 @@ c) Un representante del Ministerio de Educación.
 d) Tres representantes de los Departamentos de Antropología, Lingüística y Arte, de las universidades, nombrados por el Consejo Nacional de Rectores.
 e) Un representante del Instituto Costarricense de Turismo.
 f) Un representante de ICOMOS.
-g) Un representante de Asociación de Grupos Independientes de Cultura Popular.
+g) Un representante de la Asociación de Grupos e Intérpretes de Cultura Popular Costarricense (AGICUP).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34200 del 17 de octubre de 2007)

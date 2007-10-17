@@ -1,1 +1,1 @@
-Artículo 9º—El Ministerio de Cultura, Juventud y Deportes, convocará a las organizaciones artesanales y culturales, debidamente inscritas ante la Dirección General de Cultura, dentro de los dos meses posteriores a la vigencia del presente decreto, a fin que en Asamblea General, nombren a su representante ante la Comisión Nacional de Salvaguarda del Patrimonio Cultural Intangible.
+Artículo 9º—(Así eliminado por el artículo 2° del decreto ejecutivo N° 34200 del 17 de octubre de 2007)

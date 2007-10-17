@@ -14,3 +14,4 @@ Crea Comisión Nacional de Salvaguarda del Patrimonio Cultural Intangible
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-19 | la propia norma |
+| 2 | 2007-10-17 | Decreto Ejecutivo 34200 (2007-10-17) |
