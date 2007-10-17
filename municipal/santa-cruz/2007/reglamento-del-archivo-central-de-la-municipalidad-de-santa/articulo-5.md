@@ -1,0 +1,1 @@
+Artículo 5º—El local del Archivo Central deberá reunir las condiciones necesarias que garanticen la conservación óptima de los documentos, tomando en cuenta el grado de humedad relativa del aire, temperatura, polución, luz e insectos o situaciones similares. Además deberá contar con las medidas técnicas para la extinción y prevención de incendios y robos.
