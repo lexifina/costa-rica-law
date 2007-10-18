@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 021-SC.—San José, 05 de octubre del 2007.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-227-07, Modificar el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con el fin de incluir la carrera de Licenciatura en Administración de Empresas con énfasis en Gerencia General, como atinencia del grupo de Especialidad Administración, Subespecialidad Generalista.
+DG-228-07, Modificar el artículo 2° del Manual Descriptivo de Especialidades del régimen de servicio civil, a fin de que se incluya la carrera Licenciatura en Química Industrial en el apartado atinencias académicas de la especialidad química.
+DG-229-07, Modificar el artículo 2° del Manual Descriptivo de Especialidades del Régimen de Servicio Civil, a fin de incluir en la Especialidad Formación Profesional, Subespecialidades Generalista e Instrucción (núcleo del sector comercio y servicios), la carrera Licenciatura en Administración y Gerencia de Empresas.
+DG-230-07, Modificar el Manual de Especialidades del Régimen de Servicio Civil, con el fin de incluir la carrera de Licenciatura en Finanzas como atinencia académica de la especialidad administración, Subespecialidades generalista y negocios.
+DG-231-07, No aprobar la recomendación formulada por el Departamento de Gestión del Potencial Humano del Ministerio de Hacienda, en el sentido de ubicar en el rango de aplicación de la especialidad Derecho, la clase Profesional de Investigación Fiscal 2 del Manual Institucional de Clases de Puestos, de la Policía de Control Fiscal.
