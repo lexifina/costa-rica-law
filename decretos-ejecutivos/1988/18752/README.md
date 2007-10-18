@@ -13,3 +13,4 @@ Crea el Centro Nacional de Didáctica (CENADI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-01-24 | la propia norma |
+| 2 | 2007-10-18 | Decreto Ejecutivo 34069 (2007-10-18) |
