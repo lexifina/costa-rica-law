@@ -1,7 +1,0 @@
-Artículo 3°—Son funciones y atribuciones de la Oficina de Derechos de la Niñez y la Adolescencia del Ministerio de Educación Pública:
-a. Promover una cultura respetuosa de los derechos de la niñez y la adolescencia, tanto en los educandos como hacia ellos.
-b. Asesorar en materia de políticas educativas para que éstas promuevan el aprendizaje y práctica del respeto a los derechos de la niñez y la adolescencia y, en general, a los derechos humanos.
-c. Coordinar con las diversas autoridades responsables, la aplicación de los programas educativos relacionados con la formación de los educandos en los centros educativos públicos en el conocimiento de los derechos humanos y, en particular, de los de la niñez y la adolescencia.
-d. Coordinar con las diversas instancias dentro y fuera del Ministerio de Educación Pública lo referente al desarrollo de convenios en los que se acuerden aspectos relacionados con el aprendizaje en materia de derechos de la niñez y la adolescencia en los centros educativos.
-e. Impulsar la inclusión del enfoque de derechos del niño y de la niña en los objetivos y contenidos curriculares, en los distintos programas de estudio de preescolar, primero, segundo y tercer ciclo de la Educación General Básica y, en la Educación Diversificada.
-f. Impulsar la investigación y estudios orientados hacia un mejor aprendizaje de los derechos de la niñez y la adolescencia y de los derechos humanos en general.

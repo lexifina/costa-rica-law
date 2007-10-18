@@ -1,1 +1,0 @@
-Artículo 2°—La Oficina de Derechos de la Niñez y la Adolescencia del Ministerio de Educación Pública contará con un encargado, los profesionales necesarios en el campo, y el personal de apoyo necesario.
