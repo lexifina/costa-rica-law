@@ -1,0 +1,1 @@
+Artículo 42.—Confidencialidad de los denunciantes. La Auditoría Interna asegurará la confidencialidad de los denunciantes, amparada al artículo 6 de la Ley de Control Interno. Para este propósito aquella utilizará los medios que considere adecuados.

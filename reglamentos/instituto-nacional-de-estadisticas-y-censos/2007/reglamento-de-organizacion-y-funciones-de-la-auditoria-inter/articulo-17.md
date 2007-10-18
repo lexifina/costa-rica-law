@@ -1,0 +1,1 @@
+Artículo 17.—Creación de plazas y nuevos servicios. El Auditor Interno propondrá justificadamente al Consejo Directivo, la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de auditoría y en general, para el buen funcionamiento de su Unidad siguiendo los trámites que usualmente se requieren.

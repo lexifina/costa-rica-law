@@ -1,0 +1,1 @@
+Artículo 12.—Independencia de criterio. La actividad de la Auditoría Interna estará libre de injerencias del Consejo Directivo y los demás órganos de la Administración, al determinar su planificación y sus modificaciones, al utilizar sus recursos, al desempeñar su trabajo y comunicar los resultados de sus estudios.

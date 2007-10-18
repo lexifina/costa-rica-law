@@ -1,0 +1,1 @@
+Artículo 31.—Información de los resultados de una auditoría. Únicamente la Administración está autorizada a atender a los interesados en conocer los resultados de un informe de auditoría en particular y a entregar copia de los memoranda e informes a quienes que los soliciten, sean funcionarios del INEC o foráneos.

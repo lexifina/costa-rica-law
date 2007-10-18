@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 30.—Destinatarios de los informes de la Auditoría. La Auditoría Interna comunicará los resultados de sus auditorías, en informes o memoranda, a efecto de que se tomen las decisiones del caso en tiempo, a propósito y convenientes. Dicha comunicación se dirigirá a la jefatura de la Unidad auditada, quien es la responsable de ordenar, en primera instancia, la implantación de las recomendaciones aceptadas, emitidas por la Auditoría Interna, en los plazos establecidos en la Ley General del Control Interno, Nº 8292.
+Cuando se trate de asuntos de trascendencia institucional, o que pudieran acarrear cualquier tipo de responsabilidad al Consejo Directivo, se remitirá a éste copia del documento para su conocimiento, o cuando las decisiones a tomar sean de su exclusiva competencia, o así lo soliciten.

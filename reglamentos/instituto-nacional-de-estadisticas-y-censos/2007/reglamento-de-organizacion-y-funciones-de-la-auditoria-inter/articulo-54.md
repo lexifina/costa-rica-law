@@ -1,0 +1,1 @@
+Artículo 54.—Entrega del informe al Consejo Directivo. La Auditoría Interna revisará que en una copia de la nota de remisión del informe, conste la fecha de recibido por parte de la Secretaría del Consejo Directivo.

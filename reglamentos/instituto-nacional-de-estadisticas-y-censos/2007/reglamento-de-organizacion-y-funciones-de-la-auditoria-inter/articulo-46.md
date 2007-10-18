@@ -1,0 +1,1 @@
+Artículo 46.—Solicitud de aclaración. De determinar, la Auditoría Interna, que existe imprecisión de los hechos se otorgará al denunciante un plazo no menor de 10 días hábiles para que complete su información. De no hacerlo, se podrá archivar la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

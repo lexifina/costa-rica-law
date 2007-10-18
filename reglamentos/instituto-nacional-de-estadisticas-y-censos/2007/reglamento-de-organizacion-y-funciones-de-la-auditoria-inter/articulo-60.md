@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 60.—Plazos para suministrar lo pedido a la Administración. La Auditoría Interna señalará a la Administración, en cada caso y atendiendo a la razonabilidad, la lógica y oportunidad, el plazo en el cual debe suministrarse lo solicitado por ella. Este plazo será establecido considerando además, el grado de complejidad, y la urgencia que representa la información requerida. Cuando la información no pueda ser atendida dentro del plazo establecido, previa comprobación de los motivos que concurren, el responsable deberá comunicarlo así a la Auditoría Interna, dentro de los tres primeros días hábiles siguientes al recibo de la petición, a fin de que ésta determine si procede su ampliación.
