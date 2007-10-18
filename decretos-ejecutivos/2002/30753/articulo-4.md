@@ -1,1 +1,0 @@
-Artículo 4º—Los recursos humanos y físicos del Programa Más Aulas para Ser Mejores, se reincorporarán de manera inmediata al CENIFE, sin menoscabo de los derechos laborales de los servidores eventualmente afectados."
