@@ -1,1 +1,0 @@
-Artículo 4°—Al Área de Asesoría le corresponde orientar y asesorar en materia jurídica y de planeamiento a las áreas Determinativa y Ejecutiva, en la formulación de políticas y en la definición de estrategias para la toma de decisiones.

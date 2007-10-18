@@ -1,1 +1,0 @@
-Artículo 2°—Para el cumplimiento de su cometido el Ministerio de Educación Pública agrupa sus funciones en tres grandes áreas de actividad, a saber: Área Determinativa, Área de Asesoría y Área Ejecutiva.

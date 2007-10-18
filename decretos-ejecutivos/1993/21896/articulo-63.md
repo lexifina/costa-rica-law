@@ -1,2 +1,0 @@
-Artículo 63.—Dependiendo del Despacho del Ministro de Educación Pública, funcionarán las oficinas de Relaciones Públicas, la de Asuntos Internacionales y la de Educación Ambiental y Desarrollo Sostenible, las que tendrán por cometido apoyar las acciones del Ministro en sus respectivos ámbitos de competencia.
-(Así reformado por el artículo 1 del decreto ejecutivo N° 30850 de 18 de noviembre del 2002)
