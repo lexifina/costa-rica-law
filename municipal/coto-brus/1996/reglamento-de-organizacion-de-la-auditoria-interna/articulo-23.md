@@ -1,1 +1,0 @@
-Artículo 23.-La comunicación de resultados se deberá hacer por escrito, podrá efectuarse durante el desarrollo de la auditoría o estudio especial de auditoría, mediante informes parciales y al finalizar la labor por medio del informe final.

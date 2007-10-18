@@ -1,2 +1,0 @@
-Artículo 9°-El nombramiento del Auditor Interno será por tiempo indefinido y lo hará el Concejo Municipal.
-El Auditor Interno dependerá y responderá directamente por su gestión ante esa autoridad y solo podrá ser removido del cargo por justa causa, conforme a dictamen previo vinculante de la Contraloría General de la República. según lo establece la Ley sobre el enriquecimiento ilícito de los Servidores Públicos.
