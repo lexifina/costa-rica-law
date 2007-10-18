@@ -1,5 +1,0 @@
-Artículo 14.—Los Departamentos en que estará dividida la Unidad de Auditoría Interna serán los siguientes:
-a) Departamento de Auditoría Financiera: Al cual le corresponde llevar a cabo Auditorías Financieras que estarán encaminadas fundamentalmente a verificar la razonabilidad de los estados financieros, evaluar los controles internos y a determinar el cumplimiento de las disposiciones legales pertinentes.
-b) Departamento de Auditoría Operativa: A este departamento le corresponderá fundamentalmente evaluar el grado de eficiencia y eficacia en la organización; así como determinar el cumplimiento de las disposiciones legales pertinentes y el logro de las metas y objetivos propuestos
-c) Departamento de Auditoría de Sistemas: Le corresponderá evaluar el grado de eficiencia, eficacia y seguridad que presentan los recursos informáticos de la institución;
-Las anteriores labores de los tres departamentos sin perjuicio de cualquier otra labor atinente a la Auditoría que le sean encomendadas de acuerdo con lo establecido en el Manual para el Ejercicio de la Auditoría Interna en las Entidades y Órganos Sujetos a la Fiscalización de la Contraloría General de la República.

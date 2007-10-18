@@ -1,1 +1,0 @@
-Artículo 16.—Los Encargados de cada uno de los departamento deberán preparar un informe de cada una de las evaluaciones que si efectúen siguiendo las normas del Manual para el Ejercicio de la Auditoría Interna y deberán remitir el borrador del mismo al Sub-Auditor, para que éste lo revise y lo presente al Auditor para su aprobación definitiva.

@@ -1,1 +1,0 @@
-Artículo 12.—El Auditor Interno deberá proponer a la Junta Administrativa previa justificación, la creación de plazas y servicios que se consideren indispensables para el cumplimiento del Plan Anual de Auditoría y en general para el buen funcionamiento de la su Unidad.

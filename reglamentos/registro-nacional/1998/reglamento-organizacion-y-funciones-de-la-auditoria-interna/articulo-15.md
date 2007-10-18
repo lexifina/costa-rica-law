@@ -1,1 +1,0 @@
-Artículo 15.—El personal asignado a cada Encargado de Departamento, deberá cumplir el trabajo que se le asigne siempre y cuando sea inherente a los objetivos, funciones y atribuciones de la Auditoría.

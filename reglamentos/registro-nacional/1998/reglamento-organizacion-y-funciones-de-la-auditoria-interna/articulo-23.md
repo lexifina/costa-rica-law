@@ -1,1 +1,0 @@
-Artículo 23.—El Auditor Interno deberá formular un Manual de Procedimientos de Auditoría; con el objetivo de que cuente con un instrumento que defina las características y procedimientos de auditoría, aplicables al Registro Nacional.

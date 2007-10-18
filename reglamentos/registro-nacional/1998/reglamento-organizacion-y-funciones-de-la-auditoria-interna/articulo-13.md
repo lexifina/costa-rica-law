@@ -1,1 +1,0 @@
-Artículo 13.—La Auditoría Interna del Registro Nacional, para cumplir con las anteriores funciones estará estructurada organizacionalmente en tres departamentos con responsabilidad totalmente definida, los que al mismo tiempo tendrán su estructura orgánica dentro de los lineamientos de la organización global.

@@ -1,1 +1,0 @@
-Artículo 11.—El Auditor Interno actuará como jefe de personal de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de personal, de tal forma que deberá contarse con su anuencia para nombramientos, remociones, promociones, licencias y otros, todo de acuerdo con el marco jurídico que en la materia rige en el Registro Nacional.
