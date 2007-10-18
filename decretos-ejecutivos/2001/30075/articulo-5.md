@@ -1,1 +1,0 @@
-Artículo 5º—Antes de que concluya el plazo indicado en el artículo 1, el Ministerio de Educación Pública, el CIPET y el ITCR, evaluarán el cumplimiento de los objetivos propuestos y definirán si se prorroga lo dispuesto en el presente Decreto.
