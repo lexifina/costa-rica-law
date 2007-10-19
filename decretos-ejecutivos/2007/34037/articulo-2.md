@@ -1,0 +1,1 @@
+Artículo 2º—Modificase para el citado órgano, el gasto presupuestario máximo del 2007, establecido en el referido Decreto Ejecutivo Nº 33805-H, quedando el límite en la suma de ¢1.383.330.000,00 (mil trescientos ochenta y tres millones trescientos treinta mil colones exactos) para ese período.
