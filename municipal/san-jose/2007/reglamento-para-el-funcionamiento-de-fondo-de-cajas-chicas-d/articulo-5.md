@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se presuma, que este instrumento se está utilizando para obviar los procesos de contratación, se requerirá de un visto bueno del proveedor municipal, quien definirá en última instancia, si se autoriza la compra o contratación a través de este fondo.

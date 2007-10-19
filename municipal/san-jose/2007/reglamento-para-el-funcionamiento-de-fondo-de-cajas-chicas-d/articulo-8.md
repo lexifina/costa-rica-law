@@ -1,0 +1,1 @@
+Artículo 8º—Las actualizaciones de los fondos de caja chica y del monto de los vales se efectuarán en forma automática, de acuerdo con las necesidades de la administración, indexando el monto del fondo existente al porcentaje de inflación acumulada.
