@@ -1,0 +1,1 @@
+Artículo 18.—Procedimiento de Pago. Los cobros de los montos correspondientes por trabajos realizados por la Municipalidad a través de las Asociaciones de Desarrollo, los Comités de Caminos o las demás ONGs deberán ser depositados por los vecinos en las cajas recaudadoras de la Tesorería Municipal.

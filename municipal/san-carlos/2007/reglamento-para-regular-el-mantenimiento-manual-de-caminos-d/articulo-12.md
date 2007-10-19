@@ -1,0 +1,1 @@
+Artículo 12.—Notificación a los vecinos. La Municipalidad a través de los Comités de caminos, notificará a los vecinos que incumplan con la ley y con éste Reglamento, en las labores de mantenimientos de caminos, siguiendo lo estatuido por la Ley de Notificaciones.

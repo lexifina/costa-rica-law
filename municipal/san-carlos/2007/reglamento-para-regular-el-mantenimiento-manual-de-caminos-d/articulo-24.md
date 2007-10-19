@@ -1,0 +1,1 @@
+Artículo 24.—Pasos de Alcantarilla. En las entradas o salidas de inmuebles, los dueños de éstos deberán de instalar un paso de alcantarilla no inferior a los treinta centímetros de diámetro, siempre considerando los criterios técnicos que emita la Unidad Técnica de Conservación Vial Municipal.

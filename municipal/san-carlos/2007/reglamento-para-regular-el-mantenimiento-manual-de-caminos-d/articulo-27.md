@@ -1,0 +1,1 @@
+Artículo 27.—Convergencias de Aguas. Será obligación de los vecinos implicados en áreas donde haya convergencia, proceder con el encabezamiento de las aguas dentro de sus propios terrenos, para ello deberán solicitar por escrito la correspondiente asesoría técnica a la Unidad Técnica de Conservación Vial Municipal, que deberá brindarla en plazo no mayor a los diez días hábiles.

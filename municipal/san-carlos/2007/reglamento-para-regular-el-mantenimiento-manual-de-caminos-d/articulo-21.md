@@ -1,0 +1,1 @@
+Artículo 21.—Ejecución de Obras por ONGs. Las ONGs podrán ejecutar cualquier actividad de mantenimiento manual previa firma del Convenio y orden escrita por el encargado de la Unidad Técnica de Conservación Vial Municipal y el Alcalde Municipal.

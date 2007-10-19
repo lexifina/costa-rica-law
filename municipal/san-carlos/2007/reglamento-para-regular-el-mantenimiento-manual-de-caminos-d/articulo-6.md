@@ -1,0 +1,1 @@
+Artículo 6º—Omisión de pagos. En la materia de omisión de pagos por trabajos realizados por parte de la Municipalidad o las organizaciones no gubernamentales autorizadas con ese fin por la Institución Municipal serán aplicables los artículos 70, 74 y 76 del Código Municipal. Artículo

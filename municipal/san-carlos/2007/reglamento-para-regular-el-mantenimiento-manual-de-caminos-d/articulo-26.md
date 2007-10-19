@@ -1,0 +1,1 @@
+Artículo 26.—Canalización de Aguas. De conformidad con el artículo veinte de la Ley General de Caminos los Comités de Caminos, las Asociaciones de Desarrollo y las demás ONGs coordinarán con los vecinos, la canalización de aguas provenientes de los caminos de acuerdo con las recomendaciones técnicas emitidas por la Unidad Técnica de Conservación Vial Municipal.

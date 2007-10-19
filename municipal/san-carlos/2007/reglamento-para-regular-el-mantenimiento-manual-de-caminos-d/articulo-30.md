@@ -1,0 +1,1 @@
+Artículo 30.—Reapertura de vía pública. En caso de que el vecino ignore la notificación, la Municipalidad abrirá el camino, realizando el procedimiento administrativo de reapertura de vía, contemplado en los artículos 32 y 33 de la Ley General de Caminos Públicos y sus Reforma.
