@@ -1,0 +1,10 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+APROBACIÓN REFORMA REGLAMENTARIA
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8 de la sesión 8190, celebrada el 4 de octubre del año 2007 acordó reformar el artículo 19 del Reglamento del Fondo de Retiro, Ahorro y Préstamo de los Trabajadores de la Caja (FRAP), en los siguientes términos:
+REGLAMENTO DEL FONDO DE RETIRO, AHORRO
+Y PRÉSTAMO DE LOS TRABAJADORES DE LA CAJA
+COSTARRICENSE DE SEGURO SOCIAL
+“Artículo 19ª.—La administración del FRAP estará a cargo de una Junta Administrativa, la cual tendrá a su servicios al Director Ejecutivo y al órgano administrativo correspondiente. La Junta estará constituida por ocho miembros integrada de la siguiente forma: el Gerente de la División Financiera de la Caja, el Gerente de la División de Pensiones, el Gerente de la División Administrativa, un miembro representante de la Junta Directiva y cuatro representantes de los trabajadores. El Director Actuarial o su representante asistirá a las sesiones de la Junta Administrativa como su asesor técnico. Cada uno de los representantes de los trabajadores tendrá su respectivo suplente.
+Los representantes de los trabajadores y sus suplentes deberán ser designados cada tres años, mediante voto directo, secreto y universal en elecciones que se llevarán a cabo en la primera o segunda quincena del mes de noviembre del año respectivo, pudiendo ser reelectos de conformidad con el instructivo que para el proceso electoral apruebe la Junta Administrativa del FRAP. La Gerencia de la División Administrativa tomará las medidas necesarias para que la elección de los representantes de los trabajadores se realice en forma correcta y oportuna.
+Le corresponderá a la Gerencia de la División Financiera realizar la designación de los suplentes para los miembros representantes de la Institución. Los miembros suplentes podrán asistir a sesiones, única y exclusivamente cuando el titular no pudiese asistir por fuerza mayor, de lo cual se dejará constancia en el acta respectiva.
+El Director Ejecutivo del FRAP participará en las sesiones de Junta Administrativa, con voz y sin derecho a voto.”
