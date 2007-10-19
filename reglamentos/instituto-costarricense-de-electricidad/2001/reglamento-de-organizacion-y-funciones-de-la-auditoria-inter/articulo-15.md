@@ -1,7 +1,0 @@
-Articulo 15.—Para el cumplimiento de su objetivo, la Unidad de Auditoria Interna tendrá los siguientes deberes:
-a) Realizar auditorias o estudios especiales de auditoria de acuerdo con las normas técnicas de auditoria, las disposiciones emitidas por la Contraloría General y las del ordenamiento jurídico en general, en cualesquiera unidades administrativas u operativas del ICE, en el momento que considere oportuno, con base en su Plan Anual de Trabajo, según las peticiones del Consejo Directivo, la-s solicitudes de estudios especiales de la Contraloría General o de acuerdo a prioridades especiales que determine el Auditor General.
-b) Comunicar por escrito los resultados de cada auditoria o estudio especial de auditoria que se lleve a cabo, por medio de memorandos o informes con comentarios, conclusiones y recomendaciones, como medio de brindar la asesoría pertinente para mejorar la eficiencia y eficacia en el sistema de control interno y en la gestión financiera y administrativa del ICE.
-c) Ejecutar sus funciones con libertad e independencia de criterio respecto del jerarca v demás unidades administrativas u operativas del ICE.
-d) Preparar un Plan Anual de Trabajo de Auditoria, de conformidad con la normativa emitida por la Contraloría General , que contemple las auditorias o estudios especiales por ejecutarse en el período,
-e) Preparar y remitir al Consejo Directivo un informe bimensual acerca de la gestión realizada con base en dicho Plan de Trabajo.
-f) Otros que le sean asignados en concordancia con sus competencias.

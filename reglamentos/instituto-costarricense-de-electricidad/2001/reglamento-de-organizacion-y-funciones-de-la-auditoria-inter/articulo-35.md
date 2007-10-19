@@ -1,1 +1,0 @@
-Articulo 35. — La Auditoria Interna no requiere satisfacer la garantía constitucional del debido proceso. No obstante si lo estima oportuno, queda a su juicio profesional dar participación a los funcionarios involucrados en los hallazgos que puedan originarle algún género de responsabilidad.

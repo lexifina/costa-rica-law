@@ -1,1 +1,0 @@
-Articulo 34.— La Auditoria Interna advertirá en su informe a la Administración activa sobre la celeridad en la cual ha de atender las recomendaciones atinentes, a las responsabilidades penales, civiles y administrativas del caso.

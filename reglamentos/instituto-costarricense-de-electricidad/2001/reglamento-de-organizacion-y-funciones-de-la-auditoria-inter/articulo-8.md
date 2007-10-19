@@ -1,2 +1,0 @@
-Artículo 8°—El nombramiento del Auditor General y los Subauditores de cada sector será por tiempo indefinido mediante acuerdo del Consejo Directivo, según lo dispone el articulo 62 de la Ley N ° 7428.
-El Auditor General dependerá y responderá directamente de su gestión ante el Consejo Directivo. Los Subauditores responderán de su gestión ante el Auditor General y lo reemplazaran en sus ausencias, con sus mismas atribuciones, desempeñando transitoria o permanentemente las funciones que le delegue el Auditor General.
