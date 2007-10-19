@@ -1,0 +1,1 @@
+Artículo 5º—Para la extracción del gusano poliqueto se introducirá una manguera de un inflador normal en el orificio donde se encuentra la cabeza del individuo, inyectándose aire a presión hasta que el organismo salga parcial o totalmente de su carrizo.

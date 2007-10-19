@@ -1,0 +1,1 @@
+Artículo 3º—El área explotable identificada para el aprovechamiento del gusano poliqueto se ubica en los llamados Bajos de Chomes, latitud 10º00.003N y longitud 84°53.133W; exactamente en: Bajo La Islita, Bajo Las Ramas, Bajo El Coco, Bajo Tablón y Bajo Mujeres.

@@ -1,0 +1,15 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/362-2007.—Puntarenas, a los veintiún días del mes de setiembre del 2007.
+Considerando:
+1º—Que de conformidad con la Ley Nº 7384, Ley de Creación del INCOPESCA y la Ley Nº 8436, Ley de Pesca y Acuicultura, es atribución del INCOPESCA regular y extender licencias de pesca en beneficio del sector pesquero, así como la protección efectiva de los intereses nacionales relacionados con dicha actividad y el aprovechamiento responsable de los recursos hidrobiológicos, con el propósito de optimizar los beneficios económicos en armonía con la preservación del ambiente, la salud de las personas y la conservación de la biodiversidad.
+2º—Que corresponde también al INCOPESCA establecer las condiciones que propicien el desarrollo de la actividad pesquera nacional y el otorgamiento de licencias de pesca conforme a criterios técnicos, científicos, económicos y sociales, las cuales estarán condicionadas a la disponibilidad y conservación del recurso hidrobiológico de que se trate y a las necesidades de desarrollo y sostenibilidad del sector pesquero.
+3º—Que algunos invertebrados marinos como el recurso poliqueto Americonuphis reesei, cumplen una función importante en varios niveles tróficos y poseen poblaciones restringidas en ciertas áreas costeras con sustratos arenoso-fangoso de la zona intermareal del Golfo de Nicoya, razón por lo que su posible aprovechamiento debe conllevar un seguimiento periódico, eficaz y eficiente por parte del INCOPESCA que asegure la sostenibilidad del mismo.
+4º—Que en la actualidad extraen poliquetos un grupo de 18 personas que utilizan el recurso poliqueto Americonuphis reesei con el fin de utilizarlos como carnada para la línea plañera, carnada para pesca deportiva o bien para alimento en cultivos de peces con fines científicos, ya que estas personas son de condiciones socioeconómicas muy limitadas.
+5º—Que por recomendación del informe técnico preliminar sobre la viabilidad para que el INCOPESCA otorgue nuevamente permisos para la extracción y comercialización de poliquetos en Los Bajos de Chomes, Golfo de Nicoya, Costa Rica. Por tanto:
+SE ACUERDA:
+Aprobar el siguiente Reglamento:
+REGLAMENTO PARA EL APROVECHAMIENTO SOSTENIBLE
+Y COMERCIALIZACIÓN DEL GUSANO POLIQUETO
+(Americonuphis reesei) EN EL ÁREA DE CHOMES,
+GOLFO DE NICOYA, COSTA RICA
+Artículo 1º—El INCOPESCA por medio del Departamento de Protección y Registro de Puntarenas, procederá a extender autorización para la extracción del gusano poliqueto (Americonuphis reesei) en el área de Chomes, Golfo de Nicoya, a un grupo de 20 personas físicas que utilizan y extraen este gusano con el fin de utilizarlos como carnada para la línea plañera carnada para pesca deportiva y para alimento en el cultivo de peces con fines comerciales y científicos. Dichas autorizaciones se otorgarán cronológicamente a su fecha de presentación y tendrán prioridad aquellas familias de recursos económicos muy limitados y que vivan en lugares aledaños a las zonas de extracción.

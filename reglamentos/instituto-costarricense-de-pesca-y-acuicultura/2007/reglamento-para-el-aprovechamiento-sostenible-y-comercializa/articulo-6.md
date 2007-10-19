@@ -1,0 +1,1 @@
+Artículo 6º—Para la comercialización del producto cada persona extractora del recurso deberá de realizar una Factura de Venta en original y una copia o fotocopia deberá ser entregada mensualmente por el permisionario, al Departamento de Estadísticas Pesqueras y Acuícolas del INCOPESCA, para el control y el registro de las capturas de dicho recurso.
