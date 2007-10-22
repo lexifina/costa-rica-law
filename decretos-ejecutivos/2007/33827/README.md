@@ -14,3 +14,4 @@ Modifica a la Junta de Administración Portuaria y de Desarrollo Económico de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-27 | la propia norma |
+| 2 | 2007-10-22 | Decreto Ejecutivo 34076 (2007-10-22) |
