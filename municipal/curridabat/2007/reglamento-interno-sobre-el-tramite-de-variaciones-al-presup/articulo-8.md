@@ -1,0 +1,1 @@
+Artículo 8º—Seguimiento y fiscalización. Cada tres meses, el Director Financiero, informará al Alcalde y éste a su vez al Concejo Municipal, mediante un cuadro resumen de las modificaciones presupuestarias tercer nivel que se ejecuten durante el respectivo período. Con la misma periodicidad deberá remitir informes de ejecución presupuestaria.
