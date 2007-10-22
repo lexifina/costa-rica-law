@@ -1,0 +1,1 @@
+Artículo 4º— Corresponde al Sistema Nacional de Áreas de Conservación de manera conjunta con la Municipalidad de Talamanca, la descripción de las zonas urbanas; para lo cual se les otorga un plazo improrrogable de treinta días naturales a partir de la publicación de este Decreto.
