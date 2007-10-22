@@ -1,0 +1,1 @@
+Artículo 4º—De la institución responsable de la calificación establecida en el presente reglamento. De conformidad con las facultades y atribuciones conferidas en la Ley Nº 8343, le corresponderá al IMAS establecer la calificación que se le otorgará a cada establecimiento, tomando en consideración el número de habitaciones y la calidad de los servicios que prestan.

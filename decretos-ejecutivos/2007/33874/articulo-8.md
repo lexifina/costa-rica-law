@@ -1,0 +1,5 @@
+Artículo 8º—Método de categorización de los establecimientos. Las categorías se asignarán de acuerdo con la calificación que alcance cada establecimiento, una vez completado el formulario de Calificación, de acuerdo con el siguiente detalle:
+Calificación total obtenida % | Categoría
+67 a 100 | A
+34 a 66 | B
+1 a 33 | C
