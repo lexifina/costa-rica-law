@@ -1,0 +1,16 @@
+Nº 34051
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; 27 párrafo primero de la Ley General de Administración Pública; 1, 2, 4, 7, 49, 142, 143, 144 y 145 de la Ley 5395 del 30 de octubre de 1973 “Ley General de Salud”.
+Considerando:
+I.—Que los fabricantes y vendedores del equipo y material biomédico son responsables de asegurarle al usuario que dicho equipo y material ha sido diseñado para el propósito establecido. A su vez el usuario debe garantizar su buen funcionamiento durante la vida útil. Por su parte el Estado es responsable de verificar que estos productos cumplan con la normativa vigente que los regula.
+II.—Que el registro de estos productos sirve como un medio de regulación y control y ordena su importación y uso por parte de personas autorizadas para ello.
+III.—Que el Decreto N° 32425-S del 20 de agosto del 2004, publicado en La Gaceta N° 120 del 22 de junio del 2005 “Reglamento para notificación, registro, clasificación, importación y control de equipo y material biomédico”, reformado por Decreto Ejecutivo N° 32656-S del 2 de setiembre del 2005, publicado en La Gaceta N° 189 del 3 de octubre del 2005, establece en su Transitorio III que durante el primer año de vigencia del citado Reglamento, su cumplimiento será voluntario por parte del administrado y que vencido dicho plazo su aplicación será obligatoria.
+IV.—Que mediante Decretos Ejecutivos N° 33403-S del 5 de octubre del 2006, publicado en La Gaceta N° 206 del 27 de octubre del 2006, y N° 33731-S de 11 de abril de 2007, publicado en La Gaceta N° 86 de 7 de mayo de 2007, fue reformado el Transitorio III antes citado disponiéndose que durante los primeros veinticuatro meses de vigencia del Reglamento de cita, su cumplimiento sería voluntario por parte del administrado, siendo que vencido ese plazo, la aplicación será obligatoria.
+V.—Que el plazo señalado en el Transitorio III, antes citado, vence el 22 de octubre de 2007, no obstante, el Poder Ejecutivo ha efectuado las consultas públicas de la nueva normativa, por lo que se hace necesario prorrogar el plazo del artículo Transitorio III del Decreto Ejecutivo N° 32425-S del 20 de agosto del 2004. Por tanto,
+DECRETAN:
+Reforma al Reglamento para notificación, registro,
+clasificación, importación y control de equipo
+y material biomédico”
+Artículo 1°—Reformar el Transitorio III del Decreto Ejecutivo N° 32425-S del 20 de agosto del 2004, publicado en La Gaceta N° 120 del 22 de junio del 2005 “Reglamento para Notificación, Registro, Clasificación, Importación y Control de Equipo y Material Biomédico”, reformado por Decretos Ejecutivos N° 32656 del 2 de setiembre del 2005, publicado en La Gaceta N° 189 del 3 de octubre del 2005; N° 33403-S del 5 de octubre del 2006, publicado en La Gaceta N° 206 del 27 de octubre del 2006; y N° 33731-S de 11 de abril de 2007, publicado en La Gaceta N° 86 de 7 de mayo de 2007, para que en lo sucesivo se lea de la siguiente manera:
+“Transitorio III.—Durante los primeros treinta meses de vigencia del presente Reglamento, su cumplimiento será voluntario por parte del administrado. Vencido este plazo, la aplicación será obligatoria”.
