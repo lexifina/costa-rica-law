@@ -1,0 +1,2 @@
+Artículo 51.—El Comité Cantonal, los Comités y Juntas Administradoras adscritos, cuando de construir, remodelar o de cualquier otra forma deba de invertir en obras de infraestructura deportiva y recreacional, sólo lo podrá hacer en obras que estén asentadas en terrenos y propiedades de la Municipalidad de San José y previa autorización y presentación del respectivo proyecto ante el Concejo Municipal.
+En todo caso dichas obras nuevas necesariamente deberán coordinarse con el Programa de Mejoramiento de Barrios de la Municipalidad.

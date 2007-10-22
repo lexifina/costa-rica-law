@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las instalaciones deportivas
+Artículo 70.—El Comité Cantonal deberá delegar en los Comités Comunales la administración y mantenimiento de campos deportivos existentes en su jurisdicción y en caso de no existir un Comité Comunal, se nombrará una Junta Administradora con las asociaciones deportivas y/o de desarrollo comunal.

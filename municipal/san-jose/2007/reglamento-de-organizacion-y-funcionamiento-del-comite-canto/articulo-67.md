@@ -1,0 +1,1 @@
+Artículo 67.—Las asambleas para elegir a los comités comunales o a los miembros de la Junta Directiva del Comité Cantonal, serán por la oficina de desarrollo estratégico y la persona que designe la Dirección de Asuntos Jurídicos de la Municipalidad.

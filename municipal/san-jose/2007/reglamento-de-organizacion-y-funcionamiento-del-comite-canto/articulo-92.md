@@ -1,0 +1,1 @@
+Artículo 92.—Es obligación de la Dirección Ejecutiva, mantener un auxiliar de las requisiciones de bodega de las entregas que se le han hecho y presentar un informe trimestral, a la Dirección Deportiva y a la Junta Directiva.

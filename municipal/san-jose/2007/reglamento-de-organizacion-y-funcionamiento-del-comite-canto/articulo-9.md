@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la junta directiva
+Artículo 9º—La Junta Directiva del Comité Cantonal, es la máxima autoridad de la institución y es la encargada de su gobierno, administración y dirección. Cada año, la Junta Directiva, elaborará, aprobará y enviará al Concejo Municipal para su respectiva aprobación el Plan Operativo Anual y el Presupuesto Anual.
+Para lograr que estos documentos sean los óptimos el Comité Cantonal, deberá realizar un planeamiento estratégico que posibilite desarrollar integralmente el deporte y la recreación en el cantón. Este Plan Operativo Anual deberá ser consultado a los Concejos de Distrito y a los Comités Comunales, para que en un plazo perentorio de quince días naturales emitan sus observaciones. Este Plan Operativo Anual deberá ajustarse al Programa de Gobierno del Alcalde.

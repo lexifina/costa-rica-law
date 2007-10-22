@@ -1,0 +1,1 @@
+Artículo 59.—De los fondos disponibles en la cuenta de cada Comité Comunal, la Junta Directiva del Comité Cantonal, puede autorizar el funcionamiento de una caja chica, debidamente reglamentada, por la Dirección de Asuntos Jurídicos del Municipio y aprobada por el Concejo Municipal, conforme corresponda, para asumir gastos de menor cuantía y de carácter urgente.

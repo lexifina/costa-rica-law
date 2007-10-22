@@ -1,0 +1,1 @@
+Artículo 60.—Todas las obligaciones de pago, producto de compras o contrataciones de bienes y servicios que no estén contempladas en el artículo anterior, serán tramitadas en la oficina de la Proveeduría Municipal, quien trasladará al Comité Cantonal, lo procedente en pago a cada Comité Comunal.

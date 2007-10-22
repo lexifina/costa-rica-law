@@ -1,0 +1,1 @@
+Artículo 25.—El quórum para sesionar es totalitario. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si el reglamento u otra norma conexa señala un número mayor de votos. En caso de empate en una votación, se repetirá inmediatamente la votación y el empate persiste, el asunto se tendrá por desechado automáticamente.

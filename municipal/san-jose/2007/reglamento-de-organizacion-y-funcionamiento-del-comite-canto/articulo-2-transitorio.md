@@ -1,0 +1,1 @@
+2º—Todo aquel personal que no se encuentre en los casos establecidos en este Reglamento será cesado con responsabilidad patronal, mediante resoluciones que al efecto emita la Dirección de de Recursos Humanos, previo pago de todos y cada uno de sus extremos laborales. Lo anterior conforme a las nuevas políticas de implementación para la reducción de personal.

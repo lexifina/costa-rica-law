@@ -1,0 +1,2 @@
+Artículo 84.—Toda aquella organización que desee ser Beneficiarios de Implementos Deportivos deberá estar inscrita dentro del registro padrón conforme a los Artículos 2 y 43 inciso o, deberá cumplir con todos los requisitos que se exigen en el presente reglamento, de previo a recibir cualquier tipo de beneficio.
+Podrán ser beneficiarios de implementos deportivos, sólo aquellas organizaciones y/o personas que residan en el cantón central de San José.

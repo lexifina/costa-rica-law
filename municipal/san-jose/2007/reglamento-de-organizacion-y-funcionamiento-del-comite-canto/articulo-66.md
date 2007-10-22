@@ -1,0 +1,1 @@
+Artículo 66.—Las asambleas para elegir los comités comunales, se deben de realizar dentro de los dos meses anteriores al vencimiento del período de la Junta Directiva saliente o en su caso al vencimiento de los cargos de la Junta Directiva del Comité Cantonal.

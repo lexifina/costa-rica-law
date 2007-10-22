@@ -1,0 +1,1 @@
+Artículo 96.—Todos los miembros de las organizaciones inscritas en el registro de asociaciones son responsables por el buen uso de los implementos deportivos entregados y tendrán la obligación de denunciar el mal uso de los mismos.

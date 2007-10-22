@@ -1,0 +1,2 @@
+Artículo 58.—El Comité Cantonal, a través de su contador, y mediante Convenio con alguna entidad bancaria, procederá a abrir una cuenta electrónica a favor de cada Comité Comunal, en donde se depositarán todos los fondos del Comité.
+Esa cuenta se encontrará bajo supervisión de la Junta Directiva del Comité Cantonal de Deportes. Los gastos por servicios personales que aprueben los Comités Comunales les serán debitados por el Comité Cantonal de sus cuentas.
