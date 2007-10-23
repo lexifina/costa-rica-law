@@ -1,0 +1,1 @@
+Artículo 30.—Todo el personal de la Policía Municipal debe cuidar, proteger y responder por todos los bienes, equipos y materiales que se le asigne y facilitar para su misión. Acorde a las disposiciones Reglamentarias de la Municipalidad de Garabito.

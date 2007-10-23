@@ -1,0 +1,1 @@
+Artículo 28.—Ningún funcionario podrá aceptar recompensas, obsequios, dádivas, contribuciones, favores u otras ventajas por actos relacionados al servicio, excepto los premios asignados por el Personal Directivo.

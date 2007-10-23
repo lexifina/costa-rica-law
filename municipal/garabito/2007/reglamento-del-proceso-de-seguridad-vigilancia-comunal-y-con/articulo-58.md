@@ -1,0 +1,1 @@
+Artículo 58.—El Comisionado Director podrá someter la causa a consideración de Conciliación Laboral que revisará las actuaciones cumplidas por la Unidad de Asuntos Internos y recomendará al Director de Recursos Humanos, la decisión correspondiente.

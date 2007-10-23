@@ -1,0 +1,1 @@
+Artículo 55.—La notificación se hará personalmente al interesado, tan pronto como éste se presente a la Unidad de Asuntos Internos de la Policía Municipal. La misma debe contener indicación expresa de la causal o de las causales en que se apoye la medida, de los recursos que proceden y los términos para ejercerlos, así como de los Órganos ante los cuales deben interponerse.

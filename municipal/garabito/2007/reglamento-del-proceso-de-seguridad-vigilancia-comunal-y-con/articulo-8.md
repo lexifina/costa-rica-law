@@ -1,0 +1,1 @@
+Artículo 8º—Los grados se otorgan por resolución del Director del DPM, y para acreditar la certificación se otorgará un diploma suscrito por el Alcalde y por el Comisionado Director de Policía Municipal. De este Título se dejara constancia en el Libro de Registro que se llevará en la Dirección de Policía Municipal.

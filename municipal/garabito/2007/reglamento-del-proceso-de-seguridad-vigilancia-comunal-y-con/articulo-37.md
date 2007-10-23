@@ -1,0 +1,1 @@
+Artículo 37.—A los efectos de los premios referidos en el Capítulo precedente, la cualidad del funcionario es extensible al personal Técnico y Administrativo. En caso se dejará constancia del estímulo en la hoja de servicios del beneficiario.

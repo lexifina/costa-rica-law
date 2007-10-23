@@ -1,0 +1,1 @@
+Artículo 57.—El Alcalde con la recomendación del Comisionado Director resolverá dentro del plazo de setenta y dos (72) horas después de recibir el expediente, con vista a las actuaciones instruidas o seguirá el procedimiento pautado en el artículo siguiente.

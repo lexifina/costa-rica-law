@@ -1,0 +1,2 @@
+Artículo 54.—El Sumario Disciplinario abierto por la unidad de Asuntos Internos deberá concluirse en un plazo no mayor de treinta (30) días a partir de la noticia del hecho.
+El indiciado tendrá acceso al expediente el mismo día después que haya recibido la notificación de la medida con el fin de hacer exposición por escrito, por sí, o mediante la ayuda de un funcionario de la Policía Municipal tendiente a su defensa.

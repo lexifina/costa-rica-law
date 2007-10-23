@@ -1,0 +1,1 @@
+Artículo 51.—Los Superiores podrán imponer las sanciones previstas en el Código Municipal, artículo 149, incisos a) y b) y elevar ante la Dirección de Recursos Humanos expediente disciplinario en los demás supuestos, cuando la gravedad de los hechos así lo amerita.

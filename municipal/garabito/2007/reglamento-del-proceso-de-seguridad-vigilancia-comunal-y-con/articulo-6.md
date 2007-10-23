@@ -1,0 +1,1 @@
+Artículo 6º—El Director de la Policía Municipal, denominado también Comisionado podrá otorgar grado Policial Temporal a las personas que representen servicios a la Institución indistintamente si es voluntario o asalario en cualquier modalidad; en la calidad de especialistas en el área en que fueren expresamente solicitadas.

@@ -1,0 +1,1 @@
+Artículo 38.—Para la adjudicación del premio, el Comisionado Director designará una comisión que estudiará la postulación y emitirá su conclusión en un lapso no mayor de veinte (20) días a la fecha de la proposición.

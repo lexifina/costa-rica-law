@@ -1,0 +1,1 @@
+Artículo 53.—Las actuaciones de la Unidad de Asuntos Internos se harán con sujeción a las Normas del Código Municipal y demás normativa conexa, en la instrucción de sumarios, observando en especial, el secreto sumarial.

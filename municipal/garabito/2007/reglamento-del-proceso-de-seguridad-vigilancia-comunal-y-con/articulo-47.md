@@ -1,0 +1,1 @@
+Artículo 47.—En general cometen faltas quienes en forma indebida infringen los mandatos o prohibiciones Reglamentarias o incurren en acciones u omisiones que afecten la disciplina o el prestigio de la Institución.

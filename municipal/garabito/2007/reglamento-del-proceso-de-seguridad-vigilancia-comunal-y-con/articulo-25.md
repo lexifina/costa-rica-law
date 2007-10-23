@@ -1,0 +1,1 @@
+Artículo 25.—Están sujetas a las normas disciplinarias todas las actuaciones con ocasión del servicio o por haber sido realizadas con el empleo de bienes, credenciales, armas u otros instrumentos relacionados con la Institución.
