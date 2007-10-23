@@ -1,0 +1,1 @@
+Artículo 11.—De la vigencia de la garantía. La garantía ya fuese otorgada mediante póliza o depósito deberá ser actualizada de forma anual, de conformidad con el artículo 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.
