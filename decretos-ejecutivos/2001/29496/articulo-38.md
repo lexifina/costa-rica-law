@@ -1,1 +1,1 @@
-Artículo 38.—En caso de que conste en el Registro de Asociaciones la declaratoria de bienestar social de una asociación, todos los documentos posteriores a su constitución, que sean inscribibles en ese Registro, deberán contar con el visto bueno de la Oficina de Administración de Instituciones y Servicios de Bienestar Social del Instituto Mixto de Ayuda Social.
+Artículo 38.—(Así derogado mediante artículo 1° del Decreto Ejecutivo N° 34078 del 24 de octubre de 2007)
