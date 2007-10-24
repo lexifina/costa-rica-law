@@ -1,0 +1,2 @@
+Artículo 31.—Acatamiento de Disposiciones Superiores. Los funcionarios de la Auditoría Interna deberán observar las leyes, reglamentos y demás normativa que regule sus actuaciones como empleados públicos.
+A lo interno, deberán acatar las disposiciones emitidas por el Auditor, Subauditor o por las Jefaturas y Sub Jefaturas de Área -según corresponda, siempre que estás no sean contrarias a la Ley, a la razón y a las buenas costumbres.

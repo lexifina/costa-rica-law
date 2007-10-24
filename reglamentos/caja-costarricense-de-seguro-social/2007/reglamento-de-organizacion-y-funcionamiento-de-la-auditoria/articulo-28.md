@@ -1,0 +1,1 @@
+Artículo 28.—Administración de los Recursos de la Auditoría Interna. Acorde con las regulaciones jurídicas y técnicas pertinentes, el Auditor Interno debe administrar los recursos de la Unidad bajo su cargo, de forma económica, eficiente, eficaz, legal y transparente para la consecución de las metas y objetivos de la Auditoría Interna.

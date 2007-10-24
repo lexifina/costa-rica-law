@@ -1,0 +1,1 @@
+Artículo 3º—Visión. Ser un equipo líder en el campo de la fiscalización y la asesoría, reconocido por sus sólidos principios éticos y morales y el más alto nivel profesional, que brinda confianza en el ejercicio de sus funciones para el desarrollo integral de la Seguridad Social.
