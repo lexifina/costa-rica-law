@@ -1,0 +1,12 @@
+Nº 34044
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las potestades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política, y el artículo 25 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que la Dirección General de Servicio Civil, conjuntamente con la Universidad de Costa Rica, acordaron desarrollar el “V Congreso Internacional de Recursos Humanos: Enfoques Innovadores en la Gestión de Personas: Un cambio cultural con compromiso social” a celebrarse en el mes de marzo del año dos mil ocho.
+2º—Que el Gobierno de Costa Rica, al igual que en años anteriores, tiene interés de apoyar la celebración de este evento en vista de la importancia del mismo con el propósito de contribuir al desarrollo y difusión de los nuevos conocimientos, investigaciones y nuevas prácticas de la gestión de Recursos Humanos, a fin de alcanzar mayor impacto y fomentar la comunicación e integración conjunta y coordinación en acciones e investigación, docencia y vinculación con el entorno social, económico y político nacional e internacional.
+3º—Que es propicia la oportunidad para aunar esfuerzos de diversos entes públicos y privados, nacionales e internacionales en la celebración de un evento más amplio que es de trascendencia en la actualidad para la economías mundiales, en las cuales el desarrollo de los Recursos Humanos, ciertamente comprometen en forma significativa la estabilidad macroeconómica y que con ello se limitan las posibilidades de atender en forma eficiente y eficaz, las encomiendas básicas de los Gobiernos, para tutelar los intereses de la colectividad e impulsar el crecimiento y desarrollo económico.
+4º—Que por ello es importante fortalecer los lazos que han establecido la Universidad de Costa Rica y la Dirección General de Servicio Civil con el solo interés de brindar a la ciudadanía a través de Congresos en esta materia, aportes significativos en la Gestión de los Recursos Humanos.
+5º—Que la celebración de este evento en San José, ofrece la oportunidad de promover el análisis, reflexión y debate sobre los nuevos enfoques en la gestión de personas que permitan potenciar las competencias para la transformación cultural de las organizaciones privadas y públicas. Por tanto,
+DECRETAN:
+Artículo 1º—Declarase de interés público el “V Congreso Internacional de Recursos Humanos: Enfoques Innovadores en la Gestión de Personas”, a celebrarse los días 12, 13 y 14 de marzo de dos mil ocho, en San José, Costa Rica.
