@@ -1,0 +1,1 @@
+Artículo 13.—De la sustitución de garantías. El funcionario podrá sustituir en cualquier momento la garantía rendida a favor del Estado, siempre y cuando la que la sustituya cumpla con todos los requerimientos que exige el presente Reglamento y se rinda a entera satisfacción del Ministerio.
