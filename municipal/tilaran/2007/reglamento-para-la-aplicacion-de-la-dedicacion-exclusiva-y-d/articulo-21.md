@@ -1,0 +1,1 @@
+Artículo 21.—Sin perjuicio de lo anterior en tratándose de profesionales en derecho , además de la anterior disposición se aplicará lo establecido en el artículo 237 del Código Procesal Civil (ley 7130 de fecha 21 de julio de 1989 y respectivos Decretos ejecutivos referidos al arancel de profesionales en derecho 1).

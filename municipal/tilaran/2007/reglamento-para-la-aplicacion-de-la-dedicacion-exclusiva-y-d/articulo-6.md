@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del procedimiento para acogerse al régimen de dedicacion exclusiva
+Artículo 6º—Para acogerse a la dedicación exclusiva el interesado deberá presentar a la Alcaldía la solicitud y aportar la documentación requerida, de ser aceptada la solicitud por el Alcalde Municipal, el profesional deberá suscribir un contrato con la Municipalidad, comprometiéndose a prestar servicios en forma exclusiva para el Municipio y no ejercer de manera particular ninguna profesión que ostente. A cambio de ello percibirá una compensación económica equivalente a un 55% o 30 % sobre el salario base correspondiente al puesto que ocupa en la Institución, según el grado académico que ostente.
