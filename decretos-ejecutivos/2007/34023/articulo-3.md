@@ -1,0 +1,1 @@
+Artículo 3°—Adiciónase en el inciso b) del artículo 2° del Decreto Ejecutivo Nº 32973-H y sus reformas, publicado en La Gaceta Nº 64 de 30 de marzo de 2006, las transferencias al Fondo Nacional de Financiamiento Forestal (FONAFIFO) y Sistema Nacional de Áreas de Conservación (SINAC) como exclusiones del gasto presupuestario para el Instituto Meteorológico Nacional.
