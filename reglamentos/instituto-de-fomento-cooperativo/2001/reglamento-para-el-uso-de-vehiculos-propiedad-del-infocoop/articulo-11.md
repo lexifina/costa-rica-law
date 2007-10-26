@@ -1,1 +1,0 @@
-Artículo 11.—La salida y circulación de vehículos después de las horas laborales, los sábados, domingos, días feriados o asuetos, sólo serán autorizadas por el Director (a) o Subdirector (a) Ejecutivo (a).

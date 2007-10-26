@@ -1,1 +1,0 @@
-Artículo 47.—Se deroga el Reglamento aprobado por la Junta Directiva del INFOCOOP en sesión Nº 2152 del 23 de abril de 1992 y sus reformas, así como cualquier otra disposición reglamentaria que se le opusiere.

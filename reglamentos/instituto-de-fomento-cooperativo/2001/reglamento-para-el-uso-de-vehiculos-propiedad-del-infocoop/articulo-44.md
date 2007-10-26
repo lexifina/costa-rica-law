@@ -1,1 +1,0 @@
-Artículo 44.—El Departamento de Servicios Generales es la dependencia encargada a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento. Sin perjuicio de las acciones que en mismo sentido, realicen las Jefaturas Departamentales.

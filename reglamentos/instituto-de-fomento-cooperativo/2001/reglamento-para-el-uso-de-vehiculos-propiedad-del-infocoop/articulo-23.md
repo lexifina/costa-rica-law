@@ -1,1 +1,0 @@
-Artículo 23.—El Jefe o Encargado del Departamento de Servicios Generales tramitará la solicitud y procederá a la prestación del servicio, conforme con las políticas dictadas y los intereses de la Institución, dependiendo de la disponibilidad de recursos que exista.
