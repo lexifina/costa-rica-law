@@ -14,3 +14,4 @@ Reglamento de Participación Asociativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-27 | la propia norma |
+| 2 | 2007-10-26 | Reglamento 3675 (2007-10-26) |
