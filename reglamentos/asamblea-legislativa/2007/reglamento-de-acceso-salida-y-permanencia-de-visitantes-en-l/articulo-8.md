@@ -1,0 +1,4 @@
+Artículo 8º—Ingreso de grupos de personas. En caso de que se requiera permiso para el ingreso de grupos de más de cinco personas, se requiere autorización por medio de una boleta que describa, fecha y hora de ingreso, lugar adonde se dirigen, nombre de la persona que se hará responsable del grupo y firma de la persona que autoriza y visto bueno de la Jefatura de Seguridad. Los funcionarios que pueden dar este tipo de autorizaciones son:
+a. En horas hábiles autorización del diputado o diputada, Director Ejecutivo, directores de división, directores de departamento, según corresponda.
+b. Finalizada la hora de atención al público, solamente podrán ingresar con autorización del Presidente del Congreso o del Director Ejecutivo.
+c. En caso de actividades dentro de la Institución, se requiere autorización del Director Ejecutivo o Directorio Legislativo, según corresponda.

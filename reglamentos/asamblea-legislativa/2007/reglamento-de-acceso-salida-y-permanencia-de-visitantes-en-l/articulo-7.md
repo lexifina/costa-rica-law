@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del horario de atención al público
+Artículo 7º—Horario de atención a visitantes. El horario establecido para la atención al público es de las 9:00 horas a las 14:45 horas. Después de finalizadas las horas de atención al público, solo se puede ingresar con la debida autorización de un diputado o diputada, Director Ejecutivo, directores de división y directores de departamento y jefes de despacho de los diputados y diputadas. Dicha autorización la gestionará directamente el agente de seguridad, vía telefónica, llenando una hoja de ingreso, donde se describa, fecha y hora de ingreso, lugar adonde se dirige, nombre y cédula u otro documento que identifique a la persona que ingresa y la persona que autoriza.

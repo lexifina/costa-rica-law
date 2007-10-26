@@ -1,0 +1,14 @@
+CAPÍTULO V
+Disposiciones para ingresar a las barras
+de público del plenario y comisiones
+Artículo 9º—Ingreso a las barras de público de plenario y comisiones. En caso de ingreso a las barras del público de plenario o comisiones se deben seguir las siguientes disposiciones:
+a. El ingreso a la barra del público del plenario es a partir de las 14:50 horas y la capacidad máxima es de 50 personas.
+b. El ingreso a las barras del público de las comisiones es a partir de la hora en que inicia la Comisión y la capacidad máxima es de 15 personas.
+c. El visitante que desee ingresar a las barras de público debe presentar su documento de identidad a la hora de entrada a la Institución e indicarle al agente de seguridad que desea ingresar a la barra de público del Plenario, o indicar a cuál barra del público de comisiones se dirige.
+d. El visitante deberá someterse a una revisión por parte de los agentes de seguridad, así como autorizar la revisión de maletines, bolsas, bolsos, valijas, cartucheras, etc., que desee ingresar a la barra de público, lo anterior en caso de que en ese momento la Institución no cuente con la máquina de Rayos Equis especial para ese efecto. Si el visitante se niega a que sean revisados los objetos anteriormente descritos, no podrá ingresar a la Institución.
+e. En caso de que el visitante desee ingresar carteles o pancartas a las barras del público, dichos carteles o pancartas deben ser revisados por los agentes de seguridad, para verificar que no contienen mensajes ofensivos. Si el agente de seguridad considera insultante el contenido del cartel o la pancarta, podrá retenerlo y deberá devolvérselo al visitante en el momento en que salga de la Institución. El visitante podrá ingresar con cartulina u hojas en blanco para insertar mensajes que no sean ofensivos ni atenten contra el decoro, la honra o la dignidad de las personas que se encuentren en alguno de los recintos legislativos.
+f. En la barra del público se prohíbe el ingreso de niños menores de 12 años, esto para proteger su integridad. En el caso de que jóvenes mayores de 12 años y menores de 18 que deseen ingresar, lo harán bajo la responsabilidad de un adulto que los acompañe.
+g. En caso de que personas con discapacidad o adultos mayores deseen ingresar a la barra de público, los agentes les darán preferencia en el ingreso de entrada.
+h. En caso de que mujeres embarazadas deseen ingresar a las barras del público, lo harán bajo su propia responsabilidad.
+i. Es prohibido dentro de la barra del público golpear los vidrios, realizar actos inadecuados o irrespetuosos.
+j. Antes o durante la discusión de proyectos de ley donde participen varios sectores, el Presidente de la Asamblea Legislativa podrá adoptar discrecionalmente las disposiciones que ameriten para salvaguardar el orden y seguridad del recinto parlamentario.
