@@ -1,1 +1,0 @@
-Artículo 86.—El presidente de la Junta Directiva de un Comité Comunal o subcomité podrá convocar a reunión extraordinaria por iniciativa propia o a petición de dos directivos. En este aspecto seguirá el procedimiento señalado por los artículos 17 y 18 de este Reglamento.

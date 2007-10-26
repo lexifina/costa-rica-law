@@ -1,1 +1,0 @@
-Artículo 77.—Una vez juramentada la Junta Directiva del Comité Comunal, la Junta Directiva del Comité Cantonal comunicará su conformación e inicio de labores al Concejo y a la Dirección Regional de Deportes.

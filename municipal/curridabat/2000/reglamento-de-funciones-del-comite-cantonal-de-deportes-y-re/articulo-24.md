@@ -1,1 +1,0 @@
-Artículo 24.—La Junta Directiva del Comité Cantonal debe reunirse con carácter ordinario, al menos, cada quince días. Debe comunicar por escrito al Concejo e Instituto Costarricense del Deporte y la Recreación el día y la hora de las sesiones.

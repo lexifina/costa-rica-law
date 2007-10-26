@@ -1,1 +1,0 @@
-Artículo 61.—Las subcomisiones serán juramentadas por la Junta Directiva del Comité Cantonal, pero estarán subordinadas directamente a la Comisión de Juegos Deportivos Comunales y Nacionales, con la cual deberán reunirse cada seis meses con el objetivo de intercambiar impresiones y unificar criterios.

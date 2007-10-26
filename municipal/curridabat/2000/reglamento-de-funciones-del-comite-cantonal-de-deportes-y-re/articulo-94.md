@@ -1,1 +1,0 @@
-Artículo 94.—El Director Regional de Deportes o los miembros del Concejo podrán reunirse con las juntas directivas de los comités comunales o subcomités cuando lo deseen. Podrán visitarlas en compañía de algún miembro de la Junta Directiva del Comité o solos.

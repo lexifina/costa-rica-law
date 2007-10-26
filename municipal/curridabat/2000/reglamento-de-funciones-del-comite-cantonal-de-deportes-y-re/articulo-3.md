@@ -1,1 +1,0 @@
-Artículo 3°—Entiéndase por organizaciones deportivas y recreativas aquellas que se encuentran debidamente inscritas ante el Registro de Asociaciones Deportivas del Instituto Costarricense del Deporte y la Recreación y/o el Registro Público, con cédula y personería jurídica al día, cuya sede y radio de acción será el cantón de Curridabat.
