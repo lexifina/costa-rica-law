@@ -14,3 +14,4 @@ Reglamentos de Becas Municipales del Cantón de la Unión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-10 | la propia norma |
+| 2 | 2007-10-29 | Reglamento municipal 119 (2007-10-29) |

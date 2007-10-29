@@ -1,0 +1,2 @@
+Transitorio I.- Que para el año 2007 y únicamente para ese año, los formularios de becas serán entregados por los síndicos a los Centros Educativos durante la primera quincena de octubre del 2007 y la publicación sobre la apertura del Programa de Becas en al menos un periódico de circulación nacional y cantonal, se realice durante la primera quincena de noviembre del 2007.
+(Así adicionado mediante sesión N° 119 del 29 de octubre de 2007)
