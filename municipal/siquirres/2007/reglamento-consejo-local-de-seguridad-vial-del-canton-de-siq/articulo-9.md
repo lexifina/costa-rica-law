@@ -1,0 +1,1 @@
+Artículo 9º—Es atribución exclusiva del COLOSEVI, solicitar por escrito al Concejo Municipal de Siquirres, interponer ante la organización respectiva, el retiro y/o sustitución de su (s) representante (s) por incumplimiento en sus deberes o por deceso.
