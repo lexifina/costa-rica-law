@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que el servidor de un permiso sin goce de salario los efectos del Contrato se suspenderán en forma temporal. No obstante, a su regreso el servidor podrá seguir acogido a la dedicación exclusiva.
