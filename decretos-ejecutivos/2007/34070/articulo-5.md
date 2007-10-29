@@ -1,0 +1,6 @@
+CAPÍTULO II
+De la Organización de la Auditoría General
+SECCIÓN A
+Generalidades
+Artículo 5º—Del concepto de Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y los órganos sujetos a la Ley General de Control Interno Dentro de una organización, la Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación del Ministro y la del resto del Ministerio se ejecutan conforme al marco legal y técnico y a las prácticas sanas.
+La garantía razonable y seguridad que ofrece la Auditoría Interna al ente u órgano se logra cuando se emiten adecuadas recomendaciones y opiniones y la Administración Activa las atiende. Cuando de acuerdo con el alcance de su plan de trabajo, verifica el apego de la Administración al ordenamiento jurídico y técnico, y el cumplimiento, validez y suficiencia del sistema de control interno.

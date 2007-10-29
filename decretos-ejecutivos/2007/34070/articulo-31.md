@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 31.—Comunicación de resultados de cada Auditoría. Los informes de auditoría interna versarán sobre diversos asuntos de su competencia, así como sobre asuntos que pueden derivar posibles responsabilidades para funcionarios, exfuncionarios del Ministerio y terceros. Cuando de un estudio se deriven recomendaciones sobre asuntos de responsabilidad y otras materias, la Auditoría Interna deberá comunicarlas en informes independientes para cada materia. Los resultados, las conclusiones y recomendaciones de los estudios realizados por la auditoría, deberán comunicarse oficialmente, mediante informes al Ministro.
