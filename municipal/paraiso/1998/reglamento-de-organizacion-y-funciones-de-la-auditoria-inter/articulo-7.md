@@ -1,1 +1,0 @@
-Artículo 7°—La Auditoría Interna cuando sea necesario dispondrá de personal asistente, el que debe poseer suficientes conocimientos en auditoría, contabilidad, administración y de las disposiciones legales que rigen a la Administración Pública y a la Municipalidad, que lo califiquen para ejercer en forma apropiada las funciones a él encomendadas.

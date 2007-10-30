@@ -1,1 +1,0 @@
-Artículo 8°—El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa de la Municipalidad y tampoco ser miembro de comisión de trabajo o similares.
