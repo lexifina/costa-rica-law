@@ -1,0 +1,1 @@
+Artículo 5º—Los propietarios u ocupantes a cualquier título, de viveros, semilleros, almácigos o banco de yemas, deberán presentar formal solicitud ante el Programa de Viveros par su aprobación o rechazo.

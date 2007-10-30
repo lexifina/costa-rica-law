@@ -1,0 +1,8 @@
+Artículo 6º—Los interesados en solicitar el registro referido en el artículo anterior deberán llenar el formulario de solicitud, con la siguiente información:
+A.1. Para el caso de personas jurídicas: Nombre de la empresa, número de cédula jurídica, dirección, apartado, número de fax, nombre y calidades del representante legal, dirección y teléfono. Fotocopia de la representación legal, con no más de 3 meses de expedida, siempre que sea confrontada con su original por el funcionario encargado y fotocopia de la cédula jurídica, con su original para su confrontación.
+A.2 Para el caso de personas físicas: Nombre de la persona física, dirección, teléfono y apartado postal, fotocopia de la cédula de identidad, con la original para que sea confrontada por el funcionario.
+Copia certificada del plano catastrado de la finca en la que se ubica el vivero.
+Indicar el número de plantas, edad, especies y variedades que se deseen reproducir.
+Indicar la procedencia exacta de los materiales de reproducción, como yemas y semillas. En caso de que la semilla a reproducir en el vivero se encuentre registrada en la Oficina Nacional de Semillas, el solicitante deberá aportar la certificación respectiva extendida por esa Oficina.
+El interesado estará obligado a acatar los métodos de prevención y combate eficiente contra las plagas que pudieran afectar su explotación a plantaciones vecinas. El propietario u ocupante de la explotación deberá comunicar al Programa de Viveros, cualquier cambio que la empresa realice.
+Aportar un libro de actas, para registrar las inspecciones, recomendaciones y controles que emitan los funcionarios del SFE.

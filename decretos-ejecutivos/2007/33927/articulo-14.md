@@ -1,0 +1,1 @@
+Artículo 14.—Cuando el SFE necesite diagnosticar la presencia de plagas o enfermedades, los inspectores fitosanitarios podrán obtener o tomar las muestras requeridas para trasladarlas a un Laboratorio oficial o autorizado, cuyo costo será asumido por la institución. Si se trata de diagnósticos de interés del productor, éste asumirá el costo de dicho análisis.

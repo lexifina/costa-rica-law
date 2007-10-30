@@ -1,0 +1,1 @@
+Artículo 12.—El SFE complementará los procedimientos técnicos y administrativos por medio de medidas fitosanitarias para cada rubro o situación en particular, las que serán de observancia obligatoria para los propietarios y poseedores de viveros, semilleros, almácigos y banco de yemas.

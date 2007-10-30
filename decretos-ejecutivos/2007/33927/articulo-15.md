@@ -1,0 +1,3 @@
+Artículo 15.—El propietario o poseedor de viveros, semilleros, almácigos y banco de yemas, debe cumplir con las disposiciones técnicas dadas por las autoridades fitosanitarias, o en su defecto se ordenará la destrucción de los focos de infección, previa selección de las plantas, de conformidad con la Ley Nº 7664, Ley de Protección Fitosanitaria vigente.
+Para efectos de destrucción de plantas, dicho acto se hará constar en un acta que indicará las razones técnicas para proceder con dicho acto, asimismo se anotará el género, especie, variedad, cantidad de plantas, patrones, semillas, o yemas.
+En el acta se hará referencia al número del folio del libro donde se dejaron las indicaciones previas.

@@ -1,0 +1,1 @@
+Artículo 13.—El encargado o responsable del vivero, semillero almácigo y banco de yemas, deberán establecer un sistema de control de entradas y salidas de material vegetal, sea: fecha de entrada o salida, cantidad de plantas, nombre y dirección del comprador o vendedor y el lugar exacto donde se compraron o se van a comprar las plantas.
