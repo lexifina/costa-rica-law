@@ -1,1 +1,0 @@
-Artículo 3º—La Auditoría Interna es parte integral y vital del sistema de control interno, de la Municipalidad de Desamparados, siendo uno de sus componentes orgánicos, y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.
