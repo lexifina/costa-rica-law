@@ -85,6 +85,8 @@ articulo-84.md
 articulo-85.md
 articulo-86.md
 articulo-87.md
+articulo-87-bis.md
+articulo-87-ter.md
 articulo-88.md
 articulo-89.md
 articulo-90.md
