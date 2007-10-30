@@ -1,0 +1,3 @@
+Artículo 33.—Universo auditable. El Auditor General dispondrá y mantendrá actualizado un universo auditable que establecerá los órganos y entes sobre los que aplicarán los Servicios de Auditoría:
+1. Realizará auditorías o estudios especiales semestralmente, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar.
+2. Efectuará semestralmente auditorías o estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5º y 6º de la Ley Orgánica de la Contraloría General de la República, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.

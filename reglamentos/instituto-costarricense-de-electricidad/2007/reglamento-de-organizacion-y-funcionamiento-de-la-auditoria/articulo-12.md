@@ -1,0 +1,1 @@
+Artículo 12.—Asistencia a las sesiones del Consejo Directivo. Cuando sea expresamente convocado, el Auditor General asistirá a las sesiones del Consejo Directivo en calidad de asesor, con derecho a voz pero sin voto.

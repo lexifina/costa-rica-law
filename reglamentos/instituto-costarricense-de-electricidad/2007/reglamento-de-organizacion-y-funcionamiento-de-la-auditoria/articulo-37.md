@@ -1,0 +1,6 @@
+Artículo 37.—Asesoría Jurídica. La Auditoría Interna cuenta con una Auditoría Jurídica que tendrá como objetivo brindar asesoría jurídica inherente a sus actividades. Para tal efecto la Auditoría Jurídica tiene las siguientes funciones:
+1. Brindar apoyo jurídico a las diferentes unidades de la Auditoría Interna.
+2. Revisión de normativa.
+3. Proporcionar asesoría jurídica en la revisión de informes que podrían originar eventuales procesos penales, civiles o administrativos.
+4. Levantamiento de actas notariales con relación a hechos relevantes, documentos públicos, declaraciones, testimonios y pruebas periciales, para que se constituyan en pruebas documentales que respalden los informes de la Auditoría que se remitan a la administración o a entes externos.
+En caso de ser necesario que los dictámenes sean emitidos por la Dirección Jurídica Institucional, dada la naturaleza del asunto a que se refiera o por estar dirigido especialmente al Consejo Directivo del ICE y así requerirlo la normalización de dicho órgano, la Dirección Jurídica Institucional brindará un oportuno y efectivo servicio a la Auditoría Interna para poder atender sus necesidades conforme lo establece el artículo 33, inciso c) de la Ley General de Control Interno.

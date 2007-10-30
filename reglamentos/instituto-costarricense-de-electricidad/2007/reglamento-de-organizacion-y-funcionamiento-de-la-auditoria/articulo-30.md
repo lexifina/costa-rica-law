@@ -1,0 +1,1 @@
+Artículo 30.—Disminución y ocupación de plazas vacantes. El Auditor General deberá autorizar lo relativo a la disminución de plazas por movilidad laboral u otros movimientos, y también le corresponderá gestionar oportunamente la ocupación de las plazas vacantes de la Auditoría, tal y como lo dispone el artículo 28 de la Ley General de Control Interno.

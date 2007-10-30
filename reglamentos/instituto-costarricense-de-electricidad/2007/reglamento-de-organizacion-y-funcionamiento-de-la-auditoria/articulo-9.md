@@ -1,0 +1,3 @@
+Artículo 9º—Independencia y objetividad.
+1. La labor de auditoría interna es oportuna, independiente, objetiva y posterior a las operaciones contables, financieras, administrativas y de toda naturaleza de la institución.
+2. La actividad de auditoría interna debe ser ejecutada con independencia funcional y de criterio, libre de injerencias al determinar el alcance de cada estudio, al desempeñar su trabajo y al comunicar sus resultados. Ejercerá sus funciones con independencia funcional respecto de los órganos de la Administración Activa y con independencia de criterio con respecto al Consejo Directivo y demás Órganos de la Administración Activa.

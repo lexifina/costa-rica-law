@@ -1,0 +1,1 @@
+Artículo 58.—Comunicación especial de resultados. Cuando los resultados de un estudio revistan especial importancia a criterio del Auditor General, o del Auditor General en ejercicio, el informe correspondiente podrá ser comunicado directamente al Consejo Directivo.

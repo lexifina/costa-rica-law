@@ -1,0 +1,1 @@
+Artículo 59.—Confidencialidad de los resultados. El personal de Auditoría, en todas sus actuaciones, deberá mantener una actitud mental independiente y guardar absoluta confidencialidad con respecto a sus estudios.

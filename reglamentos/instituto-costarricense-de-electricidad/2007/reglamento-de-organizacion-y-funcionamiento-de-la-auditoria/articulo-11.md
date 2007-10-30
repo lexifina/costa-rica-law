@@ -1,0 +1,1 @@
+Artículo 11.—Medidas para controlar y administrar situaciones de impedimento. El Auditor General establecerá políticas y directrices que permitan prevenir y detectar situaciones internas o externas que comprometan la independencia y la objetividad del personal que realiza el proceso de auditoría en la Institución.

@@ -1,0 +1,1 @@
+Artículo 2º—Objeto del Reglamento de Organización y Funcionamiento. El presente Reglamento regula la organización, objetivos, funciones, deberes, atribuciones y prohibiciones de la Auditoría Interna del ICE, de manera tal que su accionar coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del auditor general y los subauditores
+Artículo 18.—Nombramiento del Auditor General y los Subauditores. Para el nombramiento del Auditor General y los Subauditores se considerará lo previsto en el artículo 31 de la Ley General de Control Interno, el artículo 62 de la Ley Orgánica de la Contraloría General de la República, así como lo establecido en los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos” emitidos por la Contraloría General y publicados en La Gaceta Nº 236 del 8 de diciembre de 2006.

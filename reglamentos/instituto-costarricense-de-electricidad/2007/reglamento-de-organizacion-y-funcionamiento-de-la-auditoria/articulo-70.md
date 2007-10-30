@@ -1,0 +1,1 @@
+Artículo 70.—Derogatoria. El presente Reglamento deroga el Reglamento de Organización y Funciones de la Auditoría Interna del Instituto Costarricense de Electricidad publicado en La Gaceta Nº 70 del 9 de abril de 2001 y aquellas disposiciones internas que se le opongan.
