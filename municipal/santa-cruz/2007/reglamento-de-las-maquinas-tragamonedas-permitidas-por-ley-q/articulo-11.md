@@ -1,0 +1,2 @@
+Transitorio.—Las personas físicas y jurídicas que a la publicación en el Diario Oficial La Gaceta del presente Reglamento, tengan patentes de máquinas tragamonedas, se les otorgará un mes hábil para que se presenten a la Municipalidad a ponerse a derecho de conformidad con las regulaciones de este Reglamento. Vencido el plazo sin que hayan entregado las documentaciones se procederá a la cancelación automática de sus patentes.
+Dado en el Palacio Municipal de Santa Cruz, Guanacaste, a las 04:00 horas del día 27 del año 2007.

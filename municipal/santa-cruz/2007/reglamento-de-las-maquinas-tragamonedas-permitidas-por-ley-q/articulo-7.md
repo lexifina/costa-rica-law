@@ -1,0 +1,2 @@
+Artículo 7º—Los solicitantes de patentes deberán presentar la solicitud respectiva ante el Concejo Municipal en la oficina de la Secretaría del Concejo, para que la Comisión de Patente Nombrada al efecto la someta ante el Concejo Municipal para su aprobación, quien remitirá la solicitud mediante acuerdo municipal al Departamento de Rentas para la verificación y cumplimiento de los requisitos estipulados en este reglamento.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 224 del 21 de noviembre de 2007)
