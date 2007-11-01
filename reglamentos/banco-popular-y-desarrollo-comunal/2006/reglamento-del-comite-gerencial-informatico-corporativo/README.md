@@ -14,3 +14,4 @@ Reglamento del Comité Gerencial Informático Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-09 | la propia norma |
+| 2 | 2007-11-01 | Reglamento 4528 (2007-11-01) |
