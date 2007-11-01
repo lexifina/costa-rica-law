@@ -16,3 +16,5 @@ j) La Cruz Roja y los inmuebles destinados a los bomberos.
 k) Los bienes de uso común, propiedad de las personas jurídicas amparadas a la Ley No. 3859 y sus reformas.
 l) Los inmuebles pertenecientes a las asociaciones declaradas de utilidad pública por las autoridades correspondientes.
 (Así adicionado este inciso por el artículo 2º, inciso a), de la ley No.7729 de 15 de diciembre de 1997)
+m) Las juntas de educación y las juntas administrativas de las instituciones oficiales de enseñanza.
+(Así adicionado el inciso anterior por el artículo único de la Ley N° 8619 del 1 de noviembre de 2007)
