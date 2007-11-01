@@ -1,1 +1,2 @@
-Artículo 16.—Del Comité Corporativo de Tecnología. Crease el Comité Corporativo de Tecnología integrado por el Director de Tecnología de la Información del Banco Popular, quien lo presidirá y los Jefes de Tecnología de cada una de las Sociedades. El objetivo de este Comité será asesorar al Comité Ejecutivo Corporativo con el fin de que el desarrollo tecnológico del Grupo Corporativo esté acorde con una estrategia común que favorezca la integración de clientes y de negocios.
+Artículo 16º—Del Comité Gerencial Informático Corporativo. Se regirá por el Reglamento del Comité Gerencial Informático Corporativo aprobado por la Junta Directiva Nacional.
+(Así reformado mediante sesión N° 4528 del 1° de noviembre de 2007).

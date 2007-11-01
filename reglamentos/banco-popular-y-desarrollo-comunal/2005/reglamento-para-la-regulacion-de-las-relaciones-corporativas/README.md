@@ -15,3 +15,4 @@ Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular 
 | --- | --- | --- |
 | 1 | 2005-05-27 | la propia norma |
 | 2 | 2007-10-08 | Reglamento 4523 (2007-10-08) |
+| 3 | 2007-11-01 | Reglamento 4528 (2007-11-01) |
