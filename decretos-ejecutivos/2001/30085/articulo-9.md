@@ -1,1 +1,0 @@
-Artículo 9º—El Auditor General podrá asignar funciones, delegar autoridad y exigir responsabilidad a sus subalternos, excepto en aquellos casos en que su intervención personal sea obligatoria, conforme con reglamentos y disposiciones legales que emanen de las autoridades competentes.

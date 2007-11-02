@@ -1,1 +1,0 @@
-Artículo 29.—En cuanto a los requisitos, partes, revisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en el Manual para el Ejercicio de la Auditoria Interna en las Entidades y Órganos sujetos a la Fiscalización de la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 11.—Para el adecuado cumplimiento de sus funciones, según lo establecido en el artículo 61 de la Ley Orgánica de la Contraloría General de la República, la Auditoria General dispondrá de su propio programa presupuestario, separado de la Administración, en el cual se consignarán todos los recursos humanos y físicos que le son necesarios.

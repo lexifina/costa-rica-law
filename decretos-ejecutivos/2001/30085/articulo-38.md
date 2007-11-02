@@ -1,1 +1,0 @@
-Artículo 38.—El jerarca debe tomar el acuerdo en relación con las recomendaciones del informe, dentro de los 30 días hábiles siguientes al recibido del informe. El jerarca puede durante ese período solicitar al funcionario que él requiera, incluida la Auditoria Interna, criterios o información adicional según sea el caso, que le ayude a fundamentar su decisión.

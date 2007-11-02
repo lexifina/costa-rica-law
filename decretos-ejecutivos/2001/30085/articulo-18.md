@@ -1,1 +1,0 @@
-Artículo 18.—La Administración deberá establecer y mantener programas de entrenamiento especializados, para los funcionarios de la Auditoria General en el área de su competencia y en disciplinas complementarias, tales como informática, presupuesto, fundamentos legales y otras.

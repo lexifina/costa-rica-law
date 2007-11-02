@@ -1,1 +1,0 @@
-Artículo 37.—La Auditoria General debe recordar expresamente en el informe al máximo jerarca, sobre el plazo de 30 días hábiles con que cuenta para remitir el acuerdo fundamentado sobre las recomendaciones e igualmente si tiene objeciones, deben ser concretas e invocar razones que fundamenten la decisión.
