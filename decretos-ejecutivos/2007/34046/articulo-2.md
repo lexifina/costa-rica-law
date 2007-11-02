@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el anexo 1 del Reglamento de las Empresas y Actividades Turísticas, Decreto Ejecutivo N° 25226-MEIC-TUR del 15 de marzo de 1996, publicado en La Gaceta N° 121 del 26 de junio de 1996, para que dentro de su título se agregue la palabra actividades turísticas temáticas , que se leerá como sigue:
+“Anexo 1. Equipamiento e infraestructura mínima empresas de hospedaje, gastronomía, centros de diversión nocturna y actividades turísticas temáticas”.
