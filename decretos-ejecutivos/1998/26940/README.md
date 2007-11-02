@@ -17,3 +17,4 @@ Reglamento a la Ley N° 4760 del 4 de mayo de 1971 de Creación del Instituto MI
 | 2 | 2000-04-12 | Decreto Ejecutivo 28593 (2000-04-12) |
 | 3 | 2000-07-17 | Decreto Ejecutivo 28807 (2000-07-17) |
 | 4 | 2004-09-14 | Decreto Ejecutivo 31952 (2004-09-14) |
+| 5 | 2007-11-02 | Decreto Ejecutivo 34196 (2007-11-02) |
