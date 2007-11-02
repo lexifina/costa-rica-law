@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la resolución Nº 21 de las ocho horas del día veinticuatro de octubre del año dos mil cinco, dictada por la Dirección General y publicada en el Diario Oficial La Gaceta Nº 210 del 1º de noviembre del 2005.
