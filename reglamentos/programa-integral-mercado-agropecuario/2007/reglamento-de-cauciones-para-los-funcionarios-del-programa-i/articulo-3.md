@@ -1,0 +1,1 @@
+Artículo 3º—Monto de la garantía. El Programa Integral de Mercadeo Agropecuario exigirá suscribir a los funcionarios obligados en el presente Reglamento una garantía cuyo monto base será el salario bruto mensual del funcionario.
