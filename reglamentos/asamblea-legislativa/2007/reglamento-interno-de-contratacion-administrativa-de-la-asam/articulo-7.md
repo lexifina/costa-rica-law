@@ -1,0 +1,28 @@
+Artículo 7º—Además de las competencias indicadas en la Ley de contratación administrativa, específicamente en su artículo 10 y 106, así como en los artículos del 219 al 224 del Reglamento de dicha Ley, son funciones de la Proveeduría:
+1. Integrar el programa institucional de adquisiciones y mantenerlo actualizado. Dicho programa deberá ser publicado en La Gaceta. Adicionalmente, al finalizar cada período presupuestario, se realizará una evaluación de la gestión de adquisición de bienes y servicios.
+2. Consolidar las adquisiciones de las dependencias de la Institución, en casos de compras que puedan representar economías de escala o que puedan agruparse en objetos iguales o similares de uso común y continuo; para ello, en el momento oportuno, la Proveeduría determinará quién fungirá como fiscalizador del contrato de esa adquisición.
+3. Emitir, mediante una circular, los requisitos y procedimientos por cumplir en relación con los programas de compras.
+4. Recibir y custodiar todos los documentos originales que conformen el registro de proveedores y establecer los mecanismos administrativos, técnicos e informáticos necesarios para que este registro funcione en forma óptima.
+5. Mantener un registro actualizado de proveedores, con los respectivos requisitos, las características y la especificación de los bienes y servicios ofrecidos. Este registro será útil para la toma de decisiones y futuras contrataciones; además, permitirá categorizar a los proveedores. Asimismo, para efectos de futuras contrataciones, la Proveeduría deberá llevar un registro de las sanciones e inhabilitaciones impuestas a los proveedores; en él deberá detallar, en cada caso, el nombre del proveedor sancionado.
+6. Definir el procedimiento de contratación administrativa por seguir, conforme a la normativa vigente.
+7. Elaborar y revisar cuidadosamente cada uno de los carteles, con la participación de la unidad usuaria, así como de las unidades técnica, legal y financiera, y enviar a publicación los carteles que se requiera publicar. Adicionalmente, deberá crear la versión última del cartel, con todas las modificaciones.
+8. Cursar las invitaciones para participar en todos los procedimientos de contratación.
+9. Recibir las ofertas y proceder a su apertura.
+10. Remitir a las instancias respectivas las ofertas recibidas en cada proceso, a fin de que sean evaluadas, cuando corresponda.
+11. Adjudicar las contrataciones directas contenidas en el capítulo IX del Reglamento de la Ley de contratación administrativa, excepto aquellas contrataciones cuya cuantía exceda de la consignada para contrataciones de escasa cuantía.
+12. Formar parte de la Comisión de Recomendación de Contrataciones Administrativas.
+13. Mantener actualizado y debidamente foliado el expediente administrativo, de acuerdo con el artículo 11 del Reglamento de la Ley de contratación administrativa.
+14. Resolver los recursos de objeción que se planteen contra los carteles de las licitaciones abreviadas, así como contestar las audiencias que confiera la Contraloría General de la República, respecto de los recursos de objeción planteados contra los carteles de las licitaciones públicas. En ambos casos, la Proveeduría institucional contará con la colaboración de la unidad técnica, legal o financiera, según la materia que trate el recurso.
+15. Resolver los recursos de revocatoria que se planteen contra la decisión final que le competa, en cumplimiento del artículo 3 del presente Reglamento.
+16. Contestar las audiencias que la Contraloría General de la República confiera por los recursos de apelación que se planteen contra el acto de adjudicación o contra aquel que declare infructuoso o desierto un concurso promovido por la Asamblea Legislativa. Para ello, contará con la participación de la unidad técnica, legal y financiera, según lo requiera.
+17. Garantizar que los sistemas de reajuste, revisión o actualización de precios se incluyan en los carteles de contrataciones que así lo requieran.
+18. Servir de enlace oficial en las tramitaciones de los procedimientos de contratación administrativa con la Contraloría General de la República, en coordinación con las dependencias correspondientes.
+19. Colaborar con todas las áreas de la Institución, para que los funcionarios involucrados en los procesos de contratación administrativa reciban adecuada capacitación en la materia.
+20. Mantener a derecho el estado de las garantías de participación y cumplimiento, siguiendo las disposiciones establecidas en la normativa vigente en la materia.
+21. Verificar y controlar el estado de cumplimiento de los plazos definidos por la Proveeduría, conforme lo establece el artículo 10 del Reglamento de la Ley de contratación administrativa, e informar a las instancias correspondientes respecto de su verificación y control.
+22. Dirigir los procedimientos para el desecho de activos.
+23. Promover la utilización de medios electrónicos y digitales en los procesos de pedidos.
+24. Firmar los documentos de ejecución presupuestaria que se requieran.
+25. Fiscalizar los trámites aduaneros que realicen los contratistas y coadyuvar con ellos.
+26. Tramitar los procesos de cobro de multas, cláusulas penales, rescisiones, ejecución de garantías, reclamos administrativos, nulidades, intereses moratorios, diferenciales cambiarios, reajuste y revisión de precios, e informar de dichos trámites a la Dirección Ejecutiva.
+27. Remitir al Directorio Legislativo, la Dirección Ejecutiva, las direcciones de División, los departamentos técnicos especializados, el Departamento de Asesoría Jurídica, el Departamento Financiero y el Departamento de Auditoría, un informe mensual sobre el estado de los procesos licitatorios.
