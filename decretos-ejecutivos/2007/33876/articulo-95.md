@@ -1,0 +1,4 @@
+Artículo 95.—Presentación del recurso. El recurso se debe presentar ante la Dirección del Centro o ámbito, debiendo consignar en el documento la fecha, hora y firma de quien lo recibe, y lo hará llegar ante el órgano correspondiente.
+La parte podrá interponer el recurso de revocatoria y de apelación en forma subsidiaria. En tal caso se tramitara la apelación una vez declarada sin lugar la revocatoria, de forma parcial o total. Si es declarada con lugar la revocatoria deviene innecesaria el conocimiento y traslado de la apelación.
+El recurso de apelación debe ser elevado ante el Instituto Nacional de Criminología para su conocimiento, resolución y agotamiento de la vía administrativa.
+Si la parte interesada únicamente presenta recurso de apelación, el órgano inferior se limitara a remitir el legajo de la impugnación con los antecedentes, ante el Instituto Nacional de Criminología, con razón de recibido y de la presentación dentro o fuera del termino otorgado.

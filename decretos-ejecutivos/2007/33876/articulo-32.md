@@ -1,0 +1,1 @@
+Artículo 32.—Ubicación por edad. Las personas menores de edad están separadas de las mayores. Siempre que sea posible, las personas mayores de 65 años tendrán una ubicación diferente al resto de la población.

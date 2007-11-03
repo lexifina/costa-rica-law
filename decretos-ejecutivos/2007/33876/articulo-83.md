@@ -1,0 +1,1 @@
+Artículo 83.—Sobre el egreso. El egreso del régimen de máxima seguridad será recomendado por el Consejo Técnico Interdisciplinario del Régimen de Máxima Seguridad mediante acuerdo fundado, quien lo remitirá al Consejo de Ubicación para su decisión final.

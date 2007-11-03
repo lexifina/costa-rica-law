@@ -1,0 +1,2 @@
+Artículo 19.—Egreso por cambio de programa. Es el egreso de la persona privada de libertad de un Centro del Programa Institucional para ser trasladado a un Centro del Programa Semi Institucional. Deberá acompañarse de un informe técnico sobre el cumplimiento del Plan de Atención Técnica. También se remitirá el expediente médico.
+En el Centro receptor deberá realizarse un proceso de inducción a la persona privada de libertad, en el que se le informe sobre la ejecución del Plan de Atención Técnica en las condiciones propias del Programa.

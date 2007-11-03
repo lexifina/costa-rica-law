@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la ubicación de la población
+desinstitucionalizada
+Artículo 34.—De la ubicación en el programa semi institucional. La población que se ubica dentro de estos centros tiene las siguientes características: se encuentra sentenciada a la orden del Instituto Nacional de Criminología, no requiere de contención física, cuenta con habilidades personales y sociales para vivir sin violentar, agredir o dañarse así mismo, su familia o la comunidad en general, cuentan con apoyo familiar o comunitario. La atención técnica se dirige a promover la responsabilidad comunitaria a partir de la ubicación de la persona privada de libertad en su medio familiar y laboral. A fomentar el desarrollo personal social. La ubicación de la población en los centros de desinstitucionalización es potestad del Instituto Nacional de Criminología.

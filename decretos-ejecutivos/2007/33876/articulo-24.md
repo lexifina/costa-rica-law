@@ -1,0 +1,1 @@
+Artículo 24.—Valoración inicial para personas sentenciadas. La valoración inicial es el estudio para ubicación, clasificación y definición del plan de atención técnica de las personas sentenciadas. Se realizará una vez que ella se encuentre a la orden del Instituto Nacional de Criminología.

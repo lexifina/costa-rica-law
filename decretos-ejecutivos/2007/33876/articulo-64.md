@@ -1,0 +1,1 @@
+Artículo 64.—Trámites no gestionados por la Administración Penitenciaria. Cuando la Incidencia fuere gestionada por la defensa pública o privada, o directamente por la misma persona privada de libertad, el Director del Centro o Ámbito remitirá la información indicada en el artículo anterior cuando lo solicite la autoridad jurisdiccional.

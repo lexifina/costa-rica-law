@@ -1,0 +1,1 @@
+Artículo 100.—Recurso extraordinario de revisión. La parte podrá interponer el recurso de revisión contra los actos finales del Consejo Técnico Interdisciplinario y del Instituto Nacional de Criminología.

@@ -1,0 +1,1 @@
+Artículo 94.—Términos de interposición. Los recursos ordinarios deben interponerse dentro del término de tres días hábiles, contados a partir del día siguiente de la notificación del acto, bajo pena de inadmisibilidad.

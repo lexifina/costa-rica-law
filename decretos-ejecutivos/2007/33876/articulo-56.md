@@ -1,0 +1,1 @@
+Artículo 56.—Notificación de acuerdo. El acuerdo emitido por el Instituto Nacional de Criminología sobre la autorización del beneficio del artículo 55 del Código Penal, será comunicado al director del centro penal dentro del lapso de 3 días, para los efectos correspondientes.

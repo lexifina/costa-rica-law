@@ -1,0 +1,1 @@
+Artículo 40.—Organización y funcionamiento. La Administración Penitenciaria planificará, organizará, dirigirá y supervisará el trabajo de la persona privada de libertad, tomando en cuenta las posibilidades ocupacionales que brinde la institución y además a las habilidades, destrezas y conocimientos del individuo.

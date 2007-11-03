@@ -1,0 +1,1 @@
+Artículo 21.—Del registro de la información técnica. Los profesionales registrarán la información que genere la intervención y atención de la población atendida en el sistema de información institucional, manteniendo actualizado el expediente electrónico de acuerdo a los lineamientos establecidos.

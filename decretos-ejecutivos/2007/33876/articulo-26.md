@@ -1,0 +1,2 @@
+Artículo 26.—De las valoraciones extraordinarias. El Instituto Nacional de Criminología podrá solicitar al Consejo Técnico Interdisciplinario de los Centros Penitenciarios, valoraciones técnicas fuera de los plazos ordinarios cuando ello sea necesario, ya sea por necesidades institucionales debidamente fundamentadas o por situaciones sobrevenidas en la ejecución de la pena, en virtud del principio de humanidad en el cumplimiento de la pena.
+El Instituto Nacional de Criminología, establecerá mediante circular los procedimientos para las valoraciones extraordinarias.

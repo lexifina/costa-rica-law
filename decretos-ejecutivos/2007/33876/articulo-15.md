@@ -1,0 +1,1 @@
+Artículo 15.—Plan de acciones inmediatas. Es el proceso de acompañamiento institucional para personas indiciadas, apremiadas, contraventoras y sujetas a un procedimiento de extradición. Consiste en la atención de sus necesidades inmediatas durante su estancia en un centro de atención institucional.

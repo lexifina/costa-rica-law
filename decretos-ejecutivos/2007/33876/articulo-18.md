@@ -1,0 +1,2 @@
+Artículo 18.—Egreso por traslado. Es el egreso de la persona privada de libertad de un Centro del Programa Institucional para ser trasladado a otro Centro del mismo Programa. Deberá acompañarse de un informe técnico sobre el cumplimiento del Plan de Acciones Inmediatas o Plan de Atención Técnica, según corresponda.
+El traslado se debe realizar de manera que se logre la continuidad de la ejecución del Plan de Acciones Inmediatas o Plan de Atención Técnica. También se remitirá el expediente médico.

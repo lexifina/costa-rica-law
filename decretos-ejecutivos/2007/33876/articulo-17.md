@@ -1,0 +1,1 @@
+Artículo 17.—Egreso definitivo. Es el proceso de información e inducción dirigido a preparar a la persona sentenciada para la libertad. La autoridad penitenciaria correspondiente emitirá un informe final sobre el cumplimiento del Plan de Atención Técnica.

@@ -1,0 +1,1 @@
+Artículo 31.—Ubicación por género. La ubicación se establece por sexo, los hombres y las mujeres tienen lugares de alojamiento distintos. Sin embargo, podrán compartir espacios comunes durante la realización de actividades diversas, tales como educación o recreación, trabajo o capacitación.

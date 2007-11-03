@@ -1,0 +1,1 @@
+Artículo 33.—Ubicación por condición jurídica. Las personas imputadas deberán estar separadas de quienes ya están penados por sentencia firme, siempre que sea posible, así como las personas apremiadas y contraventoras.

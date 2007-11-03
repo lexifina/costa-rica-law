@@ -1,0 +1,1 @@
+Artículo 14.—De la comunicación y registro del ingreso. Del ingreso se comunicara en forma inmediata a la autoridad jurisdiccional o institucional según corresponda, así como registrar el mismo en el sistema de información.
