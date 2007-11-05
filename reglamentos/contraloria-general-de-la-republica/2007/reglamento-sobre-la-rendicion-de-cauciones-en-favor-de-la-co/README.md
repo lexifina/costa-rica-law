@@ -14,3 +14,4 @@ Reglamento sobre la rendición de cauciones en favor de la Contraloría General 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-04 | la propia norma |
+| 2 | 2007-11-05 | Reglamento 7 (2007-11-05) |
