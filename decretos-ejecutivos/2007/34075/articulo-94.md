@@ -1,0 +1,1 @@
+Artículo 94.—El Ministerio de Educación Pública contará con un Comité Institucional de Tecnologías de la Información y la Comunicación (TIC´s) de conformidad con lo establecido en el Manual sobre Normas Técnicas de Control Interno de los Sistemas de Información Computarizados emitido por la Contraloría General de la República.

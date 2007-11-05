@@ -1,0 +1,1 @@
+Transitorio III.—La creación, organización y funciones del Instituto de Desarrollo Profesional Uladislao Gámez Solano se establecerá mediante un decreto específico que el Poder Ejecutivo promulgará para tales efectos.

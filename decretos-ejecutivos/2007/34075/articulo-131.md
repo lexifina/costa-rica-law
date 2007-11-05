@@ -1,0 +1,1 @@
+Artículo 131.—Además de la organización prevista en el presente Decreto, cada departamento podrá establecer su organización interna, de conformidad con los procedimientos que para tales efectos establezca la Dirección de Planificación Institucional, en estricto apego a los lineamientos dictados en materia de reforma institucional por parte de MIDEPLAN.

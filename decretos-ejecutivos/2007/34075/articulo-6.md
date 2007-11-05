@@ -1,0 +1,1 @@
+Artículo 6º—Al Nivel Director le corresponde planificar, desarrollar, coordinar, dirigir, dar seguimiento y evaluar los procesos estratégicos que dan sustento al funcionamiento del Ministerio de Educación Pública y a la prestación de los servicios educativos públicos en todos los niveles, ciclos y modalidades, de conformidad con los lineamientos dictados por el Nivel Político.

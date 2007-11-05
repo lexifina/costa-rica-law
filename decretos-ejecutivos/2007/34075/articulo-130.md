@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 130.—La implementación de las decisiones originadas en las dependencias y órganos que conforman las Oficinas Centrales del MEP, cuya ejecución debe cumplirse en el ámbito regional, serán realizadas por medio de la estructura regional, de conformidad con las circulares, directrices y lineamientos dictados para tales efectos por el Nivel Político o, en su defecto, por las Direcciones que conforman el área académica y el área administrativa, con la autorización previa del Viceministro Académico de Educación Pública o el Viceministro Administrativo de Educación Pública, según corresponda.

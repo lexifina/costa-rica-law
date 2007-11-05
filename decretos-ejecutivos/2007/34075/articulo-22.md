@@ -1,0 +1,1 @@
+Artículo 22.—Para el cumplimiento de sus funciones, la Dirección de Contraloría de Servicios del MEP podrá establecer las representaciones que considere necesarias, tanto en Oficinas Centrales como en el nivel regional.

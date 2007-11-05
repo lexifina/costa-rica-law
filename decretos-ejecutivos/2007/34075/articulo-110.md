@@ -1,0 +1,1 @@
+Artículo 110.—La Proveeduría Institucional del MEP podrá tramitar, ante las autoridades competentes y con estricto apego al bloque de legalidad aplicable, el establecimiento de Proveedurías Especializadas, que funcionarán como órganos auxiliares, de conformidad con los reglamentos específicos que para tales efectos emita el Ministerio de Educación Pública.

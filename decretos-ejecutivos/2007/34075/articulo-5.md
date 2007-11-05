@@ -1,0 +1,1 @@
+Artículo 5º—Al Nivel Asesor le corresponde brindar asesoría técnica especializada al Nivel Político, apoyando el proceso de toma de decisiones en áreas estratégicas. Asimismo, brindar asesoría técnica al Nivel Director y al Nivel Ejecutor de acuerdo con lo establecido en el presente decreto y los lineamientos que para tales efectos dicte el Nivel Político.
