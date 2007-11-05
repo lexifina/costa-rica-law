@@ -1,1 +1,1 @@
-Artículo 15.—La tasa de interés para la Cartera Financiera será de hasta 20 puntos superiores a la tasa de referencia; para la Cartera de Desarrollo, de hasta 15 puntos superiores, y para Pignoración, hasta 20 puntos superiores. En el caso de los créditos en dólares de los Estados Unidos de América, será hasta de 8 puntos superior a la tasa de referencia.
+Artículo 15.—(Así derogado mediante sesión N° 4529 del 5 de noviembre de 2007).
