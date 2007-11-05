@@ -1,0 +1,1 @@
+Artículo 60.—Responsabilidad de las evaluaciones internas. La responsabilidad de las evaluaciones internas recaerá en el auditor interno, éste deberá revisar las evaluaciones internas y velar porque se tomen las medidas correctivas, cuando sea procedente.

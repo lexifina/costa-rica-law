@@ -1,0 +1,1 @@
+Artículo 49.—Comunicación a Junta Directiva. Los resultados del estudio serán elevados a la Junta Directiva, para que se dispongan las correspondientes medidas administrativas, y si fuera del caso sean trasladadas a las instancias judiciales correspondientes.

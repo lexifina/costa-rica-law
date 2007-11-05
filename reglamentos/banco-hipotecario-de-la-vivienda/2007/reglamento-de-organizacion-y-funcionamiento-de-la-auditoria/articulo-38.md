@@ -1,0 +1,1 @@
+Artículo 38.—Acceso a informes. Los informes de auditoría sobre materia de control interno (los cuales no hacen referencia a eventuales responsabilidades, característica que los diferencia de las relaciones de hecho y denuncias al Ministerio Público), una vez puestas en comunicación de la administración activa, son de libre acceso por parte de cualquier persona pública o privada.

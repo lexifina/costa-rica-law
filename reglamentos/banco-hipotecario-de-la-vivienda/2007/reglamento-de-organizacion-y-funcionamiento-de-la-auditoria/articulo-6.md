@@ -1,0 +1,1 @@
+Artículo 6º—Ideas rectoras. La auditoría interna debe de establecer y asegurarse de mantener actualizados en el Manual de Auditoría Interna del Banco Hipotecario de la Vivienda: su visión, misión, políticas y procedimientos que regirán el accionar de la auditoría interna.

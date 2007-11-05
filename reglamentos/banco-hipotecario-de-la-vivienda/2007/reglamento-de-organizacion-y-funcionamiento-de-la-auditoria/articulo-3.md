@@ -1,0 +1,1 @@
+Artículo 3º—Disponibilidad del Reglamento. Una vez que este reglamento sea aprobado por la Contraloría General de la República y publicado en el Diario Oficial La Gaceta, se mantendrá disponible en Carpetas Públicas, Información Institucional, Compendio de Leyes, Normativas y Reglamentos.
