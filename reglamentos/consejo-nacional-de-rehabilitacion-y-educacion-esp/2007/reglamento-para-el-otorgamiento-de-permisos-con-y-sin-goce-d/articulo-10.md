@@ -1,0 +1,1 @@
+Artículo 10.—Ningún funcionario o funcionaria del CNREE que se encuentre disfrutando de un permiso sin goce de salario, podrá desempeñarse como asesor ni como consultor de órganos, instituciones o entidades, nacionales o extranjeras, que se vinculan directamente, por relación jerárquica, por desconcentración o por convenio aprobado al efecto, con el CNREE.

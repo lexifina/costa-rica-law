@@ -1,0 +1,1 @@
+Artículo 6º—Salvo las excepciones señaladas en los incisos a) y b) del artículo anterior, todos los permisos sin goce de salario lo serán por un plazo máximo de seis meses, pudiendo prorrogarse hasta por un periodo igual adicional.

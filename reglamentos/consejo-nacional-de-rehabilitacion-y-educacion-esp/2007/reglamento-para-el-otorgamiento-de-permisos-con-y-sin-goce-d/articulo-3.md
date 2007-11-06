@@ -1,0 +1,9 @@
+Artículo 3º—Todas las licencias que se concedan a los trabajadores lo serán sin goce de salario, salvo aquellos casos en que por ley se deban otorgar con goce de salario, o bien, en los siguientes supuestos:
+1. En caso de capacitaciones o talleres que se realicen dentro o fuera del territorio nacional, siempre que a criterio de la Dirección Ejecutiva, guarden estrecha relación con las labores que el funcionario realiza en el CNREE, se concederá licencia por el plazo que dure la capacitación.
+La Dirección Ejecutiva concederá permisos con goce de salario cuando se trate de capacitaciones realizadas dentro o fuera del país que no requieran del pago de gastos o no excedan de ocho días. La Junta Directiva concederá los permisos para capacitaciones dentro y fuera del país superiores a ocho días y que requieran del pago de viáticos, gastos de transporte y hospedaje aportados por el CNREE.
+2. En caso de que el trabajador contraiga matrimonio se le concederá licencia por cinco días hábiles.
+3. Si sobreviene el fallecimiento de un hermano, se le concederá al trabajador licencia por tres días hábiles. Si es por el fallecimiento de un hijo, alguno de los padres o el cónyuge, la licencia será por cinco días hábiles.
+4. Si sobreviene el fallecimiento de un pariente por consanguinidad o afinidad hasta tercer grado, la Dirección Ejecutiva otorgará al trabajador licencia por un día hábil para asistir a los servicios funerarios.
+5. En caso de nacimiento de un hijo o hija, se otorgará licencia al trabajador por tres días hábiles
+6. En caso de fallecimiento de un funcionario del CNREE, se otorgará permiso hasta por medio día hábil para que los compañeros de trabajo asistan a los servicios funerarios, siempre y cuando no se afecte la prestación de los servicios institucionales.
+En casos citados en los incisos 2), 3), 4), 5) y 6) del presente artículo las licencias serán concedidas por la Dirección Ejecutiva.
