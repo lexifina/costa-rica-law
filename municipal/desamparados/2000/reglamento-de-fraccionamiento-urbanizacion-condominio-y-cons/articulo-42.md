@@ -1,4 +1,0 @@
-Artículo 42.—Limitaciones de los usos no conformes: Cualquier uso de terrenos o estructuras existentes a la fecha de entrada en vigencia de este Reglamento y que no corresponda a las disposiciones aquí indicadas, podrá continuar con las siguientes limitaciones:
-a) No podrá ampliarse, reconstruir o remodelarse parcial o totalmente sin la previa autorización de la Municipalidad.
-b) Aquellos usos no conformes con el Reglamento de Usos del Suelo del cantón de Desamparados, estará vedada la realización de reparaciones, construcciones, ampliaciones. Se exceptúan los casos en que se trate de ampliaciones o reparaciones con el objetivo exclusivo de mejorar las condiciones de los usuarios del inmueble.
-c) Para los casos de siniestro, podrá reconstruiste la edificación con el mismo uso, siempre que los daños no sean de carácter estructural y que no excedan en más de 50% del área de la edificación al momento de ocurrir este.

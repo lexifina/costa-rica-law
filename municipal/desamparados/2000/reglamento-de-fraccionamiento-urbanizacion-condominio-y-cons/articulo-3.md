@@ -1,1 +1,0 @@
-Artículo 3º—Para el trámite de patentes también se exigirá la presentación del visado urbano, con indicación del uso del suelo correspondiente, de conformidad con el artículo 29 de la Ley de Planificación Urbana y demás normativa vigente y vinculante.

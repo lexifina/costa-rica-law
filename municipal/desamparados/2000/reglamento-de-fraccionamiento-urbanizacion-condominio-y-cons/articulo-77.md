@@ -1,1 +1,0 @@
-Artículo 77.—Dispóngase lo normado en la Ley de Planificación Urbana y en le Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, artículos II, 2º, 6º, 7º Peatonales III, 2º, 6º,7.1 Alamedas o senderos peatonales y, III, 2º, 6º, 7.2

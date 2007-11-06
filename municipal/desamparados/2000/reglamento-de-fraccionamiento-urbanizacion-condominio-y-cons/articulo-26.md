@@ -1,1 +1,0 @@
-Artículo 26.—El certificado de conformidad del uso del suelo, debe ser exigido como un requisito previo e indispensable por parte de cualquier dependencia pública o privada que gestione construcciones, urbanizaciones, industrias, parques industriales, etc.

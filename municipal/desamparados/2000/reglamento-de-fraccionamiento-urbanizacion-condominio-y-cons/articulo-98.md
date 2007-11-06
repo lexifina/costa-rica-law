@@ -1,1 +1,0 @@
-Artículo 98.—Licencias de funcionamiento: Para el ejercicio de toda actividad comercial, industrial o recreativa es indispensable que previamente se haya solicitado la respectiva Licencia municipal, la cual extenderá el Departamento de Patentes de la Municipalidad de Desamparados, cumpliendo con todos los requisitos que sean exigibles en ese momento.

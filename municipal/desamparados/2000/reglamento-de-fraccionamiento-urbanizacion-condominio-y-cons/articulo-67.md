@@ -1,1 +1,0 @@
-Artículo 67.—Permiso de construcción para obras menores a 40 metros cuadrados de construcción: Se clasifican dentro de esta categoría, toda obra de construcción, ampliación, remodelación, reparación o demolición con un área NO mayor de 40 metros cuadrados.

@@ -1,1 +1,0 @@
-Artículo 30.—Para los efectos de solicitud en uso condicional o cambio, remodelación, ampliación o reconstrucción de un uso no conforme, será también exigido por la Dirección de Desarrollo Urbano y Rural la resolución de la Solicitud de Visado Urbano.

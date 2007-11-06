@@ -1,1 +1,0 @@
-Artículo 51.—La reubicación de la actividad incompatible procederá cuando del criterio técnico e informe que se rinda se concluya que la actividad desempeñada es totalmente no conforme con el uso del suelo y que resulta inútil cualquier recomendación para mejorar el funcionamiento, pues las molestias al vecindario y daño al ambiente van a persistir.

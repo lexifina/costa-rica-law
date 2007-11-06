@@ -1,1 +1,0 @@
-Artículo 35.—El suelo no programado es aquella parte del suelo de la ciudad de Desamparados en la que los particulares disponen de total iniciativa para llevar a cabo sus proyectos, acatando las disposiciones de este reglamento y del Reglamento de Usos del Suelo, correspondiente a cada zona donde se ubique la finca en que se piensa desarrollar.

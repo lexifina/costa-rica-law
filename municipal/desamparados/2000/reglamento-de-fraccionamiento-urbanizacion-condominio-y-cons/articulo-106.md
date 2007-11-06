@@ -1,1 +1,0 @@
-Artículo 106.—Procedimientos: La CTA mediante evaluación de cada proyecto elaborará y rendirá un dictamen y recomendaciones a fin de ser dispuesto por el Departamento, la Dirección, la Alcaldía o el Consejo Municipal, según corresponda.

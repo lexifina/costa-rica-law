@@ -1,1 +1,0 @@
-Artículo 46.—Fincas ubicadas en zonas limítrofes: En toda finca en que se pretenda urbanizar o desarrollar alguna actividad comercial, recreativa o de servicios se encuentre dividido por el límite de dos tipos de uso del suelo, los usos de una porción no se podrán generalizar a la otra, el proyecto deberá ajustarse al uso de cada zona mediante dictamen municipal.

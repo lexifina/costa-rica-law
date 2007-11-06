@@ -1,1 +1,0 @@
-Artículo 89.—Elaboración y presentación de plano constructivo detallado de las obras a realizar, en el que se describa como mínimo una planta de distribución arquitectónica debidamente acotada, diseño de pavimentos y desagües, detalle constructivo de todos y cada uno de los elementos arquitectónicos que conforman la obra.

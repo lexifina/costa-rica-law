@@ -1,1 +1,0 @@
-Artículo 74.—Permiso de construcción de acera: Se clasifican dentro de esta categoría, toda obra para construcción, ampliación o remodelación de acera frente a calle pública, que no suponga un proyecto de urbanización o condominio y que se realice dentro de los límites del derecho de vía.
