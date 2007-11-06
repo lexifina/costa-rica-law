@@ -1,5 +1,5 @@
 (Suspendida)
-(Mediante resolución DGA- 557-2007 del 14 de setiembre de 2007, se suspende por un mes los alcance de la presente resolución, con el proposito de aclarar y divulgar de una forma más efectiva las directrices dictadas hacia el efectivo cumplimiento de los fines de la normativa aduanera )
+(Mediante resolución DGA- 557-2007 del 14 de setiembre de 2007, se suspende por un mes los alcances de la presente resolución, con el proposito de aclarar y divulgar de una forma más efectiva las directrices dictadas hacia el efectivo cumplimiento de los fines de la normativa aduanera, y posteriornente mediante resolución DGA- 631 -2007 del 06 de noviembre de 2007, se vuelve a suspender por un plazo de tres meses los alcances de la presente resolución)
 DIRECCIÓN GENERAL DE ADUANAS
 RES-DGA-968-2006.—Dirección General de Aduanas.—San José, a las catorce horas del veintidós de diciembre del dos mil seis.
 Considerando:
