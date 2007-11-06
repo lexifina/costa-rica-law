@@ -1,1 +1,0 @@
-Artículo 6°-Los proyectos urbanísticos de categoría "B" se subdividen en cuatro clases, de acuerdo a su magnitud: a) Clase "B 1": Proyectos menores a las 50 unidades habitacionales: b) Clase "B-2": Proyectos entre 51 y 100 unidades habitacionales; c) Clase "B-3": Proyectos entre 101 y 300 unidades habitacionales; d) Clase "B-4": Proyectos de más de 301 unidades habitacionales.

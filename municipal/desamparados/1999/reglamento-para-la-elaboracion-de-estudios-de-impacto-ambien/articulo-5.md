@@ -1,1 +1,0 @@
-Artículo 5°-Los proyectos urbanísticos de categoría "B" deberán presentar, junto con los demás requisitos solicitados por la Municipalidad para obtener el permiso de construcción, los siguientes documentos: a) una copia con el sello de recibido de la DCA. presentada a la SETENA: un ESIA que deberá cumplir con los requisitos técnicos establecidos en el presente reglamento.
