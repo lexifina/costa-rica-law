@@ -15,3 +15,4 @@ Las exportaciones y los tránsitos internacionales con destino a Panamá, deber�
 | --- | --- | --- |
 | 1 | 2007-08-24 | la propia norma |
 | 2 | 2007-09-14 | Resolución 557 (2007-09-14) |
+| 3 | 2007-11-06 | Resolución 631 (2007-11-06) |
