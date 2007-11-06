@@ -16,3 +16,4 @@ Reglamento a la Ley de Simplificación y Eficiencia Tributarias
 | 1 | 2001-07-18 | la propia norma |
 | 2 | 2002-09-16 | Decreto Ejecutivo 30819 (2002-09-16) |
 | 3 | 2006-07-18 | Decreto Ejecutivo 33280 (2006-07-18) |
+| 4 | 2007-11-06 | Decreto Ejecutivo 34156 (2007-11-06) |
