@@ -41,8 +41,8 @@ d) Jorge Mena Arce, Representante de la Ministra de Salud.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
-f) Gerardo Alfaro Solórzano, representante de la Asociación Mesa Nacional Campesina.
-(Así reformado el inciso anterior mediante el artículo 3° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
+f) Enrique Fallas Segura, representante de la Asociación Mesa Nacional Campesina.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34194 del 07 de noviembre del 2007).
 g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
