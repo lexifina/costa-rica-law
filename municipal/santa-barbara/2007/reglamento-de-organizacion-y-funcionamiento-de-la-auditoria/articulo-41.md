@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 41.—Actualización y Modificaciones al Reglamento. Corresponde al Auditor, mantener actualizado el presente Reglamento. Para la debida actualización, el Auditor y el Concejo podrán proponer las modificaciones que estimen necesarias. Esas modificaciones deben ser aprobadas por el Concejo y la Contraloría, según sus competencias. El trámite de elaboración y aprobación de esas modificaciones, se ajustará en forma estricta a lo dispuesto por la Contraloría, en las directrices emitidas, relativas al Reglamento de organización y funcionamiento de las auditorias internas.

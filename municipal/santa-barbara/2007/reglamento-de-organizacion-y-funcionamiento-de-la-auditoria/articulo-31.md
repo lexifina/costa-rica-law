@@ -1,0 +1,1 @@
+Artículo 31.—Informe y otras comunicaciones de la Auditoría Interna. Producto de los procesos de auditoria, la Auditoría Interna genera por escrito informes con recomendaciones, sujetas al proceso establecido en el capítulo IV de la Ley General de Control Interno.

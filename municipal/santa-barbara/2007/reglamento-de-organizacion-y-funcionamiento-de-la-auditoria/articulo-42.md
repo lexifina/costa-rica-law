@@ -1,0 +1,1 @@
+Artículo 42.—Divulgación. El Auditor y la administración, deben divulgar el Reglamento y sus modificaciones, cumplirlo en lo que les corresponda y velar porque se cumpla en la Municipalidad. El cumplimiento de este Reglamento es obligatorio también para el personal de la Auditoría y para el resto de la administración activa, en lo que les concierna.

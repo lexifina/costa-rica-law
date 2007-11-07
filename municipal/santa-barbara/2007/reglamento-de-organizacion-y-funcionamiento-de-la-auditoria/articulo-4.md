@@ -1,0 +1,2 @@
+Artículo 4º—Responsabilidad sobre el sistema de control interno. De acuerdo a lo establecido por el artículo 10 de la Ley Nº 8292 es responsabilidad del Concejo Municipal y del titular subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional.
+Por otra parte, es responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.
