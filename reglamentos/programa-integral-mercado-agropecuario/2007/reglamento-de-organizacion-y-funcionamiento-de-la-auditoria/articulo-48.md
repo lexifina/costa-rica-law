@@ -1,0 +1,1 @@
+Artículo 48.—Confidencialidad. Los funcionarios de la Auditoría Interna deberán mantener confidencialidad, respecto de la información que se les haya suministrado para el ejercicio de su trabajo o que hayan conocido con ocasión de este, con excepción de lo que permita la ley.

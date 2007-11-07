@@ -1,0 +1,3 @@
+CAPÍTULO X
+Administración de la oficina
+Artículo 52.—Asignación de funciones administrativas. El Auditor Interno asignará las funciones relacionadas con el Plan Anual Operativo del PIMA, específicamente las que corresponden a la elaboración, ejecución y liquidación presupuestaria. Asimismo, asignará las funciones relacionada con la dotación de productos y servicios para el adecuado desempeño de la Oficina, en lo que se refiere a la requisición, autorización, control de existencias e identificación de las necesidades de la Oficina. Las funciones relativas a la administración del recurso humano las ejecuta el Auditor Interno, según la reglamentación vigente en el PIMA y con la autorización, en lo que compete, del Consejo Directivo.

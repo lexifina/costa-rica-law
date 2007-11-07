@@ -1,0 +1,1 @@
+Artículo 28.—Servicios de auditoría. Los servicios de auditoría corresponden a los estudios de control interno, las relaciones de hechos y los especiales por petición de la Administración Activa, de la Contraloría y los que respondan a denuncias.

@@ -1,0 +1,1 @@
+Artículo 9º—Jornada Laboral del Auditor y Subauditor Internos. La jornada laboral de estos cargos será por tiempo completo y plazo indefinido. Los demás funcionarios de la Auditoría Interna laborarán conforme con el horario ordinario aplicable al personal del área administrativa del PIMA.

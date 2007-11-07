@@ -1,0 +1,1 @@
+Artículo 55.—Potestad disciplinaria. Las sanciones previstas serán impuestas por la autoridad competente en el PIMA en materia disciplinaria, de acuerdo con la normativa aplicable al personal de la Auditoría Interna, prescrita por la Ley General de Control Interno.
