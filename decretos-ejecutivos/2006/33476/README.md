@@ -14,3 +14,4 @@ Reforma Integración de la Comisión Nacional para la Gestión de la Biodiversid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-01 | la propia norma |
+| 2 | 2007-11-07 | Decreto Ejecutivo 34194 (2007-11-07) |
