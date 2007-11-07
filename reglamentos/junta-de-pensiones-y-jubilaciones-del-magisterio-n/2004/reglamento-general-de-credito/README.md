@@ -20,3 +20,4 @@ Reglamento General de Crédito
 | 5 | 2006-11-29 | Reglamento 0 (2006-11-29) |
 | 6 | 2007-02-20 | Reglamento 22 (2007-02-20) |
 | 7 | 2007-05-15 | Reglamento 54 (2007-05-15) |
+| 8 | 2007-11-07 | Reglamento 126 (2007-11-07) |
