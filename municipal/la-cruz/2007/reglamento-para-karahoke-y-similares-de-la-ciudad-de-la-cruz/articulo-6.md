@@ -1,0 +1,1 @@
+Artículo 6º—En el caso de los locales que pretenden desarrollar esta actividad de forma permanente, deberán de realizar el trámite de solicitud y de ser aprobada cancelar el primer trimestre adelantado del monto dinerario correspondiente.

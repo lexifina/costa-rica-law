@@ -1,0 +1,1 @@
+Artículo 11.—Las celebraciones de actividades con las que se cuente con karahoke se deberán de solicitar el respectivo permiso temporal para desarrollar la actividad, ya que la misma se califica como independiente a cualquier otra que cuente con patente.

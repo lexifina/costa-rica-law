@@ -1,0 +1,1 @@
+Artículo 7º—En ninguno de los casos la Administración autorizará el desarrollo de las actividades con karahoke, más allá de las veintitrés horas y con esta hora como límite deberá cesar completamente todas las actividades de este tipo mismas que serán permitidas que se realicen los días jueves, viernes y sábados de cada semana.

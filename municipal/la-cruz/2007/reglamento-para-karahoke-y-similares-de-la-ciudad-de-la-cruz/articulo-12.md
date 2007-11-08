@@ -1,0 +1,1 @@
+Artículo 12.—Todas las personas físicas o jurídicas que se dediquen a brindar el servicio de karahokes dentro del cantón de La Cruz, ya sea de forma temporal como permanente así como patentados de negocios, deberán de contar con una licencia de funcionamiento de acuerdo con el artículo 79 del Código Municipal.

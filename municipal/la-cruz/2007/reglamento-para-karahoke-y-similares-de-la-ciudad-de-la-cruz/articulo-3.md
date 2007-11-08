@@ -1,0 +1,1 @@
+Artículo 3º—Toda actividad social con karahoke que se programe en establecimientos comerciales, deberá de contar con el correspondiente permiso de la Municipalidad de La Cruz, para su realización, en caso de no tener patente de funcionamiento para la actividad de karahoke.

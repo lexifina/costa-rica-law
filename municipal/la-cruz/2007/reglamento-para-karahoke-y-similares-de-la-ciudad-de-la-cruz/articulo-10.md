@@ -1,0 +1,1 @@
+Artículo 10.—Las violaciones del presente Reglamento acarrearán las sanciones establecidas en el artículo 81 bis del Código Municipal en coordinación con lo establecido en Leyes Conexas, Ley General de Salud, artículos 364 y 363, Ley General de la Administración Pública, artículos 128, 129, 131, 132 y 308.
