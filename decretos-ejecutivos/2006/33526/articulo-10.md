@@ -1,1 +1,2 @@
-Artículo 10.—Disposiciones finales. El presente reglamento deroga los artículos 1º y 2º del Decreto Ejecutivo Nº 31180-MOPT publicado en La Gaceta Nº 103 del 30 de mayo del año 2003, así como el artículo 3º, por cuanto, el Consejo de Transporte Público no es competente para regular lo referente al contrato de porteo establecido en el Capítulo V, Título III, Libro I del Código de Comercio.
+Artículo 10.—Derógase el Decreto Ejecutivo No. 31180-MOPT, publicado en la Gaceta No. 103 del 30 de mayo del 2003.
+(Así reformado mediante artículo 2° del decreto ejecutivo N° 34095 del 08 de noviembre de 2007).
