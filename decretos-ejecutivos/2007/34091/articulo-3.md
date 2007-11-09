@@ -1,0 +1,1 @@
+Artículo 3º—El certamen contará con una dotación económica, que se asignará a cada una de las categorías que defina el Centro de Investigación y Conservación del Patrimonio Cultural y que serán presupuestadas en el presupuesto anual ordinario del programa 751-Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud.

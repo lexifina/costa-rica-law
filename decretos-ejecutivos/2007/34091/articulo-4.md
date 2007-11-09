@@ -1,0 +1,1 @@
+Artículo 4º—El Centro de Investigación y Conservación del Patrimonio Cultural, designará un jurado constituido por un mínimo de tres personas conocedoras en las diferentes categorías asignadas para el certamen.

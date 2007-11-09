@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Centro de Investigación y Conservación del Patrimonio Cultural, elaborar las bases del certamen y determinar anualmente las categorías que se evaluarán, así como coordinar con las organizaciones culturales de la zona asignada.
