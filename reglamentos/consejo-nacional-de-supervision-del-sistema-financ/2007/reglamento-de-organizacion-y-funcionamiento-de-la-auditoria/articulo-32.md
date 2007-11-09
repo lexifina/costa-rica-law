@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 32.—Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Superintendencia General de Entidades Financieras y sus reformas, aprobado por el Consejo Directivo de la SUGEF mediante artículo 7, numeral 1, del Acta de la Sesión 73-1997, celebrada el 21 de octubre de 1997, promulgado con base en los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las auditorías internas de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en el Diario Oficial La Gaceta N° 14 del 21 de enero de 1988.
