@@ -1,0 +1,7 @@
+Artículo 9º—De las denuncias anónimas. No se dará trámite a las denuncias que sean presentadas en forma anónima. En casos excepcionales podrá abrirse de oficio una investigación preliminar, cuando con ésta se reciban elementos de prueba que den mérito para ello; caso contrario, la Autoridad respectiva dispondrá su archivo sin más trámite.
+Asimismo, se rechazarán en cualquier momento, incluso desde su presentación y mediante resolución motivada, las denuncias en donde se presenten las siguientes circunstancias:
+a) Las que no sean de la competencia de la Institución, en cuyo caso deberán canalizarlas a las instancias públicas competentes, si éstas se conocen. Si la instancia es privada se procederá a su archivo dejando constancia de esta circunstancia y notificándola al denunciante de ser posible.
+b) Las que sean manifiestamente improcedentes o infundadas.
+c) Las que sean reiterativas porque contienen aspectos que ya fueron atendidos.
+d) Las que se refieran únicamente a intereses particulares del ciudadano en relación con conductas u omisiones de la Administración que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente.
+e) Las gestiones que bajo el formato de denuncia sean presentadas con la única finalidad de ejercer la defensa personal sobre situaciones cuya discusión corresponda a otras sedes, ya sean administrativas o judiciales.
