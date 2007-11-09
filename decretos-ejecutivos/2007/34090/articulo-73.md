@@ -1,0 +1,1 @@
+Artículo 73.—Los informes de control y de responsabilidades, están sujetos a los plazos, procedimientos en caso de conflictos y responsabilidades y sanciones, descritos en los artículos 36, 37, 38, 39 y 41 de la LGCI, excepto que por su naturaleza, regulaciones vigentes o directrices de la Contraloría General, se determine lo contrario.

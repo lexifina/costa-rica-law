@@ -1,0 +1,1 @@
+Artículo 26.—En cumplimiento del artículo 29 de la Ley General de Control Interno, el Ministerio de Gobernación, definirá en sus respectivos manuales de cargos y clases, las funciones y los requisitos para los puestos de auditor y subauditor, de acuerdo con los lineamientos que emita la Contraloría General.

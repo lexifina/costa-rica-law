@@ -1,0 +1,1 @@
+Artículo 67.—La Auditoría Interna, deberá asegurar que en el ejercicio de sus procesos, se obtendrá evidencia suficiente y competente, que sustenten adecuadamente sus hallazgos, conclusiones y recomendaciones, las que deben documentarse de acuerdo con las técnicas y prácticas que se establezcan en los Manuales de procedimientos correspondientes.

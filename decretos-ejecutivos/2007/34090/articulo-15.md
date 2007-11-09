@@ -1,0 +1,1 @@
+Artículo 15.—El Auditor Interno cumplirá y aplicará a su personal las normas personales y de trabajo establecidas en las regulaciones correspondientes; que permitan garantizar razonablemente, el cumplimiento de los aspectos de independencia funcional y de criterio, objetividad, profesionalismo y otros que deben tenerse en cuenta al ejecutar sus labores.

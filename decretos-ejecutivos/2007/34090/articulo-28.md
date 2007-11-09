@@ -1,0 +1,6 @@
+Artículo 28.—Al auditor interno, le corresponde la dirección y administración superior de la unidad de Auditoría Interna, entre otras funciones le compete:
+a) Dictar y mantener actualizados los lineamientos, directrices, políticas, instrucciones y procedimientos de los procesos a su cargo.
+b) Aplicar criterios adecuados en el ejercicio de las competencias, en la protección de la información confidencial, requerida en el artículo 6º de la LGCI y el 8 de la Ley contra la corrupción y el enriquecimiento ilícito en la función pública y en las relaciones con los sujetos pasivos, conforme lo demande la normativa jurídica y técnica.
+c) Mantener actualizado el Reglamento de organización y funcionamiento de la Auditoría Interna.
+d) Presentar anualmente el plan de trabajo, conforme a los lineamientos dictados por la Contraloría General y solicitar al Jerarca, de manera justificada, los recursos que se requieran para el cumplimiento de sus funciones.
+e) Podrá delegar sus funciones a su personal, utilizando criterios de idoneidad, conforme lo establece la Ley General de Administración Pública e implantando los mecanismos formales y de control necesarios para garantizar dicho actuar; quedando el personal asignado, obligado a cumplir con el marco legal, reglamentario y técnico del área.

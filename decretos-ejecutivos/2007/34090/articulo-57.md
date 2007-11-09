@@ -1,0 +1,1 @@
+Artículo 57.—Para asegurar el cumplimiento de las prohibiciones citadas, el Auditor Interno, definirá en el Manual de procedimientos, las medidas administrativas que en lo posible garanticen que su personal se mantendrá al margen de las acciones prohibitivas.

@@ -1,0 +1,1 @@
+Artículo 25.—Para los nombramientos permanentes y temporales en los cargos de Auditor y Subauditor, el Jerarca deberá cumplir con lo regulado en el artículo 31 de la Ley General de Control Interno y los Lineamientos vigentes emitidos por la Contraloría General, sobre dicho particular.

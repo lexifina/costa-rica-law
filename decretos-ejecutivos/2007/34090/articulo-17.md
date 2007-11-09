@@ -1,0 +1,1 @@
+Artículo 17.—Los funcionarios de la Auditoría Interna deben abstenerse de auditar, asesorar o advertir sobre operaciones específicas de las cuales hayan sido previamente responsables como funcionarios de la Administración, proveedores u otras relaciones, ya que se presume que hay impedimento de objetividad.

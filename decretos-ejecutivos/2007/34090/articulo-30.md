@@ -1,0 +1,1 @@
+Artículo 30.—El Auditor y Subauditor Interno, de acuerdo con la Ley Nº 8422 y su Reglamento, están obligados a cumplir con el requisito de declarar sus bienes y velar porque en su ámbito de acción, se cumpla la normativa relacionada con dicha materia.

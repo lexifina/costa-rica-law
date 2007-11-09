@@ -1,0 +1,1 @@
+Artículo 84.—Las denuncias se recibirán en las oficinas de la Auditoría Interna y serán valoradas en su admisibilidad conforme a lo que dicta la Sección Segunda del Reglamento a la Ley contra la corrupción y el enriquecimiento ilícito en la función pública.
