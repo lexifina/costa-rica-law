@@ -1,0 +1,1 @@
+Artículo 56.—Para el disfrute de las vacaciones el servidor debe presentar, previamente, la boleta correspondiente a su jefe inmediato para que le ponga un visto bueno que hará constar que puede optar a ese derecho, pero será el Actuario(a), o en su defecto, el Presidente y/o el Secretario del Tribunal, quien en definitiva autorizará dichas vacaciones.

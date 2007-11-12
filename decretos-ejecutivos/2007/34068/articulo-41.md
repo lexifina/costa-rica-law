@@ -1,0 +1,1 @@
+Artículo 41.—Es prohibido para los servidores marcar la tarjeta de asistencia de los otros funcionarios. Dicha actuación conlleva la realización de una falta grave. Si tal actuación se debió a un error, el servidor inmediatamente deberá informar el hecho a la Dirección Administrativa y a la Actuaría.

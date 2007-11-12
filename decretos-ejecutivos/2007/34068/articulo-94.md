@@ -1,0 +1,1 @@
+Artículo 94.—Si el servidor persistiere en su reclamo podrá recurrir ante el Tribunal de Servicio Civil, de conformidad con lo establecido en los numerales 14 y 190 del Estatuto de Servicio Civil y 63, 81 y 88 de su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—El Tribunal está facultado a ubicar a sus servidores en las labores que considere que mejor convengan a la satisfacción del servicio, del interés público e institucional, siempre que sean compatibles con sus aptitudes, estado o condición y con aquellas para cuya ejecución hayan sido contratados, sin que se les cause perjuicio.

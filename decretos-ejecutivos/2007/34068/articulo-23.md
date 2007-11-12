@@ -1,0 +1,1 @@
+Artículo 23.—Los servidores del Tribunal tendrán la posibilidad de que se les brinde capacitación, mediante cursos, seminarios, talleres, charlas y otros, canalizados a través de la Dirección Administrativa, sujeto a contenido presupuestario si es del caso.

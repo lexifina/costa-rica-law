@@ -1,0 +1,2 @@
+Artículo 88.—En el caso de las gestiones de despido se observará el procedimiento que establece el artículo 43 del Estatuto de Servicio Civil y 90 de su Reglamento, a tal efecto la gestión será firmada por el Presidente del Tribunal y se convocará a los Miembros Suplentes a fin de darle el procedimiento respectivo y dictar el fallo del caso.
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del artículo 21 y 22, que regula el “Procedimiento de Despido”, de la Ley Marco de Empleo Público (LMEP). 10159 del 8 de marzo de 2022)

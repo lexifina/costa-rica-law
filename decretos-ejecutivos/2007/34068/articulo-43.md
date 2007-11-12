@@ -1,0 +1,1 @@
+Artículo 43.—La llegada tardía injustificada superior a veinte minutos, contados a partir de la hora de ingreso estipulada, implicará la pérdida de media jornada, con la deducción salarial correspondiente.

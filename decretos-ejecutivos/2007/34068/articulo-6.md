@@ -1,0 +1,1 @@
+Artículo 6º—El Tribunal tiene jurisdicción en todo el territorio nacional, y realizará sus labores en el edificio que ocupe, y fuera de él, cuando así lo disponga su máxima autoridad, por imperiosa necesidad del servicio público.

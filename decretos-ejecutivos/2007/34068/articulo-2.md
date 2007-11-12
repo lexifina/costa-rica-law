@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento será de observancia obligatoria para todos los funcionarios del Tribunal de Servicio Civil, cuya autoridad superior se reserva el derecho de proponer sus reformas y adiciones, con sujeción a los procedimientos y disposiciones legales pertinentes.

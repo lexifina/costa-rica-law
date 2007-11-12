@@ -1,0 +1,1 @@
+Artículo 32.—El personal de vigilancia estará sometido a un horario especial, dentro de los límites que permite el Código de Trabajo, asignado por la Dirección Administrativa, que garantice la seguridad y vigilancia de las instalaciones del Tribunal durante las veinticuatro horas.

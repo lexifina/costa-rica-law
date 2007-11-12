@@ -1,0 +1,3 @@
+CAPÍTULO XXIII
+De los reclamos y otros recursos administrativos
+Artículo 93.—Los servidores del Tribunal podrán recurrir, por escrito, contra todas aquellas resoluciones o disposiciones de su jefe inmediato que consideren lesionan sus derechos laborales, de conformidad con lo que establece el numeral 88 del Reglamento del Estatuto de Servicio Civil. Para tal efecto, emitida la resolución o disposición, que según el servidor lesiona sus derechos, procederá el recurso de revocatoria contra el jefe inmediato y el de apelación ante el Presidente, quien dará por agotada la vía administrativa a lo interno del Tribunal.

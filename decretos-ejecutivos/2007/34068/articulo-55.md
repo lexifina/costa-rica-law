@@ -1,0 +1,1 @@
+Artículo 55.—Las vacaciones es un derecho del servidor, pero es una potestad de la Administración determinar el momento en que el servidor debe disfrutarlas, debiendo programarlas dentro de las quince semanas siguientes al advenimiento del derecho, a efecto de garantizar la continuidad del servicio y no perjudicar su calidad y eficacia.

@@ -1,0 +1,1 @@
+Artículo 31.—El Tribunal podrá modificar los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo justifiquen y no se perjudique al servicio público ni a los servidores.

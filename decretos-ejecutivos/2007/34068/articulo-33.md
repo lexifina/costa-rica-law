@@ -1,0 +1,1 @@
+Artículo 33.—Cuando las necesidades del servicio así lo requieran los servidores quedan en la obligación de laborar horas extraordinarias, que sumadas a la jornada ordinaria no podrá exceder de las doce horas permitidas por ley. La negativa injustificada a tal disposición será considerada como falta grave, para efectos de sanción disciplinaria.

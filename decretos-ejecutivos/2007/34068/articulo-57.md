@@ -1,0 +1,1 @@
+Artículo 57.—El disfrute de vacaciones proporcionales sólo procede cuando, al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio, ante vacaciones colectivas acordadas por el Poder Ejecutivo, o en casos excepcionales.

@@ -1,0 +1,10 @@
+Artículo 3°—Para todos los efectos, técnicos y legales, que se deriven de este Reglamento, se entenderá por:
+a) “El Tribunal”: El Tribunal de Servicio Civil, órgano colegiado, integrado por tres jueces administrativos propietarios y tres suplentes, que desempeñaran sus cargos desde los puestos de Presidente, Vicepresidente y Secretario.
+b) “Máximo jerarca”: El Presidente del Tribunal de Servicio Civil a quien le corresponden las potestades administrativas y disciplinarias.
+c) “Secretario del Tribunal”: Miembro del Tribunal de Servicio Civil a quien le corresponderá la potestad de ejercer la vigilancia sobre el personal administrativo del Tribunal.
+d) “Actuario(a)”: Cargo con el que se identifica al responsable de la dirección, supervisión, control y ejecución de todos los asuntos del Tribunal, incluyendo la confección y trámite de las resoluciones y demás diligencias que el Estatuto de Servicio Civil y su Reglamento le asignan.
+e) “Secretaría”: Brindará el apoyo sustantivo necesario para el Tribunal. Es la responsable de la coordinación, trámite, registro, confección, control y archivo de las diversas diligencias procesales que se atienden y realizan en el Tribunal. A su cargo estará el Prosecretario, quien realiza las funciones administrativas de apoyo sustantivo.
+f) “Dirección Administrativa”: Será responsable de la coordinación de lo relativo a la organización, uso, disposición, trámite y control de los recursos humanos, financieros y materiales del Tribunal.
+g) “Servidor”: El servidor o servidora del Tribunal es el trabajador nombrado de acuerdo con el Estatuto de Servicio Civil. El mismo puede estar en propiedad o en forma interina.
+h) “Estatuto de Servicio Civil”: Cuerpo normativo y legal que regula la relación de servicio público entre el Poder Ejecutivo y sus servidores, Ley Nº 1581 de 30 de mayo de 1953 y sus reformas.
+i) “Reglamento del Estatuto de Servicio Civil”: Conjunto de normas que reglamentan el Estatuto de Servicio Civil, contenidas en Decreto Ejecutivo Nº 21 del 14 de diciembre de 1954 y sus reformas.

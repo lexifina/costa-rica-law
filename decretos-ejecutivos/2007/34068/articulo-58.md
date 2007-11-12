@@ -1,0 +1,3 @@
+CAPÍTULO XV
+De las licencias
+Artículo 58.—Los servidores del Tribunal disfrutarán de licencia con goce de salario hasta por una semana, por motivo de matrimonio del servidor o de la servidora, por el fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge y por el nacimiento de hijos debidamente reconocidos. En casos especiales y a juicio del Presidente del Tribunal, la licencia por fallecimiento de familiares podrá otorgarse en relación a otros familiares cercanos que vivan bajo el mismo techo, previa demostración de dicho parentesco y de la condición indicada por parte del funcionario.

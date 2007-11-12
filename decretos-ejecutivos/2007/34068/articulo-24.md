@@ -1,0 +1,1 @@
+Artículo 24.—Los servidores nombrados en propiedad podrán solicitar a la Dirección Administrativa el estudio técnico de análisis ocupacional para la reasignación de sus puestos, gestión que debe estar previamente avalada por sus superiores, y siempre que se cumpla con los requisitos de admisibilidad que establece el Reglamento del Estatuto de Servicio Civil.

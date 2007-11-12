@@ -1,0 +1,1 @@
+Artículo 91.—Las sanciones disciplinarias deberán imponerse dentro del mes siguiente en que se cometió la falta o en su caso, desde que los hechos o la falta son conocidos por la autoridad competente, de conformidad con la normativa laboral vigente y la especial, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 86.—Los criterios valorativos para definir si una falta es leve, de cierta gravedad o graves son: la naturaleza de la falta y sus efectos, las modalidades y las circunstancias de hecho, la reiteración, los motivos determinantes, los antecedentes del infractor agravantes o atenuantes, así como aquellas establecidas por la normativa vigente.

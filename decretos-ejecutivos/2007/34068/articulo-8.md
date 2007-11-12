@@ -1,0 +1,1 @@
+Artículo 8º—El nombramiento de servidores con sujeción al Régimen de Servicio Civil se entenderá por tiempo indefinido, con excepción de los nombramientos interinos, los que estarán sujetos a la fecha de vencimiento que indique la respectiva acción de personal.

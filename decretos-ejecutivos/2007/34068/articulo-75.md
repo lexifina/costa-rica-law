@@ -1,0 +1,1 @@
+Artículo 75.—En un plazo de quince días hábiles, el Órgano Director emitirá el informe que trasladará al Presidente con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva en un plazo de cinco días naturales.
