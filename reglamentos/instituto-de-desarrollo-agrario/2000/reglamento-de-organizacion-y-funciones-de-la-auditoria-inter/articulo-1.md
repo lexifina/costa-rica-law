@@ -1,3 +1,5 @@
+(Derogado)
+(Así Derogado mediante sesión N° 039 del 12 de noviembre de 2007).
 REGLAMENTOS
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONES
