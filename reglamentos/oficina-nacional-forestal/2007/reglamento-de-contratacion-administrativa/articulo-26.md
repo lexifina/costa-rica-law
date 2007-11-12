@@ -1,0 +1,6 @@
+Artículo 26º. Estudio técnico de las ofertas.
+Deberá ser elaborado por el funcionario competente y aprobado por el Director Ejecutivo y contendrá al menos la siguiente información:
+26.1 Descripción de las ofertas recibidas.
+26.2 Análisis del cumplimiento de las especificaciones técnicas de las ofertas así como determinación de cualquier incumplimiento en aspectos formales o de otra índole que incidan en la valoración técnica; en caso que alguna de las ofertas se aparte de las especificaciones definidas, deberá indicar expresamente las razones por las cuales se torna inaceptable desde la perspectiva técnica. Para tal efecto se confeccionará un cuadro comparativo de análisis de las ofertas según su ajuste a las especificaciones del cartel y sus características más importantes.
+26.3 Determinadas las ofertas que cumplen, procederá a analizar el precio ofertado de conformidad con las disposiciones dadas en el Capítulo IV, Sección Primera del RLCA. Resultará ganadora la oferta que ofrezca el menor precio.
+Para la confección y remisión de este estudio técnico se dispondrá de un plazo máximo de cinco (5) días hábiles contados a partir de la fecha de apertura de ofertas. (Artículo 83 del RLCA).

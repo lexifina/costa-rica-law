@@ -1,0 +1,3 @@
+Artículo 30º. Ejecución de la garantía de participación.
+La garantía de participación debe ser incondicional y será ejecutada según los supuestos previstos en el artículo 39 del RLCA.
+La Administración de la ONF ordenará la ejecución mediante acto motivado y dará audiencia previa al interesado por tres (3) días hábiles a fin de que exponga sus alegatos y pruebas de descargo. Vencido este plazo, la Administración de la ONF dispondrá de tres (3) días hábiles para realizar la valoración correspondiente y determinar si procede o no la ejecución. El plazo total que se dispone para resolver será de cinco (5) días hábiles.

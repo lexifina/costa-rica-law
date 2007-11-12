@@ -1,0 +1,2 @@
+Artículo 44º. Nueva contratación.
+Una vez ejecutado un contrato, si la administración de la ONF requiere suministros o servicios adicionales de igual naturaleza, podrá obtenerlos del mismo contratista de conformidad con lo establecido en el artículo 12 bis de la LCA y 201 de su Reglamento. El nivel de competencia estará definido por la cuantía de la pretendida modificación; igualmente, dicho monto definirá la instancia competente para refrendar la misma.

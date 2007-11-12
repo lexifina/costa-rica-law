@@ -1,0 +1,5 @@
+Artículo 16º. Subsanaciones a las ofertas.
+La Administración de la ONF solicitará por escrito a los oferentes, dentro de los cinco (5) días hábiles siguientes al acto de apertura, que corrijan errores o suplan información sobre aspectos subsanables o insustanciales, siempre y cuando con ello no se conceda una ventaja indebida en relación con los demás oferentes, de conformidad con lo que establece el artículo 42 inciso j de la LCA, concordante con el artículo 81 del RLCA.
+Dichas subsanaciones deberán presentarse por escrito dentro de un plazo máximo de cinco (5) días hábiles a partir del día hábil siguiente de la solicitud y constituirán parte integrante de la oferta. De no atenderse la solicitud de subsanar dentro del plazo establecido, se procederá según lo que dispone el artículo 82 del RLCA.
+Las ventajas, mejoras y descuentos sometidos por los interesados con posterioridad a la apertura, obligarán a quien las formule, pero no serán tomados en cuenta en la comparación o ponderación de las propuestas, por tanto sólo surtirán efecto una vez firme la adjudicación.
+(Artículos 79, 80, 81 y 82 del RLCA).

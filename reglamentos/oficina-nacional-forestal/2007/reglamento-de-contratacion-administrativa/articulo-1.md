@@ -1,0 +1,32 @@
+OFICINA NACIONAL FORESTAL
+La Junta Directiva de la Oficina Nacional Forestal, en su sesión N° 148, aprobó su Reglamento de Contratación Administrativa, los interesados pueden obtener una copia en nuestras oficinas ubicadas en San Antonio de Belén, Heredia, 50 metros norte del Banco Nacional de Costa Rica, en los altos de la zapatería CARYBE o bien en la página Web: www. oficinaforestalcr.org. Para solicitar información pueden llamar al 293-5834 o escribirnos al correo ofnacfor@racsa.co.cr.
+(NOTA: El presente Reglamento fue obtenido de la página Web de la Oficina Nacional Forestal)
+La Junta Directiva de la Oficina Nacional Forestal, con fundamento en lo dispuesto por el artículo 109 de la Ley de Contratación Administrativa Nº 7494 del 2 del mayo de 1995 y sus reformas.
+ACUERDA:
+Aprobar integralmente el presente Reglamento que regulará la actividad de contratación administrativa desarrollada por la Oficina Nacional Forestal.
+CAPÍTULO PRIMERO
+Disposiciones generales
+Artículo 1º—Definiciones.
+Para los efectos del presente Reglamento se entenderá por:
+1.1 Administración de la ONF: Órgano o unidad administrativa de la Oficina Nacional Forestal, con participación directa en los procedimientos de contratación regulados por este Reglamento
+1.2 Alquiler o arrendamiento con opción de compra: Aquella contratación por la cual se toma en arrendamiento un bien a un plazo determinado, con el derecho preferente por parte de la Oficina Nacional Forestal de proceder a su adquisición.
+1.3 Anticipo de pago: Es el monto del precio contractual (del renglón de pago o del monto total del contrato) que se concede de previo al inicio de la obra y contra presentación de una garantía colateral adicional a la de cumplimiento que deberá respaldar el total del monto dado en anticipo, siempre que se encuentre debidamente autorizado en el cartel o pliego de condiciones, según corresponda. Este anticipo será destinado para adquirir o pagar insumos de los costos directos.
+1.4 Bienes y servicios específicos: Aquellos requeridos por la Oficina Nacional Forestal, necesarios para garantizar su funcionamiento operativo.
+1.5 Cartel o términos de referencia: Reglamento específico de la contratación que se promueve, el cual incorpora los requisitos que deben ser cumplidos por los oferentes.
+1.6 Contratación por escasa cuantía: Corresponde a aquellas contrataciones que por su limitado volumen y trascendencia económica, de conformidad con los montos establecidos en el artículo 27 de la LCA, podrán tramitarse bajo esta modalidad.
+1.7 Contratista: Es la persona física o jurídica, nacional o extranjera, pública o privada, con la cual se establece una relación contractual producto de un acuerdo firme de adjudicación para un procedimiento de contratación.
+1.8 Contrato: Documento que formaliza un acuerdo de voluntades entre la Oficina Nacional Forestal y un particular, que válidamente haya resultado adjudicatario dentro de un procedimiento de concurso, o bien, escritura pública que formaliza un vínculo contractual entre la Oficina Nacional Forestal y un particular, en aquellos casos en que la ley exija un instrumento de formalización de tal naturaleza.
+1.9 Contrato de arrendamiento de vehículos, maquinaria y equipo: Figura contractual por medio de la cual la Oficina Nacional Forestal toma en arrendamiento un vehículo, maquinaria o equipo, por un tiempo determinado y por una tarifa fija periódica pagadera en forma vencida.
+1.10 Dirección Ejecutiva: Unidad administrativa bajo cuya competencia y responsabilidad se administra la Oficina Nacional Forestal.
+1.11 Expediente administrativo contractual: Conjunto de documentos que se conforman durante el procedimiento de concurso, el cual deberá mantenerse debidamente actualizado y foliado.
+1.12 Ley de Contratación Administrativa (LCA): La Ley Nº 7494 del 2 de mayo de 1995 y sus reformas.
+1.13 Oferente: Toda persona física o jurídica, nacional o extranjera, pública o privada, que dirige una propuesta a la Oficina Nacional Forestal dentro de un procedimiento de contratación.
+1.14 Orden de compra: Documento de ejecución presupuestaria emitido por la Administración de la ONF que en ausencia del contrato constituirá el instrumento idóneo para la formalización de una contratación. Este documento, junto al expediente administrativo contractual en que se sustenta, constituye el fundamento para ejercer la fiscalización del procedimiento, así como para continuar con los trámites de ejecución contractual y pago respectivo. Deberá considerar al menos la descripción del bien, nombre del contratista, plazo de entrega y monto del contrato.
+1.15 Pedido de artículos: Documento que constituye el inicio de todo procedimiento de contratación, de un bien, servicio u obra emitido por la Administración de la ONF. Debe estar redactado en idioma español, y contener especificaciones técnicas claras y precisas del objeto solicitado.
+1.16 ONF: Oficina Nacional Forestal.
+1.17 Refrendo contractual: Acto administrativo de aprobación, emitido por la Contraloría General de la República o la Asesoría Jurídica de la ONF, mediante el cual se constata la legalidad de un procedimiento de contratación y se le otorga eficacia al mismo.
+1.18 Reglamento: Reglamento de Contrataciones de la Oficina Nacional Forestal, marco que regula las contrataciones de bienes, servicios y contratos de obra de la ONF.
+1.19 Reglamento a la Ley de Contratación Administrativa (RLCA): Decreto Ejecutivo Nº 33411 del 2 de noviembre de 2006.
+1.20 Reglamento sobre el refrendo de las contrataciones de la Administración Pública: Reglamento promulgado por la Contraloría General de la República, publicado en el Diario Oficial La Gaceta Nº 53 del 15 de marzo de 2006.
+1.21 Retención porcentual del pago: Tratándose de contratos de obra, consiste en el monto porcentual que se deduce de cada uno de los pagos por avance, con el propósito de asegurarse que la ejecución total de las obras y demás obligaciones del contratista se efectuarán a satisfacción de la ONF.
+1.22 Venta de bienes o servicios: La ONF podrá vender directamente al público bienes o servicios que tengan un valor comercial y sean distintos a la actividad ordinaria. Esta modalidad contractual requiere para su ejecución la autorización del nivel de competencia correspondiente, en tanto que la misma no conlleve un desmejoramiento en la prestación de los correspondientes servicios a las dependencias interesadas de la ONF.

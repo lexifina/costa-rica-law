@@ -1,0 +1,3 @@
+Artículo 11º Criterios de evaluación.
+La Administración de la ONF indicará en el pedido de artículos los criterios que se considerarán para la calificación técnica de las ofertas, con sus respectivos parámetros, rangos, escalas de evaluación, y la ponderación de cada uno de los factores; así como la calificación mínima que debe obtenerse para ser técnicamente elegible. Dentro de éstos podrán incluirse aspectos tales como: experiencia, calidad, tiempo de entrega, garantías ofrecidas y otras condiciones propias de la naturaleza de la contratación. En todo caso el precio será siempre el factor de selección preponderante. De determinarse éste como único factor de selección, así deberá consignarse en el pedido de artículos.
+(Artículos 52, 55 y 56 del RLCA).

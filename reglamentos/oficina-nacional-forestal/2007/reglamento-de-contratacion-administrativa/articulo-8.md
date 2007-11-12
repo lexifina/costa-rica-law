@@ -1,0 +1,3 @@
+Artículo 8º- Fragmentación.
+La Administración de la ONF será la responsable de planificar sus necesidades administrativas concretas, para garantizar que con los recursos presupuestarios disponibles dentro de un mismo período, se inicien los procesos de contratación que integren en una misma solicitud de objetos similares, a efecto de no incurrir en fragmentación, con las excepciones que establece el artículo 13 del RLCA.
+A efecto de evitar el fraccionamiento de las necesidades previsibles, se deberá considerar lo establecido en el artículo 6 de este Reglamento, sobre la planificación de las compras.

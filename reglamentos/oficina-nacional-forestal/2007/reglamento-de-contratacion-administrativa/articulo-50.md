@@ -1,0 +1,3 @@
+Artículo 50º. Reclamos económicos de los contratistas.
+Las gestiones que versan sobre una pretensión de carácter patrimonial deberán ser presentadas por el contratista durante su ejecución y hasta la elaboración del “Acta de recepción provisional de la obra”, ante la Administración de la ONF, la cual deberá realizar el análisis pertinente dentro de los siguientes veinte (20) días calendario y remitirlo a la Dirección Ejecutiva.
+La Dirección Ejecutiva realizará el análisis sobre la procedencia del reclamo, dentro de los siguientes veinte (20) días calendario y elaborará la recomendación de resolución en diez (10) días calendario y la Junta Directiva quien decidirá en definitiva el reclamo interpuesto, dentro de los siguientes cinco (5) días calendario.

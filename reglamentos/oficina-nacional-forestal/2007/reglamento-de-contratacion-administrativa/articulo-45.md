@@ -1,0 +1,5 @@
+Artículo 45º. Prórrogas en plazos de entrega.
+La prórroga en la ejecución del contrato se regirá por lo dispuesto en el artículo 198 del RLCA.
+El adjudicatario deberá presentar la solicitud de prórroga ante la Administración de la ONF, la cual dispone de un plazo de cinco (5) días hábiles para realizar el análisis integral y determinar bajo su exclusiva responsabilidad la procedencia o no de la gestión, considerando todos los elementos indicados en el artículo citado, y remitirlo a la Dirección Ejecutiva, de resultar procedente la prórroga. El plazo indicado empezará a regir a partir del recibo a satisfacción de la documentación que respalde la solicitud.
+En los procedimientos de contratación por escasa cuantía dicho análisis debe estar aprobado por la Dirección Ejecutiva de igual manera las licitaciones públicas y abreviadas.
+Para las licitaciones abreviadas, el reconocimiento de la aprobación de la prórroga en el plazo contractual será otorgado por parte de la Dirección Ejecutiva. En las licitaciones públicas corresponderá a la Junta Directiva.

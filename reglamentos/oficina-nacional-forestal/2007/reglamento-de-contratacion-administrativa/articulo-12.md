@@ -1,0 +1,2 @@
+Artículo 12º. Cartel.
+El cartel contendrá las condiciones generales de la contratación y las especificaciones técnicas, de conformidad con lo indicado en el artículo 51 del RLCA. El contenido del cartel establecerá como mínimo los requisitos establecidos en el artículo 52 del citado reglamento.La Dirección Ejecutiva aprobará los formatos de cartel que se establezcan para los procedimientos ordinarios de contratación, según sea la naturaleza del objeto contractual.

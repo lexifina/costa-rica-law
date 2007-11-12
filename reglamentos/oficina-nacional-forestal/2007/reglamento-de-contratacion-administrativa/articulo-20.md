@@ -1,0 +1,6 @@
+Artículo 20º Adjudicación.
+El nivel de competencia dispondrá de una cuarta parte del plazo de adjudicación, en las licitaciones públicas y las licitaciones abreviadas respectivamente, para dictar el acto de adjudicación, la declaratoria de desierto o de infructuoso, según sea el caso.
+Se adjudicará la oferta que haya obtenido el mayor puntaje según los términos del cartel; se declarará desierto el concurso en el cual ninguna de las ofertas satisfaga el interés público perseguido con el concurso, lo cual deberá hacerse mediante acto debidamente razonado; y se declarará infructuoso el concurso en el cual no se hayan recibido ofertas o las que se recibieron no cumplieren con los requerimientos mínimos establecidos en el cartel.
+Cuando se anule el acto de adjudicación y se tenga que readjudicar o declarar desierto o infructuoso el concurso, el nuevo acto se dictará dentro de un plazo de un mes, contado a partir del día siguiente a la fecha de la notificación de la resolución respectiva, plazo que podrá ser prorrogado por el nivel de competencia por un mes adicional, en los casos debidamente justificados mediante resolución motivada que deberá constar en el expediente.
+La Dirección Ejecutiva estará facultada para prorrogar los plazos de las contrataciones que corresponde adjudicar a la Junta Directiva.
+(Artículos 95 y 100 del RLCA)
