@@ -1,0 +1,1 @@
+Artículo 24.—La Auditoría Interna deberá comunicar oficialmente los resultados del trabajo, mediante informes, oficios u otros dirigidos al jerarca o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

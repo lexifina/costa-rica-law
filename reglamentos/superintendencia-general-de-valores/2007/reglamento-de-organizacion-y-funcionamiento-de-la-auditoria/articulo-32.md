@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 32.—Se deroga el Reglamento de Organización y Funciones de la Auditoria Interna de la Superintendencia General de valores, aprobado por la Comisión Nacional de Valores mediante la Sesión 255-97 artículo 6 celebrada el 14 de mayo de 1997, publicado en La Gaceta N° 112 del 12 de junio de 1997 y promulgado con base en los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las auditorias internas de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en el Diario Oficial La Gaceta N° 14 del 21 de enero de 1988.

@@ -1,0 +1,1 @@
+Artículo 17.—La Asesoría Jurídica de la Superintendencia, conforme se estipula en el inciso c) artículo 33 de la Ley General de Control Interno, brindará el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, con el fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico.
