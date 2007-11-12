@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE UPALA
+REGLAMENTO DE MÁQUINAS DE JUEGOS
+El Concejo Municipal, conforme al artículo 4º inc. A) y el artículo 13 inc. C) del Código Municipal, la Ley de juegos y el Reglamento de máquinas para juegos y jurisprudencia de la Procuraduría General d la República, en la sesión cuarenta y nueve, del veintiocho, de setiembre del año 2007:
+Considerando:
+1º—Que en el cantón de Upala en los últimos meses han proliferado diversos tipos de máquinas de juegos, los cuales han originado problemas de orden público relacionados con el acceso de menores de edad a las máquinas, máquinas no permitidas por la ley, su funcionamiento, lugar y horarios inadecuados durante el día, así como la falta de regulación y controles.
+2º—Que según las normas legales citadas, aparte de reunir la condición de licitud descrita respecto a la necesidad de habilidad o destreza, para la explotación de cualquier tipo de máquinas de juego deben cumplirse los siguientes requisitos, a) Los locales deben estar ubicados a no menos de 80 metros de centros educativos, templos y centros de salud; b) Es absolutamente prohibido la permanencia de menores de 12 años en el uso de las máquinas, el horario permitido es después de las 16:00 horas a la 22:00 horas en días lectivos, y de las 13:00 horas a las 23:00 horas en días de feriados, de asueto escolar y fines de semana; está restringida la instalación de máquinas en locales de expendio de licor, los locales deben exhibir rótulos visibles sobre la prohibición de uso de máquinas de juegos por parte de menores de edad y el horario respectivo. Por tanto:
+SE ACUERDA EMITIR EL PRESENTE
+REGLAMENTO DE MÁQUINAS DE JUEGOS
+Artículo 1º—Para efectos del presente reglamento de define como máquinas de juegos, las mencionadas en el artículo primero de la Ley de Juegos, Ley N° 3 del 31 de agosto del año 1922.

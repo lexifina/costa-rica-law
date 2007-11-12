@@ -1,0 +1,1 @@
+Artículo 11.—La violación de cualquier de estas condiciones autoriza a la Municipalidad de Upala al decomiso de las máquinas de juego. En el primer decomiso para devolver dichas máquinas, el propietario deberá cancelar a la Municipalidad de Upala, diez veces el monto de la patente por máquina de forma trimestral, y la segunda vez se pasará a la vía judicial.

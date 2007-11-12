@@ -1,0 +1,1 @@
+Artículo 9º—El costo de patente se calculara por cada máquina a instalar y el mismo no debe ser menor a ocho mil quinientos colones trimestrales por máquina, tarifa que se incrementará en un 10% anualmente.

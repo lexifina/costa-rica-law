@@ -1,0 +1,1 @@
+Artículo 7º—No se otorgará ninguna autorización para el funcionamiento de máquinas de juegos, que no reúnan las condiciones dichas, en los artículos precedentes, también se debe contar con el respectivo permiso de funcionamiento por parte del Ministerio de Salud.

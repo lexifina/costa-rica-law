@@ -1,0 +1,1 @@
+Artículo 6º—Los locales deberán exhibir rótulos grandes y visibles advirtiendo al público las prohibiciones de uso de máquinas juego a los menores de 12 años y las restricciones de horarios estipulados. También deberá colocarse en forma visible la respectiva patente municipal de juegos al día.

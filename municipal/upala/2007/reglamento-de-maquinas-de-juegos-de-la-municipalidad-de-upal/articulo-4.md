@@ -1,0 +1,1 @@
+Artículo 4º—El horario permitido por la Municipalidad de Upala, para el funcionamiento de las máquinas de juegos será de las 16:00 a las 22:00 horas en días lectivos y de las 13:00 a las 23:00 horas en días feriados, de asueto y fines de semana.
