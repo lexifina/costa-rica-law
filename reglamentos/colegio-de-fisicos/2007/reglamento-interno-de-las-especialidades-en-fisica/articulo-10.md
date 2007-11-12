@@ -1,0 +1,2 @@
+Artículo 10.—Asimismo, la Comisión puede informar a la Junta, motu proprio, acerca de nuevas Especialidades que considere deben inscribirse en el Registro de Especialidades. En estos casos, se procederá de acuerdo con el artículo anterior en lo conducente.
+El presente Reglamento Interno de Especialidades en Física fue aprobado en la Asamblea Extraordinaria Nº 22, del Colegio de Físicos, celebrada el día 3 de julio del 2007.
