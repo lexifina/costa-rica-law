@@ -1,0 +1,1 @@
+Artículo 33.—Archivo de los expedientes. Una vez que el trámite del expediente haya llegado a su fin, sea por haberse declarado como fenecido o por haberse dispuesto su archivo por parte de los miembros del Tribunal, el Prosecretario procederá a archivar el expediente, previo registro de dicha información en los libros y tarjeta de control correspondiente.

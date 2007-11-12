@@ -1,0 +1,5 @@
+Artículo 16.—Procedimiento de Recusación. El o los miembros recusados harán constar en autos si reconocen o no como ciertos los hechos que alega el recurrente, debiendo hacer la correspondiente, rectificación si estuvieren referidos de modo inexacto, y se procederá así:
+a) Una vez extendida la constancia, se dará audiencia por veinticuatro horas a la parte contraria. Si hubiere varias partes, dicho término será común a todos.
+b) Al contestar esa audiencia deben indicarse las pruebas pertinentes, si hubiere oposición a la recusación.
+c) Vencida la audiencia y habiendo el o los recusados reconocidos los hechos sin que ninguna de las partes interesadas se hubiere opuesto expresamente a la recusación, el Tribunal decretará, sin más trámite, la separación de aquel o aquellos y hará la o las reposiciones que procedan.
+d) Vencida la audiencia si el o los recusados desconocieren los hechos en que se funda la recusación o si cualquiera de las partes los negare, se procederá cumpliendo lo establecido por los incisos a) o b) del artículo 14 de este Reglamento.

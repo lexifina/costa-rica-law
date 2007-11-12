@@ -1,0 +1,1 @@
+Artículo 8º—Convocatoria de Miembros Suplentes. Cuando deba integrarse el Tribunal con alguno de los miembros suplentes, el Presidente del Tribunal designará en primera instancia al miembro con nombramiento más antiguo y en ese orden continuarán siendo convocados.

@@ -1,0 +1,1 @@
+Artículo 9º—Nulidad de resoluciones. La resolución dictada por el Tribunal integrado por un miembro con impedimento, es nula absolutamente y de pleno derecho, siempre que el motivo de impedimento conste en el expediente respectivo o sea de conocimiento del funcionario con anterioridad a resolver el asunto.

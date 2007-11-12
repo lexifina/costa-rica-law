@@ -1,0 +1,1 @@
+Artículo 31.—Corrección de errores materiales. El Tribunal de Servicio Civil podrá corregir con fundamento en el artículo 161 del Código Procesal Civil, en cualquier tiempo, los errores puramente materiales que contuvieren sus resoluciones, mediante auto que dictará de oficio o a solicitud de parte y que será declarado firme.

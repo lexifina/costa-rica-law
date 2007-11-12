@@ -1,0 +1,1 @@
+Artículo 27.—De las demás diligencias propias de su competencia. Todos los trámites atinentes a la parte sustantiva del Tribunal, tendrán apertura de un expediente, debidamente foliado, y sometido al seno de los Miembro del Tribunal para su respectiva resolución, previo levantamiento de la información y prueba pertinente por parte de las autoridades de apoyo correspondientes.

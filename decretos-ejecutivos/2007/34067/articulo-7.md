@@ -1,0 +1,2 @@
+Artículo 7º—Retribución de los miembros. Los miembros del Tribunal serán remunerados mediante dietas, que devengarán por cada sesión a la que asistan. El número de sesiones remuneradas, incluyendo ordinarias y extraordinarias, no podrá exceder de doce al mes. La sesión, para que sea remunerada, debe tener como duración mínima dos horas.
+(Nota de Sinalevi: En relación al inciso anterior este tema se regula de conformidad con las disposiciones del Transitorio III, de la Ley Marco de Empleo Público (LMEP). 10159 del 8 de marzo de 2022)
