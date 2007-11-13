@@ -14,3 +14,4 @@ Reglamento del Manejo de los Fondos de caja Chica Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-18 | la propia norma |
+| 2 | 2007-11-13 | Reglamento municipal 81 (2007-11-13) |
