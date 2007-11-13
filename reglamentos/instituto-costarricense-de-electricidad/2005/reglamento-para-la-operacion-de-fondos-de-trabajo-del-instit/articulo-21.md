@@ -1,1 +1,0 @@
-Artículo 21.—El funcionario que aprueba vales y gastos, no puede ejercer esta autoridad sobre personas que no pertenezcan a su dependencia. Sino se encuentran los funcionarios autorizados para aprobar este trámite, se debe recurrir al superior jerárquico autorizado.

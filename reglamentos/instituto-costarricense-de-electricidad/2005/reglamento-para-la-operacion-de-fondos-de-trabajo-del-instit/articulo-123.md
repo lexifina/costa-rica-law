@@ -1,1 +1,0 @@
-Artículo 123.—Es prohibido que personas ajenas a la Institución, realicen trámites en un fondo de trabajo, como el cobro de facturas, por un servicio brindado o por la adquisición de algún bien, aunque los documentos cumplan con los requisitos establecidos.

@@ -1,2 +1,0 @@
-Artículo 17.—El encargado del fondo debe mantener una lista actualizada de los funcionarios autorizados para aprobar trámites en el fondo de trabajo y asegurarse que los funcionarios que tramitan gastos en su fondo de trabajo, pertenezcan a la dependencia donde se encuentra adscrito dicho fondo, en caso contrario, verificar la existencia de la debida justificación del Director de UEN o Dirección Administrativa.
-(Así reformado en sesión N° 5771 del 28 de noviembre de 2006)

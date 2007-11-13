@@ -1,1 +1,0 @@
-Artículo 76.—El funcionario que autoriza el gasto es responsable de velar por la correcta aplicación de la retención del Impuesto sobre la Renta, en las compras que corresponde. De observar alguna irregularidad en la aplicación de la citada retención, debe abstenerse de autorizar el gasto correspondiente.

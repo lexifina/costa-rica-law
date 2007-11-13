@@ -1,1 +1,0 @@
-Artículo 149.—En caso de que el Banco registre por error transacciones no efectuadas, Gestión de Liquidez, previa notificación del encargado del fondo, solicita por escrito al Banco la investigación correspondiente. Además debe dar el respectivo seguimiento a este trámite hasta su resolución final.
