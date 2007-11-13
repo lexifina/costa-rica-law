@@ -9,4 +9,13 @@ Articulo 93.—El Departamento de Análisis y Tratamiento de la Información ten
 8) Coordinar con las instancias correspondientes el fortalecimiento de las bases de datos y aplicaciones informáticas para el intercambio y almacenamiento de la información y ejecutar las necesarias para el desarrollo de sus servicios y de su mantenimiento.
 9) Recopilar, clasificar, procesar y difundir información cuantitativa y cualitativa, obtenida por el Ministerio en lo concerniente a las estadísticas de interés policial y proveer al Sistema de Estadística Nacional los datos requeridos para elaborar las estadísticas nacionales.
 10) Crear un centro de documentación especializado de publicaciones y materiales propios de su competencia.
-11) Aquellas otras propias de su competencia.
+11) Mantener un archivo de datos y antecedentes policiales, que contenga al menos:
+a. Registro de identificación dactilar tanto de nacionales como extranjeros que efectúen trámites migratorios, de residencia, permisos temporales y solicitudes de pensionados rentistas, matriculas y portación de armas y permisos de seguridad privada.
+b. Banco de huellas de funcionarios públicos dados de alta en la Fuerza Pública, de quienes soliciten permisos de portación de armas y de aquellas personas que hayan sido detenidas por la presunta comisión de un delito.
+c. Registro de órdenes de captura y apremios corporales remitidos por las autoridades judiciales competentes.
+d. Registro y control actualizado de sentencias dictadas por los Tribunales de Justicia del país, en estricta coordinación con la Dirección General de Adaptación Social del Ministerio de Justicia.
+e. Registrar cualquiera otra información pertinente para efectos estrictamente policiales que determine el Ministro de la Cartera.
+Las labores referidas podrán realizarse en todo el territorio nacional cuando así se planifique por parte del Departamento de Planes y operaciones y con la debida autorización la Dirección de Operaciones.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34181 del 13 de noviembre del 2007).
+12. Aquellas propias de su competencia.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34181 del 13 de noviembre del 2007).

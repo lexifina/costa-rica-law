@@ -20,3 +20,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 5 | 2007-07-02 | Decreto Ejecutivo 33854 (2007-07-02) |
 | 6 | 2007-08-28 | Decreto Ejecutivo 33974 (2007-08-28) |
 | 7 | 2007-09-24 | Decreto Ejecutivo 34106 (2007-09-24) |
+| 8 | 2007-11-13 | Decreto Ejecutivo 34181 (2007-11-13) |
