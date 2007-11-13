@@ -1,0 +1,3 @@
+4. Responsabilidades.
+4.1. Será responsabilidad de los encargados administrativos de las delegaciones de la Dirección General de la Policía de Tránsito, y de los colaboradores de la Unidad de Atención al Público y de la Unidad de Registro de Multas y Accidentes y de la Oficina de Recepción de Boletas ubicada en Base 1 del Departamento de Infracciones; la entrega del formulario “Solicitud de Prescripción de Multas en Sede Administrativa”, a aquellos infractores o sus representantes legales que invoquen el recurso.
+4.2. La Dirección Financiera del COSEVI será la responsable de emitir la prescripción cuando se cumplan todos los requisitos exigidos en éste instructivo o de su desaprobación.
