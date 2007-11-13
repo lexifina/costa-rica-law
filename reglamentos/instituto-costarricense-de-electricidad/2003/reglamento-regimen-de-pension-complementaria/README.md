@@ -14,3 +14,4 @@ Reglamento Régimen de Pensión Complementaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-20 | la propia norma |
+| 2 | 2007-11-13 | Reglamento 5813 (2007-11-13) |

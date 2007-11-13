@@ -1,2 +1,3 @@
-Artículo 9º—Ajuste de pensiones. Con el propósito de evitar que se deteriore la Pensión Complementaria, los montos de dichas pensiones se ajustarán cada semestre, según el porcentaje o monto absoluto de ajuste salarial por costo de vida definido por el Poder Ejecutivo.
-En caso de que el rendimiento de la reserva para pensiones en curso de pago, no sea suficiente para sufragar el ajuste de las pensiones en los términos indicados, la Junta Administrativa, definirá un ajuste con fundamento en las condiciones financieras y actuariales del régimen.
+Artículo 9º—Ajuste de pensiones. El ajuste a las Pensiones en Curso de Pago por costo de vida será aprobado por la Junta Administrativa y se establecerá de acuerdo con las posibilidades financieras y actuariales del régimen, según las recomendaciones de los estudios actuariales que se realicen.
+Las pensiones en curso de pago se podrán ajustar anualmente de acuerdo a las posibilidades financieras y actuariales del Régimen.
+(Así reformado mediante sesión N° 5813 del 13 de noviembre de 2007).
