@@ -1,0 +1,1 @@
+Artículo 10.—Deróguesen los Decretos Ejecutivos Nº 14370-SPPS del 16 de marzo de 1983 y sus reformas, y el Decreto Ejecutivo Nº 27446-S de 8 de setiembre de 1998, y cualquier otra disposición del mismo o inferior rango que se le oponga.
