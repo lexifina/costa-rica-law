@@ -1,1 +1,0 @@
-Artículo 8º—La clasificación incluida en este Decreto, no obsta para que, en la formulación de planes, programas y proyectos de desarrollo socioeconómico por parte de órganos y entes del Sector Público se consideren, complementariamente al IDSD, criterios específicos que justifiquen su pertinencia y relevancia.
