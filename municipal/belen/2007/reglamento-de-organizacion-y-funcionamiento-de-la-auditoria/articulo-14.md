@@ -1,0 +1,2 @@
+Artículo 14.—Servicios que presta la Auditoría. La Auditoría brinda servicios de auditoría, los cuales consisten en estudios de auditoría (auditoría financiera y operativa) y estudios especiales. También presta servicios de carácter preventivo, constituidos por la asesoría, la advertencia y la autorización de libros.
+El Auditor diseñará, documentará e implantará los procedimientos de los servicios de auditoría y los preventivos que presta. Asimismo, al Auditor le compete elaborar efectivos instrumentos para la administración de esos servicios y de la Auditoría en general.
