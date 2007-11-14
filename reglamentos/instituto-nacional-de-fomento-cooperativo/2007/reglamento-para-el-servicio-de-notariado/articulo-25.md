@@ -1,0 +1,1 @@
+Artículo 25.—Del depósito de honorarios. Los honorarios del Notario deberán ser depositados por el cliente en el INFOCOOP previamente al otorgamiento de la escritura, a menos que dicha suma haya sido contemplada como parte del plan de inversión del crédito. Fuera de este caso, no se otorgará la escritura hasta tanto los honorarios hayan sido depositados.

@@ -1,0 +1,1 @@
+Artículo 36.—Derogatorias. El presente Reglamento deroga expresamente el Reglamento para Servicios de Notariales en el INFOCOOP, aprobado por junta directiva en sesión Nº 1596, del 9 octubre de 1986 y sus reformas.
