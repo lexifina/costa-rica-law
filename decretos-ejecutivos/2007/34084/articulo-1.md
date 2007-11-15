@@ -12,3 +12,4 @@ Por tanto;
 Decretan:
 Articulo 1°._ Modificanse los artículos 2°, 3°, 4°, 5°, Y 6° de la Ley No. 8562, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2007, publicada en el Alcance No. 60 a La Gaceta No. 250 de 29 de diciembre de 2006, en la forma que se indica a continuación:
 Por lo extenso de su contenido y tipo de formato, ver Alcance N° 33 a La Gaceta N° 217 del 12 de noviembre de 2007.
+(Reformado por el artículo 2° del decreto ejecutivo N° 34120 del 15 de noviembre de 2007)

@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-12 | la propia norma |
+| 2 | 2007-11-15 | Decreto Ejecutivo 34120 (2007-11-15) |
