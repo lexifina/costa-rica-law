@@ -1,1 +1,0 @@
-Artículo 7º—Derogatoria. El presente decreto ejecutivo deroga el "Manual para la Atención de los Informes de la Contraloría General de la República y de la Dirección General de Auditoría Interna del Ministerio de Hacienda", y sus reformas, emitido el 15 de marzo de 1998.

@@ -1,2 +1,0 @@
-Transitorio I.—Los informes emitidos tanto por la Contraloría General de la República, como por la Dirección General de Auditoría Interna, cuyo trámite de implementación, seguimiento, control y fiscalización ya estaba ejecutándose a la fecha de publicación del Decreto Ejecutivo 31765-H de repetida cita, se diligenciarán conforme a la normativa que se encontraba vigente en la fecha en que se inició su tramitación.
-(Así adicionado por el artículo 2° del Decreto Ejecutivo N° 31863 del 1° de juniod e 2004).
