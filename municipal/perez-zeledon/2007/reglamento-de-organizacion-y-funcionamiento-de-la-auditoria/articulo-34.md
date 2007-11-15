@@ -1,0 +1,1 @@
+Artículo 34.—Modificaciones al Reglamento. El Auditor Interno, de acuerdo con el monitoreo constante de su entorno y las necesidades identificadas y demostradas de la dependencia a su cargo, podrá proponer las reformas que considere oportunas y pertinentes al presente Reglamento, todo esto conforme con el bloque de legalidad y las disposiciones técnicas que rigen la materia.

@@ -1,0 +1,1 @@
+Artículo 24.—Denuncias anónimas. No se dará trámite a denuncias que sean presentadas de forma anónima. En casos excepcionales, ante una denuncia anónima podría abrirse de oficio una investigación preliminar, cuando con ésta se reciban elementos de prueba que den mérito para ello. En caso contrario, se dispondrá su archivo sin más trámite.
