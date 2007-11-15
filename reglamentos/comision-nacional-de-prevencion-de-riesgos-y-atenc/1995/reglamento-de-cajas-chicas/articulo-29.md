@@ -1,1 +1,0 @@
-Artículo 29.—Tanto el funcionario encargado del manejo, corno el Jefe responsable del control de una Caja Chica, le corresponderá mantener en un lugar seguro los documentos, efectivo y cheques que componen el fondo de la Caja Chica.

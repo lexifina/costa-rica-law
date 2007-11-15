@@ -1,1 +1,0 @@
-Artículo 42.—El presente Reglamento deja sin efecto el anterior, pudiendo ser complementado, en cuanto a trámites, procedimientos y control interno, mediante instructivo debidamente aprobado por la Dirección Ejecutiva.

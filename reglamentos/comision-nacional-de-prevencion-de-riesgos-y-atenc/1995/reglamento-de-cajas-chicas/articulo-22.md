@@ -1,1 +1,0 @@
-Artículo 22.—No se reintegrarán facturas con fecha anterior al último reintegro, salvo casos que se justifique satisfactoriamente por escrito, ante el Director Ejecutivo, el o los motivos correspondientes y no contravenga lo dispuesto en los Artículos 8, 9 y 10 de este Reglamento.

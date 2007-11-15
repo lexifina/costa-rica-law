@@ -1,1 +1,0 @@
-Artículo 21.—Una vez realizada la compra de un bien cuyo costo individual sobrepase la suma de (. 5.000,00 (cinco mil), éste deberá trasladarse a la bodega central de la CNE., para que se le confeccione el respectivo informe de recepción.

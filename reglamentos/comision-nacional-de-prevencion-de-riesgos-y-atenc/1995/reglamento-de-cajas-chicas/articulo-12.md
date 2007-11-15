@@ -1,2 +1,0 @@
-Artículo 12.—Para realizar la compra de bienes y servicios por medio de Caja Chica, deberá confeccionarse una solicitud de “ Vale Provisional “ y entregarse al encargado del manejo del fondo.
-El vale provisional, además de requerir la firma de aprobación de la Unidad solicitante, debe detallar ampliamente el objeto del gasto, para facilitar la codificación presupuestaria y contable, cualquier espacio en que no se especifique lo deseado, podrá dar lugar a no reconocer el pago.

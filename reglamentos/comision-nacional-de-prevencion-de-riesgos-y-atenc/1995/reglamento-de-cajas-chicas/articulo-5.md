@@ -1,1 +1,0 @@
-Artículo 5°— Queda prohibido mantener o sustituir los fondos de la Caja Chica por otros valores que no sean los autorizados en este Reglamento. La violación de esta disposición se considera como falta grave, que será valorada por la Dirección Ejecutiva.

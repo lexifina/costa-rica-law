@@ -1,1 +1,0 @@
-Artículo 35.—En los comprobantes o facturas emitidos por terceros, no deben hacerse agregados de ninguna especie que puedan causar confusión, cualquier aclaración debe efectuarse en una hoja adicional.

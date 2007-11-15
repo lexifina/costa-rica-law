@@ -1,1 +1,0 @@
-Artículo 7°— Antes de efectuar una compra, deberá consultarse el Código Presupuestario, a efecto de identificar claramente el gasto correspondiente a realizar, así como la disponibilidad presupuestaria de la subpartida. El vale también debe llevar el visto bueno del encargado de la Unidad Presupuestaria.
