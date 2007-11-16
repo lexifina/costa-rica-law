@@ -1,0 +1,1 @@
+Artículo 58.—Derogatoria. El presente Reglamento deja sin efecto el Reglamento de la Auditoría Interna del Tribunal Supremo de Elecciones aprobado por el Tribunal en Sesión Nº 11486, celebrada el 24 de setiembre de 1998.

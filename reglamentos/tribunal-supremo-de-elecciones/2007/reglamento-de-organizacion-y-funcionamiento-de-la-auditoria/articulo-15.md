@@ -1,0 +1,1 @@
+Artículo 15.—Pericia y cuidado profesional. El Auditor y el Subauditor Internos deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio. Además, vigilarán porque el personal bajo su cargo actúe de igual manera.

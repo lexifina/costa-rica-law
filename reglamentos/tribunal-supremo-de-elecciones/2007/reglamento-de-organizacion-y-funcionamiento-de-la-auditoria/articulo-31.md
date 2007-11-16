@@ -1,0 +1,1 @@
+Artículo 31.—Obligación de brindar asesoría legal. El Departamento Legal del Tribunal brindará en forma oportuna y efectiva, los servicios de asesoría legal que requiera la Auditoría Interna para atender sus necesidades de orden jurídico en el ejercicio de sus competencias.
