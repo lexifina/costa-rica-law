@@ -15,3 +15,4 @@ Reforma Crea Programa Nacional de Apoyo a la Micro y Pequeña Empresa " PRONAMYP
 | --- | --- | --- |
 | 1 | 2006-05-05 | la propia norma |
 | 2 | 2007-05-23 | Decreto Ejecutivo 33848 (2007-05-23) |
+| 3 | 2007-11-16 | Decreto Ejecutivo 34112 (2007-11-16) |

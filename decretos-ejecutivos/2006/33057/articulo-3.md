@@ -1,1 +1,1 @@
-Artículo 3º—PRONAMYPE formará parte del Sistema Nacional de Apoyo de las Pequeñas y Medianas Empresas, promovido por la Dirección General de Pequeña y Mediana Empresa (DIGEPYME) del Ministerio de Economía, Industria y Comercio, tomando en cuenta y sin afectación de la autonomía del programa y del fideicomiso, el cual se regula por medio de un contrato de fideicomiso suscrito entre el fiduciario y el fideicomitente, exclusivamente.
+Artículo 3º— (Este artículo fue derogado por el artículo 3° del decreto ejecutivo N° 34112 del 16 de noviembre de 2007).
