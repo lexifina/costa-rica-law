@@ -1,4 +1,1 @@
-Artículo 5º—La estructura funcional, definida para la operatividad del programa (PRONAMYPE), estará conformada por:
-a) Un Órgano Director nombrado por el señor Ministro de Trabajo y Seguridad Social; integrado por el señor Ministro de Trabajo o a quien éste designe como su representante; un representante del Banco Fiduciario; un representante de DESAF, y un representante de los micro-empresarios. Este órgano tendrá la responsabilidad de formular las directrices y lineamientos del PRONAMYPE y funcionará de acuerdo a un reglamento.
-b) Una Dirección, donde el Director(a) Ejecutivo(a) es nombrado(a) por el Ministro de Trabajo y Seguridad Social; y depende directamente de él; y con dos áreas funcionales: una Operativa Financiera y otra de Desarrollo Empresarial.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33057 del 26 de abril de 2006)
+Artículo 5º— (Este artículo fue derogado por el artículo 3° del decreto ejecutivo N° 34112 del 16 de noviembre de 2007).

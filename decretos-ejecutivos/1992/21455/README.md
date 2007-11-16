@@ -16,3 +16,4 @@ Crea Programa Nacional de Apoyo a la Micro y Pequeña Empresa 'PRONAMYPE'
 | 1 | 1992-08-14 | la propia norma |
 | 2 | 2006-04-26 | Decreto Ejecutivo 33057 (2006-04-26) |
 | 3 | 2007-05-23 | Decreto Ejecutivo 33848 (2007-05-23) |
+| 4 | 2007-11-16 | Decreto Ejecutivo 34112 (2007-11-16) |
