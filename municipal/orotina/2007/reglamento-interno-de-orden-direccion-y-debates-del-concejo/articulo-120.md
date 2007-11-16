@@ -1,0 +1,2 @@
+Artículo 120.-En cualquier momento, la Presidencia llamará la atención de los miembros del Concejo que así lo ameriten, haciéndoles ver las violaciones en que incurren; dicha llamada de atención se hará por no más de dos veces a cada miembro, llamándolo al orden. De persistir la desobediencia y de acuerdo a la gravedad de los hechos, la Presidencia podrá levantar la sesión en el acto, sin perjuicio de lo suspendido.
+(Así modificada la numeración en sesión N° 133 del 16 de noviembre de 2007, que lo traspaso del antiguo artículo 105 al artículo 120)

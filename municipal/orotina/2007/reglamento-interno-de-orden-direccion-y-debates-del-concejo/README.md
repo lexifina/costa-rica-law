@@ -14,3 +14,4 @@ Reglamento Interno de orden, dirección y debates del Concejo Municipal del cant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-12 | la propia norma |
+| 2 | 2007-11-16 | Reglamento municipal 133 (2007-11-16) |

@@ -1,1 +1,2 @@
-Artículo 109.—Lo no regulado en este Reglamento, deberá sujetarse a lo dispuesto en el Código Municipal y las leyes especiales que al efecto se dicten y se encuentren en vigencia.
+Artículo 109.—Las justificaciones que se reciban en forma previa a la sesión municipal, y antes de la hora indicada en el artículo anterior, obligatoriamente serán leídas por parte de la Secretaria Municipal al inicio de la sesión, sea esta ordinaria o extraordinaria. Si se tiene que la justificación se brinda en un tiempo menor a los treinta minutos y anterior al inicio de la sesión municipal, entonces el interesado se tendrá por justificado y la lectura de su justificación se hará en la sesión ordinaria inmediata posterior.
+(Así adicionado en sesión N° 133 del 16 de noviembre de 2007)
