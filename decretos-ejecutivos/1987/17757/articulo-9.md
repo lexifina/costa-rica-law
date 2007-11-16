@@ -1,54 +1,15 @@
-ARTICULO 9º.- No se permitirá la explotación de ninguna patente de
-licores en ninguna de sus modalidades (taberna, bar, cantina, licorería,
-discotecas; salones de baile, marisquerías, venta de pollo, etc.) en los
-siguientes casos:
-a) Si el lugar donde se fuere a explotar la patente no estuviere
-ubicado a más de cuatrocientos metros de iglesias católicas,
-instalaciones deportivas y centros de salud de todo tipo, centros
-infantiles de nutrición o de juegos, guarderías infantiles,
-escuelas, colegios y otros establecimientos educativos similares,
-ya sean públicos o privados, de enseñanza preescolar, primaria,
-secundaria, universitaria, técnica y parauniversitaria y clubes
-políticos. La medida se establecerá desde el punto más cercano
-entre el terreno total que ocuparía el negocio y el sitio que
-interese para los efectos de este inciso, aunque dichos puntos no
-estuvieren ocupados por construcciones. En igual sentido se
-entenderá que existen los establecimientos a que se refiere este
-inciso, aun en el caso de que estuvieren en proyecto formal de
-construcción.
-( Derogado el antiguo párrafo final por el artículo 1º del
-Decreto Ejecutivo No. 24719 de 30 de noviembre de 1995)
-b) ( ANULADO por Resolución de la Sala Constitucional Nº 4905-95 de
-las 15:21 horas del 5 de setiembre de 1995)
-c) Si el lugar donde se fuere a explotar la patente
-estuviere ubicado en zonas exclusivamente residenciales y dedicadas
-por consiguiente a la habitación familiar. En estas zonas solo se
-podrá permitir la explotación de una patente de licores en
-restaurantes en que el expendio de licores es activiada secundaria y
-no principal. Si la venta de licores se convirtiere en la actividad
-principal del establecimiento, el Ministerio de Gobernación y
-Policía estará facultado para suspender la venta de licores en ese
-lugar.
-( El presente inciso fue reformado por el artículo 2º del Decreto
-Ejecutivo Nº 24719 de 30 de noviembre de 1995)
-d) Podrá la Gobernación Provincial valorando la oportunidad y
-conveniencia, no aplicar las distancias establecidas en el inciso
-a), cuando se trate de Restaurantes declarados de interés
-turístico por la Junta Directiva del Instituto Costarricense de
-Turismo. Sin embargo, si la venta de licores llegare en algún
-momento a ser actividad principal y no secundaria, burlándose así
-la voluntad de la Administración, el Gobernador de Provincia
-quedará facultado para suspender la venta de licores en aquel
-lugar.
-( Así reformado parcial y tácitamente por el artículo 2º del Decreto Ejecutivo Nº
-25289 de 4 de junio de 1996).
-NOTA: originalmente fue adicionado por el artículo 3º del Decreto Nº
-24719 de 30 de noviembre de 1995)
-e) No se aplicarán las restricciones sobre distancias
-contenidas en el inciso a) de este artículo a aquellos actos
-públicos como fiestas cívicas, patronales, culturales, ferias y
-similares que cuenten con el permiso respectivo del Gobernador de la
-Provincia, quien lo podrá otorgar previa verificación de la
-existencia del acuerdo municipal que corresponda.
-( El presente inciso fue adicionado por el artículo 3º del
-Decreto Ejecutivo Nº 24719 de 30 de noviembre de 1995)
+ARTICULO 9º.- No se permitirá la explotación de patente de licores en las siguientes condiciones:
+a) Si el establecimiento comercial de que se trate, corresponde a la Categoría A o a la Categoría B en los términos que los define el artículo 2 de la Ley N º 7633 de 26 de septiembre de 1996, y estuviere ubicado a cuatrocientos metros o menos de templos religiosos, instalaciones deportivas abiertas al público en general, para cuyo uso no se requiera pertenecer a alguna asociación, organización o grupo específico, ni se exija para ello pagar membresía, tarifa o precio alguno. tales como canchas de fútbol abiertas, canchas de basketball y piscinas públicas, centros que provean servicios de salud al público ya sean del Ministerio de Salud Pública o de la Caja Costarricense del Seguro Social, centros infantiles de nutrición de carácter público y los centros educativos, ya sean públicos o privados, de enseñanza preescolar, primaria y secundaria.
+b) Si el establecimiento comercial de que se trate, corresponde a la Categoría C en los términos que los define el artículo 2 de la Ley N º 7633 de 26 de septiembre de 1996. y estuviere ubicado a cien metros o menos de templos religiosos, instalaciones deportivas abiertas al público en general sin la necesidad de pertenecer a alguna asociación y/o sin pagar membresía alguna, tales como canchas de fútbol abiertas, canchas de basketball y piscinas públicas y centros de salud del Ministerio de Salud Pública o de la Caja Costarricense del Seguro Social, centros infantiles de nutrición y centros educativos tales como guarderías infantiles, centros educativos, ya sean públicos o privados, de enseñanza preescolar, primaria y secundaria.
+c) Si donde fuere a explotarse una patente de licor son establecimientos comerciales correspondientes a las Categorías D y E en los términos que los define el artículo 2 de la Ley N º 7633 de 26 de septiembre de 1996, no se aplicará límite de distancia alguno en razón de que en esas actividades no hay consumo de licor en el sitio.
+d) Si donde fuere a explotarse una patente de licor son establecimientos comerciales correspondientes a las categorías A. B y C. en los términos que los define el artículo 2 de la Ley N º 7633 de 26 de septiembre de 1996 y se encuentren ubicadas en centros comerciales, no estarán sujetos a límite de distancia alguno.
+e) En las zonas exclusivamente residenciales, en los términos que lo defina así el correspondiente Plan Regulador, y a falta de éste, en virtud del pronunciamiento del Instituto Nacional de Vivienda y Urbanismo (INVU), sólo se permitirá la explotación de patentes de licor por parte de establecimientos que se encuentren en las categorías C y D.
+f) La municipalidad correspondiente deberá cancelar el permiso de operación de una patente de licor si en la realidad, el establecimiento comercial de que se trate no corresponda al tipo de Categoría bajo la cual se le otorgó el permiso inicialmente.
+g) Para los templos religiosos, instalaciones deportivas abiertas al público en general, para cuyo uso no se requiera pertenecer a alguna asociación, organización o grupo específico, ni se exija para ello pagar membresía. tarifa o precio alguno, tales como canchas de fútbol abiertas, canchas de basketball y piscinas públicas, centros que provean servicios de salud al público ya sean del Ministerio de Salud Pública o de la Caja Costarricense del Seguro Social, centros infantiles de nutrición de carácter público y los centros educativos, ya sean públicos o privados, de enseñanza preescolar, primaria y secundaria, que se autoricen posterior a la operación de un establecimiento con patente de licores deberán respetar las distancias mínimas contempladas en los incisos a) y
+h) Los restaurantes, hoteles y pensiones declarados de interés turístico por el Instituto Costarricense de turismo, no estarán sujetos a límite de distancia alguno. Sin embargo, si la venta de licores llegare en algún momento a ser actividad principal y no secundaria la municipalidad deberá suspender la venta de licores en aquel local.
+i) Aquellos actos públicos como fiestas cívicas, patronales, culturales, ferias y similares que cuenten con el permiso respectivo de la municipalidad competente, no estarán sujetos a restricción por distancia alguna, siempre que sean de índole temporal y no excedan de dos semanas.
+La medición de las distancias a que se refieren los incisos a) y b) anteriores, se hará de puerta a puerta entre el establecimiento que expendería licor y aquél punto de referencia. Se entenderá por puerta, la entrada o sitio principal de ingreso al público. En igual sentido se entenderá que existen los establecimientos a que se refiere este inciso, aun en el caso de que estuvieren en proyecto formal de construcción, con permisos aprobados por la Municipalidad respectiva.
+La limitación para extender el permiso de funcionamiento de una patente de licor no operará en aquellos casos que aunque el establecimiento comercial a los que se refieren los incisos a) y b) anteriores se encuentren dentro de las distancias ahí indicadas de cualquiera de los puntos de referencia, no existan vías de acceso directo entre el establecimiento que expendería licor y el sitio de referencia.
+Se entenderá por vías de acceso directo, caminos públicos, municipales o nacionales, por los que libremente podrían circular peatones y vehículos.
+Para el inciso d) de este artículo se entenderá por “centro comercial” el desarrollo inmobiliario urbano de áreas de compras para consumidores finales de mercancías y/o servicios, que concentra una mezcla de negocios en un área determinada, con los espacios para la circulación del tráfico de personas y áreas de estacionamientos para vehículos cercanas, aledañas, contiguas y/o a disponibilidad de sus visitantes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34400 del 16 de noviembre de 2007)
