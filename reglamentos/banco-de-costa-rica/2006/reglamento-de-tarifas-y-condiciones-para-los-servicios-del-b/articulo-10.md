@@ -42,3 +42,5 @@ Máximo $2,00.
 31-60 días $30,00
 61-90 días $40,00
 NOTA: Esta comisión se cobra mensualmente durante el período en que permanezca el crédito en esa condición.
+(*)Comisión por Servicios Administrativos en Tarjetas de Débito US$5 excepto tarjetas: Cuenta Conmigo, Cuenta Propia, Pensionados y Anafa.
+(*)(Así adicionado mediante sesión N° 55 del 19 de noviembre de 2007)
