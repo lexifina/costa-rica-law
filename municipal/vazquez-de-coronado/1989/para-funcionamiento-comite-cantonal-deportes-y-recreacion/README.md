@@ -14,3 +14,4 @@ Para Funcionamiento Comité Cantonal Deportes y Recreación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-12-12 | la propia norma |
+| 2 | 2007-11-19 | Reglamento municipal 82 (2007-11-19) |
