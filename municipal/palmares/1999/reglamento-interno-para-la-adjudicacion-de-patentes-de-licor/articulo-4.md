@@ -1,1 +1,0 @@
-Artículo 4°-Queda prohibido otorgar patentes temporales de licores a instituciones educativas o religiosas. ventas en el estadio municipal y plazas de deportes durante la realización de actividades deportivas, parques públicos de recreación y vías públicas excepto que adquieran el permiso de ingeniería de tránsito para utilizar la vía.

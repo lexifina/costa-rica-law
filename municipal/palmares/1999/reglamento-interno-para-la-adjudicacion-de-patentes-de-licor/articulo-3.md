@@ -1,1 +1,0 @@
-Artículo 3°-Los organismos que pueden solicitar una patente temporal serán: la Asociación Cívica Palmareña, en caso de Fiestas Cívicas o actividad análoga, la Cruz Roja Costarricense, las Asociaciones de Desarrollo Comunal con personería jurídica vigente, las asociaciones legalmente inscritas que están activas y otras entidades a juicio del Concejo Municipal.

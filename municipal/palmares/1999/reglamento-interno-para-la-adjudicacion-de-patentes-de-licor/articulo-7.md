@@ -1,1 +1,0 @@
-Artículo 7°-La policía rural, municipal o inspectores municipales podrán inspeccionar el correcto funcionamiento, de acuerdo con la ley. En caso de violación a las normas establecidas por la ley, se clausurará el acto y se retira el permiso otorgado.
