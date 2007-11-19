@@ -1,0 +1,1 @@
+Artículo 61.—En los casos de reajustes de precio en los contratos de Obra Pública se regirá por lo establecido en el Reglamento para el Reajuste de precios en los contratos de obra pública de construcción y mantenimiento bajo decreto ejecutivo 33114-MEIC.

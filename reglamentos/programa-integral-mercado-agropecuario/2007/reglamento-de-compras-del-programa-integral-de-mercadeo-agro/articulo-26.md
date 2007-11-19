@@ -1,0 +1,1 @@
+Artículo 26.—La R02-GPV-01 Solicitud de Recursos debe contener como mínimo la siguiente información: descripción específica del recurso, cantidad, unidad de medida, proceso que solicita, aprobación de presupuestaria, justificación del gasto, indicación del PAO afectado y en caso de ser necesario términos de referencia que amplíen las características del recurso a adquirir.

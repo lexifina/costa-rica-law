@@ -1,0 +1,1 @@
+Artículo 40.—El PIMA aplicará las diferentes modalidades de Licitación según los rangos económicos que establece año con año la Contraloría General de la República, de acuerdo con lo establecido en el artículo 27 de la Ley de Contratación Administrativa y sus reformas.

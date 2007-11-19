@@ -1,0 +1,1 @@
+Artículo 38.—Cuando se trate de procedimiento de Interés de colaboración con el PIMA establecido en el artículo 131 inciso I) del Reglamento a la Ley de Contratación Administrativa, deberá quedar constancia en el expediente administrativo de los respectivos estudios de mercado que demuestren el cumplimiento de la normativa.

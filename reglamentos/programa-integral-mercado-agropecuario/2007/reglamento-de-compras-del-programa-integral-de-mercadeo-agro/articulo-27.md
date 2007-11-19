@@ -1,0 +1,1 @@
+Artículo 27.—Además de la Solicitud de Recursos, el solicitante deberá remitir a la Proveeduría toda la información necesaria para realizar el proceso de contratación acorde con las necesidades de la institución.

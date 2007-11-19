@@ -1,0 +1,1 @@
+Artículo 25.—Dicha solicitud ingresará sistemáticamente a la Asesoría Legal quien verificará la justificación de la procedencia de conformidad con el artículo 8 del Reglamento a la Ley de Contratación Administrativa, quien a su vez lo remitirá al Proceso de Proveeduría para la iniciación o en caso contrario lo devolverá al interesado para su subsanación.

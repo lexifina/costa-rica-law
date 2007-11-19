@@ -1,0 +1,1 @@
+Artículo 20.—En un plazo de cinco días de recibida la solicitud de incorporación y verificados los requisitos se deberá comunicar cualquier defecto o incumplimiento, dando un término de tres días para su subsanación, de lo contrario se tendrá desestimada la solicitud.

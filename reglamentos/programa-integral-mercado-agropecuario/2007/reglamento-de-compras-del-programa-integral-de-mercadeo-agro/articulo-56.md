@@ -1,0 +1,1 @@
+Artículo 56.—El monto máximo para las compras de Caja Chica será determinado por el Consejo Directivo del PIMA de conformidad con lo establecido en el decreto ejecutivo Nº 7863-A del 20 de diciembre de 1977 y sus reformas.

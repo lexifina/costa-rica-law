@@ -1,0 +1,1 @@
+Artículo 46.—Previo a la formulación de la una licitación abreviada o pública, el proceso solicitante deberá elaborar un estudio de mercado que tiene como objetivo suministrar información más clara sobre el precio y las características del recurso a adquirir.

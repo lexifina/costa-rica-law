@@ -1,0 +1,1 @@
+Artículo 50.—En los casos en de licitaciones, cual fuere su naturaleza será la Comisión de Contratación Administrativa quien de la recomendación sobre la calificación de las ofertas, en el caso de las contrataciones directas dicha recomendación la realizará la Proveeduría.

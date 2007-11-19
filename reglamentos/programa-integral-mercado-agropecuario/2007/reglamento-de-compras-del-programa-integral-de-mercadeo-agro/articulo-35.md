@@ -1,0 +1,1 @@
+Artículo 35.—El proceso de análisis estará a cargo del Proceso de Proveeduría. En cuanto a la adjudicación ésta deberá ser remitir un informe de adjudicación a la gerencia general para que esta se encargue de adjudicar. La adjudicación se notificará al oferente mediante la suscripción de la respectiva orden de compra por parte de la proveeduría de la Institución.

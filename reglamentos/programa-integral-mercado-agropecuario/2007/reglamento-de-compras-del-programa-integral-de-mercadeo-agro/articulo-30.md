@@ -1,0 +1,1 @@
+Artículo 30.—Las garantías que se rindan serán independientemente para cada negocio y lo relativo a la devolución, sustitución, ejecución y forma de la misma será de acuerdo con lo establecido en el capítulo cuatro sección segunda del Reglamento a la Ley de Contratación Administrativa.

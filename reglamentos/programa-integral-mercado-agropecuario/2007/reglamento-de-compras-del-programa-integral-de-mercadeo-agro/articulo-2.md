@@ -1,0 +1,1 @@
+Artículo 2º—Propósito: El presente reglamento tiene como propósito establecer los criterios, procedimientos y controles para el proceso de Gestión de Compras, así como los controles aplicables a los proveedores y a los productos o servicios adquiridos por el Programa Integral de Mercadeo Agropecuario.

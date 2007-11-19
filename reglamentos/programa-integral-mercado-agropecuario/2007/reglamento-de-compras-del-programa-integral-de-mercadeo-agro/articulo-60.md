@@ -1,0 +1,1 @@
+Artículo 60.—Todo proceso de reajuste de precio deberá ser tramitado ante la proveeduría de la Institución, y deberá llevar los vistos buenos correspondientes tanto de la proveeduría como de la Asesoría Legal.

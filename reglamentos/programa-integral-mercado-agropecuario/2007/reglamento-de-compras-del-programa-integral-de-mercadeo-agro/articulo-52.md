@@ -1,0 +1,1 @@
+Artículo 52.—La Gerencia General autorizará la utilización de tarjetas de débito para las compras por caja chica estableciendo de antemano los límites de compras ante la entidad bancaria correspondiente.

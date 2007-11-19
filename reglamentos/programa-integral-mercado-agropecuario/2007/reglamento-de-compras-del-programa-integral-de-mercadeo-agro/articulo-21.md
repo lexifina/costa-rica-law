@@ -1,0 +1,1 @@
+Artículo 21.—Cuando un proveedor desee participar en un determinado proceso de contratación administrativa y no esté inscrito en el Registro de Proveedores, podrá presentar la información junto con su oferta siempre que cumpla con todos los requisitos que se le solicitan en la contratación y en el Formulario de Registro de Proveedores.

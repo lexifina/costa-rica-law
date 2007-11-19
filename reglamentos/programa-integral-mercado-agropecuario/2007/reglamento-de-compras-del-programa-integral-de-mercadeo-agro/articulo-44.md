@@ -1,0 +1,1 @@
+Artículo 44.—El proceso de proveeduría en coordinación con la asesoría legal deberá solicitar ante la Contraloría General de República el refrendo de aquellos contratos que se originen partir de la de licitaciones cuyo monto de adjudicación se a igual o superior al establecido por la Contraloría General de la República para la obtención del refrendo contralor.

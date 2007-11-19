@@ -1,0 +1,1 @@
+Artículo 53.—En el caso de darse adelantos deberán liquidarse por los funcionarios de proveeduría en el término de 3 días hábiles mediante el comprobante de liquidación aprobado por el Líder del proceso de Proveeduría; después de entregado el dinero, respaldado con los documentos probatorios de la compra.

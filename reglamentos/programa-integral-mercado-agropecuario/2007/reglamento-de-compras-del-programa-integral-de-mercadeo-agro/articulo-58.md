@@ -1,0 +1,1 @@
+Artículo 58.—En caso de pérdida de la factura original, se podrá aceptar una copia o fotocopia, que deberá estar autenticada por la Asesoría Legal de PIMA, haciendo constar que es copia fiel de la factura original.

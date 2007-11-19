@@ -1,0 +1,1 @@
+Artículo 22.—Todo proveedor inscrito está obligado a verificar la información aportada al Registro de Proveedores. Dicha inscripción tendrá la vigencia de un año, y podrá renovarse con la simple indicación de querer continuar formando parte de tal registro, caso contrario se des inscribirán automáticamente del Registro.

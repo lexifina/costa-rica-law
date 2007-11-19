@@ -1,0 +1,1 @@
+Artículo 19.—Los interesados en inscribirse en el Registro de Proveedores deberán llenar y entregar en el proceso de Proveeduría el R05GPV-2006 “Formulario para la inscripción en el Registro de Proveedores”, dicho formulario puede ser retirado sin costo alguno por los interesados directamente en las oficina de Proveeduría de PIMA.
