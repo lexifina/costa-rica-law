@@ -1,1 +1,0 @@
-Artículo 21.—Contra la resolución que deniegue o apruebe la solicitud de permiso podrá interponerse los recursos ordinarios dentro del quinto día para ante el Departamento Patentes y el Alcalde Municipal, respectivamente, de acuerdo con lo que establece el Código Municipal en su numeral 162. Lo resuelto por el Alcalde agotará la vía administrativa.

@@ -1,1 +1,0 @@
-Artículo 24.—Sobre las ganancias que generó la actividad deberá los organizadores pagar en la Contaduría Municipal por concepto de Espectáculos Públicos un 5% (cinco por ciento); no podrá la Municipalidad exonerar de esta obligación a ningún organizador.
