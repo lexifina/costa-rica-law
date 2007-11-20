@@ -1,0 +1,1 @@
+Artículo 37.—Reglamentación nombramientos interinos. El Jerarca también debe reglamentar el proceso de nombramientos interinos en los cargos de Auditor y Subauditor, de conformidad con los artículos 29 y 31 de la Ley General de Control Interno, lo que requiere autorización previa de la Contraloría General de la República y no podrá hacerse por más de doce meses.

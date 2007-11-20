@@ -1,0 +1,1 @@
+Artículo 14.—Actualización de visión, misión, valores y políticas. Es obligación del auditor interno, mantener actualizada la visión, misión, valores y las principales políticas que regirán el accionar de la Auditoría Interna.

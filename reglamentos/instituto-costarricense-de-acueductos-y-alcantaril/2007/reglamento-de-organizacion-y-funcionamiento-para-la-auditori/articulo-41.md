@@ -1,0 +1,1 @@
+Artículo 41.—Vacantes. La unidad de recursos humanos o la que haga sus veces en la administración, por gestión oportuna del auditor interno, deberá atender las vacantes en la auditoría con la prioridad requerida para cumplir con el plazo estipulado en el artículo 28 de la Ley General de Control Interno.

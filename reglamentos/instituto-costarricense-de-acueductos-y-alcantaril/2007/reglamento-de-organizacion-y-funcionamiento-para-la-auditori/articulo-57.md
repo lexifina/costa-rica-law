@@ -1,0 +1,1 @@
+Artículo 57.—Cumplimiento. El auditor interno diseñará, documentará, implantará, administrará y controlará el cumplimiento de los procesos establecidos para efectuar los servicios de auditoría, los preventivos y los de apoyo; los cuales definirá en los manuales de funcionamiento y procedimientos respectivos.

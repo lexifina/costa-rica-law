@@ -1,0 +1,1 @@
+Artículo 4º—Instrumentos para ejercer la fiscalización. Los instrumentos para ejercer la fiscalización son: el marco normativo y técnico, el plan de organización interno y los sistemas informáticos necesarios para la administración de sus procesos y para el análisis de datos.

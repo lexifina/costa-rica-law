@@ -1,0 +1,1 @@
+Artículo 34.—Jornada laboral. El jerarca nombrará por tiempo indefinido al Auditor y Subauditor, de acuerdo a los procedimientos establecidos, según sea el caso y con una jornada laboral de tiempo completo.

@@ -1,0 +1,1 @@
+Artículo 20.—Código de Ética. El auditor elaborará, cumplirá y aplicará a su personal, un Código de Ética, que contendrá las principales normas personales y de trabajo que servirán para garantizar el cumplimiento de aspectos como independencia funcional y de criterio, objetividad, profesionalismo y otros que deben tener en cuenta al llevar a cabo sus labores.

@@ -1,0 +1,3 @@
+SECCIÓN VIII
+Comunicación de resultados
+Artículo 68.—Conferencia final. De previo a la comunicación escrita y oficial del informe, la Auditoría Interna debe realizar la comunicación verbal de resultados o conferencia final, ante quienes tengan parte en los asuntos, documentando el proceso en todas sus etapas y archivará y custodiará éstos en el expediente respectivo; tal requerimiento no procede cuando se trate de relaciones de hechos y puede darse en el transcurso de un estudio de control interno, para que se corrijan sobre la marcha asuntos que la auditoría interna informaría luego por escrito.

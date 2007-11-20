@@ -1,0 +1,1 @@
+Artículo 62.—Plan anual de trabajo. El plan anual de trabajo de la auditoría, es su marco de acción a corto plazo, estará fundamentado en la planificación estratégica y los lineamientos emitidos por la Contraloría General de la República. Las modificaciones a dicho plan deben documentarse y comunicarse al Jerarca y a la Contraloría General de la República de manera oportuna.

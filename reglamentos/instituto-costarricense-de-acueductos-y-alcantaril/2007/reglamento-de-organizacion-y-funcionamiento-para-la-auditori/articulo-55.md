@@ -1,0 +1,1 @@
+Artículo 55.—Información. La potestad del titular de la auditoría interna, para solicitar en el ejercicio de sus competencias, datos e información de la institución a entidades bancarias y otras autoridades externas, quedaría formalmente autorizado por el jerarca con la publicación de este Reglamento, a la que se hará referencia en gestiones de esa naturaleza.

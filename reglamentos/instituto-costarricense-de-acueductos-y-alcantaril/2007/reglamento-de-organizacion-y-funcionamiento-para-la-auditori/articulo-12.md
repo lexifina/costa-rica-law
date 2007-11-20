@@ -1,0 +1,1 @@
+Artículo 12.—Visión. La visión de la Auditoría Interna es mejorar constantemente la calidad de los servicios que se prestan, cumpliendo las funciones que le competen, de manera objetiva, independiente, planificada con base en riesgos, oportuna, profesional, sistematizada, conforme a la legislación y las regulaciones técnicas vigentes, que aseguren un mayor valor agregado.

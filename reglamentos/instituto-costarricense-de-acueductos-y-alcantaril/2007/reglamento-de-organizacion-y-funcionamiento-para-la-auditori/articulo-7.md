@@ -1,0 +1,1 @@
+Artículo 7º—Obligación de disponer de un sistema de control interno. Los entes y órganos sujetos a la Ley General de Control Interno, están obligados a disponer de un sistema de control interno adecuado, el cual deberá ser aplicable, completo, razonable, integrado, congruente con sus competencias y atribuciones institucionales y proporcionar seguridad en su cumplimiento.

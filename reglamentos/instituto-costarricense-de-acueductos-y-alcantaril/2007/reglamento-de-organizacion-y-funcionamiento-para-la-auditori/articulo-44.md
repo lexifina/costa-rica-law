@@ -1,0 +1,1 @@
+Artículo 44.—Pericia y debido cuidado profesional. El personal de la Auditoría Interna debe cumplir con los requisitos de pericia y cuidado profesional establecidos en el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público.

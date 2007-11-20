@@ -1,0 +1,1 @@
+Artículo 33.—Definición de requisitos. El Instituto, según la Ley General de Control Interno, definirá en sus respectivos manuales de cargos y clases, las funciones y los requisitos para los cargos de Auditor y Subauditor, de acuerdo con los lineamientos que emita la Contraloría General de la República al respecto.

@@ -1,0 +1,1 @@
+Artículo 8º—Responsabilidad. Será responsabilidad del jerarca y del titular subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional y realizar las acciones necesarias para instituirlo, aplicarlo, darle permanencia y mejorarlo constantemente, así como garantizar su efectivo cumplimiento.

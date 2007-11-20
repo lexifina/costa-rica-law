@@ -1,0 +1,1 @@
+Artículo 26.—Evidencia. La Auditoría Interna, deberá asegurar que en el ejercicio de sus procesos, se obtendrá evidencia suficiente y competente, que sustenten adecuadamente sus hallazgos, conclusiones y recomendaciones, las que deben documentarse de acuerdo a las técnicas y prácticas que se establezcan en el manual respectivo.

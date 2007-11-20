@@ -1,0 +1,1 @@
+Artículo 59.—Sistemas de información. La auditoría interna deberá contar con sistemas de administración (planificación, codificación, referencias, archivo, custodia, seguimiento de recomendaciones) y de manejo de datos para cumplir sus funciones, sean estos manuales o computarizados.
