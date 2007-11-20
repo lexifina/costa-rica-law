@@ -1,0 +1,1 @@
+Artículo 21.—Obligaciones. Los Policías Municipales están obligados a cumplir íntegramente su jornada de trabajo, respetar el horario y lugar asignados por sus superiores y no abandonarán el servicio hasta presentar un informe diario de las labores realizadas para poner en conocimiento de sus superiores cualquier incidencia.

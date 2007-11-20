@@ -1,0 +1,1 @@
+Artículo 11.—Faltas. Sin perjuicio de lo que establezca la ley al respecto, existirán tres tipos de faltas leves, graves y muy graves.
