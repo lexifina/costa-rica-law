@@ -1,0 +1,1 @@
+Artículo 3º—Disposiciones supletorias: En defecto de disposición expresa del presente reglamento, el reconocimiento del sobresueldo se regirá por los lineamientos de política salarial y empleo que anualmente emita el Poder Ejecutivo y las disposiciones que al respecto dicte la Autoridad Presupuestaria.

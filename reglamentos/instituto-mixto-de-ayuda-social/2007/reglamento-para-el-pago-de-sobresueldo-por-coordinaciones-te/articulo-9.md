@@ -1,0 +1,1 @@
+Artículo 9º—Del ejercicio simultáneo de dos cargos: Para los cargos señalados en este reglamento, solo aplicará el pago de un sobresueldo por servidor, aunque desempeñe dos o más cargos de estos simultáneamente.

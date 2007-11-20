@@ -1,0 +1,1 @@
+Artículo 12.—Del trámite administrativo correspondiente: Recursos Humanos confeccionará la respectiva acción de personal, debiendo entregar copia de ésta al servidor afectado para que se dé por enterado de este acto administrativo.
