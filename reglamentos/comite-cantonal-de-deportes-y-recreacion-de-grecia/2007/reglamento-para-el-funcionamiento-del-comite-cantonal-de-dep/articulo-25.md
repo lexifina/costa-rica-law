@@ -1,0 +1,1 @@
+Artículo 25.—Los Comités Comunales estarán conformados por una Junta Directiva, y de su seno se nombrarán: un presidente, un vicepresidente, un tesorero, un secretario y un vocal. Sus funciones serán reguladas por el Comité.

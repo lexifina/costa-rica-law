@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las finanzas
+Artículo 48.—Las Municipalidades de la República incluyendo los Concejos Municipales de distrito, podrán incluir en sus presupuestos ordinarios anuales, una subvención para los programas deportivos, así como para programas de actividad física, recreación y deporte para todos, en la respectiva jurisdicción. Dicha subvención no será inferior al tres por ciento y conforme al Código Municipal, con la finalidad de que éstos programas puedan ser organizados por los Comités Cantonales. Esta subvención se girará directamente al respectivo Comité Cantonal y se aplicará solamente en los programas contemplados en el Plan de Trabajo Anual aprobado por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 51.—Los ingresos del Comité Cantonal solamente se podrán invertir en actividades y obras de interés deportivo y recreativo ubicadas dentro de los límites del cantón o fuera de ésta cuando la participación en un programa lo amerite.

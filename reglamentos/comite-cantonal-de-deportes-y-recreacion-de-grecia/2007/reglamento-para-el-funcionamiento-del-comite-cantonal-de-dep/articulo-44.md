@@ -1,0 +1,3 @@
+Artículo 44.—El presidente es el encargado de conceder la palabra, siguiendo el orden en que ésta se solicite, salvo moción de orden que se presente, caso en el cual se dará la palabra al proponente de la moción y a cualquier otro miembro que la apoye y luego a los miembros que se opongan. La presidencia observará el orden en que se pidió la palabra para cumplir con lo aquí dispuesto.
+Cuando un miembro del Comité esté en el uso de la palabra no puede ser interrumpido, salvo que él mismo permita una breve intervención sobre el tema al cual debe aprobar.
+El presidente llamará la atención cuando las discusiones se aparten del tema que se está tratando.

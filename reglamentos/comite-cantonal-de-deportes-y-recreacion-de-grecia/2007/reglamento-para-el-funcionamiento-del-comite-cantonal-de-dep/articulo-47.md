@@ -1,0 +1,1 @@
+Artículo 47.—Las actas aprobadas deberán llevar obligatoriamente las firmas del presidente y del secretario del Comité. El libro de actas será autorizado por la Municipalidad, las hojas serán selladas y foliadas por éste.

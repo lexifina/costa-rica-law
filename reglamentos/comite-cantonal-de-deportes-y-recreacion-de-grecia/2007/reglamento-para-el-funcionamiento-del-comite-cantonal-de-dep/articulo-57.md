@@ -1,0 +1,1 @@
+Artículo 57.—Corresponde al Comité Cantonal de Deportes y Recreación como ente superior, aprobar las normas o disposiciones que sobre la administración de las instalaciones deportivas y recreativas públicas promulguen las Juntas o Comité Administradores, sobre las cuales deberá pronunciarse la Municipalidad.

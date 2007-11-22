@@ -1,0 +1,1 @@
+Artículo 56.—La Junta Directiva del Comité Cantonal de Deportes y Recreación deberá nombrar a sus representantes en cada una de las Instalaciones Deportivas y Recreativas, para su administración y con fundamento a la Ley Nº 7800.

@@ -1,0 +1,1 @@
+Artículo 59.—Las instituciones gubernamentales respectivas, así como las municipalidades no extenderán los permisos en actividades que no sean deportivo-recreativas dentro de instalaciones deportivas del cantón, si la solicitud no lleva el aval del Comité Cantonal.

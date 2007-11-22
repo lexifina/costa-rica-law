@@ -1,0 +1,1 @@
+Artículo 14.—El lugar, día y hora para las sesiones, será acordada por la Junta Directiva y comunicada por escrito a la Municipalidad y a todas las organizaciones comunales en forma directa y por medio de boletines informativos. Deberán efectuar un mínimo de cuatro sesiones ordinarias al mes y extraordinariamente las que fueren necesarias.

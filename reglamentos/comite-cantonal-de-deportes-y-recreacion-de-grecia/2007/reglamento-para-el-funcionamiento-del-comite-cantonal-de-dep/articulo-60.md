@@ -1,0 +1,1 @@
+Artículo 60.—El Comité Cantonal de Deportes y Recreación supervisará que en la regulación de uso de las instalaciones deportivas, el Comité o la Junta Administrativa, le de preferencia a las actividades deportivo-recreativas antes que cualquier otra actividad.

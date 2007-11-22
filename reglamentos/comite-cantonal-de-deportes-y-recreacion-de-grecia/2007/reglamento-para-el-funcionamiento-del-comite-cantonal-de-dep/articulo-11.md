@@ -1,0 +1,2 @@
+Artículo 11.—La sustitución de uno o más miembros de la Junta Directiva del Comité Cantonal por la causa que sea, será para completar el resto del período correspondiente al miembro sustituto.
+El sustituto podrá ocupar el cargo dentro de la Junta Directiva que ocupó el sustituido o bien la misma Junta Directiva dictaminará si procede un nuevo nombramiento del Directorio. Para ello se tomará en cuenta la mejor conveniencia para su funcionamiento.

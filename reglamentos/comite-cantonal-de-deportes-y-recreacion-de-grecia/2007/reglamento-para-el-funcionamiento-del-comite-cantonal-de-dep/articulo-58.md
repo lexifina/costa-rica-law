@@ -1,0 +1,1 @@
+Artículo 58.—En el uso de las instalaciones Deportivas y Recreativas existentes, el Comité Cantonal y los Comunales, velarán porque las Juntas y Comités administradores le den participación a todos los grupos deportivos o recreativos organizados de la comunidad.

@@ -1,0 +1,1 @@
+Artículo 2º—Las actividades deportivas y recreativas del Cantón estarán a cargo del Comité Cantonal de Deportes y Recreación y por delegación de éste, de los Comités Comunales. El primero estará adscrito a la Municipalidad y los segundos y terceros al Comité Cantonal de Deportes y Recreación respectivo.

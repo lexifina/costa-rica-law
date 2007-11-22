@@ -1,0 +1,1 @@
+Artículo 42.—Los acuerdos y fallos quedan firmes con votación de mayoría simple de los miembros del Comité, igual cantidad de votos se requiere para modificar un acuerdo o fallo que haya quedado firme.

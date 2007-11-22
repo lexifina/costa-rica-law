@@ -1,0 +1,1 @@
+Artículo 46.—La copia del Proyecto de acta de cada sesión deberá entregarse a los miembros del Comité Cantonal de Deportes y Recreación o Comités Comunales, según se trate, a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.

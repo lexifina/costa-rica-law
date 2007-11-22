@@ -1,0 +1,1 @@
+Artículo 37.—Corresponde al Comité conocer en sus sesiones los proyectos, planes, estudios y conflictos relacionados con el mismo, los que deben ser presentados para su conocimiento en forma escrita. Los miembros pueden acoger mociones de particulares que se relacionen con el deporte y la recreación, para que sean conocidos por el Comité en las sesiones que éste celebre.

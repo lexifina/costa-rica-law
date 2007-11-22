@@ -1,0 +1,1 @@
+Artículo 52.—Los dineros provenientes de ingresos por actividades deportivas no se usarán para actividades de índole personal. El cumplimiento de esta disposición ocasionará al responsable la expulsión del órgano correspondiente y deberá reintegrar los dineros o recursos que haya utilizado.

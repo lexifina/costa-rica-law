@@ -1,0 +1,1 @@
+Artículo 13.—En la primera sesión de instalación de la Junta Directiva del Comité Cantonal de Deportes y Recreación, nombrarán de su seno un Presidente, un Vicepresidente, un Secretario, un Tesorero y un Vocal.
