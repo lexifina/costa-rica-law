@@ -1,0 +1,1 @@
+Artículo 15.—De las readecuaciones. En casos calificados, la Dirección de Banca de Desarrollo podrá autorizar readecuaciones de pago a las organizaciones auxiliares o a los prestatarios directos del Banco, con recursos FOCARI, para lo cual rige lo dispuesto en el Reglamento de Arreglos de Pago de Operaciones de Crédito del Banco Popular y de Desarrollo Comunal.

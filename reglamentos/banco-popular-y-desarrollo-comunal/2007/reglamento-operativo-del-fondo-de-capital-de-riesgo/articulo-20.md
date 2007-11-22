@@ -1,0 +1,1 @@
+Artículo 20.—Sobre la comisión de formalización. En los préstamos otorgados a los prestatarios directos del Banco, éste cobrará una única comisión de formalización que podrá ser de hasta dos puntos porcentuales sobre el monto total aprobado.

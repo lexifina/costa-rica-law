@@ -1,0 +1,1 @@
+Artículo 30.—Responsabilidad del fondo. El aval a liquidar en cada operación de crédito se calculará tomando en consideración el porcentaje avalado sobre el saldo del principal, al momento en que haya que hacer la liquidación. El avalista no asume responsabilidad por intereses, ni costas, ni otros rubros que se generen en el proceso judicial y extrajudicial.

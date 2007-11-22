@@ -1,0 +1,1 @@
+Artículo 18.—Plazos de los préstamos. El plazo máximo de los créditos será de 180 meses. La Gerencia General Corporativa podrá establecer plazos menores, de conformidad con las políticas que emita al efecto.
