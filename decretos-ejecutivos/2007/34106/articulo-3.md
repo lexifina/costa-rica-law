@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los artículos 7º, 8º, 11, del 59 al 63, 138 y los Transitorios I, II y III del Decreto Ejecutivo Nº 23880-SP: Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública.
