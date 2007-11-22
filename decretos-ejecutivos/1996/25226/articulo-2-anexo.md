@@ -9,6 +9,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
@@ -35,13 +37,16 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
 • Reportar cambios de propietario, administradores, domicilio, razón social, nombre comercial u otros cambios que modifiquen los alcances de la Declaratoria Turística original otorgada.
 • Comunicar cambios de dirección. De no reportarse cambios el medio o Jugar de notificaciones, se entenderá que se acepta la notificación en el lugar y medios inicialmente señalados.
-d) Certificación notarial donde se indique que el monto del capital social es de tres millones de colones como mínimo. En el caso de personas físicas se solicita, certificación de un Contador Público Autorizado, en donde conste que la persona posee un capital de tres millones de colones como mínimo, a fin de invertirlo en esta empresa turística. El ICT ajustará anualmente el capital mínimo al inicio del año fiscal, con base en el nivel de devaluación oficial, determinado por el Banco Central, del ejercicio fiscal anterior.
-e) Debe presentarse tres corresponsalías con Agencias de Viajes en el exterior, las cuales vendrán debidamente autenticadas por el cónsul costarricense que corresponda, y a su vez por el Ministerio de Relaciones Exteriores de Costa Rica. La autenticación que realiza el cónsul se referirá a la firma de la persona que expida el documento, o bien al notario que está dando fe de la veracidad de la firma, del representante de la empresa que extienda la corresponsalía. Si la corresponsalía se expide en otro idioma, deberá además presentarse versión traducida de la misma.
+d) (Así eliminado por el artículo 2° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
+e) Debe presentarse tres cartas de relaciones comerciales con empresas turísticas nacionales.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 Toda certificación deberá tener una vigencia no mayor de tres meses.
 GUÍA DE REQUISITOS PARA OBTENER LA
 DECLARATORIA TURÍSTICA
@@ -53,6 +58,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa, en el caso de persona jurídica.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
@@ -69,6 +76,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene, cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa, en el caso de persona jurídica.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
@@ -87,6 +96,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa, en el caso de persona jurídica.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
@@ -107,12 +118,14 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTÉRPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa, en el caso de persona jurídica.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.
 • Reportar cambios de propietario, administradores, domicilio, razón social, nombre comercial u otros cambios que modifiquen los alcances de la Declaratoria Turística original otorgada.
 • Comunicar cambios de dirección. De no reportarse cambios el medio o lugar de notificaciones, se entenderá que se acepta la notificación en el lugar y medios inicialmente señalados.
-d) En el caso de personas jurídicas que soliciten la actividad de Agencia de Viajes, deben presentar una certificación notarial donde se indique que el monto del capital social es de tres millones de colones, como mínimo. En el caso de personas físicas se solicita, certificación de un Contador Público Autorizado, en donde conste que la persona posee un capital de tres millones de colones como mínimo, a fin de invertirlo en esta empresa turística. El ICT ajustará anualmente el capital mínimo al inicio del año fiscal, con base en el nivel de devaluación oficial, determinado por el Banco Central, del ejercicio fiscal anterior.
+d) (Así eliminado por el artículo 2° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 Toda certificación deberá tener una vigencia no mayor de tres meses.
 GUÍA DE REQUISITOS PARA OBTENER
 LA DECLARATORIA TURÍSTICA
@@ -125,6 +138,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 • Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 • Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 • Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa, en el caso de persona jurídica.
 c) Declaración jurada, firmada por el interesado para personas físicas o del representante legal para personas jurídicas, de los siguientes compromisos:
 • Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.

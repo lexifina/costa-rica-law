@@ -4,6 +4,8 @@ a) Certificado de carencia de antecedentes penales de los representantes legales
 Si los apoderados son costarricenses, deben presentar una certificación de antecedentes penales del Registro Judicial.
 Si las personas son extranjeras, los certificados deberán ser emitidos por la INTERPOL o por la institución correspondiente de su lugar de procedencia, salvo que cumplan con lo dispuesto en el punto siguiente. Ambos documentos deberán contar con las autenticaciones del cónsul costarricense respectivo y del Ministerio de Relaciones Exteriores de Costa Rica.
 Si la persona extranjera cuenta con status vigente de residente rentista, residente pensionado, o tiene cédula de residencia vigente, puede presentar el certificado de antecedentes extendido por el Registro Judicial costarricense en lugar de los documentos señalados en el punto anterior.
+En aquellas naciones donde se demuestre, mediante documento oficial, que no se extienden certificaciones de carencia de antecedentes penales, se puede presentar una declaración jurada notarial de tres testigos que de fe de la buena conducta y solvencia moral del interesado.
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 34221 del 22 de noviembre de 2007).
 b) Certificación, registral o notarial, de la personería jurídica de la empresa.
 c) Declaración jurada, firmada por el interesado si es persona física ó por el representante legal si es persona jurídica, de los siguientes compromisos:
 Que la empresa tendrá como objeto exclusivo o principal las actividades turísticas.

@@ -18,3 +18,4 @@ Reglamento de las Empresas y Actividades Turísticas
 | 3 | 2000-11-06 | Decreto Ejecutivo 29058 (2000-11-06) |
 | 4 | 2002-03-05 | Decreto Ejecutivo 30207 (2002-03-05) |
 | 5 | 2007-09-10 | Decreto Ejecutivo 34046 (2007-09-10) |
+| 6 | 2007-11-22 | Decreto Ejecutivo 34221 (2007-11-22) |
