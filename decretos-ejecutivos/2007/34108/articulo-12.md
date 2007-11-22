@@ -1,0 +1,2 @@
+Artículo 12.—Nombramiento y nivel jerárquico. La (el) Ministra (o) de Cultura y Juventud realizará el nombramiento del Auditor Interno por tiempo indefinido en estricto apego a lo dispuesto tanto en el artículo 31 de la Ley General de Control Interno. El Auditor Interno dependerá orgánicamente de la (el) Ministra (o).
+Este sólo podrá ser removido del cargo por justa causa, conforme con dictamen previo y vinculante de la Contraloría General de la República, en aplicación de las disposiciones del artículo 15 de la Ley Orgánica de la Contraloría General de la República.
