@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Créditos Hipotecarios en el Seguro de Invali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-11 | la propia norma |
+| 2 | 2007-11-22 | Reglamento 8204 (2007-11-22) |
