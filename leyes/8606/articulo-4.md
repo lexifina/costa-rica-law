@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Régimen migratorio y de tránsito en fronteras
+El Ministerio de Relaciones Exteriores y Culto emitirá el carné de identidad que regulará la condición migratoria de misión internacional de los funcionarios extranjeros de HFHI, así como la de sus cónyuges y familiares a su cargo.
+Cuando futuros funcionarios extranjeros de HFHI y sus familiares, sean de una nacionalidad con visa restringida, a criterio de las autoridades migratorias, y requieran trasladarse a la República de Costa Rica por primera vez, o por viajes iniciales, el Ministerio citado emitirá a dichas autoridades la autorización escrita para el ingreso sin dilación.
