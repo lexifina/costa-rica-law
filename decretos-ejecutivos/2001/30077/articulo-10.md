@@ -1,18 +1,6 @@
 Artículo 10.—Direcciones y Oficinas adscritas al Despacho Ministerial. Las siguientes Oficinas con sus respectivas funciones están adscritas al Despacho Ministerial. El control y dirección de ellas corresponderá al Ministro, salvo encargo expreso del superior jerarca a favor del Viceministro:
-a) Dirección de la Sociedad Civil, cuyas funciones de conformidad con el Decreto Ejecutivo N° 27485-MINAE del 13 de octubre de 1998, publicado en La Gaceta N° 245, del 17 de diciembre de 1998, son las siguientes:
-Establecer y mantener los vínculos necesarios para la coordinación entre el MINAE y las organizaciones de Sociedad Civil de cualquier índole, en todo proceso de la gestión ambiental que así lo amerite.
-Facilitar los procesos de diálogo entre actores civiles de la gestión ambiental y el Ministerio.
-Coordinar con otras entidades públicas y privadas programas y proyectos relacionados con la participación ciudadana en la toma de decisiones de gestión ambiental.
-Fomentar el establecimiento de los espacios de coordinación necesarios para el cumplimiento de la normativa ambiental así como todas aquellas actividades que signifiquen una mejoría en el estado de los recursos naturales.
-Contribuir al establecimiento de mecanismos de cooperación entre las organizaciones de la sociedad civil y las diversas dependencias públicas para la aplicación vigente de la materia ambiental.
-b) Dirección de Género, cuyas funciones de conformidad con el Decreto Ejecutivo N° 27346-MINAE, del 26 de agosto de 1998, publicado en La Gaceta N° 199 del 14 de octubre de 1998, son las siguientes:
-Garantizar que tanto en la legislación promovida por el Ministerio como en la formulación de sus políticas se incluyan los principios de equidad e igualdad.
-Dar seguimiento para que al interior del MINAE se garantice el trato igualitario para mujeres y hombres en cuanto a condiciones laborales.
-Garantizar la incorporación de la perspectiva de equidad de género en la programación, planificación, asignación presupuestaria y ejecución de proyectos y acciones de este Ministerio.
-Asesorar en materia de género a las diferentes dependencias del MINAE.
-Elaborar proyectos de investigación en relación con la temática de género.
-Coordinar acciones interinstitucionales para promover proyectos ambientales que impulsen acciones afirmativas para mujeres.
-Atender denuncias y darles seguimiento en casos de discriminación y acoso sexual.
+a) (Así derogado por el artículo 1° del decreto ejecutivo N° 34204 del 23 de noviembre de 2007).
+b) (Así derogado por el artículo 1° del decreto ejecutivo N° 34204 del 23 de noviembre de 2007).
 c) Oficina de Prensa y Relaciones Públicas, cuyas funciones son las siguientes:
 Implementar la política de divulgación del Ministerio hacia los medios de comunicación y al público en general.
 Preparar los comunicados de prensa ante las consultas realizadas y de las cuales deba ser informada la opinión pública.
