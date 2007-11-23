@@ -1,1 +1,0 @@
-Artículo 2°—La Dirección tendrá como finalidad facilitar la participación de la ciudadanía en la gestión ambiental. Para ello diseñará y ejecutará programas, proyectos e iniciativas que faciliten las relaciones de los diferentes segmentos de la sociedad civil con la gestión pública ambiental.
