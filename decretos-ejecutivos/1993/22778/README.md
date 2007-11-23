@@ -13,3 +13,4 @@ Declara Zonas Reservadas para Fines Utilidad Pública Indicadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-13 | la propia norma |
+| 2 | 2007-11-23 | Decreto Ejecutivo 34303 (2007-11-23) |
