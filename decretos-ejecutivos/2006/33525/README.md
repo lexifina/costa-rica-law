@@ -14,3 +14,4 @@ Reglamento para Otorgar el Certificado "Bandera Ecológica"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-13 | la propia norma |
+| 2 | 2007-11-23 | Decreto Ejecutivo 34204 (2007-11-23) |
