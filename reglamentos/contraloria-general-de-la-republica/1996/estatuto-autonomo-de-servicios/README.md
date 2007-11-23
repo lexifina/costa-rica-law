@@ -24,3 +24,4 @@ Estatuto Autónomo de Servicios
 | 9 | 2005-04-14 | Reglamento 29 (2005-04-14) |
 | 10 | 2006-07-07 | Resolución 4 (2006-07-07) |
 | 11 | 2007-09-20 | Resolución 5 (2007-09-20) |
+| 12 | 2007-11-23 | Resolución 53 (2007-11-23) |

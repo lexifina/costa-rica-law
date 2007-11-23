@@ -1,1 +1,1 @@
-Artículo 57.—El tiempo trabajado en otras instituciones públicas se tomará en cuenta para determinar la cantidad de días de vacaciones que le corresponde al servidor, de conformidad con lo regulado en el artículo precedente. En este caso se reconocerán los períodos anuales completos. Si hubiere trabajado fracciones en una o varias instituciones, el tiempo se sumará para determinar los años completos por reconocer.
+Artículo 57.—(Así derogado mediante resolución N° R-CO-53 del 23 de noviembre de 2007).
