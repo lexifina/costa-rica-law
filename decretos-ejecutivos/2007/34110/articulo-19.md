@@ -1,0 +1,1 @@
+Artículo 19.—La Ministra (o) de Cultura y Juventud o el máximo jerarca del órgano desconcentrado, podrán ajustar en el mes de diciembre de cada año, la clasificación indicada en el Artículo 18 sobre los salarios, así como la clasificación de los niveles de las garantías señalada en el artículo 17.

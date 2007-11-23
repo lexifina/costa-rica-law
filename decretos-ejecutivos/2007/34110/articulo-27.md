@@ -1,0 +1,1 @@
+Artículo 27.—El encargado del control de las cauciones que por culpa o dolo no informe a la Ministra(o) de Cultura y Juventud o al jerarca del órgano desconcentrado, cualquier anomalía será solidariamente responsable del perjuicio ocasionado.
