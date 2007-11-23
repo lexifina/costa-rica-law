@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+El inmueble citado se describe así: su naturaleza es terreno de potrero, situado en el distrito 3º, San Miguel; cantón III, Santo Domingo; provincia, Heredia. Linda: al norte, con la quebrada Tierra Blanca; al sur, con camino público a San Isidro de Heredia; al este, con Ricardo Vargas Zúñiga, y al oeste, con Albertino Alvarado Arce. Mide: dos mil ochocientos cuarenta y cuatro metros y cuatro decímetros cuadrados, según el plano número Hcuatro cinco uno uno cinco tres-noventa y siete (Nº H-451153-97).
