@@ -1,0 +1,1 @@
+Artículo 24.—Del Incumplimiento en la aplicación de sanciones: La omisión por parte de un jerarca en la aplicación del régimen de sanciones ante incumplimiento injustificado de lo dispuesto en este Manual de Procedimientos será considerado falta grave y se sancionará conforme a lo establecido en el artículo 23 de este Manual.

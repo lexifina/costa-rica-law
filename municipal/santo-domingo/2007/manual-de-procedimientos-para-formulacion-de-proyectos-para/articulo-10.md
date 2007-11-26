@@ -1,0 +1,6 @@
+Artículo 10.—Sobre los plazos para presentación de Proyectos:
+a) De proyectos u obras para Formulación Plan Presupuesto Ordinario; conforme lo establecido en el Artículo 94 del Código Municipal:
+“En la primera semana de julio, los Concejos de Distrito deberán presentar una lista de sus programas, requerimientos de financiamiento y prioridades basados en el Plan de Desarrollo Municipal. De conformidad con las necesidades municipales, el Concejo, incluirá los gastos correspondientes en el presupuesto municipal.”
+b) Formuladas las necesidades, los Concejos de Distrito deberán presentar a más tardar el 22 de julio de cada año, los proyectos de inversión, según lo dispuesto en el artículo sétimo de éste Manual.
+c) Las Unidades Técnicas o administrativas deberán presentar a la Autoridad Superior Administrativa, con copia a la Dirección Financiera, los proyectos de Inversión en Obras a más tardar el 22 de julio de cada año conforme a lo establecido en éste Manual, de igual manera deberán proceder conforme a los requerimientos de insumos, materiales y servicios.
+d) El Alcalde Municipal deberá presentar a más tardar el 05 de agosto de cada año los proyectos debidamente aprobados a la Dirección Financiera a efectos de valorar la posibilidad de inclusión en el Plan Presupuesto del ejercicio económico siguiente.

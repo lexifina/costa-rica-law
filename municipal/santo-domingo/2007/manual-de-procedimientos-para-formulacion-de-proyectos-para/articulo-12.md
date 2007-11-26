@@ -1,0 +1,1 @@
+Artículo 12.—De la presentación del Plan Presupuesto: El Proyecto de Presupuesto y Plan Operativo del ejercicio económico siguiente, deberá ser presentado por el Alcalde Municipal al Concejo Municipal a más tardar el 30 de agosto de cada año, según lo dispuesto en el artículo 95, del Código Municipal.

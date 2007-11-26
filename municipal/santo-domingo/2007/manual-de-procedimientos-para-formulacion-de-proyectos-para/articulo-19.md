@@ -1,0 +1,1 @@
+Artículo 19.—De la obligatoriedad de cumplir con los requisitos: El incumplimiento de los requisitos establecidos en éste Manual para solicitud de cambios a Proyectos de Inversión, imposibilitará la formulación de los documentos de índole presupuestaria correspondientes.

@@ -1,0 +1,1 @@
+Artículo 3º—De la solicitud de Modificaciones de proyectos u Obras: La solicitud de cambios a los proyectos u obras, que redunden en cambios al Plan Presupuesto, deberán efectuarse por la Administración, Concejo Municipal o Concejos de Distrito, conforme se disponga en éste manual de procedimiento y el bloque de legalidad. Deberá efectuarse por escrito.

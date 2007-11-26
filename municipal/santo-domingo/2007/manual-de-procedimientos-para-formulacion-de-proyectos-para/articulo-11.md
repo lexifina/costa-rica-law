@@ -1,0 +1,1 @@
+Artículo 11.—De la Obligatoriedad de cumplir con los requisitos: El incumplimiento de los requisitos establecidos en éste Manual, imposibilitará la consideración de proyectos en el Plan Presupuesto del Ejercicio económico siguiente, salvo casos debidamente justificados por motivos de fuerza mayor.

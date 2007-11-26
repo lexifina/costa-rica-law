@@ -1,0 +1,1 @@
+Artículo 8º—Del respeto al Plan de Desarrollo Municipal: Los proyectos de inversión propuestos deberán responder conforme a la normativa vigente a la satisfacción de necesidades reales tanto en el ámbito administrativo, como de infraestructura y servicios, debiéndose buscar la satisfacción de las necesidades básicas existentes y la satisfacción del Plan de Desarrollo Municipal.

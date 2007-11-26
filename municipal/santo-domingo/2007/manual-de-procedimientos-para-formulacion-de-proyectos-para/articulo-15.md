@@ -1,0 +1,5 @@
+Artículo 15.—De los tipos de cambios: La Administración, Concejos de Distrito, Concejo Municipal o Grupos Organizados, podrán solicitar el Cambio en Proyectos de Inversión conforme a las siguientes modalidades:
+a) Cambios dentro de un Proyecto de Inversión; corresponderá al cambio requerido en un determinado proyecto que modifique su meta o los componentes del costo, pero no la naturaleza del proyecto o finalidad propuesta.
+b) Cambios de un Proyecto de Inversión por otro, corresponderá al cierre de un proyecto de inversión por otro de igual o distinta naturaleza.
+c) Ampliación del proyecto, corresponderá a la necesidad de incluir recursos adicionales o modificar las metas existentes a efectos de ampliar los alcances del proyecto inicial formulado.
+d) Cambio en el período de ejecución de un proyecto, corresponderá al cambio de una meta formulada de un semestre a otro, se considerará en este Ítem la postergación de ejecución de un proyecto; el adelantar una meta se podrá justificar de manera posterior en el Informe de Evaluación de Cumplimiento, salvo caso de índole especial o que ameriten el postergar el cumplimiento de otra meta.

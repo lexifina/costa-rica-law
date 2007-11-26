@@ -1,0 +1,1 @@
+Artículo 17.—De la obligatoriedad de colaboración: Las unidades técnicas administrativas deberán suministrar su colaboración conforme a lo dispuesto en el Artículo 10 de éste Manual, en lo que corresponde a Proyectos de Inversión.

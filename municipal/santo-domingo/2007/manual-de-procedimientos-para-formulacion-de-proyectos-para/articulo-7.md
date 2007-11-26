@@ -1,0 +1,1 @@
+Artículo 7º—De la Autoridad Superior Administrativa: El Alcalde Municipal podrá proponer al Concejo Municipal la inclusión de Proyectos de Inversión distritales, locales o generales, conforme a las necesidades de los habitantes del Cantón.
