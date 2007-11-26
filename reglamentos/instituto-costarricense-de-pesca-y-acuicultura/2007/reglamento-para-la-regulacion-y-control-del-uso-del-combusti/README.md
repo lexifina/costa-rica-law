@@ -15,3 +15,4 @@ Reglamento para la Regulación y Control del Uso del Combustible a Precio Prefer
 | --- | --- | --- |
 | 1 | 2007-02-02 | la propia norma |
 | 2 | 2007-07-19 | Acuerdo 273 (2007-07-19) |
+| 3 | 2007-11-26 | Acuerdo 432 (2007-11-26) |

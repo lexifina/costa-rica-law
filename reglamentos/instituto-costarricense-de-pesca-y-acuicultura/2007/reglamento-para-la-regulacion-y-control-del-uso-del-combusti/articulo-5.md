@@ -9,6 +9,6 @@ d) Una copia o fotocopia de la(s) Factura(s) de Compra del Combustible (de Conta
 e) Una copia o fotocopia de la Orden de Compra de Combustible a Precio Preferencial anterior con el sello de RECOPE como prueba fehaciente de que la misma se hizo efectiva.
 f) Una copia o fotocopia de la Boleta de Control de Gasto en la Estación de Servicio, Centros de Almacenamiento y Distribución debidamente autorizados, Organizaciones Pesqueras con tanques propios o arrendados y/o en los tanques de la propia embarcación, firmada por el beneficiario o persona debidamente autorizada en cada retiro (Anexo 3).
 g) Formulario de Registro de Datos de Capturas por viaje de pesca, de acuerdo con las estipulaciones del INCOPESCA (Anexo 4).
-h) Una copia o fotocopia de la bitácora debidamente cerrada.
-i) Declaración Jurada en la que el pescador declare bajo fe de juramento que la documentación aportada es cierta.
+h) (Así eliminado por acuerdo A.J.D.I.P./432-2007 del 26 de noviembre de 2007).
+i) (Así eliminado por acuerdo A.J.D.I.P./432-2007 del 26 de noviembre de 2007).
 j) Los beneficiarios físicos o jurídicos deberán estar al día en sus obligaciones con la CCSS y demostrarlo mediante documento idóneo expedido por la CCSS, por una única vez.
