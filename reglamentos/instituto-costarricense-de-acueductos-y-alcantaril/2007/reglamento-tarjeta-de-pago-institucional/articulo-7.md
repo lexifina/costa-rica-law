@@ -1,0 +1,1 @@
+Artículo 7º—El Director Financiero designará los funcionarios encargados de tramitar ante el Banco todas las solicitudes de emisión, modificación, cancelación, reemplazo y reposición de Tarjeta de Pago Institucional.

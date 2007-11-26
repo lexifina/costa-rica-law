@@ -1,0 +1,1 @@
+Artículo 38.—La Dirección Financiera queda facultada para realizar el pago mensual por concepto de gasto del combustible al Banco, cuando por algún incumplimiento, no se realice oportunamente el registro contable de la cuenta por pagar al Banco, debiendo denunciar esta situación ante la Dirección Jurídica.

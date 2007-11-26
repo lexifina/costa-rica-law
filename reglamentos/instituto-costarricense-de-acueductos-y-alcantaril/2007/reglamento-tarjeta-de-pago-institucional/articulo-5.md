@@ -1,0 +1,1 @@
+Artículo 5º—Es responsabilidad de los Directores Nacionales, Regionales, Jefaturas o Encargado de Grupo velar por el cumplimiento de este reglamento y denunciar ante la Dirección Jurídica el uso inadecuado de la Tarjeta de Pago Institucional por parte de un funcionario.

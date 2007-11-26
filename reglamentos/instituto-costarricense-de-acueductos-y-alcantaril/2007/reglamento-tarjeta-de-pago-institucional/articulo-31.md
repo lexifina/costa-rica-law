@@ -1,0 +1,1 @@
+Artículo 31.—El encargado verifica que la documentación soporte (voucher, factura y cupones) no contengan alteraciones, tachaduras, borrones o cualquier otro tipo de situación que pueda causar duda de su autenticidad. Cualquier error en el cupón interno debe salvarse con una nota aclaratoria debidamente firmada por el tarjetahabiente.

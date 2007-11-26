@@ -1,0 +1,1 @@
+Artículo 3º—Todos los pagos que se realicen por medio de la Tarjeta de Pago Institucional deberán contar con el contenido presupuestario autorizado y será responsabilidad de la persona designada de llevar el control presupuestario de velar porque esta disposición se cumpla.

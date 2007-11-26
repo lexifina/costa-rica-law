@@ -1,0 +1,1 @@
+Artículo 34.—El funcionario que haya sido designado por el Director de cada área para realizar la conciliación del estado de cuenta de cada tarjeta deberá investigar las partidas pendientes de conciliación, realizar los ajustes contables que correspondan, a efecto de certificar la exactitud de la cuenta por pagar al Banco, antes del cierre contable de cada mes.
