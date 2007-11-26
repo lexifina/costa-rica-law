@@ -28,7 +28,7 @@ a. Entidad acreedora de la operación crediticia.
 b. Identificador de la operación crediticia dada por la entidad acreedora.
 c. Saldo de la operación crediticia.
 d. Monto no desembolsado o fiado/avalado (en caso de líneas de crédito, cartas de crédito, garantías, etc. o en caso de que la persona consultada ostente la condición de fiador/avalista en relación con la operación crediticia).
-e. Cuota equivalente mensual de la operación crediticia.
+e. (Así eliminado mediante sesión N° 687 del 26 de noviembre de 2007).
 Situación histórica
 a. Entidad acreedora de la operación crediticia.
 b. Identificador de la operación crediticia dada por la entidad acreedora.
