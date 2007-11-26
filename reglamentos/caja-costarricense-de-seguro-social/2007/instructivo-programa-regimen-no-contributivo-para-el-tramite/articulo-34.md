@@ -1,0 +1,1 @@
+Artículo 34.—De la recuperación de sumas. Para el trámite de recuperación de sumas pagadas en forma improcedente, deberá observarse en todo momento el cumplimiento de lo dispuesto en la normativa aplicable al efecto.

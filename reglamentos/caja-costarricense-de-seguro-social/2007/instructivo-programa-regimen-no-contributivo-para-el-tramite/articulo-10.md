@@ -1,0 +1,1 @@
+Artículo 10.—De la tenencia de una única propiedad. De acuerdo con lo establecido en el artículo 5º del Reglamento del Programa Régimen No Contributivo, el solicitante no podrá tener más de una propiedad (bien inmueble) inscrita a su nombre.

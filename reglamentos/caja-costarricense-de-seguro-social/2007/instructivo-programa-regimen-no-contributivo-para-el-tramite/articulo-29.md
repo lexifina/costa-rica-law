@@ -1,0 +1,1 @@
+Artículo 29.—De la Comisión de Apelaciones del Régimen No Contributivo. La integración, objetivos y actividades que realiza la Comisión de Apelaciones del Régimen No Contributivo, se regirá por lo establecido en el Instructivo que para tales efectos dicte la Gerencia División de Pensiones.

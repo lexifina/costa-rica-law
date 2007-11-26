@@ -1,0 +1,5 @@
+CAPÍTULO VI
+De las actividades de control y seguimiento
+Artículo 30.—De las Unidades Administrativas que participan en el control de las pensiones del RNC. Tanto el Área de Cuenta Individual y Control de Pagos como el Área de Gestión Informática de la Dirección Administración de Pensiones, velarán porque se ejecuten los procesos necesarios para dar seguimiento a los beneficios que se encuentran en curso de pago, esto es, cruce de información para determinar pensionados que laboran, los que lleguen a recibir otro tipo pensión, cambios de estado civil, defunciones, monto del ingreso per cápita, entre otros.
+Por otra parte, los resultados de los cruces de información, serán remitidos a la Unidad Administrativa correspondiente, para que realice los procedimientos tendientes a suspender o cancelar los beneficios.
+Lo anterior, sin detrimento de que la Unidad Administrativa correspondiente implemente los mecanismos de control respectivos para verificar y garantizar que las pensiones en curso de pago se ajusten a la normativa vigente.

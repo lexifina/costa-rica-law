@@ -1,0 +1,15 @@
+CAPÍTULO IV
+De los casos que requieren informe social
+y atención de denuncias
+Artículo 26.—De la solicitud de informes de trabajo social. De conformidad con los artículos 4º, 5º, 6º, 7º, 8º, 20 y 21, del Reglamento del Programa del Régimen No Contributivo, el Analista de Pensiones deberá de verificar si el caso requiere de la intervención de Trabajo Social, por lo que, además de las situaciones contempladas en este instructivo, procede solicitar dicha intervención en las siguientes situaciones:
+a) Cuando se determine que en el grupo familiar de la persona solicitante existen parientes en edad productiva, con obligación legal de brindarle alimentos y que no realizan actividad laboral según información que conste en la Declaración Jurada.
+b) Cuando del análisis de la Declaración Jurada se identifican hijos que brindan apoyo económico o en especie al solicitante de pensión y no integran su grupo familiar.
+c) Cuando la única propiedad que posee el solicitante no es su lugar de domicilio o la misma supera las medidas establecidas según análisis del estudio registral, se debe trasladar el caso a Trabajo Social con la Declaración Jurada de Bienes Inmuebles según sea el caso (vivienda o terreno) debidamente llena por la parte interesada, con el fin de determinar si ésta se convierte en una fuente generadora de ingresos.
+d) Cuando el domicilio habitual de la persona solicitante corresponde a un hogar o albergue.
+e) Cuando se trate de solicitantes por invalidez menores de edad, esto con el fin de que se investigue su estado de necesidad ante los problemas de salud que presenta.
+f) Cuando del análisis de la Declaración Jurada y de la consulta a los diferentes mecanismos de control a los que tiene acceso la Administración, se identifica que el solicitante de pensión u otros miembros del grupo familiar, posee otros bienes de significado económico, que sean o puedan ser fuentes generadoras de ingreso.
+g) Cuando según el análisis de la Declaración Jurada se perfile a la persona solicitante como posible indigente, previa coordinación con Trabajo Social.
+h) Los casos que a solicitud de la Comisión de Apelaciones de RNC, requieren para mejor resolver un Informe Social o ampliación del ya existente por recomendación de Trabajo Social de la Dirección Administración de Pensiones.
+i) Cuando el pensionado, se encuentre hospitalizado o privado de libertad por más de tres meses y de su pensión dependen económicamente familiares con los que tiene obligación legal de brindarle alimentos.
+j) En casos muy calificados, cuando durante el procedimiento administrativo que se debe seguir para la suspensión, revisión o cancelación del beneficio, la parte interesada presenta nuevos elementos que indican que su situación económica-familiar ha desmejorado, o cuando la administración, para mejor resolver, determina que requiere actualizar la información económica-familiar del pensionado al no poderse verificar mediante los mecanismos de control con que se cuenta.
+k) Cuando se trate de trámites de pensión por viudez y la solicitud de pensión se presenta un año después del deceso del cónyuge o compañero.

@@ -1,0 +1,1 @@
+Artículo 24.—De la notificación del endoso. Cuando exista endoso, se deberá emitir una resolución dirigida al endosatario y al beneficiario, la cual se deberá notificar personalmente al primero, en la que se establezcan expresamente las obligaciones y eventuales responsabilidades que asume el endosatario por la administración de las pensiones giradas.

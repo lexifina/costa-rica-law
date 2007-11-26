@@ -1,0 +1,1 @@
+Artículo 13.—Beneficios a otorgar en una misma vivienda. Las personas que no formen parte del grupo familiar pero que habiten en la misma vivienda, y cuyos miembros no tienen la obligación legal de brindarles alimentos, podrán acceder a estos beneficios siempre y cuando cumplan con los requisitos establecidos.

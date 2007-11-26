@@ -1,0 +1,1 @@
+Artículo 9º—De la definición de grupo familiar. Se define como grupo familiar el conjunto de personas que viven en una misma vivienda con una relación de parentesco por consanguinidad. Para el cálculo del ingreso per cápita deberá de procederse tal y como lo establece el artículo 4º del Reglamento del Programa Régimen No Contributivo.

@@ -1,0 +1,6 @@
+Artículo 23.—De los endosos. Se define endoso, como la figura de pago por medio de la cual, el pensionado del Programa Régimen No Contributivo, de forma expresa, voluntaria y en el uso de sus facultades, autoriza a la Caja, para que el retiro del monto de pensión lo realice un tercero.
+En el caso de un menor de edad, el endoso se hará a la persona que tenga a su cargo la guarda y crianza del menor.
+Por otra parte, en casos de menores costarricenses pensionados del Régimen No Contributivo, cuyos padres sean de otra nacionalidad, no nacionalizados y sin cédula de residencia, se endosará la pensión a nombre de la persona que los padres determinen.
+Cuando se trate de pensionados que no se encuentran en el pleno disfrute de sus capacidades físicas y mentales, el pago de la pensión se endosará a la persona que demuestre ser responsable de asistir al pensionado, es decir, que se encarga de brindarle los cuidados necesarios y se responsabilice de atender todos sus asuntos.
+Para cualquiera de las situaciones antes indicadas, se deberán llenar formularios y declaración jurada que se establezcan.
+Cuando el Analista de Pensiones no pueda determinar a quien corresponde el endoso, se coordinará con Trabajo Social para que realice la investigación que permita resolver lo correspondiente. En todo caso, no se podrá autorizar más de un endoso a una persona física.

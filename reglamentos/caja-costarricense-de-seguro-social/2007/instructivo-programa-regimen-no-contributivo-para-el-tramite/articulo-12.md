@@ -1,0 +1,2 @@
+Artículo 12.—Beneficios a otorgar en un mismo grupo familiar. En un mismo grupo familiar, solamente se podrá otorgar una pensión del Régimen No Contributivo, tal y como lo establece el artículo 10 del Reglamento.
+Esta restricción no incluye la pensión que se pueda otorgar a un solicitante de Parálisis Cerebral Profunda, lo cual se rige por lo establecido en el artículo 7º del Reglamento del Programa Régimen No Contributivo, donde los requisitos para acceder a una pensión de esta naturaleza son distintos.

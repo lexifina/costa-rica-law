@@ -1,0 +1,7 @@
+CAPÍTULO V
+De la atención de recursos de revocatoria
+y apelación
+Artículo 28.—Atención de recursos de revocatoria y/o apelación. Toda resolución que se dicte en el otorgamiento, denegatoria, suspensión o cancelación de la pensión, deberá ser notificada personalmente al interesado, su representante o persona autorizada debidamente acreditada en el expediente para el efecto. Asimismo, deberá constar en la resolución, acta de notificación que indique expresamente la fecha, hora, nombre y firma del notificador y notificado.
+Dichas resoluciones, podrán ser impugnadas por el interesado dentro de los tres días hábiles posteriores a su notificación, mediante la interposición de los recursos ordinarios establecidos en la Ley General de la Administración Pública.
+Corresponderá a la administración, recibir los recursos de revocatoria, de apelación y/o recursos de revocatoria con apelación en subsidio.
+Las Unidades Tramitadoras de Pensiones, deben resolver de forma oportuna, diligente y expedita lo correspondiente al recurso de revocatoria para luego trasladar inmediatamente la apelación, junto con el expediente administrativo debidamente foliado, a la Comisión de Apelaciones del Régimen No Contributivo de la Gerencia División de Pensiones. De recibirse solamente el recurso de apelación, procede remitirlo inmediatamente a la citada Comisión junto con el respectivo expediente administrativo debidamente foliado.
