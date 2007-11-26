@@ -535,7 +535,13 @@ PARA EL SUELO, DE MATERIA TEXTIL
 CAPÍTULO 58:
 TEJIDOS ESPECIALES; SUPERFICIES TEXTILES CON MECHÓN
 INSERTADO; ENCAJES; TAPICERÍA; PASAMANERÍA; BORDADOS
+58.01 – 58.03 Un cambio a la partida 58.01 a 58.03 desde cualquier otro capítulo, excepto de la partida 52.04 a 52.07 ó 55.08 a 55.11.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 208-2007, aprobada por decreto ejecutivo N° 34191 del 26 de noviembre de 2007)
 58.01 - 58.05 a/
+58.04 -Un cambio a la partida 58.04 desde cualquier otra partida.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 208-2007, aprobada por decreto ejecutivo N° 34191 del 26 de noviembre de 2007)
+58.05 -Un cambio a la partida 58.05 desde cualquier otro capítulo, excepto de la partida 52.04 a 52.07 ó 55.08 a 55.11.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 208-2007, aprobada por decreto ejecutivo N° 34191 del 26 de noviembre de 2007)
 58.06 - Un cambio a la partida 58.06 desde cualquier otro capítulo.
 58.07 - Un cambio a la partida 58.07 desde cualquier otra partida.
 58.08 - 58.09 - Un cambio a la partida 58.08 a 58.09 desde cualquier otro capítulo.
