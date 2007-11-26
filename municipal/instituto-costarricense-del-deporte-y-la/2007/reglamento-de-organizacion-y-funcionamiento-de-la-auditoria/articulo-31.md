@@ -1,0 +1,2 @@
+Artículo 31.—Independencia funcional y de criterio. La actividad de Auditoría Interna al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados, debe estar libre de injerencias del Consejo y de los demás órganos de la administración activa.
+El Auditor Interno y los funcionarios de la Auditoría Interna, deberán ejercer su actividad con total independencia funcional y de criterio respecto al Consejo y a los demás órganos de la Administración.

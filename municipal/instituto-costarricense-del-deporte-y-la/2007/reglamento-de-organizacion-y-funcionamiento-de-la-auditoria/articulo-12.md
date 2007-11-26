@@ -1,0 +1,6 @@
+Artículo 12.—Organización. La Auditoría Interna está organizada en una sola unidad funcional, de acuerdo con la organización del ICODER, la cual estará a cargo del Auditor Interno. La participación del auditor en las sesiones del jerarca en su calidad de asesor o su asistencia a las reuniones del Consejo será bajo las siguientes condiciones:
+a. Asistencia con voz pero sin voto.
+b. Para brindar su asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+c. Pedir y vigilar que su opinión conste en las actas respectivas.
+d. Posibilidad de posponer su opinión, cuando de acuerdo con su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente o conveniente.
+e. Ni la presencia ni el silencio del Auditor Interno en las sesiones del Consejo, releva a dicho Órgano Colegiado de la responsabilidad de respetar el ordenamiento jurídico y técnico en lo que acuerde. No obstante el silencio, ello no impide que el Auditor Interno emita su opinión posteriormente de manera oportuna, sea de forma verbal en otra sesión, o por escrito.
