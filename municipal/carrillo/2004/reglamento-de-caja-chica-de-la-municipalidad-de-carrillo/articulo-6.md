@@ -1,2 +1,2 @@
-Artículo 6º—Ningún pago por Caja Chica podrá exceder de la suma de ¢150.000,00 (ciento cincuenta mil colones exactos).
-(Así reformado mediante acuerdo Nº 7 tomado en sesión Nº 41 del 10 de octubre del 2006)
+Artículo 6º—Ningún pago por Caja Chica podrá exceder de la suma de ¢.1.000.000,00 (un millón de colones). La Proveeduría podrá realizar adquisiciones de Bienes y Servicios, pero deberá solicitar como mínimo dos cotizaciones en aquellos montos que superen los ¢.300.000,00 (trescientos mil colones) y llevar expedientes debidamente foliados por cada compra que se realice.
+(Así reformado mediante acuerdo N° 8 de la sesión N° 48 del 27 de noviembre de 2007)
