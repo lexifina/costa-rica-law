@@ -1,0 +1,3 @@
+Artículo 49.—Presentación de las denuncias: Las denuncias de los ciudadanos por supuestos actos de corrupción previstos en la Ley y demás normativas, podrán presentarse ante la Auditoría Interna de la Municipalidad de Nicoya.
+El órgano competente examinará, dentro de un plazo razonable, la admisibilidad de la denuncia, dictando el acto respectivo, el cual deberá ser comunicado al denunciante que hubiera señalado lugar para oír notificaciones, dándola por aceptada o rechazándola.
+Las denuncias deberán ser presentadas de tal manera que le permita a la auditoría Interna dar el seguimiento con facilidad y oportunidad.

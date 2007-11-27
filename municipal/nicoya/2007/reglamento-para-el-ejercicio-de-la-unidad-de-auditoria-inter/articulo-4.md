@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de la auditoría interna: Este reglamento aplica a todas las dependencias de la Municipalidad de Nicoya, así como otras organizaciones públicas o privadas, en el tanto manejen por cualquier título fondos públicos que les sean transferidos por dicho municipio.
