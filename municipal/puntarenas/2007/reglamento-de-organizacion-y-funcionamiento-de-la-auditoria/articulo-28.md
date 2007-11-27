@@ -1,0 +1,1 @@
+Artículo 28.—Procesamiento de la información. El Auditor Interno y el personal a su cargo deberán analizar, evaluar y registrar suficiente información de manera que sustente a cabalidad los resultados y observaciones de los informes de Auditoría Interna.

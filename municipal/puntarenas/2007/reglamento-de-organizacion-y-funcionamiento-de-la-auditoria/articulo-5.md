@@ -1,0 +1,1 @@
+Artículo 5º—Ideas rectoras. La auditoria interna debe de establecer y asegurarse de mantener actualizados su visión, misión, políticas y procedimientos que regirán el accionar de la auditoria interna.

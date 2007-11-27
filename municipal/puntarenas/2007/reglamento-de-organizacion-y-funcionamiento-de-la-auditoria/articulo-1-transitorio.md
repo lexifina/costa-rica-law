@@ -1,0 +1,3 @@
+Disposiciones Transitorias
+Transitorio único.—Las normativas de este reglamento serán aplicables desde su publicación, pero no podrá dárseles efecto retroactivo sobre aquellos actos que pudieran ir en perjuicio de los auditores internos y demás funcionarios que presten sus servicios en la Auditoría Interna a la fecha de publicación de esta normativa. Por ende, las medidas adoptadas por la administración que puedan presentar tal característica, incluidas las modificaciones de requisitos para los cargos respectivos, solo tendrán efecto para los nombramientos que se realicen en el futuro.
+Puntarenas, 05 de noviembre del 2007.

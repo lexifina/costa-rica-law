@@ -1,0 +1,1 @@
+Artículo 34.—Relaciones de hechos. Las relaciones de hecho que elabore la Auditoría Interna deben ejecutarse en estricto cumplimiento de las directrices y lineamientos que dicte la Contraloría General de la República, así como las demás normativas legales aplicables.

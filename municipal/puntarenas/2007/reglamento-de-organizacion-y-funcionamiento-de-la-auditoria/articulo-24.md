@@ -1,0 +1,1 @@
+Artículo 24.—Potestades de la auditoria interna. Serán potestades del auditor y demás personal de la auditoria interna todas aquellas contenidas en el artículo 33 de la Ley General de Control Interno, así como las que establezca otra normativa legal y técnica vigente.
