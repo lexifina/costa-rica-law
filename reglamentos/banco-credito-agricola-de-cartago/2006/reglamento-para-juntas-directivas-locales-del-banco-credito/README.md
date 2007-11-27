@@ -14,3 +14,4 @@ Reglamento para Juntas Directivas Locales del Banco Crédito Agrícola de Cartag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-05 | la propia norma |
+| 2 | 2007-11-27 | Reglamento 8089 (2007-11-27) |
