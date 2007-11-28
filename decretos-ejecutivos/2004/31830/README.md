@@ -14,3 +14,4 @@ Reforma decreto que Adjudica los Procesos de Contratación Administrativa al Pro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-15 | la propia norma |
+| 2 | 2007-11-28 | Decreto Ejecutivo 34182 (2007-11-28) |
