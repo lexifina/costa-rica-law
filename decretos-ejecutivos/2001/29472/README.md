@@ -15,3 +15,4 @@ Adjudica los Procesos de Contratación Administrativa al Proveedor Institucional
 | --- | --- | --- |
 | 1 | 2001-05-14 | la propia norma |
 | 2 | 2004-05-10 | Decreto Ejecutivo 31830 (2004-05-10) |
+| 3 | 2007-11-28 | Decreto Ejecutivo 34182 (2007-11-28) |
