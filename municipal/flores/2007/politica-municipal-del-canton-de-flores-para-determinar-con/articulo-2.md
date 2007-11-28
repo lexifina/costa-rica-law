@@ -1,0 +1,1 @@
+Artículo 2º—La entrega de los terrenos destinados al uso público, deberá realizarse por cuenta y costo del particular interesado, de previo al visado de los planos de los lotes disponibles para el propietario.
