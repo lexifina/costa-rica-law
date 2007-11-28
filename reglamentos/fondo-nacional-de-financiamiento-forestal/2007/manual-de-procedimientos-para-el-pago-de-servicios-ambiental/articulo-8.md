@@ -6,6 +6,8 @@
 8.2.3 La ubicación y área del inmueble indicada tanto en el plano como en la Base de Datos del Catastrado Nacional, debe coincidir con lo que se indica en la Base de Datos del Registro de la Propiedad.
 8.3. Cuando se trate de fincas sin inscribir, el plano deberá estar a nombre de quien se dice poseedor del inmueble.
 8.4. No tener anotaciones, inmovilizaciones, demandas de cualquier tipo, embargos preventivos o practicados.
+Se exceptúa de esta prohibición aquellas fincas que aun cuando tengan anotaciones judiciales, estas no se refieran a litigio sobre la titularidad del inmueble pudiendo gozar de Pago por Servicios Ambientales modalidad conservación de bosque; mediante el procedimiento de año vencido.
+(Así adicionado el párrafo anterior mediante acuerdo sexto de la sesión N° 16 del 28 de noviembre de 2007)
 8.5. En caso de tener limitaciones del IDA, BANHVI u otra similar, deberá contar con la autorización escrita de dicha entidad para suscribir el contrato y para establecer limitaciones. Salvo aquellos casos en que se encuentren autorizados por un convenio de cooperación interinstitucional.
 8.6. Podrán ejecutarse proyectos de protección y reforestación en fincas arrendadas, siempre y cuando el arrendamiento esté inscrito en el Registro Nacional por el plazo de ejecución del proyecto. Siempre que no sobrepasen las trescientas hectáreas, por finca o conjunto de fincas colindantes entre sí o cercanas en un radio de cinco kilómetros, por persona física o jurídica, por Área de Conservación.
 En todos los casos, el propietario del inmueble deberá suscribir el contrato de pago de servicios ambientales conjuntamente con el arrendante.
