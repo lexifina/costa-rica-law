@@ -1,3 +1,4 @@
+(Nota: Mediante el artículo 1° del decreto ejecutivo N° 34505 de 26 de noviembre de 2007, se publica la resolución N° 213-2007 (COMIECO-XLVI), la cual prorroga por seis (6) meses el inicio de la vigencia de la Resolución N° 188-2006 (COMIECO-XL) que se aprueba en este decreto, de tal forma que comenzará a regir a partir del 19 de mayo de 2008).
 Nº 33725
 EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE COMERCIO EXTERIOR
 LA MINISTRA DE SALUD, Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
