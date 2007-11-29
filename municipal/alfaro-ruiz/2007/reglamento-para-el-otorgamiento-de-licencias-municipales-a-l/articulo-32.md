@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales de publicación
+Artículo 32.—Para efectos de terceros se somete a consulta pública no vinculante el presente proyecto de Reglamento mediante publicación en el Diario Oficial La Gaceta, por el plazo de 10 días hábiles, los cuales una vez transcurridos el Concejo procederá a emitir formal pronunciamiento sobre el fondo.

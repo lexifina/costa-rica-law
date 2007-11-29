@@ -1,0 +1,2 @@
+Transitorio 2º—Se otorga un plazo de seis meses, contados a partir de la fecha de entrada en vigencia del presente Reglamento para el otorgamiento de licencias a la actividad del porteo, de tal modo que los actuales patentados en la categoría de estacionamiento; pero que desarrollan como única actividad lucrativa el porteo de personas, se adecuen a la regulación dispuesta y se presenten al Departamento de Patentes para efectuar la modificación respectiva en la nominación de su licencia y especificación de la actividad que autoriza la misma.
+Alfaro Ruiz, 24 de abril del 2007.

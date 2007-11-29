@@ -1,0 +1,1 @@
+Artículo 6º—Las licencias Municipales que sean otorgadas para ejercer la actividad lucrativa del transporte privado de personas (porteo) en el cantón, no son transferibles a terceros y serán de carácter renovable cada año.
