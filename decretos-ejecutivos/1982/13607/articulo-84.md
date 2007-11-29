@@ -1,1 +1,0 @@
-ARTICULO 84.-Las indicaciones que el agrimensor o los particulares escribieron en la minuta de calificación, no serán tomadas en cuenta. Si se comprobare alteración de la minuta de calificación el plano o documento será suspendido hasta nueva presentación.

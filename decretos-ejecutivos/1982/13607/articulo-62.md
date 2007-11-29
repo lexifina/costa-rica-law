@@ -1,1 +1,0 @@
-ARTICULO 62.- Las leyendas y rótulos que aparezcan en el plano, deben ser escritos con corrección gramatical, con caracteres claros legibles e inconfundibles, de manera que puedan ser leídos en la posición normal del plano, es decir, con el norte apuntando hacia el margen superior del formato.

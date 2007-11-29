@@ -1,1 +1,0 @@
-ARTICULO 29.- Estableada la concordancia entre una o más finca inscritas en el Registro Público de la Propiedad y un predio catastral o alguna o varias de las parcelas que lo componen, se anotará en el folio real.

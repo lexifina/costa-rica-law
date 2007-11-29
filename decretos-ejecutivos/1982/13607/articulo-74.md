@@ -1,1 +1,0 @@
-ARTICULO 74.- El Catastro Nacional no registrara ningún plano de lotes de urbanización que afecte el plano general de la misma presentado visado per el INVU y la municipalidad cualquier variación en ese sentido implicará un nuevo visado del plano a inscribir coa los cambios efectuados en la disposición de los lotes.

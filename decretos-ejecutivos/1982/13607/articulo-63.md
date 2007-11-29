@@ -1,1 +1,0 @@
-ARTICULO 63.- El Catastro no aceptará borrones, tachaduras, o enmiendas hechas sobre las copias y rechazará planos con firmas copiadas por medio de máquinas o facsímil. Tampoco aceptará leyendas o rótulos que tengan carácter de propaganda.

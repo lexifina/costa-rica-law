@@ -1,1 +1,0 @@
-ARTICULO 11.- Coincidencia entre los datos del testimonio y del certificado: Los datos consignados en el testimonio deben coincidir con los estipulados en el certificado catastral, y cualquier inconsistencia en este sentido, será motivo que impida la inscripción del título.

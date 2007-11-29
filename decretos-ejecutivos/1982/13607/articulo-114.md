@@ -1,1 +1,0 @@
-ARTICULO 114.- El presente reglamento regirá a partir del mes siguiente a su publicación en el Diario Oficial y deroga expresamente los Decretos Ejecutivos N0.9829-J y No.9682-J, de fechas 29 de marzo de 1979 y 1° de marzo de 1979 respectivamente, así como cualquier otro que se le oponga.

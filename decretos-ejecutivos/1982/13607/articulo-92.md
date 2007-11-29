@@ -1,1 +1,0 @@
-ARTICULO 92- El Catastro Nacional suministrará los servidos contemplados en el presente reglamento, en el menor tiempo posible y se considerarán en tramite una vez cancelados: tasas, derechos y timbres de ley.

@@ -1,2 +1,0 @@
-ARTÍCULO 70.—Para cualquier modificación de la escritura de constitución de un condominio, referente a la forma, cabida o derrotero de una o varias de sus filiales, se deberá previamente inscribir en el Catastro Nacional los planos catastrados correspondientes a las fincas a modificar, con su información real, producto de un levantamiento de agrimensura.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 29397 del 6 de marzo de 2001)

@@ -1,1 +1,0 @@
-ARTICULO 85.- Si el agrimensor no estuviere de acuerdo con la calificación. podrá dirigirse en forma oral o escrita, al Jefe del Departamento respectivo. Si dicho funcionario resuelve que la inscripción no procede, el profesional responsable, podrá apelar oralmente o por escrito ante el Director General para que éste resuelva en un plazo no mayor de diez días.

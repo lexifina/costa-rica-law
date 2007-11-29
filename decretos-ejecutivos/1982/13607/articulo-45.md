@@ -1,1 +1,0 @@
-ARTICULO 45.- Cuando de la información existente en el Catastro Nacional se desprenda que un particular pretende inscribir a su nombre un terreno destinado a camino publico, inscribirá dicho plano con la nota de advertencia que corresponda.

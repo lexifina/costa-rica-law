@@ -1,1 +1,0 @@
-ARTICULO 93- Cuando se presente un plano para su inscripción o se solicite un resello, se pueden acreditar los datos referentes al Registro Público de la Propiedad presentando una certificación extendida por esa dependencia, para efectos catastrales.

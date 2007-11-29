@@ -1,2 +1,0 @@
-ARTICULO 42.- Únicamente los planos de agrimensura inscritos en el Catastro Nacional surtirán efectos legales. La registración catastral no convalida los documentos que sean nulos o anulables conforme con la ley, ni subsanará sus defectos.
-El objetivo principal del plano de agrimensura es contribuir al establecimiento, mejora y mantenimiento del catastro, definir en forma inequívoca la parcela o predio y dar publicidad a sus linderos; garantizar al propietario y al Estado la corrección técnica del documento.

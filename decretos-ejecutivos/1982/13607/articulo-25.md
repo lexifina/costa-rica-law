@@ -1,1 +1,0 @@
-ARTICULO 25.- El levantamiento catastral no se realizará al mismo tiempo en todo el territorio nacional sino sucesivamente en distintas zonas o áreas determinadas, una vez que éstas sean declaradas zonas catastrales mediante Decreto Ejecutivo, a propuesta del Catastro Nacional, hasta abarcar toda la superficie del país.

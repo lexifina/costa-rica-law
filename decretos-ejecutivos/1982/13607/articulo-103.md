@@ -1,1 +1,0 @@
-ARTICULO 103.- Incurrirá en delito aquella persona que destruya, deteriore, remueva o cambie de lugar los hitos torres de observación y señales que haya establecido el Catastro Nacional. Por tal falta serán penados con quince días a un año de prisión o con treinta a cien días multa.

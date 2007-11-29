@@ -1,3 +1,0 @@
-ARTICULO 37.- El Catastro Nacional dará aviso al Registro Público de la Propiedad de los casos que a continuación se expresan:
-a) Las fincas inscritas cuya correspondencia o identidad no haya podido establecerse, con todo o parte de alguna de las parcelas o predios catastrales ubicados en el cantón en que, según el Registro Público de la Propiedad, está situada dicha finca; y
-b) Las fincas inscritas cuya superficie total coincida con la de otra u otras fincas también inscritas y cuyos dueños, según el Registro Público de la Propiedad; no hayan estado, según las fichas catastrales respectivas, en posesión de las mismas durante los trabajos catastrales a que se refiere el artículo 28.

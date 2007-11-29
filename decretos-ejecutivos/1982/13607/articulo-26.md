@@ -1,1 +1,0 @@
-ARTICULO 26.- Los predios serán delimitados teniendo en cuenta la realidad de la posesión y la coincidencia o conformidad de los respectivos poseedores y colindantes o disparidades u objeciones de unos y otros en cuanto a la identificación o fijación de los linderos que separan sus propiedades.

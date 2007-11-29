@@ -1,2 +1,0 @@
-ARTÍCULO 67.—En todo plano de agrimensura de fincas filiales se deberá incluir un diseño esquemático con la distribución arquitectónica del piso o nivel en que se ubica la finca filial, indicando pasillos, áreas comunes y privativas, accesos, áreas verdes, piscinas, así como cualquier otro elemento que facilite la identificación de la filial. En ese diseño se deberá resaltar la ubicación de la finca filial a catastrar.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 29397 del 6 de marzo de 2001)
