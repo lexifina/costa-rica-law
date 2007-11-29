@@ -1,0 +1,1 @@
+Artículo 11.—No tendrá derecho a la pensión por discapacidad, el bombero permanente que con este fin provocare su estado, o que su discapacidad se produzca como consecuencia de su participación en la comisión de un delito.

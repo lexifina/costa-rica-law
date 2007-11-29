@@ -1,0 +1,1 @@
+Artículo 5º—Aquellas personas que se consideren con derecho a una pensión bajo este Fondo, deberán presentar los requisitos que a criterio de la Junta Administradora del Fondo, se consideren necesarios de acuerdo a cada categoría.

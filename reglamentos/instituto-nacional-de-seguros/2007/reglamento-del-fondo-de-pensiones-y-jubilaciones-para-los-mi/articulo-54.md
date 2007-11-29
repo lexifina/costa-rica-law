@@ -1,0 +1,1 @@
+Artículo 54.—Los pagos que deban efectuarse a los miembros del Fondo empiezan a hacerse efectivos un (1) mes después de la fecha en que, de acuerdo con el Reglamento, se haya adquirido el respectivo derecho. Los pagos que deben hacerse a los beneficiarios pueden efectuarse dentro de un plazo de sesenta (60) días a contar de la fecha en que adquieren el derecho.

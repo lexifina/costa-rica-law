@@ -1,0 +1,3 @@
+Artículo 47.—El Departamento de Contabilidad confeccionará los estados financieros del Fondo de acuerdo con el Plan de Cuentas dictado por la Superintendencia.
+Los estados financieros del Fondo deberán remitirse a la Superintendencia de conformidad con la periodicidad y plazos establecidos por el Ente Supervisor.
+Los estados financieros con corte al cierre fiscal de cada año, deberán ser refrendados por el auditor interno, y dictaminados por auditores externos. Además deben estar disponibles para su consulta por parte de los interesados y publicarse en un medio de comunicación interno en la entidad en que se creó el Fondo.
