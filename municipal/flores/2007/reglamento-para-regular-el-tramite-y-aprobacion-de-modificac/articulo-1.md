@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE FLORES
+REGLAMENTO PARA REGULAR EL TRÁMITE Y APROBACIÓN
+DE MODIFICACIONES PRESUPUESTARIAS PARA LA
+MUNICIPALIDAD DE FLORES
+El Concejo Municipal en concordancia con lo que le confiere el Código Municipal en su artículo 4, mediante acuerdo 1132-07 de la sesión ordinaria 106 del 23 de octubre del 2007, aprobó el, Reglamento para Regular el Trámite y Aprobación de Modificaciones Presupuestarias para la Municipalidad de Flores.
+El presente Reglamento contiene los lineamientos legales establecidos en el Reglamento Sobre Variaciones al Presupuesto de los Entes y Órganos Públicos, Municipalidades y entidades de Carácter Municipal, R-CO-67-2006, de la Contraloría General de la República, publicado en La Gaceta Nº 170 del 5 de setiembre del 2006.
+CAPITULO I
+Definiciones para efectos de este reglamento
+Artículo 1º—Las siguientes definiciones se tomarán en cuenta en este reglamento.
+Autoridad superior administrativa: Alcalde (sa).
+Aprobación presupuestaria interna: Proceso por medio del cual el jerarca superior u órgano colegiado con la competencia necesaria, conoce y estudia el contenido del presupuesto formulado o de las variaciones que se le presenten, en función de los objetivos y metas institucionales, de igual forma deberán verificar el fiel cumplimiento de las disposiciones legales y técnicas que le son aplicables. Como resultado de este proceso, el jerarca superior u órgano colegiado o a quien designen, emite mediante el acto administrativo establecido para el efecto, su aprobación o improbación, total o parcial al presupuesto inicial y sus variaciones. Esta aprobación otorgará validez y eficacia jurídica, permitiendo su ejecución para el periodo respectivo, únicamente en aquellos casos en que se requiera de la aprobación presupuestaria externa.
+Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos, los principios generales y las reglas de la ciencia o de la técnica.
+Clasificador por objeto del gasto: Conjunto de cuentas de gastos, ordenados y agrupados de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o la operación financiera que se esté efectuando.
+Jerarca superior: Superior jerárquico del ente o lo que es lo mismo el órgano colegiado, en este caso el Concejo Municipal, quien ejerce la máxima autoridad.
+Modificación Presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados, y que tenga por objeto, disminuir o aumentar los diferentes conceptos de éstos, o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado.
+Nivel de aprobación presupuestaria interna: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria interna por parte del jerarca superior u órgano colegiado con la competencia necesaria para ello.
+Ámbito de aplicación: Esta normativa deberá atenderse, en lo que corresponda, por parte de los órganos, unidades ejecutoras, fondos, programas y cuentas, que no presentan el presupuesto para aprobación del órgano contralor, de conformidad con lo señalado en el párrafo tercero del artículo 18 de la Ley Orgánica de la Contraloría General de la República Ley N° 7428 y su respectivo Reglamento.
