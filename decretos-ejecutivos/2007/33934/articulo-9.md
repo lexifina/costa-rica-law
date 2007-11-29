@@ -1,0 +1,1 @@
+Artículo 9º—En el caso de extranjeros no residentes con contraindicación para la vacunación contra fiebre amarilla que provengan de países de riesgo, deberán aportar previo al ingreso a territorio nacional, dictamen médico válido avalado por la autoridad sanitaria nacional del país donde proviene.

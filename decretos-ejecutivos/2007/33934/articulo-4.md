@@ -1,0 +1,1 @@
+Artículo 4º—Todas las personas que habitan en el país, que van a viajar a los países considerados de riesgo y que tienen intenciones de regresar a Costa Rica, deberán vacunarse al menos 10 días antes de su salida. Este requisito será verificado por la persona de la línea aérea encargada de la revisión de los documentos de salida.

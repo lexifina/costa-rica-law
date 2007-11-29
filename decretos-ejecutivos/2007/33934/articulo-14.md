@@ -1,0 +1,1 @@
+Artículo 14.—Para la reconfección del certificado, la persona interesada deberá presentar de nuevo el comprobante válido firmado por un profesional autorizado, donde se indique el nombre de la persona, la fecha de vacunación y el número de lote de la vacuna.

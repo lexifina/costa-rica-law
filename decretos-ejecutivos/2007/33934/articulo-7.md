@@ -1,0 +1,1 @@
+Artículo 7º—También quedan exentas del requisito de vacunación las personas que habiendo estado en los países considerados de riesgo, antes de ingresar en el territorio nacional han permanecido por espacio de al menos 6 días, en un país que no es de riesgo y no han desarrollado fiebre en ese período.

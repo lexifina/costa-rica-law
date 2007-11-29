@@ -1,0 +1,1 @@
+Artículo 6º—Quedan exentos del requisito de vacunación contra fiebre amarilla las personas que en su trayectoria hacia Costa Rica hayan estado en tránsito por países en riesgo, en aeropuertos, puertos y puestos interfronterizos de los países de riesgo contemplados en el artículo 2º del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 18.—Los Ministerios de Salud, de Seguridad Pública y de Gobernación y Policía y de Relaciones Exteriores y Culto deberán coordinar lo necesario, para efectos de cumplimiento del presente Decreto.

@@ -1,0 +1,1 @@
+Artículo 13.—El certificado internacional de fiebre amarilla empezará a ser válido diez días después de aplicada la vacuna, y tendrá una vigencia de 10 años. Cada persona será responsable de conservar su certificado en buen estado.

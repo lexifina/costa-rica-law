@@ -1,0 +1,1 @@
+Artículo 8º—Tratándose de extranjeros provenientes de países de riesgo, las autoridades de migración deberán solicitar el Certificado Internacional de Vacunación contra la Fiebre Amarilla. No podrán ingresar al territorio nacional estas personas que no porten el Certificado Internacional de Vacunación contra la Fiebre Amarilla, válido y vigente.
