@@ -1,0 +1,22 @@
+Artículo 5º—El nivel de detalle requerido así como el procedimiento para la aprobación según corresponda al Jerarca o a la instancia interna designada al efecto conforme al artículo 4º del presente Reglamento, será el mismo nivel de detalle que se estableció para la aprobación interna de los presupuestos ordinarios, correspondiendo dicho nivel al de la máxima segregación, de conformidad con los clasificadores presupuestarios para el sector público vigentes y el procedimiento para la aprobación será el que se detalla a continuación:
+a) El encargado de la unidad administrativa atendiendo de forma razonable las necesidades de bienes o servicios de la unidad bajo su dirección, mediante oficio razonado solicitara la modificación presupuestaria a la autoridad superior administrativa.
+b) La solicitud de modificación presupuestaria que el encargado de la unidad administrativa realice mediante oficio razonado se deberá hacer considerando una previsión mínima de tres meses, considerando el tiempo necesario para la confección y aprobación del documento de la modificación presupuestaria, así como, para que el Departamento Proveeduría Municipal pueda realizar el proceso de contratación administrativa, (licitación, adjudicación y compra) que se requiera.
+c) La solicitud de modificación que el encargado de la unidad administrativa realice mediante oficio razonado deberá indicar claramente a la fecha en que se hace la solicitud, los siguientes aspectos:
+Las metas que se afectarán conforme al Plan Anual Operativo y monto que se afectan por renglón.
+La meta que se está creando y monto de la meta por renglón, así como el periodo en que se ejecutará.
+El saldo de los renglones a los que se les rebaja contenido presupuestario.
+El saldo de los renglones a los que se les aumenta o asigna contenido presupuestario.
+Indicar que las modificaciones solicitadas cumplen con el bloque de legalidad de conformidad con el marco jurídico vigente.
+Indicar que no se esta desviando recursos que tiene un fin específico.
+Indicar que no se está desviando recursos comprometidos por leyes.
+Indicar que no se está afectando recursos comprometidos por licitaciones o contratos.
+Para los efectos de establecer los saldos de los renglones a rebajar y aumentar, el encargado de la unidad administrativa mediante oficio solicitará al Departamento de Tesorería que le certifique los saldos correspondientes, indicando las sumas que estén comprometidas por licitaciones o contratos, de los que formalmente así se le haya informado. Asimismo podrán solicitar la asesoría del titular del Departamento de Contabilidad y Presupuesto, respecto a los recursos con fines específicos o comprometidos por leyes.
+d) La autoridad superior administrativa remitirá el 1º día hábil de la 3º semana de cada mes al Departamento de Contabilidad y Presupuesto, mediante oficio, copia de las solicitudes de modificaciones presupuestarias que reciba dentro del término comprendido entre la 1º y 2º semana de cada mes, solicitando la confección de documento presupuestario de la modificación.
+e) El Departamento de Contabilidad y Presupuesto preparará el documento de la modificación presupuestaria, atendiendo el nivel de detalle establecido en el presente artículo e indicando el número de la modificación presupuestaria conforme al artículo 5º del presente Reglamento.
+f) El Departamento de Contabilidad y Presupuesto remitirá a la autoridad superior administrativa el 1º día hábil de la última semana de cada mes, el documento de la modificación presupuestaria, para que sea presentada ante el Jerarca o la instancia interna designada al efecto conforme al artículo 4º del presente Reglamento, para su aprobación.
+g) La autoridad superior administrativa mediante oficio de remisión presentará ante el Jerarca o instancia interna designada al efecto conforme al artículo 4º del presente Reglamento, el documento de la modificación presupuestaria para su respectivo análisis, aprobación o improbación.
+h) La autoridad superior administrativa deberá remitir al Jerarca o a la instancia interna designada al efecto conforme al artículo 4º del presente Reglamento, para la aprobación de la modificación presupuestaria y la confección y custodia del respectivo expediente, lo siguiente:
+Oficio de remisión de la modificación presupuestaria.
+Documento de la modificación presupuestaria.
+Copia del oficio donde se solicitó la preparación de la modificación presupuestaria.
+Copias de los oficios de las unidades administrativas solicitando las modificaciones.
