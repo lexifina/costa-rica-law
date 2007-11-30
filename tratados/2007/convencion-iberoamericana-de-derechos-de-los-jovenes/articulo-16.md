@@ -1,0 +1,3 @@
+Artículo 16. Derecho a la libertad y seguridad personal.
+1. Los Estados Parte reconocen a los Jóvenes, con la extensión expresada en el Pacto Internacional de Derechos civiles y políticos, el derecho a su libertad y al ejercicio de la misma, sin ser coartados ni limitados en las actividades que derivan de ella, prohibiéndose cualquier medida que atente contra la libertad, integridad y seguridad física y mental de los jóvenes.
+2. Consecuentes con el reconocimiento y deber de protección del derecho a la libertad y seguridad de los jóvenes, los Estados Parte garantizan que los Jóvenes no serán arrestados, detenidos, presos o desterrados arbitrariamente.

@@ -1,0 +1,3 @@
+Artículo 33. Derecho al deporte.
+1. Los jóvenes tienen derecho a la educación física y a la práctica de los deportes. El fomento del deporte estará presidido por valores de respeto, superación personal y colectiva, trabajo en equipo y solidaridad. En todos los casos los Estados Parte se comprometen a fomentar dichos valores así como la erradicación de la violencia asociada a la práctica del deporte.
+2. Los Estados Parte se comprometen a fomentar, en igualdad de oportunidades, actividades que contribuyan al desarrollo de los jóvenes en los planos físicos, intelectual y social, garantizando los recursos humanos y la infraestructura necesaria para el ejercicio de estos derechos.

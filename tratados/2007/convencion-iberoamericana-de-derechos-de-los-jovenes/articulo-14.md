@@ -1,0 +1,3 @@
+Artículo 14. Derecho a la identidad y personalidad propias.
+1.- Todo joven tiene derecho a tener una nacionalidad, a no ser privado de ella y a adquirir otra voluntariamente, y a su propia identidad, consistente en la formación de su personalidad, en atención a sus especificidades y características de sexo, nacionalidad, etnia, filiación, orientación sexual, creencia y cultura.
+2.- Los Estados Parte promoverán el debido respeto a la identidad de los jóvenes y garantizarán su libre expresión, velando por la erradicación de situaciones que los discriminen en cualquiera de los aspectos concernientes a su identidad.

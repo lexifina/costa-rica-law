@@ -1,0 +1,2 @@
+Artículo 8. Adopción de medidas de derecho interno.
+Los Estados Parte, reconocen los derechos contemplados en esta convención se comprometen a promover, proteger y respetar los mismos y a adoptar todas las medidas legislativas, administrativas y de otra índole, así como a asignar los recursos que permitan hacer efectivo el goce de los derechos que la convención reconoce. Igualmente formularán y evaluarán las políticas de juventud.

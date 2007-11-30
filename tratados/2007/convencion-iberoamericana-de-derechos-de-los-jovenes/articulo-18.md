@@ -1,0 +1,3 @@
+Artículo 18. Libertad de expresión, reunión y asociación.
+1. Los jóvenes tienen derecho a la libertad de opinión, expresión, reunión e información, a disponer de foros juveniles y a crear organizaciones y asociaciones donde se analicen sus problemas y puedan presentar propuestas de iniciativas políticas ante las instancias públicas encargadas de atender asuntos relativos a la juventud, sin ningún tipo de interferencia o limitación.
+2. Los Estados Parte se comprometen a promover todas las medidas necesarias que, con respeto a la independencia y autonomía de las organizaciones y asociaciones juveniles, les posibiliten la obtención de recursos concursables para el financiamiento de sus actividades, proyectos y programas.

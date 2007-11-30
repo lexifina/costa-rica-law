@@ -1,0 +1,8 @@
+Artículo 13. Derecho a la Justicia.
+1. Los Estados Parte reconocen el derecho a la justicia de los jóvenes.
+Ello implica el derecho a la denuncia, la audiencia, la defensa, a un trato justo y digno, a una justicia gratuita, a la igualdad ante la ley y a todas las garantías del debido proceso.
+2. Los Estados Parte tomarán todas las medidas necesarias para garantizar una legislación procesal que tenga en cuenta la condición juvenil, que haga real el ejercicio de este derecho y que recoja todas las garantías del debido proceso.
+3. Los jóvenes condenados por una infracción a la ley penal tienen derecho a un tratamiento digno que estimule su respeto por los derechos humanos y que tenga en cuenta su edad y la necesidad de promover su resocialización a través de medidas alternativas al cumplimiento de la pena.
+4. En todos los casos en que jóvenes menores de edad se encuentren en conflicto con la ley, se aplicarán las normas del debido proceso y la tutela judicial efectiva, de acuerdo a las normas y principios del Derecho Internacional de los Derechos Humanos.
+5. Los Estados Parte tomarán medidas para que los jóvenes que cumplan pena de prisión, cuenten con un espacio y las condiciones humanas dignas en el centro de internamiento.
+(Nota de Sinalevi: Mediante el artículo 5° del Tratado Internacional N° 8612 "Aprueba la Convención Iberoamericana de Derechos de los Jóvenes" del 1° de noviembre del 2007 el Gobierno de Costa Rica interpretó lo siguiente:"...De conformidad con el artículo 38 de la presente Convención, se interpreta que ninguna de las disposiciones del artículo 13 contraviene los rangos etarios establecidos en la legislación penal costarricense.")

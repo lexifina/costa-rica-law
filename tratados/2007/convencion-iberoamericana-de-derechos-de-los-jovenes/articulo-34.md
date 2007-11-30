@@ -1,0 +1,3 @@
+Artículo 34. Derecho al desarrollo.
+1. Los jóvenes tienen derecho al desarrollo social, económico, político y cultural y a ser considerados como sujetos prioritarios de las iniciativas que se implementen para tal fin.
+2. Los Estados Parte se comprometen a adoptar las medidas adecuadas para garantizar la asignación de los recursos humanos, técnicos y financieros necesarios para programas que atiendan a la promoción de la juventud, en el área rural y urbana, la participación en la discusión para elaborar los planes de desarrollo y su integración en el proceso de puesta en marcha de las correspondientes acciones nacionales, regionales y locales.

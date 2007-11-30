@@ -1,0 +1,9 @@
+Capítulo III
+Derechos Económicos, Sociales y Culturales
+Artículo 22. Derecho a la educación.
+1. Los jóvenes tienen derecho a la educación.
+2. Los Estados Parte reconocen su obligación de garantizar una educación integral, continua, pertinente y de calidad. 3.- Los Estados Parte reconocen que este derecho incluye la libertad de elegir el centro educativo y la participación activa en la vida del mismo.
+4. La educación fomentará la práctica de valores, las artes, las ciencias y la técnica en la transmisión de la enseñanza, la interculturalidad, el respeto a las culturas étnicas y el acceso generalizado a las nuevas tecnologías y promoverá en los educandos la vocación por la democracia, los derechos humanos, la paz, la solidaridad, la aceptación de la diversidad, la tolerancia y la equidad de género.
+5. Los Estados Parte reconocen que la educación es un proceso de aprendizaje a lo largo de toda la vida, que incluye elementos provenientes de sistemas de aprendizaje escolarizado, no escolarizado e informales, que contribuyen al desarrollo continuo e integral de los jóvenes.
+6. Los Estados Parte reconocen que el derecho a la educación es opuesto a cualquier forma de discriminación y se comprometen a garantizar la universalización de la educación básica, obligatoria y gratuita, para todos los jóvenes, y específicamente a facilitar y asegurar el acceso y permanencia en la educación secundaría. Asimismo los Estados Parte se comprometen a estimular el acceso a la educación superior, adoptando las medias políticas y legislativas necesarias para ello.
+7. Los Estados Parte se comprometen a promover la adopción de medidas que faciliten la movilidad académica y estudiantil entre los jóvenes, acordando para ello el establecimiento de los procedimientos de validación que permitan, en su caso, la equivalencia de los niveles, grados académicos y títulos profesionales de sus respectivos sistema educativos nacionales.

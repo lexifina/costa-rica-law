@@ -1,0 +1,4 @@
+Artículo 41. Enmiendas.
+1. Cualquier Estado Parte podrá proponer una enmienda y depositaria en poder del Secretario/a General de la Organización Iberoamericana de Juventud, quien comunicará la enmienda propuesta a los demás Estados Parte, pidiéndoles que le notifiquen si desean que se convoque una Conferencia de Estados Parte con el fin de examinar la propuesta y someterla a votación. Si dentro de los cuatro meses siguientes a la fecha de esa notificación un tercio, al menos, de los Estados Parte se declaran en favor de tal Conferencia, el Secretario/a General convocará dicha Conferencia.
+2. Para que la enmienda entre en vigor deberá ser aprobada por una mayoría de dos tercios de los Estados Parte.
+3. Cuando las enmiendas entren en vigor serán obligatorias para los Estados Parte que las hayan aceptado, en tanto que los demás Estados Parte seguirán obligados por las disposiciones de la presente Convención y por las enmiendas anteriores que hayan aceptado.

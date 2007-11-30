@@ -1,0 +1,3 @@
+Artículo 20. Derecho a la formación de una familia.
+1.- Los jóvenes tienen derecho a la libre elección de la pareja, a la vida en común y a la constitución del matrimonio dentro de un marco de igualdad de sus miembros, así como a la maternidad y paternidad responsables, y a la disolución de aquel de acuerdo a la capacidad civil establecida en la legislación interna de cada país.
+2.- Los Estados Parte promoverán todas las medidas legislativas que garanticen la conciliación de la vida laboral y familiar y el ejercicio responsable de la paternidad y maternidad y permitan su continuo desarrollo personal, educativo, formativo y laboral.

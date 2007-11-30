@@ -1,0 +1,5 @@
+Artículo 25. Derecho a la salud.
+1. Los Estados Parte reconocen el derecho de los jóvenes a una salud integral y de calidad.
+2. Este derecho incluye la atención primaria gratuita, la educación preventiva, la nutrición, la atención y cuidado especializado de la salud juvenil, la promoción de la salud sexual y reproductiva, la investigación de los problemas de salud que se presentan en la edad juvenil, la información y prevención contra el alcoholismo, el tabaquismo y el uso indebido de drogas.
+3. Tienen igualmente derecho a la confidencialidad y al respeto del personal de los servicios de salud, en particular, en lo relativo a su salud sexual y reproductiva.
+4.- Los Estados Parte velarán por la plena efectividad de este derecho adoptando y aplicando políticas y programas de salud integral, específicamente orientados a la prevención de enfermedades, promoción de la salud y estilos de vida saludable entre los jóvenes. Se potenciarán las políticas de erradicación del tráfico y consumo de drogas nocivas para la salud.

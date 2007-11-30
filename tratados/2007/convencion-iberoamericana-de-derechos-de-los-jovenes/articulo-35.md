@@ -1,0 +1,7 @@
+Capitulo IV
+De los mecanismos de Promoción
+Artículo 35. De los Organismos Nacionales de Juventud.
+1. Los Estados Parte se comprometen a la creación de un organismo gubernamental permanente, encargado de diseñar, coordinar y evaluar políticas públicas de juventud.
+2. Los Estados Parte se comprometen a promover todas las medidas legales y de cualquier otra índole destinadas a fomentar la organización y consolidación de estructuras de participación juvenil en los ámbitos locales, regionales y nacionales, como instrumentos que promuevan el asociacionismo, el intercambio, la cooperación y la interlocución con las autoridades públicas.
+3. Los Estados Parte se comprometen a dotar a los organismos públicos nacionales de juventud de la capacidad y los recursos necesarios para que puedan realizar el seguimiento del grado de aplicación de los derechos reconocidos en la presente Convención y en las respectivas legislaciones nacionales y de elaborar y difundir informes nacionales anuales acerca de la evolución y progresos realizados en la materia.
+4. Las autoridades nacionales competentes en materia de políticas públicas de Juventud remitirán al Secretario General de la Organización Iberoamericana de la Juventud un informe bianual sobre el estado de aplicación de los compromisos contenidos en la presente Convención. Dicho informe deberá se presentado en la Sede de la Secretaría General con seis meses de antelación a la celebración de la Conferencia Iberoamericana de Ministros de Juventud.

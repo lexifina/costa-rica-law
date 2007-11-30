@@ -1,0 +1,5 @@
+Artículo 12. Derecho a la objeción de conciencia.
+1. Los jóvenes tienen derecho a formular objeción de conciencia frente al servicio militar obligatorio.
+2. Los Estados Parte se comprometen a promover las medidas legislativas pertinentes para garantizar el ejercicio de este derecho y avanzar en la eliminación progresiva del servicio militar obligatorio.
+3. Los Estados Parte se comprometen a asegurar que los jóvenes menores de 18 años no serán llamados a filas ni involucrados, en modo alguno, en hostilidades militares.
+(Nota de Sinalevi: Mediante el artículo 4° del Tratado Internacional N° 8612 "Aprueba la Convención Iberoamericana de Derechos de los Jóvenes" del 1° de noviembre del 2007 el Gobierno de Costa Rica interpretó lo siguiente: "... De conformidad con el artículo 38 de la presente Convención, se declara que, para el Estado costarricense, no aplica la disposición del artículo 12 respecto del servicio militar, en virtud de que Costa Rica, en el artículo 12 de la Constitución Política, proscribió el ejército como institución permanente.")

@@ -1,0 +1,4 @@
+Artículo 19. Derecho a formar parte de una familia.
+1.- Los jóvenes tienen el derecho a formar parte activa de una familia que promueva relaciones donde primen el afecto, el respeto y la responsabilidad mutua entre sus miembros y a estar protegidos de todo tipo de maltrato o violencia.
+2.- Los jóvenes menores de edad tienen derecho a ser oídos en caso de divorcio o separación de sus padres para efectos de atribución de su propia guarda, así como, a que su voluntad sea determinante en caso de adopción.
+3.- Los Estados Parte se comprometen a crear y facilitar las condiciones educativas, económicas, sociales y culturales que fomenten los valores de la familia, la cohesión y fortaleza de la vida familiar y el sano desarrollo de los jóvenes en su seno, a través de políticas públicas y su adecuado financiamiento.
