@@ -1,0 +1,4 @@
+CAPÍTULO V
+Planificación, políticas, relaciones
+Artículo 25.—Planificación. El Auditor General definirá, pondrá en práctica, liderará y realizará el seguimiento del proceso de planificación estratégica de la Auditoría Interna, el cual debe ser congruente con los objetivos estratégicos de la CNFL. Como parte de esas labores, debe establecer y mantener actualizadas la visión, la misión y las principales políticas que regirán el accionar de la Auditoría Interna.
+Asimismo definirá y documentará la planificación de corto plazo mediante un Plan de Trabajo Anual, congruente con la planificación estratégica de esta dependencia. Esta planificación se basará en criterios razonables y fundamentados, especialmente en la valoración del riesgo de cada estudio que forma parte del universo fiscalizable, con el fin de determinar las prioridades de la Auditoría Interna.

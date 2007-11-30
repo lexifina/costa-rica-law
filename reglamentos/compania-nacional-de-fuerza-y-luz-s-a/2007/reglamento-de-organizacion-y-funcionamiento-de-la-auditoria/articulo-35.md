@@ -1,0 +1,1 @@
+Artículo 35.—Asesoría legal. La Dirección Jurídica Institucional de la CNFL deberá brindar oportunamente los estudios jurídicos que requiera la Auditoría Interna, de conformidad con lo establecido en el artículo 33, inciso c) de la Ley Nº 8292.

@@ -1,0 +1,2 @@
+Artículo 48.—Responsabilidad y sanciones. El incumplimiento injustificado de lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el Auditor General y el personal de la Auditoría Interna, el Jerarca, los titulares subordinados y demás funcionarios de la CNFL; de conformidad con lo establecido en el capítulo V de la Ley Nº 8292.
+La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

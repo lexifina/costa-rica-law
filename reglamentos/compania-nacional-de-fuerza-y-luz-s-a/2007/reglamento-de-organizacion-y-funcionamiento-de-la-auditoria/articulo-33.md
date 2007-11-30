@@ -1,0 +1,1 @@
+Artículo 33.—Delegación de funciones. El Auditor General podrá delegar en su personal las funciones que considere pertinentes, utilizando criterios de idoneidad para efectuar la selección correspondiente, de conformidad con lo que establece en esta materia la Ley General de Administración Pública.
