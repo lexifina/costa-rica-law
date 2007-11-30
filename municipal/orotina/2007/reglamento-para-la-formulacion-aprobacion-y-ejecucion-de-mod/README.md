@@ -14,3 +14,4 @@ Reglamento para la formulación, aprobación y ejecución de modificaciones pres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-13 | la propia norma |
+| 2 | 2007-11-30 | Reglamento municipal 136 (2007-11-30) |
