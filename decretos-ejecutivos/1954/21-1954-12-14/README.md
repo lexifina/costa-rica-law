@@ -21,3 +21,4 @@ Reglamento del Estatuto de Servicio Civil
 | 7 | 2003-05-21 | SINALEVI (sin norma nombrada) |
 | 8 | 2005-04-12 | Decreto Ejecutivo 32333 (2005-04-12) |
 | 9 | 2007-08-17 | Decreto Ejecutivo 34071 (2007-08-17) |
+| 10 | 2007-12-03 | Decreto Ejecutivo 34135 (2007-12-03) |
