@@ -1,6 +1,7 @@
 ARTICULO 52.- Son deberes de la Fiscalía:
 a) Preparar los Reglamentos Internos y someterlos, por medio de la Junta Directiva, a conocimiento de la Asamblea General.
-b) Recibir, estudiar y recomendar a la Junta Directiva, las solicitudes de ingreso a este Colegio, de conformidad con la presente Ley, con su Reglamento y con las disposiciones legales de la Asamblea General, que no contravengan las disposiciones de los citados instrumentos de Ley.
+b) Recibir, estudiar y recomendar a la Junta Directiva, las solicitudes de ingreso a este Colegio, de conformidad con la presente Ley, con su Reglamento y con las disposiciones legales de la Asamblea
+General, que no contravengan las disposiciones de los citados instrumentos de Ley.
 c) Conocer las denuncias que se hagan sobre posibles infracciones a las disposiciones legales que afecten los intereses de los miembros de este Colegio y actuar de conformidad con sus facultades o recomendar lo que proceda a la Junta Directiva o a la Asamblea General, según corresponda.
 ch) Conocer e investigar las denuncias que se hagan de infracciones de esta Ley, a su Reglamento y otras faltas cometidas por parte de los miembros del Colegio.
 d) Auxiliar y asesorar a los miembros de este Colegio que encuentren obstáculos en el libre ejercicio de sus actividades profesionales.
@@ -12,3 +13,5 @@ i) Velar por el estricto cumplimiento de las Leyes y Reglamentos que regulen el 
 j) Vigilar porque la Junta Directiva de este colegio y los diferentes funcionarios administrativos y de cualquier otra índole, cumplan cabalmente con los preceptos legales y las disposiciones de la Asamblea General.
 k) Convocar a Asambleas Generales cuando no lo haga la Junta Directiva y, cuando esté en la obligación legal de hacerlo o cuando se dé la existencia de hechos o de circunstancias que lo ameriten, para la buena marcha de este Colegio.
 l) Todos aquellos otros asuntos que le encomiende la Asamblea General.
+Las sanciones que el fiscal del Colegio imponga a los regentes, al amparo del inciso h) de este artículo, tendrán los recursos ordinarios de revocatoria y apelación, los cuales deberán interponerse ante la Fiscalía en un plazo de quince días naturales, contado a partir de la notificación de la resolución sancionadora. La revocatoria será resuelta por el fiscal, y la apelación será resuelta por la Junta Directiva. Denegada la revocatoria, el fiscal remitirá el expediente ante la Junta Directiva y emplazará al interesado para que concurra ante dicha Junta, en un plazo de quince días naturales en defensa de sus derechos. Con la resolución de la apelación realizada por la Junta Directiva , se dará por agotada la vía administrativa en lo que al Colegio se refiere.
+(Así adicionado el párrafo anterior por el artículo único de la Ley N° 8625 de 07 de noviembre del 2007)
