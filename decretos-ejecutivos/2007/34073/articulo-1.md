@@ -14,4 +14,5 @@ Considerando:
 9º—Que el señor Ministro Rector del Sector Ambiente, mediante el oficio DM-951-07 de 15 de agosto de 2007, avala la solicitud planteada por el Fondo.
 10.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado para el Fondo Forestal para el año 2008. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Fondo Forestal el gasto Presupuestario máximo fijado para el año 2008, establecido según el artículo 1º del Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 de 22 de marzo de 2007, quedando el gasto presupuestario máximo en la suma de ¢280.420.000.00 (doscientos ochenta millones cuatrocientos veinte mil colones exactos) para ese período.
+Artículo 1º—Modifícase para el Fondo Forestal el gasto Presupuestario máximo fijado para el año 2008, establecido según el artículo 1º del Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 de 22 de marzo de 2007, quedando el gasto presupuestario máximo en la suma de ¢408.495.378,85 (cuatrocientos ocho millones cuatrocientos noventa y cinco mil trescientos setenta y ocho colones con ochenta y cinco céntimos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34176 del 3 de diciembre de 2007)

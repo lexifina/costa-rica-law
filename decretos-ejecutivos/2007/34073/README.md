@@ -14,3 +14,4 @@ Modifica para el Fondo Forestal el gasto Presupuestario máximo fijado para el a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-02 | la propia norma |
+| 2 | 2007-12-03 | Decreto Ejecutivo 34176 (2007-12-03) |
