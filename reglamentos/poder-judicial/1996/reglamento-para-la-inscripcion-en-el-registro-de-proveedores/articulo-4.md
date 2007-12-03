@@ -1,1 +1,0 @@
-Artículo 4°-El Registro de Proveedores tiene como finalidad lograr la mayor y mejor participación de oferentes en la consecución de los bienes y servicios necesarios para el Poder Judicial, por ello, el interesado se inscribirá única y exclusivamente en los bienes y servicios que está en capacidad de ofertar.

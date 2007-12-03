@@ -1,1 +1,0 @@
-Artículo 15.-El Poder Judicial invitará a presentar oferta a las personas inscritas en el Registro de Proveedores y que estén en capacidad de ofertar el suministro o el servicio y se reserva el derecho de publicar en los principales diarios del país avisos para obtener suficientes ofertas.

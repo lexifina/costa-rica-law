@@ -1,1 +1,0 @@
-Artículo 8°-El interesado deberá solicitar expresa y oportunamente su inclusión en el Registro de Proveedores para lo cual entregará debidamente llena y con la información requerida la solicitud o formulario que para tales efectos entrega la Sección de Contratación Administrativa del Departamento de Proveeduría.

@@ -1,1 +1,0 @@
-Artículo 18.-Los proveedores no inscritos en el Registro podrán participar en los procedimientos de licitación por registro, para lo cual deberán solicitar su inscripción con tres días hábiles de anticipación al vencimiento del plazo para la presentación de las ofertas del concurso.

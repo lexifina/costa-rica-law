@@ -1,1 +1,0 @@
-Artículo 3°-La Sección de Contratación Administrativa del Departamento de Proveeduría, será la encargada de administrar para todos los efectos, trámites y procedimientos el Registro de Proveedores. Para ello, implantará la organización que se estime necesaria con el apoyo de los medios tecnológicos y recursos que garanticen la eficiencia y eficacia del registro.
