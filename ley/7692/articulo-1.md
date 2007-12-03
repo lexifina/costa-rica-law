@@ -1,3 +1,5 @@
+(Derogado)
+(Esta Ley fue Derogada por el artículo 11 de la Ley N° 8618 del 3 de diciembre de 2007)
 CREACIÓN DEL MUSEO DE LA EDUCACIÓN
 COSTARRICENSE OMAR DENGO
 ARTÍCULO 1.- Creación
