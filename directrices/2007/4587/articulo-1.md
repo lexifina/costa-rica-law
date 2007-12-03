@@ -1,0 +1,15 @@
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+Nº 4587-07-MOPT.—Con fundamento en las potestades conferidas en la constitución política, Ley general de administración pública Nº 6227 del 2 de mayo de 1978, Ley Nº 27917-MOPT y decreto Nº 33151-MP reglamento orgánico del Poder Ejecutivo.
+Considerando:
+1º—Que de conformidad con lo estipulado en el numeral 9 de los artículos 3º y 12 sobre “Rectorías” y la “Integración de los distintos sectores”, respectivamente, del decreto Nº 33151-MP, el sector transportes estará bajo la rectoría del Ministerio de Obras Públicas y Transportes.
+2º—Que mediante oficio DM-3862-06 del 10 de julio de 2006, este ministerio giró instrucción a las instituciones que conforman el sector, con el propósito de que coordinen con la dirección de planificación sectorial todo lo relacionado con el plan nacional de desarrollo, planes operativos institucionales y todo lo relacionado con el accionar del sector transporte.
+3º—Que el plan nacional de desarrollo “Jorge Manuel Dengo Obregón” 2006-2010, fue emitido acorde con la estructura sectorial del Poder Ejecutivo establecida mediante el decreto ejecutivo Nº 33151-MP, que fortalece la función rectora de los ministros de Gobierno.
+4º—Que es necesario establecer mecanismos de coordinación a nivel del sector transportes, con el propósito de ejercer una adecuada rectoría.
+5º—Que dentro del contrato con la ciudadanía, el sector transportes adquirió un compromiso del más alto nivel político, integrado por un conjunto de acciones estratégicas orientadas a contribuir con el desarrollo económico y social del país.
+6º—Que el informe DFOE-OP-28-2006, emitido por la Contraloría General de la República, en la recomendación 4.1.2 establece: “Tomar las acciones necesarias con el propósito de fortalecer la función de rectoría con instrumentos idóneos para su ejercicio, mediante la implementación de la directriz para establecer políticas sectoriales claras, una adecuada planificación sectorial y mecanismo de coordinación y control que conduzcan las actividades del sector hacia la consecución de los objetivos sectoriales.”
+7º—Que la ministra rectora se comprometió a dar seguimiento al cumplimiento de las metas de las acciones estratégicas, con el propósito de generar información útil y oportuna para la toma de decisiones.
+8º—Que el decreto 27917-MOPT en el capitulo 11, establece para el nivel superior. Por tanto, Se emite la siguiente:
+DIRECTRIZ
+Dirigida a todas las Instituciones
+que conforman el Sector Transportes
+Artículo 1º—Ámbito de aplicación. Consejo Nacional de Concesiones, Consejo Nacional de Vialidad, Consejo de Transporte Público, Consejo de Seguridad Vial, Consejo Técnico de Aviación Civil, Instituto Costarricense de Ferrocarriles, Instituto Costarricense de Puertos del Pacífico, Junta de Administración Portuaria y de Desarrollo de la Vertiente Atlántica, Instituto de Fomento y Asesoría Municipal, Instituto Costarricense de Turismo, Instituto Geográfico Nacional, en lo que al Sector Infraestructura y Transportes corresponde.
