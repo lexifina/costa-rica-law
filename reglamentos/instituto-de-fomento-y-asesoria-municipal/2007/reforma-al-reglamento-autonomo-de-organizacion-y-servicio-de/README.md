@@ -14,3 +14,4 @@ Reforma al Reglamento Autónomo de Organización y Servicio del Instituto de Fom
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-21 | la propia norma |
+| 2 | 2007-12-03 | Reglamento 3714 (2007-12-03) |
