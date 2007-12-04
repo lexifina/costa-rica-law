@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-19 | la propia norma |
+| 2 | 2007-12-04 | Reglamento 3464 (2007-12-04) |
