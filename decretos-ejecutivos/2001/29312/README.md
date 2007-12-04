@@ -15,3 +15,4 @@ Modifica Tarifas Transbordo de Ferry de Puntarenas a Playa Naranjo.
 | --- | --- | --- |
 | 1 | 2001-02-23 | la propia norma |
 | 2 | 2002-01-18 | Decreto Ejecutivo 30178 (2002-01-18) |
+| 3 | 2007-12-04 | Decreto Ejecutivo 34161 (2007-12-04) |
