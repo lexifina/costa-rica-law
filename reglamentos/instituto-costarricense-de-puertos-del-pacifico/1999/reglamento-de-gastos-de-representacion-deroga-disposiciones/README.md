@@ -15,3 +15,4 @@ Reglamento de Gastos de Representación Deroga disposiciones anteriores sobre la
 | --- | --- | --- |
 | 1 | 1999-07-30 | la propia norma |
 | 2 | 2002-12-05 | Reglamento 3133 (2002-12-05) |
+| 3 | 2007-12-04 | Reglamento 3464 (2007-12-04) |
