@@ -15,3 +15,4 @@ Reglamento para el Enriquecimiento del Arroz
 | --- | --- | --- |
 | 1 | 2003-01-02 | la propia norma |
 | 2 | 2006-01-02 | Decreto Ejecutivo 33124 (2006-01-02) |
+| 3 | 2007-12-04 | Decreto Ejecutivo 34394 (2007-12-04) |

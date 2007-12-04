@@ -8,11 +8,11 @@ Considerando:
 3°—Que el ácido fólico es un nutriente indispensable para el desarrollo físico y mental, la prevención de las malformaciones congénitas del tubo neural y la enfermedad cardiovascular en el ser humano.
 4°—Que los resultados aportados por las encuestas nacionales de nutrición de 1982 y 1996 y los sitios centinelas en alimentación y nutrición de 1999 y 2000, mostraron que las anemias nutricionales por deficiencia de hierro constituyen un problema de salud pública.
 5°—Que el arroz constituye un alimento básico en la dieta de la población de Costa Rica.
-6°—Que todo productor, fabricante o comerciante de alimentos debe cumplir con las disposiciones que el Ministerio de Salud decrete, ordenando el enriquecimiento o equiparación de determinados alimentos, a fin de suplir la ausencia o insuficiencia de nutrientes en la alimentación habitual de la población. Por lo
-tanto,
+6°—Que todo productor, fabricante o comerciante de alimentos debe cumplir con las disposiciones que el Ministerio de Salud decrete, ordenando el enriquecimiento o equiparación de determinados alimentos, a fin de suplir la ausencia o insuficiencia de nutrientes en la alimentación habitual de la población. Por lo tanto,
 DECRETAN:
 El siguiente,
 Reglamento para el Enriquecimiento del Arroz
 CAPÍTULO 1
 Disposiciones Generales
-Artículo 1°—Las disposiciones del presente reglamento se aplican al arroz que se utiliza para el consumo directo humano en el país, sea éste de producción nacional, donado o importado.
+Artículo 1°—Las disposiciones del presente reglamento se aplican al arroz pilado tipo largo, excepto el tipo gourmet, que se utiliza para consumo humano directo en el país, sea éste de producción nacional, donado e importado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34394 del 4 de diciembre de 2007)
