@@ -1,1 +1,1 @@
-Artículo 5°—Responsabilidad tributaria de los beneficiarios. Los beneficiarios del régimen serán responsables por los daños, averías o pérdidas ocurridas a las mercancías ingresadas al amparo del régimen, quedando obligados al pago de los tributos correspondientes, salvo en casos de su destrucción por fuerza mayor o caso fortuito debidamente comprobado, a satisfacción de la autoridad aduanera.
+Artículo 5°—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

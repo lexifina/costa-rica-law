@@ -1,2 +1,1 @@
-Artículo 34.—Plazo para la devolución del título de prenda aduanera debidamente inscrito. El beneficiario deberá entregar a la aduana de control dentro de un plazo máximo de dos meses, contado a partir de la fecha de aceptación de la respectiva declaración aduanera, el original del título de prenda aduanera debidamente inscrito ante el Registro de Prendas del Registro Público. En caso de incumplimiento, la Aduana de Control lo comunicará inmediatamente a COMEX, a efectos de que se proceda de conformidad con lo dispuesto en el artículo 20 del presente reglamento.
-(Así reformado mediante articulo 2 del Decreto Ejecutivo N° 29607)
+Artículo 34.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

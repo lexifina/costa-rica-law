@@ -1,2 +1,1 @@
-Artículo 39.—Medidas preventivas. En cualquiera de los supuestos previstos por el artículo 36 del presente reglamento y previo al inicio del procedimiento señalado en el artículo 37, la Aduana de Control podrá proceder, como medida preventiva, a la retención y aprehensión de la mercancía y su traslado a un recinto bajo control de la aduana o cualquier otra medida razonable que garantice su salvaguarda y custodia.
-(Así reformado mediante Decreto Ejecutivo N° 13848 del 25 de mayo del 2004)
+Artículo 39.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

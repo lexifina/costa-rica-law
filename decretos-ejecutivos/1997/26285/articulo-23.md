@@ -1,1 +1,1 @@
-Artículo 23.—Control aduanero de los porcentajes aprobados. Si la aduana de control tuviere indicios de que los porcentajes aprobados no responden a la realidad, informará lo pertinente a la Gerencia, quien deberá resolver lo que corresponda en un plazo de treinta días naturales. De persistir dudas fundadas , la aduana de control someterá el asunto a conocimiento de la División de Control y Fiscalización de la Dirección para que proceda según sus competencias.
+Artículo 23.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

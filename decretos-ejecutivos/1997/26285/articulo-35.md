@@ -1,2 +1,1 @@
-Artículo 35.—Liberación de la prenda aduanera ante el Registro Público. Una vez que las mercancías han sido reexportadas o importadas definitivamente, o bien hayan reingresado a las instalaciones del beneficiario en el caso de subcontratación, dentro de los plazos establecidos, la Aduana de Control emitirá, a solicitud del beneficiario, en un plazo máximo de diez días hábiles, la respectiva comunicación al Registro de Prendas del Registro Público, a efectos de que cancele o libere el gravamen respectivo.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°32982 del 10 de marzo del 2006).
+Artículo 35.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

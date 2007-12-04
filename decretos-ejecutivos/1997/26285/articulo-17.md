@@ -1,1 +1,1 @@
-Artículo 17.—Plazo de Permanencia. El plazo para la permanencia de las mercancías ingresadas al amparo de esta modalidad se regirá por lo indicado en los artículos 14 y 15 de este Reglamento.
+Artículo 17.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

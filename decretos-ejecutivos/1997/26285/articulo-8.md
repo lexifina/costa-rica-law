@@ -1,3 +1,1 @@
-Artículo 8°—Procedimiento de autorización. Presentada la solicitud, la Gerencia verificara el cumplimiento de todos los requisitos exigidos y la elevara a conocimiento de COMEX, para que resuelva en definitiva dentro de un plazo de un mes contado a partir de la recepción de la solicitud.
-En caso de defectos en la petición, la Gerencia otorgará al interesado un plazo de diez días hábiles para subsanarlos. Vencido dicho plazo sin que se hayan efectuado las correcciones pertinentes, la Gerencia la desestimará.
-Igual procedimiento se seguirá cuando se presente cualquier otra solicitud relacionada con el régimen, salvo los casos previstos en el artículo 10° del presente reglamento.
+Artículo 8°—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

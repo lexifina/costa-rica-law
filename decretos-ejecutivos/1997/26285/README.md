@@ -21,3 +21,4 @@ Reglamento del Régimen Devolutivo de Derechos
 | 6 | 2002-01-25 | Decreto Ejecutivo 30125 (2002-01-25) |
 | 7 | 2004-05-25 | Decreto Ejecutivo 31848 (2004-05-25) |
 | 8 | 2006-03-10 | Decreto Ejecutivo 32982 (2006-03-10) |
+| 9 | 2007-12-04 | Decreto Ejecutivo 34165 (2007-12-04) |

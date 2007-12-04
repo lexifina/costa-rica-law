@@ -1,3 +1,1 @@
-Artículo 38.—Ejecución de títulos de prenda aduanera. Transcurrido el plazo de 5 días previsto en el artículo anterior, sin que el beneficiario hubiese cancelado el adeudo correspondiente, la aduana procederá en forma inmediata a la efectiva ejecución de la prenda aduanera mediante el remate de las mercancías dadas en prenda, cuyo precio base para la venta estará constituido por el monto del adeudo más los intereses, multas y demás cargos aplicables.
-El procedimiento para efectuar la subasta será el establecido por la Ley General de Aduanas y su Reglamento.
-Si después de vendidas las mercancías, quedase un saldo en descubierto, la aduana de control informará lo pertinente a la Dirección, a fin de que se inicien las acciones cobratorias.
+Artículo 38.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

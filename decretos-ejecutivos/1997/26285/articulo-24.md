@@ -1,7 +1,4 @@
 CAPITULO VII
 Destrucción y donación de mercancías ingresadas al amparo del
 Régimen
-Artículo 24.—Tratamiento de residuos, desechos, maquinaria, equipo y demás mercancías. Los beneficiarios del régimen, en cualquier momento, podrán usar para otros fines o industrias, reexportar, destruir, donar, reciclar o deshacerse libremente de cualquier forma de los residuos, desechos, envases, empaques y embalajes. Para estos efectos únicamente deberán presentar a PROCOMER con el informe anual de operaciones, un detalle que contenga la descripción del bien, el porcentaje y el destino que se le otorgó el mismo a fin de que PROCOMER pueda verificar documentalmente, la información de acuerdo con los porcentajes de mermas, residuos o desechos aprobados.
-La maquinaria y equipo, así como cualquier otro bien ingresado al amparo del régimen bajo gravamen prendario legal podrán ser reexportadas o destruidas previa autorización de la Aduana de Control. Una vez autorizada la destrucción, la misma se efectuará en presencia de un representante del beneficiario y de un funcionario aduanero, quien verificará el acta que para tales efectos se levante.
-En cualquier momento la Dirección General de Aduanas podrá realizar fiscalizaciones periódicas, para lo cual podrá solicitar los informes presentados a PROCOMER por las empresas beneficiarias.
-(Así reformado mediante artículo 7 del Decreto Ejecutivo 30125 del 25 de enero del 2002)
+Artículo 24.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

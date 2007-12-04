@@ -1,1 +1,1 @@
-Artículo 15.—Vencimiento del plazo de permanencia. El incumplimiento de los plazos indicados, sin que las mercancías hayan sido reexportadas o importadas definitivamente, dará lugar a que la aduana de control proceda de conformidad con lo indicado por el artículo 36 del presente reglamento.
+Artículo 15.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

@@ -1,5 +1,1 @@
-Artículo 28.—Garantía para subcontratación. El beneficiario que desee subcontratar, deberá constituir una prenda aduanera para garantizar el reingreso a sus instalaciones de las mercancías objeto de la subcontratación, sin perjuicio de lo dispuesto en el artículo 71 de la Ley General de Aduanas.
-La prenda se rendirá a favor de la Aduana de Control, de conformidad con el procedimiento establecido en el artículo 185 de la Ley General de Aduanas y se devolverá cuando finalice el proceso de subcontratación a satisfacción de la aduana, con el reingreso de las materias primas y productos semielaborados a las instalaciones del beneficiario, salvo los casos de reexportación indirecta conforme con lo establecido por el artículo 11 de este reglamento.
-La subcontratación queda sujeta a la fiscalización y el control aduanero, establecidos en la Ley y su Reglamento.
-El beneficiario será responsable por el pago de cualquier obligación tributario-aduanera, generada por el incumplimiento de los términos de la subcontratación, lo anterior de conformidad con la normativa y demás disposiciones que regulan la materia.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°32982 del 10 de marzo del 2006).
+Artículo 28.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

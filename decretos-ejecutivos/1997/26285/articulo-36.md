@@ -1,3 +1,1 @@
-Artículo 36.—Vencimiento del plazo de permanencia de las materias primas y productos semielaborados dados en prenda. El vencimiento del plazo de permanencia de las materias primas y productos semielaborados ingresadas al amparo del régimen, sin que hayan sido reexportadas o importadas definitivamente, o reingresadas a las instalaciones del beneficiario en los casos de subcontratación, obliga al beneficiario al pago de los tributos, multas, intereses y demás recargos de cualquier naturaleza, causados por su importación.
-Igual obligación tendrán los beneficiarios que hayan usado indebidamente o dado un uso distinto al autorizado, a las mercancías amparadas al régimen, sin perjuicio de las demás sanciones aplicables.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°32982 del 10 de marzo del 2006).
+Artículo 36.—(Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).

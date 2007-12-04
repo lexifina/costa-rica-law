@@ -1,7 +1,7 @@
 No 26285-H-COMEX
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE HACIENDA
-Y COMERCIO EXTERIOR,
+Y COMERCIO EXTERIOR
 En uso de las facultades que le confieren el artículo 140 incisos 3) y 18) de la Constitución Política, el artículo 28 inciso b) de la Ley General de la Administración Pública, el Código Aduanero Uniforme Centroamericano II, La Ley General de Aduanas No 7557, el Reglamento No 25270-H y la Ley del Impuesto sobre la Renta No 7092.
 Considerando:
 1o—Que la Ley No 7092 del 21 de abril de 1988 y sus reformas “ Ley del Impuesto sobre la Renta”, en su Título V, Capítulo XXVII, estableció una serie de incentivos a las actividades dedicadas a la exportación de productos no tradicionales.
@@ -12,8 +12,8 @@ Considerando:
 6°—Que en aras de desarrollar reglamentariamente aquellas disposiciones legales. Por tanto,
 Decretan:
 El siguiente,
-REGLAMENTO DE LOS REGIMENES DE PERFECCIONAMIENTO
-ACTIVO Y DEVOLUTIVO DE DERECHOS
+REGLAMENTO DEL REGIMEN DEVOLUTIVO DE DERECHOS
+(Así reformado el título anterior por el artículo 51 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007)
 TITULO I
 Disposiciones generales
-Artículo 1°—Ámbito de Aplicación. El presente. Reglamento establece las normas necesarias para la aplicación del RÉGIMEN DE PERFECCIONAMIENTO ACTIVO, regulado por los artículos 179 a 186 de la Ley General de Aduanas y artículos 496 y siguientes de su Reglamento y del RÉGIMEN DEVOLUTIVO DE DERECHOS, establecido en los artículos 190 y 191 de la Ley General de Aduanas.
+Artículo 1°— (Derogado por el artículo 52 del decreto ejecutivo N° 34165 del 04 de diciembre del 2007).
