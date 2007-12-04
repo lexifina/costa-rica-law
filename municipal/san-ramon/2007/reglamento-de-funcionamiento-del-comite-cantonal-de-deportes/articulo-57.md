@@ -1,0 +1,1 @@
+Artículo 57.—La Junta Administrativa dictará las normas para el uso y cuido de las instalaciones del Polideportivo por parte de instituciones y particulares. Asimismo, sobre el comportamiento de los particulares dentro del mismo.

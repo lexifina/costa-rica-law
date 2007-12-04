@@ -1,0 +1,1 @@
+Artículo 15.—Cualquier asunto que sea sometido a conocimiento del Comité deberá ser resuelto por medio de votación y se decidirá por mayoría simple de votos. En caso de empate en la votación el Presidente tendrá voto de calidad.

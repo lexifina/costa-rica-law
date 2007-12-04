@@ -1,0 +1,1 @@
+Artículo 56.—La Junta Administrativa coordinará con el Comité Cantonal, la Municipalidad y otros entes, las políticas de inversión y consecución de recursos extraordinarios para las mejoras, la compra de terrenos para la ampliación, la construcción y el mantenimiento de instalaciones deportivas.

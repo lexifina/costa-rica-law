@@ -1,0 +1,1 @@
+Artículo 45.—Los Campos Deportivos administrados por los Comités Comunales no podrán cerrarse para turnos, ni ferias sin permiso o autorización del Comité Cantonal, solicitados con 30 días de anticipación.

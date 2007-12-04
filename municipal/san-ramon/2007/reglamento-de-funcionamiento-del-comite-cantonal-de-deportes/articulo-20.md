@@ -1,0 +1,1 @@
+Artículo 20.—Una vez en firme el acto de la destitución, el Comité solicitará a la Municipalidad la reposición inmediata del miembro separado, para lo cual comunicará a las asociaciones respectivas el envío de la terna.
