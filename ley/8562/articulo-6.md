@@ -43,4 +43,5 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 33864 del 12 de julio del 2007).
 (Reformado por el artículo 2° de la ley N° 8593 del 10 de agosto del 2007).*(Modificado por el artículo 1° del decreto ejecutivo N° 34098 del 05 de noviembre de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33979 del 18 de setiembre de 2007)
-(Modificado por el artículo 1° del decreto ejecutivo N° 34084 del 26 de octubre de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34084 del 26 de octubre de 2007) *(Mediante el artículo 2° del decreto ejcutivo N° 34120 del 15 de noviembre de 2007, se modifica el artículo 1° del decreto ejecutivo N° 34084 del 26 de octubre de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34120 del 15 de noviembre de 2007)
