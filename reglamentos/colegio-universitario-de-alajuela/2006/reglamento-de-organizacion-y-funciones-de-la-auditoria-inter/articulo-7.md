@@ -1,1 +1,0 @@
-Artículo 7º—Conclusión de la relación de servicio. El auditor es inamovible. La relación de servicio podrá ser suspendida o sustituido de su cargo por justa causa y por decisión emanada del Consejo Directivo, previa formación de expediente con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen favorable de la Contraloría General de la República.

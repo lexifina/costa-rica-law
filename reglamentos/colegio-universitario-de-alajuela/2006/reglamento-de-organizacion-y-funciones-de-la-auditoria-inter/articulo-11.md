@@ -1,2 +1,0 @@
-Artículo 11.—Organización. La Auditoría Interna se organizará y funcionará de acuerdo a la disposición del Auditor Interno, de conformidad con la normativa legal, políticas, normas y directrices que emita la Contraloría General de la República y la Junta Directiva, las cuales serán de acatamiento obligatorio.
-El Auditor Interno es el Superior Jerárquico de la Auditoría Interna, y responsable directo de las actuaciones de la dependencia.

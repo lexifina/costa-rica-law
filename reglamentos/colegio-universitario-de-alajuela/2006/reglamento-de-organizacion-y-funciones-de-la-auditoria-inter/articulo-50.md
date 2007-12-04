@@ -1,1 +1,0 @@
-Artículo 50.—Capacitación permanente. El auditor interno y el personal de Auditoría Interna deberán cumplir con compromiso de formación permanente, mejorando continuamente sus habilidades y la efectividad y calidad de los servicios.

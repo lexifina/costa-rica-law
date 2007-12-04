@@ -1,1 +1,0 @@
-Artículo 53.—Responsabilidad de las evaluaciones internas. La responsabilidad de las evaluaciones internas recae en el Auditor. Debe revisar las evaluaciones internas y velar porque se tomen las medidas correctivas.
