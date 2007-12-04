@@ -22,9 +22,10 @@ Artículo 4º—De la vigencia del canon. El canon deberá pagarse en el momento
 Artículo 5º—Del valor del canon. El valor del canon será definido anualmente por la Dirección Financiera, del INCOP, mediante los cálculos correspondientes, los cuales serán debidamente informados en un periódico de publicación nacional.
 CAPÍTULO III
 Del permiso de operaciones
-Artículo 6º—Del permiso de operaciones. Toda persona física o jurídica que desee ser sujeto beneficiario y prestar servicios y suministros a los buques que usan las instalaciones de los puertos administrados por INCOP deberán tener el permiso de operaciones que expedirá la Gerencia General de la Institución mediante el acto administrativo respectivo.
+Artículo 6º—Del permiso de operaciones. Toda persona física o jurídica que desee ser sujeto beneficiario y prestar servicios y suministros a los buques que usan las instalaciones de los puertos administrados por INCOP deberán tener el permiso de operaciones que expedirá la Dirección de Operaciones Portuarias de la Institución mediante el acto administrativo respectivo.
+(Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
 Artículo 7º—De los requisitos. Las personas físicas y jurídicas que opten por un permiso de operaciones deberán cumplir los siguientes requisitos, los cuales deberán de ser aportados conjuntamente con la respectiva solicitud:
-a) Oficio en papel sellado dirigido a la Gerencia General , solicitando el permiso de Operaciones, autenticado por un abogado.
+a) Oficio en papel sellado dirigido a la Dirección de Operaciones Portuarias, solicitando el permiso de Operaciones, autenticado por un abogado.
 b) Copia de la respectiva patente al día cuando así se requiera.
 c) Certificado de Tributación Directa que se encuentra al día con los correspondientes
 impuestos.
@@ -33,24 +34,26 @@ e) Certificación al día de inscripción de la Empresa en el Registro Público.
 f) Lista del personal debidamente identificado indicando como mínimo Nº de cédula, nombre completo, nacionalidad, póliza del Instituto Nacional de Seguros y Caja Costarricense de Seguro Social; que ingresan a las instalaciones del puerto.
 g) Listado de los vehículos señalando marca, modelo, placa copia de la respectiva póliza del seguro del Instituto Nacional de Seguros al día acompañada del original para su verificación.
 h) Presentar constancia de que los equipos (herramientas y otras) utilizados en la realización de sus actividades están debidamente asegurados por el Instituto Nacional de Seguros, contra todo tipo de riesgos, tales como daños a la propiedad, o a las personas, etc.
-i) Presentar documento, debidamente autenticado donde se describen las actividades que realizará cada sujeto beneficiario. En caso de tratarse de Agencias de Viajes (Personas Jurídicas) con tours, paquetes, etc, prevenidos deberán de comunicarlo expresamente a la Gerencia General , a fin que esta coordine lo pertinente al momento de realizar el rol de operaciones.
+i) Presentar documento, debidamente autenticado donde se describen las actividades que realizará cada sujeto beneficiario. En caso de tratarse de Agencias de Viajes (Personas Jurídicas) con tours, paquetes, etc., pre-vendidos deberán de comunicarlo expresamente a la Dirección de Operaciones Portuarias, a fin que ésta coordine lo pertinente al momento de realizar el rol de operaciones.
 j) El Gerente o representante Legal de la empresa, o bien la persona física, a quien se le conceda el mencionado permiso de operaciones, será el responsable directo por los daños ocasionados a las propiedades del INCOP y a terceros dentro de las instalaciones por lo que adjuntará a la solicitud del permiso una fianza, la cual de previo a la ejecución de la presente normativa deberá ser definida de previo por la Dirección Financiera , en coordinación con el Departamento de Proveeduría y la Dirección Jurídica.
 k) Deberá presentar póliza de responsabilidad civil del Instituto Nacional de Seguros, por la suma correspondiente a causa de daños a la propiedad y a terceros ocasionados dentro de las instalaciones.
-l) Declaración Jurada de no estar afecto a las prohibiciones que señala el artículo REVISAR ARTÍCULO 22 de la Ley de la Contratación Administrativa , así como de aceptación de futuras modificaciones establecidas internacionalmente, y por el INCOP, en cuanto a seguridad Portuaria se refiere.
-m) Lugar o medio donde recibir futuras comunicaciones.
-n) Tratándose de microbuseros o taxistas que opten por un permiso para brindar transporte a los turistas en temporada de cruceros, deberán presentar además los siguientes requisitos.
-o) Nombre del propietario y/o chofer, número de cédula, número de placa, copia de la respectiva póliza del INS al día, permiso del ICT y del MOPT, licencia de conducir al día.
-p) Todo microbusero y taxista se comprometerá a respetar el rol de ingreso (Recinto Portuario-Muelle de Puntarenas) u orden al que es designado,
-q) Los microbuseros y taxistas o cooperativas, presentarán un listado de sus dueños con indicación de los datos indicados en el inciso tras anterior.
-r) Todo microbusero y taxista debe solicitar el gafete y marchamo a la Gerencia General ; al momento de ingresar a las instalaciones, debe presentarlo y cuando el Encargado del Muelle o guarda de turno lo solicite, el marchamo deberá contar con la siguiente información.
-· Nombre del propietario
-· Número de placa
-· Número de gafete
-· Firma y sello de la Gerencia General
+l) Lugar o medio donde recibir futuras comunicaciones.
+m) Tratándose de microbuseros o taxistas que opten por un permiso para brindar transporte a los turistas en temporada de cruceros, deberán presentar además los siguientes requisitos.
+n) Nombre del propietario y/o chofer, número de cédula, número de placa, copia de la respectiva póliza del INS al día, permiso del ICT y del MOPT, licencia de conducir al día.
+o) Todo microbusero y taxista se comprometerá a respetar el rol de ingreso (Recinto Portuario-Muelle de Puntarenas) u orden al que es designado,
+p) Los microbuseros y taxistas o cooperativas, presentarán un listado de sus dueños con indicación de los datos indicados en el inciso tras anterior.
+q) Todo microbusero y taxista debe presentar el gafete y marchamo a la Dirección de Operaciones Portuarias; al momento de ingresar a las instalaciones, debe presentarlo y cuando el encargado del muelle o guarda de turno lo solicite, el marchamo deberá contar con la siguiente información.
+• Nombre del propietario
+• Número de placa
+• Número de gafete
+• Firma del representante legal.
+• Firma y sello de la Dirección de Operaciones Portuarias.
+(Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
 ( Corregido mediante Fe de Erratas, publicada en la Gaceta N ° 119 del 21 de junio de 2007).
-Artículo 8º—Del trámite administrativo, para la emisión del permiso de Operaciones. Una vez presentada la solicitud por parte del Administrado, en la forma prevista en la presente normativa, la Gerencia General deberá de resolver la petición en un plazo improrrogable de DIEZ DÍAS, mediante auto debidamente motivado.
-En caso de negación de la solicitud del Administrado, según lo previsto en el numeral 9 de este cuerpo legal, este dispondrá de los Recursos Administrativos, Ordinarios y Extraordinarios, previstos en la Ley General de la Administración Pública, a fin de impugnar el acto administrativo contrario a sus intereses.
-En caso de aprobación del permiso solicitado, la Gerencia General, deberá comunicarlo en un plazo de TRES DÍAS, tanto al Interesado, como a la Dirección Administrativa, y a la Administración del Puerto de Puntarenas, para su respectiva anotación y archivo, en caso de la primer dependencia, y tomar las previsiones operacionales en caso de la segunda. En atención a microbuseros o taxista, el permiso de operación tendrá vigencia únicamente durante la respectiva temporada de cruceros, por lo que al inicio de la próxima deberá solicitarlo aportando los requisitos señalados en artículos anteriores.
+Artículo 8º—Del trámite administrativo, para la emisión del permiso de Operaciones. Una vez presentada la solicitud por parte del Administrado, en la forma prevista en la presente normativa, la Dirección de Operaciones Portuarias deberá de resolver la petición en un plazo improrrogable de diez días, mediante auto debidamente motivado.
+En caso de negación de la solicitud del Administrado, según lo previsto en el numeral 9 de este cuerpo legal, este dispondrá de los recursos administrativos, ordinarios y extraordinarios, previstos en la Ley General de la Administración Pública, a fin de impugnar el acto administrativo contrario a sus intereses.
+En caso de aprobación del permiso solicitado, la Dirección de Operaciones Portuarias, deberá comunicarlo en un plazo de tres días, tanto al interesado como a la Administración del Puerto de Puntarenas, para su respectiva anotación y archivo. El permiso de operación tendrá vigencia únicamente durante la respectiva temporada de cruceros, por lo que al inicio de la próxima deberá solicitarlo aportando los requisitos señalados en los artículos anteriores.
+(Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
 Artículo 9º—Del rechazo del permiso. El INCOP se reserva el derecho de aprobar o rechazar cualquier solicitud de permiso de Operaciones, si a juicio de la Institución el solicitante no reúne las condiciones establecidas así como las condiciones mínimas de seguridad para la actividad que desea desarrollar.
 Artículo 10.—De la vigencia del permiso. El permiso de operaciones tendrá igual vigencia que el canon, según artículo 5, contando a partir de su expedición pero podrá ser prorrogado por un período similar, igualmente, mediante auto debidamente motivado, por lo que el sujeto beneficiario presentará por escrito 30 días antes de su vencimiento el interés de continuar y seguir cumpliendo con los requisitos exigidos en el Artículo 7.
 Artículo 11.—De la creación del archivo de permisionarios: A efectos de fomentar un correcto control sobre los permisos a otorgar, así como de los servicios prestados por los permisionarios en el Muelle de Puntarenas, el INCOP deberá de crear un sistema de archivo de permisionarios, en el cual se deberá anotar:
@@ -60,7 +63,8 @@ Artículo 11.—De la creación del archivo de permisionarios: A efectos de fome
 -Tipo de Servicio a prestar
 -Forma en que se valido la fianza respectiva
 -Lugar o medio dónde recibir comunicaciones
-Artículo 12.—De la confección y actualización del rol de operaciones de permisionarios, así como de las labores de maniobra: Una vez comunicada la inscripción de los permisionarios la Gerencia General, o quien esta designe confeccionará el respectivo rol de ingreso de permisionarios, el cual deberá ser comunicado a los permisionarios.
+Artículo 12.—De la confección y actualización del rol de operaciones de permisionarios, así como de las labores de maniobra. Una vez comunicada la inscripción de los permisionarios la Dirección de Operaciones Portuarias, confeccionará el respectivo rol de ingreso de permisionarios, el cual deberá ser comunicado a los permisionarios.
+(Así reformado el párrafo anterior mediante sesión N° 3464 del 04 de diciembre del 2007).
 En cuanto a los microbuseros o taxistas que van a recoger o dejar pasajeros y que han sido contratados en forma directa por alguna agencia de viajes o pasajero (s) del crucero, se le permitirá el ingreso siempre y cuando presente el nombre de o los pasajeros y se corrobore el nombre con el representante de la agencia, asimismo el tiquete de peaje de ingreso, con una anticipación de ocho días a la llegada del buque.
 Podrán ingresar dos microbuses y dos taxis al Recinto Portuario (Muelle Caldera) en forma simultánea, cuando se encuentre atracado un crucero; en caso de haber dos buques atracados en el Puerto, podrán ingresar cuatro microbuses y cuatro taxis . Asimismo, se podrá instalar en el Muelle de Puntarenas, una mesa debidamente identificada, donde permanecerá una persona encargada de la venta de tours.
 Se prohíbe terminantemente la especulación de servicios en las Instalaciones del Muelle de Puntarenas, encargándose al Administrador del Inmueble del INCOP, la verificación y reporte de situaciones configurantes de especulación.
@@ -78,7 +82,8 @@ Artículo 19.—Del cese anormal del permiso de operaciones. El permiso de opera
 a.- El incumplimiento por parte de los sujetos beneficiarios de las normativas portuarias vigentes de INCOP.
 b.- La infracción a cualquier disposición de la presente normativa.
 c.- El incumplimiento de las leyes, Reglamentos vinculantes de la Dirección General de Aduanas. d.- Ceder el permiso de operaciones a terceros.
-Artículo 20.—De la potestad de suspensión o rescisión del permiso: La Administración Activa, concretamente la Gerencia General, podrá suspender o rescindir el permiso de operación, según el ejercicio de sus potestades, siempre y cuando las mismas no impliquen ni ilegalidad, arbitrariedad o abuso de poder alguno en perjuicio de los Administrados.
+Artículo 20.—De la potestad de suspensión o rescisión del permiso. La Dirección de Operaciones Portuarias podrá suspender o rescindir el permiso de operación, según el ejercicio de sus potestades, siempre y cuando las mismas no impliquen ni ilegalidad, arbitrariedad o abuso de poder alguno en perjuicio de los Administrados.
 Para efectos de lo anterior, una vez que se tenga noticia del incumplimiento de alguno de los requisitos exigidos para el otorgamiento del permiso de operación, la Administración deberá iniciar el procedimiento administrativo ordinario respectivo, en el cual se respeten el debido proceso así como el derecho de defensa del Administrado.
-Una vez concluidas las diligencias, la Gerencia General, o quien esta delegue, adoptará el acto administrativo respectivo, mismo que deberá contener los motivos de hecho y de derecho que sustentan la decisión.
+Una vez concluidas las diligencias, la Dirección de Operaciones Portuarias adoptará el acto administrativo respectivo, mismo que deberá contener los motivos de hecho y de derecho que sustentan la decisión.
+(Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
 Artículo 21.—De la interpretación en caso de duda. En caso de duda sobre la interpretación de esta normativa corresponderá a la Junta Directiva de INCOP interpretar correctamente las disposiciones contenidas en este cuerpo jurídico.”
