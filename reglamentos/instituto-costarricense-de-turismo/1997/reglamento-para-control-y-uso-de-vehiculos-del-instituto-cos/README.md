@@ -17,3 +17,4 @@ Reglamento para Control y Uso de Vehículos del Instituto Costarricense de Turis
 | 2 | 2002-05-02 | Reglamento 5173 (2002-05-02) |
 | 3 | 2002-12-03 | Reglamento 5217 (2002-12-03) |
 | 4 | 2005-05-30 | Reglamento 5361 (2005-05-30) |
+| 5 | 2007-12-04 | Reglamento 5502 (2007-12-04) |
