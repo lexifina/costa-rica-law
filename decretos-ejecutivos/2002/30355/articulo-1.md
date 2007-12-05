@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 34 del decreto ejecutivo N° 34164 del 05 de diciembre de 2007)
 Nº 30355-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
