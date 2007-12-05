@@ -14,3 +14,4 @@ Emite " Clasificador Presupuestario por Objeto del Gasto" de uso generalizado pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-19 | la propia norma |
+| 2 | 2007-12-05 | Decreto Ejecutivo 34325 (2007-12-05) |
