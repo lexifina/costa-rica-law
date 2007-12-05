@@ -1,0 +1,1 @@
+Artículo 26.—Cuentas corrientes en custodia. La Caja deberá contar al menos con una cuenta corriente para cada fondo administrado, en un banco nacional o extranjero, según las indicaciones de la entidad de custodia. Estas cuentas se utilizarán únicamente para completar las transacciones efectuadas con los instrumentos de inversión.
