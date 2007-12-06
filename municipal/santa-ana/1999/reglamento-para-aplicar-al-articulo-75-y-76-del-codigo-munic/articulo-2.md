@@ -1,1 +1,0 @@
-Artículo 2°-Para realizar los trabajos que los propietarios notificados no realicen; la Municipalidad podrá recurrir a sus trabajadores, a cuadrillas o empleados ocasionales, organizaciones comunales y a la empresa privada previo análisis de las tres cotizaciones de ley.
