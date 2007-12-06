@@ -1,0 +1,1 @@
+Artículo 3º—Adiciónese un “Artículo 22 (bis): Quienes disfruten de ese beneficio estarán obligados a llevar el “Registro de Pesca para la Flota Pesquera Turística”, el cual deberá ser autorizado por las autoridades de INCOPESCA y para su renovación, el documento deberá ser depositado como requisito, de conformidad con la Ley de Archivos de INCOPESCA.
