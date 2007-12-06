@@ -1,0 +1,3 @@
+Artículo 4º—El Período Contable: Corresponde al tiempo máximo en el que periódicamente el ente contable público, debe medir y analizar los resultados presupuestarios y patrimoniales de su gestión.
+El período contable se inicia el 1º de enero y concluye el 31 de diciembre de cada año, al final del cual, se hará el proceso de cierre anual, debiendo tener siempre (a misma duración para ser comparables.
+La Contabilidad Nacional podrá solicitar informes contables públicos periódicos del sistema contable, de acuerdo con las necesidades o requerimientos de ésta como órgano rector, sin que esto signifique la ejecución de un cierre.
