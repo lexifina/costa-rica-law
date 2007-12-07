@@ -1,0 +1,1 @@
+Artículo 12.—Para el transporte y comercialización de Pez Vela en el territorio nacional, los vehículos de transporte estarán obligados a portar y presentar a las autoridades; la copia de la autorización de descarga del producto entregada por el INCOPESCA y la factura de venta del producto emitida por el recibidor o transportista. Cuando ésta esté fraccionada en su venta.
