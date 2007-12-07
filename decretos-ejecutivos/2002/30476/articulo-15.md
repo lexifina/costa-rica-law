@@ -1,2 +1,0 @@
-Artículo 15.—Sobre los procedimientos de control interno. La Dirección Nacional de Pensiones deberá emitir documento contentivo de los procedimientos de control interno de cada uno de los procesos y subprocesos establecidos para su funcionamiento operativo. Asimismo, deberá remitir al Consejo Directivo de Pensiones anualmente dicho documento debidamente actualizado.
-(Así adicionado por el artículo 62 del decreto ejecutivo N° 33080 del 26 de abril de 2006)

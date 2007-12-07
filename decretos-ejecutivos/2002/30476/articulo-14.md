@@ -1,3 +1,0 @@
-Artículo 14.—Del análisis del informe. El Consejo Directivo de Pensiones analizará el informe indicado en los artículos anteriores y si encontrare inconsistencias o irregularidades en alguno de los beneficios otorgados lo elevará a conocimiento del Ministro con las observaciones y recomendaciones pertinentes.
-El Ministro determinará si procede la designación del Órgano Director del Procedimiento para la anulación del acto y designará el órgano director para el proceso administrativo disciplinario si así lo considerare procedente.
-(Así adicionado por el artículo 62 del decreto ejecutivo N° 33080 del 26 de abril de 2006)
