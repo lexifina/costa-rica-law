@@ -1,0 +1,1 @@
+Artículo 7º—Cuando el bien, servicio o convenio a contratar supere el monto señalado en el numeral anterior, será necesario que el Alcalde obtenga la respectiva autorización por parte del Concejo Municipal para lo cual dirigirá la solicitud debidamente fundamentada, así como expresa mención de la partida presupuestaria con la que cubrirá dicha adquisición.
