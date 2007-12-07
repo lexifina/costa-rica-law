@@ -1,1 +1,0 @@
-Artículo 12.—El Auditor Interno será el Superior Jerárquico Inmediato del personal de la Auditoría Interna y en esa condición ejercerá todas las funciones que son propias en el manejo del personal, de acuerdo con el marco jurídico que rige para el MAG. Además, deberá considerarse su criterio para el nombramiento del personal de Auditoría.

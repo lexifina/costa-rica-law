@@ -1,1 +1,0 @@
-Artículo 23.—En cuanto a los tipos, requisitos, partes, revisión y remisión de los informes, se aplicará, principalmente, lo dispuesto en el "Manual para el ejercicio de la Auditoría Interna", y las normas emitidas al respecto por la Contraloría General.

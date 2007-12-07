@@ -1,3 +1,0 @@
-CAPÍTULO V
-De la comunicación de resultados
-Artículo 22.—La comunicación de resultados se deberá realizar por escrito contemplando en su proceso, los comentarios a que se refiere el artículo 26; y podrá efectuarse durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorandos e informes parciales, informe de relación de hechos, informe negativo de seguimiento a recomendaciones y disposiciones; y al terminar la labor por medio del memorando o informe final, cuando el caso lo amerite; a efecto de que se tomen las decisiones del caso en tiempo, a propósito y conveniencia.

@@ -1,1 +1,0 @@
-Artículo 20.—El Auditor Interno deberá formular, mantener actualizado y en uso un Manual para la Ejecución de Auditorías, con el objeto de contar con un instrumento que defina los procedimientos, métodos, técnicas y prácticas de auditoría aplicables al MAG, el cual deberá emitirse conforme con los lineamientos que dicte la Contraloría General, sobre la materia.

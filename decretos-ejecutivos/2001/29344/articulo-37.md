@@ -1,1 +1,0 @@
-Artículo 37.—Cualquier discrepancia que se presente en cuanto a la interpretación y ejecución de este Reglamento, será resuelta por el Ministro de común acuerdo con el Auditor Interno. Las modificaciones que se estimen convenientes serán propuestas a la máxima autoridad del MAG, requiriéndose de previo el criterio u observaciones del Auditor Interno.

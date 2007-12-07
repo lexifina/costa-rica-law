@@ -1,1 +1,0 @@
-Artículo 8º—La Auditoría Interna estará bajo la responsabilidad y dirección de un Auditor. Dicho funcionario deberá ser Contador Público Autorizado y conocer las disposiciones legales que rigen a la Administración Pública y específicamente las del MAG.
