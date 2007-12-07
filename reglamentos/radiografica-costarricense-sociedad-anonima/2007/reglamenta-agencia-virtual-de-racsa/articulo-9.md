@@ -1,0 +1,1 @@
+Artículo 9º—Todos los riesgos derivados de instrucciones dadas electrónicamente por el cliente, son asumidos por éste, quien deberá indemnizar a RACSA ante cualquier reclamo, obligación o indemnización que tuviere que asumir a causa de daños provocados a terceros por actuar bajo sus instrucciones.

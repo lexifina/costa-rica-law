@@ -1,0 +1,1 @@
+Artículo 16.—El usuario se obliga a conocer y aplicar en forma correcta las instrucciones de operación de los servicios ofrecidos por RACSA, quien queda relevada de toda responsabilidad por los daños que al usuario le puedan resultar a causa del desconocimiento o mal uso de dichos servicios.

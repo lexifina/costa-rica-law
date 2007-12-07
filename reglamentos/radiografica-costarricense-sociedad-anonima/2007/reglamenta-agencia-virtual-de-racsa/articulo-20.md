@@ -1,0 +1,1 @@
+Artículo 20.—RACSA se reserva el derecho a denegar o interrumpir el acceso a la “Agencia Virtual”, con o sin notificación previa, si el cliente incurriere en conducta violatoria de alguna de las condiciones o regulaciones expuestas, no responsabilizándose RACSA de las consecuencias que pudieran resultar por este motivo.

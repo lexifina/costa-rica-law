@@ -1,0 +1,1 @@
+Artículo 23.—La utilización de la facilidad Agencia Virtual se rige por las leyes de la República de Costa Rica, por lo que las partes se someten, con entera renuncia a cualquier otro fuero que pudiera corresponderles, a los juzgados y tribunales de la República de Costa Rica.

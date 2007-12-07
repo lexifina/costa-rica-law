@@ -1,0 +1,1 @@
+Artículo 13.—RACSA se compromete a no distribuir, vender o facilitar a terceras personas, la información disponible sobre sus clientes recabada a través de la Agencia Virtual, salvo en aquellos casos en que ésta sea requerida por un juez de la República.

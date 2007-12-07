@@ -1,0 +1,1 @@
+Artículo 6º—Toda manifestación de voluntad o declaración, realizada a través de los mecanismos que posibilita la Agencia Virtual de RACSA, tendrán plena eficacia jurídica, validez y fuerza obligatoria.
