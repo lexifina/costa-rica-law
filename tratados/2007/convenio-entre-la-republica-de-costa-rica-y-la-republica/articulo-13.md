@@ -1,0 +1,5 @@
+ARTÍCULO 13
+INMUNIDAD DE LAS PERSONAS TRASLADADAS
+(1) Ante una solicitud de asistencia conforme a los Artículos 11 ó 12, la Parte Requirente deberá asegurar que las personas trasladadas no serán detenidas, juzgadas, ni condenadas en su jurisdicción por delitos anteriores a su traslado, ni se les tomarán declaraciones en ningún procedimiento penal ajeno al requerimiento de asistencia, de no mediar el consentimiento de dichas personas.
+(2) La inmunidad prevista en el párrafo precedente cesará quince días después de que la Parte Requirente haya notificado oficialmente a las personas trasladadas que su presencia en esa jurisdicción ya no es necesaria para fines de asistencia según este Convenio, y les haya ofrecido los medios para dejar su territorio.
+(3) Las Parte Requirente podrá considerar la posibilidad de asegurar que quien sea trasladado del territorio de una de las Partes al de la otra conforme a los artículos 11 ó 12 para declarar ante autoridades de la Parte Requirente no será perseguido sobre la base de sus declaraciones, salvo por desacato o falso testimonio.
