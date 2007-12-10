@@ -1,0 +1,2 @@
+Artículo 26.—Capacitaciones. En el caso de capacitaciones, seminarios o congresos a que deba asistir el Auditor o Auditora Interna, éstos serán comunicados ante el Secretario Municipal y/o la Encargada de Recursos Humanos, cuando su duración sea igual o menor a 5 días hábiles y se realicen en el país.
+Las capacitaciones mayores a 5 días hábiles o las que se desarrollen fuera del país deberán ser autorizadas por el Concejo Municipal.

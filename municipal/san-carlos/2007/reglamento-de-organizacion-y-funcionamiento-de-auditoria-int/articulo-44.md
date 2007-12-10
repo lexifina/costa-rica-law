@@ -1,0 +1,2 @@
+Artículo 44.—Servicios de Auditoría. Los servicios de auditoría comprenden los distintos tipos de auditoría (financiera, operativa, de sistemas y otras) y los estudios especiales de auditoría sobre aspectos específicos (por ejemplo, de presupuesto, sobre denuncias, petitorias, otros).
+El trabajo derivado de los servicios de auditoría se comunicará mediante informes que serán de dos tipos: de control interno (incluidos los de seguimiento) y de responsabilidades (denominados Relaciones de Hechos).

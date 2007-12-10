@@ -1,0 +1,1 @@
+Artículo 28.—Horario. La jornada y horario del personal de la auditoria interna, será el indicado en el Reglamento Interno de Organización y Servicios de la Municipalidad de San Carlos, sin embargo podrá ingresar y dejar las instalaciones de la Municipalidad en horas distintas al horario establecido en el cumplimiento de sus funciones y competencias.

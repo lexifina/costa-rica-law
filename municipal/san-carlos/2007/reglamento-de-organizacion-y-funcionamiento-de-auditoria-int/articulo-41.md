@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la Ejecución de la Auditoría
+Artículo 41.—Ejecución formal. La Unidad de Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas de ejecución de la auditoría contenidas en el “Manual de Normas Generales de Auditoría para el Sector Público”(M-2-2006-CO-DFOE), las del Colegio de Contadores Públicos de Costa Rica, en lo que sea aplicable, las normas que al respecto contiene el “Manual de normas generales para el ejercicio de la Auditoría Interna en el Sector Público”(M-1-2004-CO-DD1) y en cualesquiera otras disposiciones que dicte la Contraloría General de la República de Costa Rica.

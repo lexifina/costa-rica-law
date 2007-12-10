@@ -1,0 +1,2 @@
+Artículo 32.—Categoría programática. Para efectos presupuestarios, se dará a la auditoría interna una categoría programática; para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del auditor interno y las instrucciones que emita al respecto la Contraloría General de la República.
+La auditoría interna administrara y ejecutará su presupuesto, conforme lo determinen sus necesidades para cumplir su plan de trabajo.

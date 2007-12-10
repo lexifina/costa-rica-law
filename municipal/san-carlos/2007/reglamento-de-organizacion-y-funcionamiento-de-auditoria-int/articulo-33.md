@@ -1,0 +1,2 @@
+Artículo 33.—Registro separado. Las Unidades de Contabilidad y Tesorería o quienes sean los responsables del manejo presupuestario, deberán llevar un registro separado del monto asignado y aprobado para la auditoría interna y detallado por objeto del gasto e inversión, de manera que se controle con toda exactitud la ejecución y las modificaciones del gasto e inversión asignado y aprobado.
+La Auditoría Interna realizara su presupuesto, el cual debe ser formulado técnica y profesionalmente de conformidad con los lineamientos aplicables y su plan anual de trabajo.

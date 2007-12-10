@@ -1,0 +1,1 @@
+Artículo 27.—Vacaciones, permisos y otros. En el caso de las vacaciones, permisos y otros; si el período solicitado es menor o igual a quince días hábiles, el Auditor Interno las tramitará por escrito ante el Encargado de Recursos Humanos, en caso contrario será ante el Concejo Municipal y ante el Encargado de Recursos Humanos.
