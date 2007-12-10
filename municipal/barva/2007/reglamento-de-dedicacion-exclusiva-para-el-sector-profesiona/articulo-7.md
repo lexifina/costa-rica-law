@@ -1,0 +1,1 @@
+Artículo 7º—Del contrato se confeccionarán dos originales para la Alcaldía y para el funcionario solicitante, y tres copias que se enviarán una vez firmadas a la Auditoría Municipal, a Contabilidad y a Recursos Humanos.
