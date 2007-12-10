@@ -27,3 +27,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 12 | 2006-03-09 | Reglamento 564 (2006-03-09) |
 | 13 | 2006-10-26 | Reglamento 611 (2006-10-26) |
 | 14 | 2007-06-04 | Reglamento 650 (2007-06-04) |
+| 15 | 2007-12-10 | Reglamento 690 (2007-12-10) |
