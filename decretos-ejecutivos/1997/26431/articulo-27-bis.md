@@ -1,7 +1,1 @@
-Artículo 27 Bis.—El Departamento de Producción Pecuaria y Mejoramiento Genético tendrá las siguientes funciones:
-1- Realizar las investigaciones sobre razas y cruzamientos animales que conduzcan a un genotipo acorde a las condiciones agroclimáticas y socioeconómicas de nuestro país.
-2- Promover el mejoramiento genético y la nutrición y alimentación del hato ganadero nacional, mediante procesos de inseminación artificial, la selección de animales y el mejoramiento de los pastos y forrajes y las prácticas de alimentación para animales, con énfasis en bovinos.
-3- Brindar servicios de inseminación artificial y análisis laboratorial en los campos específicos de su competencia, a los productores nacionales, individuales u organizados, así como a Instituciones Públicas o Privadas que así lo requieran. Los servicios serán brindados con el costo que establezca el Decreto de Cobro de Servicios del Ministerio de Agricultura y Ganadería.
-4- Coordinar a través del Director de Salud Animal y Producción Pecuaria, los convenios, acuerdos, contratos, cartas de entendimiento y similares con personas jurídicas, públicas o privadas, nacionales o internacionales en las materias de su competencia.
-5- Cualquier otra función que las autoridades superiores, leyes, reglamentos o disposiciones normativas le asignen.
-(Adicionado por el artículo 4 del Decreto Ejecutivo N° 29252, del 11 de enero del 2001)
+Artículo 27 Bis.— (Este artículo fue Derogado por el artículo 19 del decreto ejecutivo N° 34319 del 10 de diciembre de 2007).
