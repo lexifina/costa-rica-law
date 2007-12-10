@@ -16,3 +16,4 @@ Reglamento relativo a la Información Financiera de Entidades, Grupos y Conglome
 | 1 | 2004-01-20 | la propia norma |
 | 2 | 2007-02-15 | Reglamento 631 (2007-02-15) |
 | 3 | 2007-07-16 | Reglamento 659 (2007-07-16) |
+| 4 | 2007-12-10 | Reglamento 690 (2007-12-10) |
