@@ -1,1 +1,0 @@
-Artículo 40.—Solicitud de reposición: Toda solicitud de reposición del fondo fijo de caja chica, de previo a ser remitida a la Unidad de Contabilidad, deberá ser debidamente aprobada por el Titular Subordinado del Encargado del Fondo Fijo de Caja Chica.
