@@ -1,0 +1,2 @@
+Artículo 3°.—La modificación al gasto presupuestario máximo del año 2008 del Museo Nacional de Costa Rica, establecido en el artículo 1 del Decreto Ejecutivo Nº 33646-H, para la formulación del presupuesto rige a partir de su publicación y para su ejecución rige a partir del 1° de enero de 2008.
+Dado en la Presidencia de la República, a los diecisiete días del mes de octubre del año dos mil siete.

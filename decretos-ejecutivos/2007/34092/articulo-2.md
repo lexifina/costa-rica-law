@@ -1,0 +1,1 @@
+Artículo 2°.—Es responsabilidad de la administración activa del Museo Nacional de Costa Rica, el cumplimiento del artículo Nº 6 de la Ley Nº 8131 y sus reformas, publicada en La Gaceta Nº 198 de 16 de octubre de 2001, así como lo dispuesto en .el Decreto Ejecutivo Nº 32452-H, publicado en La. Gaceta Nº 130 de 6 de julio de 2005 y sus reformas.
