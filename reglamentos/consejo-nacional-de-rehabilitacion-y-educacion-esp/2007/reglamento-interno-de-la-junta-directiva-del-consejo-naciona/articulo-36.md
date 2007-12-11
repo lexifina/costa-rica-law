@@ -1,0 +1,1 @@
+Artículo 36.—Los Delegados tienen el derecho de abstenerse a votar sobre determinados asuntos, haciéndolo constar en el acta respectiva. La abstención no libera al Delegado de las responsabilidades que genere el acto adoptado, y el abstencionista no debe ser tomado en cuenta para efectos quórum funcional.

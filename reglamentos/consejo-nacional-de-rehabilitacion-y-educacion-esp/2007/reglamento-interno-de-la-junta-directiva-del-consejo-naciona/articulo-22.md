@@ -1,0 +1,1 @@
+Artículo 22.—En caso de ausencia o impedimento temporal el Presidente será sustituido por el Vicepresidente, quien para tal efecto tendrá las mismas atribuciones, facultades y deberes que éste. Cuando ambos delegados tengan impedimento para asistir a una sesión, la Junta Directiva nombrará a uno de sus miembros como Presidente Ad Hoc.

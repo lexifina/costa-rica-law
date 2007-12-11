@@ -1,0 +1,1 @@
+Artículo 32.—Las sesiones de junta directiva se llevarán a cabo en la sede central de la Institución, excepto cuando la Junta Directiva por mayoría absoluta acuerde celebrar sus sesiones en otro recinto.

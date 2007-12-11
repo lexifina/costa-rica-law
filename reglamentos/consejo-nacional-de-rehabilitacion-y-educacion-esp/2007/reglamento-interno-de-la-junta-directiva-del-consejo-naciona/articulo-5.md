@@ -1,0 +1,1 @@
+Artículo 5º—Los delegados en ejercicio deben ser personas vinculadas directamente con los campos de la discapacidad y la equiparación de oportunidades, deben fungir como enlace entre el miembro representado y el CNREE y estar investidos con autoridad suficiente para tomar decisiones en nombre del miembro representado.

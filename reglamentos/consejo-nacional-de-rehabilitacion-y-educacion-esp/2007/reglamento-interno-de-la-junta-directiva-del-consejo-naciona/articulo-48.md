@@ -1,0 +1,1 @@
+Artículo 48.—No se pagarán viáticos a delegados suplentes estando presente el titular de la representación. Solo en casos muy calificados de interés público, justificados en el acta correspondiente y por acuerdo de mayoría absoluta de la Junta Directiva, se podrán pagar viáticos a ambos delegados.

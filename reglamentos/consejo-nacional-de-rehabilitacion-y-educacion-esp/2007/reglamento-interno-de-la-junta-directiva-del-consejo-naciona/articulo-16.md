@@ -1,0 +1,1 @@
+Artículo 16.—Se considerarán viciados de nulidad absoluta los contratos u operaciones que directa o indirectamente celebre el Consejo con cualquier integrante de la Junta Directiva o con alguno de sus parientes, conforme a las prohibiciones establecidas en la Ley de Contratación Administrativa y su Reglamento.

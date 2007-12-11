@@ -1,0 +1,1 @@
+Artículo 44.—Los libros de actas deberán contener la apertura y cierre consignados por el Auditor Interno y una vez concluidos serán empastados, rotulados y quedarán bajo la custodia y responsabilidad de la Secretaría de Actas.

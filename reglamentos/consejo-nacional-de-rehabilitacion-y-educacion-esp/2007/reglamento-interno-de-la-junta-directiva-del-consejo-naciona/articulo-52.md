@@ -1,0 +1,1 @@
+Artículo 52.—La Secretaría de Junta Directiva tendrá la responsabilidad de dar seguimiento a las denuncias trasladadas al miembro representado a efecto de verificar que se cumpla con el debido proceso de investigación. Cuando lo considere procedente la Junta Directiva podrá constituirse en parte dentro del procedimiento administrativo correspondiente.

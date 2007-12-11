@@ -1,0 +1,1 @@
+Artículo 39.—Los proponentes de cada moción podrán hacer uso de la palabra en favor de su iniciativa, hasta por un plazo que, individualmente o en conjunto, no exceda de cinco minutos. Otros Delegados podrán referirse, individualmente o en conjunto, en contra de la moción por un plazo igual.
