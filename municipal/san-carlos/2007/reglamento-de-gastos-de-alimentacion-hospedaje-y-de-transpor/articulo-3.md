@@ -1,0 +1,1 @@
+Artículo 3º—Los gastos a los que se refiere este Reglamento únicamente serán cubiertos a aquellos Regidores y Síndicos siempre y cuando estuvieran presentes todo el tiempo que dure la sesión y en los casos de nombramientos en comisión el pago se realizará a la entrega del informe respectivo.

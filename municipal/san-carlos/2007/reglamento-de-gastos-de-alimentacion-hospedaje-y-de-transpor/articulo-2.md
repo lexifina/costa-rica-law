@@ -1,0 +1,1 @@
+Artículo 2º—El reconocimiento de dichas erogaciones procederá cuando el Regidor o Síndico tengan que desplazarse a asistir a sesiones municipales o se nombre en comisión atinentes con su cargo y cubra una distancia a partir de los 10 kilómetros dentro y fuera del Cantón.
