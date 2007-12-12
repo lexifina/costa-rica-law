@@ -1,0 +1,1 @@
+Artículo 14.—De la revisión de la Asesoría Jurídica. El expediente completo con todo el proceso llevado para el Concurso, junto con la terna de los candidatos seleccionados, será sometido a revisión por el Jerarca, en forma previa a su remisión a la Contraloría General de la República, por parte de la Asesoría Jurídica.
