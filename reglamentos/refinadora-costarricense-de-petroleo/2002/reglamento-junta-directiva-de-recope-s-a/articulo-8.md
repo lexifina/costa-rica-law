@@ -9,5 +9,6 @@ e) Otorgar el uso de la palabra en el orden solicitado por cada miembro, salvo q
 f) Declarar recesos, suspender y levantar las sesiones ordinarias y extraordinarias de la Junta Directiva por causa justificada.
 g) Resolver cualquier asunto de empate sometido a aprobación de la Junta Directiva, para cuyo caso tendrá voto calificado.
 h) Notificar al Vicepresidente, con dos días de anticipación, de su salida del país o de su incapacidad para ejercer sus funciones.
-i) Nombrar y remover a los gerentes de área de la empresa y otorgar los poderes que en derecho correspondan.
+i) Nombrar y remover a los gerentes de área de la empresa, previa consulta y aprobación de la Junta Directiva, y otorgar los poderes que en derecho correspondan.
+(Así reformado el inciso anterior mediante sesión N°4218 del 12 de diciembre de 2007).
 (Así adicionado el inciso anterior mediante sesión N°4045 del 19 de mayo del 2006).
