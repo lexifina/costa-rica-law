@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-09 | la propia norma |
+| 2 | 2007-12-12 | SINALEVI (sin norma nombrada) |
