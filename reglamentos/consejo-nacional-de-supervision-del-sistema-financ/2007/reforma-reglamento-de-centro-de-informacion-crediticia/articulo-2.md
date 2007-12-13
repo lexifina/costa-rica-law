@@ -1,0 +1,1 @@
+2. Eliminar el literal e) “Cuota equivalente mensual de la operación crediticia”, del aparte “Situación Actual” contenido en el numeral 2, del Anexo del Acuerdo SUGEF 7-06 “Reglamento del Centro de Información.
