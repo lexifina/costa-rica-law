@@ -1,0 +1,1 @@
+Artículo 30.—Para los casos fortuitos de desastre natural ó pérdida total por el uso normal de los activos, se procederá a levantar un acta, con todos los detalles de los activos y lo sucedido, con copia al Encargado de Control de Bienes Muebles y al Proceso Financiero, a efecto de que se realice el trámite ante el INS cuando proceda, o la baja del activo de las existencias.

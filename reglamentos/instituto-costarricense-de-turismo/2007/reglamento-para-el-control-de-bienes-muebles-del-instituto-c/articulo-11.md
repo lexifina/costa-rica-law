@@ -1,0 +1,2 @@
+Artículo 11.—Serán capitalizables todas aquellas erogaciones, como reparaciones, mejoras o adiciones; que por su monto y características prolonguen la vida útil de un bien o se ajusten con lo estipulado en los principios de contabilidad generalmente aceptados y otra normativa aplicable.
+Las reparaciones significativas que se estime superarán el 50% del valor en libros, previo a su ejecución deberán ser autorizadas por el Líder del Proceso Administrativo, quien emitirá su criterio técnico considerando el valor en libros del bien a reparar.

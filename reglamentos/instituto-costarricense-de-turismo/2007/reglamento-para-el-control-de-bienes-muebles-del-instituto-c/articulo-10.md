@@ -1,0 +1,1 @@
+Artículo 10.—El Subproceso Financiero remitirá en forma anual a los Líderes de cada unidad copia de los listados de bienes muebles de sus respectivas unidades era para el seguimiento y control de la existencia de los mismos.

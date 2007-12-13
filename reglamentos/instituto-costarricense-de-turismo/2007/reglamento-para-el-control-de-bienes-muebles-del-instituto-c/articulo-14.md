@@ -1,0 +1,1 @@
+Artículo 14.—Todas las dependencias deberán nombrar a un encargado de activos (bienes muebles), quien está en la obligación de custodiar y guardar ordenadamente copias de los documentos que den lugar al ingreso de un bien nuevo solicitado de acuerdo a los trámites requeridos ó bien que amparen movimientos de traslado de bienes desde ó hacia otras unidades de la Institución.
