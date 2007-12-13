@@ -1,0 +1,2 @@
+Transitorio único.—La Municipalidad de Aguirre podrá iniciar y concluir un primer proceso de otorgamiento de licencias para la venta de licores bajo esta modalidad dentro de los cuarenta y cinco días hábiles siguientes a la vigencia del presente reglamento, una vez verificado el cumplimiento de los requisitos regulados. El siguiente proceso podrá efectuarlo en diciembre de 2009 y los siguientes cada dos años conforme señala este reglamento.
+Quepos, 22 de noviembre del 2007.—

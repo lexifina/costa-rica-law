@@ -1,0 +1,1 @@
+Artículo 5º—Las licencias para la venta de licor otorgadas bajo esta modalidad, podrán ser traspasadas siempre que el adquirente cumpla los requisitos legal y reglamentariamente exigidos, y la utilice de conformidad con los términos de la presente normativa. Para tal efecto deberá obtenerse la autorización municipal.
