@@ -14,3 +14,4 @@ Reforma Reglamento General de Proveeduría Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-22 | la propia norma |
+| 2 | 2007-12-13 | Reglamento municipal 52 (2007-12-13) |
