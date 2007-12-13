@@ -15,3 +15,4 @@ Reforma al Reglamento General de la Proveeduría Municipal.
 | --- | --- | --- |
 | 1 | 2004-10-27 | la propia norma |
 | 2 | 2005-09-06 | Reglamento municipal 36 (2005-09-06) |
+| 3 | 2007-12-13 | Reglamento municipal 52 (2007-12-13) |
