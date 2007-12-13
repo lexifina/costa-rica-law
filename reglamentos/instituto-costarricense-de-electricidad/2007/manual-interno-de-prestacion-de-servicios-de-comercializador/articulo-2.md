@@ -1,0 +1,1 @@
+Artículo 2º—El presente Manual de Prestación de Servicios de Comercializadores Externos del ICE, establece los derechos y deberes de las partes, por lo que forman parte integral del contrato que se firme entre los comercializadores externos y el Instituto.

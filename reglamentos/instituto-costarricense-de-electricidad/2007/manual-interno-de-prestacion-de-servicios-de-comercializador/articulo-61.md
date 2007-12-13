@@ -1,0 +1,1 @@
+Artículo 61.—El pago establecido será fijo y definitivo para el primer año de operación del contrato, por su parte el ICE realizará al menos una revisión anual y definirá las nuevas condiciones a tomar en cuenta para las prórrogas sucesivas, lo cual será previamente comunicado por escrito al comercializador.

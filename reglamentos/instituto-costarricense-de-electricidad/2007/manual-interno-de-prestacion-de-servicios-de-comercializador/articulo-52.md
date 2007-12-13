@@ -1,0 +1,1 @@
+Artículo 52.—El ICE establecerá un tiempo máximo de 5 días naturales, a partir de la transacción, para que el Comercializador Externo cumpla con la entrega todos los contratos y/o boletas de la gestión de ventas, atención y recepción a trámites, consultas y reclamos de los servicios de telecomunicaciones de acuerdo a lo estipulado por el ICE.

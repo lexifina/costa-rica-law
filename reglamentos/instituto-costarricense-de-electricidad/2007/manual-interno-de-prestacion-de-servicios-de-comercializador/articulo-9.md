@@ -1,0 +1,1 @@
+Artículo 9º—El ICE esta facultado para promocionar con recursos propios el presente canal de atención, por lo cual puede publicar, transmitir o divulgar cualquier contenido de este canal; no así el Comercializador Externo, el cual deberá contar con una autorización por escrito del ICE.

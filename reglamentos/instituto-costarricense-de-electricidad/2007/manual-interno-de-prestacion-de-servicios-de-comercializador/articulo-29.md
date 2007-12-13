@@ -1,0 +1,1 @@
+Artículo 29.—A solicitud del Administrador de Contrato le corresponderá a la Dirección de Proveeduría la recepción, ajustes, prórrogas, vigencia y devolución de las garantías respectivas, en coordinación con el Administrador de Contrato responsable.

@@ -1,0 +1,1 @@
+Artículo 57.—El Administrador el Contrato deberá llevar un registro de los reclamos de los clientes que sean atribuidos al trato comercial ofrecido por el Comercializador Externo y en caso de reincidencia solicitar el procedimiento de resolución del contrato.

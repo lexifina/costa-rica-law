@@ -1,0 +1,1 @@
+Artículo 37.—El Comercializador Externo deberá incluir correctamente en el sistema transaccional la información del cliente. Esta debe coincidir con los documentos que respalden la gestión de ventas, atención y recepción a trámites, consultas y reclamos de los servicios de telecomunicaciones.

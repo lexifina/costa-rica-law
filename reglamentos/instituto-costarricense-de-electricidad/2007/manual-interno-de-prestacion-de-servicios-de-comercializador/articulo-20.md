@@ -1,0 +1,1 @@
+Artículo 20.—Una vez cumplido lo anterior, se procederá a la firma del contrato, y finalmente se enviará a Proveeduría para que tramite el refrendo respectivo ante el Área de Refrendos de la División de Contratación Administrativa o Contraloría General de la República según corresponda.

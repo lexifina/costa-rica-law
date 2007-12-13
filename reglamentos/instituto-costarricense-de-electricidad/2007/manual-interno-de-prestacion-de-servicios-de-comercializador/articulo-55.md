@@ -1,0 +1,1 @@
+Artículo 55.—El ICE establece un pago fijo pagadero una única vez por venta o trámite realizado, según sea el tipo de comercializador externo. El monto de pago está sujeto a la entrega de documentación al ICE.

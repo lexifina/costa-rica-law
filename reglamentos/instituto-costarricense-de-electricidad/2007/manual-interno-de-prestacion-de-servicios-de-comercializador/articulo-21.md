@@ -1,0 +1,1 @@
+Artículo 21.—Los efectos jurídicos del contrato quedan sujetos al requisito de refrendo por parte del ente respectivo. Si por cualquier circunstancia no se otorgara el refrendo al contrato, las partes aceptan que tal situación constituye una imposibilidad para la ejecución del mismo, sin responsabilidad para ninguna de ellas.

@@ -1,0 +1,1 @@
+Artículo 24.—La garantía será revisable cada seis meses después de iniciada la ejecución del contrato o en cualquier otro momento siempre que demuestre que las condiciones de atención y comercialización de servicios de telecomunicaciones se han modificado, según lo establecido en el contrato.

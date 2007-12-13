@@ -1,0 +1,1 @@
+Artículo 58.—El Comercializador Externo deberá rendir en máximo de 2 días las explicaciones del caso y responder al Administrador del Contrato ICE sobre los reclamos presentados por los clientes en relación con el trato comercial recibido.

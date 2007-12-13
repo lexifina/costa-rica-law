@@ -1,0 +1,1 @@
+Artículo 39.—El Comercializador Externo deberá adjuntar los respectivos documentos a cada transacción. Si uno de estos documentos carece de alguna información, el ICE podrá devolver los documentos al comercializador externo para su corrección, y éste tendrá tres días hábiles para volverlo a presentar.

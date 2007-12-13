@@ -1,0 +1,1 @@
+Artículo 6º—En caso de variar alguna de las condiciones vigentes establecidas en el contrato, el ICE lo comunicará por escrito a la parte afectada, para que tome las medidas del caso. Estas variaciones se integrarán al contrato por medio de un addéndum y formarán parte integrante de éste.

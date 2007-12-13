@@ -1,0 +1,1 @@
+Artículo 7º—Para la estimación del monto del contrato se deberá considerar la cantidad de ventas, trámites y consultas por zona geográfica, considerando la demanda por zona geográfica, horario de atención ofrecido por el Comercializador Externo y personal disponible para la atención al cliente.

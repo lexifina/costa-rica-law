@@ -1,0 +1,1 @@
+Artículo 50.—El ICE entregará al Comercializador Externo los manuales de uso que contendrán las prácticas y procedimientos que deberán seguirse para realizar la gestión de ventas, atención y recepción a trámites, consultas y reclamos de los servicios de telecomunicaciones, uso del sistema transaccional y manejo de la documentación.

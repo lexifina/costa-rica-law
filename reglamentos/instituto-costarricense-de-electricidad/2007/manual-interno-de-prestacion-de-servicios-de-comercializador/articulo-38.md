@@ -1,0 +1,1 @@
+Artículo 38.—El Comercializador Externo deberá entregar al ICE todos los contratos y/o boletas de la gestión de ventas, atención y recepción a trámites, consultas y reclamos de los servicios de telecomunicaciones en el plazo máximo de los 5 días naturales a partir del día de su transacción de acuerdo a lo estipulado por el ICE.

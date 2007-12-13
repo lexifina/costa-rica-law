@@ -1,0 +1,1 @@
+Artículo 26.—La renovación de la garantía debe solicitarse con 30 días naturales antes de su vencimiento o del vencimiento del contrato, el ajuste a la garantía se solicitará en cualquier momento. El tiempo que se otorga al comercializador externo para la entrega del documento solicitado, será de diez días hábiles para entregar la nueva garantía.

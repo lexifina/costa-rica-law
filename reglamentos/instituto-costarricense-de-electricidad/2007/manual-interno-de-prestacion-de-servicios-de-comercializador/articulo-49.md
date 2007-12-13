@@ -1,0 +1,1 @@
+Artículo 49.—El ICE podrá aplicar pruebas de certificación de los conocimientos adquiridos en la capacitación y comunicará el resultado al Comercializador Externo, para que éste aplique las medidas correctivas correspondientes.

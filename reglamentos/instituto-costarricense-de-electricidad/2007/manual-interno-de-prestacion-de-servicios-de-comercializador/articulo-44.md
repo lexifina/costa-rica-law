@@ -1,0 +1,1 @@
+Artículo 44.—El ICE deberá cancelar oportunamente al Comercializador Externo, el monto correspondiente al pago devengado por la gestión de ventas, atención y recepción a trámites, consultas y reclamos de los servicios de telecomunicaciones.

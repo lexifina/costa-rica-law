@@ -1,0 +1,1 @@
+Artículo 12.—El ICE estudiará las ofertas de servicios de atención y comercialización de servicios de telecomunicaciones, para determinar si cumplen con los requisitos estipulados en el Reglamento para la Prestación de Servicios de Comercializadores Externos del ICE y el presente capítulo.

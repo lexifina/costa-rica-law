@@ -1,0 +1,1 @@
+Artículo 5º—En todos los casos, el contrato suscrito entre las partes, no tiene ninguna implicación o trascendencia laboral, ni genera relación de subordinación jerárquica alguna entre el ICE y el Comercializador Externo, ni entre el ICE y los empleados del Comercializador Externo, ya que se trata de un contrato de prestación de servicios.
