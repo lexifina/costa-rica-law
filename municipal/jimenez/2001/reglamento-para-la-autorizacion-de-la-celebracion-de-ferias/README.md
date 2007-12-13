@@ -14,3 +14,4 @@ Reglamento, para la autorización de la celebración de Ferias, Miniferias, Turn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-06 | la propia norma |
+| 2 | 2007-12-13 | Reglamento municipal 756 (2007-12-13) |

@@ -1,1 +1,1 @@
-Artículo 10.—Cuando la actividad bailable sea organizada y sus beneficios totales sean para instituciones educativas, religiosas o de bien social, se exonerará el pago municipal por concepto de espectáculos públicos; no así lo correspondiente al pago por permiso de baile.
+Artículo 10.— La Municipalidad de Jiménez, no se responsabiliza por los daños que se puedan derivar como producto de los permisos regulados por el presente reglamento.

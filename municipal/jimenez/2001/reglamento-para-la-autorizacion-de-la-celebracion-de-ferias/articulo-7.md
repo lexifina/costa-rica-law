@@ -1,6 +1,1 @@
-CAPÍTULO II
-De las miniferias y actividades bailables
-Artículo 7º—Entiéndase miniferias, todas aquellas actividades en donde no existan las siguientes actividades:
-Corridas de toros.
-Carruseles.
-Tres o más chinamos.
+Artículo 7º—Las solicitudes para permiso de baile serán otorgadas por la Alcaldía Municipal, previo cumplimiento de lo que exija la legislación vigente en esta materia y del pago por ese concepto, del cual no podrá hacerse excepción alguna.

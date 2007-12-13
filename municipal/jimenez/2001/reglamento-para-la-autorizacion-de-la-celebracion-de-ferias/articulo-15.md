@@ -1,1 +1,2 @@
-Artículo 15.—La Municipalidad de Jiménez, no se responsabiliza por los daños que se puedan derivar como producto de los permisos regulados por el presente reglamento.
+Artículo 15.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Publíquese en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado.

@@ -1,1 +1,1 @@
-Artículo 11.—Para este tipo de actividades debe respetarse igualmente lo ordenado en los artículos 4º y 6º del presente reglamento.
+Artículo 11.—Todas las pólizas que se exigen como requisito, de previo a autorizar las actividades especificadas en este reglamento, deberán solicitarse ante el INS para una cobertura por el evento completo.

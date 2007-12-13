@@ -1,1 +1,1 @@
-Artículo 13.—En caso de tope, deben presentar el visto bueno de la Oficina Regional de Tránsito de Turrialba, de coordinación de la actividad.
+Artículo 13.—Este reglamento es de aplicación obligatoria dentro de la jurisdicción territorial del Cantón Jiménez.
