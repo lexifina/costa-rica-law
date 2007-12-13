@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El objetivo de este Reglamento es establecer el procedimiento para el cobro, a los propietarios y poseedores de bienes inmuebles del cantón de Santa Ana, por las obras realizadas por la Municipalidad, en cumplimiento de lo dispuesto en los artículos 75, 76, 76 bis y 76 ter. del Código Municipal.

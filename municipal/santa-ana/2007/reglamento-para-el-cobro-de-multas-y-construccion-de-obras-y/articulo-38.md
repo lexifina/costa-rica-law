@@ -1,0 +1,1 @@
+Artículo 38.—Rechazo del financiamiento por parte del contribuyente. La municipalidad procurará que el contribuyente se adhiera al contrato de financiamiento del proyecto, pero en caso contrario, realizará la obra y procederá al cobro del costo efectivo siguiendo el procedimiento establecido en el presente Reglamento.

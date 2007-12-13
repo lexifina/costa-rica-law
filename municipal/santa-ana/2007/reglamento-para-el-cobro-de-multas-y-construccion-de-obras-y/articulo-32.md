@@ -1,0 +1,2 @@
+Artículo 32.—Mantenimiento. Se considerarán aceras en mal estado, objeto de notificación, aquellas que contengan huecos, repello levantado, grietas superiores a cinco milímetros, tapas de caja de registro y albañales en mal estado, diferencias de niveles, el cordón de caño resquebrajado o demolido, hecha con material distinto al indicado en este Reglamento.
+Toda acera cuyo deterioro supere una tercera parte de la totalidad, deberá reconstruirse totalmente.

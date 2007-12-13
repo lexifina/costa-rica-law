@@ -1,0 +1,1 @@
+Artículo 45.—Derogatoria. El presente Reglamento deroga el Reglamento para aplicar el artículo 75 y 76 del Código Municipal publicado en La Gaceta Nº 118 del 18 de junio de 1999 y cualquier disposición reglamentaria o acuerdo municipal, que se le oponga.

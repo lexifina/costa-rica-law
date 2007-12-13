@@ -1,0 +1,1 @@
+Artículo 17.—Medios de prueba de la notificación. En el caso de notificación personal o lugar señalado, servirá como prueba el acta respectiva firmada por quien la recibe y el notificador o, si aquél no ha querido firmar, por este último dejando constancia de ello.

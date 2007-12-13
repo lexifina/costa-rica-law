@@ -1,0 +1,1 @@
+Artículo 14.—Lugar o medio conocido por la Administración. Cuando el lugar o medio para notificaciones, sea conocido por la Administración o esté señalado en un expediente administrativo municipal, aunque se trate de un caso distinto, con no más de doce meses de suscrito el documento, el acto podrá serle notificado en éste señalamiento.
