@@ -1,1 +1,0 @@
-Artículo 3°-La gestión fiscalizadora de la Auditoría Médica, es recomendativa, para que la administración activa adopte las medidas correctivas, fortaleciendo de esta manera las actividades y funciones que están realizando y que den como resultado servicios de mayor calidad al usuario.

@@ -1,1 +1,0 @@
-Artículo 6°-El jerarca inmediato superior de la Auditoria Médica, será el Auditor Interno, en su ausencia le sustituye en igualdad de condiciones el Subauditor Interno. Contará, además, con un nivel de jefatura quien deberá reunir las condiciones de idoneidad profesional requerido para este puesto.

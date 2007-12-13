@@ -1,1 +1,0 @@
-Artículo 2°-Le corresponde evaluar la calidad de la atención médica, fundamentado para ello en la aplicación y análisis de los indicadores institucionales vigentes, la revisión del expediente médico, protocolos de atención, compromisos de gestión y la satisfacción de los usuarios y prestadores de servicios.

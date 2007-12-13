@@ -1,1 +1,0 @@
-Artículo 7°-Los resultados de sus intervenciones serán informados al funcionario ejecutivo que corresponda: A la Presidencia Ejecutiva, Junta Directiva y/o Gerencia de División Médica, según los resultados obtenidos. De ser procedente y de acuerdo con el evento detectado, podrá informarse a otras instancias competentes.
