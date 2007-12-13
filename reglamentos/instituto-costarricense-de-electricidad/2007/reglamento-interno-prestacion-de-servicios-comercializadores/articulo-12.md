@@ -1,0 +1,1 @@
+Artículo 12.—El Comercializador Externo se obliga a prestar dentro de la actividad normal de su negocio, el servicio atención y comercialización de servicios de telecomunicaciones en forma exclusiva para el ICE y no en forma simultanea para otra empresa que opere en el mercado de las telecomunicaciones.

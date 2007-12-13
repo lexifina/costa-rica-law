@@ -1,0 +1,1 @@
+Artículo 11.—El ICE regulará en el Manual Interno para la Prestación de Servicios de Comercializadores Externos, la aplicación práctica del presente Reglamento. Las disposiciones contenidas en el Manual podrán ser incorporadas según corresponda, en cada uno de los contratos que deban ser suscritos con los diferentes Comercializadores Externos del Sector de Telecomunicaciones.

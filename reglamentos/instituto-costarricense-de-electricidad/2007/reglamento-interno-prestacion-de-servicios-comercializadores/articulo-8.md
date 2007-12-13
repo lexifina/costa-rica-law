@@ -1,0 +1,1 @@
+Artículo 8º—Una vez que el ICE defina la zona en que requiere de comercializadores, procederá a realizar una invitación por medio del Diario Oficial La Gaceta, para la recepción de ofertas. Pudiéndose realizar tantas invitaciones al año como el ICE lo requiera.

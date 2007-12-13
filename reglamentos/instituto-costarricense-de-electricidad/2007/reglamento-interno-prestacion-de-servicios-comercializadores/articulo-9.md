@@ -1,0 +1,1 @@
+Artículo 9º—El plazo de estos contratos será de un año, prorrogable por un año adicional. La prórroga se entenderá facultativa, por lo que la Administración valorará el cumplimiento a satisfacción del contrato y la persistencia de la necesidad pública que lo originó.

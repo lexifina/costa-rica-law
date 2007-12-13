@@ -1,0 +1,1 @@
+Artículo 38.—Los Comercializadores Externos estarán sujetos a las disposiciones vigentes de comercialización y entrega de Servicios de Telecomunicaciones, instituidas en los procedimientos aprobados por la División de Clientes del ICE.

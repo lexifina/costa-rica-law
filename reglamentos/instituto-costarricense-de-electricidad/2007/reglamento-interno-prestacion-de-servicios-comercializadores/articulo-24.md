@@ -1,0 +1,1 @@
+Artículo 24.—El presente contrato será estimado de conformidad con las posibles comisiones que obtendrán los comercializadores durante la vigencia del mismo. Dicha estimación no genera por si misma una expectativa de derecho al comercializador.

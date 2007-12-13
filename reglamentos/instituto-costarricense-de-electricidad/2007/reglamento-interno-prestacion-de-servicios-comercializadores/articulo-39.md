@@ -1,0 +1,1 @@
+Artículo 39.—Los Comercializadores Externos están obligados a ofrecer al cliente del ICE un servicio eficiente y eficaz con un trato cortés, respetuoso, diligente y empático al realizar las gestiones que los clientes demanden o evacuar las consultas que los mismos realicen.

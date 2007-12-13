@@ -1,0 +1,1 @@
+Artículo 6º—La contratación de Comercializadores Externos permite a la Institución ofrecer a sus clientes la facilidad de adquirir servicios, realizar trámites y pagos de servicios de telecomunicaciones, por medio de contratos que se suscriben con éstos Comercializadores.

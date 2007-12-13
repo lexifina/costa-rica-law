@@ -1,0 +1,1 @@
+Artículo 32.—El Comercializador Externo se obliga a aceptar dentro de la actividad normal de sus negocios la atención y comercialización de servicios de telecomunicaciones indicadas en el Reglamento y en el Manual Interno para la Prestación de Servicios de Comercializadores Externos.

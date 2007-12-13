@@ -1,0 +1,1 @@
+Artículo 36.—El accionar operativo del Comercializador Externo deberá seguir a cabalidad las pautas establecidas en los procedimientos descritos en el Manual Interno para la Prestación de Servicios de Comercializadores Externos.

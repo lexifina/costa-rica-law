@@ -1,0 +1,1 @@
+Artículo 46.—Los comercializadores deberán asumir el riesgo asociado a cualquier negocio y a su vez deberán velar por la optimización de sus costos, dado que no se reconocerán ineficiencias en el precio a pagar por el servicio.

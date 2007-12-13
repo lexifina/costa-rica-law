@@ -1,0 +1,1 @@
+Artículo 40.—El Comercializador Externo no podrá condicionar la venta de servicios, realización de trámites o evacuación de consultas que los clientes demanden, a la compra de algún producto o servicio, la presentación de requisitos no exigidos por el ICE o el pago de comisiones o dádivas por parte de los clientes.

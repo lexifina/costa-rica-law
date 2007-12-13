@@ -1,0 +1,1 @@
+Artículo 44.—El Comercializador Externo está obligado a implementar con diligencia y eficacia las instrucciones comerciales que el ICE le comunique, con relación a la información a dar a los clientes, el orden de la atención, las normas de venta de servicios, aplicación de trámites, recepción de consultas y reclamos.

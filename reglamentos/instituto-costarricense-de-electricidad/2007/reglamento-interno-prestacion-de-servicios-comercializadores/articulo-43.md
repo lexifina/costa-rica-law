@@ -1,0 +1,1 @@
+Artículo 43.—El Comercializador Externo está obligado a mantener en un sitio seguro todos los materiales, equipos o productos que el ICE le confíe en razón de la comercialización de servicios y será responsable por los mismos mientras estén en su poder, debiendo responder por el costo de los mismos o el daño que ocasionare al ICE en caso de pérdida de los ellos.

@@ -1,0 +1,1 @@
+Artículo 29.—El ICE podrá hacer efectiva la garantía de cumplimiento ante cualquier incumplimiento contractual, siguiendo el procedimiento establecido tanto en el artículo 41 del Reglamento a la Ley de Contratación Administrativa, como en el artículo 83 del Capítulo I del Título IX, sobre las sanciones a los contratistas del Reglamento Interno de Contratación Administrativa.
