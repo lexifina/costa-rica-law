@@ -1,1 +1,0 @@
-Artículo 14.—El Departamento de Investigación tiene como fin primordial realizar estudios e investigaciones sobre la realidad y necesidades de la población estudiantil con necesidades educativas especiales, para que la toma de decisiones se realice sobre bases científicas.

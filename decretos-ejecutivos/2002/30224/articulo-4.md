@@ -1,1 +1,0 @@
-Artículo 4º—El Centro Nacional de Recursos podrá crear Centros Regionales Afiliados, de conformidad con los estudios técnicos que se lleven a cabo y las posibilidades presupuestarias correspondientes.

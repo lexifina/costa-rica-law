@@ -1,1 +1,0 @@
-Artículo 11.—El Departamento de Información y Orientación tendrá como función recopilar y clasificar información relacionada con ayudas técnicas y procesos educativos que puedan ser facilitados a los usuarios y organismos competentes en la materia. Para cumplir con esta función contará con un sistema referencial.

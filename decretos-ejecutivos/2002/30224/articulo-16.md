@@ -1,1 +1,0 @@
-Artículo 16.—El personal del centro que nombre el Ministerio de Educación Pública deberá reunir los requisitos y condiciones académicas que defina el Consejo Técnico Administrativo y el Servicio Civil.

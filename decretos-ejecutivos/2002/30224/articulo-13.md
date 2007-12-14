@@ -1,1 +1,0 @@
-Artículo 13.—El Departamento de Capacitación tendrá como fin brindar alternativas de capacitación y perfeccionamiento, relacionadas con la mediación pedagógica y la utilización de todo tipo de apoyos, que favorezcan la educación de los estudiantes con necesidades educativas especiales.
