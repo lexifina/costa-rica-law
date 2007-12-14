@@ -1,5 +1,5 @@
 (Derogado)
-(Derogado mediante acuerdo N° AJDIP/109 del 4 de marzo de 2005).
+(Derogado mediante acuerdo N° AJDIP/109 del 4 de marzo de 2005 y posteriormente se volvió a derogar mediante acuerdo N° AJDIP/569 del 14 de diciembre de 2007).
 A.J.D.I.P./132-99.—Puntarenas, a las catorce horas del día veintiuno de abril de mi! novecientos noventa y nueve.
 Considerando:
 1°—Que al amparo de disposiciones emitidas en años anteriores por parte del Poder Ejecutivo, se ha venido aplicando y otorgando los permisos de inactividad para que los permisionarios con licencia de pesca debidamente extendida por el INCOPESCA, dejarán de operar o realizar las faenas de pesca con sus embarcaciones registradas y autorizadas por el Instituto, por las razones expresamente permitidas o las alegadas por estos.
