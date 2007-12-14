@@ -15,3 +15,4 @@ Valora prórrogas de inactividad o renovación extemporánea para la aplicación
 | --- | --- | --- |
 | 1 | 2004-09-10 | la propia norma |
 | 2 | 2005-03-04 | Acuerdo 109 (2005-03-04) |
+| 3 | 2007-12-14 | Reglamento 0 (2007-12-14) |
