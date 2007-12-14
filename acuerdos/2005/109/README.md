@@ -16,3 +16,4 @@ Regulaciones Generales para el otorgamiento de permisos de inactividad a embarca
 | 1 | 2005-04-15 | la propia norma |
 | 2 | 2005-10-26 | Acuerdo 523 (2005-10-26) |
 | 3 | 2005-11-18 | Acuerdo 582 (2005-11-18) |
+| 4 | 2007-12-14 | Reglamento 0 (2007-12-14) |
