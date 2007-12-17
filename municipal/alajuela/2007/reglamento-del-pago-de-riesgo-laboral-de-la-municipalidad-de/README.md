@@ -14,3 +14,4 @@ Reglamento del Pago de Riesgo Laboral de la Municipalidad de Alajuela (Peligrosi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-31 | la propia norma |
+| 2 | 2007-12-17 | Reglamento municipal 0 (2007-12-17) |
