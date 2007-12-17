@@ -1,0 +1,1 @@
+Artículo 13.—El Comité Permanente conocerá solamente de aquellos asuntos que sean sometidos oficialmente por los Colegios Profesionales Universitarios o sus Delegados. En consecuencia, no podrá conocer de asuntos que planteen otras personas que, aunque profesionales, no sean delegadas ante el Comité Permanente o no actúen en la representación oficial del respectivo Colegio.

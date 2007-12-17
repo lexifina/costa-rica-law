@@ -1,0 +1,1 @@
+Artículo 16.—Para que el Comité Permanente pueda celebrar sesión, se requiere que estén representados cuando menos un cincuenta y uno por ciento de los Colegios miembros, con al menos uno de sus delegados.

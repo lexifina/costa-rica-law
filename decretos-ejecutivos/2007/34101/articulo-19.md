@@ -1,0 +1,1 @@
+Artículo 19.—Las sesiones del Comité Permanente se celebrarán en su sede. Mientras no disponga de una sede propia, las sesiones se celebrarán en el Colegio al que le haya correspondido la Presidencia; si esto no fuera posible, las sesiones se realizarán donde el Comité Permanente acuerde, según recomendación del Comité Ejecutivo.

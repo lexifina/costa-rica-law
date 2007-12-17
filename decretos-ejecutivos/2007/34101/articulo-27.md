@@ -1,0 +1,1 @@
+Artículo 27.—El Presidente representará judicial y extrajudicialmente a la Federación, con las facultades determinadas por el artículo 1255 del Código Civil. Cuando fuere necesario conferir al Presidente facultades más amplias que las aquí indicadas, el Comité Permanente podrá así acordarlo por dos tercios del total de sus miembros.

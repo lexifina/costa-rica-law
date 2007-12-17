@@ -1,0 +1,1 @@
+Artículo 37.—Si se inicia el siguiente año presupuestario sin que se hubiere aprobado el presupuesto, regirá para el nuevo año el del año anterior, hasta tanto se apruebe en definitiva el nuevo presupuesto.

@@ -1,0 +1,1 @@
+Artículo 18.—Las sesiones serán privadas, pero el Comité Permanente podrá disponer por mayoría de dos tercios de sus miembros presentes, realizarla de manera pública, o bien, admitir a ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

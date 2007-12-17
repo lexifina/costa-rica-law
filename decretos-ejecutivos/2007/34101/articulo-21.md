@@ -1,0 +1,1 @@
+Artículo 21.—Los dos Delegados al Comité Permanente pueden ser o no miembros de la Junta Directiva del respectivo Colegio; los cuales podrán ser nombrados por períodos de un año y ser reelegidos en forma sucesiva.

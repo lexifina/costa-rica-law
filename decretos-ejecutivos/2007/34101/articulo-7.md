@@ -1,0 +1,1 @@
+Artículo 7º—El Colegio miembro que desee retirarse de la Federación deberá presentar acuerdo firme de una Asamblea del Colegio que así lo decida y solicitar por escrito al Comité Permanente, acompañando certificación del acuerdo correspondiente.

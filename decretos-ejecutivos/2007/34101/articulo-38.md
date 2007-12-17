@@ -1,0 +1,1 @@
+Artículo 38.—En aquello que no este expresamente regulado en la Ley de la Federación, el presente Reglamento de la Ley, el Reglamento de Orden y Disciplina y reglamentos especiales de la Federación, en lo que sea pertinente se aplicará lo dispuesto en la Ley General de la Administración Pública.

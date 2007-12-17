@@ -1,0 +1,3 @@
+Artículo 6º—Para ingresar en la Federación los Colegios Profesionales Universitarios, se deberá presentar solicitud escrita ante el Comité Permanente, en la que se indica la ley de su creación, acompañada de los siguientes documentos:
+a) Atestados emitidos por organismos oficiales universitarios de Costa Rica que demuestren que las carreras amparadas por la ley del respectivo colegio corresponden a carreras de nivel profesional universitario.
+b) Certificación del acuerdo firme tomado en Asamblea General del respectivo Colegio, en que decidió integrarse a la Federación y de que no existe acuerdo posterior de desafiliación.

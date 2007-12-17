@@ -1,0 +1,1 @@
+Artículo 12.—El Comité Permanente se reunirá ordinariamente una vez al mes. Celebrará además sesiones extraordinarias cuando lo convoque el Presidente por sí solo o a solicitud escrita de uno o más Colegios.
