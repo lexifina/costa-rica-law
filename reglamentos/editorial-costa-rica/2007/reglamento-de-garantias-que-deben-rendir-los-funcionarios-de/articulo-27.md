@@ -1,0 +1,1 @@
+Artículo 27.—Rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobado en sesión del Consejo Directivo Nº 2257 de 22 de octubre de 2007. Aprobado por la Asamblea de Autores en la reunión del 27 de octubre de 2007.

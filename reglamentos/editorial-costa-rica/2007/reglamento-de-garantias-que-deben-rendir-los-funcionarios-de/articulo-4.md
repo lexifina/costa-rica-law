@@ -1,0 +1,1 @@
+Artículo 4º—La Gerencia o el máximo jerarca del órgano desconcentrado, determinarán con base en este Reglamento, cuáles funcionarios, según los puestos que desempeñen, deben rendir garantías ante esta Institución.

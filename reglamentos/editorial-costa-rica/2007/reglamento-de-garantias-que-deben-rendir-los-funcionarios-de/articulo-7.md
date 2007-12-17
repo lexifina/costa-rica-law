@@ -1,0 +1,1 @@
+Artículo 7º—Deber de solventar la garantía. Es deber del caucionante, asumir el costo íntegro de la garantía a favor de la Editorial Costa Rica, el cual deberá provenir de su propio peculio, bajo cualquiera de las formas que se contemplan en el artículo 5º de este Reglamento.

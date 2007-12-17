@@ -1,0 +1,1 @@
+Artículo 22.—Deber de informar sobre movimientos de los caucionantes. Corresponde a la Unidad de Recursos Humanos informar por escrito a la Jefatura Administrativa Financiera, respecto del nombramiento, cese o traslado del personal en puestos que por la índole de sus funciones se encuentran obligados a presentar caución.

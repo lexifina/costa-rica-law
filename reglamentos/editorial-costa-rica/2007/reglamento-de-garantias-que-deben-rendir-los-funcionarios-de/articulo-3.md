@@ -1,0 +1,1 @@
+Artículo 3º—La finalidad de la caución. La caución tiene como finalidad el asegurar, que cuando un funcionario o director incumpla sus deberes en el ejercicio de su cargo, haya un fondo que permita resarcir los eventuales daños y perjuicios al patrimonio público, de acuerdo con su responsabilidad.
