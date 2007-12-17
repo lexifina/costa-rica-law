@@ -1,2 +1,1 @@
-Artículo 13.
-La sociedad controladora deberá llevar su contabilidad de acuerdo con el catálogo y disposiciones que al efecto establezca el órgano supervisor correspondiente, de conformidad con los principios de contabilidad generalmente aceptados en Costa Rica y supletoriamente las normas contables internacionalmente aceptadas (NIC).
+Artículo 13.(Derogado mediante las sesiones 691-2007 y 692-2007 celebradas el 17 de diciembre de 2007)
