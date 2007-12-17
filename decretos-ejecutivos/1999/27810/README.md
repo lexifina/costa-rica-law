@@ -14,3 +14,4 @@ Reglamento a la Ley de Control de las Partidas Específicas con Cargo al Presupu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-21 | la propia norma |
+| 2 | 2007-12-17 | Decreto Ejecutivo 34230 (2007-12-17) |
