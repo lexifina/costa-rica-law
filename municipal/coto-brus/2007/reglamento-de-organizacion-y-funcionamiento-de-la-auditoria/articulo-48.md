@@ -1,0 +1,1 @@
+Artículo 48.—Comunicación al denunciante. El auditor interno deberá comunicar al denunciante sobre el trámite que se le ha dado a su denuncia; siempre haya especificado en dicho documento su nombre, calidades, y lugar de notificaciones.

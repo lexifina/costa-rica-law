@@ -1,0 +1,1 @@
+Artículo 13.—Salidas del trabajo. En cuanto a las salidas de la Institución para el cumplimiento de sus funciones, el auditor interno lo podrá comunicar a la secretaria del Concejo Municipal indicándole donde se encontrará, siempre que esta comunicación no entorpezca sus funciones e independencia.

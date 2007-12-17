@@ -1,0 +1,8 @@
+CAPÍTULO V
+Relaciones y coordinaciones
+Artículo 19.—Relaciones y coordinaciones. La Auditoría Interna mantendrá las siguientes relaciones y coordinaciones:
+a) El auditor interno deberá establecer a lo interno de la auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados.
+b) El auditor interno está facultado para proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la Ley correspondan y en el ámbito de sus competencias. Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.
+c) El auditor interno debe establecer mecanismos de coordinación necesarios para que el responsable del control del presupuesto institucional mantenga un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
+d) El auditor interno coordinará con el asesor legal de la institución para que este le brinde el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la LGCI.
+e) El auditor interno debe coordinar con los profesionales y técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.
