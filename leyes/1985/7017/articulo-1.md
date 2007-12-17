@@ -15,3 +15,4 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por el artículo 1° del decreto ejecutivo N° 33788 del 08 de mayo de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33879 del 16 de julio de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33954 del 16 de agosto de 2007)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34124 del 1 de noviembre de 2007)
