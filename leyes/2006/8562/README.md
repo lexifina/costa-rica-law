@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2007
 
-Ley N° 8562 del 2006-12-07. SINALEVI, ficha 58851: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58851&param2=70546&param3=1>.
+Ley N° 8562 del 2006-12-07. SINALEVI, ficha 58851: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58851&param2=70549&param3=1>.
 
 Publicada en La Gaceta N° 250 del 2006-12-29.
 
@@ -29,3 +29,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 19 de 25 | 2007-11-16 | Decreto Ejecutivo 34098 (2007-11-05) | 2007-11-05 |
 | 20 de 25 | 2007-12-04 | Decreto Ejecutivo 34120 (2007-11-15) | 2007-11-15 |
 | 21 de 25 | 2007-12-17 | Decreto Ejecutivo 34151 (2007-11-23) | 2007-11-23 |
+| 22 de 25 | 2007-12-17 | Decreto Ejecutivo 34159 (2007-12-03) | 2007-12-03 |

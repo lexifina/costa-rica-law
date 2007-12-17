@@ -30,7 +30,7 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 33795 del 22 de mayo de 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33864 del 12 de julio del 2007).
 (Modificado por el artículo 1° del decreto ejecutivo N° 33898 del 24 de julio del 2007).
-(Reformado por los artículos 2° y 3° de la ley N° 8593 del 10 de agosto del 2007, la cual posteriormente fue modificada por el artículo 2° del decreto ejecutivo N° 34064 del 08 de octubre de 2007).*(Modificado mediante el artículo 2° del decreto ejecutivo N° 34084 del 26 de octubre de 2007).*(Modificado por el artículo 1° del decreto ejecutivo N° 34098 del 05 de noviembre de 2007)
+(Reformado por los artículos 2° y 3° de la ley N° 8593 del 10 de agosto del 2007, la cual posteriormente fue modificada por el artículo 2° del decreto ejecutivo N° 34064 del 08 de octubre de 2007).*(Modificado mediante el artículo 2° del decreto ejecutivo N° 34084 del 26 de octubre de 2007).*(Mediante el artículo 1° del decreto ejecutivo N° 34159 del 3 de diciembre de 2007, se modifica el artículo 2° de la Ley N° 8593 del 10 de agosto de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33979 del 18 de setiembre de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34064 del 08 de octubre de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34084 del 26 de octubre de 2007) *(Mediante el artículo 2° del decreto ejcutivo N° 34120 del 15 de noviembre de 2007, se modifica el artículo 1° del decreto ejecutivo N° 34084 del 26 de octubre de 2007)
