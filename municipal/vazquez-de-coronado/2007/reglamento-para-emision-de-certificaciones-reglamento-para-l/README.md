@@ -15,3 +15,4 @@ Reglamento para Emisión de Certificaciones (Reglamento para la Compra y Distrib
 | --- | --- | --- |
 | 1 | 2007-04-19 | la propia norma |
 | 2 | 2007-08-06 | Reglamento municipal 67 (2007-08-06) |
+| 3 | 2007-12-17 | Reglamento municipal 83 (2007-11-26) |
