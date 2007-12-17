@@ -1,0 +1,1 @@
+Artículo 14.—NIC 31. Participaciones en Negocios Conjuntos. Los estados financieros consolidados de las entidades a las que las leyes les permiten participar en negocios conjuntos deben prepararse con base en el método de consolidación proporcional.

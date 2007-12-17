@@ -1,0 +1,2 @@
+Artículo 21.—NIIF 5. Activos no corrientes mantenidos para la venta y operaciones discontinuadas. Los entes supervisados por la SUGEF deben registrar una estimación equivalente a su valor contable para los bienes retirados de uso y para los bienes realizables que no fueren vendidos o arrendados, mediante arrendamiento operativo o financiero, en el plazo de dos años contados a partir de la fecha de su adquisición o producción.
+Dicho plazo podrá ser ampliado por el Superintendente General de Entidades Financieras por periodos iguales, a solicitud de la entidad respectiva.

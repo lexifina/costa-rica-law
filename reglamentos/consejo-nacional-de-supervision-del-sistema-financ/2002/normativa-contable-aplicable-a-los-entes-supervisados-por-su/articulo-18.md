@@ -1,0 +1,7 @@
+Artículo 18.—NIC 39. Instrumentos financieros; reconocimiento y medición. Las compras y las ventas de valores convencionales deben registrarse utilizando el método de la fecha de liquidación.
+De acuerdo con el tipo de entidad, los activos financieros deben ser clasificados como se indica a continuación:
+a) Carteras Mancomunadas. Las inversiones que conforman las carteras mancomunadas de los fondos de inversión, fondos de pensión y capitalización, fideicomisos similares, y OPAB deben clasificarse como disponibles para la venta.
+b) Inversiones propias de los entes supervisados. Las inversiones en instrumentos financieros de los entes supervisados deben ser clasificadas en la categoría de disponibles para la venta.
+Las inversiones propias en participaciones de fondos de inversión abiertos se deben clasificar como activos financieros negociables. Las inversiones propias en participaciones de fondos de inversión cerrados se deben clasificar como disponibles para la venta.
+Los supervisados por SUGEVAL y SUGEF pueden clasificar otras inversiones en instrumentos financieros mantenidos para negociar, siempre que exista una manifestación expresa de su intención para negociarlos en un plazo que no supere los noventa días contados a partir de la fecha de adquisición.
+Independientemente de los incisos a) o b) en la cual se clasifiquen los valores, la amortización de primas y descuentos debe realizarse por el método de interés efectivo.

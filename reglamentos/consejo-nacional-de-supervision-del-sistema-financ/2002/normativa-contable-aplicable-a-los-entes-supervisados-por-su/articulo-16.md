@@ -1,0 +1,1 @@
+Artículo 16.—NIC 37. Provisiones, Activos Contingentes y Pasivos Contingentes. Los entes supervisados por la SUGEF deben registrar una estimación por el deterioro de los créditos contingentes concedidos, según el acuerdo SUGEF 1-05 “Reglamento para la calificación de deudores” y sus lineamientos generales.

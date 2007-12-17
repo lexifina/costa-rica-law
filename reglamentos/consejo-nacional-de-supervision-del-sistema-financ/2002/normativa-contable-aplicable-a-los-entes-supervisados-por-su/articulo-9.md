@@ -1,0 +1,1 @@
+Artículo 9º—NIC 18. Ingresos Ordinarios. Los ingresos por comisiones e intereses de operaciones de préstamos y descuentos vencidas, de los entes supervisados por SUGEF, a más de ciento ochenta días, devengados y no percibidos, se suspenderá su registro contable hasta cuando sean cobrados.
