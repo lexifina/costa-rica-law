@@ -1,0 +1,3 @@
+Artículo 6º—Frecuencia de las sesiones. El Comité de Auditoria Corporativo, sesionará al menos una vez al mes en forma ordinaria, y extraordinariamente cuando su presidente convoque.
+De cada reunión se levantará un acta, en el Libro de Actas debidamente legalizado por la Auditoria Interna del Banco. En el acta se dejará constancia, además de lo indicado en el artículo 56 de la Ley General de la Administración Pública, de los asuntos tratados y acuerdos adoptados por el Comité, así como el resultado de las votaciones.
+El acta deberá ser aprobada en la siguiente sesión ordinaria salvo que se imposibilite por circunstancias especiales, en cuyo caso necesariamente se aprobará en la siguiente sesión ordinaria.
