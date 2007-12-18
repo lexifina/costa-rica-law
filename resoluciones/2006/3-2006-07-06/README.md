@@ -15,3 +15,4 @@ Establece las Áreas que integrarán la División de Fiscalización Operativa y 
 | --- | --- | --- |
 | 1 | 2006-07-25 | la propia norma |
 | 2 | 2006-08-28 | Resolución 68 (2006-08-28) |
+| 3 | 2007-12-18 | Resolución 63 (2007-12-18) |
