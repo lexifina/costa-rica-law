@@ -1,0 +1,1 @@
+Artículo 70.—Toda finca o lote consolidado antes de la entrada en vigencia del Plan de Ordenamiento Territorial que se encuentre dividido por dos zonas de uso del suelo, se incorporara el lote o la finca a la zona que tenga mayor porcentaje.

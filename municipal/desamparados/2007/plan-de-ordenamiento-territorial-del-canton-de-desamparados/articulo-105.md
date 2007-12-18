@@ -1,0 +1,1 @@
+Artículo 105.—El área de estacionamiento puede dejarse en el retiro frontal o posterior, debiendo dejarse por cada 30 metros cuadrados de construcción, un estacionamiento de 2,5 metros de ancho por 5 metros de largo. Si se utiliza el retiro de la línea de propiedad a la línea de construcción, esta área puede emplearse como área de estacionamiento.

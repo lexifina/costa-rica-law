@@ -1,0 +1,1 @@
+Transitorio IX.—El Proceso de Ordenamiento Territorial en conjunto con el Proceso de Recursos Humanos, deberá elaborar en un plazo no mayor a 6 meses el manual de procedimientos para cada proceso, como complemento para la ejecución del P.O.T.

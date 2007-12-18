@@ -1,0 +1,1 @@
+Artículo 75.—Las actividades denominadas turnos o ferias se consideran actividades temporales, las cuales se podrán desarrollar en las distintas zonas, siempre y cuando se ajusten a lo estipulado en la Ley de Espectáculos Públicos y demás normativa vigente.

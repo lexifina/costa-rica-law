@@ -1,0 +1,1 @@
+Artículo 61.—Si las obras se inician en el transcurso del plazo establecido para la licencia, esta se extenderá por un año a partir de que se inicien las obras. Si las obras son suspendidas, se aplicará una caducidad de un año para reiniciar las mismas. En caso de no iniciar, deberá tramitar nuevamente los permisos.

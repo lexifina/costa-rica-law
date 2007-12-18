@@ -1,0 +1,5 @@
+Artículo 139.—Prohibiciones:
+a. Queda terminantemente prohibido intervenir el cauce y márgenes de ríos (áreas de protección), salvo para la realización de aquellas obras de infraestructura necesarias para la seguridad y salubridad con sus respectivos estudios técnicos previo al permiso del Departamento de Aguas del MINAE su resolución de aprobación, como lo establece la Ley de Aguas 276.
+b. Queda terminantemente prohibido contaminar los cuerpos de agua con desechos sólidos y líquidos por descarga directa y en otros sitios, según lo establece la Ley General de Salud y Ley de Vida Silvestre y demás leyes.
+c. No podrán realizarse movimientos de tierras con maquinaria en las márgenes de ríos, nacientes, humedales localizados en la Zona Especial de Protección del GAM. Para construir senderos deberán hacerse manualmente, utilizando materiales que no contaminen y que sean permeables, previa autorización del MINAE y el Proceso Ordenamiento Territorial.
+d. No se permite bajo ninguna circunstancia, invadir o construir en las Áreas de Protección de ríos, según la Ley Forestal 7575, artículo 33.

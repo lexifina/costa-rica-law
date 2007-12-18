@@ -1,0 +1,1 @@
+Artículo 83.—Usos No Conformes: centros comerciales, gimnasios, locales de culto, restaurantes, talleres de servicios, industria, bares, salones de fiestas y de baile, licoreras, discotecas o similares, pooles y billares, juegos electrónicos o futbolines, clínicas veterinarias, lavados de autos, salas para práctica de bicicleta estacionaria, venta de mascotas.

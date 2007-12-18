@@ -1,0 +1,1 @@
+Artículo 27.—En proyectos en condominio, residenciales o comerciales, se deberá cumplir con lo establecido en el Reglamento a la Ley Reguladora de la Propiedad en Condominio, publicado en La Gaceta Nº 74, del 19 de abril del 2005. Se permitirá condominio únicamente frente a calle pública existente.

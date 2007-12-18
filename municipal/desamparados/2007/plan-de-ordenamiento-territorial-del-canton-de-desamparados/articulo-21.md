@@ -1,0 +1,1 @@
+Artículo 21.—Los planos correspondientes a proyectos de urbanización, condominio o de fraccionamiento para efectos de urbanización y condominio, previamente a la aprobación Municipal deberán ser examinados y visados, en forma ineludible, por la Dirección de Urbanismo del INVU. Para el caso de industrias, el permiso de ubicación es otorgado por el Ministerio de Salud.

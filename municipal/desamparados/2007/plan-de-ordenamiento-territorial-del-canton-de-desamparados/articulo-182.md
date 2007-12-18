@@ -1,0 +1,1 @@
+Artículo 182.—En caso de un local existente se pretenda dividir en nuevos locales, aun en el supuesto de que sean menores a los 40m², requerirán de un espacio de estacionamiento extra por cada nuevo local.

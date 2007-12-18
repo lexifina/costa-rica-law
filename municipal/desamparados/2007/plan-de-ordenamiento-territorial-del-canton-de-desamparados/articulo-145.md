@@ -1,0 +1,1 @@
+Artículo 145.—Todas aquellas propiedades que se encuentren dentro de la zona de control especial en caso específico de fallas geológicas y se requiera permiso para remodelación, construcción o ampliación, debe aplicarse lo que se establece en el código sísmico y de cimentaciones en cuanto a estudios, diseño constructivo y tipo de material a utilizar.

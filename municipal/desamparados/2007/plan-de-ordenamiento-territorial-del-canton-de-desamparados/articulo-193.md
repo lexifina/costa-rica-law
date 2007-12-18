@@ -1,0 +1,1 @@
+Artículo 193.—En el área de antejardín, sea en la parte frontal o lateral de la propiedad, únicamente se permitirá la construcción de muros a una altura máxima de 1 metro sobre el nivel Superada esta medida, solo se autorizarán verjas de hierro o malla, de manera que se permita una visibilidad de por lo menos el 80% de su superficie.

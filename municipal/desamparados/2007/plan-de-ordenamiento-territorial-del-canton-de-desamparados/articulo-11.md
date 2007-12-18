@@ -1,0 +1,4 @@
+Artículo 11.—De conformidad con los artículos 59 y 60 de la Ley de Planificación Urbana, se conformará la Junta de Planificación Cantonal, en adelante “Comisión de Enlace Estratégico Territorial” la cual estará conformada por: Alcaldesa-Alcalde o su representante, Coordinador del Proceso de Ordenamiento Territorial o su representante, el Asesor Legal del Proceso de ordenamiento territorial, dos regidores nombrados por el Concejo Municipal, como representantes comunales en un plazo no mayor de cuatro meses después de la entrada en vigencia del Plan de Ordenamiento Territorial. Sus objetivos son:
+a. Fiscalizar el cumplimiento del Plan de Ordenamiento Territorial.
+b. Ser un enlace estratégico de comunicación entre la Municipalidad y la comunidad.
+c. Organizar grupos fiscalizadores territoriales de carácter voluntario.

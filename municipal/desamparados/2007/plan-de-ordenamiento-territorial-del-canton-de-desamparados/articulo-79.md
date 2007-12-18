@@ -1,0 +1,1 @@
+Artículo 79.—En las áreas destinadas a uso comunal, se permitirá la realización de eventos temporales públicos o privados tales como reuniones sociales (cumpleaños, bodas, té, bailes, ventas de comidas, bingos, exposiciones), siempre y cuando se ajusten a la Ley de Espectáculos Públicos y demás normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 169.—La vialidad está constituida por el conjunto de componentes o espacios destinados a la circulación o desplazamiento de vehículos y peatones. Para efectos del P.O.T, en zona urbana, se distinguirán tres formas de vialidad: vehicular, peatonal y ciclista. Este sistema vial comprende el espacio local o cantonal y nacional.

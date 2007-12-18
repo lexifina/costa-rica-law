@@ -1,0 +1,1 @@
+Artículo 113.—Las áreas de reserva del INVU se utilizarán para programas de renovación y reubicación urbana en el cantón. Se aplicaría en la medida de lo posible los requisitos de las zonas residenciales de alta y media densidad.

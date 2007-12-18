@@ -1,0 +1,1 @@
+Artículo 164.—Se debe presentar un diseño integral de la fachada donde se incluya la propuesta del rótulo, cuando éste modifique o incluya: columnas, relieves, ventanas, puertas y otros elementos ornamentales de la edificación, así como los techos de los inmuebles.

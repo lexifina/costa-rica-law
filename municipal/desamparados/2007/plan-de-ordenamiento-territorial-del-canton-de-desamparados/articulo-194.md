@@ -1,0 +1,1 @@
+Artículo 194.—Para la ejecución de obras, sean públicas o privadas, que incluyan el rompimiento de la vía pública se requiere del correspondiente permiso. Deberá indicarse además las condiciones en que se concede dicho permiso. Finalizadas las obras, la reparación de la vía pública estará a cargo de la persona física o jurídica responsable de las obras.

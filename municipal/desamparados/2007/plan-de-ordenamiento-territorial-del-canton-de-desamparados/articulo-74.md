@@ -1,0 +1,1 @@
+Artículo 74.—Para la solicitud de licencias y patentes nuevas, el interesado debe presentar el certificado de uso del suelo y demás requisitos señalados en la Ley Nº 8220 y demás leyes y reglamentos vigentes.

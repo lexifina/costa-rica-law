@@ -1,0 +1,1 @@
+Artículo 26.—No se autorizará ningún permiso de construcción en línea de propiedad si esta no cumple con el derecho de vía propuesto por el Reglamento Vial de este Plan, excepto que se trate de una obra existente declarada como patrimonio histórico, conforme a la Ley vigente.

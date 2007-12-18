@@ -1,0 +1,1 @@
+Artículo 160.—Quedan prohibidas las tapias con rótulos publicitarios de cualquier clase. Solo se permiten aquellas que se usan como cerramiento del proceso constructivo de una obra, siempre y cuando cuenten con la autorización correspondiente de la Municipalidad; publicidad que se debe eliminar una vez finalizada la obra.

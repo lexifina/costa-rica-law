@@ -1,0 +1,1 @@
+Transitorio II.—Para la ejecución adecuada del P.O.T., la Administración y Concejo Municipal en conjunto con el Proceso de Ordenamiento Territorial, deben definir y dotar los recursos necesarios con el objetivo de cumplir con la política local en congruencia con las políticas nacionales de ordenamiento territorial y planificación urbana.

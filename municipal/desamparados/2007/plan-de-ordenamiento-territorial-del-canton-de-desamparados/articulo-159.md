@@ -1,0 +1,1 @@
+Artículo 159.—En Zonas Comerciales e Industriales que enfrentan calles de la Red Vial Nacional, se permitirán rótulos de funcionamiento, de conformidad con el Decreto Ejecutivo Nº 29253-MOPT, publicado en La Gaceta Nº 25 del 5 de febrero del 2001.

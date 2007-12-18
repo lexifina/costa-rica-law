@@ -1,0 +1,1 @@
+Artículo 24.—Todo proyecto de fraccionamiento, urbanización de tipo industrial, residencial habitacional, residencial en condominio o comercial, debe cumplir con la presentación de un anteproyecto con la finalidad de establecer su factibilidad. La aprobación del anteproyecto que se otorgue, no autoriza la ejecución de las obras ni la venta de lotes.

@@ -1,0 +1,1 @@
+Artículo 8º—En el caso de que el solicitante o interesado tenga una condición de poseedor de una propiedad, para cualquier tipo de trámite debe presentar los atestados correspondientes que demuestren legalmente su debida posesión.

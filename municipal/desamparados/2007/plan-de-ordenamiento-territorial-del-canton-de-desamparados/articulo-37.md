@@ -1,0 +1,3 @@
+Artículo 37.—En caso de planos catastrados referentes a lotes existentes que no cumplen con los requisitos establecidos para la zona, el visado correspondiente se dará con base en los siguientes supuestos:
+a. Cuando el interesado demuestre que el plano de catastro se inscribió en el Registro Nacional antes de la promulgación del P.O.T., o en su defecto, por medio de copia del documento debidamente certificada por el Registro de la Propiedad.
+b. Cuando los planos hayan sido visados por el INVU, cuenten con los servicios básicos y las obras de infraestructura, debidamente comprobados por documentos de las Instituciones competentes y esto se haya dado con anterioridad a la promulgación del P.O.T.

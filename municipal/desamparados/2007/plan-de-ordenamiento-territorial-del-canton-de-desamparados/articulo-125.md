@@ -1,0 +1,9 @@
+Artículo 125.—Los objetivos de la Comisión serán:
+a. Velar por el Cumplimiento de la Ley Nº 7555 “Ley de Patrimonio Histórico Arquitectónico”
+b. Enviar al Centro de Investigación y Conservación del Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes las solicitudes de Declaratoria de Patrimonio Histórico Arquitectónico.
+c. Sugerir los destinos de los fondos del presupuesto Municipal referentes a la conservación y restauración del Patrimonio Histórico Arquitectónico.
+d. Definir las zonas protegidas o de control especial que serán zonas de interés cultural, histórico o arquitectónico en el cantón.
+e. Debe emitir una resolución para todos aquellas solicitudes de permisos de construcción que puedan afectar las zonas de protección cultural, velando porque permitan una integración con el entorno y se utilicen materiales adecuados, en el caso de lugares o edificaciones con “Declaratoria de Patrimonio Histórico o Arquitectónico”, velara porque no se realice ninguna intervención si no tiene el correspondiente permiso del “Centro de Investigación y Conservación de Patrimonio Cultural” del Ministerio de Cultura Juventud y Deportes.
+g. Ser un órgano consultivo cada vez que una obra afecte un bien que pueda ser de interés patrimonial, ya sea, para demolición, reparación, restauración, rea-condicionamiento, obra nueva o bien que afecte una de las partes de la estructura o el terreno en el cual se ubica, esto con el fin de evitar la pérdida de patrimonio cultural.
+h. Debe la Comisión sesionar en un plazo no mayor de 8 días hábiles cuando así lo requiera el Proceso de Ordenamiento Territorial a efecto de dar trámite a alguna solicitud que afecte una propiedad que tenga interés patrimonial.
+j. Debe elaborar los reglamentos de uso de las infraestructuras y equipamientos municipales dedicados a la cultura y velar por el cumplimiento de los mismos.

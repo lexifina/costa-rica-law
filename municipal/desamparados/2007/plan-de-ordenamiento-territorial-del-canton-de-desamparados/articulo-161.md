@@ -1,0 +1,1 @@
+Artículo 161.—Para la colocación de aquellos rótulos con información relativa a: seguridad vial, nomenclatura urbana, información turística, placas conmemorativas y de homenaje; siempre que estos sean oficiales y no contengan un mensaje publicitario particular, deberá solicitarse el visto bueno emitido por la municipalidad.

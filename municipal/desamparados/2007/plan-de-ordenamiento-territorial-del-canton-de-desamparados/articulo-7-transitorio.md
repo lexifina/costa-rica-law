@@ -1,0 +1,1 @@
+Transitorio VII.—El Proceso de Ordenamiento Territorial, conjuntamente con el INVU realizará en un plazo no mayor de 10 meses estudio vial, para determinar los derechos de vías de los caminos vecinales y calles especiales.

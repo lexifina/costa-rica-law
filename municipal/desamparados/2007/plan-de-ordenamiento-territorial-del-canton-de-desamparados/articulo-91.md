@@ -1,0 +1,1 @@
+Artículo 91.—Usos No Conformes: comercio mayor, talleres de servicios en general, industria, bares, salones de fiestas y de baile, salas de eventos especiales, licoreras, discotecas o similares, pooles y billares, juegos electrónicos o futbolines, lavados de autos.

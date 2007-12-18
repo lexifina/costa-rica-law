@@ -1,0 +1,1 @@
+Artículo 107.—Usos Conformes: Educación: kinders, escuelas, colegios o universidades, bibliotecas y museos. Salud: clínicas y hospitales. Servicios de protección y afines: policía, bomberos, Cruz Roja. Servicios y oficinas gubernamentales: tribunales, correos, regionales de ministerios, oficinas instituciones públicas, bancos estatales, cementerios públicos o privados.

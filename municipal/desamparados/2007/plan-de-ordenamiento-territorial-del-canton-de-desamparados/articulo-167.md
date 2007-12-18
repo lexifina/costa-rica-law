@@ -1,0 +1,1 @@
+Artículo 167.—Cuando se comprobare el incumplimiento de las disposiciones del reglamento de rótulos publicitarios se le notificará al infractor para que remueva las estructuras que hubiera levantado sin derecho a indemnización alguna, caso contrario la Municipalidad procederá a la remoción de las mismas y el costo se le trasladará al patentado.

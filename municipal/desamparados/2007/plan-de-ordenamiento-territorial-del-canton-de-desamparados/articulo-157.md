@@ -1,0 +1,1 @@
+Artículo 157.—En los sitios de parabuses o escampaderos, solo se permitirán 2.20 metros cuadrados para publicidad. Esta disposición regirá para aquellos locales ubicados frente a calles de la Red Vial Nacional. Lo anterior de conformidad con el Decreto Ejecutivo Nº 29253-MOPT, publicado en La Gaceta Nº 25 del 5 de febrero del 2001.

@@ -1,0 +1,1 @@
+Artículo 185.—Para los casos de condominios o conjuntos residenciales verticales se permitirán estacionamientos subterráneos, con los requisitos y condiciones que establece el Reglamento de Construcciones en lo pertinente.

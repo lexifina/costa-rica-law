@@ -1,0 +1,1 @@
+Artículo 58.—Para la aprobación de obras y proyectos que reúnan todos los requisitos y condiciones, el Proceso de Ordenamiento Territorial tendrán 30 días naturales para resolver. Dicho plazo se contará a partir del día siguiente a la presentación de la solicitud, de conformidad con lo señalado en la Ley General de la Administración Pública Nº 6227.

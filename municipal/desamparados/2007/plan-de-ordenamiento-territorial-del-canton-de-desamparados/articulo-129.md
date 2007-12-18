@@ -1,0 +1,1 @@
+Artículo 129.—Usos No Conformes: vivienda unifamiliar o multifamiliar, comercio en general, industria, servicios de comercio y abasto, servicios de oficinas, servicios institucionales, talleres de servicios en general.

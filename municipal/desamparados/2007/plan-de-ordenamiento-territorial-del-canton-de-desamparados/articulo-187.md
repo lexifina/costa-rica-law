@@ -1,0 +1,1 @@
+Artículo 187.—Todo propietario de lote o lotes baldíos, está obligado a cercar su propiedad, con materiales en buen estado y que no represente ningún peligro para la integridad física de las personas, respetando el derecho de vía y la futura acera. En este caso, la tapia tendrá como mínimo dos metros de alto.

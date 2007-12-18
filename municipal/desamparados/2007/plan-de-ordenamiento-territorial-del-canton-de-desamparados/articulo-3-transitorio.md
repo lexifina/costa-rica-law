@@ -1,0 +1,1 @@
+Transitorio III.—Para la correspondiente formulación de programas específicos de Rescate y Renovación Urbana para los sectores definidos en el presente Plan de Ordenamiento Territorial, la Municipalidad tiene un plazo de doce meses a partir de su entrada en vigencia.

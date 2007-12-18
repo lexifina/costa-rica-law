@@ -1,0 +1,1 @@
+Artículo 158.—En Zonas Comerciales existentes y propuestas por el P.O.T., solo se permitirán rótulos adosados con un tamaño de un metro veinte centímetros (1,20 m) de largo por sesenta centímetros de ancho, o bien, submúltiplos de estas dimensiones.

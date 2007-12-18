@@ -1,0 +1,1 @@
+Transitorio X.—Para la elaboración del Reglamento Municipal de Construcción de Aceras, la Municipalidad tendrá un plazo de 6 meses a partir de la publicación del presente Reglamento, el cual entrara en vigencia una vez publicado en el Diario Oficial La Gaceta.

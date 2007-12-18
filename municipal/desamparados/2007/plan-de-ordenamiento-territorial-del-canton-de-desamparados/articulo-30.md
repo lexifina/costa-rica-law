@@ -1,0 +1,1 @@
+Artículo 30.—El visado municipal de planos catastrados o no, emitido por el Proceso de Ordenamiento Territorial, lo otorgará en los términos y condiciones que establece la Ley de Planificación Urbana y el presente reglamento.

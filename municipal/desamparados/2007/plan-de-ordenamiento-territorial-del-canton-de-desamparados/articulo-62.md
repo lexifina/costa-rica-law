@@ -1,0 +1,1 @@
+Artículo 62.—El Proceso de Ordenamiento Territorial de la Municipalidad otorgará por una sola vez una prórroga de un año, en los casos en que el interesado haya iniciado la obra o no y lo solicite, siempre y cuando no haya vencido el plazo que se indica en el artículo anterior.

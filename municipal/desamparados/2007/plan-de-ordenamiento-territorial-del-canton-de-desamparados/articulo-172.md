@@ -1,0 +1,1 @@
+Artículo 172.—El derecho de vía de carreteras nacionales del cantón, así como los alineamientos propuestos para estas, las definirá el MOPT por competencia. Y la modificación de cualquier vía, se hará en coordinación entre la Municipalidad y el MOPT. El derecho de vía y alineamiento de las calles cantonales será competencia de la Municipalidad.

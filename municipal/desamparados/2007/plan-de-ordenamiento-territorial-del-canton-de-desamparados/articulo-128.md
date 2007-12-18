@@ -1,0 +1,1 @@
+Artículo 128.—Usos Conformes: instalaciones deportivas, recreativas públicas o privadas, parque recreativo, deportivo, temático, lineal y urbano, plazas, canchas abiertas o cerradas, oficinas administrativas, auditorios, gimnasios, servicios sanitarios públicos, móviles y fijos, áreas de vestidores y duchas.

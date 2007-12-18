@@ -1,0 +1,1 @@
+Artículo 22.—La Administración queda facultada para modificar el valor de la construcción en el caso que se determine que el valor de lo construido es mayor que el detallado en la solicitud de trámite, toda modificación de valor deberá ser notificada al administrado, el cual podrá en un plazo de 5 días hábiles contados a partir de la notificación de impugnar el nuevo valor.

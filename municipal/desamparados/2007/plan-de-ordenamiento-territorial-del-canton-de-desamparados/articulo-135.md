@@ -1,0 +1,1 @@
+Artículo 135.—Se permitirá el fraccionamiento frente a servidumbres agrícolas, la cual debe tener un ancho de 7,00 metros, siempre y cuando las parcelas resultantes no tengan un área menor a 5000 m². Para efectos de establecer la superficie mínima para la construcción de vivienda y área de cobertura máxima se aplicará lo establecido en el artículo 135 de este reglamento.

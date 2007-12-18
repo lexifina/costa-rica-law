@@ -1,0 +1,1 @@
+Artículo 192.—Para la ubicación y autorización de mobiliario urbano: bancas, basureros, casetas telefónicas, pasamanos o casetas de paradas de buses, o en programas de arborización de los espacios públicos, la Municipalidad someterá a estudio la propuesta para emitir la correspondiente autorización.

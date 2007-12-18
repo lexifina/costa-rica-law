@@ -1,0 +1,1 @@
+Artículo 36.—El visado de todo plano catastrado no tendrá plazo de caducidad en tanto no varíen las características propias de cada uno de ellos: área, frente, fondo, linderos. En caso de alguna modificación sustancial del terreno, se deberá elaborar otro plano que demuestre dicha modificación y en consecuencia, se debe tramitar el nuevo visado.

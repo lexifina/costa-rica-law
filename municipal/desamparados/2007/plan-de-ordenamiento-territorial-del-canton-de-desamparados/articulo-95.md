@@ -1,0 +1,1 @@
+Artículo 95.—Usos Conformes: vivienda unifamiliar (de mediana densidad), multifamiliar (vertical), comercio, servicios, espacios públicos: plazas (deportivas, recreativas), bulevares y parques; servicios institucionales públicos y privados (centros educativos, instituciones), locales de culto (capillas), centros de capacitación y aprendizaje.

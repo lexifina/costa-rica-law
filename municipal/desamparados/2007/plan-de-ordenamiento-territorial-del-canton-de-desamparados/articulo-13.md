@@ -1,0 +1,1 @@
+Artículo 13.—En el caso de que funcionarios municipales violen, omitan, infrinjan o alteren las disposiciones del presente Reglamento o cualquier disposición o norma aplicable a favor de algún usuario o interesado, se calificará como falta grave y será sancionado de conformidad a lo que indica el ordenamiento jurídico.

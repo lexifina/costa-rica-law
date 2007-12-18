@@ -1,0 +1,1 @@
+Artículo 25.—El diseño de todo edificio público o privado donde ingrese público deberá cumplir con la normativa dispuesta en la Ley Nº 7600, Ley de Igualdad de Oportunidades para las personas con discapacidad en Costa Rica. También se debe de tomar en cuenta esta normativa para todos los demás tipos de proyecto.

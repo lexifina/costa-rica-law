@@ -1,0 +1,1 @@
+Artículo 126.—Cuando exista duda sobre el valor de un bien patrimonial o sobre el uso que se deba dar al mismo se consultará al Centro de Investigación y Conservación del Patrimonio Histórico del MCJD.

@@ -1,0 +1,1 @@
+Artículo 178.—Las terminales de abordaje de transporte público, se delimitan en el plano de vialidad. En caso de que no se ejecute el proyecto en un plazo de dos años a partir de la vigencia de este reglamento, se mantiene el uso indicado en el plano de zonificación de usos del suelo.

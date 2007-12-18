@@ -1,0 +1,1 @@
+Artículo 66.—Toda infracción al P.O.T y sus Reglamentos que se cometa por parte del profesional responsable de un proyecto, del propietario del inmueble, del contratista de sus representantes legales, o por cualquier administrado en general, será sancionado conforme lo estipulan las leyes vigentes.

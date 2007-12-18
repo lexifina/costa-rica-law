@@ -1,0 +1,1 @@
+Artículo 97.—Usos Condicionales: Estaciones de servicios, hoteles cama desayuno, funerarias o capillas de velación, veterinarias, gimnasios, guarderías, salas de práctica de bicicleta estacionaria, academias de arte, EBAIS, centros médicos o clínicas.

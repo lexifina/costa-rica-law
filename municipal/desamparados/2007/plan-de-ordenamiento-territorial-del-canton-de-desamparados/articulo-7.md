@@ -1,0 +1,1 @@
+Artículo 7º—Los recursos financieros que se destinen a los fines que se señalan en el artículo anterior, provendrán de los fondos presupuestarios de la Municipalidad o de empréstitos, donaciones de empresas públicas o privadas conforme a las disposiciones que establece el Código Municipal.

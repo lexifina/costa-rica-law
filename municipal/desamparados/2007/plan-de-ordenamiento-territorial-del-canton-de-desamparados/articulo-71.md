@@ -1,0 +1,1 @@
+Artículo 71.—Las fincas por cuyos terrenos se definió el límite de contención urbana o que están próximos con este a no más de 100 m, podrán exceder el uso urbano dentro del área de protección en un porcentaje no mayor al 50% del área total de la finca, ó hasta 200m del límite, cualquiera que fuese menor.

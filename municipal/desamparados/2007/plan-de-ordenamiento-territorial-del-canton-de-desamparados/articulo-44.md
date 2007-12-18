@@ -1,0 +1,1 @@
+Artículo 44.—Para todo permiso de construcción se aplicarán los requisitos señalados en la Tabla de Vulnerabilidad (Mapa Hidrogeológico, SENARA) e Índices de Fragilidad Ambiental (Tablas de Subzonificación del IFA).

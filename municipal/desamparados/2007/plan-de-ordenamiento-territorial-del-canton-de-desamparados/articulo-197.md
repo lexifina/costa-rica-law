@@ -1,0 +1,1 @@
+Artículo 197.—Toda concesión de espacio público conlleva el pago por su ocupación. Este pago se realizará trimestralmente por adelantado y en caso de incumplimiento se rescindirá el permiso de ocupación.

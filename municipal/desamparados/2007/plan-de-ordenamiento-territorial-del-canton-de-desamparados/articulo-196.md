@@ -1,0 +1,1 @@
+Artículo 196.—En toda edificación existente o proyectada deberán instalarse las canoas y bajantes pluviales desde techos, balcones, salientes y cualquier otro elemento similar. En ningún caso se permitirá la caída libre de las aguas pluviales sobre la vía pública.

@@ -1,0 +1,1 @@
+Transitorio VIII.—La Administración Municipal, deberá incluir en el presupuesto siguiente a la entrada en vigencia del P.O.T., la contratación para realizar la Evaluación Ambiental Estratégica, como complemento del Estudio de los Índices de Fragilidad Ambiental para obtener el visto bueno de SETENA.

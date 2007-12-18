@@ -1,0 +1,2 @@
+Artículo 90.—Usos Conformes: vivienda unifamiliar y multifamiliar, desarrollos horizontales tipo quinta con una vivienda por lote como máximo.
+Tratándose de oficinas de servicios profesionales, estas se permitirán siempre y cuando el propietario de la vivienda sea el profesional y disponga como mínimo de un (1) espacio de estacionamiento para uso exclusivo de sus clientes. Estas oficinas no podrán tener más de 50 metros cuadrados de área.

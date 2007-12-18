@@ -1,0 +1,9 @@
+Artículo 77.—Con el objetivo de regular las diferentes actividades que se desarrollan en el cantón y contribuir a la consolidación de ciertos usos y actividades, además de protegerlas de otros usos molestos e incompatibles, se definen los siguientes tipos de usos del suelo:
+a. Uso Conforme: Todas aquellas actividades y obras de edificación que cumplan con las disposiciones de este Reglamento.
+b. Usos No Conformes: Toda actividad y obras de edificación que no se pueden desarrollar en un lote por no cumplir con las disposiciones de este Reglamento.
+c. Usos Condicionales: Son todos aquellos usos existentes o solicitados una vez aprobado el P.O.T., que por sus características, pueden causar molestias a los usos conformes en la zona, pero que con ciertos requisitos pueden garantizar que esas posibles molestias se confinen dentro de la propiedad a través de medidas como retiros de construcción, de insonorización, arborización, espacios extras en parqueos y otros. El no acatar esta disposición, se revierte el uso a un uso no conforme por tanto se clausurará, además cancelación de la patente municipal.
+d. Usos existentes, No conformes: Todas aquellas actividades y edificaciones existentes a la fecha de entrada en vigencia del presente reglamento, pero que no son compatibles con sus disposiciones. Para estos casos no se permitirá el crecimiento de estas actividades y las intervenciones en construcciones existentes se permitirán en las siguientes situaciones:
+d.1 Obras de mantenimiento de lo existente (no implique cambios o reparación de la estructura primaria).
+d.2 Cuando el inmueble sea de valor histórico, cultural o patrimonial.
+d.3 Cuando las remodelaciones sean para cumplir con las normas de seguridad e higiene.
+d.4 Cuando el inmueble sufra daños por siniestros. En este caso, para fijar los daños se debe presentar la memoria de cálculo estructural, elaborado por un profesional responsable.

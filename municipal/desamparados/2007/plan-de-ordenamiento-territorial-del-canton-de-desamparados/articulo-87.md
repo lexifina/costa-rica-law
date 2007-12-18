@@ -1,0 +1,1 @@
+Artículo 87.—Usos No Conformes: comercio mayor, restaurantes, talleres de servicios en general, industria, bares, salones de fiestas y de baile, licoreras, discotecas o similares, pooles y billares, juegos electrónicos o futbolines, venta de mascotas, lavados de autos.

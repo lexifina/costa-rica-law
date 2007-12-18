@@ -1,0 +1,3 @@
+Artículo 80.—En las zonas residenciales de alta, mediana y baja densidad, no se otorgarán certificados de uso del suelo para usos no residenciales en lotes ubicados frente a alamedas, servidumbres o en calles públicas menores a 10 metros de derecho de vía (en caso de urbanización).
+En calles públicas que no tengan su origen en urbanización, no se otorgarán certificados de uso del suelo en calles menores a 8,5 metros de derecho de vía y cumpla con la demás normativa vigente.
+Igualmente, no se otorgarán certificados de uso del suelo no residenciales en calles sin salida, si la misma no presenta espacios adecuados para maniobras vehiculares.

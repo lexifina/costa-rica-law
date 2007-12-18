@@ -1,0 +1,1 @@
+Artículo 102.—Usos No Conformes: Estaciones de gasolina, servicios de cambio de aceites, instalación de llantas, servicios para la educación cultura y deporte, funerarias y capillas de velación, servicios de alojamiento, industria.

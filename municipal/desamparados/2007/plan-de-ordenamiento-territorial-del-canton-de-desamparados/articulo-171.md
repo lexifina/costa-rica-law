@@ -1,0 +1,1 @@
+Artículo 171.—Algunas zonas serán afectadas a espacios públicos y al establecimiento de condiciones óptimas para los desplazamientos urbanos indispensables de toda la población, dependiendo de sus características y naturaleza.
