@@ -7,3 +7,5 @@ De la Junta de Adquisiciones
 SECCIÓN I
 Naturaleza y funciones
 Artículo 1º— La Junta de Adquisiciones, es el órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria, donaciones y otros, propios de su competencia, que requieran ser resueltos por dicha Junta, cuyo monto sea superior a un millón de dólares. El superior jerárquico de la Junta de Adquisiciones es el Consejo Directivo.
+Asimismo tendrá la competencia para aprobar cartas de crédito, líneas de crédito de corto plazo (menores de 360 días), seguros y coberturas.
+(Así adicionado el párrafo anterior mediante sesión N° 5817 del 18 de diciembre de 2007)
