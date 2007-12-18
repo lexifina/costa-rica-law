@@ -1,0 +1,1 @@
+Artículo 45.—Capacitación permanente. El Auditor Interno y el personal de la Auditoría Interna deberán cumplir con el compromiso de formación permanente, mejorando continuamente sus habilidades y la efectividad y calidad de los servicios.

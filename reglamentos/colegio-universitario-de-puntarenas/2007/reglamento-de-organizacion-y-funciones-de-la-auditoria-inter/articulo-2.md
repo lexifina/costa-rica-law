@@ -1,0 +1,1 @@
+Artículo 2º—Obligación de contar con una Auditoría Interna. En concordancia con el artículo 20 de la Ley General de Control Interno; el Colegio Universitario de Puntarenas, contará con una Auditoría Interna dentro de su estructura orgánica. Dicha unidad será parte integral y vital del Sistema de Control Interno.

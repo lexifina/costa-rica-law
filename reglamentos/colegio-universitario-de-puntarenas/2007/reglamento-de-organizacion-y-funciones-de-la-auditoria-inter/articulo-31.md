@@ -1,0 +1,2 @@
+Artículo 31.—Planificación estratégica. El Auditor Interno elaborará con su equipo de trabajo la planificación estratégica, con fundamento en las actividades de los procesos de la administración, en el universo auditable que determine y en la valoración de riesgos aplicable a dicho universo.
+La Auditoría Interna debe preparar el Plan Anual de Trabajo congruente con el Plan Estratégico de acuerdo con el nivel de riesgo resultante y con los lineamientos y directrices que emita el Órgano Contralor. Este Plan será enviado a la Contraloría General de la República.

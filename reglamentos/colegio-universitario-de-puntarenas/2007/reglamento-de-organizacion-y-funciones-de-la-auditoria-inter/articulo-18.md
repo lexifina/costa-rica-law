@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Ámbito de acción
+Artículo 18.—Ámbito de acción. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna, para el resto de los funcionarios de la Administración Activa en la materia que les resulte aplicable y fondos o actividades privadas de acuerdo a los artículos 5º y 6º de la ley Orgánica de la Contraloría General de la República.
+El Auditor Interno definirá y mantendrá actualizado en el Manual de Procedimientos de la Auditoría Interna del Colegio Universitario de Puntarenas, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna con fundamento en lo establecido en el inciso a) del artículo 22 de la Ley General de Control Interno.
+La Auditoría Interna realizará sus funciones en todas las unidades administrativas, académicas, operativas y demás dependencias de la institución, así mismo, en los sistemas, procesos, procedimientos, en todas aquellas áreas de acción, contratos, convenios, programas o proyectos que se lleven a cabo en el C.U.P.
+La Auditoría Interna en virtud de su competencia no tendrá restricción de intervención. El alcance y cobertura de su trabajo abarcará la totalidad de las operaciones desarrolladas por el Colegio Universitario de Puntarenas.

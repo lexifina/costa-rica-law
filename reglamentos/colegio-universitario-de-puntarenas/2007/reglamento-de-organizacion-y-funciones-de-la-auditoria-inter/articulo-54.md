@@ -1,0 +1,1 @@
+Artículo 54.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobado por el Consejo Directivo del Colegio Universitario de Puntarenas, en sesión Nº 70-07 del 12 de setiembre del 2007. Aprobado por la Contraloría General de la República mediante DAGJ-1320-2007 del 25-10-2007.

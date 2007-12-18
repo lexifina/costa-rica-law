@@ -1,0 +1,1 @@
+Artículo 15.—Delegación de funciones del Auditor Interno. El Auditor Interno tendrá la facultad de delegar en su personal sus funciones utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 11.—De la actualización del Reglamento. Corresponderá al Auditor Interno mantener actualizado el reglamento de organización y funcionamiento de la Auditoría Interna, así como cumplir y hacer cumplir dicho reglamento. A efectos de mantener el marco normativo de la Auditoría Interna actualizado, le corresponde al Auditor Interno proponer y promover ante el Consejo Directivo del CUP, las modificaciones al mismo.
+Previo a la publicación oficial, toda modificación al texto vigente deberá contar con la aprobación de la Contraloría General de la República.

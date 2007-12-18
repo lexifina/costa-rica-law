@@ -1,0 +1,1 @@
+Artículo 17.—Protección del personal de Auditoría Interna. La institución cubrirá todos los costos para que el Auditor Interno u otro funcionario de la Auditoría Interna, atienda procesos judiciales desde el principio hasta su resolución final, que en su contra se hayan planteado en cumplimiento de sus funciones. (Art.26 y 27 LGCI).
