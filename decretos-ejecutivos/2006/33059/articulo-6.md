@@ -1,1 +1,2 @@
-Artículo 6º—Sobre las cooperativas juveniles: La cooperativa juvenil es toda asociación voluntaria compuesta en su totalidad por estudiantes de los centros educativos en los cuales se imparta cualquiera o todos los ciclos de la Educación General Básica y la Educación Diversificada, con el propósito esencial de brindarle una formación cooperativista y de atender otras necesidades propias de su edad.
+Artículo 6.—De las Cooperativas Escolares, Estudiantiles y Juveniles. Son las organizadas por estudiantes, niños, adolescentes y jóvenes, con el propósito esencial de proporcionarles una formación cooperativista y atender otras necesidades propias de la edad.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 34207 del 18 de diciembre de 2007).

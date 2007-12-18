@@ -14,3 +14,4 @@ Reglamento de Cooperativas Escolares y Juveniles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-05 | la propia norma |
+| 2 | 2007-12-18 | Decreto Ejecutivo 34207 (2007-12-18) |
