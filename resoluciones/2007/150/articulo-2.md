@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 023-2007 de las once horas del día veinte de marzo del dos mil siete, de la Dirección General de Hacienda, publicada en La Gaceta Nº 93, del 16 de mayo del 2007.
