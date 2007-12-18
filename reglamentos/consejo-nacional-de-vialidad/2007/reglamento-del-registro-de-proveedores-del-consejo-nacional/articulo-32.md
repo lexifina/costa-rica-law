@@ -1,0 +1,1 @@
+Artículo 32.—Certificación de Documentos. El Proveedor Institucional se encuentra facultado para extender certificación de la documentación que se encuentra en los expedientes del Registro de Proveedores, para ser utilizadas en otros trámites en el CONAVI.

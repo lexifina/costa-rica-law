@@ -1,0 +1,1 @@
+Artículo 18.—Validez de la información y documentos aportados por el Proveedor. Salvo prueba en contrario, por el solo hecho de presentar la solicitud de inscripción, la documentación e información, así como cualquier información complementaria, se reputará como cierta bajo su entera responsabilidad. Toda la documentación aportada pasará a ser propiedad del CONAVI.

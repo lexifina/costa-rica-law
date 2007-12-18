@@ -1,0 +1,1 @@
+Artículo 9º—Regionalización de proveedores. En caso de Obra Vial, Consultorías y servicios, sin menoscabo del principio de libre participación, la Administración está facultada para agrupar a los proveedores, según las necesidades y requerimientos por cubrir en las diferentes regiones, en que se despliega la actividad a contratar.

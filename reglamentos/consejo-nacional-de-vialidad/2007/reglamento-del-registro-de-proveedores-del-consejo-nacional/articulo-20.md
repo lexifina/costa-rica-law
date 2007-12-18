@@ -1,0 +1,1 @@
+Artículo 20.—Control sobre la vigencia de las inscripciones en el Registro. La Proveeduría, será la responsable de verificar periódicamente la vigencia de la documentación en el Registro de Proveedores y realizar las previsiones a aquellos proveedores que tengan vencidos los documentos.

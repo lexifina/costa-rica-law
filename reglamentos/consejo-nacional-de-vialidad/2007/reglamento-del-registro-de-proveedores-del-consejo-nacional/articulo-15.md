@@ -1,0 +1,2 @@
+Artículo 15.—Verificación posterior de los requisitos aportados por el proveedor. El Consejo Nacional de Vialidad, por medio de su Proveeduría verificará y supervisará el cumplimiento de los requisitos solicitados en el presente Reglamento y aportados por los diferentes proveedores al momento de inscribirse.
+Con tal fin, cuando ello sea necesario, el supervisor designado realizará las investigaciones correspondientes y de lo actuado dejará constancia en el expediente del proveedor respectivo.

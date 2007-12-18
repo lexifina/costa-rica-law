@@ -1,0 +1,3 @@
+Artículo 29.—No existencia de Proveedores Idóneos. Cuando no existan “Proveedores Idóneos” en el “Registro de Proveedores del CONAVI”, se invitará a los “Proveedores Idóneos” de otros entes públicos.
+No obstante, la Administración podrá establecer acuerdos de intercambio de información de sus registros de proveedores, de manera que actualicen y amplíen la información disponible o incluso, pueden acordar convenios marco para configurar y utilizar un único Registro.
+De igual manera, podrá suscribir acuerdos con la Dirección General de Administración de Bienes y Contratación Administrativa a efectos de utilizar su Registro de Proveedores o mediante publicación.

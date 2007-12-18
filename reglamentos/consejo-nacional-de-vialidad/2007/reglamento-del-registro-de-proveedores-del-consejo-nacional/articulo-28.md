@@ -1,0 +1,1 @@
+Artículo 28.—Invitados. Cualquier persona física o jurídica que no haya sido invitada a participar en el concurso, puede retirar el cartel correspondiente y presentar oferta, aunque no forma parte del Registro de Proveedores; no obstante lo anterior, deberá lograr su inscripción antes de la apertura de las ofertas.

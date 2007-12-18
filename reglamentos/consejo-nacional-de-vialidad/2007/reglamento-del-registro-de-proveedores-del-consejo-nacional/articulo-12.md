@@ -1,0 +1,1 @@
+Artículo 12.—Formulario único. Todos los datos y declaraciones que deba aportar el Proveedor, de conformidad con lo indicado en el artículo 7, se incluirán en un “Formulario Único” aprobado por la Administración. Las certificaciones, copias certificadas y fotocopias, serán aportadas, en la medida de lo posible, en un solo documento.
