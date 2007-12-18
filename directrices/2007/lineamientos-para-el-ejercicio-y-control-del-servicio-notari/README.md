@@ -15,3 +15,4 @@ Lineamientos para el Ejercicio y Control del Servicio Notarial
 | 1 | 2007-05-24 | la propia norma |
 | 2 | 2007-09-03 | Resolución 1183 (2007-09-03) |
 | 3 | 2007-10-30 | Resolución 1490 (2007-10-30) |
+| 4 | 2007-12-18 | Resolución 1752 (2007-12-18) |
