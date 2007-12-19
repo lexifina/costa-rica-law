@@ -1,0 +1,1 @@
+Artículo 27.—Delegación de funciones del Auditor Interno. El Auditor Interno podrá delegar sus funciones, cuando así lo estime, en su personal, utilizando criterios de idoneidad y conforme lo establecen los artículos 89 al 92 de la sección tercera “De la Delegación”, capítulo tercero, de la Ley General de la Administración Pública.

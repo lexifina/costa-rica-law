@@ -1,0 +1,1 @@
+Artículo 35.—Coordinación con el Directorio para el trámite de los asuntos de la Auditoría ante ese Órgano. Los informes, documentos de servicios preventivos, requerimientos y demás asuntos de trabajo de la Auditoría Interna que se deban tramitar ante el Directorio Legislativo, se coordinarán y canalizarán por medio de la Primera Secretaría de ese órgano colegiado.

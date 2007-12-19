@@ -1,0 +1,1 @@
+Artículo 98.—Incumplimiento injustificado de recomendaciones aceptadas por la Administración Activa. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implantación de las recomendaciones aceptadas por la Administración Activa, lo pondrá para lo que proceda en conocimiento del jerarca o el órgano competente.

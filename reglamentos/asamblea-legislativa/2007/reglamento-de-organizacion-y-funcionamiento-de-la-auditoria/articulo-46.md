@@ -1,0 +1,1 @@
+Artículo 46.—Potestades del personal de Auditoría Interna. El personal de la Auditoría Interna, para el desempeño de sus competencias, tendrá las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.

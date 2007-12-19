@@ -1,0 +1,1 @@
+Artículo 31.—Ausencia temporal del Auditor Interno y Subauditor Interno. En ausencia temporal del Auditor y Subauditor Internos, se designará un funcionario de la Auditoría Interna para atender aspectos de coordinación interna y con otras unidades de la Asamblea Legislativa, con apego a las normas legales, lineamientos y políticas institucionales que operan a tal efecto.

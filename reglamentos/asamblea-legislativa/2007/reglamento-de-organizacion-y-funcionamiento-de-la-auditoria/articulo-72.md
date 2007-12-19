@@ -1,0 +1,1 @@
+Artículo 72.—Acceso a informes. Los informes de control interno y documentos de servicios preventivos, una vez puestos en comunicación de la Administración Activa, son de libre acceso por parte de cualquier persona pública o privada.
