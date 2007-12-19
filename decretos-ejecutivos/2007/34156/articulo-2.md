@@ -1,0 +1,3 @@
+Artículo 2º—Adiciónese un artículo 1 bis al Decreto Ejecutivo Nº 29643-I-i, para que se lea como sigue:
+“Artículo 1 bis.- Del combustible exento de la Asociación Cruz Raja Costarricense, Misiones diplomáticas y organismos internacionales.
+La Asociación Cruz Roja Costarricense, las misiones diplomáticas y los organismos internacionales acreditados en el país, de conformidad con la Convención de Viena sobre Relaciones Diplomáticas y los acuerdos y convenios debidamente aprobados por la Asamblea Legislativa que así lo establezcan, deberán gestionar las solicitudes de exención utilizando los procedimientos establecidos en los decretos Nº 33172-H de 16 de mayo del 2006 y Nº 31099-H-RE del7 de febrero del 2003, respectivamente.
