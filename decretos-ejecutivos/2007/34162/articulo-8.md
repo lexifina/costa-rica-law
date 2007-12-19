@@ -1,0 +1,1 @@
+Artículo 8º—Registro contable. La Tesorería Nacional informará por los medios que resulten más eficientes a la Contabilidad Nacional y a la Dirección de Crédito Público sobre cada emisión realizada en atención al presente decreto, con el propósito de que realice el respectivo registro contable como parte de la deuda contingente.

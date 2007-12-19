@@ -1,0 +1,2 @@
+Artículo 5º—Condiciones financieras. El valor nominal, plazo, tasa de interés y moneda se determinarán en atención a lo que establezca el respectivo contrato de concesión, de modo que la garantía cumpla plenamente su objetivo. Dado lo anterior, la Tesorería Nacional definirá los procedimientos aplicables para la determinación de estas condiciones de manera coordinada con el Consejo Nacional de Concesiones.
+En todo caso se creará una serie específica y exclusiva para ser utilizada con los propósitos indicados, según la modalidad de título que se requiera emitir.

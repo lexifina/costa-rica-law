@@ -1,0 +1,1 @@
+Artículo 9º—Cancelación. Cuando proceda la ejecución de la garantía, la cancelación se realizará contra la previsión presupuestaria establecida según lo señalado en el artículo 3 del presente reglamento, y la subpartida presupuestaria se incluirá en el título de Servicio de la Deuda Pública, con la indicación correspondiente que permita diferenciar el concepto de pago.
