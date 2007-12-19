@@ -1,0 +1,1 @@
+Artículo 188.—La valoración de las faltas en que incurrieren los funcionarios, se fundamentará para determinación de la sanción correspondiente en los Principios del Derecho, de causalidad, objetiva y psicológica y de proporcionalidad.

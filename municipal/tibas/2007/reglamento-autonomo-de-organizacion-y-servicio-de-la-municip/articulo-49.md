@@ -1,0 +1,1 @@
+Artículo 49.—Se considera un acto de discriminación cuando los mecanismos empleados para este proceso no sean adaptados a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los participantes o cuando no se emplee a un trabajador idóneo en razón de su discapacidad.

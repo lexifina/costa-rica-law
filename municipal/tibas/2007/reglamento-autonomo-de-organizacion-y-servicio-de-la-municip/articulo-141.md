@@ -1,0 +1,1 @@
+Artículo 141.—Los funcionarios(as) podrán acogerse al pago por concepto de Dedicación Exclusiva y tendrán derecho al pago del la Carrera Profesional y/o administrativa de conformidad con la normativa vigente.

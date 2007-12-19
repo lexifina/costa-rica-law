@@ -1,0 +1,2 @@
+Artículo 55.—Las jefaturas también podrán en las condiciones anteriores, solicitar en beneficio de sus subalternos la reasignación de cualquier puesto.
+Recibida la solicitud, el Departamento de Recursos Humanos procederá al estudio respectivo en un plazo no mayor de sesenta días, sometiendo su resultado al conocimiento y resolución de la Alcaldía Municipal. Lo resuelto por la Alcaldía Municipal y el Departamento de Recursos Humanos le será comunicada al petente dentro de los cinco días posteriores a aquel en que se adopte la decisión.

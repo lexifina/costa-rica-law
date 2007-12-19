@@ -1,0 +1,1 @@
+Artículo 130.—Para cualquiera de los casos anteriormente señalados en el área de capacitación formal o no formal, se regirán por lo que al efecto dispone el Reglamento de Becas vigente en la Institución.

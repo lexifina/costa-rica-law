@@ -1,0 +1,1 @@
+Transitorio 2º—Los montos pagados a los funcionarios por concepto de anualidades, se cancelarán con los porcentajes anteriores otorgados, se aplicará el nuevo porcentaje a partir de la vigencia de este Reglamento.

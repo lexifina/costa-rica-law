@@ -1,0 +1,1 @@
+Artículo 166.—Las asistencias a la CCSS, INS y/o médico de empresa cuando son en horas laborales y el tiempo utilizado para ese fin, se considerarán como licencia con goce de salario y deben ser marcadas en el reloj contralor usando la tarjeta o clave correspondiente, además deberá presentarse la constancia de asistencia expedida, por esas autoridades y a para esos efectos.

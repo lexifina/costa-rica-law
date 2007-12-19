@@ -1,0 +1,2 @@
+Artículo 87.—La Municipalidad deberá notificar por medio del Departamento de Recursos Humanos al Instituto Nacional de Seguros cualquier riesgo y accidente de trabajo que sufran sus servidores dentro de los ocho días hábiles siguientes al de su acaecimiento. Dicha notificación deberá ajustarse a las formalidades que establece el artículo 222 del Código de Trabajo.
+Las jefaturas están obligadas a verificar y reportar al Departamento de Recursos Humanos la ocurrencia de un accidente o riesgo laboral, el mismo día en que se presente la situación.

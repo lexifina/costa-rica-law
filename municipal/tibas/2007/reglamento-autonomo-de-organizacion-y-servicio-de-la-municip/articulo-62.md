@@ -1,0 +1,2 @@
+Artículo 62.—El desempeño de los servidores nombrados en propiedad, será evaluado y calificado como mínimo una vez al año, la calificación se expresará en términos de excelente, muy bueno, bueno, regular, insuficiente e inaceptable.
+La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de junio de cada año y será responsabilidad del Departamento de Recursos Humanos velar porque cada coordinador, cumpla esta disposición reglamentaria.

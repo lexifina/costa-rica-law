@@ -1,0 +1,1 @@
+Artículo 161.—Incurrirá en falta grave el servidor que por dolo o complacencia, dañe o altere los medios de control que pudiesen existir, para los efectos de control de entradas y salidas de la institución y se determinará en la primera vez, suspensión sin goce de salario por 8 días, la segunda vez por quince días y la tercera, despido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 142.—La Municipalidad para efectos del pago de la prohibición, dedicación exclusiva y la Carrera Profesional, Carrera Administrativa o cualquier otro plus, se regirá con base en la normativa existente sobre la materia.

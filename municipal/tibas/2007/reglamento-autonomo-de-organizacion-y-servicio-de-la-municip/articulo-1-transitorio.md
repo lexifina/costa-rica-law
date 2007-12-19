@@ -1,0 +1,1 @@
+Transitorio 1º—A todos aquellos trabajadores que al momento de entrar en vigencia este Reglamento tengan más de dos períodos de vacaciones sin disfrutar, deberá el Departamento de Recursos Humanos, en coordinación con la jefatura respectiva, otorgárselas en un plazo no mayor de seis meses.

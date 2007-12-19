@@ -1,0 +1,1 @@
+Artículo 108.—El tiempo laborado que exceda las jornadas ordinarias anteriormente señala, constituye tiempo extraordinario y debe ser remunerado atendiendo los siguientes aspectos y de acuerdo a las disposiciones enmarcadas en el Reglamento sobre Uso y Control de Horas Extraordinarias.

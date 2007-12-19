@@ -1,0 +1,1 @@
+Artículo 184.—En el proceso de investigación que establece este Capítulo el Departamento de Recursos Humanos o legal, podrán solicitar de otras dependencias, a los trabajadores involucrados, aportar documentos y/o citarlos para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final.

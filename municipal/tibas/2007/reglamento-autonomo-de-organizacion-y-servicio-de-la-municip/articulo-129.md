@@ -1,0 +1,10 @@
+Artículo 129.—No obstante lo establecido en el artículo anterior, se podrá conceder licencias con apego a las siguientes disposiciones:
+a) En caso de que el servidor cuyo cónyuge, compañero(a) de vida, hijos entenados, padres, hermanos o abuelos hayan enfermado y necesiten su atención personal.
+b) Al servidor que se encuentre en alguna otra situación que a juicio del Departamento de Recursos Humanos lo amerite.
+c) El Departamento de Recursos Humanos con base al artículo 144 del Código Municipal y previa autorización de la Alcaldía Municipal, otorgará permisos con goce de salario, al trabajador que se encuentre en los siguientes casos:
+ En caso de fallecimiento de sus padres, hijos, entenados, hermanos, cónyuge, compañero(a) de vida, hasta por cinco días hábiles, a disfrutar en forma inmediata.
+ En caso de nupcias, cinco días y será a partir del día siguiente hábil a aquel en que fue celebrado el acto o en su defecto, el día hábil siguiente al mismo y para su disfrute debe solicitarlo el trabajador acompañándola del documento a que se refiere el inciso siguiente, ante el jefe y éste trasladará la solicitud de inmediato al Departamento de Recursos Humanos.
+ Para los efectos del inciso anterior, se debe entender como válida la certificación emitida por sacerdotes, notarios públicos, gobernadores, autoridades de policía, capitanes de naves y aeronaves, alcaldes y jueces, etc.
+ Una copia del certificado de matrimonio, deberá ser entregada sin prórroga alguna al Departamento de Recursos Humanos a más tardar al noveno día hábil de haber contraído nupcias.
+ En caso de nacimiento de un niño vivo de la esposa o compañera del trabajador, tres días hábiles, que disfrutará en forma inmediata al nacimiento o a partir del momento en que la madre sea dada de alta por el nosocomio respectivo, debiéndose presentar el documento que compruebe el nacimiento el primer día hábil de haber regresado del disfrute de este beneficio.
+ En cualquiera de los casos anteriores, debe aportar la prueba documental correspondiente.

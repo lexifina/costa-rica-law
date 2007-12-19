@@ -1,0 +1,1 @@
+Artículo 64.—Corresponde a cada jefatura evaluar el desempeño de sus subalternos inmediatos, con la Asesoría del Departamento de Recursos Humanos y será notificada al servidor(a) dentro de los tres días hábiles siguientes de obtenido los resultados correspondientes.

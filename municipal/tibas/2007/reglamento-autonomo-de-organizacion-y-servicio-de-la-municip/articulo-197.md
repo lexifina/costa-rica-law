@@ -1,0 +1,1 @@
+Artículo 197.—Las sanciones descritas en este capítulo, podrán ser aplicadas por la Alcaldía Municipal a través del Departamento de Recursos Humanos, conforme al procedimiento que establece el Artículo 150 del Código Municipal y cualquier otra norma expresa, referente a la materia.

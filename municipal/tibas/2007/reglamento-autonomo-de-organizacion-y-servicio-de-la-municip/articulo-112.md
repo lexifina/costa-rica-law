@@ -1,0 +1,1 @@
+Artículo 112.—La concesión de un asueto lo dispone el Concejo Municipal de conformidad con la Ley y el Alcalde Municipal lo comunicará a los trabajadores. En ningún caso se considera dicho otorgamiento como un derecho adquirido.

@@ -1,0 +1,1 @@
+Artículo 151.—Podrá laborarse tiempo extraordinario en aquellas dependencias que por su naturaleza a la estructura administrativa así lo requieran, tal como: recolección de basura, caminos vecinales, etc.

@@ -1,0 +1,1 @@
+Artículo 42.—En todo caso, las plazas vacantes podrán ser llenadas atendiendo lo señalado en el artículo 128 del Código Municipal. Dichas plazas podrán ser ocupadas en forma interina por la persona designada para ello; mientras se realiza el concurso interno, hasta por el término de dos meses prorrogables de conformidad con el artículo 130 del Código Municipal.
