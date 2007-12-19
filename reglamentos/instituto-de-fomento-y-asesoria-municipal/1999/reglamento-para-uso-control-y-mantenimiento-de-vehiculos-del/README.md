@@ -14,3 +14,4 @@ Reglamento para Uso, Control y Mantenimiento de Vehículos del IFAM
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-11 | la propia norma |
+| 2 | 2007-12-19 | Reglamento 3721 (2007-12-19) |
