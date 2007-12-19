@@ -1,0 +1,1 @@
+Artículo 7º—Guía de buenas prácticas ambientales. El Ministerio del Ambiente y Energía promoverá y publicará por los medios de información disponibles, Guías de Buenas Prácticas Ambientales, para las actividades reguladas en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—Coordinación Interinstitucional. La Dirección de Geología y Minas y SETENA coordinaran para obtener acceso al Sistema de Información actualizado de Licencias Ambientales otorgadas, a fin de generar un reporte de los proyectos autorizados que incluyan movimientos de tierra, así como su ubicación geográfica.
