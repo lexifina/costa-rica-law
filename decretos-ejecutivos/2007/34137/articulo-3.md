@@ -1,0 +1,1 @@
+Artículo 3º—Principios que regirán la contratación. El Procedimiento estará regido tanto por el principio de igualdad y libre competencia como el de publicidad, señalados en la Ley de Contratación Administrativa.

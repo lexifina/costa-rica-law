@@ -1,0 +1,1 @@
+Artículo 2º—Régimen Jurídico. El presente procedimiento de contratación será regido por las disposiciones acordadas en el Convenio de Cooperación Técnica No Reembolsable, suscrito entre el MOPT y la CAF, el día 21 de agosto de 2007.
