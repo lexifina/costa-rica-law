@@ -1,0 +1,1 @@
+Artículo 3º—Este Decreto deja sin efecto, en lo conducente, los Decretos Ejecutivos Nº 30178-MOPT, del 18 de enero del 2002, y Nº 29312-MOPT, del 12 de enero del 2001; y sus reformas, en lo que se le opongan.
