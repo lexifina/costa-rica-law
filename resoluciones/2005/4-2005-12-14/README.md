@@ -16,3 +16,4 @@ Directrices para el registro, la validación y el uso de la información sobre l
 | 1 | 2006-01-02 | la propia norma |
 | 2 | 2006-06-29 | Resolución 62 (2006-06-29) |
 | 3 | 2007-01-31 | Resolución 4 (2007-01-31) |
+| 4 | 2007-12-19 | Resolución 66 (2007-12-19) |
