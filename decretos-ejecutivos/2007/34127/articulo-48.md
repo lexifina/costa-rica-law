@@ -1,0 +1,1 @@
+Artículo 48.—Para gastos imprevistos y urgentes, así como para otras necesidades apremiantes, la Administración asignará a la Auditoría General un fondo de caja chica en efectivo, cuyo monto anualmente será evaluado y propuesto por el Auditor Interno, en atención a criterios y directrices emitidas por la Contraloría General de la República.

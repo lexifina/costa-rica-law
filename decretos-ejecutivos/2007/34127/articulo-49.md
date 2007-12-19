@@ -1,0 +1,1 @@
+Artículo 49.—El Auditor Interno podrá solicitar a la Asesoría Jurídica del Ministerio, los servicios de asesoría y estudios jurídicos que requiera la Auditoría General, a fin de establecer y atender las necesidades de orden jurídico, conforme lo estipula el artículo 33 inciso c) de la “Ley General de Control Interno”.

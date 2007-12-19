@@ -1,0 +1,1 @@
+Artículo 5°—Para el apropiado funcionamiento de la Auditoria General se contemplará el establecimiento y la actualización de su “Plan Estratégico de Fiscalización” que incluye la visión, misión, principales políticas, y los enunciados o códigos éticos que deben tener en cuenta los funcionarios de la Auditoria en sus actuaciones.

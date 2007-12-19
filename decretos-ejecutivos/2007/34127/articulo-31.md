@@ -1,0 +1,1 @@
+Artículo 31.—El cargo de Auditor Interno, sus funciones tienen características de orden sustantivo y estratégico, en la planeación, organización, dirección, supervisión, coordinación y de control, propios de los procesos técnicos y administrativos, para la mejora constante de los productos y servicios, que proporciona la Auditoría General.

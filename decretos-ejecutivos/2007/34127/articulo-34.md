@@ -1,0 +1,4 @@
+Artículo 34.—El Auditor Interno tendrá las siguientes potestades respecto al personal de la Auditoría General:
+a) Autorizar los movimientos del personal de la Auditoría General, de conformidad con lo establecidos en los artículos 24 y 28 de la “Ley General de Control Interno” y demás normas aplicables.
+b) Gestionar oportunamente lo relativo a la ocupación de las plazas vacantes de conformidad con lo establecido en el artículo 28 de la “Ley General de Control Interno”.
+c) Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría General cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas contenidas en el “Manual de Aspectos Técnicos y de Organización” y el “Manual de Procedimientos de Trabajo”, promulgados en la Auditoría General, así como la normativa emitida por la Contraloría General de la República.

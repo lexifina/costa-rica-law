@@ -1,0 +1,1 @@
+Artículo 16.—Los cargos de Auditor y Sub-Auditor Internos, deberán observar las respetivas funciones establecidas en los manuales institucionales de cargos y clases o de denominación similar que se emitan en el Ministerio.

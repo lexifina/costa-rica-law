@@ -1,0 +1,1 @@
+Artículo 24.—Le corresponde al Auditor Interno, velar por la administración efectiva de los recursos financieros, materiales y tecnológicos en función de los objetivos institucionales que se asignen a la Auditoría General.

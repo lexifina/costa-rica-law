@@ -1,0 +1,1 @@
+Artículo 52.—De conformidad con lo establecido por el inciso i) del artículo 22 de la “Ley General de Control Interno”, a la Auditoría General le corresponderán las competencias adicionales que contemple cualquier otra normativa legal o técnica que se emita.
