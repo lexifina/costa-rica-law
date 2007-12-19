@@ -1,0 +1,2 @@
+Artículo 22.—Límite modificaciones presupuestarias de aprobación del Concejo Municipal. El máximo de modificaciones presupuestarias de aprobación del Concejo que se podrán aprobar durante el año será de doce. El periodo de aprobación será del 10 de enero al 20 de diciembre.
+En casos debidamente justificados y previa aprobación por parte del Concejo Municipal, se podrán presentar documentos adicionales.
