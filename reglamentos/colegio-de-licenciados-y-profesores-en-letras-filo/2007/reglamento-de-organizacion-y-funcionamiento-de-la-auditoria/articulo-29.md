@@ -1,0 +1,1 @@
+Artículo 29.—Estudio y Evaluación de Control Interno. La Auditoría Interna estudiará y evaluará el sistema de control interno del Colegio como parte de los trabajos de Auditoría y/o estudios especiales.

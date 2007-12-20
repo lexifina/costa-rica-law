@@ -1,0 +1,1 @@
+Artículo 7º—Obligación de contar con una Auditoría Interna. El Colegio dentro de su estructura contará con una Auditoría Interna, que es parte integral y vital del Sistema de Control en concordancia con el artículo 20 de la Ley General de Control Interno.

@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Del trámite de los informes y aceptación de las recomendaciones
+Artículo 40.—De los informes de Auditoría. El informe es el producto sustantivo por medio del cual la Auditoría Interna agrega valor para el cumplimiento de los objetivos institucionales.
+Los informes de Auditoría deben incluir los objetivos, el alcance, hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de éste y con observancia de las disposiciones legales y normativas emitidas por la Contraloría General de la República, lo cual debe indicarse explícitamente en el mismo.
+Para prevenir a la Junta Directiva o a los titulares subordinados, según corresponda, de sus deberes en el trámite de informes, en especial de los plazos que deben observarse, se debe incorporar en el informe un apartado con la trascripción de los artículos 36, 37 y 38 de la Ley General de Control Interno, así como el párrafo primero del artículo 39, para advertir sobre las posibles responsabilidades en que pueden incurrir por incumplir injustificadamente los deberes de dicha Ley.

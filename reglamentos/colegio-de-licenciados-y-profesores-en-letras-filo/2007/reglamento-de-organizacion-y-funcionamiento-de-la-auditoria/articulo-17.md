@@ -1,0 +1,1 @@
+Artículo 17.—Recursos de apoyo a su gestión. El Auditor Interno para el desarrollo y administración del departamento de auditoría deberá presentar a la Junta Directiva los planes y la necesidad de recurso (creación de plazas, capacitación y otros) para desarrollarlos, debidamente fundamentados de acuerdo a cada requerimiento.

@@ -1,0 +1,1 @@
+Artículo 38.—Comunicación escrita. La Auditoría Interna deberá comunicar los resultados de las Auditorías o estudios especiales de Auditoría en forma oficial por escrito, mediante informes objetivos dirigidos a la Junta Directiva, como superior jerarca de la institución.

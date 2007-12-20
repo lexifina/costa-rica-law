@@ -1,0 +1,2 @@
+Artículo 37.—Comunicación Oral. Los hallazgos obtenidos en el transcurso de la Auditoría o estudio especial de Auditoría deberán ser comentados con los funcionarios responsables, previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.
+Se exceptúan los casos de Auditoría con carácter reservado, en la que sus resultados no deberán discutirse.

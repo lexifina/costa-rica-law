@@ -1,0 +1,1 @@
+Artículo 32.—Supervisión del Trabajo. Todo trabajo de Auditoría debe contar con una adecuada supervisión en el caso de las Auditorías unipersonales el auditor deberá verificar que todo estudio cumpla con los pasos anteriores.

@@ -1,0 +1,1 @@
+Artículo 41.—Trámite de informes de servicios de Auditoría. Los informes producto de los servicios de Auditoría, se tramitarán de conformidad con lo dispuesto en los artículos 35, 36, 37 y 38 de la Ley General de Control Interno con observancia del Manual para el ejercicio de la Auditoría Interna emitido por la Contraloría General República.

@@ -1,0 +1,1 @@
+Artículo 36.—Medios de Comunicación. La comunicación de resultados es la actividad en el proceso de Auditoría en la cual se informa de manera escrita y oral de los trabajos realizados según las Políticas y Procedimientos establecidos para tal fin.

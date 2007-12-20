@@ -1,0 +1,1 @@
+Artículo 30.—Programa de Auditoría. La Auditoría Interna requiere contar con evidencia suficiente y competente por lo que el Auditor Interno establecerá los procedimientos requeridos para cada estudio.

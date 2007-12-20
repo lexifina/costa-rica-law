@@ -1,0 +1,2 @@
+B. Ejecución de la Auditoría
+Artículo 27.—Políticas y Procedimientos de la Auditoría Interna del Colegio. El Auditor Interno deberá formular y mantener actualizadas las Políticas y Procedimientos del Departamento de Auditoría Interna aplicables al Colegio, estas Políticas y Procedimientos están fundamentadas en los lineamientos generales que emite la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, las emitidas por el Colegio de Contadores Públicos de Costa Rica, y las establecidas por la institución.

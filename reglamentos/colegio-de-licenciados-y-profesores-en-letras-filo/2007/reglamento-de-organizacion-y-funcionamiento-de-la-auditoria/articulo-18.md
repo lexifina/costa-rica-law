@@ -1,0 +1,2 @@
+Artículo 18.—Presupuesto Anual de la Auditoría Interna. La Auditoría Interna elaborará su presupuesto anual en forma independiente de acuerdo con las políticas Institucionales y coordinará para que el responsable del control del presupuesto institucional mantenga un registro separado del monto asignado a la auditoría interna, detallado por objeto de gasto de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
+El auditor Interno presentará el plan anual operativo que justifique el presupuesto de la Auditoría Interna.

@@ -1,0 +1,3 @@
+Artículo 33.—Denuncias y confidencialidad de la información. Toda denuncia que se establezca ante la Auditoría Interna podrá ser presentada en forma escrita, verbal o por el medio que se estime conveniente, si es en forma verbal se levantará un acta al respecto.
+La información que obtenga el Auditor o el personal de la Auditoría Interna será confidencial en el desarrollo de la ejecución del trabajo.
+Esta confidencialidad no se aplicará a la Contraloría General de la República en el desarrollo de las funciones de fiscalización, a la Junta Directiva, ni cuando haya solicitud expresa de la autoridad competente.

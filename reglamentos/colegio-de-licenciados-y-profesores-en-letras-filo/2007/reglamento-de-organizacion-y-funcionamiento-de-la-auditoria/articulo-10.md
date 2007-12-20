@@ -1,0 +1,1 @@
+Artículo 10.—Organización. La Auditoría Interna está organizada en un solo Departamento de acuerdo con la organización del Colegio; además dicha organización debe ser concordante con la razón de ser y la normativa que regula el Colegio. Estará a cargo del Auditor Interno, y conformada por Auditor I y Asistente de Auditoría.

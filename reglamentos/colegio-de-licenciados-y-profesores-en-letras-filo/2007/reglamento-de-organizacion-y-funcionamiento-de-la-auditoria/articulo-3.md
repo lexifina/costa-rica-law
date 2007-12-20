@@ -1,0 +1,4 @@
+Artículo 3º—Del Reglamento y sus modificaciones. La Auditoría Interna dispondrá de un Reglamento acorde con la normativa que rige su actividad, dicho reglamento será aprobado por la Junta Directiva del Colegio y la Contraloría General de la República.
+A efectos de mantener el marco normativo de la Auditoría Interna actualizado el Reglamento y sus modificaciones se regirán por las siguientes disposiciones:
+a) El auditor interno debe actualizar, divulgar y cumplir el Reglamento en materia que le concierne, asimismo, debe someter las modificaciones al Reglamento a la aprobación de la Junta Directiva y de la Contraloría General de la República previo a la publicación de la versión final en La Gaceta.
+b) El personal de la Auditoría Interna y el resto de la administración activa, debe cumplir con el Reglamento en la materia que le concierne.
