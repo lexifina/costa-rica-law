@@ -1,0 +1,2 @@
+Artículo 13.—Intentos de notificación por fax: Para notificar por este medio se harán hasta cinco intentos, con intervalos de al menos treinta minutos, esos intervalos se harán tres un primer día y dos un segundo día, de resultar negativa la transmisión se dejará una constancia del hecho al pie de la notificación fallida.
+El presente reglamento empieza a regir a partir de su publicación en el Diario Oficial La Gaceta.

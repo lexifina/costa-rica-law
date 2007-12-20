@@ -1,0 +1,1 @@
+Artículo 11.—Notificación a personas jurídicas: Salvo disposición en contrario estas serán notificadas por medio de su apoderado, personalmente o en su casa de habitación, o bien al domicilio real de la sociedad o con su agente residente.

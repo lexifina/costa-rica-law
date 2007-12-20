@@ -1,0 +1,1 @@
+Artículo 9º—Notificaciones automáticas: Las partes que en su primer escrito o prevenida al efecto por la Administración no indicare lugar o medio para recibir notificaciones, quedando notificado de todas las futuras resoluciones, producirá igual consecuencia cuando la notificación no se pueda efectuar, por culpa de la parte.

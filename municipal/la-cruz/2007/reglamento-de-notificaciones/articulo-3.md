@@ -1,0 +1,1 @@
+Artículo 3º—Deber de notificar: Sin perjuicio de lo dispuesto en normas generales, la notificación deberá hacerse siempre dentro de los dos días hábiles siguientes al recibido de la notificación por el funcionario designado debidamente juramentado, para realizar la notificación.

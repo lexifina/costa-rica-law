@@ -1,0 +1,1 @@
+Artículo 7º—Identificación de la persona que recibe la notificación: La persona debidamente investida de la juramentación para realizar las notificaciones, puede exigir a que se les muestre el documento de identificación al momento de entregarle la notificación, asimismo podrán solicitar el auxilio de las autoridades cuando así lo necesiten, sin la mediación de sus jerarcas.
