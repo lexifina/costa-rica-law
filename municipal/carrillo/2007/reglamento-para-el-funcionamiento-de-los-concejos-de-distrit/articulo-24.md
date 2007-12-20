@@ -1,0 +1,1 @@
+Artículo 24.—Las sesiones serán presididas por el Presidente del Concejo de Distrito, quién deberá ser electo en la primera sesión ordinaria después de su juramentación por parte del Concejo Municipal.

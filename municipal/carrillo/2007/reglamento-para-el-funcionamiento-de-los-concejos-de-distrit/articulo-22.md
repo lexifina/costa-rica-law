@@ -1,0 +1,1 @@
+Artículo 22.— Todas las sesiones serán públicas. Se facilitará la asistencia o la información a los ciudadanos interesados en conocer el desarrollo de la sesión mediante los medios más adecuados que tenga a disposición el Concejo de Distrito.

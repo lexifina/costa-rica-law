@@ -1,0 +1,1 @@
+Artículo 2º—Estarán integrados por cinco miembros propietarios, todos vecinos del Distrito denominados concejales, de los cuales uno será necesariamente el Síndico Propietario del Distrito y cinco suplentes de los cuales uno será el Síndico Suplente.

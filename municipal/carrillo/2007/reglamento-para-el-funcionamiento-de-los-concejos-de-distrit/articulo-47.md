@@ -1,0 +1,1 @@
+Artículo 47.—El presente reglamento ha sido aprobado por el Concejo Municipal de Carrillo mediante acuerdo Nº 1, en Sesión Extraordinaria Nº 19-2007, celebrada el día 31 de octubre del 2007 y rige a partir de su publicación en el Diario Oficial La Gaceta.

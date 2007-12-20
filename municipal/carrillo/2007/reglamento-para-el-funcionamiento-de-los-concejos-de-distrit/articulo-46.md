@@ -1,0 +1,1 @@
+Artículo 46.—Este Reglamento será de observancia obligatoria para los miembros que conforman los Concejos de Distrito, para la población de su jurisdicción y deroga cualquier otra disposición normativa que se le oponga.

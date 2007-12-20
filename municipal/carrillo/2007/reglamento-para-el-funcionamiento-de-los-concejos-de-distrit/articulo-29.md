@@ -1,0 +1,1 @@
+Artículo 29.—Finalizada la exposición del ciudadano o ciudadanos, el Presidente concederá el uso de la palabra a los concejales que lo soliciten para que puedan formular las preguntas que estimaren convenientes y necesarias.
