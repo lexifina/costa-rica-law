@@ -1,0 +1,3 @@
+Artículo 22.—Las mociones e iniciativas de los regidores y regidoras, deberán ser presentadas por escrito y firmadas por al menos un regidor propietario La secretaría anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden las cuales se podrán presentar de viva voz siempre y cuando haya justificada razón para ello y se apruebe con la votación requerida.
+Las mociones de reiteración, revisión de la votación podrán presentarse por escrito y debidamente firmadas por los proponentes durante el desarrollo de la sesión.
+Las mociones se aprobarán por simple mayoría salvo que el Código Municipal ordene una votación diferente.

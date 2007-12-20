@@ -1,0 +1,3 @@
+SECCIÓN I
+De las sesiones ordinarias
+Artículo 5º—Las sesiones ordinarias se efectuarán los días martes de cada semana de las 17:15 horas a las 20:00 horas, en el salón de sesiones ubicado en el edificio de la sede de la Municipalidad de San Ramón. Para que el Concejo pueda, eventualmente sesionar ordinariamente en un lugar diferente dentro de la jurisdicción del Cantón, deberá mediar acuerdo previo aprobado por mayoría calificada de los miembros presentes del Concejo en la sesión donde así se solicite. La convocatoria a dichas sesiones la hará la Presidencia por medio de la Secretaría del Concejo.

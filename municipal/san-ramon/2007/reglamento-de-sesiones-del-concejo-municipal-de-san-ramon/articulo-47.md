@@ -1,0 +1,1 @@
+Artículo 47.—Las Comisiones Permanentes y Especiales, estarán integradas por al menos tres miembros, de los cuales, dos deberán ser regidores (as) propietarios o suplentes. Podrán integrarlas los síndicos propietarios y suplentes con derecho a voz y voto. Los particulares podrán participar en calidad de asesores.

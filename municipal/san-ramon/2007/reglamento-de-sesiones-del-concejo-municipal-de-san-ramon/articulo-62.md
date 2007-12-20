@@ -1,0 +1,1 @@
+Artículo 62.—Los Regidores suplentes, los Síndicos y el alcalde tienen derecho ha hacer uso de la palabra para referirse a cualquier asunto de discusión en el Concejo Municipal, con los mismos derechos y facultades conferidas los regidores propietarios. Los regidores suplentes solo tendrán derecho a votar cuando estén supliendo a un regidor propietario.

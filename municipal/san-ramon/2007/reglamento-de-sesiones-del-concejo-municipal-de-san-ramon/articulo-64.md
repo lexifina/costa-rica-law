@@ -1,0 +1,1 @@
+Artículo 64.—La interposición de veto por parte del Alcalde Municipal, tendrá prioridad en el orden del día de las Sesiones del Concejo Municipal por lo que la Presidencia Municipal no podrá negarse a dar trámite a ese veto, ni posponer su conocimiento en el Concejo. La interposición del veto suspende la ejecución del acuerdo recurrido.

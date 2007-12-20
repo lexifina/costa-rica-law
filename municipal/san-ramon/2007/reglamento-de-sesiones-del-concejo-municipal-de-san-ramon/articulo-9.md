@@ -1,0 +1,4 @@
+SECCIÓN II
+De las sesiones extraordinarias
+Artículo 9º—El Concejo, el Alcalde por sí, o a solicitud por escrito de al menos las dos terceras partes de los regidores propietarios, podrán convocar a las sesiones extraordinarias. A las mismas deberán ser convocados todos sus miembros. La convocatoria deberá hacerse con al menos veinticuatro horas de anticipación, contadas a partir de la notificación de la convocatoria y la hora señalada para la realización de la sesión. Con los puntos de agenda previamente establecidos, mediante acuerdo municipal, o en su defecto, por la solicitud que haga el Alcalde en su convocatoria.
+En las sesiones extraordinarias solo podrán conocerse los asuntos incluidos en la agenda previamente establecida. Sin embargo, se podrán incluir otros asuntos, siempre y cuando medie aprobación unánime del Concejo mediante moción de orden debidamente presentada.
