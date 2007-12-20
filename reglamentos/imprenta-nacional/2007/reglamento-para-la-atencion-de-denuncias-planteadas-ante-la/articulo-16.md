@@ -1,0 +1,1 @@
+Artículo 16.—De la documentación de las desestimaciones de denuncias. Cuando la Auditoría Interna desestime una denuncia, deberá justificar y dejar evidencia en el expediente correspondiente de los motivos por los cuales se desestimó dicha denuncia.

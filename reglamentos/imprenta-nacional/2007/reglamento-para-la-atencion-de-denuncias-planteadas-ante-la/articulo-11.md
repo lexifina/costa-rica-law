@@ -1,0 +1,1 @@
+Artículo 11.—De los resultados de la investigación producto de las denuncias. La Auditoría Interna informará a la Junta Administrativa o a la Dirección, según corresponda, sobre el resultado de la investigación producto de la denuncia. Asimismo, podrá informar al denunciante una vez terminada la investigación y confeccionado el informe respectivo.

@@ -1,0 +1,1 @@
+Artículo 5º—Recibo de la denuncia. La Auditoría Interna recibirá las denuncias en las oficinas centrales de la Imprenta Nacional, las cuales deberán venir dirigidas al Auditor Interno y el cual tiene la responsabilidad de valorar la admisibilidad de las mismas.

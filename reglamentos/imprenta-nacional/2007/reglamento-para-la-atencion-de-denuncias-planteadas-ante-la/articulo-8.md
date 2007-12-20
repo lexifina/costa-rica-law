@@ -1,0 +1,1 @@
+Artículo 8º—Información que debe acompañar adicionalmente el denunciante. El denunciante deberá aportar fotocopias de pruebas o evidencias y brindar información sobre el posible monto en perjuicio a los fondos públicos, la indicación de probables testigos y el lugar o medio para localizarlos, en caso de conocerlos.

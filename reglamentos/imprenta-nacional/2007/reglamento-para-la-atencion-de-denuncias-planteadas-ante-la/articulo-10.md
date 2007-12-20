@@ -1,0 +1,1 @@
+Artículo 10.—De las denuncias anónimas. La Auditoría Interna analizará el contenido y razonabilidad de la denuncia anónimas presentadas y se tramitará si la misma contiene elementos suficientes y prueba idónea que permita valorar los hechos presentados, de lo contrario se archivará.
