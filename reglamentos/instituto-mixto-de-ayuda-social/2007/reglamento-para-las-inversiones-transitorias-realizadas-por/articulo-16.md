@@ -1,0 +1,1 @@
+Artículo 16.—De los Plazos definidos para invertir: Las inversiones deben realizarse a menos de un año plazo, no requiriendo presupuestarse. Si la inversión supera el año plazo, se requiere la autorización de la Gerencia General y debe presupuestarse.

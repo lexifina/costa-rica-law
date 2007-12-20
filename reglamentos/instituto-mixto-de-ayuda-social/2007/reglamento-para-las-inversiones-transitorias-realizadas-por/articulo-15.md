@@ -1,0 +1,1 @@
+Artículo 15.—De los montos a invertir: Los montos a invertir serán propuestos por la Profesional Responsable de la Unidad de Tesorería; estarán sujetos a la liquidez institucional que refleje el flujo de caja al momento de la propuesta y deben ajustarse al Plan Anual de Inversiones que haya sido debidamente aprobado.

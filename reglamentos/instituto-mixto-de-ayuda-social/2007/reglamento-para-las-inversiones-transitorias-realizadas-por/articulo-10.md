@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad de los Funcionarios autorizados a firmar en las cuentas corrientes de Oficinas Centrales: Les corresponde autorizar la solicitud a la Tesorería Nacional, de adquisición de valores y la solicitud de transferencia a favor del Fondo General de Gobierno.

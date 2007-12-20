@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidad del Coordinador(a) del Área de Apoyo y Asesoría Financiera: Le corresponde autorizar las compras de títulos de inversión, cuando sea requerido la autorización del descuento de los títulos. También debe velar por el fiel cumplimiento del presente Reglamento y su respectivo Manual de Procedimientos.

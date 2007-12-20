@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad del Titular Subordinado de Presupuesto: Realizar las conciliaciones de las cuentas presupuestarias. Para ello, debe llevar el control de las inversiones transitorias, vencimiento y rendimientos generados. Verificar que el centro gestor y la posición presupuestaria sean correctos.
