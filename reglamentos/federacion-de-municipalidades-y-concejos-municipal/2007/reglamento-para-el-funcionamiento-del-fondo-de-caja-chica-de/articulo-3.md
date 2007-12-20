@@ -1,0 +1,1 @@
+Artículo 3º—Se establece un fondo de caja chica cuyo monto será aprobado anualmente por el Consejo Directivo mediante acuerdo, previo estudio elaborado por la Tesorería y avalado por la Administración.

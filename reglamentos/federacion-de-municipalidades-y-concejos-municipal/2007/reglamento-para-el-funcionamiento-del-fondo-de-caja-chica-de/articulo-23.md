@@ -1,0 +1,1 @@
+Artículo 23.—No se tramitarán por medio del fondo fijo de Caja Chica las compras que se hayan definido como artículo de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Federación, según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de Contratación Administrativa.
