@@ -11,14 +11,3 @@ articulo-10.md
 articulo-11.md
 articulo-12.md
 articulo-1-transitorio.md
-articulo-2-transitorio.md
-articulo-3-transitorio.md
-articulo-4-transitorio.md
-articulo-5-transitorio.md
-articulo-6-transitorio.md
-articulo-7-transitorio.md
-articulo-8-transitorio.md
-articulo-9-transitorio.md
-articulo-10-transitorio.md
-articulo-11-transitorio.md
-articulo-12-transitorio.md

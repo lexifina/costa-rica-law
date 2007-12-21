@@ -1,15 +1,4 @@
-Artículo 7. Naturaleza de la información periódica, divulgación y registro. La información requerida en virtud de este Acuerdo será de carácter público con excepción de los siguientes reportes que serán considerados confidenciales:
-Reporte de operaciones sospechosas
-Cuadro resumen operaciones únicas y múltiples
-Informes complementarios de auditores externos
-Hoja de consolidación de los estados financieros auditados de las empresas emisoras y sujetos fiscalizados
-Reporte de verificación de la normativa prudencial
-Encaje mínimo legal
-Auxiliar de inversiones propias de puestos de bolsa
-Anexo 36 "Cambios en la Información Inmobiliaria"
-Código del inquilino del Anexo 22 "Reporte de composición de cartera de fondos inmobiliarios"
-Reportes correspondientes a inversiones en títulos internacionales y posiciones abiertas a plazo por parte de los Puestos de Bolsa.
-Informe del Anexo 44 sobre participaciones significativas que reportan los emisores accionarios.
-(Así adicionado el inciso anterior por el artículo 1° punto d) del acuerdo SGV-A-135 del 9 de agosto de 2007)
-En consecuencia, con excepción de los reportes indicados, toda la información periódica requerida en virtud de este Acuerdo será incorporada al Registro Nacional de Valores e Intermediarios.
-(Así reformado mediante acuerdo N°114 del 17 de enero del 2006).
+Artículo 7º—Políticas y procedimientos para la utilización de la plataforma de Servicios de Ventanilla Virtual. La información que deba remitirse a esta Superintendencia por medio del Sistema Ingresador, debe respetar las especificaciones que se detallan en el documento “Políticas y procedimientos para la utilización de la plataforma de Servicios de Ventanilla Virtual”. Este documento contiene las políticas que rigen la utilización y operación de los servicios informáticos que provee la SUGEVAL para la entrega de información periódica. Este documento está disponible en su versión electrónica en la página Web de la Superintendencia y en su versión impresa en la ventanilla de atención al usuario de la SUGEVAL. Las modificaciones posteriores del documento serán debidamente comunicadas al medio según los mecanismos establecidos por el Superintendente.
+Tanto los emisores como los sujetos fiscalizados deben cumplir con el conjunto mínimo de requerimientos de equipo, software y sistemas de comunicación establecidos en el documento supracitado. La información debe transmitirse a la dirección electrónica que se indique en el documento y puede realizarse incluso durante días no hábiles, siempre y cuando sea antes del vencimiento del plazo.
+Los envíos que deban realizarse a través del Sistema Ingresador, pero que se efectúen por un mecanismo distinto al indicado en el documento o que no se ajusten a alguno de los requerimientos señalados en éste, no se considerarán válidos para los efectos del cumplimiento de las obligaciones de suministro de información periódica. En los casos de falla técnica en la plataforma de comunicaciones, se puede entregar la información por los medios contingentes que la SUGEVAL establece en dicho documento.
+La SUGEVAL ha creado las condiciones para que el suministro de información periódica por medio de la plataforma de Servicios de Ventanilla Virtual, se lleve a cabo bajo condiciones de seguridad que garantizan la integridad, confidencialidad y autenticidad de los datos remitidos, sin perjuicio de las responsabilidades que a tal efecto deban asumir los sujetos regulados y fiscalizados en la administración de sus sistemas de información. Para la transmisión de la información desde la sede del regulado hacia SUGEVAL, deben satisfacerse previamente de los criterios de validación de consistencia e integridad que establezca SUGEVAL para su control en forma automatizada.

@@ -1,1 +1,2 @@
-Transitorio I.—Formatos de reportes de carteras de los fondos de inversión. Hasta el envío de la información con corte al 30 de marzo, los fondos de inversión deberán remitir en paralelo el reporte de carteras vigente y la plantilla de cartera del Anexo 17.
+Transitorio I.—Los cambios a los Anexos 8, 10, 14 y 18 de puestos de bolsa y sociedades administradoras de fondos de inversión respectivamente, rigen a partir de la información con corte al 31 de enero del 2008.
+Consulte el sitio Web de la SUGEVAL (www.sugeval.fi.cr) en su sección de “Marco Jurídico/Acuerdos del Superintendente/Acuerdos Vigentes/General”, para acceder al texto del acuerdo original con todas sus reformas.

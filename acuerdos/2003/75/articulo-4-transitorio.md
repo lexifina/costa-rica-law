@@ -1,4 +1,0 @@
-Transitorio IV.—Reporte Indicadores de Riesgo, información de Grupos Financieros y Composición de carteras de Fondos de Inversión 31. El Reporte Indicadores de Riesgo (RI_FONDOS) y la sección sobre Sectorización (cuentas 3000000000 a 3040200000) del Reporte de la composición de carteras (RC_FONDOS) rigen a partir de la información con corte al 31 de marzo del 2005. 32
-Los estados financieros consolidados de los grupos financieros supervisados por la Superintendencia General de Valores, así como los estados de la sociedad controladora y las otras empresas no reguladas del grupo (BG_GF, RA_GF, FE_GF, CP_GF y CO_GF), rigen a partir de la información con corte al 30 de setiembre del 2004.
-(31) Transitorio adicionado por el acuerdo del Superintendente SGV-A-96 el 27 de septiembre del 2004.
-(32) Párrafo reformado por el acuerdo del Superintendente SGV-A-100 el 23 de diciembre del 2004.
