@@ -1,0 +1,1 @@
+Artículo 6º—Prohibiciones: En el ejercicio de sus funciones, el Auditor(a) Interno tendrán las prohibiciones establecidas en el Código Municipal y en el artículo 34 de la Ley General de Control Interno.

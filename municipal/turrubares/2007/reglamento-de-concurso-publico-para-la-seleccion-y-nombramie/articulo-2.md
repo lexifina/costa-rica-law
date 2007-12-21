@@ -1,0 +1,1 @@
+Artículo 2º—Facultad de nombramiento: Compete al Concejo Municipal de Turrubares nombrar por tiempo definido o indefinido al Auditor interno, bajo las normas establecidas en el Código Municipal y el presente reglamento.

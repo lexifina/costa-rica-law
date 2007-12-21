@@ -1,0 +1,1 @@
+Artículo 21.—Del período de prueba: una vez nombrado el Auditor será sujeto a un periodo de prueba de tres meses, pasado este plazo, el Concejo Municipal de Turrubares procederá a comunicar a la Contraloría General de la República su conformidad o disconformidad del desempeño del funcionario nombrado.

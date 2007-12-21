@@ -1,0 +1,1 @@
+Artículo 3º—Acciones previstas: De previo a realizar el procedimiento del concurso público que indica la Ley Nº 8292 y los lineamientos indicados en el artículo 1 de este Reglamento, para el nombramiento del Auditor Interno, se requerirá de la existencia de un acuerdo tomado por el Concejo Municipal de Turrubares, donde se nombra una comisión ad-hoc responsable del proceso.

@@ -1,0 +1,1 @@
+Artículo 14.—Sobre las ofertas incompletas: Cuando una oferta presentada este incompleta, se podrá conceder un plazo de hasta dos días hábiles posterior al período de recepción de ofertas para que los interesados puedan completar su solicitud, lo anterior a criterio justificado de la Comisión Ad-hoc.

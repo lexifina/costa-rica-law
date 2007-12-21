@@ -1,0 +1,3 @@
+Artículo 20.—De la aprobación del procedimiento: El expediente del Concurso y la terna, serán sometidos a conocimiento y aprobación del Concejo Municipal, quien remitirá el expediente a la Contraloría General de la República, para lo que establece el artículo 31 de la Ley General de Control Interno.
+Si la Contraloría General de la República aprueba el concurso realizado, el Concejo Municipal de Turrubares procederá a realizar el nombramiento.
+Si la Contraloría General de la República imprueba el concurso realizado, se iniciara nuevamente este proceso, de conformidad con lo que al respecto señale el ente Contralor.
