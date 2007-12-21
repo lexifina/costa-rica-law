@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Cláusula Interpretativa
+La Asamblea Legislativa de la República de Costa Rica interpreta, que a pesar de que las municipalidades de Costa Rica hayan sido listadas en el Capítulo Nueve, Contratación Pública, en la Sección B, como Entidades Gubernamentales a nivel sub-central, eso no compromete el carácter autónomo de los Gobiernos Locales o municipales en la administración de los intereses y servicios locales en cada cantón de Costa Rica, según lo disponen los artículos 169 y 170 de la Constitución Política de la República.

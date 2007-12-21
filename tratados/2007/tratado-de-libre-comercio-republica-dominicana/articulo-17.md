@@ -1,0 +1,2 @@
+ARTÍCULO 17.- El Tratado no impone al Estado costarricense ni a los Colegios Profesionales ninguna obligación con respecto al sector de Servicios Profesionales que implique la modificación de la legislación nacional aplicable al sector.
+El Estado podrá emitir las leyes, reglamentos o directrices administrativas que se estimen necesarias para garantizar el cumplimiento de los fines de interés público en el ejercicio profesional.

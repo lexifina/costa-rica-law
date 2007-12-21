@@ -1,0 +1,1 @@
+ARTÍCULO 13.- El Tratado no modifica ni elimina en ninguna medida el ordenamiento procesal laboral, ni el procedimiento administrativo ante el Ministerio de Trabajo, para presentar reclamos, ni los mecanismos de impugnación ante la OIT.

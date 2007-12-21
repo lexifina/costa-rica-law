@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Quedan excluidos del ámbito del Capítulo 12 los planes de jubilación públicos o sistemas legales de seguridad social. No obstante, si el Estado permite que estas actividades y servicios sean prestados por sus instituciones financieras en competencia con una entidad pública o una institución financiera se aplicará el Capítulo.

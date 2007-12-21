@@ -1,0 +1,1 @@
+ARTÍCULO 10.- La Asamblea Legislativa de la República de Costa Rica interpreta que las disposiciones contenidas en el Artículo 10.9 "Requisitos de Desempeño", inciso 1, subinciso f), del Capítulo 10, "Inversión" no se opone a las disposiciones contenidas en los artículos 15 y 16 del Convenio de Biodiversidad Biológica, ratificado mediante la Ley N° 7416, del 8 de junio de 1994.

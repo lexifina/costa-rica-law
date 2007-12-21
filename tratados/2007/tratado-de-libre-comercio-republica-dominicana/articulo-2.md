@@ -1,0 +1,1 @@
+ARTÍCULO 2.- La definición de territorio costarricense en el Tratado es de aplicación solo a los efectos del Tratado y no tiene relación con la definición de territorio soberano establecida en el párrafo final del artículo 5, el artículo 6 y el artículo 121, inciso 14 numeral b) de la Constitución Política de Costa Rica, que el país establezca para otros propósitos.

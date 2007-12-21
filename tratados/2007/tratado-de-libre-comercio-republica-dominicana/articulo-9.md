@@ -1,0 +1,1 @@
+ARTÍCULO 9.- En materia de expropiación, el Tratado no impone obligaciones distintas a Costa Rica en materia de expropiaciones a las contenidas en su derecho interno, ni modifica el artículo 45 de la Constitución Política.
