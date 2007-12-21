@@ -1,1 +1,0 @@
-Artículo 56.—Aprobado en la sesión número 125-92 del Plenario del Consejo Nacional de Cooperativas del 21 de marzo de 1992 y reformado en la sesión 153-97 del Plenario de Consejo Nacional de Cooperativas del 20 de enero de 1997, rige a partir de esta fecha y deroga cualquier norma reglamentaria anterior que se le oponga.

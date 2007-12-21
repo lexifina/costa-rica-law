@@ -1,2 +1,1 @@
-Artículo 49.—Los acuerdos se tomarán por mayoría absoluta de los miembros presentes. En caso de empate el asunto será nuevamente sometido a votación y en caso de empate en una elección, el asunto se decidirá al azar. En caso de empate en una votación comente el asunto se llevará a una nueva sesión y si resultare nuevamente empatado se tendrá
-por desechado.
+Artículo 49.—Los acuerdos se tomarán por mayoría absoluta de los miembros presentes. En caso de empate el asunto será nuevamente sometido a votación y en caso de empate en una elección, el asunto se decidirá al azar. En caso de empate en una votación corriente el asunto se llevará a una nueva sesión y si resultare nuevamente empatado se tendrá por desechado.

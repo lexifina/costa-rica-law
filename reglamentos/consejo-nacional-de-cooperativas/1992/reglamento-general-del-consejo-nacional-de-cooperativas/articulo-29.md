@@ -1,1 +1,1 @@
-Articulo 29.—De igual forma a lo dispuesto en el artículo 27 del presente reglamento y de conformidad con el artículo 141 de la Ley 4179 y sus reformas, se designarán los representantes del Consejo Nacional de Cooperativas a la Junta Directiva del Instituto Nacional de Fomento Cooperativo.
+Artículo 29.—De igual forma a lo dispuesto en el artículo 27 del presente reglamento y de conformidad con el artículo 141 de la Ley 4179 y sus reformas, se designarán los representantes del Consejo Nacional de Cooperativas a la Junta Directiva del Instituto Nacional de Fomento Cooperativo.

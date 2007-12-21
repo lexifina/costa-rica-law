@@ -1,1 +1,1 @@
-Artículo 9°—Los acuerdos del Congreso Cooperativo se adoptarán por por mayoría absoluta de los miembros presentes.
+Artículo 9º—Los acuerdos del Congreso Cooperativo se adoptarán por mayoría absoluta de los miembros presentes.

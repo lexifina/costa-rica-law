@@ -1,3 +1,4 @@
-Artículo 35.—Los 10 delegados/as de las cooperativas de Autogestión, integran la Comisión Permanente de Cooperativas de Autogestión para el ejercicio de las funciones y atribuciones que la ley le confiere. Esta comisión cuenta con autonomía funcional y operativa para el cumplimiento de dichas atribuciones y regulará su funcionamiento y relaciones con el Consejo Nacional de Cooperativas mediante un reglamento propio.
-En todo caso, las actuaciones de la Comisión Permanente de Cooperativas de Autogestión que impliquen el uso de la personería jurídica del Consejo Nacional de Cooperativas requerirá de la anuencia de este.
-Los delegados/as de las cooperativas de producción agrícola e industrial y los otros sectores, podrán constituir comisiones por sectores con el propósito de coordinar esfuerzos en tomo a objetivos de interés común y promover niveles cada vez mayores de integración.
+CAPÍTULO V
+De las Comisiones
+Artículo 35.—Los 10 delegados/as de las Cooperativas de Autogestión, integran la Comisión Permanente de Cooperativas de Autogestión para el ejercicio de las funciones y atribuciones que la ley le confiere.
+Los delegados/as de las Cooperativas de Producción Agrícola e Industrial y los Otros Sectores, son comisiones que representan a su respectivo Sector en el seno del Consejo Nacional de Cooperativas.

@@ -1,12 +1,12 @@
-CAPITULO II
-Funciones y atribuciones del plenario
+CAPÍTULO II
+Funciones y Atribuciones del Plenario
 Artículo 31.—Son funciones y atribuciones del Plenario:
-a) Elegir y remover a los representantes del Sector Cooperativo ante la Junta Directiva del Instituto Nacional de Fomento cooperativo.
-b) Elegir y remover cuando sea el caso. a los representantes del Sector Cooperativo ante la Junta Directiva del Instituto Nacional de Fomento Cooperativo, y ante las instituciones en la que tal representación exista por ley y vigilar sus acciones. Será responsabilidad del Directorio del Consejo Nacional de Cooperativas designar a los representantes del CONACOOP en los cuales su representación no sea dada por ley y vigilar sus actuaciones.
-c) Convocar al Congreso Cooperativo y cumplir con sus recomendaciones.
-d) Dar su aprobación final al Plan Anual Operativo y ratificar su Presupuesto: así como conocer el informe anual de ejecución del PAO y las liquidaciones del Presupuesto, las que incluirán las modificaciones internas aprobadas por el Directorio y las externas que apruebe ese mismo órgano, no pudiendo ser estas modificaciones en este caso mayores al 10% del presupuesto cada vez.
-(Así reformado por el Consejo Nacional Cooperativo en sesión plenaria No. 164-99 de 15 de febrero de 1999).
-e) Nombrar al Secretario Ejecutivo y determinar el ámbito de sus funciones de actuación.
-f) Dictar las normas sobre políticas a seguir; propiciar la integración de los diferentes sectores y entidades cooperativas superiores.
-g) Ejercer las demás atribuciones y funciones que le confiere la ley.
-h) Todos los asuntos que sean sometidos a conocimiento del Plenario deberán ser remitidos a sus miembros con no menos de ocho días de * anticipación a la fecha fijada para el mismo.
+A) Elegir de su seno a los representantes del Sector Cooperativo en la Junta Directiva del Instituto Nacional de Fomento Cooperativo; vigilar su actuación y dar normas sobre políticas a seguir.
+B) Designar, conforme al procedimiento respectivo, a los representantes del Sector Cooperativo en las Instituciones y organismos en los que Conacoop tenga derecho a esta representación. Vigilar sus actuaciones.
+C) Elegir cada dos años en el primer plenario, a su Secretario Ejecutivo.
+D) Dar su aprobación final al Plan Anual Operativo y ratificar su Presupuesto; así como conocer el informe anual de ejecución del PAO y las liquidaciones del Presupuesto, las que incluirán las modificaciones internas aprobadas por el Directorio y las externas que apruebe ese mismo órgano; no pudiendo ser estas modificaciones, en este caso mayores al 10% del presupuesto en cada ocasión.
+E) Convocar al Congreso Anual Cooperativo y cumplir con sus recomendaciones.
+F) Dictar las normas sobre políticas en materia de cooperativismo y vigilar por que se cumplan a través de los organismos correspondientes.
+G) Conocer los informes que deben presentar ante el Plenario cada seis meses los representantes del Sector Cooperativa en la Junta Directiva del Infocoop. y ejercer todas las demás atribuciones y funciones que le confiere la Ley.
+H) Todos los asuntos que sean sometidos a conocimiento del Plenario, deberán ser remitidos a sus miembros con no menos de ocho días de anticipación a la fecha fijada para el mismo.
+I) Ejercer las demás atribuciones y funciones que le confiere la Ley

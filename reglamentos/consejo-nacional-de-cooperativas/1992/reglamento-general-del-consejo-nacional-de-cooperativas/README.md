@@ -16,3 +16,4 @@ Reglamento General del Consejo Nacional de Cooperativas
 | 1 | 1997-01-20 | la propia norma |
 | 2 | 1997-04-21 | Reglamento 154 (1997-04-21) |
 | 3 | 1999-02-15 | Reglamento 164 (1999-02-15) |
+| 4 | 2007-12-21 | Reglamento 223 (2007-12-21) |
