@@ -16,3 +16,4 @@ Reglamento del Sistema de Becas para Estudiantes de las Carreras que imparte el 
 | 1 | 2006-03-15 | la propia norma |
 | 2 | 2007-06-29 | Reglamento 0 (2007-06-29) |
 | 3 | 2007-09-18 | Reglamento 2574 (2007-09-18) |
+| 4 | 2007-12-21 | Reglamento 2597 (2007-12-21) |
