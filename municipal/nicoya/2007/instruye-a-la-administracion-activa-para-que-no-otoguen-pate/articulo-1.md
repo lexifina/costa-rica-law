@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE NICOYA
+Conforme al numeral 53 de la Ley 7794, transcribo acuerdo Nº 5 de la sesión ordinaria Nº 080 del 12 de noviembre 2007, ratificado en la sesión ordinaria Nº 081 del 19 de Noviembre 2007, que dice:
+Acuerdo Nº 5: el Concejo Municipal en forma unánime aprueba instruir a la Administración Activa para que en lo sucesivo no se otorguen patentes para este tipo de juegos. En los casos en que se haya extendido la patente, esperar a que venza pero sin posibilidades de prórroga. De igual forma pedir a la Administración Municipal que proceda a la clausura de la operación de máquinas de juegos que no cuenten con permiso municipal, advirtiendo a los comerciantes que la renuencia a esta clausura puede acarrear el cierre de toda actividad comercial que desplieguen. Firme el acuerdo se autoriza a la Administración Municipal para que publique el presente acuerdo en un medio escrito y en el Diario Oficial La Gaceta.
+Se dispensa del trámite de Comisión; aprobado en firme.
+Nicoya, 21 de noviembre del 2007
