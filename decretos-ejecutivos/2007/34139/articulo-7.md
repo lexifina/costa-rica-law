@@ -1,0 +1,1 @@
+Artículo 7º—Durante las aplicaciones de productos que contengan paraquat se deberán respetar las zonas de protección de los ríos, los arroyos y otros cuerpos de agua estipulados en la Ley 7575 “Ley Forestal”.

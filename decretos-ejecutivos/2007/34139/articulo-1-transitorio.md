@@ -1,0 +1,2 @@
+Transitorio único: Las personas físicas o jurídicas que fabriquen, formulen, comercialicen y manipulen materia prima o producto formulado que contenga paraquat, tendrán un plazo improrrogable de seis meses, contado a partir de la publicación de este decreto, para cumplir con lo dispuesto en los artículos 2 y 6.
+Dado en la Presidencia de la República.—San José, a las nueve horas del día nueve de abril del dos mil siete.
