@@ -14,3 +14,4 @@ Reforma Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-25 | la propia norma |
+| 2 | 2007-12-26 | Resolución 649 (2007-12-26) |
