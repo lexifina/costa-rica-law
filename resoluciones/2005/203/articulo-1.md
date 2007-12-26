@@ -1822,6 +1822,17 @@ V. (*)Importación Definitiva para Venta, Recepción de Mercancía y Control de 
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
 (*)12) Cuando el Concesionario del Depósito Libre Comercial de Golfito efectúe ventas amparadas a una oferta, en la que se obsequia un producto por la venta de otro, el Concesionario en el momento de la emisión de la factura comercial y del mensaje XML enviado a la aduana, deberá reflejar la salida de los dos productos.
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
+(*)13. Para el ajuste de los inventarios de los Locales Comerciales en el Depósito Libre Comercial de Golfito, respecto a la cantidad de unidades de mercancía dentro de los bultos o en los códigos de barras, se deberá elaborar un acto resolutivo emitido por la jefatura del Puesto Aduanero de Golfito, cumpliendo con los requisitos y elementos legales establecidos y tomando en cuenta la siguiente información:
+a) Número de cédula jurídica del concesionario-importador.
+b) Número de DUA (Aduana – Año – Número) objeto de corrección.
+c) Número de factura comercial que describe el producto que presenta el error.
+d) Número de Línea del bloque de Factura en que se describe el producto que presenta el error.
+e) Cantidad de artículos declarados en el bloque de la factura que describe el producto que presenta el error.
+f) Cantidad de artículos recibidos físicamente.
+g) Cantidad de artículos asociados al ítem de la factura que describe el producto que presenta el error.
+h) Código producto declarado.
+i) Código producto correcto.
+(*)(Así adicionado mediante resolución DGA-649 del 26 de diciembre de 2007)
 2. De la Elaboración del DUA y Movilización de la Mercancías
 La declaración se completará de acuerdo con las normas establecidas en los Procedimientos de Importación y Tránsito Aduanero y en los correspondientes Instructivos de Llenado de la Declaración (DUA y DVA), con las peculiaridades que se establecen a continuación.
 A. Actuaciones del Declarante, Transportista y Responsable del Lugar de Ubicación
@@ -1911,6 +1922,16 @@ B. Actuaciones del Puesto Aduanero de Golfito.
 0) La aplicación informática validará el mensaje de salida de mercancías generado por el concesionario y de estar correcto deja en estado pendiente el movimiento de rebaja de inventario. De existir algún error en el mensaje, genera el archivo de respuesta al concesionario, indicando el código de error y la descripción del mismo.
 0) Tratándose de la venta de mercancías entre concesionarios, el funcionario aduanero responsable realizará los estudios respectivos para verificar que las mercancías vendidas de un Local Comercial a otro, se traspasen al costo registrado para el vendedor y que el precio al consumidor final no sea superior al autorizado para el primer concesionario. Si todo es correcto el funcionario responsable autoriza el movimiento de rebaja de inventario, en caso contrario rechaza la operación. La aplicación informática automáticamente sumará al inventario del Local Comercial comprador las mercancías negociadas y rebajará del inventario del Local Comercial vendedor dichas mercancías.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de setiembre de 2006)
+(*)7. De la Corrección y Autorización del inventario en el Depósito Libre Comercial de Golfito.
+A. Actuaciones del Concesionario del Depósito Libre Comercial de Golfito
+1) De haberse determinado diferencias en el proceso de descarga en el Depósito Libre Comercial de Golfito (DLCG), sean en la cantidad de unidades de mercancía dentro de los bultos o en los códigos producto, el Concesionario presentará ante el Puesto Aduanero de Golfito, dentro del plazo de 15 días hábiles a partir de la finalización de la descarga, la solicitud de corrección con las aclaraciones correspondiente y la documentación que las avala.
+B. Actuaciones del Puesto Aduanero de Golfito
+1) Una vez recibidas las aclaraciones del Concesionario, el funcionario aduanero asignado actuará de la siguiente forma: cuando se hayan descargado unidades de mercancías mayores o menores a las consignadas en el bloque de factura del DUA, pero la factura adjunta al DUA es correcta con respecto a la cantidad física y fueron incluidas en el valor aduanero, ajustará las cantidades de las mercancías declaradas en el inventario que TICA lleva de los locales de Golfito, previo acto resolutivo autorizado por la jefatura del Puesto Aduanero de Golfito.
+2) Cuando se hayan descargado unidades de mercancías cuyo código producto es distinto a lo declarado en el DUA; previo análisis de la documentación aportada por el Concesionario del código correcto registrado en el catálogo digital Cabasnet, el funcionario aduanero ajustará en el TICA dicho código producto en el inventario del local comercial de Golfito, previo acto resolutivo emitido por la jefatura del Puesto Aduanero de Golfito.
+3) La jefatura del Puesto Aduanero de Golfito, comunicará de los hechos a la aduana de control del DUA mediante informe elaborado al efecto por el encargado de dicho Puesto, adjuntando copia del acto resolutivo citado y demás documentos que avalan el ajuste del inventario, con la finalidad de que la aduana de control realice las acciones correctivas del DUA, sin perjuicio del inicio del proceso sancionatorio que corresponda.
+C. Actuaciones de la Aduana de Control del DUA
+1) De haberse recibido el informe del Puesto Aduanero de Golfito y los documentos que avalan el ajuste en el inventario del local comercial del Depósito Libre de Golfito, el funcionario designado analizará los documentos aportados y procederá a la corrección de la información del DUA e iniciará el proceso sancionatorio correspondiente.
+(*)(Así adicionado mediante resolución DGA-649 del 26 de diciembre de 2007)
 VI. Del Despacho de Mercancías de Oficio
 En este tipo de despacho se aplicará en lo procedente el Procedimiento de Importación con las particularidades que se establecen a continuación.
 A. Actuaciones del Declarante
