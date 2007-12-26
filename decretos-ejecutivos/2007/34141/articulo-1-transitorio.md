@@ -1,0 +1,2 @@
+Transitorio único: Las personas físicas o jurídicas que fabriquen, formulen, comercialicen y manipulen materia prima o producto formulado que contenga etropofos, tendrán un plazo improrrogable de seis meses, contado a partir de la publicación de este decreto, para cumplir con lo establecido en el párrafo segundo del artículo 2 y con relación a lo estipulado en los artículos 3º y 4º del presente decreto en lo que corresponde al etiquetado del producto agrícola.
+Dado en la Presidencia de la República.—San José, a las nueve horas del día nueve de abril del dos mil siete.

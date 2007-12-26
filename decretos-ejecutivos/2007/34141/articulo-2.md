@@ -1,0 +1,1 @@
+Artículo 2º—La formulación granulada de los productos que contengan etoprofos, se autoriza únicamente para ser aplicada al suelo, utilizando bomba granuladora manual o mecánica, las mismas deberán estar totalmente libres de polvo y contener mercaptano como alertante.

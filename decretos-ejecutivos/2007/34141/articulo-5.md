@@ -1,0 +1,1 @@
+Artículo 5º—Durante las aplicaciones de los productos que contengan etoprofos, se deberán respetar las zonas de protección de los ríos, los arroyos y de otros cuerpos de agua estipulados en el artículo 33 de la ley 7575 “Ley Forestal”.
