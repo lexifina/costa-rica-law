@@ -1,0 +1,2 @@
+Transitorio único: sólo estarán autorizadas para fabricar, formular comercializar y manipular materia prima o producto formulado que contenga metil paratión o paratión metílico, las personas físicas o jurídicas contempladas en el artículo 2º de este decreto. Las personas que no estén contempladas en el artículo citado, tendrán un plazo improrrogable de seis meses a partir de su publicación para agotar las existencias.
+Dado en la Presidencia de la República.—San José, a las nueve horas del día nueve de abril del dos mil siete.

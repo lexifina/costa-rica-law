@@ -1,0 +1,1 @@
+Artículo 4º—Las labores de manipulación, formulación y reempaque de productos que contengan metil paratión o paratión metílico deben ser realizadas por personal capacitado en el manejo de plaguicidas y utilizar las medidas de protección y prevención personal.

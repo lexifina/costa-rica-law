@@ -1,0 +1,1 @@
+Artículo 5º—En los casos en que está autorizada la aplicación de productos que contengan paratión, durante sus aplicaciones se deberán respetar las zonas de protección de los ríos, los arroyos y otros cuerpos de agua estipulados el artículo 33 de la ley 7575 “ Ley Forestal “.
