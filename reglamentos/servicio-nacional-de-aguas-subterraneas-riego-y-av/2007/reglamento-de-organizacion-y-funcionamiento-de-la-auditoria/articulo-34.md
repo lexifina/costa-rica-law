@@ -1,0 +1,1 @@
+Artículo 34. Incorporación de profesionales o técnicos de diferentes disciplinas. Es obligación del Auditor(a) Interno(a) incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.

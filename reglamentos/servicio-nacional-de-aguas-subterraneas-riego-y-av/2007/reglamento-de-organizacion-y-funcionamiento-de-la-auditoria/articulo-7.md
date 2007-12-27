@@ -1,0 +1,1 @@
+Artículo 7º Ideas rectoras, enunciados y códigos éticos. Es obligación del Auditor(a) Interno(a) establecer y actualizar la visión, misión y principales políticas que rigen el accionar de la Auditoría Interna. Así como los enunciados o códigos éticos que deben tener en cuenta los funcionarios de la auditoría al conducirse en sus distintas relaciones internas y externas.

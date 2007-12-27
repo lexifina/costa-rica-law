@@ -1,0 +1,1 @@
+Artículo 15. Medidas formales de control y Administración de Impedimentos. Será obligación del Auditor(a) Interno(a) establecer medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho o de apariencia) la objetividad e independencia de la auditoría interna.

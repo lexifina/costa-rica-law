@@ -1,0 +1,5 @@
+Artículo 36. Otras Competencias de la Auditoría Interna. Además de las competencias establecidas en el artículo 22 de la Ley General de Control Interno le corresponderá a la Auditoría Interna:
+a) Presentar anualmente a conocimiento de la Junta Directiva, el plan de labores, congruente con la planificación estratégica, su universo auditable actualizado, basado en un proceso de valoración del riesgo y objetivos institucionales, que incluirá los servicios de auditoría (los cuales contemplan el tiempo estimado para estudios especiales que se realizarán a solicitud de esta Junta Directiva o entes reguladores o fiscalizadores), los servicios preventivos y las labores de seguimiento sobre los resultados de esos servicios.
+b) Elaborar y mantener actualizado un manual de procedimientos de Auditoría Interna.
+c) Fiscalizar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos, y verificar que sus resultados sean consistentes con los objetivos y metas establecidos.
+d) Fiscalizar el diseño, implantación y eficacia de los objetivos, programas y actividades de la organización relacionados con la ética.
