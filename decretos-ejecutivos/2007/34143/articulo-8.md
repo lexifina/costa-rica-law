@@ -1,0 +1,2 @@
+Artículo 8º Las labores de manipulación, formulación y reempaque de productos que contengan Terbufos, deben ser realizadas por personal capacitado y utilizar las medidas de protección y prevención personal.
+Lo anterior sin perjuicio de lo que al respecto disponga el Consejo de Salud Ocupacional de conformidad con lo establecido en los artículos 273 y 274 de la Ley Nº 6727, Ley de Riesgos del Trabajo” de fecha 9 de febrero de 1982.

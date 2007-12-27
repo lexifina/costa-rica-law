@@ -1,0 +1,2 @@
+Transitorio único: las personas físicas o jurídicas quo fabriquen, formulen, comercialicen y manipulen materia prima o producto formulado que convenga Terbufos, tendrán un plazo improrrogable de seis meses contado a partir de la publicación de este decreto para cumplir con lo establecido en los artículos 2º, 3º, 4º y 5º del presente decreto.
+Dado en la Presidencia de la República. San José, a las nueve horas del día quince de mayo del dos mil siete.
