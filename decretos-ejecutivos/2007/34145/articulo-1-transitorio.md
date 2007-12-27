@@ -1,0 +1,2 @@
+Transitorio único: Las personas físicas o jurídicas que fabriquen, formulen, comercialicen y manipulen materia prima o producto formulado que contenga Metomil, tendrán un plazo improrrogable de seis meses contado a partir de la publicación de este decreto para cumplir con lo establecido en los artículos 2, 3, 4 y 5 del presente Decreto.
+Dado en la Presidencia de la República. San José, a las nueve horas del día quince de mayo del dos mil siete.

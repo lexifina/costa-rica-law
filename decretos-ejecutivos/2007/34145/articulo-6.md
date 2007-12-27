@@ -1,0 +1,1 @@
+Artículo 6º Durante las aplicaciones de productos que contengan Metomil, se deberán respetar las zonas de protección de los ríos, los arroyos y otros cuerpos de agua estipulados en el artículo 33 de la ley 7575 Ley Forestal”.
