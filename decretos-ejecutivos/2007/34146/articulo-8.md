@@ -1,0 +1,1 @@
+Artículo 8º Los Ministerios de Agricultura y Ganadería, de Salud, de Trabajo y Seguridad Socia y de Ambiente y Energía, en lo que corresponde a cada una de esas carteras ministeriales conforme a sus competencias legales, velarán por el cumplimiento de estas disposiciones.

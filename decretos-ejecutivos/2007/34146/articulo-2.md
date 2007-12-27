@@ -1,0 +1,1 @@
+Artículo 2º La venta de Fosfuro de Aluminio solo será autorizada bajo receta profesional expedida en los formularios oficialmente aprobados; por un profesional incorporado al Colegio de Ingenieros Agrónomos. La etiqueta y el panfleto deben llevar la leyenda VENTA BAJO RECETA PROFESIONAL”.
