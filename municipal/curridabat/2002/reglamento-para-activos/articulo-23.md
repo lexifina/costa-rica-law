@@ -1,1 +1,3 @@
-Artículo 23.—Cuando el funcionario haya reparado o restituido parcial o totalmente el bien perdido y compruebe posteriormente que no tuvo responsabilidad en la pérdida, tendrá derecho a que se le devuelva el valor total o parcial que haya pagado.
+Artículo 23.—En los casos en que haya pérdida de un activo definido en un inventario físico, u otros medios y se determine negligencia, descuido o inobservancia de los procedimientos establecidos, se procederá al cobro del bien, a valor del mercado con base en el artículo 71, inciso c) del Código de Trabajo y artículo 6º de la Ley de Administración Financiera de la República, y Presupuestos Públicos.
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 22 al 23 actual).

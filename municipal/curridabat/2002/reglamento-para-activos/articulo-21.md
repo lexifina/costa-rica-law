@@ -1,5 +1,3 @@
-Artículo 21.—Para dar de baja a un bien, cuya pérdida ha sido causada por hurto o robo y en ningún caso por culpa del responsable del activo, se cumplirá con los siguientes requisitos:
-a) Constancia del aviso por escrito de la pérdida.
-b) Aviso de lo ocurrido al Departamento de Contabilidad
-c) Elaboración de un acta por parte de funcionarios del Departamento Legal relacionada con los hechos. Se elaborará un expediente el cual estará a la orden de la Alcaldía Municipal para su decisión y si fuere el caso, su traslado al Ministerio Público.
-d) Intervendrán en esta diligencia el funcionario responsable de la administración del bien desaparecido, el jefe de departamento o sección y los funcionarios designados por el Departamento de Contabilidad.
+Artículo 21.—Para el procedimiento de dar de baja a un activo el Director Administrativo procederá a levantar un acta inmediatamente que suceda o se descubra el hecho que motiva la solicitud; la misma deberá ser firmada por los funcionarios que intervienen en la diligencia, a saber funcionario (a) al que se le asignó el activo, Jefatura de su Departamento y funcionario (a) de la Proveeduría Municipal).
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 20 al 21 actual).

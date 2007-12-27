@@ -1,0 +1,2 @@
+Artículo 49.—Deberá la Dirección de Informática diseñar, el sistema de activos fijos (captura de información), de tal manera que se permita un espacio para el numerado de vales de uso de bienes y se le permita así al encargado de activos, poder acceder la información de los bienes ya sea por medio del número de activo o el numeral de uso de bienes (marca de empleado).
+(Así adicionado mediante sesión N° 87 del 27 de diciembre del 2007).

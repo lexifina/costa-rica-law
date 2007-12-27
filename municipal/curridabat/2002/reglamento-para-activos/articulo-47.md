@@ -1,0 +1,6 @@
+Artículo 47.—Cuando el activo se encuentra en mal estado, el mismo deberá ser entregado a la Proveeduría Municipal , para que esta se encargue de trasladarlo al taller de reparación.
+a. El Departamento de Proveeduría llenará una “Boleta de Salida de Activos” la cual suministrará información, como el número de activo, vale de uso de bienes, descripción, serie, modelo, marca, valor, fecha de ingreso, dependencia asignada, firma y sello de proveeduría, deberá poseer original para el Departamento de Proveeduría, copia para la Contabilidad Municipal , copia para la Dirección Administrativa , copia para el taller de reparación y copia para Seguridad Interna.
+b. El taller de reparación será el responsable del activo durante el tiempo que el mismo se encuentre fuera del edificio.
+c. Cuando el activo sea devuelto a la Municipalidad , se hará por medio de la Proveeduría Municipal , la cual constatará el estado del mismo; para que la dependencia afectada lo retire por medio del mecanismo utilizado, para activos de primer ingreso y se devolverá la boleta de activos a la Proveeduría Municipal para registrar el reingreso del activo.
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 41 al 47 actual).

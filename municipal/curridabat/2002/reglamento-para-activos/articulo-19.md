@@ -1,1 +1,2 @@
-Artículo 19.—El Departamento de Contabilidad será el responsable de registrar cuando se dé de alta o baja a un activo.
+Artículo 19.—La Jefatura deberá establecer los mecanismos de control (vales de uso de bienes), para lo cual cada dependencia, contará el registro de marca de cada uno de sus empleados, la cual se considerará como el numeral de vales de uso de bienes, que quedará registrado en el Departamento de Proveeduría, para lo cual dicho departamento contará con un maestro de empleados por clave; con el fin de determinar a que persona corresponde, según numeración.
+(Así adicionado mediante sesión N° 87 del 27 de diciembre del 2007).

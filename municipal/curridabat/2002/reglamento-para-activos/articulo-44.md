@@ -1,0 +1,2 @@
+Artículo 44.—Para efectos de calcular la depreciación de los bienes muebles e inmuebles al servicio de la Municipalidad de Curridabat, se tomará como referencia la Ley del Impuesto sobre la Renta y su Reglamento, en el cual se muestra el bien, porcentaje anual y años de vida útil.
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 38 al 44 actual).

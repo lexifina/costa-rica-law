@@ -14,3 +14,4 @@ Reglamento para activos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-29 | la propia norma |
+| 2 | 2007-12-27 | Reglamento municipal 87 (2007-12-27) |

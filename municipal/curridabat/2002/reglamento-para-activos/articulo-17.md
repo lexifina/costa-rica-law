@@ -1,1 +1,2 @@
-Artículo 17.—Corresponde al Departamento de Contabilidad, levantar los inventarios de bienes, identificarlos de acuerdo con su naturaleza y características (modelo, marca, número de motor, serial, valor, tipo y sexo, edad y raza en caso de semovientes y tomo, folio, asiento y número de finca o folio real en caso de inmuebles).
+Artículo 17.—La Contabilidad Municipal podrá verificar con la Proveeduría el inventario de bienes, identificarlos de acuerdo con su naturaleza y características (modelo, marca, número de motor, serial, valor, tipo y sexo, edad y raza en caso de semovientes y tomo, folio, asiento y número de finca o folio real en caso de inmuebles).
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).

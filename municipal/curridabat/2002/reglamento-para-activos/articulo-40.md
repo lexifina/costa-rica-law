@@ -1,3 +1,2 @@
-CAPÍTULO VII
-Del retiro y traslado de los activos
-Artículo 40.—El retiro y traslado de los activos se realizará por dos causas, la primera cuando el activo se encuentre en mal estado y sea necesaria la reparación del mismo por el taller de reparación, la segunda cuando el activo sea trasladado a otro departamento dentro o fuera del edificio.
+Artículo 40.—Queda bajo la total responsabilidad de la Dirección de Recursos Humanos, no efectuar ninguna liquidación al funcionario, sea cual sea su rango; sin el respectivo visto bueno del Departamento de Proveeduría, sobre el control de bienes.
+(Así adicionado mediante sesión N° 87 del 27 de diciembre del 2007).

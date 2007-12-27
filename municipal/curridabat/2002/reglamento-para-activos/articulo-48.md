@@ -1,0 +1,3 @@
+Artículo 48.—Cuando el activo sea trasladado a otro departamento en forma permanente o temporal, el encargado actual del activo deberá llenar la boleta “Traslado de Activos” con el fin de informar al Departamento de Proveeduría que dicho activo ya no estará más bajo su responsabilidad; dicha boleta deberá tener información como la siguiente: número de activo, vale de uso de bienes, descripción, firma de la Jefatura y el dueño del vale de uso de bienes, así como firma de la Jefatura que la recibirá y firma y nuevo vale de uso de bienes, del funcionario que lo utilizará.
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 42 al 48 actual).

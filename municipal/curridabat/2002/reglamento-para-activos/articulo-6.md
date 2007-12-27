@@ -1,1 +1,2 @@
-Artículo 6º—Dicha solicitud debe estar autorizada por el Alcalde Municipal y el Tesorero Municipal.
+Artículo 6º—Dicha solicitud debe estar autorizada por el Alcalde Municipal o el Director Financiero. Si el Departamento que solicita es la Alcaldía Municipal, la solicitud estará autorizada únicamente por el Director Financiero. Así mismo, si el Departamento que solicita es la Dirección Financiera, la solicitud estará autorizada por el Alcalde Municipal. En caso de ausencia del Alcalde y de tener la solicitud carácter de urgencia, el Director Financiero podrá firmar en ambos espacios, siempre y cuando la solicitud provenga de personal que esté bajo la supervisión de la Alcaldía.
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).

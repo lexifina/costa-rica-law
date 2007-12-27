@@ -1,5 +1,8 @@
-Artículo 25.—Para dar de baja por desmantelamiento de maquinaria y equipos cuando su estado refleje pérdida total o parcial, costos de sostenimiento, inutilidad o graves daños que hagan aconsejable esta medida para aprovechar las partes utilizables, se cumplirán los siguientes requisitos:
-a) Autorización del Departamento de Contabilidad.
-b) Solicitud escrita al superior de la entidad hecha por el jefe de la dependencia que tiene los bienes, con numeración de cada uno que se quiera desmantelar, clases, marca, número, capacidad, valores de inventario que permitan su exacta identificación y motivos que justifiquen el desmantelamiento.
-c) Nombramiento por el superior de una comisión que deba intervenir en la diligencia de desmantelamiento.
-d) Expedición de la orden de baja de los bienes desmantelados.
+Artículo 25.—Para dar de baja de bienes inservibles o en desuso, se cumplirá con los siguientes requisitos:
+a. Los responsables deberán presentar los activos deteriorados o destruidos a la Dirección Administrativa.
+b. La Proveeduría Municipal presentará el Avalúo Administrativo elaborado por el Coordinador de Área de Valoraciones de la Administración Tributaria de la Dirección General de Tributación, realizado a los activos a los cuales se les va a dar de baja.
+c. La Dirección Administrativa autorizará el proceso respectivo y levantará un acta detallando todas sus características, incluyendo el número de activo.
+d. Se remitirá una copia del acta al Departamento de Proveeduría y Contabilidad para lo que corresponda.
+e. Expedición de la orden de baja de los bienes inservibles o en desuso.
+(Así reformado mediante sesión N° 87 del 27 de diciembre del 2007).
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 24 al 25 actual).

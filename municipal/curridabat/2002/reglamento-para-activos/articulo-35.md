@@ -1,3 +1,2 @@
-CAPÍTULO VI
-De la depreciación de los activos
-Artículo 35.—El Departamento de Contabilidad ajustará de forma mensual los gastos por depreciación y depreciación acumulada, según los reportes que se emitan mensualmente, así como el valor de los activos fijos.
+Artículo 35.—Los jefes de departamento no son responsables de la pérdida, del daño o depreciación que sufran los mismos, cuando provengan del deterioro natural por razón de su uso legítimo o de otra causa justificada. Por lo tanto estas personas están obligadas a velar por el correcto uso de los bienes, debiendo gestionar el mantenimiento y conservación adecuadas.
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 30 al 35 actual).

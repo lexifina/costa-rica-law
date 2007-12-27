@@ -1,4 +1,5 @@
-Artículo 18.—Para efecto de los registros de las operaciones se adoptará la siguiente clasificación:
+Artículo 18.—Para efectos de los registros contables los informes que emita la Proveeduría, se adoptarán las cuentas de la Contabilidad, las cuales ya están establecidas. En lo que al registro de ubicación se refiere el mismo podrá ser de acuerdo al nombre de la Jefatura o por la Dirección, Departamento, Sección, etc., en cuyo caso el responsable será el encargado del mismo.
+(Así reformado el párrafo anterior mediante sesión N° 87 del 27 de diciembre del 2007).
 1 Activos
 1-02- Activo Fijo
 1-02-01- Maquinaria y Equipo

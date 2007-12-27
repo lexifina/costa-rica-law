@@ -1,4 +1,4 @@
-Artículo 41.—Cuando el activo se encuentra en mal estado, el mismo deberá ser entregado al Departamento de Proveeduría para que éste se encargue de trasladarlo al taller de reparación:
-a) El Departamento de Contabilidad llenará una boleta de "salida de activos" la cual suministrará información como el número de activo, descripción, serie, firma del encargado del taller, firma y sello de contabilidad; la anterior información deberá poseer original para el Departamento de Contabilidad, copia para el taller de reparación, y una segunda copia para el encargado de seguridad del edificio.
-b) El taller de reparación será el responsable del activo durante el tiempo que el mismo se encuentre fuera del edificio.
-c) Cuando el activo sea devuelto a la Municipalidad el Departamento de Proveeduría constatará el estado del mismo, posteriormente se devolverá la boleta de "salida de activos" al Departamento de Contabilidad para registrar el nuevo ingreso del activo.
+CAPÍTULO VI
+De la depreciación de los activos
+Artículo 41.—El Departamento de Contabilidad ajustará de forma mensual los gastos por depreciación y depreciación acumulada, según los reportes que se emitan mensualmente, así como el valor de los activos fijos.
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 35 al 41 actual).

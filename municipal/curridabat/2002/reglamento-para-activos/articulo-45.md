@@ -1,0 +1,2 @@
+Artículo 45.—Depreciación sobre mejoras: Cuando se lleva a cabo mejoras en bienes depreciables, la depreciación se debe calcular por separado al activo; alternativamente, el declarante puede depreciar el nuevo valor en términos de la nueva vida útil que lo adicione, como consecuencia de las mejoras introducidas. Esa nueva vida útil deberá manifestarse en los registros.
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 39 al 45 actual).

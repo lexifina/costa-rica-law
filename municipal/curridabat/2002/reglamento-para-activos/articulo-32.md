@@ -1,1 +1,2 @@
-Artículo 32.—Si al efectuarse una verificación de existencias por parte de la auditoría se encontrasen bienes sin registrar, o faltante o destruidos o en mal estado de conservación el funcionario actuante informará al Departamento de Contabilidad para lo concerniente.
+Artículo 32.—La verificación de existencias se hará por prueba selectiva periódica, excepto en casos especiales que ameriten una verificación total.
+(Así corrida su numeración mediante sesión N° 87 del 27 de diciembre del 2007, que lo traspasó del anterior artículo 28 al 32 actual).

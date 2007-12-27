@@ -1,4 +1,2 @@
-Artículo 33.—Cuando al elaborar los inventarios se encuentran faltantes, daños o deterioros que no se deba al dolo o culpa de la persona que los tiene a su cargo, podrán los encargados firmar los inventarios, dejando de ello constancia.
-En los casos de pérdida, daño o depreciación de bienes municipales la información del hecho que los haya ocasionado corresponde:
-a) Al empleado, trabajador o contratista a cuyo cargo estén, y
-b) Al jefe de la respectiva oficina o dependencia.
+Artículo 33.—Es obligación de cada Jefatura, que cada uno de los bienes asignados a sus subalternos, cuente con un inventario individual, que conste de la cantidad de bienes, el número de activo y el número del vale de uso de bienes.
+(Así adicionado mediante sesión N° 87 del 27 de diciembre del 2007).
