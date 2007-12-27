@@ -1,0 +1,1 @@
+Artículo 4º Se prohibe la aplicación de los productos que contengan clorpirifos en arroz anegado. Para el caso del maíz se prohibe el uso de formulaciones liquidas en el control de plagas del cogollo.

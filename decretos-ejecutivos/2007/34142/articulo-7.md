@@ -1,0 +1,1 @@
+Artículo 7º Las labores de manipulación, formulaci5n y reempaque de productos que contengan clorpirifos, deben ser realizadas por personal capacitado en el manejo de plaguicidas y utilizar las medidas de protección y prevención personal.

@@ -1,0 +1,1 @@
+Artículo 2º Se prohibe la aplicación de productos que contengan clorpirifos en viviendas, edificios o cualquier instalación, parques, lugares de recreo o jardín en donde se desarrollen actividades humanas.

@@ -1,0 +1,1 @@
+Artículo 5º Únicamente se autoriza el uso terrestre de los productos que contengan clorpirifos en los cultivos autorizados por el Ministerio de Agricultura y Ganadería, respetando las zonas de protección del hábitat acuático estipuladas en el artículo 33 de la ley 7575 Ley Forestal”.
