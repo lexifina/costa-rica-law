@@ -1,0 +1,2 @@
+3) Eliminar el inciso I) del capítulo 7 del Anexo 1 “Disposiciones para las personas físicas y jurídicas que brindan servicios o suministros a buques que arriban al Puerto de Puntarenas administrado por INCOP”, Capítulo III Del Permiso de Operaciones, del Reglamento General de Servicios Portuarios; en consecuencia, los incisos subsiguientes deben ajustarse.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
