@@ -1,6 +1,7 @@
 ARTÍCULO 24.- La Asamblea General tendrá los siguientes deberes y
 atribuciones:
-a) Conocer de las apelaciones presentadas por tres directores de la Junta Directiva de la Liga de la Caña, contra las disposiciones reglamentarias, las resoluciones o los acuerdos tomados por dicho órgano o por el Consejo de Comercialización Ampliado. Para revocar, anular o modificar, total o parcialmente, disposiciones reglamentarias, resoluciones o acuerdos del citado Consejo, se requerirá el voto de dos terceras partes de los miembros presentes de la Asamblea General.
+a) Conocer de las apelaciones presentadas contra las disposiciones reglamentarias, las resoluciones o los acuerdos tomados por dicho órgano o por el Consejo de Comercialización Ampliado. Para revocar, anular o modificar, total o parcialmente, disposiciones reglamentarias, resoluciones o acuerdos del citado Consejo, se requerirá el voto de dos terceras partes de los miembros presentes de la Asamblea General.
+(Así reformado mediante resolución de la Sala Constitucional N° 13335-06, de las diecisiete horas con treinta y ocho minutos.)
 b) Conocer de los proyectos de presupuestos ordinarios y extraordinarios de la División Corporativa, que la Junta Directiva le presente para discutirlos, aprobarlos o reformarlos.
 c) Conocer de los proyectos de presupuestos ordinarios y extraordinarios de la División de Comercialización que el Consejo de Comercialización le presente para reformarlos o improbarlos se requiere el voto de la mayoría absoluta de los miembros de la Asamblea.
 d) Fijar las dietas que devengarán los miembros de la Junta Directiva y del Consejo de Comercialización, por asistir a las sesiones ordinarias y extraordinarias.
