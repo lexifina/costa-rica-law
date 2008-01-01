@@ -1,19 +1,7 @@
-ARTICULO 63.- Los Magistrados suplentes, escogidos por sorteo para
-reponer la falta temporal de un propietario, desempeñarán sus funciones
-por el tiempo que dure ésta; los llamados para reponer una falta
-absoluta, por todo el tiempo que transcurre sin que la Asamblea
-Legislativa llene la vacante y dé posesión al Magistrado nuevamente
-electo.
-Sin embargo, si el Suplente estorbare el funcionamiento normal del
-tribunal, por su irregular asistencia o por cualquier otro motivo
-calificado, la Sala dará cuenta al Presidente de la Corte para que sea
-repuesto por nuevo sorteo.
-Cuando algún Magistrado suplente debiera ejercer la Magistratura por
-un lapso mayor de tres meses, entrará en receso de sus funciones de
-abogado y notario por todo el tiempo de ese ejercicio; pero al vencer su
-cargo recobrará, por el mismo hecho, las citadas funciones, sin necesidad
-de reponer la garantía vigente.
-Los Magistrados suplentes devengarán dietas por día de trabajo o
-sesión, proporcionales a la remuneración de los propietarios. Cuando
-fuesen pensionados o jubilados de cualquier régimen, el desempeño del
-cargo por más de un mes, suspenderá el goce de su pensión o jubilación.
+ARTICULO 63.- Los Magistrados suplentes, escogidos por sorteo para reponer la falta temporal de un propietario, desempeñarán sus funciones por el tiempo que dure ésta; los llamados para reponer una falta absoluta, por todo el tiempo que transcurre sin que la Asamblea Legislativa llene la vacante y dé posesión al Magistrado nuevamente electo.
+Sin embargo, si el Suplente estorbare el funcionamiento normal del tribunal, por su irregular asistencia o por cualquier otro motivo calificado, la Sala dará cuenta al Presidente de la Corte para que sea repuesto por nuevo sorteo.
+Cuando algún Magistrado suplente debiera ejercer la Magistratura por un lapso mayor de tres meses, entrará en receso de sus funciones de abogado y notario por todo el tiempo de ese ejercicio; pero al vencer su cargo recobrará, por el mismo hecho, las citadas funciones, sin necesidad de reponer la garantía vigente.
+Los Magistrados suplentes devengarán dietas por día de trabajo o sesión, proporcionales a la remuneración de los propietarios. Cuando fuesen pensionados o jubilados de cualquier régimen, el desempeño del cargo por más de un mes, suspenderá el goce de su pensión o jubilación.
+Cuando el magistrado suplente sea servidor judicial y deba conocer de uno o varios casos en sustitución de un titular, su labor se retribuirá mediante un suplemento salarial, calculado conforme a las reglas que al efecto dictará la Corte Suprema de Justicia; se tendrá como base la forma en que se retribuye la labor de los suplentes, según lo dispuesto en el párrafo anterior. Cuando deba reponer la falta temporal o absoluta de un magistrado propietario, entrará en receso en su puesto en propiedad y se le pagará el salario correspondiente a un magistrado.
+Las reglas establecidas en el párrafo anterior se aplicarán en el caso en que los servidores judiciales sean nombrados para suplir a jueces”. Rige a partir de su publicación.
+(Así adicionados los dos últimos párrafos por el artículo 1° de la ley N° 8553 del 19 de octubre del 2006)
