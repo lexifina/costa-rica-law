@@ -1,0 +1,1 @@
+Acuerdo 2º—Mantener constante durante el año 2008 los ingresos de referencia de los trabajadores independientes y asegurados voluntarios, afiliados al 31 de diciembre del año 2007, pero aplicándoles el porcentaje de contribución que corresponde a la nueva estructura a partir del 1º de enero del año 2008.
