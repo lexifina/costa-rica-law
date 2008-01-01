@@ -1,0 +1,1 @@
+Artículo 20.—Vigencia. Este Reglamento rige a partir del 1º de enero del 2008, por lo que el estudio de contratos presentados ante la Contraloría General antes de esa fecha, concluirá según lo dispuesto en la reglamentación derogada en el artículo anterior. Publíquese.
