@@ -9,7 +9,8 @@ Técnico de Aviación Civil, están completamente satisfechas de
 modo que claramente se trata de un servicio que pretenda, por
 medio de una competencia antieconómica, eliminar o perjudicar las
 explotaciones aéreas ya establecidas.
-3) Cuando se trate de personas jurídicas costarricenses, si el solicitante no acredita la constitución legal de la sociedad, la nacionalidad de su capital y el control efectivo de la empresa en los términos especificados en el artículo 174. (De acuerdo con la reforma de ley Nº 7251 del 13 de agosto de 1991, se refiere al artículo 179.)
+3) Anulado.
+(Anulado este inciso mediante resolución de la Sala Constitucional N° 11156-2007 del 01 de agosto de 2007.)
 4) Cuando se trate de empresa extranjera:
 a) Si el Estado cuya nacionalidad tenga el solicitante no le ha
 otorgado la autorización respectiva para que efectúe el
