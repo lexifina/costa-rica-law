@@ -1,3 +1,2 @@
 Matrimonio del procesado o condenado con la ofendida.
-ARTÍCULO 92.-
-También extinguen la acción penal o la pena, el matrimonio del procesado o condenado con la ofendida, cuando éste es legalmente posible en los delitos contra la honestidad y no haya oposición de parte de los representantes legales de la menor y del Patronato Nacional de la Infancia.
+Artículo 92.- (Derogado, por el artículo 3° de la Ley N°. 8590 de 18 de julio de 2007).

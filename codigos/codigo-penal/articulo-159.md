@@ -1,4 +1,5 @@
 Relaciones sexuales con personas menores de edad
-ARTÍCULO 159.-
-Quien, aprovechándose de la edad, se haga acceder o tenga acceso carnal por vía oral, anal o vaginal, con una persona de cualquier sexo, mayor de doce años y menor de quince, aun con su consentimiento, será sancionado con pena de prisión de dos a seis años. Igual pena se impondrá si la acción consiste en introducir, por vía vaginal o anal uno o varios dedos u objetos. La pena será de cuatro a diez años de prisión cuando la víctima sea mayor de doce años y menor de dieciocho, y el agente tenga respecto de ella la condición de ascendiente, tío, tía, hermano o hermana consanguíneos o afines, tutor o guardador.
-(Así reformado por el artículo 1º de la ley No.7899 de 3 de agosto de 1999)
+Artículo 159.- Será sancionado con pena de prisión de dos a seis años, quien aprovechándose de la edad, se haga acceder o tenga acceso carnal con una persona de uno u otro sexo, mayor de trece años y menor de quince años, por la vía oral, anal o vaginal, con su consentimiento.
+Igual pena se impondrá si la acción consiste en la introducción de uno o varios dedos, objetos o animales por la vía vaginal o anal.
+La pena será de cuatro a diez años de prisión cuando la víctima sea mayor de trece años y menor de dieciocho años, y el agente tenga respecto de esta la condición de ascendiente, tío, tía, hermano o hermana consanguíneos o afines, tutor o guardador.
+(Así reformado mediante el artículo 1° de la Ley “Fortalecimiento de la Lucha Contra La Explotación Sexual de las Personas Menores de Edad mediante la reforma y adición de varios artículos al Código Penal, Ley Nº 4573, y reforma de varios artículos del Código Procesal Penal, Ley Nº 7594”; ley N° 8590 del 18 de julio del 2007).

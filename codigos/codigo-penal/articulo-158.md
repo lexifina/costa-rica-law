@@ -1,3 +1,2 @@
 Violación Agravada.
-ARTÍCULO 158.-
-La pena será de doce a dieciocho años de prisión cuando con motivo de la violación resulte un grave daño en la salud de la víctima o cuando el delito sea realizado por el encargado de la educación, guarda o custodia de aquella o cuando el hecho se cometiere con el concurso de una o más personas, o lo realizaren los ministros religiosos, profesionales o cualquier miembro de la Fuerza Pública, prevaleciéndose del ejercicio de su cargo. (Así reformado por el artículo 1 de la ley Nº 7398 de 3 de mayo de 1994)
+Artículo 158.- (Derogado por el artículo 3° de la Ley “Fortalecimiento de la Lucha Contra La Explotación Sexual de las Personas Menores de Edad mediante la reforma y adición de varios artículos al Código Penal, Ley Nº 4573, y reforma de varios artículos del Código Procesal Penal, Ley Nº 7594”; ley N° 8590 del 18 de julio del 2007).
