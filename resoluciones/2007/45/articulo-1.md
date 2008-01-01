@@ -1,0 +1,17 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-CO-45-2007.—Despacho de la Contralora General de la República, a las quince horas del veinticuatro de setiembre del 2007.
+Considerando:
+1º—Que los artículos 183 y 184 de la Constitución Política disponen que la Contraloría General de la República es una institución auxiliar de la Asamblea Legislativa, pero con absoluta independencia en la vigilancia y control de la Hacienda Pública y el artículo 12 de su Ley Orgánica número 7428 del 7 de setiembre de 1994, la designa como órgano rector del ordenamiento de Control y Fiscalización Superiores de la Hacienda Pública.
+2°—Que el artículo 11 de la Constitución Política dispone que los funcionarios públicos están obligados a cumplir los deberes que la ley les impone y no pueden arrogarse facultades no concedidas en ella, además estarán sometidos a un procedimiento de evaluación de resultados y rendición de cuentas, con la consecuente responsabilidad personal en el cumplimiento de sus deberes.
+3º—Que los artículos 12 y 24 de su Ley Orgánica facultan a la Contraloría General para emitir disposiciones, normas, políticas y directrices de acatamiento obligatorio, que resulten necesarias para el ejercicio de sus competencias.
+4º—Que el artículo 68 de su Ley Orgánica dispone que cuando la Contraloría General de la República, en el ejercicio de sus potestades determine que un servidor de la Hacienda Pública o una persona física o Jurídica que administre fondos públicos, haya cometido infracciones que lesionen el Ordenamiento de Fiscalización y Control o la Hacienda Pública, recomendará al órgano o autoridad administrativa competente, la aplicación de la sanción correspondiente de conformidad con el mérito del caso.
+5°—Que el artículo 72 de su Ley Orgánica dispone que la Contraloría podrá prohibir el ingreso o reingreso a cargos de la Hacienda Pública por un plazo comprendido entre dos y ocho años a los sujetos que hayan cometido faltas graves o delitos en contra de la Hacienda Pública.
+6°—Que los artículos 74 y siguientes de la Ley Orgánica de la Contraloría General de la República, en concordancia con los numerales 199 y siguientes de la Ley General de la Administración Pública, establecen la responsabilidad patrimonial del servidor por daños causados a la Administración.
+7º—Que uno de los principales enunciados de la función pública lo compone la transparencia en el actuar de los funcionarios públicos, así como su deber de rendición de cuentas en el marco de sus funciones, estando sujetos al escrutinio público en razón de su carácter de funcionarios públicos. En consecuencia, el debido resguardo de la utilización de los fondos públicos que esta Contraloría está en la obligación de vigilar, comprende a todos los sujetos que administran fondos públicos o contratan con el Estado. Por tanto:
+RESUELVE:
+I.—Créase el Sistema de Registro de Sanciones de la Hacienda Pública (SIRSA), que se regirá por la:
+DIRECTRIZ PARA LA OPERACIÓN DEL SISTEMA DE REGISTRO
+DE SANCIONES DE LA HACIENDA PÚBLICA (SIRSA)
+D-4-2007-CO-DAGJ
+Artículo 1º—Objetivo del Sistema. Se incorporarán al Sistema de Registro de Sanciones de la Hacienda Pública (SIRSA), las sanciones disciplinarias; las sanciones por responsabilidad patrimonial o por daños y las sanciones de prohibición de ingreso o reingreso a cargos de la Hacienda Pública, dictadas por la Contraloría General de la República o por las administraciones públicas, con razón de procedimientos administrativos sancionatorios en Hacienda Pública.
