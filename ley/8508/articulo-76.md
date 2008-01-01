@@ -1,0 +1,1 @@
+ARTÍCULO 76.- Si las partes principales o sus representantes llegan a un acuerdo que ponga fin a la controversia, total o parcialmente, el juez conciliador, en un plazo máximo de ocho días hábiles, homologará el acuerdo conciliatorio, dando por terminado el proceso en lo conducente, siempre que lo acordado no sea contrario al ordenamiento jurídico, ni lesivo al interés público.

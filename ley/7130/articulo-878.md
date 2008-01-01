@@ -1,11 +1,4 @@
-ARTÍCULO 878.- Enajenación.
-Para acreditar la necesidad y la utilidad, se recibirán la prueba
-pericial y las demás que se rindan o que el juez creyere convenientes. En
-el mismo dictamen el perito hará el avalúo de los bienes correspondientes.
-Recibida la prueba, se dará audiencia por tres días a la Procuraduría
-General de la República y al Patronato Nacional de la Infancia, y, sin más
-trámite, el juez dictará auto de autorización o de denegación del permiso
-solicitado. Este auto será apelable en ambos efectos.
-(La numeración de este artículo fue así modificada por el artículo 1º
-de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo
-855 al actual)
+ARTÍCULO 878.- .- Enajenación. Para acreditar la necesidad y la utilidad, se recibirán la prueba pericial y las demás que se rindan o que el juez creyere convenientes. En el mismo dictamen el perito hará el avalúo de los bienes correspondientes.
+Recibida la prueba, se dará audiencia por tres días al Patronato Nacional de la Infancia, y, sin más trámite, el juez dictará auto de autorización o de denegación del permiso solicitado. Este auto será apelable en ambos efectos.
+(Así reformado el párrafo anterior por el artículo 219, inciso 5.c) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
+(Así corrida su numeración por el artículo 1° de ley N° 7643 del 17 de octubre de 1996 que lo traspaso del antiguo artículo 855 al 878)

@@ -1,0 +1,4 @@
+ARTÍCULO 144.-
+1) Si alguna de las partes o sus representantes tienen justa causa para no asistir o no haber asistido a la audiencia, deberán acreditarla ante la Sala Primera o el Tribunal de Casación.
+2) De ser procedente, deberá efectuarse un nuevo señalamiento, el cual será notificado al menos con tres días de anticipación a la realización de la audiencia.
+3) Si la parte recurrente o su representante no asisten a la audiencia sin justa causa, el recurso se tendrá por desistido y, por firme, la resolución recurrida. De previo a ello, la Sala Primera o el Tribunal de Casación dará audiencia por tres días al recurrente que se haya ausentado, para que alegue y compruebe lo pertinente acerca de su ausencia. El recurrente que haya pedido la audiencia oral y que sin justa causa no asista a ella, será corregido disciplinariamente con uno a cinco días multa.

@@ -1,0 +1,3 @@
+ARTÍCULO 61.-
+1) Cuando la demanda no cumpla los requisitos señalados en el artículo 58 de este Código, la jueza o el juez tramitador ordenará la subsanación dentro del plazo de tres días hábiles, para ello deberá indicar los requisitos omitidos o incompletos, so pena de ordenar su inadmisibilidad y archivo. En caso de procesos de trámite preferente, el plazo será de veinticuatro horas.
+2) Contra el auto que acuerde el archivo cabrá recurso de apelación, que será del conocimiento del Tribunal de Casación de lo Contencioso-Administrativo, que resolverá lo pertinente dentro de un plazo de ocho días hábiles.

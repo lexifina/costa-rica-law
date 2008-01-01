@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el artículo 211 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).
 LEY DE CREACION DE LA SECCION TERCERA DEL TRIBUNAL SUPERIOR
 CONTENCIOSO ADMINISTRATIVO
 ARTICULO 1. Créase la Sección Tercera del Tribunal Superior

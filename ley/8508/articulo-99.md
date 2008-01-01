@@ -1,0 +1,6 @@
+CAPÍTULO VII
+JUICIO ORAL Y PÚBLICO
+ARTÍCULO 99.-
+1) El Tribunal se constituirá en la sala de audiencias, el día y la hora fijados, y acordará cuál de sus integrantes preside la audiencia, la que será pública para todos los efectos, salvo si el Tribunal dispone lo contrario por resolución debidamente motivada. Quien presida verificará la presencia de las partes y de sus representantes y, cuando corresponda, la de los coadyuvantes, testigos, peritos o intérpretes. Después de ello, declarará abierta la audiencia y advertirá a los presentes sobre su importancia y significado.
+2) Quien presida dirigirá la audiencia, ordenará las lecturas necesarias, hará las advertencias legales, recibirá los juramentos y las declaraciones, ejercerá el poder de disciplina y moderará la discusión, impidiendo intervenciones impertinentes e injustificadamente prolongadas; además, rechazará las solicitudes notoriamente improcedentes o dilatorias, respetando el derecho de defensa de las partes.
+3) Quienes asistan permanecerán con actitud respetuosa y en silencio, mientras no estén autorizados para exponer o responder las preguntas que se les formulen. No podrán llevar armas ni otros objetos aptos para incomodar u ofender; tampoco podrán adoptar un comportamiento intimidatorio o provocativo, ni producir disturbios.

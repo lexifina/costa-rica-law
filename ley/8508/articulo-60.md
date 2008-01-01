@@ -1,0 +1,10 @@
+ARTÍCULO 60.-
+1) En caso de que el juez tramitador, de oficio o a gestión de cualquiera de las partes, estime que el asunto bajo su instrucción reviste urgencia o necesidad o es de gran trascendencia para el interés público, directamente lo remitirá al conocimiento del tribunal de juicio al que por turno le corresponda, para que este decida si se le da trámite preferente, en los términos de este artículo, mediante resolución motivada que no tendrá recurso alguno.
+2) Si el tribunal estima que el trámite preferente no procede, devolverá el proceso al juez tramitador, para que lo curse por el procedimiento común.
+3) De dársele trámite preferente, se dará traslado de la demanda y se concederá un plazo perentorio de cinco días hábiles para su contestación.
+Cuando resulte necesario, el tribunal dispondrá celebrar una única audiencia en la que se entrará a conocer y resolver sobre los extremos a que alude el artículo 90 de este Código, se evacuará la prueba y oirán conclusiones de las partes. De no haber pruebas por evacuar se prescindirá de la audiencia oral y pública.
+Únicamente cuando surjan hechos nuevos o deba completarse la prueba a juicio del tribunal, podrá celebrarse una nueva audiencia.
+4) El señalamiento de la audiencia tendrá prioridad en la agenda del tribunal.
+5) Si la conversión del proceso se produce en una oportunidad procesal posterior a la regulada en el párrafo tercero de este artículo, el tribunal dispondrá el ajuste correspondiente a las reglas de dicho párrafo.
+6) La sentencia deberá dictarse en un plazo máximo de cinco días hábiles, contados a partir del día siguiente a aquel en que se decidió darle trámite preferente al proceso o, en su caso, a partir de la celebración de la última audiencia.
+7) En caso de ser planteado, la resolución del recurso de casación tendrá prioridad en la agenda del Tribunal de Casación de lo Contencioso-Administrativo o de la Sala Primera de la Corte Suprema de Justicia, según corresponda. El recurso deberá resolverse en un plazo de diez días hábiles.

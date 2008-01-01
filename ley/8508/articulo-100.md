@@ -1,0 +1,11 @@
+ARTÍCULO 100.-
+1) La audiencia se realizará sin interrupción, durante las sesiones consecutivas que sean necesarias hasta su terminación, y solamente se podrá suspender:
+a) Cuando deba resolverse alguna gestión que, por su naturaleza, no pueda decidirse inmediatamente.
+b) Cuando sea necesario, a fin de practicar, fuera del lugar de la audiencia, algún acto que no pueda cumplirse en el intervalo entre una sesión y otra.
+c) Si no comparecen testigos, peritos o intérpretes cuya intervención sea indispensable, salvo que pueda continuarse con la recepción de otras pruebas hasta que el ausente sea conducido por la Fuerza Pública.
+d) En caso de que algún juez, alguna de las partes, sus representantes o abogados estén impedidos por justa causa, a menos que los dos últimos puedan ser reemplazados en ese mismo acto.
+e) Cuando alguna manifestación o circunstancia inesperada produzca en el proceso alteraciones sustanciales y por ello, haga indispensable una prueba extraordinaria.
+2) Cuando las circunstancias del caso lo ameriten, el Tribunal podrá designar a uno o dos suplentes para que asistan a la totalidad de la audiencia, de modo que si alguno de los jueces se encuentra impedido para asistir o continuar en dicha audiencia, estos suplentes pasen a integrar el Tribunal, en forma inmediata. Además de lo ya indicado, el juez tramitador también podrá ser llamado para que supla ausencias integrándose al Tribunal, siempre que no haya participado en el proceso de previo a la celebración del juicio oral y público.
+3) La suspensión será por un plazo máximo de cinco días hábiles, salvo que, a criterio del Tribunal, exista suficiente motivo para una suspensión mayor.
+4) Durante la celebración de las audiencias, el juez o el Tribunal, según sea el caso, podrá disponer los recesos que estime pertinentes, siempre que con ello no se afecten la unidad y la concentración probatorias.
+5) Cuando las circunstancias que originan la suspensión hagan imposible continuar la audiencia después de transcurrido el plazo de quince días, todo lo actuado y resuelto será nulo de pleno derecho, salvo los actos o las actuaciones probatorias irreproductibles, los cuales mantendrán su validez en la nueva audiencia convocada.

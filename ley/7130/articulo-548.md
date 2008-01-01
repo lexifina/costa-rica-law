@@ -1,7 +1,1 @@
-ARTÍCULO 548.- Requisito fundamental de la demanda.
-El juzgador no dará curso a demandas que se presenten contra el
-Estado o sus instituciones, sino cuando se haya agotado la vía
-administrativa, salvo los casos concretos en que la ley no obligue a
-realizar dicho agotamiento.
-Para el agotamiento de la vía administrativa, se estará a lo dispuesto
-en la Ley Reguladora de la Jurisdicción Contencioso- Administrativa.
+ARTÍCULO 548.- Requisito fundamental de la demanda. (Derogado por el artículo 199 del Código Procesal Contencioso-Administrativo, Ley N° 8508 del 28 de abril de 2006)

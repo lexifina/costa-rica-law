@@ -1,15 +1,3 @@
-ARTICULO 3.- DE LA REPRESENTACION
-La representación de la Contraloría General de la República
-corresponde a su jerarca, el Contralor General, quien podrá delegarla en
-el Subcontralor General. En las ausencias temporales del Contralor, el
-Subcontralor tendrá de pleno derecho esa representación.
-Quedan a salvo las facultades expresamente conferidas a la
-Contraloría General de la República, por el ordenamiento jurídico, sobre
-su participación e intervención ante los Tribunales de Justicia.
-Asimismo, se le faculta para participar, según su exclusivo criterio,
-como "amicus curie" o como coadyuvante en los procesos jurisdiccionales en
-que se encuentren involucrados la Hacienda Pública o los fondos privados
-sujetos a control y a fiscalización del órgano contralor; también, como
-parte principal debidamente legitimada en los juicios que versen sobre
-actos o dictámenes de la Contraloría General de la República o sobre actos
-de la administración activa ordenados o recomendados por ella.
+Artículo 3.- De la Representación. La representación de la Contraloría General de la República corresponde a su jerarca, el contralor general, quien podrá delegarla en el subcontralor general. En las ausencias temporales del contralor, el subcontralor general tendrá, de pleno derecho, esa representación.
+Quedan a salvo las facultades expresamente conferidas por el ordenamiento jurídico a la Contraloría General de la República, sobre su participación e intervención ante los tribunales de justicia.
+(Así reformado por el artículo 218, inciso 1) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).

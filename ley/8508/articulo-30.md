@@ -1,0 +1,1 @@
+ARTÍCULO 30.- Contra el auto que resuelva la medida cautelar cabrá recurso de apelación, con efecto devolutivo, para ante el Tribunal de Casación de lo Contencioso-Administrativo, el cual deberá interponerse en el plazo de tres días hábiles.

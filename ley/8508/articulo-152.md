@@ -1,0 +1,4 @@
+ARTÍCULO 152.-
+1) Contra los autos dictados durante el trámite de la casación, no cabrá recurso alguno, salvo en cuanto a la resolución que se pronuncie sobre su admisión o el rechazo, deniegue la celebración de la audiencia oral o lo tenga por desistido, a consecuencia de la ausencia injustificada del recurrente, contra las que cabrá únicamente revocatoria, la cual deberá interponerse dentro del tercer día hábil. Dicho recurso deberá ser resuelto en el plazo de tres días hábiles, contados a partir del día siguiente del vencimiento del plazo para su interposición.
+2) Contra los autos dictados en la audiencia oral, solo cabrá el recurso de revocatoria que deberá interponerse en forma oral y motivada en la propia audiencia. Dicho recurso deberá ser resuelto inmediatamente por la Sala Primera o el Tribunal de Casación.
+3) Contra la sentencia dictada por la Sala o el Tribunal de Casación, solo cabrá recurso extraordinario de revisión.

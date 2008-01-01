@@ -1,0 +1,1 @@
+ARTÍCULO 23.- Una vez solicitada la medida cautelar, el tribunal o el juez respectivo, de oficio o a gestión de parte, podrá adoptar y ordenar medidas provisionalísimas de manera inmediata y prima facie, a fin de garantizar la efectividad de la que se adopte finalmente. Tales medidas deberán guardar el vínculo necesario con el objeto del proceso y la medida cautelar requerida.

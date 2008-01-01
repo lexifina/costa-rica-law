@@ -1,9 +1,5 @@
-ARTICULO 35.- COADYUVANCIA
-En los juicios en que se encuentre involucrada la Hacienda Pública o
-los fondos privados sujetos a su control y fiscalización, la Contraloría
-General de la República podrá participar, según su exclusivo juicio, como
-coadyuvante de la administración demandada o actora.
-Las autoridades judiciales que conozcan de esos procesos darán
-traslado de ellos a la Contraloría General de la República para que,
-dentro del plazo conferido al efecto, pueda apersonarse en el juicio
-correspondiente.
+Artículo 35.- Legitimación procesal. La Contraloría General de la República tendrá legitimación procesal activa para la tutela objetiva de la Hacienda Pública o de los fondos públicos sujetos a su fiscalización, de acuerdo con las normas procesales vigentes, sin perjuicio de las facultades de que gozan para el efecto la Procuraduría General de la República y cualesquiera otros entes u órganos públicos.
+La Contraloría General de la República podrá apersonarse como coadyuvante de la Administración Pública demandada, actora, o como "amicus curiae" en auxilio de la función jurisdiccional, según lo estime procedente, de acuerdo con el interés objetivo que hace valer, en aquellos casos en que la pretensión objeto del proceso se encuentre regulada por la normativa jurídica relativa a la Hacienda Pública.
+Las autoridades judiciales que conozcan de estos procesos darán traslado a la Contraloría General de la República, para que pueda apersonarse, dentro del plazo de tres días hábiles, salvo en lo relativo a las pretensiones relacionadas con el Derecho laboral.
+Dicha participación es potestativa y no afectará la integración de la litis.
+(Así reformado por el artículo 218, inciso 3) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo).
