@@ -1,0 +1,4 @@
+Transitorio:
+En caso que la entidad de custodia enfrente inconvenientes para ajustar su sistema de registro contable a la fecha establecida, deberá enviar a esta Superintendencia, para su valoración, a más tardar el 28 de diciembre del 2007, un plan detallado para la implementación de las guías cuya fecha máxima deberá ser el 30 de junio del 2008.
+Por otra parte, deberán registrar temporalmente, hasta que las guías sean implementadas, las cuentas de orden detalladas en el sitio Web de la SUGEVAL, así como las cuentas de balance para la actividad de custodia definidas en el “Plan de cuentas para entidades, grupos y conglomerados financieros”.
+Consulte el sitio Web de la SUGEVAL (www.sugeval.fi.cr) en su sección de “Marco Jurídico/Acuerdos del Superintendente/Acuerdos Vigentes/Mercados”, para acceder los anexos y la matriz de observaciones recibidas en el período de consulta.
