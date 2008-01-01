@@ -1,5 +1,3 @@
-Responsabilidad del representante.
-ARTÍCULO 181.-
-Se impondrá de quince a noventa días multa:
-1) Al representante legítimo de un menor que sin justa causa diere consentimiento para que aquél contraiga un matrimonio anulable por razón de su edad;
-2) Al tutor que antes de la aprobación de sus cuentas, contrajere matrimonio o prestare su consentimiento para que lo contraigan sus hijos o descendientes con la persona que tuviere o hubiere tenido bajo tutela, a no ser que el padre de ésta hubiere autorizado el matrimonio en su testamento.
+Responsabilidad del tutor
+Artículo 181.- Se impondrá de quince a noventa días multa al tutor que, antes de la aprobación de sus cuentas, contraiga matrimonio o preste su consentimiento para que lo contraigan sus hijos o descendientes con la persona que tenga o haya tenido bajo tutela, a no ser que el padre, la madre o el representante legal de esta haya autorizado el matrimonio en su testamento.
+(Así reformado por el artículo 3° de la Ley “Reforma artículos 14 y 64 Código Familia, el artículo 38 Código Civil, el artículo 181 Código Penal y derogación del inciso 3) del artículo 15, el artículo 19 y el inciso c) del artículo 65 Código Familia para impedir el Matrimonio de Menores de 15 años” N° 8571 del 8 de febrero de 2007)
