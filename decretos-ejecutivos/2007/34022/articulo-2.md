@@ -1,0 +1,1 @@
+Artículo 2º—Es responsabilidad de la administración activa del Instituto Costarricense del Deporte y la Recreación, el cumplimiento del Decreto Ejecutivo Nº 32452-H, publicado en La Gaceta Nº 130 de 6 de julio de 2005 y su reforma, así como lo dispuesto en el artículo 6 de la Ley Nº 8131, publicada en La Gaceta Nº 198 de 16 de octubre de 2001 y sus reformas.
