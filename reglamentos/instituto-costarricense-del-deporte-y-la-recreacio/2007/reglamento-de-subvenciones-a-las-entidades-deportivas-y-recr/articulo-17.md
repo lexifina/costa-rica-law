@@ -1,0 +1,1 @@
+Artículo 17.—El Consejo suspenderá o revocará las transferencias cuando compruebe que las entidades se han apartado de los fines previstos, así como aplicar las sanciones establecidas en esta normativa.

@@ -1,0 +1,2 @@
+Artículo 18.—La Auditoría Interna fiscalizará, según su plan de trabajo, que la entidad administre los beneficios otorgados por el ICODER en una cuenta corriente separada, en un banco estatal y que lleve registros de su empleo independientemente de los que correspondan a otros fondos de su propiedad.
+La Auditoría solicitará los expedientes citados en el artículo 15, igualmente realizar la revisión directamente en las oficinas de las entidades siguiendo las normas generales de auditoría interna.

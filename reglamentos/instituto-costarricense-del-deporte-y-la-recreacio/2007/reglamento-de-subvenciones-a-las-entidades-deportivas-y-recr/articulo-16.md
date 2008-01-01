@@ -1,0 +1,1 @@
+Artículo 16.—El ICODER se reserva el derecho de exigir toda aquella documentación que demuestre el cumplimiento de los Principios citados en la Ley de Contratación Administrativa N° 7494 y el Capítulo II del Reglamento respectivo, así como del cumplimiento a las disposiciones establecidas por la Dirección General de Tributación Directa.

@@ -1,0 +1,7 @@
+Artículo 3°—Requisitos. Para acceder a los beneficios del presente reglamento las entidades deberán dirigir a la autoridad competente en los plazos de convocatoria que esta informe oportunamente los planes de trabajo y presupuestos que contenga lo siguiente:
+Plan de trabajo para el cumplimiento de los objetivos del programa o proyecto con la información básica del formato que para tales efectos recomiende el ICODER.
+Presupuesto de ingresos y egresos del programa o proyecto con la información básica del formato que proponga ICODER.
+Presentación de los instructivos conjuntamente publicados con este reglamento, según anexos No. A, B, C y D, los cuales deberán estar debidamente complementados y firmados por el representante legal de la entidad.
+La solicitud de los estados financieros se solicitarán de conformidad con las resoluciones que para tal efecto dictamine la Contraloría General de la República.
+Tratándose de los Comités Cantonales de Deporte y Recreación, tanto el plan de trabajo y su presupuesto requerirá aprobación del Concejo Municipal del cantón respectivo, el cual además autorizará a quien corresponda para que firme el convenio respectivo.
+Igualmente, si los planes de trabajo se refieren a desarrollo de infraestructura deportiva y recreativa deberá aportar los documentos del terreno que garanticen que es un bien público según Registro de Propiedad o leyes especiales que así lo dictaminen claramente. Así como complementar el instructivo según Anexo E referente a los aspectos del terreno y el proceso constructivo.
