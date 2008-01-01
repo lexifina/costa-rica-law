@@ -1,0 +1,1 @@
+II. Derogar el “Plan de cuentas para entidades financieras”, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero mediante el artículo 12, acta 342-2002 en la sesión del 26 de noviembre del 2002.
