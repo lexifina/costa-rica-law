@@ -14,3 +14,4 @@ Aprueba Plan Cuentas para Grupos y Conglomerados Financieros, Deroga Plan Cuenta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2008-01-01 | Reglamento 684 (2007-11-05) |

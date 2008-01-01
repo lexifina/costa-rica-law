@@ -10,3 +10,5 @@ considerando que:
 6. según lo estipulado en el artículo 361, numeral 2, de la Ley General de la Administración Pública es obligación del Consejo Nacional de Supervisión del Sistema Financiero someter a consulta cualquier situación que se pretenda regular,
 acordó:
 I. Aprobar el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros”, conforme a la versión distribuida en CD a las entidades supervisadas.
+(Para ver el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros” puede accesar en el siguiente link SUGEF )
+(Nota de Sinalevi: Mediante sesión N° 684 del 5 de noviembre de 2007, se reforma el Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros, dicha modificación puede ser accesada en el siguiente link: Reforma Plan de Cuentas para entidades, grupos y conglomerados financieros )
