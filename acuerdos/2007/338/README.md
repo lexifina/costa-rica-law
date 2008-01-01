@@ -14,3 +14,4 @@ Establece las Tarifas por la Venta de Bienes y Servicios que brinda y genera el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2008-01-01 | Acuerdo 447 (2007-11-09) |

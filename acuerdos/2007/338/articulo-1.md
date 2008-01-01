@@ -171,10 +171,14 @@ Para embarcaciones que se importen autorización ¢113,400
 AUTORIZACIÓN DE SUSTITUCIÓN POR
 ADQUISIC. DE EMBARCACIÓN CONSTRUIDA
 (por trámite)
-Pesca Comercial Pequeña Escala autorización ¢6,500
-Pesca Comercial Mediana Escala autorización ¢35,650
-Pesca Comercial Avanzada autorización ¢112,350
-Pesca Comercial Semiindustrial autorización ¢112,350
+*Pesca Comercial Pequeña Escala autorización ¢6,500.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Mediana Escala autorización ¢35,700.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Avanzada autorización ¢112,400.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Semiindustrial autorización ¢112,400.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
 AUTORIZAC. DE SUSTITUCIÓN DE MOTOR
 (por trámite)
 Pesca Comercial Pequeña Escala autorización ¢3,600
@@ -183,10 +187,16 @@ Pesca Comercial Avanzada autorización ¢25,950
 Pesca Comercial Semiindustrial autorización ¢35,650
 AUTORIZACIÓN DE INACTIVIDAD
 (por año o por trámite incluyendo las prórrogas)
-Pesca Comercial Pequeña Escala autorización ¢11,350
-Pesca Comercial Mediana Escala autorización ¢34,600
-Pesca Comercial Avanzada autorización ¢34,600
-Pesca Comercial Semiindustrial autorización ¢34,600
+Pesca Comercial Pequeña Escala autorización *¢11,400.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Mediana Escala autorización ¢34,600.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Avanzada autorización ¢34,600.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Semiindustrial autorización ¢34,600.00
+(*Así reformado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
+*Pesca Comercial Molusco autorización ¢ 4,900.00
+(*Así adicionado por acuerdo AJDIP/447 del 9 de noviembre de 2007)
 Recolección de Moluscos autorización ¢4,800
 Extracción de Langosta autorización ¢4,800
 Extracción de peces de arrecife autorización ¢9,000
