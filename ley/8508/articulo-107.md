@@ -1,0 +1,5 @@
+ARTÍCULO 107.-
+1) Después de juramentar e interrogar al perito, al testigo o al testigo-perito, sobre su identidad personal y las circunstancias generales para valorar su informe o declaración, quien presida le concederá la palabra, para que indique cuánto sabe acerca del hecho sobre el que versa la prueba.
+2) Al finalizar el relato, permitirá el interrogatorio directo. Iniciará quien lo propuso y continuarán las otras partes, en el orden que el Tribunal considere conveniente. Luego podrán interrogar los miembros del Tribunal.
+3) Quien presida moderará el interrogatorio y evitará que el declarante conteste preguntas capciosas, sugestivas o impertinentes; procurará que el interrogatorio se conduzca sin presiones indebidas y sin ofender la dignidad de las personas. Las partes podrán impugnar las resoluciones de quien presida, cuando limiten el interrogatorio, o podrán objetar las preguntas que se formulen, en cuyo caso el Tribunal podrá ordenar el retiro temporal del declarante. El Tribunal resolverá de inmediato.
+4) Los peritos, testigos y testigos-peritos expresarán la razón de su información y el origen de su conocimiento.

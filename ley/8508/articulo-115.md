@@ -1,0 +1,5 @@
+ARTÍCULO 115.-
+1) Si, habiéndose incoado el proceso, la Administración Pública demandada reconoce, total o parcialmente, en vía administrativa las pretensiones del demandante, cualquiera de las partes podrá ponerlo en conocimiento del juez tramitador o del tribunal.
+2) El juez tramitador o el Tribunal, luego de concedida audiencia al demandante por un plazo máximo de cinco días hábiles, y previa comprobación de lo alegado, declarará terminado el proceso en lo conducente.
+3) Si lo resuelto por la Administración Pública infringe el ordenamiento jurídico, el juez tramitador o Tribunal denegará la satisfacción extraprocesal y continuará con el proceso hasta el dictado de la sentencia.
+4) Si la Administración Pública adopta una conducta que modifique en alguna forma la satisfacción extraprocesal, el actor podrá pedir que el proceso continúe en la etapa en que se encontraba, o bien que se lleve a la etapa procesal necesaria y se extienda la impugnación a la nueva conducta. Si el juez tramitador o el Tribunal lo considera conveniente, concederá a las partes un plazo de cinco días para que formulen, por escrito, las alegaciones que estime pertinentes.

@@ -1,0 +1,4 @@
+ARTÍCULO 158.-
+1) Los servidores de la Administración Pública a quienes se ordene el cumplimiento de la sentencia, no podrán excusarse en el deber de obediencia; sin embargo, para deslindar su responsabilidad podrán hacer constar, por escrito, ante el juez ejecutor, las alegaciones pertinentes. La violación de las normas contenidas en el presente capítulo producirá responsabilidad disciplinaria, civil y, en su caso, penal.
+2) La renuncia del servidor requerido por el juez ejecutor, o el vencimiento del período de su nombramiento, no le eximirá de las responsabilidades, si se produce después de haber recibido la comunicación que le ordenó cumplir la sentencia, salvo que el tiempo y las circunstancias justifiquen su incumplimiento, a criterio del juez ejecutor.
+3) Si los supuestos del párrafo anterior ocurren antes de la notificación de la sentencia, quien reemplace al funcionario deberá darle cumplimiento, bajo pena de las sanciones correspondientes.

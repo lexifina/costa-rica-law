@@ -1,0 +1,4 @@
+ARTÍCULO 111.-
+1) Transcurrida la audiencia, el Tribunal deliberará inmediatamente y procederá a dictar sentencia. En casos complejos, la sentencia deberá notificarse en el plazo máximo de los quince días hábiles siguientes a la terminación del juicio oral y público.
+2) Vencido dicho plazo con incumplimiento de lo anterior, lo actuado y resuelto será nulo, por lo que el juicio oral y público deberá repetirse ante otro tribunal, que será el encargado de dictar la sentencia, sin perjuicio de las responsabilidades correspondientes; lo anterior, salvo en el caso de los actos o las actuaciones probatorias irreproductibles, que mantendrán su validez en la nueva audiencia convocada.
+3) De producirse un voto salvado, se notificará conjuntamente con el voto de mayoría, en el plazo indicado en el aparte 1 del presente artículo. Si no se hace así, se notificará el voto de mayoría y caducará la facultad de salvar el voto.

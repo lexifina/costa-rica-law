@@ -1,2 +1,4 @@
 Artículo 157. — De todo acuerdo municipal contra el que hubiere procedido apelación y esta no fue interpuesta en tiempo y siempre que no hubiere transcurrido diez años de tomado el acuerdo y que el acto no hubiere agotado todos sus efectos, los interesados podrán presentar, ante el Concejo, recurso extraordinario de revisión, a fin de que el acto no surta ni siga surtiendo efectos.
 Este recurso sólo podrá estar fundado en motivos que originen la nulidad absoluta del acto.
+Contra la resolución de fondo emitida por el concejo sobre este recurso extraordinario, cabrá recurso de apelación para ante el Tribunal Contencioso-Administrativo, dentro del quinto día hábil.
+(Así adicionado el párrafo anterior por el artículo 202, inciso 3) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).

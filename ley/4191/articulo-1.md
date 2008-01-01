@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el artículo 198 del Código Procesal Contencioso-Administrativo, Ley N° 8508 del 28 de abril de 2006 )
 Artículo 1º.- Se interpretan los incisos a) y b) del artículo 37.1 de
 la Ley Reguladora de la Jurisdicción Contencioso Administrativa, Nº 3667
 de 12 de marzo de 1966, en el sentido de que:

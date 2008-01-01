@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Si, durante las audiencias, una parte tiene dos o más personas abogadas, estas deberán distribuirse el uso de la palabra y las demás funciones, lo cual deberá ser comunicado a la jueza o al juez tramitador o al Tribunal, según el caso.
