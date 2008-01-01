@@ -1,0 +1,1 @@
+Artículo 3º—El Sistema Nacional de Áreas de Conservación SINAC creado por la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998 como un órgano desconcentrado, dentro de la estructura orgánica del MINAE en el Decreto Ejecutivo Nº 30077-MINAE será responsable de coordinar la ejecución del programa de Comités de vigilancia de los Recursos Naturales.
