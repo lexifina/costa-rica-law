@@ -44,6 +44,7 @@ articulo-43.md
 articulo-44.md
 articulo-45.md
 articulo-46.md
+articulo-46-bis.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
@@ -89,3 +90,4 @@ articulo-4-transitorio.md
 articulo-5-transitorio.md
 articulo-6-transitorio.md
 articulo-7-transitorio.md
+articulo-8-transitorio.md
