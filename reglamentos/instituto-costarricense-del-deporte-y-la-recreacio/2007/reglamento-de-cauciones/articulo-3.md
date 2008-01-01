@@ -1,0 +1,1 @@
+Artículo 3º—La finalidad de la caución. La caución tiene como finalidad el aseguramiento en el cumplimiento las funciones encomendadas de aquellas personas que se califican como administradores y el resarcir los eventuales daños y perjuicios que éste produzca al patrimonio público, de acuerdo a su responsabilidad.

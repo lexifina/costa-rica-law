@@ -1,0 +1,1 @@
+Artículo 22.—Oportunidad para exigir la devolución. Las garantías rendidas por los caucionantes serán devueltas al finalizar el plazo dispuesto en el artículo 23, en la forma que originalmente fue suministrada.

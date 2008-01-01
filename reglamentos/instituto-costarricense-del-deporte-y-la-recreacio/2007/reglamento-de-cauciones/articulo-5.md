@@ -1,0 +1,1 @@
+Artículo 5º—Reconocimiento de intereses. No se reconocerán intereses por las garantías de depósito de dinero, mantenidas en custodia o administración del Instituto Costarricense del Deporte y la Recreación. En cuanto a los intereses que deben los títulos hasta el momento en que se ejecuten pertenecerán al caucionante.

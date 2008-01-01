@@ -1,0 +1,5 @@
+Artículo 4º—Formas de rendir la caución. La caución en favor de la Hacienda Pública, podrá ser admitida por las siguientes formas:
+a) El depósito de dinero efectivo en cuenta corriente bancaria en favor de la entidad u órgano público. El depósito será efectuado en un banco del Sistema Bancario Nacional y en la moneda de curso legal en el país o su equivalente en moneda extranjera.
+b) El seguro de fidelidad que ofrece el Instituto Nacional de Seguros, en cuyo caso el caucionante podrá suscribir una póliza de fidelidad individual o colectiva.
+c) En casos excepcionales, se podrán contar con garantías provisionales condicionadas al nombramiento, el acto administrativo que autorice esta aplicación deberá ser debidamente fundamentado sin perjuicio de las responsabilidades civiles y penales que se puedan generar.
+La Dirección Nacional definirá las formas de rendir la caución más conveniente a utilizarse en procura de la mayor conveniencia, resguardo del patrimonio público y del buen funcionamiento en la prestación del servicio público.
