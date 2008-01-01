@@ -1,0 +1,1 @@
+Artículo 27.—La Oficina de Personal estudiará la solicitud y si la aprueba, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al petente el resultado de su gestión. Dicha dependencia dispondrá de ocho días naturales para resolver la gestión aprobándola o rechazándola en forma razonada.

@@ -1,0 +1,1 @@
+Artículo 30.—El monto se establecerá mediante resolución escrita del encargado de la Oficina de Personal, copia de la cual se acompañará en cada modificación presupuestaria y regirá a partir de la fecha en que se presente la solicitud por parte del servidor. La fecha de vigencia de la concesión inicial será la que señale en el artículo 33.

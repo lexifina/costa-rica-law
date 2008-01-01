@@ -1,0 +1,1 @@
+Artículo 20.—Cuando se trate de escritos publicados por dos o más autores el reconocimiento se hará distribuyendo los puntos en forma proporcional a número de aquellos. En éstas circunstancias las fracciones de puntos, se podrán acumular para efectos de completar unidades.
