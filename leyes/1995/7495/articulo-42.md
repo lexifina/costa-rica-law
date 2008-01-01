@@ -1,3 +1,1 @@
-ARTÍCULO 42.- Prueba para mejor proveer.
-Recibidos los autos, el Tribunal Superior contará con quince días
-hábiles para ordenar la prueba para mejor proveer que considere necesario.
+ARTÍCULO 42.- Prueba para mejor proveer. (Derogado por el artículo 215 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo)

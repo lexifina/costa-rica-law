@@ -1,10 +1,3 @@
-ARTÍCULO 23.- Las resoluciones y los acuerdos de la Asamblea General
-se tomarán por mayoría simple de los votos presentes y se harán constar en
-el Libro de Actas correspondiente, el cual firmarán el Presidente y dos
-delegados que deben ser designados en cada oportunidad.
-En caso de empate, la votación se repetirá en la misma sesión o en
-una nueva, que deberá celebrarse dentro de los quince días hábiles
-siguientes. De persistir el empate, resolverá el asunto en un plazo de
-treinta días, la sección del tribunal superior contencioso-administrativo
-correspondiente. El Tribunal resolverá la cuestión en conciencia y su
-fallo será inapelable y definitivo en la vía administrativa.
+ARTÍCULO 23.- Las resoluciones y los acuerdos de la Asamblea General se tomarán por mayoría simple de los votos presentes y se harán constar en el Libro de Actas correspondiente, el cual firmarán el Presidente y dosdelegados que deben ser designados en cada oportunidad.
+En caso de empate, la votación se repetirá en la misma sesión o en una nueva, que deberá celebrarse dentro de los quince días hábiles siguientes. De persistir, la situación de empate, el asunto será resuelto por el ministro de Agricultura y Ganadería, en un plazo de treinta días, contados a partir del día siguiente a la fecha de la recepción del expediente. El ministro resolverá la cuestión conforme al ordenamiento jurídico y su decisión no será susceptible de recurso en vía administrativa.
+(Así reformado el párrafo anterior por el artículo 206 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).

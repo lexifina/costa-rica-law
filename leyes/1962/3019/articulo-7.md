@@ -5,7 +5,9 @@ de dicha Universidad en que conste que al solicitante se le han
 convalidado estudios hechos en otro país;
 b) Satisfacer los derechos que señale la Junta de Gobierno del
 Colegio;
-c) Constancia fehaciente de haber observado buena conducta;
+c) Aportar constancia fehaciente de haber observado buena conducta.
+(Así reformado el inciso anterior por el artículo 213 de la Ley N° 8508 de 28 de abril de 2006,
+Código Procesal Contencioso-Administrativo).
 d) Comprobar que se ha residido en el país antes o después de haber realizado los estudios profesionales;
 (Texto modificado por resolución de la Sala Constitucional N° 2001-13008 de las 14:51 horas del 19 de diciembre de 2001)
 e) Los extranjeros, además de llenar los requisitos anteriores,
@@ -21,9 +23,10 @@ extranjero capacitado para tal fin, a juicio del Colegio de
 Médicos y Cirujanos y de la Facultad de Medicina, y
 g) Haber desempeñado durante un año el Servicio Sanitario en el
 país.
-Los requisitos señalados en los apartes c) y d) se comprobarán
-mediante información ad-perpétuam con intervención de la Procuraduría
-General de la República y del Fiscal de Colegio.
+Los requisitos señalados en los apartes c) y d) se comprobarán mediante información ad perpetuam
+con intervención del fiscal del Colegio.
+(Así reformado el párrafo anterior por el artículo 219, inciso 9) de la Ley N° 8508 de 28 de abril de 2006,
+Código Procesal Contencioso-Administrativo).
 No será aplicable lo dispuesto en los incisos d), e) y g) de este
 artículo a los médicos extranjeros que sean contratados por instituciones
 del Estado para prestar sus servicios en el país, quienes no podrán ejercer

@@ -1,6 +1,6 @@
 # Ley Orgánica de la Contraloría General de la República
 
-Ley N° 7428 del 1994-09-07. SINALEVI, ficha 21629: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=21629&param2=22963&param3=1>.
+Ley N° 7428 del 1994-09-07. SINALEVI, ficha 21629: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=21629&param2=70697&param3=1>.
 
 Publicada en La Gaceta N° 210 del 1994-11-04.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 12 | 2001-10-16 | Ley 8131 | 2001-09-18 |
 | 4 de 12 | 2002-09-04 | Ley 8292 | 2002-07-31 |
 | 5 de 12 | 2004-10-29 | Ley 8422 | 2004-10-06 |
+| 6 de 12 | 2008-01-01 | Ley 8508 | 2006-04-28 |

@@ -1,4 +1,5 @@
-(Nota de Sinalevi: Mediante el artículo 29 de la Ley Orgánica de la Procuraduría General de la República, N° 3848 del 10 de enero de 1967, se indica que se modifica esta ley en lo que se le oponga a la norma N° 3848 antes citada)
+(Derogado)
+(Esta ley fue derogada en su totalidad por el artículo 198 del Código Procesal Contencioso-Administrativo N° 8508 del 28 de abril de 2006. No obstante, sigue rigiendo para todos los procesos anteriores a la entrada en vigencia del Código e incluso debe ser aplicada en los actos administrativos que quedaron firmes antes de la entrada en vigencia del Código)
 Ley Reguladora de la Jurisdicción
 Contencioso-Administrativa
 TITULO PRIMERO

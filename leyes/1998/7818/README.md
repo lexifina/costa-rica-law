@@ -1,6 +1,6 @@
 # Ley Orgánica de la Agricultura e Industria de la Caña de Azúcar
 
-Ley N° 7818 del 1998-09-02. SINALEVI, ficha 44897: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44897&param2=47346&param3=1>.
+Ley N° 7818 del 1998-09-02. SINALEVI, ficha 44897: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44897&param2=70673&param3=1>.
 
 Publicada en La Gaceta N° 184 del 1998-09-22.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 8 | 1998-09-22 | Ley 7818 | 1998-09-02 |
 | 2 de 8 | 1998-09-22 | SINALEVI | 1998-09-02 |
 | 3 de 8 | 2001-02-28 | Ley 8092 | 2001-02-23 |
+| 4 de 8 | 2008-01-01 | Ley 8508 | 2006-04-28 |

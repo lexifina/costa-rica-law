@@ -1,2 +1,3 @@
-ARTÍCULO 23.—AMPLIACIÓN DE TÉRMINOS Y SEÑALAMIENTOS:
-Cuando por las necesidades del Despacho, el Procurador General o el Procurador General Adjunto soliciten ampliación de términos y señalamientos, los tribunales de justicia accederán a lo pedido. En ningún caso la ampliación podrá ser menor de la mitad del término originalmente concedido, y la solicitud, necesariamente, deberá ser presentada dentro del término o señalamiento respectivos.
+ARTÍCULO 23.—AMPLIACIÓN DE PLAZOS
+Cuando, por las necesidades del despacho, el procurador general o el procurador general adjunto solicite ampliación de plazo, este se tendrá como automáticamente prorrogado por un tercio del originalmente concedido. La solicitud deberá ser presentada, necesariamente, dentro del plazo original. Las fracciones de un día se computarán como uno completo. Respecto de los términos no cabrá prórroga.
+(Así reformado por el artículo 217, inciso 4) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).
