@@ -1,0 +1,14 @@
+ÓRGANO DE NORMALIZACIÓN TÉCNICA
+AVISOS
+Resolución Nº 01-2008.—División Órgano de Normalización Técnica.—San José, a las diez horas del dieciséis de enero del dos mil ocho.
+Considerando:
+I.—Que de conformidad con el artículo 4, inciso e) de la Ley de Impuesto sobre Bienes Inmuebles, Nº 7509 de 9 de mayo de 1995, su Reglamento y sus reformas, se establece que no están afectos a este impuesto: “...e) Los inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base, no obstante, el impuesto deberá pagarse sobre el exceso de esa suma. El concepto de “salario base” usado en esta Ley, es el establecido en el artículo 2 de la Ley Crea Concepto Salario Base para Delitos Especiales del Código Penal, Nº 7337 de 5 de mayo de 1993”.
+II.—Que el artículo 2 de la Ley Nº 7337 citada indica que: “La denominación “salario base”...corresponde al monto equivalente al salario mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, aprobada en el mes de noviembre anterior...”.
+III.—Que el cargo de “Oficinista 1” fue reasignado en el Poder Judicial a “Auxiliar Administrativo 1”.
+IV.—Que de conformidad con el artículo 2 de la Ley Nº 7337 transcrito, el monto correspondiente al salario de Oficinista 1, (que en el Poder Judicial fue reasignado a “Auxiliar Administrativo 1”), en el mes de noviembre del 2007, corresponde a la suma de ¢227.000,00 (doscientos veintisiete mil colones netos).
+V.—Que el artículo 12 de la Ley Nº 7509, Ley de Impuesto sobre Bienes Inmuebles y sus reformas, crea el Órgano de Normalización Técnica, como órgano técnico especializado y asesor obligado de las Municipalidades y le faculta, en el inciso a), a dictar disposiciones de carácter general, las cuales deberán publicarse en el Diario Oficial y en un diario de circulación nacional.
+VI.—Que este Órgano de Normalización Técnica, de conformidad con la normativa citada, procede a indicar que el monto no afecto, para el período 2008 del 1º de enero al 31 de diciembre, para todos aquellos bienes inmuebles únicos a que se refiere el artículo 4, inciso e), ibídem es la suma de ¢10.215.000,00 (diez millones doscientos quince mil colones netos). Por tanto:
+RESUELVE:
+Con fundamento en las consideraciones precedentes, estarán no afectos al pago del Impuesto sobre Bienes Inmuebles para el período 2008 todos aquellos inmuebles que constituyan bien único de los sujetos pasivos, - personas físicas - y cuyo valor, registrado en la respectiva Municipalidad, no exceda de ¢10.215.000.00 (diez millones doscientos quince mil colones netos). Asimismo, aquellos inmuebles que no obstante constituir bien único, su valor exceda del monto indicado, deberán, pagar el impuesto, el cual se calculará sobre el exceso de la suma indicada.
+Rige a partir del 1º de enero del 2008.
+Publíquese.—San José, 16 de enero del 2008
