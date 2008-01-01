@@ -1,0 +1,1 @@
+Artículo 24.—Integración normativa. Los aspectos no regulados por este Reglamento o en su caso por los respectivos formularios de suscripción para el uso de certificados digitales se regularán por los que dispone la Ley Nº 8454 y Reglamento, y demás normas legales y reglamentarias conexas.

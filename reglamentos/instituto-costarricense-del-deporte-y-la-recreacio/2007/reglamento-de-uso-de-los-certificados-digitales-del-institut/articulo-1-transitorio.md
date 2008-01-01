@@ -1,0 +1,2 @@
+Transitorio.—El uso del domicilio electrónico proporcionado por los Suscriptores para efectos de las notificaciones oficiales que debe realizar el Instituto Costarricense del Deporte y la Recreación, quedará sujeto a lo que disponga el respectivo reglamento de notificaciones interno que en su oportunidad emita el Consejo Nacional del Deporte y la Recreación.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 144 del 26 de julio del 2007).

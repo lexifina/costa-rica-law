@@ -1,0 +1,4 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento se aplicará a:
+a) Los funcionarios o unidades internas del Instituto Costarricense del Deporte y la Recreación, para los efectos y conforme a los procedimientos que en su oportunidad se emitan;
+b) Los distintos sujetos pasivos de la fiscalización del Instituto Costarricense del Deporte y la Recreación, siempre y cuando voluntariamente suscriban el servicio de acuerdo con los términos contenidos en el Formulario de Suscripción para el Uso de Certificados Digitales, así como a las disposiciones del presente Reglamento.
+c) Proveedores y otros usuarios o interesados en tener transacciones y trámites electrónicos con el Instituto Costarricense del Deporte y la Recreación, siempre y cuando voluntariamente suscriban el servicio de acuerdo con los términos contenidos en el Formulario de Suscripción para el Uso de Certificados Digitales, así como a las disposiciones del presente Reglamento.

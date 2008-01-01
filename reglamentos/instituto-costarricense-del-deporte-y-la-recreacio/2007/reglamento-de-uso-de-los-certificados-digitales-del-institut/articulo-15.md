@@ -1,0 +1,1 @@
+Artículo 15.—Período de vigencia del certificado digital. Los Certificados Digitales tendrán una vigencia de tres años a partir de la fecha de su emisión, estando indicadas en el certificado, tanto la fecha de emisión como la de vencimiento.
