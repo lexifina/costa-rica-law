@@ -1,2 +1,2 @@
-Artículo 127.-
-Cuando el agotamiento de la vía administrativa se produzca en virtud de silencio u otro acto presunto, la Administración está siempre obligada a dictar resolución expresa sobre el fondo dentro de los plazos correspondientes, y aún después, en este caso sin perjuicio del silencio ni de las responsabilidades consiguientes, dentro del año previsto por el artículo 37.2 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.
+Artículo 127.-Cuando el agotamiento de la vía administrativa se produzca en virtud del silencio o de algún acto presunto, la Administración siempre estará obligada a dictar la resolución de fondo, de manera expresa y motivada, sin perjuicio de los efectos del silencio para fines de impugnación jurisdiccional, de conformidad con el Código Procesal Contencioso-Administrativo.
+(Así reformado por el inciso 5) del artículo 200 del Código Procesal Contencioso-Administrativo, Ley N° 8508 de 28 de abril de 2006,)

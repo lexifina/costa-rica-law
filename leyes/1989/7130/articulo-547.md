@@ -1,6 +1,3 @@
 CAPITULO VI
 Procesos civiles de hacienda
-ARTÍCULO 547.- Normas aplicables.
-En lo que no esté expresamente previsto en leyes especiales,los
-procesos civiles de hacienda se tramitarán y fallarán con arreglo a las
-disposiciones de este Código.
+ARTÍCULO 547.- Normas aplicables. (Derogado por el artículo 199 del Código Procesal Contencioso-Administrativo, Ley N° 8508 del 28 de abril de 2006)

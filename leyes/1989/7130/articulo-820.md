@@ -1,20 +1,7 @@
 ARTÍCULO 820.- Procedimiento.
-El procedimiento se iniciará por escrito del interesado, en el que
-formulará la pretensión correspondiente y acompañará los documentos
-necesarios, con indicación de las normas legales aplicables. Los
-documentos se agregarán al expediente sin más trámite. Cuando fuere
-necesaria audiencia a alguna persona, se le conferirá por un plazo de tres
-días.
-Se dará intervención a la Procuraduría General de la República y al
-Patronato Nacional de la Infancia en los casos previstos en los artículos
-119 y 120. La omisión de este trámite producirá la nulidad de lo actuado.
-El juez podrá ordenar de oficio la práctica de cualquier prueba. Listo el
-expediente para resolver, el juez decidirá lo pedido en el plazo de diez
-días, sin que esté obligado a externar criterio de legalidad estricta,
-para lo cual podrá escoger la resolución que considere más conveniente u
-oportuna.
-El juez prevendrá la aceptación y el juramento de cualquier cargo
-dentro del plazo de tres días.
-(La numeración de este artículo fue así modificada por el artículo 1º
-de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo
-797 al actual)
+El procedimiento se iniciará por escrito del interesado, en el que formulará la pretensión correspondiente y acompañará los documentos necesarios, con indicación de las normas legales aplicables. Los documentos se agregarán al expediente sin más trámite. Cuando fuere necesaria audiencia a alguna persona, se le conferirá por un plazo de tres días.
+Se dará intervención al Patronato Nacional de la Infancia en los casos previstos en los artículos 119 y 120. La omisión de este trámite producirá la nulidad de lo actuado.
+(Así reformado el párrafo anterior por el artículo 219, inciso 5.c) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
+El juez podrá ordenar de oficio la práctica de cualquier prueba. Listo el expediente para resolver, el juez decidirá lo pedido en el plazo de diez días, sin que esté obligado a externar criterio de legalidad estricta, para lo cual podrá escoger la resolución que considere más conveniente u oportuna.
+El juez prevendrá la aceptación y el juramento de cualquier cargo dentro del plazo de tres días.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 797 al 820)

@@ -1,2 +1,2 @@
-Artículo 175.-
-Caducará en cuatro años la potestad del administrado para impugnar el acto absolutamente nulo en la vía administrativa y jurisdiccional, sin que se apliquen al respecto los plazos normales de caducidad.
+Artículo 175.- El administrado podrá impugnar el acto absolutamente nulo, en la vía administrativa o la judicial, en el plazo de un año contado a partir del día siguiente a su comunicación. Tratándose de actos de efectos continuados, el plazo se computará a partir del cese de sus efectos.
+(Así reformado por el inciso 7) del artículo 200 del Código Procesal Contencioso-Administrativo, Ley N° 8508 de 28 de abril de 2006)

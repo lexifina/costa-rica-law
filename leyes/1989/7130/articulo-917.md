@@ -1,18 +1,5 @@
 ARTÍCULO 917.- Declaración de apertura.
-Cumplidos los requisitos establecidos en los dos artículos
-anteriores, y llenadas las formalidades del caso cuando se trate de
-testamentos cerrados, el tribunal declarará abierto el proceso sucesorio;
-llamará al albacea testamentario para que acepte el cargo, o nombrará el
-provisional; proveerá lo concerniente a la representación de los menores;
-conferirá la audiencia de ley al Patronato Nacional de la Infancia y a la
-Procuraduría General de la República; y citará a los herederos,
-legatarios, acredores y, en general, a todos los interesados para que,
-dentro del plazo de treinta días, comparezcan a hacer valer sus derechos,
-con el apercibimiento, a los que crean tener derecho a la herencia, de
-que, si no se presentan en ese plazo, aquélla pasará a quien corresponda.
-La citación de interesados se hará por medio de un edicto que se
-publicará una vez en el Boletín Judicial, y el emplazamiento comenzarán a
-correr desde la fecha de la publicación.
-(La numeración de este artículo fue así modificada por el artículo 1º
-de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo
-894 al actual)
+Cumplidos los requisitos establecidos en los dos artículos anteriores, y llenadas las formalidades del caso cuando se trate de testamentos cerrados, el tribunal declarará abierto el proceso sucesorio; llamará al albacea testamentario para que acepte el cargo, o nombrará el provisional; proveerá lo concerniente a la representación de los menores; conferirá la audiencia de ley al Patronato Nacional de la Infancia; y citará a los herederos, legatarios, acredores (sic) y, en general, a todos los interesados para que, dentro del plazo de treinta días, comparezcan a hacer valer sus derechos, con el apercibimiento, a los que crean tener derecho a la herencia, de que, si no se presentan en ese plazo, aquélla pasará a quien corresponda.
+La citación de interesados se hará por medio de un edicto que se publicará una vez en el Boletín Judicial, y el emplazamiento comenzarán (sic) a correr desde la fecha de la publicación.
+(Así reformado por el artículo 219, inciso 5.c) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 894 al 917)
