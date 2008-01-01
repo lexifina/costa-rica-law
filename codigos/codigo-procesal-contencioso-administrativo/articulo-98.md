@@ -1,0 +1,3 @@
+ARTÍCULO 98.-
+1) Cumplido el trámite de la audiencia preliminar, cuando sea procedente, el juez tramitador citará de inmediato a las partes para la realización del juicio oral y público, previa coordinación con el Tribunal para fijar la hora y fecha.
+2) Si el asunto es de puro derecho o no existe prueba que evacuar, el juez tramitador, antes de dar por finalizada la audiencia preliminar, dará a las partes oportunidad para que formulen las conclusiones, las cuales serán consignadas literalmente por los medios técnicos o telemáticos que el juzgador estime pertinentes; acto seguido, remitirá el expediente al Tribunal para que dicte la sentencia.

@@ -1,0 +1,6 @@
+ARTÍCULO 205.-
+1) En los artículos 79 y 84 del Código de Minería, Ley N.º 6797, de 4 de octubre de 1982, se sustituye “Tribunal Superior Contencioso-Administrativo”, por “ministro de Ambiente y Energía.”
+2) Se reforma el artículo 90 del Código de Minería, Ley N.º 6797, de 4 de octubre de 1982. El texto dirá:
+“Artículo 90.- Cualquier cuestión que se suscite o promueva en materia de permisos o concesiones, durante su tramitación o con motivo de su ejercicio o extinción, sobre cualquier asunto que no haya sido entregado para conocimiento de otra autoridad, será resuelto por la Dirección de Geología, Minas e Hidrocarburos, previa audiencia a los afectados, que se concederá en un plazo máximo de noventa días, durante el cual la Dirección podrá solicitar las pruebas, ordenar las diligencias que considere convenientes y resolver la cuestión debatida.
+Contra las resoluciones que se dicten procederán los recursos de revocatoria, ante la Dirección, y de apelación, ante el ministro de Ambiente y Energía.”
+(NOTA DE SINALEVI: esta reforma fue realizada literalmente como se indica. No obstante, del análisis hecho y por el contenido del artículo, se infiere que el que se debió reformar fue el 94, lo anterior por cuanto la numeración del antiguo numeral 90 fue modificada por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo pasó del 90 al 94 actual).

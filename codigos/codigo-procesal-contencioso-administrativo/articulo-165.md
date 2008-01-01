@@ -1,0 +1,1 @@
+ARTÍCULO 165.- Transcurrido el plazo de la audiencia conferida al vencido, el juez ejecutor solo aprobará las partidas demostradas y que procedan, conforme al ordenamiento jurídico, o las reducirá en la forma que corresponda.

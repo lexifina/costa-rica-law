@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Quienes actúen como demandados, en virtud de lo dispuesto en el artículo 12 de este Código, o como coadyuvantes, con excepción de la Contraloría General de la República, podrán litigar unidos y bajo una misma representación y dirección, siempre que sus posiciones no sean contradictorias.

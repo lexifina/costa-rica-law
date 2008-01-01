@@ -1,0 +1,5 @@
+ARTÍCULO 149.-
+1) Transcurrido el plazo conferido a la parte contraria para conocer del recurso formulado, o concluida la audiencia oral señalada al efecto, la Sala Primera o el Tribunal de Casación procederán de inmediato al dictado y la comunicación de la sentencia.
+2) Cuando la redacción de la sentencia tenga una particular complejidad, se comunicará tan solo la parte dispositiva del fallo y, en un plazo máximo a los cinco días hábiles, su contenido total.
+3) En caso de excepcional complejidad, el dictado y la redacción de la sentencia podrán realizarse en un plazo máximo de diez días hábiles.
+4) El uso de los plazos dispuestos en los párrafos dos y tres del presente artículo para el dictado y la redacción de la sentencia, se comunicará previamente a las partes en forma oral o escrita, según sea el caso. Dichos plazos se contarán a partir del día siguiente a la fecha del vencimiento del plazo otorgado a la parte contraria para conocer el recurso, o bien, a partir de concluida la audiencia oral, según lo indicado en el párrafo primero de este artículo.

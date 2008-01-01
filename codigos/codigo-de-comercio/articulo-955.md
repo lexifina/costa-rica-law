@@ -1,1 +1,2 @@
-ARTÍCULO 955.- El juzgado, al recibo de la solicitud de rehabilitación, dará audiencia por tres días a la Procuraduría General dela República y a los acreedores. Vencido ese plazo resolverá lo que en derecho corresponda.
+ARTÍCULO 955.- El juzgado, al recibo de la solicitud de rehabilitación, dará audiencia por tres días a los acreedores. Vencido ese plazo resolverá lo que en derecho corresponda.
+(Así reformado el párrafo anterior por el artículo 219, inciso 4) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)

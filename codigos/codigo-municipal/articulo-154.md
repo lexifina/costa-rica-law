@@ -1,6 +1,6 @@
-Artículo 154. — Cualquier acuerdo municipal estará sujeto a los recursos de revocatoria y de apelación, excepto:
+Artículo 154. — Cualquier acuerdo del concejo municipal, emitido directamente o conociendo en alzada contra lo resuelto por algún órgano municipal jerárquicamente inferior, estará sujeto a los recursos de revocatoria y de apelación. De tales recursos quedan exceptuados los siguientes acuerdos del concejo municipal:
 a) Los que no hayan sido aprobados definitivamente.
 b) Los de mero trámite de ejecución, confirmación o ratificación de otros anteriores y los consentidos expresa o implícitamente.
-c) Los reglamentarios.
-d) Los que aprueben presupuestos, sus modificaciones y adiciones.
-e) Los sometidos a los procedimientos especiales dispuestos en los artículos 82, 83, 89 y 90 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa, No. 3667, de 12 de marzo de 1966.
+c) Los que aprueben presupuestos, sus modificaciones y adiciones.
+d) Los reglamentarios.
+(Así reformado por el artículo 202, inciso 2) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contenciso-Administrativo).

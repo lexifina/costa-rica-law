@@ -1,0 +1,6 @@
+ARTÍCULO 139.-
+1) El recurso deberá ser interpuesto directamente ante la Sala Primera o el Tribunal de Casación, según corresponda, dentro de los quince días hábiles contados a partir del día hábil siguiente a la notificación de la resolución a todas las partes. En caso de adición o aclaración, el plazo indicado empezará a correr a partir del día hábil siguiente a la fecha en que sean notificadas todas las partes acerca de lo resuelto sobre ello.
+2) El escrito deberá indicar el tipo de proceso, el nombre completo de las partes, con sus respectivas firmas de identificación debidamente autenticadas; la hora y la fecha de la resolución recurrida, así como el número de expediente en el cual fue dictada y el lugar dentro del perímetro judicial respectivo para recibir notificaciones, cuando la que ya existe no corresponda a la misma sede.
+3) Se deberán indicar, de manera clara y precisa, los motivos del recurso, con la fundamentación fáctica y jurídica del caso. Para todos los efectos, no será indispensable indicar el precepto legal infringido concerniente al valor del elemento probatorio mal apreciado.
+4) No será indispensable citar la normativa infringida en la sentencia recurrida; tampoco la que establece los requisitos del recurso, los plazos y las reglas básicas para su admisión.
+5) El recurso no estará sujeto a otras formalidades o requisitos.

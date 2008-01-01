@@ -1,0 +1,1 @@
+ARTÍCULO 129.- Transcurrido el plazo a que se refiere el artículo anterior, sin que la Administración Pública adopte la conducta conforme a los mandatos establecidos por el Tribunal, o si lo hace con violación de aquellos, el juez ejecutor procederá conforme a lo establecido por los artículos 158 y 159.

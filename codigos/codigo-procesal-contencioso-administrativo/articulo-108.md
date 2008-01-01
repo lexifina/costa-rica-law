@@ -1,0 +1,1 @@
+ARTÍCULO 108.- Cuando proceda, el Tribunal recibirá la prueba confesional bajo juramento; los jueces, la parte contraria y el propio abogado, podrán hacerle al confesante las preguntas que sean pertinentes, hacer notar las contradicciones y pedir aclaraciones.

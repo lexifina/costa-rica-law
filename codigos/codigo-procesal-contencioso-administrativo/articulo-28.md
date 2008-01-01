@@ -1,0 +1,6 @@
+ARTÍCULO 28.-
+1) El tribunal respectivo, el juez o la jueza al disponer la medida cautelar, podrá exigir que se rinda caución o cualquier otra medida de contracautela, suficiente y proporcionada para la protección de los derechos e intereses de alguna de las partes, de terceros o del interés público.
+2) Contra el auto que resuelva la caución u otra contracautela, cabrá recurso de apelación, dentro del tercer día, para ante el Tribunal de Casación de lo Contencioso- Administrativo.
+3) La caución o garantía podrá constituirse en cualesquiera de las formas admitidas en Derecho.
+4) La medida cautelar dispuesta no se ejecutará hasta que se compruebe haber cumplido con la contracautela o, en su caso, hasta tanto la caución esté rendida y acreditada en autos.
+5) Levantada la medida cautelar al término del proceso o por cualquier otra causa, la Administración Pública o la persona que pretenda tener derecho al resarcimiento por los daños y perjuicios causados con su ejecución, deberá solicitarlo ante el tribunal, el juez o la jueza respectiva, por medio de un simple escrito, dentro de los dos meses siguientes a la fecha de cesación de los efectos de la medida. Si la solicitud no se formula dentro de dicho plazo o no se acredita el derecho, la garantía constituida se cancelará seguidamente y se devolverá a quien corresponda.

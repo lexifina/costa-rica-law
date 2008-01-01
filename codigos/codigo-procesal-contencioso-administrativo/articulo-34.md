@@ -1,0 +1,6 @@
+ARTÍCULO 34.-
+1) Cuando la propia Administración, autora de algún acto declarativo de derechos, pretenda demandar su anulación ante la Jurisdicción Contencioso-Administrativa, previamente el superior jerárquico supremo deberá declararlo lesivo a los intereses públicos, económicos o de cualquier otra naturaleza. El plazo máximo para ello será de un año, contado a partir del día siguiente a aquel en que haya sido dictado, salvo si el acto contiene vicios de nulidad absoluta, en cuyo caso, dicha declaratoria podrá hacerse mientras perduren sus efectos. En este último supuesto, el plazo de un año correrá a partir de que cesen sus efectos y la sentencia que declare la nulidad lo hará, únicamente, para fines de su anulación e inaplicabilidad futura.
+2) La lesividad referente a la tutela de bienes del dominio público no estará sujeta a plazo.
+3) Corresponderá al Consejo de Gobierno la declaratoria de lesividad de los actos administrativos dictados por dos o más ministerios, o por estos con algún ente descentralizado. En tales supuestos, no podrán ser declarados lesivos por un ministro de distinto ramo.
+4) La declaratoria de lesividad de los actos dictados por órganos administrativos con personalidad jurídica instrumental, será emitida por el superior jerárquico supremo.
+5) La pretensión de lesividad no podrá deducirse por la vía de la contrademanda.

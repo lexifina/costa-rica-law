@@ -1,0 +1,1 @@
+ARTÍCULO 84.- La jueza o el juez tramitador podrá ordenar que se reciba cualquier prueba que sea urgente o que, por algún obstáculo difícil de superar, se presuma que no podrá recibirse en la audiencia respectiva.

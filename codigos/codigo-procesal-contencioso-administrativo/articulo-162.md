@@ -1,0 +1,1 @@
+ARTÍCULO 162.- El derecho y los hechos nuevos, provenientes, total o parcialmente, de la Administración o de sus codemandados vencidos en juicio, o bien, provocados por ellos, no podrán justificar la suspensión ni la no ejecución del fallo.

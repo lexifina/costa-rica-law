@@ -1,0 +1,1 @@
+ARTÍCULO 43.- En la demanda pueden deducirse de manera conjunta, cualesquiera de las pretensiones contenidas en el presente capítulo, siempre que se dirijan contra el mismo demandado y sean compatibles entre sí, aunque sean de conocimiento de otra jurisdicción, salvo la penal.

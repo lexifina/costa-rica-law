@@ -1,0 +1,3 @@
+ARTÍCULO 190.-
+1) La apelación contra los acuerdos que emanen del concejo municipal, ya sea directamente o con motivo de la resolución de recursos en contra de acuerdos de órganos municipales jerárquicamente inferiores, deberá ser conocida y resuelta por el Tribunal de lo Contencioso-Administrativo.
+2) Una vez interpuesto el recurso de apelación, la municipalidad elevará los autos al conocimiento del Tribunal, previo emplazamiento a las partes y demás interesados, por el plazo de cinco días, quienes deberán señalar medio, lugar o forma para oír notificaciones, dentro del perímetro judicial respectivo.

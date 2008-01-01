@@ -1,0 +1,1 @@
+ARTÍCULO 87.- Si durante las audiencias una parte tiene dos o más abogados, estos deberán distribuirse el uso de la palabra y demás funciones, lo que deberá ser comunicado al juez tramitador o al Tribunal, según sea el caso.

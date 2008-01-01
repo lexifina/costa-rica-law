@@ -1,0 +1,1 @@
+ARTÍCULO 125.- Cuando la sentencia condenatoria disponga la actualización a valor presente, en los términos de los artículos 123 y 124 de este Código, no quedará excluida la indemnización por los daños y perjuicios que sea procedente.

@@ -1,0 +1,4 @@
+ARTÍCULO 197.-
+1) Salvo acuerdo de las partes en contrario, no habrá condenatoria en costas, en caso de que se produzca desestimiento, allanamiento o satisfacción extraprocesal de la pretensión, antes de la audiencia preliminar o en el transcurso de esta.
+2) Cuando se produzca con posterioridad a la realización de la audiencia preliminar, si la parte interesada lo reclama, dentro de los tres días hábiles posteriores a la notificación del auto que tenga por concluido el proceso, se impondrá, por adición, el pago de las costas personales y procesales causadas, siempre que el Tribunal halle mérito para la condenatoria.
+3) En tal supuesto, el término para formular el recurso de casación contra la resolución que tenga por concluido el proceso, se contará a partir del día hábil siguiente a la notificación de la resolución que estime o deniegue la adición.

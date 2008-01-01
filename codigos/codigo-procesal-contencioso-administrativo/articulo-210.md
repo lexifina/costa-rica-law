@@ -1,0 +1,1 @@
+ARTÍCULO 210.- Deróganse los artículos 23, 24 y 26 de la Ley de inscripción de documentos en el Registro Público, N.º 3883, de 30 de mayo de 1965, y cualquier otra que establezca, en forma genérica, la inembargabilidad de los bienes de la Administración Pública o de alguno de sus entes u órganos específicos.

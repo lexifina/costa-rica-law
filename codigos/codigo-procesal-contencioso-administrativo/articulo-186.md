@@ -1,0 +1,5 @@
+ARTÍCULO 186.-
+1) La petición se formulará en escrito razonado, con el que se acompañará y ofrecerá la prueba que acredite su situación jurídica y, de ella, se dará traslado a la contraria por el plazo de cinco días, para formular los alegatos y ofrecer las pruebas pertinentes.
+2) La Sala Primera de la Corte Suprema de Justicia o el Tribunal de Casación de lo Contencioso-Administrativo, según corresponda, señalará, en la misma resolución a que se refiere el inciso anterior, una audiencia oral, la cual se celebrará en un plazo máximo de quince días hábiles, a partir de la notificación a las partes, con el objeto de definir la admisibilidad y procedencia de la solicitud.
+3) De estimarlo necesario, el respectivo órgano podrá convocar a una nueva audiencia para evacuar las pruebas ofrecidas por las partes o requeridas por él.
+4) Cuando la solicitud se estime procedente, se emitirá la resolución en la cual se ordenará la extensión y adaptación de los efectos de los fallos; dicha resolución se hará efectiva por el trámite de ejecución de sentencia.

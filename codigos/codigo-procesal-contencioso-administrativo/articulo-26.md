@@ -1,0 +1,3 @@
+ARTÍCULO 26.-
+1) Cuando se solicite una medida cautelar antes de que inicie el proceso esta será del conocimiento del juez tramitador o de la jueza tramitadora a quien el tribunal designe que, por turno, le corresponde el conocimiento del asunto.
+2) En caso de que la medida cautelar sea concedida, la demanda deberá presentarse en el plazo de quince días, contados a partir del día siguiente de la notificación del auto que la acoge; de lo contrario, se ordenará su levantamiento y se condenará a la parte solicitante al pago de los daños y perjuicios causados, los cuales se liquidarán por el trámite de ejecución de sentencia.

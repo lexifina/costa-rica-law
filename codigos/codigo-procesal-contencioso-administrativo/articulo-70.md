@@ -1,0 +1,3 @@
+ARTÍCULO 70.-
+1) Salvo el supuesto del artículo anterior, una vez contestada la demanda o la contrademanda, la jueza o el juez tramitador dará traslado a la parte actora, por el plazo de tres días hábiles, para que se refiera a esta y ofrezca contraprueba.
+2) En la misma resolución, previa coordinación y a la mayor brevedad posible, señalará hora y fecha para celebrar la audiencia de conciliación y remitirá el expediente al juez conciliador, salvo que las partes manifiesten, con antelación y por escrito, su oposición o renuncia, en cuyo caso se fijarán hora y fecha para celebrar de la audiencia preliminar.

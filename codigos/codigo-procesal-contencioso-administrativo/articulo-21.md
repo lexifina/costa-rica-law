@@ -1,0 +1,1 @@
+ARTÍCULO 21.- La medida cautelar será procedente cuando la ejecución o permanencia de la conducta sometida a proceso, produzca graves daños o perjuicios, actuales o potenciales, de la situación aducida, y siempre que la pretensión no sea temeraria o, en forma palmaria, carente de seriedad.

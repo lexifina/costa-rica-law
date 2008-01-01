@@ -1,0 +1,15 @@
+ARTÍCULO 217.- Reformas de la Ley orgánica de la Procuraduría General de la República:
+1) Adiciónase al artículo 3, un inciso l), en los siguientes términos:
+“Artículo 3.-
+[...]
+l) Proponer y acordar arreglos o convenios durante la tramitación de cualquier proceso, cuando valore su procedencia y oportunidad. En estos casos, se requerirá autorización escrita del procurador general, del procurador general adjunto o del funcionario en quien estos deleguen.”
+2) Se reforma el artículo 20, cuyo texto dirá:
+"Artículo 20.- Representación en juicio Los procuradores tienen, en cuanto a los juicios en que intervengan ante las autoridades de justicia, las facultades que corresponden a los mandatarios judiciales, según la legislación común, con las restricciones siguientes: les está absolutamente prohibido allanarse, transar, conciliar o desistir de las demandas o reclamaciones, así como someter los juicios a la decisión de árbitros, sin la previa autorización escrita del procurador general, del procurador general adjunto o del funcionario en quien estos deleguen.
+No tendrá valor ni efecto alguno, en juicio ni fuera de él, lo que se haga en oposición al párrafo anterior, y la nulidad de los procedimientos, a que razonablemente dé lugar la violación, deberá ser declarada, aun de oficio, por los tribunales de justicia.
+El funcionario transgresor -aparte de otras responsabilidades en que pueda incurrir- será corregido con amonestación, la primera vez; con suspensión hasta por quince días hábiles, la segunda, y con despido justificado, cuando exceda de dos infracciones."
+3) Se reforma el artículo 21, cuyo texto dirá:
+"Artículo 21.- Prohibiciones procesales Prohíbese a los servidores a los que se refiere el artículo anterior: dejar de establecer las demandas o reclamaciones en las que deban intervenir como actores; omitir la contestación de los traslados o las audiencias que se les hayan dado; dejar de presentar las pruebas legales que les corresponda rendir y abandonar las que hayan propuesto; no interponer, oportunamente, los recursos legales contra los actos ejecutivos o las resoluciones dictadas en contra de las demandas o los pedimentos que hayan presentado, o en perjuicio de los intereses cuya defensa les esté confiada.
+La inobservancia de esta prohibición, salvo disposición expresa del superior, se tendrá como falta, sancionable de acuerdo con su trascendencia, según lo disponga el Reglamento.
+Tratándose del recurso de casación, queda a juicio del procurador general o del procurador general adjunto la no interposición del recurso, previa solicitud del criterio respectivo al procurador asesor."
+4) Se reforma el artículo 23, cuyo texto dirá:
+“Artículo 23.- Ampliación de plazos Cuando, por las necesidades del despacho, el procurador general o el procurador general adjunto solicite ampliación de plazo, este se tendrá como automáticamente prorrogado por un tercio del originalmente concedido. La solicitud deberá ser presentada, necesariamente, dentro del plazo original. Las fracciones de un día se computarán como uno completo. Respecto de los términos no cabrá prórroga.”

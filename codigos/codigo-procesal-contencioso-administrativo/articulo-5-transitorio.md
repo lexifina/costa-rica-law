@@ -1,0 +1,1 @@
+TRANSITORIO V.- El Juzgado Civil de Hacienda de Asuntos Sumarios permanecerá funcionando y conocerá de todos los procesos que le hayan ingresado hasta el día de entrada en vigencia del presente Código, cualquiera sea su estado procesal, hasta por tres años. Finalizado ese plazo, los procesos que no hayan fenecido serán trasladados a la Jurisdicción Civil.

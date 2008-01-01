@@ -1,0 +1,3 @@
+ARTÍCULO 148.-
+1) La Sala Primera o el Tribunal de Casación podrán ordenar, antes del dictado de la sentencia, cualquier prueba o diligencia para mejor resolver el recurso interpuesto.
+2) El resultado de las pruebas que se hayan ordenado para mejor proveer, se pondrá en conocimiento de las partes, las cuales podrán, en el plazo de tres días, alegar cuanto estimen conveniente acerca de su alcance e importancia. Dicha audiencia será innecesaria cuando el órgano jurisdiccional encargado de conocer el recurso ordene la celebración de una audiencia oral para conocer, alegar y debatir sobre el resultado de aquella.

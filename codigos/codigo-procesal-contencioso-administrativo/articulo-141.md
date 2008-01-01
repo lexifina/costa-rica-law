@@ -1,0 +1,2 @@
+ARTÍCULO 141.- Si el recurso no cumple los requisitos señalados en el párrafo segundo del artículo 139, se prevendrá al recurrente que corrija los defectos, dentro del tercer día hábil, los cuales deberán señalarse de manera específica en la misma resolución. Si no los corrige, el recurso será rechazado de plano.
+De haberse omitido señalar lugar o medio para recibir notificaciones, se le comunicará en el último lugar o medio que conste indicado en el expediente.

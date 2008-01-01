@@ -1,0 +1,1 @@
+ARTÍCULO 79.- Las partes, por sí mismas, podrán buscar los diversos mecanismos para la solución de sus conflictos fuera del proceso, y acudir a ellos. Para tal efecto, de común acuerdo, estarán facultadas para solicitar su suspensión, por un período razonable a criterio de la jueza, del juez o del Tribunal, según sea el estadio procesal.

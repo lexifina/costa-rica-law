@@ -1,0 +1,1 @@
+ARTÍCULO 126.- La sentencia estimatoria siempre obligará a la ejecución de las obligaciones y prohibiciones que imponga, así como a la satisfacción de las pretensiones reconocidas, de acuerdo con el ordenamiento jurídico y con los hechos probados de la sentencia.

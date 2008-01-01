@@ -1,0 +1,3 @@
+ARTÍCULO 25.-
+1) En casos de extrema urgencia, el tribunal o el juez respectivo, a solicitud de parte, podrá disponer las medidas cautelares, sin necesidad de conceder audiencia. Para tal efecto, el Tribunal o el respectivo juez podrá fijar caución o adoptar cualquier otra clase de contracautela, en los términos dispuestos en el artículo 28 de este Código.
+2) Habiéndose adoptado la medida cautelar en las condiciones señaladas en el apartado anterior, se dará audiencia por tres días a las partes del proceso, sin efectos suspensivos para la ejecución de la medida cautelar ya dispuesta. Una vez transcurrido el plazo indicado, el juez podrá hacer una valoración de los alegatos y las pruebas aportados, para mantener, modificar o revocar lo dispuesto.

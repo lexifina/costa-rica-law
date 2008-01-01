@@ -1,0 +1,1 @@
+ARTÍCULO 146.- Estando en trámite el recurso de casación ante la Sala Primera o ante el Tribunal de Casación, la parte victoriosa, en cualquier momento, por vía incidental, podrá solicitar al juez ejecutor la ejecución provisional de la sentencia en lo que se encuentre firme.

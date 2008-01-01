@@ -1,0 +1,1 @@
+ARTÍCULO 65.- Si el demandado no contesta dentro del emplazamiento, de oficio se le declarará rebelde y se tendrá por contestada afirmativamente la demanda en cuanto a los hechos, sin perjuicio de que pueda apersonarse, en cualquier tiempo, tomando el proceso en el estado en que se encuentre.

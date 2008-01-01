@@ -1,0 +1,3 @@
+ARTÍCULO 81.-
+1) En el mismo auto que fija la audiencia de conciliación, se advertirá a las partes que si alguna de ellas manifiesta, con antelación, su negativa a conciliar, o si cualquiera de ellas no se presenta a la audiencia señalada para tal efecto, se continuará de inmediato con la audiencia preliminar, para lo cual se coordinará y se tomarán las previsiones del caso, junto con la jueza o el juez tramitador.
+2) Si, iniciada la conciliación, la jueza o el juez encargado la declara fracasada, total o parcialmente, en el mismo auto señalará la hora y fecha para celebrar la audiencia preliminar, previa coordinación con el juez tramitador.

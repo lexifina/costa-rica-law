@@ -1,34 +1,7 @@
-ARTICULO 163.- Actuación del Tribunal Fiscal Administrativo.
-El Tribunal Fiscal Administrativo debe ajustar su actuación al
-procedimiento y a las normas de funcionamiento establecidas en el presente
-Código, así como en la Ley General de Administración Pública, la Ley
-Reguladora de la Jurisdicción Contencioso-Administrativa y la Ley Orgánica
-del Poder Judicial, en lo que sean aplicables supletoriamente.
-Para tramitar los asuntos a su cargo, el Tribunal establecerá plazos
-comunes e improrrogables a las partes para que presenten sus alegaciones
-y pruebas de descargo, dentro del espíritu de la búsqueda de la verdad
-real de los hechos y la necesaria celeridad del procedimiento. Para
-desvirtuar las afirmaciones y los cargos hechos por la Administración
-Tributaria, los administrados podrán acudir a cualquier medio de prueba
-aceptado por el ordenamiento jurídico positivo aplicable. Los informes y
-certificaciones de los contadores públicos autorizados, de otros
-profesionales que tengan fe pública, o de las autoridades públicas
-competentes, designadas en forma independiente por el Tribunal Fiscal
-Administrativo, hacen plena prueba y, en tal caso, la carga de la prueba
-para desvirtuarlos correrá a cargo de la Administración Tributaria.
-(Así reformado por el artículo 11 de la Ley de Justicia Tributaria
-No.7535 del 1 de agosto de 1995. El artículo 10 corrigió su numeración,
-traspasándolo del antiguo 154 al actual)
-Los actos que resuelvan recursos interpuestos contra resoluciones
-determinativas de tributos, deben dictarse dentro de los seis meses
-siguientes al vencimiento del plazo para interponerlos, cuando se
-presenten los alegatos y las pruebas dentro del plazo señalado por el
-artículo 156 del presente Código. En los casos en que los sujetos pasivos
-presenten pruebas de descargo fuera de dicho plazo, se dictará la
-resolución determinativa dentro de los seis meses posteriores a la
-recepción de estas.
-(Así adicionado este párrafo final por el artículo 3º de la ley
-No.7900 de 3 de agosto de 1999)
-(Así modificada su numeración por el artículo 10 de la Ley de
-Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del
-antiguo 154 al actual)
+Artículo 163.- Actuación del Tribunal Fiscal Administrativo. El Tribunal Fiscal Administrativo debe ajustar su actuación al procedimiento y a las normas de funcionamiento establecidas en el presente Código, así como en la Ley General de Administración Pública, el Código Procesal Contencioso-Administrativo(*) y la Ley Orgánica del Poder Judicial, en lo que sean aplicables supletoriamente.
+(*) (Así reformado por el artículo 201, inciso 2) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo, que sustituyo la frase: "Ley Reguladora de la Jurisdicción Contencioso Administrativo" por " Código Procesal Contencioso-Administrativo")
+Para tramitar los asuntos a su cargo, el Tribunal establecerá plazos comunes e improrrogables a las partes para que presenten sus alegaciones y pruebas de descargo, dentro del espíritu de la búsqueda de la verdad real de los hechos y la necesaria celeridad del procedimiento. Para desvirtuar las afirmaciones y los cargos hechos por la Administración Tributaria, los administrados podrán acudir a cualquier medio de prueba aceptado por el ordenamiento jurídico positivo aplicable. Los informes y certificaciones de los contadores públicos autorizados, de otros profesionales que tengan fe pública, o de las autoridades públicas competentes, designadas en forma independiente por el Tribunal Fiscal Administrativo, hacen plena prueba y, en tal caso, la carga de la prueba para desvirtuarlos correrá a cargo de la Administración Tributaria.
+Los actos que resuelvan recursos interpuestos contra resoluciones determinativas de tributos, deben dictarse dentro de los seis meses siguientes al vencimiento del plazo para interponerlos, cuando se presenten los alegatos y las pruebas dentro del plazo señalado por el artículo 156 del presente Código. En los casos en que los sujetos pasivos presenten pruebas de descargo fuera de dicho plazo, se dictará la resolución determinativa dentro de los seis meses posteriores a la recepción de estas.
+(Así adicionado el párrafo anterior por el artículo 3º de la ley N° 7900 de 3 de agosto de 1999)
+(Así modificada su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 154 al actual)
+(Así reformado por el artículo 11 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995)

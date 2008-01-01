@@ -1,0 +1,1 @@
+ARTÍCULO 221.- Durante el plazo de seis meses después de publicado este Código en La Gaceta, la Corte Plena dictará el Reglamento de organización interna de la Jurisdicción Contencioso-Administrativa.

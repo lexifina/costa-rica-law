@@ -1,0 +1,6 @@
+CAPÍTULO III
+RECURSO DE CASACIÓN EN INTERÉS DEL ORDENAMIENTO JURÍDICO
+ARTÍCULO 153.-
+1) Cabrá el recurso de casación en interés del ordenamiento jurídico, ante la Sala Primera, contra las sentencias firmes dictadas por el Tribunal Contencioso-Administrativo y Civil de Hacienda o el Tribunal de Casación Contencioso-Administrativo y Civil de Hacienda que produzcan cosa juzgada material, cuando no habiendo sido conocidas por la Sala Primera, se estimen violatorias del ordenamiento jurídico.
+2) El recurso podrá ser interpuesto, en cualquier momento, por el procurador general de la República, el contralor general de la República, el defensor de los habitantes de la República o el fiscal general; solo estará sujeto a los requisitos previstos en los apartados dos y tres del artículo 139 del presente Código.
+3) La sentencia que se dicte no afectará situación jurídica particular derivada de la sentencia recurrida, tampoco afectará situaciones jurídicas consolidadas y, cuando sea estimatoria, se limitará a fijar la correcta interpretación y aplicación del ordenamiento jurídico, debiendo publicarse en una sección especial del diario oficial La Gaceta y no implicará, de manera alguna, responsabilidad para los tribunales que hayan resuelto de manera distinta.

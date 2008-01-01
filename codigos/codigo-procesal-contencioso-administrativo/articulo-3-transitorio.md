@@ -1,0 +1,1 @@
+TRANSITORIO III.- El régimen de impugnación de los actos que hayan quedado firmes en la vía administrativa antes de la vigencia del presente Código, se regirá por la legislación vigente en ese momento.

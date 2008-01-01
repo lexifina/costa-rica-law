@@ -1,0 +1,1 @@
+ARTÍCULO 127.- Cuando la conducta declarada ilegítima sea reglada o cuando la discrecionalidad de alguno de los elementos desaparezca durante el transcurso del proceso, la sentencia impondrá la conducta debida y prohibirá su reiteración para el caso específico.
