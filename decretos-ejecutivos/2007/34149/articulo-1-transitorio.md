@@ -1,0 +1,2 @@
+Transitorio único: Las personas físicas o jurídicas que fabriquen, formulen, comercialicen, y manipulen materia prima o producto formulado que contenga carbofurán, tendrán un plazo improrrogable de seis meses, contado a partir de la publicación de este decreto, para cumplir con lo dispuesto en los artículos 2, 3, 4 y 5.
+Dado en la Presidencia de la República.—San José, a los nueve días del mes de abril del dos mil siete.
