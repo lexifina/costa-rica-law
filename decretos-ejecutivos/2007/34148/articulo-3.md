@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros que representan la parte privada del sector pecuario de este Consejo, fungirán en forma ad honorem y no tendrán dependencia jerárquica con el SENASA o el Ministerio de Agricultura y Ganadería.

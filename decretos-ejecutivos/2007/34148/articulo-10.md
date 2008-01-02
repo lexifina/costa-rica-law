@@ -1,0 +1,1 @@
+Artículo 10.—Para poder ejercer las facultades que la ley y este reglamento indican, los funcionarios del SENASA estarán obligados a colaborar con el CONASA y brindarles la información que estos requieran, de una manera ágil y transparente.

@@ -1,0 +1,2 @@
+Artículo 6º—El CONASA se reunirá ordinariamente como mínimo una vez al mes y de manera extraordinaria cuando sea convocada por al menos dos de sus miembros o la Dirección General del SENASA.
+El Director General del SENASA deberá participar en las sesiones del Consejo y será parte de él, con derecho a voz y voto. También podrá participar, con derecho a voz, aquellos funcionarios públicos que se convoquen para el conocimiento de un tema en particular.
