@@ -1,0 +1,1 @@
+Artículo 26.—Se prohíbe la utilización de las áreas silvestres protegidas para las filmaciones que promocionen cigarrillos, bebidas alcohólicas, drogas u otro producto comercial y/o comercialización sexual.
