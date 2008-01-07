@@ -1,0 +1,1 @@
+12.- Al proveedor aceptado como activo e inscrito, el Departamento de Proveeduría le notificará la aprobación de su Solicitud y la disponibilidad de entregar de manera personal y privada a quien se haya designado, una clave de ingreso al Sistema Informático.

@@ -1,0 +1,1 @@
+2º- Al Registro de Proveedores podrá ingresar todo interesado en contratar con la Administración, siempre que satisfaga los requisitos solicitados en este Reglamento, y cumpla con las disposiciones de la Ley de Contratación Administrativa y su Reglamento.

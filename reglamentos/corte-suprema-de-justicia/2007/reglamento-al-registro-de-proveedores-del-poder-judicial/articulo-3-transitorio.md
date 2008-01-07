@@ -1,0 +1,2 @@
+Transitorio III: Los proveedores que estén inscritos y activos a la entrada en vigencia de este Reglamento, permanecerán en la base de datos existente; no obstante, deberán complementar su información de acuerdo con los nuevos requisitos, en el término que se indique en la publicación referida en el artículo 10 de este Reglamento, caso contrario, se declararán inactivos. La vigencia de esa inscripción estará supeditada además a la vigencia de los documentos que así lo tengan definido.”
+San José, 7 de diciembre del 2007.

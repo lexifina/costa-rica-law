@@ -1,0 +1,1 @@
+3º- El Proceso de Adquisiciones será el encargado de administrar, para todos los efectos, trámites y procedimientos, el Registro de Proveedores. Para ello, implantará la organización que se estime necesaria con el apoyo de los medios tecnológicos, recursos humanos y materiales que garanticen la eficiencia y eficacia del Registro.

@@ -1,0 +1,1 @@
+26.- La clave de acceso al Sistema se le entregará al Proveedor en el Departamento de Proveeduría del Poder Judicial, impresa en papel con la debida seguridad para mantenerla en secreto. La primera clave será generada por el Sistema; pero el proveedor podrá ingresar y crear una nueva clave con los estándares predefinidos y divulgados en el Sistema Informático.

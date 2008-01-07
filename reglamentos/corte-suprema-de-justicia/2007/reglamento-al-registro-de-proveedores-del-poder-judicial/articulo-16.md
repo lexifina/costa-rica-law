@@ -1,0 +1,1 @@
+16.- Todo proveedor está en la obligación de verificar regularmente la condición en la que se encuentra su inscripción en el Registro de Proveedores; sin perjuicio de las notificaciones que deba efectuar el Departamento de Proveeduría en aquellos casos en los que legalmente corresponda.

@@ -1,0 +1,2 @@
+Exclusión del proveedor
+34.- Un proveedor activo e inscrito puede ser declarado inactivo de acuerdo con las causales que expresamente indica la Ley de Contratación Administrativa, su Reglamento y el presente Reglamento. En razón de las afectaciones en el histórico del Sistema Informático, un proveedor inscrito que amerite ser excluido del Registro, se pondrá en estado inactivo, salvo los que no finiquitaron la Solicitud de Inscripción y no tuvieren sanciones de ningún tipo, los cuales sí podrán excluirse.
