@@ -14,3 +14,4 @@ Reglamento para la aplicación de la Dedicacion Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-09 | la propia norma |
+| 2 | 2008-01-07 | Reglamento municipal 88 (2008-01-07) |
