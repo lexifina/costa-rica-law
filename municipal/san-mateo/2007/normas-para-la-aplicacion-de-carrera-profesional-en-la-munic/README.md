@@ -14,3 +14,4 @@ Normas para la aplicación de Carrera Profesional en la Municipalidad de San Mat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-09 | la propia norma |
+| 2 | 2008-01-07 | Reglamento municipal 88 (2008-01-07) |
