@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT 15-07 del 3 de julio del 2007, publicada en La Gaceta Nº 143 del 25 de julio del 2007.
