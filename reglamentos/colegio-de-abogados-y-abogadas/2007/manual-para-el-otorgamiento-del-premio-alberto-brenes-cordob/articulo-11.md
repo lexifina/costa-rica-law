@@ -1,0 +1,1 @@
+Artículo 11.—En la última sesión del mes de abril, la Junta Directiva hará la declaratoria formal del resultado del concurso y ordenará una comunicación pública en un diario de circulación nacional. Se enviará a la persona seleccionada la comunicación respectiva. La recomendación y la declaratoria formal del resultado será inapelable.

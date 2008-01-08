@@ -1,0 +1,1 @@
+Artículo 21.—Una vez aprobado por la Junta Directiva del Colegio de Abogados de Costa Rica, el presente Manual rige a partir de su publicación en el Diario Oficial La Gaceta. Este Manual deroga toda disposición previa que se le oponga.

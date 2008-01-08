@@ -1,0 +1,1 @@
+Artículo 12.—Una vez tomado el acuerdo por la Junta Directiva, los originales presentados, las copias y los sobres con los datos personales de los autores no premiados serán devueltos y se remitirá acuse de recibo.

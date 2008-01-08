@@ -1,0 +1,1 @@
+Artículo 18.—La inscripción en el Registro de la Propiedad Intelectual de la obra presentada al Premio, quedará bajo la exclusiva responsabilidad del autor, así como los efectos frente a terceros de su no inscripción.

@@ -1,0 +1,1 @@
+Artículo 13.—El premio consistirá en lo siguiente: 1. Entrega de un certificado. 2. La suma de $5.000 dólares en efectivo. Este monto podrá ser revisado periódicamente por la Junta Directiva del Colegio. 3. La publicación de la obra, en primera edición, a cargo del Colegio de Abogados. 4. Treinta ejemplares gratuitos de la obra, una vez editada.

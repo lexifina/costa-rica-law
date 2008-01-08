@@ -1,0 +1,1 @@
+Artículo 19.—El o los autores de la obra que resulte galardonada, deberán aceptar y realizar cualquier recomendación de corrección de forma, propuesta de parte del Jurado calificador, para efecto de publicación de la primera edición.

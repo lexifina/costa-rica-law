@@ -1,0 +1,1 @@
+Artículo 6º—La Junta Directiva ordenará en la primera semana del mes de julio, la publicación en la que se invita a todos los miembros activos del Colegio a participar con la presentación de sus obras en el concurso. La recepción de obras se abrirá el primer día hábil del mes de agosto y se cerrará el último día hábil del mes de noviembre de ese mismo año.
