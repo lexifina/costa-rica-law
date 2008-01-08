@@ -1,0 +1,1 @@
+Artículo 10.—Cumplimiento y vigencia del Reglamento. Este Reglamento es de acatamiento obligatorio para todos los funcionarios de Radiográfica Costarricense S. A. y tiene vigencia una vez publicado en el Diario Oficial La Gaceta, previa aprobación de la Junta Directiva.

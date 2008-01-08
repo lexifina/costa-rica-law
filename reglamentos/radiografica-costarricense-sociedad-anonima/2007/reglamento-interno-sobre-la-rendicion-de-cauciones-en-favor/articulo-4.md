@@ -1,0 +1,1 @@
+Artículo 4º—Deberes de los caucionantes. Los funcionarios responsables de rendir caución ante la Empresa, deberán tomar las precauciones adecuadas y constantes para controlar la exactitud de las cuentas de dinero y de los valores a su cargo y dar aviso inmediato a su superior jerárquico al momento de detectar una pérdida, defraudación o situación que afecte a la Empresa.

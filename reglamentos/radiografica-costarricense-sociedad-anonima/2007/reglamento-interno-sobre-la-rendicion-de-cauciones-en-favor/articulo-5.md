@@ -1,0 +1,6 @@
+Artículo 5º—Monto de las cauciones. Considerando que la caución o garantía, es una medida de control interno que se complementa con otras medidas adoptadas por la Empresa, según el artículo Nº 12 de la LGCI, se establecen los siguientes montos de cauciones según sea el nivel jerárquico del caucionante, siendo que el mecanismo para caucionar será únicamente la constitución de una póliza de fidelidad o seguro, y que es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía en favor de RACSA:
+Funcionarios | Monto mínimo del seguro o póliza de fidelidad
+Jerarca; es decir, miembros titulares y suplentes de Junta Directiva. | ¢1.000.000
+Titulares subordinados, es decir, gerentes y subgerentes, y directores. | ¢700.000
+Responsables titulares, es decir, jefes de Departamento y encargados de recaudar, custodiar y trasegar fondos y valores, es decir, personal que realiza labores de tesorería, labores de caja chica y fondos fijos, recaudación directa de ingresos por venta de servicios, trámite ante entidades financieras u otras que impliquen manejo ordinario de valores y compras en efectivo. | ¢500.000 (*)
+(*) Monto mínimo fijado por disposición de la Contraloría General de la República mediante oficios DI-CR-118 Nº 03059 de fecha 26-03-2003 y DI-CR-165 Nº 04440 de fecha 05-05-2003.
