@@ -1,0 +1,1 @@
+Artículo 6º—La Junta Directiva del Colegio de Abogados de Costa Rica dará la suficiente publicidad para promover la participación de interesados y fijará la fecha límite para recibir nombres de candidatos.

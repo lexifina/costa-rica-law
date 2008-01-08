@@ -1,0 +1,1 @@
+Artículo 5º—Para tomar la decisión que concede el Premio, será necesario el acuerdo de por lo menos cuatro miembros del Jurado y será comunicada a la Junta Directiva del Colegio como recomendación para que ésta disponga en definitiva. El Jurado podrá declarar desierto el Premio si no existieren, a su juicio, personas idóneas para su otorgamiento.

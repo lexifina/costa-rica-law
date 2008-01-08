@@ -1,0 +1,1 @@
+Artículo 4º—Durante el mes de enero de cada año, la Junta Directiva del Colegio de Abogados de Costa Rica integrará el Comité o Jurado encargado de la escogencia de la persona merecedora del Premio. El Jurado se integrará con: a.- Tres miembros de la Junta Directiva del Colegio de Abogados y b.- Dos miembros de la Junta Directiva del Instituto Costarricense de Derecho Notarial.
