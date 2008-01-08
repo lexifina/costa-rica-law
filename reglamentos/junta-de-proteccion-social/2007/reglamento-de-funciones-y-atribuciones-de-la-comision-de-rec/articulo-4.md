@@ -1,0 +1,2 @@
+Artículo 4º—Quórum: Para sesionar válidamente se requiere de la presencia de la totalidad de los miembros de la Comisión. Las decisiones se tomarán por mayoría simple de sus integrantes. En caso de empate la Presidencia contará con doble voto. El resultado de las votaciones se hará constar en las actas correspondientes.
+En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, los miembros de la Comisión serán sustituidos por los funcionarios que normalmente los sustituyen.

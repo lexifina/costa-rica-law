@@ -1,0 +1,1 @@
+Artículo 3º—Sesiones: La Comisión sesionará ordinariamente una vez a la semana siempre y cuando haya asuntos que tratar, en el día y la hora que sus miembros lleguen a determinar y extraordinariamente cada vez que lo considere necesario.

@@ -1,0 +1,3 @@
+Artículo 9º—De las actas: De cada sesión se levantará un acta, que contendrá la indicación de los miembros asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos de recomendación.
+Las actas deberán ser firmadas por todos los miembros de la Comisión y deben ser asentadas en un Libro legalizado por la Auditoría Interna.
+Los miembros de la Comisión podrán hacer constar en el acta su voto contrario al acuerdo de recomendación adoptado y los motivos que lo justifiquen.
