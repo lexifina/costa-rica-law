@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Ámbito de acción
+Artículo 29.—El Auditor Interno deberá definir y mantener actualizado el ámbito de acción o jurisdicción de la auditoría interna para llevar a cabo la fiscalización de las operaciones económicas y financieras; revisar los sistemas, procedimientos, registros y el manejo de fondos y bienes en general de todos los organismos y dependencias del Consejo que administren o recauden fondos de cualquier procedencia; y todas las instituciones públicas o privadas financiadas total o parcialmente con fondos públicos. Lo anterior con fundamento en el artículo 22, inciso a), de la Ley General de Control Interno.

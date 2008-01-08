@@ -1,0 +1,1 @@
+Artículo 28.—El Auditor Interno deberá ajustarse a criterios actualizados y pertinentes a fin de establecer conforme al marco legal, reglamentario y técnico, las mejores metodologías, procedimientos y prácticas profesionales que utilizará para contribuir con los procesos de riesgo, control y dirección institucionales.

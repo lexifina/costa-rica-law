@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Auditor Interno y Subauditor Internos
+Artículo 19.—El Auditor y Subauditor internos, serán nombrados considerando lo establecido en el artículo 31 de la Ley General de Control Interno y seguir el procedimiento que contempla los “Lineamientos sobre requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento de dichos cargos, publicado en el Diario Oficial La Gaceta Nº 236 del 08 de diciembre del 2006. Las funciones de dichos cargos están establecidas en el Manual de Cargos de la Auditoría Interna del Consejo Nacional de Rehabilitación y Educación Especial”

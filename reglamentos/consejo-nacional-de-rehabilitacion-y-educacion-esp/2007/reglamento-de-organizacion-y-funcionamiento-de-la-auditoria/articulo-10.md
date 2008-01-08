@@ -1,0 +1,1 @@
+Artículo 10.—Los funcionarios de la auditoría interna en el ejercicio de sus potestades actuará con total independencia funcional y de criterio respecto del jerarca, y de los demás funcionarios de la administración activa.

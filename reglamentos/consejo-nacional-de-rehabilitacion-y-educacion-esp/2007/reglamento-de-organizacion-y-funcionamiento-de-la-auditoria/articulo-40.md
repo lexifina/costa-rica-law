@@ -1,0 +1,1 @@
+Artículo 40.—Además, cuando se trate de comunicaciones de Auditoría, referentes a solicitudes de información o documentación para algún estudio, ésta determinará el plazo dentro del cual la Administración deberá remitirla.

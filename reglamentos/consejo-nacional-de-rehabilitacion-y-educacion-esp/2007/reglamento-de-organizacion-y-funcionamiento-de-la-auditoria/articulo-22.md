@@ -1,0 +1,1 @@
+Artículo 22.—El Auditor Interno ejercerá sus funciones en relación con todas las direcciones y demás dependencias de la institución, mediante delegación de funciones en cualquier funcionario idóneo bajo su dirección, quien será responsable del trabajo que se le asigne, de conformidad con el principio de delegación establecido en la Ley General de la Administración Pública.

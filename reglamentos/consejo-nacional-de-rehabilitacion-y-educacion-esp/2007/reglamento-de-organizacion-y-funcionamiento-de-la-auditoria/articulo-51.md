@@ -1,0 +1,1 @@
+Artículo 51.—Cuando se trate de informes dirigidos a la Junta Directiva, el plazo será de treinta días hábiles, improrrogables. Si la Junta Directiva discrepa de las situaciones comunicadas por la Auditoría, deberá proceder conforme lo dispuesto al respecto, en el artículo 38 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 50.—En caso de que la Administración discrepe con la Auditoría sobre las situaciones comunicadas, se procederá de acuerdo con lo dispuesto en este sentido, en el artículo 36 de la Ley General de Control Interno.
