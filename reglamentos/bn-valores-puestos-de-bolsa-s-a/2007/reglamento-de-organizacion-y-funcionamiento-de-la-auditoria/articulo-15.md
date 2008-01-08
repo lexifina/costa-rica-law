@@ -1,0 +1,1 @@
+Artículo 15.—La Auditoría Interna de BN Valores Puesto de Bolsa S. A. propiciará una relación de estrecha coordinación y cooperación sistemática y debidamente organizada con la Auditoría Interna del Banco Nacional de Costa Rica en forma total o parcial, teniendo presente su propia independencia funcional.

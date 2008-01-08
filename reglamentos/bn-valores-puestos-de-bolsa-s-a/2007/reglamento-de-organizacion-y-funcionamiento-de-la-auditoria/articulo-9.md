@@ -1,0 +1,1 @@
+Artículo 9º—El Auditor Interno y sus subalternos no podrán pertenecer ni ejercer funciones de ninguna otra unidad administrativa de BN Valores Puesto de Bolsa, S.A., y tampoco ser miembros de juntas directivas, comités, comisiones de trabajo o similares; con excepción del Comité de Auditoría Corporativo u otro que la función de auditoría así lo amerite.
