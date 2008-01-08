@@ -1,0 +1,4 @@
+Artículo 25.—De los informes.
+a. La Dirección de Logística por medio del Departamento de Recursos Humanos debe remitir trimestralmente a la Gerencia General, un informe de los viajes tramitados.
+b. Todo funcionario que efectúe un viaje de trabajo o de estudio en el exterior, debe rendir un informe de resultados al superior jerárquico, adjuntar copia del mismo a la liquidación del viaje y cuando se trate de capacitación, enviar copia al Departamento de Recursos Humanos.
+c. Los señores miembros de la Junta Directiva, Gerente General, y Subgerente y Auditor, deben presentar su informe de viaje directamente a la Junta Directiva, en forma verbal o escrita, en una de las dos sesiones siguientes al regreso del viaje, indicando los resultados obtenidos. De dicho informe debe quedar constancia en el acta de la sesión correspondiente.

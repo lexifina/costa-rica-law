@@ -1,0 +1,1 @@
+Artículo 27.—Normativa prevaleciente. Se entiende que sobre el presente reglamento, prevalece lo expresamente normado por la Contraloría General de la República en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, aprobado por ese órgano (R-CO-1-2007, de las 15:00 horas del 22 de enero del 2007; publicado en La Gaceta Nº 26 del martes 6 de febrero).
