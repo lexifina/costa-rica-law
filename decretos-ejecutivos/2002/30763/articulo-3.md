@@ -1,1 +1,0 @@
-Artículo 3º—La aplicación de los principios, criterios e indicadores en plantaciones forestales es voluntaria y se rige por el Principio 10 del Decreto Ejecutivo Nº 27388-MINAE publicado en La Gaceta Nº 212 del 2 de noviembre de 1998.
