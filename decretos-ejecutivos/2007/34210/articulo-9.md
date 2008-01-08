@@ -1,0 +1,1 @@
+Artículo 9º—Del financiamiento. El Programa será financiado en el año 2008, mediante recursos provenientes del Presupuesto Nacional, del Fondo de Desarrollo de Asignaciones Familiares (FODESAF), del MEP, del IMAS, de FONABE, así como de otros aportes de entidades nacionales e internacionales.

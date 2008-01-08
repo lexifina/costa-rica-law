@@ -1,0 +1,4 @@
+Artículo 3º—Del Componente Incentivo para el Ahorro.
+1. El objetivo de este componente es otorgar un incentivo adicional a las y los estudiantes beneficiarios del Programa Avancemos, de manera que al término de su Bachillerato en Educación Media cuenten con un fondo que pudiesen emplear para: proseguir estudios universitarios, parauniversitarios o de carácter técnico/vocacional, mejoramiento en el dominio de una segunda lengua, capital semilla para el montaje de un emprendimiento productivo, adquisición de equipo de cómputo, u otro uso para el mejoramiento de sus condiciones de vida.
+2. La ejecución de este componente iniciará con la cohorte que apruebe noveno año de la Educación General Básica al finalizar el 2008.
+3. La Secretaría Técnica elaborará el reglamento de funcionamiento de dicho componente en el primer trimestre del año 2008.
