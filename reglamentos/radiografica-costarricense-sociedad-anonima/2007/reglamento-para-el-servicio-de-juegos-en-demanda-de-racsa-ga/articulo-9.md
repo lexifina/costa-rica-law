@@ -1,0 +1,1 @@
+Artículo 9º—Sobre los tribunales aplicables. Cualquier disputa en relación con el servicio GameX se ventilará única y exclusivamente en los tribunales costarricenses o mediante resolución alterna de conflictos; la sede en caso de conciliación o arbitraje será Costa Rica.
