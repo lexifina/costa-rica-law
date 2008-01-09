@@ -3,34 +3,10 @@ LA ASAMBLEA LEGISLATIVA
 DE LA
 REPUBLICA DE COSTA RICA
 DECRETA:
-ARTICULO 16.- Autorízase al Estado y sus instituciones y a los
-gobiernos locales, para que traspasen, vendan o donen bienes muebles e
-inmuebles de su propiedad, según el detalle que se indica a
-continuación:
-1º.- Autorízase al Ministerio de Educación Pública para que
-hipoteque las siguientes propiedades inscritas a su nombre: Finca "La
-Llovizna", con un área total de 16 hectáreas 99019,74 metros cuadrados,
-resultado de la unión de dos fincas: la menor con un área de 7 hectáreas
-6423,16 metros cuadrados inscrita en el Registro Público en el tomo
-1461, folio 492, número 128823, asiento 13, y la finca mayor con un área
-de 8 hectáreas 3867.52 metros cuadrados, inscrita en el Registro Público
-en el tomo 1680, folio 42, número 011518, asiento 37, ambas ubicadas en
-la calle Tornillal en San Jerónimo, distrito segundo, cantón
-décimocuarto, Moravia, provincia de San José; datos según el plano
-catastrado S.J. 748340-88. La hipoteca se hará con el objeto de
-ofrecerlas en garantía hipotecaria, para la obtención de un préstamo,
-a fin de construir un centro de convenciones para uso de dicho
-Ministerio.
-2º.- Autorízase al Instituto Costarricense de Electricidad (ICE)
-para que le done al Instituto Costarricense de Turismo (ICT) un área de
-aproximadamente diez hectáreas de terreno, ubicadas en la presa
-Sangregado en el Lago de Arenal; coordenadas LATITUD: entre 2705 y 2720,
-LONGITUD: entre 4530 y 4540, hoja I.G.N. Tilarán, 3247 III. Este terreno
-será utilizado en la construcción del proyecto Parque de Recreación y
-Servicios Múltiples del Lago de Arenal.
-3º.- Autorízase a la Junta de Educación de la Escuela Filomena
-Blanco de Vista de Mar de Goicoechea para que venda las fincas de su
-propiedad que se detallan a continuación:
+ARTICULO 16.- Autorízase al Estado y sus instituciones y a los gobiernos locales, para que traspasen, vendan o donen bienes muebles e inmuebles de su propiedad, según el detalle que se indica a continuación:
+1º.- Autorízase al Ministerio de Educación Pública para que hipoteque las siguientes propiedades inscritas a su nombre: Finca "La Llovizna", con un área total de 16 hectáreas 99019,74 metros cuadrados, resultado de la unión de dos fincas: la menor con un área de 7 hectáreas 6423,16 metros cuadrados inscrita en el Registro Público en el tomo 1461, folio 492, número 128823, asiento 13, y la finca mayor con un área de 8 hectáreas 3867.52 metros cuadrados, inscrita en el Registro Público en el tomo 1680, folio 42, número 011518, asiento 37, ambas ubicadas en la calle Tornillal en San Jerónimo, distrito segundo, cantón décimocuarto, Moravia, provincia de San José; datos según el plano catastrado S.J. 748340-88. La hipoteca se hará con el objeto de ofrecerlas en garantía hipotecaria, para la obtención de un préstamo, a fin de construir un centro de convenciones para uso de dicho Ministerio.
+2º.- Autorízase al Instituto Costarricense de Electricidad (ICE) para que le done al Instituto Costarricense de Turismo (ICT) un área de aproximadamente diez hectáreas de terreno, ubicadas en la presa Sangregado en el Lago de Arenal; coordenadas LATITUD: entre 2705 y 2720, LONGITUD: entre 4530 y 4540, hoja I.G.N. Tilarán, 3247 III. Este terreno será utilizado en la construcción del proyecto Parque de Recreación y Servicios Múltiples del Lago de Arenal.
+3º.- Autorízase a la Junta de Educación de la Escuela Filomena Blanco de Vista de Mar de Goicoechea para que venda las fincas de su propiedad que se detallan a continuación:
 Tomo Folio Número Asiento Area M²
 A. 858 67 52764 6 10688,42
 2817 278 7
@@ -161,8 +137,7 @@ almacén de abarrotes.
 que le done terrenos de su propiedad, ubicados en el INVU Las Cañas de
 Alajuela, a la Asociación de Desarrollo Integral de la Comunidad de El
 INVU Las Cañas, para desarrollar en ellos programas de vivienda.
-22.- Autorizase al Instituto de Desarrollo Agrario para que segregue y le done a la Asociación pro Construcción del Parque Recreativo del Norte, un lote de hasta 25.000,06 metros cuadrados (veinticinco mil metros cuadrados seis decímetros cuadrados), que colinda al norte con calle pública, al este con urbanización Los Colegios, al sur con el Instituto de Desarrollo Agrario y al oeste con la Sucesión Rivera López.
-Esta finca está inscrita en el partido de San José, tomo 2652, folio 13, Nº 267183, asiento 1, situada en los distritos Anselmo Llorente y San Vicente de los cantones de Tibás y Moravia. Este terreno se utilizará exclusivamente en la construcción del proyecto denominado Parque Recreativo del Norte.
+22.-Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 56-08, del 09 de enero del 2008.)
 23.-Autorízase a la Municipalidad de Vásquez de Coronado para que
 compre el lote de 1.710,29 metros cuadrados, inscrito en el partido de
 San José, folio real número 1-322370-000, para construir en él un centro
