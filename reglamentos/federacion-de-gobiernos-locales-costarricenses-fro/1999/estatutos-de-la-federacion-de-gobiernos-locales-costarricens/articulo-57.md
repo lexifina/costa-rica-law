@@ -1,1 +1,2 @@
-Artículo 57.—La Federación puede solicitar a los gobiernos locales signatarios y a las instituciones públicas correspondientes, el persona técnico y administrativo que necesite para el cumplimento de su funciones.
+Artículo 57.—Los gobiernos locales signatarios autorizan a la Contraloría General de la República a presupuestar de oficio la cuota anual para esta Federación, cuando alguno de éstos no incluyere la partida en el presupuesto ordinario conforme lo establece el inciso a) del artículo cincuenta y uno del presente estatuto.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 52 al 57 actual).

@@ -14,3 +14,4 @@ Estatutos de la Federación de Gobiernos Locales Costarricenses Fronterizos con 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-01 | la propia norma |
+| 2 | 2008-01-09 | Reglamento 1 (2008-01-09) |

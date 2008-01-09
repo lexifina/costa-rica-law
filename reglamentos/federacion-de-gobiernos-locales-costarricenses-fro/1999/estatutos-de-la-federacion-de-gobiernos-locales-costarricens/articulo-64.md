@@ -1,0 +1,2 @@
+Articulo 64.—Los alcaldes municipales constituyen la Comisión Técnica Especial de Apoyo de la Federación, cuyas funciones se definirá en el respectivo reglamento. Esta Comisión estará obligada a rendir un informe cuando el Concejo Directivo así lo solicite.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 59 al 64 actual)

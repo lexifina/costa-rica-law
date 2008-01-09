@@ -1,1 +1,8 @@
-Artículo 58.—El personal municipal o de otras instituciones públicas que se traslade a prestar sus servicios a la Federación, conservar en ésta todos los derechos adquiridos en su relación laboral con 1 Corporación Municipal y en caso de regresar a la Municipalidad Institución, se incorporará al puesto que dejó con todos los derechos jerarquía que tenía al salir o que hubiesen aumentado en el transcurso del tiempo servido a la Federación.
+CAPÍTULO XIV
+De la extinción
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo capítulo XII al capítulo XIV actual)
+Artículo 58.—La Federación podrá extinguirse por cualquiera de las siguientes causales:
+a) Cuando el número de gobiernos locales que la integran sea inferior a la mitad.
+b) Cuando así lo soliciten las dos terceras partes de los gobiernos locales asociados.
+c) Cuando se hayan conseguido sus fines.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 53 al 58 actual)

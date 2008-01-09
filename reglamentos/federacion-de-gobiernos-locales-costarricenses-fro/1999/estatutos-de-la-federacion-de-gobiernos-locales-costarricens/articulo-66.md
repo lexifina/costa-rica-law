@@ -1,0 +1,2 @@
+Artículo 66.—La Unión Nacional de Gobiernos Locales y el Instituto de Fomento y Asesoría Municipal podrán designar un representante a la Federación, quienes asistirán cuando sean convocados para efectos de asesoría, y tendrán únicamente derecho a voz.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 61 al 66 actual)

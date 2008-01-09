@@ -1,6 +1,2 @@
-CAPÍTULO XII
-De la extinción
-Artículo 53.—La Federación podrá extinguirse por cualquiera de las siguientes causales:
-a) Cuando el número de gobiernos locales que la integran sea inferior a la mitad.
-b) Cuando así lo soliciten las dos terceras partes de los gobiernos locales asociados.
-c) Cuando se hayan conseguido sus fines.
+Artículo 53.—El órgano fiscal estará conformado por un fiscal propietario que será escogido de los delegados a la asamblea y elegido por ésta, su nombramiento será por dos años pudiendo ser reelecto. Deberá ser persona de reconocida solvencia moral.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 48 al 53 actual)

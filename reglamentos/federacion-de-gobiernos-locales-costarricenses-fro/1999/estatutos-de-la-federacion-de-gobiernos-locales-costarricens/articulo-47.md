@@ -1,3 +1,2 @@
-CAPÍTULO X
-De la Fiscalía
-Artículo 47.—La vigilancia de la Federación estará a cargo de un órgano fiscal, que será el encargado de controlar los aspectos relativos al cumplimiento de los estatutos y las obligaciones que ellos imponen a los delegados, directivos y director ejecutivo, así como también la legalidad de las actuaciones de la Federación.
+Artículo 47.—La Federación cubrirá el salario, transportes y viáticos del Director Ejecutivo.
+(Así corrida su numeración mediante Asamblea General Extraordinaria N° 001 celebrada el 9 de enero del 2008, que lo traspasó del antiguo artículo 44 al 47 actual).
