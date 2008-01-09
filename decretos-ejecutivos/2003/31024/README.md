@@ -15,3 +15,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas
 | --- | --- | --- |
 | 1 | 2003-03-12 | la propia norma |
 | 2 | 2007-02-21 | Decreto Ejecutivo 33694 (2007-02-21) |
+| 3 | 2008-01-09 | Decreto Ejecutivo 34427 (2008-01-09) |
