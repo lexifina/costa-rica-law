@@ -14,3 +14,4 @@ Reglamento de Subvenciones a las Entidades Deportivas y Recreativas Gubernamenta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2008-01-09 | Reglamento 0 (2008-01-09) |
