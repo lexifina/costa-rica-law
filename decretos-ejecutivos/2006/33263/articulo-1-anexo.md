@@ -86,7 +86,19 @@ CEREALES
 10.01 - 10.08 - Un cambio a la partida 10.01 a 10.08 desde cualquier otro capítulo.
 CAPÍTULO 11:
 PRODUCTOS DE LA MOLINERÍA; MALTA; ALMIDÓN Y FÉCULA; INULINA; GLUTEN DE TRIGO
+11.01 Un cambio a la partida 11.01 desde cualquier otro capítulo.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
 11.01 - 11.03 - Un cambio a la partida 11.01 a 11.03 desde cualquier otro capítulo.
+1102.10 – 1102.20 Un cambio a la subpartida 1102.10 a 1102.20 desde cualquier otro capítulo.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
+1102.90.10 Un cambio al inciso 1102.90.10 desde cualquier otro capítulo.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
+1102.90.20 Un cambio al inciso 1102.90.20 desde cualquier otra partida.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
+1102.90.30 - 1102.90.90 Un cambio al inciso 1102.90.30 a 1102.90.90 desde cualquier otro capítulo.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
+11.03 Un cambio a la partida 11.03 desde cualquier otro capítulo.
+(Así adicionada la anterior Regla de Origen Específica, por Resolución N° 218-2007, aprobada por decreto ejecutivo N° 34309 del 9 de enero de 2008)
 1104.12 - Un cambio a la subpartida 1104.12 desde cualquier otra subpartida.
 1104.19.10 - Un cambio al inciso 1104.19.10 desde cualquier otra subpartida.
 1104.19.90 - Un cambio al inciso 1104.19.90 desde cualquier otro capítulo.
