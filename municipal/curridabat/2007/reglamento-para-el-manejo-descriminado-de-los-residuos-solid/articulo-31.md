@@ -1,0 +1,1 @@
+Artículo 31.—La Municipalidad no asume la recolección de desechos sólidos no reciclables del comercio, en tanto que esos desechos sean materia prima o el resultado de procesos industriales, de manufactura o similares.

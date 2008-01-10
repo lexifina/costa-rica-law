@@ -1,0 +1,1 @@
+Artículo 13.—La Municipalidad promoverá la colocación de contenedores para el acopio de desechos secos aprovechables en los centros comerciales más importantes del cantón, en coordinación con la empresa privada y la industria.

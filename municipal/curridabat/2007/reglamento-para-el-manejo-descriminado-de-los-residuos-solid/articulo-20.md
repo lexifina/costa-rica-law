@@ -1,0 +1,1 @@
+Artículo 20.—Queda terminantemente prohibida la colocación de animales muertos, materiales químicos, objetos punzocortantes, biopeligrosos y generadores de posibles enfermedades, en recipientes de desechos sólidos húmedos o secos.

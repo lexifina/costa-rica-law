@@ -1,0 +1,1 @@
+Artículo 17.—Los generadores de desechos deben separar los materiales en los siguientes grupos: desechos sólidos secos (reciclables) y desechos húmedos (no reciclables) y colocar los respectivos materiales en el horario de su recolección.

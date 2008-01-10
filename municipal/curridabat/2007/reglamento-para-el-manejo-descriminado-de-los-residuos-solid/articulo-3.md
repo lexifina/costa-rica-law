@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad establecerá un sistema discriminado de recolección, acarreo y disposición de los desechos sólidos y lo promoverá en las comunidades por medio de una campaña permanente de educación y capacitación ambiental y cívica.

@@ -1,0 +1,1 @@
+Artículo 28.—Los vehículos públicos y privados utilizados para el transporte de residuos, deben reunir las condiciones exigidas por el Ministerio de Salud, para evitar la dispersión de los desechos, o el escurrimiento de líquidos en el camino.

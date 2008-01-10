@@ -1,0 +1,1 @@
+Artículo 37.—La Dirección de Operaciones vigilará la implementación y operación del Sistema de Manejo Discriminado de Desechos Sólidos Húmedos y Secos, así como su evacuación y mejora continua de los servicios respectivos.

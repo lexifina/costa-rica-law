@@ -1,0 +1,2 @@
+Artículo 12.—La Municipalidad podrá establecer un servicio de recolección de escombros, previa solicitud y pago de una tarifa especial, o autorizar su recolección y disposición por medio de empresas privadas, previa revisión de los vehículos a utilizar y del relleno sanitario o del sitio final de confinamiento.
+Además, para los efectos, la Municipalidad establecerá y dispondrá de un registro de proveedores de dichos servicios.

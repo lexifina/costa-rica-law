@@ -1,0 +1,1 @@
+Artículo 23.—Los generadores de residuos, están obligados a separar y almacenar los desechos dentro de su propiedad o, en un lugar común con otros negocios o comercios, donde deben asegurarse condiciones adecuadas de higiene y seguridad, de acuerdo al reglamento respectivo del Ministerio de Salud.

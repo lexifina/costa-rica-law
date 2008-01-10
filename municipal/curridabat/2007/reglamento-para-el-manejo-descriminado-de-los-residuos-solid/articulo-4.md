@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad, en conjunto con el Ministerio de Educación Pública, promoverá la inclusión del manejo discriminado de los desechos sólidos en el currículum de la educación formal, así como por medio de la promoción y el apoyo de iniciativas institucionales para el acopio de materiales reciclables.

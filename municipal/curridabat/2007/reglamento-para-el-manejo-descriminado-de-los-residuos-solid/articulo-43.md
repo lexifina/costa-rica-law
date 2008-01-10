@@ -1,0 +1,2 @@
+Artículo 43.—En la selección o el traslado interno de personal responsable de trámites o servicios municipales referidos al ámbito de aplicación de este Reglamento, se dará énfasis especial a las personas con conocimientos, experiencia y antecedentes en materia ambiental.
+Asimismo, la Administración está en la obligación de cumplir con los artículos 134, 135, 136, 137, 139 y 141 del Código Municipal, en cuanto a la evaluación y calificación del servicio y la aplicación de incentivos y sanciones a los funcionarios municipales.

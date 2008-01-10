@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad por medio de su Dirección de Operaciones organizará la programación de la recolección discriminada en las comunidades, según se detalla en el artículo 9º del presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 41.—Se establecerá un depósito de garantía, a cobrar a los organizadores de eventos especiales y espectáculos públicos a realizarse en lugares públicos, la cual se calculará según el tipo de actividad y con base en los costos estimados para la limpieza, el transporte y la disposición final de los desechos generados.
+Dicho depósito de devolverá cuando los organizadores comprueben el estado de limpieza, la mañana siguiente a la actividad, por medio del visto bueno de la Dirección de Operaciones.

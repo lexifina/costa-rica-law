@@ -1,0 +1,1 @@
+Artículo 16.—Las canastas utilizadas para la colocación de los desechos deben evitar que éstos se mojen, se dispersen en el lugar, emita olores molestos o atraigan animales domésticos, plagas, insectos o roedores, siendo la limpieza del lugar obligación del dueño de la propiedad.

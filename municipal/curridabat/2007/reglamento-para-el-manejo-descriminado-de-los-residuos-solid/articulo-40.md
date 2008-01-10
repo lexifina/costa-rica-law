@@ -1,0 +1,1 @@
+Artículo 40.—Las observaciones que la Municipalidad, realice en sus inspecciones o por denuncias, serán canalizadas a través de la Dirección de Operaciones para ante la Alcaldía y él o los representantes de la entidad involucrada.

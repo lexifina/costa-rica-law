@@ -1,0 +1,1 @@
+Artículo 26.—Los grandes generadores de residuos sólidos húmedos y secos, pueden contratar los servicios de recolección con una empresa privada, siempre que esta cumpla con los requisitos sanitarios contemplados en las leyes y reglamentos del caso.
