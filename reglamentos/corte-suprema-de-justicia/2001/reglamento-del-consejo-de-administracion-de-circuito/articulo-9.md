@@ -1,2 +1,4 @@
-Artículo 9°—La revocatoria del nombramiento del integrante como empleado o funcionario judicial conlleva la de integrante de! Consejo; su suspensión la sustitución iempora.1,
-La no asistencia a tres sesiones del Consejo en forma consecutiva conlleva la revocatoria del nombramiento como integrante de éste.
+Artículo 9: La revocatoria del nombramiento del integrante como empleado o funcionario judicial conlleva la de integrante del Consejo; su suspensión la sustitución temporal.
+La inasistencia a tres sesiones del Consejo de forma consecutiva conlleva la revocatoria del nombramiento como integrante de éste, previa audiencia al interesado por el plazo de 3 días contados a partir de la notificación respectiva, para el ejercicio del derecho de defensa, por cuanto la asistencia a sesiones es un deber impuesto por el artículo 13 del Reglamento, y la infracción al cumplimiento de éste, eventualmente podría ser objeto de aplicación del régimen disciplinario.
+Dispuesta la revocatoria por el Consejo de Administración, la designación del nuevo integrante no podrá recaer en el revocado, al menos para un período o designación consecutiva.
+(Así reformado mediante sesión N° 32 del 3 de diciembre de 2007, y publicado en El Boletín Judicial N° 33 del 15 de febrero de 2008 mediante circular N° 011 del 10 de enero de 2008)
