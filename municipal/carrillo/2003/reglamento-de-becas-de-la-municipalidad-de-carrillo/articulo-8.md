@@ -1,2 +1,2 @@
-Artículo 8º—La nota inferior a setenta (70) en alumnos del Cuarto Ciclo (IV) y Universitario elimina el derecho al disfrute de este beneficio.
-(Así reformado en sesión ordinaria N° 42-04, celabrada el 19 de octubre del 2004)
+Artículo 8º— La nota inferior a 65 en alumnos de Secundaria y 70 en alumnos de Enseñanza Superior, elimina el disfrute de este beneficio.
+(Así reformado mediante acuerdo 2 de la sesión 01 del 10 de enero de 2008)

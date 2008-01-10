@@ -1,1 +1,2 @@
-Artículo 17.—Los becados serán nueve (9) en Secundaria para los distritos de Filadelfia, Sardinal, Belén. Para el distrito de Palmira serán siete (7).
+Artículo 17.—Los becados serán (10) diez en Secundaria para los cuatro distritos del Cantón Carrillo.
+(Así reformado mediante acuerdo 2 de la sesión N° 01 del 10 de enero de 2008)
