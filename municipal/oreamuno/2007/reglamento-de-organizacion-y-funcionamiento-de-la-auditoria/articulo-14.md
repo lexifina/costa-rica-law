@@ -1,0 +1,5 @@
+CAPÍTULO TERCERO
+Ubicación
+Artículo 14.—Ubicación y estructura. La auditoría interna en la estructura organizativa se ubica como un órgano asesor de muy alto nivel dentro de la estructura organizacional de la Municipalidad de Oreamuno, dependiente orgánicamente del Concejo Municipal.
+La auditoría interna se organizará y funcionará conforme lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno, según lo disponga el auditor interno, considerando los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnico-jurídicas y las sanas prácticas correspondientes. Es responsabilidad del auditor interno disponer para su unidad de una estructura organizativa concordante con la razón de ser y la normativa que regula a la Municipalidad de Oreamuno.
+La estructura organizativa de la Auditoría Interna de la Municipalidad de Oreamuno esta compuesta por una Auditora Interna nombrada a tiempo completo y un asistente administrativo a medio tiempo.

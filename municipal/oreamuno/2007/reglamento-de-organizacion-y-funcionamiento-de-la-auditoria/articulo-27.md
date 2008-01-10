@@ -1,0 +1,11 @@
+Artículo 27.—Admisibilidad de las denuncias. Para los efectos de admitir una denuncia, esta deberá podrá presentarse en forma escrita, o verbal la cual se registrará mediante un acta la cual será firmada por el denunciante en el momento de interponer la misma, contemplando al menos los siguientes elementos:
+a) Nombre completo, número de cédula, dirección exacta y número de teléfono del denunciante.
+b) Detalle del o los asuntos denunciados.
+c) Nombre completo y datos de permitan ubicar al denunciado.
+d) Completar formulario interno para estos casos.
+e) Adjuntar documentación pertinente como prueba de lo denunciado, en original y copia para ser confrontado.
+f) Señalar medio y lugar para notificaciones.
+Procedimiento a seguir para la admisibilidad de denuncias. El proceso inicia cuando el administrado se presenta a la Unidad de Auditoría Interna a presentar una denuncia o queja. Junto a esta se reciben los documentos y, de ser necesario, se levanta un acta. Se consignan los documentos con sello de recibido y se hace constar mediante sello firmado si las copias son fieles y exactas de su original.
+Una vez recibidos los documentos correspondientes se determina si la queja o denuncia recibida es competencia de la Auditoría Interna. Si no es competencia de la Auditoría, se hace el traslado a la Unidad competente y se le comunica al Administrado.
+En el caso de que la denuncia sea competencia de la Auditoría, esta verifica los requisitos. Si los documentos no están conforme, lo comunica así al Administrado, indicándole que cuenta con 10 días hábiles para corregir la situación, según el artículo 6º de la Ley Nº 8220.
+Si los documentos están conforme, se procede a efectuar un estudio previo, para determinar si procede o no la realización del estudio o su desestimación, una vez realizado el análisis, si se concluye que se debe realizar el estudio, se programará su ejecución o incluirá en el Plan de trabajo, de acuerdo a la importancia del asunto o al volumen de trabajo. Los resultados obtenidos en el estudio se consignarán en el informe de Auditoría, el cual se remitirá a la máxima autoridad competente (Alcalde o Concejo Municipal). La Auditoria Interna procederá a dar seguimiento a las recomendaciones emitidas y comunicar los avances logrados y las deficiencias detectadas a la máxima autoridad competente.

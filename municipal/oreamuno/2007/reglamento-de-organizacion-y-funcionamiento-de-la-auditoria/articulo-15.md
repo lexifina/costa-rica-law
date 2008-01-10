@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+Del auditor y subauditor internos
+Artículo 15.—Jornada laboral y plazo de nombramiento. La jornada laboral del auditor interno será de tiempo completo y su nombramiento es por tiempo indefinido y deberá regirse por lo que al respecto indican los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos”, publicados en La Gaceta Nº 236 del 8 de diciembre de 2006 y cualquier otra regulación que al respecto emita la Contraloría General en el futuro. Lo anterior sin afectar derechos adquiridos y situaciones consolidadas.
