@@ -1,0 +1,2 @@
+Artículo 27.—Rendición de Cuentas. La auditoría interna presentará ante el jerarca un informe de labores anual, y lo mantendrá informado sobre el estado de las recomendaciones. La auditoría interna también podrá presentar reportes que muestren la relación entre los servicios de auditoría establecidos en el Plan de Trabajo Anual y los resultados obtenidos de cada auditoría, estudio especial o servicio preventivo,
+La auditoría interna desarrollará criterios o parámetros para presentar los resultados de su trabajo, como impactó en la gestión institucional y agregó valor.

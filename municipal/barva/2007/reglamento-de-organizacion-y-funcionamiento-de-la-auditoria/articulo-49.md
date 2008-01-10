@@ -1,0 +1,1 @@
+Artículo 49.—Modificaciones al Manual Descriptivo de puestos. El Auditor Interno deberá gestionar ante la administración activa las modificaciones correspondientes al Manual Descriptivo de Puestos, para que el mismo sea ajustado conforme a los lineamientos que al respeto emita la Contraloría General de la República.

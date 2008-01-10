@@ -1,0 +1,1 @@
+Artículo 45.—Apoyo Legal. La asesoría legal de la Institución estará obligada a brindar el oportuno y efectivo servicio mediante la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la auditoría interna, conforme lo estipula el artículo 33, inciso c) de la LGCI.

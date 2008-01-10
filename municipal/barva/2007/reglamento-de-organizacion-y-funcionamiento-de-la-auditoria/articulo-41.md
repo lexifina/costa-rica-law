@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Relaciones y coordinaciones
+Artículo 41.—Marco general de coordinación.
+a) La Auditoría Interna deberá establecer políticas para generar un marco general que contribuya a un mejor desempeño de sus labores, lo anterior con el fin de administrar adecuadamente: el manejo de la coordinación y la relación con el Jerarca, titulares subordinados, u otros sujetos internos o externos de interés, así como, de las relaciones de los demás funcionarios de la Auditoría Interna con los órganos internos y externos de la organización.
+b) En cuanto al Jerarca debe asesorarlo, en materia de su competencia e igualmente advertir a los órganos pasivos que fiscaliza, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento, a fin de proporcionar una gestión preventiva y así propiciar institucionalmente el cumplimiento de las disposiciones legales, reglamentarias y técnicas que rigen la función pública y la protección del patrimonio y recursos públicos.

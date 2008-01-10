@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Ámbito de acción
+Artículo 39.—Sujetos fiscalizados. La Auditoría Interna de la Municipalidad de Barva fiscalizará los procesos y actividades ejecutadas en la Municipalidad, así como en relación con los recursos que por Ley deben ser girados a otros órganos públicos y privados y los recursos que sean girados al Comité Cantonal de Deportes y Recreación de Barva. Lo anterior de conformidad con las competencias establecidas en el artículo 22 inciso a) de la Ley General de Control Interno Nº 8292, y de acuerdo a sus capacidades de Recursos Humanos, Económicos y de otras Naturalezas de acuerdo a su competencia.
