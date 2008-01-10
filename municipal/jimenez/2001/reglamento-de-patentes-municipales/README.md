@@ -15,3 +15,4 @@ Reglamento de Patentes Municipales
 | --- | --- | --- |
 | 1 | 2002-06-06 | la propia norma |
 | 2 | 2005-08-23 | Reglamento municipal 115 (2005-08-23) |
+| 3 | 2008-01-10 | Reglamento municipal 128 (2008-01-10) |
