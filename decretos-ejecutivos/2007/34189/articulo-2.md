@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el artículo 2º del Decreto Ejecutivo Nº 33076-S del 24 de marzo del 2006, publicado en La Gaceta Nº 91 del 12 de mayo del 2006, el cual adiciona un transitorio al Decreto Ejecutivo Nº 32470-S, Reglamento para el Registro Sanitario de Medicamentos que Requieren Demostrar Equivalencia Terapéutica, publicado en La Gaceta Nº 149 del 4 de agosto del 2005.
