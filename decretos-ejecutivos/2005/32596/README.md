@@ -14,3 +14,4 @@ Creación de la Subcomisión Técnica de Indicadores para las Tecnologías de In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-09 | la propia norma |
+| 2 | 2008-01-11 | Decreto Ejecutivo 34278 (2008-01-11) |

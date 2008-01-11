@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32596
+(Este decreto fue derogado por el artículo 15 del decreto ejecutivo N° 34278 del 11 de enero de 2008)
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 En uso de las atribuciones que les confieren los incisos 3) y 18), de los artículos 140 y 146 de la Constitución Política, la Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978 y la Ley de Promoción del Desarrollo Científico y Tecnológico Ley Nº 7169 del 26 de junio de 1990.
 Considerando:
