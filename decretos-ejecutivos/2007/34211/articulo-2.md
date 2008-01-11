@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias de la Administración Pública y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para colaborar con el desarrollo de los proyectos de desalinización del agua marina.

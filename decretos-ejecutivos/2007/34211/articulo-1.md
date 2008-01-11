@@ -1,0 +1,20 @@
+Nº 34211
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE SALUD,
+EL MINISTRO DEL AMBIENTE Y ENERGÍA,
+Y EL MINISTRO DE TURISMO
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3), 18) y 146) de la Constitución Política; 28 inciso b) de la Ley General de Administración Pública; la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”, y en el artículo 2 la Ley Nº 1917 del 29 de julio de 1955 “Ley Orgánica del Instituto Costarricense de Turismo”.
+Considerando:
+1º—Que el Estado debe procurar el mayor bienestar de los ciudadanos, planificando la producción hacia un adecuado reparto de la riqueza, mediante la conservación, protección, uso racional y sostenible de los recursos y riquezas naturales.
+2º—Que la salud de la población es un bien de interés público tutelado por el Estado.
+3º—Que constituye una función esencial del Estado velar por la salud de la población, correspondiéndole al Ministerio de Salud la definición de la política nacional de salud, la normativización, planificación y coordinación de todas las actividades públicas y privadas relativas a la salud.
+4º—Que el recurso hídrico es un bien con valor económico, social y ambiental inapreciable; fundamental y estratégico para el desarrollo sostenible del país, al dinamizar la economía, generar energía limpia, favorecer la construcción de infraestructura sanitaria y tecnológica para vivienda, agraria, turismo, industria y comercio.
+5º—Que la gestión integrada y sostenible de los recursos hídricos del país es un tema de prioridad nacional y que se requiere la adopción de lineamientos generales de política para orientar el accionar de las entidades públicas involucradas.
+6º—Que el Gobierno de la República ha manifestado su clara voluntad de ampliar los espacios de participación de la sociedad civil en la identificación de los problemas nacionales y en la búsqueda de soluciones a los mismos.
+7º—Que la Ley Orgánica del Ambiente en su artículo 2.c. señala que “El Estado velará por la utilización racional de los elementos ambientales, con el fin de proteger y mejorar la calidad de vida de los habitantes del territorio nacional. Asimismo, está obligado a propiciar un desarrollo económico y ambientalmente sostenible, entendido como el desarrollo que satisface las necesidades humanas básicas, sin comprometer las opciones de las generaciones futuras”.
+8º—Que la Ley Constitutiva al Instituto Costarricense de Acueductos y Alcantarillados le confiere al Instituto deberes y atribuciones ineludibles para el cumplimiento de los objetivos para los que fue creada, tal como lo indica el artículo 2º, que reza lo siguiente:
+“Con el objeto de dirigir, (…) y de resolver todo lo relacionado con el suministro de agua potable y recolección de aguas negras y residuos industriales líquidos, lo mismo que el aspecto normativo de los sistemas de alcantarillado pluvial en áreas urbanas para todo el territorio nacional, se crea el Instituto Costarricense de Acueductos y Alcantarillados, como institución autónoma del Estado.”
+9º—Que la Ley Orgánica del Instituto Costarricense de Turismo, Ley Nº 1917 de 9 de agosto de 1955 en su artículo 5 incisos e) y g), establece como una de las funciones del Instituto, velar por la protección y la conservación de los recursos naturales, así como procurar que los visitantes tengan una grata permanencia en el país.
+10.—Que el Gobierno de la República ha manifestado su clara voluntad de apoyar actividades y programas de desalinización del agua de mar, reciclaje del agua y recolección de agua de las nieblas costeras, que sean sostenibles y eficaces en función de los costos y en los que se utilice eficientemente la energía, prestando con ese fin asistencia tecnológica, técnica, financiera y de otra índole. Por tanto,
+Decretan:
+Artículo 1º—Declárese de interés nacional y de alta prioridad los proyectos de iniciativa pública o privada que promuevan procesos de desalinización del agua marina para su posterior aprovechamiento para el consumo humano, riego y demás usos del recurso hídrico.
