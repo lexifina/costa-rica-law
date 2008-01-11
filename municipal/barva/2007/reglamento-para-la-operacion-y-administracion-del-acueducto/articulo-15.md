@@ -1,0 +1,1 @@
+Artículo 15.—De la lectura del hidrómetro. La lectura de los hidrómetros y el cobro se harán mensualmente y se cobrará conforme al metraje cúbico. Se autoriza al Departamento de Acueducto a modificar la periodicidad del rol de lectura, según las necesidades municipales.

@@ -1,0 +1,1 @@
+Artículo 16.—Del pago. Del pago del servicio de agua potable será responsable directo el propietario del bien inmueble al cual está conectado. Por lo que no es causa justificativa el no pago por parte del inquilino, cuando el propietario haya pactado con este último el pago del servicio de agua y este no haya cumplido.
