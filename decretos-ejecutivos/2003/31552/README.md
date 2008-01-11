@@ -14,3 +14,4 @@ Crea Subsistema Nacional de Indicadores de Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-23 | la propia norma |
+| 2 | 2008-01-11 | Decreto Ejecutivo 34278 (2008-01-11) |
