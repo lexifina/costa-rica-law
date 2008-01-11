@@ -1,0 +1,10 @@
+Nº 34241
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en lo dispuesto en los artículos 118 y 140 incisos 5) y 14), de la Constitución Política.
+DECRETAN:
+Artículo 1º—Amplíase la convocatoria a Sesiones Extraordinarias de la Asamblea Legislativa, hecha por el Decreto Ejecutivo 34115-MP del primero de diciembre del dos mil siete:
+Expediente 16.327. LEY DE PROTECCIÓN A LAS OBTENCIONES VEGETALES.
+Expediente 16397. LEY DE FORTALECIMIENTO Y MODERNIZACIÓN DE LAS ENTIDADES PÚBLICAS DEL SECTOR TELECOMUNICACIONES.
+Expediente 16305. LEY REGULADORA DEL MERCADO DE SEGUROS.
+Expediente 16590. APROBACIÓN DEL CONVENIO INTERNACIONAL PARA LA PROTECCIÓN DE LAS OBTENCIONES VEGETALES.
