@@ -1,1 +1,0 @@
-Artículo 5°—El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa de la institución y tampoco ser miembros de juntas directivas, comisiones de trabajo o similares.

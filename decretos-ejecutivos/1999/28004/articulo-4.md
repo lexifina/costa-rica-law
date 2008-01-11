@@ -1,1 +1,0 @@
-Artículo 4°—La Auditoría Interna contará con la organización y personal necesario, que deberá poseer suficiente conocimiento en auditoría, contabilidad, administración y de las disposiciones legales que rigen a la Administración Pública y al Ministerio de Vivienda y Asentamientos Humanos, que lo califiquen para ejercer en forma apropiada las funciones encomendadas.

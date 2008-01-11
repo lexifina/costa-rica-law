@@ -1,1 +1,0 @@
-Artículo 6°:—El Auditor Interno actuara como jefe de personal de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de personal. Además deberá contarse con su anuencia para el nombramiento del personal de auditoría.

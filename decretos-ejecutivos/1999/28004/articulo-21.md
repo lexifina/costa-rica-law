@@ -1,1 +1,0 @@
-Artículo 21.—La Auditoría Interna en caso de considerar necesario levantara un acta de la reunión que se realizará en forma confidencial la cual es señalada en el artículo anterior, en la que se harán constar los asuntos más relevantes ocurridos en la misma y los compromisos asumidos, la que deberá ser firmada por todos los asistentes a dicha conferencia.

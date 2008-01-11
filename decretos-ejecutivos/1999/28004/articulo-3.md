@@ -1,1 +1,0 @@
-Artículo 3°—El nombramiento del Auditor Interno será por tiempo indefinido y su nombramiento será competencia exclusiva del Ministro de Vivienda y Asentamientos Humanos. El Auditor Interno dependerá y responderá directamente por su gestión ante el Ministro y sólo podrá ser removido del cargo por justa causa, conforme al régimen jurídico aplicable.
