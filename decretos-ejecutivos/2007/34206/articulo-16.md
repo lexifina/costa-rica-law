@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento Administrativo tendrá como función la planificación, ejecución, evaluación y control de los recursos financieros, materiales y tecnológicos. Asimismo, será el responsable de la evaluación y control de los recursos humanos que laboren en el Centro Nacional de Recursos para la Educación Inclusiva, contratados por la Fundación Mundo de Oportunidades.

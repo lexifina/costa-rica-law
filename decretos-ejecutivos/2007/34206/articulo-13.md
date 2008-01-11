@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Asesoría en Ayudas Técnicas tendrá como función brindar apoyo a los actores educativos en el uso de las Ayudas técnicas, entendidas éstas, como elementos requeridos por una persona con discapacidad para mejorar su funcionalidad y garantizar su autonomía.

@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Investigación tendrá como función primordial desarrollar iniciativas de investigación científica, orientadas a determinar y actualizar el marco referencial sobre la realidad y necesidades de la población estudiantil con necesidades educativas especiales asociadas a discapacidad.

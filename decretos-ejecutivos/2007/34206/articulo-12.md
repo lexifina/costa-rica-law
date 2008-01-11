@@ -1,0 +1,1 @@
+Artículo 12.—El Departamento de Información tendrá como función recopilar y clasificar información relacionada con procesos educativos inclusivos, que puedan ser facilitados a los usuarios y organismos nacionales e internacionales, competentes en la materia. Para cumplir con esta función contará con un sistema referencial.

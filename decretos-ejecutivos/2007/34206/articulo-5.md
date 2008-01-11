@@ -1,0 +1,1 @@
+Artículo 5º—El Centro Nacional de Recursos para la Educación Inclusiva podrá crear Centros Nacionales de Recursos Afiliados a nivel regional, de conformidad con las necesidades, los estudios técnicos que se lleven a cabo y las posibilidades presupuestarias correspondientes.

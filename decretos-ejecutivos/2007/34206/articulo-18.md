@@ -1,0 +1,1 @@
+Artículo 18.—El personal del Centro Nacional de Recursos para la Educación Inclusiva que nombre la Fundación Mundo de Oportunidades, con fundamento en los convenios de cooperación institucional que ambos suscriban, deberá cumplir con el perfil establecido para cada puesto, de manera que reúna los requisitos y condiciones académicas definidas por el Consejo Directivo.
