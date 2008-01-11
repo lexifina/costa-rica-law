@@ -1,0 +1,1 @@
+Artículo 16.—Modificación de parámetros. Cada tres años a partir de la vigencia de este Reglamento, el Departamento Financiero Contable deberá proponer al superior jerárquico cualquier cambio en los parámetros señalados en el artículo 11 del presente Reglamento, con base en un estudio previo o en su defecto, podrá recomendar que se mantenga los parámetros vigentes.
