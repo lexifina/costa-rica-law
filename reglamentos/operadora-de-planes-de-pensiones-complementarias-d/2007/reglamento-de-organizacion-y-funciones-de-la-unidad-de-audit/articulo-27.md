@@ -1,0 +1,2 @@
+Artículo 27.—Conferencia Final. La Auditoría solicitará audiencia para efectuar la conferencia final, al colaborador responsable de disponer la puesta en operación de las recomendaciones, quien deberá dársela a la mayor brevedad posible a partir de su recibo para concertar su realización.
+Si durante la conferencia final se presentan divergencias sobre la implantación de las recomendaciones o parte de ellas y no se llega a un acuerdo, en la comunicación formal de resultados, la Auditoría consignará las observaciones pertinentes del auditado.

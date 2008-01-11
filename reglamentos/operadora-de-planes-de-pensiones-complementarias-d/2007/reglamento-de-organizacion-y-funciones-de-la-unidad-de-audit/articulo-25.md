@@ -1,0 +1,1 @@
+Artículo 25.—Estructura de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes se aplicará principalmente lo dispuesto en la Ley 8292, las Normas de Auditoría y cualquier lineamiento que al efecto emita la Contraloría General de la República.

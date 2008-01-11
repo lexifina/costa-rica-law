@@ -1,0 +1,16 @@
+# Reglamento (2007-10-24)
+
+Reglamento de Organización y Funciones de la Unidad de Auditoría Interna de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A.
+
+- Tipo: Reglamento
+- Número: 266
+- Fecha: 2007-10-24
+- Ente emisor: Operadora de Planes de Pensiones Complementarias de Banco Popular y Desarrollo Comunal S.A.
+- Publicación: La Gaceta N° 8 del 2008-01-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62124&param2=70825&param3=1 (ficha 62124)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-01-11 | la propia norma |
