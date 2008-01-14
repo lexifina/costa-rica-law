@@ -1,0 +1,1 @@
+Artículo 24.—Control de Pagos. Cada vez que la Unidad Estratégica de Negocios de Comercialización reciba pagos por conceptos de abonos o cancelación en contratos de financiamientos de obras, lo comunicará a la UEN respectiva, así como a la contabilidad, con el objeto de lograr una buena coordinación y mantener un registro actualizado de la operación correspondiente.

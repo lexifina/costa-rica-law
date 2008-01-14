@@ -1,0 +1,1 @@
+Artículo 4º—Oferta y demanda de agua. Anualmente la UEN de Acueductos y Alcantarillado Sanitario presentará a la Junta Directiva en enero, el balance de agua Oferta y Demanda para el servicio de acueducto en los cantones servidos por la Empresa, y estrictamente bajo los criterios de este informe, se otorgarán los servicios para nuevos proyectos habitacionales.

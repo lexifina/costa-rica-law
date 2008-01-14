@@ -1,0 +1,1 @@
+Artículo 50.—Límite del Financiamiento. El límite de financiamiento será el que fije la UEN respectiva anualmente, hasta que se agote la reserva presupuestaria correspondiente. Deberá cada UEN darle prioridad a los proyectos de menor costo percápita. Cada UEN registrará las solicitudes de financiamiento cronológicamente y en ese orden serán atendidas.

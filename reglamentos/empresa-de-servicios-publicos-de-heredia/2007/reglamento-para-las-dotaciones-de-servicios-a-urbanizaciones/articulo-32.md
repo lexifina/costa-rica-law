@@ -1,0 +1,1 @@
+Artículo 32.—Áreas protegidas o de recarga acuífera. No se permitirán urbanizaciones ubicadas en áreas protegidas o de recarga acuífera de la Provincia de Heredia, sin el previo informe ambiental debidamente aprobado por la Autoridad competente; y que no estén provistas de planta de tratamiento de aguas residuales.
