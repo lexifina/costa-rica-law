@@ -14,3 +14,4 @@ Reglamento para Regular las Relaciones entre las Juntas Administrativas de los C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-17 | la propia norma |
+| 2 | 2008-01-14 | Reglamento municipal 86 (2008-01-14) |
