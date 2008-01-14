@@ -1,0 +1,1 @@
+Artículo 40.—Los Comités Comunales se reunirán dos veces al mes, cada quince días. Los miembros que no asistan a cuatro reuniones sin causa justificada perderán su credencial como miembros. Su sustituto será escogido por el Comité Cantonal de una terna que presenten los restantes miembros.

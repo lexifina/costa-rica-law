@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones del Comité Cantonal de Deportes y Recreación, serán convocadas por el presidente de la junta directiva y deberá reunirse por lo menos dos veces al mes, cada quince días. Asimismo, cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente firmada.

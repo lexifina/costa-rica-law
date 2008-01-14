@@ -1,0 +1,1 @@
+Artículo 3º—Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado están inhibidos para integrar el Comité Cantonal y Comunales, según el artículo 167 del Código Municipal.
