@@ -73,8 +73,9 @@ Situaciones de desocupación en el caso de los fondos inmobiliarios. Variable de
 3.9 Prórrogas aprobadas para la presentación de la información periódica, con indicación del plazo otorgado para su presentación.
 3.10 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga.
 (Así reformado por el artículo 3 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003)
-3.11 Compra, venta o valoración de bienes inmuebles que se adquieran para formar parte de la cartera de los fondos de inversión inmobiliarios. Variable de referencia: total de los activos del fondo.
+3.11. Compra, venta o valoración de bienes inmuebles que se adquieran para formar parte de la cartera de los fondos de inversión inmobiliarios. El comunicado sobre la compra de bienes inmuebles debe realizarse de acuerdo con el contenido mínimo establecido en el Anexo Nº 1 de este acuerdo.
 (El inciso anterior fue adicionado por Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+(Así reformado el punto anterior por el artículo 1° del Acuerdo SGV-A-142 del 14 de enero de 2008)
 3.12 Prórrogas aprobadas para la actualización del prospecto, con indicación del plazo otorgado para su presentación.
 (El inciso anterior fue adicionado por Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 4) BOLSAS DE VALORES
