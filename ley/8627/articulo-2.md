@@ -86,4 +86,5 @@ INDICADORES DE RESULTADOS:
 1. Porcentaje de niños atendidos en el servicio de nutrición preventiva con relación a la población potencial de 0 a 13 años.
 2. Porcentaje de niños atendidos en los CEN-CINAI que mejoran su estado nutricional.
 3. Porcentaje de niños atendidos en el servicio de atención y protección diaria con relación a la población potencial de 0 a 13 años.
-(Modificado por el artículo 1° del decreto ejecutivo N° 34304 del 7 de enero de 2008).
+(Modificado por el artículo 1° del decreto ejecutivo N° 34304 del 07 de enero de 2008).
+(Modificado por el artículo 1° del decreto ejecutivo N° 34261 del 15 de enero de 2008).
