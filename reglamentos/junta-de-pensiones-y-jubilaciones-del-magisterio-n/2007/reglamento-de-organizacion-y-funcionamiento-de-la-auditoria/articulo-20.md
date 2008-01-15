@@ -1,0 +1,13 @@
+Artículo 20.—Funciones de la Auditoría. La Auditoría Interna tendrá las siguientes funciones:
+a) Preparar y presentar a conocimiento y aprobación de la Junta Directiva el Plan Anual de Trabajo y el Presupuesto Anual de la Auditoría.
+b) Realizar auditorías o estudios especiales, en cualesquiera de las unidades administrativas de la Junta, conforme a su Plan Anual de Trabajo.
+c) Evaluar en forma periódica el sistema de control interno, en relación con los aspectos contables, financieros y administrativos, con el fin de determinar su cumplimiento, suficiencia y validez.
+d) Comunicar por escrito a la Junta Directiva, Comisión de Auditoría o Dirección Ejecutiva, según corresponda, los resultados de cada auditoría o revisión especial que se lleve a cabo, por medio de estudios o informes; indicando objetivos, alcance, comentarios, conclusiones y recomendaciones, como medio de brindar la asesoría pertinente para mejorar la eficacia y eficiencia en el sistema de control interno y en la gestión financiera y administrativa de la Junta.
+Dichas instancias ordenarán la implementación de las recomendaciones emitidas por la Auditoría Interna, que hayan sido oficialmente aceptadas por el órgano correspondiente.
+e) Establecer un mecanismo para verificar periódicamente el cumplimiento por parte de la administración, de las recomendaciones emitidas en los informes y estudios de Auditoría Interna, Externa y entes reguladores.
+f) Informar de los acuerdos y resoluciones de la Junta Directiva, que no hayan sido cumplidos.
+g) Preparar y remitir a la Junta Directiva un informe semestral de labores, el cual deberá ser presentado durante los sesenta días naturales posteriores a la conclusión del semestre correspondiente.
+h) Realizar el refrendo individual de las resoluciones dictadas por la Junta Directiva, ante las solicitudes interpuestas por los beneficiarios de un derecho, de conformidad con lo establecido en la legislación del Sistema de Pensiones del Magisterio Nacional.
+i) Elaborar y mantener actualizado un Manual de Procedimientos de Auditoría.
+j) Los funcionarios de la Auditoría Interna deben identificar, analizar, evaluar y registrar suficiente información de manera que les permita cumplir con los objetivos del trabajo y el efectivo funcionamiento de la actividad de auditoría. Con respecto al procesamiento de la información, deben tener presente: las cualidades, el análisis y evaluación, el registro, el acceso, la custodia y la supervisión del trabajo.
+k) Ejercer otras funciones inherentes a su competencia, a solicitud especial de la Junta Directiva, Presidencia, Directores, Entes Fiscalizadores, Dirección Ejecutiva o por iniciativa de la Auditoría Interna.

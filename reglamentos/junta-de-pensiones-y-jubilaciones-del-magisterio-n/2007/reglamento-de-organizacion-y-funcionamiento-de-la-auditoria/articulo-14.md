@@ -1,0 +1,3 @@
+Artículo 14.—Presupuesto de la Auditoría. Al Plan Anual de Trabajo deberá anexarse un proyecto de Presupuesto para esta unidad, el cual deberá incluir los requerimientos de recursos humanos y materiales necesarios para el adecuado cumplimiento del plan propuesto, y, en general, para el buen funcionamiento de la Auditoría Interna.
+Dicho proyecto será preparado de manera exclusiva por la Auditoría Interna y requerirá de la aprobación de la Junta Directiva, previo análisis y discusión con el Auditor Interno.
+Cualquier modificación sugerida por la Administración al presupuesto aprobado por la Junta Directiva para la Auditoría Interna, requerirá del consentimiento expreso del titular de la misma y posterior aprobación de la Junta Directiva.

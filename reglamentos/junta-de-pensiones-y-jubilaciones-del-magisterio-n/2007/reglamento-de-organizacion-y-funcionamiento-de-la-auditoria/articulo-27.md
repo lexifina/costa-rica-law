@@ -1,0 +1,1 @@
+Artículo 27.—Informes de naturaleza confidencial. Los informes de carácter confidencial o reservado, por disposición de Junta Directiva o a criterio del Auditor Interno, se harán directamente del conocimiento del Órgano Colegiado para lo que proceda.

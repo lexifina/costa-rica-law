@@ -1,0 +1,1 @@
+Artículo 17.—Colaboración con la Auditoría. Para el adecuado ejercicio de sus funciones, la Administración colaborará con la Auditoría Interna, para que cuente oportunamente con los equipos, materiales, suministros y medios de transporte, así como el espacio físico necesario.
