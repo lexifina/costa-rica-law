@@ -1,0 +1,1 @@
+Artículo 84.—Convocatoria a la conferencia final. La Auditoría Interna convocará por escrito o medio electrónico a quienes tengan parte en los asuntos para realizar la conferencia final de resultados, dentro de un plazo máximo de 10 días, el cual se definirá junto con los interesados.

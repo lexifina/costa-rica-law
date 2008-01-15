@@ -1,0 +1,1 @@
+Artículo 96.—Errores y omisiones. Si una comunicación final contiene un error u omisión significativos, el Auditor Interno deberá comunicar la información corregida a todas las personas que recibieron la comunicación original, reiniciándose el cómputo del plazo.

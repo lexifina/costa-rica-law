@@ -1,0 +1,1 @@
+Artículo 55.—Comunicación de los servicios de auditoría. Los servicios de Auditoría se comunican mediante dos tipos de informes: de control interno y seguimiento, y de responsabilidades o relaciones de hecho.

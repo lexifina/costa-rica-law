@@ -1,0 +1,1 @@
+Artículo 8º—Ética. El Personal de Auditoría deberá desempeñar sus labores cumpliendo, en todo momento, con las normas profesionales de conducta; de esta manera deberá respetar los principios y las reglas de conducta establecidos por el Instituto de Auditores Internos y el Código de Ética de Popular Valores Puesto de Bolsa S. A.

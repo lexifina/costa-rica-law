@@ -1,0 +1,1 @@
+Artículo 40.—Protección al Personal de la Auditoría. Cuando el Personal de la Auditoría Interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o demanda, la Puesto de bolsa dará todo su respaldo, tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

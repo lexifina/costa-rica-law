@@ -1,0 +1,1 @@
+Artículo 48.—Interferencia en el desarrollo normal de actividades. En la ejecución de sus funciones, el Personal de Auditoría procurará que sus actividades no interfieran en el normal desarrollo de las operaciones de la dependencia que está siendo objeto de examen, buscando una coordinación adecuada de su estudio.

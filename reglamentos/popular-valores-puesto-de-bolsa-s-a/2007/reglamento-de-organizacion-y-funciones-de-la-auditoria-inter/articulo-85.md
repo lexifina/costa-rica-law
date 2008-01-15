@@ -1,0 +1,1 @@
+Artículo 85.—Plazo para observaciones. La Auditoría Interna dará un plazo máximo de 10 días hábiles para que luego de realizada la conferencia final de resultados, se remita por parte de la Administración alguna información adicional de previo a emitir el informe oficial.

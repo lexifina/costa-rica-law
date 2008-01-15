@@ -1,0 +1,1 @@
+Artículo 6º—Principios rectores de la Auditoría Interna. El Auditor Interno y el personal de la Auditoría regirán su actuación considerando los elementos del plan estratégico de la Auditoría Interna y conforme a la visión, misión, valores éticos y principales políticas orientadas a la función que por definición le corresponde a la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 88.—Comunicación final del informe. El informe deberá comunicarse oficialmente a la Junta Directiva, Gerencia o al titular subordinado correspondiente, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones.

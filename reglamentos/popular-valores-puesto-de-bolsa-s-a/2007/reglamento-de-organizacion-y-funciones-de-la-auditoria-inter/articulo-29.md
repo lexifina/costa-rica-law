@@ -1,0 +1,1 @@
+Artículo 29.—Idoneidad del Auditor. El Auditor Interno deberá cumplir con idoneidad, independencia, objetividad, profesionalismo, integridad y gestión. Asesora sus funciones, haciendo valer sus competencias con independencia funcional y de criterio y será vigilante de que su personal responda de igual manera.

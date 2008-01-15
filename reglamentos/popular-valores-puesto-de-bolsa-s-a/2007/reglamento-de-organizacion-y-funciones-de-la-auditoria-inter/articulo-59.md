@@ -1,0 +1,1 @@
+Artículo 59.—Asesoría y advertencia durante la ejecución de un estudio de auditoría. La Auditoría Interna podrá advertir y asesorar sobre lo determinado en un estudio de auditoría en proceso, y que ambos no son vinculantes para el que las recibe, cuya decisiones queda bajo entera responsabilidad de la Administración.

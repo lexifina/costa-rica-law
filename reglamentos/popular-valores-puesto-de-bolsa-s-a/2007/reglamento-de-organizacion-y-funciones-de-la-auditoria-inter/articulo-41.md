@@ -1,0 +1,2 @@
+Ámbito de acción
+Artículo 41.—Campos de acción. Los trabajos de auditoría o de estudios especiales abarcarán las actividades contempladas en el Plan Anual de Trabajo de la Auditoria Interna de Popular Valores Puesto de Bolsa S. A.; incluyendo las funciones administrativas, financieras, contables, presupuestarias, movimiento e inversión de recursos, deuda, obligaciones, desembolsos y gastos en general y todas las que apliquen un cambio en el patrimonio del Puesto de bolsa y de los servicios que presta.

@@ -1,0 +1,2 @@
+Artículo 37.—Responsable de los movimientos de personal de la Auditoría. El Auditor Interno es el Superior Jerárquico y máximo responsable de las actuaciones de la Auditoría interna. Será el jefe del personal de la Auditoría y se necesitará de su autorización para el nombramiento, traslado, remoción, concesión de licencias y demás movimientos relacionados con el personal a su cargo, así como para la disminución o creación de plazas por cualquier motivo.
+No procede la disminución de plazas mientras la Auditoría Interna sea ocupada interinamente.

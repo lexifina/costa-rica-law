@@ -1,0 +1,2 @@
+Potestad sobre el personal de auditoría interna
+Artículo 36.—Responsable de definir la estructura funcional de la Auditoría Interna. El Auditor Interno es el responsable de disponer la estructura organizativa concordante con la razón de ser y la normativa que regula la institución, a efecto de garantizar, entre otros una administración, eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.

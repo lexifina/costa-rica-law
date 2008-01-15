@@ -1,0 +1,1 @@
+Artículo 39.—Requisitos de los puestos. El proceso de Desarrollo de Recursos Humanos, con la colaboración de la Auditoría Interna, definirá sus respectivos manuales de cargos y clases, la descripción de las funciones y los requisitos correspondientes para cada uno de los cargos, de conformidad con los lineamientos que emita al respecto la Contraloría General.

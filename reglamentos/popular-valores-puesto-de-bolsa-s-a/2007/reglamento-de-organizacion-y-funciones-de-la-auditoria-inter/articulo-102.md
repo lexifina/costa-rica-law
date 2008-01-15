@@ -1,0 +1,1 @@
+Artículo 102.—Presentación de las denuncias. Las denuncias podrán presentarse ante la Auditoría Interna, la cual las examinará dentro de un plazo razonable, las mismas deben ser en forma escrita. No se dará trámite a denuncias de carácter anónimo.

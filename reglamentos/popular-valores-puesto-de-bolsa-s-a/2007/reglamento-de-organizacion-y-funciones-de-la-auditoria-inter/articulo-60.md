@@ -1,0 +1,1 @@
+Artículo 60.—Comunicación de servicios preventivos. El trabajo derivado de los servicios preventivos se comunicará mediante oficio a criterio del Auditor Interno y según los lineamientos que al respecto emita la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 12.—Impedimentos a la independencia u objetividad. Si la independencia u objetividad del Auditor se viese comprometida de hecho o en apariencia, los detalles del impedimento deberán darse a conocer a las partes correspondientes. Asimismo, el Auditor Interno no podrá evaluar operaciones específicas de las cuales haya sido previamente responsable.

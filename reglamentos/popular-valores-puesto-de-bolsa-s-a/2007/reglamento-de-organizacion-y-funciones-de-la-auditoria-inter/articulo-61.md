@@ -1,0 +1,1 @@
+Artículo 61.—Autorización de libros. La auditoría interna deberá fiscalizar periódicamente la efectividad del manejo, autorización y control de libros o registros relevantes y necesarios para el fortalecimiento del sistema de control interno de conformidad con el Manual de Normas Técnicas, que deben observar las auditorías internas en la legalización de libros.

@@ -1,0 +1,1 @@
+Artículo 54.—Servicios que presta la Auditoría Interna. Como parte de las competencias y de conformidad con la norma 1.1.1. del Manual de normas para el Ejercicio de la Auditoría Interna en el Sector Público, se encuentran los servicios de auditoría que se clasifican en servicios de auditoria y servicios preventivos.

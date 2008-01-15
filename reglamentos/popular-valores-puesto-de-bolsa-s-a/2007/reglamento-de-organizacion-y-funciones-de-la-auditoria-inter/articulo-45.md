@@ -1,0 +1,1 @@
+Artículo 45.—Pautas de relación interna y externa. Es responsabilidad del Auditor Interno establecer y regular a lo interno de la Auditoría las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su auditoría interna con los auditados, a fin de que se establezcan de conformidad con el ordenamiento jurídico y técnico aplicable.

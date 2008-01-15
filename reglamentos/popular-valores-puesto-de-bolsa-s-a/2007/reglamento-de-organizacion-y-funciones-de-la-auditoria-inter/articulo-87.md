@@ -1,0 +1,1 @@
+Artículo 87.—Excepción en la discusión de informe. Se exceptúan de la discusión, los casos de auditoría o estudio especial de auditoría con carácter reservado, o cuando la auditoría o estudio es de índole ordinaria y se obtenga información de naturaleza confidencial, cuyo resultado final es el informe de relación de hechos.
