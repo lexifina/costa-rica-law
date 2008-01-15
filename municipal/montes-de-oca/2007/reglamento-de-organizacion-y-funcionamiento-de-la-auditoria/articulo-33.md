@@ -1,0 +1,1 @@
+Artículo 33.—Deberes: Los deberes de la auditoría interna se encuentran establecidos específicamente en el artículo 32 de la Ley General de Control Interno, así como otros deberes asignados por el marco jurídico y técnico aplicable.

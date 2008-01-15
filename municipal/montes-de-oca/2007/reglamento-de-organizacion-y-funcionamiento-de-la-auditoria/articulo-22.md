@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del personal de la Auditoría Interna
+Artículo 22.—Administración del personal: El Auditor Interno es el Superior Jerárquico de la auditoría interna y responsable directo de las actuaciones de la Unidad. Actuará como jefe del personal a su cargo y en esa condición ejercerá todas las funciones que le son propias a la Administración del Personal. Los nombramientos, traslados, suspensión, remoción, sanciones, promociones, concesión de licencias y demás movimientos del personal de la auditoría interna, deberán contar con la autorización del Auditor Interno; de acuerdo con el marco jurídico que rige la institución.

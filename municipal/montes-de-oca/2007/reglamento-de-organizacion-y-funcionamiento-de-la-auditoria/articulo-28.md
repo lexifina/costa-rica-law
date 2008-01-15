@@ -1,0 +1,1 @@
+Artículo 28.—Procedimiento de coordinación: La auditoría interna deberá establecerse un marco general para administrar el manejo de las relaciones y coordinaciones con el Jerarca, titulares subordinados, u otros internos o externos de interés, así como, de las relaciones de los demás funcionarios de la auditoría interna con los órganos internos y externos de la organización.

@@ -1,0 +1,1 @@
+Artículo 15.—Estructura organizativa: En función de las habilidades y competencia del recurso humano y al cumplimiento de los objetivos y metas institucionales, la auditoría interna dividirá sus áreas funcionales de trabajo de acuerdo con las siguientes actividades: auditoría financiera, auditoría operativa, estudios especiales y atención de denuncias.
