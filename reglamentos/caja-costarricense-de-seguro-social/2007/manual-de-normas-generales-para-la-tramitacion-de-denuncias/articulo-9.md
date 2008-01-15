@@ -1,0 +1,4 @@
+Artículo 9º—Requisitos indispensables que debe contener la denuncia escrita
+a) La denuncia deberá dirigirse a la Auditoría Interna, en caso de estar dirigida a otra dependencia con copia a este Órgano de Fiscalización, será esa instancia a la que le corresponda gestionar su atención, salvo que el asunto sea competencia de esta Auditoría, en cuyo caso deberán coordinarse las acciones que correspondan.
+b) Nombre, apellidos del denunciante, número de cédula de identidad, teléfono, lugar de trabajo y residencia; medio y lugar para recibir notificaciones.
+c) Las denuncias deberán contener la mayor información posible; exponiendo los hechos en forma clara, precisa y circunstanciada; con indicación de las personas u órganos contra quienes se presenta cuando sea factible su identificación, los datos de los probables afectados si los conoce, mención aproximada de la fecha y lugar en que sucedieron los hechos.

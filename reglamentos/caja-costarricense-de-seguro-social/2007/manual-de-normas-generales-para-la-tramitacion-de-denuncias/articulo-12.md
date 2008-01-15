@@ -1,0 +1,2 @@
+Artículo 12.—Sobre la Admisibilidad. En relación con la admisibilidad de la denuncia, se deberá analizar su contenido, determinando dentro de un plazo razonable, si procede su admisión para investigación, al respecto se considerará lo contemplado en el artículo 9 de este Manual y 58 del Reglamento de Organización y Funcionamiento de la Auditoría Interna.
+Admitida la denuncia se procederá a darle el curso respectivo y se informará al denunciante de esa circunstancia en el domicilio o dirección que señale para ese efecto, si lo hubiere hecho.

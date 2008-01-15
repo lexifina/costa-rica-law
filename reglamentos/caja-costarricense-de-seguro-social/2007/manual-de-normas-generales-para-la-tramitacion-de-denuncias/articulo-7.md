@@ -1,0 +1,2 @@
+Artículo 7º—Las denuncias verbales. Las denuncias verbales se interpondrán en las oficinas centrales de la Auditoría Interna, en donde un encargado del Centro de Denuncias, recibirá los datos del denunciante, la información que aporte y pruebas si las tiene, de conformidad con lo establecido en este Manual.
+Únicamente en casos de excepción, se recibirán denuncias verbales en las oficinas del Área de Auditoría Gestión Operativa, previa valoración de requisitos por parte de algún funcionario de Auditoría que personalmente proceda a su recepción.

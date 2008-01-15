@@ -1,0 +1,1 @@
+Artículo 15.—Trámite de Traslado. Aquellas denuncias cuyos asuntos no son competencia de esta Auditoría, se trasladarán para su atención a la unidad que corresponda, en sobre cerrado, en resguardo del principio de confidencialidad, en la parte externa deberá consignarse la leyenda “confidencial” o “abrir sólo por el destinatario”.

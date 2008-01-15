@@ -1,0 +1,4 @@
+CAPÍTULO II
+Recepción de las denuncias
+Artículo 6º—De las denuncias escritas. Las denuncias escritas serán recibidas en la recepción de las oficinas centrales de la Auditoría Interna. Quien reciba la denuncia deberá estamparle un sello que indique el día, hora y nombre de la persona que lo recibe. Además, procederá a su registro en el sistema de información, asignándole un número que es consecutivo al control que a estos efectos se registra en la Auditoría, con indicación del asunto que trata.
+En caso que el denunciante presente denuncia escrita en alguna de las oficinas del Área de Auditoría Gestión Operativa, deberá hacerlo en sobre cerrado dirigida al Centro de Denuncias, de preferencia con la leyenda “Confidencial” o “Abrir sólo por el destinatario”; de esta forma el personal de la Auditoría ubicado en esas oficinas, procederá a enviarlo a la Sede Central en San José.

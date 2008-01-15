@@ -1,0 +1,1 @@
+Artículo 17.—Seguimiento. La Auditoría Interna, determinará los casos en que dará seguimiento a las denuncias que haya trasladado a la Administración Activa, con el fin que cumplan su obligación de atenderlas.
