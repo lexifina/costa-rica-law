@@ -1,1 +1,0 @@
-Artículo 20.—Para la evaluación del Proyecto Final, el profesor asesor deberá elaborar el instrumento correspondiente, ajustado a los lineamentos de Educación Técnica y presentarlo para su aprobación al Departamento Especializado.

@@ -1,1 +1,0 @@
-Artículo 26.—La organización administrativa, elaboración, aplicación y calificación de las pruebas escritas comprensivas estandarizadas, estará bajo la responsabilidad de la División de Control de Calidad. Con el propósito de emitir criterio técnico sobre las pruebas elaboradas, el Departamento de Educación Técnica facilitará el recurso profesional disponible para tal efecto.

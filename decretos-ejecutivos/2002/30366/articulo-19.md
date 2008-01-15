@@ -1,1 +1,0 @@
-Artículo 19.—Las prácticas que durante el curso lectivo realice el estudiante en las diferentes sub áreas de su especialidad, podrán ser consideradas como etapas previas del Proyecto, sin embargo, no contabilizarán como horas del proyecto.

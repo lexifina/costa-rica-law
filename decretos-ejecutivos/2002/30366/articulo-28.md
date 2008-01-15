@@ -1,1 +1,0 @@
-Artículo 28.—Podrán realizar la prueba escrita comprensiva todos los estudiantes que cumplan con lo establecido en el Artículo 1, incisos a) , b) y c) de este Reglamento, para lo cual, cada Institución Educativa debe realizar la inscripción respectiva de acuerdo con las fechas y los procedimientos establecidos por la División de Control de Calidad.

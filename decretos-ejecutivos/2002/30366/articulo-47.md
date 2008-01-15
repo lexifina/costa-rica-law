@@ -1,1 +1,0 @@
-Artículo 47.—El alumno que esté realizando la Práctica Profesional o Proyecto Final, no debe ser convocado para que asista a centros de estudio, actividades cívicas, culturales, sociales o deportivas que organice la institución, dentro del horario de trabajo.

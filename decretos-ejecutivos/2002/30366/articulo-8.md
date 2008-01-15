@@ -1,1 +1,0 @@
-Artículo 8º—En la Práctica Profesional se deben realizar dos evaluaciones, una al mes de transcurrida y otra al finalizar. En el caso de la Práctica Profesional fraccionada se hará una en cada periodo.

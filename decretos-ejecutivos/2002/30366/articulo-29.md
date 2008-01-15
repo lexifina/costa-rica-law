@@ -1,1 +1,0 @@
-Artículo 29.—La prueba escrita comprensiva estandarizada tendrá un valor porcentual del 60%, Para aprobarla se requiere una nota final mínima de 70 producto de la sumatoria del resultado de esta prueba con "la nota de presentación" correspondiente.

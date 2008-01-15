@@ -1,1 +1,0 @@
-Artículo 51.—El incumplimiento de reglamentos educativos vigentes o reglamentos internos de las empresas donde los estudiantes realizan la práctica será sujeto a las sanciones correspondientes que éstos estipulen.

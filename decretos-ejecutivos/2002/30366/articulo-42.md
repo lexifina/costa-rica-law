@@ -1,1 +1,0 @@
-Artículo 42.—En los colegios en donde se aplica el Plan de estudios opción 1, los exámenes de bachillerato se realizarán en el mes de setiembre, y en los que aplican el plan de estudios Opción 2 se realizarán conjuntamente con los colegios de la Rama Académica.
