@@ -1,0 +1,1 @@
+Artículo 2º—Elimínese del Anexo 2, los puntos d) de las Guías de Requisitos para obtener la Declaratoria Turística: Agencia de Viajes Receptiva y Guía de Requisitos para obtener la Declaratoria Turística: Agencia de Viajes Emisora del Reglamento de Empresas y Actividades Turísticas.

@@ -1,0 +1,20 @@
+Nº 34221
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+Y EL MINISTRO DE TURISMO
+En ejercicio de las facultades que les confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, artículo 50 de la Constitución Política, los artículos 2º y 4º de la ley Nº 1917, Ley Orgánica del Instituto Costarricense de Turismo, del 29 de julio de 1955, publicada en La Gaceta Nº 175 del 9 de agosto de 1955.
+Considerando:
+1º—Que dentro de las funciones asignadas al Instituto Costarricense de Turismo en el artículo 4º de su Ley Orgánica, se encuentra el fomento de la actividad turística y la vigilancia de la atención privada del turismo.
+2º—Que uno de los instrumentos para fomentar y apoyar a los empresarios en la prestación de sus servicios es la declaratoria turística, que entre otros beneficios conlleva la clasificación de establecimientos y la regulación de sus actividades bajo parámetros de seguridad y atención al turista.
+3º—Que el otorgamiento de la Declaratoria Turística se encuentra regulado mediante el Reglamento de Empresas y Actividades Turísticas, contenido en el Decreto Ejecutivo Nº 25226-MEIC-TUR, del 15 de marzo de 1996, publicado en La Gaceta 121 del 26 de junio de 1996 y sus reformas.
+4º—Que el Plan Nacional de Desarrollo Turístico 2002-2012, establece como política institucional que se impulsarán acciones dirigidas a mejorar las condiciones para el turismo nacional, ya que esta demanda turística se considera como un factor de creciente importancia y al existir un crecimiento de la oferta local de servicios, se genera un incremento del turismo interno, propiciándose con ello una redistribución de los ingresos de la parte central hacia las partes periféricas del país.
+5º—Que en el seno de la Comisión de Simplificación de Trámites de la Institución se han analizado los requisitos solicitados para obtener una Declaratoria Turística como agencia de viajes y se consideró que las condiciones del mercado a través de los años han cambiado, entre ellas la modalidad de viajes de los turistas que nos visitan. Lo anterior se constata de la información contenida en el Plan Nacional de Desarrollo Turístico 2002-2012, en donde se plasma que con mayor frecuencia, la forma de organizar el viaje a Costa Rica es la modalidad independiente, o sea sin mediación de una agencia de viajes en el exterior. Por lo tanto la sustitución del requisito de las tres corresponsalías con agencias de viajes en el exterior por cartas de relaciones comerciales con empresas turísticas nacionales, constituye un incentivo para todas aquellas agencias de viajes que operan turismo nacional, al poder aplicar a la declaratoria turística, aumentándose la oferta de agencias de viajes especializadas en este tipo de turismo.
+6º—Que eliminar como requisito el capital social de tres millones de colones solicitado a las personas físicas o jurídicas propietarias de agencias de viajes, en observación al principio de igualdad constitucional, toda vez que en los requisitos del resto de las empresas que eventualmente puedan obtener una declaratoria turística dicho requerimiento no existe.
+7º—Que adicionar un párrafo final a la redacción actual del requisito de carencia de antecedentes penales, en el sentido de aclarar al administrado que en el caso de aquellas naciones cuyas autoridades certifiquen que no emiten certificados sobre el tema, y al existir una imposibilidad legal para cumplir, cabría aceptar una declaración jurada notarial de tres testigos que den fe de la buena conducta y solvencia moral del interesado. Por tanto,
+Decretan:
+Reforma al Artículo 8º y al Anexo 2 del Reglamento
+de Empresas y Actividades Turísticas Contenido
+en el Decreto Ejecutivo Nº 25226-MEIC-TUR,
+del 15 de marzo de 1996
+Artículo 1º—Modifíquese el Anexo 2, punto e) de la Guía de Requisitos para obtener la Declaratoria Turística: Agencia de Viajes Receptiva, del Reglamento de Empresas y Actividades Turísticas, para que se lea como sigue:
+e) “Debe presentarse tres cartas de relaciones comerciales con empresas turísticas nacionales”
