@@ -1,0 +1,1 @@
+Artículo 11.—Dependencia y ubicación orgánica. La Auditoría Interna es un órgano asesor con independencia funcional, único en el Instituto Tecnológico de Costa Rica respecto de su actividad de auditoría interna, con dependencia orgánica del Consejo Institucional, por lo que su ubicación dentro de la estructura institucional corresponde a la de un órgano asesor del más alto nivel.

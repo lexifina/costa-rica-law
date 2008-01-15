@@ -1,0 +1,1 @@
+Artículo 10.—Evaluación independiente de la Auditoría Interna. La Auditoría Interna sólo podrá ser objeto de evaluación por parte de un revisor o equipo de revisores calificados e independientes, externo a la Institución, el cual informará los resultados al Auditor Interno, quien deberá presentarlo, junto con el Plan de mejoras, al Consejo Institucional.

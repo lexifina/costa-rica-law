@@ -1,0 +1,16 @@
+INSTITUTO TECNOLÓGICO DE COSTA RICA
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL INSTITUTO TECNOLÓGICO DE COSTA RICA
+PROPÓSITO
+a. Conforme con lo establecido por el Artículo 23 de la Ley General de Control Interno, es necesario contar con un reglamento que contenga la normativa de aplicación institucional relativa a la organización y funcionamiento de la Auditoría Interna del Instituto Tecnológico de Costa Rica, acorde con la normativa que rige esta labor en el sector público costarricense.
+b. El Reglamento de organización y funcionamiento de la Auditoría Interna constituye un instrumento jurídico que promueve la actividad de auditoría interna con arreglo a la ética, principios y disposiciones de orden legal, reglamentario y técnico y su materialización en un efectivo valor agregado al buen gobierno del Instituto Tecnológico de Costa Rica.
+c. Esta normativa institucional permitirá orientar las acciones de la Auditoría Interna y percibirla como una actividad dirigida a coadyuvar con el éxito de la gestión institucional, en aras de la legalidad, transparencia y efectividad en el manejo de los fondos públicos involucrados.
+d. Conforme a los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las unidades de auditoría interna”, dictados por la Contraloría General de la República, mediante Resolución R-CO-93-2006, del 8 de diciembre del 2006, el presente Reglamento consta de cinco capítulos que regulan el marco fundamental respecto de la organización y funcionamiento de la Auditoría Interna.
+i. El primer capítulo contiene disposiciones generales relativas a su objetivo, ámbito de aplicación y la emisión y modificaciones al Reglamento como tal.
+ii. El segundo capítulo versa sobre la organización y ubicación de la Auditoría Interna, en el que se hace referencia al concepto de auditoría interna, de su marco normativo, de su independencia y objetividad, de las manifestaciones de salvaguarda y medidas de resguardo, de las evaluaciones independientes, de la ubicación orgánica, de la jerarquía, de la organización, de las pautas internas y relaciones externas, del presupuesto y su ejecución y de la asesoría y apoyo técnico requerido.
+iii. El tercer capítulo versa sobre el auditor y subauditor internos y del personal a su cargo.
+iv. El capítulo cuarto hace referencia al funcionamiento de la Auditoría Interna, el cual se subdivide en siete secciones que se refieren, en su orden, al ámbito de acción; a sus competencias, deberes y potestades; a los servicios de auditoría; a los informes de auditoría en materia de control interno; a las relaciones de hechos; a las denuncias y al seguimiento de las recomendaciones.
+v. El capítulo quinto incluye las disposiciones finales.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo. El presente Reglamento tiene como finalidad regular, en sus aspectos fundamentales, la organización y funcionamiento de la Auditoría Interna del Instituto Tecnológico de Costa Rica, en apego a lo dispuesto en el artículo 23 de la Ley General de Control Interno, de manera que su accionar se oriente y se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

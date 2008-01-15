@@ -1,0 +1,3 @@
+SECCIÓN B
+De sus competencias, deberes y potestades
+Artículo 27.—Competencias. La actuación de la Auditoría Interna será conforme a las competencias que le establecen el artículo 22 de la Ley General de Control Interno, el artículo 80 del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, el artículo 11 de las Directrices que deben observar los funcionarios obligados a presentar el informe final de su gestión, según lo dispuesto en el inciso e) del artículo 12 de la Ley General de Control Interno, N° D-1-2005-CO-DFOE y las demás leyes, Reglamentos y normativa de obligada observancia.
