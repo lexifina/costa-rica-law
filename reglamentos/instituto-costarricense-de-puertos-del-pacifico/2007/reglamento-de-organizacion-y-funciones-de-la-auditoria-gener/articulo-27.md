@@ -1,0 +1,1 @@
+Artículo 27.—Planificación: El Auditor General debe establecer planes basados en criterios razonables y fundamentados especialmente en la valoración del riesgo, a fin de determinar las prioridades de las actividades de la Auditoría.

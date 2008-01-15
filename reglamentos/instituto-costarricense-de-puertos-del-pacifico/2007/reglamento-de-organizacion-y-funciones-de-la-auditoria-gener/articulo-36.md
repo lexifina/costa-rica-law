@@ -1,0 +1,1 @@
+Artículo 36.—Responsabilidad por no implantar recomendaciones: Cabrá responsabilidad administrativa contra los funcionarios que incumplan injustificadamente las acciones para implantar las recomendaciones de la Auditoría General debidamente aceptadas, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.

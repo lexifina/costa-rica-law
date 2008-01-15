@@ -1,0 +1,1 @@
+Artículo 23.—Prohibiciones. El Auditor Interno y su personal tendrán las prohibiciones que establece el artículo Nº 34 de la Ley General de Control Interno. Por las prohibiciones contempladas en esta Ley se les pagará un sesenta y cinco por ciento (65%) sobre el salario base.

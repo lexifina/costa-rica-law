@@ -1,0 +1,1 @@
+Artículo 18.—Delegación y responsabilidad. El Auditor General podrá delegar sus funciones dentro del personal de esa Unidad, utilizando para tal efecto criterios de idoneidad, capacidad y experiencia.

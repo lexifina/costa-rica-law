@@ -1,0 +1,1 @@
+Artículo 49.—Resguardo de la identidad del denunciante. Todo papel de trabajo, razón de archivo o comunicación a terceros generados por la Auditoría General, resultado de la denuncia que recibiera, no deben consignar la identidad del denunciante.

@@ -1,0 +1,1 @@
+Artículo 15.—Organización por procesos: La Auditoría Interna se organizara bajo en enfoque de organización por procesos para propósitos de garantizar la efectividad en el cumplimiento de sus competencias. Dichos procesos son: Servicios de Auditoría, Servicios Preventivos, Seguimiento de Recomendaciones.

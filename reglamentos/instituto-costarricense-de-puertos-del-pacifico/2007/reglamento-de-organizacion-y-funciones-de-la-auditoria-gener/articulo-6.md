@@ -1,0 +1,1 @@
+Artículo 6º—Misión y Visión. Evaluar en forma independiente y a posterior las operaciones contables y financieras administrativas y de otra naturaleza de la Institución, como base para prestar un servicio de protección a la Administración para el cumplimiento de los objetivos institucionales.

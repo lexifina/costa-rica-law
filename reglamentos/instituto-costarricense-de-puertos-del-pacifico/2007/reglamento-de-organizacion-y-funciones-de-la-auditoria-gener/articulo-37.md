@@ -1,0 +1,2 @@
+Artículo 37.—Planificación de estudios de seguimiento. La Auditoría General formulará y ejecutará un seguimiento de recomendaciones aceptadas y comunicadas a la Administración Activa, del cual brindará un informe anualmente enfocado a verificar la adecuada y efectiva implementación.
+En cuanto a la verificación de advertencias planteadas a la Administración, se realizará cuando lo estime pertinente.
