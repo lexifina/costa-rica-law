@@ -1,0 +1,6 @@
+Cuarto.—Para la Notificación del acto de inicio o de traslado, cuando la parte a notificar tenga fijada su residencia en una localidad considerablemente distante a la Oficina Local que tramita la solicitud, ésta puede solicitar la colaboración de la Oficina Local más cercana al domicilio del interesado, para ahorrar tiempo y hacer el mejor esfuerzo por ajustarse a los plazos de ley; aplicando la siguiente tramitología:
+I. La Oficina Local Requirente, mediante oficio sencillo, efectuará su solicitud de colaboración a la Oficina Local Requerida, y en su solicitud adjuntará la resolución de inicio.
+II. Esta documentación será enviada vía fax, de la Oficina Requirente a la Oficina Requerida.
+III. La Oficina Requerida fotocopiará el fax de la resolución, elaborará la correspondiente Acta de Notificación, y ejecutará (a la mayor brevedad posible) el acto de notificación.
+IV. Una vez practicado el acto de notificación, procederá a remitir vía fax el Acta de Notificación a la Oficina Requirente, haciendo su mejor esfuerzo por ajustarse al plazo de ley indicado.
+V. La Oficina Requirente, fotocopiará el fax del acta de notificación y lo incorporará al expediente en espera del original que podrá la Oficina Requerida remitir a la mayor brevedad por correo interno.

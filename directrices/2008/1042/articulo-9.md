@@ -1,0 +1,1 @@
+Noveno.—En las situaciones en las que alguno de los progenitores se encuentre ausente y así se concluya además con la prueba aportada por el progenitor solicitante, podrán seguir utilizando el Reglamento de Salidas del País del PANI publicado en el Diario Oficial La Gaceta Nº 11 de día martes 16 de enero de 2001.

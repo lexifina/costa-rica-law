@@ -1,0 +1,1 @@
+Quinto.—Debe, el Órgano Director de los Procedimientos, tomar en cuenta que en la Ley General de la Administración Pública, admite que la notificación del acto de inicio se haga mediante telegrama o carta certificada, por lo que puede valorar con criterios de agilidad y celeridad; cuál mecanismo le conviene emplear.
