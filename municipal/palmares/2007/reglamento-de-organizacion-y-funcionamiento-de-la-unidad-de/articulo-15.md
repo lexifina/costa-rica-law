@@ -1,0 +1,1 @@
+Artículo 15.—La Auditoría Interna, dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige la actividad. Dicho reglamento deberá ser aprobado por el Concejo Municipal y por la Contraloría General de la República, y posteriormente publicarse en el diario oficial y divulgarse en el ámbito institucional.

@@ -1,0 +1,1 @@
+Artículo 46.—Aprobado por el Concejo Municipal mediante acuerdo de la Sesión Ordinaria ___ Capítulo __ Artículo __, celebrada el ___ y por la Contraloría General de la República, mediante resolución Nº _________

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la organización
+Artículo 11.—El Auditor Interno, dependerá orgánicamente del máximo jerarca, quien lo nombrará y establecerá las regulaciones de tipo administrativo que le serán aplicables a dicho funcionario. Los demás funcionarios de la auditoría interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal; sin embargo, el nombramiento, traslado, la suspensión, remoción, concesión de licencias, control de asistencia y vacaciones y demás movimientos de personal, deberán contar con la supervisión y autorización del auditor interno; todo de acuerdo con el marco jurídico que rige para el ente u órgano.
+Las regulaciones de tipo administrativo no deberán afectar negativamente la actividad de auditoría interna, la independencia funcional y de criterio del auditor y su personal; en caso de duda, la Contraloría General de la República dispondrá lo correspondiente.
