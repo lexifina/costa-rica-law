@@ -1,0 +1,3 @@
+CAPÍTULO VIGÉSIMO PRIMERO
+Adquisición de mercadería para las tiendas libres de derechos
+Artículo 142.—Adquisición de mercadería. Para la adquisición de mercadería para la venta en las Tiendas Libres de Derechos del IMAS, se observarán los principios generales de la contratación administrativa, en lo que sea compatible con esta actividad comercial, por comprometerse recursos públicos, pero no serán aplicables los procedimientos de la Ley de Contratación Administrativa y su Reglamento, por tratarse de una actividad comercial, regida por el Derecho Privado, de conformidad con el artículo 3º párrafo 2º de la Ley General de la Administración Pública.

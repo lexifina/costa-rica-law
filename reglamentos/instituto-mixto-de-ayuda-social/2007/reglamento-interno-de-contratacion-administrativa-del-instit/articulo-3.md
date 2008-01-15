@@ -1,0 +1,1 @@
+Artículo 3º—Principios generales. Para la interpretación de este Reglamento serán aplicables los siguientes principios generales, establecidos en el artículo 2º del Reglamento a la Ley de Contratación Administrativa, que informan la contratación administrativa: Eficiencia, Eficacia, Publicidad, Libre Competencia, Igualdad, Buena Fe e Intangibilidad Patrimonial.

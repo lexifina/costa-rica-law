@@ -1,0 +1,6 @@
+Artículo 62.—De la solicitud, recepción, custodia y devolución de muestras. Para la solicitud de muestras, el cartel debe indicarlo expresamente. En el acto de recepción de las muestras el funcionario responsable del recibo de las ofertas, deberá verificar que se acompañen a la oferta las muestras respectivas y procederá a emitir un recibido adicional al de la recepción de la oferta, donde se detallen las muestras.
+En caso de que el oferente presente documento donde detalle las muestras que entrega, el funcionario verificará que éstas coincidan en número y características y cuando se constaten diferencias, así se consignará.
+Una vez concluido el acto de apertura, las muestras recibidas serán remitidas junto con las ofertas, a la unidad que corresponda para que realice el estudio técnico respectivo.
+Una vez analizadas las muestras, la unidad técnica las devolverá a la Proveeduría junto con el informe técnico.
+La Proveeduría será responsable de la custodia de las muestras hasta el momento de la devolución a sus propietarios.
+Las muestras podrán ser devueltas a los oferentes adjudicados con posterioridad a la correspondiente entrega de los bienes objeto de la contratación, para la verificación previa de que se ajuste a las muestras presentadas.

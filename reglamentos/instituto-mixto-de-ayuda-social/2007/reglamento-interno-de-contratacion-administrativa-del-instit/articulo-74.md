@@ -1,0 +1,1 @@
+Artículo 74.—Sesiones. De las sesiones que tenga la Comisión se levantará un acta, la cual deberá ser firmada por los miembros presentes. En esta acta se dejará constancia de los acuerdos que se tomen y de la votación realizada. Todos los acuerdos se tomarán por mayoría simple. De las divergencias se tomará constancia en el acta.

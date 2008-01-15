@@ -1,0 +1,1 @@
+Artículo 99.—Recepción de ofertas. Las ofertas se recibirán personalmente en la oficina de Proveeduría, o por medio de fax o correo electrónico. Igualmente en sobre cerrado, cuando así se establezca en las condiciones del concurso.

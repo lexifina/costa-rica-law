@@ -1,0 +1,1 @@
+Artículo 40.—Disponibilidad del cartel. La Proveeduría deberá mantener a disposición de cualquier interesado para su adquisición o consulta, copia de los carteles de las licitaciones que se encuentren en trámite.

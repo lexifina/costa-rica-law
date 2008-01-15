@@ -1,0 +1,1 @@
+Artículo 7º—Estructura organizativa. La dependencia encargada de los Procedimientos de Contratación Administrativa es la Proveeduría, la cual estará a cargo de un Titular Subordinado, el cual realiza todas las funciones y competencias de acuerdo al Ordenamiento Jurídico.

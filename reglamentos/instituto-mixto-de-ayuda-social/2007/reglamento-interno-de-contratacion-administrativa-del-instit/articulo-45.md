@@ -1,0 +1,1 @@
+Artículo 45.—Control y vigencia de las Garantías. El control sobre la rendición efectiva, el monto y vigencia de las Garantías de Participación y de Cumplimiento, será responsabilidad de la Proveeduría y su recepción y custodia será responsabilidad de la Tesorería.

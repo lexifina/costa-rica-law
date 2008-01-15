@@ -1,0 +1,1 @@
+Artículo 73.—Convocatoria y quórum. Se convocará a sesión una vez que se hayan realizado los estudios técnico, legal y financiero y la calificación de las ofertas, para que la Comisión emita la recomendación que corresponda. El quórum para sesionar lo formarán tres miembros siempre que tengan voto.

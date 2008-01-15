@@ -1,0 +1,2 @@
+Artículo 100.—Adjudicación. De previo a la adjudicación, la Proveeduría General confeccionará un cuadro comparativo de las ofertas participantes en el concurso y cuando las condiciones de la contratación así lo requieran, la Proveeduría solicitará la recomendación de la Unidad Solicitante y/o el criterio técnico de la Unidad correspondiente, de los bienes o servicios a contratar.
+El Proveedor será el responsable de la adjudicación de la contratación del bien o servicio de este trámite de excepción.

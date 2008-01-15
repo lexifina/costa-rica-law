@@ -1,0 +1,1 @@
+Artículo 14.—Publicación. La Proveeduría invitará a los interesados en integrar el Registro de Proveedores, mediante publicación en el Diario Oficial La Gaceta, al menos una vez al año. No obstante, todos los interesados podrán solicitar su incorporación al Registro de Proveedores del IMAS, en cualquier momento.

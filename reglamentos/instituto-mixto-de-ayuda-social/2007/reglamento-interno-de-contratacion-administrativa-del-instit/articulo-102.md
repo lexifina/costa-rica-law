@@ -1,0 +1,1 @@
+Artículo 102.—Comunicación de adjudicación de la Contratación Directa. Una vez adjudicada la contratación, se procederá a comunicar a todos los oferentes participantes. Contra la decisión de adjudicación se podrá recurrir ante la Proveeduría General, lo cual se regirá por las reglas y plazos establecidos para el Recurso de Revocatoria.

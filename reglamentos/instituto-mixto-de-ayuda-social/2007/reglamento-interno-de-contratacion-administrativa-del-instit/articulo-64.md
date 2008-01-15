@@ -1,0 +1,1 @@
+Artículo 64.—Estudio de ofertas y solicitud de aclaraciones. Cuando las unidades o dependencias que tengan a cargo el estudio y valoración de ofertas, tengan que solicitar aclaraciones a las ofertas, el aporte de documentación adicional o subsanaciones, lo harán a través de la Proveeduría.

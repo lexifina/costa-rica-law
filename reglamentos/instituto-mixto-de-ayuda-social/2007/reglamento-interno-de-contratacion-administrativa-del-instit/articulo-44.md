@@ -1,0 +1,1 @@
+Artículo 44.—Tipos de garantías aceptadas por la administración. Se aceptarán los tipos de garantías que sean otorgadas a favor del IMAS de acuerdo con lo establecido en el artículo 42 del Reglamento de Contratación Administrativa.

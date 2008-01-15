@@ -1,0 +1,1 @@
+Artículo 150.—Procedimiento administrativo. Los procedimientos que se tramiten por infracciones al régimen de contratación administrativa del IMAS, se ajustarán a los términos establecidos en la Ley General de la Administración Pública.

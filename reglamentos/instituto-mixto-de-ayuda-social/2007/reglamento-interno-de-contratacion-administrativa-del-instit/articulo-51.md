@@ -1,0 +1,1 @@
+Artículo 51.—Prórrogas. En el caso de prórrogas a las garantías, una vez prevenido el oferente o contratista sobre la misma y si éste no atendiere oportunamente la prevención, la Proveeduría procederá a la ejecución de las cauciones a más tardar el día de su vencimiento.
