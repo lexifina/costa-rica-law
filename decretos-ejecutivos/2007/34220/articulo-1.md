@@ -1,0 +1,16 @@
+Nº_34220
+EL PRESIDENTE DE LA RÉPUBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 y 146 de la Constitución Política, con fundamento en los numerales 24, 25, 27, 28, 59, 83 y 103 de la Ley General de la Administración Pública y en ejecución de los artículos 4º, 69 a 72, y 143 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+Considerando:
+I.—Que de conformidad con el artículo 1º de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, este Ministerio tiene a su cargo “ ...la dirección, estudio y despacho de todos los asuntos relativos a trabajo y a previsión social; y vigilará por el desarrollo, mejoramiento y aplicación de todas las leyes, decretos, acuerdos y resoluciones referentes a estas materias, principalmente los que tengan por objeto directo fijar y armonizar las relaciones entre patronos y trabajadores, como garantía del buen orden y la justicia social en los vínculos creados por el trabajo y los que tiendan a mejorar las condiciones de vida del pueblo costarricense.”
+Además de lo anterior, y de conformidad con el artículo 6º del mencionado cuerpo legal corresponde a este Ministerio:
+“La organización y orientación de la política laboral y social estará a cargo del titular de la Cartera, quien deberá promover las condiciones sociales, económicas, educativas y culturales que permitan el pleno desenvolvimiento y dignidad del costarricense y su familia, impulsar el mejoramiento del nivel económico-social de la clase trabajadora y estimular las actividades productoras de riqueza del país. (Así reformado por artículo 1º de Ley Nº 3095, de 18 de febrero de 1963.)”
+II.—El artículo 27 de la Ley 7302 del 8 de julio de 1992 y sus reformas, establece la competencia de la Dirección Nacional de Pensiones a fin de resolver las solicitudes de pensión y jubilación de los denominados Regímenes de Pensiones a cargo del Presupuesto Nacional de la República, así como la aplicación de los procesos de revalorización de los regímenes a su cargo, así como el pago de diferencias o montos de pensión de presupuestos anteriores.
+III.—Que corresponde al Ministro de Trabajo y Seguridad Social, conocer en apelación las resoluciones emitidas por la Dirección Nacional de Pensiones, todo ello de conformidad con el artículo 27 de la ley 7302 del 8 de julio de 1992.
+IV.—Que por Decreto Nº 30476-MTSS del 10 de junio del 2002, se crea al Consejo Directivo de Pensiones como un órgano asesor en materia de pensiones del Ministro de Trabajo y Seguridad Social.
+V.—Que las funciones de asesoría que en su momento se asignan al Consejo Directivo de Pensiones deben ser asumidas por los órganos técnicos establecidos dentro de la estructura organizativa del Ministerio de Trabajo y Seguridad Social.
+III.—Esta institución requiere conforme a lo expuesto, derogar el decreto Nº 30476-MTSS del 10 de junio del 2002, a fin de regular el procedimiento administrativo para el conocimiento en alzada de los derechos resueltos por parte de la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social. Por tanto,
+Decretan:
+Derogatoria del Decreto Nº 30476-MTSS de 10 de junio del 2002
+Artículo 1º—Deróguese el Decreto Nº 30476-MTSS del 10 de junio del 2002 y sus modificaciones.
