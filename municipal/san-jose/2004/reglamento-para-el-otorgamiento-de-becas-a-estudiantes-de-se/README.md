@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Becas a Estudiantes de Secundaria y Primaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-05 | la propia norma |
+| 2 | 2008-01-15 | Reglamento municipal 90 (2008-01-15) |
