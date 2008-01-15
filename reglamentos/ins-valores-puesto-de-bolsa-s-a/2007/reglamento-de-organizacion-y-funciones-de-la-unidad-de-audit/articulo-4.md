@@ -1,0 +1,1 @@
+Artículo 4º—Ideas rectoras. La auditoría interna una vez al año, deberá revisar y actualizar su plan estratégico (visión, misión y principales políticas que regirán su accionar) en concordancia con lo incluido en el Plan Estratégico Institucional.
