@@ -1,0 +1,2 @@
+Artículo 11.—Penalización. Si la entrega de los bienes o servicios adquiridos no se cumple en los plazos establecidos en la orden de compra, toda contratación será penalizada con un 0.25% sobre el valor de la compra.
+Cuando existan atenuantes no atribuibles al proveedor, siempre y cuando esté demostrado por escrito, el Departamento Administrativo valorará de conformidad con la normativa vigente, el no aplicar esta penalización.

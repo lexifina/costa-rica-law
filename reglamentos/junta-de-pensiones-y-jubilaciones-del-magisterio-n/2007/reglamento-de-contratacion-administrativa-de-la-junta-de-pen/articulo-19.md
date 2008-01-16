@@ -1,0 +1,1 @@
+Artículo 19.—De la nulidad de los contratos. Los contratos administrativos que no se ajusten a los requisitos, condiciones o procedimientos esenciales del presente Reglamento, o acuerdos de Junta Directiva serán absolutamente nulos.

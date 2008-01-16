@@ -1,0 +1,2 @@
+Artículo 9º—Excepciones de requerimientos de órdenes de compra. Se requerirá orden de compra para todos los casos en los cuales exista de previo una invitación a cotizar, excepto en los que por la naturaleza compleja o continuada de la contratación, deba confeccionarse un contrato entre las partes y que éste sea realizado en la Institución.
+Se exime de confección de orden de compra los casos en los cuales el servicio se recibe de forma directa e inmediata, sin que medie proceso de contratación.
