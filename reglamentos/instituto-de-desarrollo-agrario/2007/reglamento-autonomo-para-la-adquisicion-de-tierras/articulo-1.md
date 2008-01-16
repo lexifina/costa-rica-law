@@ -1,3 +1,7 @@
+(Derogado)
+(Este Reglamento fue Derogado mediante acuerdo 6 de la sesión N° 002-2008 de 16 de enero de 2008)
+(Nota de Sinalevi: El Instituto de Desarrollo Agrario aprobó un nuevo Reglamento Autónomo para la Adquisición de Tierras mediante sesión N° 029 del 13 de setiembre de 2010)
+(Nota de Sinalevi Sobre este tema el Instituto de Desarrollo Agrario había emitido anteriormente el Reglamento Autónomo para la Adquisición de Tierras en la sesión N° 54 del 6 de agosto del 2002)
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO AUTÓNOMO PARA
 LA ADQUISICIÓN DE TIERRAS

@@ -14,3 +14,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-16 | la propia norma |
+| 2 | 2008-01-16 | Reglamento 2 (2008-01-16) |
