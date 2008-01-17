@@ -13,11 +13,11 @@ Error de medición de la tarifa por distancia recorrida o por tiempo | | X |
 Llantas no coinciden con las autorizadas en documentación | | X |
 Cristal roto | X | |
 Luz indicadora de tarifa, falta o no funciona | | X |
-37.3 Servicios de transporte remunerado de personas | | |
+37.3 Servicios de transporte colectivo remunerado de personas (Así reformado el apartado anterior mediante sesión N° 04 del 17 de enero de 2008) | | |
 No tiene autorización para realizar el servicio | | X |
 No tiene, no son accesibles o no están identificadas las salidas de emergencia | | X |
 No tiene botiquín y/o basurero cuando es obligatorio | X | |
-Vehículo con antigüedad mayor que la permitida | X | |
+Vehículo con antigüedad mayor que la permitida legalmente | | X |
 37.4 Indicador de velocidad | | |
 No tiene indicador de velocidad | | X |
 No cumple su función (excepto en vehículos de autobuses de rutas urbanas, que es leve) | | X |

@@ -8,10 +8,12 @@ Ilegibilidad de delantera o trasera u oculta total o parcialmente | | X |
 En mal estado, o defectos de sujeción | X | |
 Con aristas vivas o riesgo de desprendimiento | X | |
 Si la placa no es original y no existe solicitud de reposición | | X |
-19.2 Rótulos indicativos | | |
-En casos de obligatoriedad, ilegibilidad o inexistencia | | X |
+19.2 Rótulos indicativos (Así reformado el apartado anterior mediante sesión N° 04 del 17 de enero de 2008) | | |
+En casos de obligatoriedad, son ilegibles o inexistentes | | X |
 Rótulos no autorizados | | X |
-Defectos de estado o sujeción, con aristas o riesgos de desprendimiento | X | |
+Uso de calcomanías, alusiones deportivas, propaganda, decoraciones y mensajes en la carrocería de vehículos de transporte público remunerado de personas modalidad taxi, en material adhesivo o pintado, que no tenga relación con el servicio que presta y que no corresponda a lo que legalmente esté dispuesto | | X |
+Colocación interna y externa de anuncios, rótulos publicitarios y avisos en vehículos de transporte público remunerado de personas modalidad taxi, cuando así esté legalmente dispuesto | | X |
+Defectos de estado o sujeción // con aristas // existe riesgo de desprendimiento | X | |
 Dimensiones no reglamentarias | X | |
 19.3 Retrovisores exteriores | | |
 Inexistentes, conforme la Ley de Tránsito | | X |

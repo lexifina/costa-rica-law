@@ -6,13 +6,14 @@ Abolladuras, desperfectos, corrosiones, fisuras, defectos de fijación, filos co
 21.2 Puertas. Accionamiento, aberturas y cierres | | |
 Defectos accionamiento | X | |
 Posible apertura intempestiva de puertas o tapa de motor, Peligro de desprendimiento | | X |
-21.3 Vidrios. Parabrisas y ventanillas | | |
+21.3 Parabrisas, ventanas y ventanillas (Así reformado el apartado anterior mediante sesión N° 04 del 17 de enero de 2008) | | |
 Vidrio/parabrisas inexistente | | X |
-Vidrio/parabrisas roto o soldado con una fisura de un radio mayor a 5 cm. o una longitud mayor a 10 cm. Si está en campo visión directa del conductor. | | X |
+Vidrio / parabrisas roto o soldado con una fisura de un radio mayor a 5 cm o una longitud mayor a 10 cm, si está en el campo de visión directa del conductor | | X |
 Visibilidad defectuosa | X | |
 Accionamiento ventanilla defectuoso | X | |
 Existencia de vidrios en ventanillas delanteras con transparencia inferior a lo legislado | X | |
 Existencia de vidrios en parabrisas delantero con transparencia inferior a lo legislado | | X |
+Existencia de cualquier tipo de oscurecimiento o polarizado de ventanas, ventanillas y parabrisas de los vehículos de transporte público remunerado de personas modalidad taxi, cuando así esté legalmente dispuesto | | X |
 21.4 Pisos | | |
 Abolladuras, dobleces, corrosión | X | |
 Fisuras, roturas y perforaciones que pueden entrañar peligro | | X |
