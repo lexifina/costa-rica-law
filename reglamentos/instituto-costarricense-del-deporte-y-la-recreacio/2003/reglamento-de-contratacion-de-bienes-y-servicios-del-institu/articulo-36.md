@@ -1,1 +1,1 @@
-Artículo 36.—El plazo para la recepción de ofertas no podrá ser inferior a 3 días hábiles.
+Artículo 36.—(Este artículo fue Derogado mediante acuerdo 13 de la sesión N° 580 del 17 de enero de 2008)

@@ -14,3 +14,4 @@ Reglamento de Contratación de Bienes y Servicios del Instituto Costarricense de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-01 | la propia norma |
+| 2 | 2008-01-17 | Reglamento 580 (2008-01-17) |

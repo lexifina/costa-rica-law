@@ -1,2 +1,2 @@
-Artículo 26.—La resolución adjudicataria debidamente razonada deberá constar en el libro de actas, el cual debe estar legalizado por la Auditoría Interna del ICODER, con las referencias necesarias para la identificación del concurso y se publicará en La Gaceta a la brevedad posible, una vez que el Consejo Nacional del Deporte y la Recreación haya
-adjudicado o declarado desierto el proceso.
+Artículo 26.—La Resolución (recomendación) de adjudicación debidamente razonada deberá constar en el libro de actas, el cual debe estar legalizado por la Auditoría Interna del ICODER, con las referencias necesarias para la identificación del concurso y se publicará en La Gaceta a la brevedad posible, una vez que la Dirección Nacional haya adjudicado o declarado desierto o infructuoso el proceso.
+(Así reformado mediante acuerdo 13 de la sesión N° 580 del 17 de enero de 2008)

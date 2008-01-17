@@ -1,7 +1,5 @@
-Artículo 30.—Se invitarán a participar a todos los proveedores inscritos en el registro por medio de publicación en el diario La Gaceta. (únicamente en los casos previstos por el artículo 59, incisos 8 y 9 del Reglamento General de la Contratación Administrativa) Si algún proveedor no se encuentra inscrito deberá inscribirse antes de la fecha última de apertura de ofertas, para lo cual deberá aportar entre otra la siguientes información:
-a) Nombre o razón social de la Empresa.
-b) Cédula física y/o jurídica.
-c) Lista de bienes y/o servicios que ofrece.
-d) Números telefónicos y de fax, así como la dirección exacta.
-e) Nombre del apoderado legal.
-f) Certificaciones de acciones, personería jurídica o física, copia de cédula jurídica o física y declaraciones juradas.
+Artículo 30.—Se invitarán a participar a un mínimo de cinco proveedores del bien o servicio, quienes deberán estar inscritos en el registro de proveedores. Si el número de proveedores para el objeto de la contratación es inferior a cinco, deberá cursar invitación mediante publicación en el Diario Oficial La Gaceta y los medios electrónicos habilitados al efecto.
+Cuando el número de proveedores inscritos sea igual o superior a cinco, la Administración queda facultada para cursar invitación mediante publicación en el Diario Oficial La Gaceta, cuando así lo estime conveniente para la satisfacción del interés público.
+Cuando no medie publicación, la Administración, podrá contemplar en el cartel, la posibilidad de estudiar todas las ofertas presentadas, incluyendo la de aquellos proveedores no invitados, siempre que existan razones de conveniencia debidamente acreditadas en el expediente. Los proveedores no invitados, sino se encuentran inscritos en el Registro de Proveedores, deberán lograr su inscripción antes de la apertura de las ofertas.
+Asimismo, en cuanto a la invitación a participar, la Administración deberá considerar lo establecido en el Decreto Ejecutivo Nº 33305-MEIC-H, denominado “Reglamento Especial para la Promoción de las PYMES en las Compras de Bienes y Servicios de la Administración.
+(Así reformado mediante acuerdo 13 de la sesión N° 580 del 17 de enero de 2008)

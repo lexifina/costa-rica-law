@@ -1,1 +1,3 @@
-Artículo 31.—El plazo para recibir ofertas no podrá ser inferior a 10 días hábiles.
+Artículo 31.—El plazo para recibir ofertas no podrá ser menor a cinco ni mayor a veinte días hábiles. En casos muy calificados, dicho plazo podrá ser ampliado hasta por un máximo de diez días hábiles adicionales al inicialmente fijado, para lo cual deberá dejarse constancia en el expediente, mediante acto razonado suscrito por el Jerarca de la Proveeduría.
+Dentro del plazo para recibir ofertas no se cuenta el día de la comunicación a cada oferente o el de la publicación, según proceda, y sí el del vencimiento. La Administración deberá realizar todas las invitaciones el mismo día.
+(Así reformado mediante acuerdo 13 de la sesión N° 580 del 17 de enero de 2008)
