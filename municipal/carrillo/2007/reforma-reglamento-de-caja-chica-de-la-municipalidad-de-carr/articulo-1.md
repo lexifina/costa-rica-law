@@ -1,0 +1,16 @@
+MUNICIPALIDAD DE CARRILLO
+MODIFICACIÓN ARTÍCULOS-REGLAMENTO DE CAJA CHICA
+El Concejo Municipal de Carrillo, Guanacaste, a través del acuerdo número ocho, emitido en la sesión ordinaria número cuarenta y ocho-dos mil siete, celebrada el día veintisiete de noviembre del dos mil siete, dispuso a raíz de una moción presentada por la síndica Ana Isabel Quintero Vargas acogida por la regidora propietaria Denia Canales Carmona, modificar los artículos 1, 6, 7 y 19 del Reglamento de Caja Chica de la Municipalidad de Carrillo, publicado en La Gaceta Nº 166 del 25 de agosto de 2004, modificado en La Gaceta Nº 212 del 6 de noviembre de 2006, para que literalmente se lean así:
+Artículo 1º—De conformidad con el artículo 109, párrafo tercero del Código Municipal, se autoriza el funcionamiento de una Caja Chica que se regulará por medio de un Reglamento de Caja Chica, que estará bajo el cuidado del Tesorero (a) Municipal, y por medio de ésta se podrán adquirir Bienes y Servicios, así como viáticos y gastos de viaje. De conformidad se fija un monto de ¢.2.000.000,00 (dos millones de colones) para Caja Chica. Asimismo, el Concejo Municipal será el responsable de aumentar o disminuir el monto de Caja Chica y todo egreso que de ésta se realice deberá ser aprobado por el Alcalde Municipal.
+Artículo 6º—Ningún pago por Caja Chica podrá exceder de la suma de ¢.1.000.000,00 (un millón de colones). La Proveeduría podrá realizar adquisiciones de Bienes y Servicios, pero deberá solicitar como mínimo dos cotizaciones en aquellos montos que superen los ¢.300.000,00 (trescientos mil colones) y llevar expedientes debidamente foliados por cada compra que se realice.
+Artículo 7ºº—Los egresos que se realicen por Caja Chica serán tramitados por el Encargado de la Proveeduría y se tramitarán a través de la fórmula denominada “Compras por Caja Chica” conocida como “Adelanto de Caja Chica”, los mismos debidamente autorizados por el Alcalde Municipal y contendrá la siguiente información:
+a) Número consecutivo del documento denominado “Compra por Caja Chica”.
+b) Sección solicitante.
+c) Artículo o servicio solicitado.
+d) Jefatura solicitante (nombre y firma).
+e) Autorización (firma) Alcalde Municipal.
+f) Nombre completo, con los dos apellidos del funcionario que recibe el adelante, quien será a su vez el responsable de la compra y deberá liquidar en forma personal el adelanto.
+g) Fecha de entrega del adelanto.
+Artículo 19.—Los desembolsos hechos por Caja Chica se reintegran semanalmente o antes de este periodo si el fondo llegare a agotarse. Para tal efecto el Tesorero (a) presenta al Alcalde Municipal en la hoja de liquidación, número del documento, fecha, clasificación del gasto, código, suma pagada. El Alcalde Municipal autorizará el detalle de los egresos hechos por Caja Chica, y se procederá a incluirlos en nómina para que se confeccione el cheque correspondiente a nombre del Tesorero (a) Municipal; quien lo cambiará en el Banco indicado para que le quede en efectivo, completando así el fondo de Caja Chica que se ha establecido en la suma de ¢.2.000.000,00 (dos millones de colones exactos). El registro de los egresos efectuados por el fondo de Caja Chica se realizará conforme al Manual de Procedimientos Financiero Contables, vigente en esta Municipalidad.
+Publíquese para efectos de Ley. (Sic).
+Filadelfia, 7 de enero del 2008.
