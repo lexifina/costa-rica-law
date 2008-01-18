@@ -15,3 +15,4 @@ Reglamento para la selección de los curadores, notarios inventariadores e inter
 | 1 | 2005-01-12 | la propia norma |
 | 2 | 2005-09-19 | Reglamento 29 (2005-09-19) |
 | 3 | 2006-02-27 | Reglamento 3 (2006-02-27) |
+| 4 | 2008-01-18 | Circular 13 (2008-01-18) |
