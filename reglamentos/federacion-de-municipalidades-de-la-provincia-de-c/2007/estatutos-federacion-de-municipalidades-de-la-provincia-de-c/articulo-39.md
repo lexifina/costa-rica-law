@@ -1,0 +1,1 @@
+Artículo 39.—Transitorio II.—La reforma del artículo 9 de estos estatutos aplicará a partir del próximo período constitucional siguiente a esta reforma, salvo que cada municipalidad manifieste por escrito su aprobación a la misma.

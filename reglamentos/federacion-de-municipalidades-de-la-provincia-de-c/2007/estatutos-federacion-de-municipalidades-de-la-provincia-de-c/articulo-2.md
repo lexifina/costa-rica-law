@@ -1,0 +1,1 @@
+Artículo 2º.—La Federación constituida se denominará FEDEMUCARTAGO y tendrá su domicilio en la ciudad de Cartago, provincia de Cartago. Sin embargo podrá abrir oficinas, sucursales o agencias en cualquier parte o lugar del territorio nacional o fuera de él si sus actividades futuras así lo requirieran.

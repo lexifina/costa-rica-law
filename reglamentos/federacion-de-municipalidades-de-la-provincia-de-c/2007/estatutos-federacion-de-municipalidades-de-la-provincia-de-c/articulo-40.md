@@ -1,0 +1,2 @@
+Artículo 40.—Transitorio III.—Los nuevos miembros que completarán el actual Concejo Directivo por el plazo correspondiente (Alcaldes e Intendentes), serán designados dentro del mes siguiente a la publicación de esta reforma, por acuerdo de mayoría de dichos funcionarios.
+Estatutos aprobados Asamblea General, Federación de Municipalidades de Cartago a las doce horas del cinco de mayo del dos mil siete.

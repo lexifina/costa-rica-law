@@ -1,0 +1,2 @@
+Artículo 15.—De la Vicepresidencia. La Vicepresidencia sustituirá al Presidente/a por razones de ausencia o enfermedad. Así mismo, lo hará como Presidente/a en funciones en caso de cese, dimisión, censura o fallecimiento del Presidente/a, en cuyo caso debe ser convocado el Concejo Directivo en los términos establecidos por el Reglamento de Régimen Interno.
+Además, apoyar las funciones que le corresponden al Presidente.
