@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Este reglamento será de aplicación en todo el territorio nacional, a todo aquel establecimiento y todas las personas profesionales involucradas en el manejo de estupefacientes y psicotrópicos.

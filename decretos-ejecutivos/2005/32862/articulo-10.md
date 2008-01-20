@@ -1,0 +1,1 @@
+Artículo 10.—El propietario o representante legal del establecimiento farmacéutico debe proveer a los regentes que cuenten con la licencia respectiva vigente de los libros oficiales, o cualquier otro sistema que la Dirección oficialice para el adecuado control de estos medicamentos.

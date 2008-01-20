@@ -1,0 +1,1 @@
+Artículo 11.—Los establecimientos que cuenten con las licencias para el manejo de psicotrópicos y estupefacientes, quedan obligados a permitir el ingreso inmediato a la autoridad de salud, para la inspección y la fiscalización, cuando ésta lo determine necesario.

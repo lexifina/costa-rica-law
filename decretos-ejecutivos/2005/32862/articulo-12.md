@@ -1,0 +1,1 @@
+Artículo 12.—Cualquier cambio en la regencia, incapacidad, renuncia, traslado o vacaciones de la persona regente de un establecimiento farmacéutico, así como el traslado del establecimiento, deben ser notificadas inmediatamente al Ministerio por el propietario o representante legal.
