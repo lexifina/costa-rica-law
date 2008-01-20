@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento y el Control de Licencias para el Manejo de Psic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-20 | la propia norma |
+| 2 | 2008-01-20 | Decreto Ejecutivo 34053 (2007-09-05) |
