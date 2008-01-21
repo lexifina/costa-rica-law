@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. El CONE es un órgano técnico, político y asesor adscrito al Colegio de Enfermeras de Costa Rica. El CONE deberá llevar a cabo sus funciones en coordinación con el Ministerio de Salud y las instituciones o entes representados en el Consejo para la consecución de sus fines.

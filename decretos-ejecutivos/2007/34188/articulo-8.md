@@ -1,0 +1,1 @@
+Artículo 8º—Sede del CONE. El CONE sesionará en la sede Central del Colegio de Enfermeras de Costa Rica. Sin embargo, por acuerdo del Consejo, podrá establecer como sede temporal o provisional cualquier otro lugar.

@@ -1,0 +1,1 @@
+Artículo 7º—Quórum de integración y funcionamiento. El CONE se considerará válidamente integrado, tanto para las sesiones ordinarias como extraordinarias, con la presencia y permanencia de cinco de sus miembros. El quórum para sesionar válidamente será de la mayoría absoluta de sus integrantes y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes.
