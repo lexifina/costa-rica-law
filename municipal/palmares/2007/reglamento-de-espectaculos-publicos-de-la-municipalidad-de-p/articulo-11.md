@@ -1,0 +1,1 @@
+Artículo 11.—Pago del tributo. El impuesto deberá ser cancelado únicamente en las cajas recaudadoras definidas por la Municipalidad. Los espectáculos públicos permanentes deberán cancelar el impuesto, el último día hábil del mes que se trate, en tanto que los espectáculos públicos ocasionales, deberán cancelar el impuesto por adelantado, según se indica en el artículo siguiente.
