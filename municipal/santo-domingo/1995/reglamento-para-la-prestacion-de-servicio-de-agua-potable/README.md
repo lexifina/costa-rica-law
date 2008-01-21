@@ -14,3 +14,4 @@ Reglamento para la Prestación de Servicio de Agua Potable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-20 | la propia norma |
+| 2 | 2008-01-21 | Reglamento municipal 77 (2007-12-17) |
