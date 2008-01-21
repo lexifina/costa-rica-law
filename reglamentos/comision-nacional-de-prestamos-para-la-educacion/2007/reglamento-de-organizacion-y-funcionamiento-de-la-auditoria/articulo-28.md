@@ -1,0 +1,1 @@
+Artículo 28.—Protección al personal de la Auditoría. Cuando el personal de la Auditoría Interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, CONAPE dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución; de conformidad con el artículo 26 de la Ley General de Control Interno.

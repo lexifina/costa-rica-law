@@ -1,0 +1,1 @@
+Artículo 38.—Admisibilidad de las denuncias. La Auditoría Interna de CONAPE atenderá todas las denuncias que le sean presentadas, de acuerdo con la prioridad que le sea asignada por el Auditor Interno y el volumen de trabajo de la Unidad.

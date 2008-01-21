@@ -1,0 +1,1 @@
+Artículo 50.—Derogatorias. Deróguese el “Reglamento para la Auditoría Interna de CONAPE”, aprobado en la Sesión N° 35-11-1982, publicado en La Gaceta N° 148 del 05 de agosto de 1993, en el momento que entre en vigencia el presente Reglamento.

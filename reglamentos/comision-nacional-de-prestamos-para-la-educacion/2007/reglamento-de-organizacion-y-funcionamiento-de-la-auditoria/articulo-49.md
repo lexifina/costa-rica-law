@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Disposiciones finales
+Artículo 49.—Del Reglamento y sus modificaciones. El presente reglamento, en forma conjunta con las disposiciones contenidas en la Ley Orgánica de la Contraloría General de la República, Ley General de Control Interno y los manuales técnicos emitidos por el órgano contralor, constituyen el marco de organización y funcionamiento de la Auditoría Interna de CONAPE; de conformidad con las disposiciones del artículo 23 de la Ley General de Control Interno. Su contenido es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y del resto de los funcionarios de la Administración Activa en la materia que les concierne.
+A efectos de mantener el marco normativo de la Auditoría Interna actualizado, le corresponde al Auditor Interno proponer y promover ante el jerarca, las modificaciones al mismo. Toda modificación debe contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.
