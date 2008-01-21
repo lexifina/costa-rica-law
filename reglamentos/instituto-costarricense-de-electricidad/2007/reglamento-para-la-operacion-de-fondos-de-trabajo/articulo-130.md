@@ -1,0 +1,1 @@
+Artículo 130.—Es responsabilidad de los autorizadores de creación y modificación de tarjetas, verificar que el tope de cada tarjeta se ajuste a las necesidades de la dependencia. Cuando se determine que el monto autorizado ha sobrepasado los requerimientos reales, debe realizar el rebajo en las categorías de consumo, en el Módulo de Modificaciones del BCR.

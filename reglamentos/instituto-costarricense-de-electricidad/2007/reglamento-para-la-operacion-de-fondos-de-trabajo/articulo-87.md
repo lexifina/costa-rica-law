@@ -1,0 +1,7 @@
+Artículo 87.—Existen dos tipos de aumentos en el monto asignado a un fondo de trabajo, los cuales para su trámite requieren de un tratamiento diferente.
+a) Aumentos permanentes
+La dependencia responsable del fondo de trabajo solicita el incremento mediante una nota a la autoridad que corresponda de acuerdo al artículo 86 de este Reglamento. Dicha nota debe contener la respectiva justificación que respalda el aumento solicitado, además:
+La fórmula F-10-0052 “Solicitud de Fondo de Trabajo” (ver Anexo 12) con la información que corresponda.
+Incluir el cálculo que determinó el incremento, aplicando el procedimiento que se indica en el Anexo 14.
+b) Aumentos ocasionales
+Los aumentos ocasionales del monto asignado a un fondo de trabajo, sólo se tramitan en casos de excepción, para cubrir los períodos de Semana Santa, fin de año y otros casos calificados. Para tal efecto, la dependencia responsable del fondo de trabajo debe solicitar con una nota la aprobación del incremento a la autoridad que corresponda de acuerdo con el artículo 86 de este Reglamento. La nota aprobada, debe ser entregada a Gestión de Liquidez e indicar la justificación que respalda el aumento solicitado y el período de vigencia. Concluido el periodo de vigencia, el encargado del fondo debe reintegrar a la cuenta matriz que corresponde, el excedente autorizado y solicitar el respectivo registro a Contabilidad, mediante nota, adjuntando el comprobante de depósito, con copia a Gestión de Liquidez.

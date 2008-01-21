@@ -1,0 +1,1 @@
+Artículo 58.—Una vez incluido el compromiso para la asignación del fondo de trabajo, el coordinador de presupuesto de cada UEN, Dirección Técnica, Dirección Administrativa y otras Direcciones, debe coordinar con el Proceso de Planificación Financiera de la Dirección Finanzas, para que dicho compromiso sea aplicado y a su vez se refleje en el sistema de fondos de trabajo.

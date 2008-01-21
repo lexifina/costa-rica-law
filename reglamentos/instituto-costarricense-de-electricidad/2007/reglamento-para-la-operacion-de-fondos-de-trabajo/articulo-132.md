@@ -1,0 +1,1 @@
+Artículo 132.—En la modalidad de fondos de trabajo con tarjeta de compras institucional, es de acatamiento obligatorio la aplicación de las normas establecidas en el “Procedimiento de Control y Uso de la Tarjeta de Compras Institucionales”, vigente.

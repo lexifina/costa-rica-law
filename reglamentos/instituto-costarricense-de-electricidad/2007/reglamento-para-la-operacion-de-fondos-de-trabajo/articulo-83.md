@@ -1,0 +1,1 @@
+Artículo 83.—Los subfondos son tramitados únicamente en casos de excepción y con la debida autorización del Director, su apertura se oficializa con la fórmula F-10-0052 “Solicitud de Fondos de Trabajo o subfondo de trabajo”. (Ver Anexo 12).

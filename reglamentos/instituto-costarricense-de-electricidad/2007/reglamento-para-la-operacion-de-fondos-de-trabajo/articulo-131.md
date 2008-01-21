@@ -1,0 +1,1 @@
+Artículo 131.—Gestión de Liquidez tiene la potestad de suspender, a su discreción, el uso de tarjetas cuando se determine incumplimiento de la fecha establecida, para la presentación de liquidaciones, conciliación mensual (Art. 126) y a solicitud expresa de la dependencia donde opera la tarjeta o de la Auditoría Institucional.

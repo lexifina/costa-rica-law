@@ -1,0 +1,1 @@
+Artículo 128.—En caso de que el tarjeta habiente haya solicitado el reemplazo (por robo, pérdida), aplican los mismos principios y controles dispuestos para la entrega de una tarjeta nueva. La sustitución de tarjeta por daños en el plástico o en la banda magnética debe ser gestionada por cada tarjetabiente en cualquier agencia del BCR.

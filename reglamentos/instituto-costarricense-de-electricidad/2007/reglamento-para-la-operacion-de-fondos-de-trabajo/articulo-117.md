@@ -1,0 +1,1 @@
+Artículo 117.—El uso de la tarjeta se rige por lo que estipula el presente Reglamento, en cuanto al proceso de adquisición y aprobación de la compra de bienes y servicios. El tarjeta habiente sólo puede cotizar con proveedores que estén afiliados al sistema de tarjetas de compras institucional, excepto por lo indicado en los incisos e) y f) del artículo 119 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 124.—El encargado de fondo de trabajo debe sellar toda la documentación, después de ingresar sus datos en el sistema de fondos de trabajo, de acuerdo a lo indicado en el artículo 7, inciso k).

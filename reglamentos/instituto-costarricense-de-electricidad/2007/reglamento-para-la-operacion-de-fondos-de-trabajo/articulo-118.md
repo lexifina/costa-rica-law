@@ -1,0 +1,1 @@
+Artículo 118.—El tarjeta habiente es responsable de comprobar que el monto incluido en el voucher sea igual al monto de la factura y de verificar la correcta aplicación de la retención del impuesto sobre la renta, en los casos en que ésta aplica, adjuntando a la factura el “Comprobante Retención del Impuesto sobre la Renta” (Fórmula F-32-0167). (Ver Anexo 10)

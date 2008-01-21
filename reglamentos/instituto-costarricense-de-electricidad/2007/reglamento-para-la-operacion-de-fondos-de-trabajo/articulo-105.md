@@ -1,0 +1,3 @@
+Artículo 105.—En apego al artículo 689 del Código de Comercio, el encargado del fondo, solicita:
+a) Al respectivo Banco una contraorden de pago provisional, posteriormente confecciona y entrega la fórmula de solicitud de contraorden de pago definitiva. Si el Banco indica que el cheque fue cambiado, el mismo no se repone.
+b) Al beneficiario del cheque, la publicación del particular por tres veces consecutivas en el Diario Oficial La Gaceta y en uno de los diarios de circulación nacional, cuyo costo debe cubrir el beneficiario con sus propios recursos y presentar copia de tales publicaciones al encargado del fondo.

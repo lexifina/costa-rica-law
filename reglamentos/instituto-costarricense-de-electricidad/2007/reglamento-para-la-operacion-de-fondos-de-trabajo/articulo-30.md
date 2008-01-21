@@ -1,0 +1,1 @@
+Artículo 30.—No se deben tramitar facturas a crédito en fondos de trabajo o cuando las mismas están amparadas a una orden de compra o de servicios, emitida por la Dirección Administrativa de Proveeduría.

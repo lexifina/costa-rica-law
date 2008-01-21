@@ -1,0 +1,1 @@
+Artículo 25.—El funcionario que no cumpla con los plazos establecidos en el artículo 16 de este Reglamento, no puede solicitar un nuevo vale, a no ser que el Director, rinda por escrito la autorización que corresponde.

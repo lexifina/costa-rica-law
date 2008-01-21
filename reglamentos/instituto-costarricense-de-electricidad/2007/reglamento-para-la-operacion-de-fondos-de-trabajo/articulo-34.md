@@ -1,0 +1,1 @@
+Artículo 34.—Para liquidar la adquisición de activos o herramientas, debe adjuntarse a la factura copia del respectivo vale (Ver Anexo 4) con el sello de la dependencia que custodia el original de este documento.

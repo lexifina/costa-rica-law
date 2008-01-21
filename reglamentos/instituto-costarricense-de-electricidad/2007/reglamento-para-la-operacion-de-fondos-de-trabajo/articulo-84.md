@@ -1,0 +1,1 @@
+Artículo 84.—El responsable de la operación de un subfondo, debe utilizar el Sistema de Fondos de Trabajo, para el trámite de la documentación generada y regirse por lo que estipula el presente Reglamento.

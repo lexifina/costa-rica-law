@@ -1,0 +1,4 @@
+Artículo 114.—Para definir las características de la tarjeta se debe cumplir con los siguientes pasos:
+El autorizador de la creación o modificación de tarjetas debe establecer las clasificaciones requeridas para cada tarjeta habiente, para lo cual debe realizar un análisis de las necesidades de su dependencia, respecto a los funcionarios que deben utilizar este instrumento de pago, así como los parámetros de consumo a asignar a cada uno de ellos.
+En caso de que las clasificaciones requeridas sean restringidas, se debe justificar su uso, mediante nota firmada por el Director ante Gestión de Liquidez. Si la clasificación a utilizar es la No. 7 Compras por vía electrónica, se debe cumplir lo indicado en el artículo 110 de este Reglamento.
+El encargado de fondo debe tramitar ante Gestión de Liquidez, el Formulario Múltiple para la Solicitud y Mantenimiento de la Tarjeta de Compras institucional. (Ver Anexo 16).

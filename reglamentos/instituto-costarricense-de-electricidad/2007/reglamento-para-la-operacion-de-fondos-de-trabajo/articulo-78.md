@@ -1,0 +1,1 @@
+Artículo 78.—Gestión de Liquidez, tiene la potestad de suspender el trámite de las solicitudes de reintegro de un fondo de trabajo, en caso de determinar anomalías en el funcionamiento del mismo o por razones y causas debidamente indicadas por escrito, por alguna de las dependencias involucradas en este proceso.
