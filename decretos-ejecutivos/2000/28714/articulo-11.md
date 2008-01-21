@@ -1,1 +1,0 @@
-Artículo 11.—La Auditoría Interna ejercerá sus funciones con independencia funcional y de criterio, respecto del Ministro y demás órganos de administración activa. Así, el Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones en ninguna otra unidad del Ministerio, ni tampoco ser miembros de comisiones de trabajo o similares.

@@ -1,1 +1,0 @@
-Artículo 34.—El informe de Auditoría contendrá los elementos necesarios, para identificar los presuntos partícipes responsables contra los cuales enderezar las acciones que se recomiendan y precisar los hechos anómalos o irregulares que servirán de base a la intimación de cargos.
