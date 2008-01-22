@@ -1,1 +1,0 @@
-Artículo 20.—Los Encargados de cada Unidad serán los responsables de que en su oficina se ordenen y archiven correctamente los documentos, siguiendo la normativa establecida por el Archivo Central. Asimismo, será el responsable de que se envíen correctamente las listas de remisión.

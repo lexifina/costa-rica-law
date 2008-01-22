@@ -1,1 +1,0 @@
-Artículo 35.—Las disposiciones incluidas son de acatamiento obligatorio por todos los usuarios, tanto internos como externos. Caso contrario, los problemas internos podrían ser sancionados según lo dispuesto en el Reglamento Autónomo de Servicio del Instituto Costarricense de Puertos del Pacífico y la legislación vigente en el campo archivístico.

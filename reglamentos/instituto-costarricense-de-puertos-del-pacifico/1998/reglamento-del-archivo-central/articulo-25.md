@@ -1,1 +1,0 @@
-Artículo 25.—Para la adecuada selección de documentos que serán eliminados o remitidos al Archivo Central, los Encargados de cada unidad se deberán guiar por la Tabla de Plazos de Conservación y Eliminación, una vez que la misma esté debidamente elaborada por el Comité Institucional y haya sido aprobada por la Comisión Nacional.

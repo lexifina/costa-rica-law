@@ -1,1 +1,0 @@
-Artículo 13.—Para el préstamo de documentos a las oficinas productoras, éstas elaborarán una boleta de Préstamo de Documentos que será firmada, tanto por el funcionario que recibe como el que entrega, además deberán anotar el número de cédula correspondiente.

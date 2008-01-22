@@ -1,1 +1,0 @@
-Artículo 15.—El Archivo Central contará con un Registro de Firmas debidamente actualizado, por medio del cual, solamente suministrará documentos, a aquellos funcionarios que se encuentren autorizados en dicho registro.

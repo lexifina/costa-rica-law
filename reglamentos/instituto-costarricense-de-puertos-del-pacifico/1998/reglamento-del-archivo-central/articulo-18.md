@@ -1,1 +1,0 @@
-Artículo 18.—En caso de que los documentos sean consultados por historiadores o con el fin de elaborar investigaciones importantes y ajuicio del archivista, éste solicitará una copia del trabajo realizado que pasará a formar parte del patrimonio documental del Archivo Central del Instituto Costarricense de Puertos del Pacífico.

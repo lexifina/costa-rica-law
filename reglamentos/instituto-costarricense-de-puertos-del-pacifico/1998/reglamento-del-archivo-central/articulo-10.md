@@ -1,1 +1,0 @@
-Artículo 10.—El Archivista o persona Encargada del Archivo Central, establecerá las fechas en que se recibirán documentos de cada oficina y deberá comunicarlo por escrito a los Encargados de Archivos de Gestión.
