@@ -1,0 +1,1 @@
+Artículo 24.—Plan de trabajo. El Auditor Interno establecerá un plan de trabajo anual congruente con la planificación estratégica, Dicho plan debe presentarse de conformidad con los lineamientos emitidos por la Contraloría General de la Republica. Dicho plan será de conocimiento del Consejo Ejecutivo.

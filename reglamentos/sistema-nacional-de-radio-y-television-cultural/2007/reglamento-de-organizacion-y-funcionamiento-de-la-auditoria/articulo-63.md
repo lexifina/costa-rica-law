@@ -1,0 +1,1 @@
+Artículo 63.—Comunicación de los servicios de auditoría: Los servicios de auditoría se comunican mediante informes que se clasifican de dos tipos informes de control interno y seguimiento e informe de responsabilidades o relaciones de hecho.

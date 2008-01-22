@@ -1,0 +1,1 @@
+Artículo 44.—Servicio de la Asesoría legal. La asesoría legal de la institución deberá brindar el oportuno y efectivo servicio a la Auditoria Interna mediante los estudios jurídicos que está requiera , a fin de establecer adecuadamente el ámbito de acción conforme con lo estipulado en el artículo 33, inciso c) de la Ley General de Control Interno

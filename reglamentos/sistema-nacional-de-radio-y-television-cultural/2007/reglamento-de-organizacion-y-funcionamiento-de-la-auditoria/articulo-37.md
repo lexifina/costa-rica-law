@@ -1,0 +1,1 @@
+Artículo 37.—Movimientos de personal. El Auditor Interno será el jefe de personal de la Auditoría Interna, a el corresponde autorizar los movimientos de personal en la Auditoría Interna (nombramientos, traslados, suspensiones, remociones, concesión de licencias y otros) de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno.

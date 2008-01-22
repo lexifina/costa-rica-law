@@ -1,0 +1,1 @@
+Artículo 58.—Procesamiento de la información. Los servicios de Auditoría Interna estarán sustentados en información suficiente, confiable, relevante y útil, la cual deberá ser registrada, analizada y evaluada adecuadamente, siguiendo lo establecido en la normativa técnica aplicable y los procedimientos internos aprobados por el Auditor Interno.

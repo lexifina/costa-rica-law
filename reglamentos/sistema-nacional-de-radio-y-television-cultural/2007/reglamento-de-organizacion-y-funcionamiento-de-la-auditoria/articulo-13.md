@@ -1,0 +1,1 @@
+Artículo 13.—Prohibiciones. El Auditor Interno y el personal de la Auditoría Interna tendrán las prohibiciones estipuladas en el artículo 34 de la Ley General de Control Interno. Y las que se establezcan en Leyes o reglamentos internos.

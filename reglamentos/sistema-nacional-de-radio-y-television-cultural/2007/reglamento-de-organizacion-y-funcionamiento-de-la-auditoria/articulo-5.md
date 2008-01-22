@@ -1,0 +1,1 @@
+Artículo 5º—Responsabilidad por el Sistema de Control Interno. Serán responsabilidades del Jerarca y del titular subordinado establecer, mantener, perfeccionar y evaluar el Sistema de Control Interno de la Empresa.

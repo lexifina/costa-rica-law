@@ -1,0 +1,3 @@
+SECCION D
+Relaciones y coordinaciones
+Artículo 41.—Lineamientos sobre relaciones y coordinación con órganos externos al SINART S. A. El Auditor Interno podrá proveer e intercambiar información con la Contraloría General de la República en el ejercicio de sus competencias, así como con otros entes, órganos de control y particulares en que la ley así lo establezca en el ámbito de su competencia. Sin perjuicio de la coordinación que al respecto deba darse, sin que implique limitaciones en la para la efectiva actuación de la Auditoría Interna, salvo aquella que por alguna normativa le esté prohibido.

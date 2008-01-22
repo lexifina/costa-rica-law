@@ -1,0 +1,1 @@
+Artículo 27.—Programa de aseguramiento de la calidad. El Auditor Interno mantendrá un Programa de aseguramiento de la calidad para la Auditoría Interna, conforme lo establece el Manual de Normas para el ejercicio de la Auditoría Interna

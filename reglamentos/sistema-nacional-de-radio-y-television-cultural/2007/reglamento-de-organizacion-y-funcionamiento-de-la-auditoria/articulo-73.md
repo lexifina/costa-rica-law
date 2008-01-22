@@ -1,0 +1,1 @@
+Artículo 73.—Derogatoria. Este reglamento deroga el Reglamento de Organización y Funciones de la Auditoría Interna del Sinart, aprobado por el Consejo de Directores en sesión 007 del 17 febrero 1988, y cualquier acuerdo de Consejo Ejecutivo o disposición que se oponga a este reglamento

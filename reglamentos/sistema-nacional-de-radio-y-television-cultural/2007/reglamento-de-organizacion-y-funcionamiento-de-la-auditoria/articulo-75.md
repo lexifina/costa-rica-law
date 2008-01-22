@@ -1,0 +1,1 @@
+Artículo 75.—De las modificaciones totales o parciales. El Auditor Interno y el Consejo Ejecutivo podrán proponer modificaciones totales o parciales al Reglamento, las cuáles deberán seguir los trámites de aprobación y publicación definidos en este reglamento.

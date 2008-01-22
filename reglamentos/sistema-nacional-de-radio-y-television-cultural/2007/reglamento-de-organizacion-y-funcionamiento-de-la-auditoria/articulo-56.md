@@ -1,0 +1,3 @@
+SECCIÓN C
+De la ejecución de la Auditoría
+Artículo 56.—Normativas para la ejecución del trabajo. Todas las intervenciones, exámenes o pruebas que realice la Auditoría se harán al amparo de Manual sobre Normas Técnicas de Auditoría y de Control Interno para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización, el Manual para el Ejercicio de la Auditoría Interna en las Entidades y Órganos Sujetos a su Fiscalización de la Contraloría General de la República, los Manuales Específicos emitidos o que a futuro emita el Ente Contralor y las Normas para el Ejercicio Profesional de la Auditoría Interna y demás normativas emitidas que sea vinculante con la labor de Auditoría.

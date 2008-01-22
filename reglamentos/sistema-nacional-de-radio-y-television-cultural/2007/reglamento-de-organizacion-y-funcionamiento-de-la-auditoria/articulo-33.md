@@ -1,0 +1,2 @@
+Artículo 33.—Asignación de recursos. Le corresponderá al Auditor Interno proponer al Consejo Ejecutivo la creación de plazas y servicios para el buen funcionamiento de la Auditoría, conforme a las normas y procedimientos establecidos por la Entidad en esta materia y a los artículos 27 y 28 de la LGCI.
+EL Consejo Ejecutivo, de acuerdo a la disponibilidad de recursos, deberá asignar los recursos humanos, materiales, tecnológicos de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su función.

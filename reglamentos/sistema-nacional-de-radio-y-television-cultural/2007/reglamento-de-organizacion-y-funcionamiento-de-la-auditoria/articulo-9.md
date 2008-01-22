@@ -1,0 +1,1 @@
+Artículo 9º Sobre la Visión Misión y Principales Políticas. El Auditor Interno establecerá y mantendrá actualizado la misión, visión y principales políticas que regirán el accionar de la Auditoría Interna, así como los enunciados o códigos éticos que deben tener en cuenta los funcionarios de la Auditoría Interna, al conducirse en sus distintas relaciones internas y externas.

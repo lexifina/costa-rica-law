@@ -1,0 +1,1 @@
+Artículo 48.—Potestades por Ley. El Auditor Interno y el personal de Auditoría Interna, para el desempeño de sus competencias tendrán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.

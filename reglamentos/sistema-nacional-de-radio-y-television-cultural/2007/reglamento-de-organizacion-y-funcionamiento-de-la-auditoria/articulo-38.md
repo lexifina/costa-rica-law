@@ -1,0 +1,1 @@
+Artículo 38.—Limitaciones del Auditor. El Auditor Interno deberá comunicar el impacto que sobre la fiscalización y el control tendrá la limitación de recursos e informar al jerarca del riesgo que está asumiendo y la eventual responsabilidad que podría imputársele al respecto.

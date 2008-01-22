@@ -1,0 +1,1 @@
+Artículo 14.—Participación del Auditor Interno en sesiones del Consejo Ejecutivo. El Auditor Interno asistirá a las sesiones cuando lo solicite el Consejo Ejecutivo, su participación será en calidad de asesor en asuntos de su competencia, y no podrá ser con carácter permanente.
