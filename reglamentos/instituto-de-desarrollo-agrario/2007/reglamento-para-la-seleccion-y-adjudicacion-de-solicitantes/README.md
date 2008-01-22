@@ -14,3 +14,4 @@ Reglamento para la Selección y Adjudicación de Solicitantes de Tierra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-16 | la propia norma |
+| 2 | 2008-01-22 | Reglamento 3 (2008-01-22) |

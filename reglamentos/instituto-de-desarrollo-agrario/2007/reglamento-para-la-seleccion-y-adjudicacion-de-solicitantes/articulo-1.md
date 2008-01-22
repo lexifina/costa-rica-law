@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue Derogado mediante acuerdo 3 de la sesión 003 de 22 de enero de 2008)
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO PARA LA SELECCIÓN Y ADJUDICACIÓN
 DE SOLICITANTES DE TIERRAS
