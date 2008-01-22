@@ -1,0 +1,1 @@
+Artículo 11.—Al momento del cierre de caja, el cajero o recaudador debe separar el monto en forma íntegra del fondo para cambio de efectivo y colocarlo en la caja de seguridad que se le entregó para ese efecto, guardándola en el lugar seguro que le fue asignado para ello.

@@ -1,0 +1,1 @@
+Artículo 21.—Aquellos hechos del funcionario responsable que hagan presumir alguna responsabilidad civil y/o penal en perjuicio del patrimonio público por uso indebido de estos fondos, obligan a la Administración a entablar las acciones judiciales del caso sin detrimento de la responsabilidad disciplinaria en que incurra el servidor.

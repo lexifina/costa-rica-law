@@ -1,0 +1,1 @@
+Artículo 28.—Cuando el funcionario no esté laborando, el monto fijo del fondo para cambio deberá estar en su totalidad en la caja de seguridad que lo contiene, dentro del sitio o casillero diseñado para dicho fin. Queda bajo la responsabilidad total del cajero o recaudador custodio del fondo, el uso del mismo únicamente para lo que fue estricta y legalmente autorizado.

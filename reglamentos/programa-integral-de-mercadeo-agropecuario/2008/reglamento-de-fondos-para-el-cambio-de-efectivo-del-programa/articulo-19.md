@@ -1,0 +1,1 @@
+Artículo 19.—Los sobrantes que resulten de los arqueos practicados o de los cierres de caja, deberán depositarse en forma inmediata en la caja del Proceso de Tesorería o bien en el buzón nocturno de dicha caja, cuando el hecho se presente en horas inhábiles.

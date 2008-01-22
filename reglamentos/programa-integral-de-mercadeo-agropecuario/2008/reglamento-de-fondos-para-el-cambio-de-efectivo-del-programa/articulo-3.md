@@ -1,0 +1,1 @@
+Artículo 3º—El Recaudador Supervisor del Subproceso de Acceso a Casetas de la Dirección Administración CENADA, tendrá además un Fondo Especial para el Cambio de Efectivo, con el fin de cambiar denominaciones altas por otras de menor cuantía a los funcionarios que realizan la función de recaudación en ese Subproceso.

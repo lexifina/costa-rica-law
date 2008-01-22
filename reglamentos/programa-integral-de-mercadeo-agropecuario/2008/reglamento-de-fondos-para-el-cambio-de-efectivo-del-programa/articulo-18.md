@@ -1,0 +1,1 @@
+Artículo 18.—Aquellos faltantes que se detecten en un fondo para cambio de efectivo, el funcionario responsable de su custodia deberá hacer el reintegro inmediatamente, por medio del levantamiento de un acta suscrita por él y su superior jerárquico. Lo anterior sin perjuicio de las acciones que pueda emprender la Administración para iniciar una investigación de lo sucedido.

@@ -1,0 +1,1 @@
+Artículo 9º—Para la identificación de billetes falsos en el momento de realizar el cobro, cada cajero debe contar con el equipo necesario y su respectiva capacitación, por lo que es responsabilidad del cajero o recaudador hacer las verificaciones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 2º—Los Fondos para Cambio lo constituyen un monto fijo, en dinero efectivo en colones, asignado a los funcionarios responsables de cobrar ingresos para la Institución, sean éstos llamados cajeros o recaudadores, cuya finalidad es la entrega de vueltos o cambio a los clientes o usuarios del PIMA en las labores de cobro asignadas.

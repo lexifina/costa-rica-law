@@ -1,0 +1,1 @@
+Artículo 29.—Los encargados de recaudar, custodiar o administrar fondos y valores públicos deberán de rendir con cargo a su propio peculio la póliza de seguro de conformidad con el artículo 13 de la ley de Administración Financiera y Presupuestos Públicos, número 8131.

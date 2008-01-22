@@ -1,0 +1,1 @@
+Artículo 20.—Las acciones establecidas para subsanar las diferencias obtenidas en los arqueos, se implementarán independientemente de las sanciones disciplinarias que la Administración pueda establecer de acuerdo con la legislación vigente.
