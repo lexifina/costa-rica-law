@@ -1,1 +1,0 @@
-Artículo 10.—Será requisito indispensable para el otorgamiento de una beca que el solicitante sea residente habitual del cantón, la cual deberá demostrar mediante constancia emitida al efecto por el delegado de la Guardia Rural respectiva, aunque sus estudios los realice en otro centro educativo público de enseñanza media, en un cantón limítrofe de Desamparados.

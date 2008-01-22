@@ -1,1 +1,0 @@
-Artículo 3°—Las becas referidas, serán financiadas con la partida presupuestaria asignada a esos efectos en el presupuesto municipal y con las ayudas o donaciones que con esa finalidad otorguen personas jurídicas o físicas nacionales o internacionales.
