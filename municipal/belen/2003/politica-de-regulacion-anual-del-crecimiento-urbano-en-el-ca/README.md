@@ -15,3 +15,4 @@ Política de Regulación Anual del Crecimiento Urbano en el cantón de Belén.
 | --- | --- | --- |
 | 1 | 2003-08-25 | la propia norma |
 | 2 | 2004-06-08 | Acuerdo municipal 37 (2004-06-08) |
+| 3 | 2008-01-22 | Acuerdo municipal 0 (2008-01-22) |
