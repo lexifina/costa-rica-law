@@ -1,2 +1,0 @@
-Artículo 8º—Los Jefes de Asuntos Legales, Departamento de Otorgamiento de Derechos, Departamento de Pagos y Departamento de Desarrollo, son subordinados del (de la) Director(a) Nacional de Pensiones. Los Coordinadores de Núcleo, lo son respecto del Jefe de Departamento de que se trate, sin perjuicio de las atribuciones que correspondan al (a la) Director (a) Nacional de Pensiones.
-A su vez, los demás funcionarios de la Dirección Nacional están subordinados a los respectivos Jefes de Departamento, Asuntos Legales y Coordinadores de Núcleo.

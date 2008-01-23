@@ -1,1 +1,0 @@
-Artículo 4º—La representación inmediata del Estado, en materia de pensiones, estará a cargo del Ministro de Trabajo y Seguridad Social y en su respectivo Viceministro, según sus respectivas competencias legales.

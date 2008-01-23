@@ -1,1 +1,0 @@
-Artículo 43.—Para todos los efectos, los funcionarios de la Dirección Nacional deben desempeñar sus actividades y asumir sus responsabilidades en las condiciones y conforme con las normas establecidas en este Decreto y, supletoriamente, en el Reglamento Autónomo de Organización y Servicio del Ministerio de Trabajo y Seguridad Social.

@@ -1,1 +1,0 @@
-Artículo 41.—El (la) Director(a) Nacional de Pensiones en coordinación con el (la) Director(a) General Administrativo(a) del Ministerio establecerá la programación y los montos presupuestarios a asignar, de conformidad con la disponibilidad presupuestaria y las necesidades propias de la Dirección Nacional.

@@ -1,4 +1,0 @@
-CAPÍTULO XII
-Sobre la Administración de Recursos Informáticos y Desarrollo
-de Sistemas de Información, en la Dirección Nacional de Pensiones
-Artículo 44.—En cuanto a la administración de recursos informáticos y desarrollo de sistemas de información, en la Dirección Nacional de Pensiones, estará a cargo del personal que destacará en ésta el Departamento de Sistemas Computadorizados del Ministerio de Trabajo y Seguridad Social, ente ministerial central que se ocupa de lo relativo a coordinación, supervisión, funcionamiento, soporte, desarrollo y mantenimiento del patrimonio constituido por los recursos informáticos institucionales ("hardware", "software" y sistemas y aplicaciones específicas desarrolladas por y para el Ministerio); tomando en cuenta las necesidades propias de la Dirección Nacional. Además estas labores deberán coordinarse con el Comité Gerencial de Bienes y Sistemas de Información y Conocimiento del Ministerio de Trabajo y Seguridad Social (COGESIN).

@@ -1,4 +1,0 @@
-Transitorio IV.—Se autoriza al Ministerio para que, conforme con las posibilidades existentes, en coordinación con las demás dependencias ministeriales correspondientes, realice las gestiones para la obtención de los recursos materiales y humanos necesarios para instrumentar la reorganización establecida en este Decreto.
-Todos los recursos humanos, materiales y tecnológicos asignados al Consejo Directivo de Pensiones, creado mediante los Decretos N° 25908-MP-MTSS de 24 de marzo de 1997 y N° 26093-MP-MTSS del 26 de mayo de 1997, que por este Decreto se derogan, se trasladarán íntegra y simultáneamente a la Dirección Nacional de Pensiones o dependencia ministerial a la cual se le asignen las funciones, atribuciones, actividades, tareas y competencias que hayan estado a cargo de dicho Consejo.
-Rige a partir de su publicación.
-Dado en la Presidencia de la República.- San José, a los treinta días del mes de abril del año dos mil dos.
