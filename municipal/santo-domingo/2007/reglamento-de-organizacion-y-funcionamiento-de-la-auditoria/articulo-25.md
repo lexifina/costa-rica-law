@@ -1,0 +1,1 @@
+Artículo 25.—Admisibilidad de las denuncias. La admisibilidad y el procedimiento para la tramitación de las denuncias se hará de acuerdo a lo establecido en el proceso de atención de denuncias ante la Auditoría Interna de la Municipalidad de Santo Domingo de Heredia.
