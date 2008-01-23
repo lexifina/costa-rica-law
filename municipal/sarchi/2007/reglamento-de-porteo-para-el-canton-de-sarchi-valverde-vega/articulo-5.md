@@ -1,0 +1,1 @@
+Artículo 5º—Para obtener una patente y los permisos de funcionamiento de las terminales, el empresario porteador deberá en primer lugar, garantizar suficientemente que los usuarios del servicio contarán en sus instalaciones con los requerimientos y condiciones necesarias para su seguridad personal y la de sus bienes.

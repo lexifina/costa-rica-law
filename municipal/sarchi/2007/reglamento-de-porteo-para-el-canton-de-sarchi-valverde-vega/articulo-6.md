@@ -1,0 +1,1 @@
+Artículo 6º—Para los efectos de este Reglamento, se entenderá como Terminal de porteo, todo propiedad inmueble, privada, destinada a servir de estacionamiento, parqueo, salida y entrada de los vehículos con que se presta el servicio de porteo y que cumpla con los requisitos que exige esta normativa.

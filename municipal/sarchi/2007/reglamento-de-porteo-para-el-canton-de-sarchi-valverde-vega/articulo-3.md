@@ -1,0 +1,1 @@
+Artículo 3º—Las patentes otorgadas de conformidad con la Ley de Patentes Municipales y de este Reglamento, serán intransferibles por cualquier medio y su renovación se efectuará cada año según la Ley de Patentes.

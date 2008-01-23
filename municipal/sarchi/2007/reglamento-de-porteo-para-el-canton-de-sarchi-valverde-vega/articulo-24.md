@@ -1,0 +1,1 @@
+Artículo 24.—Si pasado el plazo fijado, el propietario no ha dado cumplimiento a la orden anterior, previo al levantamiento de una nueva información, se harán costar los argumentos del interesado y se fijará un último y definitivo plazo.

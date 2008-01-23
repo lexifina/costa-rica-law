@@ -1,0 +1,3 @@
+Transitorio 2°—Se concede un plazo de seis meses, contados a partir de de la fecha de entrada en vigencia del presente reglamento, de tal manera que las empresas de porteo que actualmente están en operación, ajusten la cantidad de vehículos a la cantidad de espacios que posee su Terminal, según la demarcación del parqueo. De lo contrario dentro del mismo plazo buscar un espacio acorde a este reglamento y que cumpla con el cupo que posee, pudiendo mantener el sitio actual como oficinas o referencias comerciales de su empresa. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Acuerdo definitivamente aprobado.
+Sarchí Norte, 29 de noviembre del 2007.

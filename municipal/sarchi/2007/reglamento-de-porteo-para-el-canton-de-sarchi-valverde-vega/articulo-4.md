@@ -1,0 +1,1 @@
+Artículo 4º—Todo espacio cuyo fin sea el de ser utilizado como Terminal para el estacionamiento, parqueo, salida y entrada de los vehículos con que se presta el servicio de porteo, deberá garantizar que el servicio se presta a partir de instalaciones que para los efectos, cumplan con la normativa legal en cuanto a espacio, higiene, seguridad y comodidad para los usuarios.
