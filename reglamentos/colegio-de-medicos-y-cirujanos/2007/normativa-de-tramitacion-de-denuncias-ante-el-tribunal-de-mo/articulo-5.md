@@ -1,0 +1,1 @@
+Artículo 5º—El Tribunal de Moral Médica suspenderá el procedimiento en la fase en que se encuentre, cuando mediante documento se acredite la existencia de algún proceso judicial por los mismos hechos. La suspensión se comunicará a las partes y se mantendrá hasta que el proceso judicial finalice en forma definitiva.

@@ -1,0 +1,1 @@
+Artículo 13.—Finalizadas las actuaciones, el Tribunal de Moral concederá a las partes el plazo común de cinco días hábiles para que formulen por escrito sus conclusiones, bajo apercibimiento de que en caso de no ser presentadas dentro del plazo señalado, serán rechazadas por extemporáneas.

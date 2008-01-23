@@ -1,0 +1,1 @@
+Artículo 15.—Contra las resoluciones dictadas por el Tribunal de Moral, con excepción del Informe Final, únicamente cabrá recurso de revocatoria ante el mismo Tribunal, el cual deberá ser presentado por la parte dentro de los tres días hábiles siguientes a la notificación de lo que se recurra.
