@@ -1,1 +1,1 @@
-Artículo 29.-Los animales que se jueguen para menores de doce a catorce años, serán becerros de ocho a doce meses. Para menores de catorce a diecisiete años, serán toretes de doce meses en adelante.
+Artículo 29.-(Así derogado por el artículo 2° del decreto ejecutivo N° 34489 del 23 de enero de 2008).

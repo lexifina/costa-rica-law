@@ -1,1 +1,1 @@
-Artículo 18.-La comisión encargada de la realización de la monta, deberá contar con una póliza de seguros que proteja a los montadores.
+Artículo 18.-(Así derogado por el artículo 2° del decreto ejecutivo N° 34489 del 23 de enero de 2008).

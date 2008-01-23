@@ -1,1 +1,2 @@
-Artículo 7º.-En el toril solo se permitir la permanencia de las personas que laboran en el miembros de la comisión, la autoridad policial encargada de la vigilancia y los delegados de la gobernación en función de inspección.
+Artículo 7º—En la plaza de toros solo se permitirá la permanencia de las personas que ahí laboran, miembros de la Comisión , la autoridad policial encargada de la vigilancia o autoridades sanitarias.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34489 del 23 de enero de 2008).

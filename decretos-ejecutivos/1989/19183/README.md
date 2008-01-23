@@ -13,3 +13,4 @@ Reglamento Actividades Taurinas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-20 | la propia norma |
+| 2 | 2008-01-23 | Decreto Ejecutivo 34489 (2008-01-23) |

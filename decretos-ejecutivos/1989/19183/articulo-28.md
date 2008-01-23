@@ -1,1 +1,1 @@
-Artículo 28.-Las corridas para menores, se deben de realizar en horas de la mañana o primeras horas de la tarde, únicamente.
+Artículo 28.-(Así derogado por el artículo 2° del decreto ejecutivo N° 34489 del 23 de enero de 2008).
