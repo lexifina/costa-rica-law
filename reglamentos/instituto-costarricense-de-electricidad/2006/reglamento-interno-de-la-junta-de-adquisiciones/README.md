@@ -16,3 +16,4 @@ Reglamento Interno de la Junta de Adquisiciones
 | 1 | 2006-10-06 | la propia norma |
 | 2 | 2007-03-16 | Reglamento 5789 (2007-03-16) |
 | 3 | 2007-12-18 | Reglamento 5817 (2007-12-18) |
+| 4 | 2008-01-24 | Reglamento 5819 (2008-01-24) |
