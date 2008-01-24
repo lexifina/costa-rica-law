@@ -8,7 +8,11 @@ De la Junta de Adquisiciones
 SECCIÓN I
 Naturaleza y funciones
 Artículo 1º—La Junta de Adquisiciones, es el órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria, donaciones y otros, propios de su competencia, que requieran ser resueltos por dicha Junta, cuyo monto sea superior a un millón de dólares. El superior jerárquico de la Junta de Adquisiciones es el Consejo Directivo.
-Artículo 2º—Estará integrada por 6 miembros titulares: El Gerente General, los Subgerentes de Electricidad, Sector Telecomunicaciones, Financiero y Administración Institucional, así como el Director de Proveeduría. El Gerente General actuará como presidente de la Junta. Los asuntos relacionados con las áreas adscritas a la Presidencia Ejecutiva u otras áreas no contempladas en las Subgerencias antes mencionadas, serán presentados por la Gerencia General. La Junta de Adquisiciones podrá convocar a sus sesiones o pedir informes o peritajes a cualquier funcionario del ICE, cuando lo requiera. Como asesor del Órgano Colegiado fungirá la jefatura de la División de Contratación Administrativa, o quien ésta designe en su ausencia, quien tendrá voz pero no voto.
+Artículo 2º—Estará integrada por 7 miembros titulares: Gerente General, Subgerente Corporativo, Subgerente Sector Electricidad, Subgerente Sector Telecomunicaciones, Subgerente de Finanzas y Subgerente Administración Institucional, así como el Director de la Dirección Administrativa de Proveeduría. El Gerente General actuará como presidente de la Junta.
+(Así reformado el párrrafo anterior mediante sesión N°5819 del 24 de enero de 2008).
+Los asuntos relacionados con las áreas adscritas a la Presidencia Ejecutiva u otras áreas no contempladas en las Subgerencias antes mencionadas, serán presentados por la Gerencia General.
+La Junta de Adquisiciones podrá convocar a sus sesiones o pedir informes o peritajes a cualquier funcionario del ICE, cuando lo requiera.
+Como asesor del Órgano Colegiado fungirá la jefatura de la División de Contratación Administrativa, o quien ésta designe en su ausencia, quien tendrá voz pero no voto.
 Artículo 3º—Son deberes de la Junta de Adquisiciones:
 1. Resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria u otros que requieran ser resueltos por dicha Junta, cuyo monto sea superior a un millón de dólares.
 2. Resolver los procesos de donaciones según los topes definidos por el Consejo Directivo.
@@ -81,7 +85,9 @@ CAPÍTULO SEGUNDO
 Sesiones
 SECCIÓN I
 De su naturaleza, forma y convocatoria
-Artículo 11.—La Junta de Adquisiciones, de común acuerdo, definirá los días en que sesionará en forma ordinaria y extraordinaria. Para que la Junta pueda sesionar válidamente, deberán estar presentes cuatro de los seis miembros que la constituyen.
+Artículo 11.—La Junta de Adquisiciones, de común acuerdo, definirá los días en que sesionará en forma ordinaria y extraordinaria.
+Para que la Junta pueda sesionar válidamente, deberán estar presentes cuatro de los siete miembros que la constituyen.
+(Así reformado el párrrafo anterior mediante sesión N°5819 del 24 de enero de 2008).
 Artículo 12.—Las sesiones, tanto ordinarias como extraordinarias, se realizarán en forma privada, salvo que por mayoría de la Junta de Adquisiciones, se acuerde permitir el acceso del público en general, o algún grupo o personas específicas, a los cuales les podrá conceder el derecho a participar en las deliberaciones con voz pero sin voto.
 SECCIÓN II
 Del acta

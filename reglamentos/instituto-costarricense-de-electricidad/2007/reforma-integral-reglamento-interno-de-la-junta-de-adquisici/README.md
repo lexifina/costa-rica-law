@@ -14,3 +14,4 @@ Reforma Integral Reglamento Interno de la Junta de Adquisiciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-29 | la propia norma |
+| 2 | 2008-01-24 | Reglamento 5819 (2008-01-24) |
