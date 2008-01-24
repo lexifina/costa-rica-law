@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Observancia del derecho de obtentor
+Artículo 31.—Integración de normas para la tutela de los derechos protegidos. Para la protección y observancia de los derechos de los obtentores vegetales, serán aplicables supletoriamente las normas establecidas en la Ley N° 8039, De Procedimientos de Observancia de los Derechos Propiedad Intelectual, del 12 de octubre de 2000 y sus reformas. Los fraudes vinculados a las omisiones de utilizar y a la utilización indebida de denominaciones de variedades protegidas, conforme a lo establecido por vía reglamentaria, constituyen infracciones al derecho de obtentor.

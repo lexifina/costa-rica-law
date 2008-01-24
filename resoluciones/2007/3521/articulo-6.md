@@ -1,0 +1,1 @@
+Artículo 6º—Procedimientos. Los procedimientos y normas generales para la presentación, publicación de información sobre solicitudes, concesiones de derechos de obtentor y las denominaciones propuestas y aprobadas, trámite, examen técnico y resolución de las solicitudes para la concesión del derecho de obtentor, se establecerán reglamentariamente.

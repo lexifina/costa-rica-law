@@ -1,0 +1,1 @@
+Artículo 13.—Distinción. Una variedad se considerará distinta si se diferencia claramente -por la expresión de las características morfológicas, fisiológicas, citológicas, químicas, moleculares o de otra índole, resultantes de su genotipo-, de cualquier otra variedad cuya existencia sea notoriamente conocida a la fecha de presentación de la solicitud.

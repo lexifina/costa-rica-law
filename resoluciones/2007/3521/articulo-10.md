@@ -1,0 +1,1 @@
+Artículo 10.—Concesión del derecho de obtentor. Una vez que la solicitud para la concesión del derecho de obtentor haya cumplido con todos los requisitos, la Oficina Nacional de Semillas procederá a su inscripción en el Registro de Variedades Protegidas y a otorgar el Certificado de Obtención Varietal.

@@ -1,0 +1,6 @@
+CAPÍTULO V
+De los recursos físicos y económicos
+Artículo 29.—Recursos y patrimonio. El financiamiento del sistema de Registro de Variedades Protegidas se cubrirá por medio del fondo generado con el cobro de los servicios prestados y los aportes financieros recibidos del Estado mediante presupuestos ordinarios y extraordinarios de la República. Estos fondos serán depositados en una cuenta de la Oficina Nacional de Semillas, abierta en cualquiera de los bancos del Sistema Bancario Nacional y su administración estará bajo control de la Contraloría General de la República.
+Para la implementación de esta Ley el Estado dotará a la Oficina Nacional de Semillas de la infraestructura y equipo básico así como de las facilidades requeridas. Igualmente, se le faculta para la contratación de personal y servicios especializados que se financiarán con los recursos generados por la aplicación de esta Ley.
+Las instituciones del Estado quedan facultadas para donar o transferir de su patrimonio a la Oficina Nacional de Semillas todo tipo de bienes muebles e inmuebles para los fines de la presente Ley.
+Se faculta a la Oficina Nacional de Semillas para recibir todo tipo de donaciones, sea en efectivo o por medio de bienes muebles e inmuebles procedentes del Estado e instituciones públicas costarricenses y de gobiernos con los que se establezcan convenios de cooperación.
