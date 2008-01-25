@@ -1,0 +1,2 @@
+ARTÍCULO 9.-
+De disolverse la Asociación por las causas que se establecen en sus propios estatutos o en la Ley de asociaciones, N° 218, de 8 de agosto de 1939, y sus reformas, la administración de los bienes del Ecomuseo retornará, en forma inmediata y directa, a la Municipalidad de Abangares, incluidas las mejoras, sin que por ello la Municipalidad deba indemnizar a la Asociación por haberlas efectuado.
