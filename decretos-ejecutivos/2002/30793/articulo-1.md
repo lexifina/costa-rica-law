@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue derogado por el artículo N° 27 del Decreto Ejecutivo N°34434 de 25 de enero de 2008)
 Nº 30793-H-J
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,
