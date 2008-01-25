@@ -23,6 +23,74 @@ f) “Prevenir y mitigar los impactos negativos de amenazas graves a áreas prot
 12.—Que el artículo 2º del Decreto Ejecutivo N° 29277-MINAE, publicado en La Gaceta N° 30 de lunes 12 de febrero de 2001 no cumple con una visión integral sobre la conservación y uso racional del recurso natural del Golfo de Nicoya, toda vez que el artículo de marras solo protege una franja insignificante, denominada Zona de Protección Marina, del gran área de dicho Golfo, por lo que se hace necesario proteger otras áreas de mayor superficie e importancia biológica, ecológica y socioeconómica con un gran potencial como fuente de alimentación, reproducción y crianza de especies de interés comercial y no comercial; potencial ecoturístico por su belleza escénica, facilidades para educación ambiental, capacitación, investigación y, como humedal costero que es por sus múltiples funciones, valores y atributos en pro de la biodiversidad, bienes y servicios inherentes y la protección que ofrece a las costas y sus habitantes contra inundaciones, tormentas y otras catástrofes, así reconocido y establecido por la Convención sobre Humedales de Importancia Internacional. La Zona de Protección Marina supracitada cuya área abarca 715 ha, será sustituida por las áreas de manglar y de lodo y arena que no fueron incluidas en el Decreto Ejecutivo N° 29277-MINAE y que forman parte de la zona pública de la Zona Marítima Terrestre, de mayor importancia cuya área abarca 799,82 ha, según la descripción del artículo 2º de este Decreto. Por tanto,
 DECRETAN:
 Artículo 1º—Manténgase los límites del Refugio Nacional de Vida Silvestre Isla San Lucas, propiedad Estatal, cuya área comprende:
-A. La porción terrestre conformada por la Isla San Lucas, ubicada en el Golfo de Nicoya, Hoja Cartográfica del IGN denominada Golfo, edición 3-IGNCR, situada entre las coordenadas geográficas de latitud norte 9º 55´ 55´´ - 9º 57´20´´ y longitud oeste 84º 53´ 31´´ - 84º 55´ 23´´, con una extensión de 462 ha.
+A. La porción terrestre conformada por la Isla San Lucas, ubicada en el Golfo de Nicoya, hoja Cartográfica del IGN denominada Golfo, edición 3-IGNCR, situada entre las coordenadas geográficas de latitud norte 9° 55’ 55” - 9 57’ 20” y longitud Oeste 84° 53’ 23”, con una extensión de 462 ha. Se rectifican los límites de la porción terrestre insular, excluyéndose el área comprendida por las siguientes coordenadas Lambert Costa Rica Norte.
+P U N T O | COORD_X | COORD_Y | | | |
+1 | 437309 | 214627 | | | |
+2 | 436795 | 214504 | | | |
+3 | 436414 | 214360 | | | |
+4 | 436421 | 214162 | | | |
+5 | 437594 | 214677 | | | |
+6 | 437257 | 214627 | | | |
+7 | 437137 | 214394 | | | |
+8 | 437166 | 214335 | | | |
+9 | 437209 | 214286 | | | |
+10 | 437234 | 214226 | | | |
+11 | 437269 | 214192 | | | |
+12 | 437292 | 214223 | | | |
+13 | 437333 | 214252 | | | |
+14 | 437363 | 214269 | | | |
+15 | 437431 | 214294 | | | |
+16 | 437512 | 214246 | | | |
+17 | 437563 | 214240 | | | |
+18 | 437665 | 214225 | | | |
+19 | 437719 | 214222 | | | |
+20 | 437772 | 214323 | | | |
+21 | 437811 | 214357 | Vértice 21 Este punto se ubica en la costa este de la Isla San Lucas
+| | | continua con rumbo norte por el borde de la costa hasta el vértice 22
+| | | el cual se ubica en la costa y luego continua por los otros vértices hasta llegar
+| | | vértice 1 que es el punto de inicio de la presente descripción.
+22 | 437874 | 214664 | | | |
+23 | 437808 | 214683 | | | |
+24 | 437791 | 214716 | | | |
+25 | 437638 | 214747 | | | |
+1 | 437309 | 214627 | | | |
+En el sector de agua frente a Playa Cocos se rectifican los límites, excluyéndose el área comprendida por las siguientes coordenadas Lambert Costar Rica Norte:
+Vértice | Coordenada X | Coordenada Y | Condición
+1 | 437257 | 214627 | Vértice 1, punto de inicio en el borde de costa, parte con rumbo noroeste hasta el Vértice 2 ubicado en el borde de costa
+2 | 436790 | 214976 | Vértice 2, a partir de aquí el límite va por el agua, pasando por la curva de nivel de seis metros de profundidad, que se indican en los vértices 3 al 14, ubicado este en el borde de costa.
+3 | 436407 | 215097 |
+4 | 436372 | 215091
+5 | 436392 | 214980
+6 | 436414 | 214764
+7 | 436291 | 214727
+8 | 436141 | 214677
+9 | 436314 | 214607
+10 | 436729 | 214555
+11 | 436795 | 214504
+12 | 436414 | 214360
+13 | 436166 | 214515
+14 | 436061 | 214289 | A partir del Vértice 14, el límite va por el borde de costa con rumbo este hasta el Vértice 1 que es el punto de inicio en el borde de costa.
+En el sector de agua frente a Playa Cocos se rectifican los límites, excluyéndose el área comprendida por las siguientes coordenadas Lambert Costar Rica Norte:
+Vértice | Coordenada X | Coordenada Y | Condición
+1 | 437874 | 214663 | Vértice 1 sobre el borde de costa.
+2 | 437811 | 214357 | Vértice 2, sobre el borde de costa.
+3 | 437911 | 214356 | Ubicado en el agua frente a Playa Cocos.
+4 | 437974 | 214663 | Ubicado en el agua frente a Playa Cocos.
+Adiciónese al Refugio Nacional de Vida Silvestre Isla San Lucas una porción de agua que se describe por las siguientes coordenadas Costa Rica Lambert Norte:
+Vértice | Coordenada X | Coordenada Y | Condición
+1 | 434875 | 213584 | Vértice 1, punto de inicio en el límite de la curva de nivel de seis metros de profundidad, referencia donde se inicia el límite de ampliación, en el agua, pasando por los vértices 2 al 8, incluyendo el islote de Pan de Azúcar.
+2 | 434894 | 213171 |
+3 | 434948 | 213118 |
+4 | 435095 | 213070 |
+5 | 436228 | 212316 |
+6 | 437426 | 211924 |
+7 | 437829 | 211853 |
+8 | 439109 | 213551 | A partir del Vértice 8, hasta el Vértice 1 que es el punto de inicio, se define el límite sobre la curva de nivel de los seis metros de profundidad, pasando por los vértices 9 al 14, generando un área adicional de 210 hectáreas.
+9 | 438380 | 212952 |
+10 | 437747 | 212726 |
+11 | 437155 | 212649 |
+12 | 436706 | 212792 |
+13 | 435921 | 212855 |
+14 | 435790 | 213026 |
 B. Un área marino-costera comprendida por las aguas alrededor de la Isla San Lucas hasta una profundidad de 6 m.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33327 del 30 de agosto de 2006)
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34282 del 25 de enero de 2008, mismo que fue anulado parcialmente, mediante resolución de la Sala Constitucional N° 2010-13099 del 04 de agosto de 2010, en cuanto modificó únicamente el inciso A del artículo 1° del Decreto Ejecutivo No. 33327-MINAE, salvo la adición hecha por este de la porción de agua que se agregó al Refugio Nacional de Vida Silvestre Isla San Lucas y el apartado B, que mantienen su vigencia. No indicó la Sala en tal sentido, si se restablece el texto anterior a dicha reforma.)

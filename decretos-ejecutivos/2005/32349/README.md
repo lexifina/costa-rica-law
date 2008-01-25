@@ -15,3 +15,4 @@ Ampliación y Delimitación del área del Humedal Estero Puntarenas y Manglares 
 | --- | --- | --- |
 | 1 | 2005-05-13 | la propia norma |
 | 2 | 2006-08-30 | Decreto Ejecutivo 33327 (2006-08-30) |
+| 3 | 2008-01-25 | Decreto Ejecutivo 34282 (2008-01-25) |
