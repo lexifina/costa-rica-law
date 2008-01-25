@@ -1,1 +1,0 @@
-Artículo 3º—En lo demás, quedan firmes y valederas las restantes disposiciones del Decreto Ejecutivo N° 30793-H-J, del 8 de octubre del 2002, Reglamento Operativo del Programa de Regularización del Catastro y el Registro de la Propiedad Inmueble de Costa Rica.
