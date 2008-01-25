@@ -14,3 +14,4 @@ Reforma Declara Refugio Nacional de Vida Silvestre área comprendida por Isla Sa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-07 | la propia norma |
+| 2 | 2008-01-25 | Decreto Ejecutivo 34282 (2008-01-25) |
