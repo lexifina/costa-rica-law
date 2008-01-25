@@ -14,3 +14,4 @@ Solicitud de Calificación/calificación unitaria. Implementación de procedimie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-02 | la propia norma |
+| 2 | 2008-01-25 | Circular 1 (2008-01-25) |
