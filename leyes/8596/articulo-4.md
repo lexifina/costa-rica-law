@@ -1,0 +1,3 @@
+ARTÍCULO 4.-
+Para los efectos de la presente Ley, se autoriza a la Municipalidad de Abangares para que reciba donaciones, transferencias o subvenciones de personas, físicas o jurídicas; entidades u organismos privados, nacionales o internacionales, con el único fin de cumplir los objetivos del Ecomuseo. Dichas donaciones, transferencias o subvenciones estarán exentas de los tributos nacionales de toda clase.
+Asimismo, se autoriza a la Municipalidad de Abangares para que reciba del Poder Ejecutivo, así como de empresas e instituciones estatales, autónomas y semiautónomas, las donaciones, transferencias o subvenciones cuyo fin exclusivo sea cumplir los objetivos del Ecomuseo.
