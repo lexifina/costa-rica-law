@@ -1,0 +1,1 @@
+Artículo 16.—Requisitos aplicables a edificios nuevos o ya construidos: El Ministerio exigirá lo señalado en el artículo 15 anterior tanto para establecimientos que inician operaciones como para aquellos ya construidos y que se desean destinar para templos o lugares de culto.

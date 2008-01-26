@@ -1,0 +1,1 @@
+Artículo 26.—Ventilación: Los establecimientos cerrados, aludidos en este Reglamento, deberán estar provistos de cierto caudal de aire exterior que permita la eliminación de olores y el calor producidos por los ocupantes y cualquier otra fuente de contaminación.

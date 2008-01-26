@@ -1,0 +1,1 @@
+Artículo 29.—Prevención contra incendios: Estos establecimientos deberán disponer de las medidas de prevención contra incendios y el número de extintores de acuerdo al área a proteger, colocados en sitios libres de obstáculos y debidamente señalizados.

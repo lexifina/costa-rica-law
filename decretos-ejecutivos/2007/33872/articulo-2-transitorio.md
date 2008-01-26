@@ -1,0 +1,2 @@
+Transitorio segundo.—Si cumpliendo lo dispuesto en el transitorio primero, persisten deficiencias físicos sanitarias o de otra índole no relacionadas con contaminación sónica, los locales podrán seguir funcionando por un período adicional de doce meses, con la implementación de un nuevo PLAN REMEDIAL, que permita finalmente, poner a los locales en total concordancia con lo preceptuado en el presente cuerpo normativo.
+Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de julio del año 2007.

@@ -1,0 +1,1 @@
+Artículo 42.—Los Permisos Sanitarios de Funcionamiento Provisionales no podrán emitirse por un plazo superior al aprobado en el Cronograma de Mejoramiento, según lo establecido en el Artículo 41 del presente reglamento.

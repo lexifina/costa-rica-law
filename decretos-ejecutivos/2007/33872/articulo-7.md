@@ -1,0 +1,1 @@
+Artículo 7º—Los templos o locales de culto, se clasificarán como Actividades de Moderado Riesgo, dentro del Grupo B del Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento por parte del Ministerio de Salud, quedando sujetos a renovar sus Permisos Sanitarios de Funcionamiento cada cinco años.

@@ -1,0 +1,1 @@
+Artículo 28.—Materiales de la edificación retardantes al fuego: Las edificaciones nuevas dedicadas a actividades de culto deberán estar construidas con materiales retardantes al fuego de por lo menos tres horas.

@@ -1,0 +1,1 @@
+Artículo 20.—Salidas y desalojo para edificaciones de dos o más pisos: Edificaciones con dos o más pisos deben permitir el desalojo de sus ocupantes hacia zonas de seguridad en un máximo de tres minutos y estar dotadas de por lo menos dos salidas. Estas zonas de seguridad deben ser externas a la edificación.

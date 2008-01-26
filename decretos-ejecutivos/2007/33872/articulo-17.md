@@ -1,0 +1,1 @@
+Artículo 17.—Capacidad de la nave: Los lugares destinados a templos o locales de culto respetarán la capacidad de área física disponible, la cual establece un asistente por cada metro cuadrado (1,00 m²) de área total de la nave.
