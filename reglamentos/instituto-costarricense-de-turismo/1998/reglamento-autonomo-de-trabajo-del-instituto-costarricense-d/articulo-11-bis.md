@@ -1,0 +1,3 @@
+Artículo 11 bis: Cuando se comprobare la inopia del personal con los requisitos exigidos por este Reglamento y por el Manual Descriptivo de Clases, o bien haya resultado insuficiente el reclutamiento para nombramiento en puestos del Instituto Costarricense de Turismo, podrán nombrarse en forma interina candidatos que no reúnan los requisitos.
+Para los efectos de los nombramientos de inopia comprobada, el Proceso de Recursos Humanos establecerá los procedimientos técnicos que considere necesarios y a su juicio determinará en cada caso si existe inopia o reclutamiento insuficiente.
+(Así adicionado mediante acuerdo N° 044 tomado en sesión N° 5560 del 27 de enero de 2008)
