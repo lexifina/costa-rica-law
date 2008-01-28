@@ -14,3 +14,4 @@ Reglamento General sobre Sociedades Administradoras de Fondos de Inversión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
+| 2 | 2008-01-28 | Reglamento 698 (2008-01-28) |
