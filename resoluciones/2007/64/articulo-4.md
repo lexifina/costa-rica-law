@@ -1,0 +1,1 @@
+IV.—Este órgano contralor mantendrá disponible y actualizado un detalle de la normativa emitida (vigente y no vigente), en la página Web www.cgr.go.cr de la Contraloría General de la República. Publíquese.

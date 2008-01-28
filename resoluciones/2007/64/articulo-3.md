@@ -1,0 +1,1 @@
+III.—La Administración es responsable de verificar la vigencia de las normas legales citadas en las circulares a las que se hace mención en los puntos I y II de esta resolución, de manera que se de fiel cumplimiento a aquellas leyes que le son aplicables.

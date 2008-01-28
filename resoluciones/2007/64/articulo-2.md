@@ -1,0 +1,1 @@
+II.—Comunicar que las circulares que se detallan en el anexo de esta resolución y que han perdido actualidad se encuentran también derogadas, por lo que el jerarca y los titulares subordinados deberán tomar las medidas pertinentes, considerando que son responsables de verificar el bloque de legalidad así como de establecer los mecanismos necesarios para realizar esa labor.

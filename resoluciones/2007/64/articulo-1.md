@@ -1,0 +1,16 @@
+R-CO-64-2007.—Contraloría General de la República.—Despacho de la Contralora General de la República.—San José, a las diez horas de dieciocho de diciembre de dos mil siete.
+Considerando:
+1°—Que los artículos 183 y 184 de la Constitución Política de la República de Costa Rica establecen a la Contraloría General de la República como institución auxiliar de la Asamblea Legislativa en la vigilancia de la Hacienda Pública, y que el artículo 12 de su Ley Orgánica, Nº 7428 del 7 de setiembre de 1994 y sus reformas, la designa como órgano rector del ordenamiento de control y fiscalización superiores de la Hacienda Pública.
+2°—Que en virtud de tal condición, los artículos 12 y 24 de la Ley Orgánica de la Contraloría General de la República Nº 7428 la designan como órgano rector del Sistema de Control y Fiscalización Superiores de la Hacienda Pública y le confiere facultades para emitir disposiciones, normas, políticas y directrices de acatamiento obligatorio por parte de los entes sujetos pasivos, para el uso correcto de los fondos públicos.
+3°—Que el artículo 18 de la Ley Nº 8131 y 10 de la Ley General de Control Interno, Nº 8292 del 31 de julio del 2002, establecen que el control interno será responsabilidad del jerarca y de los titulares subordinados de cada institución, mientras que el control externo corresponderá a la Contraloría General.
+4°—Que en el artículo 53 de la Ley Nº 8131 se dispone que los presupuestos de los entes y de los órganos sujetos a aprobación de la Contraloría General de la República deberán prepararse atendiendo las normas técnicas dictadas por este órgano contralor.
+5°—Que con fundamento en lo antes expuesto es necesario mantener actualizado, así como simplificar el marco normativo que la Contraloría General emite sobre fiscalización presupuestaria y que es aplicable a aquellos entes y órganos sujetos a la aprobación de sus presupuestos por parte de este órgano contralor, con el fin de mejorar la transparencia y claridad en las regulaciones, los requisitos, procedimientos y condiciones que rigen dicha materia.
+6°—Que en vista de que en los últimos años la Contraloría General ha emitido diversa normativa en materia de fiscalización presupuestaria, la cual se ha visto afectada por cambios en el marco jurídico correspondiente, se hace necesario examinar las disposiciones que han perdido actualidad y hacer la comunicación pertinente. Por tanto:
+RESUELVE:
+I.—Derogar las siguientes circulares emitidas por esta Contraloría General:
+a) Nº 552-OD-74 del 16 de octubre de 1974 (regulaciones sobre gastos por información y publicidad).
+b) Nº 5826 del 30 de junio de 1986 (Algunos aspectos que deben considerar las instituciones en la formulación de los presupuestos ordinarios y sus modificaciones en el Sector Descentralizado).
+c) Nº 5827 del 30 de junio de 1986 (Algunos aspectos que deben considerar las instituciones en la formulación de los presupuestos y sus modificaciones en la Empresas Públicas constituidas como Sociedades Anónimas).
+d) Nº 8254 del 5 de agosto de 1998 (Aspectos sobre aprobación de modificaciones al presupuesto de las municipalidades).
+e) Nº 5126 del 5 de noviembre de 1998 (Resumen de algunas disposiciones legales y técnicas que deben observarse en el proceso presupuestario).
+f) Nº 11796 del 15 de octubre de 1998 (Adición a la circular Nº 5126).
