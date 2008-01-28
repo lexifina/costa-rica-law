@@ -1,0 +1,1 @@
+Artículo 54.—Los automóviles particulares deberán traer los Desechos sólidos previamente separados, dependiendo de su naturaleza particular (metales, plásticos, vidrio, papel, cerámicas, escombros y materiales de origen vegetal). En caso de traer los Desechos Sólidos sin separar NO se recibirán en el sitio de disposición final.

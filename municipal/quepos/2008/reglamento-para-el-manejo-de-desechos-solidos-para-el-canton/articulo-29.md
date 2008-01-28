@@ -1,0 +1,1 @@
+Artículo 29.—Los vehículos utilizados para la recolección de Desechos deberán contar con un sistema que evite el derrame de lixiviados o la dispersión de Desechos. En caso de quedar Desechos esparcidos por la vía pública en el momento de la recolección, la Municipalidad o la empresa responsable, deberán recogerlas y depositarlos en el camión recolector.

@@ -1,0 +1,1 @@
+Artículo 28.—Para los Desechos Sólidos no cotidianos se podrá prescindir de su entrega en recipientes. Estos Desechos se acumularán en forma discriminada hasta el momento en que la municipalidad designe para su recolección y en los puntos que previamente se señalen.

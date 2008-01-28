@@ -1,0 +1,1 @@
+Artículo 46.—En el depósito técnico no se podrán entregar basuras patógenas, tóxicas, combustibles, inflamables, explosivas, volatilizables y radioactivas, sin tener la previa autorización de la Municipalidad o del Ministerio de Salud.

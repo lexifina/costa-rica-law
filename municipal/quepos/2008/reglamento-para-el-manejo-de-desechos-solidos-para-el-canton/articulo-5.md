@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad conjuntamente con las autoridades respectivas del Ministerio de Educación Pública y con la colaboración de otras instituciones afines como MINAE y el Ministerio de Salud, establecerán y realizarán un programa permanente de concientización y capacitación en “Evitación y manejo discriminado de Desechos Sólidos”.

@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad promoverá la realización de proyectos de investigación o de aplicación que incentive la transferencia y desarrollo tecnológico para aprovechar de manera más eficiente los Desechos, el reciclaje y la reutilización de Desechos.

@@ -1,0 +1,1 @@
+Artículo 57.—Se constituirá una comisión de apoyo y vigilancia conformada por dos personas nombradas por el Concejo de cada uno de los distritos del Cantón que asesorará al Concejo Municipal y velará por la adecuada aplicación de este reglamento cuando lo amerite.

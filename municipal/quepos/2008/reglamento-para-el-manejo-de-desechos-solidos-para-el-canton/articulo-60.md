@@ -1,0 +1,1 @@
+Artículo 60.—la instancia asesora del Concejo Municipal en el establecimiento de políticas y lineamientos en torno al manejo de los Desechos Sólidos, será la Comisión Municipal de Asuntos Ambientales y la Unidad Técnica Ambiental (oficina ambiental).

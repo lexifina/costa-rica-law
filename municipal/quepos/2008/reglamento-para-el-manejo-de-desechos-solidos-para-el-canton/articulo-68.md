@@ -1,0 +1,1 @@
+Artículo 68.—Las observaciones que la Municipalidad realice a toda institución pública o privada, serán dirigidas al jerarca de la institución y al jefe de la Unidad de Saneamiento Ambiental del Ministerio de Salud para ejecutar las recomendaciones de mejora respectiva.

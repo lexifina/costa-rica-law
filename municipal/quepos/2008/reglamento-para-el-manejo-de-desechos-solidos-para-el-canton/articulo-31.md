@@ -1,0 +1,1 @@
+Artículo 31.—Durante las campañas del Dengue, la Municipalidad en coordinación con los entes que correspondan (Ministerio de Salud, CCSS, otras Municipalidades, o empresas privadas), se recogerán posibles criaderos del Aedes agipti. El dueño o dueña de estos Desechos deberá esperar al momento y el lugar que la Municipalidad destine su recolección.

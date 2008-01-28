@@ -1,0 +1,1 @@
+Artículo 55.—En caso de recibir Desechos hospitalarios, centros de salud, clínicas odontológicas, clínicas veterinarias o laboratorios microbiológicos que han sido previamente auto clavados, el sitio de disposición final deberá tener una celda de seguridad cuando las condiciones de espacio lo permitan.

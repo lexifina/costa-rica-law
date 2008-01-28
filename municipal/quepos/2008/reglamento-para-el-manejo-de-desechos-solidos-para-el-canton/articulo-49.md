@@ -1,0 +1,1 @@
+Artículo 49.—No se permitirá bajo ninguna circunstancia la entrada al sitio de disposición final de los Desechos sólidos a animales de compañía (perros y gatos) así como animales de trabajo y de granja.

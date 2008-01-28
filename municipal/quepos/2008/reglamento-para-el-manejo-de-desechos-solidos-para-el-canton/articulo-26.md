@@ -1,0 +1,1 @@
+Artículo 26.—Queda terminantemente prohibido que personas ajenas a la entidad recolectora autorizada por la Municipalidad se apropien de los Desechos entregados por los usuarios para su recolección. En caso que el usuario entregue Desechos a personas o entidades no autorizadas, ambas partes asumirán las penas que se impongan en este reglamento.

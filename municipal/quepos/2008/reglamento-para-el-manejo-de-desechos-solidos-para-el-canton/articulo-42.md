@@ -1,0 +1,1 @@
+Artículo 42.—Los centros de acopio tienen que presentar condiciones higiénicas y sanitarias y no provocar molestias por malos olores, mal aspecto o ruido a las personas que en ellos trabajan o ajenas al mismo, cumpliendo con las normas de salud ocupacional establecidas por el Ministerio de Salud.

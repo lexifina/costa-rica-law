@@ -1,0 +1,1 @@
+Artículo 39.—Se permitirá la comercialización de Desechos biodegradables orgánicos, siempre y cuando durante el proceso de recolección, transporte y manejo final no se afecte en forma negativa los recursos naturales.

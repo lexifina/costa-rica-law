@@ -1,0 +1,1 @@
+Artículo 41.—Los Desechos aprovechables por métodos diferentes al tratamiento biotecnológico serán transportados a centros del acopio ( cuando existan), donde serán acopiados, clasificados, lavados cuando lo amerite, embalados, cuantificados, almacenados y comercializados. No se permitirá descargas de lixiviados al alcantarillado, si estos no han sido tratados previamente.

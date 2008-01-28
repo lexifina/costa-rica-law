@@ -1,0 +1,1 @@
+Artículo 22.—La entrega de Desechos Sólidos no podrá realizarse con más de ocho horas de antelación al horario que establezca la entidad recolectora. Se sancionará al generador que saque sus Desechos Sólidos después de que camión recolector haya pasado por el sitio conforme a lo establecido en los Artículos 69 y 70 de este reglamento.

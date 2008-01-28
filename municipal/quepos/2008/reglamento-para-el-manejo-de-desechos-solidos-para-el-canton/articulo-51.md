@@ -1,0 +1,1 @@
+Artículo 51.—Los automóviles particulares que depositan sus Desechos en el sitio de disposición final, deberán pagar el monto que la administración determine de acuerdo a la capacidad del cajón y no por peso del mismo. No se permitirá que autos particulares sin autorización de la administración depositen sus Desechos, si no han cancelado la tarifa establecida previamente.

@@ -1,0 +1,1 @@
+Artículo 27.—En caso que los Desechos sean esparcidos en la vía pública antes de ser recolectados, el generador o usuario está en la obligación de recogerlos y depositarlos nuevamente en un recipiente. Así mismo el dueño de la propiedad está en la obligación de mantener su propiedad limpia de cualquier Desecho Sólido independientemente del uso actual que tenga el sitio.

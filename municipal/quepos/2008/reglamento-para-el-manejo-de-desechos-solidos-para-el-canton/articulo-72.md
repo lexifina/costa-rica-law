@@ -1,0 +1,1 @@
+Artículo 72.—Por la violación o incumplimiento de lo establecido principalmente en los artículos 15, 16, 17, 21, 22, 27, 32, 34, 35, 38, 40, 42 del presente reglamento, se presentará la denuncia ante la fiscalía ambiental, por detectarse violación a la Ley General de Salud, con la finalidad de aplicar las sanciones establecidas en el numeral 381 de dicha ley.

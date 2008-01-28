@@ -1,0 +1,1 @@
+Artículo 52.—la tarifa que se cobra a los particulares por concepto de depósito final de los Desechos Sólidos en el sitio de disposición final, podrá ser aumentada semestralmente conforme a la inflación de país.
