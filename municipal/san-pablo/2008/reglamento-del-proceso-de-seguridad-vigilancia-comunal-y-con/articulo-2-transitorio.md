@@ -1,0 +1,2 @@
+Artículo Transitorio II.-La amplitud funcional de la Policía Municipal estará condicionada a la disponibilidad de recursos, principalmente de tipo humano con que cuente la misma. De tal manera que, para asumir en su plenitud las atribuciones a que se refiere el artículo 2 del presente Reglamento se deberá considerar el fortalecimiento del recurso humano de la mencionada Policía Municipal.
+San Pablo de Heredia, 8 de enero del 2008.

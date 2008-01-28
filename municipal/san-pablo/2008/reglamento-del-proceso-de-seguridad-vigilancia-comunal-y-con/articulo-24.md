@@ -1,0 +1,1 @@
+Artículo 24.-Los Policías Municipales están obligados a cumplir íntegramente su jornada de trabajo y respetar el horario asignado por sus superiores, no abandonarán el servicio hasta presentar un informe diario de las labores realizadas para poner en conocimiento de sus superiores cualquier incidencia del servicio.

@@ -1,0 +1,1 @@
+Artículo transitorio I.-En todo aquello no previsto en este reglamento, se aplicará supletoriamente, el Código Municipal, la Ley General de la Administración Pública, Reglamento interno de trabajo de la Municipalidad de San Pablo, Código de Trabajo, la Constitución Política, Ley General de Policía y demás normativa conexa.
