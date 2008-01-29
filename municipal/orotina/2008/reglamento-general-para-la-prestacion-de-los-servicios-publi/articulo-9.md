@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad fijará los horarios en los cuales se prestarán los servicios públicos, ya sea que dicha prestación se lleve a cabo a través de sus propias estructuras administrativas o mediante otra modalidad de prestación.

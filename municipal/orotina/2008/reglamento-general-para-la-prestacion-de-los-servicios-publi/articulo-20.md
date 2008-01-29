@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad velará por brindar las condiciones de salud ocupacional de los trabajadores que se desempeñen dentro de las instalaciones del cementerio, sea en labores de mantenimiento, construcción de nichos, bóvedas u otras actividades.

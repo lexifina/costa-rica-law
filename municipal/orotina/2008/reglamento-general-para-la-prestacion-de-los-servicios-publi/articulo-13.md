@@ -1,0 +1,1 @@
+Artículo 13.—La Municipalidad definirá rutas y frecuencias de limpieza y aseo de vías, las mismas deben de diseñarse de conformidad con rendimientos estadísticos determinados en donde se garantice que cada trabajador, está en capacidad de recorrer los trayectos preestablecidos.

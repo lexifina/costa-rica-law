@@ -1,0 +1,1 @@
+Artículo 5º—De los principios rectores de los servicios públicos. De conformidad con lo establecido en la Constitución Política, la Municipalidad debe brindar los servicios públicos bajo los principios constitucionales de continuidad, regularidad, adaptación, igualdad y obligatoriedad.

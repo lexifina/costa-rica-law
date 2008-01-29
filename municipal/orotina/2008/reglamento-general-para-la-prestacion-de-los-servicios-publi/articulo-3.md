@@ -1,0 +1,1 @@
+Artículo 3º—Aplicación. La aplicación del presente Reglamento corresponde a la Municipalidad de Orotina, en especial a la Dirección de Servicios Públicos, de conformidad con lo indicado en su Reglamento Autónomo de Organización y Servicios.

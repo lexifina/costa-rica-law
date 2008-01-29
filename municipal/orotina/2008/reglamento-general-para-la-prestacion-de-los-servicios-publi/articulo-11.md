@@ -1,0 +1,1 @@
+Artículo 11.—En los casos del artículo anterior, las tarifas deberán de contra con la autorización de la Contraloría General de la República y acuerdo de aprobación por parte del Concejo Municipal; posteriormente se publicarán en el Diario Oficial, en donde se indicará expresamente la fecha a partir de la cual entra en vigencia.

@@ -1,0 +1,8 @@
+Artículo 8º—De las formas de prestación. De conformidad con la legislación vigente, la Municipalidad podrá asegurar la prestación de los servicios públicos a través de las siguientes modalidades:
+a. Administración: cuando el servicio se preste por conducto y utilización directa de recursos municipales, tanto humanos como materiales,
+b. Contratación: cuando la Municipalidad, a través de la firma de un contrato, transfiera a personas físicas o jurídicas, el derecho y la obligación de prestar algún servicio, siempre y cuando no se contravenga al interés público. La forma de contratación de estos servicios debe regirse por lo que dicta la Ley de Contratación Administrativa y su reglamento.
+c. Colaboración: cuando la Municipalidad a través de sus dependencias y/o conjuntamente con particulares, se encarguen de financiamiento, operación, conservación o mantenimiento de un servicio público. Estos particulares pueden ser: personas físicas, jurídicas, organismos nacionales o internacionales, organizaciones no gubernamentales u otro tipo de asociación sin fines de lucro o de cooperación gubernamental.
+d. Asociación intermunicipal: cuando la Municipalidad acuerde coordinarse con otras municipalidades vecinas para prestar algún servicio público procurando aprovechar al máximo sus recursos comunes y suplir carencias financieras y/o técnicas. Para darse este tipo de modalidad, debe de respetarse lo dictado en el Código Municipal, acerca de las Relaciones Intermunicipales.
+e. Concesión o gestión interesada: cuando la Municipalidad otorga a un ente físico o jurídico, la explotación de un servicio público; la aplicación de esta modalidad se apoya en la normativa sobre concesión pública.
+f. Sociedades públicas de economía mixta:
+g. Combinación de las anteriores.

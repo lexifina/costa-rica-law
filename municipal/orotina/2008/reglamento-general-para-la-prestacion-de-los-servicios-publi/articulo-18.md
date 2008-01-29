@@ -1,0 +1,1 @@
+Artículo 18.—Todo habitante del cantón que fallezca tendrá derecho a un funeral decoroso y a la disposición conveniente y adecuada de su cadáver. Restos o cenizas deben ser tratados en toda circunstancia con consideración y respeto.
