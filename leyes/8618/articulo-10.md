@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Revocatoria de la administración
+En caso de que exista impericia en la administración, manejo fraudulento o desvío de los fines del Centro, durante el período otorgado en administración, podrá revocarse dicha administración mediante acuerdo municipal, previo informe de la auditoría municipal o de la Contraloría General de la República. En tal caso, la Municipalidad podrá dar, mediante acuerdo, el Centro en administración a otra persona jurídica conformada, según lo indicado en esta Ley, por igual plazo y bajo las mismas condiciones.
