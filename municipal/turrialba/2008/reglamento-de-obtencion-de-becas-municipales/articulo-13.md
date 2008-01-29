@@ -1,0 +1,1 @@
+Artículo 13.—Los beneficiarios de las becas municipales deberán aportar horas de servicio a sus comunidades, centros educativos o a la municipalidad. Esta labor será planificada, evaluada y supervisada por la Comisión Municipal de Becas, y coordinada con los organismos comunales, autoridades educativas y la Alcaldía Municipal.
