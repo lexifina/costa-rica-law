@@ -1,0 +1,1 @@
+Artículo 69.—Identidad del denunciante. Si el denunciante tiene interés de que su identidad sea conocida en algún momento del proceso, deberá hacerlo de conocimiento a la Auditoría Interna para lo correspondiente.

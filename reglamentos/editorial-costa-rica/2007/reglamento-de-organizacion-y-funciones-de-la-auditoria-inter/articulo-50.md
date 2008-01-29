@@ -1,0 +1,1 @@
+Artículo 50.—Servicios de asesoría. Consisten en proveer criterios, opiniones u observaciones que coadyuven a la toma de decisiones sobre asuntos puntuales y no devienen en vinculante para quien los recibe. Las asesorías se brindarán a solicitud de parte y quedará a criterio del Auditor Interno proporcionarla. Podrán ser escritas o verbales.

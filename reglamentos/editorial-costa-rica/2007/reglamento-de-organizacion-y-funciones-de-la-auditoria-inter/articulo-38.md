@@ -1,0 +1,1 @@
+Artículo 38.—Registro presupuestario separado. El responsable o la responsable del control del presupuesto institucional deberá mantener un registro separado del monto asignado a la auditoría interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados.

@@ -1,0 +1,1 @@
+Artículo 42.—Deberes por ley. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, para el desempeño de sus competencias, tendrán los deberes que se establecen el artículo 32 de la Ley General de Control Interno.

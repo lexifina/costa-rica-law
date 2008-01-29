@@ -1,0 +1,1 @@
+Artículo 40.—Servicio de asesoría legal. Es obligación de la Asesoría Legal de la institución brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33 de la Ley de Control Interno.

@@ -1,0 +1,2 @@
+Artículo 34.—Relaciones externas. Es facultad del Auditor Interno solicitar, proveer e intercambiar información, para el descargo de sus competencias con entes externos, que conforme a la ley correspondan.
+Así como, a solicitud de la Contraloría General de la República y los auditores externos, compartir información y coordinar actividades y con los órganos judiciales, para minimizar la duplicación de esfuerzos.

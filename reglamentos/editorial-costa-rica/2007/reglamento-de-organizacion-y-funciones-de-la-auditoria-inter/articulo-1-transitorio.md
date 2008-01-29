@@ -1,0 +1,2 @@
+Transitorio único.—La Auditoría Interna dispondrá de un plazo de tres meses contados a partir de la publicación de este Reglamento para concordar sus políticas y procedimientos con las regulaciones contempladas en este cuerpo normativo.
+Este Reglamento fue aprobado por el Consejo Directivo de la Editorial Costa Rica mediante el acuerdo Nº 3 de la sesión Nº 2257, celebrada el día 22 de octubre del 2007 y ratificada la aprobación por la Asamblea de Autores de la Editorial Costa Rica celebrada el 27 de octubre de 2007 mediante acuerdo N° 6.

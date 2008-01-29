@@ -1,0 +1,1 @@
+Artículo 21.—Dependencia del Subauditor o Subauditora. Al Subauditor o Subauditora le corresponderá apoyar al Auditor o Auditora Interna en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él o ella por su gestión.

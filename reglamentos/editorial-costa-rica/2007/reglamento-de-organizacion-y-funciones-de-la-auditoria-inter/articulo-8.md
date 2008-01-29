@@ -1,0 +1,1 @@
+Artículo 8º—Independencia funcional. Por su función asesora del máximo jerarca institucional, y el alto nivel que la distingue de los demás estratos, la Auditoría Interna dependerá directamente del Consejo Directivo.

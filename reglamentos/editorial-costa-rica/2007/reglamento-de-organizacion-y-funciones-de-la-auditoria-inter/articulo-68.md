@@ -1,0 +1,1 @@
+Artículo 68.—Confidencialidad. La Auditoría Interna deberá de asegurar la confidencialidad de los denunciantes, de acuerdo con el artículo 6º de la Ley General de Control Interno. Para mantener la confidencialidad de los o las denunciantes, la Auditoría Interna utilizará los medios que considere adecuados.

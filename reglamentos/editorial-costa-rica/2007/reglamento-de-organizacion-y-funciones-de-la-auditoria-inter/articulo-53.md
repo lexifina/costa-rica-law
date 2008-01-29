@@ -1,0 +1,1 @@
+Artículo 53.—Servicio de capacitación de control interno. La Auditoría Interna podrá realizar oficios dirigidos a todo personal, enviados mediante la red interna de la Editorial sobre temas de su competencia a fin de mejorar el conocimiento general de asuntos de control interno.

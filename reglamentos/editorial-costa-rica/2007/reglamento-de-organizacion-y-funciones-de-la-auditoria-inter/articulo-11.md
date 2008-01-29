@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad anterior. Los funcionarios y las funcionarias de la Auditoría Interna no deben ejecutar sus competencias de asesoría y advertencia en relación con operaciones de las cuales hayan sido previamente responsables.

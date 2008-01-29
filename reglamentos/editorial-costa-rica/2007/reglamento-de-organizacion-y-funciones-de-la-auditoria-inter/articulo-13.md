@@ -1,0 +1,1 @@
+Artículo 13.—Responsabilidad del reglamento. El Auditor o Auditora Interna tendrá la obligación de elaborar, coordinar, actualizar, divulgar y hacer cumplir el contenido de este Reglamento conforme a la normativa legal y técnica pertinente.

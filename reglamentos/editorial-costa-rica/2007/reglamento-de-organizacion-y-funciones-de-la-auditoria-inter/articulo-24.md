@@ -1,0 +1,1 @@
+Artículo 24.—Salidas del trabajo. En cuanto a las salidas de la institución para el cumplimento de sus funciones, el Auditor o Auditora Interna lo podrá comunicar al Presidente(a) del Consejo Directivo y/o con la Secretaria del Consejo Directivo, siempre que esta comunicación no entorpezca sus funciones e independencia, ni la confidencialidad de los estudios que se llevan a cabo.

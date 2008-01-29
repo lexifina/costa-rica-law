@@ -1,0 +1,1 @@
+Artículo 43.—Potestades por ley. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, para el desempeño de sus competencias tendrán las potestades que ese establecen en el artículo 33 de la Ley General de Control Interno.

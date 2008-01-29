@@ -1,0 +1,1 @@
+Artículo 44.—Prohibiciones por ley. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, en el desempeño de sus actividades deberán cumplir con las prohibiciones que establece el artículo 34 de la Ley General de Control Interno.

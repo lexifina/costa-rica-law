@@ -1,0 +1,1 @@
+Artículo 9º—Independencia de criterio. La actividad de la Auditoría Interna debe estar libre de injerencias del Consejo Directivo y de los demás órganos de la Administración, al realizar la planificación de sus labores y las respectivas modificaciones cuando procedan, en la utilización de los recursos, en el desempeño de su trabajo y en la comunicación de los resultados.

@@ -1,0 +1,1 @@
+Artículo 84.—Resultado seguimiento de recomendaciones. Con base en el sistema indicado en el artículo anterior, la Auditoría Interna emitirá el informe correspondiente. El informe contendrá una evaluación sobre el grado general de cumplimiento por parte de la Administración y sobre el alcance determinado.
