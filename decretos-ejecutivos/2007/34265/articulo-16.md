@@ -1,0 +1,1 @@
+Artículo 16.—De la prescripción de la potestad sancionadora. Conforme a lo dispuesto por el artículo 29 de la Ley N° 7476, tanto el cómputo, como la suspensión o interrupción y demás vicisitudes relativas a la prescripción de la potestad sancionadora, se rigen por lo dispuesto en el Título X del Código de Trabajo.

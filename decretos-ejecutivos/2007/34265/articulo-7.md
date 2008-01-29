@@ -1,0 +1,1 @@
+Artículo 7º—Acciones de investigación y evaluación. El Núcleo de Recursos Humanos llevará a cabo acciones de investigación, que aporten los insumos necesarios para desarrollar las acciones preventivas necesarias contra el acoso u hostigamiento sexual.

@@ -1,0 +1,1 @@
+Artículo 13.—De las sanciones. Las sanciones por hostigamiento sexual se aplicarán según la gravedad del hecho. Y podrán ser: amonestación escrita, suspensión sin goce de salario y el despido, sin perjuicio de que las conductas también constituyan hechos delictivos que se denuncien y castiguen en la jurisdicción penal.

@@ -1,0 +1,4 @@
+Artículo 9º—Órganos competentes para atender y tramitar las denuncias. Quien denuncie acoso u hostigamiento sexual por parte del personal de la Procuraduría General de la República, salvo el caso del Procurador (a) General, podrá hacerlo en forma oral o escrita ante el Coordinador de la Dirección de Recursos Humanos, el Procurador (a) General de la República o el Procurador (a) General Adjunto de la República.
+Si la denuncia es recibida por el Coordinador de la Dirección de Recursos Humanos, deberá ponerla en forma inmediata en conocimiento del Procurador (a) General o del Procurador (a) General Adjunto de la República.
+Si el funcionario denunciado fuese el Procurador (a) General Adjunto, la denuncia deberá presentarse ante el Procurador (a) General.
+Si el funcionario denunciado es el Procurador (a) General, la denuncia deberá presentarse ante la Secretaría del Consejo de Gobierno, le corresponderá al Consejo de Gobierno su conocimiento.

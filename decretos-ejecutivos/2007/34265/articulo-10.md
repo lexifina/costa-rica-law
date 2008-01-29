@@ -1,0 +1,2 @@
+Artículo 10.—Del trámite. Recibida la denuncia, el Procurador (a) General o el Procurador (a) General Adjunto, deberán determinar si ordenan una investigación preliminar, u ordenan la apertura de un procedimiento administrativo, pudiendo delegar su instrucción.
+Si del resultado de la investigación preliminar se evidencia que la denuncia de manera clara y evidente es infundada, podrá rechazarse, para lo cual deberá dictarse una resolución debidamente motivada que deberá ser notificada al denunciante.
