@@ -1,0 +1,1 @@
+Artículo 9º—Cuentas de Correo Genéricas: Se autoriza el uso de Cuentas de Correo Genéricas, entendidas éstas como aquellas cuentas de correo impersonales y a nombre de un Ente autorizado por la Administración. El responsable del uso de cada cuenta de Correo Genérica o impersonal, será la persona que hizo la solicitud correspondiente.

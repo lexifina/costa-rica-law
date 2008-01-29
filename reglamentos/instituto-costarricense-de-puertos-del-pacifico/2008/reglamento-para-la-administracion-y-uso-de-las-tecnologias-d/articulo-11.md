@@ -1,0 +1,3 @@
+Artículo 11.—Pertenencia del equipo informático:
+a) Queda entendido que los recursos informáticos asignados a cada usuario lo serán en calidad de herramienta de trabajo y como tal, se encuentran permanentemente bajo dominio y control del INCOP, sin perjuicio del derecho a la privacidad de la información almacenada y demás derechos fundamentales establecidos por la Constitución Política.
+b) Es responsabilidad del usuario, acatar los deberes y responsabilidades especificadas en el Memorando de entrega de Equipos del Departamento de TI, en el cual, con la firma del funcionario, se dan por aceptados todos los términos incluidos en el mencionado documento.

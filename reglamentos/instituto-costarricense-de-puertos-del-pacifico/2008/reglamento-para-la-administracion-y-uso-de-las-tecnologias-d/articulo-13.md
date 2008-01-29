@@ -1,0 +1,3 @@
+Artículo 13.—Respaldos de información:
+a) Corresponde a las Jefaturas y encargados o coordinadores de Direcciones, Departamentos o Unidades solicitar por escrito al Departamento de Tecnologías de Información qué datos requieren de respaldo y quiénes serán las personas autorizadas a su acceso (además de especificar los permisos: lectura, escritura o ambas); también, deberán indicar si requieren de una copia en una ubicación geográfica distinta a la del origen de los datos respaldados.
+b) Quedará a criterio del Departamento de Tecnologías de Información el medio y mecanismo a utilizar en la labor de respaldo según los recursos que se dispongan en su momento.

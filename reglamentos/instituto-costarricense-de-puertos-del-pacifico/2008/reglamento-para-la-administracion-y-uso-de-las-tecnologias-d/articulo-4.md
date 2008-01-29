@@ -1,0 +1,2 @@
+Artículo 4º—Adquisición de Tecnologías de Información: Las ampliaciones, modificaciones o adquisición de equipo de tecnológico, así como la actualización y compra software, se harán con base en las recomendaciones técnicas del Departamento de Tecnologías de Información, el cual será el único autorizado para la distribución de versiones actualizadas.
+El detalle de los programas informáticos será actualizado conforme se adquieren otros nuevos, lo cual se comunicará a las distintas oficinas.
