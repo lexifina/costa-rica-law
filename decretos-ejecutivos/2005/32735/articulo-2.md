@@ -1,1 +1,0 @@
-Artículo 2º—El monto mínimo por pagar, por concepto de zonaje, será de tres mil sesenta colones con cero céntimos (¢3.060,00) y el monto máximo de treinta mil seiscientos colones con cero céntimos. (¢30.600,00).
