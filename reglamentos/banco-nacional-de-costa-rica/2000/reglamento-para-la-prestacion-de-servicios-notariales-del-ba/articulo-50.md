@@ -1,1 +1,0 @@
-Artículo 50.—Medios de impugnación. Contra lo resuelto por la Comisión de Servicios Notariales caben los recursos de revocatoria y apelación, los cuales deberán ser presentados por escrito ante la Comisión. Estos recursos serán presentados dentro del tercer día desde que el notario investigado fuera notificado.

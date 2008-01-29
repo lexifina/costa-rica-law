@@ -1,1 +1,0 @@
-Transitorio III.—Vigencia del nombramiento. Los notarios externos del Banco cuyo nombramiento tendrá una vigencia de dos años serán aquellos, que sean contratados para prestar esos servicios profesionales a partir de la vigencia del presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 34.—Composición de la Comisión. La Comisión de Servicios Notariales estará integrada por el Director Regional, Director regional de Crédito y un abogado de la Dirección Jurídica, como titulares, como suplente de los dos primeros fungirá el Director Regional Comercial y como suplente del tercero fungirá un abogado de planta de la respectiva Dirección Regional.

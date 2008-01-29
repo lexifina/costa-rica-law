@@ -1,2 +1,0 @@
-Artículo 20.—Reportes de trabajos asignados. Cada Centro de Administración de Crédito, confeccionará cada dos meses un reporte de los expedientes de crédito asignados a los notarios externos, el cual someterá al conocimiento del Gerente y Jefe de Crédito de la oficina, para su seguimiento y control.
-De forma semestral, al finalizar los meses de marzo y setiembre el encargado de cada Centro de Administración de Crédito emitirá un reporte para la Dirección Regional, con un resumen sobre los expedientes crediticios asignados durante ese período.

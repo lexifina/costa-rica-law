@@ -1,3 +1,0 @@
-Disposiciones Transitorias
-Transitorio I.—Aplicación del procedimiento. El procedimiento previsto en el Capítulo VII del Reglamento se aplicará en forma inmediata tanto a los nuevos casos, como a las investigaciones ya iniciadas. En este segundo supuesto, le corresponderá a la Comisión de Servicios Notariales respectiva adecuar las actuaciones a las nuevas normas procedimentales.
-Para las investigaciones ya iniciadas y en las que se deban imponer las sanciones del Reglamento derogado, se aplicará -por una única vez- lo dispuesto en el artículo 45 de este Reglamento independientemente del tipo de falta de que se trate.
