@@ -1,3 +1,4 @@
+(NOTA: Este reglamento fue dejado sin efecto en lo conducente, mediante sesión N° 11467 del 29 de enero de 2008)
 BANCO NACIONAL DE COSTA RICA
 REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
 NOTARIALES DEL BANCO NACIONAL DE COSTA RICA
