@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Atribuciones de la asociación administradora del Centro
+La asociación administradora que se constituya para administrar el Centro, podrá adquirir toda clase de bienes muebles e inmuebles, celebrar contratos de toda índole y realizar cualquier actividad lícita dirigida a la consecución de sus fines.
+Además, podrá organizarse con otras organizaciones con el objeto de desarrollar programas de divulgación en el ámbito nacional e internacional, capacitación del personal y de la comunidad, para la conservación del patrimonio cultural; asimismo, cualquier otro tipo de actividad que promueva el desarrollo, la proyección y la obtención de recursos económicos.

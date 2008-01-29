@@ -1,0 +1,4 @@
+ARTÍCULO 4.- Autorización para el traspaso del bien inmueble
+Autorízase al Ministerio de Educación Pública, cédula de persona jurídica número dos-uno cero cero-cero cuatro dos cero cero dos (Nº 2-100-042002), para que traspase a la Municipalidad de Heredia, cédula de persona jurídica número tres-cero uno cuatro-cero cuatro dos cero nueve dos (Nº 3-014-042092), el inmueble que albergó la Escuela República de Argentina, ubicado en Heredia, cantón Central, entre avenida Central y calle segunda, con el fin de que en este inmueble funcione el Centro.
+El edificio citado es patrimonio histórico y se rige por la Ley Nº 7555, Patrimonio histórico-arquitectónico de Costa Rica, de 4 de octubre de 1995, y sus reformas.
+Se autoriza a la Notaría del Estado para que confeccione la escritura correspondiente y la tramite.

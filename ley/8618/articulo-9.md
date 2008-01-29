@@ -1,0 +1,3 @@
+ARTÍCULO 9.- Extinción de la asociación
+En caso de disolución de la asociación administradora, la Municipalidad mantendrá la administración y custodia de todos los bienes muebles e inmuebles adquiridos de naturaleza museística, artística y patrimonial, así como los bienes que la asociación haya adquirido para ejecutar las labores de administración y funcionamiento del Centro.
+El inmueble sede del Centro continuará como propiedad de la Municipalidad de Heredia y, en caso de decidirlo, esta podrá continuar con la administración del Centro garantizando su funcionamiento o seguir el procedimiento indicado en el artículo siguiente para darlo en administración a otra persona jurídica.
