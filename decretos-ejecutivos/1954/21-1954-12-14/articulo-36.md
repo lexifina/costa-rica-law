@@ -1,2 +1,2 @@
-Artículo 36.- No obstante lo indicado en los artículos anteriores el servidor que permaneciere enfermo por un periodo de tres meses o más, podrá a juicio del máximo jerarca de la institución respectiva, ser separado de su puesto, mediante el pago del importe del preaviso y del auxilio de cesantía correspondientes.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 27096 de 15 de mayo de 1998)".
+Artículo 36.- Anulado.
+(Anulado mediante resolución de la Sala Constitucional N° 1573-08 del 30 de enero del 2008.)
