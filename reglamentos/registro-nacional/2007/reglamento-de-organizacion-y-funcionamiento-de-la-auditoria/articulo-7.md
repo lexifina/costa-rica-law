@@ -1,0 +1,3 @@
+CAPÍTULO II
+Independencia y objetividad
+Artículo 7º—La actividad de Auditoría Interna debe ser ejercida con total independencia funcional y de criterio, respecto de la Junta Administrativa y de los demás órganos de la administración activa. Al determinar la planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados, se requiere objetividad e imparcialidad en la labor efectuada por la Auditoría Interna. Las conclusiones de los dictámenes e informes realizados, deberán ser exactos y objetivos y por consiguiente, deben basarse exclusivamente en las pruebas obtenidas y unificadas de acuerdo con las normas de auditoría.

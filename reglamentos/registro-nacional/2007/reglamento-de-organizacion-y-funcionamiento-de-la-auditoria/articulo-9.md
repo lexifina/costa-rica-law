@@ -1,0 +1,1 @@
+Artículo 9º—El Auditor Interno deberá establecer medidas formales para controlar y administrar otras situaciones de impedimento sobre hechos o actuaciones que pongan en duda o en peligro la objetividad o independencia de la Auditoría Interna.

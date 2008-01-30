@@ -1,0 +1,3 @@
+Artículo 32.—El Auditor Interno propondrá a la Junta Administrativa la creación de las plazas y servicios que considere indispensables para el cumplimiento del Plan Anual de la Auditoría y, en general, para el buen funcionamiento de su unidad, todo ello con el fin de mantener un efectivo liderazgo en la protección de la Hacienda Pública, en el ámbito de su competencia.
+Los requisitos para la creación y ocupación de plazas de la Auditoría Interna deberán considerar, sus necesidades reales y no podrán ser aplicados en perjuicio del funcionamiento del sistema de control interno de la institución.
+Las vacantes que se presenten en los puestos de la auditoría interna, deberán llenarse en los plazos establecidos por la Ley de Control Interno.

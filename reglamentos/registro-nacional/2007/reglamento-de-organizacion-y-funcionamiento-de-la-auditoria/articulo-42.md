@@ -1,0 +1,1 @@
+Artículo 42.—EI Auditor Interno deberá establecer mecanismos de coordinación para que el Departamento Financiero mantenga registros separados del monto del presupuesto institucional asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para la misma.
