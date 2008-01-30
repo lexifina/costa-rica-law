@@ -1,0 +1,1 @@
+Artículo 18.—Procurará evitar la Comisión de delitos, faltas e infracciones y denunciará cuántas vea cometer. Informará de cuántas deficiencias observe en el funcionamiento o conservación de los bienes y servicios municipales, así como el debido cumplimiento del numeral 2 de este reglamento como disposiciones general al cuerpo de policía municipal.

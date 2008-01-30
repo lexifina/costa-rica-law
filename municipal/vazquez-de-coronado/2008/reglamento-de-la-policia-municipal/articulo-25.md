@@ -1,0 +1,3 @@
+Artículo 25.—Por sus meritorias actuaciones el personal de la Policía Municipal, puede hacerse acreedor a las siguientes distinciones:
+a) Reconocimiento con Mención Honorífica ante todos los miembros del Cuerpo de Policía Municipal, para aquellos miembros que se distingan en la ejecución de intervenciones difíciles, arriesgadas o que enaltezcan la imagen de la Policía Municipal.
+d) Broche de Mérito, para aquellos Policías que se distinguen por sus virtudes profesionales y humanas, que realicen algún acto heroico y generoso con peligro de sus vidas, así como por los méritos contraídos a lo largo de un período de tiempo determinado.

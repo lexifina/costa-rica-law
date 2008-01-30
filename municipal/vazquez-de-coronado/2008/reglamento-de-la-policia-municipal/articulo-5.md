@@ -1,0 +1,1 @@
+Artículo 5º—Es obligatorio el uniforme en acto de servicio para todos los oficiales del cuerpo de policía, a excepción de investigación oficial en conjunto con otras Instituciones del Estado Policial.

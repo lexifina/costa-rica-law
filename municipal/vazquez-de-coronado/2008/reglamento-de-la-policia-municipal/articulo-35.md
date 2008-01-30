@@ -1,0 +1,1 @@
+Artículo 35.—Antes de iniciar su primer día de trabajo cada miembro del Cuerpo de Policía será juramentado en Sesión Plenaria Ordinaria del Concejo a la cual será citado previamente por el Director Administrativo.

@@ -1,0 +1,1 @@
+Artículo 15.—En los casos de emergencias y desastres, los Policías Municipales deberán presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones, aunque estuvieran libres de servicio.

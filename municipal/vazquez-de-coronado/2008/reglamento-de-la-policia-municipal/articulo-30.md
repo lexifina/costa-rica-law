@@ -1,0 +1,1 @@
+Artículo 30: Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales, propios de su trabajo, les sea proveída por la Municipalidad, ya sea servicios profesionales, internos o externos.

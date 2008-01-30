@@ -1,0 +1,1 @@
+Artículo 6º—Se prohíbe la utilización del uniforme de modo incompleto, así como la descuidada colocación de las prendas que lo componen. Sobre el uniforme sólo podrán portar las insignias del correspondiente grado, condecoraciones, armamento y demás equipo reglamentario.

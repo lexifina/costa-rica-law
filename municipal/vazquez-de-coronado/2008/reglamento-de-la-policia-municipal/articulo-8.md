@@ -1,0 +1,1 @@
+Artículo 8º—La Policía Municipal dependerá del Director Administrativo de esta institución. El Director Administrativo establecerá la jerarquía correspondiente, a partir de un Jefe y un subjefe del grupo.

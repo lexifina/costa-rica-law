@@ -1,0 +1,1 @@
+Artículo 21.—Los Policías Municipales estarán obligados a cumplir íntegramente su jornada de trabajo. No abandonaran el servicio hasta que sea relevado, excepto por disposición o permiso de superior inmediato.

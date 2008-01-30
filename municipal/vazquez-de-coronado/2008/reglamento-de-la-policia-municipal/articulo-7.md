@@ -1,0 +1,1 @@
+Artículo 7º—El personal masculino deberá usar pelo corto, y podrán usar barba y bigote arreglados, de modo que mantengan una apariencia aceptable y respetable con respecto a los y las habitantes del cantón.
