@@ -1,0 +1,1 @@
+Artículo 33.—En caso de construcción de tapias y aceras, dibujo detallado firmado por el constructor, copia de la escritura o informe registral y constancia de estar al día con los impuestos municipales.

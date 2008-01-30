@@ -1,0 +1,1 @@
+Artículo 39.—Los cortes en las aceras y cordones de calle para la entrada de vehículos a los predios, no deberá entorpecer , el tránsito de los peatones, ni atentar contra la seguridad de los mismos; al respecto se deberá tomar en consideración el contenido de la ley 7600 Igualdad de Oportunidades para las Personas con Discapacidad en Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 22.—No se permitirá abrir ventanas ni balcones que den vista a las propiedades colindantes; a menos que intervenga una distancia de tres metros cincuenta centímetros entre el plano vertical de la línea más sobresaliente de de la ventana o balcón y el plano vertical de la línea divisoria de los predios, en el punto que dichas líneas se estrechen más, si no son paralelas.

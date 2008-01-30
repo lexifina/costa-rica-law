@@ -1,0 +1,13 @@
+Artículo 31.—Con la solicitud del permiso de construcción, el propietario deberá aportar los siguientes documentos:
+- Dos juegos de planos autorizados por el Colegio Federado de Ingenieros y Arquitectos, con el visto bueno del Ministerio de Salud.
+- Informe Registral, del terreno donde se edificará la obra.
+- Copia de la escritura donde se edificará la construcción.
+- Copia del plano catastrado de la propiedad con su respectivo visado municipal.
+- Copia del Contrato de Consultoría.
+- Copia de declaratoria de Interés Social de la construcción en caso de Bono para la Vivienda.
+- Certificado de Viabilidad Ambiental emitido por SETENA, para construcciones mayores de trescientos metros cuadrados y cuando así se especifique (talleres mecánicos, granjas avícolas y cualquier otro proyecto que cause peligro al medio ambiente).
+- Certificación de póliza de riesgos del trabajo emitida por el INS.
+- Declaración jurada en que se indique si la propiedad donde se va a construir está o no afectada por las restricciones de La Ley Forestal 7575.
+- Constancia de impuestos municipales al día.
+- Alineamiento extendido por el MOPT, si la construcción se edificará al frente de carretera nacional.
+- Timbres fiscal de ¢5.

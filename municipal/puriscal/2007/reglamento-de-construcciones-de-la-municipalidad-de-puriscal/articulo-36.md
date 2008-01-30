@@ -1,0 +1,1 @@
+Artículo 36.—En caso de no estar el dueño de acuerdo con lo señalado en el artículo anterior. Podrá apelar la misma ante el Alcalde Municipal, quien tendrá un mes para resolver, para ello podrá solicitar colaboración al Colegio de Ingenieros y Arquitectos de Costa Rica, a efecto que externen el criterio técnico sobre el caso, para resolver la controversia planteada.
