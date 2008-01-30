@@ -1,0 +1,1 @@
+Artículo 16.-Las resoluciones de la Administración que ordene la cancelación de la patente o la clausura del negocio por el vencimiento o revocatoria del permiso de funcionamiento, no tendrán recurso alguno. Salvo la presentación del correspondiente documento de la institución que emite dicha autorización.

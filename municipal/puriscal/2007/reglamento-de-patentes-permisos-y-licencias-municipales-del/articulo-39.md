@@ -1,0 +1,1 @@
+Artículo 39.-Las resoluciones de la Administración que ordenen la suspensión de la licencia y el cierre del negocio por falta de pago, no admitirán recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.

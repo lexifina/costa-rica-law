@@ -1,0 +1,1 @@
+Artículo 10.-EI Departamento de Rentas y Catastro determinará si la solicitud puede ser formalmente recibida por cumplir con los requisitos legales y reglamentarios. Sin embargo, cuando la determinación fuese negativa, el solicitante podrá recurrir para ante el Alcalde, de acuerdo a lo dispuesto por el artículo W 162 del Código Municipal.

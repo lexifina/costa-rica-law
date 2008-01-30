@@ -1,0 +1,1 @@
+Artículo 36.-La revisión y verificación de las declaraciones, estarán a cargo del Departamento de Rentas y Catastro, quienes dispondrán del apoyo del contador y el Alcalde Municipal o en su caso de una comisión especial integrada para atender este asunto.

@@ -1,0 +1,1 @@
+Artículo 29.-Aquellas personas físicas o jurídicas, cuya actividad esté distribuida en uno o más cantones, aparte del Cantón de Puriscal, que por tal motivo estén sujetas al pago de patente en esos cantones deberán determinar que proporción del volumen de sus negocios se genera en el cantón de Puriscal, para efectos del pago del impuesto de patentes.

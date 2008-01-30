@@ -1,0 +1,1 @@
+Artículo 32.-Los patentados que no sean declarantes del Impuesto Sobre la Renta, deberán acompañar a su declaración de Impuesto de Patente Municipal, una certificación de ingresos extendida por un Contador Público Autorizado.

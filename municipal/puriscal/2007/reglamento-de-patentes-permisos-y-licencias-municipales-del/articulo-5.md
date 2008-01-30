@@ -1,0 +1,1 @@
+Artículo 5°-Obligaciones de la Municipalidad: La Municipalidad esta obligada a hacer cumplir la ley de patentes municipales y las otras normas que tengan relación con ella para el ejercicio del control de la explotación de las actividades para e] desarrollo del cantón. Coordinar con las demás instituciones cualquier situación, con e] fin de hacer cumplir ]a ley.

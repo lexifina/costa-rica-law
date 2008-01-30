@@ -1,0 +1,2 @@
+Artículo 11.-Será requisito obligatorio en los trámites de licencias la certificación del Departamento de Rentas y Catastro, referente a las obligaciones tributarias contractuales o de cualquier otra índole, que los interesados pudieran tener con la Municipalidad, las cuales dicho funcionario tenga como obligación registrar.
+Para efectos de esta normativa se refuta como interesado al dueño del local involucrado.

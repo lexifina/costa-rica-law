@@ -1,0 +1,1 @@
+Artículo 27.-Para efectos de la declaración jurada de establecimientos financieros y de compra y venta de bienes raíces, se considera como ventas o ingresos brutos lo percibido por concepto de comisiones e intereses.

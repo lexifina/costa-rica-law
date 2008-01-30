@@ -1,0 +1,1 @@
+Artículo 22.-Las patentes podrán ser variadas de acuerdo a las condiciones específicas diseñadas por el solicitante, ya sea ampliar o restringir, las ya autorizadas por esta municipalidad, previa solicitud en este sentido del interesado o patentado y cumplimiento de los requisitos establecidos.

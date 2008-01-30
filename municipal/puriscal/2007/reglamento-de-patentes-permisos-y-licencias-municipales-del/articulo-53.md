@@ -1,0 +1,1 @@
+Artículo 53.-La Municipalidad cobrará por cada aviso de cobro que se envíe a los patentados la suma de 1.200,00 (un mil doscientos colones), los cuales serán cargados en forma automática en las bases de datos de cada contribuyente.

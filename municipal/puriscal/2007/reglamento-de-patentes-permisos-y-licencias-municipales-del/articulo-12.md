@@ -1,0 +1,1 @@
+Artículo 12.-Cuando resultare evidente el abandono de una actividad, y previo informe del Departamento de Rentas y Catastro, se procederá a suspender la licencia del patentado en cuestión; sin que ello le exima de la suma que adeude a la fecha por esa actividad lucrativa.

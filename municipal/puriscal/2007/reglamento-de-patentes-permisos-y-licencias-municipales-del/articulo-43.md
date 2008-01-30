@@ -1,0 +1,1 @@
+Artículo 43.-La Municipalidad autorizará Patentes de Licores Temporales únicamente para Fiestas Cívicas y Patronales, Turnos, Ferias y afines siempre y cuando cumplan con los requisitos (artículo 17 Decreto Ejecutivo N° 17757 del 28/9/87).

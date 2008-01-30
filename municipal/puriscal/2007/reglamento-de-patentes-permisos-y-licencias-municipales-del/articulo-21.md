@@ -1,0 +1,1 @@
+Artículo 21.- Toda patente puede ser trasladada del lugar en que fue otorgada o en que existe actualmente, siempre y cuando no incumplan o violen las leyes y reglamentos establecidos en la legislación vigente y previa solicitud al Departamento de Rentas y Catastro.

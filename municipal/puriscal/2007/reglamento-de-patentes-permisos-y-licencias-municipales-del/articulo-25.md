@@ -1,0 +1,1 @@
+Artículo 25.-Si el patentado no presentare la declaración en el plazo previsto por la ley y este Reglamento, la Administración procederá a calificarlo de oficio como lo establece la ley en su artículo 9°, incisos b), c), ch), d), e) y otros casos.

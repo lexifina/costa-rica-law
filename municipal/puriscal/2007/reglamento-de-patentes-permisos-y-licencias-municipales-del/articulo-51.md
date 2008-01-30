@@ -1,0 +1,1 @@
+Artículo 51.-Realización de operativos: La Municipalidad de Puriscal junto con Ias autoridades de la fuerza pública y cualquier otra entidad podrá realizar operativos para comprobar el adecuado cumplimiento de las normas de este Reglamento y del reglamento de ventas ambulantes y estacionarias del canto n de Puriscal.
