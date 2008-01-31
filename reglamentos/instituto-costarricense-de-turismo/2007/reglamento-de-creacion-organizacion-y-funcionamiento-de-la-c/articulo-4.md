@@ -1,0 +1,1 @@
+Artículo 4º—La Contraloría de Servicios estará bajo la responsabilidad de un(a) Contralor(a), de Servicios, nombrado por la Gerencia General por recomendación del máximo jerarca de la institución, y que podrá además contar con personal de apoyo para el cumplimiento de los objetivos propuestos.

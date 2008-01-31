@@ -1,0 +1,1 @@
+Artículo 18.—Del registro y control de quejas. La Contraloría de Servicios deberá mantener un registro actualizado de control de todas las quejas, denuncias y disconformidades planteadas y admitidas con indicación de los resultados de su gestión.

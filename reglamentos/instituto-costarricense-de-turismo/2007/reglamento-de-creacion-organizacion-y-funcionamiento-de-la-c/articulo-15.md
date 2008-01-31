@@ -1,0 +1,1 @@
+Artículo 15.—Del Manual de Procedimientos para la atención de quejas. La Contraloría de Servicios del Instituto elaborará el Manual de Procedimientos correspondiente para la tramitación de quejas, denuncias, disconformidades o recomendaciones que presentan los usuarios.
