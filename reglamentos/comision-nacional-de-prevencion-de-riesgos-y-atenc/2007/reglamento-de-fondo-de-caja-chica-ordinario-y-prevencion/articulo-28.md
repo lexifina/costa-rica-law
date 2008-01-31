@@ -1,0 +1,1 @@
+Artículo 28.—Una vez realizada la compra de determinado bien cuyo costo individual sobrepase la suma autorizada por la Dirección Ejecutiva o Presidencia , éste deberá trasladarse a la bodega central de la C.N.E. para que se le confeccione el respectivo informe de recepción.

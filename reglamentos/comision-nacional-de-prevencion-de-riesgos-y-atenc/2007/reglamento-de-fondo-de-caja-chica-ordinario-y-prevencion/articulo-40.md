@@ -1,0 +1,1 @@
+Artículo 40.—El Jefe del funcionario responsable del manejo y la custodia de Caja Chica, deberá reportar a la Administración Financiera cualquier irregularidad que detecte en el manejo y control de fondos.

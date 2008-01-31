@@ -1,0 +1,2 @@
+Artículo 16.—Para realizar la compra de bienes y servicios por medio de Caja Chica, deberá confeccionar una solicitud de “Vale provisional”, en caso de adelantos de Caja Chica, y entregársele al encargado del control y manejo del fondo.
+El vale provisional, además de requerir la firma de aprobación de la Unidad solicitante (mínimo Jefe Departamento), debe detallar en forma clara y precisa el objeto del gasto, para facilitar la codificación presupuestaria y contable, cualquier espacio en que no se especifique lo deseado, podrá dar lugar a devolverlo o no reconocer el pago.
