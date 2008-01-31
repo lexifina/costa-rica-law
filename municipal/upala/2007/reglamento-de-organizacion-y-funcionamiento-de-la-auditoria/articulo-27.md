@@ -1,0 +1,1 @@
+Artículo 27.—Asesoría. Es obligación del área de Asesoría Legal, brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera; obligación que es extensiva a las demás divisiones, gerencias de área, unidades y demás órganos de la Municipalidad.
