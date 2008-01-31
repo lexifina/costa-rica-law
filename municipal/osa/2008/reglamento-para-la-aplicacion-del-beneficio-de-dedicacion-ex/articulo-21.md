@@ -1,0 +1,4 @@
+Artículo 21.—Publicación. Ordénese por el Alcalde Municipal y con carácter de inmediato, la publicación de este Proyecto de Reglamento, en el Diario Oficial La Gaceta para los fines de ley.
+Visto y analizado el presente reglamento para la aplicación del beneficio de dedicación exclusiva, el Concejo Municipal de Osa, lo somete a votación y lo aprueba de manera definitiva por medio de los votos de las Regidoras propietarias Alba Cerdas Aguilar, Yanina Chaverri Rosales, Jéssica Hernández Sanarrusia y Sonia Segura Matamoros. Por tanto comuníquese al señor Jorge Alberto Cole de León, Alcalde Municipal, para que se realice los trámites respectivos, para su publicación en el Diario Oficial La Gaceta.
+Se aprueba el Reglamento para la Aplicación del Beneficio de Dedicación Exclusiva, en sesión ordinaria número 02-2008, capítulo VI, acuerdo 2, celebrada el día 9 de enero del 2008.
+Ciudad Puerto Cortés, 17 de enero del 2008.

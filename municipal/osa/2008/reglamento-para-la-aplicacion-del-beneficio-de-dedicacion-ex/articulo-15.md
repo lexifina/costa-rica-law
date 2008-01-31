@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Excepciones, renuncias y sanciones
+Artículo 15.—Excepciones al beneficio de Dedicación Exclusiva.—El funcionario que se acoja al Beneficio de Dedicación Exclusiva, podrá ejercer su profesión comprendida en el respectivo contrato, en los siguientes casos:
+a) Cuando se trate de actividades personales, de las de su cónyuge, compañera o compañero, si convive en unión libre, comprobado lo anterior mediante declaración jurada, otorgada ante Notario Público, ascendiente o descendientes, hasta tercer grado de consanguinidad o afinidad, hermanos, suegros, cuñados, siempre y cuando no exista interés lucrativo por parte del funcionario. Para los efectos anteriores, el servidor, con la debida antelación debe solicitar y justificar por escrito y recibir autorización del Departamento de Personal y así acogerse a las excepciones indicadas en los incisos anteriores
+b) Cuando sea necesaria su colaboración y participación, al Estado, en forma ad honorem, en la atención de desastres naturales, siempre que lo hagan a nombre y con el respaldo de la Municipalidad
+c) Cuando se trate del desempeño de cargos en juntas directivas, siempre que no existan conflictos de intereses con el puesto desempeñado, salvo en los casos en que la ley expresa así lo establezca.
+d) Cuando se trate del ejercicio de labores de docencia, capacitación, extensión o investigación, siempre que estas actividades no excedan de un cuarto de tiempo de acuerdo a la jornada correspondiente en la institución de enseñanza.
+e) Cuando la actividad que pretenda desarrollar no sea aquella para la que fue contratado de acuerdo al perfil de empleo y al Manual de Puestos de la Institución.
