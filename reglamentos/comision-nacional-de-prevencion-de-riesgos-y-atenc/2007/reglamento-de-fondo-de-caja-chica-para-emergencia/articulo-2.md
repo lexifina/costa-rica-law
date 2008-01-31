@@ -1,0 +1,1 @@
+Artículo 2º—Definición del Fondo de Caja Chica para Emergencias. Constituye un monto fijo reembolsable y establecido por la CNE, conforme las disposiciones aquí descritas que son de carácter general y de aplicación obligatoria para éste y cualesquiera caja auxiliar que del mismo pueda establecerse.

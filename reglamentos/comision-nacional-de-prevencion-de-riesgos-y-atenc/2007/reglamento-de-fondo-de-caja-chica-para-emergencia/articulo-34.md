@@ -1,0 +1,1 @@
+Artículo 34.—Tanto el funcionario encargado del manejo, como el Jefe responsable del control del fondo de Caja Chica, les corresponde mantener en un lugar seguro los documentos, efectivo y cheques que componen el fondo correspondiente.

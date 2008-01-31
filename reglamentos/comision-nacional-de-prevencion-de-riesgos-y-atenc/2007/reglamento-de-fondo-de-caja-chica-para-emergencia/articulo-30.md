@@ -1,0 +1,1 @@
+Artículo 30.—El superior inmediato que permita u oculte un faltante o cualquier manejo irregular en el Fondo de Caja Chica o de las cajas auxiliares, será sancionado conforme las regulaciones establecidas.

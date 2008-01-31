@@ -1,0 +1,1 @@
+Artículo 37.—El Jefe del funcionario responsable del manejo y la custodia de Caja Chica, deberá reportar, al menos, a la Dirección Administrativa Financiera, con copia a la Dirección Ejecutiva, cualquier irregularidad que detecte en el manejo y control de fondos.

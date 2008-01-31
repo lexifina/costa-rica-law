@@ -1,0 +1,1 @@
+Artículo 27.—No se reintegrarán facturas con fecha mayor a los sesenta días naturales, salvo casos debidamente calificados que deben justificarse por escrito y llevar el visto bueno del Director Ejecutivo o Presidente de la CNE.
