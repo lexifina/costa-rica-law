@@ -14,3 +14,4 @@ Cobro del Impuesto General sobre las Ventas en el caso de la comercialización d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-07 | la propia norma |
+| 2 | 2008-01-31 | Decreto Ejecutivo 34388 (2008-01-31) |
