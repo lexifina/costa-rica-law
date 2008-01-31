@@ -1,0 +1,1 @@
+Artículo 3º—Funcionarios de la aduana de jurisdicción conjuntamente con un perito de la Dirección General de Tributación, determinarán los vehículos considerados como altamente deteriorados, debiendo dejar constancia de las condiciones de cada vehículo en un Acta, que deberá ser firmada de manera conjunta.
