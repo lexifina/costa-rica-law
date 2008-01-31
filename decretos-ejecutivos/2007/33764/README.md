@@ -14,3 +14,4 @@ Establece el plazo prudencial de ocho meses, para someter a subasta pública tod
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-31 | la propia norma |
+| 2 | 2008-01-31 | Decreto Ejecutivo 34486 (2008-01-25) |

@@ -1,3 +1,4 @@
+NOTA SINALEVI: Mediante decreto ejecutivo N° 34486 del 25 de enero de 2008, se prorroga hasta el 2 de agosto de 2008 el plazo de vigencia de este decreto.
 Nº 33764
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
