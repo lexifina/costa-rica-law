@@ -1,0 +1,1 @@
+Artículo 9º—Transcurrido el plazo señalado en la notificación, el inspector verificará su cumplimiento y en caso de persistir la omisión, remitirá un informe a su jefatura, para que solicite el cargo de la multa al Departamento de Desarrollo Catastral y una solicitud a la dependencia que le corresponda realizar la obra, para que la misma sea incorporada a su plan de trabajo.
