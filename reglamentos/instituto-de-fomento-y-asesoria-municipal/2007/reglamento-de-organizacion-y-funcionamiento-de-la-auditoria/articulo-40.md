@@ -1,0 +1,1 @@
+Artículo 40.—Expedientes. Sobre cada evaluación de auditoría, estudio especial, o servicio preventivo, la Auditoría Interna debe formar un expediente completo, el cual estará debidamente foliado y ordenado cronológicamente, el contendrá todos los documentos relacionados, incluyendo las respuestas que se obtengan de las recomendaciones formuladas por la Auditoría Interna.

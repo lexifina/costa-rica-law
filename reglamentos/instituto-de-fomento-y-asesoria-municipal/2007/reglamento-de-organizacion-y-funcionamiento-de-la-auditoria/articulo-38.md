@@ -1,0 +1,1 @@
+Artículo 38.—Servicios preventivos de asesoría. Los servicios preventivos de asesoría tratarán sobre asuntos de competencia de la Auditoría Interna, los cuales se prestarán a la Junta Directiva, u otras instancias a criterio del Auditor Interno, se comunicarán en forma escrita, aunque en casos especiales, la asesoría puede ser verbal.

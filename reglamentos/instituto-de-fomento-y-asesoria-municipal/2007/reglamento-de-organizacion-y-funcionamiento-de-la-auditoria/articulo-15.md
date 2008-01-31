@@ -1,0 +1,1 @@
+Artículo 15.—Objetividad. Los funcionarios de la Auditoría Interna deben actuar con total objetividad e imparcialidad en la ejecución de sus actividades de trabajo, así como evitar conflictos de intereses. Además deben abstenerse de evaluar operaciones específicas en las cuales hayan participado anteriormente como funcionarios de la Administración.

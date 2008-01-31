@@ -1,0 +1,1 @@
+Artículo 35.—Programa específico. El funcionario designado para realizar un estudio, deberá elaborar un programa específico, el cual debe incluir, al menos: el objetivo, el alcance, el tiempo de ejecución y los funcionarios que participan, el cual deberá ser firmado por el funcionario responsable, y autorizado por el Auditor Interno.

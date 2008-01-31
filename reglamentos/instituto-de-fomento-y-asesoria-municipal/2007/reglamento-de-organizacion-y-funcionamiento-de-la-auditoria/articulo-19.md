@@ -1,0 +1,1 @@
+Artículo 19.—Movimientos del personal. Para el nombramiento, traslado, suspensión, remoción, concesión de licencias, supresión de plazas, y otros movimientos del personal de la Auditoría Interna, deberá contarse con la autorización previa del Auditor Interno, de conformidad con lo dispuesto en los artículos 24 y 28 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 11.—Estructura y dependencia. La Auditoría Interna está estructurada en una sóla unidad, que depende directamente de la Junta Directiva, y así debe representarse en el Organigrama de la Institución.

@@ -1,0 +1,1 @@
+Artículo 13.—Reglamento de la Auditoría Interna. La Auditoría Interna dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige esta actividad, el cual deberá ser aprobado por la Junta Directiva, por la Contraloría General de la República, publicarse en el Diario Oficial La Gaceta, y divulgarse en el ámbito institucional.

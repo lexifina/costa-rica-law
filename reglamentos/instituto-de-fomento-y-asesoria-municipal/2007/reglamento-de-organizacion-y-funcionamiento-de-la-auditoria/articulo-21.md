@@ -1,0 +1,2 @@
+Artículo 21.—Recursos y presupuesto. La Junta Directiva en coordinación con los responsables de formular el presupuesto institucional, asignarán los recursos humanos, materiales, tecnológicos, y otros, que requiera la Auditoría Interna para el cumplimiento de sus funciones.
+El presupuesto de gastos de la Auditoría Interna debe estar separado e identificado en el presupuesto institucional, y para su modificación deberá considerarse el criterio del Auditor Interno, y observarse las disposiciones que emita la Contraloría General de la República.

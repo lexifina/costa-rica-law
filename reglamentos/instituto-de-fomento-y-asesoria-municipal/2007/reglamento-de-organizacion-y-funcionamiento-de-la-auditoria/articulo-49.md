@@ -1,0 +1,1 @@
+Artículo 49.—Conflictos por la aplicación de recomendaciones. Cuando las recomendaciones de Auditoría Interna no sean aceptadas por la Junta Directiva, y en el evento de que este hecho genere un conflicto, se procederá de conformidad con el procedimiento señalado en el artículo 38 de la Ley General de Control Interno.

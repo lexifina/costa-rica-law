@@ -1,0 +1,1 @@
+Artículo 50.—Seguimiento de recomendaciones. La Auditoría Interna dispondrá de un programa y de procedimientos específicos para dar seguimiento a las recomendaciones formuladas en sus informes y en otros documentos, así como a las disposiciones emitidas por la Contraloría General de la República y otras instancias de fiscalización y control.

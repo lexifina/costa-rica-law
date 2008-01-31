@@ -1,0 +1,1 @@
+Artículo 10.—Valores éticos. Los funcionarios de la Auditoría Interna deben orientar sus actuaciones, al menos, dentro de los principios y enunciados éticos emitidos por la Contraloría General de la República, publicados en La Gaceta Nº 228 del 22 de noviembre del 2004, con respecto a la independencia, objetividad, imparcialidad, neutralidad política, y conflicto de intereses.
