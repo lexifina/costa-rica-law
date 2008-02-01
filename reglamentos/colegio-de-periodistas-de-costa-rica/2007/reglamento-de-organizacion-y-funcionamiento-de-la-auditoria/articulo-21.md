@@ -1,0 +1,3 @@
+Artículo 21.—Al auditor interno le corresponderá la dirección superior y la administración de la Auditoría Interna del Colegio de Periodistas. Asimismo le corresponderá al auditor interno mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna, y de cumplir y hacer cumplir dicho reglamento.
+Deberá proponer al jerarca, oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la Auditoría Interna.
+Asimismo el Auditor Interno responderá por su gestión ante el jerarca, para lo cual deberá presentar ante el jerarca el informe de labores previsto en la Ley General de Control Interno

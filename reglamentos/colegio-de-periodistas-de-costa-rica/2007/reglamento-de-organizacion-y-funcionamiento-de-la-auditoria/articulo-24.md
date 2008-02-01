@@ -1,0 +1,1 @@
+Artículo 24.—Es obligación del Auditor Interno incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no del Colegio, para que lleven a cabo labores de su especialidad en apoyo a las auditorias que realice la Auditoría Interna.

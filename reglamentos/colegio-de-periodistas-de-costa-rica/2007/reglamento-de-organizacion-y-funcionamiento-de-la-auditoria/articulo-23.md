@@ -1,0 +1,1 @@
+Artículo 23.—El Auditor Interno tiene la facultad de proveer e intercambiar información con la Contraloría General, así como con otros entes y órganos de control conforme a la Ley y en el ámbito de sus competencias. Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 33.—Cuando los informes de Auditoría obtengan recomendaciones dirigidas a los titulares subordinados, se procederá de acuerdo con el artículo 36 de la Ley General de Control Interno. En caso de contener recomendaciones dirigidas al jerarca, el proceder se realizará de conformidad con el artículo 37 de esa Ley.

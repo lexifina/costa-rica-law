@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la Ejecución de la Auditoría
+Artículo 27.—La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas de ejecución de la Auditoría, contenidas en el Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y la Entidades y Órganos Sujetos a su Fiscalización, las adoptadas por el Colegio de Contadores Públicos de Costa Rica en lo que sea aplicable, los lineamientos que al respecto contiene el Manual de Normas para el ejercicio de la Auditoría Interna y en cualesquiera otras disposiciones que dicte la Contraloría General de la República.

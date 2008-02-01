@@ -1,0 +1,4 @@
+Artículo 15.—La Junta Directiva deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la auditoría interna pueda cumplir su gestión.
+Para efectos presupuestarios, se dará a la auditoría interna una categoría programática; para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del auditor interno y las instrucciones que emita al respecto la Contraloría General de la República.
+La auditoría interna ejecutará su presupuesto, conforme lo determinen sus necesidades para cumplir su plan de trabajo.
+El responsable del control del presupuesto institucional deberá mantener un registro separado del monto asignado y aprobado a la Auditoria Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para la Auditoria Interna.
