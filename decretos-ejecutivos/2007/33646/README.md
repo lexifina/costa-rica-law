@@ -32,3 +32,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 17 | 2007-12-05 | Decreto Ejecutivo 34177 (2007-12-05) |
 | 18 | 2007-12-05 | Decreto Ejecutivo 34179 (2007-12-05) |
 | 19 | 2008-01-18 | Decreto Ejecutivo 34286 (2008-01-18) |
+| 20 | 2008-02-01 | Decreto Ejecutivo 34336 (2008-02-01) |
