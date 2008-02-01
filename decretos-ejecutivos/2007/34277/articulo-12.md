@@ -1,0 +1,1 @@
+Artículo 12.—Suplencia. En caso de que algún director no pudiera asistir y sea el suplente el que se apersone, éste deberá comunicarlo a la Dirección de la DAACI por medio electrónico o por la nota escrita correspondiente, al menos con un día de antelación a la celebración de la sesión.

@@ -1,0 +1,2 @@
+Artículo 7º—De los suplentes y asesores. Cada director de los Ministerios que conforman la Comisión, deberá designar un único suplente, quien en su ausencia por razones justificadas, ejercerá la representación de la dirección correspondiente.
+Asimismo, cada representante propietario o suplente en ejercicio, podrá asistir a la sesión de la Comisión acompañado de los asesores que considere pertinentes hasta un máximo de cuatro asesores, en razón de los temas que serán conocidos en sus sesiones.

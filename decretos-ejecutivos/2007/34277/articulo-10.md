@@ -1,0 +1,1 @@
+Artículo 10°—Quórum. Para que la Comisión pueda celebrar sesiones válidas, deberá contarse con un quórum integrado por al menos tres de los Ministerios que la componen. De no reunirse el quórum a la hora indicada en la convocatoria, la sesión se celebrará treinta minutos después, con los representantes que se encuentren presentes.
