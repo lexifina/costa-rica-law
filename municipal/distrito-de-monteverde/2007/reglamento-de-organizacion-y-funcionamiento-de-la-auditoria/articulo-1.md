@@ -1,0 +1,18 @@
+CONCEJO MUNICIPAL DE DISTRITO DE MONTEVERDE
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA
+PRESENTACIÓN
+El siguiente Reglamento de Organización y Funciones de la Auditoría Interna tiene como base de su creación los artículos 22 y 23 de la Ley General de Control Interno Nº 8292, del 31 de julio del 2002, en el que se establece la obligación, de toda auditoría interna de disponer de un reglamento de organización y funcionamiento acorde con la normativa que rige su actividad.
+Este Reglamento regula y establece las funciones de auditoría interna, así como las obligaciones, restricciones y potestades de la auditoría interna y del personal que la conforma, de esta manera se establece la obligatoriedad de su aplicación en la ejecución de las labores y del comportamiento del personal de la Auditoría Interna.
+Este documento está elaborado según la Ley General de Control Interno, las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público (D-2-2006-CO-DFOE-DAGJ) y las Resoluciones R-CO-91-2006 emitido por la Contraloría General de la República y publicado en La Gaceta Nº 236 del 8 de diciembre del 2006, que establecen: Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos y las condiciones para las gestiones de nombramiento en dichos cargos (L-1-2006-CO-DAGJ) y el Manual de normas generales para el ejercicio de la auditoría interna en el sector público.
+El presente Reglamento contempla los siguientes aspectos:
+En el Título I, se presenta las disposiciones generales del reglamento: Su propósito, ámbito de aplicación, regulaciones, definiciones, que debe contar la unidad de Auditoría Interna.
+En el Título II, se muestra sobre la organización de la Auditoría Interna, el cual esta dividido por siete capítulos de la siguiente forma: Concepto de la auditoría interna, independencia y objetividad, ubicación y estructura organizativa, la figura del Auditor y Subauditor Internos, del personal de auditoría, ámbito de acción, relaciones y coordinaciones.
+En el Título III, se muestra aspectos sobre el funcionamiento de la auditoría interna y se divide en cuatro capítulos: Competencias de la auditoría interna, deberes de la auditoría interna, potestades de la auditoría interna y otros aspectos relativos de la auditoría interna.
+En el Título IV, se presenta las disposiciones finales: Derogatorias y vigencia.
+El Concejo Municipal de Distrito de Monteverde en sesión extraordinaria Nº 402 del 8 de octubre del 2007, en el capítulo II, artículo 02, Inciso a. y la Contraloría General de la República, mediante oficio Nº 13882 del 21 de noviembre de 2007, resolvieron aprobar el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Concejo Municipal de Distrito de Monteverde, cuyo texto integral es el siguiente:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA
+TÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo. El presente Reglamento, en conjunto con las disposiciones contenidas en la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el órgano contralor, regula las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna del Concejo Municipal de Distrito de Monteverde, con la finalidad de orientar su accionar, de manera que la misma se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza.

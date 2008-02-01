@@ -1,0 +1,4 @@
+CAPÍTULO III
+Ubicación y estructura organizativa
+Artículo 14.—Ubicación y estructura organizativa de la auditoría interna. La auditoría interna en la estructura organizativa se ubica como un órgano asesor de muy alto nivel dentro de la estructura organizacional del Concejo Municipal de Distrito de Monteverde, dependiente orgánicamente del jerarca institucional.
+La Auditoría Interna se organizará y funcionará conforme lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno, según lo disponga el auditor interno, considerando los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnico-jurídicas y las sanas prácticas correspondientes. Es responsabilidad del auditor interno disponer para su unidad de una estructura organizativa concordante con la razón de ser y la normativa que regula el Concejo Municipal de Distrito de Monteverde.
