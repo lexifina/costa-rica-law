@@ -1,0 +1,4 @@
+Artículo 7º—Incentivo. Se establece un incentivo a los sujetos pasivos que encontrándose al día con sus obligaciones municipales, cancelen por adelantado la totalidad de sus tributos anuales en un solo tracto, el mismo consistirá en un descuento que se aplicará porcentual, como a continuación se describe:
+a) Quien cancele durante el mes de enero el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 10% (diez por ciento) sobre el monto total anual a pagar.
+b) Quien cancele durante el mes de febrero el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 8% (ocho por ciento) sobre el monto total anual a pagar.
+c) Quien cancele durante el mes de marzo el monto total de los tributos a su nombre de todo el año, se le aplicará un descuento del 5% (cinco por ciento) sobre el monto total anual a pagar.

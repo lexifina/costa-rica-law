@@ -1,0 +1,1 @@
+Artículo 8º—Tiempo. Este incentivo regirá por un período de tres meses, contados a partir del primer día hábil del mes enero y hasta el último día hábil del mes de marzo de cada año y ofrecerá, al administrado, la posibilidad de que le sea otorgado un incentivo porcentual del monto total de la obligación tributaria anual.

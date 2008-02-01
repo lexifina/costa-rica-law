@@ -1,0 +1,1 @@
+Artículo 4º—Servicios urbanos. Los servicios urbanos, cementerio y mantenimiento de parques (parques y obras de ornato) se efectuará por período mensual: (enero, febrero, marzo, abril, mayo, junio, julio, agosto, setiembre, octubre, noviembre y diciembre).
