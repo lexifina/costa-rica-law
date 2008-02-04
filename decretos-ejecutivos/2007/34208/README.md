@@ -14,3 +14,4 @@ Fija monto de las dietas para los miembros de la Junta Directiva del Instituto C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-21 | la propia norma |
+| 2 | 2008-02-04 | Decreto Ejecutivo 34402 (2008-02-04) |
