@@ -1,1 +1,0 @@
-Artículo 16.—De la autorización. La autorización para la ejecución de la venta de bienes y servicios tecnológicos, será realizada por la Comisión Local de Ventas, analizando la solicitud planteada por parte del solicitante.

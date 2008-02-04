@@ -1,1 +1,0 @@
-Transitorio I.—El "Manual para la venta de bienes y servicios del INA" según lo establece el artículo 13 de este Reglamento, será elaborado por una Comisión creada al efecto por la Subgerencia Técnica en un plazo máximo de tres meses contados a partir de su publicación en el Diario Oficial La Gaceta.
