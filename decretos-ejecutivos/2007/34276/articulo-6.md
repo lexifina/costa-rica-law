@@ -1,0 +1,6 @@
+Artículo 6º—DE LA ELECCIÓN DE LAS REPRESENTACIONES INTEGRANTES DEL COMITÉ EJECUTIVO. Para la elección de las representaciones se seguirán las siguientes reglas:
+a) Las representaciones de los Jerarcas Ministeriales, se designarán mediante acuerdo del Poder Ejecutivo.
+b) El Consejo Nacional de Rectores, desarrollará su propio sistema interno de selección del representante de las universidades estatales.
+c) Las Organizaciones Magisteriales, deberán realizar una elección para designar a su representante, para lo cual, el Ministerio de Educación Pública deberá fungir como Tribunal Electoral, sobre la base de reglas claras que permitan la más amplia participación y que garanticen la aplicación de un voto nominal por cada organización. La regulación de este proceso electoral, deberá ser emitida por el respectivo Tribunal.
+d) Los Colegios Profesionales, deberán organizar el proceso eleccionario, para lo cual, deberán realizar la coordinación necesaria, a fin de designar a su representación en los términos del presente decreto.
+e) El representante de la Sociedad Civil, será electo por la Dirección Nacional de Desarrollo de la Comunidad (DINADECO) del Ministerio de Gobernación y Policía, de entre los candidatos que oficialmente se inscriban, según el reglamento que al efecto dictará dicho órgano desconcentrado.

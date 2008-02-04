@@ -1,0 +1,1 @@
+Artículo 2º—FINES DE LA COMISIÓN. Serán fines de la Comisión Costarricense de Cooperación con la UNESCO, las establecidas en la “Carta de las Comisiones Nacionales” aprobada en la vigésima reunión de la Conferencia General de la Organización.
