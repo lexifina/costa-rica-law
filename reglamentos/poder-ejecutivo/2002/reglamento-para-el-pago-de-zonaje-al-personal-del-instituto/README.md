@@ -14,3 +14,4 @@ Reglamento para el Pago de Zonaje al Personal del Instituto Nacional de Aprendiz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-30 | la propia norma |
+| 2 | 2008-02-04 | Reglamento 4325 (2008-02-04) |
