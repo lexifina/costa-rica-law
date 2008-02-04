@@ -1,2 +1,0 @@
-De las liquidaciones
-Artículo 15.—Los adelantos de dinero deben ser liquidados a más tardar dentro de los cuatro días hábiles siguientes a la fecha de la entrega. De no hacerse así se incurrirá en las sanciones correspondientes. Cuando haya atraso en la liquidación, el encargado del fondo deberá comunicarlo, por medio de un memorando, de persistir el atraso, al día siguiente, la Sección de Tesorería informara a la Alcaldía para la aplicación de la sanción correspondiente.
