@@ -1,0 +1,2 @@
+Artículo 2º—El Ministerio de Seguridad Pública deberá cumplir con el trámite estipulado en los artículos 14 y siguientes del decreto Nº 30720 -H que es el “Reglamento para el Registro y Control de Bienes de la Administración Central” a fin de dar de alta en sus inventarios las propiedades que mediante este Decreto se asignan a dicho órgano.
+(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 182 del 22 de setiembre de 2008)
