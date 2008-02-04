@@ -16,3 +16,4 @@ Establece algunas disposiciones en cuanto a las exportaciones, importaciones y p
 | 1 | 2006-12-22 | la propia norma |
 | 2 | 2007-09-14 | Resolución 557 (2007-09-14) |
 | 3 | 2007-11-06 | Resolución 631 (2007-11-06) |
+| 4 | 2008-02-04 | Resolución 26 (2008-02-04) |
