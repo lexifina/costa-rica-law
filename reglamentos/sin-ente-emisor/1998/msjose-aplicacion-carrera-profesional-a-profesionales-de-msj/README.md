@@ -13,3 +13,4 @@ MSJOSE: Aplicación Carrera Profesional a Profesionales de MSJOSE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-04 | la propia norma |
+| 2 | 2008-02-05 | Reglamento municipal 93 (2008-02-05) |
