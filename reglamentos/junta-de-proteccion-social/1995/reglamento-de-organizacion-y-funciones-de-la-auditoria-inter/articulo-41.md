@@ -1,1 +1,0 @@
-Artículo 41.-Se establecerá el Coordinador General del Departamento cuya función desaparecerá cuando el funcionario en propiedad de esa plaza, se acoja a su pensión, todo conforme al ST AP 3407 -94 del 2 de noviembre de 1994, emitido por la Autoridad Presupuestaria.

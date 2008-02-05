@@ -1,6 +1,0 @@
-Artículo 25.-En el cumplimiento de sus obligaciones, el personal de la Auditoría Interna tendrá las siguientes prohibiciones:
-a) No podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa de la Junta de Protección Social de San José; tampoco ser miembros de comisiones de trabajo o similares, que funcionen dentro de la Junta. El Auditor Interno y su personal no podrán ser miembros de Juntas Directivas, comisiones de trabajo o similares.
-b) No podrán ejercer cargos de dirección ni formar parte de comités o similares, en aquellas entidades públicas o privadas que perciban fondos de la Junta de Protección Social de San José y que se encuentren sujetas a la fiscalización de la Auditoría Interna.
-c) Los funcionarios de la Auditoría Interna están impedidos de aceptar beneficios de cualquier naturaleza, de las personas. y/o dependencias sujetas a su fiscalización.
-d) Divulgar de cualquier manera la información obtenida en el ejercicio de sus funciones y deberes. Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la Contraloría General de la República en el ejercicio de su competencia fiscalizadora, ni a la Junta Directiva de la Institución, ni cuando haya solicitud expresa de autoridad competente.
-e) Emitir declaraciones, juicios o expresiones, que por su naturaleza, lesionen la imagen de la Institución.

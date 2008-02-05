@@ -1,3 +1,0 @@
-CAPITULO II
-De la organización
-Artículo 5°-La Unidad de Auditoría Interna estará bajo la responsabilidad de un Auditor y un Subauditor Interno; este último deberá suplir al Auditor Interno en sus ausencias temporales; con las mismas facultades del Auditor. Ambos funcionarios deberán ser contadores públicos autorizados, de conformidad con lo que consigna el artículo N° 8 del Reglamento del Colegio de Contadores Públicos de Costa Rica (Decreto N° 13606-E) Y conocer además, las disposiciones legales que rigen en general a la Administración Pública y específicamente las de la Junta de Protección Social de San José.

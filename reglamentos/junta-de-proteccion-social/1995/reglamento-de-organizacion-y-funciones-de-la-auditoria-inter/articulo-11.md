@@ -1,1 +1,0 @@
-Artículo 11.-El personal profesional de la Unidad de Auditoría Interna tendrá como requisito mínimo ser egresado en la rama de Contaduría Pública, o alguna otra rama afín conforme a los requerimientos de esta Unidad.

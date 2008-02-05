@@ -1,2 +1,0 @@
-Artículo 39.—El Auditor Interno, el Subauditor Interno y los funcionarios que se designen deberán supervisar las labores que realicen los auditores, con el propósito de guiarlos en la ejecución del trabajo asignado. Esta supervisión tendrá como finalidad verificar el cumplimiento de los requisitos de calidad del trabajo, establecido tanto por la Contraloría General de la República como por las Normas de Auditoria Generalmente Aceptadas.
-(Así reformado mediante sesión celebrada el 7 de setiembre de 1995).

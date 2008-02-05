@@ -1,3 +1,0 @@
-Artículo 31.-La comunicación de los resultados se deberá hacer por escrito durante el desarrollo de la auditoría o estudios especiales de auditoría, mediante memorandos u oficio e informe parcial, y al finalizar la labor de campo por medio del informe final, cuando el caso lo amerite.
-La Presidencia Ejecutiva es la responsable de ordenar en primera instancia, la implantación de las recomendaciones emitidas por la Auditoría Interna, para lo cual contará con un plazo de un mes a partir de la fecha de recepción del memorando o informe.
-Cuando se trate de informes sobre asuntos de gran transcendencia institucional, a juicio del Auditor Interno, se deberá remitir copia del documento a la Junta Directiva de la Institución, para su conocimiento.

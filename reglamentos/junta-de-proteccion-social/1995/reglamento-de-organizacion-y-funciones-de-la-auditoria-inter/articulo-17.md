@@ -1,2 +1,0 @@
-Artículo 17.—La Auditoria Financiero-Contable estará dirigida a verificar y analizar la razonabilidad de los estados financieros e informes presupuestarios emitidos por la Institución, para el cual deberá evaluar el control interno y determinar et cumplimiento de las disposiciones legales, reglamentarias, de política institucional y prácticas de aceptación general pertinentes y que pudieren tener efectos importantes sobre los informes financieros.
-(Así reformado mediante sesión celebrada el 7 de setiembre de 1995).

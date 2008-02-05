@@ -1,1 +1,0 @@
-Artículo 12.-La Auditoría Interna deberá contar con los recursos humanos, materiales, equipo, asesoría técnica y medios de transporte, así como el espacio físico necesario para el adecuado ejercicio de sus funciones. Además, tendrá la facultad para organizarse según lo requieran los deberes y el cumplimiento de sus atribuciones y funciones.

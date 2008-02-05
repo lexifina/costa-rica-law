@@ -1,1 +1,0 @@
-Artículo 6°-El Auditor Interno y el Subauditor serán nombrados por tiempo indefinido por la Junta Directiva de la Institución y serán inamovibles. El Auditor Interno dependerá y responderá directamente por su gestión ante esa autoridad.

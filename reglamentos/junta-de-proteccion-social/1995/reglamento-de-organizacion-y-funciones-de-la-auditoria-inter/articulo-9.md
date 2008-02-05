@@ -1,1 +1,0 @@
-Artículo 9°-Ningún nombramiento para desempeñar cargos en la Junta de Protección Social de San José, podrá recaer en parientes o cónyuges del Auditor o Subauditor, ni de los demás miembros de esta Auditoría, hasta el tercer grado de parentesco por consanguinidad o afinidad. La violación de este impedimento causará la nulidad absoluta del nombramiento.

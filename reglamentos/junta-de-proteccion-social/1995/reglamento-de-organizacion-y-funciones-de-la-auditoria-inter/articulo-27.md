@@ -1,4 +1,0 @@
-Artículo 27.-El personal de la Auditoría Interna deberá cumplir con las siguientes normas personales:
-a) Mantener una actitud mental independiente en la ejecución de los estudios de auditorías y en la presentación de los informes correspondientes.
-b) El personal de la Auditoría Interna deberá actuar de conformidad con las normas de ética profesional emitidos por el Colegio de Contadores Públicos de Costa Rica, las disposiciones que sobre el particular dicte la Contraloría General de la República y las contenidas en el Reglamento Autónomo de la Junta de Protección Social de San José.
-c) Estar anuente a capacitarse técnica y profesionalmente, de acuerdo con el Plan Anual de Capacitación que elaborará la Auditoría Interna de la Institución, sin que esto influya en la objetividad de sus funciones.

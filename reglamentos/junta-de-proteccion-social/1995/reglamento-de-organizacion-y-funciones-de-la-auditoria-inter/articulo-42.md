@@ -1,1 +1,0 @@
-Artículo 42.-La Administración en conjunto con el Auditor Interno, podrán proponer las modificaciones que consideren oportunas al presente Reglamento para una sana marcha de la Junta de Protección Social de San José.

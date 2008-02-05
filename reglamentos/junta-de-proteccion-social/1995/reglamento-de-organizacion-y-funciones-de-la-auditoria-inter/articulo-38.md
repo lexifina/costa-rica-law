@@ -1,1 +1,0 @@
-Artículo 38.-La Auditoría Interna verificará semestralmente, el efectivo cumplimiento de las recomendaciones emitidas y procederá a informar a la Junta Directiva y Presidencia Ejecutiva sobre las que no hayan sido aplicadas o se encuentren en proceso de cumplimiento, e instará al cumplimiento de las mismas y la aplicación de las sanciones pertinentes cuando corresponda.

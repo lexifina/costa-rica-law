@@ -1,1 +1,0 @@
-Artículo 14.-El Auditor Interno deberá proponer la creación de plazas y servicios que considere indispensable para el cumplimiento del plan anual de Auditoría y en general para el buen funcionamiento de su unidad.
