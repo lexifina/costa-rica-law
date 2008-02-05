@@ -1,0 +1,1 @@
+Artículo 15.—Denuncia oral. No obstante de lo indicado en el artículo anterior, las partes podrán formular sus denuncias en forma oral, mediante comparecencia al Despacho, sin embargo de conformidad con lo establecido en el artículo 112 de la Ley Orgánica del Ambiente deberán ratificar lo argumentado durante los siguientes ocho días naturales.

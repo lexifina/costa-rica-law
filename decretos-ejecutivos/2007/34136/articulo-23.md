@@ -1,0 +1,1 @@
+Artículo 23.—Inspección ocular “in situ”. Cuando el Tribunal lo estime oportuno, podrá realizar las inspecciones oculares o periciales que considere necesarias. Además tendrá la potestad de determinar si procede o no citar a las partes a dicha diligencia.

@@ -1,0 +1,1 @@
+Artículo 25.—Defensas previas y excepciones. Una vez presentada una defensa previa o alguna excepción el Tribunal Ambiental Administrativo deberá resolver previamente, mediante resolución fundada las incidencias interpuestas.

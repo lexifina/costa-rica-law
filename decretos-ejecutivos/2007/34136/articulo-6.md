@@ -1,0 +1,1 @@
+Artículo 6º—Sustitución de un juez por impedimento excusas o recusación. Cuando un miembro del Tribunal deba separarse del conocimiento del asunto, con motivo de una recusación, impedimento o excusa, se procederá según lo establecido en los artículos 230 y siguientes de la Ley General de la Administración Pública.

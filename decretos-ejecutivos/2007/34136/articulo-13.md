@@ -1,0 +1,1 @@
+Artículo 13.—Corrección de errores materiales. El Tribunal Ambiental Administrativo podrá corregir con fundamento en el artículo 157 de la Ley General de Administración Pública, en cualquier tiempo, los errores puramente materiales que contuvieren sus resoluciones, mediante auto que dictará de oficio o a solicitud de parte y que será declarado firme.

@@ -1,0 +1,1 @@
+Artículo 18.—Actuación del Tribunal. El Tribunal podrá actuar en días y horas inhábiles cuando la dilación pueda causar perjuicio grave a los interesados o al medio ambiente, entorpecer el procedimiento o hacer ilusorio el efecto de la resolución administrativa.

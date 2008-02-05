@@ -1,0 +1,1 @@
+Artículo 28.—Notificaciones. Las resoluciones del Tribunal Ambiental Administrativo se notificarán en los términos indicados en los artículos 239 siguientes y concordantes de la Ley General de Administración Pública y supletoriamente de conformidad con la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales.

@@ -1,0 +1,1 @@
+Artículo 22.—Solicitud de informes. Con la finalidad de determinar la verdad real de los hechos, el Tribunal Ambiental Administrativo se encuentra facultado para ordenar a los distintos órganos de la Administración Pública la remisión de informes técnicos o administrativos que requiera, en los plazos señalados por el artículo 262 de la Ley General de Administración Pública.
