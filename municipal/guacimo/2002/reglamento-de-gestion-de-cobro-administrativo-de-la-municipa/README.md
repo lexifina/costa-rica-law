@@ -14,3 +14,4 @@ Reglamento de Gestión de Cobro Administrativo de la Municipalidad de Guácimo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-12 | la propia norma |
+| 2 | 2008-02-05 | Reglamento municipal 6 (2008-02-05) |
