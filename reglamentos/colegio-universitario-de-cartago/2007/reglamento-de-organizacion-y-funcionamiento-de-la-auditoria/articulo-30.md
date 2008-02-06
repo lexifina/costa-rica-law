@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Relación de la Auditoría Interna y las Direcciones de la Institución
+Artículo 30.—Las Direcciones de Educación Comunitaria y Asistencia Técnica, Dirección Académica y la Administrativa Financiera, así como su personal, están en la obligación de colaborar con la Auditoría Interna, cuando esta se lo solicite en el cumplimiento de sus labores. Para estos efectos están obligados a suministrar la información o documentos que se les solicite de conformidad con el artículo 14 del presente reglamento, con motivo de una auditoría o de una verificación en relación con el uso de los recursos asignados por parte del CUC.

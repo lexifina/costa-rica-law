@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Disposiciones finales
+Artículo 72.—Las disposiciones de este Reglamento son de acatamiento obligatorio por todo el personal del CUC. La negativa injustificada a atender oportunamente las solicitudes de información o de otro tipo planteadas por la Auditoría Interna se considerará como falta grave, para los efectos laborales y sin perjuicio de las responsabilidades de cualquier otra naturaleza. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por el Consejo Directivo, teniendo el criterio del Auditor interno, previo a la toma de la decisión final.

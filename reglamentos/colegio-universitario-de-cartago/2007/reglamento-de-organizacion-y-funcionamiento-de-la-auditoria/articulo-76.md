@@ -1,0 +1,1 @@
+Artículo 76.—Todas las disposiciones inmersas en este Reglamento son de aplicación para todas las dependencias que conforman la organización del CUC, en lo que corresponda según sea el caso. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por el Consejo Directivo, de común acuerdo con el Auditor Interno.

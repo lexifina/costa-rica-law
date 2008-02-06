@@ -1,0 +1,1 @@
+Artículo 20.—Acorde con las regulaciones jurídicas y técnicas pertinentes, el Auditor Interno deberá administrar los recursos humanos, materiales, tecnológicos y de otra naturaleza, por lo que le corresponde garantizar la utilización de dichos recursos en forma económica, eficiente, eficaz, legal y transparente para la consecución de las metas y objetivos de la Auditoría Interna.

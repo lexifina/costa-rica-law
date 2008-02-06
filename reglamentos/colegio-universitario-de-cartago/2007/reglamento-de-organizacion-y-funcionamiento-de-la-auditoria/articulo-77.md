@@ -1,0 +1,1 @@
+Artículo 77.—Las modificaciones a este Reglamento solo pueden hacerse por el Auditor Interno y aprobarse por el Consejo Directivo y la Contraloría General de la República, cada cual según sus competencias.

@@ -1,0 +1,1 @@
+Artículo 71.—Se promoverán acciones y/o coordinaciones estratégicas de capacitación entre la Auditoría Interna, con Instituciones como la Contraloría General de la República, el Colegio de Contadores Públicos de Costa Rica y profesionales en el campo de la auditoría a nivel nacional e internacional así como con universidades públicas y privadas.

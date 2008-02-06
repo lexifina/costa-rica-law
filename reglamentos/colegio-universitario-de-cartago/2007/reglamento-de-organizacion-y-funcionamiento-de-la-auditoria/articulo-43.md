@@ -1,0 +1,1 @@
+Artículo 43.—Todos los papeles de trabajo serán revisados por el Auditor que realiza la investigación, evaluación y estudio, para asegurar que soportan adecuadamente las comunicaciones del trabajo y que todos los procedimientos de auditoría necesarios han sido aplicados.

@@ -1,0 +1,1 @@
+Artículo 51.—En caso de que no se llegue a un acuerdo entre el funcionario responsable de la implantación de las recomendaciones y la Auditoría Interna, el asunto lo resolverá la Consejo Directivo y si fuera con ésta, sobre asuntos de absoluta relevancia que afecten la sana marcha de la Institución, se deberá recurrir a la Contraloría para que resuelva.

@@ -1,0 +1,1 @@
+Artículo 68.—Se deben establecer y mantener programas de capacitación y entrenamiento continuo para el personal de la Auditoría Interna, en las áreas acordes con las necesidades de la misma, relacionada con el área de trabajo de la Auditoría.

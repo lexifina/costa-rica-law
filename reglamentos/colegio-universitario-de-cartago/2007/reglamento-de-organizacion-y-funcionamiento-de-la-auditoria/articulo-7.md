@@ -1,0 +1,1 @@
+Artículo 7º—La Auditoría Interna depende orgánicamente del Consejo Directivo, pero su trabajo se desarrollará con total independencia funcional y de criterio respecto de ella y de los demás órganos de la Administración.

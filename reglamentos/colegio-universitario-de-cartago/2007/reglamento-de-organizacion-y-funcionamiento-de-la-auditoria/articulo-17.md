@@ -1,0 +1,1 @@
+Artículo 17.—El Auditor Interno es el jefe de personal de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de personal, tales como: nombramientos, remociones, sanciones, promociones, concesión de licencias y otros, todo de acuerdo con el marco jurídico que en la materia rige para el CUC.

@@ -1,0 +1,1 @@
+Artículo 33.—Si la independencia u objetividad del Auditor se viese comprometida de hecho o en apariencia, los detalles del impedimento deberán darse a conocer a las partes correspondientes. Asimismo, el Auditor no podrá evaluar operaciones específicas de las cuales haya sido previamente responsable en el año inmediato anterior.

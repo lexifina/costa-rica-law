@@ -1,0 +1,1 @@
+Artículo 75.—Queda bajo obligación y responsabilidad de los diferentes niveles jerárquicos del CUC, en coordinación con la Administración Activa, informar al personal a su cargo sobre este Reglamento; por lo tanto ningún funcionario puede alegar desconocimiento.

@@ -1,0 +1,1 @@
+Artículo 56.—La Auditoría Interna deberá contar con los recursos humanos, tecnológicos, transporte, asesoría técnica y capacitación para el desarrollo profesional de sus funcionarios e instalaciones físicas necesarias para el adecuado cumplimiento de sus objetivos, artículo 27 de la LGCI.

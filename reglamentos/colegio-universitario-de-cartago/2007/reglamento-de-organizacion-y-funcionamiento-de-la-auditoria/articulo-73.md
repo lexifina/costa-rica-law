@@ -1,0 +1,1 @@
+Artículo 73.—En concordancia con las directrices emitidas por la Contraloría, el Auditor Interno en conjunto con su personal, debe de crear, desarrollar, mantener y actualizar un Código de Ética, de manera tal que él mismo y los demás funcionarios de esta unidad guíen su conducta a partir de principios éticos aplicables a esta Auditoría Interna.

@@ -1,0 +1,2 @@
+Artículo 9º—El Consejo Directivo del CUC nombrará por tiempo indefinido al Auditor Interno. Tal nombramiento se realizará de conformidad con el Artículo 31 de la LGCI y los Lineamientos para la descripción de funciones y requisitos de los cargos de auditor y subauditor internos (L-1-2003-CO-DDI), emitidos por la Contraloría.
+La suspensión o conclusión de la relación de servicio, por justa causa, del auditor deberá ser conforme el Artículo 15 de la Ley Orgánica de la Contraloría.

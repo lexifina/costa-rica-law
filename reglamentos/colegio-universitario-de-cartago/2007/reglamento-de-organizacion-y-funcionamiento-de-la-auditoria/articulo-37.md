@@ -1,0 +1,1 @@
+Artículo 37.—Cuando existan casos bajo examen que indiquen irregularidades o conducta indebida, o exista, la sospecha de la existencia de tales casos, la Auditoría está facultada para realizar entrevistas escritas o por medio de otro mecanismo de forma que se pueda obtener otras evidencias según las circunstancias para efectos de preparar la relación de hechos.

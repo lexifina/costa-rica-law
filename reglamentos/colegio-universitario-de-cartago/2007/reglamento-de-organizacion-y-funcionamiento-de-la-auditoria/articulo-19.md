@@ -1,0 +1,1 @@
+Artículo 19.—El Consejo Directivo del CUC de conformidad con el Artículo 27 de la LGCI, deberá asignar a la Auditoría Interna, los recursos humanos, materiales, tecnológicos, de transporte y otros, necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión.

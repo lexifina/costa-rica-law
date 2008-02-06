@@ -1,0 +1,3 @@
+CAPÍTULO V
+Ejecución de la Auditoría
+Artículo 31.—Todas las intervenciones, exámenes o pruebas que realice la Auditoría se harán al amparo de Ley General de Control Interno, el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público, las Normas Internacionales de Auditoría, los Manuales Específicos emitidos o que a futuro emita el ente Contralor y las Normas para el Ejercicio Profesional de la Auditoría Interna y demás normativas emitidas o que a futuro emita el Instituto de Auditores Internos de Costa Rica, el Colegio de Contadores Públicos de Costa Rica y el Auditor Interno.

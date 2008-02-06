@@ -1,0 +1,2 @@
+Artículo 8º—La Unidad de Auditoría Interna estará bajo la responsabilidad del Auditor Interno, quien deberá tener los conocimientos, habilidades y experiencia profesional, necesarios para administrar efectivamente los distintos procesos técnicos y administrativos.
+La Auditoría Interna tendrá competencia para actuar en todas las unidades administrativas del Colegio Universitario de Cartago, y en las entidades privadas que reciban transferencias de fondos públicos que en el futuro se llegaren a constituir, como asociaciones o federaciones estudiantiles.

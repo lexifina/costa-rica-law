@@ -1,0 +1,1 @@
+Artículo 45.—En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en el Manual .de Normas para el Ejercicio de la Auditoría Interna en el Sector Público.

@@ -1,0 +1,1 @@
+Artículo 18.—El personal de la Auditoría Interna, al ejercer funciones de fiscalización, mantendrá un rango superior a los demás funcionarios del CUC, por lo que su nomenclatura debe ser diferente al resto del personal administrativo.

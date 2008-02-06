@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios de la Auditoría Interna en el desarrollo de sus competencias, deben estar libres de impedimentos para proceder con objetividad e imparcialidad. Tienen la responsabilidad de estar alerta sobre cualquier circunstancia, situación o hecho, personales o externos, que puedan menoscabar o poner en duda su independencia.
