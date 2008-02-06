@@ -1,0 +1,3 @@
+SECCIÓN E
+De las denuncias
+Artículo 52.—Ámbito de competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen de posibles hechos irregulares o ilegales, relacionados con el uso y manejo de fondos públicos, así como aspectos de índole técnica y administrativa que afecten el accionar del PANI (los recursos, valores, bienes, derechos propiedad, campo técnico y administrativo) por parte de los funcionarios del Patronato Nacional de la Infancia o sujetos pasivos a los que se les transfiera recursos para su administración y hagan mal uso de éstos y/o contravengan lo regulado en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

@@ -1,0 +1,10 @@
+PATRONATO NACIONAL DE LA INFANCIA
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL PATRONATO
+NACIONAL DE LA INFANCIA
+Presentación
+El presente Reglamento constituye un instrumento jurídico que promueve la actividad de auditoría interna con arreglo a la ética, principios y disposiciones de orden legal, reglamentario y técnico y, su materialización en un efectivo valor agregado al buen gobierno del Patronato Nacional de la Infancia. De esta manera su accionar se orientará y se percibirá como una actividad que coadyuva al éxito de la gestión institucional, en aras de la legalidad, transparencia y efectividad en el manejo de los fondos públicos involucrados.
+Regula el marco fundamental respecto de la organización y funcionamiento de la Auditoría Interna, para cuya finalidad consta de tres capítulos. El primero de ellos contiene disposiciones generales relativas a su objetivo, ámbito de aplicación y la normativa que regula la emisión y modificaciones al Reglamento como tal. El segundo capítulo trata sobre la organización de la Auditoría Interna, el concepto de auditoría interna, de su independencia y objetividad, ubicación y estructura organizativa, de su personal, ámbito de acción, así como de sus relaciones y coordinaciones. En el tercer capítulo trata sobre el funcionamiento de la Auditoría Interna, refiriéndose a sus competencias, deberes y potestades, a sus servicios de auditoría, informes de auditoría sobre materia de control interno, de las relaciones de hechos, de las denuncias, del seguimiento de recomendaciones y disposiciones finales.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto. El presente Reglamento tiene como finalidad regular, en sus aspectos fundamentales, la organización y funcionamiento de la Auditoría Interna del Patronato Nacional de la Infancia, según lo dispone el artículo 23 de la Ley General de Control Interno, de manera que su accionar se oriente y se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

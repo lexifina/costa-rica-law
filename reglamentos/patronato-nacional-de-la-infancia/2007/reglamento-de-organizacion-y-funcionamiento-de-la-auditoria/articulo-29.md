@@ -1,0 +1,1 @@
+Artículo 29.—Deberes por ley. El Auditor y subauditor Interno y el personal de la Auditoría Interna, para el desempeño de sus competencias, tendrán los deberes que se establecen en el artículo 32 de la Ley General de Control Interno.

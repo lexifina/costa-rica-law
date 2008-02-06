@@ -1,0 +1,1 @@
+Artículo 39.—Petición de un directivo a la Auditoría Interna. Toda petición de trabajo que un Director requiera de la Auditoría Interna, se hará mediante un acuerdo de la Junta Directiva a fin de mantener apoyada por el jerarca, la gestión solicitada.
