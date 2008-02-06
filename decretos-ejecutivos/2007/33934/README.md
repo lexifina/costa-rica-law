@@ -14,3 +14,4 @@ Declara obligatoria la vacunación contra la fiebre amarilla antes de su ingreso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-29 | la propia norma |
+| 2 | 2008-02-06 | Decreto Ejecutivo 34396 (2008-02-06) |
