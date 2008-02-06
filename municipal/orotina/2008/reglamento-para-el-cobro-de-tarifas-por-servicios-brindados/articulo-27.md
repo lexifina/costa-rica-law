@@ -1,0 +1,3 @@
+Artículo 27.—De la vigencia: Rige a partir de su publicación en el Diario Oficial.
+El Concejo Municipal de Orotina, en Sesión Ordinaria Nº 82, celebrada el día 03 de abril del presente año, acuerda aprobar en forma Unánime en Firme el proyecto de Reglamento para el cobro de tarifas por servicios brindados u obras ejecutadas por la omisión de los propietarios de bienes inmuebles en sus terrenos o en las vías públicas terrestres colindantes a los mismos, dentro de la jurisdicción de Orotina, para los efectos correspondientes a lo indicado en el artículo 43 del Código Municipal. Por tanto se abre el período correspondiente para consulta pública, luego del cual se publicará la resolución definitiva por parte del citado Concejo.
+Orotina, 22 de noviembre del 200
