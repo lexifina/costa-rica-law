@@ -1,0 +1,1 @@
+Artículo 2º—Salvo que la Ley establezca lo contrario, los vehículos propiedad, en uso, administración o al servicio del CEFOF, se considerarán de naturaleza administrativa; y en adelante a lo que este Reglamento se refiere, se denominará “los vehículos al servicio de CEFOF”.

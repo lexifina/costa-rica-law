@@ -1,0 +1,1 @@
+Artículo 7º—Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Unidad de Servicios Generales, podrá agrupar en un mismo viaje varias solicitudes de diferentes funcionarios por un mismo lugar ó ruta previo aviso oportuno a los interesados.

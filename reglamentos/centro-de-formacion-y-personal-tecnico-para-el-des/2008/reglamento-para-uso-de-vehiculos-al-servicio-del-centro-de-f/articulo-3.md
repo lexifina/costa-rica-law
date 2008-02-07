@@ -1,0 +1,2 @@
+Artículo 3º—Para los efectos del presente Reglamento, los vehículos serán para el uso de servicios de transportes de todos los funcionarios del CEFOF. La Unidad de Servicios Generales es la que ejercerá el control de los mismos.
+La asignación de los vehículos, es únicamente para facilitar el desarrollo de las actividades del CEFOF; por ningún motivo será considerada como salario en especie, mejora salarial o beneficio, ni dar lugar a derechos laborales adquiridos en favor del funcionario.

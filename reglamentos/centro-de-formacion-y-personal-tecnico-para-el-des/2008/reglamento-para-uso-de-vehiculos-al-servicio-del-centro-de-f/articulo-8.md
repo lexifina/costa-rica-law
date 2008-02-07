@@ -1,0 +1,1 @@
+Artículo 8º—En casos especiales, previa autorización de la Dirección Ejecutiva y cuando no existan otras posibilidades o resulte más ventajoso, se pueden utilizar servicios particulares de transporte de pasajeros, siempre y cuando se sigan los procedimientos de contratación respectivos.

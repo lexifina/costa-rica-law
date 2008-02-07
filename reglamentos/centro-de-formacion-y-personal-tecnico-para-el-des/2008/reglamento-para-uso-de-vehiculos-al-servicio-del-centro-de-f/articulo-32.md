@@ -1,0 +1,1 @@
+Artículo 32.—Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo con lo establecido en el Reglamento Autónomo de Organización y Servicios (RAOS) del CEFOF y en forma supletoria, por lo que establece la Ley de Transito por Vías Públicas y Terrestres y el Código de Trabajo.

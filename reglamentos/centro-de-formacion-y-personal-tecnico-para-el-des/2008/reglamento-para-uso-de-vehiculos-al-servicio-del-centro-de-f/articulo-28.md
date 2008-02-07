@@ -1,0 +1,2 @@
+Artículo 28.—Es obligación de la unidad de servicios generales del área Administrativa, recoger la información de todo accidente de tránsito en que participe un vehículo a su cargo, del cual rendirá un informe a la Dirección Ejecutiva con copia a los directores de las áreas administrativo - financiero o de gestión tecnológica (académica) según corresponda.
+El Asesor(a) Legal del CEFOF deberá dar seguimiento al proceso judicial que en virtud del accidente sea tramitado en los Tribunales de la República.

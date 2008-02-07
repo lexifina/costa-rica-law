@@ -1,0 +1,1 @@
+Artículo 10.—Al solicitar el transporte, se debe de presentar; debidamente llena, la “boleta de solicitud de transporte” que se preparará en original y una copia (Modelo adjunto N° 1). El original queda en la administración y la copia la conserva el solicitante como respaldo de su gestión.

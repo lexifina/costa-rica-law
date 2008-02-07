@@ -1,0 +1,1 @@
+Artículo 16.—Es requisito indispensable, para que los vehículos que administra o están al servicio del CEFOF entren en circulación, deben estar debidamente rotulados en sus dos puertas delanteras con el logotipo del CEFOF y la leyenda “Uso Oficial”.

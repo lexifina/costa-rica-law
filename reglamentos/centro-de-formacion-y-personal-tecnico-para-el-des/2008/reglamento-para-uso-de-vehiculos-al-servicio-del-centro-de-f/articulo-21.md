@@ -1,0 +1,1 @@
+Artículo 21.—Es responsabilidad exclusiva de cada chofer y funcionario autorizado, el cumplimiento de lo establecido en este capítulo; de ahí que si acata órdenes que contravengan dichas acciones, asumirá las consecuencias que se originen.

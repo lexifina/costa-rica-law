@@ -1,0 +1,1 @@
+Artículo 31.—La Dirección Administrativa - Financiera definirá las normas y procedimientos de control interno que estime necesarias, tendientes a lograr un adecuado uso de los vehículos al servicio del CEFOF.
