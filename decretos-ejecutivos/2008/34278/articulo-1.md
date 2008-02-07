@@ -1,0 +1,13 @@
+Nº 34278
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+En uso de las atribuciones que les confieren los incisos 3), y 18), de los artículos 140 y 146 de la Constitución Política, la Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978 y la Ley de Promoción del Desarrollo Científico y Tecnológico Ley Nº 7169 del 26 de junio de 1990.
+Considerando:
+1º—Que es función del Estado proporcionar a los ciudadanos, los instrumentos requeridos para el desarrollo del país y contar con información en ciencia, tecnología e innovación, para la toma de decisiones, con el fin de lograr la integración exitosa de todos los sectores en la nueva economía basada en el conocimiento, que garantice la continuidad de planes y políticas, al crear un ambiente propicio para la innovación tecnológica y su incorporación en los procesos productivos del país.
+2º—Que conforme al artículo 15 de la Ley Nº 7169, el Ministerio de Ciencia y Tecnología es el responsable del establecimiento de los mecanismos organizativos para la concertación entre los sectores involucrados y el establecimiento de su ámbito de competencia y estructura organizativa.
+3º—Que el Ministerio de Ciencia y Tecnología apoya directamente la labor del (la) Ministro (a) de Ciencia y Tecnología quien funge como Rector (a) en materia de desarrollo científico y tecnológico, por lo cual es necesario que cuente con todos los mecanismos de apoyo e instrumentos necesarios para llevar a cabo su función.
+4º—Que es necesaria la creación de una estructura organizativa que permita la coordinación entre los diferentes sectores del país relacionados con la producción de Indicadores de Ciencia, Tecnología e Innovación, con el fin de establecer políticas que guíen al sector científico y tecnológico en las áreas estratégicas del país. Por tanto,
+Decretan:
+CREACIÓN DEL SUBSISTEMA NACIONAL DE INDICADORES
+DE CIENCIA, TECNOLOGÍA E INNOVACIÓN
+Artículo 1º—Creación y objetivos del Subsistema Nacional de Indicadores de Ciencia, Tecnología e innovación. Créase el Subsistema Nacional de Indicadores de Ciencia, Tecnología e Innovación, el cual estará integrado por todas aquellas instituciones públicas y privadas relacionadas con la promoción, gestión y desarrollo de indicadores de Ciencia, Tecnología e innovación, cuyo objetivo general es elaborar los indicadores y en especial, el indicador de la Inversión Nacional en Investigación y Desarrollo (I+D). Este subsistema forma parte del Sistema Nacional de Ciencia y Tecnología.

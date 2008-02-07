@@ -1,0 +1,1 @@
+Artículo 7º—Gestión del Subsistema Nacional de Indicadores de Ciencia, Tecnología e Innovación. La Dirección de Planificación del Ministerio de Ciencia y Tecnología, es la encargada de la gestión del Subsistema Nacional de indicadores de Ciencia, Tecnología e Innovación.

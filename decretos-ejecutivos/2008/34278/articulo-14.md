@@ -1,0 +1,1 @@
+Artículo 14.—Supletoriedad legal. En lo no previsto en este decreto se aplicará lo dispuesto por los artículos 49 siguientes y concordantes de la Ley General de la Administración Pública en materia de órganos colegiados.

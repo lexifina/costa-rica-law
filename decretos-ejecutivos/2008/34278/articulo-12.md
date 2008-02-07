@@ -1,0 +1,1 @@
+Artículo 12.—Transferencia de recursos económicos y Convenios. Se autoriza a las instituciones del Estado, para destinar parte de sus recursos en la medida de sus posibilidades jurídicas y materiales, a fin de lograr los objetivos de los comités y sus órganos.

@@ -1,0 +1,1 @@
+Artículo 5º—Otros miembros. Según el tema a desarrollar el Ministro (a) podrá invitar y convocar instituciones afines con el tema, que puedan aportar su experiencia y conocimientos, con el fin de dar cumplimento a sus fines y funciones.

@@ -1,0 +1,1 @@
+Artículo 13.—Sesiones. La Comisión se reunirá ordinariamente dos veces por año y el Comité Técnico se reunirá ordinariamente una vez al mes y ambas extraordinariamente cuando el (la) Rector (a) de Ciencia y Tecnología o su representante lo consideren necesario.
