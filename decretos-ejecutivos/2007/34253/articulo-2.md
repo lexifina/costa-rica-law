@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, a la Asociación Costarricense de pacientes con Enfermedad de Wilson para la contribución en la investigación y lucha contra dicha enfermedad.
