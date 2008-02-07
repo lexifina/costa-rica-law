@@ -1,0 +1,1 @@
+Artículo 18.—La persona interesada debe presentar el formulario de liquidación ante quien autorizó la solicitud de horas extras, para su visto bueno dentro de los primeros cinco días hábiles del mes siguiente de haber laborado las horas extras

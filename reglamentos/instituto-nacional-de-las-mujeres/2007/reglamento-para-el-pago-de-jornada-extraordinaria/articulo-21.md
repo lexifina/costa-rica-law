@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que un formulario de liquidación deba ser devuelto a la persona interesada o a la persona que autoriza, se dispondrá de tres días hábiles para subsanar y devolverlo a quien corresponda.

@@ -1,0 +1,1 @@
+Artículo 19.—Quien autoriza las horas extras debe aprobar y en un plazo máximo de tres días hábiles, remitirlas al Área de Recursos Humanos. Para la Coordinadora o Coordinador Administrativo se le concede un plazo de diez días hábiles después de recibida la documentación.
