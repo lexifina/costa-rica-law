@@ -1,0 +1,1 @@
+Artículo 42.—Autorizaciones y modificaciones presupuestarias. Al Auditor Interno le corresponderá autorizar los documentos de ejecución presupuestaria y las modificaciones presupuestarias que afecten los rubros de la unidad de Auditoría Interna.
