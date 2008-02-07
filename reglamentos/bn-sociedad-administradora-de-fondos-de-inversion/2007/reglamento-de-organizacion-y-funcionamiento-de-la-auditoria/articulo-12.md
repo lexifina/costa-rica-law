@@ -1,0 +1,3 @@
+Artículo 12.—El auditor interno deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
+La estructura organizativa de la Auditoría Interna estará encabezada por el auditor interno, y será integrada por las jefaturas, asistentes y personal administrativo que se consideren necesarios y según la disponibilidad de recursos.
+El auditor interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.
