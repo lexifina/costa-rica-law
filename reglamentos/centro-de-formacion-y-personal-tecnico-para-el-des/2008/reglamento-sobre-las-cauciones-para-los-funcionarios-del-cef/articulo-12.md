@@ -1,0 +1,3 @@
+Artículo 12.—Ejecución de la garantía: Cuando se comprueben hechos que deben ser reparados conforme a la finalidad de la garantía y una vez firme la resolución dictada por la instancia competente, donde corresponda el resarcimiento de daños y perjuicios. El director(a) Ejecutivo (a) deberá ordenar la ejecución de la garantía que el caucionante haya rendido.
+Lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan.
+En el caso de que la garantía no pueda hacerse efectiva por culpa o negligencia de los encargados de tramitar y controlar las cauciones, éstos serán civil y administrativamente responsables del daño económico causado a la Hacienda Pública, según se determine.

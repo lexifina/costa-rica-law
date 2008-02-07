@@ -1,0 +1,1 @@
+Artículo 6º—Obligación de presentar caución en más de un puesto: El caucionante que por disposición de ley, decreto ejecutivo u otra disposición desempeñe dos o más puestos en la Administración, cuyas funciones sean calificadas como de recaudación, administración o custodia de fondos públicos, deberá presentar caución para cada uno de esos puestos.
