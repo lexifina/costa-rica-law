@@ -14,18 +14,8 @@ la Niñez y la Adolescencia (Código de la Niñez y la Adolescencia, artículo
 adolescentes en situación de riesgo social.
 d) Cien millones de colones ((100.000.000,00), para el destino
 señalado en el inciso h) del artículo 15 de la presente ley.
-e) Doscientos millones de colones (¢200.000.000,00) de lo recaudado por esta
-Ley se destinarán, ineludiblemente, al Ministerio de Educación Pública y se utilizarán
-en la siguiente forma: ochenta millones de colones (¢80.000.000,00) para el Instituto
-Nacional para el Desarrollo de la Inteligencia (Ley Nº 8166); veinte millones de colones
-(¢20.000.000,00) para la Asociación Industrias de Buena Voluntad de Costa Rica
-y cien millones de colones (¢100.000.000,00) en el cumplimiento de los objetivos
-de la Ley para el financiamiento y desarrollo de equipos de apoyo para la formación
-de estudiantes con discapacidad matriculados en III y IV Ciclos de la educación
-regular y de los servicios de III y IV Ciclos de educación especial.
-(Así reformado por el artículo 16 de la Ley N° 8283 de 28 de mayo del 2002, Ley para
-el financiamiento y desarrollo de equipos de apoyo para la formación de estudiantes
-con discapacidad)
+e) Doscientos millones de colones (¢200.000.000,00) de lo recaudado por esta Ley se destinarán, ineludiblemente, al Ministerio de Educación Pública y se utilizarán en la siguiente forma: setenta millones de colones (¢70.000.000,00) para la Asociación Olimpiadas Especiales de Costa Rica, cédula de persona jurídica número tres -cero cero dos- uno cero uno tres cero tres (Nº 3-002-101303); treinta millones de colones (¢30.000.000,00) para la Asociación Deportiva Comité Paralímpico Integral, cédula de persona jurídica número tres-cero cero dos - tres siete cuatro cinco cuatro seis (Nº 3-002-374546) y cien millones de colones (¢100.000.000,00) para cumplir los objetivos de la Ley para el financiamiento y desarrollo de equipos de apoyo para la formación de estudiantes con discapacidad matriculados en III y IV ciclos de la educación regular y de los servicios de III y IV ciclos de educación especial, Nº 8283, de 28 de mayo de 2002.
+(Así reformado el inciso anterior por el artículo único de la Ley N° 8628 del 11 de diciembre de 2007)
 f) Cien millones de colones (100.000.000,00) a los patronatos
 escolares de las escuelas de atención prioritaria o urbano marginales,
 para la adquisición de material didáctico, alimentación, mejoramiento y
