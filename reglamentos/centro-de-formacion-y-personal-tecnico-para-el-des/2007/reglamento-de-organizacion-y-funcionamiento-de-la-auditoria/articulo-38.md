@@ -1,0 +1,1 @@
+Artículo 38.—Confidencialidad. La identidad del denunciante, la información y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en los artículos 6 y 8 de la Ley General de Control Interno y Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, respectivamente.

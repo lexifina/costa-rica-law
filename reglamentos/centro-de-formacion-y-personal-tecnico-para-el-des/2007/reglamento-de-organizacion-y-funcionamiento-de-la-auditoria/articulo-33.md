@@ -1,0 +1,1 @@
+Artículo 33.—Comunicación oral. Los hallazgos y observaciones obtenidos como resultado de la auditoría o del estudio especial de auditoría, pueden ser comentados con los funcionarios responsables antes de comunicarlos en forma definitiva por escrito, con el fin de obtener de ello los puntos de vista, sus opiniones y propiciar acciones correctivas inmediatas.

@@ -1,0 +1,5 @@
+Artículo 18.—Confidencialidad de la información. La información que el Auditor Interno o cualquiera de sus subalternos obtenga en el ejercicio de sus funciones será estrictamente confidencial. Esta confidencialidad no se aplicará ante:
+a) Solicitudes o requerimientos de la Contraloría General de la República en el ejercicio de su competencia fiscalizadora.
+b) Solicitudes de requerimientos del Consejo Directivo, ni cuando haya solicitud expresa de autoridad competente.
+c) Solicitudes o requerimientos de información de la Asamblea Legislativa en el ejercicio de sus atribuciones que dispone el inciso 23 del artículo 121 de la Constitución Política, de conformidad con lo dispuesto en el artículo 6 y el inciso h) del artículo 32 de la Ley General de Control Interno.
+d) Se entiende que la información que se suministre conforme lo requerido en los incisos anteriores, del inciso a) al inciso c), no incluye aquella información cuya confidencialidad debe guardarse en los términos del artículo 6 de la Ley General de Control Interno y del artículo 8 de la Ley contra la corrupción y el enriquecimiento ilícito en la función pública.

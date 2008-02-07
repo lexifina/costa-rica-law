@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del funcionamiento de la Auditoría Interna
+Artículo 22.—De la dirección y administración. La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que se establece el presente Reglamento, en el Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, en el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público y en el Manual de Normas Generales de Auditoría para el Sector Público, manuales que fueron emitidos por la Contraloría General de la República, y cualesquiera otras disposiciones que dicte el órgano contralor.
