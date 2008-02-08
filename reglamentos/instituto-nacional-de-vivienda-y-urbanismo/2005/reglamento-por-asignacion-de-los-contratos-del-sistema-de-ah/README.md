@@ -14,3 +14,4 @@ Reglamento por Asignación de los Contratos del Sistema de Ahorro y Préstamo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-06 | la propia norma |
+| 2 | 2008-02-08 | Reglamento 5659 (2008-02-08) |
