@@ -1,0 +1,1 @@
+Artículo 8º—Actualización de la situación socioeconómica del becado. El beneficiario de algún tipo de beca, está obligado a informar al Consejo de Becas, acerca de cualquier cambio en su situación socioeconómica,

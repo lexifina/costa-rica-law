@@ -1,0 +1,2 @@
+CAPÍTULO V
+Artículo 24.—El formulario de solicitud y consignación de datos tiene el carácter de declaración jurada. En caso de falsedad en los datos por parte del postulante o encargado, corresponde la inhabilitación para cualquier tipo de beneficio otorgado. Idéntico tratamiento le corresponderá al beneficiario que esté usufructuando o dándole un uso indebido a la beca, anulándose de manera inmediata el beneficio otorgado.

@@ -1,0 +1,1 @@
+Artículo 10.—Comprobación de datos. El Consejo de Becas deberá hacer un estudio minucioso de la información ofrecida por el estudiante y podrá comprobar, en cualquier momento, la veracidad de los datos ofrecidos tanto ante la solicitud de beca, como en la revisión de la aprobada, para lo cual puede recurrir, entre otros, a visitas al hogar o al centro de estudios.

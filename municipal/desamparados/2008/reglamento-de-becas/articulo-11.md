@@ -1,0 +1,1 @@
+Artículo 11.—Tramitación de solicitudes. Para obtener una beca, el estudiante deberá presentar, dentro de los plazos señalados, la respectiva solicitud debidamente llena, con los documentos y datos que se soliciten, además de cumplir con los requisitos estipulados.

@@ -1,0 +1,1 @@
+Artículo 18.—La presentación incompleta del formulario de becas o de alguno de los requisitos aquí solicitados, dejará sin efecto la solicitud y dará lugar a la anulación de la misma, anulación que no permitirá recurso alguno.

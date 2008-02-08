@@ -1,0 +1,1 @@
+Artículo 2º—Definición del programa de becas. El programa de becas a estudiantes del cantón de Desamparados es el instrumento mediante el cual el Concejo Municipal de Desamparados pretende favorecer la formación académica a nivel de secundaria de estudiantes con un rendimiento mínimo aceptable.
