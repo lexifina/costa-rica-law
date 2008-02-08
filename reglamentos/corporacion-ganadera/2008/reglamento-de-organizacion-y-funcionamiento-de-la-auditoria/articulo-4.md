@@ -1,0 +1,1 @@
+Artículo 4º—Misión, visión y políticas. El Auditor Interno estará obligado a establecer y mantener actualizadas la misión, la visión y las principales políticas de la Auditoría Interna, así como darles la debida difusión a nivel interno y externo de la Corporación.

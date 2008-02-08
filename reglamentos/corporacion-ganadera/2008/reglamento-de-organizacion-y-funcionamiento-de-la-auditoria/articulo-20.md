@@ -1,0 +1,1 @@
+Artículo 20.—Protección al Auditor Interno. Cuando el Auditor Interno, en el cumplimiento de sus funciones, se involucre en un conflicto legal o sea objeto de una demanda de índole penal, la Corporación brindará el apoyo jurídico y técnico necesario; todo de conformidad con el artículo 26 de la Ley General de Control Interno.

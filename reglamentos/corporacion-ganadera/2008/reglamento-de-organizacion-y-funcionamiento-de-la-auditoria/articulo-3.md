@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las competencias de la Auditoría Interna
+Artículo 3º—La Auditoría Interna. La Auditoría Interna es una actividad independiente, objetiva y asesora que, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, proporciona seguridad a la Corporación al validar y mejorar sus operaciones, contribuye a que se alcancen los objetivos institucionales y. proporciona a la ciudadanía una garantía razonable de que la actuación de la Corporación y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
