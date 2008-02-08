@@ -1,0 +1,1 @@
+Artículo 7º—El Minae continuará utilizando las instalaciones que ocupa actualmente en la Isla de San Lucas, tales como las oficinas, dormitorios de los guarda parques y cualquier otra edificación que ocupan actualmente en sus funciones. Podrán ser trasladados siempre y cuando les sean proporcionadas otras instalaciones en iguales o mejores condiciones que las actuales.

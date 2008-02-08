@@ -1,0 +1,1 @@
+Artículo 6º—De los recursos que corresponden a la Municipalidad de Puntarenas conforme al artículo 5 de la Ley número 5469, el veinticinco por ciento será destinado por la Municipalidad de Puntarenas para el mantenimiento de las instalaciones y servicios prestados por el Minae en el Refugio de Vida Silvestre de la Isla de San Lucas.
