@@ -1,0 +1,3 @@
+2º—Incluir en la referida publicación, el párrafo que de seguido se transcribirá:
+“Las carreteras de Acceso Restringido estarán conformadas por los tramos anteriormente descritos, así como por las intersecciones que las componen. Dichas intersecciones podrán ser a nivel o a desnivel, por lo que debe considerarse como de acceso restringido las rampas, lazos o cualquier tipo de infraestructura vial que influya directamente en el funcionamiento de la vía. Lo anterior sin perjuicio de que dichas obras se encuentren fuera del derecho de vía de la carretera de acceso restringida”
+Notifíquese y publíquese.
