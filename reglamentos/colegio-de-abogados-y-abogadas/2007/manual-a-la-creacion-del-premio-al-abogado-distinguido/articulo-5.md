@@ -1,0 +1,1 @@
+Artículo 5º—Para tomar la decisión de recomendar el Premio, será necesaria aprobación unánime de cuatro miembros, cual será comunicada a la Directiva, para que en su última sesión ordinaria del mes de abril proceda a su aprobación o rechazo. El Jurado podrá declarar desierto el Premio, si no existiere persona idónea para su otorgamiento.

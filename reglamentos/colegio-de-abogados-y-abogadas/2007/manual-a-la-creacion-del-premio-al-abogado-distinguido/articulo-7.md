@@ -1,0 +1,1 @@
+Artículo 7º—Para el otorgamiento de este Premio, en ausencia de normas y en lo que no contradigan las aquí señaladas, se aplicarán las reglas contenidas en el Manual del Premio Alberto Brenes Córdoba, especialmente lo relativo a deberes y prohibiciones del Jurado y sus familiares.
