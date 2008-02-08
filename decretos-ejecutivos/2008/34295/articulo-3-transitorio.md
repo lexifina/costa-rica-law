@@ -1,0 +1,1 @@
+Transitorio III: Las clasificaciones realizadas al amparo de la Resolución Administrativa R-SINAC-013-2006, del cinco de abril del año dos mil seis deberán replantearse de conformidad con lo estipulado en el presente decreto ejecutivo. Para ello, SINAC tendrá un plazo de seis meses a partir de la publicación del presente decreto para realizar dichas correcciones.
