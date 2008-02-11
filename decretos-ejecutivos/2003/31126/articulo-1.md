@@ -16,8 +16,8 @@ b) Ronald Vargas Brenes, Director Ejecutivo del Sistema Nacional de Áreas de Co
 c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 d) Fanny Levin Vargas, representante de la Ministra de Salud.
 (Así reformado el inciso d) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
-e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
-(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
+e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
+(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004 y posteriormente se volvió a reformar el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
 f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
 g) Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
