@@ -1,1 +1,0 @@
-Artículo 14.-EI objetivo de la Sección de Auditoría Financiera será verificar la razonabilidad, de los estados financieros y presupuestarios emitidos por la Municipalidad, para lo cual deberá evaluar el control interno y determinar el cumplimiento de las disposiciones legales correspondientes, que pudiesen tener efectos importantes sobre estos estados e informes.

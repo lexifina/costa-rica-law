@@ -1,2 +1,0 @@
-Artículo 3°-La labor de la Auditoría Interna es la actividad de evaluar en forma oportuna, independiente y posterior, dentro de la organización, las operaciones contables, financieras, administrativas y de otra naturaleza, como base para prestar un servicio constructivo y de protección a la Administración.
-Es un control que funciona midiendo y valorizando la eficacia y la eficiencia de todos los otros controles establecidos por la Administración.

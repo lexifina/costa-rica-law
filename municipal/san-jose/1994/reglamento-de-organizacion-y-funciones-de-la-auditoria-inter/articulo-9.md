@@ -1,1 +1,0 @@
-Artículo 9°-El Auditor Interno y sus subalternos no podrán ser empleados para ejercer funciones de ninguna otra Unidad Administrativa de la Municipalidad de San José y tampoco ser Miembros de Juntas Directivas o Comisiones de Trabajo, con el objeto de preservar al máximo su independencia de criterio para fiscalizar objetivamente.

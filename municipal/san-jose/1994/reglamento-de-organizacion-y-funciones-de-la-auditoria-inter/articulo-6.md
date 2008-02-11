@@ -1,1 +1,0 @@
-Artículo 6°-El nombramiento del Auditor se hará de conformidad a lo establecido en el Código Municipal y lo hará el Concejo Municipal, de quien dependerá y ante quien responderá directamente por su gestión. Sólo podrá ser removido del cargo, en forma anticipada, por justa causa.

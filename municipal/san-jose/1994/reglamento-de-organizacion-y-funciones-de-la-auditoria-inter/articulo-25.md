@@ -1,1 +1,0 @@
-Artículo 25.-Será estrictamente confidencial la información que el Auditor Interno o cualesquiera de sus subalternos obtengan en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la Contraloría en el ejercicio de su competencia fiscalizadora, al Concejo Municipal ni cuando haya solicitud expresa de autoridad competente.

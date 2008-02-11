@@ -1,1 +1,0 @@
-Artículo 12.-EI Auditor Interno actuará como Jefe de Personal de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de su personal, tales como nombramientos, remociones, sanciones, promociones y concesiones de licencias, todo de acuerdo con el marco jurídico que en materia, rige para la Municipalidad de San José.
