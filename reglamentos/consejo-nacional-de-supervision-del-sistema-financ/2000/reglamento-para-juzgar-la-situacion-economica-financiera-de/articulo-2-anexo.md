@@ -5,7 +5,7 @@ INDICADOR | NUMERADOR | DENOMINADOR
 Compromiso patrimonial | Pérdidas esperadas en activos 4/ menos estimaciones para activos: C(129.00) + C(139.00) + C(149.00) + C(159.00) + C(169.00) + C(252.00). | Capital base calculado con base en el Acuerdo SUGEF 3-06
 Cartera con atraso mayor a 90 días / Cartera directa 3/ | Del XML Clase de Datos Operaciones Crediticias, bloque para información de operaciones crediticias: se deben sumar los campos <SaldoPrincipal>, cuando el campo <CuentaContablePrincipal> corresponde a las cuentas: C(131.XX.M.XX), C(132.XX.M.XX), C(133.XX.M.XX), C(134.XX.M.XX), y el campo <Tipo_Estado_Operación> sea 3, 4 o 5) | C(131) + C(132) + C(133) + C(134)
 Pérdida esperada en cartera de créditos / Cartera total de créditos | Pérdidas esperadas en cartera 5/ | Cartera total de créditos según ANEXO 1 DEL ACUERDO SUGEF 1-05
-Activo productivo de intermediación / Pasivo con costo [18] | C(120.00) - C(124.00) - C (126.00) + |C(129)| + C(130) + |C(139)| + C(161.00) + C(162) + C(163) - numerador del indicador Cartera con atraso mayor a 90 días / Cartera directa. | A LA VISTA CON COSTO FINANCIERO: C(211.01.M02) + C(211.01.M11) + C(211.03) + C(211.06) + C(211.99) - D (20037) + C(221) + C(231.01.M.02) + C(231.02.M.02) + C(231.03) + C(231.04) + C(231.05) + C(231.06) + C(231.07) + C(231.09) + C(231.10) + C(231.11) + C(231.15) + C(231.99) + A PLAZO: C(213) + C(215.01) - D (20019) + C(218.01) + C(222) + C(232) - D (20022) + C(233) + 234.03 - D ( 20017 ) + 234.02 - D (20018) + 241.01 + 241.10 - D (20020) + 241.02 + 241.11 - D (20021)
+(*) Activo productivo de intermediación / Pasivo con costo (*) (Así reformado mediante sesión N° 701 del 11 de febrero de 2008) | (*) C(120.00) - C(124.00) - C(126.00) - C(128.00) + |C(129)| + C(130) - C(138.00) + |C(139)| + C(161.00) + C(162) + C(163) - numerador del indicador Cartera con atraso mayor a 90 días / Cartera directa. (*) (Así reformado mediante sesión N° 701 del 11 de febrero de 2008) | A LA VISTA CON COSTO FINANCIERO: C(211.01.M02) + C(211.01.M11) + C(211.03) + C(211.06) + C(211.99) - D (20037) + C(221) + C(231.01.M.02) + C(231.02.M.02) + C(231.03) + C(231.04) + C(231.05) + C(231.06) + C(231.07) + C(231.09) + C(231.10) + C(231.11) + C(231.15) + C(231.99) + A PLAZO: C(213) + C(215.01) - D (20019) + C(218.01) + C(222) + C(232) - D (20022) + C(233) + 234.03 - D ( 20017 ) + 234.02 - D (20018) + 241.01 + 241.10 - D (20020) + 241.02 + 241.11 - D (20021)
 Gastos de administración / Utilidad operacional bruta [19] | Saldo acumulado para los últimos doce meses de la cuenta: C(440.00) | Saldo acumulado para los últimos doce meses de las siguientes cuentas: C(510.00) + C(530.00) – C(410.00) – C(430.00)
 Rentabilidad sobre el patrimonio promedio | Saldo acumulado para los últimos doce meses de las cuentas: [C(500.00) – C(400.00)] | [Promedio de los últimos doce meses de las siguientes cuentas: C(310.00) + C(320.00) + C(330.00) + C(340.00) + C(350.00)] Más: C(500.00) – C(400.00)
 Rentabilidad sobre el activo productivo de intermediación promedio | Saldo acumulado para los últimos doce meses de las cuentas: [C(500.00) – C(400.00)] | Promedio de los últimos 12 meses del Activo Productivo de intermediación
@@ -76,13 +76,14 @@ Saldo cuenta 212
 Más los siguientes valores que se toman del calce de plazos:
 C 12120 N 1 - C 12121 N 1 + C 12120 N 2 +
 C 12220 N 1 - C 12221 N 1 + C 12220 N 2
-Calce a 3 meses:
+(*) Calce a 3 meses:
 Numerador:
 Del calce de plazos: (Ver capítulo 7 del manual de información del sistema financiero)
 C 12110 N 1 + C 12110 N 2 + C 12110 N 3 + C 12110 N 4 +
 C 12210 N 1 + C 12210 N 2 + C 12210 N 3 + C 12210 N 4
 Más
-Las inversiones no comprometidas de acuerdo con la definición del inciso a) del punto 1 del presente procedimiento, con vencimiento contractual posterior a 1 mes
+Las inversiones no comprometidas de acuerdo con la definición del inciso a) del punto 1 del presente procedimiento, con vencimiento contractual posterior a 3 meses
+(*) (Así reformado mediante sesión N° 701 del 11 de febrero de 2008)
 Denominador:
 Del vaciado de cuentas:
 (Saldo cuenta 21101 * fluctuación máxima esperada a tres meses) +
