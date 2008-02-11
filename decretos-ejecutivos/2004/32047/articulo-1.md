@@ -11,7 +11,8 @@ Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos d) y e) y punto 
 1. Miembros propietarios:
 d) Fanny Levin Picado, representante de la Ministra de Salud.
 (Así reformado el inciso anterior por el artículo 3 del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
-e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
+e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
 2. Miembros suplentes:
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
