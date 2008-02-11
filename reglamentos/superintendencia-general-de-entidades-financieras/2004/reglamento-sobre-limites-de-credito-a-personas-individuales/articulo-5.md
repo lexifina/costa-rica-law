@@ -3,6 +3,9 @@ Para los efectos de este Reglamento, dos personas mantienen una relación financ
 a) el 40% o más del monto de las ventas o de las compras de productos y servicios de una persona se origina en transacciones con la otra persona, monto que se determina sobre una base anual conformada por los últimos cuatro trimestres calendario;
 b) una persona jurídica otorga una garantía o un crédito a otra persona por el 10% o más del patrimonio de quien lo otorgó, excepto las garantías y créditos otorgadas por las entidades indicadas en el inciso a), del artículo 3º de este Reglamento o
 (Así reformado el literal anterior en sesión N° 598 del 24 de agosto de 2006)
-c) la SUGEF, con base en una evaluación de los hechos y circunstancias de las relaciones económicas y financieras en particular, determina la existencia de una relación financiera significativa entre dos o más deudores que presentan un riesgo correlacionado.
+c) cuando se da una relación de deudor con su codeudor o codeudores, o
+(Así adicionado el literal anterior en sesión N° 701 del 11 de febrero de 2008).
+d) la SUGEF, con base en una evaluación de los hechos y circunstancias de las relaciones económicas y financieras en particular, determina la existencia de una relación financiera significativa entre dos o más deudores que presentan un riesgo correlacionado.
+(Así cambiada la identificación del literal anterior en sesión N° 701 del 11 de febrero de 2008, que lo traspaso del antiguio literal c) al literal d) actual).
 Mediante resolución razonada, la SUGEF deberá comunicar a la entidad los motivos por los cuales ha considerado que existe una relación financiera significativa entre determinadas personas, de conformidad con el inciso c) anterior. En dicha resolución, deberá otorgar un plazo máximo de cinco días hábiles para que la entidad ofrezca los argumentos y aporte la prueba que estime pertinente en oposición a lo indicado por la SUGEF.
 Contra la resolución final que emita el Superintendente podrán interponerse los recursos ordinarios de revocatoria y apelación, según lo dispuesto en la Ley General de la Administración Pública.
