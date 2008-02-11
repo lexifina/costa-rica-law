@@ -14,3 +14,4 @@ Reglamento para la Gestión y Administración del Crédito del Instituto de Fome
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-20 | la propia norma |
+| 2 | 2008-02-11 | Reglamento 3732 (2008-02-11) |
