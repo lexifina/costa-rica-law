@@ -1,0 +1,1 @@
+Artículo 20.—Para la evaluación del Proyecto Final, el profesor asesor deberá aplicar el instrumento denominada “Guía de presentación de proyectos de graduación”, elaborado por el Departamento de Educación Técnica.

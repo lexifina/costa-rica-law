@@ -1,0 +1,1 @@
+Artículo 17.—Todo Proyecto, para su formulación debe seguir la guía de presentación de proyectos denominada “Guía de presentación de proyectos de graduación”, elaborado por el Departamento de Educación Técnica.

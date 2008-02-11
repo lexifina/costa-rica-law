@@ -1,0 +1,1 @@
+Artículo 46.—Si por incapacidad laboral, debidamente comprobada, el estudiante se ve obligado a interrumpir la Práctica Profesional o Proyecto Final podrá continuarla una vez que sus condiciones se lo permitan, hasta completar el número de horas establecidas. En tal caso, deben respetarse las posibilidades de la Institución Educativa en cuanto al tiempo lectivo.

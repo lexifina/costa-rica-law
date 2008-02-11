@@ -1,0 +1,1 @@
+Artículo 49.—Una vez que el estudiante haya aprobado cualquiera de los Requisitos de Graduación, conservará esta condición hasta que complete la totalidad de los requisitos establecidos para optar por el título de Técnico en el Nivel Medio.

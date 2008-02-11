@@ -1,0 +1,1 @@
+Artículo 52.—Durante el cumplimiento de los requisitos de graduación, tanto en la Prueba Escrita Comprensiva estandarizada y la Práctica Profesional o Proyecto Final, el estudiante mantendrá su condición de estudiante regular de la institución, por lo que el no cumplimiento de los deberes, las normas y los reglamentos, dará por improbados ambos requisitos.

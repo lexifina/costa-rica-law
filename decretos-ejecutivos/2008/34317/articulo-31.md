@@ -1,0 +1,1 @@
+Artículo 31.—Los resultados de las Pruebas Escritas Comprensivas, deberán entregarse a los interesados a más tardar 30 días naturales después de su aplicación a los estudiantes, de acuerdo con los mecanismos establecidos por la Dirección de Gestión y Evaluación de la Calidad.

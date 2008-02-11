@@ -1,0 +1,1 @@
+Artículo 23.—Dependiendo de los requerimientos de recursos del proyecto, tanto financieros como de infraestructura y equipamiento, el Proyecto puede realizarse en forma individual o por dos estudiantes en conjunto como máximo.

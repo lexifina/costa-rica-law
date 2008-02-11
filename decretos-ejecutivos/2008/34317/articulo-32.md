@@ -1,0 +1,1 @@
+Artículo 32.—El estudiante disconforme con la calificación de la Prueba Escrita Comprensiva, podrá presentar recurso de apelación, por escrito, ante la Dirección de Gestión y Evaluación de la Calidad, de acuerdo con las fechas y los procedimientos administrativos establecidos por la mencionada División.

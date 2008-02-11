@@ -1,0 +1,1 @@
+Artículo 48.—Si el estudiante, una vez concluido el curso lectivo de duodécimo año, fuere aplazado en más de tres ya sea, asignaturas del área académica o subáreas del área tecnológica, tendrá la condición de reprobado, debiendo repetir el respectivo año escolar en concordancia con el Artículo 35 del Reglamento de Evaluación de los Aprendizajes.

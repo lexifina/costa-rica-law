@@ -1,0 +1,1 @@
+Artículo 36.—El Coordinador de cada Departamento Especializado, para efectos de requisitos de graduación, fungirá como Secretario y le corresponderá levantar las actas de los acuerdos que se tomen en el Departamento.

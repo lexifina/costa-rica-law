@@ -1,0 +1,1 @@
+Artículo 27.—Los estudiantes de las instituciones que ofrecen especialidades técnicas, realizarán la Prueba Escrita Comprensiva, en la primera semana de octubre, la cual estará publicada en el Calendario Escolar.

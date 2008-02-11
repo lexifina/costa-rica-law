@@ -1,0 +1,1 @@
+Artículo 41.—En el duodécimo año de la Educación Diversificada, de la Rama Técnica, el curso lectivo finalizará en la tercera semana de agosto, el cual estará dividido en dos periodos. El primero termina el viernes de la tercera semana del mes de mayo y el segundo, en la tercera semana del mes de agosto.

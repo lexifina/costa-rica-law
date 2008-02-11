@@ -1,0 +1,1 @@
+Artículo 11.—Una vez concluida la Práctica Profesional, y en el transcurso de los tres días hábiles siguientes, el estudiante tendrá derecho a revisar el resultado final de la misma, en una sesión que el profesor encargado de dar el seguimiento programe, quien debe dar las explicaciones del caso en forma verbal y por escrito.

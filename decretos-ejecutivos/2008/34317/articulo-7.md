@@ -1,0 +1,1 @@
+Artículo 7º—Para la evaluación de la Práctica Profesional, se aplicará el instrumento denominado Tarjeta de evaluación de la práctica en la empresa, confeccionada por el Departamento de Educación Técnica del Ministerio de Educación Pública.
