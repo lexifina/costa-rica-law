@@ -1,0 +1,1 @@
+Artículo 18.—Estructura organizativa. La Auditoría Interna del IDA, para el desempeño de sus funciones, se divide en dos áreas, el Área Financiera/Contable/Tributaria y el Área Técnico/Operativa, las mismas deberán contar con personal especializado y reunir las condiciones de idoneidad profesional requerida para ejercer sus funciones.

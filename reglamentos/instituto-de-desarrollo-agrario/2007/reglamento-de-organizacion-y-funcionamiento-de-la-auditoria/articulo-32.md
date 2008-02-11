@@ -1,0 +1,1 @@
+Artículo 32.—Comportamiento de los funcionarios de la Auditoría Interna. Los funcionarios de la Auditoría Interna desempeñaran sus funciones de modo que su labor sea medio de mejoramiento y funcionamiento general del IDA. Por ello actuarán con buen trato verbal, tacto y cortesía en el desempeño de sus funciones, sin que por ello se deje de manejar la objetividad del trabajo.

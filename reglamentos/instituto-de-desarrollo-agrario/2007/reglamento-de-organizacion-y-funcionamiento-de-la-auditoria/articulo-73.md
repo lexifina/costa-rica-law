@@ -1,0 +1,3 @@
+SECCIÓN OCTAVA
+De la planificación y programa del trabajo de Auditoría
+Artículo 73.—Planificación del trabajo de Auditoría. La Auditoría Interna formulará la planificación estratégica y anual de sus procesos, conforme a los lineamientos aplicables al IDA y para ello debe basarse en las normas contenidas en el manual de normas para el ejercicio de la auditoría interna en el sector público, en la valoración de riesgo institucional hasta donde sea posible, con énfasis en temas sensibles y del sistema de control interno, incluidos los referentes a la prevención de la corrupción y del enriquecimiento ilícito.

@@ -1,0 +1,4 @@
+SECCIÓN QUINTA
+Del personal de la Auditoría Interna
+Artículo 28.—Administración del personal. El Auditor Interno actuará como jefe de personal de la Auditoría Interna, en esa condición ejercerá las funciones que son propias en la administración de personal, tales como: evaluaciones, remociones, sanciones, promociones, permutas, traslados, concesión de licencias y demás movimientos de personal. Los nombramientos se realizarán conforme con la selección efectuada por el Auditor Interno, y otros movimientos de personal con su anuencia, de conformidad con el artículo 22, inciso i) de la Ley Nº 6735. El Auditor podrá modificar la estructura administrativa de la Auditoría Interna en la forma y cuando lo considere conveniente para el mejor cumplimiento de sus deberes.
+De conformidad con lo dispuesto en el artículo 24 de la Ley General de Control Interno, para el nombramiento y remoción del personal a su cargo, se requerirá de la autorización del Auditor Interno.

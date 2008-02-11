@@ -1,0 +1,1 @@
+Artículo 3º—Modificaciones al reglamento. A efectos de mantener el marco normativo de la Auditoría Interna actualizado, le corresponde al Auditor Interno proponer y promover al jerarca, las modificaciones al mismo. Toda modificación debe contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.

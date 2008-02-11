@@ -1,0 +1,1 @@
+Artículo 6º—Obligación de contar con Auditoría Interna. De acuerdo con la Ley Nº 6735, el Instituto contará con una sola Auditoría Interna, la que ejercerá vigilancia y fiscalización constantes de todas las dependencias del Instituto, así como las demás funciones y atribuciones que le corresponden, de conformidad con la ley y sus reglamentos.

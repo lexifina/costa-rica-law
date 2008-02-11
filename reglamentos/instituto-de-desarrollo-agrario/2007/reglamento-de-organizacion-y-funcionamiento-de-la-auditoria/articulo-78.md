@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 78.—Obligatoriedad de disposiciones. Las disposiciones de este reglamento son de acatamiento obligatorio por todo el personal del IDA. La negativa injustificada para atender oportunamente las solicitudes de información o de otro tipo, planteadas por la Auditoría Interna se considerará como falta grave, para los efectos laborales y sin perjuicio de las responsabilidades de cualquier otra naturaleza. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por la Junta Directiva, teniendo el criterio del Auditor Interno, previo a la toma de la decisión final.
+Ningún funcionario puede alegar desconocimiento del presente reglamento, por lo anterior, es obligación y responsabilidad del jerarca, de la Auditoría Interna y de los respectivos titulares subordinados informar de su existencia al personal a su cargo.

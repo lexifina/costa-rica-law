@@ -1,0 +1,1 @@
+Artículo 20.—Área Operativa. El propósito del Área Técnico, Operativa es advertir, asesorar y evaluar las actividades técnicas y operativas desarrolladas por la Administración Activa, con la finalidad de determinar si éstas cuentan con los procedimientos y controles adecuados que coadyuven al logro de los objetivos organizacionales.

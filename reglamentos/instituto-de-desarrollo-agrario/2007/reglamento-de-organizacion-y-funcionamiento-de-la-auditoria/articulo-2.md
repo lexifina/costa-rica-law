@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Su contenido es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y del resto de los funcionarios de la Administración Activa en la materia que les concierne.
