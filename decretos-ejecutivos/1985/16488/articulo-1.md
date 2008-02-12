@@ -6,5 +6,5 @@ Considerando:
 1º—Que los cambios de los índices de Mortalidad Infantil, han demostrado que una de las causas principales de la mortalidad perinatal son las enfermedades congénitas, tanto por trastornos cromosónicos como anomalías del metabolismo.
 2º—Que para tener un índice de cuáles son sus principales causas y poderlas prevenir, se necesita hacer un estudio de esas enfermedades. Por tanto,
 DECRETAN:
-Artículo 1º—Crease el Centro y Registro de Enfermedades Congénitas, cuya sede será la Unidad de Genética del Instituto Costarricense de Investigación y
-Enseñanza en Nutrición y Salud.
+Artículo 1º—Crease el Centro de Registro de Enfermedades Congénitas en lo sucesivo (CREC), cuya sede será el Centro Nacional de Referencia de Enfermedades Congénitas del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34398 del 12 de febrero de 2008)

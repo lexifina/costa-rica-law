@@ -14,3 +14,4 @@ Crea el Centro y Registro de Enfermedades Congénitas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-09-05 | la propia norma |
+| 2 | 2008-02-12 | Decreto Ejecutivo 34398 (2008-02-12) |
