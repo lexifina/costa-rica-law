@@ -1,0 +1,1 @@
+Artículo 30.—Todo dueño de una propiedad con frente a vía pública definida como zona de estacionamiento regulado podrá solicitar a la Sección de Estacionómetros un espacio numerado y gratuito, regulado por una tarjeta de propietario, la cual será entregada previo estudio que compruebe la pertenencia del inmueble así como estar al día con el pago de sus impuestos municipales.

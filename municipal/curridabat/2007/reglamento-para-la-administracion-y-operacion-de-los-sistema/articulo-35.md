@@ -1,0 +1,2 @@
+Artículo 35.—Corresponde al jefe del departamento, atender la queja y resolverla dentro del plazo improrrogable de tres días hábiles luego de recibida la misma y deberá informar al quejoso al lugar donde éste haya dispuesto para notificaciones, del resultado de su petición. Para la resolución de la queja, el jefe de departamento, podrá citar a la parte quejosa y al inspector que confeccionará el parte objeto de reclamo, a fin de resolver lo que
+corresponda. En ningún caso se suspenderá el respectivo procedimiento.

@@ -1,0 +1,1 @@
+Artículo 25.—Estacionamiento de motocicletas: las motocicletas que se estacionen en el espacio dedicado al estacionamiento autorizado para vehículos, deberán pagar las tasas respectivas y quedan sujetas a las sanciones que prevé este reglamento en su artículo 16.

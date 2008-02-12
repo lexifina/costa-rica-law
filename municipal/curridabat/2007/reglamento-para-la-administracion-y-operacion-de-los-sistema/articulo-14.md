@@ -1,0 +1,1 @@
+Artículo 14.—Los usuarios podrán ocupar los lugares de estacionamiento por el tiempo que hayan pagado y que marque la boleta, y podrán antes que expire el tiempo marcado, prorrogar éste mediante el cambio de nuevas boletas, cuyo fin del periodo coincida con el inicio del tiempo que indique la otra boleta.

@@ -1,0 +1,1 @@
+Artículo 10.—El precio del estacionamiento por hora podrá ser variado mediante acuerdo del Concejo Municipal y refrendado por la Contraloría General de la República conforme lo estipulado en la Ley Nº 6850 del 16 de febrero de 1982. Estas tarifas no podrán en ningún caso ser menores a un 75% del valor que cobren los estacionamientos privados por servicios similares.

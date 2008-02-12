@@ -1,0 +1,2 @@
+Artículo 23.—Para el mejor cumplimiento de la Ley Nº 3580 “de Instalación de Estacionómetros”, la Municipalidad y la Dirección de Tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración.
+Los inspectores estarán investidos de toda autoridad para las actuaciones oficiales a ese respecto de acuerdo con lo establecido en la Ley Nº 3580 del 3 de noviembre de 1965 y la Ley Nº 7331 del 22 de abril de 1993.

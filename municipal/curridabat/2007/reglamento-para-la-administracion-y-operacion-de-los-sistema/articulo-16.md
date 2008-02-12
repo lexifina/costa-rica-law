@@ -1,0 +1,1 @@
+Artículo 16.—Las tarjetas se venderán en las cajas recaudadoras de la Municipalidad de Curridabat y en los establecimientos mercantiles autorizados por esta Municipalidad, o bien por otros medios que la municipalidad establezca. Los interesados que adquieran las tarjetas de uso mensual, tendrán un 20% de descuento sobre el precio.

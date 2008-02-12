@@ -1,0 +1,1 @@
+Artículo 31.—La Sección de Estacionómetros podrá previo estudio que justifique su creación, asignar espacios sin costo o con costo reducido para casos solicitados por la Alcaldía o por el Concejo Municipal. En estos casos la Sección de Estacionómetros emitirá una tarjeta de propietario.

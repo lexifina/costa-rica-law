@@ -1,0 +1,1 @@
+Artículo 29.—Tarjetas de propietario: estas podrán otorgarse por períodos que van desde un mes a un año, conforme con el interés de los solicitantes o la conveniencia municipal. La Sección de Estacionómetros podrá a su criterio prorrogar el plazo de adjudicación o renunciarlo si lo considera conveniente.

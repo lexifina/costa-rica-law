@@ -1,0 +1,3 @@
+Artículo 11.—La fijación del aparcamiento se hará por medio de tarjetas de estacionamiento emitidas por la municipalidad en distintos colores según se trate de tarjetas de validez para estacionar durante media hora, una hora, espacio mensual o propietario, selladas por la Tesorería Municipal.
+Cada tarjeta se usará con pago adelantado y por el valor total del tiempo vendido o adjudicado.
+Quien utilice una tarjeta sin sellos municipales, o la emplee en forma indebida o contraviniendo lo establecido anteriormente se hará acreedor de la sanción que se establece en el artículo 14 del presente reglamento. La tarjeta que no porte los sellos municipales será nula y se procederá a realizar el parte correspondiente.

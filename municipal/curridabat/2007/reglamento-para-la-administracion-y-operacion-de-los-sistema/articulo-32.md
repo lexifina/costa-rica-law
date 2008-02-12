@@ -1,0 +1,1 @@
+Artículo 32.—El uso de la tarjeta de propietario, será exclusivamente para el espacio adjudicado, el cual estará debidamente numerado en concordancia con la tarjeta adquirida, la cual deberá de colocarse en un ligar visible en la parte inferior interna del parabrisas delantero, del lado del conductor y con los datos expuestos hacia el exterior del vehículo.

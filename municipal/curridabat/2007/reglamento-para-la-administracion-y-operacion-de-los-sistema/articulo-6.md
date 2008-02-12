@@ -1,0 +1,1 @@
+Artículo 6º—El horario para el funcionamiento y uso de los estacionamientos autorizados, es de lunes a viernes entre las 07:00 y las 17:00 horas y los sábados entre las 08:00 y las 17:00 horas. Los domingos, feriados y días de fiesta nacionales, no se exigirá el uso de tarjeta.
