@@ -17,3 +17,4 @@ Políticas para el Funcionamiento del Dominio superior CR
 | 2 | 2003-12-15 | Acuerdo 0 (2003-12-15) |
 | 3 | 2004-12-13 | Acuerdo 0 (2004-12-13) |
 | 4 | 2005-09-13 | Acuerdo 0 (2005-09-13) |
+| 5 | 2008-02-12 | Acuerdo 0 (2008-02-12) |
