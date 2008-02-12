@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del actuar municipal en la atención y prevención de desastres
+Artículo 13.—La Municipalidad, a través de la Comisión Local de Emergencias, se encargará del desarrollo y ejecución de actos administrativos dirigidos a desarrollar una correcta gestión del riesgo y atención de emergencias, constituyéndose en una instancia gestora, técnica y fiscalizadora del proceso de gestión del riesgo municipal de acuerdo al marco de competencia definido. La Comisión Local de Emergencias, dependerá, según la Ley Nacional de Emergencias, en forma directa, del Alcalde Municipal, pudiendo ser delegada en la persona que él estime conveniente. Dicha Comisión verificará y dictaminará, con fundamento en criterios técnicos, la ocurrencia de una emergencia o la presencia de un riesgo.

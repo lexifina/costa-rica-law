@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad reconoce la existencia de declaratorias de emergencias tanto nacionales como locales. A nivel nacional, las declaratorias deben cumplir con los extremos contemplados en la Ley Nacional de Emergencias Nº 7914 del 28 de setiembre de 1999 y sus reformas y la Ley Nacional de Emergencias y Prevención del Riesgo Nº 8488.

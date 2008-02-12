@@ -1,0 +1,1 @@
+Artículo 10.—Las dependencias municipales que participan en la creación de planes de desarrollo o regulación urbana deben consideran las orientaciones y directrices señaladas en el Plan Nacional para la Prevención del Riesgo y Atención de Emergencias.

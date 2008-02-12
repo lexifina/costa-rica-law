@@ -1,0 +1,1 @@
+Artículo 17.—Los dictámenes técnicos emitidos por esa dependencia, serán suficientes para que la misma gestione, ante las demás dependencias municipales, la adopción de medidas tendientes a mitigar los riesgos y las amenazas de emergencia.
