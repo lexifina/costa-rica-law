@@ -13,3 +13,4 @@ Sobre el perfil de los cargos de Asistente Judicial, Juez Tramitador y Juez Coor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-23 | la propia norma |
+| 2 | 2008-02-12 | Circular 24 (2008-02-12) |
