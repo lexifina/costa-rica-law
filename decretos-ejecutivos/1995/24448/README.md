@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Instituto Costarricense de Investigación y
 | --- | --- | --- |
 | 1 | 1995-07-28 | la propia norma |
 | 2 | 1995-07-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2008-02-12 | Decreto Ejecutivo 34432 (2008-02-12) |
