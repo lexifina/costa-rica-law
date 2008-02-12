@@ -1,0 +1,1 @@
+Artículo 80.—La Auditoría Interna llevará un control sobre las recomendaciones, advertencias, y los informes de responsabilidades de relación de hechos, con el objetivo de verificar su cumplimiento. Además de dar seguimiento a las disposiciones de la Contraloría General y otros entes de fiscalización, cuando sean de su conocimiento.

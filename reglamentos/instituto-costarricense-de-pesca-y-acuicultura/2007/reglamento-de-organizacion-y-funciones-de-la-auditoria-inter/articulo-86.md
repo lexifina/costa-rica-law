@@ -1,0 +1,1 @@
+Artículo 86.—Los recursos presupuestarios asignados a la Auditoría no podrán ser modificados a reasignados a otras unidades sin la autorización previa del Auditor Interno u quien este designe en la unidad como responsable de ejecutar el presupuesto, de conformidad con los criterios presupuestarios emitidos por la Contraloría General de la República.

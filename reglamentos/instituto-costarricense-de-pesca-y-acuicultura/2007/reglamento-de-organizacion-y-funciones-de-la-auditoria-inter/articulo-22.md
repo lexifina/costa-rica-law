@@ -1,0 +1,1 @@
+Artículo 22.—El Auditor Interno será el responsable de velar porque la Auditoría cuente con un manual de procedimientos de Auditoría para el ejercicio de sus funciones, el que será aprobado por la Junta Directiva el cual deberá estar actualizándose de acuerdos con las necesidades que se presenten.

@@ -1,0 +1,1 @@
+Artículo 84.—En cuanto a los requisitos, partes, revisión y división de los informes de Auditoría Interna estos se regirán de conformidad con los establecidos en el Manual para el ejercicio de la Auditoría Interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República.

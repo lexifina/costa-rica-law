@@ -1,0 +1,1 @@
+Artículo 79.—Se reputará como falta grave del jerarca o del funcionario competente para iniciar el procedimiento sancionatorio, el no gestionar lo que corresponda para que éste se inicie oportunamente o el dejar que la responsabilidad del infractor prescriba.

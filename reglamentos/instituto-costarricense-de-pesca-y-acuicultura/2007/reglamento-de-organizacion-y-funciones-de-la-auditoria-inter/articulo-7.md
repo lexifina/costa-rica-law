@@ -1,0 +1,1 @@
+Artículo 7º—La asistencia a las sesiones de Junta Directiva por parte del Auditor Interno, no será de carácter permanente y su participación en las sesiones o reuniones, se hará cuando así se requiera, en carácter de asesor según la normativa y criterios establecidos por la Contraloría General de la Republica.

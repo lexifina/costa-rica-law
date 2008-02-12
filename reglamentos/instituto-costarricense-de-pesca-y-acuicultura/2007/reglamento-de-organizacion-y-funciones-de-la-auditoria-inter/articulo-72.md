@@ -1,0 +1,1 @@
+Artículo 72.—El Auditor Interno podrá asesorar en materia de su competencia al jerarca, cuando este lo solicite, pudiendo ser esta verbal o por escrito, debiendo confirmar posterior las medidas adoptadas, como resultado de la asesoría.

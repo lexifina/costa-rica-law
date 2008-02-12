@@ -1,0 +1,1 @@
+Artículo 35.—Cuando el Auditor Interno se encuentre interinamente este podrá autorizar el nombramiento de los funcionarios de la Auditoría Interna, sin embargo en lo que respecta a la disminución de plazas de la Auditoría dicha función solo se permite si el mismo se encuentra en propiedad.

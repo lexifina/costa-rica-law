@@ -1,0 +1,1 @@
+Artículo 30.—El Auditor Interno deberá establecer medidas formales para administrar y controlar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro la objetividad e independencia de la Auditoría Interna.

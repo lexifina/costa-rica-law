@@ -1,0 +1,1 @@
+Artículo 29.—El Auditor Interno presentará ante la Junta Directiva un informe anual de labores donde se destaquen las principales acciones realizadas durante el periodo, de conformidad por lo previsto en la Ley General de Control Interno.

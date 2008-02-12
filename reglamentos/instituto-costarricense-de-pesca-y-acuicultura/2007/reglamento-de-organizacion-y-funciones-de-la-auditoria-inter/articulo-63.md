@@ -1,0 +1,1 @@
+Artículo 63.—El incumplimiento de las recomendaciones por parte de la administración activa es causal de responsabilidad administrativa de conformidad con el artículo 39 y 40 de la Ley General de Control Interno.

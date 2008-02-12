@@ -1,0 +1,1 @@
+Artículo 71.—Los funcionarios de la Auditoría Interna podrán agregar un anexo al informe final cuando lo consideren conveniente de las observaciones realizadas durante la comunicación verbal del informe de auditoría.

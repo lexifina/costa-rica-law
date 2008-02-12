@@ -1,0 +1,1 @@
+Artículo 83.—Durante el desarrollo de la auditoría o estudio especial de auditoría, el Auditor o encargado del estudio podrá enviar a quien corresponda comunicación sobre hechos que en el transcurso del estudio ameriten a criterio del Auditor sus correcciones inmediatas.

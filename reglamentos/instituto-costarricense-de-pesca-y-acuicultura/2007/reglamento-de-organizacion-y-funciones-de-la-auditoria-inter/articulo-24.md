@@ -1,0 +1,1 @@
+Artículo 24.—El Auditor Interno deberá informar al jerarca institucional cuando se le presente limitaciones para llevar a cabo la fiscalización y el control sobre las actividades que esta realiza e informar del riesgo asumido y las eventuales responsabilidades que podrían imputársele por las dichas limitaciones.

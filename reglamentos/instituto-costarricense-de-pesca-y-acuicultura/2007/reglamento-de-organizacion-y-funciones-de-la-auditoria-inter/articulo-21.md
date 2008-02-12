@@ -1,0 +1,1 @@
+Artículo 21.—El Auditor Interno será responsable de mantener un archivo actualizado de los Reglamentos, leyes, decretos, acuerdos, directrices, pronunciamientos y otros en su archivo permanente, relacionados con la actividad de la Auditoría.
