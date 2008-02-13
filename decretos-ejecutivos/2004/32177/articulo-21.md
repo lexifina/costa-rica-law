@@ -1,8 +1,9 @@
 CAPITULO V
-Dirección General Administrativa y Financiera
+(*)Dirección General Administrativa
 SECCION I
 Dirección General
-Articulo 21.—La Dirección General Administrativa y Financiera estará adscrita al Despacho del Ministro, teniendo las siguientes funciones:
+Articulo 21.—La (*)Dirección General Administrativa estará adscrita al Despacho del Ministro, teniendo las siguientes funciones:
+(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 34389 del 13 de febrero del 2008).
 1) Planificar, dirigir, coordinar y controlar el funcionamiento de las diferentes unidades que conforman el área administrativa o de apoyo de la Institución, con la asistencia de los subdirectores generales, los directores y los jefes de departamento a su cargo.
 2) Conducir la gestión de las dependencias bajo su cargo.
 3) Formular en coordinación con la Jerarquía Institucional los lineamientos, procedimientos y políticas de la Dirección General que regulen y controlen la gestión de las unidades que la conforman.

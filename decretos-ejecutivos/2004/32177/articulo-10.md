@@ -5,7 +5,8 @@ Articulo 10.—La Oficina de Planificación Institucional estará adscrita al De
 4) Contribuir en la formulación del Plan Estratégico y el Plan Operativo Anual Institucional de conformidad con los lineamientos del Plan Nacional de Desarrollo y con la normativa institucional.
 5) Analizar las políticas y estrategias nacionales en materia de seguridad, que incidan en el cumplimiento de la misión institucional y emitir las recomendaciones correspondientes.
 6) Revisar y redefinir, de acuerdo con la dinámica institucional, la estructura programática en coordinacion con otras instancias del Ministerio como base para la formulación presupuestaria.
-7) Coordinar con la Dirección General Administrativa Financiera, la Dirección de Recursos Humanos, la Dirección Financiera y los responsables de programas y actividades presupuestarias, la formulación y evaluación del presupuesto institucional.
+7) Coordinar con la (*)Dirección General Administrativa, la Dirección de Recursos Humanos, la Dirección Financiera y los responsables de programas y actividades presupuestarias, la formulación y evaluación del presupuesto institucional.
+(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 34389 del 13 de febrero del 2008).
 8) Revisar y avalar toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica del Ministerio, en coordinacion con la Accesoria Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del Ministro.
 9) Realizar los procesos de seguimiento y evaluación de planes, programas y proyectos, recomendando las medidas correctivas pertinentes.
 10) Brindar a los funcionarios de la Institución que en razón de su cargo requieran, accesoria y capacitación en materia de planificación.
