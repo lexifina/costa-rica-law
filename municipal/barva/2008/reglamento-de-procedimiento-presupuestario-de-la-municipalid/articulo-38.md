@@ -1,0 +1,1 @@
+Artículo 38.—De las modificaciones a los procedimientos: En caso de cambios en la normativa vinculante o por la existencia de nuevas técnicas o tecnología, que redunde en formas mas eficientes de lograr los objetivos planteados se deberá tomar las medidas necesarias para la actualización de este Manual, conforme al procedimiento seguido para su aprobación.

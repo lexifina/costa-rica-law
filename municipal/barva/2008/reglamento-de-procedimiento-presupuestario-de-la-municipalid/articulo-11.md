@@ -1,0 +1,10 @@
+Artículo 11.—Estimación de egresos.
+1) De conformidad con el cronograma de actividades propuesto la Coordinación Administrativa Financiera solicitará a los diferentes actores institucionales la estimación de las necesidades en servicios, materiales, suministros y bienes duraderos, cuyos precios deberán ajustarse a las listas que publique y comunique oportuna e internamente la Proveeduría Municipal.
+2) Para estos propósitos la Coordinación Administrativa Financiera confeccionará una fórmula oficial de remisión de la información a la cual deberán adjuntársele al menos los siguientes requisitos:
+a. Que las solicitudes estén debidamente firmadas.
+b. Las solicitudes de bienes duraderos deben tener el visto bueno de los correspondientes órganos municipales que tengan criterio técnico al respecto (equipos de cómputo de parte del Departamento de Cómputo; vehículos o medios de transporte y mobiliario de oficina por parte del Alcaldía, pinturas y remodelaciones por el Departamento de Ingeniería, entre otros).
+c. Los bienes duraderos (maquinaria y equipo solicitados) debe contar con el precio en forma individual.
+d. Se les debe adjuntar las justificaciones que consideren convenientes, con el fin de tener mayores elementos de juicio al realizar la distribución de los recursos.
+3) Igualmente la Coordinación Administrativa Financiera confeccionará los oficios correspondientes para solicitar a las unidades la estimación sobre algunas partidas, como servicios personales, deuda y servicios no personales, según se detalla:
+a. Departamento de Recursos Humanos: quien realizará la estimación de los montos a presupuestar por concepto de remuneraciones con base en los insumos que le provean los diferentes órganos municipales en sus requisiciones (sueldos fijos, horas extras, suplencias, recargo de funciones, jornales, servicios especiales) así como los detalles de cálculo del salario del alcalde municipal, del pago de prohibición, del pago de dedicación exclusiva y servicios especiales.
+b. Departamento de Contabilidad Municipal: que realizará la estimación por concepto de servicios públicos, deuda y contratos existentes.

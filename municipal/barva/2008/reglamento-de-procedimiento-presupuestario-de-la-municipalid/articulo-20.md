@@ -1,0 +1,8 @@
+Artículo 20.—Mecanismos de variación al presupuesto y sus efectos.
+1) Son dos los mecanismos de variación presupuestaria posibles:
+a. Los presupuestos extraordinarios
+b. Las modificaciones presupuestarias
+2) Los presupuestos extraordinarios y las modificaciones presupuestarias constituyen los mecanismos ordinarios de carácter legal y técnico para realizar la inclusión de ingresos y gastos así como los aumentos, traslados o disminuciones de los montos de ingresos y egresos aprobados en el presupuesto ordinario y presupuestos extraordinarios por parte de la instancia competente de acuerdo al artículo 19 de este Reglamento, acatando para ello el bloque de legalidad que les aplica.
+3) En el caso de los órganos desconcentrados, unidades ejecutoras, fondos, programas y cuentas de la Municipalidad deberán remitir para su aprobación los presupuestos extraordinarios y las variaciones presupuestarias, ante el Concejo Municipal pero no ante la CGR en vista de que están exentos de la presentación de su presupuesto a la aprobación del órgano contralor.
+4) Los presupuestos extraordinarios y las variaciones presupuestarias tendrán efecto legal en el presupuesto, a partir de la aprobación por parte de las instancias externas e internas competentes, según corresponda.
+5) Las variaciones que se realicen al presupuesto, ya sea por presupuesto extraordinario, modificación o ajuste, deberán estar debidamente justificadas e incorporar como parte de la información que las sustenta, la relación de las variaciones presupuestarias con el cumplimiento de los objetivos y metas del plan anual operativo.
