@@ -1,0 +1,1 @@
+Artículo 7°-Las funciones que se atribuyen a la Comisión lnterinstitucional para la Modernización de los Puertos Limón y Moín, así como a la Comisión Técnica de Apoyo, se establecen sin detrimento de las facultades y prerrogativas que por Ley Especial corresponde a JAPDEVA, en razón de su autonomía.

@@ -1,0 +1,1 @@
+Artículo 8°-Se deroga el Decreto Ejecutivo N° 28708-MOPT, publicado en La Gaceta N° 12 del día 26 del mes de junio del año dos mil, mediante el que fue creada la Comisión lnterinstitucional responsable de estructurar la estrategia para llevar a cabo el Proceso de Modernización Portuaria.
