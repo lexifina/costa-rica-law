@@ -1,0 +1,1 @@
+Artículo 32.-AI finalizar el período de gobierno cada cuatro años, los Despachos del Ministro y Viceministros realizaran una transferencia de documentos al Archivo Nacional, para cumplir con este trabajo el Archivo Central y el Archivo Nacional asesorarán a los Despachos respectivamente.

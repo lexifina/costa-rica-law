@@ -1,0 +1,1 @@
+Artículo 49.-En lo no previsto en este Reglamento, se aplicará supletoriamente la Ley del Sistema Nacional de Archivos, la Ley General de la Administración Pública, el Estatuto de Servicio Civil y el Reglamento Autónomo de Servicio de Trabajo, la Ley de Control Interno.

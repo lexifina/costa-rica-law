@@ -1,0 +1,1 @@
+Artículo 25.-Los funcionarios(as) que sean removidos de sus puestos, deberán devolver al Archivo Central todo documento que haya solicitado, antes de dejar su puesto de trabajo, para ello el Departamento de Recursos Humanos deberá informar de los ceses de puestos.

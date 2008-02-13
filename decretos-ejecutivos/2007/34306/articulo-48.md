@@ -1,0 +1,1 @@
+Artículo 48.-Los materiales, mobiliario y otros de los archivos de gestión, de los archivos especializados y de los archivos periféricos deben ser suministrados por el Programa Presupuestario correspondiente.

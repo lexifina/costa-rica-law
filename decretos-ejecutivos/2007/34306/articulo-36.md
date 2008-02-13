@@ -1,0 +1,1 @@
+Artículo 36.-El local o espacio que se destine para el archivo, deberá reunir las condiciones necesarias que garanticen la conservación óptima de los documentos, protegiéndolos de factores químicos, biológicos, fisicos, materiales ambientales que puedan afectar su conservación. Además, queda prohibido mantener alimentos cerca de los archivos.

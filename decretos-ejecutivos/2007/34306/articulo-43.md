@@ -1,0 +1,1 @@
+Artículo 43.-Conforme la Ley W 7202 del Sistema Nacional de Archivos artículo 36; ningún funcionario/a del Ministerio podrá eliminar cualquier tipo documental sin previa autorización del Comité Institucional de Selección y Eliminación de Documentos.

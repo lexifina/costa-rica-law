@@ -1,0 +1,1 @@
+Artículo 46.-Los estudiantes e investigadores que realicen trabajos con la información del Archivo Central, deberán entregar una copia del mismo, para incorporarlo si se considera útil, al patrimonio documental del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 19.-Sobre los documentos devueltos que presenten daños, los funcionarios/as del Archivo Central deberán notificar al encargado/a del Archivo Central para que se realice las gestiones correspondientes.

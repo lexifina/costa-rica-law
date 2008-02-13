@@ -1,0 +1,3 @@
+Artículo 29.-Los documentos serán transferidos de acuerdo a los siguientes plazos:
+a) Archivos de gestión: los documentos permanecerán en las oficinas administrativas productoras durante un promedio de cincos años, de acuerdo con lo establecido en las tablas de plazos de conservación. Una vez cumplida la etapa anterior, los documentos con valor administrativo y legal pasarán al Archivo Central.
+b) Archivos especializados y periféricos: el valor administrativo legal de los documentos será dispuesto basándose en el asunto a que se refieren los expedientes. Por lo que el Comité Institucional de Selección y Eliminación y Jefaturas de los diferentes departamentos actuaran en forma conjunta para dar valor a dichos documentos.

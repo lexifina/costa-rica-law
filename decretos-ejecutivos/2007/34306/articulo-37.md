@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Comité Institucional de Selección y Eliminación de Documentos
+Artículo 37.-El Comité Institucional de Selección y Eliminación de Documentos, estará conformado por el Encargada/o del Archivo Central, un asesor legal y el superior administrativo o por quien este delegue, siempre y cuando reúna las mismas condiciones profesionales de este último a quien representa; es decir con cargo de jerarquía para la toma de decisiones y con formación archivística, administrativa o legal para cada caso que corresponda. Dichos miembros nombrarán un presidente y un secretario, quienes durarán en el cargo un año aunque pueden ser reelectos.

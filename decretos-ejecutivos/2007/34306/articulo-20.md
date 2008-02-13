@@ -1,0 +1,1 @@
+Artículo 20.-EI Encargado(a) del Archivo Central podrá autorizar la salida de documentos para ser reproducidos fuera del local, cuando no se cuente con equipo requerido para ello dentro de la misma. En tal caso la documentación saldrá bajo custodia de un funcionario/a del Archivo Central y el usuario/a deberá cubrir el costo de la reproducción en su totalidad.
