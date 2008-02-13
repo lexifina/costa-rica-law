@@ -1,0 +1,1 @@
+Artículo 7º— Las áreas estudiadas donde se detectó material apto para el desarrollo del proyecto se reservarán para el uso exclusivo del ICE, para lo que la Dirección de Geología y Minas brindará un tratamiento prioritario y expedito a los trámites presentados por el Instituto.

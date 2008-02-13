@@ -1,0 +1,4 @@
+Artículo 4º—El ICE dispondrá de mecanismos de información y negociación con las comunidades involucradas en el desarrollo del Proyecto, a efecto de alcanzar los acuerdos que permitan balancear los intereses locales en materia de reconocimiento del arraigo de los habitantes, con los intereses nacionales de abastecimiento energético. Los mecanismos de información y negociación deberán:
+a) Contener etapas preclusivas de negociación, de modo que lo acordado en cada etapa no podrá ser sometido a discusión en una etapa posterior y
+b) Constituir instrumentos de transparencia, compromiso y participación comunal.
+El ICE podrá solicitar asesoría a la Defensoría de los Habitantes y al Programa Estado de la Nación, para la elaboración y ejecución de los mecanismos de información y negociación; los que se consultarán a las Municipalidades de los cantones de Buenos Aires, Osa y Pérez Zeledón, previo a su publicación en el Diario Oficial La Gaceta.
