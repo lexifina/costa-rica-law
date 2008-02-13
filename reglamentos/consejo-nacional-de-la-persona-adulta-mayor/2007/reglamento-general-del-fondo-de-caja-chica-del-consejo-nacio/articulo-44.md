@@ -1,0 +1,1 @@
+Artículo 44.—Queda totalmente prohibido a los funcionarios del CONAPAM y al custodio evadir el monto límite de gastos a efectuar por medio del Fondo de Caja Chica, mediante el fraccionamiento de las compras.

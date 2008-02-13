@@ -1,0 +1,1 @@
+Artículo 12.—Mediante acuerdo de Junta Rectora se podrá aprobar formalmente ampliaciones temporales o permanentes para el Fondo de Caja Chica previo visto bueno de la Tesorería Nacional, con el fin de atender situaciones sumamente especiales.

@@ -1,0 +1,1 @@
+Artículo 36.—El Fondo de dinero destinado al Fondo de Caja Chica operará por medio de monto fijo, lo que implicará que el monto total asignado deberá ser igual a la sumatoria del efectivo en caja, las solicitudes de adelanto para compras por caja chica y las liquidaciones de compras por caja chica con las respectivas facturas y/o comprobantes soportes de los pagos efectuados.

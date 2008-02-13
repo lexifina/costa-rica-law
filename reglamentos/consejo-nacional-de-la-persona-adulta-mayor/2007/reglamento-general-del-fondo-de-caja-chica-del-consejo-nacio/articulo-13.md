@@ -1,0 +1,1 @@
+Artículo 13.—Las operaciones y trámites de reintegro de fondos se realizarán mediante transferencias electrónicas de fondos por medio de la Tesorería Nacional del Ministerio de Hacienda, de la cuenta domiciliada en la Caja Única a nombre de CONAPAM.

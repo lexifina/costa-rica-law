@@ -1,0 +1,1 @@
+Artículo 8º—Todas las compras o pagos que se realicen por medio del Fondo de Caja Chica deberán contar con el debido contenido presupuestario y la reserva respectiva, de acuerdo con las partidas autorizadas por la Tesorería Nacional en el Clasificador por Objeto del Gasto del Sector Público para Compras por Fondo Fijo Caja Chica.

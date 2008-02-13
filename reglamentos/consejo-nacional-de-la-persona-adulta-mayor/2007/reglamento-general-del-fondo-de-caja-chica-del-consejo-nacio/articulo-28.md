@@ -1,0 +1,3 @@
+CAPÍTULO V
+Reembolsos al fondo
+Artículo 28.—El custodio del Fondo de Caja Chica será el responsable de tramitar los reintegros del mismo, con la aprobación de la Dirección Administrativa Financiera. Adjunto a la Solicitud de Reintegro o Reembolsos se presentarán los justificantes respectivos como son: solicitud de adelanto para compras por caja chica, liquidación de compras por caja chica y la factura comercial o comprobante respectivo. Entre los aspectos a verificar están: veracidad de los datos consignados en los mismos, la relación entre el monto de la factura y el límite del gasto, la liquidación del adelanto en tiempo, la disponibilidad presupuestaria y las autorizaciones correspondientes.

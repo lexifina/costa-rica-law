@@ -1,0 +1,1 @@
+Artículo 7º—Toda compra de bienes y servicios con Fondos de Caja Chica requieren para su trámite de la confección del formulario de solicitud de adelanto para compras por caja chica para el adelanto de recursos y del formulario de liquidación de compras por Caja Chica para la liquidación de la compra realizada.

@@ -1,0 +1,1 @@
+Artículo 35.—El Departamento de Recursos Financieros será responsable de suministrar los formularios denominados: “Solicitud de Adelanto para Compras por Caja Chica” y “Liquidación de Compras por Caja Chica”, los cuales serán numerados consecutivamente por el custodio del Fondo Fijo de Caja Chica al recibir dichos formularios para su trámite.

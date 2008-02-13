@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección Ejecutiva del CONAPAM comunicará a la Tesorería Nacional, mediante oficio, el nombre y número de cédula de la o el funcionario designado como responsable directo de la custodia y operación del Fondo de Caja Chica, que en lo sucesivo en este Reglamento se le denominará como “El Custodio”.

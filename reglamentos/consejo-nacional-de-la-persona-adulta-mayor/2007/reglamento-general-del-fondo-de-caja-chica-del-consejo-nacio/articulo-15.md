@@ -1,0 +1,1 @@
+Artículo 15.—El Fondo de Caja Chica mantendrá únicamente dinero y los justificantes que respalden los trámites de compra de bienes y servicios a saber: solicitud de adelanto para compras por caja chica, liquidación de compras por caja chica, facturas originales, tiquetes o comprobantes de las compras o pago de servicios.
