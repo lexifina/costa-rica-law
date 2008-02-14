@@ -15,3 +15,4 @@ Traspaso en forma gratuita al Instituto de Desarrollo Rural Tierras Fuera de las
 | --- | --- | --- |
 | 1 | 1999-05-17 | la propia norma |
 | 2 | 2007-06-13 | Ley 7 |
+| 3 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
