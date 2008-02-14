@@ -1,0 +1,1 @@
+Artículo 5º—Los profesionales que se contraten, sea por servicios profesionales o en relación laboral privada, deberán cumplir con todos los requerimientos técnicos y legales para ejercer la profesión en el país, incluyendo la incorporación al Colegio Profesional correspondiente.

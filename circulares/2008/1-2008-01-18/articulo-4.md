@@ -1,0 +1,1 @@
+Artículo 4º—Las Juntas de Educación y Administrativas, en atención a su personería jurídica independiente, podrán realizar alianzas o convenios entre sí, con el fin de contratar por servicios a un mismo profesional y poder pagar, en conjunto, los honorarios que corresponda, pero se mantendrá la independencia de las cuentas y registros financieros de cada Junta.

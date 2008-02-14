@@ -1,0 +1,1 @@
+Artículo 2º—Para la fijación del pago de los servicios profesionales respectivos, las juntas utilizarán como guía la Tabla de Honorarios Profesionales establecidos por el Colegio Profesional respectivo.
