@@ -14,3 +14,4 @@ Traspasa Terrenos al Instituto de Desarrollo Rural
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-12-09 | la propia norma |
+| 2 | 2008-02-14 | Decreto Ejecutivo 34415 (2008-02-14) |
