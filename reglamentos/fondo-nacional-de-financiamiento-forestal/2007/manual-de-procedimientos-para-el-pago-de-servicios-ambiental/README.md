@@ -15,3 +15,4 @@ Manual de Procedimientos para el pago de Servicios Ambientales
 | --- | --- | --- |
 | 1 | 2007-03-13 | la propia norma |
 | 2 | 2007-11-28 | Reglamento 16 (2007-11-28) |
+| 3 | 2008-02-14 | Reglamento 0 (2008-02-14) |
