@@ -1,0 +1,1 @@
+Artículo 25.—La auditoría deberá evaluar el procesamiento de la información en la Municipalidad de Escazú, analizar los aspectos de manejo de registros, accesos, custodia y supervisión del trabajo. En esta labor deberá emplear el manual de evaluación de sistemas de información desarrollado por la Contraloría General y material adicional de considerarlo necesario.
