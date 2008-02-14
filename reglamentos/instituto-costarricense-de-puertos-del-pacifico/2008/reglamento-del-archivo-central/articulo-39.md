@@ -1,0 +1,1 @@
+Artículo 39.—Para cumplir con el artículo anterior, el encargado del archivo institucional debe coordinar con el encargado de Tecnologías de Información a fin de diseñar y desarrollar las aplicaciones informáticas que respondan a necesidades reales de información. Para ello, presentarán un Plan a la Gerencia para su estudio.

@@ -1,0 +1,2 @@
+Artículo 4º—Funcionará bajo la administración y coordinación preferiblemente, de un archivista graduado de un Centro de Educación Superior, un Profesional en Administración de Empresas o Negocios con conocimientos en el Área Archivística, o un funcionario del mismo nivel académico debidamente capacitado, quien dependerá directamente de la Dirección Administrativa-Financiera de la Institución.
+Esta Dirección se encargará de brindarle al archivista designado la capacitación necesaria para cumplir con sus funciones.

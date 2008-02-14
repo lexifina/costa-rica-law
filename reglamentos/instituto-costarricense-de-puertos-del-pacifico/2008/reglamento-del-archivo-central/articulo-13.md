@@ -1,0 +1,1 @@
+Artículo 13.—La documentación no podrá salir de la Institución salvo en casos de exposición o a requerimiento de los Tribunales de Justicia o de la Contraloría General de la República, previa autorización de la Gerencia General.

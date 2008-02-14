@@ -1,0 +1,1 @@
+Artículo 30.—El Archivista o Encargado del Archivo Central, inspeccionará regularmente los Archivos de Gestión a fin de controlar la adecuada ejecución del Plan General de Archivo confeccionado por el Encargado del Archivo.
