@@ -1,10 +1,11 @@
-(Anulada)
+(Derogado)
 PODER EJECUTIVO
 DECRETOS
 Nº 28746-MINAE-MAG
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA
 Y DE AGRICULTURA Y GANADERÍA,
+(Este Decreto fue derogado por el artículo 1° del decreto ejecutivo N° 34506 del 14 de febrero del 2008)
 (Este Decreto se declara inconstitucional por conexidad, según resolución de la Sala Constitucional N° 8457-2007 del trece de junio de dos mil siete)
 En uso de las facultades que les confieren los incisos tres y decimoctavo del artículo ciento cuarenta de la Constitución Política; los artículos uno, dos, seis y siete de la Ley número setenta y cinco noventa y nueve del nueve de Agosto de mil novecientos noventa y seis, primero de la ley veintiocho veinticinco del catorce de octubre de mil novecientos sesenta y uno y sus reformas y trece de la Ley setenta y cinco setenta y cinco del dieciséis de abril de mil novecientos noventa y seis.
 Considerando:
