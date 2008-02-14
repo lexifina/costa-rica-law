@@ -1,8 +1,9 @@
-(Anulada)
+(Derogado)
 N° 27726-MINAE-MAG
 EL PRESIDENTE DE LA REPÚBLICA Y
 LOS MINISTROS DEL AMBIENTE Y ENERGÍA
 Y DE AGRICULTURA Y GANADERÍA,
+(Este Decreto fue derogado por el artículo 1° del decreto ejecutivo N° 34506 del 14 de febrero del 2008)
 (Este Decreto se declara inconstitucional por conexidad, según resolución de la Sala Constitucional N° 8457-2007 del trece de junio de dos mil siete)
 En uso de las facultades que les confieren los incisos3) y 18) del artículo 140 de la Constitución Política, los artículos 1, 2 ,6 y 7de la Ley 7599 del 9 de agosto de 1996, 1 de la ley 2825 del 14 de octubre de 1961 y sus reformas y 13 de la ley 7575 del 16 de abril de 1996, y ley N° 7064 del 29 de abril de 1987 y sus reformas,
 Considerando:

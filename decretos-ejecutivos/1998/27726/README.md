@@ -15,3 +15,4 @@ Programa del INDER Titulación de las llanuras de San Carlos y Sarapiquí
 | --- | --- | --- |
 | 1 | 1999-03-30 | la propia norma |
 | 2 | 2007-06-13 | SINALEVI (sin norma nombrada) |
+| 3 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
