@@ -1,0 +1,1 @@
+Artículo 116.—Derechos de vía en red ferroviaria. Se aplica la normativa vigente de la Ley General de Caminos Públicos que regula derecho de vía de la red ferroviaria para que no existan construcciones ni sean aprobados permisos que violenten el libre acceso. Se conservan los derechos de vía de todo el trazado.

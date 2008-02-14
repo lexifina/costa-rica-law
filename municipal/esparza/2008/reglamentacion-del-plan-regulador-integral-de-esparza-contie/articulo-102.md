@@ -1,0 +1,2 @@
+Artículo 102.—Zona centro ecológico para el manejo de residuos sólidos urbanos (Z.C.E.M.D.R.S.U).
+102.1 Propósito. Esta Zona tiene el propósito de manejar los desechos sólidos del Cantón de Esparza. Será administrada por la Municipalidad y para su funcionamiento, deberá contar con el Estudio de Impacto Ambiental (EsIA) y estudios posteriores. No se permiten la construcción de viviendas unifamiliares, los procesos de urbanización y condominios en esta zona.

@@ -1,0 +1,1 @@
+Artículo 125.—Propuesta comunicación vía Esparza Salinas Asentamiento El Barón. Propuesta de comunicación Esparza Salinas Ruta Nacional Nº 622 al Asentamiento El Barón construyendo un sector de carretera a la altura del Jocote en las coordenadas 464155 – 215279 y 464723 – 215401 (Hoja Topográfica Barranca IGN) para dar continuidad y acceso a las comunidades aledañas.

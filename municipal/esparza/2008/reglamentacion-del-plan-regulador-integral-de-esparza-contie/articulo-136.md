@@ -1,0 +1,1 @@
+Artículo 136.—Paseo peatonal en Mata de Limón. Para el embellecimiento de Mata de Limón se declara espacio para construcción de un paseo peatonal que se extienda paralelo al estero y a la línea férrea, desde el puente sobre el estero Mata de Limón hasta la entrada de Mata de Limón Sur.

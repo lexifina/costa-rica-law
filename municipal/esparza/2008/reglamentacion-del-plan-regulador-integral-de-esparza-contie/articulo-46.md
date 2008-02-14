@@ -1,0 +1,1 @@
+Artículo 46.—Modificaciones parciales o totales. Las modificaciones parciales o totales que se propongan al presente Reglamento, deben hacerse con base en criterios de carácter general y no casuística.

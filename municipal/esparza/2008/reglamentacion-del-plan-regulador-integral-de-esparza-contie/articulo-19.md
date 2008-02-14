@@ -1,0 +1,3 @@
+Artículo 19.—Retiros de la construcción. Los retiros de la construcción medidos a partir de la línea de propiedad no implicarán expropiación de las fajas o porciones de lote que queden sin edificar, como tampoco lo implica el ajustarse a la línea de edificación. Se establece un retiro mínimo de 20 metros del cauce de un río o quebrada para construcciones o movimientos de tierra lindantes con su cauce.
+En los lotes esquineros, el retiro posterior se podrá considerar, lateral o viceversa total o parcialmente, de acuerdo con el criterio técnico de la Dirección de Área Operativa y Obras Públicas Municipales.
+En el caso de las carreteras en que el Ministerio de Obras Públicas y Transportes fija su propio alineamiento, prevalecerá el retiro o alineamiento mayor.

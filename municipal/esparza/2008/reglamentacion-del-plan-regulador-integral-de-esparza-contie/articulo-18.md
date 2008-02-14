@@ -1,0 +1,1 @@
+Artículo 18.—Nivel de las construcciones. El nivel de desagüe de las aguas pluviales, como también el nivel de piso terminado base en las construcciones nuevas, deberá ser aprobado por la Dirección de Área Operativa y Obras Públicas Municipales; pudiendo a la vez indicar para cada caso los requisitos especiales para la canalización de aguas pluviales a la calle.

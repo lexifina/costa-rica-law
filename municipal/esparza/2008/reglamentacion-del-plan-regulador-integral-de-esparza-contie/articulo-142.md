@@ -1,0 +1,1 @@
+Artículo 142.—Proyecto de red de alcantarillado sanitario. Es prioridad de este Plan Regulador la construcción de la red de alcantarillado sanitario. Este se estará construyendo por etapas, empezando por la Ciudad Espíritu Santo, que corresponde a la zona de mayor densidad poblacional y varios tipos de uso del suelo, así como la capacidad de infiltración y posible contaminación.

@@ -1,0 +1,1 @@
+Artículo 9º—Certificado de zona. A solicitud de cualquier interesado, la Municipalidad emitirá un certificado de zona, en el cual se hará constar la zona que le corresponde a determinado lote o finca. Este certificado será exigido para los efectos de segregaciones.

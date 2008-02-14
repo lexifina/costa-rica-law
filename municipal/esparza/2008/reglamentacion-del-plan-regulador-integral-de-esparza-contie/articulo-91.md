@@ -1,0 +1,1 @@
+Artículo 91.—Zona de protección de manantiales Salitral (Z.P.M.S). Es una zona especial de protección de recarga acuífera de capacidad media producción con limitaciones de uso. Es una zona de propiedad privada.

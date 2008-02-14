@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Patrimonio histórico arquitectónico y arqueológico
+Artículo 38.—Patrimonio Nacional Arqueológico. Según el Artículo 1 de la Ley de Patrimonio Nacional Arqueológico Número 6703 constituye Patrimonio Nacional Arqueológico; los muebles o inmuebles, producto de las culturas indígenas anteriores o contemporáneas al establecimiento de la cultura hispánica en el territorio nacional, así como los restos humanos, flora y fauna, relacionados con estas culturas. Asimismo, será parte del patrimonio histórico-arquitectónico del país, el inmueble de propiedad pública o privada con significación cultural o histórica, declarado así por el Ministerio de Cultura, Juventud y Deportes de conformidad con la Ley 7555, Ley de Patrimonio Histórico Arquitectónico de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 90.—Zona de protección de manantiales Cerro Mondongo (Z.P.M.C.M). Es una zona especial de protección de recarga acuífera de capacidad media de producción con limitaciones de uso. Es una zona de propiedad privada.

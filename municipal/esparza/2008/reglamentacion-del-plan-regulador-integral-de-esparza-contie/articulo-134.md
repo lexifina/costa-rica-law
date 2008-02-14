@@ -1,0 +1,1 @@
+Artículo 134.—Propuestas de localización de terminal de buses regionales y locales. Se consideran tres propuestas de ubicación de terminales de buses, tal y como aparecen indicadas en el mapa oficial de propuestas de vialidad, sobre la Vía Nacional No.1 Interamericana Norte. La terminal de buses será un proyecto privado o público.

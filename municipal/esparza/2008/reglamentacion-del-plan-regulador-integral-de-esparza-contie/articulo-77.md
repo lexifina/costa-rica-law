@@ -1,0 +1,1 @@
+Artículo 77.—Zona Público Institucional (Z.P.I). Propósito: Se incluyen como áreas públicas institucionales: el Cementerio en Marañonal, el área del Colegio Público Emilio Odio de Marañonal y el área reservada para el polideportivo.

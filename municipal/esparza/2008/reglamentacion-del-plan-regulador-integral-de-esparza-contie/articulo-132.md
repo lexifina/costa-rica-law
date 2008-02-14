@@ -1,0 +1,1 @@
+Artículo 132.—Parqueos privados. En las zonas clasificadas como residenciales en este Plan Regulador, toda residencia que se vaya a construir deberá dejar un espacio entre la acera y la línea de construcción que servirá de parqueo.

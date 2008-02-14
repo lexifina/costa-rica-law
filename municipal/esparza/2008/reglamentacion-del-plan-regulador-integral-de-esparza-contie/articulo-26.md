@@ -1,0 +1,1 @@
+Artículo 26.—Evaluación ambiental estratégica (EAE). Todo esto conforme al espíritu del Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA) Nº 31849-MINAE-S-MOPT-MAG-MEIC en su capitulo VII Evaluación Ambiental Estratégica en sus artículos 62 al 70.

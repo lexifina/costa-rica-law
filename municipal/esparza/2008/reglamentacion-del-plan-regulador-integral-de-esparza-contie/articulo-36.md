@@ -1,0 +1,2 @@
+Artículo 36.—Procedimiento del permiso ante la Municipalidad. El trámite de permiso de actividades, obras o proyectos descritos en el articulo anterior, deberán realizarse ante la Municipalidad. El procedimiento de otorgamiento de permiso, para las actividades enumeradas en este Acuerdo, será definido por la Municipalidad.
+La municipalidad mantendrá un registro de permisos, el cual podrá ser facilitado a SETENA, previa solicitud.

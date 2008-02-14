@@ -1,0 +1,1 @@
+Artículo 89.—Zona de protección de manantiales y tomas superficiales pretiles (Z.P.M.T.S.P). Es una zona especial de protección de recarga acuífera de capacidad media de producción con limitaciones de uso. Es una zona de propiedad privada.

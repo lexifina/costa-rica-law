@@ -1,0 +1,1 @@
+Artículo 118.—Derechos de ocupación de la vía pública. Se reglamentará por parte del Consejo Municipal los derechos de ocupación temporal y permanente de la vía pública señalados en el segundo párrafo del Artículo 69 de éste Reglamento.

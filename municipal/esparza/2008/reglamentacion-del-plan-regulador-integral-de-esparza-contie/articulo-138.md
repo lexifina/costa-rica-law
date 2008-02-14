@@ -1,0 +1,9 @@
+CAPÍTULO VI
+Servidumbres de líneas vitales
+Artículo 138.—Servidumbres de líneas vitales: Definición. Se consideran líneas vitales, las siguientes líneas conductoras: de electricidad de alta tensión, el poliducto de RECOPE, las torres de telecomunicaciones, y la conducción de aguas con tuberías mayores que se originan o cruzan el territorio cantonal y cualquier otra que requieren para su instalación y funcionamiento el derecho de vía como servidumbre.
+Artículo 138.1.—Derecho de vía de la servidumbre. El objetivo de este apartado del Reglamento es mantener las servidumbres establecidas de las redes o líneas vitales actualmente y cualquier invasión comprobada a la propiedad de servidumbre debe ser desalojada. Especialmente, cuando signifique peligro o riesgo para la población o al funcionamiento u operación de la línea vital. Las nuevas líneas vitales definirán, vía reglamento, la franja de servidumbre necesaria.
+Artículo 138.2.—Servidumbre y línea de poliducto de RECOPE. En coordinación con RECOPE, se estará identificando el trazado de la red del poliducto por el Cantón, utilizando la cartografía oficial y se establecerá la normativa vigente en materia de seguridad y medidas de prevención de una eventual emergencia.
+Para el poliducto se exigirá una servidumbre de 12 metros, se removerá cualquier vivienda o edificio que viole esta normativa, no se permitirá ningún tipo de construcción de vivienda o edificio dentro de esta faja de 12 metros, de acuerdo con los reglamentos y procedimientos para el trámite de constitución de servidumbres vigentes para RECOPE.
+Artículo 138.3.—Servidumbre de conducción eléctrica de alta tensión y agua. Adicionalmente se consideran las servidumbres de otras líneas vitales.
+Artículo 138.4.—Servidumbre y líneas de conducción eléctrica de alta tensión.
+Artículo 138.5—Servidumbre y línea de conducción de Ojo de Agua - Puntarenas.

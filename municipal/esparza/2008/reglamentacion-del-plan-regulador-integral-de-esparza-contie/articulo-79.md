@@ -1,0 +1,1 @@
+Artículo 79.—Zona especial de protección estero Mata de Limón (Z.E.P.E.M.M.L). Rigen igualmente las disposiciones Especiales para esta zona son las mismas establecidas para la Zonas Especial de Protección 6 Manglar de Mata de Limón el articulado 86.1.

@@ -1,0 +1,1 @@
+Artículo 43.—Modificación y actualización del plan regulador. Para la modificación del presente Reglamento de forma sustancial, global o parcial es preciso seguir las disposiciones y procedimientos que para tal efecto, establece él Artículo 17 de la Ley de Planificación Urbana y el Artículo 47 del Código Municipal.
