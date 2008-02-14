@@ -13,3 +13,4 @@ Traspasa en forma gratuita al Instituto de Desarrollo Rural terrenos de los dist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-03-15 | la propia norma |
+| 2 | 2008-02-14 | Decreto Ejecutivo 34415 (2008-02-14) |

@@ -1,4 +1,6 @@
+(Derogado)
 N° 18220-MAG
+(Este decreto fue derogado por el Decreto Ejecutivo N° 34415 de 14 de febrero de 2008).
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA.
 De conformidad con lo establecido en el artículo 140 de la Constitución Política, la ley N° 2825 de 14 de octubre de 1961 de Tierras y Colonización y sus reformas, el artículo 20 de la Ley Forestal N° 4465 de 25 de noviembre de 1969 y sus reformas y de conformidad con la ley N° 5064 de 22 de agosto de 1972 y;
