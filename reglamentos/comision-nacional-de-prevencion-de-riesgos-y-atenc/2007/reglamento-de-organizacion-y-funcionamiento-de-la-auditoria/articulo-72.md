@@ -1,0 +1,3 @@
+SECCIÓN SÉTIMA
+De la planificación y programación del trabajo de Auditoría
+Artículo 72.—Planificación Estratégica y Anual. La Auditoría Interna formulará la planificación estratégica y anual de sus procesos, conforme a los lineamientos aplicables a la CNE y para ello debe basarse en las normas contenidas en el manual de normas para el ejercicio de la Auditoría Interna en el sector público, en la valoración de riesgo institucional hasta donde sea posible, con énfasis en temas sensibles y del sistema de control interno, incluidos los referentes a la prevención de la corrupción y del enriquecimiento ilícito.

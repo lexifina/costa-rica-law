@@ -1,0 +1,1 @@
+Artículo 32.—Presupuesto para capacitaciones. El Auditor Interno, incluirá dentro del presupuesto anual, los recursos necesarios para su capacitación y capacitar adecuadamente al personal en propiedad de la Auditoría Interna.

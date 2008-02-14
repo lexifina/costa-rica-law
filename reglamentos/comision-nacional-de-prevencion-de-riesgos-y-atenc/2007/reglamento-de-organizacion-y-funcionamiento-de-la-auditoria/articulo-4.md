@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la Organización de la Auditoría Interna
+SECCIÓN PRIMERA
+Concepto de Auditoría Interna
+Artículo 4º—Marco normativo que regula a la Auditoría Interna. La Auditoría Interna funcionará de acuerdo con la Ley General de Control Interno, la Ley Orgánica de la Contraloría General, el Manual de normas generales de Auditoría para el Sector Público, el Manual para el ejercicio de la Auditoría Interna en los órganos y entes sujetos a la fiscalización por parte de la Contraloría General de la República, el Manual de normas generales de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, la Ley Nacional de Emergencias y Prevención del Riesgo, el presente reglamento y por las directrices, disposiciones, lineamientos, normas y criterios emitidos o que en un futuro emita la Contraloría General en el ámbito de su competencia para las Auditorías Internas de los sujetos componentes de la Hacienda Pública. En la CNE existirá una única Auditoría Interna.
