@@ -14,3 +14,4 @@ Traspasa al Instituto de Desarrollo Rural finca Los Chiles para Titulación Tier
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-05-16 | la propia norma |
+| 2 | 2008-02-14 | Decreto Ejecutivo 34415 (2008-02-14) |
