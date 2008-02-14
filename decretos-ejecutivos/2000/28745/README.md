@@ -15,3 +15,4 @@ Traspaso tierras al INDER programa de Titulación Cuenca del Río Aranjuez
 | --- | --- | --- |
 | 1 | 2000-07-11 | la propia norma |
 | 2 | 2007-06-13 | Ley 7 |
+| 3 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
