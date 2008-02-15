@@ -1,0 +1,1 @@
+Artículo 67.—Informes sobre las evaluaciones realizadas. Estos informes deben constar en un informe dirigido al Consejo Directivo por parte de las instancias correspondientes. En el caso del auditor deberá proponer el plan de mejoras y realizar un Plan de Seguimiento al cumplimiento del plan de mejoras.

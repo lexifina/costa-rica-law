@@ -1,0 +1,1 @@
+Artículo 53.—Denuncia penal en contra del jerarca. En caso de que la investigación genere una denuncia penal en contra del Jerarca o alguno de sus miembros, la denuncia ante el Ministerio Público deberá interponerla la Auditoría Interna, en los demás casos recomendará a la administración la apertura del trámite respectivo de la denuncia.
