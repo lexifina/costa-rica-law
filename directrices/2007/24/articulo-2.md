@@ -1,0 +1,1 @@
+Artículo 2º.—Que es al Ministerio de Salud al que le compete, conforme a las disposiciones contenidas en el artículo 2 de la Ley General de Salud, emitir la reglamentación técnica en materia de residuos sólidos. Lo anterior sin detrimento de la sana coordinación que deba llevar a cabo con otros actores involucrados en ese campo.
