@@ -1,0 +1,1 @@
+Artículo 36.—Cuando se trate de materiales y suministros que se mantienen en bodega, según listado que defina el Encargado de Servicios Administrativos, el funcionario debe adjuntar a la solicitud de adelanto o a la liquidación, según corresponda, un documento en el que el Encargado de Servicios Administrativos, señale la inexistencia de ese material o suministro en la bodega.
