@@ -1,0 +1,1 @@
+Artículo 34.—Comunicados: Durante el desarrollo de la auditoría o estudio especial de auditoría, la Auditoría Interna preparará y enviará a quien corresponda, memorandos u oficios sobre hechos y otra información pertinente obtenida en el desarrollo de la labor de campo, cuando la relevancia e implicaciones del asunto, a juicio del (a) Auditor (a), lo justifique.

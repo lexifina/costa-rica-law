@@ -1,0 +1,1 @@
+Artículo 4º—Enunciados éticos que acompañan la función de Auditoría: Deberá observar las normas éticas que rigen su profesión, que se caracterizan por valores como integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que Correos de Costa Rica S. A. promueva para guiar su actuación.

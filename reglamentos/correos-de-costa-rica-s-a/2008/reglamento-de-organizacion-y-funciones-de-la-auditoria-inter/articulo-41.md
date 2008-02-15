@@ -1,0 +1,1 @@
+Artículo 41.—Resultado de seguimiento de recomendaciones: Con base en el sistema indicado en el artículo anterior, la Auditoría Interna emitirá el informe el cual contendrá una evaluación sobre el grado general de cumplimiento por parte de la Administración sobre el alcance determinado.

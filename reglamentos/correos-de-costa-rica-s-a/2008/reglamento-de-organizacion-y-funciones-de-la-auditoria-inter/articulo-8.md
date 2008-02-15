@@ -1,0 +1,1 @@
+Artículo 8º—Objetividad: El personal de la Auditoría Interna deberá tener una actitud imparcial y neutral y evitar conflictos de interés. Si la independencia u objetividad se vieran comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer a la Junta Directiva y a las demás partes que correspondan.

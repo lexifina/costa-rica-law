@@ -1,0 +1,2 @@
+Artículo 28.—Servicios de Auditoría: Los servicios de Auditoría son los referidos a los distintos tipos de auditoría: Auditoría financiera, Auditoría de sistema, Auditoría operativa, estudios especiales de Auditoría de los que pueden derivar posibles responsabilidades y auditoría de cualquier tipo que se requiera para evaluar el cumplimiento, suficiencia y validez del Control Interno dentro del ámbito de competencia de Correos de Costa Rica S. A.
+Los servicios preventivos incluyen los siguientes:

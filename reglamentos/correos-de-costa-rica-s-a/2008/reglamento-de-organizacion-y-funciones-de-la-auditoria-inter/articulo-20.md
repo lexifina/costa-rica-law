@@ -1,0 +1,5 @@
+Artículo 20.—Asignación de recursos: La Auditoría Interna contará con la organización y recursos necesarios y suficientes para cumplir su gestión.
+Para efectos presupuestarios se dará a la Auditoría Interna una categoría programática.
+En la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del (a) Auditor (a) Interno (a) y las instrucciones que emita al respecto la Contraloría General de la República.
+El responsable del control del presupuesto institucional deberá mantener un registro separado del monto asignado y aprobado a la auditoría interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
+Cuando el (la) Auditor (a) Interno (a) demuestre fehacientemente que la falta de recursos de la Auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, deberá informar a la Junta Directiva del riesgo que está asumiendo de la eventual imputación de responsabilidad que esta situación pueda generarle.

@@ -1,0 +1,3 @@
+Artículo 56.—Registros de la información: El personal de la Auditoría Interna deberá registrar información relevante que le permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
+a) El (la) Auditor (a) Interno (a) deberá controlar el acceso a los registros del trabajo de personas ajenas a la Auditoría Interna, de modo que se realice solo con su autorización o la de quien él (ella) designe.
+b) El (la) Auditor (a) Interno (a) deberá establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos de retención deberán ser consistentes con las regulaciones pertinentes y otros requerimientos sobre este tema.

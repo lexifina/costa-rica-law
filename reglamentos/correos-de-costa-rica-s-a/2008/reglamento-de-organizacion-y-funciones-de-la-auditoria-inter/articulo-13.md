@@ -1,0 +1,1 @@
+Artículo 13.—Organización: La Auditoría Interna estará bajo la responsabilidad del (a) Auditor(a) Interno(a), dicho (a) funcionario (a) deberá reunir las condiciones de idoneidad profesional y moral requeridas para el cargo y deberá conocer las disposiciones legales que rigen en general a la Administración Pública.

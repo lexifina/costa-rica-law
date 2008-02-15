@@ -1,0 +1,1 @@
+Artículo 51.—Trámite de las denuncias: El (la) auditor (a) interno (a) deberá evaluar si le dará trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la República para lo cual deberá considerar entre otros, la importancia o impacto del estudio, los recursos disponibles en la Auditoría Interna.

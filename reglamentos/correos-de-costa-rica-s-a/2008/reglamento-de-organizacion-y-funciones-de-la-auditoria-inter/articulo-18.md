@@ -1,0 +1,1 @@
+Artículo 18.—Plazas de Auditoría: Las plazas vacantes que por cualquier razón tengan lugar en los puestos de Auditoría Interna, deberán llenarse en un plazo máximo de tres meses contados a partir del momento de la plaza vacante.

@@ -1,0 +1,1 @@
+Artículo 31.—Servicios de advertencia: La Auditoría Interna deberá advertir a la Administración de Correos de Costa Rica S. A., incluyendo a la Junta Directiva, sobre las posibles consecuencias de determinadas conductas o decisiones cuando sean de su conocimiento.
