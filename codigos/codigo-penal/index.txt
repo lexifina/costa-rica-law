@@ -361,6 +361,7 @@ articulo-343.md
 articulo-343-bis.md
 articulo-344.md
 articulo-345.md
+articulo-345-bis.md
 articulo-346.md
 articulo-347.md
 articulo-348.md
