@@ -1,0 +1,1 @@
+Artículo 22.—Comprobada la provisión de fondos, la Unidad de Recursos Humanos recomendará a la Comisión de Becas la aprobación de la misma en la Sesión siguiente al día en que se recibió la solicitud.
