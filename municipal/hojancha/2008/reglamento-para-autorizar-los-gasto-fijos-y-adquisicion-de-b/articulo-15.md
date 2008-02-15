@@ -1,0 +1,1 @@
+15.—En casos de contratación o adquisición de bienes y servicios que superen el monto establecido en el artículo 2 que señala el artículo anterior de este Reglamento, es necesario para la sana y correcta administración y debido control interno, pedir al menos tres cotizaciones como mínimo; deberán solicitarse en forma escrita y deberá constar en el expediente respectivo.

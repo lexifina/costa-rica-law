@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad todos los años en el mes de enero deberá publicar en el Diario Oficial La Gaceta, la invitación a inscribirse como proveedores en el Registro de Proveedores de la Municipalidad de Hojancha.
