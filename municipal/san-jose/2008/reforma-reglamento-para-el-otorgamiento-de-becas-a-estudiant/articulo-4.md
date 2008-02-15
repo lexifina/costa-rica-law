@@ -1,0 +1,4 @@
+Artículo 4º—Refórmase los incisos a) y c) del artículo 9º del Reglamento para el otorgamiento de becas a estudiantes de primaria y secundaria del cantón de San José, cuyos textos dirán:
+“Artículo 9º—De la asignación de los recursos presupuestarios:
+a) Para las becas de educación primaria y secundaria a habitantes del cantón, anualmente se hará una asignación presupuestaria que posibilite al menos la concesión de 600 becas. De estas 250 serán para primaria y 350 para secundaria.
+b) Toda beca importa una remuneración mensual, cuyo monto será igual al 5% del salario base establecida en la Ley 7337 que corresponde al monto equivalente al salario base mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, y se entregará durante todos los meses del año lectivo.
