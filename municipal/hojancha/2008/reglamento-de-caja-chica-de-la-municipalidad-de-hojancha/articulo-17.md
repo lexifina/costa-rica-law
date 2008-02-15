@@ -1,0 +1,1 @@
+Artículo 17.—Para la liquidación del adelanto que sea reintegrado sin ser utilizado por el funcionario que lo solicitó, deberá indicar al reverso del formulario las razones que tuvo para no efectuar la compra.
