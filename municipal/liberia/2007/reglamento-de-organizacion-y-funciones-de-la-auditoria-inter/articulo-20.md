@@ -1,0 +1,8 @@
+SECCIÓN E.
+De la asignación y administración de los recursos.
+Artículo 20.—Asignación de Recursos. La Auditoría Interna contará con la organización y recursos necesarios y suficientes para cumplir su gestión.
+De conformidad con lo dispuesto en el artículo 27 de la Ley General de Control Interno, El Concejo Municipal asignará dentro de sus disponibilidades presupuestarias, los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoria Interna pueda cumplir su gestión.
+Para efectos presupuestarios, se dará a la Auditoria Interna una categoría programática. En la asignación y disposición de sus recursos, se tomará en cuenta el criterio del Auditor Interno y las instrucciones que emita al respecto la Contraloría General de la República.
+El Auditor Interno propondrá al Concejo Municipal, la creación de las plazas y servicios que considere indispensables para el cumplimiento del Plan Anual de la Auditoría y, en general, para el buen funcionamiento de su unidad, todo ello con el fin de mantener un efectivo liderazgo en la protección de la Hacienda Pública, en el ámbito de su competencia.
+De presentarse serias limitaciones, que afecten el cumplimiento de la labor asignada a la Auditoría Interna, el Auditor Interno deberá comunicar y fundamentar esta situación ante El Concejo Municipal, para su oportuna atención.
+Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la Auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, deberá informar Concejo Municipal del riesgo que está asumiendo y de la eventual imputación de responsabilidad que esta situación puede generarle.

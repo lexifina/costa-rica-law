@@ -1,0 +1,1 @@
+Articulo 35.—En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto en los artículos 35,36, 37 y 38 de la Ley General de Control Interno, y lo dispuesto en el “Manual para el ejercicio de la Auditoría Interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”.

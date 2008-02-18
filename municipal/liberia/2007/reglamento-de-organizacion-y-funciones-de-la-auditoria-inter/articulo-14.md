@@ -1,0 +1,1 @@
+Artículo 14.—El Auditor Interno dependerá y responderá directamente ante el Concejo Municipal y solo podrá ser removido del cargo por justa causa, conforme al artículo 52 del Código Municipal, en estricta observancia a lo dispuesto en el artículo 31 de la Ley General de Control Interno y 15 de la Ley Orgánica de la Contraloría General de la República.

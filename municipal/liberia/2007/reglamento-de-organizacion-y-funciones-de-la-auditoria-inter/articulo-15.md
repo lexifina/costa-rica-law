@@ -1,0 +1,1 @@
+Articulo 15.—La Auditoría Interna contará con un Auditor Interno y el personal asistente necesario, los cuales deberán poseer los requisitos profesionales idóneos para el cabal cumplimiento de sus funciones, así como los conocimientos suficientes sobre las disposiciones legales contenidos en el Régimen Municipal, y la Administración Pública.
