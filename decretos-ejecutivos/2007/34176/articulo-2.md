@@ -1,0 +1,1 @@
+Artículo 2º—Es responsabilidad de la administración activa del Fondo Forestal, el cumplimiento del Decreto Ejecutivo Nº 32452-H, publicado en La Gaceta Nº 130 del 6 de julio de 2005 y sus reformas, así como lo dispuesto en el artículo 6º de la Ley Nº 8131, publicada en La Gaceta Nº 198 del 16 de octubre de 2001 y sus reformas.
