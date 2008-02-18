@@ -88,3 +88,4 @@ INDICADORES DE RESULTADOS:
 3. Porcentaje de niños atendidos en el servicio de atención y protección diaria con relación a la población potencial de 0 a 13 años.
 (Modificado por el artículo 1° del decreto ejecutivo N° 34304 del 07 de enero de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34261 del 15 de enero de 2008).
+(Modificado por el artículo 1° del decreto ejecutivo N° 34311 del 22 de enero de 2008).
