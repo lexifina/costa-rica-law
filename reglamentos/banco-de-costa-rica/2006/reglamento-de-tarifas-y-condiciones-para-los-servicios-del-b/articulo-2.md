@@ -1,62 +1,112 @@
-II.—Custodias
-3)
-a- Custodia Física de valores: Servicio que se brinda para el depósito, cuidado y conservación de valores físicos.
-De 0 hasta $12.500,00 | $5,00 mensual
-De $12.501,00 hasta $50.000,00 | 0,50% anual
-De $50.001,00 hasta $100.000,00 | 0,45% anual
-De $100.001,00 hasta $250.000,00 | 0,40% anual
-De $250.001,00 hasta $1.000.000,00 | 0,30% anual
-De $1.000.001,00 hasta $10.000.000,00 | 0,20% anual
-Mayor a $10.000.001,00 | 0,15% anual
-Cobrados mensualmente por adelantado.
-Para Pensionados Rentistas 0,25% anual sobre el principal.
-3)
-b. Custodia y administración de documentos en garantía:
-Custodia física de documentos dados en garantía al Banco en operaciones de crédito, que incluye el proceso de administración, según los términos aprobados, excepto cuando la garantía sean títulos valores.
-Comisión del 1,5% anual sobre el monto o saldo del crédito, debitando de una cuenta corriente o de ahorros del cliente la parte proporcional en forma mensual.
-4) Custodia de objetos en paquetes cerrados, que corresponden a bienes extraídos de Cajitas de Seguridad que deben desocuparse por falta de uso o de pago del cliente.
-Por bulto de 3,000 cm3 o menos $100,00 anuales.
-Por cm3 adicional $0,05 o su equivalente en colones.
-Máximo de $500,00 anual por bulto.
-*Custodio electrónico:
-Tarifas custodio local:
-Desde | Hasta | % | Periodicidad
-0 | 11,000,000.00 | 178.75 | Mensual
-11,000,001.00 | 31,500,000.00 | 0.004290% | Mensual
-31,500,001.00 | 78,260,000.00 | 0.001815% | Mensual
-78,260,001.00 | 250,000,000.00 | 0.000539% | Mensual
-250,000,001.00 | | 0.000484% | Mensual
-Tarifas Custodia Internacional: 0.0033% x Promedio de Saldos al final del mes.
-(*Así adicionado mediante sesión N° 10 del 26 de febrero de 2007)
-*Servicios Custodia Local:
-Movimiento | Costos USD$
-Traspasos | 0.50
-Cancelaciones Físicas | 1.10
-Cancelaciones desmaterializadas | 0.66
-Entrada de Valores Físicos | 0.55
-Salidas | 1.76
-Traspasos no Oneroso | 50.00
-Certificaciones | 5.00
-Certificaciones para Auditores | 15.00
-Pago de Redenciones por evento | 0.50
-Pignoración / Despignoración | 15.00
-(*Así adicionado mediante sesión N° 10 del 26 de febrero de 2007)
-*Servicios Custodia Internacional:
-Servicios Internacionales en USD$
-Liquidación | Entrega libre de pago | Entrega contra pago | Recibo contra pago | Transferencia de efectivo | Ingreso de Fondos
-Clersteam | 16.25 | 16.25 | 16.25 | 21.50 | 9.00
-Deutche Bank | 25.00 | 25.00 | 25.00 | 25.00 | 25.00
-(*Así adicionado mediante sesión N° 10 del 26 de febrero de 2007)
-*Comisión Medios Magnéticos.
-Servicio que se brinda para el depósito, cuidado y conservación de los medios magnéticos.
-Estos espacios se alquilarán por mes adelantado.
-Tipo de estante | Centímetros cúbicos | Tarifa mensual
-1 | 30,720 | $ 21
-2 | 106,875 | $ 71
-3 | 201,600 | $ 134
-(*Así adicionado mediante sesión N° 10 del 26 de febrero de 2007)
-*Comisión por transacción de medios magnético.
-Se cobrará $2.00 para cada transacción (puede implicar sustitución de una o varias cintas).
-Transacción se refiere a cada visita realizada por las empresas para sustituir cintas, diskettes, etc., por otras. Si una empresa sustituye estos
-artículos en distintas horas del día, la comisión por cobrar sería el número de visitas que hiciera por los $2.00.
-(*Así adicionado mediante sesión N° 10 del 26 de febrero de 2007)
+II Productos de captación
+1. Cuentas corrientes con saldos promedios mensuales menores a $350.00.
+1- Saldo menor a $350.00 – Giro hasta 5 cheques, s/ exceso de giro ¢500.00 c/u
+2- De $350.00 a $2.350,00 – Giro hasta 10 cheques, s/ exceso de giro ¢500.00 c/u.
+3- Saldo Superior a $2.350,00 – Giro de 15 cheques por cada $2.350,00 de promedio mensual por cliente, s/ exceso ¢500.00 c/cheque girado de más según cantidad permitida producto del saldo promedio mensual.
+2. Órdenes de no pago de cheques y depósitos a plazo
+Cheques ¢2.100,00
+Depósitos a plazo ¢3.700,00
+3. Cierre de cuentas motivo del extravío de cheques | ¢5.200,00
+4. Certificación de cheques colones y dólares | ¢7.800,00
+5. Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras | ¢10.400,00
+6. Cargos enviados a clientes y devueltos por dirección errónea ¢500.00
+7. Nota de débito generada por la devolución de un cheque defectuoso (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 22 de este mismo Capítulo) ¢1.600,00
+8. Apertura nuevas cuentas corrientes |
+Apertura por extravío fórmulas en blanco | ¢7.800,00
+Chequera robada o perdida | ¢7.800,00
+Cuentas cerradas por decisión del Banco o saldo insoluto | ¢5.200,00
+9. Chequeras |
+Colones y Dólares | ¢3.100,00
+10. Traspaso de fondos entre cuentas corrientes y de ahorros manualmente en las Plataformas | ¢2,600.00 por cada traspaso
+11. Cuentas Corrientes Inactivas.
+Saldos inferiores a $20.00 (Cuentas en colones)
+Saldos inferior $ 50.00 (Cuentas en Dólares)
+Cuentas corrientes y de ahorro inactivas (180 días de inactividad):
+Saldos inferiores a $20.00 (Cuentas en colones) ¢1.000,00 c/ mes hasta su liquidación
+Saldos inferior $ 50.00 (Cuentas en Dólares) ¢1.600,00 c/ mes hasta liquidación.
+12. Buzón Continuo
+Bolso ¢9.400,00
+Llave ¢3.900,00
+13. Confección planillas
+Confección y entrega ventanilla 1.50% sobre el monto. Mínimo ¢10,400.00
+Confección y envío por transportadora de valores ¢9,400.00 la confección
+El envío de acuerdo a la tarifa con la empresa transportadora.
+14. Por cada cheque que giren los Intermediarios Financieros (Bancos Privados, Empresas Financieras no Bancarias, Cooperativas de Ahorro y Crédito, Mutuales y Puestos de Bolsa)
+¢1.000,00 suma que se cobrará el primer día hábil del mes siguiente.
+Esta tarifa será ajustada semestralmente.
+15. Cobro de una comisión sobre el monto de cada cheque o transferencia cambiada en efectivo, contra cuentas corrientes que mantengan los Intermediarios Financieros con la Institución en dólares y colones. 0.35 % sobre el monto.
+16. Giro sobre otros valores (fondos utilizados respaldados en otros valores)
+0.07% sobre los fondos utilizados en moneda nacional
+0.03% sobre recursos en moneda extranjera
+17.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente por medio de cheques)
+0.10 % sobre los fondos utilizados en moneda nacional
+0.05 % sobre los fondos utilizados en moneda extranjera.
+18. Retiro de efectivo en ventanilla, pensionados de la CCSS.
+¢100.00 Por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
+19. Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
+¢1.000,00 por transacción, montos superiores a ¢5.000,00
+20. Cancelación Anticipada CDP´s Desmaterializados y Electrónicos Colones y Dólares
+50% de la tasa vigente del día de la cancelación para el plazo original del CDP.
+21. Estados de cuenta corriente. ¢1,000.00 máximo 3 folios, s/ excesos ¢300.00 p/ folio
+22. Cheques rechazados por insuficiencia de fondos colones y dólares
+¢10.400,00 *Los empleados deberán pagar el 100%.
+23. Traspaso de Operaciones de cobro administrativo a cobro judicial
+1.5% s/ el total adeudado de cada operación
+Mínima ¢10,400.00
+Máxima ¢62,600.00
+24. Venta de Cheques de Gerencia | ¢5.200,00
+25. Recolección depósitos especiales en cuenta corriente |
+Hasta $ 7.000.00 cobrar la suma de | ¢3.100,00 Remeseras propias ¢4.200,00 Remeseras privadas
+Sobre el exceso se aplicará la siguiente fórmula Temporalmente | ¢1.000,00 por cada $3.500,00
+26. Comisión para la recepción de efectivo para Instituciones del Sector Financiero
+Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios
+Colones | Comisión por millón
+Denominación | Oficina Central y Oficinas Regionales
+Billetes ¢ | Billetes ¢: | Comisión ¢
+1.000 | 1.000 | 2.100,00
+2.000 | 2.000 | 1.600,00
+5.000 | 5.000 | 500,00
+10.000 | 10.000 | 500,00
+Dolares | Comisión por millón
+Denominación | Oficina Central, GAM y Oficinas Regionales NORTE Y SUR
+Billetes $ | Billetes $ | Comisión
+1 | 1 | ¢18.300,00
+2 | 2 | ¢15.600,00
+5 | 5 | ¢13.000,00
+10 | 10 | ¢13.000,00
+20 | 20 | ¢13.000,00
+50 | 50 | ¢10.400,00
+100 | 100 | ¢10.400,00
+27- Comisión para la entrega de efectivo para Instituciones del Sector Financiero
+Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR
+Colones | Comisión por millón
+Denominación | Denominación | Oficina Central GAM | Oficinas Regionales, ZN Y ZS
+Billetes ¢ | Billetes ¢ | Comisión | Comisión
+1.000 | 1.000 | ¢3.100,00 | ¢3.700,00
+2.000 | 2.000 | ¢1.600,00 | ¢1.600,00
+5.000 | 5.000 | ¢800.00 | ¢800.00
+10.000 | 10.000 | ¢300.00 | ¢800.00
+Para monedas | Monedas ¢ | ¢500 por bolsa | ¢1.000,00 por bolsa
+Dólares | Comisión por cada dólar
+> $0.00 < $1.0 millón | ¢700.00
+> $1.0 millón < $3.0 millones | ¢400.00
+De $3.0 millones en adelante | ¢300.00
+28. Comisión por sobregiros accidentales
+Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
+Mínimo ¢5.200,00
+** Los empleados deberán pagar el 100% de estas tarifas.
+29. Informe Confidenciales | ¢2.100,00 para personas físicas y jurídicas
+30. Reposición de comprobantes de operaciones canceladas | ¢2.100,00 cada uno
+31. Aplicación de embargo judicial | ¢2.100,00
+32. Impresión de un desmaterializado. |
+Comisión administrativa | ¢2.600,00
+a. Para materializarlo es necesario aplicar la anulación del CDP.
+b. Emitir un nuevo CDP físico, con las mismas características del anulado, tales como fecha de emisión, plazo, dueño.
+c. Si el CDP anulado tenía asignado algún plus de tasa la pierde, pues la emisión del nuevo CDP físico, el sistema le asigna la tasa vigente de este tipo de CDP en esa fecha de emisión.
+d. El cobro de la comisión
+33. Reposición de Títulos, Certificados y Bonos.
+Reposición certificados de depósito: 0.25% sobre el valor del título con un mínimo de ¢3.900,00 y un máximo de ¢38.700,00
+34. Fraccionamiento de certificado de depósito a plazo. | ¢3.900,00 por cada fracción
+35. Certificación o constancia de operación cancelada. | ¢6.300,00 cada una
+36. Movilización de efectivo
+¢1.000,00 por cada depósito que realicen clientes de otras instituciones financieras que se compruebe que están utilizando la infraestructura del Banco.
