@@ -1,0 +1,2 @@
+Artículo 11.—Del uso del servicio Roaming Internacional. Se autoriza a la Administración del Banco y de las Sociedades Anónimas para contratar el Servicio Roaming Internacional para el uso durante actividades oficiales fuera del país de los funcionarios y funcionarías en las condiciones que se detallan en los siguientes artículos.
+(Así adicionado mediante sesión N° 4552 del 18 de febrero del 2008)
