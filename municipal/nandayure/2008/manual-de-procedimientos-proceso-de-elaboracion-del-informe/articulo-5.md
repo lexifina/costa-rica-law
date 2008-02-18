@@ -1,0 +1,1 @@
+5º—Consecuente con lo antes expuesto, es necesario que los Informes de Liquidación Presupuestaria se elaboren en las fechas establecidas y se presenten ante los entes externos, conforme las prescripciones establecidas en cuanto a fecha y contenido.

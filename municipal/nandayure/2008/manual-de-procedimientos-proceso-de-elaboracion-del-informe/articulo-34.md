@@ -1,0 +1,2 @@
+Remisión de liquidación presupuestaria a Contraloría General de la República y otros entes fiscalizadores del Estado
+34.—Una vez aprobado por el Concejo Municipal el documento de liquidación presupuestaria, será remitido a la Contraloría General de la República y demás Entes Contralores y Fiscalizadores del Estado, conforme a la normativa. (Primera o segunda semana de febrero). (Responsable: Alcaldía Municipal, Secretaría del Concejo).

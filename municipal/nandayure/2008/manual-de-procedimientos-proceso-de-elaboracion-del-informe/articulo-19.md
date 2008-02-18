@@ -1,0 +1,1 @@
+19.—En la segunda semana del mes de enero, se preparará de conformidad con el informe presupuestario y el modelo electrónico dado por la Contraloría General o el que la institución disponga, la liquidación de saldos específicos.

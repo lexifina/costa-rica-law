@@ -1,0 +1,1 @@
+15.—A partir del primer día hábil del mes de enero, se inicia el cierre fiscal, elaborando el Informe del IV trimestre de la ejecución de los ingresos y egresos, con una duración de una semana para ejecutar el proceso. Responsable: Contabilidad.

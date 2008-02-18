@@ -1,0 +1,1 @@
+22.—De acuerdo a la estructura presupuestaria y los resultados del ejercicio, en la segunda semana de enero, se formulará un reporte de ingresos de acuerdo a la clasificación oficial de los mismos. Responsables: Contabilidad y Tesorería.

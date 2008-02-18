@@ -1,0 +1,1 @@
+3º—Las Liquidaciones Presupuestarias constituyen un elemento importante dentro del proceso presupuestario ya que permite retroalimentar y ajustar el mecanismo de estimación de futuros ingresos y gastos según el comportamiento real observado en la Institución.

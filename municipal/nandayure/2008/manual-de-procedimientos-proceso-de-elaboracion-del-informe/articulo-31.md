@@ -1,0 +1,1 @@
+31.—En el SIPP se digitará por la persona encargada los informes de ejecución presupuestaria, el informe de ejecución presupuestaria de la liquidación. Esto, en la tercera semana hábil de enero Responsable: Contabilidad.

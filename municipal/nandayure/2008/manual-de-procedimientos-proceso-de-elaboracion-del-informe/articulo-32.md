@@ -1,0 +1,1 @@
+32.—El validador (Tesorería) revisa la información digitada en el SIPP (sistema de Presupuestos públicos) de la Contraloría General de la República y realiza la aplicación de la información en caso de ser satisfactoria la revisión, caso contrario devolver al Encargado de digitación para su corrección inmediata y posterior repetición del proceso. Cuarta semana del mes enero.
