@@ -1,0 +1,13 @@
+No 34304-H
+EL PRESIDENTE DE LA REPUBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) Y 146 de la Constitución Política; los articulos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley No. 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas; su Reglamento, el Decreto Ejecutivo No. 32988-H-MP-PLAN de 31 de enero de 2006 y sus reformas; la Ley No. 7755, Ley de Control de las Partidas Especificas con Cargo al Presupuesto Nacional de 23 de febrero de 1998 y sus reformas; y la Ley No. 8627, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2008 de 7 de diciembre de 2007.
+Considerando:
+1- Que el inciso b) del articulo 45 de la Ley No. 8131, publicada en La Gaceta No. 198 de 16 de octubre de 2001 y sus reformas, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo articulo, de acuerdo con la reglamentación que se dicte para tal efecto.
+2- Que mediante el Decreto Ejecutivo No. 32988-H-MP-PLAN, publicado en La Gaceta No. 74 de 18 de abril de 2006 y sus reformas, se establece la normativa técnica, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3- Que el articulo 61 del Decreto Ejecutivo No. 32988-H-MP-PLAN, autoriza para que mediante decreto ejecutivo elaborado por el Ministerio de Hacienda, se realicen traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratara, sin modificar el monto total de los recursos asignados al programa.
+4- Que el articulo 6 de la Ley No. 7755, publicada en La Gaceta No. 55 de 19 de marzo de 1998 y sus reformas, autoriza la variación de las partidas específicas incorporadas en los proyectos de presupuestos públicos a propuesta de las municipalidades.
+5- Que las Municipalidades del país, han solicitado la confección del presente decreto, cumpliendo en todos los extremos con lo dispuesto en la normativa técnica y legal vigente.
+Por tanto,
+Decretan:
+Articulo 1°._ Modificase el articulo 2° de la Ley No. 8627, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2008, publicada en el Alcance No. 41 a La Gaceta No. 251 de 31 de diciembre de 2007, en la forma que se indica a continuación:
+Por lo extenso de su contenido y tipo de formato, ver Alcance N° 11 a La Gaceta N° 34 del 18 de febrero de 2008.
