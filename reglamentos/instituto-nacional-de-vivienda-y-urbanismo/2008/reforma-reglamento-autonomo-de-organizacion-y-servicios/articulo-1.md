@@ -1,0 +1,7 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN Y SERVICIOS
+MODIFICACIONES
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo en sesión ordinaria Nº 5658, artículo II, inciso 4) celebrada el día 8 de febrero del 2008 acordó: reformar el artículo 10 del Reglamento Autónomo de Organización y Servicios, para que en lo sucesivo se lea de la siguiente manera:
+“Inciso bb) Observar el fiel cumplimiento de todos los principios y disposiciones contempladas en la Ley Sobre Igualdad de Oportunidades para las Personas con Discapacidad, Nº 7600, de 29 de mayo de 1996 y su Reglamento.
+Inciso cc) Dar cumplimiento oportuno a los acuerdos de Junta Directiva. El funcionario que sin justificación alguna y en un plazo mayor al estipulado o en su defecto en el término de 30 días, contados a partir de la comunicación, no rinde la debida atención a los acuerdos de Junta Directiva, será sancionado con amonestación, suspensión o despido, según la gravedad del incumplimiento. Cuando un funcionario sea amonestado por el motivo aquí señalado y vuelva a incurrir en incumplimiento será suspendido sin goce de salario, en caso de reincidencia podrá ser objeto de despido. Lo indicado sin perjuicio de que según la gravedad de la falta se proceda a la aplicación directa de la suspensión o despido sin responsabilidad patronal. En la aplicación de las medidas disciplinarias se deberá respetar los principios de derecho de defensa y debido proceso”. Rige a partir de su publicación.
+San José, 11 de febrero del 2008
