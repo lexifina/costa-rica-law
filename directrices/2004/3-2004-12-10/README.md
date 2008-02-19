@@ -14,3 +14,4 @@ Directrices para el fortalecimiento del control en la gestión pública (Sobre v
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-20 | la propia norma |
+| 2 | 2008-02-19 | Resolución 9 (2008-02-19) |
