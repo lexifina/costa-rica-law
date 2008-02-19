@@ -1,0 +1,1 @@
+Artículo 85.—El estudiante debe presentar los documentos que la Comisión de Becas le solicite, a fin de verificar la información que ha servido de base para la asignación del beneficio y comprobar que su rendimiento académico se ajusta a los requerimientos establecidos en este reglamento.

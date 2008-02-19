@@ -1,0 +1,1 @@
+Artículo 103.—En caso de enfermedad, accidente grave o muerte comprobado mediante dictamen médico corroborado por el médico de JAPDEVA, que ocasione la suspensión o impida la conclusión de los estudios, JAPDEVA no exigirá la devolución del dinero invertido.

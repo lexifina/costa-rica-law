@@ -1,0 +1,2 @@
+Artículo 74.—Los beneficiarios deberán suscribir con la Institución, un contrato de estudio que regula las cláusulas anteriores del presente Reglamento. (En caso de beneficiarios menores de edad antes de la firma del contrato el encargado de Becas convocará a una reunión para informar a los padres o encargados del mismo).
+Para la firma del contrato la Oficina de Becas convocará al beneficiario así como sus padres o encargados para que conozcan los compromisos que implican las cláusulas anteriores, quienes suscriben en forma solidaria el contrato de estudio respectivo.

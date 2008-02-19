@@ -1,0 +1,1 @@
+Transitorio 2º—Los trabajadores independientemente del puesto de trabajo que deseen participar en estudios Doctorados deberán fundamentar su solicitud con estudios realizados por el departamento de Recursos Humanos y de Planificación, que demuestren que JAPDEVA tiene necesidad de formar personal en este nivel.

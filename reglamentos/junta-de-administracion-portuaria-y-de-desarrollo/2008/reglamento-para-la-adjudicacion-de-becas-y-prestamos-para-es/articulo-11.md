@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión de Becas remitirá las solicitudes evaluadas al Consejo de Administración de JAPDEVA, este analizará cada caso y aprobará o improbará la o las solicitudes de becas reembolsables o no reembolsables para estudio.

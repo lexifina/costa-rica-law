@@ -1,0 +1,1 @@
+Artículo 43.—La aceptación de una beca parcial para estudio implica la obligación del beneficiario y de sus fiadores de rembolsar a la institución, en caso de incumplimiento, en mensualidades iguales y consecutivas, el monto total de los auxilios económicos recibidos, a partir de seis meses después de la fecha de finalización de los estudios.

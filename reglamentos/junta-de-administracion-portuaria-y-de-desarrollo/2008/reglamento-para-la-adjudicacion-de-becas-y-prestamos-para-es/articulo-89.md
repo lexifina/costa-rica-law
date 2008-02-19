@@ -1,0 +1,1 @@
+Artículo 89.—Los estudiantes que suministren datos falsos, oculten información o no notifiquen de las mejoras en su situación socio-económica en tiempo, perderán el derecho al préstamo para estudio, obligándose a cancelarlo de inmediato, con el pago de los intereses respectivos.

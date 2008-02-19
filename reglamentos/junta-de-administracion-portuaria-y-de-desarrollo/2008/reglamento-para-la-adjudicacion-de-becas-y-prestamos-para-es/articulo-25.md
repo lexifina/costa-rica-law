@@ -1,0 +1,2 @@
+Artículo 25.—Tendrán derecho a esta beca, los funcionarios que haya trabajado durante un período continuo mínimo de cinco años con JAPDEVA, y que hayan desempeñado su trabajo con probada eficiencia, constancia, disciplina y que deseen continuar contribuyendo al desarrollo institucional.
+Antes del disfrute de esta beca todo funcionario deberá firmar un contrato. Corresponderá al Departamento de Recursos Humanos certificar el desempeño y disciplina del trabajador interesado en una beca.

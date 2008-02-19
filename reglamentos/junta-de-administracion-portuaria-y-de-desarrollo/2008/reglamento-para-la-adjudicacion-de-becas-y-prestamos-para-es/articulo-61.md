@@ -1,0 +1,1 @@
+Artículo 61.—Esta beca consiste en asignar una suma mensual equivalente a ciento cincuenta dólares americanos ($150.00) para cubrir los costos de matrícula y materia de una Carrera Profesional completa, durante 5 años en un Centro de Estudio Superior. La suma citada podrá ser incrementada a juicio del Consejo de Administración, de previo a los estudios pertinentes.

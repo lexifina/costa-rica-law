@@ -1,0 +1,1 @@
+Artículo 39.—La adjudicación de las becas para estudios superiores será por un período máximo establecido en el Plan de Estudios de cada centro, salvo en aquellos casos que la Comisión de Becas por motivos extraordinarios previamente justificados decida recomendar al Consejo modificar el plazo.

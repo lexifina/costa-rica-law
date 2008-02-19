@@ -1,0 +1,1 @@
+Artículo 84.—En caso de que el beneficio del préstamo sea revocado por JAPDEVA por falta de aprovechamiento del beneficiario o por las demás razones que establezca el presente reglamento, la devolución de los dineros prestados deberá iniciarse de inmediato, con el pago de los intereses establecidos en el artículo anterior.

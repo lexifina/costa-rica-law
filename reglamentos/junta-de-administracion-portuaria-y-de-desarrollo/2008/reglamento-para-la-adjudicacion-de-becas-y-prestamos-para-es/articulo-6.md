@@ -1,0 +1,1 @@
+Artículo 6º—De la planificación para el otorgamiento de beca: La actividad de capacitación y formación tiene carácter global, y debe estar fundamentado en un diagnóstico de necesidades y capacitación a nivel institucional y regional de la provincia de Limón.

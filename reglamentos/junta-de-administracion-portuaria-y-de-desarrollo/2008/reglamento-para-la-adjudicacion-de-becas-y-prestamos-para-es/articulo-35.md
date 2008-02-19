@@ -1,0 +1,1 @@
+Artículo 35.—Para el disfrute de este permiso, se requiere la aprobación de la jefatura, la ratificación de la Gerencia respectiva y aprobación de la Consejo de Administración de JAPDEVA. Además el beneficiario deberá presentar el horario oficial de los cursos o estudios que realizará, de manera que se justifique claramente el permiso que se está solicitando.

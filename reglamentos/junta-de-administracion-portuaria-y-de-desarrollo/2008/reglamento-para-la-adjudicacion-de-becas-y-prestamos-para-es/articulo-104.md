@@ -1,0 +1,1 @@
+Artículo 104.—El otorgarle una beca al trabajador, no implica compromiso por parte la JAPDEVA de darle trabajo en el área correspondiente, ni reconocerle incentivos salariales una vez que obtenga su título profesional, hasta tanto que JAPDEVA tenga las plazas laborales disponibles, siendo prioridad para ocupar las plazas, el personal becado por la Institución.

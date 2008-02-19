@@ -1,0 +1,1 @@
+Artículo 58.—Los interesados en ser beneficiarios de este tipo de becas, deberán presentar a la Comisión de Becas los requisitos que dicho órgano colegiado establezca además de los indicados en el artículo 50 de este Reglamento.

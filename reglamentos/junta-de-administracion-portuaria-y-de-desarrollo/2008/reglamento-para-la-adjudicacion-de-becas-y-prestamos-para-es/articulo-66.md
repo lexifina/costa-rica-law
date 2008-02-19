@@ -1,0 +1,1 @@
+Artículo 66.—La información relativa a la Beca Especial se exhibirá en las vitrinas de los colegios, con una fotografía del señor Hernán Garrón Salazar, su biografía, una reseña histórica de JAPDEVA, igual que la biografía del estudiante becado del cantón, se le solicitará a los colegios que cada año incluya en las vitrinas las fotografías de los beneficiarios..

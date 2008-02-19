@@ -1,0 +1,1 @@
+Artículo 29.—Los empleados que se acojan a este plan de capacitación se regirán por las disposiciones del presente reglamento y deberán cumplir previamente con todos los requisitos exigidos por la institución y la firma del correspondiente contrato.

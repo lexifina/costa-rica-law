@@ -1,0 +1,1 @@
+Artículo 38.—Los becarios tendrán que presentar certificaciones o constancia de notas a la Oficina de Becas de JAPDEVA, en el caso de primaria y secundaria trimestralmente; y en los casos de estudios superiores, por cuatrimestre o semestralmente según sea el caso.

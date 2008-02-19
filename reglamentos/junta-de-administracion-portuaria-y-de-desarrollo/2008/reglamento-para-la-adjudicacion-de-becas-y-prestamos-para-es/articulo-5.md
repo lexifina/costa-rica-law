@@ -1,0 +1,1 @@
+Artículo 5º—De la actividad de capacitación y formación del personal: En el mes de abril de cada año, la Comisión Bipartita de Becas, evaluará las propuestas de capacitación del personal, tomando en consideración a los funcionarios que necesiten ampliar o recibir nuevos conocimientos para el desempeño óptimo de sus labores dentro de la institución.

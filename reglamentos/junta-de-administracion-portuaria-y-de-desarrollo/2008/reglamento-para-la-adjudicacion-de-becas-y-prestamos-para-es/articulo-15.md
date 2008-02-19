@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la comisión bipartita de becas
+Artículo 15.—De conformidad con el artículo 69 de la Convención Colectiva, se crea una Comisión Bipartita de Becas, conformada por dos miembros en propiedad representantes de la parte patronal y dos miembros en propiedad representantes de la parte sindical, la cual dictaminará y recomendará con respecto al otorgamiento de todos los beneficios contemplados en este Reglamento, cada una de las representaciones contará con un suplente. Del consenso de la Comisión, se elegirá un presidente que tendrá las facultades y atribuciones establecidas en el artículo 49 de la Ley General de la Administración Pública. El representante que injustificadamente se encuentre ausente durante tres sesiones ordinarias será destituido de su cargo.

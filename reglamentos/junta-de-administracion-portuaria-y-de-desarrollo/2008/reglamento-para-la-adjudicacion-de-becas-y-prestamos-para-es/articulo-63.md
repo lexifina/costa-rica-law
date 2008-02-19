@@ -1,0 +1,1 @@
+Artículo 63.—La Sección de Becas de JAPDEVA, informará a todos los Colegios de Estudios Secundaria (Académicos, Técnicos y Agropecuarios) de la provincia, a través del Departamento de Orientación de cada uno, sobre los procedimientos para la escogencia de los candidatos a la Beca Hernan Garrón Salazar.

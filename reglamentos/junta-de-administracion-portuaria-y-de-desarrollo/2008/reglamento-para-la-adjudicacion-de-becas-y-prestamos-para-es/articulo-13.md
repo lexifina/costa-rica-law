@@ -1,0 +1,1 @@
+Artículo 13.—Todo beneficiario que se acoja a este sistema de becas acepta expresamente el contenido de las disposiciones del presente reglamento, de esta forma deberá cumplir con todos los requisitos exigidos por la Comisión de Becas, y por el centro educacional o entidad encargada de impartir la enseñanza, además de suscribir un contrato con la institución (JAPDEVA).

@@ -1,0 +1,2 @@
+Artículo 23.—De previo a remitir al Consejo de Administración de JAPDEVA las solicitudes de becas, éstas serán trasladadas a la Dirección Administrativa Financiera y al Departamento Legal, para que emitan su dictamen favorable, respecto a si existe contenido presupuestario y se encuentran a derecho.
+Junto con la terna o nómina, la Comisión remitirá su dictamen y recomendación razonados, ponderando expresamente cada uno de los aspectos que contempla el artículo 29 de este reglamento, para todos los concursantes.

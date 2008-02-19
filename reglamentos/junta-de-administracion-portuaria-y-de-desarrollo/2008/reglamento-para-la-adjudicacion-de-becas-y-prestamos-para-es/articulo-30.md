@@ -1,0 +1,1 @@
+Artículo 30.—Tratándose de cursos por periodos iguales o mayores de un mes, el beneficiario deberá firmar contrato, donde se establecerá la obligación de regresar al trabajo y compensar su tiempo de estudio, conforme lo establece la Ley 1810 y sus reformas, y Decreto Ejecutivo 15302 del 27 de marzo de 1984.

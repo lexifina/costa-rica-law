@@ -1,0 +1,1 @@
+Artículo 106.—La planificación referente al artículo 7 inciso a) del presente Reglamento, deberá ser suministrada por el departamento de Planificación y de Recursos Humanos en forma coordinada, como insumo a la Comisión de Becas.

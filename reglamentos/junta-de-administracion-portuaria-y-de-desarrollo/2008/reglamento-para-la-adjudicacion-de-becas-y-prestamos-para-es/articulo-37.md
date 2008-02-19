@@ -1,0 +1,1 @@
+Artículo 37.—Para la adjudicación de toda beca parcial administrativa , será requisito indispensable, cumplir con las exigencias de rendimiento académico indicado en el artículo 53 inciso e) de este Reglamento.

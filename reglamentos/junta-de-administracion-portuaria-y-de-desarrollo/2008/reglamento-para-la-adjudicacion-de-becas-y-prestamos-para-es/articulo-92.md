@@ -1,0 +1,1 @@
+Artículo 92.—El deudor (becario) autoriza a JAPDEVA para que en caso de incumplimiento de contrato y de pago respectivamente, se deduzca de su salario lo correspondiente a las cuotas mensuales de amortización y la aplicación de intereses moratorios. (Véase artículo 94 inciso 5).

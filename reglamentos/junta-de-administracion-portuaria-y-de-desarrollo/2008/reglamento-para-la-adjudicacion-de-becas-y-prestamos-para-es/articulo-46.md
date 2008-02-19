@@ -1,0 +1,3 @@
+Artículo 46.—De los beneficiarios del sistema: Podrán disfrutar del beneficio de becas, solo los trabajadores que se encuentren en plaza en propiedad y que tengan un año de laborar ininterrumpidamente en JAPDEVA.
+Tendrán prioridad para participar en el programa de capacitación y formación, aquellos trabajadores que más lo requieran para la atención de sus tareas y/o cuando se desee suplir alguna necesidad de interés institucional.
+Todo beneficiario que se acoja a este sistema de beca acepta expresamente el contenido de las disposiciones del presente reglamento y deberá cumplir todos los requisitos exigidos por la Comisión de Becas, y ajustarse al programa de estudios que se le aprueba.

@@ -1,0 +1,1 @@
+Artículo 99.—El servidor que incumpliere los deberes u obligaciones de cualesquiera de los contratos que establece este Reglamento por causa evidentemente imputable a él, podrá quedar excluido de los respectivos beneficios hasta por tres años, previo dictamen de la Comisión de Becas y garantizando el derecho de defensa. Control que llevará a cabo la Oficina de Becas.

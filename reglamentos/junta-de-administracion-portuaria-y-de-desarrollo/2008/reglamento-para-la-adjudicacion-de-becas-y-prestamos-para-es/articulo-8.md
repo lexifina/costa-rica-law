@@ -1,0 +1,1 @@
+Artículo 8º—De los recursos del programa de becas: El sistema de becas será financiado con los recursos destinados en el presupuesto ordinario de la institución para esos fines específicos. La asignación de presupuesto de un año no podrá ser inferior a la del año anterior.

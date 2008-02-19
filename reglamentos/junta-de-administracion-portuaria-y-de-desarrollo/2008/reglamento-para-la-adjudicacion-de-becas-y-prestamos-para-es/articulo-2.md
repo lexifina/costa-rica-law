@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones generales
+Artículo 2º—Del régimen legal: Con fundamento en su Ley Constitutiva en su artículo 2, su Reglamento Interno de Trabajo y el artículo 69 de la Convención Colectiva de Trabajo, la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) establece el presente Reglamento para la adjudicación de becas y préstamos para estudio con el fin de regular la capacitación y formación de su personal y otras personas residentes de la provincia de Limón, a fin de garantizar el éxito de JAPDEVA como “promotor del desarrollo socioeconómico integral, rápido y eficiente” (Ley 5337 Artículo 2).

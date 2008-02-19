@@ -1,0 +1,1 @@
+Artículo 18.—La Oficina de Becas es la dependencia administrativa, técnica y ejecutora de las determinaciones que en materia de becas y subsidios se dicten, y deberá en cumplimiento de sus funciones coordinar con otras instancias de la Institución.

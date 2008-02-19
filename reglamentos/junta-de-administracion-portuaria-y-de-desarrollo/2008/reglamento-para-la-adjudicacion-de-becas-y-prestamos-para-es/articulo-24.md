@@ -1,0 +1,1 @@
+Artículo 24.—A la recomendación que la Comisión de Becas remite a conocimiento del Consejo de Administración, se adjuntará como mínimo, las solicitudes, el currículo de los interesados y la invitación del organismo que ofrece que contenga el plan de estudios, si la hubiera, lo mismo que la recomendación de adjudicación según el orden de excelencia de la lista de elegibles.

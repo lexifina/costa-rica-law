@@ -1,0 +1,1 @@
+Artículo 56.—Se capacitará en áreas como: Inglés, Informática, Turismo, y otras a través de Seminarios, Congresos, Pasantías y otros que la Comisión de Becas considere válidas para el apoyo administrativo y operativo y que además, responda a necesidades futuras de JAPDEVA y de la Región Huetar Atlántica.

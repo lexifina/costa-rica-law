@@ -1,0 +1,1 @@
+Artículo 64.—Se exigirá que la nota final de los candidatos sea el promedio simple, de los cinco o seis años de estudios secundarios cursados en la Provincia de Limón. En igualdad de promedio final simple, se optará por el estudiante que haya obtenido durante los dos últimos años, las mejores calificaciones.

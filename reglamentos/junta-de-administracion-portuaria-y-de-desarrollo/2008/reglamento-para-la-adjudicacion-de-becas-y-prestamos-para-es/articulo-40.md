@@ -1,0 +1,1 @@
+Artículo 40.—Todo beneficiario que se acoja a este sistema de beca acepta expresamente el contenido de las disposiciones del presente reglamento y deberá cumplir todos los requisitos exigidos por la Comisión de Becas, y por el centro educacional o entidad encargada de impartir la enseñanza.

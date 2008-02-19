@@ -1,0 +1,1 @@
+Artículo 41.—La beca parcial no reembolsable no se aplica al trabajador que se encuentre con permiso sin goce de salario, despedido o que renuncie voluntariamente a JAPDEVA. (véase artículo 45 incisos h), i) del presente Reglamento.

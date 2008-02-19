@@ -1,0 +1,1 @@
+Artículo 49.—Si el becario incurriera en alguna falta señalada en el artículo 47, se le excluirá definitivamente, debiendo cancelar el monto desembolsado por JAPDEVA y deberá incorporarse de inmediato a sus labores cuando se trata de permisos de tiempo completo.

@@ -1,0 +1,1 @@
+Artículo 69.—El estudiante tendrá que rendir informe de notas al final del período de estudios, ya sea por semestre o cuatrimestre, igualmente de su matrícula. Estos requisitos deberán ser remitidos a la Oficina de Becas, previo al inicio del próximo curso lectivo. El no rendir informe al final del período implica la suspensión automática de la beca para el período siguiente.

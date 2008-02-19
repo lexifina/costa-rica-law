@@ -1,0 +1,1 @@
+Artículo 102.—El incumplimiento de este Reglamento por parte de los beneficiarios y los funcionarios encargados de aplicarlo, se considera falta sancionable administrativamente de acuerdo con la gravedad del hecho, según lo establecido en el Reglamento Interior de Trabajo.

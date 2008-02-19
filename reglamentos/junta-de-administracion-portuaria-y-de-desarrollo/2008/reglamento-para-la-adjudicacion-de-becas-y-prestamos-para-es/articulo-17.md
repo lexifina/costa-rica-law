@@ -1,0 +1,5 @@
+Artículo 17.—Además de lo establecido en otros artículos de este reglamento, corresponderá a la Comisión Bipartita de Becas:
+a) Recomendar al Consejo de Administración de JAPDEVA los aspirantes a ser becarios, de acuerdo a las disposiciones de este reglamento y las políticas institucionales. Cuando el caso lo requiera, el Consejo de Administración podrá prescindir del procedimiento y dictamen de la Comisión de Becas, por motivo de urgencia, necesidad o interés institucional, razones que se harán constar en el acuerdo correspondiente.
+b) Proponer al Consejo De Administración los montos mensuales correspondientes a cada tipo de beca, así como el número de meses que corresponderá a cada una para cada ciclo lectivo, para lo cual tomará en consideración los elementos de costo de vida, valor de la matrícula y de los materiales didácticos, dicha propuesta deberá realizarla en el transcurso del mes de junio de cada año.
+c) Elaborar un instructivo donde se definan los procedimientos que normarán el funcionamiento de la Comisión.
+d) Conocer sobre cualesquiera otro asunto que el Consejo de Administración someta a su consideración.

@@ -1,0 +1,1 @@
+Artículo 65.—Para optar a esta Beca, el estudiante además de su excelencia académica deberá ser una persona disciplinada, con iniciativa, ordenado, puntual y de buenas costumbres. JAPDEVA se reservará los derechos de comprobar fehacientemente las cualidades y calidades antes mencionadas.

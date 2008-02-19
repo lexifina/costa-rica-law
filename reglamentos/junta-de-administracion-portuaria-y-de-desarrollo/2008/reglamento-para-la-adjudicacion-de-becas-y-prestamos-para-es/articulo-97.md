@@ -1,0 +1,1 @@
+Artículo 97.—Se tendrán por extinguidas las obligaciones y garantías contraídas con la Institución, cuando un funcionario que esté acogido a cualquiera de los beneficios de este Reglamento, falleciere o fuere incapacitado permanentemente, incluyendo ello la etapa de cumplimiento laboral.

@@ -1,0 +1,1 @@
+Artículo 21.—JAPDEVA, a través del Consejo de Administración definirá periódicamente un número determinado de becas administrativas, ya sea para iniciar o concluir disciplinas profesionales en áreas prioritarias para la Institución. Dicha cantidad la someterán las Gerencias o la Auditoria General a la Junta Directiva para su aprobación.

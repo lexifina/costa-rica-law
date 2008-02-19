@@ -1,0 +1,1 @@
+Artículo 72.—Una vez finalizado el tiempo lectivo, cada uno de los estudiantes deberá integrarse a las labores de la institución, preferiblemente en actividades acordes a su carrera, salvo que demuestre estar matriculado en cursos de verano, los cuales también serán cubiertos por JAPDEVA (el estudiante podrá descansar durante el mes de diciembre).

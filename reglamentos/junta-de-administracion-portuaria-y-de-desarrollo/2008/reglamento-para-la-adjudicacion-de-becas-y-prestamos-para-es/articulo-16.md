@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión bipartita de Becas se reunirá en forma ordinaria dos veces al mes. Cualquiera de sus miembros podrá convocar extraordinariamente cuando lo consideren necesario, por escrito y con al menos veinticuatro horas de antelación en casos de urgencia. En la última sesión ordinaria del mes, se fijarán los días y horas de las sesiones del mes siguiente.

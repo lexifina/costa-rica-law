@@ -1,0 +1,16 @@
+Artículo 94.—Todo contrato, además de especificar claramente su objeto, duración, forma de pago, estimación del monto y demás circunstancias especiales, contendrá los siguientes derechos y obligaciones para las partes:
+a) En cuanto a subsidios el beneficiario se obliga:
+1) A informar cada mes, trimestre, cuatrimestre o semestre, o anualmente, según el caso, sobre el desarrollo de sus estudios, enviando o presentando los atestados necesarios y la certificación de calificaciones.
+2) A concluir satisfactoriamente los estudios o cursos respectivos, lo cual deberá demostrar con documentos o título obtenido en un plazo máximo de tres meses a su finalización.
+3) En el caso de los funcionarios, a prestar sus servicios a JAPDEVA en forma regular, una vez concluidos los estudios, al menos por los plazos establecidos en el artículo 42 de este reglamento.
+4) En caso despido sin responsabilidad patronal, incumplimiento o cancelación del contrato por causa imputable al beneficiario, este reintegrará a la Institución todas las sumas desembolsadas por cualquier concepto, incluyendo el salario si hubiese gozado de beneficio. El beneficio de la beca se suspenderá temporalmente durante el tiempo que el trabajador se encuentre con permiso sin goce de salario.
+5) La devolución de dineros por parte del beneficiario se aplicará de manera inmediata, en cuotas mensuales iguales y consecutivas con base al monto total de los auxilios económicos recibidos.
+El monto de las cuotas mensuales se calculará dividiendo el total de las sumas giradas entre el número de meses, durante los cuales el beneficiario disfrutó del beneficio para estudio.
+El incumplimiento de tres pagos consecutivos dará derecho a la institución a tener por vencida la obligación, así como al cobro de un interés del 24 % anual moratorio sobre saldos y, de ser necesario, llevar el asunto a cobro judicial.
+6) El becario acepta las condiciones de firmar un pagaré o letra de cambio como garantía de cumplimiento por su compromiso de estudio.
+7) Si el Becario decide retirarse voluntariamente de la carrera de estudios, deberá reintegrar a JAPDEVA, mediante la rebaja por planilla, la totalidad del dinero invertido para sus estudios.
+8) La retribución de la beca por parte del trabajador por cancelación de contrato laboral, se hará efectiva mediante la rebaja del monto correspondiente de la liquidación a que el trabajador tiene derecho, según voluntad expresada por el trabajador.
+9) JAPDEVA deberá notificar al beneficiario sobre sus obligaciones económicas por concepto de resolución de contrato de estudios por parte del beneficiario tomando en cuenta los alcances de la Ley de Notificación No. 7637 del 21-10-1996 de primera vez para el acto administrativo.
+10) Cuando la separación del trabajador ocurra con responsabilidad patronal, se le eximirá al trabajador del reembolso.
+11)JAPDEVA se compromete a cumplir con el contrato de estudios del trabajador por el plazo determinado.
+12) Una vez finalizado el seminario, taller o curso respectivo, el beneficiario deberá brindar un informe escrito, sobre el impacto de la capacitación o estudios recibido; además de la réplica correspondiente, cuando de seminarios, talleres o similares se trate.
