@@ -1,0 +1,1 @@
+Artículo 26.—Una vez recibida el acta de la negociación, la Junta Directiva ratificará el acuerdo de compra de la finca, comunicándolo a las unidades pertinentes, para su ejecución remitiéndole conjuntamente el expediente administrativo de la adquisición.
