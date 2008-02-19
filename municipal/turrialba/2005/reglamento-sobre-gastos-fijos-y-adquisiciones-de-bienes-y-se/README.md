@@ -15,3 +15,4 @@ Reglamento Sobre Gastos Fijos y Adquisiciones de Bienes y Servicios, de Competen
 | --- | --- | --- |
 | 1 | 2005-05-24 | la propia norma |
 | 2 | 2007-06-26 | Reglamento municipal 61 (2007-06-26) |
+| 3 | 2008-02-19 | Reglamento municipal 95 (2008-02-19) |
