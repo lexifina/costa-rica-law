@@ -1,0 +1,4 @@
+SECCIÓN CUARTA
+CAPÍTULO 4
+Disposiciones finales
+Artículo 26.—Derogatoria: Se deroga el Reglamento para la Organización y Funciones de la Auditoría Interna de La Fedemur, publicado en el periódico oficial la Gaceta no. 145 del día martes 30 de julio de 2002, basado en el Manual para el Ejercicio de la Auditoría Interna en las Entidades y Órganos Sujetos a la Fiscalización de la Contraloría General de la República, publicado en La Gaceta Nº 225 del 26 de noviembre de 1984, así como el reglamento ajustado en el mes de agosto del 2004, conforme los Lineamientos generales que debían observarse en la promulgación del reglamento de organización y funcionamiento de las auditorias internas de las Entidades y Órganos Sujetos a la Fiscalización de la Contraloría General de la República, publicado en La Gaceta Nº 14 del 21 de enero de 1988.

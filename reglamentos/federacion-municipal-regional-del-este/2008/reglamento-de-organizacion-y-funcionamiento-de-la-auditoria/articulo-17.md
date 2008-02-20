@@ -1,0 +1,2 @@
+Otros aspectos relativos al funcionamiento de la Auditoría Interna
+Artículo 17.—Servicios de Auditoría: Para efectos del presente reglamento, el Auditor Interno Administrará la Auditoría Interna conforme lo señalado en las normas sobre el desempeño del Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público emitido por la Contraloría General de la República, para lo cual tenemos que los servicios de auditoría son los referidos a los distintos tipos de auditoría, incluidos los estudios especiales de auditoría.

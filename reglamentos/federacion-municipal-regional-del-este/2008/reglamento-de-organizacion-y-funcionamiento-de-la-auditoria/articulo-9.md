@@ -1,0 +1,1 @@
+Artículo 9º—Deberes del personal: Serán deberes del Auditor Interno, el Subauditor Interno y los demás funcionarios de la Auditoría Interna, las señaladas en la Ley General de Control Interno, Ley Nº 8292, así como demás normativa aplicable en esta materia.
