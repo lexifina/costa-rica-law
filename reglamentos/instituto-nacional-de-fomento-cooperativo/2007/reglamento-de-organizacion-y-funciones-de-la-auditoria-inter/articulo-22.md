@@ -1,0 +1,2 @@
+Artículo 22—Planificación estratégica. El Auditor Interno elaborará la planificación estratégica con su equipo de trabajo. Se realizará con fundamento en las actividades llevadas a cabo por los Macroprocesos y Procesos de la institución; asimismo, utilizará como insumo el universo auditable que se determine y la valoración del riesgo aplicable a dicho universo.
+El Plan Estratégico de la Auditoría Interna deberá ser presentado a la Junta Directiva para su conocimiento y aprobación.

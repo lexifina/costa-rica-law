@@ -1,0 +1,1 @@
+Artículo 21—Aplicación de las normas técnicas. El Auditor Interno deberá formular y mantener actualizado un Manual de procedimientos de auditoría para el buen desempeño de la Auditoría Interna. Asimismo, deberá instruir al personal a su cargo para que se aplique la normativa técnica en las evaluaciones que se efectúen.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Funcionamiento de la Auditoría Interna
+Artículo 24.—Objeto de la Auditoría Interna. El objeto fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la administración, con el propósito de que se alcancen las metas y los objetivos institucionales. Dicho servicio se realizará cumpliendo con el deber de probidad, proporcionándole en forma oportuna información, análisis, evaluación, comentarios, sugerencias y recomendaciones pertinentes sobre las operaciones que examina en forma posterior, así como prestar servicios de advertencia sobre aquellas situaciones que sean de su conocimiento.

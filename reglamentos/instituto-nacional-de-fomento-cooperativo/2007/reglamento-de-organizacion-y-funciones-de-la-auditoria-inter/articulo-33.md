@@ -1,0 +1,3 @@
+Artículo 33.—Confidencialidad de los denunciantes y estudios que requieren la apertura de procedimiento administrativo u otros. El Auditor Interno y el personal de la Auditoría Interna guardarán confidencialidad sobre la identidad del o los denunciantes.
+Serán confidenciales la información, documentación y otras evidencias sobre investigaciones que efectúa la Auditoría Interna, cuyos resultados puedan originar la apertura de un procedimiento administrativo o denuncia ante el Ministerio Público.
+La Auditoría Interna facilitará y atenderá los requerimientos establecidos por las instancias judiciales correspondientes.

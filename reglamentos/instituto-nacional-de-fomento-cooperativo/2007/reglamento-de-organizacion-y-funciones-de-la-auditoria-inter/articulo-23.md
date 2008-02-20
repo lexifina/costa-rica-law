@@ -1,0 +1,2 @@
+Artículo 23—Planificación anual. La Auditoría Interna debe preparar el Plan Anual de Actividades, el cual será congruente con el Plan Estratégico establecido, de conformidad con el nivel de riesgo resultante y con los lineamientos o directrices que emita el Órgano Contralor.
+El Plan que se elabore será enviado a la Contraloría General de la República, previo conocimiento y aprobación de la Junta Directiva.

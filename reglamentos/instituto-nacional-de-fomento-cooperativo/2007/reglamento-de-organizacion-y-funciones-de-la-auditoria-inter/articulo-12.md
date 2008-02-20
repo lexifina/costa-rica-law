@@ -1,0 +1,2 @@
+Artículo 12.—Organización. El Auditor Interno es el Superior Jerárquico de la Auditoría Interna y responsable directo de las actuaciones de la dependencia.
+La Auditoría Interna se organizará y funcionará conforme lo disponga el Auditor Interno, para lo cual considerará las políticas, directrices, disposiciones y normas emitidas por la Contraloría General de la República y por la Junta Directiva del INFOCOOP, las cuales serán de acatamiento obligatorio.

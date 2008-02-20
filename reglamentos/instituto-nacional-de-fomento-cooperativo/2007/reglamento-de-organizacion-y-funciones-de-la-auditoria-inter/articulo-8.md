@@ -1,0 +1,2 @@
+Artículo 8º—Vacaciones y licencias. Para el goce de vacaciones o licencias, el Auditor Interno solicitará autorización ante la Junta Directiva.
+Con el fin de atender asuntos personales urgentes no previstos, podrá, previa coordinación con el señor Presidente o Vicepresidente de la Junta Directiva, disponer de cinco días de vacaciones del período a su favor. En este caso, en la sesión inmediata posterior a la fecha del goce de vacaciones, el Auditor Interno deberá informarlo al jerarca para lo correspondiente.

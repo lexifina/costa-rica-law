@@ -1,0 +1,1 @@
+Artículo 50.—Plan de Mejora y seguimiento a informes de evaluaciones. Las recomendaciones que se emitan como resultado de las evaluaciones internas o externas, estarán sujetas al seguimiento oportuno y deberán ser consideradas en un plan de mejora.

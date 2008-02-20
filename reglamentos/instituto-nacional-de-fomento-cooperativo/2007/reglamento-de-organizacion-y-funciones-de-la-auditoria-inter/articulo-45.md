@@ -1,0 +1,1 @@
+Artículo 45.—Evaluaciones al programa de calidad. El programa de calidad de los servicios de la Auditoría Interna será sujeto de supervisión, y de evaluación interna y externa, que permitan ofrecer credibilidad a la Auditoría Interna y que coadyuven al mejoramiento continuo de la labor de fiscalización.

@@ -1,0 +1,1 @@
+Artículo 46.—Supervisión. Cada trabajo de auditoría o estudio especial deberá contar con una adecuada supervisión, con el propósito de que se compruebe que el mismo ha sido realizado de acuerdo con el ordenamiento jurídico y técnico aplicable.
