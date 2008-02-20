@@ -1,1 +1,0 @@
-Artículo 8º—El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa de la Federación Municipal Regional del Este, FEDEMUR y tampoco ser miembro de Juntas Directivas, Comisiones de trabajo o similares, que tengan relación con ésta o con las municipalidades que lo conforman.
