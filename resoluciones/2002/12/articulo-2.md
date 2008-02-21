@@ -1,3 +1,0 @@
-Artículo 2°—La condición de Gran Contribuyente será determinada por el Gerente de la Administración Tributaria de Grandes Contribuyentes, de acuerdo con los criterios indicados en la presente resolución, mediante resolución que será notificada al interesado, con copia a la respectiva Administración Tributaria territorial a la que estaba adscrito el contribuyente. La resolución de inclusión surtirá efectos a partir de un mes de su notificación al interesado.
-Igual procedimiento se seguirá para la exclusión de la condición de Gran Contribuyente, cuando se estime que ha perdido significación fiscal.
-La resolución de exclusión surtirá efectos a partir de día siguiente inmediato a su notificación al interesado.

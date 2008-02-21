@@ -1,1 +1,0 @@
-Artículo 7°—La Administración de Grandes Contribuyentes contará con un plazo de un mes a partir de la publicación de la resolución que actualiza los criterios del artículo 1° de esta resolución, para notificar la inclusión o exclusión de un sujeto pasivo como Gran Contribuyente, siguiendo el procedimiento que al efecto señala el artículo 2 de esta resolución.
