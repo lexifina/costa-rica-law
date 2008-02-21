@@ -1,1 +1,0 @@
-Transitorio único.—Las Administraciones Tributarias territoriales contarán con un plazo de un mes a partir de la publicación de la presente resolución, para notificar la inclusión o exclusión de un sujeto pasivo como Gran Empresa Territorial, siguiendo el procedimiento que al efecto señala el artículo 2 de esta Resolución.
