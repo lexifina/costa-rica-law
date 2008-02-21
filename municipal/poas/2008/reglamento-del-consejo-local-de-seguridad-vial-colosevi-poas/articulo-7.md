@@ -1,0 +1,1 @@
+Artículo 7º—Corresponde exclusivamente a esta organización nombrar a su cuerpo director por períodos de dos años,, según lo crea conveniente. Dicha designación deberá hacerse de conocimiento por escrito del Concejo Municipal. El COLOSEVI deberá sesionar al menos una vez al mes con la mitad más uno de sus integrantes como quórum.

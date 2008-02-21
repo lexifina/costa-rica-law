@@ -1,0 +1,1 @@
+Artículo 10.—Sus políticas y acciones se regirán en todo momento según lo dispuesto por el Decreto Ejecutivo Nº 29390-MOPT-S, los lineamientos provenientes del Consejo de Seguridad Vial, la Dirección General de Ingeniería de Tránsito, los decretos, Leyes Reglamentos y toda la legislación vigente a la fecha, así como el Concejo Municipal del Cantón.

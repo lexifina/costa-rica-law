@@ -1,0 +1,1 @@
+Artículo 12.—Todos los proyectos en seguridad vial a desarrollarse en el Cantón deben ser aprobados por el Colosevi para ser ejecutados a fin de que estén acordes al plan local de las prioridades definidas en el diagnostico de necesidades.

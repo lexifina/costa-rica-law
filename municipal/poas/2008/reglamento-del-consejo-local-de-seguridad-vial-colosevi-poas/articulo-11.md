@@ -1,0 +1,21 @@
+CAPÍTULO III
+De sus funciones
+Artículo 11.—El COLOSEVI tiene las siguientes funciones:
+a) Apoyar de forma activa y comprometida la ejecución del Plan Nacional de Promoción de la Seguridad Vial, para lo cual se establecerán los canales de comunicación necesarios.
+b) Promover la incorporación de la sociedad civil, la empresa privada y las instituciones estatales, en la ejecución de acciones integrales orientadas a la prevención de accidentes de tránsito.
+c) Elaborar un diagnóstico del cantón, determinando zonas de alto riesgo en accidentes de tránsito. Dicho diagnóstico deberá considerar además las sugerencias y aportaciones brindadas por las diferentes instituciones, organizaciones y fuerzas activas del cantón para promover la mayor participación posible de la comunidad.
+d) Formular, ejecutar, evaluar proyectos y programas en materia de seguridad vial, estructurados en un plan de trabajo anual. Este plan de trabajo anual deberá considerar el diagnóstico del cantón y deberá contar como mínimo con una justificación de los proyectos, un objetivo general, los objetivos específicos necesarios, el cronograma de actividades que se plantean para alcanzarlos, el presupuesto correspondiente, además de una evaluación periódica del cumplimiento del plan de trabajo, la cual deberá ejecutarse como mínimo semestralmente. Todo esto deberá ser presentado ante el Concejo Municipal y este el Consejo de Seguridad Vial.
+e) Implementar campañas de ámbito cantonal para incentivar a los diversos conductores a usar cinturón y la silla de seguridad para el transporte de menores y a los peatones respeto y uso de señales peatonales.
+f) Coordinar para que se brinde mayor vigilancia y control en los puntos críticos de alto riesgo de accidentes de tránsito, velar por que se realicen continuamente operativos de control de conducción bajo influencia de alcohol y exceso de velocidad, verificación de requisitos mínimos de circulación y horarios para transporte, carga y descarga de mercancías en el comercio con horarios previamente establecidos, así como el servicio de transporte remunerado de personas.
+g) Solicitar a las autoridades competentes, llevar a cabo monitoreos mecánicos de las unidades de transporte público, en todas sus modalidades tanto de personas como cargamento de mercancías.
+h) Velar por crear una actitud de prioridad y protección a los peatones, especialmente a los grupos más vulnerables de la población como adultos mayores,, niños, o personas con discapacidad.
+i) Promover la construcción de aceras, vallas, rampas puentes peatonales, zonas de seguridad, para protección de personas con discapacitadas.
+j) Establecer programas de demarcación y obras menores en puntos estratégicos.
+k) Motivar que la construcción de escuelas o colegios no se realice frente a vías de tránsito denso o rápido.
+l) Motivar a las empresas públicas y privadas para que incluyan el tema de seguridad vial y la prevención de accidentes de tránsito en los programas de salud ocupacional.
+m) Procurar el desarrollo de programas en seguridad vial para escuelas, centros educativos y empresas privadas ubicadas en el cantón.
+n) Incorporar el componente de seguridad vial en todos los proyectos de recuperación, habilitación, mantenimiento de vías, caminos y construcción de carreteras vecinales, cantonales o nacionales.
+o) Promover la construcción de bahías para las paradas de autobuses.
+p) Apoyar todas las acciones en seguridad vial que puedan ser desarrolladas en el cantón.
+q) Verificar que el diseño de entrada a escuelas y colegios frente a vías de tránsito denso, sea acorde a las normativas de seguridad vial vigente.
+r) Realizar las coordinaciones pertinentes a fin de evitar la ubicación o demarcación de paradas estacionarias o aparcamientos de autobuses, taxis, o cualquier otro medio de transporte público frente a centros educativos, puertas de ingreso a instalaciones deportivas, centro de salud, clínicas hospitales estaciones de bomberos, Cruz Roja, Centro de Atención al Adulto Mayor, centro de personas con discapacidad, o institucionales gubernamentales de afluencia importante de usuarios a fin de no vulnerar o coartar la libertad de tránsito peatonal de los ciudadanos del cantón.
