@@ -13,3 +13,4 @@ Informe de labores que deben rendir los Jueces Suplentes y los Jueces Supernumer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-08 | la propia norma |
+| 2 | 2008-02-21 | Circular 33 (2008-02-21) |
