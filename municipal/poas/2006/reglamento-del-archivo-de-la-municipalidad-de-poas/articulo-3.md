@@ -1,0 +1,1 @@
+Artículo 3º—El Archivo Central de la Municipalidad de Poás debe estar a cargo de un profesional en archivística o carrera afín, Administración, Secretariado, Ciencias de la información, Historia o Bibliotecología. Estos profesionales deben poseer como mínimo dos años de experiencia en funciones archivísticas. El encargado del Archivo Central dependerá del Alcalde o Alcaldesa.

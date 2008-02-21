@@ -1,0 +1,1 @@
+Artículo 25.—Si algún funcionario público o cualquier particular transgredieren las disposiciones del artículo anterior, será sancionado de acuerdo con lo dispuesto en los artículos 208 y 209 del Código Penal. En cualquier caso, además, se le obligará a devolver los documentos. (Apoyado en el Artículo 9 de la Ley del Sistema Nacional de Archivos N° 7202).

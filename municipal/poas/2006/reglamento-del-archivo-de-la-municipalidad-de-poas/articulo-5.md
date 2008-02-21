@@ -1,0 +1,1 @@
+Artículo 5º—El Archivo Central debe contar con el espacio físico necesario para garantizar la conservación optima de los documentos. Además, con las medidas de seguridad e infraestructura adecuada: local, estantería, materiales, mobiliario, equipo técnico, etc.

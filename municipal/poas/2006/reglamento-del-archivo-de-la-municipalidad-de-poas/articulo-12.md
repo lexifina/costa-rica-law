@@ -1,0 +1,1 @@
+Artículo 12.—Toda documentación de consulta restringida o confidencial que se remita para el Archivo Central deberá ser identificada como tal por el departamento correspondiente en la lista de remisión.

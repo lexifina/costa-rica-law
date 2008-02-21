@@ -1,0 +1,1 @@
+Artículo 16.—La municipalidad contará con un Comité Institucional de Selección y Eliminación de Documentos, el cual estará integrado por el Alcalde o Alcaldesa de turno, el Asesor Legal y el o la Archivista Municipal.

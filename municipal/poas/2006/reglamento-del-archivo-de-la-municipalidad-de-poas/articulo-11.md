@@ -1,0 +1,1 @@
+Artículo 11.—El o la encargada del Archivo Central debe confrontar las listas de remisión con la documentación que se le entregó y en un plazo prudencial (15 días hábiles o menos) y reportar los faltantes o cualquier otra anomalía que se encontrare.

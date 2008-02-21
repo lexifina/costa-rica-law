@@ -1,0 +1,1 @@
+Artículo 24.—Los documentos producidos o adquiridos por la Municipalidad como producto de su gestión, serán propiedad de la Municipalidad. Ninguna persona, funcionario o no, podrá apropiarse de ellos.
