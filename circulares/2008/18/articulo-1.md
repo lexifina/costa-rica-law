@@ -1,0 +1,7 @@
+CIRCULAR Nº 018-08
+Asunto: Notificaciones enviadas por medios electrónicos a la Fiscalía General de la República.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 01-08, celebrada el 8 de enero de 2008, artículo XLIX, dispuso comunicarles a solicitud de la Fiscalía General de la República, que los órganos jurisdiccionales que utilizan los medios electrónicos para enviar notificaciones, están en la obligación de notificar a cada una de las Unidades del Ministerio Público, las resoluciones que les son propias, para lo cual tienen habilitadas cuentas de correo electrónico, esto de conformidad como lo establece el Reglamento de Notificaciones y Comunicaciones por Medios Electrónicos, aprobado por Corte Plena. La Fiscalía General, recibirá únicamente las que pertenezcan a ese despacho, procediendo de acuerdo con el Manual de Procedimientos de las Comunicaciones por medios Electrónicos, artículo 6, el que indica: “Si por error se enviare una comunicación electrónica a un destinatario equivocado, éste comunicará de inmediato tal situación a la oficina o persona remitente, por el mismo medio , o en su defecto, por la vía telefónica, dentro de las cuatro horas hábiles siguientes al recibo de la comunicación, para que lo enmiende y proceda a remitir la comunicación electrónica a la oficina o servidor judicial que corresponda. A partir de que sea enviado a su efectivo
+destinatario, se tendrá por efectuada la comunicación”.
+San José, 30 de enero de 2008.
