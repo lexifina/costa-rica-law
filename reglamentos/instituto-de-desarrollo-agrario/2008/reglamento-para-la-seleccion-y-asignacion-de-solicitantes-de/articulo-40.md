@@ -9,7 +9,9 @@ g) Ser trabajador o trabajadora asalariada en tal condición que no pueda explot
 h) Comprobación de que posterior a la aplicación de la encuesta, una familia sujeto de análisis se ha desintegrado, en cuyo caso el estudio debe repetirse con las nuevas condiciones presentadas.
 i) Renuencia a trabajar la parcela directamente.
 j) Comprobación de que la persona solicitante o miembros de su núcleo familiar son de conducta reprochable, o que riñe con las reglas de la moral, las buenas costumbres y que atenta contra las buenas relaciones con los demás pobladores del asentamiento.
-k) Comprobación de que la persona solicitante o su pareja, han poseído bienes muebles o inmuebles que les permitían un nivel socioeconómico estable y seguro y que dejaron de poseerlos por razones injustificadas.
-l) Personas extranjeras que no tengan su condición de residente permanente conforme a lo establecido en el artículo 16 de este Reglamento, o que estén optando a un predio adquirido con recursos de FODESAF.
-m) Comprobación de que la persona solicitante, su pareja o miembros del grupo familiar son asignatarios o asignatarias de una parcela o granja familiar.
-n) Cuando la persona no demostrare adecuadamente la capacidad técnica y experiencia en trabajos agrarios y las actividades a que se ha dedicado y el resultado que ha obtenido de ellos.
+k) Que la persona solicitante o su pareja este en la condición de casada y no conviva con su cónyuge.
+l) Comprobación de que la persona solicitante o su pareja, han poseído bienes muebles o inmuebles que les permitían un nivel socioeconómico estable y seguro y que dejaron de poseerlos por razones injustificadas.
+m) Personas extranjeras que no tengan su condición de residente permanente conforme a lo establecido en el artículo 16 de este Reglamento, o que estén optando a un predio adquirido con recursos de FODESAF.
+n) Comprobación de que la persona solicitante, su pareja o miembros del grupo familiar son asignatarios o asignatarias de una parcela o granja familiar.
+o) Cuando la persona no demostrare adecuadamente la capacidad técnica y experiencia en trabajos agrarios y las actividades a que se ha dedicado y el resultado que ha obtenido de ellos.
+(Así reformado mediante sesión N° 009 del 21 de abril del 2008).

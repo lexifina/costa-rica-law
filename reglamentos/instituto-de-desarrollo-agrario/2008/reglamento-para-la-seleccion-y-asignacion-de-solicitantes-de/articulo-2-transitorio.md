@@ -1,1 +1,2 @@
-Transitorio II.—En el caso granjas familiares recuperadas por el Instituto ya sea por renuncia o por procedimientos de revocatoria o nulidad de título, la Dirección Regional correspondiente deberá realizar la adecuación del caso para que las mismas sean redefinidas en la modalidad de lote para vivienda, en los términos de presente reglamento.
+Transitorio II.—En el caso de granjas familiares recuperadas por el Instituto ya sea por renuncia o por procedimientos de revocatoria o nulidad de título, la Dirección Regional correspondiente deberá realizar la adecuación del caso para que las mismas sean redefinidas en la modalidad de lote para vivienda, en los términos de presente reglamento.
+(Así reformado mediante sesión N° 009 del 21 de abril de 2008).

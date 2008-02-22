@@ -1,1 +1,2 @@
-Artículo 57.—A los efectos de los artículos anteriores, todos los miembros de la organización correspondiente deben de someterse y aprobar el respectivo estudio socioeconómico a efecto de poder otorgarles beneficios.
+Artículo 57.—A los efectos de los artículos anteriores, todos los miembros de la organización correspondiente deben de someterse y aprobar el respectivo estudio socioeconómico a efecto de poder otorgarles beneficios. Se exceptúan de este procedimiento las asignaciones de lotes cuyo fin sea el apoyo a los procesos de producción afines a los objetivos institucionales o lotes cuyo fin sea la instalación de servicios sociales y comunitarios.
+(Así reformado mediante sesión N° 009 del 21 de abril de 2008).
