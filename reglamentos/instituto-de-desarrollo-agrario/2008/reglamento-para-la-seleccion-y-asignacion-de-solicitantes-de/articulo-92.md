@@ -1,0 +1,1 @@
+Artículo 92.—La oficina subregional emitirá un informe recomendatorio previa verificación de que no existen deudas del asignatario o la asignataria con el Instituto por crédito rural cuya inversión no se materializó en el predio a renunciar. El informe recomendatorio será remitido por la Oficina Subregional.

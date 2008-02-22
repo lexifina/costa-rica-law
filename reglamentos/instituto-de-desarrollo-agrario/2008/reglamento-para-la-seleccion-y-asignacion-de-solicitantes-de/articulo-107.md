@@ -1,0 +1,1 @@
+Artículo 107.—Este Reglamento deroga el Reglamento para la Selección y Adjudicación de Solicitantes de Tierras, aprobado por la Junta Directiva en el artículo 6º de la sesión Nº 029-2007 del 3 de setiembre del 2007, publicado en el Diario Oficial La Gaceta Nº 198 del 16 de octubre del 2007, así como cualquier otra disposición reglamentaria que se le oponga.

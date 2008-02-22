@@ -1,0 +1,1 @@
+Artículo 99.—De los permisos temporales que se aprueben por parte de la Oficina Subregional, deberá remitirse copia a la Dirección Regional y al Área de Selección de Familias para su control y fiscalización correspondiente.

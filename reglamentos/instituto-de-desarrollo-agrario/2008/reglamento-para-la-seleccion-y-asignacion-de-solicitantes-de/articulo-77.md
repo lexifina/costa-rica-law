@@ -1,0 +1,1 @@
+Artículo 77.—Para dicha segregación, la persona solicitante y su pareja deberán llenar el formulario de solicitud correspondiente y aportar los requisitos que establece el artículo 64 de este reglamento, además copia del plano catastrado del área a segregar.

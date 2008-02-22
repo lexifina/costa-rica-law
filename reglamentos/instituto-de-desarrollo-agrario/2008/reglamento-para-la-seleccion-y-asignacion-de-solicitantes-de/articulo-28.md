@@ -1,0 +1,1 @@
+Artículo 28.—Recibido el recurso por parte de la Oficina Subregional o Dirección Regional, éstas deberán remitirlo a la Junta Directiva en un plazo no mayor de ocho días hábiles, adjuntando copia de la notificación del acuerdo de Junta Directiva. Igualmente deben remitir copia al Área de Selección de Familias.

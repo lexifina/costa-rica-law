@@ -1,0 +1,1 @@
+Artículo 25.—Los estudios de las personas solicitantes de tierra que elabore las Oficinas Subregionales y las Direcciones Regionales, serán manejados con la mayor discrecionalidad, hasta tanto la Junta Directiva no haya tomado una resolución al respecto.

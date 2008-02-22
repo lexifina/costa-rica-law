@@ -1,0 +1,1 @@
+Artículo 96.—El Instituto no aceptará ninguna renuncia sobre predios inscritos, si sobre la propiedad existen deudas con Garantía Hipotecaria Externas al IDA o deudas con crédito rural a las que hace referencia el artículo 88 de este Reglamento .

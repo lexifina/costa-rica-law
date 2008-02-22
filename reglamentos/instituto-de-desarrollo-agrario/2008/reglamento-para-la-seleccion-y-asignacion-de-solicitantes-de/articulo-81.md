@@ -1,0 +1,1 @@
+Artículo 81.—Una vez elaborada la resolución, la misma será comunicada a la Oficina Subregional, para su debida notificación a las personas interesadas. También deberá la Dirección Regional remitir copia de esta resolución a la Dirección de Asuntos Jurídicos, al Área de Selección de Familias y al Área de Titulación.

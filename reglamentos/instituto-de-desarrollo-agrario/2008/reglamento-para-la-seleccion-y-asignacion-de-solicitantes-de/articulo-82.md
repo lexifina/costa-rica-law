@@ -1,0 +1,1 @@
+Artículo 82.—Contra la resolución negativa que emita el Director Regional cabrá recurso de apelación ante la Junta Directiva del Instituto, el cual deberá interponerse en los términos y plazos que establece los artículos 27 y 28 de este Reglamento.

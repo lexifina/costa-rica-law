@@ -1,0 +1,1 @@
+Artículo 103.—Los predios que quedasen disponibles por renuncias, revocatorias o nulidades de títulos, serán nuevamente asignados en el plazo no mayor de treinta días hábiles, entre las personas solicitantes de la Región, dando prelación a los restantes calificados a los cuales se refiere el artículo 14 de este Reglamento.

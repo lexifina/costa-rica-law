@@ -1,0 +1,1 @@
+Artículo 44.—Para la recomendación del otorgamiento del título de propiedad, el funcionario o la funcionaria de la Oficina Subregional además de los formularios de evaluación del período de prueba debe emitir un informe técnico al respecto y dirigirlo a la Dirección Regional quien deberá otorgarle el visto bueno correspondiente para su remisión al Área de Titulación.

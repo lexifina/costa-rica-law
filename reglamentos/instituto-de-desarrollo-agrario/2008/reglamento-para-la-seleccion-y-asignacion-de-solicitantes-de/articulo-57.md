@@ -1,0 +1,1 @@
+Artículo 57.—A los efectos de los artículos anteriores, todos los miembros de la organización correspondiente deben de someterse y aprobar el respectivo estudio socioeconómico a efecto de poder otorgarles beneficios.

@@ -1,0 +1,1 @@
+Artículo 98.—Finalizado el plazo del permiso temporal, los asignatarios o propietarios deben de reintegrarse al predio y continuar con la explotación o uso del mismo. En caso de no hacerlo, sin que exista una justificación válida, la oficina subregional procederá a iniciar el respectivo procedimiento de revocatoria de la asignación o la nulidad del título de propiedad.

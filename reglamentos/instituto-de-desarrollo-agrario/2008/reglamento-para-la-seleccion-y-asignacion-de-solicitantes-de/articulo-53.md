@@ -1,0 +1,1 @@
+Artículo 53.—Otorgado el título de propiedad, las personas asignatarias de lotes para vivienda o para otros fines, tendrán un plazo de un año para iniciar su construcción. En caso de no hacerlo en los términos indicados, la Oficina Subregional procederá a iniciar el respectivo procedimiento revocatoria de la asignación y subsecuente nulidad de título.

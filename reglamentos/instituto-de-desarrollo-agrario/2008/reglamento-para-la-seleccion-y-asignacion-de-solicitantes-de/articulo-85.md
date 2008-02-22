@@ -1,0 +1,1 @@
+Artículo 85.—La solicitud de renuncia, la cual podrá ser confeccionada por la misma Oficina Subregional, deberá contener todas las calidades de los solicitantes, motivo de la renuncia, así como un medio donde atenderán notificaciones. Además deberá de adjuntarse copia de la cédula de identidad y si es posible el contrato de asignación suscrito con el Instituto.

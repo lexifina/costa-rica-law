@@ -1,0 +1,1 @@
+Transitorio I.—Los trámites de estudios, traspasos y segregaciones iniciados con anterioridad a la entrada en vigencia de este Reglamento, se concluirán conforme a los procedimientos del Reglamento Autónomo para la Selección y Adjudicación de Solicitantes de Tierras, publicado en el Diario Oficial La Gaceta Nº 13 del 20 de enero del 2004.
