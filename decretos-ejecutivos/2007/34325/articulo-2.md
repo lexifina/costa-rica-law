@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones deberán destinar los recursos necesarios que permitan implementar las modificaciones efectuadas al “Clasificador Presupuestario por Objeto del Gasto” de uso generalizado para el Sector Público.
