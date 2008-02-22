@@ -1,0 +1,1 @@
+Artículo 43.—Sobre la declaración de incumplimiento. Cuando concurran situaciones especiales que menoscaben el cumplimiento del Manual de normas generales para el ejercicio de la Auditoría Interna en el sector público, como recursos materiales y humanos insuficientes, entre otros motivos, se deberá declarar y justificar de manera formal dicho incumplimiento.

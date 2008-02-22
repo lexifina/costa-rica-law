@@ -1,0 +1,1 @@
+Artículo 76.—El plan de trabajo y la valoración de riesgos. El plan de trabajo de la actividad de Auditoría Interna debe estar basado en un proceso continuo de valoración del riesgo. En este proceso deben tenerse en cuenta los criterios de riesgo de la alta dirección y del jerarca, entre otros que se consideren necesarios.

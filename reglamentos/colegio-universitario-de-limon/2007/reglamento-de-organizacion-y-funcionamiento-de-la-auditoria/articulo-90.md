@@ -1,0 +1,1 @@
+Artículo 90.—Descripción de los objetivos de los trabajos de Auditoría. Los diferentes trabajos de auditoría por exámenes, servicios preventivos y otros, deben contar con objetivos para cada trabajo claramente establecidos.

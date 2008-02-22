@@ -1,0 +1,1 @@
+Artículo 79.—Incorporación del conocimiento sobre factores de riesgo. Los funcionarios de la auditoría Interna coadyuvarán con el SEVRI mediante la incorporación de los conocimientos del riesgo obtenido en los trabajos realizados de los servicios de fiscalización.

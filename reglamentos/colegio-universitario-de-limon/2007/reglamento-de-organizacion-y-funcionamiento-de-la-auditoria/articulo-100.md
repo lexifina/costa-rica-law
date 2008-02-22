@@ -1,0 +1,1 @@
+Artículo 100.—Sobre el análisis, evaluación y registro de la información. Los funcionarios de la Auditoría Interna deben basar sus hallazgos, conclusiones y recomendaciones y demás resultados del trabajo en adecuados análisis y evaluaciones. Deben tener el cuidado de solamente registrar información relevante que les permita apoyar los hallazgos y demás resultados del trabajo.

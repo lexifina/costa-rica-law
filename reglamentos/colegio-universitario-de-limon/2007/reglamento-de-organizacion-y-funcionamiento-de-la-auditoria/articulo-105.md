@@ -1,0 +1,1 @@
+Artículo 105.—La comunicación verbal de los resultados de los servicios de auditoría. Los funcionarios de la auditoría Interna deben disponer la discusión verbal de los resultados con quienes tengan parte en los asuntos, de previo a su comunicación oficial, excepto de los resultados relativos a las relaciones de hecho y otros que la normativa contemple.

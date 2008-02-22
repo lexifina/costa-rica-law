@@ -1,0 +1,1 @@
+Artículo 72.—El Plan Anual Operativo (PAO). El Auditor Interno debe establecer un plan de trabajo anual congruente con la planificación estratégica, cuyo contenido abarque todas las actividades que se deben realizar durante el año, se mantenga actualizado y se exprese adecuadamente en el presupuesto respectivo si se cuenta con un programa presupuestario para la Auditoría Interna.

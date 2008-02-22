@@ -1,0 +1,1 @@
+Artículo 26.—Obligación de presentar declaración jurada de bienes. El Auditor y Subauditor Internos deberán cumplir con el requisito establecido en el artículo Nº 21 de la Ley contra la Corrupción y el Enriquecimiento Ilícito Nº 8422, de presentar declaración jurada de bienes en forma anual.

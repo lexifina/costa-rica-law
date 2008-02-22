@@ -1,0 +1,1 @@
+Artículo 92.—La probabilidad de errores e irregularidades. Los funcionarios de la Auditoría Interna deben considerar la probabilidad de errores, irregularidades, incumplimientos y otras exposiciones materiales al desarrollar los objetivos del trabajo.

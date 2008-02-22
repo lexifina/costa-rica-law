@@ -1,0 +1,1 @@
+Artículo 96.—Sobre la asignación de recursos para el trabajo. Los funcionarios de la auditoría Interna deben determinar los recursos adecuados para lograr los objetivos del trabajo. Los recursos para cada trabajo se deben asignar con base en una evaluación de la naturaleza y complejidad de cada tarea, las restricciones de tiempo y los recursos disponibles.

@@ -1,0 +1,1 @@
+Artículo 98.—La programación de los trabajos de servicios preventivos. Los programas de trabajo de los servicios preventivos pueden variar en forma y contenido, y hasta obviarse, dependiendo de la naturaleza del trabajo.

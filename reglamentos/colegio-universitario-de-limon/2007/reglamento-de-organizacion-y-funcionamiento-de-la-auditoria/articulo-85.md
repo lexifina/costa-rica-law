@@ -1,0 +1,1 @@
+Artículo 85.—La incorporación del conocimiento sobre controles. Los funcionarios de la Auditoría Interna coadyuvarán con el SEVRI mediante la incorporación de los conocimientos de los controles obtenidos de los trabajos, mediante los productos de los servicios de fiscalización.

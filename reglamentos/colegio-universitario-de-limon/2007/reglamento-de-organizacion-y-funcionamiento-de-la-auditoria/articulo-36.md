@@ -1,0 +1,1 @@
+Artículo 36.—Necesidad de obtener asesoría y asistencia. El Auditor Interno debe gestionar asesoramiento competente y asistencia si su personal carece de los conocimientos, las aptitudes u otras competencias necesarias para llevar a cabo los trabajos a el encomendados.

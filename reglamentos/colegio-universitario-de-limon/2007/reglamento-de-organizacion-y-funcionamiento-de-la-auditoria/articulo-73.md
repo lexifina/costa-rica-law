@@ -1,0 +1,1 @@
+Artículo 73.—La planificación de servicios preventivos. El Auditor Interno además de los servicios de auditoría deberá considerar la necesidad de incluir en el plan anual de trabajo, la planificación de servicios preventivos de conformidad a las circunstancias y a sus posibilidades.

@@ -1,0 +1,1 @@
+Artículo 130.—Sanciones. Las faltas comprobadas a las disposiciones derivadas de la relación laboral existente entre los funcionarios de la Auditoría Interna con el Cunlimón serán sancionadas conforme lo establecido en el Reglamento Autónomo de Organización y Servicios de la institución.

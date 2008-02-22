@@ -1,0 +1,1 @@
+Artículo 66.—La administración de los recursos. El Auditor Interno debe asegurarse de que los recursos de la Auditoría Interna sean adecuados, suficientes y efectivamente asignados para cumplir con su plan de trabajo. Si hay serias limitaciones.

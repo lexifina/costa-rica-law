@@ -1,0 +1,1 @@
+Artículo 81.—La fiscalización de objetivos, metas y programas. Los funcionarios de la Auditoría Interna deben fiscalizar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos, y de que éstos sean consistentes con los de la organización.

@@ -1,0 +1,1 @@
+Artículo 8º—Ubicación en la estructura institucional. La Auditoría Interna del Cunlimón es un órgano asesor cuya ubicación en la estructura organizativa depende orgánicamente del Consejo Directivo del Cunlimón, quien le permitirá realizar con total independencia y objetividad sus competencias.

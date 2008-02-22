@@ -1,0 +1,1 @@
+Artículo 65.—La naturaleza del trabajo. La actividad de Auditoría Interna debe fiscalizar y mejorar la efectividad de los procesos de valoración del riesgo institucional, del control interno y de dirección de las entidades y órganos sujetos a la Ley general de Control Interno, utilizando un enfoque sistémico y profesional.

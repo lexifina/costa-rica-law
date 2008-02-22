@@ -1,0 +1,1 @@
+Artículo 82.—La fiscalización de los resultados. Los funcionarios de la Auditoría Interna deben fiscalizar las operaciones y programas para verificar que los resultados sean consistentes con los objetivos y metas establecidos, y de que las operaciones, programas y presupuestos estén siendo implantados o desempeñados tal como fueron planeados.

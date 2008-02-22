@@ -1,0 +1,1 @@
+Artículo 11.—Modificaciones a la estructura orgánica de la Auditoría Interna. Las modificaciones a la estructura orgánica de la Auditoría Interna requieren de la aprobación expresa del Auditor Interno, asimismo requerirán de un acuerdo motivado del Consejo Directivo del CUNLIMÓN.

@@ -1,0 +1,3 @@
+SECCIÓN III
+Sobre la pericia y el debido cuidado profesional
+Artículo 32.—Sobre la pericia de la Auditoría Interna y su personal. Los funcionarios de la Auditoría Interna tanto de manera individual como colectiva deben reunir los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades, en cuanto a la necesidad de gestionar el debido asesoramiento competente en campos que no son de su especialidad, como los relacionados con los mecanismos para identificar los indicadores de fraude y corrupción, los riesgos y controles en tecnología y sistemas de información, y otras competencias para cumplir con su labor de asesoría y advertencia institucional.

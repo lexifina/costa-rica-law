@@ -1,0 +1,1 @@
+Artículo 107.—La comunicación de riesgos que asume el jerarca. Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, debe informar al jerarca del riesgo que esta sumiendo y de la eventual imputación de responsabilidad que esta situación puede generarle.

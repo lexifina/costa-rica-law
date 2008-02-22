@@ -1,0 +1,1 @@
+Artículo 78.—Alerta a los riesgos en los servicios preventivos. Los funcionarios de la Auditoría Interna también deben considerar los riesgos relacionados con los objetivos del trabajo de los servicios preventivos y estar alertas a la existencia de otros riesgos significativos que se detectan con el avance de los trabajos.

@@ -1,0 +1,1 @@
+Artículo 95.—La suficiencia de alcances para cumplir con asesoría o advertencia. Al valorar la realización de una asesoría o advertencia, los funcionarios de la Auditoría Interna deben asegurar que el alcance del trabajo sea suficiente para cumplir los objetivos que se pretenden con ellas.

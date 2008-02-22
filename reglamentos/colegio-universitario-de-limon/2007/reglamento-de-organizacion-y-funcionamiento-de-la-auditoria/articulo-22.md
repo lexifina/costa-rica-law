@@ -1,0 +1,1 @@
+Artículo 22.—Establecimiento de las funciones para los cargos de Auditor y Subauditor Internos. Las funciones de los cargos de Auditor y Subauditor Internos deben estar definidas en el Manual Descriptivo de Clases y Cargos del CUNLIMÓN.

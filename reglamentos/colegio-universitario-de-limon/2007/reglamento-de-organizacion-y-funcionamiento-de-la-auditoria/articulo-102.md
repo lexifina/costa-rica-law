@@ -1,0 +1,1 @@
+Artículo 102.—Realización de trabajos compatibles con los valores y objetivos. Los objetivos de los trabajos de la Auditoría Interna deben ser compatibles con los valores y los objetivos de la organización.

@@ -1,0 +1,1 @@
+Artículo 89.—La planificación de los trabajos de asesoría. El Auditor Interno establecerá un entendimiento con el jerarca respecto de los objetivos, el alcance, las responsabilidades respectivas y demás expectativas de los servicios de asesoría que se requieran. En el caso de trabajos significativos este entendimiento debe darse por escrito.

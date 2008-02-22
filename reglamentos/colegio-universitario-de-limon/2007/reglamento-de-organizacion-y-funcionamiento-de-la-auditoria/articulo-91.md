@@ -1,0 +1,1 @@
+Artículo 91.—La valoración preliminar del riesgo. Los funcionarios de la Auditoría Interna durante la planificación del trabajo deben realizar una valoración preliminar del riesgo pertinente a la actividad bajo revisión. Los objetivos del trabajo deben reflejar los resultados de dicha valoración.

@@ -1,0 +1,1 @@
+Artículo 38.—Desarrollo profesional continuado. Los funcionarios de la Auditoría Interna deben perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua. La Dirección Superior debe brindar su colaboración para el ejercicio de dicho proceso de capacitación profesional.

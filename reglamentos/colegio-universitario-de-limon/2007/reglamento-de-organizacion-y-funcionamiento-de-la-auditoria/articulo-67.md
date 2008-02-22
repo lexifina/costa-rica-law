@@ -1,0 +1,1 @@
+Artículo 67.—Políticas y procedimientos internos. El Auditor Interno deberá establecer normativa interna, fundamentalmente, políticas y procedimientos para guiar la actividad de la Auditoría Interna cuando las circunstancias lo ameriten.

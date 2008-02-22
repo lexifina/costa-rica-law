@@ -1,0 +1,1 @@
+Artículo 46.—Servicios de asesoría. El Auditor Interno o el Subauditor Interno en ausencia del primero, debe asesorar oportunamente al jerarca en materia de su competencia. Dicha asesoría se brindará a criterio del Auditor, a otros niveles de la organización, con el propósito de fortalecer el sistema de control interno institucional.
