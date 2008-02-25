@@ -14,3 +14,4 @@ Reglamento para autorizar los egresos y las adquisiciones de bienes y servicios 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-14 | la propia norma |
+| 2 | 2008-02-25 | Reglamento municipal 92 (2008-02-25) |
