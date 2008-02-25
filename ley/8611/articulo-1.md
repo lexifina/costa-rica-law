@@ -3,6 +3,8 @@ LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 MODIFICACIÓN DE LOS ARTÍCULOS 14, 19 Y 20
 DEL CÓDIGO MUNICIPAL, LEY Nº 7794
+(Interpretado por Resolución del Tribunal Supremo de Elecciones N° 405 de 8 de febrero de 2008 de la siguiente forma:
+"Se interpreta que de acuerdo con la normativa vigente: a) no es posible extender los efectos de esta reforma legal a los funcionarios electos en las elecciones de diciembre del 2006; b) resulta jurídicamente imposible que el nombramiento de los funcionarios municipales electos en diciembre del 2006 se acorte o se extienda más allá de lo establecido previamente, por ser contrario al principio de soberanía popular."...).
 ARTÍCULO 1.-
 Refórmase el Código Municipal, Ley Nº 7794, de 30 de abril de 1998, en las siguientes disposiciones:
 a) El artículo 14, cuyo texto dirá:
