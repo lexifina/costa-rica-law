@@ -1,0 +1,1 @@
+Artículo 14.—El nombramiento de funcionarios, así como el traslado, suspensión, remoción, concesión de licencias deberán ser canalizados y autorizados por el auditor general. Lo anterior con base en lo establecido en los artículos 24 y 28 de la Ley General de Control Interno.

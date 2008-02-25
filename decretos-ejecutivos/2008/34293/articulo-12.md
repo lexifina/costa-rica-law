@@ -1,0 +1,1 @@
+Artículo 12.—Organización. La unidad de auditoría Interna se organiza de la siguiente manera: Un Auditor con las potestades deberes y responsabilidades establecidas en la Ley General de Control Interno y el personal subalterno.

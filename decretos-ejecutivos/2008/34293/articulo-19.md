@@ -1,0 +1,1 @@
+Artículo 19.—Confidencialidad y admisibilidad de denuncias. Los funcionarios de la Unidad de Auditoría guardarán confidencialidad respecto de la identidad de los ciudadanos que, de buena fe, presenten ante sus oficinas denuncias por actos de corrupción. La Auditoría establecerá los requisitos para la admisibilidad de las denuncias mediante un manual de procedimientos.

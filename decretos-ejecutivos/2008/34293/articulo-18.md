@@ -1,0 +1,1 @@
+Artículo 18.—Funciones del Auditor. Las funciones del Auditor General deberán ser establecidas en los manuales institucionales, y se tomará como base las establecidas en la Ley General de Control Interno.

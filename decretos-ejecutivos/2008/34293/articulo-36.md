@@ -1,0 +1,1 @@
+Artículo 36.—Este documento deroga el decreto ejecutivo Nº 28004-MP-MIVAH Reglamento de Auditoría Interna del Ministerio y Asentamientos Humanos, publicado en La Gaceta Nº 148 del 30 de julio de 1999.

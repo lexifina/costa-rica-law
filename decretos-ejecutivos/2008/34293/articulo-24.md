@@ -1,0 +1,1 @@
+Artículo 24.—Planificación del estudio. Los funcionarios de la Auditoría deben elaborar un plan para cada trabajo, que incluya el objetivo, los objetivos específicos, el alcance, la asignación de recursos y la elaboración de un programa de trabajo escrito.

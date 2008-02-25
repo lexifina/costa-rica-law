@@ -1,0 +1,3 @@
+CAPÍTULO II
+Sobre la funcionalidad de la Auditoría Interna
+Artículo 3º—Marco Legal Reglamentario y técnico que regula el accionar de la Auditoría Interna. La Unidad de Auditoría Interna funcionará con base en la Ley General de Control Interno, Ley Orgánica de la Contraloría General de la República, Manual de normas generales de auditoría para el sector público (M-2-2006-CO-DFOE), Manual para el ejercicio de la auditoria interna en los órganos sujetos a su fiscalización por parte de la Contraloría General de la República, Manual de normas generales de control interno para la Contraloría General de la República y las entidades y órganos sujetos para su fiscalización.

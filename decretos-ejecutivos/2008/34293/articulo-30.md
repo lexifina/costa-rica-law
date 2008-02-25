@@ -1,0 +1,1 @@
+Artículo 30.—Responsabilidad por incumplimiento de implementar las recomendaciones. Cabrá responsabilidad administrativa a los funcionarios que el Ministro haya ordenado su implementación, sin perjuicio de las responsabilidades que le pueden ser imputadas civil y penalmente.

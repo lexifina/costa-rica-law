@@ -1,0 +1,11 @@
+Artículo 22.—Atribuciones
+a) El Auditor General y sus colaboradores podrán efectuar todas las investigaciones, comprobaciones o estudios que juzguen necesarios para el correcto cumplimiento de sus funciones, de conformidad con las estipulaciones de este reglamento.
+b) El personal de la Unidad de Auditoría Interna tendrá amplio acceso observando al efecto las limitaciones establecidas en la Constitución Política y las leyes, a toda documentación e información de las Unidades Administrativas que conforman el Ministerio, además de otras unidades ejecutoras que administran fondos donados por organismos privados o gobiernos.
+c) Requerir la colaboración y asesoría de otros funcionarios de cualquier nivel jerárquico y especialidad.
+d) Señalar en cada caso, el plazo en el cual la administración activa debe suministrar la información solicitada. Este plazo será establecido considerando la complejidad del asunto en cuestión, así como la importancia y urgencia que representa para la oportuna ejecución de sus funciones. Cuando la solicitud no pueda ser atendida por el auditado dentro del plazo establecido, deberá justificar formalmente y comunicarlo así a la Auditoría, dentro de los dos primeros días hábiles siguientes al recibo de la petición para su solución.
+e) Obtener en la forma, condiciones y con la celeridad del caso, los informes, datos y documentos necesarios para el cabal cumplimiento de las funciones encomendadas.
+f) Cuando existan casos bajo examen que impliquen irregularidades, conducta indebida, o exista la sospecha de tales actuaciones, la Unidad de Auditoría Interna está facultada para realizar investigaciones, aplicar cuestionarios o entrevistas por escrito a servidores y funcionarios de la institución y obtener otras evidencias que sean necesarias según las circunstancias.
+g) Ejecutar sus funciones con libertad, objetividad e independencia de criterio.
+h) Utilizar según las circunstancias, la técnica que satisfaga en mejor forma las necesidades de los exámenes y verificaciones que lleve a cabo.
+i) Prioridad razonable en el uso de los vehículos administrativos del MIVAH, para cumplir oportunamente con las funciones propias de la Auditoría.
+j) Cualquiera otra que sea concordante con su misión, objetivos y con las funciones que desempeña legalmente.

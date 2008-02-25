@@ -1,0 +1,1 @@
+Artículo 34.—Cuando lo consideren necesario el Auditor General o el Jerarca podrá proponer modificaciones al presente reglamento. Una vez aprobadas por el jerarca, el Auditor deberá presentar a la Contraloría una certificación de que lo aprobado cumple con las directrices y demás normativa aplicable.

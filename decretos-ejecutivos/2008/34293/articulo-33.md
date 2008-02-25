@@ -1,0 +1,1 @@
+Artículo 33.—En la elaboración del presente reglamento se consideraron las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público, emitido por la Contraloría General de la República publicado en La Gaceta Nº 236 del 8 de diciembre de 2006.
