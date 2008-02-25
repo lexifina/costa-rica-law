@@ -1,0 +1,1 @@
+Artículo 43.—Cualquier modificación a las condiciones o especificaciones del Cartel deberán comunicarse por los mismos medios en que se cursó la invitación con, al menos, tres días hábiles de anticipación al vencimiento del plazo para recibir las ofertas.

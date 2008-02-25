@@ -1,0 +1,1 @@
+Artículo 29.—La Coordinación Administrativa deberá comunicar a los oferentes el acto de adjudicación, por el mismo medio que utilizó para cursar la invitación, para lo cual contará con un plazo de dos días hábiles a partir del recibo de dicho acto.

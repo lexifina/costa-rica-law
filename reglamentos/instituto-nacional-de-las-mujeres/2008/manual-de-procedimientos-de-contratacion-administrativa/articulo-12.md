@@ -1,0 +1,1 @@
+Artículo 12.—Con la finalidad de mantener actualizado el Registro de Proveedores, el Área Administrativa invitará a las personas interesadas en integrarlo, mediante publicación en el Diario Oficial y en un diario de circulación nacional, al menos una vez al año. Se deberá aportar justificación sobre el diario a utilizar.

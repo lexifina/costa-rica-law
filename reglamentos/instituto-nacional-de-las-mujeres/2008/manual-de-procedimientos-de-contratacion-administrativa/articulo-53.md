@@ -1,0 +1,1 @@
+Artículo 53.—Entre la fecha de la invitación y la fecha de apertura debe mediar un período que no puede ser menor de tres días ni mayor de cinco días hábiles (salvo casos justificados por la naturaleza del servicio).

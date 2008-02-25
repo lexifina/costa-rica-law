@@ -1,0 +1,1 @@
+Artículo 47.—El proceso de contratación por servicios profesionales se iniciará con la solicitud para la adquisición de los bienes y servicios, la que debe presentarse, además de los términos de referencia, con las especificaciones técnicas, las cuales deben contener la información descrita en el capitulo IV, puede ser pública, abreviada o contratación directa según corresponda

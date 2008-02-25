@@ -1,0 +1,1 @@
+Artículo 35.—La Tesorería enviará a la Coordinación Administrativa, en la segunda semana de cada mes, las fotocopias de los cheques pagados o copias de transferencias, durante el mes anterior, para la incorporación en el expediente de cada contratación.

@@ -1,0 +1,1 @@
+Artículo 48.—Todas las contrataciones relativas a servicios profesionales, independientemente del monto, se formalizarán mediante orden de compra y contrato firmado entre las partes, el cual se tramitará ante la Unidad de Asesoría Legal.

@@ -1,0 +1,2 @@
+Artículo 42.—El Área Administrativa en término de tres días cursa invitación por el periódico Oficial La Gaceta y medios electrónicos habilitados por la Administración. Cuando corresponda el plazo mínimo para recibir ofertas es de 15 días una vez publicado para las Licitaciones Públicas. Las licitaciones abreviadas tienen un mínimo de 5 hasta 20 días para recibir ofertas. Tendrá de tiempo para adjudicarse hasta el doble del tiempo previsto para recibir ofertas.
+El tiempo previsto para la contratación de servicios profesionales depende de si es pública, abreviada o directa.

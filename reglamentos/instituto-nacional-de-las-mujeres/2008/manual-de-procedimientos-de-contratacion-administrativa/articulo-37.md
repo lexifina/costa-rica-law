@@ -1,0 +1,1 @@
+Artículo 37.—Todas las unidades administrativas, técnicas y asesoras, deberán acatar las disposiciones que se establecen en este Manual. El no cumplimiento de estas obligaciones podrá dar lugar a la apertura del expediente disciplinario administrativo correspondiente.

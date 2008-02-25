@@ -1,0 +1,1 @@
+Artículo 13.—Todas las personas interesadas en ser incluidas en el Registro de Proveedores, sean físicas o jurídicas, podrán solicitar su incorporación en cualquier momento, no obstante para poder ser consideradas en un procedimiento de contratación deberán encontrarse inscritas en el Registro de Proveedores.

@@ -1,0 +1,1 @@
+Artículo 22.—El tiempo, forma y elementos específicos para la invitación y la recepción de ofertas, por proceso queda estipulado en el capítulo de cada uno, sea Licitación Pública, Abreviada, Directa o de Menor cuantía. Todas las adquisiciones inician con solicitud de bienes y servicios.

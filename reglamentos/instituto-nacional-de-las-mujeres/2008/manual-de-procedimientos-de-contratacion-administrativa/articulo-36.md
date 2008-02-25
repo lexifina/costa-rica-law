@@ -1,0 +1,1 @@
+Artículo 36.—El Coordinador Administrativo o quien este designe, deberá digitar en el Sistema Integrado de Actualización Contractual de la Contraloría General de la República, la información generada en el proceso de contratación, en un plazo de tres días hábiles después de realizado el trámite.

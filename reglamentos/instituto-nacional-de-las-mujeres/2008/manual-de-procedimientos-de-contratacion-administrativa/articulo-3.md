@@ -1,0 +1,1 @@
+Artículo 3º—Los plazos y términos establecidos en el presente Manual son de acatamiento obligatorio y se entenderá que todos ellos corren en días hábiles. Todo incumplimiento debe ser debidamente justificado y constar en el expediente.

@@ -1,0 +1,1 @@
+Artículo 45.—Firme el acto de adjudicación y recibida la garantía de cumplimiento, la Coordinación Administrativa, en el plazo de dos días hábiles, remitirá el expediente completo y debidamente foliado a la Unidad de Asesoría Legal para que proceda a elaborar el contrato en un plazo de tres días hábiles.
