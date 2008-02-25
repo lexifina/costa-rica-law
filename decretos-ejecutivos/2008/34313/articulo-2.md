@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a las instituciones de la administración pública central y descentralizada, para que dentro del marco de sus posibilidades legales, proporcionen el apoyo que sea requerido para la realización del “IV Congreso de la Asociación Latinoamericana de Ciencia Política, ALACIP 2008”.
