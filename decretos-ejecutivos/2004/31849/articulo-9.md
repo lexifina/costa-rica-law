@@ -1,5 +1,6 @@
 Artículo 9º—Documentos de Evaluación Ambiental:
-Documento de Evaluación Ambiental -D1. El Documento de Evaluación Ambiental -D1, deberá ser utilizado por las actividades, obras o proyectos de categoría de alto y moderado IAP (A, B1 y B2 sin plan regulador aprobado por SETENA), según lo establecido en este reglamento.
+Documento de Evaluación Ambiental -D1. El Documento de Evaluación Ambiental –D1, deberá ser utilizado por las actividades, obras o proyectos de categoría de alto y moderado IAP (A, B1 y B2), según lo establecido en este reglamento.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 34688 del 25 de febrero de 2008)
 El D1 incluirá la información que se indica a continuación, a la que además se le deberá acompañar la documentación que se especi.ca en este artículo.
 Información que debe señalarse en el D1:
 1) Nombre de la actividad, obra o proyecto.
@@ -25,7 +26,8 @@ Documentación que debe adjuntarse al D1:
 12) Cuando se justifique técnicamente, la SETENA podrá solicitar, en razón del tipo de actividad, obra o proyecto, un estudio de vialidad, aprobado por el MOPT, y un estudio rápido biológico; según lo establecido en el Anexo 2 del Manual de EIA-D1, incisos 3.3.7 y 2.4, respectivamente.
 El D1 deberá ser firmado por el desarrollador de la actividad, obra o proyecto, conjuntamente con un consultor ambiental, cuyas firmas deberán ser autenticadas por un Notario Público, en caso contrario, deberán presentarse ambos a la SETENA con sus respectivas identificaciones, a firmar en presencia del funcionario de la SETENA.
 Tanto la solicitud que contiene la información que se estipuló en el presente artículo, como la información señalada en la matriz básica de identificación de impactos ambientales acumulativos, debe declararse bajo fe de juramento de que es actual y verdadera; en caso contrario pueden derivarse consecuencias penales del hecho.
-Documento de Evaluación Ambiental -D2. El Documento de Evaluación Ambiental D2 deberá ser presentado por el desarrollador de las actividades, obras o proyectos categorizados como de bajo IAP (C y B2 con plan regulador aprobado por SETENA) según lo define este Reglamento, e incluye:
+Documento de Evaluación Ambiental –D2: El Documento de Evaluación Ambiental D2 deberá ser presentado por el desarrollador de las actividades, obras o proyectos categorizados como de bajo IAP (C ), según los define este Reglamento, e incluye:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 34688 del 25 de febrero de 2008)
 Información que debe señalarse en el D2:
 1) Nombre de la actividad, obra o proyecto.
 2) Categoría de la actividad, obra o proyecto de acuerdo a la Clasificación CIIU y su IAP.
