@@ -1,0 +1,13 @@
+Nº 34315
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRADE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades y atribuciones conferidas por los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; y de conformidad con lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4781 del 5 de julio de 1971 y sus reformas; la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978 y sus reformas y la Ley de Administración Vial, Nº 6324 del 24 de mayo de 1979.
+Considerando:
+1º—Que compete al Estado por medio del Ministerio de Obras Públicas y Transportes y del Consejo de Seguridad Vial, este último como órgano colegiado dotado de desconcentración máxima, todo lo referente a la adopción de estudios y medidas para la tutela de la seguridad vial en las vías públicas del territorio de la República.
+2º—Que la seguridad vial constituye un bien jurídico fundamental cuya tutela resulta imperativa por estar en juego la integridad física de las personas, el mejor ordenamiento en el tránsito vehicular y la salvaguarda de toda clase de bienes.
+3º—Que entre los días 28 y 30 de mayo del 2008 se celebrará en Costa Rica el Primer Congreso Ibero-Americano de Seguridad Vial, oportunidad en la cual se desarrollarán temas tales como la medición, evaluación y gestión de la seguridad vial, el control y la gestión del tráfico, el diseño geométrico de las carreteras, la educación vial y las campañas de concientización, los factores fisiológicos y psicológicos en la seguridad vial, los aspectos legislativos y normativos de la seguridad vial, etc.
+4º—Que las actividades que se realizarán durante el congreso indicado, se consideran de especial importancia para el país en materia de seguridad vial, control y gestión del tránsito en carreteras, y el diseño geométrico de estas últimas, así como de diferentes tópicos atinentes a la seguridad vial.
+5º—Que a tales efectos se contará con la participación de reconocidos peritos y profesionales nacionales e internacionales, tanto del sector público como privado, cuyos aportes y experiencia redundarán en beneficio para el país con el fin de establecer y apoyar los proyectos que se consideren óptimos en aras de la seguridad vial.
+6º—Que en virtud de lo expuesto, se considera imperativa la declaratoria de interés público nacional respecto de la actividad antes dicha, a celebrarse entre los días 28 y 30 de mayo del año en curso. Por tanto,
+Decretan:
+Artículo 1º—Declárese de interés público nacional todas las actividades que se llevarán a cabo en el marco del Primer Congreso Ibero-Americano de Seguridad Vial, que tendrá lugar en nuestro país entre los días 28 y 30 de mayo del año 2008, inclusive.
