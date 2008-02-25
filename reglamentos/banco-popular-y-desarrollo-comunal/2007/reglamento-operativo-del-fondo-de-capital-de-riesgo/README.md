@@ -14,3 +14,4 @@ Reglamento Operativo del Fondo de Capital de Riesgo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-22 | la propia norma |
+| 2 | 2008-02-25 | Reglamento 4554 (2008-02-25) |
