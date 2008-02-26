@@ -6,5 +6,6 @@ d) Presentar los originales de los títulos, diplomas y otras licencias obtenida
 e) Fotografías tamaño pasaporte, en número que fijará la Junta.
 f) Constancia, a juicio de la Junta, que demuestre que el candidato es de buena reputación.
 g) Dos cartas de recomendación extendidas por miembros activos del Colegio.
-h) Cancelar los derechos que le señale la Asamblea.
+h) Conforme al artículo 10 de la Ley Orgánica del Colegio de Profesionales en Quiropráctica, todo miembro activo del Colegio deberá cumplir con la cuota de inscripción de cien mil colones y la cuota mensual de veinticinco mil colones depositables en la cuenta corriente del colegio.”
+(Así reformado el inciso anterior por el artículo N° 1 del Decreto Ejecutivo N° 34420 de 26 de febrero de 2008)
 i) Cualquier otro requisito que le señale la Junta.
