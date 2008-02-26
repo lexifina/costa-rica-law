@@ -1,0 +1,1 @@
+Artículo 15.—Las reformas parciales o totales del presente Reglamento, requerirán de la aprobación de la mitad más uno de la totalidad de los regidores propietarios del Concejo y deberán publicarse en el Diario Oficial La Gaceta para entrar en vigencia.

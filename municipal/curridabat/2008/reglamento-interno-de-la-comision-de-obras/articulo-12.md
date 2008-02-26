@@ -1,0 +1,1 @@
+Artículo 12.—Los dictámenes que la Comisión de Obras emita deberán ser presentados por escrito y debidamente firmados por el presidente y secretario en función, antes de las 12:00 medio día en la Secretaría Municipal para su inclusión en la agenda de la sesión inmediata siguiente, pudiéndose en caso de urgencia, incorporar durante la misma, a discreción de la Presidencia.

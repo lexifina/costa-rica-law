@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE CURRIDABAT
+REGLAMENTO INTERNO DE LA COMISIÓN DE OBRAS
+La Municipalidad de Curridabat, en el ejercicio de las facultades que le confieren los artículos 4, inciso a), 13 inciso c) y 50 del Código Municipal, por acuerdo que consta en el artículo 3º, capítulo 3º, del acta de la sesión ordinaria Nº 92-2008, del 29 de enero del 2008, decreta el siguiente:
+REGLAMENTO INTERNO DE LA COMISIÓN DE OBRAS
+Artículo 1º—De conformidad con lo establecido por el artículo 49 del Código Municipal, en cada sesión posterior inmediata a la instalación de los miembros del Concejo Municipal, la Municipalidad de Curridabat, integrará una Comisión permanente de Obras Públicas, que estará compuesta por un mínimo de tres y un máximo de siete miembros del Concejo Municipal y como asesores, los funcionarios de la administración municipal que se requieran, pudiéndose invitar a particulares en calidad de asesores. Todos los asesores tendrán ante la comisión derecho a voz, pero sin voto. El Presidente del Concejo procurará que todas fracciones políticas estén representadas en la Comisión de Obras.
