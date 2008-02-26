@@ -14,3 +14,4 @@ Reglamento para la autorización y el pago de egresos de la Municipalidad de Cur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-18 | la propia norma |
+| 2 | 2008-02-26 | Reglamento municipal 96 (2008-02-26) |
