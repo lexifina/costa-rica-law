@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento tiene como objetivo establecer el marco reglamentario para el uso de los recursos destinados a emprendimientos de jóvenes, organizados mediante organismos cooperativos escolares y juveniles.

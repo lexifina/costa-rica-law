@@ -1,0 +1,1 @@
+Artículo 16.—Obligaciones del deudor sobre garantía otorgadas. Ni el deudor ni el propietario podrán gravar o enajenar el bien dado en garantía, sin previa autorización del INFOCOOP. En caso de incumplimiento se podrá dar por vencida y hacer exigible la obligación, aún cuando la operación se encuentre al día en el pago.

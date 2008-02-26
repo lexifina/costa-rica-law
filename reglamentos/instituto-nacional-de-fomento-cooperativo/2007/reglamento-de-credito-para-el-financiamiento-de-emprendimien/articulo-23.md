@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Desembolsos
+Artículo 23.—Desembolsos. La atención de las solicitudes de crédito estará sujeta a la disponibilidad de recursos del Fondo de Cooperativas Escolares y Juveniles del INFOCOOP.
+Una vez cumplidas las condiciones previas y de formalización, se girará de acuerdo con el programa de desembolsos definido en el estudio técnico. Cuando así se requiera, a juicio del INFOCOOP este solicitará que en el contrato de crédito se estipule la autorización del organismo Cooperativo para efectuar los giros directamente a la orden de los proveedores, acreedores, contratistas, profesionales, o a la orden del beneficiario contra la presentación de los comprobantes correspondientes, según se haya recomendado técnicamente.
+Para que el INFOCOOP ejerza su facultad de supervisión de los desembolsos, el Organismo Cooperativo brindará la información que le sea requerida por el Proceso de Operaciones al momento de realizar los desembolsos para tal efecto. En caso de que se detecten hachos subsecuentes o situaciones relevantes que alteren elementos del crédito aprobado, el INFOCOOP se reserva el derecho de suspender los desembolsos.

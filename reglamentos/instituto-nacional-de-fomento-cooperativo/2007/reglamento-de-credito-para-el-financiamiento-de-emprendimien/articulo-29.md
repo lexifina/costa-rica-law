@@ -1,0 +1,1 @@
+Artículo 29.—Interés moratorio. Cuando existan atrasos en el servicio de las amortizaciones se cobrarán intereses moratorios, mismos que se aplican sobre los montos de las amortizaciones sin pagar, desde el día de vencimiento hasta la fecha de su cancelación. La tasa de interés moratorio será la misma que la tasa de interés corriente de la operación.

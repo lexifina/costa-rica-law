@@ -1,0 +1,2 @@
+Artículo 21.—Plazo para formalizar. El Organismo Cooperativo contará con un plazo de hasta 2 meses, contados a partir de la comunicación formal del acuerdo de Junta Directiva, para concretar la formalización del crédito. El Proceso de Operaciones podrá otorgar un plazo de 2 meses más contados a partir del vencimiento del plazo anterior, en aquellos casos en los que considere que existen suficientes elementos que así lo justifiquen, debiendo dejar constancia en el respectivo expediente.
+Transcurrido ese plazo sin que se formalice el crédito, se archivará el caso.

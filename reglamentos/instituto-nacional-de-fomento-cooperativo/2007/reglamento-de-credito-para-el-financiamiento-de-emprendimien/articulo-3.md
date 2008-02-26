@@ -1,0 +1,1 @@
+Artículo 3º—Origen de los recursos. Para el financiamiento de estos proyectos se destinará hasta un 30% del presupuesto de colocaciones del Fondo denominado Cooperativas Escolares Estudiantiles y Juveniles.

@@ -1,0 +1,1 @@
+Artículo 13.—Períodos de gracia. Se podrán otorgar períodos de gracia para los créditos destinados a financiar proyectos, donde por la capacidad de generación de las cooperativas, según se demuestre en el estudio técnico así lo requieran. Los períodos de gracia son aplicables únicamente al pago de las amortizaciones, que en todo caso no debe superar los 24 meses.
