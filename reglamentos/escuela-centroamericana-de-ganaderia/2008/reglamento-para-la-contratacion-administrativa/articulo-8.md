@@ -1,0 +1,1 @@
+Artículo 8º—De las excepciones al caso de las ventas. No podrá hacerse la venta de ningún tipo de servicio y bajo ninguna circunstancia si la misma tiende a afectar el cumplimiento de los objetivos de la institución; el Decano tendrá la facultad de denegar, interrumpir o posponer por motivos de fuerza mayor o caso fortuito la venta del servicio.
