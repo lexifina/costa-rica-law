@@ -14,3 +14,4 @@ Reforma Reglamento de becas de la Municipalidad de Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-07 | la propia norma |
+| 2 | 2008-02-26 | Reglamento municipal 9 (2008-02-26) |

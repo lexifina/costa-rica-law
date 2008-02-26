@@ -9,7 +9,8 @@ Sometido a votación la propuesta del artículo 5 de modificación al Reglamento
 Modifíquese el artículo 8, del Reglamento de Becas cuyo texto dirá: “La nota inferior a 70 en alumnos de Secundaria y Enseñanza Superior, elimina el disfrute de este beneficio.”
 SE ACUERDA:
 Sometido a votación la propuesta del artículo 8 de modificación al Reglamento de Becas, presentada por la Comisión de Reglamentos, este Concejo Municipal con tres votos positivos menos el voto negativo de la regidora Vega Obando y Obando Angulo, dispone que el artículo 8 del presente Reglamento se modifique de la siguiente manera:
-“La nota inferior a 65 en alumnos de Secundaria y 70 en alumnos de Enseñanza Superior, elimina el disfrute de este beneficio”.
+(*)“La nota inferior a 65 en alumnos de Secundaria y 70 en alumnos de Enseñanza Superior, elimina el disfrute de este beneficio”.
+(*)(NOTA DE SINALEVI: Mediante sesión N° 09 del 26 de febrero de 2008, publicada en La Gaceta N° 62 del 31 de marzo de 2008, se acordó que la nota mínima (Secundaria) para primer, segundo y tercer ciclo sea de 65 y para cuarto, quinto y sexto año sea de 70).
 En tanto la regidora Obando Angulo justifica su voto “Considero que la Educación en nuestro Colegio debe al tiempo que vivimos, adquirir y pedir excelentes calificaciones para adquirir excelentes profesionales carrillenses y más cuando se recibe una beca, sea poca o mucha ayuda para el becado, se tiene que pedir lo mejor en rendimiento académico y conducta”. Para que se proceda cuanto antes a su publicación en el Diario Oficinal La Gaceta.
 Agréguese un inciso d) en el artículo 9 del Reglamento de Becas, cuyo texto dirá: “Por maternidad de la beneficiaria de la Beca Municipal”.
 SE ACUERDA:
