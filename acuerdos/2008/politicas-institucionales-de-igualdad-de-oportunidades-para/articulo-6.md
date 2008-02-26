@@ -1,0 +1,2 @@
+VI. Política sobre contratos de obra
+El Departamento de Proveeduría, en su condición de órgano competente para tramitar los procedimientos de contratación administrativa, velará porque en todo compra de servicio para construcciones nuevas, ampliaciones o remodelaciones de edificios, aceras, jardines, parqueos y servicios sanitarios; se efectúen conforme a las especificaciones técnicas reglamentarias de los organismos públicos y privados encargados de la materia.

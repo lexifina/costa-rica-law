@@ -1,0 +1,6 @@
+IV. Políticas específicas en el ámbito actitudinal
+a) Establecer mecanismos de cooperación mutua con el Consejo Nacional de Rehabilitación, Universidades Estatales y organizaciones que agrupen a personas con discapacidad, con el objetivo de capacitar a los funcionarios del Instituto en materia de discapacidad y en el lenguaje LESCO, así como para realizar investigaciones para evaluar los programas existentes, los servicios que brinda el Instituto y la accesibilidad de sus edificaciones.
+b) Coordinar con otras instituciones públicas o privadas para conocer el manejo que ellos le están dando a los clientes con discapacidad o a sus funcionarios, para lograr una retroalimentación sobre el tema.
+c) Crear una base de datos del personal con discapacidad que labora en la Institución, como estrategia para garantizar los servicios de apoyo y técnicos que estos requieren, que garanticen el cumplimiento de sus derechos y deberes.
+d) Garantizar que en la selección de personal, se exijan los mismos requisitos establecidos para cualquier solicitante.
+e) Incluirá contenidos de educación, sensibilización e información sobre discapacidad, en los programas de capacitación dirigidos al personal del INS.

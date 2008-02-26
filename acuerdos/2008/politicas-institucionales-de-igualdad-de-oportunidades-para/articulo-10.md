@@ -1,0 +1,6 @@
+X. Sanciones
+De conformidad con la Ley Nº 7337 del 5 de mayo de 1993, será sancionada con una multa igual a la mitad del salario mínimo, la persona física o jurídica que cometa cualquier tipo de discriminación determinada por distinción, exclusión o preferencias, por una discapacidad, que limite la igualdad de oportunidades, en cuanto a la accesibilidad o el trato en materia de trabajo, educación, salud, transporte u otros campos. En el caso del INS la multa será cancelada por el funcionario que haya incurrido en ese incumplimiento y que así se determine luego de la investigación conforme la Convención Colectiva de Trabajo.
+Todo nombramiento, despido, suspensión o traslado, permuta, ascenso, descenso o reconocimientos que se efectúen en contra de lo dispuesto en esa ley, carecerán de eficacia en lo que resulte discriminatorio.
+Los funcionarios causantes de la acción en contra de lo dispuesto en esta ley serán, personalmente, responsables y responderán con su patrimonio por los daños y perjuicios que resulten.
+Para determinar la verdad real de los hechos y aplicar lo establecido en el artículo anterior, se seguirá el procedimiento ordinario contenido en la Ley General de la Administración Pública y los artículos correspondientes de la Ley de Jurisdicción Contencioso-Administrativa.
+San José, 11 de febrero del 2008.
