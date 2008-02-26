@@ -1,0 +1,9 @@
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 5 del acta de la sesión 701-2008, celebrada el 11 de febrero del 2008, con base en lo propuesto por la Superintendencia General de Entidades Financieras en su oficio SUGEF-415-2008, del 6 de febrero del 2008, y
+considerando que:
+A. en artículo 11 del acta de la sesión 690-2007, celebrada el 10 de diciembre del 2007, se aprobó en firme la modificación de los anexos de los acuerdos SUGEF 1-05, “Reglamento para la calificación de deudores”, SUGEF 4-04, “Reglamento sobre el Grupo Vinculado”, SUGEF 5-04, “Reglamento sobre límites de crédito a personas individuales y grupos de interés económico”, SUGEF 24-00, “Reglamento para juzgar la Situación Económica-Financiera de las Entidades Fiscalizadas”, SUGEF 27-00, “Reglamento para juzgar la situación económica-financiera de las asociaciones mutualistas de ahorro y préstamo para la vivienda” y SUGEF 31-04, “Reglamento relativo a la información financiera de entidades, grupos y conglomerados financieros”, con lo cual se actualizaron las referencias contables por la entrada en vigencia a partir de enero del 2008 del Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros Homologado,
+B. debe complementarse lo aprobado en el artículo 11 del acta de la sesión 690-2007, celebrada el 10 de diciembre del 2007, en concordancia con el Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros Homologado y el marco reglamentario vigente; por lo anterior, no se requiere el envío en consulta de los cambios propuestos,
+resolvió en firme:
+I.—Aprobar la actualización del nombre de la cuenta 146.01, contenida en el Anexo 2, Otros activos sujetos a estimación, del Acuerdo SUGEF 1-05, “Reglamento para la Calificación de Deudores”, para que se lea como sigue:
+“[…]
+-146.01 | Impuesto sobre la renta diferido
+[…]”
