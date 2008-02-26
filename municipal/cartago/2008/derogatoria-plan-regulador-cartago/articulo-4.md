@@ -1,0 +1,1 @@
+4º—Que la derogatoria del Plan Regulador de Cartago y su Reglamento de Zonificación, excepto el Plan Parcial Vial de Cartago ni la Zonificación Industrial establecida en el Reglamento de Zonificación Parcial de Áreas Industriales de la Gran Área Metropolitana, rige a partir de su publicación en el Diario Oficial La Gaceta.
