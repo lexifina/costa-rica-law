@@ -1,0 +1,6 @@
+Artículo 13.—Plan de Adquisiciones.
+13.1 Los programas de adquisiciones de cada año, deberán ser confeccionados conjuntamente con el Plan Operativo anual y el Plan Presupuesto, todo de acuerdo a los lineamientos que se establezcan al respecto.
+13.2 La Sección de Proveeduría, consolidará los programas de adquisiciones, conteniendo la información solicitada en el Artículo 7 del Reglamento General de Contratación Administrativa, y coordinará la publicación en el Diario Oficial “La Gaceta”, en el primer mes de cada periodo presupuestario.
+13.3 Cualquier modificación al programa de adquisiciones, deberá remitirse a la Sección de Proveeduría, mediante solicitud formal autorizada por el Jefe de cada área, en la que consten las razones que motivan la modificación.
+13.4 La Sección de Proveeduría, no tramitará las necesidades no incluidas en el programa de adquisiciones y sus modificaciones, en todo caso, los funcionarios que promuevan un trámite de contratación sin que la necesidad estuviere contemplada en el programa de adquisiciones quedarán sujetos al régimen disciplinario respectivo.
+A lo dispuesto en la presente norma, le será aplicable lo preceptuado en el artículo 7 del presente cuerpo normativo.

@@ -1,0 +1,1 @@
+Artículo 11.—Estimación de los procedimientos. Para la estimación de la contratación y determinación del procedimiento, se atenderá lo dispuesto en los artículos 27 de la Ley de Contratación Administrativa, 136 del Reglamento de Contratación Administrativa y las resoluciones que emita el ente contralor en materia de límites presupuestarios.
