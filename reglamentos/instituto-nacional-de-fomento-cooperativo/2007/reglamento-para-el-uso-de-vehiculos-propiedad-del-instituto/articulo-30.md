@@ -1,0 +1,1 @@
+Artículo 30.—Robo o hurto del vehículo. En caso de robo o hurto de algún vehículo de la institución, el conductor deberá presentar la denuncia respectiva ante el Organismo de Investigación Judicial. Así mismo, entregar al Proceso Administración y Finanzas copia de la denuncia con el informe correspondiente de los hechos.

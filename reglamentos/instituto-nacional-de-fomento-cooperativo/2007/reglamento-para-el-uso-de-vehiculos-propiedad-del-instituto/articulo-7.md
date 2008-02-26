@@ -1,0 +1,1 @@
+Artículo 7º—Todos los vehículos de uso administrativo serán conducidos únicamente por servidores del Instituto, debidamente autorizados y acreditados, y exclusivamente para el desempeño de funciones propias de la Institución. Ello siempre y cuando el cargo que ocupen se lo exija.

@@ -1,0 +1,1 @@
+Artículo 16.—Corresponde al Proceso Administración y Finanzas velar por el adecuado cumplimiento del contrato por concepto de “Servicios Mecánicos y Mantenimiento Correctivo y Preventivo para la Flotilla Vehicular del INFOCOOP”.

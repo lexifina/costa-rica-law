@@ -1,0 +1,1 @@
+Artículo 49.—Se deroga el Reglamento aprobado por la Junta Directiva del INFOCOOP en sesión Nº 3.105 del 26 de noviembre del 2001, así como cualquier otra disposición reglamentaria que se le opusiere.

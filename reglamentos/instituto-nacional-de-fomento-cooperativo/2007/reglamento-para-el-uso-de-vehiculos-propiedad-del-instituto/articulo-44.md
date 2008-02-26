@@ -1,0 +1,1 @@
+Artículo 44.—El Proceso Administración y Finanzas es la dependencia encargada a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento. Sin perjuicio de las acciones que en mismo sentido, realicen los Coordinadores de Proceso y Macroproceso.

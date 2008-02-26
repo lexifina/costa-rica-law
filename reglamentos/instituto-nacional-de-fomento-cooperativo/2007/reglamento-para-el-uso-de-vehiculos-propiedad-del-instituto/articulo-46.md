@@ -1,0 +1,1 @@
+Artículo 46.—Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento, a las atribuciones y jurisdicción del Coordinador del Proceso Administración y Finanzas, será resuelta en última instancia por la Junta Directiva.

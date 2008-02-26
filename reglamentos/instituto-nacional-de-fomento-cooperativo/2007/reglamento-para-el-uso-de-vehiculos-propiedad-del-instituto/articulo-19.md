@@ -1,0 +1,1 @@
+Artículo 19.—En caso que se amerite, los conductores deberán solicitar al Coordinador del Proceso Administración y Finanzas la orden para el suministro de combustible, lubricantes y otros, la cual deberá presentarse ante la estación de servicio que la Institución designe, debidamente firmada por el Coordinador del Proceso Administración y Finanzas.

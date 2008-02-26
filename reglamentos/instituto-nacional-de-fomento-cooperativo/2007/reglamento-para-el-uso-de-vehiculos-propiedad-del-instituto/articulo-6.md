@@ -1,0 +1,1 @@
+Artículo 6º—Los vehículos de uso administrativo son los que se mantienen bajo la custodia y administración del Proceso Administración y Finanzas, para solventar las necesidades de transporte de los servidores de la institución.

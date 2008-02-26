@@ -1,0 +1,1 @@
+Artículo 31.—Cobertura de accidentes. El INFOCOOP procederá a cubrir en su totalidad el monto por concepto de deducible del vehículo oficial cuando un funcionario en el ejercicio de sus funciones sufra una colisión o accidente de tránsito, siempre y cuando no medie sentencia condenatoria de los Tribunales de Justicia en donde se establezca su responsabilidad.
