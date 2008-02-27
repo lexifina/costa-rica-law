@@ -14,3 +14,4 @@ Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-05 | la propia norma |
+| 2 | 2008-02-27 | Reglamento 5368 (2008-02-27) |

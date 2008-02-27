@@ -1,5 +1,7 @@
+(Derogado)
 BANCO CENTRAL DE COSTA RICA
 (Nota de Sinalevi: Sobre este tema el Banco Central de Costa Rica, había emitido anteriormente el Reglamento del Sistema de Pagos, en sesión N° 5213 del 1° de setiembre de 2004, y publicado en La Gaceta N° 180 del 14 de setiembre de 2004)
+(Este Reglamento fue dejado sin efecto mediante sesión N° 5368 del 27 de febrero de 2008)
 La Junta Directiva del Banco Central de Costa Rica, mediante numeral 1, Artículo 8 del Acta de la sesión 5296-2006, celebrada el 20 de setiembre del 2006,
 considerando que:
 a) la Junta Directiva del Banco Central de Costa Rica, mediante Artículo 11, de la sesión 5243-2005, celebrada el 25 de agosto del 2005, convino en autorizar a la Administración del Banco para que implemente las medidas pertinentes con el fin de poner en funcionamiento el servicio “Ventanilla del Banco Central”, de conformidad con el documento “Visión. Ventanilla del Banco Central (VBC). Serie de normas y procedimientos. Agosto del 2005”, elaborado por la División de Servicios Financieros,
