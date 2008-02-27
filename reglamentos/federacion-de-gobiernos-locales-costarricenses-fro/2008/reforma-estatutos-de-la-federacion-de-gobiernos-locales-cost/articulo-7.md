@@ -1,0 +1,2 @@
+Artículo 7º—Modifícase el artículo 22 de los estatutos, el cuál dirá:
+“Artículo 22.—Las convocatorias para Asamblea General, ordinaria o extraordinaria, se efectuaran en forma escrita y con un mínimo de quince días de anticipación a la celebración de la misma, salvo lo indicado en el párrafo final del artículo 21, en cuyo caso se podrá convocar veinticuatro horas después de la Asamblea fallida. La convocatoria incluirá día, hora y lugar donde se celebrará la Asamblea, así como la enumeración de los asuntos a tratar.”

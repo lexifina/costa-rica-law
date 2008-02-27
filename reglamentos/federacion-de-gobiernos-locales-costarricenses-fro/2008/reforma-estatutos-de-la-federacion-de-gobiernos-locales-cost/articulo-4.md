@@ -1,0 +1,2 @@
+Artículo 4º—Reformase parcialmente el artículo 14 de los estatutos para en adelante se lea:
+“Artículo 14.—La Asamblea General es el órgano superior de la Federación y estará integrada por dos representantes y la Alcaldesa, Alcalde, Intendenta o Intendente de cada Municipalidad o Concejo Municipal de Distrito afiliado, pudiendo ser sustituido por el Alcaldesa o Alcalde Suplente o Viceintendente debidamente autorizado por el Consejo Municipal respectivo.”

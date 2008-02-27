@@ -1,0 +1,2 @@
+Artículo 10.—Modifícase el artículo 32 de los estatutos, para que en adelante se lea:
+“Artículo 32.—El Concejo Directivo se reunirá en forma ordinaria una vez al mes. En la sesión de instalación se acordarán la hora, día y lugar para las mismas. En forma extraordinaria se reunirá cuando así lo solicite el Presidente, el Concejo de Alcaldes, el Director o Directora Ejecutivo, el/la Fiscal o cuando las dos terceras partes de los miembros del Concejo Directivo así lo requieran en forma escrita a la Presidenta o Presidente.”

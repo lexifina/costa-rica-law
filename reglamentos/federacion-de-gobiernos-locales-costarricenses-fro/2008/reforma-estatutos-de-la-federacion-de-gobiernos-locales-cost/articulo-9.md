@@ -1,0 +1,2 @@
+Artículo 9º—Modifícase el artículo 27 de los estatutos, el cuál en adelante dirá:
+“Artículo 27.—El Concejo Directivo estará compuesto por una Presidenta o Presidente, un Vicepresidente/a, un Secretario/a, un Prosecretario/a, un Tesorero/a y cuatro vocales, que se nombrarán de los delegados presentes en la Asamblea General, durarán en sus cargos dos años, pudiendo ser reelectos y en su conformación deberá estar integrado al menos una Alcaldesa, Alcalde, Intendenta o Intendente.”
