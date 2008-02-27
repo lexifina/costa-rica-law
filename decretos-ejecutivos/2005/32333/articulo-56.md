@@ -1,75 +1,35 @@
-Artículo 56.—Lista adicional de funcionarios públicos que deben declarar. También deberán presentar declaración los funcionarios que ocupen los siguientes puestos o realicen las funciones correspondientes a dichos puestos, y que estén nombrados en los órganos y entes de la Administración Pública Descentralizada, tanto estatales como no estatales, en las Empresas Públicas y en los Órganos Desconcentrados:
-I. Miembros propietarios y suplentes de las juntas directivas o administrativas y consejos directivos, excepto fiscales sin derecho a voto
-Secretario de junta o consejo directivo
-Presidente Ejecutivo
-Auditor Interno o Contralor
-Subauditores internos y específicos
-Regulador General de la República
-Gerente y Subgerente Generales
-Gerentes y Subgerentes específicos
-Administrador y Subadministrador Generales
-Director y Subdirector Ejecutivo
-Director y Subdirector de División
-Director y Subdirector Generales
-Directores, Jefes y Subjefes de Departamento
-Director y Subdirector Médico de Hospitales, Clínicas y Áreas de Salud
-Coordinadores Generales y Específicos
-Jefe y Subjefes de Dirección
-Jefes y Supervisores de Plantel
-Director, Jefe o Encargado del Área Administrativa
-Director, Jefe o Encargado del Área de Tesorería
-Director, Jefe o Encargado del Área, Dirección, Departamento, Oficina o Sección Financiera
-Director, Jefe o Encargado de las Direcciones o Departamentos de Aprovisionamiento, Proveedurías Internas, o cargo similar
-Jefes o Encargados de Bodega de materiales y suministros, repuestos, combustibles y artículos de oficina, bienes embargados, etc., cuyo inventario mínimo de existencias sea igual o mayor a 50 millones de colones.
-II. En la Superintendencia General de Entidades Financieras, de Valores y de Pensiones y el CONASSIF
-Miembros del Consejo Directivo propietarios y suplentes
-Superintendente e Intendente Generales
-Directores Generales
-Auditor Interno
-Subauditor Interno
-Director, Jefe o Encargado del Área Administrativa
-Director, Jefe o Encargado del Área de Tesorería
-Director, Jefe o Encargado del Área, Dirección, Departamento,
-Oficina o Sección Financiera
-Directores, Jefes y Subjefes de Departamento
-Proveedor o cargo similar
-III. En las Universidades Estatales e Instituto Tecnológico de Costa Rica
-Miembros de los Consejos Universitarios propietarios y suplentes
-Rector y Vicerrectores
-Auditor interno o Contralor
-Subauditor interno o Subcontralores
-Director, Jefe del Departamento, Área, Oficina o Sección Financiera
-Jefe de la Oficina, Sección o Departamento de Aprovisionamiento, Proveeduría Interna o cargo similar
-Director, Jefe o Encargado del Área de Tesorería
-Directores, Jefes y Subjefes de Departamento
-Coordinadores Generales y Específicos
-Director Administrativo
-IV. En los Colegios Universitarios
-Miembros de Junta Directiva propietarios y suplentes
-Decano
-Auditor Interno
-Subauditor Interno
-Director o Jefe del Departamento, Área, Oficina o Sección
-Financiera
-Proveedor o cargo similar
-Directores, Jefes y Subjefes de Departamento o Dirección
-Coordinadores Generales y Específicos
-Director Administrativo
-Director, Jefe o Encargado del Área de Tesorería
-V. En las Corporaciones Municipales
-Alcalde
-Vicealcalde
-Intendente Municipal
-Regidores propietarios y suplentes
-Director o Jefe del Departamento, Área, Oficina o Sección Financiera
-Auditor Interno
-Subauditor interno
-Directores, Jefes y Subjefes de Departamento o Dirección
-Coordinadores Generales y Específicos
-Director Administrativo
-Director, Jefe o Encargado del Área de Tesorería
-Contador Municipal
-Secretario Municipal
-Jefes o encargados de Unidades
-Proveedor o cargo similar
-VI. Miembros que integran las Juntas AD-HOC
+Artículo 56.—Perfiles de los funcionarios que deben declarar.
+Inciso 1.—Perfil para los funcionarios de las aduanas: Estarán afectos a la obligación de declarar, conforme al párrafo segundo del artículo 21 de la Ley contra La Corrupción y el Enriquecimiento Ilícito en la Función Pública , los funcionarios aduaneros que tengan dentro de sus funciones, cualquiera de los siguientes procesos o competencias, sin perjuicio de las funciones que se describan en los perfiles de los incisos 2 y 3 de este artículo.
+a) Los que exijan y comprueben el cumplimiento de los elementos que determinan la obligación tributaria aduanera, así como los que exijan y comprueben los requisitos y obligaciones derivados de la entrada, custodia, permanencia, uso y destino de las mercancías, vehículos y unidades de transporte del territorio.
+b) Los que exijan, comprueben, recauden, fiscalicen y aprueben, el pago de los tributos de importación y exportación.
+c) Los que verifiquen la documentación, la autorización, el contenido y las cantidades de mercancías sujetas al control aduanero que se transporten por cualquier medio.
+d) Los que controlen y fiscalicen a los auxiliares de la función pública aduanera, importadores, exportadores, productores, consignatarios, terceros y a todo aquel depósito bajo control aduanero.
+e) Los que otorguen o suspendan autorizaciones de los auxiliares de la función pública aduanera, o constaten el control o cumplimiento de las disposiciones legales establecidas por la Dirección General de Aduanas.
+f) Los que apliquen o comprueben la normativa nacional e internacional relacionada con las preferencias arancelarias, de conformidad con los tratados internacionales de los que forme parte Costa Rica y las normas derivadas de ellos.
+g) Los que exijan o comprueben el cumplimiento de las disposiciones dictadas por las autoridades competentes, relativas a los derechos contra prácticas desleales de comercio internacional, medidas de salvaguardia y demás regulaciones, arancelarias y no arancelarias, de comercio exterior.
+h) Los que dicten resoluciones administrativas relacionadas con la obligación tributaria aduanera o con reclamos en materia de valoración aduanera. Así como los que impongan y ejecuten sanciones administrativas y tributarias aduaneras.
+i) Los que realicen la verificación documental de las declaraciones aduaneras tramitadas bajo sistemas de tecnología de Información para el Control Aduanero, así como, el control sobre los procedimientos para el remate de mercancías, devolución de tributos cobrados incorrectamente, nulidades y correcciones de las declaraciones aduaneras y atención de reclamos vía electrónica.
+j) Los que dicten y recomienden la emisión de directrices, criterios técnicos, lineamientos, procedimientos, entre otros, relacionados con la materia aduanera, siempre y cuando dicha facultad se ejerza sin requerir de la autorización o aprobación de un superior o de un tercero dentro de la misma institución.
+Inciso 2.—Perfil para los funcionarios que tramitan compras públicas.
+Quedan incluidos dentro de estos perfiles los funcionarios públicos que laboran para la Administración Central , la Administración Descentralizada , Pública Estatal o Pública no Estatal, las empresas públicas, los órganos desconcentrados, los fideicomisos, las unidades ejecutoras o de proyecto y las municipalidades, así como cualquier otro tipo de organización o estructura perteneciente al Estado, que en cumplimiento del ordenamiento jurídico que regula la actividad de contratación administrativa, tramitan procesos de contratación y que tengan dentro de sus funciones, cualquiera de los siguientes procesos o competencias, sin perjuicio de las funciones que se describan en los perfiles de los incisos 1 y 3 de este artículo.
+Estos perfiles se aplicarán a aquellos que ostenten de forma unipersonal o colegiada la facultad descrita en cada perfil.
+a) Aquellos titulares de las instancias o dependencias encargadas de rendir, como una función ordinaria, y después de la fase de recepción de las ofertas, los dictámenes o informes técnicos que resulten necesarios para emitir el acto de adjudicación.
+b) Aquellos titulares de las instancias o dependencias administrativas encargadas de recomendar, como una función ordinaria, la adjudicación total o parcial, la declaratoria de infructuoso o desierto de un procedimiento de compra o su readjudicación.
+c) Los que ostenten la potestad de tomar el acuerdo de adjudicación o readjudicación.
+d) Los que ostenten la potestad de declarar desierto o infructuoso un concurso.
+e) Aquellos titulares de la Unidad de Asesoría Jurídica o en su defecto de la Unidad designada por el jerarca, que ostenten la potestad de dar la aprobación interna de los contratos de la administración.
+f) Aquellos titulares que ostenten la potestad de emitir el refrendo contralor.
+g) Los que ejerzan en la fase de ejecución del objeto contractual, labores de control y vigilancia, siempre y cuando el plazo de ejecución del contrato sea igual o mayor a seis meses.
+h) Los que ostenten en la fase de ejecución del objeto contractual, la potestad de emitir el acto administrativo que conlleva la recepción definitiva del bien o servicio, siempre y cuando el plazo de ejecución del contrato sea igual o mayor a seis meses.
+Inciso 3.—Perfil para los funcionarios que manejan fondos públicos.
+Quedan incluidos dentro de estos perfiles los funcionarios públicos que laboran para la Administración Central , la Administración Descentralizada , Pública Estatal o Pública no Estatal, las empresas públicas, los órganos desconcentrados, los fideicomisos, las unidades ejecutoras o de proyecto, Municipalidades, así como cualquier otro tipo de organización o estructura perteneciente al Estado, que en cumplimiento de los ordenamientos jurídicos que regulan la actividad financiera y presupuestaria, así como el Sistema de Control y Fiscalización Superiores, tengan dentro de sus funciones cualquiera de los siguientes procesos o competencias, sin perjuicio de las funciones que se describan en los perfiles de los incisos 1 y 2 de este artículo.
+Este perfil se aplicará a aquellos funcionarios que ostenten de forma unipersonal o colegiada la facultad descrita en cada perfil y cuando esta se ejerza sin autorización o aprobación de un superior o de un tercero dentro de la misma institución. Queda excluido de esta última disposición el incisos g) y h).
+a) Aquellos que ostenten la facultad de aprobar procedimientos relativos a la administración financiera.
+b) Aquellos que ostenten la facultad de aprobar ajustes o variaciones presupuestarias.
+c) Aquellos que ostenten la potestad de decidir, autorizar o aprobar actos administrativos que tengan como finalidad la concesión, disposición, inversión, emisión o giro, recaudación, recuperación, exoneración y erogación de los fondos públicos sometidos al ámbito de sus competencias; o el establecimiento de rentas, ingresos o egresos de la Administración.
+d) Aquellos que ostenten la potestad de aprobar los estados financieros institucionales.
+e) Aquellos que ostenten la potestad de aprobar procedimientos de fiscalización de la Hacienda Pública.
+f) Aquellos que ostenten la potestad de emitir actos de control externo.
+g) Aquellos que ostenten la potestad de emitir actos de fiscalización superior.
+h) Aquellos que tengan la potestad de negociar internacionalmente tratados de libre comercio, acuerdos, convenios, empréstitos, renegociación de deuda externa o similar. Independientemente si dicha labor supere o no los seis meses.
+(Así reformado por el artículo 1°, inciso g), del decreto ejecutivo N° 34409 del 27 de febrero de 2008).

@@ -1,1 +1,2 @@
-Artículo 25.—Adición y aclaración. Contra los resultados de la investigación preliminar procederán únicamente la aclaración y adición, en un plazo de tres días.
+Artículo 25.— Adición y aclaración. Contra el comunicado de resultados o informe de la investigación preliminar procederán únicamente la aclaración y la adición, en un plazo de tres días hábiles, misma que se podrá interponer ante el órgano competente que emitió los resultados finales, dicha solicitud, la podrá hacer la Administración Activa o quien demuestre interés legítimo ante el órgano que emita el resultado final de la investigación preliminar.
+(Así reformado por el artículo 1°, inciso d), del decreto ejecutivo N° 34409 del 27 de febrero de 2008)

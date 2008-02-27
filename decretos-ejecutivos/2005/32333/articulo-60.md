@@ -1,1 +1,2 @@
-Artículo 60.—Declaraciones presentadas por sujetos no obligados. La Contraloría General no estará obligada a recibir ninguna declaración jurada sobre la situación patrimonial, rendida por sujetos públicos o privados que en virtud de la Ley, el presente Reglamento o por orden singular, no se encuentren obligados a rendir dicha declaración.
+Artículo 60.— Declaraciones presentadas por sujetos no obligados. La Contraloría General no estará obligada a recibir ninguna declaración jurada sobre la situación patrimonial rendida por sujetos públicos o privados que en virtud de la ley o el presente reglamento no se encuentren obligados a rendir dicha declaración.
+(Así reformado por el artículo 1°, inciso i ), del decreto ejecutivo N° 34409 del 27 de febrero de 2008)

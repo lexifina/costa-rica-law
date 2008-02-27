@@ -1,0 +1,2 @@
+Artículo 82 bis.—Exclusión de declarantes. La Contraloría General de la República mediante resolución debidamente fundamentada, la cual se basará en aspectos de razonabilidad, proporcionabilidad, monto económico o grado de responsabilidad, podrá eximir de su obligación de presentar declaración jurada de bienes, a aquellos funcionarios afectos a dicha obligación.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 34409 del 27 de febrero de 2008)
