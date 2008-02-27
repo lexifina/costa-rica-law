@@ -1,0 +1,2 @@
+Transitorio Único.—Los procesos administrativos que deban ser trasladados de la Dirección Administrativa Financiera del Ministerio de Agricultura y Ganadería a la Dirección Administrativa y Financiera del Servicio Nacional de Salud Animal se harán en un plazo no mayor a seis meses conforme a cronograma que deberá establecerse entre ambas Direcciones.
+Dado en la Presidencia de República.—San José, a los diez días de diciembre del año dos mil siete

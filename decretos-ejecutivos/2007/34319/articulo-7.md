@@ -1,0 +1,1 @@
+Artículo 7º—Organización Interna. Para el cumplimiento de sus funciones, la Dirección General contará con un equipo de profesionales y técnicos quienes apoyarán directamente su labor. Tendrá además las funciones y atribuciones que el Ministro de Agricultura y Ganadería le señale.
