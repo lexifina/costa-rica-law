@@ -1,0 +1,2 @@
+Artículo 24.—Si la ubicación pretendida por el interesado no fuera aceptada, el profesional podrá presentar un recurso de revocatoria con apelación ante el Alcalde Municipal en un plazo de ocho día hábiles contados a partir del momento en que se reciba la comunicación de la Sección de Desarrollo de Personal.
+El Alcalde Municipal, conocerá esta apelación y agotará la vía administrativa en tal caso pudiendo el profesional acudir a la vía judicial que estime conveniente y necesario en sus intereses.
