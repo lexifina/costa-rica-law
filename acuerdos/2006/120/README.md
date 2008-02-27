@@ -16,3 +16,4 @@ Implantación del Reglamento General sobre Sociedades Administradoras y Fondos d
 | 1 | 2006-08-16 | la propia norma |
 | 2 | 2006-08-16 | Acuerdo 121 (2006-07-27) |
 | 3 | 2006-08-28 | Acuerdo 125 (2006-08-28) |
+| 4 | 2008-02-27 | Acuerdo 143 (2008-02-27) |

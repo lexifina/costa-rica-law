@@ -1,1 +1,1 @@
-Artículo 5º—Leyendas. La publicidad que se realice sobre cualquier fondo de inversión, nacional o extranjero, independientemente del medio, debe respetar las disposiciones contenidas en el anexo II de este acuerdo.
+Artículo 5º—(DEROGADO mediante Acuerdo SGV-143 de 27 de febrero 2008)
