@@ -14,3 +14,4 @@ Reglamento a los artículos 45 de la Ley N° 7384 y 123 párrafo segundo de la L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-08 | la propia norma |
+| 2 | 2008-02-27 | Decreto Ejecutivo 34421 (2008-02-27) |
