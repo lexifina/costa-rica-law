@@ -1,0 +1,1 @@
+Artículo 4º—Licencias temporales. La Administración Tributaria con resolución debidamente razonada y circunstanciada se reserva el derecho de poder otorgar licencias (patentes) municipales temporales a beneficio social, religioso, educativo, deportivo o cultural debidamente justificado y siempre cumpliéndose lo dispuesto en el presente Reglamento.

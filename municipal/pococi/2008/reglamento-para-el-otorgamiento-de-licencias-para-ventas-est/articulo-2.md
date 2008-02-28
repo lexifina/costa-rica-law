@@ -1,0 +1,2 @@
+Artículo 2º—Definición. Las ventas estacionarias son aquellas que se realizan en las vías públicas para la comercialización de productos nacionales o extranjeros y se caracterizan por ubicarse en un punto de tales vías, previamente señalado por la Municipalidad.
+Se exceptúan de esta regulación las ventas estacionarias que se realicen en la Feria del Agricultor; las cuales se encuentran reguladas por normativa especial.

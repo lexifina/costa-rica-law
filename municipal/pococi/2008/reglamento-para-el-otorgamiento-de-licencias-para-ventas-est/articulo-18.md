@@ -1,0 +1,1 @@
+Artículo 18.—Reubicación de puestos. La Administración Tributaria se reserva el derecho de reubicar los puestos cuando las condiciones de tránsito o peatonal así lo ameriten; la construcción de obras nuevas lo requieren o cualquier otra causa de interés público lo amerite.

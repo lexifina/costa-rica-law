@@ -1,0 +1,1 @@
+Artículo 13.—Adjudicación de licencias revocadas o renunciadas. En caso de revocación o renuncia de una licencia por cualquier motivo, la Administración Tributaria procederá a la adjudicación de la misma, siguiendo el orden consecutivo de las solicitudes pendientes.

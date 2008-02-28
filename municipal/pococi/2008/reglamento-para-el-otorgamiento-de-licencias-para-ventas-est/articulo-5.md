@@ -1,0 +1,1 @@
+Artículo 5º—Costo de la licencia. El costo de la licencia municipal se determinará con base en la ley de patentes vigente, al momento en que la misma se concede. Las patentes, a que se refiere este Reglamento, serán cobradas trimestralmente. La falta de pago de ellas provocará su revocación.
