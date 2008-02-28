@@ -1,0 +1,1 @@
+Artículo 8º—Los Corresponsales BN Servicios y El Banco nombrarán cada uno, un representante para que funja como Administrador del Contrato, quienes coordinarán los detalles de su ejecución y serán los responsables del mismo.

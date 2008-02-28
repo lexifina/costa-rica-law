@@ -1,0 +1,1 @@
+Artículo 7º—El plazo de estos contratos será de un año, prorrogable automáticamente por períodos iguales y consecutivos, si ninguna de las partes manifiesta a la otra por escrito y con al menos un mes de anticipación al vencimiento del plazo o la prórroga correspondiente, su intención de dar por terminada la relación contractual.
