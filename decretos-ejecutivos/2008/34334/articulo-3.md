@@ -1,0 +1,1 @@
+Artículo 3º—Marco legal. El contrato de leasing financiero y operativo que suscriban los miembros del Grupo ICE se regirá por lo establecido en este Reglamento, el Decreto Ejecutivo Nº 32876 del 6 de diciembre del 2005 y las normas, procedimientos y principios de la Ley de Contratación Administrativa y su Reglamento.
