@@ -1,0 +1,1 @@
+Artículo 28.—Negociación fuera del Reglamento de uso del Sistema Proveeduría en Línea. El ICE no se hará responsable de ninguna negociación fuera de los términos del presente documento y sus modificaciones para participar en un procedimiento de contratación, en demérito de los intereses de los potenciales oferentes.

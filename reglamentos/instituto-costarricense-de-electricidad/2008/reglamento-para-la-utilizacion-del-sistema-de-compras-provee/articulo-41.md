@@ -1,0 +1,1 @@
+Artículo 41.—El Área de Registro de Proveeduría en Línea. El Área de Proveeduría en Línea es la encargada de registrar, identificar y autenticar a los proveedores que podrán hacer uso de certificados digitales para el sistema de Proveeduría en Línea, así como de recibir y dar trámite a las solicitudes de vencimiento anticipado y renovación de los certificados.

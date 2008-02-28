@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Derechos y obligaciones de la Administración
+Artículo 19.—Notificación por medios electrónicos. El ICE podrá notificar por medios electrónicos cualquier acto administrativo relacionado con el procedimiento de contratación, incluso el acto de adjudicación.
+Si el ICE por algún motivo no puede notificar a un oferente por medios electrónicos, porque brindó mal sus datos al momento de suscribir el Contrato de Adhesión para el uso del Sistema Proveeduría en Línea o dicha información se encuentre desactualizada. Esta situación no generará responsabilidad de ningún tipo para el ICE, quien subsidiariamente intentará notificarlo vía fax. En caso de que no sea posible practicar la notificación, operará la notificación automática, teniéndose como notificado dentro de las 24 horas siguientes al último intento de notificación del acto, de conformidad con lo establecido por la Ley de Notificaciones y otras Comunicaciones Judiciales.

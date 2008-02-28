@@ -1,0 +1,4 @@
+Artículo 7º—Cálculo de plazos del acto de apertura de ofertas. Para efectos del cálculo de los plazos mínimos para recibir las ofertas que establece la Ley de Contratación Administrativa y su Reglamento, éstos se computarán de acuerdo con las siguientes reglas:
+Si se trata de una licitación pública o de una licitación abreviada que deba publicarse en el Diario Oficial La Gaceta, será esta publicación la que determine el inicio del plazo.
+Si se trata de una licitación abreviada o contratación directa de menor cuantía que no requiere publicación en La Gaceta, será la comunicación al último de los potenciales oferentes invitados, la que determine el inicio del plazo.
+La oferta que se envía electrónicamente mediante el Sistema Proveeduría en Línea, debe ser remitida antes de la hora y fecha definida para la apertura de las ofertas, tal y como se regula en la Ley de Contratación Administrativa y su Reglamento General.

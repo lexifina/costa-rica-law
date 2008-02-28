@@ -1,0 +1,1 @@
+Artículo 11.—Registro de funcionarios con prohibiciones. Se deberá registrar y mantener actualizada la información en Proveeduría en Línea, respecto a las personas físicas y jurídicas cubiertas por el Régimen de Prohibiciones. Para lo cual deberán cumplir con los procedimientos establecidos por la Dirección Administrativa de Proveeduría.

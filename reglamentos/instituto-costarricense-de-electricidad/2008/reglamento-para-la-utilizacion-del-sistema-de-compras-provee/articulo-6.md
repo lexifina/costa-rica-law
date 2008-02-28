@@ -1,0 +1,1 @@
+Artículo 6º—Legalización de documentos de oferta electrónica extranjera. El ICE establecerá en el cartel o pliego de condiciones, un plazo de convalidación para legalizar los documentos presentados mediante oferta electrónica.

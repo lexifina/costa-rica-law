@@ -1,0 +1,1 @@
+Artículo 34.—Documentos con virus. Es obligación del proveedor comprobar que los documentos que envié al ICE firmados digitalmente, sean seguros, no contengan virus, estén corruptos o tengan códigos maliciosos. En caso contrario el ICE descartará el documento que se encuentre en esta situación y en consecuencia no será tomado en cuenta para el concurso.

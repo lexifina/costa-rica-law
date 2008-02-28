@@ -1,0 +1,1 @@
+Artículo 14.—Sobre la autenticidad del contenido de la oferta. Para todos los efectos, prevalecerá el contenido de lo oferta y sus anexos de acuerdo a los registros de Proveeduría en Línea, se demuestre que fue enviado o recibido utilizando los mecanismos de seguridad aplicados en el Sistema Proveeduría en Línea, como son la firma digital; la encriptación, entre otros.

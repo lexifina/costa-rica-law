@@ -1,0 +1,1 @@
+Artículo 47.—Acuse de recibo. Cada vez que un proveedor envíe un documento mediante en el Sistema de Proveeduría en Línea, se le remitirá un acuse de recibo electrónico, como medio de prueba, el que permitirá acreditar la fecha y hora de recepción.

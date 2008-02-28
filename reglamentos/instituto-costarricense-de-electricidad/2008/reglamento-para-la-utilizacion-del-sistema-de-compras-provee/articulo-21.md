@@ -1,0 +1,1 @@
+Artículo 21.—Expediente electrónico: Se constituirá a partir de los diferentes documentos recibidos y enviados por medios electrónicos y para todos los efectos tendrá la misma validez jurídica y probatoria que el expediente tradicional.

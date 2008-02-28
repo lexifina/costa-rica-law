@@ -1,0 +1,1 @@
+Artículo 23.—Resolución de procedimientos. Cualquier asunto que se presente en relación a la tramitación de procedimientos de contratación administrativa que no se encuentre previsto en el presente documento, será resuelto por la Dirección Administrativa de Proveeduría, en estricto apego al ordenamiento jurídico vigente.

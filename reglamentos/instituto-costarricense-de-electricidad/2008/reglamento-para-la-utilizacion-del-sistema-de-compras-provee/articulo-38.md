@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del administrador y seguridad del sistema
+Artículo 38.—Administrador del sistema. La administración del Sistema Proveeduría en Línea estará a cargo de la Dirección Administrativa de Proveeduría, con el apoyo técnico de la Dirección de Tecnología de Información. Ambas dependencias del Instituto Costarricense de Electricidad deberán velar porque el sistema cumpla con todos los requisitos que en materia de seguridad del sistema, señala el presente Reglamento; de manera tal que se garantice la identificación del emisor y receptor de los documentos firmados digitalmente, la conservación del contenido original de cada documento electrónico que se reciba y se envíe, y se permita la impresión del mismo.

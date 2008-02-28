@@ -1,0 +1,1 @@
+Artículo 26.—Verificación de documentos. El ICE se reserva el derecho de corroborar la veracidad de los documentos aportados por el oferente o cualquier otro detalle que consideren pertinente, tanto antes como después de la suscripción del contrato de adhesión para el uso de Certificados Digitales para el Sistema Proveeduría en Línea.

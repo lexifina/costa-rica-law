@@ -1,0 +1,1 @@
+Artículo 36.—Finalización del uso del Sistema Proveeduría en Línea. En caso de que durante la vigencia de este Reglamento el proveedor quiera dar por terminado su uso del Sistema Proveeduría en Línea, deberá solicitarlo por escrito a la Dirección Administrativa de Proveeduría, a fin de que se le desactiven los permisos otorgados.
