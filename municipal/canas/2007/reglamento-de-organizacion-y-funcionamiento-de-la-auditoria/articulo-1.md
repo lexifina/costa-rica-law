@@ -1,0 +1,21 @@
+MUNICIPALIDAD DE CAÑAS
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DE LA MUNICIPALIDAD DE CAÑAS
+El Concejo Municipal de Cañas, con fundamento en el artículo VI, inciso 12 de la sesión ordinaria Nº 118-2007, celebrada el día viernes 18 de setiembre, 2007, y en uso de las atribuciones que le confieren los artículos 4 y 13 del Código Municipal, y
+Considerando:
+1º—Que el marco legal que rige la actividad de la Auditoría Interna ha tenido cambios significativos fundamentalmente con la promulgación de la Ley General de Control Interno (Ley Nº 8292 del 31 de julio de 2002), el Manual de Normas Generales de Control Interno emitido por la Contraloría General, publicado en La Gaceta Nº 107 del 5 de junio de 2002), los Lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor, publicados en La Gaceta Nº 205 del 24 de octubre, 2003, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Ley Nº 8422 del 6 de octubre, 2004), el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, publicado en La Gaceta Nº 246 del 16 de diciembre, 2004, el Manual de Normas Generales de Auditoría para el Sector Público, publicado en La Gaceta Nº 236 del 8 de diciembre, 2006 y las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público, publicadas en La Gaceta Nº 235 del 8 de diciembre del 2006.
+2º—Que la auditoría interna es parte fundamental del sistema de control interno institucional y del sistema de control y fiscalización superiores de la hacienda pública, y su acción requiere ser reforzada conforme con el marco legal y técnico que regula su gestión, en defensa del interés público, por lo que es necesario que se disponga de un reglamento de organización y funcionamiento actualizado, acorde con la normativa que rige su actividad.
+3º—Que la Municipalidad de Cañas, de conformidad con el artículo 20 de la Ley de Control Interno Nº 8292, del 31 de julio, 2002, cuenta con una Auditoría Interna.
+4º—Que la Contraloría General de la República dio su aprobación al presente Reglamento, conforme el oficio Nº 13154 del día 6 de noviembre del año 2007.
+Emite el siguiente:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DE LA MUNICIPALIDAD DE CAÑAS
+PRESENTACIÓN
+El presente Reglamento regula la forma de organización y funcionamiento de la Auditoría Interna de la Municipalidad de Cañas, de manera que su accionar se oriente y perciba como una actividad que coadyuva al éxito de la gestión institucional, en aras de la legalidad, transparencia y efectividad en el manejo de los fondos públicos involucrados.
+El Reglamento se estructuró en tres capítulos, de conformidad con las Directrices Generales relativas al Reglamento de Organización y Funciones de las Auditorías Internas del Sector Público (D-2-2006-CO-DFOE-DAGJ), emitido por la Contraloría General de la República, publicadas en La Gaceta Nº 236, del 8 de diciembre, 2006
+El Capítulo I contiene disposiciones generales relativas a su objetivo, definiciones y ámbito de aplicación.
+El Capítulo II, se refiere a la organización de la Auditoría Interna y las cinco secciones que lo conforman definen el concepto de la Auditoría Interna, su independencia funcional y de criterio, su ubicación y estructura organizativa, del auditor interno, su personal a cargo y de las relaciones y coordinaciones.
+El Capítulo III versa sobre el funcionamiento de la Auditoría Interna, y contiene seis secciones que se refieren en ese orden a sus competencias, deberes y potestades, a sus servicios que brinda, a la ejecución de la auditoría interna, de la comunicación de resultados, de las denuncias y relaciones de hechos y sus disposiciones finales.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo del Reglamento. El presente Reglamento tiene como objetivo regular la forma de organización y funcionamiento de la Auditoría Interna de la Municipalidad de Cañas, conforme lo dispuesto en el artículo 23 de la Ley de Control Interno, de manera que su accionar se oriente y se perciba como una actividad que coadyuve en el éxito de la gestión de la Institución dentro del marco de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

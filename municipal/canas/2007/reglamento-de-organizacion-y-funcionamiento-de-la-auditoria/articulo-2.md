@@ -1,0 +1,17 @@
+Artículo 2º—Definiciones. El presente Reglamento hará uso de las siguientes definiciones:
+a) Ambiente del control: Conjunto de factores a nivel organizacional que debe establecer y mantener la Administración Activa, con la finalidad de desarrollar una actitud positiva que apoye el sistema de control interno.
+b) Atribuciones: Facultades o poderes que corresponden a cada una de las partes de la organización pública o privada.
+c) Concejo Municipal: Forma parte del Gobierno Local, es el órgano deliberante, integrado por los regidores que determine la Ley.
+d) Conferencia Final: Reunión en la que el Auditor Interno o Auditor Encargado de un estudio de auditoría expone a la contraparte de la Administración Activa los resultados de la revisión, conclusiones y recomendaciones, con el fin de obtener una aceptación de las observaciones expuestas y un compromiso para la implementación de las medidas correctivas y preventivas sugeridas.
+e) Contraloría General de la República: Es un órgano constitucional fundamental del Estado, auxiliar de la Asamblea Legislativa en el control superior de la Hacienda Pública y rector del sistema de fiscalización a que están sometidas las instituciones públicas.
+f) Control interno: Es un proceso ejecutado por la Administración Activa, diseñado específicamente para proporcionar seguridad razonable respecto a la consecución de los siguientes objetivos: efectividad y eficiencia de las operaciones, confiabilidad de la información financiera, cumplimiento de las leyes y regulaciones aplicables.
+g) Denuncias: Las denuncias son medios utilizados por los ciudadanos, sean funcionarios públicos o no, para poner en conocimiento de la Administración o ante la Auditoría Interna, hechos para que se investiguen con el fin de prevenir o determinar la comisión de actos de corrupción o cualquier situación irregular que incida sobre la Hacienda Pública, con el propósito de que se establezcan las sanciones civiles y administrativas correspondientes sobre los responsables.
+i) Institución: Municipalidad de Cañas.
+j) Jerarca: Superior jerárquico del órgano o del ente, dentro del cual ejerce la máxima autoridad, en este caso Concejo Municipal de la Municipalidad de Cañas.
+k) Rendición de cuentas: Obligación de responder por la responsabilidad conferida. Incluye la obligación de explicar y justificar acciones específicas realizadas con el patrimonio público.
+l) Riesgo: Probabilidad de que un factor, acontecimiento o acción, sea de origen interno o externo, afecte de manera inversa a la organización, área, proyecto o programa y perjudique el logro de sus objetivos.
+m) Seguridad razonable: El concepto de que el control interno, sin importar cuán bien esté diseñado y sea operado, no puede garantizar que una institución alcance sus objetivos, en virtud de las limitaciones inherentes a todos los sistemas.
+n) Sistema institucional de valoración del riesgo: Conjunto organizado de elementos que interaccionan para la identificación, análisis, evaluación, administración, revisión, documentación y comunicación de los riesgos institucionales.
+ñ) Titular subordinado: Funcionario de la administración responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+o) Universo auditable: Conjunto de áreas, dependencias, servicios, procesos, sistemas, etc. Que pueden ser evaluados por la Auditoría.
+p) Valores éticos: Valores morales que permiten a quien toma una decisión, determinar un curso de comportamiento apropiado, basados en lo que está bien.

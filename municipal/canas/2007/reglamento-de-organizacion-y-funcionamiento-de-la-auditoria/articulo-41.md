@@ -1,0 +1,1 @@
+Artículo 41.—Debido cuidado. El personal de la Auditoría Interna debe de ejecutar siempre sus funciones con el debido cuidado, pericia, juicio profesional, con apego a la normativa legal y técnica aplicable a los procedimientos e instrucciones pertinentes de su organización de auditoría.

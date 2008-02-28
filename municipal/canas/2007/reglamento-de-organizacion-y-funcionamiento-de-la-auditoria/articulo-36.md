@@ -1,0 +1,3 @@
+Artículo 36.—Los servicios de auditoría. Los servicios de auditoría se refieren a los distintos tipos de auditoría de control interno y estudios especiales de auditoría.
+a) Estudios de Control Interno: Son aquellos estudios de tipos financieros, operativos, de sistemas que se definirán de acuerdo con objetivos plasmados en el plan de trabajo.
+b) Estudios especiales: Son estudios originados por denuncias o por hallazgos derivados de estudios que se realicen y que puedan acarrear responsabilidades de distinta naturaleza por la lesión al patrimonio público y que se ponen en conocimiento de la Administración Activa Municipal o de la Contraloría General de la República para que inicie el procedimiento administrativo.

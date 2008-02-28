@@ -1,0 +1,1 @@
+Artículo 47.—Planificación del seguimiento de recomendaciones. La Auditoría Interna deberá de establecer un programa de seguimiento a las recomendaciones de la Auditoría Interna, auditorías externas, la Contraloría General de la República, para asegurarse y determinar la oportuna, adecuada y eficaz atención por parte de la Administración.

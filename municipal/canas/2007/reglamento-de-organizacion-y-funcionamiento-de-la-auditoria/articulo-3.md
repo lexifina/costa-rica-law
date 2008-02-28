@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este reglamento es de carácter obligatorio para la Auditoría Interna de la Municipalidad de Cañas y para la administración activa, en todos aquellos artículos que les sean aplicables conforme lo dispuesto por la Ley de Control Interno.

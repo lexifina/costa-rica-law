@@ -1,0 +1,1 @@
+Artículo 42.—Calidad de la Auditoría Interna. El Auditor Interno deberá desarrollar, aplicar, mantener, y perfeccionar un programa de aseguramiento de la calidad en la auditoría, de manera que pueda garantizar que los procesos y productos se realizan de conformidad con la normativa técnica y jurídica relacionada, bajo un enfoque de efectividad y mejoramiento contínuo.

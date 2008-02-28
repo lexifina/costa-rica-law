@@ -1,0 +1,1 @@
+Artículo 45.—Comunicación oficial de resultados. Los hallazgos, conclusiones y recomendaciones de los estudios realizados por la Auditoría Interna, deberán comunicarse oficialmente, mediante informes al Concejo Municipal o a los titulares subordinados, con competencia y autoridad para ordenar la implantación de las recomendaciones.

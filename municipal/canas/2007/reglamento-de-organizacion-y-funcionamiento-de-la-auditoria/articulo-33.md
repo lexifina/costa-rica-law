@@ -1,0 +1,1 @@
+Artículo 33.—Deberes. Son deberes del auditor(a) Interno(a) y subauditor(a) Interno(a) y del personal de la Auditoría Interna los contenidos en el artículo 32 de la Ley General de Control Interno, así como por las asignadas en otras leyes y normativa jurídica aplicable.

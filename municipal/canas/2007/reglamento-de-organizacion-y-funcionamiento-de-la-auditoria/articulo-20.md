@@ -1,0 +1,1 @@
+Artículo 20.—Jornada laboral. La jornada laboral del auditor(a) y subauditor(a) interno(a), será de tiempo completo de conformidad con lo dispuesto en el artículo 51 del Código Municipal, artículo 30 de la Ley de Control Interno y en los Lineamientos citados en el artículo anterior y cualquier otra regulación que al respecto emita la Contraloría General de la República.

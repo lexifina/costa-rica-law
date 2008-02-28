@@ -1,0 +1,1 @@
+Artículo 34.—Potestades. Para cumplir con sus objetivos, el Auditor(a) Interno(a), Subauditor(a), así como el resto del personal de la Auditoría Interna, tendrán las potestades contenidas en el artículo 33 de la Ley General de Control Interno y demás normativa jurídica aplicable.
