@@ -14,11 +14,13 @@ b) Levantar las actas de las sesiones.
 c) Firmar conjuntamente con el Presidente las actas aprobadas.
 d) Recibir, tramitar, contestar y archivar la correspondencia.
 e) Elaborar y mantener actualizado el archivo del Fondo.
-Funciones del Tesorero:
-a) Firmar con el Presidente u otro representante designado al efecto, los cheques y otros valores.
-b) Recibir los depósitos o dineros tanto del Instituto como los de los afiliados.
-c) Ejercer control sobre el movimiento económico.
-d) Presentar un informe en la Asamblea General Ordinaria del movimiento económico del período.
+(*)Funciones del Tesorero:
+a. Firmar con el Presidente u otro representante designado al efecto, los cheques y otros valores.
+b. Recibir los depósitos o dineros tanto del Instituto como de los afiliados.
+c. Ejercer control sobre el movimiento económico.
+d. Presentar un informe en la asamblea general ordinaria del movimiento económico del período.
+e. Realizar arqueos a la caja chica y las inversiones en forma periódica.
+(*)(Así reformado en asamblea general extraordinaria de afiliados del 28 de febrero de 2008).
 Funciones de los Vocales:
 a) Sustituir durante las ausencias temporales o permanentes al Secretario o Tesorero.
 b) Presidir las comisiones o comités que la Junta Administradora considere oportuno para un mejor control.
