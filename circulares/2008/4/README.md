@@ -13,3 +13,4 @@ Creación del Tribunal de Casación de Guanacaste y del Tribunal de Casación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-07 | la propia norma |
+| 2 | 2008-02-28 | Circular 37 (2008-02-28) |
