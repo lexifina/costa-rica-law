@@ -1,0 +1,1 @@
+Artículo 6º—Obligación de contar con una unidad de Auditoría Interna. En la Municipalidad de San Isidro de Heredia, existirá una Auditoría Interna, que proporcionará a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y sanas prácticas.

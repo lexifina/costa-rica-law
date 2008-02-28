@@ -1,0 +1,4 @@
+Artículo 8º—Deberes. Los funcionarios de la Auditoría Interna, en el ejercicio de los cargos, adicional a los establecidos en el artículo Nº 32 de la Ley de Control Interno tendrán los siguientes:
+a) Cumplir las competencias asignadas por Ley, entre ellas la obligación establecida en el artículo 281 del Código Procesal Penal, que establece como obligación de los funcionarios y empleados públicos el “denunciar los delitos perseguibles de oficio” que conozcan en el ejercicio de sus funciones.
+b) Establecer políticas, manuales de metodologías, procedimientos, programas, prácticas o guías de trabajo escritas donde se oriente a los funcionarios de Auditoría Interna.
+c) Establecer sistemas de administración de la información generada y recibida, tales como documentos, papeles de trabajo, denuncias, informes, memorandos, oficios y procesos, productos y servicios de la Auditoría Interna.
