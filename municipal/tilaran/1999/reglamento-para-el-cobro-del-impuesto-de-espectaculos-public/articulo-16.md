@@ -1,1 +1,0 @@
-Artículo 16.-La Oficina de Contabilidad Municipal, efectuará las siguientes funciones relativas a la recaudación de este impuesto contará, archivará y dará un informe mensual sobre las boletas al Alcalde Municipal, donde indicará el tipo de actividad, nombre del negocio y del propietario, calidades, cantidad de tiquetes sellados, valor de éstos y recaudación del impuesto total.

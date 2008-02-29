@@ -1,3 +1,0 @@
-CAPITULO II
-Del impuesto
-Artículo 4°-La Municipalidad de Tilarán, cobrará un impuesto de un 5% sobre el valor de cada boleta, tiquete o entrada o bien contrato, en todos los espectáculos públicos y diversión no gratuita que se realice en los cines, teatros, salones de baile, discotecas, locales, estadios y plazas; y en general sobre todo espectáculo público que se efectúe con motivo de festejos cívicos y patronales, veladas, turnos, ferias o novilladas. Cuando además del valor de entrada se cobre consumo mínimo, el impuesto se calculará sobre la cantidad que resulte de la suma de ambos conceptos, y cuando se cobre solo consumo mínimo, sobre esto se cobrará impuesto.

@@ -1,1 +1,0 @@
-Artículo 14.-En cada establecimiento deberá indicarse en un lugar visible la boletería, lo mismo que en los boletos, el precio de la entrada donde se realizará el espectáculo. En los casos en que se hubiere autorizado la conmutación del presente impuesto, se deberá colocar en un lugar visible el recibo del pago de la misma, y el respectivo acuerdo municipal.
