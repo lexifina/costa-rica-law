@@ -1,2 +1,0 @@
-(NOTA DE SINALEVI: El artículo 71 del Reglamento general de patentes comerciales y similares de la Municipalidad de Tilarán, aprobado mediante sesión N° 54 del 29 de febrero de 2008, derogará este reglamento municipal a partir del día 2° de junio de 2008, por lo que la respectiva abrogación será introducida a partir de la fecha indicada).
-Artículo 1°—El Concejo Municipal de Tilarán autorizará la celebración de fiestas cívicas, patronales, turnos, ferias y actividades afines respetando los festejos patronales, de acuerdo al principio de oportunidad.
