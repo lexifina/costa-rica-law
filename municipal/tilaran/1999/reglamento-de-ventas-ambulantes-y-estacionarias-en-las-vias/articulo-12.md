@@ -1,1 +1,0 @@
-Artículo 12.-Los vendedores de lotería, chances, tiempos, flores, revistas y periódicos; deberán solicitar la respectiva licencia municipal. Los vendedores de chances, lotería y tiempos, deberán presentar el carnet de concesionarios de la Junta de Protección Social.

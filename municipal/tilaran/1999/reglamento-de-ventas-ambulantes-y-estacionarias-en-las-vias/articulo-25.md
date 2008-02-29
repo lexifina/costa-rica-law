@@ -1,1 +1,0 @@
-Artículo 25.-La Municipalidad, departamento de rentas y cobranzas, enviará al Departamento de Empleo del Ministerio de Trabajo y Seguridad Social, una lista de las personas que adquieran la licencia municipal, establecida en este reglamento para que el ministerio pueda ofrecerles algún tipo de ayuda laboral, en acuerdo con la ley N° 6587, artículo N° 4, párrafo segundo.

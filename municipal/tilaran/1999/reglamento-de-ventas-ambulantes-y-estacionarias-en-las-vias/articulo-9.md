@@ -1,1 +1,0 @@
-Artículo 9°-Tanto los puestos estacionarios, como ambulantes, el horario de funcionamiento será establecido por la legislación actual para los locales autorizados de acuerdo al Código Municipal y otras leyes.

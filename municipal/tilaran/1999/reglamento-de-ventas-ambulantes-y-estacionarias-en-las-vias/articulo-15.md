@@ -1,1 +1,0 @@
-Artículo 15.-En los puestos que expenden alimentos de consumo directo, se exigirá la presentación del certificado de funcionamiento sanitario, expedido por e] Ministerio de Salud, y los vendedores vestirán adecuadamente.

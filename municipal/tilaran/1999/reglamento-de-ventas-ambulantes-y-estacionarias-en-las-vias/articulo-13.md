@@ -1,1 +1,0 @@
-Artículo 13.-Únicamente se permitirá ejercer la actividad en los puestos de los siguientes productos: frutas nacionales, hortalizas, verduras, golosinas, helados, granizados y copos. Pasamanería o buhonería y otros que autorice el Concejo Municipal.

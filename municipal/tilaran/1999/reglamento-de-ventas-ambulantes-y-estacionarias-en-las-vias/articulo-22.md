@@ -1,1 +1,0 @@
-Artículo 22.-Las licencias tendrán validez de un año. En caso de caducidad o renuncia por cualquier motivo, la Municipalidad procederá a la adjudicación por medio de sorteo entre las solicitudes pendientes de licencia.
