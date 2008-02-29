@@ -1,1 +1,0 @@
-Artículo 11.—Las personas físicas o jurídicas que se dediquen a brindar servicio de Karaoke, discomóvil, perifoneos, música en vivo o similares a los patentados de negocios en éste Cantón deberán contar con la licencia Municipal de acuerdo con el Art. 79 del Código Municipal.

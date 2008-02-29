@@ -1,1 +1,0 @@
-Artículo 5º—Las solicitudes de permiso para la realización de dichas actividades en locales comerciales, deberán presentarse cumpliendo diez días hábiles de anticipación al acto por medio del Departamento de Rentas, que tramitará ante el Concejo la respectiva aprobación o rechazo de acuerdo a lo que esta materia dispone en los artículo 80 y 81 del Código Municipal.
