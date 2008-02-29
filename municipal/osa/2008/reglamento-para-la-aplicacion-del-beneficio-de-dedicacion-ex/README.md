@@ -14,3 +14,4 @@ Reglamento para la Aplicación del Beneficio de Dedicación Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-31 | la propia norma |
+| 2 | 2008-02-29 | Reglamento municipal 3 (2008-02-29) |
