@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE GUÁCIMO
+La Municipalidad del cantón de Guácimo, publica modificación al artículo Nº 12, del Reglamento de Cobro Administrativo de ésta Municipalidad, dice:
+“Artículo Nº 12.—Ejecución de la gestión cobratoria. Consiste en el requerimiento formal de pago a los contribuyentes morosos. Los funcionarios designados en la Unidad de Gestión para realizar la gestión cobratoria, asumen responsabilidad personal por la gestión de cobro no realizada o realizada negligentemente, que haga imposible la recuperación de la deuda.
+El funcionario encargado del cobro administrativo, deberá verificar que los adeudos se encuentren sin cancelar, así como tener plena certeza que la deuda prevalece, que sea líquida, exigible y que este en firme, previo a incumplir los requerimientos de pago. Cumplido lo anterior, se imprimirá por los requerimientos de cobro, de acuerdo al rango y a la prioridad establecida por la Municipalidad. La Unidad de Cobro efectuará un aviso persuasivo de pago a los sujetos pasivos morosos, concediéndole el plazo de 15 días hábiles para la cancelación de la deuda.
+(Acuerdo Nº 12. Aprobado por unanimidad, en la sesión ordinaria Nº 06-08, Acta Nº 06-08, del 05-02-08).
+Guácimo, 13 de febrero del 2008.—
