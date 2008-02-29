@@ -1,0 +1,1 @@
+Artículo 8º—Simultaneidad de funciones sujetas a caución. El funcionario o funcionaria que obligado(a) a caucionar, se le asigne una función que genere ese mismo deber, caucionará una sola vez y por el monto de mayor valor.

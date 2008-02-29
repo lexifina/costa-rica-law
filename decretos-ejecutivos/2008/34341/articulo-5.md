@@ -1,0 +1,1 @@
+Artículo 5º—Momento para rendir la caución. La caución deberá ser rendida, cuando así corresponda, una vez que la persona funcionaria sea notificada de la designación de un puesto sujeto a esta garantía y antes de asumir el cargo.
