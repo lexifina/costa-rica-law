@@ -1,0 +1,1 @@
+Artículo 24.—De las erogaciones. Las erogaciones se harán de conformidad con el plan de desembolsos aprobado y contra la presentación de facturas. Será indispensable que previamente se haya suscrito el contrato respectivo confeccionado por el Área de la Administración del Capital Humano.

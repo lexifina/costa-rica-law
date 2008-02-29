@@ -1,0 +1,1 @@
+Artículo 39.—De las situaciones no previstas. Los casos no regulados en el presente reglamento serán conocidos por el Área de la Administración del Capital Humano, la que deberá analizar y recomendar una posible solución, a la Gerencia General o Junta Directiva quienes deberán de resolver. Siempre bajo términos que establezcan las Leyes o Reglamentos conexos.

@@ -1,0 +1,1 @@
+Artículo 11.—De la extensión de los beneficios. El INCOP podrá otorgar parcial o totalmente beneficios para que sus funcionarios realicen estudios que complementen y mejoren su capacitación y formación, siempre que ello contribuya efectivamente a su rendimiento laboral.

@@ -1,0 +1,1 @@
+Artículo 7º—Aprobación del Plan de Capacitación: Corresponderá a la Gerencia General, conocer y aprobar el plan de capacitación elaborado por el encargado de la Administración del Capital Humano, para posteriormente remitirlo a conocimiento de la Junta Directiva.

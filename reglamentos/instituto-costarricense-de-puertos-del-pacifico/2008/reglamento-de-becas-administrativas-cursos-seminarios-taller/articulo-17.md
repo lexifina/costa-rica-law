@@ -1,0 +1,1 @@
+Artículo 17.—De los alcances del financiamiento. El acuerdo de Junta Directiva o la resolución de la Gerencia General, deberá establecer claramente los beneficios que se autorizan al solicitante sea financiamiento del curso, tiempo, gastos de viaje y transporte dentro o fuera del país u otros.

@@ -1,0 +1,1 @@
+Artículo 15.—De la capacitación solicitada por los funcionarios. Los funcionarios podrán solicitar al Área de Administración del Capital Humano, la petitoria a fin de que ésta la eleve a la Gerencia General con su respectiva recomendación, con el objeto de obtener la autorización para recibir actividades de capacitación.

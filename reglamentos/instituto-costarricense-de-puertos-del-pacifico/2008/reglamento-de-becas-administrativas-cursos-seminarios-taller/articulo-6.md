@@ -1,0 +1,1 @@
+Artículo 6º—Becas Administrativas: En los casos de becas administrativas para el territorio nacional, corresponderá a la Gerencia General valorar la recomendación sobre su otorgamiento, realizada por el Encargado de la Administración del Capital Humano. Tratándose de becas administrativas en el extranjero, se utilizará el mismo criterio que en el artículo anterior.
