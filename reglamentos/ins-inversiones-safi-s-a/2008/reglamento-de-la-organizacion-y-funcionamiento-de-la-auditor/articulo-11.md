@@ -1,0 +1,1 @@
+Artículo 11.—Prohibiciones del personal de auditoría interna. El Auditor Interno y su personal no deben ser parte de grupos de trabajo o comisiones que ejerzan función de la Administración Activa. Cuando así se solicite, su participación será exclusivamente en su función de asesor, en asuntos de su competencia.

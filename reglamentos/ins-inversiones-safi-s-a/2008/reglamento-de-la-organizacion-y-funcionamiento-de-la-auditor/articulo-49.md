@@ -1,0 +1,1 @@
+Artículo 49.—Mejora en la Valoración de Riesgo. La Auditoría Interna, conforme a sus competencias debe de promover mejoras en la valoración de Riesgo de INS Inversiones SAFI S. A., de acuerdo a lo estipulado en el artículo 8 de la Ley N° 8292.

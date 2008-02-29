@@ -1,0 +1,3 @@
+SECCIÓN B
+Independencia y objetividad
+Artículo 7º—Independencia y objetividad. Los funcionarios de la Auditoría Interna deberán ejercer sus deberes, potestades y competencias con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa, de forma que los juicios y criterios que emitan sean imparciales y equilibrados, manteniendo la objetividad y una conducta adecuada con el nivel jerárquico superior que ocupa la Auditoría Interna dentro de la institución.

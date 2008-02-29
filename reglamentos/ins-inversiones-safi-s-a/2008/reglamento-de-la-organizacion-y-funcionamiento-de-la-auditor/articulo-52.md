@@ -1,0 +1,1 @@
+Artículo 52.—Informe parcial y final.—La Auditoría Interna, de acuerdo con su criterio, podrá emitir informes parciales durante la etapa de examen de sus Auditorías. Toda Auditoría siempre dará lugar a un informe final.

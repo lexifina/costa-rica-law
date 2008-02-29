@@ -1,0 +1,1 @@
+Artículo 48.—De la fiscalización de la Auditoría Interna. La Auditoría Interna debe fiscalizar la efectividad del Sistema Específico de Valoración de Riesgo Institucional de INS Inversiones SAFI S. A.

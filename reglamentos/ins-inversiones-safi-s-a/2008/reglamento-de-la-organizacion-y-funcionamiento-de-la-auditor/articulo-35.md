@@ -1,0 +1,1 @@
+Artículo 35.—Asesoría. La junta directiva de INS Inversiones SAFI S. A., deberá proporcionar los recursos necesarios a la Auditoría Interna y el apoyo técnico o de asesoría Legal según sea el caso a fin de atender adecuadamente las funciones y responsabilidades asignadas.

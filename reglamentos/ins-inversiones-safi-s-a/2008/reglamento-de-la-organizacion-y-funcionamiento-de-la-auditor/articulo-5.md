@@ -1,0 +1,5 @@
+CAPÍTULO II
+Organización
+SECCIÓN A
+Concepto de Auditoría interna
+Artículo 5º—Del objetivo. La Auditoría Interna, como actividad independiente, objetiva y asesora, que da valor agregado y mejora las operaciones de la institución, coadyuva en el cumplimiento de los objetivos y metas de la administración, aportando un enfoque sistemático y profesional para evaluar y mejorar la efectividad de los procesos de gestión de riesgos, de control y de dirección, proporcionando a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecutan conforme al marco legal y técnico y a las sanas prácticas, todo esto de conformidad con lo establece el artículo 21 de la Ley General de Control Interno.

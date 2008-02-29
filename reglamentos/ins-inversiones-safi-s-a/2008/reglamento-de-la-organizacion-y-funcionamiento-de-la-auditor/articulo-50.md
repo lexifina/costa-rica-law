@@ -1,0 +1,1 @@
+Artículo 50.—Colaboración de los funcionarios de la Auditoría Interna. Los funcionarios de la Auditoría Interna coadyuvaran con el SEVRI mediante la incorporación de los conocimientos de riesgos relacionados en el trabajo, mediante los productos de los servicios de fiscalización.
