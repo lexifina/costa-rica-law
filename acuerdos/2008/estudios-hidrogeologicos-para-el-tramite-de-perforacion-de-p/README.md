@@ -1,0 +1,16 @@
+# Acuerdo (2008-04-11)
+
+Estudios hidrogeológicos para el trámite de perforación de pozos
+
+- Tipo: Acuerdo
+- Número: 0
+- Fecha: 2008-04-11
+- Ente emisor: Servicio Nacional de Aguas Subterráneas Riego y Avenamiento
+- Publicación: La Gaceta N° 71 del 2008-04-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62875&param2=72000&param3=1 (ficha 62875)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-03-01 | la propia norma |
