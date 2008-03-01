@@ -1,0 +1,1 @@
+Artículo 6º—Deróguese el Decreto Ejecutivo Nº 12025-MEIC Norma Oficial para Termómetros Clínicos con Dispositivo para Máxima, del 11 de noviembre de 1980, publicado en La Gaceta Nº 224 del 21 de noviembre de 1980.

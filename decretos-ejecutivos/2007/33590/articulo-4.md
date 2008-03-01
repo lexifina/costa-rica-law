@@ -1,0 +1,1 @@
+Artículo 4º—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión, se le solicita notificarlo al Laboratorio Costarricense de Metrología, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.
