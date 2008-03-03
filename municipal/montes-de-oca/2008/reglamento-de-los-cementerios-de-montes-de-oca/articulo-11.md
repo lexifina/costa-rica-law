@@ -1,0 +1,1 @@
+Artículo 11.—La ubicación geográfica de los derechos adjudicados la dispondrá La Municipalidad de acuerdo con el Plano Regulador del Cementerio y se hará efectiva solo en el momento en que el interesado diere inicio a la construcción de la fosa.

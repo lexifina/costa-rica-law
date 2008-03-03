@@ -1,0 +1,1 @@
+Artículo 62.—La realización de actos religiosos de diferentes credos están sujetos a lo indicado en la distinta legislación emitida sobe la materia, no obstante, La Municipalidad no hará diferencias de tipo político o religioso siempre y cuando los actos que ahí se realicen no atenten contra la ley y las buenas costumbres.

@@ -1,0 +1,1 @@
+Artículo 38.—Si la inhumación se fuere a realizar en una bóveda particular, deberá mediar la autorización de la persona propietaria del derecho o alguno de quienes aquella hubiere designado como responsables en el Contrato de Arrendamiento según lo estipulado en el artículo 5 del presente Reglamento. Esta autorización puede ser notificada por Notario Público en caso necesario.

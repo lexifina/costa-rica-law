@@ -1,0 +1,1 @@
+Artículo 61.—La Municipalidad se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en todas las instalaciones del cementerio, tanto en su terreno propio como en los derechos arrendados. El traspaso de derechos se hará con tales limitaciones.

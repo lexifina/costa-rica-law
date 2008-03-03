@@ -1,0 +1,1 @@
+Artículo 19.—Las construcciones de bóvedas quedan sujetas al pago de derechos de construcción, cuyo monto será determinado por la Dirección de Planificación y Desarrollo Urbano de La Municipalidad con base en el valor de la obra.

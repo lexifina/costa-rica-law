@@ -1,0 +1,1 @@
+Artículo 56.—El Registro de Propietarios contendrá la siguiente información: nombre, apellidos y número de cédula del propietario, número y ubicación del lote, transferencias que hayan efectuado, circunstancias que afecten el derecho sobre el lote.

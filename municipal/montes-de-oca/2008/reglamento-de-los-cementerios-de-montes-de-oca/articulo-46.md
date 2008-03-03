@@ -1,0 +1,1 @@
+Artículo 46.—Las exhumaciones ordinarias se realizarán mediante autorización del Ministerio de Salud, ya sea para trasladar restos a otra sepultura o para ser incinerados. Las exhumaciones extraordinarias requieren orden judicial y se deben observar los requisitos señalados por las leyes respectivas.

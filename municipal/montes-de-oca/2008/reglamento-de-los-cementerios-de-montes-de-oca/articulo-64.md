@@ -1,0 +1,3 @@
+Artículo 64.—Este reglamento rige a partir de su publicación, después de haber sido sometido a consulta pública por diez días. Se complementa con las disposiciones parciales que el Concejo Municipal emitiere en cualquier sentido sobre la materia, particularmente en lo referente a tarifas. Los asuntos no previstos en el mismo serán regulados conforme la legislación vigente en la materia.
+Publicado como Proyecto en el Diario Oficial La Gaceta Nº 251 del día lunes 31 de diciembre del 2007.
+Acuerdo para publicación como “Reglamento” tomado por el Concejo Municipal de Montes de Oca, en su sesión ordinaria Nº 91-2008, Artículo Nº 17.4, del día 21 de enero del 2008.

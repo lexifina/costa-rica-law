@@ -1,0 +1,1 @@
+Artículo 7º—Para el arrendamiento de derechos, el pago correspondiente debe efectuarse de contado. En igualdad de condiciones, se dará prioridad para arrendar derechos a los vecinos del cantón de Montes de Oca.
