@@ -1,0 +1,1 @@
+Artículo 12.—Lo relacionado con gastos de representación a incurrir en el exterior, se regirá por lo establecido en el Capítulo V del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República y publicado en el Diario Oficial La Gaceta N° 26 del martes 6 de febrero de 2007 y sus posteriores reformas.
