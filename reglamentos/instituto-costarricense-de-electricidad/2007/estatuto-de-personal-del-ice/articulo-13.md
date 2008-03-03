@@ -1,0 +1,6 @@
+CAPÍTULO XIII
+Embargos judiciales
+13-1 El trabajador cuyo salario fuere embargado judicialmente; deberá hacer las gestiones necesarias para que el mismo sea levantado dentro del menor tiempo posible; si no lo hubiere arreglado, el Instituto procederá a realizar el rebajo respectivo, de acuerdo con lo que establece el artículo 172 del Código de Trabajo.
+El Sistema de Información de Recursos Humanos informará al trabajador y su coordinador inmediato, sobre la situación y aplicará al mes siguiente la deducción correspondiente, de no haberse levantado formalmente el mismo.
+13-2 Cuando el trabajador embargado, con excepción de las pensiones alimenticias, ocupe un puesto dentro del Instituto, que tenga responsabilidad directa en el manejo de dineros, tal es el caso de encargados de Fondo de trabajo, compras o de similar naturaleza, deberá levantar el embargo dentro del mes siguiente al que fue comunicado, de no hacerlo faculta al Instituto para tomar medidas cautelares preventivas de orden administrativo.
+13-3 Cuando un trabajador, por no honrar sus deudas, provoque que sus compañeros sean embargados, se considerará como una falta, según lo dispuesto en el artículo 29-1-s, en la medida en que esta situación incida en las buenas relaciones laborales que se deben mantener en el centro de trabajo.

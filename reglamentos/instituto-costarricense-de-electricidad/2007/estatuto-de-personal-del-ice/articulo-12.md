@@ -1,0 +1,12 @@
+CAPÍTULO XII
+Planificación de recursos humanos
+12-1 La DCH, será la responsable de implementar el marco metodológico y asesorar a los niveles gerenciales, en la implementación y desarrollo de planificación de recursos humanos, con el fin de identificar las necesidades, el pronóstico y sucesión del recurso humano.
+12-2 La planificación de recursos humanos, se integrará con los esfuerzos en materia de gestión de recursos humanos por competencias y la gestión de desempeño, de tal forma que se logre contar con la cantidad del personal necesario y el perfil requerido, para el cumplimiento de los planes estratégicos del negocio.
+12-3 La planificación de recursos humanos obedece al comportamiento, tendencias y orientación estratégica de los sectores, así como información de las actividades, indicadores y demás insumos, para lo cual las dependencias deberán aportar oportunamente la información necesaria.
+12-4 La DCH recomendará técnicamente la asignación apropiada del personal en las diferentes áreas del negocio. Estas recomendaciones tendrán carácter vinculante para las áreas donantes y receptoras.
+12-5 La DCH aportará la metodología, herramientas, lineamientos y normativa relacionada con el tema de este capítulo, que serán de acatamiento obligatorio en las diferentes DV/UEN/DT/DA/DAS y otras dependencias, donde se realice el estudio.
+12-6 Le corresponderá a las DV/UEN/DT/DA/DAS, velar por la permanente planificación de los recursos humanos, en coordinación con la DCH, así como, la definición y la asignación óptima de sus recursos.
+12-7 Le corresponderá a la DCH la definición de normativas que regulen el llenado de plazas, permutas, transformación de plazas, reubicaciones y traslados horizontales internos y externos.
+Lo anterior, sin perjuicio de las facultades y atribuciones que legal o reglamentariamente, tienen otros órganos en estas materias.
+12-8 Las dependencias que requieran contar con plazas adicionales, deberán presentar la información de acuerdo con los procedimientos y deberá ser canalizada con el visto bueno del Sector respectivo. Corresponderá a la DCH realizar los estudios técnicos correspondientes, para someter a aprobación de la Gerencia General.
+12-9 La DCH dictará los lineamientos para el levantamiento del inventario de recursos humanos de la institución y asesorará a los niveles gerenciales, en la toma de decisiones relacionadas con la planificación del recurso humano. Asimismo, le corresponderá la investigación de mercados sobre tendencias de gestión humana en el ámbito nacional e internacional.

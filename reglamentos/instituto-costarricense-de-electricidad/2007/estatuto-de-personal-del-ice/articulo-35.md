@@ -1,0 +1,12 @@
+CAPÍTULO XXXV
+Invalidez, vejez y muerte
+35-1 Todos los trabajadores del ICE están amparados por los beneficios que, como contraprestación al pago de las cuotas obreras y patronales, conceda la CCSS y según las condiciones establecidas en su Reglamento del Seguro de Invalidez, Vejez y Muerte.
+35-2 Desde el momento en que un trabajador inicie la prestación de servicios, se harán las deducciones correspondientes, para tener derecho a los beneficios establecidos en el Reglamento del Seguro de Invalidez, Vejez y Muerte y lo establecido en este capítulo.
+35-3 En caso de cuotas del seguro de Invalidez, Vejez y Muerte, dejadas de pagar por el ICE, se seguirá el siguiente procedimiento:
+35-3 a) Al manifestar el trabajador su deseo de jubilarse, la dependencia encargada solicitará a la CCSS, un análisis minucioso de su situación (número de cuotas reportadas, patronos que ha tenido y años trabajados con ellos).
+35-3 b) Al analizarse el informe y determinar que existen cuotas en descubierto, se hará un estudio exhaustivo para determinar, en lo posible, si las cuotas faltantes, corresponden a tiempo laborado para el ICE.
+35-3 c) Cuando el trabajador deba laborar en exceso, con el fin de completar el número de cuotas mínimo exigido por la CCSS, para optar por su pensión y de ser el ICE responsable de esa situación, se procederá a otorgar una licencia con goce de salario por el tiempo que se haya determinado necesario. Una vez cumplido ese período, se gestionará el pago de la pensión, según el procedimiento ya establecido.
+35-3 d) Como la pensión del trabajador se verá disminuida en un 0.0835 % por cada cuota no pagada a tiempo, cuando se haya comprobado que la falta de pago es responsabilidad del ICE, la Institución girará un pago cada mes por esa diferencia, que se le seguirá girando de por vida al trabajador y al fallecer éste, a su esposa e hijos en la forma y proporción que estipula la Ley.
+35-4 Para efectos de pensión, corresponde al ICE como patrono y a todos sus trabajadores, acatar las disposiciones contenidas en la Ley de Protección al Trabajador.
+35-5 Todo trabajador que cumpla la edad y cuente con las cuotas reglamentarias para la jubilación por vejez, y haya manifestado su deseo de jubilarse, podrá acogerse a ella, a no ser de que a través de un estudio técnico de la DCH, se demuestre claramente que el trabajador se encuentra en estado óptimo para el desempeño de sus labores.
+Aquellos casos en que la CCSS apruebe la pensión por invalidez, deberán acogerse en forma inmediata.

@@ -1,0 +1,7 @@
+CAPÍTULO IX
+Aguinaldo y salario escolar
+9-1 Todo trabajador del ICE y cualquiera que sea la forma en que se le pague el salario, tiene derecho a percibir anualmente un salario adicional por concepto de aguinaldo, que estará en relación con el tiempo laborado dentro del periodo fijado por ley.
+El trabajador que por cualquier motivo deje de prestar servicios en el Instituto antes de diciembre del período a que se refiere el párrafo siguiente, recibirá el salario adicional en la proporción al tiempo trabajado y monto devengado y la suma que corresponda, se hará efectiva en la finalización y liquidación de su contrato de trabajo.
+9-2 El salario adicional consiste en la sumatoria de la doceava parte de los salarios devengados por el trabajador, en el período comprendido entre el primero de diciembre de un año y el treinta de noviembre del año siguiente, o fecha anterior, si el contrato de trabajo terminare antes del treinta de noviembre.
+Para el cálculo del salario adicional, se tomarán en cuenta los salarios devengados en el puesto o puestos desempeñados, aunque en alguno o en varios de éstos se hubiere trabajado temporalmente y el salario correspondiente a las horas extraordinarias trabajadas.
+9-3 Además del salario adicional indicado en los artículos anteriores, el trabajador tiene derecho a percibir anualmente el monto que por concepto de salario escolar le corresponda, según lo establece la normativa vigente.

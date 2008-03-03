@@ -1,0 +1,34 @@
+CAPÍTULO XXXVII
+Pago de prestaciones por terminación del contrato
+37-1 Salvo lo establecido en disposiciones expresas de este Estatuto y sus anexos, que superan los derechos mínimos garantizados a los trabajadores en el Código de Trabajo, el pago de prestaciones por terminación del contrato de trabajo, se efectuará únicamente en los casos en los que las leyes específicamente así lo obliguen o por sentencia firme de los Tribunales competentes del país.
+Al trabajador que se dé por terminado su contrato de trabajo con reconocimiento de prestaciones legales, tendrá derecho al pago de auxilio de cesantía, de acuerdo con su antigüedad, en la siguiente forma:
+A los trabajadores que tengan un año o más de laborar para la institución antes de la vigencia del artículo 3º de la Ley Nº 7983 y continuaron prestando sus servicios a la Institución después de tal fecha, se les calculará el pago a que se refiere este artículo mediante un sistema compuesto, de la siguiente manera:
+A) El tiempo servido antes de la vigencia de esta norma se les reconocerá a razón de un mes de salario por cada año laborado o fracción no menor de seis meses. Cuando ese tiempo sobrepasara ocho años, se le reconocerá un mes de salario por cada dos años laborados después del octavo año.
+B) El tiempo servido después de la vigencia de la Ley de Protección al Trabajador se pagará con el importe de días de salario que contiene el artículo 29 reformado del Código de Trabajo y de conformidad con la escala que allí se establece.
+La sumatoria de años reconocidos antes de la vigencia y después de la vigencia de la Ley de Protección al Trabajador no podrá exceder 24 años de cesantía correspondientes a un período de 40 años de trabajo continuo en el ICE.
+37-2 El trabajador que renuncie a la Institución acogiéndose al retiro voluntario, después de haber prestado servicios a la misma en forma ininterrumpida durante 10 años o más, tendrá derecho a recibir un porcentaje de la Cesantía que haya acumulado, de acuerdo con la siguiente tabla:
+Años de servicio | Porcentaje de retiro
+10 a menos de 11 | 25
+11 a menos de 12 | 30
+12 a menos de 13 | 35
+13 a menos de 14 | 40
+14 a menos de 15 | 45
+15 a menos de 16 | 50
+16 a menos de 17 | 60
+17 a menos de 18 | 70
+18 a menos de 19 | 80
+19 a menos de 20 | 90
+20 y más | 100
+De los alcances de este artículo, se exceptúan los trabajadores que la atención de sus hijos o su condición familiar, les impida realizar sus labores en forma normal y los empleados que se retiren del Instituto con motivo de jubilación, para quienes, a tal efecto, existe una reglamentación especial.
+También quedan excluidos aquellos que incumplan su compromiso de servicio al ICE, provenientes de contratos de becas y los que hayan incurrido en las causales de despido establecidas por el Código de Trabajo.
+A los trabajadores que provengan de otras entidades públicas no se les reconocerá, para efectos del porcentaje de retiro de este auxilio de cesantía, los años prestados a esos otros organismos. Empezarán a contar los años a partir del momento de su ingreso al ICE.
+El trabajador que se haya acogido a la liquidación de sus prestaciones con base en el presente artículo, no podrá volver a trabajar en el Instituto, por un periodo de siete años. La Gerencia podrá hacer la excepción en casos de inopia, previo estudio de la DCH.
+37-3 La Gerencia General podrá considerar y autorizar la liquidación del contrato de trabajo con responsabilidad patronal, de los trabajadores a quienes la atención de sus hijos o su condición familiar, les afecte el normal desempeño de sus funciones en la Institución. Con este fin, los interesados presentarán la solicitud del caso a su coordinador, exponiendo los motivos que respaldan su petición y el Director de DIV/UEN/DT/DA/DAS, si la considera procedente, la remitirá a la DCH, para el estudio del caso y para que lo eleve con su recomendación para la resolución definitiva.
+Quien solicite la liquidación de su contrato de trabajo por los motivos apuntados, deberá haber prestado sus servicios a la Institución en forma ininterrumpida por un período no menor de dos años.
+37-4 El pago de indemnización por concepto de Auxilio de Cesantía en las diferentes modalidades de este capítulo, inhibe al Instituto para volver a contratar al trabajador que lo reciba por un período de siete años.
+La Gerencia podrá hacer excepción de lo anterior, previo estudio de la DCH, que demuestre que existe inopia para dicho puesto.
+De considerarse el ingreso antes del cumplimiento de los siete años indicados en el presente inciso, el trabajador deberá reintegrar lo correspondiente a la liquidación, de manera proporcional al período que le hace falta cumplir. Para tal efecto se contará con un estudio técnico de la DCH.
+37-5 Al trabajador que provenga de otras instituciones del sector público y que demuestre que hubo continuidad, sin pago de prestaciones entre la otra institución y el ICE, para efectos de pago de prestaciones se le podrá reconocer el tiempo acumulado en el régimen de la Institución de procedencia al momento de finalizar su contrato de trabajo más el tiempo que acumulara dentro del ICE.
+37-6 Cuando un trabajador con base en lo dispuesto en los artículos 79 y 80 del Código de Trabajo, supere los 18 meses de incapacidad indicados en el artículo 34-4-c) de este Estatuto, su coordinador podrá solicitar la finalización de contrato con responsabilidad patronal, quedando el resultado de su petición sujeto a estudio y recomendación de la DCH y aprobación de la Subgerencia respectiva. Para los casos de Riesgos del Trabajo, el plazo de la incapacidad será de 24 meses, conforme lo dispone el artículo 237 del Código de Trabajo.
+37-7 Cuando a un trabajador le sea suspendida, por seis meses o más, la licencia para conducir, por infringir la Ley de Tránsito, siendo ésta indispensable para el desempeño de su puesto y no sea posible asignarle otras labores, acordes con sus competencias, clasificación, obligaciones y responsabilidades, se podrá plantear la liquidación de su contrato con responsabilidad patronal, previa valoración y estudio de la DCH, de las razones que motivaron las suspensión de la licencia de conducir y aprobación de la Subgerencia respectiva.
+Si la suspensión fuera inferior o igual a seis meses, el trabajador podrá ser reubicado temporalmente en otras labores compatibles con su clasificación o puesto de trabajo. En caso de que se negare injustificadamente a ser reubicado temporalmente, la Institución podría dar por terminado el contrato con responsabilidad patronal. En caso de reincidencia se aplicaría lo indicado en el primer párrafo de este artículo.
