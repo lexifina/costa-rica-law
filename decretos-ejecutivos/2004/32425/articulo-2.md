@@ -1,1 +1,0 @@
-Artículo 2º—Las disposiciones de este reglamento se aplicarán a todo acto de clasificación, importación, notificación, registro y control de equipo y material biomédico en el territorio costarricense con excepción de los equipos y materiales emisores de radiaciones ionizantes.

@@ -1,3 +1,0 @@
-Artículo 11.—El Ministerio de Salud realizará la evaluación de la documentación presentada para aprobar o desaprobar el registro del EMB, para ello el Ministerio podrá prevenir por única vez y por escrito al administrado para que se complete los requisitos omitidos en la solicitud.
-Las notificaciones de los EMB Clase 1 se resolverán en 10 días hábiles, los registros de los EMB Clase 2 en 20 días hábiles y los EMB 3 y 4 en 30 días hábiles, salvo que en casos debidamente justificados se requiera mayor información.
-El registro de EMB tendrá una vigencia de cinco años, sin perjuicio de las facultades de cancelación o modificación que le otorga al Ministerio la Ley General de Salud.

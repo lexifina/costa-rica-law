@@ -1,1 +1,0 @@
-Artículo 10.—Para EMB reconstruidos debe presentar, además de lo establecido en los artículos anteriores, una declaración emitida por el establecimiento que reconstruyó el EMB que garantice su calidad, seguridad y eficacia.
