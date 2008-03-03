@@ -1,0 +1,1 @@
+Artículo 26.—Al taller cantonal asistirán los representantes designados durante los talleres distritales. El taller se desarrollará con las personas asistentes, sin que exista un mínimo de representantes por distrito que deban estar presentes.

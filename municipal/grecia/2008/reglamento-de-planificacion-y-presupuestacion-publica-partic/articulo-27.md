@@ -1,0 +1,1 @@
+Artículo 27.—Al taller de formulación de indicadores de calidad para el progreso, se convocará a los miembros de las comisiones de trabajo del taller cantonal, un representante de cada concejo de distrito, un representante de cada asociación de desarrollo integral o específica, y un representante de la Cámara de Comercio.

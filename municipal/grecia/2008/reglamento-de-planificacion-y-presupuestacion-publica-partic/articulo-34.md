@@ -1,0 +1,4 @@
+CAPÍTULO II
+Definición de proyectos prioritarios
+Sesión extraordinaria ampliada del concejo de distrito:
+Artículo 34.—En sesiones extraordinarias ampliadas del concejo de distrito se definirán en forma inclusiva, deliberativa, participativa y concertada con las organizaciones base los proyectos prioritarios a ejecutar con los recursos del fondo distrital del siguiente año. Previo a las sesiones extraordinarias ampliadas de los concejos de distrito, cada asociación de desarrollo integral realizará una asamblea para definir los proyectos prioritarios que presentará en dicha sesión. En esta asamblea las asociaciones deberán ocuparse de que asistan representantes de todas las organizaciones y líderes destacados de sus comunidades garantizando espacios efectivos para la participación de todos sin exclusión alguna.

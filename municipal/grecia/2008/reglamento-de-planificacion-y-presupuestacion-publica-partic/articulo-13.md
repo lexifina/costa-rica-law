@@ -1,0 +1,1 @@
+Artículo 13.—El equipo operativo institucional tiene la misión de brindar soporte técnico y apoyo permanente en el proceso de planificación y presupuestación pública participativa. Asimismo, deberá realizar acciones de capacitación en los temas de su competencia a todos los participantes de los talleres de trabajo.

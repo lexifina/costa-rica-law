@@ -1,0 +1,1 @@
+Artículo 7º—En la fase de planificación pública participativa pueden intervenir todos los residentes del cantón central que así lo deseen. El único requisito para participar en este proceso es asistir a los talleres distritales propios del lugar de residencia.

@@ -1,0 +1,1 @@
+Artículo 17.—El órgano de planeamiento estratégico estará conformado de la siguiente manera: el alcalde, los síndicos (propietarios o suplentes), los vicepresidentes de cada concejo de distrito, un representante del concejo municipal, tres representantes del sector público, tres representantes del sector privado y cinco representantes del sector comunal.

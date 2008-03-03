@@ -1,0 +1,1 @@
+Artículo 19.—Las sesiones se realizarán cada seis meses, o cuando sea necesario una revisión o modificación del plan cantonal. A las sesiones se invitará a grupos de trabajo de sectores clave, líderes de la comunidad y/o empresarios académicos, para que así se abra un proceso de diálogo y concertación entre las diferentes fuerzas políticas y sociales.

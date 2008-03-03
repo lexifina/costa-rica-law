@@ -1,0 +1,1 @@
+Artículo 38.—En la votación cada entidad privada idónea deberá designar un representante, quién tendrá la potestad de decidir en nombre de su representada. En el caso de las comisiones de trabajo por área estratégica de los planes de desarrollo distrital cada miembro tendrá derecho a voto.

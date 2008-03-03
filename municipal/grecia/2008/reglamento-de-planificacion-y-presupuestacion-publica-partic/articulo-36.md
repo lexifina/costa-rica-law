@@ -1,0 +1,1 @@
+Artículo 36.—Son funciones del presidente del concejo de distrito: presidir, abrir, suspender, recibir las votaciones, anunciar si hay aprobación o rechazo del asunto, conceder o quitar la palabra, vigilar el orden de la sesión y cerrar la misma.
