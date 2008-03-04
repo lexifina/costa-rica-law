@@ -14,3 +14,4 @@ Reglamento para las Licencias Municipales de la Municipalidad de Santa Cruz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-07 | la propia norma |
+| 2 | 2008-03-04 | Reglamento municipal 0 (2008-03-04) |
