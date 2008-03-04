@@ -1,1 +1,0 @@
-Artículo 15.—De la fijación de los límites permisibles de sustancias contaminantes no sujetas a este canon. La fijación de los límites máximos permisibles de vertidos de sustancias contaminantes no reguladas en este Reglamento se regirá por lo dispuesto en el Reglamento de Vertido y Reuso de Aguas Residuales, decreto ejecutivo N° 26042-S-MINAE publicado el 19 de junio de 1997.

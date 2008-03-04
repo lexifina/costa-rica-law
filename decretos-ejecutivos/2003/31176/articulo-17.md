@@ -1,1 +1,0 @@
-Artículo 17.—De la vigencia del permiso de vertidos. El permiso de vertidos tendrá una vigencia de tres años, pudiendo renovarse en forma indefinida, por períodos iguales, previa presentación de la solicitud correspondiente y siempre que se cumpla con lo estipulado en este Reglamento.

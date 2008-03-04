@@ -1,1 +1,0 @@
-Artículo 19.—Trámite del permiso de vertidos. Todos los trámites relativos al permiso de vertidos deberá hacerlos el interesado ante el MINAE siguiendo para ello las disposiciones que para tal fin establezca dicho Ministerio mediante resolución administrativa.
