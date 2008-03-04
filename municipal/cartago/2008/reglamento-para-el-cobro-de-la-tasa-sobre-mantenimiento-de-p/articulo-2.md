@@ -1,0 +1,1 @@
+Artículo 2º—Se entiende por mantenimiento de parques aquella actividad técnica y artesanal, así como el costo financiero que realiza la Municipalidad de Cartago a través de sus distintas dependencias para la atención de los parques ubicados en los distritos 01 Oriental, 02 Occidental y en los demás distritos donde se preste el servicio.

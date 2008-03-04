@@ -1,0 +1,1 @@
+Artículo 6º—El monto de esta tasa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su mantenimiento, incrementándose en un diez por ciento de utilidad para su desarrollo.

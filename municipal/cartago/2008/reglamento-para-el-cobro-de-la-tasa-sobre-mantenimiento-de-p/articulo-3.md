@@ -1,0 +1,1 @@
+Artículo 3º—El servicio de mantenimiento de parques considera el costo efectivo de lo invertido por la Municipalidad el cuál se distribuye de acuerdo con el metraje lineal de frente de cada propiedad.
