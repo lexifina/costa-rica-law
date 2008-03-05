@@ -1,0 +1,1 @@
+Artículo 2º—Las Asociaciones de Desarrollo Integral deberán remitir copia de los planes y presupuestos para Conocimiento del Concejo de Distrito, el cual tendrá un plazo de quince días para formular observaciones ante la Dirección Nacional de Desarrollo de la Comunidad, en cumplimiento del artículo Nº 32 y 33 de la Ley de Desarrollo de la Comunidad, Nº 3859.

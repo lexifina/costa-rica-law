@@ -1,0 +1,1 @@
+TRANSITORIO I.—Para aquellas organizaciones que en el momento en que entre en vigencia este Reglamento tengan liquidaciones pendientes, tendrán un plazo de seis meses para presentarlas. Cuando la partida pendiente de liquidación sea del año 2007, se dará como plazo un año para su liquidación.

@@ -1,0 +1,1 @@
+Artículo 16.—El Coordinador de Planificación será el encargado de llevar el control de las partidas asignadas por la Municipalidad a las diferentes organizaciones, recibirá y revisará las liquidaciones presentadas por las diferentes organizaciones, para lo cual debe organizar un archivo donde se mantendrá un expediente con toda la información de cada una de las organizaciones.

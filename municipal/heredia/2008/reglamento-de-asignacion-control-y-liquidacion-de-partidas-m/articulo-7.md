@@ -1,0 +1,1 @@
+Artículo 7º—Todo proyecto que se incorpore dentro del Presupuesto de la Municipalidad de Heredia deberá contar con el respectivo perfil de acuerdo al formulario establecido por la Oficina de Planificación, adjuntando algún documento que demuestre que la propiedad donde se ejecutará el proyecto sea de dominio público.

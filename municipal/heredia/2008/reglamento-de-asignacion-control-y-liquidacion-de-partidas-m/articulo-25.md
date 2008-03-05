@@ -1,0 +1,1 @@
+Artículo 25.—Las Asociaciones de Desarrollo Integral y Juntas Administrativas y de Educación deberán presentar las liquidaciones en la Oficina de Planificación, dentro del plazo establecido en los artículos anteriores.

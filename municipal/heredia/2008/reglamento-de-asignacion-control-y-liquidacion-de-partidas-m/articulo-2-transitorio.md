@@ -1,0 +1,1 @@
+TRANSITORIO II.—Para que las organizaciones cumplan con lo establecido en el artículo 1º, se dará un plazo de seis meses a partir de que entre en vigencia este reglamento para que las organizaciones soliciten la calificación de idoneidad y presenten los documentos que se solicitan en dicho artículo.

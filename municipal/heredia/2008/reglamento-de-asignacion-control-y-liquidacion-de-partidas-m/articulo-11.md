@@ -1,0 +1,1 @@
+Artículo 11.—Cuando los recursos hayan sido retirados por la organización el Departamento de Tesorería comunicará inmediatamente al Departamento de Ingeniería y remitirá copia del cheque y recibo de dinero para el expediente a la Oficina de Planificación.
