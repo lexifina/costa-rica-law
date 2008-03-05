@@ -1,1 +1,0 @@
-Artículo 3— La exención o incentivo fiscal sólo podrá deducirse en el mes donde efectivamente se realice el aporte y hasta un máximo del 10% del salario o ingreso bruto del mes. A estos efectos, el aporte del mes estará conformado por el aporte del mes propiamente dicho, así como los pagos extraordinarios o aportes con cargo a períodos anteriores que se realicen en ese mes.
