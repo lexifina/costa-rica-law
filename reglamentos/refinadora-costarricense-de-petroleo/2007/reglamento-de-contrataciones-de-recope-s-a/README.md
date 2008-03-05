@@ -14,3 +14,4 @@ Reglamento de Contrataciones de RECOPE S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-16 | la propia norma |
+| 2 | 2008-03-05 | Reglamento 4240 (2008-03-05) |
