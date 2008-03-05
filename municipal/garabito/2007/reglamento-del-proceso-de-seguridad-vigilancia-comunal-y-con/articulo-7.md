@@ -6,6 +6,8 @@ b) Escala de Oficiales Ejecutivos tendrán los siguientes grados:
 1) Jefe de turno.
 2) Subjefe turno.
 3) Subjefe operativo (puesto discrecional).
+(*)4) Supervisores por turno quedando a criterio de la Jefatura el disponer de la cantidad de supervisores que considere necesaria.
+(*)(Así adicionado y publicado en La Gaceta N° 53 del 14 de marzo de 2008).
 c) Escala básica de oficiales tendrán los siguientes grados:
 1) Policía 1. Policía de distrito.
 2) Policía 2. Agente de policía.
@@ -35,7 +37,10 @@ C) Unidad de Asuntos Internos. Estará integrada por un profesional en derecho o
 Funciones de la Unidad.
 1) Preparar el informe correspondiente a las causas investigadas, asimismo la Unidad de Asuntos Internos remitirá el mismo a la Sección de Conciliación Laboral, recomendando alguna medida a fin de que se resuelvan en esa instancia, la procedencia o no de una posible sanción.
 2) De manera preventiva realizar capacitación al personal con el fin de prevenir comportamientos o conductas no adecuadas a un colectivo policial enmarcándolas dentro del comportamiento ético policial.
-D) Unidad de Jefatura Operativa. Estará Integrada por los Jefes de Turno del DPM en conjunto con el Subcomisionado.
+(*)D) Unidad de Jefatura Operativa. Estará Integrada por los Supervisores de todo el Departamento y el Subcomisionado.
+(*)(Así reformado y publicado en La Gaceta N° 53 del 14 de marzo de 2008).
 Funciones de la Unidad.
 1) Realizar al menos una vez por semana reuniones de análisis y proyección del trabajo concerniente al área operativa del Departamento.
 2) Proponer al Director del DPM acciones tendientes a cumplir lo establecido en el presente Reglamento.
+(*)E) Unidad Especial de Policía de Playa. Estará integrada por personal capacitado como Salvavidas, tal y como lo indica el Manual Descriptivo de Puestos. Dicha unidad contará con un supervisor de campo, que estará jerárquicamente subordinado al Subcomisionado. Dentro de sus funciones primordiales, además de las mencionadas en el Manual Descriptivo de puestos, están: a.- Velar por la seguridad en las diversas playas del Cantón de Garabito; b.- Brindar el servicio de Salvavidas en coordinación con los demás cuerpos de socorros, c.- Controlar la circulación de animales y vehículos en la playa.
+(*)(Así adicionado y publicado en La Gaceta N° 53 del 14 de marzo de 2008).

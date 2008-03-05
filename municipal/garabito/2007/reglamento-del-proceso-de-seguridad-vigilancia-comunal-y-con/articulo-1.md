@@ -8,4 +8,5 @@ II.—Que en vista del desarrollo de la reforma del estado costarricense se hace
 Acuerda emitir el presente Reglamento del Proceso de Seguridad, Vigilancia Comunal y Control Tributario de la Municipalidad de Garabito, conocido como Policía Municipal.
 CAPÍTULO I
 Fines y funciones
-Artículo 1º—El Departamento de Policía Municipal (DPM), también conocida como Policía Municipal (PM), es un cuerpo especial de vigilancia y seguridad que, con carácter esencialmente civil, contribuye a mantener el orden público en el Cantón Central de Garabito.
+Artículo 1º—El Departamento de Policía Municipal (DPM), también conocida como Policía Municipal (PM), es un cuerpo especial de vigilancia y seguridad que, con carácter esencialmente civil, contribuye a mantener el orden público en el Cantón Central de Garabito. Siendo que el Departamento de Policía Municipal, estará subordinado directamente con la Alcaldía Municipal.
+(Así adicionado y publicado en La Gaceta N° 53 del 14 de marzo del 2008).

@@ -1,4 +1,5 @@
-Artículo 11.—El jefe y subjefe de turno tendrá las siguientes atribuciones:
+Artículo 11.—Los supervisores tendrán las siguientes atribuciones:
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 53 del 14 de marzo del 2008).
 a) Dirigir el trabajo cotidiano de su unidad.
 b) Supervisar las actuaciones del personal a sus órdenes y corregir las posibles deficiencias que observe.
 c) Informar al Subcomisionado de la actuación del personal a su cargo.

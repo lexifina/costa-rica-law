@@ -10,3 +10,5 @@ h) Aprobar el Curso Básico de Capacitación en caso de ser personal sin experie
 i) Ser ciudadano en ejercicio.
 j) Poseer licencia de conducir, automóvil o motocicleta (preferiblemente).
 ÚNICO: Todo aspirante a ingresar en la Policía Municipal con el rango de policía, se comprometerá a prestar sus servicios durante un plazo mínimo de un (1) año, a menos que especiales circunstancias lo impidan, lo cual será declarado por la Dirección de la Policía Municipal.
+Que los requisitos para cada puesto en concreto estarán definidos por el Manual Descriptivo de Puesto del Departamento de Policía Municipal.
+(Así adicionado el párrafo anterior y publicado en La Gaceta N° 53 del 14 de marzo del 2008).

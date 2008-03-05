@@ -14,3 +14,4 @@ Reglamento del Proceso de Seguridad, Vigilancia Comunal y Control Tributario de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-23 | la propia norma |
+| 2 | 2008-03-05 | Reglamento municipal 0 (2008-03-05) |
