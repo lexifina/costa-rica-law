@@ -14,3 +14,4 @@ Procedimientos para la aplicación y seguimiento de la Política Presupuestaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-30 | la propia norma |
+| 2 | 2008-03-05 | Decreto Ejecutivo 34406 (2008-03-05) |

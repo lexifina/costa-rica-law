@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 16 del decreto ejecutivo N° 34406 del 5 de marzo de 2008).
 Nº 33668
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
