@@ -1,0 +1,1 @@
+Artículo 29.—La UTAM, deberá informar a la Dirección de Desarrollo Urbano sobre las medidas que un proyecto deberá incorporar en su diseño y construcción para la protección, conservación y/o mejoramiento de los recursos naturales.

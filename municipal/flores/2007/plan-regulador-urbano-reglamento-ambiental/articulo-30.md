@@ -1,0 +1,1 @@
+Artículo 30.—El interesado desarrollador de un proyecto o actividad, sea persona física o jurídica, así como el profesional responsable de la obra o actividad, deberán incorporar todas las observaciones hechas por los funcionarios públicos en el diseño y planos constructivos con el propósito de brindar la mayor protección al ambiente y a la salud humana.

@@ -1,0 +1,1 @@
+Artículo 28.—Los planos constructivos que soliciten el permiso respectivo ante la Municipalidad de Flores, deberán ser revisados y evaluados por la Unidad Técnica Ambiental Municipal (UTAM), con el objetivo de determinar que incluyan la infraestructura básica, para garantizar que el impacto ambiental asociado a su desarrollo se verá reducido o minimizado.

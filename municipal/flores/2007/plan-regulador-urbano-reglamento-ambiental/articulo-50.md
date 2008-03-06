@@ -1,0 +1,1 @@
+Artículo 50.—La estimación de las multas a pagar por quienes comentan o atenten contra la calidad ambiental del cantón de Flores, sea persona física o jurídica, deberá calcularse por medio de los métodos y técnicas de valoración económica del daño, de acuerdo con los fundamentos de la Economía Ambiental.

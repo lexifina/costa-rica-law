@@ -1,0 +1,1 @@
+Artículo 10.—Los profesionales que integren la UTAM serán elegidos y contratados por Acuerdo del Concejo. Su nombramiento deberá realizarse a través de un concurso que el órgano municipal deberá realizar y tendrá el carácter de una contratación profesional administrativa.

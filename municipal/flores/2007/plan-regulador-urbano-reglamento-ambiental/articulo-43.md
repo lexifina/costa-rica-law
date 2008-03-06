@@ -1,0 +1,1 @@
+Artículo 43.—Se suspenderá toda obra que en el transcurso de la ejecución deje escombros en los derechos de vía públicos u obstruya el libre tránsito por la vía pública, en este último caso sin tener la autorización de la DDU.

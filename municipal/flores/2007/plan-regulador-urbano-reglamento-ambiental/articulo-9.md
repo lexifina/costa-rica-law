@@ -1,0 +1,3 @@
+Artículo 9.—La UTAM estará integrada por cuatro miembros de la siguiente forma:
+a. Un coordinador General, profesional en un campo afín al manejo de los recursos naturales, el ordenamiento territorial o la planificación, o bien con la experiencia reconocida que lo califique para desempeñarse como gestor ambiental del cantón.
+b. Tres profesionales que se distribuirán en las siguientes áreas: para el medio físico un profesional en Geología, Geografía o afines; para el medio biótico un profesional en biología, ecología o afines; para el medio social un profesional en sociología, geografía social o planificación social.

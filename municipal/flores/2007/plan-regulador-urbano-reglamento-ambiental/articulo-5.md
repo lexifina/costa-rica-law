@@ -1,0 +1,1 @@
+Artículo 5.—Se crea como parte de la Municipalidad de Flores la Comisión Ambiental Municipal, la cual será un órgano de carácter político creado de conformidad con el artículo 49 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 12.—Corresponderá a la Unidad Técnica Ambiental Municipal dar curso a las denuncias, por los medios pertinentes y según lo establezcan las leyes y reglamentos. La Municipalidad establecerá las denuncias ante el Tribunal Ambiental a fin de que se proceda conforme lo establece la legislación ambiental y sanitaria vigente a nivel nacional.

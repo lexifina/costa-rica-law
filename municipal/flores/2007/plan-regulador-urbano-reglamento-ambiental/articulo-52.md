@@ -1,0 +1,3 @@
+CAPÍTULO SÉTIMO
+Disposiciones finales
+Artículo 52.—Queda absolutamente prohibida la importación de desechos de cualquier naturaleza cuyo único objeto sea su depósito, almacenamiento, confinamiento o disposición final. Únicamente se permitirá para propósitos científicos o para procesos de reutilización y/o reciclaje, excepto cuando se trate de desechos peligrosos (así establecidos en el Decreto Ejecutivo Nº 27000-MINAE). Para estos propósitos se deberá contar con la autorización y permiso del Ministerio de Salud y se deberá cumplir con todo el proceso de evaluación ambiental regulado por la SETENA y otras disposiciones que pueda establecer la UTAM para garantizar la salud y seguridad ambiental y humana de las actividades.

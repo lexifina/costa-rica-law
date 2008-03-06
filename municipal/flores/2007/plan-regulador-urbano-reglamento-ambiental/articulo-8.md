@@ -1,0 +1,1 @@
+Artículo 8.—Se crea como parte de la estructura de la Municipalidad de Flores la Unidad Técnica Ambiental, en adelante denominada UTAM. Será una dependencia administrativa de la Municipalidad de Flores.
