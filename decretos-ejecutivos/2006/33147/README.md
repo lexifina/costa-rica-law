@@ -15,3 +15,4 @@ Crea Comisión Intersectorial de Gobierno Digital
 | --- | --- | --- |
 | 1 | 2006-05-08 | la propia norma |
 | 2 | 2007-10-10 | Decreto Ejecutivo 34093 (2007-10-10) |
+| 3 | 2008-03-06 | Decreto Ejecutivo 34413 (2008-03-06) |

@@ -12,4 +12,5 @@ Considerando:
 7°—Que la Presidencia de la República tiene entre sus objetivos brindar apoyo a la gestión Presidencial para el cumplimiento de sus fines y metas para lograr una coordinación y ejecución de la política general del gobierno.
 8º—Que se requiere de una Secretaría que coordine, integre y revise las políticas dirigidas al cumplimiento de los esfuerzos necesarios para el logro de los fines y metas propuestas. Por tanto,
 DECRETAN:
-Artículo 1º—Créase la Comisión Intersectorial de Gobierno Digital, como un órgano de definición política de alto nivel que diseña y planifica las políticas públicas en materia de gobierno digital y de compra de equipo de computación y software que realicen las instituciones del Sector Público.
+(NOTA DE SINALEVI: El siguiente texto corresponde a la reforma integral realizada por el artículo N° 1 del Decreto Ejecutivo N° 34413 de 06 de marzo de 2008, publicado en La Gaceta N° 63 de 01 de abril de 2008)
+Artículo 1º—Créase la Comisión Intersectorial de Gobierno Digital, en adelante denominada la Comisión, como un órgano de coordinación y definición política de alto nivel que diseña y planifica las políticas públicas en materia de gobierno digital.

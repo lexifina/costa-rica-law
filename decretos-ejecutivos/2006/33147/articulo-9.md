@@ -1,0 +1,1 @@
+Artículo 9º—Se declaran de interés público las actividades que realice la Secretaría de Gobierno Digital. La Administración Pública e instituciones privadas, dentro de sus posibilidades y el marco legal correspondiente, podrán brindar su ayuda para el mejor logro de los objetivos de la Comisión y la Secretaría .

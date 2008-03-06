@@ -1,9 +1,6 @@
-Artículo 4º—La Secretaría Técnica de Gobierno Digital tiene los siguientes objetivos:
-a) Priorizar y procurar los servicios críticos de los habitantes.
-b) Incrementar la transparencia y el acceso a la información gubernamental.
-c) Facilitar los mecanismos de ciudadanía activa en la interacción con el Estado.
-d) Fomentar el acceso a las tecnologías digitales entre los ciudadanos.
-e) Promover la utilización de tecnologías digitales para efectos de simplificar trámites antes los entes de la Administración Pública y entre estos últimos.
-f) Incentivar la eficiencia en la Administración Pública por medio del uso de las tecnologías digitales.
-g) Caracterizar y velar por el modelo de gobierno digital y procurar su actualización.
-h) Maximizar los recursos gestionados por el Estado para sustentar los proyectos de gobierno digital.
+Artículo 4º—La Comisión designará un asesor principal, con quien no establecerá ninguna relación de servicio o laboral y a quien la Comisión no podrá remunerar por ningún medio. No obstante, la Comisión procurará suscribir convenios de cooperación con instituciones del sector privado con el propósito de que le sean reconocidos por parte de éstas los honorarios que se determinen para el mismo. Este asesor principal tendrá dentro de sus funciones:
+a) Asesorar a la Comisión para el cumplimiento de sus fines.
+b) Requerir a la Secretaría Técnica de Gobierno Digital la presentación de los informes de gestión anuales, así como los planes anuales de trabajo.
+c) Dar seguimiento a los acuerdos de la Comisión.
+d) Servir de enlace con las instituciones del sector público y privado relacionadas con el cumplimiento de los objetivos de la Comisión.
+e) Colaborar con la Secretaría Técnica de Gobierno Digital en la definición de la estrategia de desarrollo de los proyectos aprobados por la Comisión.

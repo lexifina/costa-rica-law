@@ -1,0 +1,2 @@
+Artículo 8º—La Secretaría Técnica de Gobierno Digital estará conformada por un Secretario, quien fungirá como coordinador general y será nombrado por el Presidente de la República; y los funcionarios de apoyo que sean necesarios.
+El Secretario deberá rendir a la Comisión anualmente, o en el momento en que le sean requeridos, informes de su gestión. Corresponderá al Secretario elaborar y presentar ante la Comisión para su aprobación los planes anuales de trabajo.

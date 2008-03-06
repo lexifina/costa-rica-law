@@ -1,10 +1,11 @@
-Artículo 2º— La Comisión Intersectorial de Gobierno Digital estará integrada por:
-a) La Primera Vicepresidenta de la República , quien la coordinará.
-b) El Ministro o Viceministro de la Presidencia.
-c) Ministro sin cartera o Viceministro encargado de la coordinación interinstitucional.
-d) El Ministro o Viceministro de Planificación Nacional y Política Económica.
-e) Ministro o Viceministro encargado de las carteras de Agricultura y Ganadería, Economía, Industria y Comercio
-f) Ministro o Viceministro de Ambiente y Energía.
-g) Ministro o Viceministro de Ciencia y Tecnología. El secretario tendrá derecho a asistir con voz pero sin voto.
-Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública.
-(Así reformado mediante artículo 1° del decreto ejecutivo N° 34093 del 10 de octubre de 2007)
+Artículo 2º—La Comisión Intersectorial de Gobierno Digital estará integrada por:
+a) La Primera Vicepresidente de la República, quien la presidirá.
+b) El Ministro o Viceministro encargado de la Coordinación Interinstitucional.
+c) El Ministro o Viceministro de Comercio Exterior.
+d) Ministro o Viceministro de Ciencia y Tecnología.
+e) El Presidente Ejecutivo o el subgerente de telecomunicaciones del Instituto Costarricense de Electricidad.
+f) Un representante de uno de los Bancos Estatales del Sistema Bancario Nacional.
+g) Un representante de la Fundación Omar Dengo.
+Podrán asistir a las sesiones de la Comisión, con derecho a voz pero sin voto: El secretario de la Secretaría Técnica de Gobierno Digital, el o los asesores que designe la Comisión, representantes de otras instancias que determine la Comisión.
+El banco estatal cuyo representante integre la Comisión de conformidad con el inciso f) de este artículo, será designado por la Primera Vicepresidente de la República.
+Para su funcionamiento la Comisión se regirá, en lo que resulten aplicables, por las disposiciones de la Ley General de Administración Pública sobre los órganos colegiados.
