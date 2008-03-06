@@ -1,0 +1,1 @@
+Artículo 20.—La empresa seleccionará el gestor “Senior” del Banco de Gestores, que para tal efecto el CONICIT pondrá a su disposición. En caso que la empresa lo considere necesario, podrá hacerse asesorar por el CONICIT en cuanto a la disponibilidad e idoneidad de los gestores.

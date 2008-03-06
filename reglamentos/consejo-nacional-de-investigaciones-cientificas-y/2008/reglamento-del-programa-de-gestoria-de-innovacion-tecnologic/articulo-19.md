@@ -1,0 +1,1 @@
+Artículo 19.—El gestor “Senior” puede ser una persona física o jurídica debidamente inscrita como tal, en el Banco de Gestores del Registro Científico y Tecnológico del CONICIT. Este gestor puede tener a su cargo y brindar asesoría profesional dentro del marco de este programa, hasta un máximo de cuatro empresas (gestores “Junior”).

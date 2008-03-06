@@ -1,0 +1,1 @@
+Artículo 9º—El acto administrativo de aceptación o denegación a la empresa para participar en el programa será notificado formalmente, y a partir de esta notificación, cabrán los recursos ordinarios previstos por la ley.

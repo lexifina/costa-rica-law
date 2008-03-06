@@ -1,0 +1,1 @@
+Artículo 22.—La empresa deberá realizar la fase de desarrollo e implementación de la gestión de la tecnología con el gestor(a) “Senior” o entidad seleccionada para este propósito. No seré factible realizar cambios de gestor, salvo en condiciones excepcionales, teniendo el visto bueno del CONICIT, quien a través de resolución fundada al respecto autorizará este cambio.

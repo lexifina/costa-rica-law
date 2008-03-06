@@ -1,0 +1,1 @@
+Artículo 8º—Los requisitos de una empresa para poder participar en el programa serán divulgados en la página Web del CONICIT o cualquier otro medio de comunicación eficiente y oportuno. La información se proporcionará de previo al plazo fijado para la convocatoria señalada.

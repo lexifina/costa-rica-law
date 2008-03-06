@@ -1,0 +1,1 @@
+Artículo 12.—Es responsabilidad de la empresa presentar a satisfacción del CONICIT, la documentación que compruebe el uso y aprovechamiento de los recursos girados, en cumplimiento de los objetivos fijados para el programa.
