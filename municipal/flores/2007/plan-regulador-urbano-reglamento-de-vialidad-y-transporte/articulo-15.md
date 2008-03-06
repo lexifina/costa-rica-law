@@ -1,0 +1,1 @@
+Artículo 15.—Derecho de vía: El derecho de vía será catorce metros. En zonas industriales, el derecho de vía será de diecisiete metros (17 m) lineales como mínimo. Deben establecerse paradas a cada doscientos metros como mínimo.

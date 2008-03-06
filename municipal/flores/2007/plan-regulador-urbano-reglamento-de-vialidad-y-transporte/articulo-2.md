@@ -1,0 +1,6 @@
+Artículo 2º—Objetivos: Los objetivos de reglamentar la vialidad y el transporte son:
+a. Establecer un sistema vial que garantice una adecuada integración de las vías públicas cantonales con las vías públicas de su entorno, generando eficiencia en la direccionalidad y uso de las vías.
+b. Garantizar el acceso por vías públicas a todas las zonas establecidas en el Plan Regulador, previendo la construcción de nuevas vías en las zonas de expansión y/o crecimiento urbano y garantizando a nivel global la integración y comunicación eficiente de los centros poblados.
+c. Determinar los derechos de vía, señalización y condiciones de circulación y uso de todas las vías públicas dentro del cantón, bajo el principio de lograr compatibilidad, eficiencia y seguridad en la circulación vehicular y peatonal.
+d. Establecer las rutas y paradas de transporte público, rutas para circulación de vehículos pesados y de cargas peligrosas, zonas de cruce o paso peatonal y otros, necesarios para el ordenamiento vial compatible con la zonificación de uso del suelo.
+e. Establecer las responsabilidades a las instituciones competentes y a la sociedad civil, respecto al uso eficiente y seguro de las vías públicas dentro del cantón, su planificación, construcción, ampliación y mantenimiento.

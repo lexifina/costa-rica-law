@@ -1,0 +1,1 @@
+Artículo 11.—Velocidades: Estas carreteras tendrán velocidades de diseño que oscilarán entre los cincuenta y sesenta kilómetros por hora (50-60 km/h). En intersecciones y paso por centros urbanos, la velocidad máxima será de 30 kilómetros por hora.

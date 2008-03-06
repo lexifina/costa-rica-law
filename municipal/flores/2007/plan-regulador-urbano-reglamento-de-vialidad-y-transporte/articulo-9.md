@@ -1,0 +1,1 @@
+Artículo 9º—Derecho de vía: Este oscilará entre dieciocho y veinticuatro metros (18 m a 24 m), dependiendo de su ubicación y así indicado en el Mapa de Vialidad. Deben establecerse paradas para el transporte público cada quinientos metros como mínimo.

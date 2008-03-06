@@ -1,0 +1,1 @@
+Artículo 7º—Tránsito vehicular: La facultad de tránsito pesado queda a criterio del Ministerio de Obras Públicas y Transportes, quién bajo su competencia y responsabilidad definirá la capacidad de tránsito y carga de diseño en este tipo de vías.

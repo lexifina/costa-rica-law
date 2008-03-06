@@ -1,0 +1,1 @@
+Artículo 45.—Diseño: Estas vías, según su ubicación y la magnitud de los flujos peatonales, deben dar la posibilidad de realizar recorridos peatonales. Deberán prever en los casos así calificados por la Municipalidad de Flores las labores de carga y descarga así como el paso de vehículos de emergencia y de mantenimiento.

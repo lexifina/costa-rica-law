@@ -1,0 +1,1 @@
+Artículo 42.—Retiro: El retiro requerido será de tres metros (3 m) los cuales, a partir del derecho de vía, excepto en las zonas con un retiro mayor, según lo establezca el Reglamento de Zonificación.

@@ -1,0 +1,1 @@
+Artículo 16.—Carriles y aceras: Estas vías tendrán un mínimo de dos (2) carriles hasta un máximo de tres metros (3) cada uno y con una zona verde interna de 1.5 m arborizada a ambos lados de la calzada que permita preservar el carácter histórico tradicional de las vías cantonales. Las aceras tendrán 1.5 metros de ancho mínimo, quedando el resto del derecho de vía como zona verde.

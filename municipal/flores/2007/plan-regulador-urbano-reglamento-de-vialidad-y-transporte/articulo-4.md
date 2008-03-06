@@ -1,0 +1,1 @@
+Artículo 4º—Derecho de vía: Tendrán un derecho de vía de cincuenta metros (50 m), de dos a cuatro carriles, de tres metros con cincuenta centímetros cada uno y dos calles marginales a ambos lados de la calzada de siete metros. Debe reservarse un carril en cada sentido para el paso del transporte público rápido, con paradas a cada mil metros como promedio.

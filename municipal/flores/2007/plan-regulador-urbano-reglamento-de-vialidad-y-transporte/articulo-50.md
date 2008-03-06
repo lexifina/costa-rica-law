@@ -1,0 +1,1 @@
+Artículo 50.—Retiro: El retiro requerido será de tres metros (3 m) los cuales, se contarán a partir del derecho de vía correspondiente, excepto en las zonas donde se establezca un retiro mayor, según lo indique el Reglamento de Zonificación.

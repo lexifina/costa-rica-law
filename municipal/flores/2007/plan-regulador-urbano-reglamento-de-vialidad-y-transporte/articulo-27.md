@@ -1,0 +1,1 @@
+Artículo 27.—Derecho de vía: Tendrán un derecho de vía que oscilará entre los siete y nueve metros (7 m a 9 m) de ancho, dependiendo hacia la vía con la cual se entronque o conecte. Deben establecerse paradas para transporte público cada doscientos metros como mínimo

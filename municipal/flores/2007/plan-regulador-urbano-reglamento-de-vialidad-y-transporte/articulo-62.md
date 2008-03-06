@@ -1,0 +1,1 @@
+Artículo 62.—Ubicación espacial: Se ubicará en uno de los sectores identificados como Zona Institucional, concretamente hacia el oeste del cantón, entre el Complejo de Ciencias Forenses, el Colegio Técnico Vocacional y el Cementerio actual.
