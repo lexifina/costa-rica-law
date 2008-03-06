@@ -14,3 +14,4 @@ Reglamento de Cauciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2008-03-06 | Reglamento 587 (2008-03-06) |
