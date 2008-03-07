@@ -17,3 +17,4 @@ Reglamento de Auditores Extrenos aplicable a los sujetos fiscalizados por SUGEF,
 | 2 | 2005-06-23 | Reglamento 514 (2005-06-23) |
 | 3 | 2006-12-06 | SINALEVI (sin norma nombrada) |
 | 4 | 2007-06-25 | Reglamento 655 (2007-06-25) |
+| 5 | 2008-03-07 | Reglamento 707 (2008-03-07) |
