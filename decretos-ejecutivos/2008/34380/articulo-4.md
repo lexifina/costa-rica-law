@@ -1,0 +1,1 @@
+Artículo 4°-Funcionamiento. La Comisión será coordinada por el Ministro de Coordinación Interinstitucional y/o el Viceministro de la Presidencia. Internamente decidirán el método de trabajo y la periodicidad de las reuniones.
