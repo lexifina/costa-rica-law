@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia encargada de aplicar el incentivo. Los encargados de la Plataforma de Servicio de la Municipalidad serán los encargados de aplicar el incentivo. La actualización del porcentaje que se utilizará se hará mediante resolución de la Jefatura Financiera, atendiendo lo dispuesto por el artículo segundo de este Reglamento.
