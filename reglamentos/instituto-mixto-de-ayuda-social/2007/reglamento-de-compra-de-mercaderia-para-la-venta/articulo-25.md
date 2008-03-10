@@ -1,0 +1,1 @@
+Artículo 25.—De la verificación de la orden de compra: Previo a realizar la entrega de la orden de compra el proveedor debe estar registrado en la base de datos que lleva la Unidad de proveeduría para este fin.

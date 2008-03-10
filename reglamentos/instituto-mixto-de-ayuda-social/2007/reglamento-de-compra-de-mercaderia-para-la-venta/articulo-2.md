@@ -1,0 +1,1 @@
+Artículo 2º—De los Principios: Todas las compras de mercadería que se realicen para la venta en las tiendas libres de impuestos, deberán cumplir los principios generales de contratación administrativa de eficiencia, igualdad y libre competencia, privando siempre la mejor opción para la Institución y el interés público.

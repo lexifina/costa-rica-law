@@ -1,0 +1,1 @@
+Artículo 19.—De la justificación en la cantidad de las compras: En caso de que la administración sugiera adquirir una cantidad diferente a la recomendada por el lote económico esta diferencia deberá se justificada y valorada por la Comisión.

@@ -1,0 +1,1 @@
+Artículo 5º—De la ausencia temporal del Gerente General: En caso de ausencia temporal del titular de la Gerencia General, corresponderá a la Sub Gerencia Administrativo Financiera ejercer la competencia establecida en el artículo anterior.

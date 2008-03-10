@@ -1,0 +1,1 @@
+Artículo 37.—De la aprobación del Consejo Directivo: El presente reglamento fue debidamente aprobado mediante acuerdo CD- 372-07 de acta 079.07 de fecha 08 de octubre del 2007 del Consejo Directivo del IMAS.
