@@ -1,0 +1,1 @@
+Artículo 6º—De la integración del Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda. El Tribunal de Casación estará integrado por los tres Jueces Decisores y un Tramitador. Estará compuesto por las Secciones que acuerde la Corte Plena, según las necesidades que demande la eficiente administración de justicia.

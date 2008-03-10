@@ -1,0 +1,4 @@
+Artículo 85.—De los Jueces Ejecutores
+1) Los Jueces Ejecutores actuarán observando estrictamente los procedimientos dispuestos en el Título VIII, Capítulo I, del Código Procesal Contencioso Administrativo.
+2) En el ámbito de su competencia, no están supeditados más que a los términos de la sentencia o auto sentencia que se ejecuta, o del acto administrativo firme y favorable para el administrado, cuya ejecución se pretende, así como al acuerdo conciliatorio o de transacción debidamente homologado.
+3) Una vez firme la sentencia respectiva, en caso de existir condenatoria que ejecutar, sin mayor demora la Sala Primera de la Corte Suprema de Justicia, el Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda o el Tribunal Contencioso-Administrativo y Civil de Hacienda, según sea el caso, remitirán al Juez Ejecutor el expediente respectivo, para lo de su cargo.

@@ -1,0 +1,1 @@
+Transitorio VI.—De las plazas nuevas. La Corte Suprema de Justicia incluirá en el presupuesto del Poder Judicial, las plazas nuevas de los Jueces y del personal subalterno que sean necesarias para la puesta en funcionamiento del nuevo sistema procesal.

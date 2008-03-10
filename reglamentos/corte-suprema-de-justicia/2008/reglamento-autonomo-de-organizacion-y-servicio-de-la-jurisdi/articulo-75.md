@@ -1,0 +1,1 @@
+Artículo 75.—De la remisión de los asuntos que prescindan del juicio oral. En los asuntos de puro derecho y en los que se prescinda de la audiencia oral, una vez listos para fallo, el juez tramitador los remitirá, sin más trámite, a la sección encargada de su conocimiento.

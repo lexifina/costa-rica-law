@@ -1,0 +1,1 @@
+Artículo 30.—Archivo. Se designará un auxiliar para el archivo y conservación de los expedientes judiciales, legajos administrativos, fotocopias certificadas, archivos digitales y respaldos de seguridad, además, deberá llevar un control adecuado en el sistema informático de gestión, o en el libro respectivo.

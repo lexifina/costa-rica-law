@@ -1,0 +1,1 @@
+Artículo 19.—Deber de desempeñar su cargo. La función del Coordinador no exime al Juez del cumplimiento de los deberes propios señalados en el ordenamiento jurídico, para el cargo que desempeña.

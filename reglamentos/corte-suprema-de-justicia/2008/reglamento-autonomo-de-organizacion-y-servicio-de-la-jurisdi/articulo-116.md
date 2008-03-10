@@ -1,0 +1,1 @@
+Artículo 116.—El expediente electrónico será consultado por medio de Internet, además de áreas o equipo de consulta. En caso de requerir copia ésta se realizará en formato digital, para lo cual la parte interesada deberá cubrir el costo del dispositivo necesario.

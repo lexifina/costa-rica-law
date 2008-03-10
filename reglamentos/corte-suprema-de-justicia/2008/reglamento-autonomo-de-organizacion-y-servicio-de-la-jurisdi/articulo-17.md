@@ -1,0 +1,3 @@
+Artículo 17.—De los Jueces Coordinadores
+1) El Consejo de Jueces del Juzgado Contencioso-Administrativo, del Tribunal Contencioso-Administrativo y de Casación, podrá designar un Juez Coordinador y un Juez Coordinador Suplente, para los efectos de los artículos 3 y 101 de la LOPJ.
+2) Los candidatos al puesto podrán proponerse a sí mismos, o ser propuestos por uno o varios Jueces del Despacho correspondiente. El Juez Coordinador y el Juez Coordinador Suplente, serán nombrados por el plazo de un año, y podrán ser reelectos. A falta de acuerdo interno en la elección, luego de realizadas cinco votaciones, la Corte Plena o el Consejo Superior en su caso, designará al coordinador.

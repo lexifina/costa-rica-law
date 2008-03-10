@@ -1,0 +1,1 @@
+Artículo 107.—El traslado de la demanda y la presentación de la contestación, de los recursos y de las peticiones en general en el proceso electrónico, deben ser hechas por medios electrónicos, sin necesidad de presentación física en el despacho, caso en el cual la tramitación electrónica deberá darse de forma automática, y se suministrará acuse de recibo electrónico.

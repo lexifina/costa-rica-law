@@ -1,0 +1,1 @@
+Artículo 112.—Los documentos producidos electrónicamente y presentados en los procesos electrónicos con garantía de su origen y remitente, en la forma establecida en este Reglamento, serán considerados originales para todos los efectos legales.

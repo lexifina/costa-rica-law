@@ -1,0 +1,3 @@
+Artículo 38.—Custodia del expediente administrativo
+1) Corresponderá a los diferentes órganos que conforman la Jurisdicción Contencioso Administrativa y Civil de Hacienda, la custodia de las copias certificadas de los expedientes administrativos que reciba, tanto en formato escrito como digital. A tal efecto, contará con una bodega o archivo donde se almacenarán. Deberá existir control en el sistema de gestión de estos expedientes.
+2) En la carátula de la carpeta judicial se indicará si existe expediente administrativo. En aquellos casos en que un expediente administrativo, sea común a varios procesos, en cada uno de los expedientes jurisdiccionales se anotará su existencia con la indicación expresa del número de expediente en el cual se aportó la copia del mismo.

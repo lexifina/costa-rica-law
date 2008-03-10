@@ -1,0 +1,1 @@
+Artículo 106.—Los documentos físicos se incluirán por medio de sistemas digitales al expediente electrónico, los que se certificarán y devolverán a su tenedor; quien los conservará y presentará al Despacho en el momento en que este último lo requiera.

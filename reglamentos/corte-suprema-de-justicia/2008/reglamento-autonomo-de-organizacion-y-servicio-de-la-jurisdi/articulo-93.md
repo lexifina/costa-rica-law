@@ -1,0 +1,1 @@
+Artículo 93.—El envío de peticiones, de recursos y la práctica de actos procesales en general por medio electrónico, será admitido mediante el uso de la identificación digital, en la forma del artículo 92 de este Reglamento, siendo obligatoria la acreditación en las oficinas que así lo establezca la Dirección Ejecutiva.

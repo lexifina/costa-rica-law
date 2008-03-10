@@ -1,0 +1,4 @@
+Artículo 36.—Custodia de Documentos Originales
+1) Bajo ninguna circunstancia se custodiarán los documentos originales presentados por las partes o cualquier otro interesado. De ellos se hará reproducción por cualquiera de los mecanismos tecnológicos al alcance del Poder Judicial, y se devolverán al titular o interesado, con el comprobante de que fueron debidamente presentados y reproducidos en el Despacho.
+2) Si se trata de muestras o documentos originales irreproductibles, serán custodiados en la caja fuerte del Despacho, a la cual tendrá acceso únicamente el asistente judicial y el juez coordinador.
+3) De los valores, muestras o documentos que se encuentren custodiados en la caja fuerte, se llevará un inventario riguroso y actualizado periódicamente, con indicación, al menos, del tipo de documento, fecha de ingreso, y en su caso de salida, el número del expediente en el cual fue aportado y la parte que lo presenta.

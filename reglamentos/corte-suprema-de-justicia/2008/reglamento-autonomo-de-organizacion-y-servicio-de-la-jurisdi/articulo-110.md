@@ -1,0 +1,1 @@
+Artículo 110.—En el caso del artículo 109, si por motivos técnicos no se pudiera acceder al sistema informático del Poder Judicial, el plazo se prorroga automáticamente hasta el primer día hábil siguiente a la solución del problema.

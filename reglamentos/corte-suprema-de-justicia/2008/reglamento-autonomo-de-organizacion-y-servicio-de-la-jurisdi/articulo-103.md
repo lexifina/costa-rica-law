@@ -1,0 +1,1 @@
+Artículo 103.—Cuando, por motivo técnico, resulte inviable el uso del medio electrónico para la realización de la notificación, esos actos o actuaciones procesales podrán ser practicados según las reglas ordinarias, digitalizándose el documento físico.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento regula la organización de la Jurisdicción Contencioso Administrativa y Civil de Hacienda y la relación de servicio establecida con los usuarios de la administración de justicia.

@@ -1,0 +1,3 @@
+Artículo 69.—Del acuerdo conciliatorio y su homologación
+1) Los acuerdos adoptados en el proceso de la conciliación deberán contener los requisitos establecidos en el artículo 12 de la Ley de Resolución Alternativa de Conflictos Nº 7727.
+2) El plazo para homologar el acuerdo conciliatorio es de ocho días hábiles. Cuando se celebre más de una audiencia, dicho plazo corre a partir del día siguiente a la celebración de la última de ellas. Firme el acuerdo, deberá pasar al Juez Ejecutor para lo de su cargo. La homologación extemporánea podrá acarrear responsabilidad disciplinaria del Juez, previo cumplimiento del procedimiento establecido en la ley.

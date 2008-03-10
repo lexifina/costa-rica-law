@@ -1,0 +1,1 @@
+Artículo 9º—De la integración del Juzgado Civil de Hacienda de Asuntos Sumarios. El Juzgado Civil de Hacienda de Asuntos Sumarios, continuará tramitando los asuntos bajo su competencia, al amparo de las leyes respectivas y hasta que sobrevenga el plazo de tres años que prevé el transitorio V del CPCA.

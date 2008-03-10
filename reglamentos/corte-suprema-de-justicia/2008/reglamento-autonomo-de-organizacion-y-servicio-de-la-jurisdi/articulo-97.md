@@ -1,0 +1,1 @@
+Artículo 97.—Se considerarán realizadas las gestiones procesales por medio electrónico en el día y hora de su recibido al sistema informático del Poder Judicial, el que emitirá un acuse de recibo electrónico.

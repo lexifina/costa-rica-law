@@ -1,0 +1,1 @@
+Artículo 74.—De los criterios a utilizar para distribuir los asuntos a cada sección. La Comisión de la Jurisdicción Contencioso Administrativa determinará la distribución de los asuntos que deba conocer cada una de las secciones del Tribunal de conformidad con el artículo 70 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 95.—Al acreditado le será atribuido un registro y un medio de acceso al sistema, de modo que se preserven el secreto, la identificación y seguridad de sus comunicaciones. El uso del registro y del medio de acceso al sistema será responsabilidad exclusiva del acreditado.

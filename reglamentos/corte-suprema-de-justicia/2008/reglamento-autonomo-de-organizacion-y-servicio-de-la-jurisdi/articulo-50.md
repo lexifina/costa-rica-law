@@ -1,0 +1,1 @@
+Artículo 50.—De la firma de resoluciones de mero trámite. Los autos y las providencias dictadas por la Sala Primera en la materia contencioso administrativa serán autorizados por el Magistrado al que se turne el conocimiento del asunto.

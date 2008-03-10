@@ -1,0 +1,1 @@
+Artículo 113.—Los extractos digitales y los documentos digitalizados y aportados al expediente electrónico por instituciones públicas o privadas, abogados o cualquier otro legitimado para ello tendrán la misma fuerza probatoria de los originales, sin perjuicio de lo indicado en el artículo 82 del CPCA.

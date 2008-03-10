@@ -1,0 +1,2 @@
+Artículo 77.—Citación a juicio. Fijada hora y fecha para la celebración del debate oral y público, cada parte debe citar y hacer comparecer sus testigos y peritos, para lo cual quedan a su disposición las cédulas de citación en el Despacho. Solo en los casos en que estos no comparezcan, y se demuestre previamente o durante el debate que el testigo o perito fue debidamente citado, el Tribunal ordenara su presentación por medio de la Fuerza Pública.
+Si en autos consta medio o lugar para localizar o notificar al perito, el Tribunal realizará la citación respectiva a juicio.

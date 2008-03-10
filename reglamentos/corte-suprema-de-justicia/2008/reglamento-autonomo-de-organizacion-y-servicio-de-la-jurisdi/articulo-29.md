@@ -1,0 +1,1 @@
+Artículo 29.—Tesorería. Con el sistema de depósitos judiciales, se designará un auxiliar encargado de confeccionar y tramitar las órdenes de giro, el control de las boletas de depósitos judiciales, los aspectos contables y el manejo de los valores del despacho.

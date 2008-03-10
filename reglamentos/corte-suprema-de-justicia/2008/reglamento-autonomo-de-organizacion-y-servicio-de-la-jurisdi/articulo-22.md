@@ -1,0 +1,3 @@
+Artículo 22.—De la disponibilidad de los Jueces y del personal auxiliar
+1) Para el cabal cumplimiento de las atribuciones que dispone el CPCA, los Jueces de la Jurisdicción Contencioso Administrativa, estarán sujetos, según corresponda, a un régimen de disponibilidad, cuyo porcentaje, cálculo y forma de pago, se regirá por las normas legales y reglamentarias vigentes al respecto.
+2) Los Juzgadores en ejercicio de la disponibilidad, contarán con el personal auxiliar que sea necesario para el cumplimiento de su función, el cual también estará sujeto al régimen de disponibilidad que prevé este artículo.

@@ -1,0 +1,1 @@
+Artículo 123.—Potestad disciplinaria. En la celebración de las audiencias orales, el Despacho observará y aplicará el régimen disciplinario, sobre las partes, sus abogados y demás asistentes, según lo dispuesto en el Título VIII, Capítulo VI, artículos 216 al 223, de la LOPJ.

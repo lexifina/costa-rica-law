@@ -1,0 +1,3 @@
+Artículo 13.—Del quórum
+1) Para constituir quórum, deberán estar presentes al menos la mitad más uno de todos los Jueces que integran el respectivo Despacho y que tienen derecho a voto. En la convocatoria se advertirá que de no existir quórum en la hora y fecha señalada, se llevará a cabo la sesión quince minutos más tarde de la originalmente programada con los jueces que se encuentren presentes y sin perjuicio de la incorporación de cualquiera de ellos durante el transcurso de la sesión. De todo ello se dejará constancia en el acta respectiva.
+2) A las sesiones del Consejo del Tribunal asistirán con igualdad de derecho los jueces Tramitadores, de Juicio, Conciliadores y Ejecutores que integran ese Despacho.

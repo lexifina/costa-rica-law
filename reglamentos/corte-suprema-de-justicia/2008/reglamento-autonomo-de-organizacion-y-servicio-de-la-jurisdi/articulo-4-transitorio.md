@@ -1,0 +1,5 @@
+Transitorio IV.—De la función temporal de la vía civil de hacienda de asuntos sumarios
+1) El Juzgado Civil de Hacienda de Asuntos Sumarios, continuará tramitando los asuntos bajo su competencia, al amparo de las leyes respectivas y hasta que sobrevenga el plazo de tres años que prevé el transitorio V del CPCA.
+2) Transcurrido ese plazo, los asuntos que aún estén pendientes de fallo, en primera instancia, serán remitidos al Juzgado de Cobro Judicial, atendiendo a los criterios de cuantía y territorio que resulten aplicables.
+3) El Juzgado Civil de Hacienda de Asuntos Sumarios, mientras permanezca en funciones, podrá designar un Juez Coordinador, en sesión de Consejo de Jueces.
+4) Durante el período de los tres años indicados en el inciso primero del presente artículo, la Corte Plena o el Consejo Superior, según sea el caso, podrá revisar las necesidades de recurso humano, a fin de ajustar los requerimientos a la realidad. Para tal efecto se podrá pedir informes de gestión, de evaluación o de seguimiento, a las instancias pertinentes.
