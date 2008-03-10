@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria la empresa Eólico Valle Central S. A., previa autorización de la Oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las zonas protectoras de los Cerros de Escazú y otras áreas de protección, según se indica en el proyecto.
