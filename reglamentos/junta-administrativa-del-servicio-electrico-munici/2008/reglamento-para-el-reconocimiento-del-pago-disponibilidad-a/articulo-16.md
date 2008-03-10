@@ -1,0 +1,1 @@
+Artículo 16.—Los gastos correspondientes a la alimentación contemplada en el artículo anterior serán cubiertos con un Fondo de Trabajo, el cual será utilizado por el Auxiliar Logístico. Este fondo de trabajo obtendrá sus recursos de la Caja Chica y deberá ser administrado y liquidado según lo dispone la normativa para la Administración de Caja Chica que existe en JASEC.

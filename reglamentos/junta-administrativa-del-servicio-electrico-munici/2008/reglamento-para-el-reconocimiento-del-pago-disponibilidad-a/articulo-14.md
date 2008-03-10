@@ -1,0 +1,6 @@
+Artículo 14.—A los funcionarios declarados en disponibilidad se les reconocerá lo correspondiente a las horas extras, en todas aquellas salidas efectivas que realicen durante el rol en el que están designados, fuera de las jornadas ordinarias de trabajo. Dicho pago se realizará al amparo de lo que dispone el Procedimiento de Pago de Tiempo Extraordinario vigente en JASEC.
+Este reconocimiento se hará bajo la entera responsabilidad del Superior inmediato quien será el llamado a dar por válido el reporte presentado confrontándolo con los reportes de salidas de Disponibles según los registros del Centro de Control El Bosque y los registros del servicio de vigilancia.
+El tiempo de traslado se reconocerá de la siguiente manera:
+a) De la hora de llegada al sitio del daño, se reconocerá media hora antes, cuando el mismo se encuentre en un radio de 15 kilómetros tomando como punto de partida las instalaciones de Barrio Fátima..
+b) De la hora de llegada al sitio del daño, se reconocerá una hora cuando el mismo se encuentra en un radio mayor a 15 kilómetros tomando como punto de partida las instalaciones de Barrio Fátima.
+Este artículo no aplica para los funcionarios de nivel Coordinador o Líder de UEN.

@@ -1,0 +1,2 @@
+Artículo 13.—Ante la falta de atención de un funcionario disponible a un llamado para atender un daño, se pagará el porcentaje de disponibilidad proporcional que resulte, de la relación entre las llamadas efectivamente realizadas durante el período en disponibilidad y las llamadas atendidas durante el mismo período.
+Lo anterior, sin perjuicio de otras acciones de carácter disciplinario contempladas en el artículo 18 por el incumplimiento al contrato previamente firmado por el funcionario y la Institución.

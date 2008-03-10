@@ -1,0 +1,1 @@
+Artículo 9º—El funcionario podrá intercambiar su periodo de disponibilidad o tracto de este con otro funcionario igualmente disponible, siempre y cuando sus puestos y funciones sean similares y previamente sea autorizado el intercambio por el Superior inmediato.

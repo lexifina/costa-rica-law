@@ -1,0 +1,1 @@
+Artículo 21.—Cuando desaparezcan los motivos que originaron la declaratoria de servidor en disponibilidad, la jefatura inmediata lo debe comunicar un mes antes de terminar al Proceso Desarrollar Recursos Humanos, esto con el propósito de que se hagan los cambios necesarios en el salario del servidor.

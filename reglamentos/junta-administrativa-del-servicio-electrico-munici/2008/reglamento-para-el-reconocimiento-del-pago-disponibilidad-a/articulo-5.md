@@ -1,0 +1,1 @@
+Artículo 5º—Para garantizar a la Empresa que cumplirá con el compromiso adquirido, el trabajador que se encuentre dentro de un rol de disponibilidad, se obliga a permanecer fuera de su jornada regular de trabajo, en sitios en donde sea fácil y rápidamente localizable y estar preparado para ser llevado al sitio requerido para la atención del servicio.
