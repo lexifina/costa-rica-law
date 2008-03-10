@@ -1,0 +1,1 @@
+Artículo 3°—Se deroga el artículo 5° del Decreto Ejecutivo N° 21455-MEIC-MTSS, del 15 de julio de 1992 y sus reformas y el artículo 3° del Decreto Ejecutivo N° 33057 MEIC-MTSS, del 26 de abril del 2006.
