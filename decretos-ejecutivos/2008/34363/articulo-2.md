@@ -1,0 +1,1 @@
+Artículo 2°—En virtud de la presente declaratoria la empresa desarrolladora: Consorcio Nacional de Empresas de Electrificación de Costa Rica R. L., denominada Coneléctricas R. L., previa autorización de la oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las áreas del proyecto, que así lo requieran.
