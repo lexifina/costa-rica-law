@@ -1,0 +1,1 @@
+Artículo 8º—Únicamente los médicos debidamente inscritos en el Registro de Maestrías o Doctorados Médicos, podrán anunciarse como tales, siempre y cuando se ajusten a las disposiciones del Código de Moral Médica.
