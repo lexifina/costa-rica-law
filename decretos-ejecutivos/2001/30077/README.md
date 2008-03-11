@@ -16,3 +16,4 @@ Reglamento General del Ministerio del Ambiente y Energía
 | 1 | 2002-01-16 | la propia norma |
 | 2 | 2003-10-09 | Decreto Ejecutivo 31628 (2003-10-09) |
 | 3 | 2007-11-23 | Decreto Ejecutivo 34204 (2007-11-23) |
+| 4 | 2008-03-11 | Decreto Ejecutivo 34433 (2008-03-11) |

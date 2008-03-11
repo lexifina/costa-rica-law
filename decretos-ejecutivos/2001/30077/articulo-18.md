@@ -1,1 +1,1 @@
-Artículo 18.—De la Secretaría General del SINAC. La Secretaría General está integrada por un Director Ejecutivo y un Subdirector Ejecutivo y el personal profesional, técnico y administrativo de apoyo que se determine como necesario, para el mejor cumplimiento de sus funciones.
+Artículo 18.— (Así derogado por el artículo 95 del Decreto Ejecutivo N° 34433 de 11 de marzo de 2008).

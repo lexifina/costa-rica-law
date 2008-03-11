@@ -1,1 +1,1 @@
-Artículo 19.—De las Áreas de Conservación. Las Áreas de Conservación son unidades territoriales delimitadas administrativamente, regidas cada una por una estrategia de desarrollo y administración propia. Para efectos administrativos, el director del área de conservación es la máxima autoridad administrativa de estas unidades territoriales, teniendo a su cargo la decisión de todos los asuntos propios de las competencias asignadas.
+Artículo 19.— (Así derogado por el artículo 95 del Decreto Ejecutivo N° 34433 de 11 de marzo de 2008).
