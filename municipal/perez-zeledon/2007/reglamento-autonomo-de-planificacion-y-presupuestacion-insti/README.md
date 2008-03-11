@@ -14,3 +14,4 @@ Reglamento Autónomo de Planificación y Presupuestación Institucional de la Mu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-06 | la propia norma |
+| 2 | 2008-03-11 | Reglamento municipal 98 (2008-03-11) |
