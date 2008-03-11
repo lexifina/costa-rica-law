@@ -1,0 +1,2 @@
+Artículo 3º—Es obligatorio para todo visitante reportar su ingreso en las casetas oficiales de admisión ubicadas en los sectores de Playa Colonia, Playa Uvita, Playa Piñuela y Playa Ballena, y cancelar la cuota diaria de admisión y los demás rubros por concepto del disfrute de otros servicios dentro del Parque.
+El visitante siempre deberá conservar el tiquete de admisión durante su permanencia en el área, como comprobante de pago en caso de ser requerido por algún funcionario del Parque.

@@ -1,0 +1,1 @@
+Artículo 11.—Bañistas y natación: Se permitirá en todos los sectores y en los sitios donde las playas sean arenosas y no catalogadas como riesgosas, de conformidad con la rotulación dispuesta por la Administración del Parque.

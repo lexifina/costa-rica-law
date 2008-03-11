@@ -1,0 +1,1 @@
+Artículo 18.—Recorridos nocturnos: Los recorridos por los esteros y manglares del Parque, serán autorizados por la Administración, únicamente si los visitantes van en compañía de un guía local debidamente identificado y autorizado para ejercer esta actividad.

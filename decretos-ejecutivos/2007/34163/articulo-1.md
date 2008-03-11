@@ -1,0 +1,18 @@
+Nº 34163
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que nos confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley del Servicio de Parques Nacionales, Nº 6084 del 24 de agosto de 1977, la Ley Orgánica del Ambiente, Nº 7554 del 4 de octubre de 1995, publicada en La Gaceta Nº 215 del 13 de noviembre de 1995, la Ley de Conservación de la Vida Silvestre, Nº 7317 del 30 de octubre de 1992, publicada en La Gaceta Nº 235 del 7 de diciembre de 1992 y su reglamento, Decreto Ejecutivo Nº 32633-MINAE, publicado en La Gaceta Nº 180 del 20 de setiembre del 2005, la Ley de Biodiversidad, Nº 7788 de 30 de abril de 1998, publicada en La Gaceta Nº 101 del 27 de mayo de 1998, la Ley de Pesca y Acuicultura, Nº 8436 de 1º de marzo de 2005, publicada en La Gaceta Nº 78 del 25 de abril de 2005 y el artículo 27 de la Ley General de la Administración Pública, Nº 6227, del 2 de mayo de 1978, y según acuerdo firme de la Sesión Ordinaria Nº 10 del 15 y 16 de mayo del 2007 del Consejo Nacional de Áreas de Conservación (CONAC).
+Considerando:
+I.—Que es obligación del Estado proteger los ecosistemas marinos de la costa pacífica de nuestro país, los cuales presentan gran diversidad biológica a lo largo de todo su litoral especialmente en áreas como el Tómbolo de Uvita, Isla Ballena, rocas Tres Hermanas y las formaciones coralinas que se encuentran en sus cercanías.
+II.—El Parque Nacional Marino Ballena del Área de Conservación Osa, fue creado mediante Decreto Ejecutivo Nº 21294-MIRENEM publicado en La Gaceta Nº 136 del 17 julio de 1992, siendo el objetivo principal de su creación proteger los ecosistemas marino-costero como manglares, estuarios, playas arenosas, acantilados e islotes, que constituyen sitios de gran belleza escénica y valor natural. Así como un refugio temporal para los cetáceos como la ballena jorobada y el delfín nariz de botella, entre otros.
+III.—Que el Parque Nacional Marino Ballena por sus características especiales y la gran riqueza biológica, geológica e hidrográfica, es un lugar de gran atractivo turístico y científico.
+IV.—Que esta área silvestre protegida no cuenta en la actualidad con instrumentos de planificación que establezcan las diferentes zonas de uso del Parque, y en las que se haya realizado estudios de impacto o de capacidad de carga turística.
+V.—Que debido a los potenciales impactos ambientales negativos que genera la actividad turística en las áreas silvestres, se hace necesario regular el uso del Parque por parte del público, con el fin de asegurar su conservación y mínimo deterioro de los ecosistemas marino costeros que protege el Parque Nacional.
+VI.—Que esta área protegida históricamente ha mantenido una especial relevancia social en términos económicos, recreativos y prácticas culturales. Por tanto,
+Decretan:
+Reglamento de Uso Público del
+Parque Nacional Marino Ballena
+CAPÍTULO I
+Aspectos generales
+Artículo 1º—El objetivo del presente reglamento es establecer la normativa sobre las actividades de uso público que consecuentemente permita apoyar los objetivos de manejo del área protegida, hasta que se pueda contar con el plan de manejo debidamente oficializado.
+Todas las actividades que se realicen dentro del Parque deberán ajustarse a las disposiciones del plan de manejo, al presente reglamento de uso público, a la sectorización establecida, a las directrices e instrucciones técnicas y administrativas emanadas por el Sistema Nacional de Áreas de Conservación y en general a la normativa jurídica vigente a nivel nacional e internacional en materia ambiental.

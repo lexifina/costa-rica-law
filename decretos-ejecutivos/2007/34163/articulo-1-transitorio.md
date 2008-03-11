@@ -1,0 +1,2 @@
+Transitorio I.—Con la finalidad de no entorpecer los servicios que brinda el Parque, las instalaciones y demás infraestructura existente se mantendrán hasta tanto no se disponga lo contrario por el Plan de Manejo del área silvestre protegida y exista contenido económico para realizar los cambios propuestos.
+Dado en la Presidencia de la República, en San José, a las trece horas cincuenta minutos del día diez del mes de agosto del año dos mil siete.

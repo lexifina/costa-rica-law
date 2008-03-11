@@ -1,0 +1,1 @@
+Artículo 5º—El horario de atención a los visitantes será de las ocho horas a las dieciséis horas, incluyendo sábados, domingos y feriados. Queda facultada la Administración para establecer el horario diario y a destinar un día por semana a actividades exclusivas de mantenimiento y protección por lo que permanecerá cerrado al público.

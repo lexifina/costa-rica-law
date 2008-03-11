@@ -1,0 +1,1 @@
+Artículo 13.—Kayak: Se permitirá en los sectores Piñuela, Ballena y Uvita - Playa Hermosa, con excepción de aquellas zonas donde haya presencia de buzos o bañistas. Además deberán seguir las disposiciones que para tal efecto establezca la Administración.

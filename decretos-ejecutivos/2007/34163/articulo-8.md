@@ -1,0 +1,1 @@
+Artículo 8º—Embarque y desembarque: Esta actividad se restringe únicamente a los sitios Playa Uvita y Piñuelas y para uso de las embarcaciones de los operadores de turismo y pescadores residentes de las comunidades indicadas en el artículo 4º de este reglamento. La Administración del Parque definirá el número y tamaño de las embarcaciones mediante resolución fundamentada.

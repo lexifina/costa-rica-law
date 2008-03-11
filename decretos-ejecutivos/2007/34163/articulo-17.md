@@ -1,0 +1,1 @@
+Artículo 17.—Áreas de Acampar: Solamente se podrá acampar en las áreas debidamente demarcadas para tal fin en los sectores Colonia, Uvita-Playa Hermosa Ballena y Piñuela hasta tanto no estén debidamente concecionadas de parte de la Municipalidad de Osa las zonas de acampar en la zona restringida de la zona marítima terrestre.

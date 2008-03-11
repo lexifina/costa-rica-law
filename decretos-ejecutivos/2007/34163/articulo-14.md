@@ -1,0 +1,1 @@
+Artículo 14.—Observación de cetáceos: Se aplicará lo estipulado en el Decreto Ejecutivo Nº 32495-MINAE-MOPT-MSP-MAG, Reglamento para la Operación de Actividades relacionadas con cetáceos en Costa Rica, publicado en La Gaceta Nº 145 del 28 de julio del 2005.
