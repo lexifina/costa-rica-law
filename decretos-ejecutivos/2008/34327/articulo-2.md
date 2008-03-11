@@ -1,0 +1,1 @@
+Artículo 2º—Se prohíbe toda actividad humana en el santuario tendiente a perseguir, capturar, herir, matar, trasegar o comercializar estas especies en las aguas jurisdiccionales de Costa Rica, salvo lo establecido en los Convenios Internacionales debidamente ratificados por Costa Rica.

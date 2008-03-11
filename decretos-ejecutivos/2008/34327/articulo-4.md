@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones con competencia en la materia deberán colaborar en el debido seguimiento al cumplimiento de la normativa tendiente a asegurar la conservación de estos recursos y a regular las actividades sostenibles con dependencia de este recurso.
