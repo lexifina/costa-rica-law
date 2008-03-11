@@ -25,3 +25,4 @@ Reglamento a la Ley Forestal
 | 10 | 2006-06-05 | Decreto Ejecutivo 33205 (2006-06-05) |
 | 11 | 2007-02-15 | Decreto Ejecutivo 33815 (2007-02-15) |
 | 12 | 2007-05-22 | Decreto Ejecutivo 33852 (2007-05-22) |
+| 13 | 2008-03-11 | Decreto Ejecutivo 34433 (2008-03-11) |
