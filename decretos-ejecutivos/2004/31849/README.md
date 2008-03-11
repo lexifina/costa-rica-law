@@ -16,3 +16,4 @@ Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental 
 | 1 | 2004-06-28 | la propia norma |
 | 2 | 2005-08-09 | Decreto Ejecutivo 32734 (2005-08-09) |
 | 3 | 2008-02-25 | Decreto Ejecutivo 34688 (2008-02-25) |
+| 4 | 2008-03-11 | Decreto Ejecutivo 34433 (2008-03-11) |

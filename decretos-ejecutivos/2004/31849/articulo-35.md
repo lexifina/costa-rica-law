@@ -1,3 +1,4 @@
 Sección II
 Revisión de los Estudios de Impacto Ambiental (EsIA)
-Artículo 35.—Copia del EsIA a otras autoridades. Para los casos en que la SETENA lo considere necesario, una copia del Estudio de Impacto Ambiental será entregada por ésta, al Área de Conservación del Ministerio de Ambiente y Energía dentro de la que se circunscribe el AP y a la municipalidad o municipalidades del cantón o cantones donde éste se localiza, o cualquier otra autoridad competente.
+Artículo 35.—Copia del EsIA a otras autoridades. En aquellos casos en que se presente un EsIA, la SETENA deberá remitir copia del mismo y documentación pertinente, al Área de Conservación del Sistema Nacional de Áreas de Conservación, cuando se trate de actividades, obras o proyectos que afecten la vida silvestre, áreas protegidas, recursos forestales y recursos hídricos, y cuando lo considere necesario a la municipalidad o municipalidades del cantón o cantones donde este se localiza u otra autoridad competente, con el fin de que se pronuncien al respecto.
+(Así reformado por el artículo 94 del Decreto Ejecutivo N° 34433 de 11 de marzo de 2008)
