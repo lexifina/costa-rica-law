@@ -14,3 +14,4 @@ Reglamento para la Operación de Fondos de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-21 | la propia norma |
+| 2 | 2008-03-11 | Reglamento 5824 (2008-03-11) |
