@@ -1,0 +1,1 @@
+Artículo 26.—Harán quórum en las Asambleas Generales una concurrencia de por lo menos veinte miembros. En caso de que no haya el quórum en la primera sesión debidamente convocada, la Asamblea se reunirá una hora después de la señalada haciendo quórum cualquier número que esté presente, debiéndose advertir esta situación en el aviso de convocatoria.

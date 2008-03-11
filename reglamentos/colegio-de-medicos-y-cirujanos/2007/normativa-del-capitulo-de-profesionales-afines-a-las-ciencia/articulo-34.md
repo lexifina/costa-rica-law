@@ -1,0 +1,1 @@
+Artículo 34.—Todos aquellos aspectos que no estén cubiertos por esta Normativa y que en algún momento requieran alguna acción, éste se apegará a la Normativa General del Colegio de Médicos y Cirujanos.

@@ -1,0 +1,4 @@
+Del comité coordinador
+Artículo 4º—El Comité Coordinador estará compuesto por siete miembros que se designarán para el desempeño de los siguientes cargos: Presidente, Vicepresidente, Secretario, Tesorero, I Vocal, II Vocal y III Vocal. No podrá elegirse más de un miembro del Comité Coordinador por cada profesión autorizada; salvo que no sea posible cumplir con dicho requisito en la Asamblea.
+Sus miembros durarán en sus funciones dos años; los puestos se elegirán por mitades de la siguiente manera: Primer año: Presidente, Tesorero, Secretario y II Vocal; Segundo año: Vicepresidente, I Vocal y III Vocal. Tomarán posesión de sus cargos en la segunda quincena del mes de enero de cada año.
+Los miembros del Comité Coordinador, podrán ser reelectos hasta por cuatro períodos de forma consecutiva.

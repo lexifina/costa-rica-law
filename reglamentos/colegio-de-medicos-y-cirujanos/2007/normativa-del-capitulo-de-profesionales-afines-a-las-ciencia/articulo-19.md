@@ -1,0 +1,1 @@
+Artículo 19.—Sobre la administración y empleo de los fondos: El Comité Coordinador, debe elaborar un presupuesto que será sometido a la Junta de Gobierno para su aprobación o no, a más tardar el 15 de noviembre de cada año y regirá desde el primero de enero hasta el 31 de diciembre del año siguiente.

@@ -1,0 +1,1 @@
+Artículo 24.—La Asamblea General se reunirá ordinariamente una vez al año en el mes de Enero para rendir los informes de funciones del Comité Coordinador y para realizar la elección de los miembros de dicho Comité según corresponda y extraordinariamente cuando así se amerite.
