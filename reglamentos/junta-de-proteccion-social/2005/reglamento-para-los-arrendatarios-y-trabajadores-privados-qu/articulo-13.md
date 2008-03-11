@@ -1,1 +1,4 @@
-Artículo 13.—El arrendatario deberá depositar en la Administración de Cementerios, como garantía de cumplimiento, una cantidad de dinero, de acuerdo con los montos aprobados por la Junta al momento de realizarse las labores. En caso de no cumplir con lo establecido en los artículos diez y once del presente reglamento, se ejecutará dicha garantía.
+Artículo 13) El arrendatario deberá depositar en la Administración de Cementerios, como garantía de cumplimiento, una cantidad de dinero de acuerdo con los montos aprobados por la Junta al momento de realizarse las labores. En caso de no cumplir con lo establecido en los artículos 10 y 11 del presente reglamento, se ejecutará dicha garantía.
+El trabajador privado por su parte, deberá cubrir mensualmente la cuota que la Junta establezca para cubrir el pago de los servicios básicos (agua y luz) que utilizan para realizar las labores solicitadas por el arrendatario y el acarreo de basura, producto de las labores de jardinería.
+En caso de que el trabajador privado no realice el pago anterior, no podrá iniciar las labores respectivas.
+(Así reformado mediante acuerdo JD-192 de la sesión N° 09 del 11 de marzo de 2008)
