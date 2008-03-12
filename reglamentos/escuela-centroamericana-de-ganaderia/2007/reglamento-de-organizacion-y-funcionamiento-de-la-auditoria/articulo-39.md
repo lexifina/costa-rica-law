@@ -1,0 +1,1 @@
+Artículo 39.—De las evaluaciones internas. Las evaluaciones internas deben incluir: revisiones continuas del desempeño de la actividad de Auditoría Interna y revisiones periódicas mediante la autoevaluación, mínimo anualmente. La responsabilidad de las evaluaciones internas recae en el Auditor Interno, quien debe velar porque se tomen las medidas correctivas.

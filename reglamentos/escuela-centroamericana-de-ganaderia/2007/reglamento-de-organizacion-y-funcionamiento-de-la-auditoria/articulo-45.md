@@ -1,0 +1,6 @@
+CAPÍTULO VII
+De las disposiciones finales
+Artículo 45.—De la comunicación de anomalías. Los hechos irregulares que puedan presentar perjuicio para los bienes e intereses de la escuela, o en alguna forma contrarios al ordenamiento jurídico, que lleguen a conocimiento de cualquier funcionario, deben ser informados de inmediato por este a la Auditoría Interna, sin perjuicio de las demás acciones que pueda o debe ejercer como ciudadano o funcionario público, de acuerdo con el ordenamiento jurídico vigente.
+Toda denuncia que se presente ante la Auditoría Interna podrá ser presentada en forma escrita, verbal o por el medio que se estime conveniente. La Auditoría Interna deberá valorar los hechos denunciados con el propósito de determinar la pertinencia, traslado o desestimación de la misma.
+Los resultados de la investigación pertinente serán, según su importancia y naturaleza, elevados a conocimiento del Consejo Directivo, para que se dispongan las correspondientes medidas administrativas y, si fuera del caso sean trasladadas por este último al Ministerio Público.
+En caso de que la investigación genere una denuncia penal en contra del jerarca o alguno de sus miembros, la denuncia ante el Ministerio Público deberá interponerla la Auditoría Interna.
