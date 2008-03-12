@@ -14,10 +14,11 @@ a) Originado por situaciones especiales como:
 -Laudo arbitral.
 -Error al asignar el código de inversionista en un contrato bursátil, cuando se demuestre que la asignación no se efectuó correctamente debido a problemas en los sistemas de asignación de contratos de las bolsas de valores y las sociedades de compensación y liquidación que presten el servicio.
 b) En el caso de fondos de pensión, originado por situaciones especiales como:
--Traslado del Fondo de capitalización laboral al Régimen obligatorio de pensiones, siempre y cuando el dinero se mantenga en la misma Operadora de pensiones.
--Traspaso del Fondo de pensiones complementario creado por ley especial, convención colectiva o normativa a la administración de una Operadora de pensiones.
--Por fusión o liquidación de una Operadora de pensiones.
-Las entidades de custodia deben contar con una nota de no objeción por parte de la Superintendencia de Pensiones para realizar dichos traspasos.
+• Traslado del Fondo de capitalización laboral al Régimen obligatorio de pensiones, siempre y cuando el dinero se mantenga en la misma Operadora de pensiones.
+• Traspaso del Fondo de pensiones complementario creado por ley especial, convención colectiva o normativa a la administración de una Operadora de pensiones.
+• Por fusión o liquidación de una Operadora de pensiones.
+Para el caso de los traslados de los Fondos de capitalización laboral al Régimen obligatorio de pensiones, las entidades de custodia deben realizar dichos traslados de conformidad con las instrucciones que al respecto emita la Superintendencia del Pensiones (SUPEN) mediante Resolución del Superintendente.
+(Así reformado el inciso anterior, mediante acuerdo SGV-A-144 de 12 de marzo de 2008).
 La solicitud de traspaso no oneroso de valores debe contener al menos:
 a) Explicación del motivo y documentación que fundamente el traspaso.
 b) Código de cliente registrado en la entidad de custodia destino y en la entidad de custodia origen.
