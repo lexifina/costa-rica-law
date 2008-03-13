@@ -7,5 +7,5 @@ e) Cláusula penal.
 f) Garantía de cumplimiento.
 g) Garantías sobre bienes y equipos (cuando procediere).
 h) Documentos integrantes del contrato.
-i) Indicación de certificación de contenido presupuestario.
+i) Certificación de contenido presupuestario, cuando requiera visto bueno o refrendo.
 j) Estimación económica.

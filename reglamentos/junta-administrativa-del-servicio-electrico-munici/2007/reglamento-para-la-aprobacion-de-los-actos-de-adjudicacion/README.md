@@ -14,3 +14,4 @@ Reglamento para la Aprobación de los Actos de Adjudicación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-22 | la propia norma |
+| 2 | 2008-03-13 | Reglamento 4246 (2008-03-13) |
