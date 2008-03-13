@@ -1,3 +1,6 @@
 CAPÍTULO III
-De la Administración
-Artículo 13.—La Administración del FRE estará a cargo de una Junta Administrativa, bajo la supervisión de la Superintendencia de Pensiones según se indica en los artículos 36 de la ley Nº 7523 y 75 de la Ley de Protección al Trabajador.
+De los Comités de Riesgos, Auditoría y otros
+Artículo 13.—En estricto apego a la normativa estipulada por la SUPEN, en su calidad de órgano de regulación del FRE, la Junta Administrativa procederá a la integración del Comité de Riesgos, del Comité de Auditoría y cualquier otro establecido por la citada Superintendencia, con el fin de cumplir con las funciones y responsabilidades otorgadas a cada uno de ellos.
+La integración de estos Comités se hará de conformidad con lo señalado en la normativa aplicable y serán aprobados por votación de mayoría simple en el seno de la Junta Administrativa del FRAP, instancia que a su vez, en forma inmediata, someterá a consideración de la Junta Directiva, los miembros propuestos para su respectiva aprobación, en tanto así sea requerido.
+En aquellos casos en que exista la obligación o necesidad de nombrar un miembro externo, la Junta Administrativa del FRAP promoverá el proceso de contratación de servicios respectivo. Tal proceso se aplicará conforme a lo regulado en la Ley de Contratación Administrativa y su Reglamento, en lo referente al procedimiento de contratación de servicios técnicos o profesionales a cargo de personas físicas o jurídicas.
+(Así reformado mediante sesión N° 8234 de 13 de marzo de 2008)

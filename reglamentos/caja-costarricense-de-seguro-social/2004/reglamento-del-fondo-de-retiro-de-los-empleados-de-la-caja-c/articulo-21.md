@@ -1,2 +1,4 @@
-De los gastos
-Artículo 21.—Los gastos generales que demande la administración del FRE se harán con cargo al presupuesto aprobado, de acuerdo con lo que establece el Artículo 10 de este reglamento y el límite que estable el artículo 21 de la Ley Constitutiva de la Caja.
+De los gastos administrativos y el pago por los
+servicios técnicos y profesionales
+Artículo 21.—El Fondo de Retiro podrá pagar a los miembros externos de los diferentes Comités requeridos para el funcionamiento del Fondo de acuerdo con la normativa de la Superintendencia de Pensiones (SUPEN), según la modalidad definida en el proceso de contratación de servicios técnicos o profesionales gestionado conforme a la Ley de Contratación Administrativa y su Reglamento. Los pagos por la contratación de servicios de los miembros externos, en conjunto con los gastos generales que demande la administración del FRE, se harán con cargo al presupuesto aprobado de conformidad al artículo 10º de este Reglamento y al límite que establece el artículo 21 de la Ley Constitutiva de la Caja”.
+(Así reformado mediante sesión N° 8234 de 13 de marzo de 2008)
