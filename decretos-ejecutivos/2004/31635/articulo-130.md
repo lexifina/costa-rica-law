@@ -1,5 +1,10 @@
-Artículo 130.—De la Obligación del Servicio Comunal Estudiantil para los Postulantes al Bachillerato en Educación Media. En cada institución educativa de Educación Diversificada, salvo los colegios nocturnos, IPEC, CINDEA y aquellas otras instituciones o programas expresamente excluidos por acuerdo del Consejo Superior de Educación, se organizará durante el respectivo curso lectivo, con la obligada participación de los postulantes al Bachillerato en Educación Media, la realización de un Servicio Comunal Estudiantil de conformidad con la reglamentación específica dictada al efecto. Este Servicio Comunal Estudiantil tendrá los siguiente objetivos:
-a. Fortalecer los valores cívicos del estudiante.
-b. Desarrollar los sentimientos de solidaridad y comprensión humanas.
-c. Establecer sentimientos de compromiso y desarrollar actitudes de cooperación para con la comunidad.
-d. Proyectar la institución en su entorno social y económico.
+CAPÍTULO V
+De las Comunicaciones y Recursos
+SECCIÓN I
+De las Comunicaciones
+Artículo 130.—De los Instrumentos de Comunicación. Cada institución educativa, sin perjuicio de otros medios idóneos y de lo que señale este reglamento, mantendrá comunicación con los padres de familia o encargados por medio del:
+a. Informe escolar.
+b. Cuaderno de comunicaciones.
+c. Instrumentos de medición calificados.
+d. Entrevista personal.
+(Así corrida su numeración por los artículos 16, 17 y 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 123 al 130 y de tal forma que actualmente contiene el texto del anterior artículo 144).

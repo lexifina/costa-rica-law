@@ -42,14 +42,13 @@ Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 55%
 Concepto | 5%
 Asistencia | 5%
-h) Tanto en el segundo y tercer año del III Ciclo de la Educación General Básica (Octavo y Noveno), como en el segundo y tercer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias Generales, Inglés, Educación Cívica y Francés:
+h) Tanto en el segundo y tercer año del III Ciclo de la Educación General Básica (Octavo y Noveno), como en el segundo y tercer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias Generales, Educación Cívica, Lengua Indígena del país y Lenguas Extranjeras:
 Trabajo Cotidiano | 15%
 Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 65%
 Concepto | 5%
 Asistencia | 5%
-No obstante, para la calificación en el tercer período, en IX año se
-regirá según lo establecido en el artículo 117 de este Reglamento.
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 34449 de 13 de marzo de 2008)
 i) Tanto en la Educación Diversificada Académica y Técnica, Diurna y Nocturna, como en la de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Física, Química, Biología, Inglés, Francés, Filosofía, Psicología y Educación Cívica:
 Trabajo Cotidiano | 10%
 Trabajo Extraclase | 10%

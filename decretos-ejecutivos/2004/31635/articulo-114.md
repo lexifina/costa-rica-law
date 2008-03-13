@@ -1,12 +1,6 @@
-SECCIÓN III
-De las Pruebas Nacionales de Conclusión
-de la Educación General Básica
-Artículo 114.—Del Contenido de las Pruebas de Conclusión de la Educación General Básica. Las “Pruebas Nacionales de Conclusión de la Educación General Básica” serán comprensivas de la materia desarrollada durante el III Ciclo de la Educación General Básica y versarán sobre aspectos cognoscitivos propios de las siguientes asignaturas del plan de estudios de ese Ciclo:
-a. Matemáticas.
-b. Ciencias.
-c. Estudios Sociales.
-d. Educación Cívica.
-e. Español.
-f. Inglés.
-g. Francés.
-Se hará una prueba para cada una de las siete disciplinas señaladas. Estas pruebas serán comprensivas de la materia desarrollada durante el tercer ciclo de Educación General Básica. La prueba de Español se subdividirá en Composición y Ortografía y Gramática y Literatura.
+Artículo 114.—De la Valoración Final del Postulante en las Pruebas de Bachillerato en Educación Media. La calificación del postulante en cada una de las asignaturas, se determinará mediante la combinación porcentual de la calificación obtenida en la respectiva prueba de Bachillerato con la “nota de presentación”. La “nota de presentación” se define como el promedio de las calificaciones obtenidas por el estudiante en décimo año y en los dos primeros trimestres de undécimo año en Español, Matemáticas, Estudios Sociales y Educación Cívica, Inglés o Francés (según corresponda) y Biología, Química o Física (según corresponda). Para el caso de los colegios técnicos se considerarán las calificaciones obtenidas por el estudiante en décimo año, undécimo año y los dos primeros trimestres de duodécimo año en las mismas asignaturas señaladas anteriormente.
+La combinación porcentual señalada para el cálculo de la calificación final se realizará en la forma siguiente:
+a. La “nota de presentación” correspondiente al promedio de las calificaciones señaladas en el párrafo anterior constituirá el 40% del total de la calificación final de la asignatura.
+b. La calificación obtenida en la respectiva prueba de bachillerato tendrán un valor del 60% del total de la calificación final de la asignatura.
+La calificación de la prueba nacional de Bachillerato en español será el promedio de las calificaciones que obtenga el postulante en Composición y Ortografía y Gramática. Para todos los efectos anteriores, la escala utilizada será de 1 a 100.
+(NOTA: Así corrida su numeración por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 112 al 114. Posteriormente el artículo 17 ibidem, ordenó adecuar la numeración de tal forma que el texto del anterior artículo 126 pasó al 114 actual)

@@ -1,2 +1,2 @@
-Artículo 107.—Del Certificado de Conclusión de II Ciclo con Mención de Excelencia. El Certificado de Conclusión de II Ciclo de la Educación General Básica se hará acompañar de una mención de excelencia, cuando el estudiante hubiese obtenido calificaciones igual o superiores a 90 en el promedio anual de cada una de las asignaturas del plan de estudios de sexto grado.
-(Así reformado por el punto 7 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
+Artículo 107.—De la información a los centros educativos seleccionados para las pruebas diagnósticas. La Dirección de Gestión y Evaluación de la Calidad informará tanto a los centros educativos incluidos en la muestra como a las respectivas Direcciones Regionales, las características y los procedimientos para la aplicación de las pruebas nacionales diagnósticas.
+(Así adicionado por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008)

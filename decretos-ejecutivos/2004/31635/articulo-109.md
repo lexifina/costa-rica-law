@@ -1,2 +1,3 @@
-Artículo 109.—De la Responsabilidad Técnica y Administrativa de las Pruebas Diagnósticas. La definición de la muestra, comunicación y coordinación con los centros educativos seleccionados, planificación, administración y calificación de esta prueba diagnóstica es responsabilidad de la División de Control de Calidad y Macroevaluación del Sistema Educativo del Ministerio de Educación Pública
-(Así reformado por el punto 7 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
+Artículo 109.—De los certificados de conclusión de II o III ciclo con mención de excelencia.
+El certificado de Conclusión de II Ciclo de la Educación General Básica o el de Conclusión de Estudios del la Educación General Básica, se hará acompañar de una mención de excelencia, cuando el estudiante hubiese obtenido calificaciones iguales o superiores a 90 en cada uno de los promedios anuales de las asignaturas del plan de estudios de sexto o de noveno año, respectivamente.
+(Corrida su numeración por el artículo 16 del decreto No. 34449 de 13 de marzo de2008, que lo trasladó del arterior artículo 106 al actual 108 y reformado por el artículo N° 17 ibidem).

@@ -1,2 +1,2 @@
-Artículo 144.— (Este artículo fue suprimido por el punto 8 del decreto ejecutivo N° 33546 del 24 de enero de 2007)
-(Así corrida su numeración según las reformas efectuadas por los artículos 16, 17 y 22 del Decreto Ejecutivo N° 34449 de 13 de marzo de 2008, pasando del anterior artículo 137 al 144 actual).
+Artículo 137.—De la Facultad y el Deber de Rectificar Errores. Los docentes tienen la facultad y el deber de rectificar en forma inmediata y de oficio, los errores de hecho y de derecho en que incurrieren dentro del proceso de evaluación, tanto cuando se percaten de aquellos o bien por la oportuna y respetuosa observación de sus alumnos.
+(Así corrida su numeración por los artículos 16, 17 y 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 130 al 137 y de tal forma que actualmente contiene el texto del anterior artículo 151).
