@@ -1,0 +1,1 @@
+Artículo 6º—Los efectos jurídicos relacionados con las solicitudes de retiro sin inscribir o de cancelación de asientos de presentación de planos ante el Catastro Nacional, serán de exclusiva responsabilidad de los profesionales que los soliciten y el Colegio Federado de Ingenieros y de Arquitectos no asumirá ningún compromiso por ello.

@@ -1,0 +1,1 @@
+Artículo 4º—En caso que el protocolo haya sido entregado al Archivo del Registro Nacional, se deberá aportar fotocopia certificada de los folios relacionados con los planos registrados y sellados por el Colegio Federado. De toda la documentación presentada, se dejará copia en el expediente del profesional para lo que corresponda.
