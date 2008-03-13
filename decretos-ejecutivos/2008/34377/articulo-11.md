@@ -1,0 +1,3 @@
+Artículo 11.—Las sesiones de la Junta Directiva serán siempre privadas, pero podrá invitar a personas para que participen en la sesión. Las mismas tendrán voz pero no voto. La participación de personas ajenas a la Junta Directiva, será procedente cuando así se acuerde por mayoría simple de sus miembros presentes. Tendrán derecho a asistir con voz pero sin voto los administradores de la Sociedad.
+Los acuerdos serán adoptados por simple mayoría de los miembros asistentes.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes la mitad más uno de los miembros de la Junta Directiva y sea declarada la urgencia del asunto por el voto favorable de ellos.

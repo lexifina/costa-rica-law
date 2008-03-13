@@ -1,0 +1,1 @@
+Artículo 15.—La Junta Directiva abrirá una cuenta corriente en uno de los bancos comerciales del Estado, en la que depositará todos sus fondos. Quedan autorizados para girar contra dicha cuenta: el Presidente de manera mancomunada con el Tesorero. En ausencia del Presidente podrá firmar el Vicepresidente de manera mancomunada con el Tesorero.
