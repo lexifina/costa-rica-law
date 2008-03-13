@@ -1,0 +1,1 @@
+Artículo 8º—Informes. El (la) Jefe (a) del Departamento de Informática será responsable de presentar Estudios y Recomendaciones Técnicas por escrito con sus respectivas alternativas. El plazo máximo para rendir un informe será de un mes. Dichos documentos deberán guardar estrecha relación con lo establecido en el Plan Estratégico de Tecnologías de Información.

@@ -1,0 +1,4 @@
+Artículo 10.—Proceso de desarrollo. Para el desarrollo de sistemas digitales, se procederá de la siguiente manera:
+a) Las Jefaturas formularán la solicitud por escrito al Departamento de Informática con una justificación detallada de la necesidad de desarrollo, señalando los beneficios que traería en la eficiencia del trabajo desarrollado por la dependencia que usará el recurso.
+b) El Departamento de Informática realizará el Estudio Técnico de Factibilidad respectivo, y lo enviara a la Comisión para su valoración y criterio correspondiente, incluyendo los requerimientos de preinstalación y cualquier otro aspecto que considere necesario.
+c) Después de haber sido valorado por la Comisión, ésta lo remitirá junto con su criterio al Director(a) Nacional para su análisis. La decisión final sobre el proyecto y/o recomendaciones emitidas por dicho órgano colegiado será de la Dirección.

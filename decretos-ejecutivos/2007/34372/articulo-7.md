@@ -1,0 +1,2 @@
+Artículo 7º—Plan estratégico de TI. El Plan Estratégico de Tecnologías de Información, deberá ser propuesto por el Departamento de Informática a la Comisión. En dicho documento se detallarán las acciones y proyectos estratégicos relacionados con los Sistemas Tecnológicos y de Información Digital, requeridos por la Administración para un periodo de mínimo dos años.
+Igualmente deberá presentar a la Comisión el Plan Anual de Compras Tecnológicas y el presupuesto respectivo.

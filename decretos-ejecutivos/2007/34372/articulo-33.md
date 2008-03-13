@@ -1,0 +1,6 @@
+Artículo 33.—Para la compra de hardware y software, se procederá de la siguiente manera:
+a) Las Jefaturas formularán la solicitud por escrito al Departamento de Informática con una justificación detallada de la necesidad de la adquisición, y señalando los beneficios que traería en la eficiencia del trabajo desarrollado por la dependencia que usará el recurso.
+b) El Departamento de Informática realizará el Estudio Técnico de Factibilidad respectivo, elevándolo a la Comisión para su valoración y criterio correspondiente, incluyendo los requerimientos de preinstalación, los costos totales y cualquier otro aspecto que considere necesario.
+c) Después de haber sido valorado por la Comisión, ésta lo remitirá junto con su criterio al Director (a) Nacional para su análisis. La decisión final sobre el proyecto y/o recomendaciones emitidas por dicho órgano colegiado será de la Dirección Nacional.
+d) En el momento que ingrese el hardware o el software, se informará de inmediato al Departamento de Informática, para que ésta haga una revisión del material adquirido, el cual debe de encontrarse en óptimas condiciones de funcionamiento y que cumpla con las estipulaciones exigidas por DINADECO según lo solicitado.
+e) El funcionario respectivo de Informática, debe dar fe de que los bienes adquiridos cumplen con las exigencias de lo solicitado.

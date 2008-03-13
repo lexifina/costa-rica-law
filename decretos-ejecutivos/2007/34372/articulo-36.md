@@ -1,0 +1,5 @@
+Artículo 36.—Manejo de la información. El manejo de la información almacenada en los diferentes equipos de cómputo pertenecientes a DINADECO, se hará siguiendo al menos los siguientes puntos:
+a) El (la) usuario (a) es el responsable por la información almacenada en el equipo de que dispone.
+b) El (la) usuario (a) es el responsable de hacer y mantener al día los respaldos necesarios. Corresponde al Departamento de Informática dictar el procedimiento debido, con el fin de ayudar al usuario en esa tarea.
+c) Por cualquier circunstancia, si el (la) usuario (a) debe entregar su equipo de cómputo, será responsable por la información sensible, confidencial o crítica que el equipo pueda contener. De ser factible moverá esa información, sea por medio físico o electrónico, a otro medio de almacenamiento. Para realizarlo, solicitará al Departamento de Informática el asesoramiento respectivo.
+d) El (la) usuario (a) no podrá facilitar información a funcionarios o personas externas a DINADECO, excepto cuando exista orden del superior inmediato.
