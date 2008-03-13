@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 34361
+
+Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo
+
+- Tipo: Decreto Ejecutivo
+- Número: 34361
+- Fecha: 2007-11-21
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 52 del 2008-03-13
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62676&param2=71691&param3=1 (ficha 62676)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-03-13 | la propia norma |

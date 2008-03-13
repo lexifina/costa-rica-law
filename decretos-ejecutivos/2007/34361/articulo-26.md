@@ -1,0 +1,3 @@
+Artículo 26.—Plazo de la Fase de Reconstrucción. La fase de reconstrucción no podrá exceder de cinco años; concluido este plazo, la CNE, deberá recomendar al Poder Ejecutivo la declaratoria de cesación del estado de emergencia.
+La Junta Directiva de la CNE, deberá trasladar al Fondo Nacional de Emergencia o a algún decreto vigente, los saldos disponibles del decreto finalizado.
+Asimismo, para los casos en que se ejecute totalmente el Plan General de la emergencia, antes de la conclusión de este plazo de cinco años, y de existir remanentes, la CNE, recomendará al Poder Ejecutivo la cesación del estado de emergencia y podrán trasladarse dichos recursos al Fondo Nacional de Emergencias, previa autorización de la Junta Directiva de la CNE.

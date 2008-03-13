@@ -1,0 +1,5 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—Del monto proveniente de la recaudación del tres por ciento de los superávit presupuestarios y las ganancias, establecidas en el artículo 46 de la Ley Nº 8488, la CNE utilizará el 0,6%, durante un plazo de seis años, para el efectivo cumplimiento de lo establecido en el Transitorio I de la Ley indicada. Las instituciones beneficiarías deberán cumplir con el siguiente procedimiento:
+a) Presentar a la CNE. el proyecto de compras anuales el cual debe ser entregado a más tardar en el mes de junio del año anterior a su ejecución.
+b) El proyecto de compras que presenten las instituciones debe responder a los lineamientos del Transitorio I de la Ley Nº 8488 y en concordancia con las políticas definidas en el Plan Nacional de Gestión del Riesgo y el desarrollo del Sistema Nacional de Gestión de Riesgos.
+c) El proyecto de compras deberá ser incorporado en el presupuesto ordinario de la CNE. como un programa independiente, excluido del límite presupuestario establecido por la Secretaría Técnica de la Autoridad Presupuestaria.

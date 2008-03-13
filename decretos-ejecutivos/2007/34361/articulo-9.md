@@ -1,0 +1,2 @@
+Artículo 9º—Inclusión de Criterios del Plan Nacional de Gestión del Riesgo. Para la elaboración de los planes institucionales y operativos de los órganos y entes de Estado, se deberán tomar en cuenta las orientaciones señaladas en el Plan Nacional de Gestión del Riesgo.
+Al formular y elaborar planes, programas y proyectos de desarrollo urbano, estos órganos y entes deberán considerar el componente de prevención y mitigación del riesgo o desastre dentro de ellos.

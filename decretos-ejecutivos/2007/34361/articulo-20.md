@@ -1,0 +1,2 @@
+Artículo 20.—Componente Presupuestario de Prevención de Cada Institución. En los presupuestos de cada institución pública, se deberá incluir la asignación de recursos necesarios para el desarrollo de programas de reducción del riesgo y preparativos de emergencia, acorde con el Plan Nacional de Prevención de Riesgos y Atención de Emergencias.
+El Ministerio de Planificación, la Secretaría Técnica de la Autoridad Presupuestaria y la Contraloría General de la República, velarán por el cumplimiento del componente presupuestario de prevención de cada institución.

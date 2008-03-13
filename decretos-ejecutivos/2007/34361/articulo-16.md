@@ -1,0 +1,2 @@
+Artículo 16.—Caución del Presidente y el Director Ejecutivo de la Comisión. El funcionario que ocupe el cargo de Presidente de la CNE, deberá rendir, con cargo a su propio peculio, un bono de fidelidad a favor de la Hacienda Pública, por un monto de seis mil dólares estadounidenses (USD).
+El funcionario que ocupe el cargo de Director Ejecutivo de la CNE, deberá rendir, con cargo a su propio peculio, un bono de fidelidad a favor de la Hacienda Pública, por un monto de cinco mil dólares estadounidenses (USD).

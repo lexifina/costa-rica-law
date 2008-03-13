@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Plan General de Emergencia
+Artículo 30.—Elaboración del Plan General de la Emergencia. Cuando el Poder Ejecutivo haya emitido el decreto que declara el estado de emergencia, de inmediato la CNE, por medio de su Dirección Ejecutiva y en consulta con su Presidencia, convocará a las instituciones que tengan competencia y cualquier otra que considere necesaria para la elaboración del Plan General de la Emergencia, el cual tiene como objeto planificar y canalizar en forma racional, eficiente y sistemática, las acciones que deban realizarse, la supervisión necesaria y la asignación de los recursos que se requieren para la atención de las diferentes fases de la emergencia.

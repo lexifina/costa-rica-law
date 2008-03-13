@@ -1,0 +1,1 @@
+Artículo 11.—Programas de Promoción. La CNE deberá contar con programas permanentes para la promoción, el fomento, la asesoría y el seguimiento de las instancias de coordinación referidas en el artículo 5 de este Reglamento.

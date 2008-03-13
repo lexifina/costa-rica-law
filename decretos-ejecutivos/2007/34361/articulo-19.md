@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Responsabilidades de Prevención
+Artículo 19.—Participación de las Instituciones. Es responsabilidad del Estado costarricense prevenir los desastres; por ello, todas las instituciones estarán obligadas a considerar en sus programas los conceptos de gestión para la reducción del riesgo e incluir las medidas que les sean propias y oportunas para evitar su manifestación. Para lo cual deberán coordinar con la CNE sus programas y actividades de prevención, considerándolos como un proceso de política pública que deberá operar en forma permanente y sostenida, con el enfoque sistémico y del Plan Nacional de Gestión del Riesgo.

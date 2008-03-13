@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Recursos Económicos
+Artículo 37.—Financiamiento de la CNE. Para el cumplimiento de las funciones asignadas, la CNE contará con las fuentes de financiamiento establecidas en el artículo 42 de la Ley Nacional de Emergencias y Prevención del Riesgo. El Fondo Nacional de Emergencia, está excluido de la aplicación de las disposiciones de Caja Única del Estado y de conformidad con el artículo 43 de la Ley Nº 8488, podrá invertirse conforme las directrices y políticas dictadas por la Autoridad Presupuestaria.
+La inversión de los recursos del Fondo Nacional de Emergencias prevista en el artículo 43 de la Ley Nacional de Emergencias y Prevención del Riesgo, estará a cargo de un comité de inversiones. Dicho comité estará integrado por el Director Ejecutivo, el Director Administrativo Financiero y el Jefe del Departamento Legal y deberá rendir informe de sus actuaciones ante la Junta Directiva como mínimo una vez por semestre o cuando ésta lo requiera.
