@@ -1,0 +1,2 @@
+Artículo 24. - Juramentación en el cargo. En la misma Asamblea en que se realice la elección del Comité Coordinador, se procederá a juramentar a los nuevos miembros electos, quienes velarán por el cumplimiento de este artículo.
+La juramentación la realizará el Fiscal en ejercicio o en su ausencia, el Secretario (a) del Comité Coordinador. El juramento se prestará según el Juramento del Colegio de Médicos y Cirujanos de Costa Rica.

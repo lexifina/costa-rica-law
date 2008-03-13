@@ -1,0 +1,3 @@
+Transitorio II.—Los puestos del Comité de Tecnólogos que deberán renovar su elección en enero del dos mil ocho de conformidad con el Reglamento anterior, serán elegidos en marzo del mismo año, prorrogándose el nombramiento de las personas que se desempeñaban en esos cargos por dos meses más por una única vez. Después de la elección de marzo del dos mil ocho, las elecciones de los miembros del Comité se harán de conformidad con lo establecido en la presente Normativa.
+El presente reglamento entrará en vigencia a partir del su publicación en el diario oficial La Gaceta.
+San José, 25 de febrero del 2008

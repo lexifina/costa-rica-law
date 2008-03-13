@@ -1,0 +1,1 @@
+Artículo 16.—Convocatoria a Asamblea General; La Asamblea General’del Comité Capítulo de Tecnólogos en Ramas Dependientes de las Ciencias Médicas, se reunirá ordinariamente una vez al año en el mes de enero, para realizar la elección del Comité Coordinador y del Fiscal y, extraordinariamente, cuando así amerite, y de conformidad con la presente Normativa.

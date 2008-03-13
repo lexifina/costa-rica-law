@@ -1,0 +1,10 @@
+Artículo 23.—Recuento de votos. Sobre el recuento de votos en las elecciones de los miembros del Comité Coordinador y del Fiscal: Para ésta votación se elegirán tres escrutadores de la Asamblea, quienes rio podrán ser miembros del Comité Coordinador ni Fiscal, ni ser candidatos a elección. La elección se realizará de la siguiente manera:
+,; a) Los escrutadores contarán los votos emitidos en presencia del
+ff miembro del Comité Coordinador designado para tal efecto por k éste.
+b) El Fiscal comunicará el resultado de dicha votación a los
+.’••• Asambleístas y el Secretario en ejercicio levantará el acta correspondiente, para luego hacer un informe que se enviará a los Tecnólogos en Ramas Dependientes de las Ciencias Médicas, así como comunicar por escrito a los miembros electos sus cargos y funciones.
+c c) La votación se resolverá por mayoría de votos válidos.
+d) Si en el primer escrutinio hubiese un empate, se repetirá la J votación únicamente entre los candidatos que hayan quedado rj» empatados.
+e) Si en ésta segunda votación hubiese empate, el cargo será ocupado por )t,, ^ el candidato de mayor edad.
+En la misma Asamblea en que se realice la elección del Comité Coordinador y el Fiscal, se procederá a juramentar a los miembros electos; la juramentación la realizará el Fiscal en ejercicio o en su ausencia el Secretario (a). El juramento se prestará según el Juramento del Colegio de Médicos y Cirujanos de Costa Rica. Los tecnólogos en Ramas Dependientes de las Ciencias Médicas electos asumirán sus cargos una vez juramentados. La juramentación del Fiscal en caso de reelección la hará el Secretario (a).
+En caso de presentarse alguna anomalía o inconformidad en la elección la misma será puesta en conocimiento de la Asamblea en el mismo acto y la Asamblea resolverá al respecto.

@@ -1,0 +1,3 @@
+Artículo 11.—Sobre el fiscal y sus funciones:
+El Capítulo tendrá un Fiscal que durará en sus funciones dos años y se elegirá en el mismo acto en que se eligen el: Vicepresidente, I Vocal y III Vocal. Para ser electo Fiscal se requieren los mismos requisitos que para ser miembro del Comité Coordinador.
+Para efectos de decisión mediante voto en las sesiones del Comité Coordinador, la Fiscalía tiene voz pero no voto, por lo anterior el Fiscal no forma parte del Comité Coordinador, sino más bien es un órgano autónomo, que velará porque todas las decisiones emanadas del Comité Coordinador sean apegadas a derecho y las normas jurídicas vigentes.

@@ -1,0 +1,1 @@
+Artículo 27.—Sobre la administración y empleo de los fondos: <•*;:, .i £í Comité Coordinador, debe elaborar un presupuesto que será sometido a la Junta de Gobierno para su aprobación o no, a más tardar el 15 de noviembre de cad’i aflo y regirá desde el primero de enero hasta el 31 de diciembre del aflo siguiente.
