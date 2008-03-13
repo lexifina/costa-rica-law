@@ -14,8 +14,8 @@ a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energí
 b) Ronald Vargas Brenes, Director Ejecutivo del Sistema Nacional de Áreas de Conservación.
 (Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 33246 del 3 de julio del 2006)
 c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
-d) Fanny Levin Vargas, representante de la Ministra de Salud.
-(Así reformado el inciso d) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
+(*) d) Fanny Levin Vargas, representante de la Ministra de Salud.
+(*) (Prorrogado su nombramiento como miembro propietario representante de la Ministra de Salud, por el artículo 1° del decreto ejecutivo N° 34437 del 13 de marzo de 2008)
 e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004 y posteriormente se volvió a reformar el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
 f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
