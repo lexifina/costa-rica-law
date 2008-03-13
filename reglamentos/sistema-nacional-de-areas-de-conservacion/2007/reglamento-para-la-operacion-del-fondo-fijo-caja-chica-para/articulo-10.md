@@ -1,0 +1,3 @@
+CAPÍTULO II
+Asignación de recursos
+Artículo 10.—Monto para la apertura del fondo. La propuesta presentada por la Dirección del SINAC se hará con base a la estimación de los gastos menores a atender mediante esta modalidad, en aras de una ágil y eficiente gestión institucional. Corresponderá a la Tesorería Nacional analizar la solicitud presentada y conceder el respectivo visto bueno, tomando en cuenta: el presupuesto autorizado en la Institución en las subpartidas presupuestarias autorizadas por la Tesorería Nacional para el gasto por caja chica, el Límite de Gasto establecido y la estructura organizacional y funcional.

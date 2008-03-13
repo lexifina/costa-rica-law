@@ -1,0 +1,1 @@
+Artículo 5°—Contenido presupuestario y económico. Todas las compras o pagos que se realicen por medio del Fondo Fijo - Caja Chica deberán contar con el debido contenido presupuestario y económico, siendo responsabilidad del Jefe del Departamento Financiero del SINAC velar por el cumplimiento de esta disposición.

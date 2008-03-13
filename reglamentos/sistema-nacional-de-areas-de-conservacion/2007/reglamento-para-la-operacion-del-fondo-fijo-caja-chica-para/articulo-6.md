@@ -1,0 +1,1 @@
+Artículo 6°—Definición del monto del Fondo Fijo - Caja Chica. Por acuerdo de la Dirección General del SINAC, el Director presentará a la Tesorería Nacional la propuesta del monto del Fondo Fijo - Caja Chica.

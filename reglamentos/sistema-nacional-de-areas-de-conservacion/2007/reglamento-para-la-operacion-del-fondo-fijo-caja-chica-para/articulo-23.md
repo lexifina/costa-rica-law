@@ -1,0 +1,1 @@
+Artículo 23.—Liquidación pendiente. No se autorizará un anticipo de dinero a un funcionario que tenga alguno pendiente de liquidar. El Responsable del Fondo Fijo - Caja Chica deberá solicitar al funcionario la presentación de la liquidación pendiente; el incumplimiento de esta disposición los hará acreedores a lo dispuesto en el artículo 42 de este Reglamento.

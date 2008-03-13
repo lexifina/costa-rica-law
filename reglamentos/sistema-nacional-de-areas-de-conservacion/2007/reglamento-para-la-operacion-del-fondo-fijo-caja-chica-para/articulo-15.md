@@ -1,0 +1,1 @@
+Artículo 15.—Transferencia electrónica de fondos. El monto autorizado en la creación del Fondo Fijo - Caja Chica y los aumentos temporales o permanentes autorizados, se harán efectivos por medio de transferencias electrónicas de fondos, de la cuenta domiciliaria de Caja Única a la cuenta corriente exclusiva para la Caja Chica del SINAC.

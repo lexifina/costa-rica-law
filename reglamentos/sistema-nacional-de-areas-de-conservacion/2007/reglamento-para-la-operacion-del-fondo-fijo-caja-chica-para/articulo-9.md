@@ -1,0 +1,1 @@
+Artículo 9°—Registro de nombres y firmas. En el Departamento Financiero del SINAC, se mantendrá un registro actualizado con el nombre, número de cédula de identidad y fotocopia de la misma, registro de firmas y ubicación de los fondos de las cajas chicas auxiliares.

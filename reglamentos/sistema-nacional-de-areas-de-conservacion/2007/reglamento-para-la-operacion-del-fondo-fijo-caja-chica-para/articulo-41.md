@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 41.—Erogaciones con fondos propios. Las erogaciones que realicen las Jefaturas u otros funcionarios con su peculio personal, para pagar materiales y suministros de la institución y aquellas erogaciones que incumplen con las estipulaciones de este reglamento o los lineamientos emanados por la Dirección General del SINAC y por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo Fijo - Caja Chica, salvo que excepcionalmente hubieran sido autorizadas previamente por el Responsable de la caja chica.

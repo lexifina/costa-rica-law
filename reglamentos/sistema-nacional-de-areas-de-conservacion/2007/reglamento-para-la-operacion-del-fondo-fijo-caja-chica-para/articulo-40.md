@@ -1,0 +1,10 @@
+Artículo 40.—Procedimiento de cierre del Fondo Fijo - Caja Chica o Cajas Chicas Auxiliares por parte de la institución.
+En caso de que el Responsable del Fondo Fijo - Caja Chica central considere procedente el cierre, procederá de acuerdo con los lineamientos que establezca la Dirección General del SINAC al respecto.
+Para el cierre de una caja chica auxiliar, sea en cuenta corriente o en efectivo, deberá atender lo siguiente:
+a) Deberá existir un acuerdo entre el Director General del SINAC y el Responsable.
+b) Realizar un arqueo por parte del Departamento Financiero del SINAC y por funcionarios independientes a los de la administración del fondo.
+c) Reposición de faltantes por parte del responsable de la caja auxiliar al momento del arqueo o cuando se determine su responsabilidad. En caso de negativa por parte del responsable se aplicará lo establecido en el artículo 42 de este Reglamento.
+d) Los sobrantes que resulten del arqueo deberán ser depositados al día siguiente por el responsable de la caja chica a la cuenta Fondo General del Gobierno según el mecanismo que establezca la Dirección General del SINAC, de lo contrario se aplicará lo establecido en el artículo 42 de este Reglamento.
+e) Cierre de la cuenta corriente, anulación de fórmulas de cheques o chequeras según corresponda, depósito del disponible al Fondo Fijo - Caja Chica y el traslado de documentos de operaciones pendientes al responsable en el Departamento Financiero del SINAC, a fin de liquidar el fondo.
+f) El efectivo y los documentos que conforman el arqueo de una caja chica auxiliar deberá ser entregado por el responsable al encargado en el Departamento Financiero del SINAC, para que sea depositado en el Fondo Fijo - Caja Chica de la institución.
+g) El Responsable deberá rendir informe sobre lo actuado al Jefe del Departamento Financiero y a la Dirección General del SINAC, archivar de acuerdo con lo establecido por la Ley General de Archivo y mantener la documentación al alcance de los entes de control y fiscalización.

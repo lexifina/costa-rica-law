@@ -1,0 +1,4 @@
+Artículo 33.—Informes de arqueos. El responsable del Fondo Fijo - Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones, conciliaciones bancarias y arqueos intensos, para el Fondo Fijo - Caja Chica y las cajas auxiliares autorizadas, remitiendo a la Dirección General del SINAC la siguiente información:
+a) Programa de arqueos del año siguiente, el cual deberá ser entregado en el mes de diciembre de cada año.
+b) Informe trimestral con arqueos realizados tanto a la caja central como a las auxiliares.
+c) La información detallada en los documentos elaborados por funcionarios del Departamento Financiero del SINAC referente a los arqueos, deberá contar con su nombre, firma y sello de la dependencia; situación que también deberán cumplir los funcionarios encargados de las cajas auxiliares.
