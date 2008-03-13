@@ -1,0 +1,1 @@
+Artículo 43.—Acceso a los registros del trabajo. El Auditor Interno debe controlar el acceso a los registros del trabajo de personas ajenas a la Auditoría Interna, de modo que se realice sólo con su autorización o la de quien él designe.

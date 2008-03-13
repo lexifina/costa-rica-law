@@ -1,0 +1,1 @@
+Artículo 36.—Servicios de la Auditoría Interna. Los servicios de fiscalización de la actividad de Auditoría Interna conforme a sus competencias se clasifican en los servicios de auditoría y los servicios preventivos, de conformidad con lo establecido en el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público.

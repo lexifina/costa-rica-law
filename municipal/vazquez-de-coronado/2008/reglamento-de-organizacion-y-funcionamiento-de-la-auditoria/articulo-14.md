@@ -1,0 +1,1 @@
+Artículo 14.—Requisitos de los puestos: La Unidad de Recursos Humanos definirá en sus respectivos manuales de cargos y clases, la descripción de las funciones y los requisitos de los cargos según lo establecido en el artículo 29 de la Ley General de Control Interno y los lineamientos vigentes emitidos al respecto por la Contraloría General.

@@ -1,0 +1,1 @@
+Artículo 17.—Plan Anual de Trabajo: El Auditor Interno, definirá la planificación anual de la Auditoría Interna, para lo cual emitirá un documento formal que deberá ser del conocimiento del Jerarca, ello de conformidad con la normativa legal y técnica vigente. Según lo establecido en el artículo 22, inciso f) de la Ley General de Control Interno.

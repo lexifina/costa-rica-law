@@ -1,0 +1,1 @@
+Artículo 12.—Nombramiento del Auditor Interno. El Jerarca nombrará por tiempo indefinido al Auditor y Subauditor Interno según lo dispuesto en los lineamientos emitidos por la Contraloría General (L-l-2006-CO-DAGJ), así como lo establecido en el artículo 31 de la Ley General de Control Interno.

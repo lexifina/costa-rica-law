@@ -1,0 +1,4 @@
+Artículo 6º—Independencia funcional y de criterio. La actividad de Auditoría Interna al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados, debe estar libre de injerencias por parte del Jerarca y de los demás órganos de la administración activa.
+El Auditor Interno y los funcionarios de la Auditoría Interna, deberán ejercer su actividad con total independencia funcional y de criterio respecto al Jerarca y a los demás órganos de la Administración; por lo que:
+a) No podrán ser empleados ni ejercer funciones en ninguna otra unidad administrativa de la Institución.
+b) No podrán ser miembros de Juntas Directivas, comisiones de trabajo o similares, ni formar parte de órganos directores de procesos, de conformidad con las disposiciones y prohibiciones que al respecto establecen la Ley General de Control Interno, en sus artículos 25 y 34.

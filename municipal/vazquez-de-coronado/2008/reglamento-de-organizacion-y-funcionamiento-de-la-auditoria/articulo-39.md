@@ -1,0 +1,1 @@
+Artículo 39.—Procesamiento de información. Los funcionarios de la Auditoría Interna deben identificar, analizar, evaluar y registrar suficiente información de manera tal que les permita cumplir con los objetivos del trabajo.

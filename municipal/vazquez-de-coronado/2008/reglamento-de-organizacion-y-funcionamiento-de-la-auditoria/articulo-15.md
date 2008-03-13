@@ -1,0 +1,1 @@
+Artículo 15.—Dirección y Administración de la Auditoría Interna: Al Auditor Interno le corresponde la Dirección Superior y Administración de la Auditoría Interna; para ello podrá dictar los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica, con criterios uniformes en el ejercicio de las competencias.
