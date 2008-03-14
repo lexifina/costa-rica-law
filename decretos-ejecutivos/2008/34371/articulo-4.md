@@ -1,0 +1,6 @@
+Artículo 4º—Los plazos de vigencia y las cesiones de derechos por los Servicios Ambientales generados que se establezcan en los contratos de Pago de Servicios Ambientales según el artículo 3º, inciso k) de la Ley Forestal Nº 7575 serán las siguientes:
+a) En proyectos de reforestación que incorporen varias especies forestales y con diferentes turnos de cosecha, la vigencia del contrato será igual al de la especie que tenga el turno más largo de cosecha, siempre que éste no exceda de quince años, en cuyo caso este sería el lapso de tiempo de la vigencia.
+b) Para proyectos de protección de bosque, la vigencia será de cinco años prorrogables por un período igual, previo cumplimiento de los requisitos que para este fin se establezcan.
+c) Para proyectos de regeneración natural en áreas definidas como tierras prioritarias, la vigencia será de cinco años prorrogables por un período igual, previo cumplimiento de los requisitos que para este fin se establezcan.
+d) Para proyectos de regeneración natural en áreas con potencial productivos, la vigencia será de cinco años.
+e) Para los proyectos en los que se desarrollan sistemas agroforestales el plazo de los contratos será de cinco años. En esta modalidad no se realizará la afectación del inmueble ante el Registro Público de la Propiedad.

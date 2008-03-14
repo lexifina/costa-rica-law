@@ -1,0 +1,8 @@
+Artículo 2º—El monto máximo a pagar por Servicios Ambientales prestados durante el año dos mil ocho, por hectárea y por árboles será el siguiente:
+a) Trescientos veinte dólares exactos ($320) por hectárea, para el Pago de Servicios Ambientales por protección de bosque, desembolsados en un período de cinco años, prorrogable por otro período de cinco años.
+b) Ochocientos dieciséis dólares exactos ($816) por hectárea, para el Pago de Servicios Ambientales en reforestación, desembolsados en un periodo de cinco años.
+c) Ochocientos dieciséis dólares exactos ($816) por hectárea, para el Pago de Servicios Ambientales de reforestación (en tierras no consideradas como tierras prioritarias) mediante regeneración natural con potencial productivo en sitios con al menos un año de abandono y libres de pastoreo, desembolsados en un periodo de cinco años.
+d) Doscientos cinco dólares exactos ($205) por hectárea, para el Pago de Servicios Ambientales para la recuperación de áreas mediante regeneración natural en pastos y potreros, que se podrán realizar solo en áreas definidas como tierras prioritarias, que hayan sido deforestadas antes del 31 de diciembre de 1989, desembolsados en un período de cinco años, prorrogables por otro período de cinco años.
+e) Un dólar con treinta centavos ($1,30) por árbol, para el Pago de Servicios Ambientales en reforestación integrados a sistemas agroforestales, desembolsados en un plazo de tres años.
+Los montos pendientes de desembolsar de años anteriores, se regirán según lo establecido en los Decretos Ejecutivos respectivos para cada año.
+Se faculta a FONAFIFO a establecer montos diferentes, basados en acuerdos, convenios o contratos con entidades donantes o socios que así lo requieran.
