@@ -14,3 +14,4 @@ Reglamento para la Autorización de Fiestas, Ferias, Turnos, Actividades Bailabl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-19 | la propia norma |
+| 2 | 2008-03-14 | Reglamento municipal 11 (2008-03-14) |
