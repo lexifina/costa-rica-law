@@ -1,0 +1,1 @@
+Artículo 3º—Los profesionales interesados en formar parte de ese padrón, deberán presentar su solicitud en los formularios establecidos en la Plataforma de Servicios del Colegio Federado de Ingenieros y de Arquitectos, junto a los requisitos correspondientes, antes del vencimiento de la fecha indicada en la convocatoria a que se refiere el artículo anterior.

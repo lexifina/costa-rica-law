@@ -1,0 +1,1 @@
+Artículo 20.—El acta deberá contener un resumen de los hechos relevantes del sorteo, indicando el nombre de los profesionales participantes y el resultado del sorteo. Igualmente, si fuere procedente, se hará constar si ha acaecido la situación descrita en el artículo anterior.

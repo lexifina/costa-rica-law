@@ -1,0 +1,1 @@
+Artículo 11.—En caso de que se presente alguna desavenencia con relación al pago de los honorarios, las entidades autorizadas y los inspectores fiscalizadores podrán recurrir a los servicios que presta el Centro de Resolución Alterna de Conflictos del Colegio Federado de Ingenieros y de Arquitectos.

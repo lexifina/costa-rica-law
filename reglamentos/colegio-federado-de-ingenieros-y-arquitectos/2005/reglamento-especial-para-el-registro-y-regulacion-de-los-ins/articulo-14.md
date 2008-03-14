@@ -1,0 +1,1 @@
+Artículo 14.—La solicitud para el nombramiento de los inspectores fiscalizadores deberá ser presentada ante la Dirección Ejecutiva del Colegio Federado de Ingenieros y de Arquitectos. El Director Ejecutivo someterá a conocimiento de la Junta Directiva General esa solicitud, la que ordenará la convocatoria al sorteo.

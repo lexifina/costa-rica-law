@@ -1,0 +1,2 @@
+Artículo 15.—La Dirección Ejecutiva del Colegio Federado de Ingenieros y de Arquitectos, procederá a convocar a todos los profesionales inscritos en el Registro. Todos aquellos interesados en participar en dicho sorteo, deberán comunicarlo por escrito al Colegio Federado de Ingenieros y de Arquitectos, confirmando su asistencia.
+La convocatoria se comunicará a los interesados por los medios electrónicos disponibles en poder del Colegio Federado de Ingenieros y de Arquitectos y a los lugares señalados por ellos para atender esas comunicaciones.

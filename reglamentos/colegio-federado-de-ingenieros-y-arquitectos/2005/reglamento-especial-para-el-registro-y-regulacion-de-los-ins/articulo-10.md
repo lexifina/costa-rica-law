@@ -1,0 +1,1 @@
+Artículo 10.—Los honorarios profesionales de los inspectores fiscalizadores serán pagados por las entidades o instituciones autorizadas, conforme a lo indicado en el artículo anterior. Las entidades autorizadas y los inspectores fiscalizadores podrán pactar la forma en que serán cancelados esos honorarios.

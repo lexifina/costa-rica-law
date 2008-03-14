@@ -1,0 +1,1 @@
+Artículo 2º—Al menos una vez al año, el Colegio Federado de Ingenieros y de Arquitectos convocará a los profesionales incorporados en las ramas de ingeniería civil, ingeniería en construcción y arquitectura a inscribirse en ese registro de profesionales.

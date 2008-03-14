@@ -1,0 +1,4 @@
+Artículo 16.—El sorteo se llevará a cabo bajo la supervisión del Director Ejecutivo y en presencia de:
+a) Los representantes designados por la Junta Directiva General.
+b) Un representante de la Asesoría Legal.
+c) Los interesados que así lo hayan expresado en su comunicación.

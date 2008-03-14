@@ -1,0 +1,1 @@
+Artículo 6º—Los profesionales inscritos en el Registro deberán asistir en forma obligatoria a aquellos cursos de actualización que, al efecto, convoque el Colegio Federado de Ingenieros y de Arquitectos.

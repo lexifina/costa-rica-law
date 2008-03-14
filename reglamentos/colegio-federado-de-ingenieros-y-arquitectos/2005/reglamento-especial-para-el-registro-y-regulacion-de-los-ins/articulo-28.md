@@ -1,0 +1,2 @@
+Artículo 28.—Ninguna entidad o institución autorizada podrá remover de su puesto a los inspectores fiscalizadores nombrados por el Colegio Federado de Ingenieros y de Arquitectos.
+A tales efectos, la entidad o institución autorizada que quiera remover a un inspector fiscalizador deberá solicitarlo por escrito a la Dirección Ejecutiva, indicando las razones y aportando las pruebas correspondientes.

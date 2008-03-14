@@ -1,0 +1,2 @@
+Artículo 19.—En caso de que el número de plazas solicitadas por la entidad o institución autorizada sea superior al número de profesionales que hayan confirmado su interés, la Dirección Ejecutiva procederá a asignar una plaza por cada uno de esos profesionales, sin que sea necesario llevara a cabo el sorteo respectivo.
+La Dirección Ejecutiva confeccionará un acta con el resultado del sorteo o de la adjudicación, según corresponda y lo comunicará a la Junta Directiva General para su ratificación. El acuerdo de ratificación será comunicado a todas las partes interesadas.

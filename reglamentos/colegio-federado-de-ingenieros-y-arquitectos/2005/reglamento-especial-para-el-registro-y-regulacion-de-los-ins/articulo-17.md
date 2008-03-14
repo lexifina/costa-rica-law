@@ -1,0 +1,1 @@
+Artículo 17.—El sorteo se hará mediante la inserción de boletas con los nombres de los participantes, de forma que siempre resulte electa una persona en cada una de las plazas solicitadas por la entidad o institución autorizada. Solo participarán en la escogencia las personas que hayan confirmado su interés por escrito, hasta dos horas antes de la celebración del sorteo.

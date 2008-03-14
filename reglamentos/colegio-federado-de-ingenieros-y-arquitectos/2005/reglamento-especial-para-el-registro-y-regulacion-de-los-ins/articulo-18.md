@@ -1,0 +1,1 @@
+Artículo 18.—Los profesionales elegidos como inspectores fiscalizadores podrán participar en otros sorteos, siempre y cuando no se encuentren nombrados, en esa condición, en tres entidades autorizadas. En este caso, el inspector fiscalizador deberá acreditar fehacientemente esta condición.
