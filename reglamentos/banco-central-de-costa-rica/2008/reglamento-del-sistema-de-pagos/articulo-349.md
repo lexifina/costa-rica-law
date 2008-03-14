@@ -1,0 +1,1 @@
+Artículo 349.—Verificación de firmas. La entidad destino es responsable de verificar la firma emitida por su cliente (cliente destino) en la domiciliación física, con los registros internos de sus clientes.

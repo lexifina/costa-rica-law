@@ -1,0 +1,1 @@
+Artículo 197.—Calce de ofertas. Las ofertas de compra o venta que realicen las entidades participantes a precios distintos de los tipos de cambio de intervención del BCCR, estarán sujetas a calce automático bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse el calce parcial de ofertas.

@@ -1,0 +1,1 @@
+Artículo 287.—Aplazamiento de los ciclos de operación. El Director de la División de Servicios Financieros o quien éste designe, podrá extender los horarios de los ciclos de operación de los servicios del SINPE ante situaciones que a su criterio puedan desencadenar un riesgo sistémico.

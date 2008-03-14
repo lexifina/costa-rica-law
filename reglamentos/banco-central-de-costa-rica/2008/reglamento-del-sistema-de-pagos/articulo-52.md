@@ -1,0 +1,1 @@
+Artículo 52.—Código de entidad representada. Las entidades financieras representadas tendrán un código de entidad únicamente para que puedan asignar cuentas cliente a sus clientes y operar en el SINPE como representada.

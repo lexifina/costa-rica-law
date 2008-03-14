@@ -1,0 +1,1 @@
+Artículo 274.—Criterio de días al vencimiento para la ejecución. En caso de ejecución de garantías liquidas o en valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.

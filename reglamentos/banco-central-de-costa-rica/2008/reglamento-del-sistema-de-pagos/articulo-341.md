@@ -1,0 +1,1 @@
+Artículo 341.—Presentaciones de la domiciliación. Se define la domiciliación física como el formulario impreso que suscribe el cliente destino con el cliente origen, con las calidades de ambos y las características del cobro a realizar. La domiciliación electrónica corresponde a la captura electrónica de la información contenida en la domiciliación física.

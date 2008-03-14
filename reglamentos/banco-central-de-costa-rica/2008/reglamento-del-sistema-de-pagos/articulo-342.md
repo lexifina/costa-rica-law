@@ -1,0 +1,1 @@
+Artículo 342.—Suscripción de la domiciliación física. El cliente destino debe suscribir ante el cliente origen la domiciliación física y es obligación del cliente origen entregar al cliente destino una copia del documento respectivo.

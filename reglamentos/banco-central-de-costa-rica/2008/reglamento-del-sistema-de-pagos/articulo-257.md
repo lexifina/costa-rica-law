@@ -1,0 +1,1 @@
+Artículo 257.—Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.

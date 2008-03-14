@@ -1,0 +1,1 @@
+Artículo 29.—Nombramiento del órgano director. De resolverse la viabilidad de la apertura de un procedimiento administrativo, el Director del Departamento de Sistema de Pagos nombrará al órgano director del procedimiento. Los funcionarios designados deberán observar, cumplir y resolver de acuerdo con la Ley 6227.

@@ -1,0 +1,1 @@
+Artículo 249.—Margen por riesgo cambiario. Cuando el monto por garantizar en una moneda supere el valor de las garantías expresadas en esa misma moneda, el exceso de la exposición se tomará por un 110% de su valor para efectos de determinar las necesidades mínimas de cobertura.

@@ -1,0 +1,1 @@
+Artículo 347.—Aceptación tácita. Las domiciliaciones no incluidas en el archivo de rechazos se tomarán como formalmente aceptadas por la entidad destino y empezarán a regir, para efectos de aplicación del cobro respectivo, a más tardar el tercer día hábil del ciclo.

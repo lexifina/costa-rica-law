@@ -1,0 +1,1 @@
+Artículo 77.—Intercambio de cheques truncados. Los cheques sujetos al esquema de truncamiento serán intercambiados en la etapa de intercambio físico de cobro del día hábil siguiente a su cobro electrónico.

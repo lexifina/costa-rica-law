@@ -1,0 +1,1 @@
+Artículo 242.—Información de las transportadoras. Las entidades financieras serán responsables de que la información relativa al catálogo de vehículos y de personas vinculadas al transporte de numerario, sean propios o de las empresas transportadoras, se mantenga actualizada en el servicio.

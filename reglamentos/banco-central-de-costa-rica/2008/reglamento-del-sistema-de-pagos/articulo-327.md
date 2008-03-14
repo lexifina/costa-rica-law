@@ -1,0 +1,1 @@
+Artículo 327.—Solicitud del certificado. Para obtener un certificado, el solicitante debe seguir el procedimiento establecido para su emisión. En el caso de la emisión de un certificado de firma por primera vez, el registro debe ser presencial.

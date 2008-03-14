@@ -1,0 +1,1 @@
+Artículo 202.—Cobro del margen de intermediación cambiaria. El BCCR cobrará diariamente, en forma automática y sobre la cuenta de fondos de los participantes, el monto que por concepto del MIC corresponda, de conformidad con lo establecido en el Reglamento para las Operaciones Cambiarias de Contado.

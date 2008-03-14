@@ -1,0 +1,1 @@
+Artículo 328.—Mantenimiento del certificado. Cualquier persona que desee solicitar la renovación, revocación, suspensión o restablecimiento de un certificado, por cualquiera de las circunstancias establecidas en la PC que lo rige, debe presentar la solicitud ante un registrador. La persona debe estar autorizada por la PC del certificado para realizar la gestión específica.

@@ -1,0 +1,1 @@
+Artículo 92.—Requerimientos de garantía. La entidad origen, con el propósito de cubrir la responsabilidad que asume en nombre de su cliente por la gestión de cobro realizada, podrá solicitar a éste la formalización de una garantía de conformidad con las condiciones que establezcan de mutuo acuerdo.

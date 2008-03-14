@@ -1,0 +1,1 @@
+Artículo 6º—Prestación de servicios fuera del horario bancario. Las entidades financieras podrán enviar transacciones propias o de terceros en los servicios del SINPE que liquidan fuera del horario bancario (TFT y DTR), siempre y cuando para esos efectos mantenga en su Cuenta de Reserva un saldo adicional al requerimiento mínimo de encaje.

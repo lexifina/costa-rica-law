@@ -1,0 +1,1 @@
+Artículo 38.—Incorporación del número de identificación. Con su participación en los servicios del SINPE, los asociados deberán cumplir y aplicar las leyes y normas vigentes en materia de legitimación de capitales. Para estos efectos, toda transacción tramitada a través del SINPE debe incorporar el número de identificación tanto del cliente origen como del cliente destino.

@@ -1,0 +1,1 @@
+Artículo 99.—Custodia de enteros por impuestos específicos. El BCCR es responsable de custodiar los enteros de impuestos específicos y de remitirlos a las entidades beneficiarias, de conformidad con los plazos establecidos en las normas complementarias del servicio.

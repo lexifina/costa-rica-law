@@ -1,0 +1,1 @@
+Artículo 41.—Responsabilidad en la prevención de la legitimación de capitales. La funcionalidad de aceptación automática que ofrecen los servicios del SINPE o la operativa en tiempo real con que operan algunos de ellos, no exime a las entidades financieras de su responsabilidad en relación con el control y prevención de la legitimación de capitales.

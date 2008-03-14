@@ -1,0 +1,1 @@
+Artículo 262.—Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de la exposición crediticia que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra de US dólares, calculado diariamente por el BCCR.

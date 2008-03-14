@@ -1,0 +1,1 @@
+Artículo 50.—Apertura de cuentas. El asociado podrá mantener solo una cuenta en colones y una cuenta por tipo de moneda extranjera, salvo cuando medie autorización expresa de la División de Servicios Financieros para abrir cuentas adicionales.
