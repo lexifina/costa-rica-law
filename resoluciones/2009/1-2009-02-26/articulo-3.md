@@ -1,0 +1,1 @@
+Artículo 3º—Los requerimientos específicos de información relativos a la presentación de los planes operativos anuales y el presupuesto municipal serán establecidos por la Contraloría General de la República mediante los medios que estime pertinentes, sin perjuicio de que sean incluidos en la página web de este órgano contralor (dirección electrónica: www.cgr.go.cr).
