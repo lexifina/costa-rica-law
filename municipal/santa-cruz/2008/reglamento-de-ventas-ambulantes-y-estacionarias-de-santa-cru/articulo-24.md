@@ -1,0 +1,1 @@
+Artículo 24.—El Departamento de Rentas elaborará y enviará a sus inspectores las listas actualizadas de las personas a las que se les ha otorgado la licencia de vendedor ambulante y estacionario para que fiscalicen el cumplimiento de sus obligaciones.

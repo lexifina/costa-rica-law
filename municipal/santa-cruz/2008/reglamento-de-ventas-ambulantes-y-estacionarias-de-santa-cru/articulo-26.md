@@ -1,0 +1,1 @@
+Artículo 26.—Para el otorgamiento de licencias ambulantes para la venta de artesanía es general para todo el litoral en el cantón de Santa Cruz. Toda solicitud será solicitada y tramitada ante el Concejo Municipal.

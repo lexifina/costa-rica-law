@@ -1,0 +1,1 @@
+Artículo 31.—Modifíquese el Capítulo IV del Reglamento para Licencias Municipales de La Municipalidad de Santa Cruz, aprobado por el Concejo Municipal de Santa Cruz, mediante acuerdo de la sesión ordinaria Nº 17-2006, celebrada el día 25 de abril del 2006, artículo 6, inciso 5).

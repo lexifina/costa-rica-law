@@ -1,0 +1,1 @@
+Artículo 17.—Los vendedores ambulantes no podrán permanecer estacionados en el mismo sitio, salvo el tiempo necesario que lo requiera el cliente, para lo cual se exceptúa de esta disposición, a los vendedores ambulantes con puestos movibles, quienes no podrán arraizar de ninguna manera sus puestos a la tierra.

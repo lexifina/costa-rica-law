@@ -1,0 +1,2 @@
+Artículo 3º—La licencia deberá ser solicitada por escrito al Departamento de Rentas de la Municipalidad, adjuntando cien colones en timbres municipales y cien colones en timbres fiscales, cumpliendo con los requisitos que para tal efecto estipula el artículo 4º. En la solicitud deberá indicarse el tipo de actividad lucrativa que se ofrecerá.
+El interesado se someterá a un estudio socioeconómico mediante la aplicación de formulario que para este fin le facilitará el Departamento de Rentas de la Municipalidad, exceptuando las actividades que se establecen en el artículo 13.

@@ -1,0 +1,2 @@
+Artículo 5º—El costo del otorgamiento de la licencia será el equivalente al salario diario de una servidora doméstica y los ajustes se aplicarán en forma automática de acuerdo al Decreto de salarios mínimos vigente.
+La forma de pago de este impuesto será la establecida en Administración. El atraso en los pagos generará intereses moratorios que se calcularán con base al artículo 57 del Código de Normas y Procedimientos Tributarios.

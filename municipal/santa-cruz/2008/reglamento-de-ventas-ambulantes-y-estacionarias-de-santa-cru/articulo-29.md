@@ -1,0 +1,1 @@
+Artículo 29.—Por incumplimiento a las disposiciones legales o reglamentarias, podrá la municipalidad imponer las siguientes sanciones: Suspensión temporal de la licencia o clausura de la actividad. Revocación definitiva de la licencia y desalojo de la vía pública.
