@@ -1,0 +1,1 @@
+Artículo 2º—Gasto. Por gasto debe entenderse aquella suma erogada por los funcionarios del Macroproceso de Gestión y Asesoría Turística, por concepto de adquisición de bienes y/o servicios, tales como ingreso a centros nocturnos, alimentación, consumo de bebidas no alcohólicas, pagos de parqueos y transporte.
