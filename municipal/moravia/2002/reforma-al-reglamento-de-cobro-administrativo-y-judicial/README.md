@@ -14,3 +14,4 @@ Reforma al Reglamento de Cobro Administrativo y Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-23 | la propia norma |
+| 2 | 2008-03-17 | Reglamento municipal 98 (2008-03-17) |
