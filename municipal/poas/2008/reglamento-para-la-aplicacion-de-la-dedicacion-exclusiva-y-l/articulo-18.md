@@ -1,0 +1,4 @@
+Artículo 18.—El incumplimiento de las disposiciones que rigen en el presente Reglamento o del respectivo contrato, por parte del Profesional que disfruta de los beneficios, tiene como consecuencia:
+a) La rescisión inmediata del Contrato de Dedicación Exclusiva y Prohibición.
+b) El reintegro a la Municipalidad por parte del profesional, de las sumas que halla recibido por este concepto y que se le hubieren pagado a partir de la fecha en que incurrió en el incumplimiento.
+c) El profesional incumpliente, no podrá firmar un nuevo Contrato y percibir incentivos por Dedicación Exclusiva y Prohibición, a partir de la fecha del incumplimiento del Reglamento o del Contrato. La comprobación de las faltas señaladas se hará mediante la aplicación del debido proceso en cede administrativa, sin perjuicio de la responsabilidad penal o civil que pudiese generar la falta.

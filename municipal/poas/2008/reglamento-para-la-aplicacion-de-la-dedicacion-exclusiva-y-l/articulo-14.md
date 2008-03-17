@@ -1,0 +1,1 @@
+Artículo 14.—El contrato de dedicación exclusiva, será por tiempo indefinido y podrá ser rescindido por cualquiera de las partes con un mes de antelación previa solicitud por escrito a la Alcaldía Municipal.
