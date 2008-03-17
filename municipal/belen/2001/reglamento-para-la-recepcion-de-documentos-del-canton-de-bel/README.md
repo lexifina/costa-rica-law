@@ -14,3 +14,4 @@ Reglamento para la Recepción de Documentos del Cantón de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-29 | la propia norma |
+| 2 | 2008-03-17 | Reglamento municipal 18 (2008-03-17) |
