@@ -14,3 +14,4 @@ Reglamento para el Cobro de Multas por Incumplimiento a los los al Código Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-25 | la propia norma |
+| 2 | 2008-03-17 | Reglamento municipal 78 (2008-03-17) |
