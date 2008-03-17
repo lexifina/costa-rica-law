@@ -1,0 +1,1 @@
+Artículo 13.—Subcomités. Cuando el Comité lo estime necesario para un mejor desempeño de sus funciones, constituirá de su seno Subcomités, los que realizarán sus labores en los términos que el Comité indique.

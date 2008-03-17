@@ -1,0 +1,5 @@
+Artículo 2º—Integración del Comité. El Comité estará conformado por un(a) representante de cada uno de los Sectores que integra la Asamblea de Trabajadores y Trabajadoras, quien deberá ser delegado (a) propietario ante dicha Asamblea, propietario que tendrá un suplente designando en las mismas condiciones, quien sustituirá al propietario(a) en sus ausencias temporales o definitivas, por el resto del período.
+El Comité deberá estar integrado en un cincuenta por ciento de mujeres como mínimo.
+Los integrantes del Comité serán nombrados por un período de dos años, pudiendo ser reelectos.
+Su elección se llevará a cabo en la Sesión Plenaria Ordinaria de inicio y mitad de período de nombramiento de las y los delegados de la Asamblea de Trabajadores y Trabajadoras, de conformidad con los procedimientos de elección que establezca dicha Asamblea.
+En los casos de Sectores que sólo tienen un Delegado o Delegada ante la Asamblea de Trabajadores y Trabajadoras, podrán designar como integrante del Comité a una persona que figure como Delegada de otro Sector representado en la Asamblea de Trabajadores y Trabajadoras del Banco Popular.
