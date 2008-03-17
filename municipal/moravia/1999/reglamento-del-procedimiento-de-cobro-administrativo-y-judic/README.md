@@ -15,3 +15,4 @@ Reglamento del procedimiento de cobro administrativo y judicial
 | --- | --- | --- |
 | 1 | 1999-08-23 | la propia norma |
 | 2 | 2002-08-05 | Reglamento municipal 14 (2002-08-05) |
+| 3 | 2008-03-17 | Reglamento municipal 98 (2008-03-17) |
