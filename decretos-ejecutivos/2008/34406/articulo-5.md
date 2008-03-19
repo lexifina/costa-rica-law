@@ -1,0 +1,1 @@
+Artículo 5º—En el caso de los recursos asignados a proyectos de inversión, las entidades públicas y demás órganos deben remitir un detalle por partida y subpartida, de los gastos asociados a cada proyecto.

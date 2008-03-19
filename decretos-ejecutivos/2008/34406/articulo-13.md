@@ -1,0 +1,1 @@
+Artículo 13.—Las entidades públicas, ministerios y demás órganos, remitirán a la Dirección de Crédito Público informes de seguimiento semestral sobre el avance físico, financiero y de saldos, de los proyectos en ejecución financiados con recursos externos e internos, con base en los requerimientos que establezca la Dirección de Crédito Público.

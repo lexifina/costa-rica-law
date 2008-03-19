@@ -1,0 +1,54 @@
+Nº 34406-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), y 27, inciso 1), 28, inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; los artículos 1º, 21, 23, 24, 25 y 57 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001, sus reformas y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero del 2006 y sus reformas.
+Considerando:
+I.—Que de conformidad con el artículo 21 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 de 16 de octubre del 2001, le corresponde a la Autoridad Presupuestaria (AP) formular y presentar para conocimiento del Consejo de Gobierno y aprobación del Presidente de la República, las Directrices de Política Presupuestaria, para las entidades públicas, ministerios y demás órganos según corresponda, dentro de su ámbito, las cuales fueron promulgadas mediante Decreto Ejecutivo.
+II.—Que con el propósito de que la AP vele por el cumplimiento de las directrices mencionadas en el considerando anterior, según lo dispone el inciso c) del artículo 21 de la Ley Nº 8131 citada, es necesario que el Poder Ejecutivo establezca los procedimientos a seguir para la aplicación de estas.
+III.—Que con el fin de simplificar la organización del Poder Ejecutivo y para lograr un mejor seguimiento del comportamiento del gasto, mediante decreto Ejecutivo, dicho Poder estableció los sectores en que este se divide.
+IV.—Que a efectos de uniformar los términos presupuestarios, es necesario tomar como referencia algunas de las definiciones del Manual de Normas Técnicas, así como del Reglamento sobre variaciones al presupuesto de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados, publicado en La Gaceta Nº 170 de 5 de setiembre del 2006, emitidos por la Contraloría General de la República (CGR).
+V.—Que es necesario que las entidades públicas y demás órganos del Sector Público suministren la información requerida, empleando el Sistema de Consolidación de Cifras del Sector Público Costarricense (SICCNET), con fundamento en los artículos 3º, inciso b), 57 y 125 de la Ley Nº 8131 citada.
+VI.—Que con fundamento en el inciso c) del artículo 21 de la Ley Nº 8131, la AP acordó modificar los Procedimientos para la aplicación y seguimiento de las Directrices de Política Presupuestaria del Sector Público, mediante el acuerdo Nº 8313, tomado en la sesión ordinaria Nº 02-2008, celebrada el 25 de febrero del 2008. Por tanto,
+Decretan:
+Procedimientos para la Aplicación y Seguimiento
+de las Directrices Generales de Política Presupuestaria
+para las Entidades Públicas, Ministerios y Demás
+Órganos Según Corresponda, Cubiertos por el
+Ámbito de la Autoridad Presupuestaria
+CAPÍTULO I
+De las definiciones
+Artículo 1º—Definiciones. Para efectos de la aplicación de las Directrices Generales de Política Presupuestaria, se considerarán las siguientes definiciones:
+1) Concesión de préstamos: Créditos directos otorgados por una entidad pública a otra perteneciente al sector público o al sector privado.
+2) Concesión neta de préstamos: Es el saldo neto entre la concesión de préstamos menos la recuperación de estos.
+3) Cuenta corriente: Contrato bancario en que el titular efectúa depósitos y en el que la entidad administradora tiene la obligación de entregar las cantidades de fondos girados.
+4) Deuda pública: Endeudamiento resultante de las operaciones de crédito público, que puede generarse por cualquiera de los mecanismos previstos en el artículo 81 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos. Comprende tanto el endeudamiento público interno como externo del Gobierno de la República, así como la administración descentralizada no empresarial y las empresas públicas.
+5) Entidad pública: Figura organizativa con personalidad jurídica propia, que incluye a los órganos y entes de la administración descentralizada no empresarial y empresas públicas.
+6) Financiamiento: Recursos que tienen el propósito de cubrir las necesidades derivadas de la insuficiencia de los ingresos corrientes y de capital. Comprende los créditos netos, sean internos o externos (préstamos recibidos menos la amortización efectuada), más las variaciones de caja y bancos entre el inicio y fin del período, así como las colocaciones netas de títulos valores.
+7) Flujo de caja: Refleja el movimiento de entradas y salidas de efectivo, así como las variaciones en el financiamiento durante un período dado.
+8) Fondo de inversión: Conjunto de aportes voluntarios de dinero por parte de las personas físicas o jurídicas, con el propósito de realizar inversiones en valores de oferta pública y otros activos que autorice el órgano supervisor.
+9) Gasto corriente: Egresos que se destinan a la operación de las entidades públicas, ministerios y demás órganos, tales como: remuneraciones, servicios, materiales y suministros, intereses y comisiones y transferencias corrientes.
+10) Gasto de capital: Egresos por concepto de adquisición de bienes duraderos, ya sean de carácter real, financiero e intangible y de transferencias de capital.
+11) Gasto presupuestario: Proyección de egresos corrientes y de capital, incluida en el Presupuesto de las entidades públicas, ministerios y demás órganos, debidamente aprobada de conformidad con el ordenamiento jurídico vigente.
+12) Gasto presupuestario máximo: Proyección de egresos menos los montos por concepto de las exclusiones establecidas en las Directrices vigentes.
+13) Gasto no recurrente: Egresos extraordinarios originados en actividades, programas o proyectos de carácter temporal y que no forman parte de la actividad ordinaria de la entidad pública, ministerio u órgano.
+14) Línea de crédito: Contrato bancario mediante el cual una entidad financiera se obliga a tener a disposición de una entidad pública o un órgano una suma de dinero por cierto período.
+15) Ministerio: Figura organizativa integrado por una pluralidad de oficinas, bajo la dirección político-administrativa de los Ministros. Incluye a los órganos desconcentrados sin personalidad jurídica instrumental.
+16) Ministro rector: Es el responsable de cada sector y de que las políticas que fije el Poder Ejecutivo para el respectivo sector, sean ejecutadas y acatadas por las diferentes entidades públicas, ministerios y demás órganos que lo integran.
+17) Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados que tiene por objeto disminuir o aumentar los diferentes conceptos de estos o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado.
+18) Órgano: Figura organizativa creada por ley a la que se le atribuye personalidad jurídica instrumental, que le faculta a tener su presupuesto propio y administrar los recursos que le corresponden.
+19) Pagaré del tesoro: Título valor de corto plazo, mediante el cual el emisor se compromete a pagar al beneficiario una determinada cantidad de dinero en la fecha de vencimiento previamente acordada.
+20) Presupuesto definitivo: Sumatoria del presupuesto ordinario, presupuestos extraordinarios y modificaciones presupuestarias al cierre del período.
+21) Presupuesto extraordinario: Mecanismo que puede incorporar al presupuesto los ingresos extraordinarios y los gastos correspondientes; registrar las disminuciones de ingresos y el efecto que dichos ajustes tienen en el presupuesto de egresos; asimismo, sustituir por otras, las fuentes de financiamiento previstas, sin que para ello se varíe el monto total de presupuesto previamente aprobado.
+22) Presupuesto modificado: Sumatoria del presupuesto ordinario, presupuestos extraordinarios y modificaciones presupuestarias en un período determinado del ejercicio presupuestario.
+23) Presupuesto por programas: Instrumento operativo que expresa en términos financieros el plan anual de trabajo institucional.
+24) Programa presupuestario: Categoría programática de mayor nivel en el proceso de presupuesto, conformada por un conjunto de subprogramas, actividades o proyectos que conducen a uno o más productos finales para el cumplimiento de objetivos y metas.
+25) Proyecto de inversión: Conjunto de obras de infraestructura iniciadas en el año 2008 o en fecha anterior, que incluye las acciones del sector público destinadas a la creación, ampliación o conservación de los bienes de capital del país y cuya programación debe continuar en el periodo 2009 o en años posteriores. No contempla aquellos procesos que tienen como propósito el mantenimiento normal, menor o habitual de dichos bienes, según su programación y recursos financieros disponibles.
+26) Sector: Agrupación de entidades públicas, ministerios y demás órganos con propósitos afines, bajo la dirección de un Ministro Rector, establecido con el fin de imprimir un mayor grado de coordinación, de eficacia y de eficiencia en la Administración Pública.
+27) Sector público: Conjunto de entidades, ministerios y órganos que realizan función de gobierno, son propiedad del gobierno o están bajo su control. Se divide en dos categorías: el Sector Público Financiero y el Sector Público No Financiero.
+28) Sector público financiero: Conjunto de entidades públicas dedicadas a la intermediación, movilización y distribución del ahorro del país, que ejercen funciones de autoridad monetaria, supervisión y control del sector financiero.
+29) Sector público no financiero: Conjunto de entidades públicas, ministerios y órganos que realizan funciones económicas de gobierno, como son la provisión de bienes y servicios fuera de mercado a la comunidad. Así como las empresas que realizan las actividades comerciales y productivas pertenecientes o controladas por este.
+30) Superávit o déficit: Diferencia entre los ingresos y egresos efectivos al finalizar el período presupuestario. Se denomina superávit específico cuando por disposiciones especiales o legales tiene que destinarse a un fin específico y superávit libre cuando no tiene esa condición.
+31) Títulos cero cupón: Instrumento financiero estandarizado sin cupones, que se negocia por descuento (fijo) y cuyo plazo máximo es un año.
+32) Títulos en dólares: Instrumento financiero denominado en dólares de los Estados Unidos de América.
+33) Títulos TUDES: Instrumento financiero denominado en unidades de desarrollo, cuyo rendimiento se ajusta según variaciones en la inflación.
+34) Unidad de desarrollo: Unidad de cuenta ajustable de forma diaria, conforme a la variación que experimenta el índice de precios al consumidor y que es calculada por la Superintendencia General de Valores.
