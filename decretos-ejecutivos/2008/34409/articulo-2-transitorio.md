@@ -1,0 +1,1 @@
+Transitorio II.—Los funcionarios que se incorporen como nuevos declarantes en virtud de la presente reforma al reglamento contarán con un plazo de 30 días hábiles para presentar la declaración inicial de bienes, contados a partir de la comunicación oficial que les haga la Unidad de Recursos Humanos.

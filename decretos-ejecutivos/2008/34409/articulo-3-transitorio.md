@@ -1,0 +1,1 @@
+Transitorio III.—Los funcionarios que en virtud de la presente reforma cesen de la obligación de presentar declaración jurada de bienes, contarán con un plazo de 30 días hábiles para presentar la declaración final de bienes, contados a partir de la comunicación oficial que les haga la Unidad de Recursos Humanos.

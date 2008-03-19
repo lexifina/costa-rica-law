@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese al Decreto Ejecutivo número 32333-MP-J, publicado en La Gaceta del 29 de abril del 2005, el artículo 25 bis que se leerá de la siguiente forma:
+Artículo 25 bis.—Recursos: Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabrá, por parte del denunciante, los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.

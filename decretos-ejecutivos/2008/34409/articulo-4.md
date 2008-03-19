@@ -1,0 +1,2 @@
+Artículo 4º—Adiciónese al decreto ejecutivo número 32333 MP-J, publicado en La Gaceta del 29 de abril del 2005, el artículo 82 bis, el cual se leerá de la siguiente forma:
+Artículo 82 bis.—Exclusión de declarantes. La Contraloría General de la República mediante resolución debidamente fundamentada, la cual se basará en aspectos de razonabilidad, proporcionabilidad, monto económico o grado de responsabilidad, podrá eximir de su obligación de presentar declaración jurada de bienes, a aquellos funcionarios afectos a dicha obligación.

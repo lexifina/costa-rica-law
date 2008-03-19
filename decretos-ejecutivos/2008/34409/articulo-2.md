@@ -1,0 +1,6 @@
+Artículo 2º—Adiciónese al Decreto Ejecutivo número 32333-MP-J publicado en La Gaceta del 29 de abril del 2005, tres incisos nuevos en el artículo 1, los cuales se leerán de la siguiente forma:
+8) Corrupción: Es el uso de funciones y atribuciones públicas para obtener o conceder beneficios particulares, en contravención de las disposiciones legales y la normativa existente en un momento histórico dado. De manera más general es el uso indebido del poder y de los recursos públicos para el beneficio personal, el beneficio político particular o el de terceros.
+30) Manejo de Fondos Públicos: Es la función de gestionar administrativa o contablemente los fondos públicos, la cual es ejercida por aquellos funcionarios que, de conformidad con el orden jurídico y de acuerdo con el acto de nombramiento, tienen a cargo esa función y por ende la posibilidad de disponer o tomar decisiones o acciones jurídicas o contables sobre los fondos en cuestión.
+31) Perfil para la identificación de declarantes: Es el conjunto de posibles funciones que puede tener un funcionario público, formal o informalmente, dentro de una institución y que lo enmarca como declarante.
+Corríjase la numeración correspondiente.
+(…)
