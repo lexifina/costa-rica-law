@@ -1,0 +1,2 @@
+ARTÍCULO 53.- Pruebas bajo el control de la parte contraria
+Dentro del proceso abreviado o en los casos de competencia desleal, dentro del proceso sumario, cuando una parte haya identificado alguna prueba pertinente para sustanciar sus alegaciones y esta se encuentre bajo el control de la parte contraria, el juez estará facultado para ordenarle que la aporte. Si procede, la prueba será presentada a condición de que se garantice la protección de la información no divulgada.

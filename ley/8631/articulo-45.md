@@ -1,0 +1,3 @@
+ARTÍCULO 45.- Destrucción y comiso de variedades vegetales
+Al emitir la autoridad judicial una resolución que autorice destruir variedades vegetales, deberá considerar los intereses de terceros, así como la proporcionalidad entre la gravedad de la infracción y la medida ordenada. En la resolución firme de la autoridad judicial, podrá disponerse que las autoridades de aduana destruyan o eliminen las variedades falsificadas o ilegales.
+Las autoridades de aduana no permitirán que las variedades falsificadas o ilegales se reexporten en el mismo estado ni las someterán a ningún procedimiento aduanero distinto, hasta que la autoridad judicial competente se pronuncie sobre el destino o la destrucción de tales variedades.

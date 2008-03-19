@@ -1,0 +1,3 @@
+ARTÍCULO 54.- Criterios para fijar daños y perjuicios
+Los daños y perjuicios ocasionados por infracciones civiles contra esta Ley serán fijados por el juez, preferentemente con base en un dictamen pericial. A falta de dictamen pericial, no serán menores que el valor correspondiente a un salario base, fijado según el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993.
+En todo caso, y sin perjuicio del mínimo establecido, en la resolución por la cual se finalice la causa, deberán tomarse en consideración los beneficios que el titular habría obtenido de no haberse producido la violación, los beneficios obtenidos por el infractor, el precio, la remuneración o la regalía que el infractor hubiera tenido que pagar al titular para la explotación lícita de los derechos violados.

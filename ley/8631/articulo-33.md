@@ -1,0 +1,3 @@
+ARTÍCULO 33.- Interpretación
+En el examen judicial y administrativo de las posibles violaciones a los derechos consignados y protegidos por esta Ley, el juez competente y la Ofinase, respectivamente, deberán utilizar las reglas de la sana crítica, los principios de observación y verificación científica, así como los principios de razonabilidad, racionalidad y la buena fe, en cada caso concreto.
+En todo procedimiento administrativo, iniciado ante la Ofinase, o proceso judicial, al aplicar la sanción final la autoridad competente tomará en cuenta la proporcionalidad entre la conducta ilícita y el daño causado al bien jurídico tutelado.
