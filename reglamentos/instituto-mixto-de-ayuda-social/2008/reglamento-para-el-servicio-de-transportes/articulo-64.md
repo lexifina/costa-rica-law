@@ -1,0 +1,1 @@
+Artículo 64.—Contingencias. En caso de fuerza mayor, caso fortuito o alguna contingencia que no permita la utilización del Sistema para la adquisición, uso y control del combustible, se deberá seguir el mecanismo alternativo establecido según directriz Nº 433 de la Subgerencia Ad ministrativa Financiera de agosto del 2007.

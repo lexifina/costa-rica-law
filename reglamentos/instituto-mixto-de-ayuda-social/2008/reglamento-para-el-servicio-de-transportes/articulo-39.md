@@ -1,0 +1,17 @@
+Artículo 39.—De los deberes de los conductores. Son deberes de todo conductor del IMAS, los siguientes:
+a) Conocer y cumplir la Ley de Tránsito así como las disposiciones que establece el presente Reglamento y su manual respectivo.
+b) Portar el carné de conducir del IMAS y la licencia actualizada por la Dirección General de Transportes del MOPT, la cual debe ser acorde con el tipo de vehículo que conduce.
+c) Enviar fotocopia de la Licencia de conducir a la UTAT del Equipo de Gestión y Asesoría Administrativa cada vez que esta sea renovada para mantener su registro como conductor vigente.
+d) Revisar que el vehículo se encuentre en condiciones que garanticen su propia seguridad, la de las personas que viajen, así como también de los materiales y equipos transportados. En caso de que el vehículo tenga un daño, debe reportarlo por escrito y de forma inmediata, al Euipo de Gestión y Asesoría Administrativa o al Coordinador del Equipo de Administración y Finanzas de la Gerencia Regional.
+e) Cumplir los programas de mantenimientos establecidos y comunicados, por el Equipo de Gestión y Asesoría Administrativa, así como procurar que el vehículo mantenga óptimas condiciones de limpieza.
+f) Conducir bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad de pasajeros.
+g) Conducir de manera responsable y prudente de tal forma que no ponga en peligro su propia vida y la de los demás.
+h) Brindar el servicio de transporte de acuerdo a lo especificado en el formulario respectivo, en cuanto a lugares a visitar, fechas y horas en que se desarrollará la gira y personas autorizadas para abordar el vehículo. En condiciones de fuerza mayor, caso fortuito o imposibles de prever, por las cuales el objetivo de la gira o el interés institucional se puedan ver afectados, el conductor podrá transportar a otros funcionarios, siempre y cuando porten su gafete de identificación. Estas situaciones deben ser valoradas por el Funcionario Encargado de la Gira en el momento que se presentan y deberán ser autorizadas por dicho funcionario. La situación debe hacerse del conocimiento de la UTAT del Equipo de Gestión y Asesoría Administrativa y/o Gerencia Regional en la brevedad posible.
+i) Utilizar y velar por el estado y uso de los cinturones de seguridad.
+j) Estar a la disposición del funcionario responsable de la gira en lo relativo al ejercicio de las funciones asignadas por la Institución.
+k) Informar al Equipo de Gestión y Asesoría Administrativa o al Coordinador del Equipo de Administración y Finanzas de la Gerencia Regional, o a su jefe inmediato, cualquier anomalía que se presente en la ejecución del trabajo.
+l) Guardar discreción de los asuntos que se comenten en su presencia.
+m) Portar siempre la tarjeta original de derechos de circulación, propiedad y revisión técnica en el vehículo oficial asignado, la licencia de conducir, así como el permiso para conducir vehículos del IMAS y el formulario correspondiente debidamente cumplimentado.
+n) Guardar los vehículos únicamente en los lugares autorizados por el Equipo de Gestión y Asesoría Administrativa o el Coordinador del Equipo de Administración y Finanzas de la Gerencia Regional, según corresponda, al finalizar la jornada laboral.
+ñ) Dar el uso adecuado a la tarjeta electrónica para compra de combustible con la que únicamente adquirirá combustible para el vehículo oficial que conduzca de acuerdo con los parámetros establecidos.
+o) Aquellas establecidas en el Artículo 109 del Reglamento Autónomo de Servicios.

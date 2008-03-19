@@ -1,0 +1,1 @@
+Artículo 60.—Resguardo y uso de la tarjeta electrónica de compra de combustible. Todo tarjetahabiente, deberá resguardarla y darle el uso correcto, para evitar su extravío o robo. De no cumplirse con esta disposición y de producirse una pérdida, el funcionario deberá de asumir el costo respectivo por reposición.

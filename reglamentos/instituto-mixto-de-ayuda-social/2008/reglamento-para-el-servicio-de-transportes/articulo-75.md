@@ -1,0 +1,1 @@
+Artículo 75.—De la definición de controles internos. El Equipo Gestión y Asesoría Administrativa. será la responsable de definir las normas y procedimientos de control interno adicionales, que estime necesarias, tendientes a lograr un uso adecuado de los vehículos.
