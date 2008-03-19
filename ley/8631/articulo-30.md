@@ -1,0 +1,7 @@
+CAPÍTULO V
+RECURSOS FÍSICOS Y ECONÓMICOS
+ARTÍCULO 30.- Recursos
+a) El financiamiento del sistema de Registro de Variedades Protegidas se cubrirá por medio del fondo generado con el cobro de los servicios prestados y los aportes financieros recibidos del Estado, mediante presupuestos ordinarios y extraordinarios de la República. Estos fondos serán depositados en una cuenta de la Ofinase que se abrirá en cualquier banco del Sistema Bancario Nacional y su administración estará bajo el control de la Contraloría General de la República.
+b) Para la implementación de esta Ley, el Estado dotará a la Ofinase de la infraestructura y el equipo básico así como de las facilidades requeridas. Igualmente, se le facultará para la contratación de personal y servicios especializados que se financiarán con los recursos generados por la aplicación de esta Ley.
+c) Para los fines de la presente Ley, las instituciones del Estado quedan facultadas para que donen o transfieran de su patrimonio, a la Ofinase, todo tipo de bienes muebles e inmuebles, previo cumplimiento de los procedimientos establecidos en la legislación nacional para tales efectos.
+d) Se faculta a la Ofinase para que reciba todo tipo de donaciones, sea en efectivo o por medio de bienes muebles e inmuebles procedentes del Estado y de instituciones públicas costarricenses, así como de gobiernos con los que se establezcan convenios de cooperación.

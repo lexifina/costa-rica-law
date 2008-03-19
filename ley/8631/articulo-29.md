@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Licencias obligatorias
+Cuando lo exijan razones calificadas de interés público, el Poder Ejecutivo, mediante decreto, podrá limitar, en cualquier momento, el derecho del obtentor mediante una licencia obligatoria, aun sin el acuerdo de su titular, para que el derecho sea explotado por una entidad estatal o por terceros autorizados por el Gobierno. El titular del derecho objeto de la licencia obligatoria deberá ser notificado.
+Las condiciones para la concesión de las licencias obligatorias, así como el derecho del obtentor a recibir una remuneración equitativa se definirán en el Reglamento de esta Ley.

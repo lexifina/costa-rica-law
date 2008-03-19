@@ -1,0 +1,2 @@
+ARTÍCULO 23.- Excepción al derecho para el agricultor
+No lesiona el derecho del obtentor, quien reserve y siembre en su propia explotación, dentro de los límites razonables y a reserva de la salvaguarda de los intereses legítimos de los obtentores, el producto de la cosecha que haya obtenido por el cultivo, en su propia explotación, de una variedad protegida o de una variedad cubierta por el inciso c) del artículo 18 de esta Ley. Se exceptúan de esta disposición las variedades de las especies frutícolas, ornamentales y forestales, cuando se persigan fines comerciales.
