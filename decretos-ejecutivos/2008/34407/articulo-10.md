@@ -1,0 +1,12 @@
+Artículo 10.—Para realizar cambios en los manuales institucionales de clases, estudios integrales u homologaciones, las entidades públicas, ministerios y demás órganos según corresponda, considerarán los siguientes aspectos:
+a) Justificar los cambios orientados a lograr una mejoría en la prestación del servicio público, incluyendo un estudio de costo beneficio, impacto y cobertura en los servicios que se brindan.
+b) Especificar para cada clase, las actividades más relevantes que permitan identificar los cargos que la componen.
+c) Costo anual producto del estudio y fuente de financiamiento.
+d) Contar con una reorganización o reestructuración administrativa aprobada por el Jerarca Supremo, excepto cuando se refiera a modificaciones en la especificación de una clase o que obedezca a cambios en los procesos organizacionales, actividades o productos, sin que eso signifique una variación en la estructura organizacional.
+e) Comunicar a la STAP la fecha de inicio del estudio.
+f) Una vez concluido el estudio y antes de su presupuestación, el Jerarca Supremo autorizará el envío del proyecto de cambios en el manual institucional de clases, estudios integrales u homologaciones, con la documentación respectiva, para estudio y verificación por parte de la STAP del cumplimiento de los procedimientos vigentes.
+La solicitud y la documentación pertinente, se presentará a la STAP en forma completa, en caso contrario, se le otorgará un plazo máximo de 10 días hábiles para que remita la información faltante, de no recibirse esta en el plazo estipulado, se devolverá la documentación.
+Realizado el proceso de verificación por parte de la STAP, se le comunicará el resultado para que efectúen los ajustes necesarios u observaciones, si las tuvieren y lo someta a conocimiento del Jerarca Ejecutivo, quien se pronunciará y comunicará a la STAP lo acordado.
+g) La aprobación definitiva por parte del Jerarca Supremo, se emitirá una vez agotadas las observaciones y terminado el proceso de verificación por parte de la STAP.
+h) La fecha de rige será el primer día del mes siguiente a aquel en que se emita la aprobación definitiva; a partir de esa fecha se podrán ubicar en las nuevas clases, a los funcionarios que cuenten con los requisitos académicos y legales establecidos en estas.
+i) Aquellos que no reúnan los requisitos de grado académico y los legales exigidos para una clase superior a la que ostentan, serán ubicados en una clase para la cual cuenten con los requisitos mínimos exigidos dentro del manual institucional de clases vigente.

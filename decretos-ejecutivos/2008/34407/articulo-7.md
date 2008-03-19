@@ -1,0 +1,1 @@
+Artículo 7º—Toda estructura organizacional, así como su modificación, deberá contar con la aprobación del Jerarca Supremo con la respectiva autorización del Ministro Rector del Sector al que pertenezca la entidad pública, ministerio u órgano, de conformidad con el Decreto Ejecutivo Nº 26893-MTSS-PLAN de 6 de enero de 1998 y sus reformas.
