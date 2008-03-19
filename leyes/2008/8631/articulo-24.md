@@ -1,0 +1,3 @@
+ARTÍCULO 24.- Mantenimiento del derecho
+Para mantener en vigencia la protección, el titular del derecho de una obtención vegetal deberá conservar, durante el período de protección, el material genético correspondiente a la variedad protegida o, cuando proceda, a sus componentes hereditarios, y pagar un costo anual a la Ofinase.
+La Ofinase podrá requerir al titular de un derecho de obtención vegetal para que presente, en los plazos que establezca el Reglamento de esta Ley, la información, los documentos, las muestras o el material que estime necesarios, a fin de verificar su adecuado mantenimiento.

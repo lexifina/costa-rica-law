@@ -1,0 +1,2 @@
+ARTÍCULO 48.– Inspecciones
+Los funcionarios autorizados podrán realizar las acciones que correspondan acorde a nuestro ordenamiento jurídico, para garantizar el cumplimiento de la observancia de las obtenciones vegetales; para ello, las personas físicas o jurídicas dedicadas al trasiego de obtenciones vegetales, previa identificación del funcionario, colaborarán y facilitarán las inspecciones que realicen los inspectores aquí acreditados.

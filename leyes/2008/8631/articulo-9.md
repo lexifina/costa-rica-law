@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Protección provisional
+El solicitante tendrá derecho a reclamar una indemnización por daños y perjuicios contra cualquier persona que, durante el período comprendido entre la fecha de publicación de la solicitud y la fecha de otorgamiento del certificado de obtentor, haya realizado actos que, tras la concesión del derecho, requieran la autorización del obtentor. Esta indemnización quedará sujeta a la concesión del certificado de obtentor. La publicación surtirá los efectos de una notificación ante terceros.

@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Interés público
+Decláranse de interés público la actividad de generación de variedades protegidas y la concesión de título de obtención varietal por parte de personas físicas y jurídicas costarricenses, públicas o privadas, por los beneficios que esto deriva al desarrollo y la competitividad agropecuaria nacional. El Estado deberá incluirlas dentro del Plan Nacional de Desarrollo, en total complemento con la legislación nacional vigente que vela por el acceso y la tutela de la biodiversidad, los derechos comunitarios sui géneris y el conocimiento asociado.
