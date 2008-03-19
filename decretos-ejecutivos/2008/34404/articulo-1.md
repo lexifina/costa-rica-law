@@ -1,0 +1,25 @@
+Nº 34404-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas, los artículos 1º, 21, 23, 24 y 25 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001, sus reformas y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero del 2006 y sus reformas.
+Considerando:
+I.—Que con el fin de lograr una mayor eficiencia y eficacia en la asignación de los recursos públicos, es de especial relevancia racionalizar su uso, sin menoscabo de la atención a los sectores prioritarios de desarrollo definidos por el Poder Ejecutivo.
+II.—Que en aras de una política fiscal responsable y financieramente sostenible, en concordancia con las prioridades, objetivos y estrategias fijadas en el Plan Nacional de Desarrollo elaborado por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), y de acuerdo con las proyecciones macroeconómicas realizadas por el Ministerio de Hacienda (MH) y el Banco Central de Costa Rica (BCCR), es necesario establecer directrices que regulen el crecimiento del gasto público.
+III.—Que la Autoridad Presupuestaria (AP) de conformidad con los artículos 1º, 9º, 21, 23, 24 y 25 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 de 16 de octubre del 2001, sus reformas y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN, publicado en La Gaceta Nº 74 de 18 de abril del 2006 y sus reformas, está facultada para formular las directrices de política presupuestaria para las entidades públicas, ministerios y demás órganos, según corresponda, cubiertos por su ámbito.
+IV.—Que la AP formuló las directrices, mediante el acuerdo Nº 8314, tomado en la sesión ordinaria Nº 02-2008, celebrada el 25 de febrero del 2008.
+V.—Que el Consejo de Gobierno conoció las directrices en el artículo dos en la sesión número ochenta y tres, celebrada el cinco de marzo del dos mil ocho. Por tanto,
+Decretan:
+Directrices Generales de Política Presupuestaria
+para las Entidades Públicas, Ministerios y
+demás Órganos, según corresponda,
+cubiertos por el Ámbito de la
+Autoridad Presupuestaria,
+para el Año 2009
+CAPÍTULO I
+Del gasto presupuestario
+Artículo 1º—El gasto presupuestario de las entidades públicas, ministerios y demás órganos, para el año 2009 podrá incrementarse hasta un máximo de 6% con respecto al gasto presupuestario máximo autorizado para el 2008, según el artículo 1º del Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 de 22 de marzo del 2007; del cual se deducirán las ampliaciones a dicho gasto que corresponden a gastos no recurrentes.
+Los montos autorizados resultantes serán comunicados por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) a más tardar el 30 de abril del 2008.
+Para aquellas entidades públicas y demás órganos que ingresen al ámbito de la AP, la STAP comunicará el gasto presupuestario máximo, considerando el porcentaje de crecimiento antes indicado.
+Las entidades públicas, ministerios y demás órganos darán prioridad al financiamiento para atender las acciones estratégicas consideradas en el Plan Nacional de Desarrollo (PND).
+En caso de que el gasto presupuestario máximo establecido, no permita a alguna entidad pública o a un órgano financiar en su totalidad las acciones estratégicas iniciadas en el 2008 o en años anteriores, podrán sobrepasar el 6%, porcentaje señalado en el párrafo primero de este artículo, para dar contenido presupuestario a dichas acciones, siempre y cuando cuente con recursos propios. Para ello, presentarán la solicitud y su respectiva justificación a la AP, previo a su ejecución.
+En el caso de los ministerios, el Ministerio de Hacienda, podrá asignar recursos adicionales a dicho porcentaje, considerando las prioridades establecidas en el PND y las posibilidades fiscales. Lo anterior será comunicado por el Ministerio de Hacienda a más tardar el 15 de abril del 2008.

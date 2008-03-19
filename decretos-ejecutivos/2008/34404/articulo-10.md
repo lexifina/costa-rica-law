@@ -1,0 +1,1 @@
+Artículo 10.—Cuando el jerarca supremo de una entidad pública, ministerio u algún órgano apruebe una reestructuración administrativa con la respectiva autorización del Ministro Rector del Sector al que pertenezca y de generarse algún costo asociado a ella, este se contemplará en el gasto presupuestario máximo autorizado.
