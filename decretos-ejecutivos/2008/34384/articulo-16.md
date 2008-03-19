@@ -1,0 +1,3 @@
+Artículo 16.—El Departamento de Declaración de Derechos tiene a su cargo la gestión del proceso de declaración de derechos de pensión y jubilación, sobrevivencia, revisión o cualquier otra gestión relacionada con el disfrute de las pensiones o jubilaciones concedidas, conforme con la normativa vigente para cada uno de los diferentes Regímenes de Pensión con cargo al Presupuesto Nacional, que administra la Dirección Nacional.
+En el caso del Régimen de Pensiones y Jubilaciones del Magisterio Nacional elaborar la propuesta de aprobación de la resolución final emitida por la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+Para los Regímenes de Guerra y Gracia emitirá los informes técnicos correspondientes para el conocimiento de cada una de las Juntas.
