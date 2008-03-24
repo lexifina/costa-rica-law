@@ -15,3 +15,4 @@ Lista Oficial de Peritos (NOTA: La Corte Suprema de Justicia, mediante Circular 
 | 1 | 2007-06-05 | la propia norma |
 | 2 | 2007-07-20 | Circular 45 (2007-07-20) |
 | 3 | 2008-01-30 | Circular 3 (2008-01-30) |
+| 4 | 2008-03-24 | Circular 11 (2008-03-24) |

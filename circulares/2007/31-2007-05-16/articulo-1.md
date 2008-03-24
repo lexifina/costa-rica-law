@@ -1,4 +1,5 @@
 CIRCULAR Nº 31-2007
+(Nota: Mediante circular N° 11 del 24 de marzo de 2008, publicada en el Boletín Judicial N° 68 del 8 de abril de 2008, se comunica la ampliación de esta lista, así como que se e hacen algunas inclusiones, exclusiones, suspensiones y correcciones de números teléfonicos. Dicha circular puede consultarse en el sistema)
 DE: Lic. Alfredo Jones León, Director Ejecutivo.
 PARA: Todas las oficinas judiciales del país y peritos designados.
 ASUNTO: Lista Oficial de Peritos.
