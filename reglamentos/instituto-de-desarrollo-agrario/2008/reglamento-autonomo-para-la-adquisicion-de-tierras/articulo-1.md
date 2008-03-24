@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue derogado por acuerdo N° 3 de la sesión N° 006 del 24 de marzo de 2008).
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO AUTÓNOMO PARA
 LA ADQUISICIÓN DE TIERRAS
