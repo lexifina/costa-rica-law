@@ -1,0 +1,2 @@
+Artículo 8º—Cuando existan varios funcionarios interesados en participar en una misma actividad de capacitación y se haya detectado una necesidad dentro de la Institución, deberá gestionarse la realización de la capacitación exclusivamente para la Municipalidad.
+Podrán participar todos los funcionarios que cumplan con los requisitos contemplados en el artículo 7, de este reglamento.

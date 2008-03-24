@@ -1,0 +1,2 @@
+Artículo 2º—El sistema de becas pretende promover la capacitación de los funcionarios municipales, en el marco de sus planes de desarrollo institucional, que dará como resultado una mayor calidad y actualidad de los conocimientos que se aplican en todo el ámbito municipal.
+Por capacitación se entenderá el conjunto de actividades destinadas a ampliar, actualizar y mejorar los conocimientos y las destrezas de los funcionarios, con el fin de que desempeñen adecuadamente su labor en el campo en que de desenvuelvan dentro del engranaje de la institución.

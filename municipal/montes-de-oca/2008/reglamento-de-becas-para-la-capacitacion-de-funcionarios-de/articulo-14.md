@@ -1,0 +1,1 @@
+Artículo 14.—En caso de renuncia, despido sin responsabilidad patronal, incumplimiento o cancelación del contrato de beca, por causas imputables al beneficiario, este reintegrará a la Municipalidad, todas las sumas desembolsadas por cualquier concepto, incluyendo el salario si hubiere gozado de este beneficio.

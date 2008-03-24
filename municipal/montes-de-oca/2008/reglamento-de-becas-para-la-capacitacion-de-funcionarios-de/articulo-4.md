@@ -1,0 +1,2 @@
+Artículo 4º—La duración de la capacitación podrá ser por horas, días, o por plazos de un mes, un bimestre, trimestre, cuatrimestre, o semestre, no pudiendo extenderse por mas de un año. En casos calificados, se podrán conceder por períodos mayores para asistir a cursos de especialización o realizar estudios de postgrado.
+Las becas se concederán por los períodos indispensables para concluir el programa de estudios, presentar las pruebas o exámenes de aprobación, y la sustentación de la tesis, si la hubiere.
