@@ -14,3 +14,4 @@ Reglamento de Fondos Rotativos de Trabajo, Caja Chica y Viáticos del Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-29 | la propia norma |
+| 2 | 2008-03-24 | Reglamento 4332 (2008-03-24) |
