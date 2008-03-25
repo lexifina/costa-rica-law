@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones públicas deberán difundir ampliamente los objetivos de esta conmemoración. Asimismo deberán facilitar, promover y apoyar las acciones orientadas a la erradicación de la homofobia.
