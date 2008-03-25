@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento del Pago Disponibilidad a los Funcionarios de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-10 | la propia norma |
+| 2 | 2008-03-25 | Reglamento 4247 (2008-03-25) |

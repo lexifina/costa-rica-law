@@ -1,1 +1,1 @@
-Artículo 12.—El servidor que sea declarado en disponibilidad, tendrá derecho a que se le pague un sobresueldo por concepto de disponibilidad. Dicho sobresueldo será de un máximo del 20 % sobre el salario base del funcionario.
+Artículo 12.—El servidor que sea declarado en disponibilidad, tendrá derecho a que se le pague un sobresueldo por concepto de disponibilidad. Dicho sobresueldo será de un máximo del 20% sobre el salario base del funcionario.
