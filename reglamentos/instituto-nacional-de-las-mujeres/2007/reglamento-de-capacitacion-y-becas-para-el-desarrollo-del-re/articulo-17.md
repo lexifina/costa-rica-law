@@ -1,0 +1,1 @@
+Artículo 17.—De las ausencias de las (os) miembros: La persona propietaria que dejare de asistir injustificadamente a más de tres sesiones consecutivas, se le aplicará el Reglamento Autónomo de Servicios por falta de mera comprobación a sus funciones.

@@ -1,0 +1,1 @@
+Artículo 28.—De la designación de oficio: La CCAD, considerando la importancia de la actualización del recurso humano para el INAMU, podrá designar mediante valoración interna, una o más funcionarias o funcionarios para asistir a una capacitación determinada.

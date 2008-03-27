@@ -1,0 +1,1 @@
+Artículo 36.—Objeción de la jefatura inmediata: En el caso de objeción de la jefatura inmediata para que la persona goce del beneficio de beca o facilidad, su negativa debe presentarse razonada por escrito ante la CCAD, la cual emitirá criterio técnico y elevará la solicitud a la Presidenta Ejecutiva del INAMU, quién decidirá en definitiva.

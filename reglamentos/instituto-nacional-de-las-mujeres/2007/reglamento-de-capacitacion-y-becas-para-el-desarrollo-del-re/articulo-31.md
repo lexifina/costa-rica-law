@@ -1,0 +1,1 @@
+Artículo 31.—De la aprobación por Junta Directiva: Las becas que impliquen una erogación anual mayor a mil quinientos dólares exactos (US $1.500.00) deben contar para su aprobación con Acuerdo de aprobación de la Junta Directiva. Dicho monto podrá ser revisado y modificado anualmente por esta instancia.

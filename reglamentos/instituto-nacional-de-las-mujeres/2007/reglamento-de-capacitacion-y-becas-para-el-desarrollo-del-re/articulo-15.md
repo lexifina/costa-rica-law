@@ -1,0 +1,1 @@
+Artículo 15.—Del quórum: Para garantizar el quórum debe contarse con la presencia de al menos tres integrantes de la Comisión, o sus representantes. Cada integrante de la CCAD, tendrá su suplente quien sustituirá sus ausencias y será elegida o elegido de la misma manera que los y las integrantes titulares.

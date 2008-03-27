@@ -1,0 +1,1 @@
+Artículo 53.—Vigencia. El presente Reglamento fue aprobado por la Junta Directiva del INAMU mediante acuerdo número tres del acta número seis-dos mil siete (Nº 6-2007) del ocho (8) de febrero del dos mil siete (2007). Entra en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

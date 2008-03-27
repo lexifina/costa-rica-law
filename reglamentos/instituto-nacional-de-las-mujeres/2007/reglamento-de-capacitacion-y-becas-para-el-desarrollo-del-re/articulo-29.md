@@ -1,0 +1,1 @@
+Artículo 29.—Del control de licencias: Las licencias de estudio definidas en el Reglamento Autónomo de Servicios que autoriza la Presidencia Ejecutiva deberán ser comunicadas a la CCAD, para su seguimiento y recomendación, cuando corresponda.

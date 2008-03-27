@@ -1,0 +1,1 @@
+Artículo 49.—De las erogaciones: Las erogaciones del presupuesto de la CCAD sólo podrán realizarse con un acuerdo previo de la Comisión. Las órdenes de Bienes y Servicios serán firmadas por la Presidencia de la CCAD y autorizadas por la Dirección Administrativa Financiera.

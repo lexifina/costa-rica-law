@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del procedimiento en general
+Artículo 22.—De las necesidades de capacitación: Las iniciativas en materia de becas, capacitación y formación del recurso humano podrán partir de la CCAD o del personal. Los y las funcionarias tendrán derecho a plantear a la CCAD sus iniciativas y motivaciones de capacitación o formación profesional, pudiendo la CCAD abrir la participación a todos y todas las funcionarias del Instituto en igualdad de condiciones, con base a las políticas y prioridades institucionales
+Las personas coordinadoras de áreas o las jefaturas de unidades deberán presentar en la última quincena de junio de cada año, las necesidades de capacitación, para ser contempladas en la elaboración del Plan de Capacitación de la CCAD. Lo anterior sin perjuicio de que la CCAD pueda realizar los diagnósticos institucionales que se requieran.

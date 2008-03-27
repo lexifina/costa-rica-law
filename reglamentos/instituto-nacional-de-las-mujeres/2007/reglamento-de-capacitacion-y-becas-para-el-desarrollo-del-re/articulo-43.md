@@ -1,0 +1,1 @@
+Artículo 43.—El beneficiario o la beneficiaria deberá prestar los servicios a los que se refiere el artículo anterior en el INAMU; salvo convenio de las partes para que los preste en otra dependencia del Estado, la que asumirá por entero las obligaciones y responsabilidades contractuales contraídas por éste.

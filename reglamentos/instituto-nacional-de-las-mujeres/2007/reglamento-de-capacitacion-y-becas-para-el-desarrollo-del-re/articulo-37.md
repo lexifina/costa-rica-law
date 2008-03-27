@@ -1,0 +1,1 @@
+Artículo 37.—De la recepción de solicitudes: El Área de Recursos Humanos será la encargada de recibir la información que debe presentar la persona interesada en cada solicitud de beca, presentando el expediente de capacitación a la CCAD para su análisis y verificación.
