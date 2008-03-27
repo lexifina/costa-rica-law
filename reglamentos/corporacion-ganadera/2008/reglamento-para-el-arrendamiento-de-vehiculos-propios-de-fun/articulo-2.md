@@ -1,0 +1,3 @@
+Artículo 2°—Objeto:
+2.1 El presente Reglamento tiene por objetivo primordial establecer las regulaciones que permitan que CORFOGA autorice a sus funcionarios para el uso de sus propios vehículos en funciones exclusivas de su cargo, entendiéndose por éstas, el desempeño de los trabajos oficiales de la Institución que le son normalmente asignados o que les fueren encargados y que, a tales fines, requieran su traslado a diversas zonas del territorio nacional en el tanto la corporación no cuente con vehículo disponible .
+2.2 Todo funcionario que, con sujeción al presente Reglamento, pusiere a disposición de CORFOGA el vehículo de su propiedad, obtendrá por este concepto una retribución, según lo establecido al efecto.

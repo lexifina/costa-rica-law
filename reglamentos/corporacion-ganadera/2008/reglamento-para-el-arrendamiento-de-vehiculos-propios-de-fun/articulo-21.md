@@ -1,0 +1,1 @@
+Artículo 21.—Rescisión. En cualquier momento CORFOGA podrá rescindir unilateralmente, por motivos de interés público, caso fortuito o fuerza mayor, las contrataciones que se hubieren efectuado al amparo del presente Reglamento, en cuyo caso deberá comunicar al interesado sobre las causas que darían origen a dicha decisión administrativa.

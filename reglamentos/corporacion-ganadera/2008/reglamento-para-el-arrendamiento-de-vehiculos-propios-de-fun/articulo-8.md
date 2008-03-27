@@ -1,0 +1,1 @@
+Artículo 8°—Obligatoriedad de cumplimiento de los requisitos del Reglamento. En ningún caso se incluirá dentro del “Registro de Elegibles”, ni se podrá contratar ni autorizar el uso de un vehículo propiedad de funcionarios para que ejerza labores o gestiones de CORFOGA, si de previo el propietario no ha cumplido con la totalidad de los requisitos establecidos en este Reglamento.

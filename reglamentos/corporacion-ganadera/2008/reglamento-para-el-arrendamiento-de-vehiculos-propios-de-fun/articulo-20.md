@@ -1,0 +1,3 @@
+Artículo 20.—Coordinación de giras.
+20.1 En lo posible se coordinarán los servicios de modo tal que en un mismo vehículo, propiedad de un funcionario, pudiere transportarse, además, cualquier otro funcionario de la misma dependencia, que deba efectuar el mismo recorrido, aún en el caso de que estuviese también el vehículo propiedad de este último al servicio de CORFOGA bajo la modalidad de un contrato de arrendamiento al amparo de las estipulaciones del presente Reglamento.
+20.2 La respectiva jefatura o el superior inmediato de ambos funcionarios decidirá sobre el vehículo que efectuará la gira, cuando hubiere varios automotores disponibles propiedad de dichos funcionarios.

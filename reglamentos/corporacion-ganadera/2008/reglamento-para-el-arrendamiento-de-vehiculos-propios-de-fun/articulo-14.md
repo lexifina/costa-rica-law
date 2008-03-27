@@ -1,0 +1,5 @@
+Artículo 14.—Del adelanto y pago por gira:
+14.1 Adelanto por concepto de gastos de kilometraje. Cuando los funcionarios propietarios autorizados para hacer uso de sus vehículos, conforme a las disposiciones del presente Reglamento, tuvieren que efectuar giras prolongadas, CORFOGA podrá, si así lo juzga pertinente, otorgar un adelanto por concepto de gastos de kilometraje.
+14.2 A los efectos de dicho adelanto, deberá confeccionarse una fórmula específica que deberá ser suscrita por el funcionario propietario y su superior inmediato, explicativa de las razones de dicha gira, su duración y la estimación aproximada de los gastos que se deriven por concepto de kilometraje.
+14.3 La liquidación o pago por gira se efectuará en aquellos casos en que la respectiva cancelación se hiciere dentro del plazo o término improrrogable de los siete (7) días hábiles siguientes a la conclusión de la gira, y en tal evento se consignará en el formulario correspondiente el número de kilómetros realmente recorridos.
+14.4 Si la liquidación no se realizare dentro de dicho plazo, las subsiguientes giras no se autorizarán.

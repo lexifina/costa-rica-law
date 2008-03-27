@@ -1,0 +1,1 @@
+Artículo 10.—No calificación como salario en especie. Las sumas que los funcionarios propietarios percibieren por concepto de arrendamiento de sus vehículos, CORFOGA, conforme se dispone por el presente Reglamento, no constituirán en ninguna circunstancia “salario en especie”, por lo cual no podrán considerarse para el cálculo de sus respectivos derechos laborales.

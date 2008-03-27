@@ -1,0 +1,1 @@
+Artículo 23.—Término por mutuo acuerdo. En cualquier momento, de mutuo acuerdo, CORFOGA y el funcionario propietario podrán poner término a la contratación que se hubiere llevado a cabo, a cuyo efecto deberán suscribir documento de la aceptación expresa de las partes en dar por concluida dicha contratación.
