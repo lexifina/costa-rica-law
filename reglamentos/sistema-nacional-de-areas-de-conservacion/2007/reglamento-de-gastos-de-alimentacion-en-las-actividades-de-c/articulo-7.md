@@ -1,0 +1,3 @@
+Artículo 7º—Control sobre el uso de alimentos y bebidas. Para efectos del artículo anterior, en la Dirección General así como en cada Dirección Regional del SINAC, deberá mantenerse un registro actualizado y en orden cronológico de las reuniones realizadas, en el que conste al menos:
+a) Detalle de las reuniones celebradas por los funcionarios autorizados, indicando fecha y hora de la reunión, lugar donde se llevó a cabo y nombre y cantidad de asistentes a la misma; así como dependencia para la cual laboran.
+b) Comprobantes de las compras de alimentos y bebidas destinados a la atención de personas en reuniones oficiales.

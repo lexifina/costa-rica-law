@@ -1,0 +1,7 @@
+Artículo 8º—Parámetros de aplicación en la contratación de servicios de alimentación. La contratación de servicios de alimentación deberá obedecer a una actividad de capacitación, protocolo o de trabajo, debidamente organizada y convocada formalmente por el funcionario competente, justificada dentro de las actividades y planes de trabajo del área o unidad respectiva y deberá ajustarse a los siguientes lineamientos y requisitos:
+a) Existencia de un documento formal y oficial que respalde la actividad a realizar y donde se especifique el día, hora, lugar y cantidad de participantes o asistentes.
+b) Visto bueno del Director General o del Director de Área respectivo.
+c) El horario estimado para determinar la procedencia de contratación de alimentación, deberá corresponder a la agenda programada para la actividad, la cual deberá responder a principios de razonabilidad y proporcionalidad.
+d) En caso de actividades en las que participen exclusivamente funcionarios, de ser necesario programar desayuno, almuerzo o cena, deberá garantizarse que el costo por participante o asistente sea inferior al estipulado para esos conceptos por el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, vigente.
+d) En caso de ser necesario programar refrigerios, los mismos deberán incluir como máximo tres bocadillos por participante o asistente.
+e) Queda terminantemente prohibida la adquisición y utilización de bebidas alcohólicas para dichas actividades.

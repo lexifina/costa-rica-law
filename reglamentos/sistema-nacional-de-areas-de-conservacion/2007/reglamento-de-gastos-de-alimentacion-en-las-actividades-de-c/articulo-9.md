@@ -1,0 +1,1 @@
+Artículo 9º—Normativa aplicable. El procedimiento para contratar los servicios de alimentación o adquirir los alimentos y bebidas en los términos expuestos en este Reglamento deberá ajustarse en todos sus extremos a lo dispuesto por la Ley N° 7494 “Ley de Contratación Administrativa”, y el Decreto N° 33411-H, “Reglamento a la Ley de Contratación Administrativa”.
