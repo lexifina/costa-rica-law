@@ -1,0 +1,1 @@
+Artículo 23.—Las becas promovidas por la CCAD y sometidas a concurso entre todas las funcionarias y los funcionarios del INAMU se otorgarán de acuerdo a lo establecido en los artículos 32 y 33 del reglamento de capacitación.

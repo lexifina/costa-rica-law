@@ -1,0 +1,1 @@
+Artículo 10.—En el caso de que se requiera la elaboración de un trabajo final de graduación, la persona beneficiaria se compromete a entregar una copia del mismo a la Unidad de Documentación del INAMU.

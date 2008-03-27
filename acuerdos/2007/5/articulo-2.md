@@ -1,0 +1,1 @@
+Artículo 2º—Las becas u otras facilidades de capacitación, excepto las contempladas en el artículo 30 del Reglamento, deberán enviarse a la CCAD con al menos 15 días hábiles, para que, previo estudio técnico, se determine si reúne las características necesarias para declararla de interés institucional.

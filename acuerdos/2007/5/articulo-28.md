@@ -1,0 +1,1 @@
+Artículo 28.—En sus reuniones ordinarias, la CCAD comprobará como punto de agenda, la revisión del informe del Área de Recursos Humanos relativo al cumplimiento de las obligaciones contraídas por el personal como consecuencia de las becas o facilidades de capacitación.

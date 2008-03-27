@@ -1,0 +1,8 @@
+CAPÍTULO VI
+De las sanciones
+Artículo 30.—Los funcionarios y las funcionarias que incumplan los compromisos derivados de las becas o facilidades otorgadas, o hagan abandono de sus estudios sin causa justificada, se harán acreedores o acreedoras de las siguientes sanciones:
+a) Abandono de sus estudios de formación en el ámbito local: por un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que haya incurrido el INAMU, junto con sus respectivos intereses.
+b) Abandono de estudios en el exterior: por dos años de suspensión de toda beca o facilidad de capacitación más el reintegro de los costos en que haya incurrido el INAMU, junto con sus respectivos intereses de mercado.
+c) Incumplimiento en el aprovechamiento de dos o más asignaturas financiadas por el INAMU: un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que haya incurrido junto con los respectivos intereses de ley.
+d) Incumplimiento en el aprovechamiento en dos o más asignaturas, cuando se le ha otorgado permiso con goce de salario total o parcial: un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que se haya incurrido junto con los respectivos intereses de ley.
+e) La negativa a participar como instructora o instructor en cursos, charlas u otras actividades de capacitación relacionados con el conocimiento adquirido será sancionado con la suspensión de la funcionaria o funcionario toda actividad de capacitación hasta tanto no haya cumplido con el compromiso adquirido de beneficios anteriores.
