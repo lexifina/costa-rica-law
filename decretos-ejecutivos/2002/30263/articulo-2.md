@@ -1,1 +1,0 @@
-Artículo 2º—Rectoría del Sector Transporte. El Ministerio de Obras Públicas y Transportes en su condición de ente rector del Sector podrá emitir directrices generales en materia vial del país, respetando el ordenamiento jurídico local.

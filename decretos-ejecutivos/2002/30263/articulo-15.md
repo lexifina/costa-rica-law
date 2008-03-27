@@ -1,2 +1,0 @@
-Artículo 15.—Seguimiento y evaluación de la Gestión Vial. El MOPT pondrá a disposición de las municipalidades el SPEM o su equivalente, como herramienta estandarizada y ágil para la evaluación, planificación y programación de sus proyectos.
-La Junta Vial Cantonal a instancias del Concejo deberá realizar el seguimiento y la evaluación de los planes anuales, apoyándose en la información del Sistema de Gestión Vial de la municipalidad.

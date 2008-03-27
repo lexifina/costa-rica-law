@@ -1,1 +1,0 @@
-Artículo 41.—Actualización inmediata del inventario de la red vial cantonal. A solicitud de la Municipalidad se podrá suscribir convenios con el MOPT, por medio de la División de Obras Públicas cuando la Municipalidad requiera de la actualización de su inventario.

@@ -1,1 +1,0 @@
-Artículo 34.—De los puentes ubicados en caminos vecinales. El Gobierno Local respectivo, con apoyo del MOPT, evaluará la condición de cada uno y establecerá sobre esta base el peso máximo aceptable. Este dato deberá aparecer debidamente rotulado en cada puente.

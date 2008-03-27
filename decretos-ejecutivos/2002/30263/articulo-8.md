@@ -1,2 +1,0 @@
-Artículo 8º—Preferencia por la Modalidad Participativa de Ejecución de Obras. Los recursos provenientes de la Ley de Simplificación y Eficiencia Tributarias, deben ejecutarse preferiblemente bajo la Modalidad Participativa de Ejecución de Obras, que se define en el artículo 3, de este Reglamento.
-Esta modalidad participativa permite la utilización de cualquiera de las modalidades de ejecución de obras a que se refiere el artículo 7.

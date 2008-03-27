@@ -1,1 +1,0 @@
-Artículo 19.—Constitución de la Red Vial Cantonal. La Red Vial Cantonal estará constituida por los caminos públicos no incluidos dentro de la Red Vial Nacional y de conformidad con lo dispuesto por la Ley General de Caminos Públicos. Se compone de a) caminos vecinales o clasificados, b) calles locales y c) caminos no-clasificados.

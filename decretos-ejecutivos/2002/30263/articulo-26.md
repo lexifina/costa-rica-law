@@ -1,1 +1,0 @@
-Artículo 26.—Sistema de Codificación de la Red Vial Cantonal. Las vías públicas pertenecientes a la Red Vial Cantonal se codificarán por medio del procedimiento que para tal efecto emitirá la Dirección de Planificación Sectorial del MOPT.
