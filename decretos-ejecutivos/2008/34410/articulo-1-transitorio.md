@@ -1,0 +1,2 @@
+Transitorio I.—Los funcionarios obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha que rige este Reglamento, dispondrán de 15 días naturales después la publicación del mismo, para suscribir la póliza de fidelidad y de presentar la respectiva fotocopia confrontada en el Departamento de Recurso Humanos.
+Dado en la Presidencia de la República, a los siete días del mes de enero del año dos mil ocho.

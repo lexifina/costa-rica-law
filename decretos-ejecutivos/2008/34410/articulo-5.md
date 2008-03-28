@@ -1,0 +1,6 @@
+Artículo 5º—Monto de la garantía. La póliza de fidelidad debe de ser suscrita por un monto mínimo de ¢1.500.000,00, (un millón quinientos mil colones) ¢1.000.000,00, (un millón de colones) ¢500.000,00 (quinientos mil colones), según la siguiente Tabla:
+Cargo de puesto | Nivel de responsabilidad | Monto a caucionar ¢
+Ministro Viceministro Director General u Oficial Mayor y Directores de Programas Adscritos | Alto | 1.500.000,00
+Directora Financiera Director de Recursos Humanos Proveedor Institucional Subdirectores Generales Directores Administrativos | Medio | 1.000.000,00
+Encargados de bodegas o almacenes, en los cuales se custodien valores y bienes públicos. Encargados de activos fijos Encargados de Caja Chica. | Bajo | 500.000,00
+El Ministro de la Presidencia podrá revisar y actualizar y fijar razonablemente montos mayores al establecido en este artículo, para lo cual deberá tomar en consideración los niveles de responsabilidad, el monto administrado y el salario del funcionario responsable. Para el cumplimiento de lo anterior, necesariamente se debe de dictar la resolución administrativa debidamente motivada, conforme al estudio técnico correspondiente que el Departamento de Recursos Humanos confeccionará al efecto.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Responsabilidades y sanciones
+Artículo 13.—Responsabilidades. La Administración debe tomar medidas adicionales para el resarcimiento de daños y perjuicios incurridos por el funcionario contra el patrimonio de la Presidencia de la República y el Ministerio de la Presidencia; cuando la responsabilidad del funcionario haya sido probada, sin perjuicio de la responsabilidad administrativa y penal que corresponda. Es potestad del Ministro de la Presidencia redefinir dichos montos tomando en consideración entre otros elementos, el salario percibido, monto administrado y responsabilidad de los puestos sujetos a caución.
