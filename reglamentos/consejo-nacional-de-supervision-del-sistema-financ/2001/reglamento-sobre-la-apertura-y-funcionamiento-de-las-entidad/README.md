@@ -37,3 +37,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 22 | 2007-04-09 | Reglamento 640 (2007-04-09) |
 | 23 | 2007-04-25 | Reglamento 642 (2007-04-25) |
 | 24 | 2007-06-25 | Reglamento 655 (2007-06-25) |
+| 25 | 2008-03-28 | Reglamento 709 (2008-03-28) |
