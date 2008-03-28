@@ -1,0 +1,1 @@
+Artículo 2º—Se establece la tarifa del Impuesto Selectivo de Consumo en un quince por ciento (15%) a los “desodorantes corporales y antitranspirantes” clasificados en la posición arancelaria 3307.20.00.00.

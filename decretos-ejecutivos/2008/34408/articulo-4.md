@@ -1,0 +1,1 @@
+Artículo 4º—Se establece la tarifa del Impuesto Selectivo de Consumo en un cero por ciento (0%) a los “Sistema de frenado hidrodinámico con retardo de la transmisión, y sus partes” clasificados en la posición arancelaria 8708.30.20.
