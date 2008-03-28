@@ -1,7 +1,8 @@
 CAPITULO V
 De las obligaciones de las empresas y actividades turísticas
 Artículo 13.—Las empresas y actividades turísticas tendrán las siguientes obligaciones:
-a) Cumplir con lo que disponen este Reglamento, el artículo 31 de la Ley de la Promoción y Defensa Efectiva del Consumidor, la legislación vigente y demás normas o disposiciones especiales que regulen su funcionamiento.
+a) Cumplir con lo que disponen este Reglamento, el artículo 34 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, la legislación vigente y demás normas o disposiciones especiales que regulen su funcionamiento, incluidas aquellas que regulen todos sus servicios complementarios, entre estos casinos, bares, restaurantes, gimnasios y/o spas y salas y/o centros de conferencias y/o convenciones.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 34578 del 28 de marzo de 2008).
 b) Contar con personal idóneo para las funciones de atención al turismo. Para ello, serán considerados principalmente los siguientes factores: moralidad, presentación, uniformes, higiene, trato, idiomas y capacitación técnica específica en aquellos puestos de trabajo que la requieran.
 c) Conservar en buen estado de mantenimiento e higiene las instalaciones que ocupe, lo mismo que su mobiliario y materiales que utilice.
 d) Informar al Instituto de cualquiera modificación en la planta física, instalaciones o servicios que puedan provocar un cambio en cuanto al tipo, categoría o características principales del establecimiento.
