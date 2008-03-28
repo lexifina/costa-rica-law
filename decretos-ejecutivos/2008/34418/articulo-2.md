@@ -1,0 +1,1 @@
+Artículo 2º—Las memorias anuales institucionales deberán ser elaboradas conforme a las disposiciones contenidas en esta normativa, tanto en cuanto a aspectos formales como sustantivos. Deben ser un instrumento de evaluación que refleje, al menos, las tareas ejecutadas para cumplir las prioridades definidas por el Plan Nacional de Desarrollo y el Plan Operativo Institucional.
