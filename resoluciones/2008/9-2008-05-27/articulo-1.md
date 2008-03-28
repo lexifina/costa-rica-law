@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+AVISO
+DGT-09-2008.—Dirección General de Tributación.—San José, a las diez y treinta horas del 27 de mayo del 2008.
+Considerando:
+1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios confiere facultades a esta Dirección General para dictar normas generales, tendientes a la correcta aplicación de las leyes tributarias.
+2º—Que mediante el inciso a) del artículo 1º del Decreto Ejecutivo 25925-H del 13 de marzo de 1997 y sus reformas, denominado “Reglamento sobre Criterios Objetivos de Selección de Contribuyentes para Fiscalización”, se estableció que “corresponde a la Dirección General de Tributación emitir los criterios para la clasificación de los contribuyentes dentro de las categorías de Grandes Contribuyentes y de Grandes Empresas Regionales”.
+3º—Que mediante resolución de esta Dirección, DGT-003-2008 de las diez horas treinta minutos del veintiuno de febrero del dos mil ocho, publicada en La Gaceta Nº 61 del 28 de marzo del 2008, se establecieron las condiciones que deben cumplir los contribuyentes para ser clasificados como “gran contribuyente” y “gran empresa territorial”, incurriéndose en un error de cálculo al establecer los montos respectivos.
+4º—Que los criterios cuantitativos establecidos en la resolución DGT-003-2008 deben ajustarse de acuerdo a la dinámica de la recaudación y la evolución de las actividades económicas, así como en relación a los períodos fiscales sujetos a valoración. Por tanto,
+RESUELVE:
+Artículo 1º—Modifíquese el artículo 1º de la Resolución de esta Dirección, DGT-003-2008 de las diez horas treinta minutos del veintiuno de febrero del dos mil ocho, publicada en La Gaceta Nº 61 del 28 de marzo del 2008 para que en el inciso a) en lugar de “ciento cincuenta millones de colones“, se lea “doscientos cincuenta millones de colones (¢.250.000.000,00)”; en el inciso b) en lugar de “veinte mil millones de colones” se lea “cuarenta mil millones de colones (¢.40.000.000.000,00)”; y para que en el inciso c) en lugar de “veinte mil millones de colones “ se lea “cuarenta mil millones de colones (¢.40.000.000.000,00)”.
