@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 17.—La Auditoría Interna deberá comunicar los resultados de sus auditorías o estudios especiales de auditoría, mediante informes o memorandos, a efecto de que se tomen las decisiones del caso en tiempo, a propósito y convenientes. Dicha comunicación se dirigirá con esa finalidad al Concejo Municipal, quien es el responsable de ordenar, en primera instancia la implantación de las recomendaciones emitidas por la Auditoría Interna, para lo cual contará con un plazo de treinta días hábiles a partir de la fecha de recepción del memorando o informe.

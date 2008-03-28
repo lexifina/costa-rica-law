@@ -1,0 +1,12 @@
+Artículo 13.—Para el cumplimiento de sus deberes, la Auditoría Interna tendrá las siguientes funciones:
+a) Practicar auditorías o estudios especiales de auditoría en cualesquiera de las unidades administrativas y operativas, sistemas, procesos, operaciones, funciones, programas o actividades de la municipalidad, en el momento que considere oportuno.
+b) Evaluar en forma regular el sistema de control interno, en relación con los aspectos contables, financieros y administrativos, y de otra naturaleza, con el fin de determinar su cumplimiento, su eficiencia y validez.
+c) Verificar que los bienes patrimoniales de la municipalidad, tangibles e intangibles, propios o en custodio, estén debidamente controlados, protegidos contra pérdida, menoscabo, mal uso o desperdicio, e inscritos a nombre de la Municipalidad de Alfaro Ruiz, cuando se trate de bienes inmuebles, o de muebles sujetos a ese requisito.
+d) Evaluar el contenido informativo, la razonabilidad, la integridad, la oportunidad y la confiabilidad de la información contable, financiera, administrativa y de otro tipo, producida en e la municipalidad.
+e) Revisar en forma posterior las operaciones contables, financieras, administrativas, operativas, de sistemas, y de otra naturaleza, así como los registros, los informes, y otro tipo de documentación e información cuando lo considere pertinente.
+f) Comunicar los resultados de las auditorías o estudios especiales que realice por medio de informes escritos que contengan comentarios, conclusiones y recomendaciones.
+g) Verificar que los responsables hayan tomado las medidas y acciones pertinentes para poner en práctica las recomendaciones aceptadas por la Administración que contienen los informes de la Auditoría Interna, de los auditores externos, o de la Contraloría General.
+h) Asesorar, en asuntos de su competencia, a cualquier dependencia de la Municipalidad, e igualmente advertir a los órganos pasivos que fiscaliza, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+i) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que, legal o reglamentariamente deben llevar los órganos sujetos a su jurisdicción institucional.
+j) Establecer los instrumentos administrativos y técnicos procedentes para el funcionamiento apropiado de la Auditoría Interna.
+k) Ejercer otras funciones de fiscalización inherentes a su competencia, dentro de los lineamientos dictados por la Contraloría General, o en cumplimiento de disposiciones legales.

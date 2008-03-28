@@ -1,0 +1,1 @@
+Artículo 9º—El Auditor o Subauditores no podrán ser empleados de ningún otro departamento de la Municipalidad, ni miembros de cualquier comisión que se integre dentro la Municipalidad y el Concejo Municipal, solamente servirá como asesor y no podrá ser el último órgano administrativo en el se respalden decisiones administrativas o del Concejo Municipal.

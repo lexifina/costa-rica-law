@@ -1,0 +1,2 @@
+Artículo 7º—El Concejo Municipal deberá brindar las condiciones necesarias para que la Auditoría Interna cumpla con sus labores diarias y así poder desarrollar el Plan de Trabajo Anual, así como los estudios que ésta realizará durante el periodo. El Concejo Municipal deberá de incluir dentro
+del presupuesto anual de la Municipalidad un apartado en el cual se incluya lo relativo a las necesidades de la Auditoría Interna.

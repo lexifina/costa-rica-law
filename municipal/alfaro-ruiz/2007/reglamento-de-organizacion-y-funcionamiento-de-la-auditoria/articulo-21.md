@@ -1,0 +1,1 @@
+Artículo 21.—El Auditor Interno debe recordar expresamente en el informe a enviar al Concejo Municipal, sobre el plazo de 30 días hábiles con que cuenta ese órgano para emitir el acuerdo respectivo en relación con las recomendaciones formuladas e igualmente, le hará saber que puede –dentro de ese mismo plazo- formular sus objeciones mediante acuerdo motivado.

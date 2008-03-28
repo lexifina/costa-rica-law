@@ -1,0 +1,1 @@
+Artículo 5º—La Auditoría Interna deberá cumplir con los lineamientos que dicte el Concejo Municipal y con el Plan de Trabajo Anual que la Auditoría interna presenta todos los años ante la Contraloría General de la República y deberá presentar un informe anual de labores ante el Concejo sobre el Plan antes mencionado.

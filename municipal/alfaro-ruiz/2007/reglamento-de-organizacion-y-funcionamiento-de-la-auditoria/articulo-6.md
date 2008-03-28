@@ -1,0 +1,1 @@
+Artículo 6º—La Auditoría Interna es una unidad asesora del Concejo Municipal y de la Administración y no podrá ejercer funciones que le competen a la Administración, o bien, que tengan que ver con el giro habitual de la misma.
