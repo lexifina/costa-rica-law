@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones públicas, estatales y no estatales, podrán cooperar para facilitar las acciones que permitan al Ministerio de Educación Pública, al Instituto Nacional de Aprendizaje y a los institutos de idiomas, desarrollar los programas y proyectos dirigidos a capacitar a la población en lenguas extranjeras.
