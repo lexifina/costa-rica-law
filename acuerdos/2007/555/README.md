@@ -14,3 +14,4 @@ Autoriza por única vez a todos aquellos pescadores con licencia de pesca vencid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-08 | la propia norma |
+| 2 | 2008-03-29 | Acuerdo 127 (2008-03-29) |

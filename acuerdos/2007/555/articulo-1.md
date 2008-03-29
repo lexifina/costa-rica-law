@@ -14,7 +14,8 @@ b. Presentar copia de la última licencia de pesca o certificación emitida por 
 c. Aportar certificado de navegabilidad al día.
 d. Aportar boleta de inspección realizada por las autoridades de INCOPESCA.
 e. Presentar su solicitud ante las autoridades de INCOPESCA, correspondientes y dentro del plazo que fija este acuerdo.
-2. Para cumplir con esta disposición se concede un plazo de 90 días naturales contados a partir de la entrada en vigencia de este acuerdo.
+2. Para cumplir con esta disposición se concede un plazo de 120 días naturales contados a partir de la entrada en vigencia de este acuerdo.
+(Así reformado el punto anterior por acuerdo AJDIP/127 del 29 de marzo de 2008)
 3. Vencido este plazo de procederá con la cancelación administrativa de todas las licencias de pesca vencidas para lo cual deberá el Departamento de Protección y Registro, y las Direcciones y Oficinas Regionales, proceder a emitir inventario de todas las licencias de pesca vencidas en un plazo no mayor de 15 días naturales después de vencido el termino que otorga este acuerdo a la Junta Directiva a efecto de iniciar las gestiones de cancelación administrativa.
 4. Instrúyase a la Presidencia Ejecutiva a efecto de que por medio del Departamento de Extensión y Capacitación, y Directores y Jefes Regionales, comuniquen esta disposición a las comunidades y organizaciones pesqueras de todo el país.
 5. Se exceptúa de los alcances de este acuerdo las licencias de pesca vencidas que pertenezcan a la parte interna del Golfo de Nicoya, de conformidad con lo expuesto en el considerando 5 de este acuerdo.
