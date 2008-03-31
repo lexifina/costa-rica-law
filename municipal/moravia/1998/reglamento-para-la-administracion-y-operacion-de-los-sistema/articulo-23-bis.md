@@ -1,0 +1,2 @@
+Artículo 23 bis.—Daños a la infraestructura: Cualquier persona que provoque daños a la infraestructura del sistema de estacionamientos, como a la señalización vertical u horizontal, boletas, permisos de estacionamiento, o sin contar con vehículo obstaculicen el uso de las zonas definidas en este Reglamento, serán denunciados penalmente por el delito que corresponda y deberán resarcir los daños causados así como los costos de la acción judicial correspondiente.
+(Así adicionado mediante acuerdo N° 1252 de la sesión N° 100 del 31 de marzo de 2008)
