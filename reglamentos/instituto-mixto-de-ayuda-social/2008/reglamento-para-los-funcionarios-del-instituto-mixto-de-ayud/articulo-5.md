@@ -1,0 +1,1 @@
+Artículo 5º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen los puestos de Jefe de Unidad Administrativa., Coordinador del Equipo de Planeamiento e Información Social, Subauditor Interno u otros Titulares Subordinados.

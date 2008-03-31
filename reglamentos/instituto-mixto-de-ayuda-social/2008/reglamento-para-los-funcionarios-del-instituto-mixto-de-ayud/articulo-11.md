@@ -1,0 +1,1 @@
+Artículo 11.—De la cancelación de la obligación de caucionar. El deber de caucionar cesará por renuncia, despido o traslado del funcionario del puesto o cargo a otro en el cual no se exija rendir garantía.

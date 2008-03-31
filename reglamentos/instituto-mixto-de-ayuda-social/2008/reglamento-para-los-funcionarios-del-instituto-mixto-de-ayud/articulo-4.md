@@ -1,0 +1,1 @@
+Artículo 4º—Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos los Miembros del Consejo Directivo, el Presidente Ejecutivo, el Gerente General, el Subgerente Administrativo Financiero, el Subgerente de Desarrollo Social, y el Administrador General de Empresas Comerciales.

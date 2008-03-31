@@ -1,0 +1,1 @@
+Artículo 35.—De las responsabilidades disciplinarias. La ejecución de la caución se realizará sin perjuicio de la determinación de las eventuales responsabilidades disciplinarias que se originen con motivo de los respectivos hechos.
