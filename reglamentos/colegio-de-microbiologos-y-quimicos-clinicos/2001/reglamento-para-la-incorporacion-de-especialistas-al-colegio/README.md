@@ -15,3 +15,4 @@ Reglamento para la incorporación de especialistas al Colegio de Microbiologos y
 | --- | --- | --- |
 | 1 | 2001-12-03 | la propia norma |
 | 2 | 2007-05-28 | Reglamento 0 (2007-05-28) |
+| 3 | 2008-03-31 | Reglamento 3 (2008-03-31) |

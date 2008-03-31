@@ -1,6 +1,6 @@
 Artículo 4°—Sin perjuicio de lo establecido en el artículo anterior, se establecen las siguientes Especialidades:
 Sección (es) | Área
-Administración | Administración en Servicios de Salud Mercadeo (Así adicionado mediante sesión celebrada el 28 de mayo de 2007)
+Administración | Administración en Servicios de Salud Mercadeo (Así adicionada la especialidad anterior mediante sesión celebrada el 28 de mayo de 2007) Gerencia de la Salud (Así adicionada la especialidad anterior mediante sesión N° 03 celebrada el 31 de marzo de 2008)
 Biología Molecular Genética | Biología Molecular
 Genética | Genética citogenética
 Hematología | Hematología
