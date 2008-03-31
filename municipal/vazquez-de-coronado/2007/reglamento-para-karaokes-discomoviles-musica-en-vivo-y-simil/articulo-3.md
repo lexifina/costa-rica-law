@@ -1,1 +1,0 @@
-Artículo 3º—Toda actividad social con karaoke, música en vivo, discomóvil o similares, que se programe en establecimientos comerciales, locales para fiestas, sitios para eventos privados y cualquier recinto cerrado o abierto con actividad musical o ruidosa, deberá contar con el correspondiente permiso municipal para su realización.

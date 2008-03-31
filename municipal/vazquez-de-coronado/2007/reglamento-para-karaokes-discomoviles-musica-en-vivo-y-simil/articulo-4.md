@@ -1,1 +1,0 @@
-Artículo 4º—Para presentar la solicitud de permiso a que se refiere el artículo anterior, se deberá obtener de previo la autorización del Ministerio de Salud en materia de confinamiento acústico, capacidad del local, salida de emergencia, equipo contra incendios, ventilación.
