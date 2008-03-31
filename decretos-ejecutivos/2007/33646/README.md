@@ -37,3 +37,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 22 | 2008-02-01 | Decreto Ejecutivo 34333 (2008-02-01) |
 | 23 | 2008-02-18 | Decreto Ejecutivo 34392 (2008-02-18) |
 | 24 | 2008-02-27 | Decreto Ejecutivo 34393 (2008-02-27) |
+| 25 | 2008-03-31 | Decreto Ejecutivo 34473 (2008-03-31) |
