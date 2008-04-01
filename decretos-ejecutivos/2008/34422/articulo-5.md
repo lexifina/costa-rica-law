@@ -1,0 +1,1 @@
+Artículo 5º—Competencia para extender autorizaciones. Corresponderá al jefe inmediato dar las autorizaciones a los funcionarios y trabajadores que deban realizar viajes en el interior del país, con el visto bueno del Director de Área respectivo y del Director Nacional.

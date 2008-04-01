@@ -1,0 +1,1 @@
+Artículo 18.—Improcedencia del pago de viáticos. DINADECO no pagará suma alguna por concepto de viáticos cuando proporcione los servicios por su propia cuenta o sean pagados por una institución pública o privada.

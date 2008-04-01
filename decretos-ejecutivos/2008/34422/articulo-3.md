@@ -1,0 +1,1 @@
+Artículo 3º—Concepto. Por viáticos debe entenderse aquella suma destinada a la atención de gastos concretos de hospedaje, alimentación y otros gastos menores, que DINADECO reconoce a sus funcionarios cuando éstos deben desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.
