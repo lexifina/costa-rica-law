@@ -1,0 +1,3 @@
+Artículo 5º—Obligaciones de la oficina encargada de la institución destinataria. La oficina encargada de la institución destinataria deberá:
+a) Identificar las acciones y brindar una atención inmediata, que comprenderá, en caso de ser necesario, acciones dirigidas a las familias de las personas trabajadoras.
+b) Comunicar a la OATIA y al Jefe Responsable de la oficina encargada de la institución remitente, el resultado de las acciones, en un plazo máximo de tres meses. En caso que no se cumpla el plazo de tres meses, se indicarán los motivos que ocasionen el retraso o la imposibilidad de llevarlas a cabo.

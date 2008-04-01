@@ -1,0 +1,1 @@
+Artículo 6º—Para una mejor coordinación, se anexa “Instrumento de referencia interinstitucional. Personas menores de edad trabajadoras”, cuya utilización es obligatoria para la atención de esta población.
