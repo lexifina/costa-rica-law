@@ -1,0 +1,1 @@
+Artículo 34.—Del acceso del expediente y sus piezas. Las partes, sus representantes y su abogado, tendrán derecho en cualquier fase del procedimiento a examinar, leer y copiar cualquier pieza del expediente, el mismo deberá estar siempre bajo custodia del Órgano Director.
