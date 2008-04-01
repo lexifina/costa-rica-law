@@ -1,1 +1,2 @@
-Artículo 2º—Desembolso de recursos. El desembolso de recursos a un sujeto privado al que le resulte aplicable este reglamento está condicionado a que obtenga la calificación de idóneo para administrar fondos públicos, otorgada por la Contraloría General de la República.
+Artículo 2°—Desembolso de recursos. El desembolso de recursos a un sujeto privado al que le resulte aplicable este reglamento está condicionado a que obtenga la calificación de idóneo para administrar fondos públicos, otorgada por la Contraloría General de la República, así como al cumplimiento de las disposiciones contenidas en el presente Reglamento.
+(Así reformado por resolución R-CO-14 del 01 de abril de 2008).

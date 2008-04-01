@@ -14,3 +14,4 @@ Reglamento sobre la Calificación de Sujetos Privados Idóneos para Administrar 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-12 | la propia norma |
+| 2 | 2008-04-01 | Resolución 14 (2008-04-01) |
