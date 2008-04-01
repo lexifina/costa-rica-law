@@ -1,0 +1,1 @@
+Artículo 2º—Para esta celebración podrán contribuir las dependencias del sector público y privado con recursos económicos en la medida de sus posibilidades, para la exitosa realización de esta actividad.
