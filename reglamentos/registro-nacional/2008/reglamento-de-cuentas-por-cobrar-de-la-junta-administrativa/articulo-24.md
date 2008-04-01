@@ -1,0 +1,1 @@
+Artículo 24.—El Procedimiento Ordinario Administrativo, a solicitud de la Dirección Administrativa le corresponderá a la Asesoría Jurídica, siempre y cuando el Departamento Financiero haya realizado el cobro administrativo correspondiente de acuerdo con el presente Reglamento.

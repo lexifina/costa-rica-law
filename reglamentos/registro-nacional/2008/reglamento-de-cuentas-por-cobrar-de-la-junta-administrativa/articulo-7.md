@@ -1,0 +1,1 @@
+Artículo 7º—La gestión de recordatorio de cobro, por parte de la Unidad de Tesorería, se hará con quince días hábiles de antelación al vencimiento de la deuda, mediante un requerimiento de pago por escrito, Estos requerimientos serán comunicados vía correo, telegrama, personalmente, fax, correo electrónico o por cualquier otro medio que autorice la ley.

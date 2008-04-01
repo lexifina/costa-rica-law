@@ -1,0 +1,1 @@
+Artículo 11.—En caso de daños a vehículos institucionales de previo a la remisión del expediente a la Asesoría Jurídica, para el trámite pertinente el Departamento de Transportes deberá aportar al expediente las facturas por reparación y mano de obra, así como un informe del tiempo en que el vehículo no pudo prestar el servicio para el que fue destinado.

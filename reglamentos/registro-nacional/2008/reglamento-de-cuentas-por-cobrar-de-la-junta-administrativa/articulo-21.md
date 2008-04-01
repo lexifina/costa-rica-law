@@ -1,0 +1,1 @@
+Artículo 21.—La terminación del proceso judicial a instancia del deudor, procederá solo cuando el mismo formalice arreglo de pago con la Junta Administrativa o cancele de forma total la deuda contraída.

@@ -1,0 +1,1 @@
+Artículo 8º—Transcurrido el plazo de quince días hábiles, indicado en el artículo anterior y sin que se cancele lo adeudado, se procederá por segunda y última vez a comunicarle por escrito al sujeto pasivo su obligación de pago, por encontrarse la deuda vencida, para lo cual se otorgará un plazo definitivo de quince días hábiles a efecto de ejecutar el pago.

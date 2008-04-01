@@ -1,0 +1,1 @@
+Artículo 13.—En cuanto al planteamiento, dirección, consecución y finalización del proceso el o los abogados directores contarán con todas las facultades y obligaciones que al efecto confiere la legislación vigente. Los abogados de la Asesoría Jurídica, no podrán transar, conciliar o comprometer en arbitrio sin la autorización previa de la Junta Administrativa.
