@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-29 | la propia norma |
+| 2 | 2008-04-02 | SINALEVI (sin norma nombrada) |
