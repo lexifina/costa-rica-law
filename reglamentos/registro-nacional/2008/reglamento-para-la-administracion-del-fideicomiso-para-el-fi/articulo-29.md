@@ -1,0 +1,1 @@
+Artículo 29.—De las garantías de los créditos a los fideicomisarios. Además de la garantía hipotecaria que debe respaldar el crédito, los fideicomisarios deberán suscribir un contrato, en el cual se consignarán las condiciones y obligaciones para el otorgamiento de créditos.

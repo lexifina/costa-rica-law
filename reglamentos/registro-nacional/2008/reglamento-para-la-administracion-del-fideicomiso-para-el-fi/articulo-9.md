@@ -1,0 +1,4 @@
+TÍTULO SEGUNDO
+Del Comité del Fideicomiso
+Artículo 9º—De las funciones. De conformidad con lo dispuesto en el párrafo tercero, del inciso 7) del artículo 116º de la Ley Orgánica del Sistema Bancario Nacional, se constituye un Comité Especial del presente FIDEICOMISO. Lo que este Comité acuerde, para todos los efectos, se constituirá en la voluntad de La FIDEICOMITENTE. A este Comité Especial, le corresponderá establecer los parámetros de funcionamiento del FIDEICOMISO, los cuales deberán ser comunicados por escrito al FIDUCIARIO.
+El Comité del Fideicomiso actuará en representación del Fideicomitente y será el responsable de velar porque se cumpla con los lineamientos del fideicomiso, del Contrato, del Reglamento y de cualquier otra disposición aplicable al adecuado uso de los recursos provenientes de la cooperación suscrita entre la Junta Administrativa del Registro Nacional y el Banco de Costa Rica.
