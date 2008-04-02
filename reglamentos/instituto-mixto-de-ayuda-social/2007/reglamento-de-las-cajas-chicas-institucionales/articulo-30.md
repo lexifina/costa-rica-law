@@ -1,0 +1,2 @@
+Artículo 30.—De los documentos respaldo para la liquidación: Para realizar la liquidación, será requisito indispensable presentar todos los documentos que comprueben y justifiquen la realización del gasto, los cuales, sin excepción deben ser originales y estar en buen estado de conservación.
+Además deben contener los siguientes datos: leyenda de cancelada, firma y número de cédula del funcionario que realizó el gasto y la del Titular Subordinado que lo autorizó y en los casos que así lo requiera el presente Reglamento, por el Superior Jerárquico.

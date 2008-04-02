@@ -1,0 +1,1 @@
+Artículo 9º—De la metodología del giro: Corresponde al Coordinador(a) del Área de Apoyo y Asesoría Financiera definir la metodología de giro que se utilizará para la entrega del dinero del Fondo de Caja Chica al usuario, para tal fin aprovechará los avances tecnológicos del momento.

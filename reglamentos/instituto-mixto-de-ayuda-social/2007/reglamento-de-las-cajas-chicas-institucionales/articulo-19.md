@@ -1,0 +1,1 @@
+Artículo 19.—Del reconocimiento de viáticos en días feriados, sábados y domingos: En las giras que se incluyan días feriados, sábados y domingos, éstos deberán contener una justificación razonada y autorizada por el Titular Subordinado.

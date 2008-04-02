@@ -1,0 +1,6 @@
+CAPÍTULO SÉTIMO
+De las prohibiciones, sanciones y obligaciones en el manejo
+de los recursos de los fondos para caja chica
+Artículo 51.—De las prohibiciones en el manejo de los recursos del fondo fijo: Con los recursos destinados a los Fondos no se permitirán las siguientes acciones:
+a) Que, en oficinas centrales se realicen desembolsos para cubrir gastos correspondientes a otras dependencias que Administren un Fondo de Caja Chica. La excepción de esta disposición solo podrá ser autorizada por el Coordinador (a) Área de Apoyo y Asesoría Financiera en caso de necesidad urgente. En todos los casos, el adelanto deberá ser liquidado en la oficina donde se recibió el dinero.
+b) Fraccionar operaciones respecto a necesidades previsibles, con el interés de evadir los procesos normales de Contratación Administrativa. La Ley de Contratación Administrativa y su Reglamento establecen que el fraccionamiento es ilícito; por lo tanto, al funcionario que, en el uso de los Fondos se le logre determinar que incurrió en un fraccionamiento se le obligará a realizar la devolución del monto completo del gasto realizado y se le aplicarán las sanciones disciplinarias que se determinen mediante el debido proceso.

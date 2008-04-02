@@ -1,0 +1,2 @@
+Artículo 47.—De la custodia de los documentos que respaldan los reintegros: Toda la documentación que respalda una solicitud de reposición de Fondos debe ser custodiada por la Unidad que administra el Fondo. Así mismo dichos documentos deberán estar a disposición de las dependencias fiscalizadoras que así lo requieran.
+En oficinas centrales y Empresas Comerciales, luego de realizado el reintegro, los documentos respaldo, con la copia del cheque deben ser custodiados por las respectivas Unidades de Contabilidad.

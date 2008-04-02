@@ -1,0 +1,1 @@
+Artículo 54.—De las obligaciones del respaldo documental de los arqueos: Los funcionarios que realicen arqueos a los Fondos de Caja Chica deben dejar constancia formal de los hallazgos detectados, mediante documento firmado por el funcionario que lo realiza y el Administrador del Fondo.

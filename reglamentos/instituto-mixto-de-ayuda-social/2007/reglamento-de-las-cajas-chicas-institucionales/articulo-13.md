@@ -1,0 +1,1 @@
+Artículo 13.—De la supervisión y fiscalización: Es responsabilidad absoluta del Titular Subordinado del Administrador del Fondo de Caja Chica ejercer supervisión y fiscalización permanente sobre la custodia del Fondo de Caja Chica, para que ésta se realice de forma correcta, asegurando el fiel cumplimiento de lo que establece el presente Reglamento.

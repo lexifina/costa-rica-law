@@ -1,0 +1,1 @@
+Artículo 33.—De las fechas de las facturas: Las facturas o los comprobantes y en general todos los documentos que respalden la liquidación de un adelanto de Caja Chica no pueden tener fecha anterior a la del recibido del dinero adelantado.

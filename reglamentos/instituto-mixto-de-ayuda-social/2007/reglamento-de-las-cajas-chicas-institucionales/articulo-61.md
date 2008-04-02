@@ -1,0 +1,1 @@
+Artículo 61.—De los resultados de las intervenciones financieras: Mediante informe escrito, se expondrá al Titular Subordinado y al Superior Jerárquico Inmediato del Administrador Fondo de Caja Chica, los resultados del estudio. Además se emitirán las recomendaciones que se consideren pertinentes, las cuales son de cumplimiento obligatorio.

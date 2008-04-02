@@ -1,0 +1,1 @@
+Artículo 63.—Del seguimiento de las recomendaciones: Cada uno de los Equipos Técnicos Especializados del Área Financiera que realice Intervenciones Financieras está obligado a darle seguimiento al cumplimiento de las recomendaciones emitidas.

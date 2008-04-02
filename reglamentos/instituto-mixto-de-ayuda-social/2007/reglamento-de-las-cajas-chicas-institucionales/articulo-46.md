@@ -1,0 +1,1 @@
+Artículo 46.—De la responsabilidad en el trámite de la reposición del fondo: Será responsabilidad del Administrador del Fondo y del Titular Subordinado de cada Unidad que administre un Fondo para Caja Chica, permanecer vigilantes para que el trámite de reposición del Fondo se realice de forma oportuna.

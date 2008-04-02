@@ -1,0 +1,1 @@
+Artículo 34.—De la verificación del bien adquirido: Cuando se trate de adquisición de bienes, las facturas o comprobantes deben presentar el sello de “verificación de la mercancía” y la firma del encargado de verificarla en el “Almacén de Suministros”.

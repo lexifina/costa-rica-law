@@ -1,0 +1,1 @@
+Artículo 36.—Del trámite de la boleta de exoneración de impuesto: Todo funcionarios que tramite un adelanto de Caja Chica para la adquisición de bienes y servicios, previo a retirar el dinero, está obligado a gestionar la boleta de exoneración de impuestos.

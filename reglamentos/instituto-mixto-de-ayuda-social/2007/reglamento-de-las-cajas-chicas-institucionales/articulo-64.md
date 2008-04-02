@@ -1,0 +1,1 @@
+Artículo 64.—De las sanciones: El funcionario que realice algún tipo de acción regulada en este Reglamento y omitiese su observancia, o cualquier otra normativa que regule la materia, se expondrá a las sanciones disciplinarias que se determinen mediante el debido proceso.

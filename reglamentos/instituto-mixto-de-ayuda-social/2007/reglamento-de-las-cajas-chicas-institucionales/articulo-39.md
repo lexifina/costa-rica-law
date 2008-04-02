@@ -1,0 +1,1 @@
+Artículo 39.—Del no reconocimiento de gastos para la adquisición de bienes y servicios sin adelanto: Sin excepción, en la adquisición de bienes y servicios no se reconocerán gastos por medio del Fondo de Caja Chica, cuando previo a su realización no se haya retirado la suma de dinero requerida para tal fin.

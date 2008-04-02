@@ -1,0 +1,4 @@
+Artículo 3º—De las Responsabilidades Generales:
+a) De la Supervisión y Verificación: La responsabilidad de supervisar y verificar la correcta aplicación del presente Reglamento, en cada transacción que realicen los usuarios al amparo de éste, recae sobre el Titular Subordinado que la autorice.
+b) De la Fiscalización: La responsabilidad de la fiscalización en la correcta aplicación del presente Reglamento recae sobre el Área de Apoyo y Asesoría Financiera, a través de cada uno de los Equipos Técnicos Especializados que la conforman; así como de la Subgerencia Administrativa Financiera en lo de su competencia.
+c) De la Definición y Aplicación de las Sanciones: Corresponderá a la Subgerencia Administrativa Financiera y la Gerencia General definir y aplicar las sanciones disciplinarias de acuerdo a la normativa existente, al funcionario que se le determine incumplimiento del presente Reglamento.

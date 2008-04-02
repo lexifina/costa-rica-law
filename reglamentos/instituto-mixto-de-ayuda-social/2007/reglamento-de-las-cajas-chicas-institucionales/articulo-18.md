@@ -1,0 +1,1 @@
+Artículo 18.—Del control y verificación: El Titular Subordinado o a quién éste haya designado formalmente para autorizar adelantos de Caja Chica, será responsable de verificar y controlar que la suma adelantada esté en concordancia con la programación de la gira establecida y de acuerdo a la normativa vigente.
