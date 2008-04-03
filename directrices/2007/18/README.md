@@ -14,3 +14,4 @@ Prorroga vigencia Directriz Presidencial N°001-MP-MEIC Sobre el Deber de Vigila
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-08 | la propia norma |
+| 2 | 2008-04-03 | Directriz 28 (2008-04-03) |

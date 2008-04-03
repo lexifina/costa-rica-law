@@ -1,3 +1,4 @@
+NOTA SINALEVI: Mediante Directriz Presidencial N° 028-MP-MEIC, del 03 de abril de 2008, se prorroga por dos años el plazo de vigencia de esta Directriz
 DIRECTRIZ
 Nº 018-MP-MEIC
 EL PRESIDENTE DE LA REPÚBLICA,
