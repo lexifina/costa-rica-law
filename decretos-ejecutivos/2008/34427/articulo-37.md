@@ -1,0 +1,1 @@
+Artículo 37.—Independencia funcional y de criterio. La actividad de Auditoría Interna al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados, debe estar libre de injerencias de la administración activa.

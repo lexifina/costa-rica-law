@@ -1,0 +1,1 @@
+Artículo 34.—Misión, visión y políticas. El Auditor Interno estará obligado a establecer y mantener actualizadas la misión, la visión y las principales políticas de la Auditoría Interna, así como darles la debida difusión a nivel interno y externo del Ministerio. Asimismo, mantendrá actualizado el listado de órganos y entes sujetos al ámbito de acción de la Auditoría Interna.

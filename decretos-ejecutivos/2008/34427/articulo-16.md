@@ -1,0 +1,2 @@
+Artículo 16.—El Departamento de Auditoría Administrativa. El
+Departamento de Auditoría Administrativa estará encargado de efectuar los estudios de auditoría que se establezcan en el plan anual de trabajo de la Auditoría Interna, relacionados con el quehacer de las oficinas centrales del Ministerio, así como atender las denuncias recibidas relacionadas con ese tema y las peticiones de estudios que soliciten la Contraloría General de la República o el Ministro.

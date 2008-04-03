@@ -1,0 +1,2 @@
+Artículo 19.—El Departamento de Auditorías Regionales. El
+Departamento de Auditorías Regionales estará encargado de controlar el trabajo de auditoría y apoyo que brindan los funcionarios de Auditoría Interna destacados en las Direcciones Regionales. Estos funcionarios llevaran a cabo estudios sobre la propia Dirección Regional a la que pertenecen así como a las juntas, patronatos (cuando proceda) y centros educativos, de la jurisdicción de la Dirección Regional.

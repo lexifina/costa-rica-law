@@ -1,0 +1,2 @@
+Artículo 21.—Documentación Interna y Legalización de Libros.
+La Unidad de Documentación Interna y Legalización de Libros estará bajo la responsabilidad de un funcionario, que entre sus funciones tendrá la apertura y cierre de los libros contables y de actas que corresponda llevar a los órganos bajo la competencia de la Auditoría Interna, custodiar el archivo de la documentación preparada por los auditores en razón de sus trabajos y llevar todos los controles necesarios de su actividad.

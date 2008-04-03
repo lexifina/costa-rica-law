@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las Competencias de la Auditoría Interna
+Artículo 6º—La Auditoría Interna. La Auditoría Interna es una actividad independiente, objetiva y asesora que, mediante la práctica de un enfoque sistémico y profesional, evalúa y propone mejoras a la efectividad de la administración del riesgo, del control y de los procesos de dirección, proporciona seguridad al ministerio al validar sus operaciones, contribuye a que se alcancen los objetivos institucionales y proporciona a la ciudadanía una garantía razonable de que la actuación del Ministro y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.

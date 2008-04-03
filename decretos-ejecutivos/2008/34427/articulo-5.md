@@ -1,0 +1,1 @@
+Artículo 5º—De las modificaciones al Reglamento. A efectos de mantener el marco normativo de la Auditoría Interna actualizado, el Auditor Interno y el Ministro podrán proponer las modificaciones que consideren necesarias a este reglamento. Toda modificación debe contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.

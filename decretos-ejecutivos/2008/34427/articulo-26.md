@@ -1,0 +1,1 @@
+Artículo 26.—Objetividad individual y ética profesional. Los funcionarios de la Auditoría Interna deben tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia. El Auditor Interno deberá emitir las directrices sobre ética que regirán la actuación de los funcionarios de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 32.—Protección al personal de la Auditoría. Cuando el personal de la Auditoría Interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o sea objeto de una demanda de índole penal, el Ministerio brindará el apoyo jurídico y técnico necesario; todo de conformidad con el artículo 26 de la Ley General de Control Interno.
