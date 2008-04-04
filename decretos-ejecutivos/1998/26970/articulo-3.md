@@ -1,1 +1,0 @@
-Artículo 3°—Los integrantes durarán en sus cargos dos años y los desempeñaran en forma ad-honorem. Los miembros podrán ser reelegidos en forma consecutiva, por una sola vez. Los miembros propietarios deberán tener un suplente, los cuales deberán reunir los mismos requisitos que los titulares.
