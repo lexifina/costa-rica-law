@@ -1,0 +1,2 @@
+Artículo 7º—Documentación. Las entidades deben conservar la documentación indicada en este acuerdo por un periodo mínimo de 5 años; ésta se puede administrar en un único expediente corporativo y debe estar a disposición de la Superintendencia General de Valores.
+Además, la documentación debe contener la fecha de preparación o actualización, así como el nombre y firma del funcionario responsable de su elaboración y los del inversionista.

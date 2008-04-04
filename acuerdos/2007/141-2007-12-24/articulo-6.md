@@ -1,0 +1,6 @@
+Artículo 6º—Identificación de inversionistas sofisticados. De conformidad con la definición establecida en el Reglamento sobre Oferta Pública de Valores, las entidades deben establecer los mecanismos necesarios para obtener y conservar la documentación que demuestre que un inversionista es sofisticado. En caso que el inversionista argumente que tiene la capacidad para asumir los riesgos que representa la inversión en valores para el perfil de sofisticado indicada en dicho Reglamento, además de la información que la entidad le solicite, debe manifestar expresamente que cumple al menos con los siguientes criterios:
+a. Tiene conocimiento y experiencia sobre los mercados en los que va a invertir.
+b. Es capaz de valorar los riesgos y resultados de su inversión.
+c. Es financieramente capaz de asumir los riesgos de la inversión.
+Esta manifestación expresa debe además incluir las justificaciones respectivas de porque el inversionista considera que cumple con los criterios citados.
+Todo inversionista sofisticado debe manifestar expresamente que es capaz de protegerse a si mismo y por tanto la entidad al momento de la inversión, sólo está obligada a proporcionar la información sobre los riesgos y restricciones de la inversión que solicita.

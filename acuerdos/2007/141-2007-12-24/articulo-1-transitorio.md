@@ -1,0 +1,1 @@
+Transitorio I.—Las bolsas de valores cuentan con un plazo de 3 meses a partir de la entrada en vigencia de este acuerdo, para remitir a la Superintendencia el Reglamento mencionado en el artículo 1º de este acuerdo.
