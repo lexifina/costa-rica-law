@@ -1,13 +1,24 @@
-Artículo 40.—Competencia de la Sección de Almacenes
-La Sección de Almacenes tendrá las siguientes funciones:
-Efectuar y controlar las actividades de entrada, salida, carga, descarga, recepción y depósito de mercancías bajo el régimen de depósito fiscal o servicios de reempaque y distribución; de registro y actualización de inventarios, remates y mercancías en abandono, recepción, traslado y trámite de documentos relacionados y en su caso iniciar los procedimientos sanciónatenos que correspondan.
-Cotejar las especificaciones de los bultos contra los datos contenidos en los documentos a su ingreso a los recintos bajo control aduanero, de manera oportuna y correcta, cuando se requiera inspeccionar las mercancías o bultos de acuerdo a los parámetros selectivos y aleatorios que establezca la Gerencia en coordinación con la División de Control y Fiscalización.
-Mantener registrado y actualizado un inventario permanente de mercancías almacenadas en los recintos autorizados.
-Controlar, autorizar y/o realizar la recepción, carga, descarga, depósito, desconsolidación, transbordo y tránsito aduanero de mercancías.
-Organizar, coordinar y controlar la ejecución de los remates de mercancías en abandono.
-Determinar la existencia de mercancías en mal estado y llevar a cabo su destrucción, previa autorización del Gerente de la aduana.
-Verificar que se realice el traslado de las declaraciones de tránsito inspeccionadas en los depósitos fiscales.
-Realizar investigaciones, cuando se presentes incongruencias o anomalías en el proceso de inspección de bultos y notificar a la Jefatura del Departamento y a la Sección de Control de Agentes Externos, lo que corresponda.
-Coordinar y controlar la ejecución de medidas de seguridad necesarias para prevenir incendios, sustracciones, daños o cualquier otro hecho similar sobre las mercaderías almacenadas.
-Otras que el (sic) encomiende la Jefatura del Departamento.
-Para el desempeño de las funciones contará con un Jefe.
+Artículo 40.—Funciones del Departamento Normativo. Este Departamento tendrá las siguientes funciones:
+a. Aplicar en el ámbito de su competencia, las reglas generales, criterios, programas, procedimientos y métodos de trabajo establecidos por la Dirección Normativa.
+b. Tramitar los procedimientos ordinarios, los administrativos para el ajuste de la obligación tributaria aduanera, la aplicación de sanciones de multa y los sumarios señalados en la Ley y su Reglamento, y preparar para la Gerencia de la aduana el proyecto de resolución respectivo.
+c. Tramitar las solicitudes de sustitución de mercancías planteadas ante la aduana, preparando para la Gerencia de la Aduana el proyecto de resolución respectivo. En caso de que se requiera un criterio técnico relacionado con las mercancías objeto de la solicitud, podrá solicitar la coadyuvancia del Departamento Técnico.
+d. Preparar los proyectos de respuesta de los recursos de amparo presentados contra los actos realizados por los funcionarios de la aduana en el desempeño de sus funciones y dar seguimiento a los informes respectivos.
+e. Colaborar con la Procuraduría General de la República , el Ministerio Público, la Dirección Jurídica del Ministerio de Hacienda y la Dirección Normativa de la Dirección General de Aduanas, en la representación del Servicio Nacional de Aduanas y cualquiera de sus órganos en toda clase de juicios, litigios y audiencias dentro de éstos, sean judiciales o administrativos, surgidos contra resoluciones, actos o cualquier otra calidad de interviniente en el proceso y rendir informes.
+f. Asesorar al superior de la aduana sobre irregularidades cometidas por los funcionarios de la aduana, de conformidad con lo que establece el Reglamento Autónomo de Servicios del Ministerio de Hacienda.
+g. Preparar informes, denuncias, iniciar e instruir investigaciones sobre hechos relacionados con la posible comisión de delitos aduaneros, darles el seguimiento correspondiente y comunicar los resultados al Gerente para lo que corresponda.
+h. Asesorar jurídicamente a la Gerencia de la aduana y a las demás dependencias de ésta en el cumplimiento de sus funciones. Asimismo, cuando lo solicite la Gerencia de la aduana, brindar capacitación en materia de su competencia a los funcionarios, y para cualquier proceso que se requiera.
+i. Contestar consultas, emitir criterios y redactar proyectos de circulares de los asuntos que son sometidos a su conocimiento.
+j. Elaborar informes y reportes, mantener actualizadas las estadísticas sobre montos de tributos y multas en litigio y lo efectivamente recaudado, de conformidad con las gestiones propias del Departamento.
+k. Proponer reformas a la normativa vigente y cambios procedimentales para el logro de los objetivos del servicio aduanero.
+l. Colaborar con el superior de la Aduana en la obtención o envío de información a la Dirección de Gestión de Riesgo, preparando los informes correspondientes, para que se definan y actualicen los criterios de riesgo en la inspección de mercancías o bultos; así como brindar los informes que requieran las demás Direcciones de la Dirección General.
+m. Dirigir y coordinar las acciones de carácter legal, administrativo y judicial, de orden técnico-jurídico, necesarias para la defensa de los intereses de la aduana, en relación con todos los trámites ejecutados en ella.
+n. Atender consultas sobre la aplicación e interpretación de la normativa aduanera, analizando el contenido de las consultas de acuerdo con el marco legal y de técnica aduanera, conforme lo externado por la Dirección Normativa a fin de uniformar criterios.
+o. Asesorar jurídicamente las investigaciones que se realicen en la aduana para prevenir, impedir y combatir el contrabando y la defraudación fiscal aduanera.
+p. Evaluar periódicamente los resultados de los diferentes procesos que se ejecutan en el Departamento Normativo.
+q. Tramitar los procedimientos de rectificación, desistimiento y anulación de declaraciones aduaneras, reclamos por cobro indebido o cualquier otra solicitud de devolución de tributos de importación o exportación que se presenten ante la aduana y preparar para la Gerencia el proyecto de resolución respectivo, siempre que no sea competencia de otra oficina administrativa.
+r. Realizar los procedimientos de cobro, ejecución y recaudación de los créditos o multas producto de los procedimientos en que interviene la aduana.
+s. Requerir de los importadores, exportadores y auxiliares de la función pública aduanera o terceros con ellos relacionados, la documentación necesaria para el ejercicio de sus funciones.
+t. Coordinar con la Gerencia de la aduana la implementación de índices e indicadores de gestión.
+u. Determinar y comunicar a la Gerencia de la aduana los niveles de acceso a los sistemas de información por parte de los funcionarios del Departamento.
+v. Otras que le delegue y encomiende la Gerencia de la aduana.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

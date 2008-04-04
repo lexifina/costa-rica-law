@@ -1,13 +1,30 @@
-Artículo 37.—Competencia de la Sección de Supervisión e Investigación
-La Sección de Supervisión e Investigación tendrá las siguientes funciones:
-Supervisar el proceso de verificación, de modo diferido, de acuerdo con criterios de selectividad establecidos en coordinación con la División de Control y Fiscalización.
-Evaluar la calidad, exactitud, oportunidad, eficacia y eficiencia de los servicios técnicos que brinda la aduana, así como la atención que se da al público y la fluidez con que se llevan a cabo las operaciones aduaneras, recomendar los cambios procedimentales en el área técnica, con el fin de mejorar la calidad del servicio.
-Emitir por escrito criterios técnicos y recomendaciones sobre los reclamos relativos a la clasificación arancelaria, el valor aduanero y el origen de las mercancías.
-Determinar la Habilidad de los resultados obtenidos en los diferentes trabajos estadísticos que se realizan en el Departamento, en relación con el movimiento de la aduana.
-Elaborar reportes sobre el movimiento de las operaciones de la aduana y del comercio exterior.
-Realizar comprobaciones de la validez y confiabilidad de la información incluida en el Sistema de Información Aduanera.
-Conocer de las solicitudes de rectificación de declaraciones aduaneras, presentadas con posterioridad al levante de las mercancías.
-Recomendar indicadores que se utilicen en la definición de criterios de control y fiscalización.
-Colaborar, a solicitud de la División de Control y Fiscalización, en la elaboración del proyecto del Plan Anual de Fiscalización.
-Otras que le encomiende la Jefatura del Departamento.
-La Sección de Supervisión e Investigación contará con un Jefe.
+Artículo 37.—Funciones del Departamento Técnico. El Departamento tendrá las siguientes funciones:
+a. Verificar que todas las operaciones aduaneras que se realicen en la jurisdicción de la aduana, cumplan con los requisitos señalados en la normativa y procedimientos vigentes.
+b. Ejecutar, conforme a los procedimientos vigentes, las disposiciones concernientes al ingreso, permanencia y salida de mercancías, de personas, de medios y unidades de transporte, de las desconsolidaciones, transbordos, traslados y tránsitos, sobrantes y faltantes de mercancías, de la subasta pública de mercancías caídas en abandono, de las destrucciones de mercancías, y de todos los regímenes aduaneros previstos por la normativa aduanera.
+c. Ejecutar el reconocimiento físico de las mercancías, de acuerdo con los procedimientos y disposiciones técnicas y administrativas establecidas, y efectuar los estudios pertinentes para la correcta determinación de la clasificación arancelaria, valor aduanero y origen de las mercancías objeto del comercio exterior.
+d. Realizar estudios de valoración aduanera, clasificación arancelaria y origen de las mercancías, de conformidad con la normativa vigente.
+e. Determinar la valoración, origen y clasificación arancelaria de la mercancía decomisada y mercancía caída en abandono.
+f. Controlar la ejecución de medidas de seguridad necesarias para prevenir incendios, sustracciones, daños o cualquier otro hecho semejante, sobre las mercancías almacenadas.
+g. Dar seguimiento y mantener actualizado el inventario de mercancías caídas en abandono y ejecutar la subasta pública de mercancías caídas en abandono, en coordinación con la Dirección General de Aduanas.
+h. Determinar la existencia de mercancías en mal estado o de importación prohibida, y proceder a su destrucción cuando corresponda, en coordinación con las otras autoridades que deban participar en el proceso.
+i. Coadyuvar con el Departamento Normativo en la resolución de las solicitudes de sustitución, en caso de que se requiera un criterio técnico relacionado con las mercancías objeto de la solicitud.
+j. Verificar y controlar que la recepción de las mercancías se haya realizado de conformidad con la normativa y procedimientos vigentes.
+k. Verificar los controles de inventarios y ejercer control sobre los locales comerciales ubicados en depósitos libres comerciales y tiendas libres bajo su competencia.
+l. Controlar las actividades de entrada, salida, carga, descarga, recepción y depósito de mercancías o servicio de reempaque y distribución, almacenadas en los recintos autorizados por la Autoridad Aduanera , de conformidad con los criterios de riesgo aplicables.
+m. Realizar conteos físicos de inventarios de mercancías, con el fin de corroborar que las existencias coincidan con los registros del sistema informático e informar a la jefatura cuando se presenten irregularidades, para que se inicien los procedimientos administrativos y judiciales correspondientes.
+n. Controlar las actividades de entrada, salida, movilización, carga, descarga, recepción y depósito, así como el uso y destino de las mercancías, ubicadas en cualquier recinto habilitado por la autoridad aduanera dentro de los regímenes temporales, liberatorios de pago de tributos, perfeccionamiento y devolutivo de derechos e informar al superior inmediato, cuando se detecten irregularidades, para que se inicien los procedimientos administrativos y judiciales correspondientes.
+o. Verificar los datos documentales declarados en relación con los elementos determinantes de la obligación tributaria aduanera tales como: naturaleza, características, procedencia, peso, coincidencia del valor declarado con el facturado, clasificación arancelaria, cantidad, datos del consignatario, marcas, origen de las mercancías declaradas, de acuerdo con los procedimientos y disposiciones técnicas y administrativas establecidas.
+p. Verificar y controlar el proceso de pago electrónico.
+q. Registrar en la base de datos del Servicio Nacional de Aduanas, como importador a una persona cuya identificación corresponda a un pasaporte o cédula de residencia, y previa recepción de la solicitud con la documentación de respaldo en original y copia.
+r. Analizar, evaluar y dar seguimiento a la ejecución de recomendaciones contenidas en informes de órganos contralores.
+s. Revisar y analizar las operaciones y servicios aduaneros atendidos por el departamento, a efecto de recomendar a la Gerencia los cambios procedimentales y normativos.
+t. Coadyuvar con el superior inmediato, suministrando la información requerida para el establecimiento de criterios de riesgo que la aduana deberá aplicar según lo determinado por la Dirección de Gestión de Riesgo.
+u. Resolver consultas en materia técnica aduanera que se sometan a su conocimiento y atender las solicitudes de sus superiores en relación con la atención de las denuncias e informar al superior de la aduana los resultados de la misma, para que se inicien los procedimientos sancionatorios que correspondan.
+v. Supervisar y controlar el funcionamiento de los Puestos de Aduana adscritos a la aduana, con relación a las actividades que se desarrollan atinentes al Departamento Técnico.
+w. Elaborar informes y reportes sobre las operaciones atendidas por el departamento.
+x. Informar a la Gerencia de la Aduana cuando se presenten irregularidades que se deriven de la incorrecta aplicación de los procedimientos y disposiciones técnicas y administrativas previstas por la Legislación , para que se inicien los procedimientos administrativos y judiciales correspondientes.
+y. Aplicar las medidas de control correspondientes, para protección de los derechos relacionados con la propiedad industrial e intelectual, de conformidad con leyes especiales en la materia, en coordinación con las diferentes dependencias administrativas y judiciales que tengan competencia en la materia, así como informar a la Gerencia.
+z. Activar el código temporal del beneficiario para cada declaración aduanera de ingreso de maquinaria, equipo, accesorios y repuestos para la instalación de la planta, e inactivar dicho código una vez tramitada la declaración aduanera, siempre y cuando se verifique que en la Dirección General de Aduanas están tramitando la solicitud de condición de auxiliar de la función pública aduanera, en régimen de Perfeccionamiento Activo.
+aa. Realizar estudios especiales relacionados con asuntos contables y de tránsitos aduaneros, cuyos registros se mantengan pendientes y preparar el criterio o dictamen técnico, para su traslado al Departamento Normativo.
+bb. Otras que le delegue y encomiende la Gerencia de la Aduana.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

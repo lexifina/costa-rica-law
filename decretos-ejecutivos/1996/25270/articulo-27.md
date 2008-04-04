@@ -1,1 +1,3 @@
-Artículo 27.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 27.—Competencia del Departamento Fiscalización Interna. Es competencia de este Departamento la fiscalización del cumplimiento de los deberes y obligaciones de los Auxiliares, de los procedimientos por parte de los funcionarios aduaneros, así como las condiciones de permanencia, uso o destino de las mercancías que, con posterioridad a su levante o retiro, se encuentran sometidas a alguno de los regímenes aduaneros no definitivos, según lo establecido en el Plan Anual de Fiscalización.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

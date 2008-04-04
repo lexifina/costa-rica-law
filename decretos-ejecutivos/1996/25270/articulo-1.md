@@ -11,9 +11,9 @@ DECRETAN:
 El siguiente,
 REGLAMENTO A LA LEY GENERAL DE ADUANAS
 LEY No. 7557 DE 20 DE OCTUBRE DE 1995
-TITULO I
+TÍTULO I
 Disposiciones Generales
-CAPITULO I
+CAPÍTULO I
 Objeto
-Artículo 1º—Objeto. El presente Reglamento establece disposiciones para la aplicación del Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano, aprobado mediante Ley Nº 8360 de 24 de junio del 2003, del Reglamento al Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano, aprobado mediante Decreto Ejecutivo Nº 31536-COMEX-H de 24 de noviembre del 2003, y de la Ley General de Aduanas, Ley Nº 7557 de 20 de octubre de 1995, y sus reformas.
-(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+Artículo 1º—Objeto. El presente Reglamento establece disposiciones para la aplicación del Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano, aprobado mediante Ley Nº 8360 de 24 de junio del 2003, del Reglamento al Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano, aprobado mediante Decreto Ejecutivo Nº 31536-COMEX-H- de 24 de noviembre del 2003, y de la Ley General de Aduanas, Ley Nº 7557 de 20 de octubre de 1995, y sus reformas.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 34475 de 4 de abril de 2008).

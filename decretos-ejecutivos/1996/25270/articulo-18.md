@@ -1,14 +1,9 @@
-Artículo 18.—Competencia del Departamento de Soporte Técnico
-El Departamento de Soporte Técnico tendrá las siguientes funciones:
-Brindar el soporte y asesoría técnica que requieran las unidades del Servicio Nacional de Aduanas.
-Coordinar con los órganos del Servicio las funciones técnicas, colaborar en la definición de políticas, metodologías, estándares y procedimientos técnicos.
-Investigar nuevas tecnologías (equipos, dispositivos, productos software entre otros) que puedan mejorar la capacidad de los recursos y/o hacer más productivas las labores, y elaborar técnicas basadas en la investigación para la adquisición de equipo y software.
-Definir los procedimientos y establecer las normas y estándares que regulen la seguridad de todos los recursos de cómputo.
-Administrar en forma eficiente las bases de datos, el uso de dispositivos, las redes, sistemas operativos y demás recursos de cómputo, de manera que garantice el mejor de los servicios al usuario.
-Definir en conjunto con las unidades administrativas, los planes de contingencia que garanticen la seguridad de los recursos y bases de datos.
-Coordinar y supervisar la instalación de nuevos software y/o equipo de cómputo, nuevos enlaces de comunicación, así como la actualización de los ya existentes.
-Elaborar los planes de utilización de recursos telemáticos para lograr la interconexión de los servicios informáticos del Servicio Nacional de Aduanas.
-Recomendar a la dependencia competente las medidas que garanticen la conservación del equipo de cómputo para el funcionamiento de los sistemas.
-Emitir los criterios técnicos necesarios sobre las condiciones de instalación y operación de los equipos.
-Otras que le encomiende la Jefatura de la División.
-El Departamento de Soporte Técnico estará a cargo de un Jefe.
+SECCIÓN V
+Competencia y funciones de la Dirección de Gestión Técnica
+Artículo 18.—Competencia de la Dirección de Gestión Técnica. Es competencia de la Dirección de Gestión Técnica establecer y uniformar la materia técnica aduanera, que sustenta el desarrollo y quehacer del Sistema Aduanero Nacional, en las áreas de procesos, clasificación arancelaria y origen de las mercancías, la gestión de los datos que soportan el funcionamiento de los sistemas informáticos, registro de los Auxiliares de la Función Pública Aduanera y generación de estadísticas e indicadores para la toma de decisiones.
+La Dirección de Gestión Técnica estará a cargo de un Director y contará con los siguientes Departamentos:
+a. Departamento Estadística y Registros.
+b. Departamento Procesos Aduaneros.
+c. Departamento Técnica Aduanera.
+La Dirección de Gestión Técnica podrá solicitar a la Dirección General de Aduanas la definición de áreas funcionales necesarias para el mejor cumplimiento de sus competencias.
+(Así reformado por el articulo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

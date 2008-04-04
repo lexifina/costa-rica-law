@@ -1,15 +1,11 @@
-SECCIÓN II
-Subgerente
-Artículo 32.—Subgerente
-Es competencia del Sugerente coadyuvar con el Gerente en la gestión de administración, así como en la aplicación de las normativas, políticas y orientaciones generales que regulan el Sistema. Le corresponde colaborar con la Gerencia en la implantación de métodos, procedimientos y sistemas para que la prestación de los servicios aduaneros se realicen de manera ágil, objetiva y eficiente y con un uso racional de los recursos.
-El Subgerente tendrá las siguientes funciones:
-Colaborar con el Gerente en la organización, dirección, coordinación, control y evaluación de las operaciones aduaneras que competen a la aduana, de conformidad lo establecido en la legislación aplicable y a las políticas, directrices y disposiciones que regulan el Sistema.
-Apoyar el cumplimiento de las disposiciones establecidas en leyes, reglamentos, manuales de organización, directrices y otras regulaciones de la Dirección General, el Ministerio de Hacienda y la Contraloría General de la República.
-Participar en el establecimiento de una programación operativa que permita jerarquizar metas y actividades para el cumplimiento cabal de los objetivos y funciones, determinadas por la Dirección General.
-Colaborar en el cumplimiento de las normas legales y reglamentarias, políticas de operación, sistemas y métodos de trabajo de las actividades que desarrolla la aduana.
-Apoyar la evaluación de la gestión del personal de la aduana, mediante el análisis de la capacidad demostrada, resultados obtenidos, oportunidad y calidad de los trámites y operaciones ejecutadas y el comportamiento general demostrado.
-Participar en la ejecución de las acciones pertinentes para que en la aduana se mantenga un sistema adecuado de control interno, con el fin de salvaguardar los recursos humanos, materiales y financieros; asegurar el cumplimiento de las disposiciones legales y reglamentarias de rigor y lograr la consecución de las metas y objetivos programados.
-Participar en la coordinación, supervisión y control de todas las actividades relacionadas con los procesos y trámites aduaneros, técnicos y administrativos, que se ejecutan en la aduana.
-Asistir al Gerente en la determinación de las necesidades en lo concerniente a presupuesto; recursos humanos, tecnológicos y materiales, sistemas de información comunicaciones; registros, procesamiento automático de la información, controles y otros servicios y establecer procedimientos de trabajo que permitan una gestión eficaz y eficiente en la aduana.
-Sustituir al Gerente en los casos de ausencia o impedimento temporal y asumir las responsabilidades correspondientes.
-Otras que le delegue y encomiende el Gerente.
+Artículo 32.—Funciones de la Dirección de Gestión de Tecnología Aduanera. Gestión de Tecnología Aduanera tendrá las siguientes funciones:
+a. Ejecutar las políticas y estrategias informáticas en el Servicio, en coordinación con las dependencias competentes y en observancia del plan estratégico de tecnología de información de la Dirección General de Informática del Ministerio de Hacienda.
+b. Elaborar proyectos informáticos a corto, mediano y largo plazo y proponer a la Dirección General de Aduanas los planes respectivos y las necesidades de equipos y programas, a fin de que la Dirección General gestione lo pertinente con las áreas competentes del Ministerio de Hacienda, con el propósito de satisfacer las necesidades del Servicio.
+c. Ejecutar las políticas y estrategias que normen las relaciones con los usuarios de los sistemas de información, así como los estándares y procedimientos técnicos a seguir.
+d. Coordinar con la Dirección General de Informática para formular la elaboración de especificaciones técnicas en relación con el suministro de equipo y el desarrollo de sistemas de información, dispositivos, productos y servicios de cómputo que requiera el Servicio.
+e. Establecer las medidas de control que garanticen el fiel cumplimiento de las normas, estándares establecidos y medidas de seguridad interna, emitidas por la Dirección General de Informática del Ministerio de Hacienda.
+f. Preparar directrices internas y programas de trabajo y determinar los requerimientos de recursos humanos, financieros y de equipo en el área informática del Servicio para la aprobación de las autoridades competentes del Ministerio de Hacienda.
+g. Evaluar el sistema informático del control aduanero, con el fin de proponer las mejoras y los cambios necesarios para hacerlo más eficaz y eficiente, recomendar medidas de seguridad de la información y la correcta aplicación de las instrucciones, métodos y procedimientos establecidos en materia informática; mantener control sobre los programas y archivos magnéticos administrados por el Servicio.
+h. Evaluar y emitir las recomendaciones de las ofertas técnicas presentadas para la contratación de servicios informáticos en el desarrollo y mantenimiento de los sistemas de información para el Servicio.
+i. Otras que le encomiende la Dirección General.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

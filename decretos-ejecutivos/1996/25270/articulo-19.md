@@ -1,3 +1,4 @@
-SECCION IX
-Organo Nacional de Valoración y Verificación Aduanera
-Artículo 19.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 19.—Competencia del Departamento Estadística y Registros. Le compete a este Departamento la atención de las solicitudes de inscripción, desinscripción o autorización de los Auxiliares de la Función Pública Aduanera, mantener actualizada la información de éstos, así como de los demás registros que se le asignen. Deberá aprobar y emitir los certificados digitales que le correspondan y asignar, administrar y controlar las claves de acceso al sistema informático.
+Dentro de su ámbito de competencia debe planificar y dirigir las labores tendientes a la obtención de información primaria y estadísticas de comercio exterior para la toma de decisiones en el Servicio Nacional de Aduanas, el correcto registro de las cifras de recaudación de los tributos aduaneros, actualizar y gestionar los datos, parámetros e información que sustentan los registros electrónicos que dan soporte a la operación de los sistemas de información.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

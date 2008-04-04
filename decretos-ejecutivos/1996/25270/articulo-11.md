@@ -1,3 +1,19 @@
-SECCION IV
-Asesoría Legal
-Artículo 11.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 11.—Funciones del Departamento de Asesoría. Le corresponde a este Departamento ejecutar las siguientes funciones:
+a. Atender y evacuar las consultas que, en materia de su competencia, formulen la Dirección General y demás dependencias del Servicio Nacional de Aduanas, sobre la aplicación e interpretación de la normativa técnico - jurídica aduanera.
+b. Atender y resolver a solicitud de la Dirección General , las consultas que en materia jurídica efectúen los auxiliares y demás usuarios del Servicio, sobre la aplicación e interpretación de la normativa técnica aduanera.
+c. Emitir dictámenes y directrices tendientes a lograr la uniforme aplicación e interpretación del régimen jurídico aduanero y recomendar las reformas oportunas a la normativa vigente.
+d. Emitir, con la coadyuvancia del Departamento de Procedimientos Administrativos, los dictámenes y directrices tendientes a lograr la armonización en relación con la aplicación de normas procesales aduaneras.
+e. Analizar y recomendar la adopción de “mejores prácticas internacionales” en el campo jurídico aduanero y de comercio exterior.
+f. Analizar y emitir criterio jurídico sobre proyectos de ley, reglamentos, decretos, proyectos de convenios, tratados, acuerdos comunitarios e internacionales y toda otra normativa relacionada, con el objeto de determinar sus implicaciones jurídicas para el Sistema Aduanero Nacional.
+g. Recomendar, redactar y dar seguimiento a los proyectos de leyes, reglamentos, resoluciones de alcance general, directrices y convenios internacionales y sus reformas, en materia aduanera y de intercambio de información hacendaria y aduanera.
+h. Apoyar en la negociación de los convenios, tratados y acuerdos comunitarios e internacionales relacionados con la materia aduanera, así como asesorar y colaborar en la redacción de los mismos, y darles el debido seguimiento.
+i. Elaborar los criterios de interpretación jurídica uniforme de los tratados internacionales, disponiendo lo necesario para lograr su divulgación y aplicación uniforme por el Servicio y demás usuarios del Sistema Aduanero Nacional.
+j. Asesorar a las dependencias del Servicio en la elaboración de proyectos de directrices y circulares que se emitan para regular aspectos jurídicos de las competencias y funciones del Servicio Nacional de Aduanas.
+k. Coordinar con las otras Direcciones, dependencias del Ministerio de Hacienda y demás dependencias públicas, la emisión de actos administrativos que incidan en el campo jurídico aduanero.
+l. Atender los recursos de amparo que se interpongan contra la Dirección General y las audiencias en las acciones de inconstitucionalidad que se concedan a la Dirección General y darles seguimiento.
+m. Coadyuvar con la Procuraduría General de la República , el Ministerio Público, la Dirección Jurídica del Ministerio de Hacienda y el Departamento de Procedimientos Administrativos, en la representación del Servicio Nacional de Aduanas y cualquiera de sus órganos en toda clase de juicios, litigios y audiencias dentro de éstos, sean judiciales o administrativos, surgidos contra resoluciones, directrices, actos o en cualquier otra calidad de interviniente en el proceso y rendir informes o efectuar toda clase de solicitudes.
+n. Administrar y mantener actualizado el sistema de digesto aduanero para consulta de los funcionarios y del público.
+o. Divulgar, mediante transmisión electrónica, la promulgación de las normas jurídicas que inciden en el régimen jurídico aduanero, así como información jurídica aplicable a la materia aduanera para el Servicio y los usuarios del Sistema.
+p. Colaborar con las actividades de capacitación de la Dirección General.
+q. Realizar todas aquellas labores especiales que le encomiende la Dirección Normativa.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

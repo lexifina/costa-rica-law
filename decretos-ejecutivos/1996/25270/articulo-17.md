@@ -1,11 +1,4 @@
-Artículo 17.—Competencia Departamento de Ingeniería de Sistemas
-El Departamento de Ingeniería de Sistemas tendrá las siguientes funciones:
-Definir las prioridades de los proyectos y sistemas que deberán elaborarse, además de conocer y aprobar los alcances y objetivos de los proyectos.
-Evaluar y coordinar el desarrollo de nuevos sistemas de información que requiera el Servicio Nacional de Aduanas.
-Dar mantenimiento a los sistemas de información.
-Coordinar con las demás dependencias del Servicio aspectos tales como la ejecución de trabajos especiales y la incorporación de nuevos productos y de sistemas de información.
-Proporcionar, las herramientas necesarias para generar las informaciones consolidadas del Sistema de Información Aduanera, con las dependencias del Servicio.
-Capacitar a los usuarios en el uso del Sistema de Información Aduanera.
-Evaluar los sistemas desarrollados para asegurarse que cuenten con los elementos de seguridad y control para su operación.
-Otras que le encomiende la Jefatura de la División.
-El Departamento de Ingeniería de Sistemas estará a cargo de un Jefe.
+Artículo 17.—Competencia del Departamento de Planificación de la Fiscalización. Compete a este Departamento los procesos de elaboración, modificación, seguimiento y actualización del Plan Anual de Fiscalización del Servicio Nacional de Aduanas, así como de los criterios de selección de personas, mercancías y operaciones aduaneras en los cuales se basa.
+Le corresponde también llevar a cabo las acciones necesarias de selección de sectores, empresas o grupos de empresas de comercio exterior, auxiliares de la función pública aduanera y procedimientos y operaciones aduaneras que serán auditados por el órgano fiscalizador competente o mediante los planes integrados de control con otras dependencias del Ministerio.
+Asimismo, le compete la comunicación y divulgación del modelo de gestión de riesgo, de inteligencia aduanera y de la planificación a lo interno y externo del Servicio Nacional de Aduanas, con la finalidad de propiciar una cultura de gestión de los riesgos.
+(Así reformado por el articulo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

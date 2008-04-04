@@ -1,3 +1,3 @@
-SECCION V
-Departamento Administrativo
-Artículo 12.—(Así derogado mediante el inciso 4 del artículo 12 del decreto ejecutivo N° 33208 del 1 de junio del 2006).
+Artículo 12.—Competencia del Departamento de Procedimientos Administrativos. Su ámbito de competencia es la materia sustantiva aduanera. Se enfoca a la defensa jurídica a nivel administrativo del Servicio Nacional de Aduanas y de los intereses fiscales vinculados con el ámbito aduanero. Le corresponde la preparación del acto de apertura e instruir los procedimientos administrativos determinativos y sancionatorios, generados por informes de fiscalización del nivel central rector o por las aduanas en el caso de infracciones sancionables con suspensión. Su competencia se extiende a dar seguimiento y colaboración en los procedimientos instruidos en etapas o instancias ulteriores, tanto en sede administrativa o judicial, incluyendo el seguimiento a la etapa de ejecución de los actos finales y cobratorios.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

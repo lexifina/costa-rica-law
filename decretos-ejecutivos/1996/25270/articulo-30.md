@@ -1,2 +1,4 @@
-Artículo 30.—Estructura organizativa
-Las aduanas estarán a cargo de un Gerente, un Subgerente. Contarán con una Unidad de Asesoría Legal, como órgano asesor y con los siguientes departamentos: Técnico, de Agentes Externos y Administrativo.
+Artículo 30.—Competencia del Departamento Laboratorio Aduanero y Estudios Especiales. Le corresponde a este Departamento la realización de estudios físicos, químicos, técnicos y merceológicos de las mercancías importadas o exportadas por los operadores de comercio exterior, los ingresos y salidas de materias primas y productos, mermas y desperdicios de las mercancías ingresadas a los regímenes especiales, así como a solicitud de las diferentes dependencias del Servicio Nacional de Aduanas y otras instancias que así lo requieran.
+Le compete también ejecutar estudios especiales que aporten elementos probatorios para la correcta determinación de la clasificación e información que sirva de apoyo para estudios de verificación de origen de las mercancías.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

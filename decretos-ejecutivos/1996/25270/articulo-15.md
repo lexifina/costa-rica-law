@@ -1,3 +1,3 @@
-SECCION VII
-División de Control y Fiscalización
-Artículo 15.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 15.—Competencia del Departamento de Inteligencia Aduanera. Le compete al Departamento de Inteligencia Aduanera, investigar, recopilar, analizar, evaluar y divulgar oportuna y eficazmente los resultados de sus investigaciones y evaluaciones, así como la información relacionada con la posibilidad de ocurrencia de eventos o de hechos que impliquen la comisión de delitos, infracciones, irregularidades o incumplimientos que vulneren o impidan de alguna forma a la administración aduanera alcanzar sus objetivos.
+Le compete también asignar y dar el seguimiento respectivo a las denuncias recibidas por la Dirección de Gestión de Riesgo.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

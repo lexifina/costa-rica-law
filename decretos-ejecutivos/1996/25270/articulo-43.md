@@ -1,8 +1,10 @@
-TITULO III
-Normas para el ejercicio del control y la fiscalización aduanera
-CAPITULO I
-Organos fiscalizadores, competencias y atribuciones
-SECCION I
-Ejercicio de las atribuciones de control y fiscalización
-Artículo 43.—Órganos fiscalizadores. La Dirección de Fiscalización, el Órgano Nacional de Valoración y Verificación Aduanera y los Departamentos Técnicos de las aduanas son los órganos fiscalizadores que tendrán la competencia para el ejercicio del control y fiscalización con el objetivo de supervisar, fiscalizar, verificar y evaluar el cumplimiento de las disposiciones del régimen jurídico aduanero. Lo anterior sin perjuicio de las facultades y atribuciones de control y fiscalización otorgadas a la Policía de Control Fiscal
-(Así reformado por el artículo 48 del decreto ejecutivo N° 32481 del 29 de junio del 2005)
+TÍTULO III
+Normas para el Ejercicio de la Fiscalización Aduanera
+(Así reformado el título III) anterior por el artículo 2° del decreto ejecutivo N° 34475 de 4 de abril de 2008)
+CAPÍTULO I
+Órganos fiscalizadores, competencias y atribuciones
+SECCIÓN I
+Ejercicio de las Atribuciones de Fiscalización
+(Así reformada la sección I) anterior por el artículo 2° del decreto ejecutivo N° 34475 de 4 de abril de 2008)
+Artículo 43.—Órganos fiscalizadores. La Dirección de Fiscalización y el Órgano Nacional de Valoración y Verificación Aduanera son los órganos fiscalizadores que tendrán la competencia para el ejercicio de la fiscalización y control con el objetivo de supervisar, fiscalizar, verificar y evaluar el cumplimiento de las disposiciones del régimen jurídico aduanero. Lo anterior sin perjuicio de las facultades y atribuciones de control y fiscalización otorgadas a la Policía de Control Fiscal.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 34475 de 4 de abril de 2008)

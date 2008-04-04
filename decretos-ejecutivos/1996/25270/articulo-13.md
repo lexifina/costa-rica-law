@@ -1,4 +1,22 @@
-SECCIÓN VI
-Departamento Aduanero
-de la Policía de Control Fiscal
-Artículo 13.—(DEROGADO, por el artículo 20 del decreto ejecutivo N° 29663 de 15 de mayo de 2001).
+Artículo 13.—Funciones del Departamento de Procedimientos Administrativos. Le corresponde a este Departamento ejecutar las siguientes funciones:
+a. Tramitar los procedimientos administrativos determinativos y sancionatorios del nivel directivo y central rector, sus incidencias; preparar los proyectos de resolución, los recursos propios de la fase recursiva y dar el trámite que corresponda a los recursos de apelación para ante el Tribunal Aduanero Nacional, con exclusión de los procedimientos propios del régimen disciplinario.
+b. Coadyuvar al Departamento de Asesoría, en los criterios de interpretación y aplicación de las normas procesales por parte de los Departamentos Normativos del Servicio Nacional de Aduanas para la emisión de los dictámenes y las directrices de acatamiento obligatorio por el Servicio, tendientes a lograr la armonización de los requisitos formales que deben contener las resoluciones administrativas.
+c. Tramitar los procedimientos de reclamos por cobro indebido o cualquier otra solicitud de devolución de tributos de importación o exportación que se presenten ante el Servicio, siempre que no sea competencia de otra aduana.
+d. Efectuar las audiencias que sean requeridas en el desarrollo de un procedimiento administrativo.
+e. Dar seguimiento a los procedimientos en que interviene, ordenando la ejecución, cobro, recaudación y la cancelación de los créditos fiscales o multas, con excepción de los procedimientos iniciados por las aduanas.
+f. Dar seguimiento y recopilar los resultados de los procedimientos ante el Tribunal Aduanero Nacional y en la vía judicial.
+g. Implementar una base de datos que contenga información sobre el estado de los expedientes administrativos de procedimientos ordinarios y sancionatorios a cargo del departamento, así como mantener la actualización de dicha base.
+h. Implementar una base de datos que contenga información de referencia sobre el estado de las denuncias interpuestas a nivel del Servicio, ante el Ministerio Público.
+i. Recomendar al Director General que solicite al Ministro de Hacienda la interposición de procesos de lesividad contra fallos del Tribunal Aduanero Nacional y coordinar lo pertinente con la Dirección Jurídica del Ministerio.
+j. Preparar para la firma del Director General la solicitud ante el Ministro del inicio del procedimiento de declaratoria de nulidad absoluta, evidente y manifiesta.
+k. Mantener actualizadas las estadísticas sobre montos de tributos, multas en litigio y lo efectivamente recaudado.
+l. Preparar para la firma del Director General las certificaciones por la parte insoluta de la obligación tributaria aduanera y otros recargos, que constituyen título ejecutivo.
+m. Requerir documentación, datos e informes a los contribuyentes, responsables solidarios o terceros con ellos relacionados, que sean necesarios para el ejercicio de sus facultades; así como obtener de los funcionarios públicos los informes y datos que posean con motivo de sus funciones, para el objeto antes citado.
+n. Atender los recursos de amparo y las audiencias en las acciones de inconstitucionalidad relacionados con asuntos de su competencia, que se interpongan contra la Dirección General de Aduanas, y darles el seguimiento pertinente.
+o. Preparar las resoluciones a los recursos interpuestos contra los actos administrativos que concedan o denieguen la condición de Auxiliares de la Función Pública Aduanera.
+p. Informar a la autoridad competente de los hechos que tenga conocimiento y que puedan constituir infracciones administrativas, delitos aduaneros o fiscales o delitos de los funcionarios del Servicio Nacional de Aduanas en el desempeño de sus respectivas funciones.
+q. Preparar las denuncias ante el Ministerio Público por delitos aduaneros cometidos con ocasión del ingreso, tránsito o salida de mercancías del territorio aduanero y darles seguimiento, sin detrimento de las denuncias preparadas y presentadas por la Dirección de Fiscalización u otras oficinas aduaneras.
+r. Coadyuvar con la Procuraduría General de la República , el Ministerio Público, la Dirección Jurídica del Ministerio de Hacienda y el Departamento de Asesoría de la Dirección Normativa , en la representación del Servicio Nacional de Aduanas y cualquiera de sus órganos en toda clase de juicios, litigios y audiencias dentro de estos, sean judiciales o administrativos, surgidos contra resoluciones, directrices, actos o con cualquier otra calidad de interviniente en el proceso y rendir informes o efectuar toda clase de solicitudes.
+s. Colaborar con las actividades de capacitación de la Dirección General.
+t. Realizar todas aquellas labores especiales que le encomiende la Dirección Normativa.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

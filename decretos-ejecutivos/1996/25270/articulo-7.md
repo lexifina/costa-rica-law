@@ -1,1 +1,28 @@
-Artículo 7º—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 7º—Funciones de la Dirección General. En el ejercicio de su competencia, además de las funciones señaladas en el CAUCA, el RECAUCA y la legislación vigente, le corresponde a la Dirección General :
+a. Definir, en coordinación con el Ministro o el Viceministro de Ingresos, las políticas, directrices y demás disposiciones que regulen el Sistema Aduanero Nacional, de conformidad con lo que establece la legislación vigente.
+b. Organizar y dirigir la función de las diferentes dependencias del Servicio, comunicando las políticas, directrices y demás disposiciones que se deben seguir y vigilar su cumplimiento.
+c. Coordinar con la entidad competente y dar seguimiento a los servicios que brinda el Servicio Nacional de Aduanas, así como a las necesidades planteadas por las aduanas.
+d. Aprobar y revisar periódicamente los planes establecidos, la estructura organizacional, el desarrollo del recurso humano, los procesos técnicos y administrativos y otras áreas relacionadas e introducir los ajustes que se consideren oportunos.
+e. Supervisar y controlar la ejecución de estudios e investigaciones relativas a la materia aduanera, a efecto de utilizar sus resultados para mejorar la gestión del Sistema.
+f. Gestionar la atención de las necesidades en lo concerniente a presupuesto, recursos humanos, tecnológicos y materiales, sistemas de información, comunicaciones, registros, procesamiento automático de la información, controles y otros servicios; así como autorizar todos aquellos movimientos que por disposiciones legales o administrativas lo requieran en aras de una gestión eficiente y eficaz, incluyendo el ejercicio de la potestad sancionadora cuando corresponda.
+g. Suscribir convenios con auxiliares o instituciones públicas o privadas, para implementar proyectos de mejoramiento del servicio aduanero, incluyendo la introducción de técnicas aduaneras y el uso de infraestructura y capacitación.
+h. Coordinar actividades de formación nacional o internacional y capacitación continua a funcionarios del Servicio, sobre los temas aduaneros incorporados en los tratados, convenios o cualquier otro instrumento comercial o aduanero suscrito por Costa Rica. Lo anterior, en coordinación con el Área de Formación Hacendaria del Ministerio de Hacienda.
+i. Coordinar acciones con los Ministerios, órganos y demás entes relacionados con el proceso aduanero, con el fin de armonizar las políticas aduaneras.
+j. Supervisar la aplicación y el cumplimiento de los proyectos en desarrollo, acuerdos y convenios internacionales en materia aduanera, así como las leyes, normas y requisitos exigibles en las operaciones de comercio exterior.
+k. Evaluar la actividad del Servicio e informar los resultados obtenidos al Ministro o Viceministro de Ingresos, según corresponda.
+l. Revisar y estudiar informes, recomendaciones y reportes sobre diferentes asuntos que involucra su actividad y resolver lo que corresponda.
+m. Representar al Servicio Nacional de Aduanas o delegar su representación cuando lo considere oportuno, en seminarios, congresos, reuniones técnicas y otras actividades similares, a nivel nacional o internacional y procurar el efectivo cumplimiento de los acuerdos adoptados en ellas.
+n. Solicitar apoyo de la Policía de Control Fiscal y el Organismo de Investigación Judicial cuando se considere oportuno para el cumplimiento de sus funciones.
+o. Conocer y resolver de los recursos interpuestos contra actos dictados por la Dirección General y sus Direcciones.
+p. Imponer sanciones administrativas y tributarias aduaneras, cuando corresponda.
+q. Determinar los ajustes a la obligación tributaria aduanera, cuando corresponda.
+r. Coordinar y colaborar con otros órganos del Ministerio de Hacienda en la materia de su competencia.
+s. Autorizar a los Auxiliares de la Función Pública Aduanera, con excepción del agente aduanero.
+t. Organizar, dirigir y dar seguimiento a las relaciones y asuntos internacionales, incluyendo negociaciones comerciales, cooperación y asistencia técnica internacional y aquellas actividades que generen la suscripción o modificación de tratados internacionales, acuerdos o convenios que se refieran a materia aduanera.
+u. Promover, con gobiernos de otros países e instituciones internacionales oficiales, el intercambio de información y capacitación en materia aduanera y de comercio internacional.
+v. Definir los lineamientos generales de la Planificación Estratégica del Servicio, de acuerdo con el Plan Nacional de Desarrollo.
+w. Coordinar las acciones necesarias para el efectivo cumplimiento del Sistema de Control Interno en el Servicio, así como la promoción del Control Gerencial y de Gestión en el Servicio Nacional de Aduanas, procurando el trabajo en equipo y la administración por valores y liderazgo.
+x. Generar la administración de proyectos de innovación, a fin de realizar la evaluación permanente de la Estructura Organizacional y de los sistemas administrativos, operativos e informáticos.
+y. Promover la divulgación y comunicación de la gestión en el Servicio Nacional de Aduanas, propiciando el fortalecimiento de la Imagen Corporativa , en un ambiente de transparencia y valores positivos que transformen la cultura organizacional.
+z. Otras que le deleguen o encomienden sus superiores.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

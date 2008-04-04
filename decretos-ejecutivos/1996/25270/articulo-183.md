@@ -1,2 +1,2 @@
-Artículo 183.—Asignación de Código de Usuario y Palabra de Paso
-Las entidades públicas inscritas que requieran integrar sus equipos con alguna de las redes del Servicio. deben solicitar además a la División de Informática, la asignación del Código de Usuario y la Palabra de Paso correspondiente.
+Artículo 183.—Asignación de Código de Usuario y Palabra de Paso. Las entidades públicas inscritas que requieran integrar sus equipos con alguna de las redes del Servicio, deben solicitar además al Departamento de Estadística y Registros de la Dirección de Gestión Técnica, la asignación del Código de Usuario y la Palabra de Paso correspondiente.
+(Así reformado por el artículo 2° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

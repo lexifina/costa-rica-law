@@ -1,3 +1,4 @@
-SECCION III
-Asesoría de Control Gerencial
-Artículo 10.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 10.—Competencia del Departamento de Asesoría. El Departamento se encarga de dar asesoría técnica jurídica. Procura la uniformidad de criterios en la interpretación y aplicación de las normas sustantivas para el Sistema Aduanero Nacional. Atiende, con criterios técnicos sustantivos aduaneros, las consultas de naturaleza jurídica que plantean los usuarios, funcionarios y otras dependencias públicas. Define junto con el Director de la Dirección Normativa , el criterio institucional en la interpretación y aplicación de las normas aduaneras. También le corresponde estudiar, proponer y analizar las reformas de las normas jurídicas que componen el régimen jurídico aduanero, incluso las que propongan otras entidades públicas y la Asamblea Legislativa aplicando las mejores prácticas aduaneras internacionales, sin perjuicio de la facilitación del comercio y el control aduanero efectivo.
+Le compete además administrar y mantener actualizado el sistema de digesto aduanero para consulta de los funcionarios y del público mediante la aplicación de técnicas modernas de sistematización, recopilación, clasificación, vinculación y difusión de los documentos de interés jurídico generados por la Dirección General de Aduanas.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

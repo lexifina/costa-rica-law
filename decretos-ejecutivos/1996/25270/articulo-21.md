@@ -1,3 +1,2 @@
-SECCION X
-División de Normas y Procedimientos
-Artículo 21.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 21.—Competencia del Departamento de Técnica Aduanera. Al Departamento de Técnica Aduanera le compete la definición de los asuntos relacionados con la emisión de los lineamientos en materia de clasificación arancelaria y origen de las mercancías. Le compete la implementación y cumplimiento de convenios internacionales, así como mantener actualizado el arancel, facilitando la transmisión de conocimiento en dichas áreas. El Departamento de Técnica Aduanera estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

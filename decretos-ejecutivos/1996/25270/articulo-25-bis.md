@@ -1,0 +1,17 @@
+Artículo 25 bis.—Funciones del Departamento Control Posterior del Valor en Aduana. Este Departamento tendrá las siguientes funciones:
+a. Instruir estudios e investigaciones para verificar la declaración del valor en aduana y la correcta determinación de la obligación tributaria aduanera.
+b. Efectuar la revisión a posteriori de las declaraciones aduaneras correspondientes a los criterios de revisión posterior, establecidos por la Dirección de Gestión de Riesgo, con el fin de establecer la correcta determinación de la obligación tributaria y el cumplimiento de las demás normas que regulan el despacho de las mercancías.
+c. Efectuar estudios e investigaciones originados por denuncias en materia de valoración aduanera trasladadas por la Dirección de Gestión de Riesgo, así como retroalimentar periódicamente a esa Dirección sobre los resultados obtenidos.
+d. Investigar la comisión de delitos aduaneros, infracciones administrativas y tributarias aduaneras, preparar la denuncia ante la autoridad judicial correspondiente, así como diligenciar y procurar las pruebas que fundamenten las acciones legales respectivas.
+e. Comprobar el cumplimiento de las disposiciones, relativas a los derechos contra prácticas desleales de comercio internacional, medidas de salvaguardia y propiedad intelectual.
+f. Comunicar a las dependencias competentes los resultados de los estudios y las investigaciones realizados ante presuntas irregularidades que cometan importadores, con el objeto de que se instruyan los expedientes correspondientes y se adopten las medidas pertinentes.
+g. Adoptar medidas cautelares para la inspección de locales o el secuestro de información de trascendencia tributaria, siguiendo las formalidades correspondientes, de conformidad con lo dispuesto en la normativa tributaria vigente y coordinar con otras dependencias del Ministerio de Hacienda cuando sea necesario, tomando las medidas necesarias para la debida conservación de la prueba.
+h. Realizar visitas a instalaciones de empresas de comercio exterior, así como a oficinas públicas o privadas, localizadas en el extranjero, para recibir y certificar la información y documentación recabada.
+i. Realizar visitas a instalaciones de empresas de comercio exterior localizadas en el territorio nacional, con el objetivo de obtener información para los estudios e investigaciones sobre valoración aduanera.
+j. Gestionar ante las autoridades judiciales competentes las órdenes de allanamiento que correspondan.
+k. Definir las operaciones aduaneras, sujetos y mercancías a las que se les aplicará actuaciones a priori y efectuar las verificaciones correspondientes.
+l. Colaborar con la Dirección Normativa o la autoridad judicial o administrativa competente, en la atención de los alegatos presentados en procedimientos administrativos que se originen a partir de los estudios e investigaciones realizadas por el Órgano Nacional de Valoración y Verificación Aduanera.
+m. Coordinar con la Policía de Control Fiscal, cuando se considere oportuno, para el cumplimiento de las funciones del Departamento. Esta coordinación también se efectuar cuando así se requiera a petición de parte.
+n. Preparar y emitir los informes intermedios y finales, producto de los estudios e investigaciones en materia de valoración aduanera.
+o. Cualquier otra que le encomiende la Dirección del Órgano Nacional de Valoración y Verificación Aduanera.
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

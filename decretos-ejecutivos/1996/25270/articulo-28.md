@@ -1,1 +1,5 @@
-Artículo 28.—Así Derogado por el artículo 50 del decreto ejecutivo N° 32481 del 29 de junio del 2005.
+Artículo 28.—Competencia del Departamento de Fiscalización Externa. Le compete a este Departamento la revisión posterior de las actuaciones de los importadores y exportadores, a través de la realización de estudios e investigaciones a empresas de comercio exterior, incluyendo aquellas que se consideren de fraude complejo.
+Le corresponde también revisar en forma posterior las declaraciones, con el fin de verificar el cumplimiento de las obligaciones tributarias aduaneras y las demás normas que regulan el despacho de las mercancías.
+Le corresponde además la comprobación por medio de estudios de verificación de origen, de conformidad con los procedimientos establecidos en los Tratados de Libre Comercio suscritos por Costa Rica y normativa derivada de ellos, el cumplimiento de las reglas de origen de las mercancías importadas, así como el otorgamiento de la preferencia arancelaria.
+El Departamento estará a cargo de un jefe.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).
