@@ -1,1 +1,0 @@
-Artículo 7º—Del (los) Despacho (s) del (los) Viceministro(s): el (los) Viceministro (s) será (n) el (los) inmediato (s) colaborador (es) del Titular de la Cartera y le sustituirá (n) en sus ausencias cuando así se ordene mediante decreto o acuerdo presidencial. Tendrá además las funciones y atribuciones que el Ministro le señale.
