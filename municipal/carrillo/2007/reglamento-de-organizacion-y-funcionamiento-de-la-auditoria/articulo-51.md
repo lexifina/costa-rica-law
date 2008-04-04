@@ -1,0 +1,1 @@
+Artículo 51.—Transitorio único. La Auditor Interno contará con un plazo de tres meses a partir de la vigencia de este reglamento para actualizar su Plan Estratégico, documento que se hará del conocimiento del Concejo Municipal y estará a disposición de cualquier interesado.
