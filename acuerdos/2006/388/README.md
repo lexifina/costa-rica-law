@@ -14,3 +14,4 @@ Emite Directrices N° PE-001-2006 y PE-002-2006, el Instituto Costarricense de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-01 | la propia norma |
+| 2 | 2008-04-04 | Acuerdo 139 (2008-04-04) |

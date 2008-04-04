@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Así Derogado por el artículo 1° del acuerdo AJDIP/139 del 4 de abril de 2008)
 AJDIP/388-2006.—Puntarenas, al primer día del mes de setiembre del dos mil seis.
 Considerando:
 1º—Que el Instituto Costarricense de Pesca y Acuicultura, está en la obligación de velar por el cumplimiento de la Ley de Pesca y Acuicultura.
