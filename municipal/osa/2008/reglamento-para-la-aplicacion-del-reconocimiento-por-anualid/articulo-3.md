@@ -1,0 +1,1 @@
+Artículo 3º—El reconocimiento por la anualidad de los servidores municipales se aplicará en el momento que el departamento de Recursos Humanos determine, de acuerdo con el respectivo expediente personal del funcionario, que éste ha cumplido en forma continua un año de labores con la institución.

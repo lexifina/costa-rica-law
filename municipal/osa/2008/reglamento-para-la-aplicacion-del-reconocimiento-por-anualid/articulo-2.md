@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos de dicho cálculo, la Administración Municipal de Osa seguirá los lineamientos establecidos en la Escala de Salarios elaborada con la colaboración de la Dirección General de Servicio Civil, todo de conformidad con las disponibilidades económicas de la Institución.

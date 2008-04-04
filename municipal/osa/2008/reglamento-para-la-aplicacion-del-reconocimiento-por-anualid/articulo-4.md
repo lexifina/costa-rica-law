@@ -1,0 +1,5 @@
+Artículo 4º—En el caso de los funcionarios municipales que hayan disfrutado de permisos sin goce de salarios y no completen un año continuo de labores, de acuerdo a los registros que lleve el departamento de recursos humanos, se procederá de la siguiente manera:
+a) Se sumarán todos los días de permiso sin goce de salario comprendidos, exclusivamente, entre la fecha fija de la anterior y la nueva anualidad, por lo que no se deberán considerar aquellos días que correspondan a otro período.
+b) El total se dividirá por treinta para determinar los períodos completos de treinta días no laborados.
+c) Una vez determinando lo anterior, la nueva anualidad se reconocerá una vez que haya transcurrido el mes o número de meses iguales al resultado de la división señalada en el punto precedente, sin tomar en cuenta los sobrantes o el residuo de esa operación.
+d) Las futuras anualidades se harán efectivas en la fecha fija para tal fin, siempre que no se interrumpa la prestación ‘64el servicio por nuevos permisos sin goce de salario. En caso de darse tal circunstancia, se deberá aplicar el procedimiento establecido en los incisos a), b) y c).

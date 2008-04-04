@@ -1,0 +1,1 @@
+Artículo 5º—Cuando a un funcionario se le practique un reconocimiento de anualidades y durante ese período haya laborado tiempo extraordinario o compensado vacaciones, el departamento de recursos humanos, a partir de que se hace efectivo el pago salarial, realizará el estudio del recálculo en un plazo de tres meses.
