@@ -1,0 +1,1 @@
+Artículo 12.—El alumno beneficiario deberá prestar cuatro horas mensuales de trabajo comunal, como retribución solidaria a la ayuda prestada en coordinación con el Director de la Institución u otra organización de tipo de comunal, para lo cual oportunamente deberá entregarse el respectivo comprobante de cumplimiento de estas labores.

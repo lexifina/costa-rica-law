@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión de Educación confeccionará las fórmulas que establece el artículo cuarto de este reglamento, pondrán a disposición de los interesados en el mes de noviembre de cada año y deberán entregarlas a la Secretaria de la Comisión a más tardar en la última quincena del mes de febrero.
