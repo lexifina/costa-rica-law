@@ -1,1 +1,0 @@
-Artículo 44.—Estructura organizativa de la Aduana de Verificación Documental. La Aduana de Verificación Documental estará a cargo de un Gerente, un Subgerente, un Departamento Normativo y un Departamento Técnico.
