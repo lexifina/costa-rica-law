@@ -1,1 +1,2 @@
-Artículo 10.—Cuando presenten una propuesta de reestructuración orgánica ante MIDEPLAN, de acuerdo con el artículo 10 de las Directrices de política salarial, empleo y clasificación de puestos, las entidades públicas deberán contemplar en el gasto presupuestario máximo estipulado en el artículo 1º de estas directrices, los costos que ésta genere.
+Artículo 10.—Cuando el jerarca supremo de una entidad pública, ministerio u algún órgano apruebe una reestructuración administrativa, con la respectiva autorización del Ministro Rector del Sector al que pertenezca, y de generarse algún costo asociado a ella, este se contemplará en el gasto presupuestario máximo autorizado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34471 del 7 de abril de 2008)
