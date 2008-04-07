@@ -14,3 +14,4 @@ Reforma al Reglamento Interior de Servicio Postal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-16 | la propia norma |
+| 2 | 2008-04-07 | Reglamento 863 (2008-04-07) |
