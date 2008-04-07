@@ -1,0 +1,1 @@
+Artículo 8º—Normas Éticas. Los funcionarios de Auditoría Interna deberán observar las normas éticas que rigen su profesión, que se caracterizan por los valores de: integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la institución promueva para guiar su actuación.

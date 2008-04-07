@@ -1,0 +1,1 @@
+Artículo 23.—Requisitos. Los requisitos para el nombramiento del Auditor Interno y Subauditor serán los establecidos en el punto 2.3 de los Lineamientos sobre los requisitos de los cargos de Auditor Interno y Subauditor, y las condiciones para las gestiones de nombramiento en dichos cargos, emitidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 34.—Asesoría. Es obligación de la Asesoría Legal brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría, cuando así lo requiera; obligación que es extensiva a la Junta Directiva, Dirección Ejecutiva, departamentos y unidades administrativas de Judesur.

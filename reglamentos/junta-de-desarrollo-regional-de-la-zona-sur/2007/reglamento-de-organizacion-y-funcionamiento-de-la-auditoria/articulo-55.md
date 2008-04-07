@@ -1,0 +1,1 @@
+Artículo 55.—Acceso a informes. Los informes de auditoría sobre materia de Control Interno (los cuales no hacen referencia a eventuales responsabilidades, característica que los diferencia de las relaciones de hechos y denuncias al Ministerio Público) una vez puestos en comunicación de la Administración Activa, son de libre acceso por parte de cualquier persona pública o privada.

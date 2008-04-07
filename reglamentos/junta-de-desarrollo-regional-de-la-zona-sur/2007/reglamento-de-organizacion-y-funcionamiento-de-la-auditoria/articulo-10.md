@@ -1,0 +1,3 @@
+SECCIÓN B
+Asignación de recursos
+Artículo 10º—Recursos necesarios. La Auditoría Interna deberá contar con los recursos humanos, materiales, equipo, tecnológicos, asesoría técnica, medios de transporte, así como el espacio físico necesario para el adecuado ejercicio de sus funciones. Además, tendrá la facultad para organizarse según lo requieran sus deberes y el cumplimiento de sus atribuciones y funciones. Asimismo, de acuerdo con lo establecido en la norma 2.2.2 del Manual de normas para el ejercicio de la Auditoria Interna en el Sector Público, el Auditor Interno deberá comunicar en caso de ser necesario, el impacto que sobre la fiscalización y el control correspondiente produce la limitación de recursos.

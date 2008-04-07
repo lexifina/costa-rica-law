@@ -1,0 +1,4 @@
+Artículo 19.—Organización por áreas. De conformidad con el artículo 23 de la Ley General de Control Interno, el Auditor Interno organizará la Auditoría Interna, considerando, entre otros, los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnicas jurídicas y sanas prácticas correspondientes.
+En función de las habilidades y competencia del recurso humano y al cumplimiento de los objetivos y metas institucionales, la Auditoría Interna dividirá sus áreas funcionales de trabajo de acuerdo, a las siguientes: Sistemas, Financiera Contable, Desarrollo y Becas, Operativa y Administrativa, así mismo contará con una secretaria, la cual será la encargada de la recepción y el archivo permanente de documentos, entre otras labores referentes a su puesto.
+A continuación se detalla la estructura organizativa de la Auditoría Interna de JUDESUR.
+[imagen]
