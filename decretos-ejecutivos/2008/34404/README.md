@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-19 | la propia norma |
+| 2 | 2008-04-07 | Decreto Ejecutivo 34471 (2008-04-07) |
