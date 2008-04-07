@@ -14,3 +14,4 @@ Directrices y Regulaciones Generales de Política Salarial, Empleo y Clasificaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-22 | la propia norma |
+| 2 | 2008-04-07 | Decreto Ejecutivo 34471 (2008-04-07) |
