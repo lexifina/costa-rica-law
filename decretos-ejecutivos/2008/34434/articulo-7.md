@@ -1,0 +1,1 @@
+Artículo 7º—De la Coordinación Administrativa: El Ministerio de Hacienda, en aplicación de los principios de eficiencia y sana administración que rigen el servicio público, podrá apoyar administrativa y logísticamente a la Unidad Ejecutora y/o al Coordinador General en caso de que estos lo requieran, por medio de la estructura administrativa existente.

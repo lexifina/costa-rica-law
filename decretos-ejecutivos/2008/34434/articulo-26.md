@@ -1,0 +1,1 @@
+Artículo 26.—De los recursos en materia de contratación: En materia de contratación administrativa procederán los recursos ordinarios establecidos en la Ley de Contratación Administrativa y su Reglamento.

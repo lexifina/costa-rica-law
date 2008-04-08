@@ -1,0 +1,1 @@
+Artículo 23.—De la contratación de servicios de consultoría: Para la contratación de servicios profesionales de consultoría, independientemente del monto a contratar, se seguirán los procedimientos estipulados en el Anexo C del Contrato de Préstamo.
