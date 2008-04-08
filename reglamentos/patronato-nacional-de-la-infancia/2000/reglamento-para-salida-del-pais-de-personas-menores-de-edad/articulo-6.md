@@ -1,2 +1,0 @@
-Artículo 6°—Las copias de la documentación aportada por los interesados se dejarán en el expediente de la persona menor de edad, devolviéndose los originales.
-Cuando se trate de documentos expedidos en el extranjero, deberán venir autenticados por el Cónsul respectivo y por el Ministerio de Relaciones Exteriores. Cuando hayan sido emitidos en idioma diferente al español, deberá acompañar traducción oficial.
