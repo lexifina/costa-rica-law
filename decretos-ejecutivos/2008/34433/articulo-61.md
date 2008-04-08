@@ -1,0 +1,1 @@
+Artículo 61.—Sobre el Reglamento de Operación de Fondos Financieros. El Órgano de Administración Financiera del Sistema deberá elaborar y proponer al CONAC un Reglamento de operación de los fondos financieros, que integre todas las fuentes de recursos y de conformidad con la normativa aplicable para la administración de fondos públicos.

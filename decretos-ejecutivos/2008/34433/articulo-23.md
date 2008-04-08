@@ -1,0 +1,1 @@
+Artículo 23.—La Dirección Regional del Área de Conservación. Es una unidad organizacional, que ejecuta los lineamientos en materia ambiental para la conservación y manejo de la biodiversidad en el territorio de su competencia, en el marco del desarrollo sostenible y lo que establece la ley Forestal, Vida Silvestre, Áreas protegidas y Biodiversidad.

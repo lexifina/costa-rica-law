@@ -1,0 +1,1 @@
+Transitorio II.—Para la preparación de los principios, criterios e indicadores para la identificación de ecosistemas y sus componentes a que refiere el artículo 58 de este Reglamento el SINAC contará con un plazo de 6 meses contados a partir de su publicación.

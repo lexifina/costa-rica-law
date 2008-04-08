@@ -1,0 +1,1 @@
+Transitorio I.—En un plazo de doce meses posteriores a la entrada en vigencia del presente Reglamento, el Sistema Nacional de Áreas de Conservación formulará y oficializará las directrices técnicas para las categorías de manejo de áreas silvestres protegidas de Costa Rica

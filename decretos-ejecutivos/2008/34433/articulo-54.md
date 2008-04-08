@@ -1,0 +1,1 @@
+Artículo 54.—Sobre los nombramientos interinos. En casos especiales en que quede vacante, el puesto de Director del Área de Conservación, el CONAC podrá nombrar interinamente a algún funcionario del Área de Conservación respectiva a propuesta del Consejo Regional, para que ocupe el cargo mientras se realiza el concurso respectivo.

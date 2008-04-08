@@ -1,0 +1,1 @@
+Artículo 16.—De la Secretaría Ejecutiva y sus componentes. Los componentes de la Secretaría y las funciones específicas de cada uno de ellos se detallarán según lo acuerde el CONAC, a propuesta del Secretario Ejecutivo y mediante un proceso participativo y consensuado por la Secretaría Ejecutiva y las Direcciones de las Áreas de Conservación.

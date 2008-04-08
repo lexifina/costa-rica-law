@@ -1,0 +1,2 @@
+Artículo 68.—Sobre los programas de Conservación de Especies. Los programas de conservación de las especies in situ y ex situ serán ejecutados por el SINAC, tanto fuera o dentro de sus Áreas Silvestres Protegidas y por la CONAGEBIO según corresponda, en coordinación con otras instituciones y organismos relacionados.
+El SINAC promoverá la conservación in situ a través de mecanismos e instrumentos de conformidad con lo establecido en el ordenamiento jurídico costarricense, incluidos los corredores biológicos entre otros.

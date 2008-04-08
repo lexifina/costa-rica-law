@@ -1,0 +1,1 @@
+Transitorio XI.—Para los efectos del agotamiento de la vía Administrativa establecida por el artículo 13 de este Reglamento, deberá formularse un protocolo que establezca el procedimiento para la operativización de este, en el órgano y en el plazo que por acuerdo el CONAC designe.

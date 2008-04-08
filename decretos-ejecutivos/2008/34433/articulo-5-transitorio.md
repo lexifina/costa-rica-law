@@ -1,0 +1,1 @@
+Transitorio V.—La COMIIN creada en el artículo 87 de este Reglamento, deberá elaborar en un plazo de seis meses, a partir de la publicación del presente Decreto Ejecutivo, su Reglamento interno de funcionamiento.

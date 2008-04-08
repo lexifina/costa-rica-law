@@ -1,0 +1,1 @@
+Artículo 71.—Declaratoria, modificación o cambio de categoría de manejo de áreas silvestres protegidas. Para la declaratoria, modificación o cambio de categoría de manejo de ASP, deberá elaborarse un informe técnico, que estará coordinado por la instancia respectiva de SINAC.

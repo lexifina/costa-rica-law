@@ -1,0 +1,2 @@
+Artículo 34.—Sobre las causales de remoción de los miembros del Consejo Regional. Los miembros del CORAC podrán ser removidos en cualquier momento, previa solicitud por parte de la organización o del sector que representa o por alguna de las siguientes causas: incumplimiento de sus funciones, conducta contraria a los fines y principios establecidos en la Ley de Biodiversidad y otras leyes conexas, todo ello mediante acuerdo del CORAC.
+El acuerdo del CORAC para la remoción de alguno de sus miembros, deberá tomarse mediante mayoría calificada.

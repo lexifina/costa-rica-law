@@ -1,0 +1,2 @@
+Transitorio VIII.—En un plazo no mayor a tres meses a partir de la publicación del presente Reglamento, el CONAC mediante el acuerdo respectivo deberá dictar los lineamientos adicionales que considere necesarios a fin de regular la convocatoria a la Asamblea para la elección de los miembros del CORAC.
+Aquellos CORAC que cuenten con Reglamentos debidamente aprobados por el CONAC, deberán proceder a adaptarlos de conformidad con los lineamientos emitidos por el CONAC, y enviarlos a este para su aprobación en el plazo de los 3 meses siguientes a su comunicación.

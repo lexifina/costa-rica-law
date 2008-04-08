@@ -1,0 +1,1 @@
+Transitorio VII.—La Comisión Interinstitucional para la Educación y Conciencia Pública e Investigación en Biodiversidad, creada en el artículo 75 de este Reglamento, deberá elaborar en un plazo de doce meses, a partir de la publicación del presente Decreto Ejecutivo, su Reglamento interno de funcionamiento.

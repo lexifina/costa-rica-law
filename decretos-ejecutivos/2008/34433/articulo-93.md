@@ -1,0 +1,1 @@
+Artículo 93.—Sobre los planes de incentivos. La COMIIN recomendará lineamientos técnicos para la preparación de planes quinquenales de Incentivos por parte del MINAE y otras entidades públicas, incluyendo fuentes de financiamiento y los posibles mecanismos para la implementación de dichos planes.

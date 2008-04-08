@@ -1,0 +1,1 @@
+Artículo 37.—Sobre el pago de gastos de transporte y representación. Los representantes ante el Consejo Regional no devengarán salario o pago alguno por concepto de dietas, pero se le podrá reconocer los gastos por concepto de transporte, alimentación y otros en que incurran en razón de sus funciones, sujetos a contenido económico del Área de Conservación para este fin.

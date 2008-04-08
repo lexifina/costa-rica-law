@@ -1,0 +1,1 @@
+Artículo 89.—Sobre los procedimientos para la implementación de incentivos. La COMIIN, coordinará con las entidades públicas competentes, la oficialización de los requisitos y procedimientos para la implementación de los incentivos establecidos en la Ley de Biodiversidad y este Reglamento.

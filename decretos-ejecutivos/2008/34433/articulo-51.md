@@ -1,0 +1,2 @@
+Artículo 51.—De la estructura organizativa de los Consejos Locales. Esta será definida en el acuerdo de creación emitido por el CORAC respectivo, para lo que podrá considerar los criterios de complejidad técnica y administrativa que justifican su creación.
+Cada Consejo local de las Áreas de Conservación establecerá su propio Reglamento, el cual será sometido, ante el Consejo Regional de las Áreas de Conservación respectivo, para la aprobación final.

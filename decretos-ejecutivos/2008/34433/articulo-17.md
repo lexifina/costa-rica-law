@@ -1,0 +1,1 @@
+Artículo 17.—Del Director Ejecutivo. El Director Ejecutivo será el superior jerárquico administrativo del personal de la Secretaría Ejecutiva y se encargara de velar por el cumplimiento de los asuntos técnicos, operativos y administrativos de la misma, así como de todos aquellos que mediante acuerdo le asigne el CONAC.

@@ -1,0 +1,1 @@
+Artículo 24.—De las oficinas auxiliares. Las AC podrán establecer las oficinas necesarias para asegurar la provisión de los servicios que se deriven de la aplicación de la Ley de Biodiversidad y leyes conexas.

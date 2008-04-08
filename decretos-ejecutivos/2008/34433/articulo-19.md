@@ -1,0 +1,1 @@
+Artículo 19.—Sobre la representación legal del SINAC. Corresponderá al Director Ejecutivo ejercer la representación legal del SINAC para la ejecución presupuestaria y gestión administrativa dentro de los límites que a sus atribuciones y facultades le confiera el CONAC.

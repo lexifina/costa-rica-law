@@ -1,0 +1,1 @@
+Artículo 67.—Sobre las solicitudes para la inclusión de especies en las listas nacionales. Cualquier persona física o jurídica, que demuestre bajo sólidas evidencias científicas la amenaza a una especie, podrá presentar la solicitud ante CONACEA para su análisis. Esta Comisión, deberá emitir su recomendación para la inclusión de la especie en la lista respectiva.

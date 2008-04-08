@@ -1,0 +1,1 @@
+Artículo 81.—Consulta técnica a las Áreas de Conservación. Cuando se trate de actividades, obras o proyectos que afecten la vida silvestre, áreas protegidas, recursos forestales y recursos hídricos, la SETENA de previo a resolver, deberá consultar al Área de Conservación del SINAC lo que corresponda, para que emita criterio técnico al respecto en el plazo que establece la ley.

@@ -1,0 +1,3 @@
+Artículo 57.—Concesiones de servicios no esenciales en Áreas Silvestres Protegidas Estatales. Para otorgar en concesión los servicios y actividades no esenciales que se citan en el artículo 39 de la Ley de Biodiversidad dentro de las áreas silvestres protegidas estatales, se aplicarán los principios constitucionales de la Contratación Administrativa, considerando lo establecido expresamente en el tercer párrafo, del artículo supracitado de la Ley Nº 7788.
+La Secretaría Ejecutiva propondrá al CONAC los procedimientos y mecanismos respectivos para el seguimiento y fiscalización de las mismas.
+Para la definición de otros servicios no esenciales no mencionados por la ley, el CORAC podrá solicitar el criterio del Comité Científico Técnico del AC.

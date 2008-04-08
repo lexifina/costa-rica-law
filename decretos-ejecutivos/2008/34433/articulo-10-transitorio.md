@@ -1,0 +1,1 @@
+Transitorio X.—Para el cumplimiento del artículo 53 de este Reglamento y basada en el artículo 31 de la Ley Biodiversidad será necesario contar contenido presupuestario para la creación de las plazas de Directores de AC.
