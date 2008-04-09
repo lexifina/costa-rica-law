@@ -1,0 +1,21 @@
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS
+Y ALCANTARILLADOS
+Nº 2008-119
+ASUNTO: Procedimiento de abstención para funcionarios de la Auditoría Interna de AyA.
+Considerando:
+I.—Que el Manual de Normas Generales para el ejercicio de la Auditoría Interna en el Sector Público, M-1-2004-CO-DDI, publicado en La Gaceta Nº 246 del 16 de diciembre del 2004, en las normas sobre atributos indica:
+“1.2.4 Impedimentos a la independencia y objetividad. Si la independencia y objetividad se viesen comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer al jerarca y demás partes que correspondan. La naturaleza de esta comunicación deberá ser por escrito.
+1.2.4.1 Impedimento de auditar por responsabilidad en procesos. Los funcionarios de la Auditoría Interna deben abstenerse de auditar operaciones específicas de las cuales hayan sido previamente responsables como funcionarios de la Administración, proveedores u otras relaciones. Se presume que hay impedimento de objetividad si se provee servicios para una actividad en la cual se tuvieron responsabilidades o relaciones que puedan resultar incompatibles.
+1.2.4.2 Impedimento de asesorar o advertir por responsabilidad en procesos: Los funcionarios de la Auditoría Interna no deben ejecutar sus competencias de asesoría y advertencia en relación con operaciones de las cuales hayan sido previamente responsables.”
+II.—Que el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Instituto Costarricense de Acueductos y Alcantarillados, establece lo siguiente:
+Artículo 17.—Responsabilidad. En lo que nos interesa señala: “...Es obligación del Auditor Interno, establecer las medidas formales para controlar y administrar las situaciones de impedimento que pudieran presentarse de hechos o actuaciones que pongan en duda o en peligro la objetividad e independencia de la Auditoría Interna”.
+III.—Que es conveniente regular el indicado impedimento con la finalidad de asegurar su cumplimiento y lograr una actuación institucional apegada a principios de transparencia y objetividad. Por tanto la Auditoría Interna del A y A, emite el siguiente:
+PROCEDIMIENTO DE ABSTENCIONES PARA LOS FUNCIONARIOS
+DE LA AUDITORÍA INTERNA DEL INSTITUTO COSTARRICENSE
+DE ACUEDUCTOS Y ALCANTARILLADOS
+Artículo 1º—Definiciones. Cuando en este procedimiento se utilicen los términos enunciados en el presente artículo, deben interpretarse los siguientes significados:
+1. Abstención: situación prevista en el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público, M-1-2004-CO-DDI, publicado en La Gaceta Nº 246 del 16 de diciembre del 2004, en las Normas sobre atributos: 1.2.4 Impedimentos a la independencia y objetividad, y el artículo 19 del Reglamento de Organización y Funcionamiento de la Auditoría Interna de AyA, inhibe al funcionario de la Auditoría Interna para actuar en un caso determinado. La voz de abstención incluye tanto a la excusa como a la recusación.
+2. Excusa: solicitud que hace el propio funcionario para que se le separe de atender un estudio o trabajo de Auditoría Interna que le fue asignado, por tener conocimiento de alguna situación que podría caberle el motivo de abstención.
+3. Recusación: solicitud hecha por quien se cree afectado, para que separe al funcionario de Auditoría Interna del estudio o trámite de un asunto asignado.
+4. Interés personal o directo: relación entre el funcionario encargado de atender un estudio o trabajo de Auditoría Interna y el objeto del estudio en revisión.
+5. Interés indirecto: cuando la relación se da entre personas cercanas al funcionario llamado a actuar, incluidos su cónyuge, su compañera, o compañero, o algunos de sus parientes, hasta el tercer grado de consanguinidad o afinidad, conforme el artículo 38 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y el objeto del tema de Auditoría Interna respectivo. Igualmente, existe interés indirecto cuando la relación es entre el funcionario por medio de una persona jurídica (por ejemplo: sociedad anónima, de responsabilidad limitada, etc.) de la que forma parte o es director, fiscal o representante legal y el objeto del caso en evaluación.

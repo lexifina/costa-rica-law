@@ -1,0 +1,7 @@
+Artículo 6º—Trámite común para resolver.
+1. El Auditor Interno llamado a resolver la excusa o la recusación evacuará la prueba ofrecida que resulte pertinente, podrá recabar los informes y las otras pruebas que considere oportunas dentro del plazo máximo de cinco días hábiles.
+2. Toda resolución en la que se decida de la abstención solicitada por el propio funcionario o por alguna de las partes, deberá ser dictada por los funcionarios competentes dentro del tercer día hábil luego de recibida la prueba correspondiente.
+3. Las resoluciones en las que se admita o rechace cualquier abstención (excusa o recusación), tendrá los recursos de revocatoria ante el mismo funcionario que la dictó y de apelación ante la Junta Directiva. Dichos recursos deberán presentarse dentro del tercer día hábil. Cuando lo resuelto emane directamente de la Junta Directiva cabrá, únicamente recurso de revocatoria, siempre dentro del tercer día hábil.
+4. Firme la resolución en la que se declare sin lugar cualquier abstención, se ordenará que el funcionario continúe conociendo del caso.
+5. Si la abstención fuere declarada procedente, en la misma resolución se designará al funcionario sustituto, que habrá de ser de la misma jerarquía del funcionario inhibido.
+6. Si no hubiere funcionario de igual jerarquía al inhibido, el conocimiento corresponderá al Auditor Interno. En caso de que se trate del Auditor Interno, la Junta Directiva delegaría el asunto en el Subauditor Interno o designará otro funcionario de la Auditoría Interna para atender el asunto.
