@@ -1,0 +1,1 @@
+Artículo 30.—Confidencialidad del denunciante. La Auditoría Interna deberá asegurar la confidencialidad de los denunciantes, de acuerdo con el artículo 6 de la LGCI. Sí el denunciante tiene interés en que su identidad sea conocida, en algún momento del proceso, deberá comunicarlo expresamente a la Auditoría Interna.

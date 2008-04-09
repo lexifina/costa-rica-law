@@ -1,0 +1,9 @@
+Artículo 13.—Deberes del Auditor Interno. El Auditor Interno deberá conocer las disposiciones técnicas y legales que rigen la Administración Pública y el Sistema de Control Interno. Son sus deberes:
+a) Proponer la estructura organizativa y funcional de la Auditoría Interna.
+b) Organizar y ejecutar la dirección y administración de la Auditoría Interna. Para ello dictará con criterios uniformes lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica.
+c) Liderar el proceso de planificación estratégica de la Auditoría Interna y en ese contexto, definir sus objetivos, sus valores fundamentales y su proyección.
+d) Ejecutar el proceso de supervisión y en tal condición, propiciar que los esfuerzos relacionados con éste, se dirijan al cumplimiento de los objetivos de la Auditoría Interna, de cada proceso y de cada estudio en particular, así como al cumplimiento de las normas, de los procedimientos y de las prácticas prescritas para el mejoramiento de su calidad y para generar valores agregados tanto a los procesos como a los productos y servicios finales del trabajo de la Auditoría Interna.
+e) Administrar los recursos materiales, tecnológicos y de otra naturaleza de su dependencia, garantizando la utilización de tales recursos en forma económica, eficiente, eficaz, legal y transparente para la consecución de las metas y objetivos de la Auditoría Interna.
+f) Conocer, informar y divulgar dentro de MIDEPLAN las Normas Contraloría.
+g) Proponer el anteproyecto de presupuesto de la Auditoría Interna del ejercicio presupuestal respectivo, para aprobación del Ministro, quien valorará las posibilidades de atender los requerimientos propuestos de conformidad con las regulaciones jurídicas y técnicas aplicables.
+h) Formular, gestionar y mantener vigente el Reglamento.

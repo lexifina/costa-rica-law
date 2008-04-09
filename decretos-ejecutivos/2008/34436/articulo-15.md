@@ -1,0 +1,14 @@
+Artículo 15.—Prohibiciones. El Auditor Interno y los funcionarios de la Auditoría Interna tendrán las restricciones establecidas en el artículo 34 de la LGCI, entre las cuales están las siguientes prohibiciones:
+a) Realizar funciones y actuaciones de Administración Activa, salvo las necesarias para cumplir la competencia de la Auditoría Interna.
+b) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto de MIDEPLAN. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+c) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipalidades.
+d) Revelar información sobre las auditorías o los estudios especiales que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de MIDEPLAN.
+e) Aceptar regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, sin perjuicio del deber de denunciar tales hechos ante las instancias competentes.
+f) Mantener relaciones de índole personal, sentimental, de negocios o de cualquier otra naturaleza con personal de MIDEPLAN y otras personas que puedan influir, comprometer o amenazar la capacidad para actuar o que puedan afectar su independencia o la imagen de la Auditoría Interna.
+g) Utilizar su cargo oficial con propósitos privados.
+h) Realizar actividades que impliquen un riesgo de corrupción o que puedan suscitar dudas acerca de su objetividad e independencia. Si la independencia y objetividad se viesen comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer al jefe inmediato y demás partes involucradas. La naturaleza de esta comunicación deberá ser por escrito.
+i) Auditar operaciones específicas de las cuales hayan sido previamente responsables como funcionarios de la Administración Activa o como proveedores o empleados de proveedores de MIDEPLAN.
+j) Proveer servicios para una actividad en la que se tuvo responsabilidades o relaciones que puedan resultar incompatibles.
+k) Ejecutar sus competencias de asesoría y advertencia en relación con operaciones de las cuales hayan sido previamente responsables.
+l) Ejercer funciones simultáneamente en otra unidad operativa de MIDPELAN.
+m) Ser miembros de juntas directivas de órganos y entes públicos y organizaciones privadas, de comisiones de trabajo o similares de la Administración Activa o de órganos directores de procedimientos administrativos.

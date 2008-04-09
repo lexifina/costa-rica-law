@@ -1,0 +1,3 @@
+Artículo 32.—Comunicación oral. Los hallazgos obtenidos en el transcurso de la auditoría o estudio especial de auditoría deberán ser comentados con los funcionarios responsables, previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.
+Se exceptúan los casos de auditoría o estudios especiales con carácter reservado, en los que sus resultados no deberán discutirse. Cuando una auditoría o un estudio especial arrojen información que se considere de carácter confidencial, los comentarios versarán únicamente sobre la información que no revista esa condición.
+Los informes de Relaciones de Hechos no requieren de la comunicación oral de hallazgos.

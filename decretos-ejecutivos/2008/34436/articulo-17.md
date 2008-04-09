@@ -1,0 +1,2 @@
+Artículo 17.—Movimientos de Personal. Los funcionarios de la Auditoría Interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal de MIDEPLAN. No obstante, las regulaciones de tipo administrativo mencionadas no deberán afectar negativamente la actividad de Auditoría Interna, su independencia funcional y de criterio. En caso de duda, la Contraloría dispondrá lo correspondiente.
+Los nombramientos, los traslados, las supresiones y las concesiones de licencias deberán contar con la autorización del Auditor Interno.

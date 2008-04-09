@@ -1,0 +1,2 @@
+Artículo 11.—Nombramiento y nivel jerárquico. El Ministro nombrará al Auditor Interno por tiempo indefinido. Cuando corresponda y sea conveniente para el desempeño de la Auditoría Interna, los nombramientos interinos del Auditor Interno deberán ser autorizados previamente por la Contraloría y a solicitud del Ministro, por un plazo no mayor de doce meses. El Auditor Interno dependerá orgánicamente del Ministro.
+El Auditor Interno sólo podrá ser removido del cargo por justa causa, previo dictamen de la Contraloría, según regulaciones del artículo 15 de la LOCGR.

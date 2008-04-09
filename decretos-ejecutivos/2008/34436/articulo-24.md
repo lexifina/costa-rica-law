@@ -1,0 +1,1 @@
+Artículo 24.—Independencia funcional y de criterio. La actividad de Auditoría Interna debe estar libre de injerencias del Ministro y de los demás órganos de la Administración Activa, tanto al determinar su planificación y sus modificaciones, como al manejar sus recursos y al desempeñar su trabajo y comunicar sus resultados.
