@@ -1,0 +1,1 @@
+Artículo 31.—Composición de la Comisión. La Comisión de Servicios Notariales estará integrada por el Director Regional, Director Regional de Crédito y un abogado de la Dirección Regional, como titulares, como suplente de los dos primeros fungirá el Director Regional Comercial y como suplente del tercero fungirá un abogado de la Dirección Jurídica del Banco.

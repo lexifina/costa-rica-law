@@ -1,0 +1,1 @@
+Artículo 2º—Plazo de la contratación. La vigencia del contrato se hará por un año, prorrogable hasta por tres años adicionales, hasta completar un total de cuatro años, a juicio del Banco, siempre y cuando el servicio se hubiere prestado a entera satisfacción del Banco Nacional.
