@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Instituto de Desarrollo Agrario para que mediante exhorto proceda a cancelar la inscripción en el Registro Público de las fincas: a) Partido de Limón, Folio Real 26.501-000, b) Partido de Alajuela, Folio Real 215.217-000, c) Partido de Limón, Folio Real 39.050-000, d) Partido de Alajuela, Folio Real 237.598-000.

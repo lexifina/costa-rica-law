@@ -1,0 +1,10 @@
+Nº 34415
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, y los artículos 25, inciso 1), 27, inciso 1), 28, inciso 2), acápite b) y 30 inciso 3) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978.
+Considerando:
+Primero.—Que por Decretos Ejecutivos N° 11363-A, publicado en La Gaceta Nº 74 del 18 de abril de 1980, 16707-MAG, publicado en La Gaceta Nº 235 del 9 de diciembre de 1985, 18220-MAG, publicado en La Gaceta Nº 131 del 11 de julio de 1988 y 18970-MAG, publicado en La Gaceta Nº 93 del 16 de mayo de 1989, se traspasaron áreas de reservas nacionales al Instituto de Desarrollo Agrario (anteriormente Instituto de Tierras y Colonización) para la creación de los programas de titulación en reservas nacionales denominados, Limón 0-34, Zona Norte, BIRF 2764 C.R., Los Chiles, respectivamente.
+Segundo.—Que los anteriores Decretos Ejecutivos generaron la creación, en el Registro Público, de las siguientes fincas: a) Partido de Limón, Folio Real 26.501-000, b) Partido de Alajuela, Folio Real 215.217-000, c) Partido de Limón, Folio Real 39.050-000, d) Partido de Alajuela, Folio Real 237.598-000.
+Tercero.—Que la Contraloría General de la República mediante oficio DFOE-ED-7-2007, de fecha 15 de marzo de 2007, punto 4, aparte 4.2.1, inciso b) dispuso al Consejo de Gobierno derogar los decretos ejecutivos antes citados. Por tanto,
+Decretan:
+Artículo 1º—Deróguense los Decretos Ejecutivos Nos. 11363-A, publicado en La Gaceta Nº 74 del 18 de abril de 1980, 16707-MAG, publicado en La Gaceta Nº 235 del 9 de diciembre de 1985, 18220-MAG, publicado en La Gaceta Nº 131 del 11 de julio de 1988 y 18970-MAG, publicado en La Gaceta Nº 93 del 16 de mayo de 1989, mediante los cuales se traspasaron áreas de reservas nacionales al Instituto de Desarrollo Agrario (anteriormente Instituto de Tierras y Colonización) para la creación de los programas de titulación en reservas nacionales denominados, Limón 0-34, Zona Norte, BIRF 2764 C.R., Los Chiles, respectivamente.
