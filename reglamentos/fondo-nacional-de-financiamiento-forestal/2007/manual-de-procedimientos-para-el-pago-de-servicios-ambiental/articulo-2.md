@@ -8,7 +8,8 @@ Las presolicitudes de PSA se regirán por los siguientes criterios de priorizaci
 2.1.4. Proyectos de regeneración natural con potencial productivo en sitios con al menos un año de abandono y libres de pastoreo.
 2.2. PROYECTOS DE PROTECCIÓN DE BOSQUES
 2.2.1. Los sitios ubicados en corredores biológicos reconocidos oficialmente por el SINAC, los cuales se conservan como primera prioridad para ingreso al Programa PSA.
-2.2.2. Proyectos protección sobre inmuebles que cumplan con lo establecido en el punto anterior, donde se hayan suscrito contratos de pago de servicios ambientales en años anteriores, siempre que cumplan con los demás requisitos establecidos en este Manual y hayan cumplido su período de vigencia antes de presentar una nueva presolicitud de ingreso.
+2.2.2 Proyectos de protección sobre inmuebles que cumplan con lo establecido en el punto anterior, donde se hayan suscrito contratos de pago de servicios ambientales en años anteriores, siempre que cumplan con los demás requisitos establecidos en el manual y concluya su período de vigencia en el mismo año en que se presente la nueva presolicitud. La vigencia de los nuevos contratos iniciará al día siguiente de la fecha de vencimiento del contrato anterior
+(Así reformado el punto anterior por el Fondo Nacional de Financiamiento Forestal y publicado en La Gaceta N°78 del 23 de abril de 2008).
 2.2.3. Áreas de bosque que tengan como función principal la protección del recurso hídrico, consideradas de interés para acueductos rurales, proyectos de Acueductos y Alcantarillado y las empresas de servicios públicos, los cuales deben estar respaldados mediante una certificación emitida por el administrador del acueducto respectivo.
 2.2.4. Inmuebles de propiedad privada ubicados dentro de las áreas silvestres protegidas y que aún no han sido compradas o expropiadas por el Estado.
 2.2.5. Los sitios con bosque ubicados en los cantones con IDS menor a 40% según la determinación realizada por MIDEPLAN.
