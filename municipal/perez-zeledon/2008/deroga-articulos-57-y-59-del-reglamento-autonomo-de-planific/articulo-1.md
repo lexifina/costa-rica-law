@@ -1,0 +1,2 @@
+El Concejo Municipal de Pérez Zeledón, comunica el acuerdo tomado en la sesión ordinaria 098-08, artículo 3, inciso 40), celebrada el 11 de marzo de 2008, donde indica lo siguiente:
+“Derogar los artículos 57 y 59 del Reglamento Autónomo de Planificación y Presupuestación Institucional de esta Municipalidad publicado en La Gaceta N° 86 del 7 de mayo del 2007 y vigente a partir del 6 de junio de 2007.
