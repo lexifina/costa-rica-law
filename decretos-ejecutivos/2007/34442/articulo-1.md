@@ -1,0 +1,23 @@
+Nº 34442
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+En uso de las facultades que les confiere el artículo 140 inciso 3) y 18) y el artículo 146 de la Constitución Política; Ley General de la Administración Pública Nº 6227 del dos de mayo de mil novecientos setenta y ocho.
+Considerando:
+1º—Que de conformidad con lo que establece el artículo 22 inciso 15) de la Ley Orgánica del Colegio de Abogados; Ley Nº 13 del 28 de octubre de 1941, reformada por la Ley 6595 del 6 de agosto de 1981, así como lo prescrito en el artículo 166 del Código Notarial, Ley Nº 7764 del 22 de mayo de 1998, corresponde a la Junta Directiva del Colegio de Abogados realizar las fijaciones de honorarios aplicables al cobro de servicios profesionales que presten los abogados y notarios, y al Poder Ejecutivo, revisar, estudiar, aprobar y promulgarlas.
+2º—Que mediante reforma al artículo 6 de la Ley Nº 3245 del 3 de diciembre de 1963, Ley del Timbre de Abogados, operada mediante el artículo 185 del Código Notarial, se dispuso que un cincuenta por ciento (50%) producto de las operaciones notariales inscribibles en el Registro Nacional, cancelado mediante el timbre de abogados y agregado a todo testimonio que se expida, será girado por el Colegio de Abogados de Costa Rica al Poder Judicial para financiar a la Dirección Nacional de Notariado.
+3º—Que producto de la modificación en escala para el cobro del Timbre del Colegio de Abogados en los aspectos notariales registrables, entre otros actos, introducida en la última reforma del Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado, según Decreto Ejecutivo Nº 32493-J del 9 de marzo del 2005, la Dirección Nacional de Notariado ha venido sufriendo desde esa fecha una disminución real en los ingresos percibidos, pues se redujo de una forma importante la suma global recaudada por este rubro, situación que ha venido en desmadro de sus competencias de organización, vigilancia y control de la actividad notarial en el país.
+4º—Que habiéndose determinado en consecuencia la causa del problema, deviene necesario y conveniente corregir el mismo mediante una modificación en la variable afectada por la reforma de agosto de 2005, sea la tarifa cobrada a los actos notariales registrables en el Arancel, procurando afectar lo menos posible la escala general de tarifas introducida en esa reforma, tratando por el contrario de mantener la norma de arancel mínimo dispuesta, así también garantizando que con el menor aumento posible, se incremente la recaudación por concepto de Timbre del Colegio de Abogados percibido por los actos notariales registrables, en una suma suficiente como para restablecer en términos reales la disminución en los ingresos que por esta fuente recibía no sólo la Dirección Nacional de Notariado, sino el propio Colegio de Abogados. Por tanto,
+Decretan:
+Artículo 1º—Refórmese el artículo 106 de arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado, Decreto Ejecutivo Nº 32493-J del 9 de marzo del 2005, publicado el 5 de agosto del 2005, para que en adelante se lea así:
+Artículo 106.—En instrumentos públicos. En los instrumentos públicos se pagará el timbre del Colegio de Abogados de acuerdo con la cuantía del acto o contrato así:
+a. Hasta doscientos cincuenta mil colones estarán exentos, así como tratándose de los casos exceptuados por ley.
+b. Mil colones cuando la cuantía sea mayor de doscientos cincuenta mil colones y no pase de un millón de colones.
+c. Dos mil colones cuando la cuantía sea mayor de un millón de colones y no pase de cinco millones de colones.
+d. Tres mil colones cuando la cuantía sea mayor de cinco millones de colones y no pase de diez millones de colones.
+e. Cinco mil colones cuando la cuantía sea mayor de diez millones de colones y no pase de los cincuenta millones de colones.
+f. Diez mil colones cuando la cuantía sea mayor a cincuenta millones de colones.
+g. Los instrumentos adicionales que no aumenten la cuantía estarán exentos de timbres.
+h. Si el documento contuviere varios operaciones el timbre se tasará sobre la suma de cada una de ellas, pero si fueren asuntos inestimables, cubrirán cada uno doscientos cincuenta colones de timbre.
+i. El timbre se pagará en el primer testimonio o certificación; si se expiden testimonios se agregará a cualquiera de ellos y en los demás se indicará en cuál testimonio se pagó; pero si no se expide una reproducción el timbre se agregará al margen de la matriz.
+j. Si se tratare de traspaso de muebles o inmuebles la cuantía se establecerá de acuerdo con el mayor valor que resulte entre el valor fiscal y el declarado por las partes.
+k. Toda certificación notarial pagará doscientos cincuenta colones.
