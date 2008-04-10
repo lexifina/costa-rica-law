@@ -1,2 +1,0 @@
-Artículo 102.—Si el Departamento de Régimen Disciplinario o el Tribunal de Honor llegaren a tener conocimiento de que la parte afectada sí tuvo el conocimiento debido de los hechos en el momento de su comisión o en otro posterior y no ejercieron oportunamente la acción correspondiente ante el Colegio Federado de Ingenieros y de Arquitectos, procederán a remitir su recomendación a la Junta Directiva General para lo que corresponda en derecho.
-(Así reformado mediante sesión N° 06 del 20 de setiembre de 2007)
