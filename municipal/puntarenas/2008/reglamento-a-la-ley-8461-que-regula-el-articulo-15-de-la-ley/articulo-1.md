@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE PUNTARENAS
+ALCALDÍA MUNICIPAL
+Acuerdo Municipal de la sesión ordinaria Nº 179 celebrada el día 07 de marzo de 2008, Artículo 4º Inciso A).
+REGLAMENTO A LA LEY 8461 QUE REGULA
+EL ARTÍCULO 15 DE LA LEY N° 5582
+CAPÍTULO I
+Del ingreso y presupuestación de los recursos
+Artículo 1º—De la recaudación del impuesto. En cumplimiento con lo establecido en el párrafo 1 del artículo 15 de la Ley, la Municipalidad de Puntarenas establecerá un sistema que asegure el ingreso de la totalidad de los recursos, de acuerdo con la cantidad de toneladas que acredite la Dirección General de Aduanas como válidas para tramitar la importación o exportación de bienes que se movilicen en los cantones Central y Esparza. De acuerdo con la ley, la aduana no tramitará ninguna póliza si el gravamen establecido no ha sido pagado previamente a la Municipalidad. En caso de incumplimiento de esta obligación por parte de la aduana, o de los usuarios, la Municipalidad deberá plantear las acciones administrativas y judiciales correspondientes en un plazo prudencial después de comprobada la irregularidad.
+La Municipalidad podrá suscribir convenios con las distintas instituciones participantes en los procesos de importación o exportación de bienes o con cualquier banco del Sistema Bancario Nacional, con el fin de asegurar la simplificación del trámite de pago del impuesto y el establecimiento de controles cruzados que aseguren su percepción en los términos establecidos por la Ley. La Auditoria Municipal incluirá en su programa anual de trabajo la realización de estudios trimestrales que incluyan, al menos, información que permita determinar si los montos recaudados por concepto del impuesto coinciden con el número de toneladas movilizadas, indicando cuando proceda, a las autoridades municipales, las acciones administrativas o judiciales que a su juicio, correspondan.
