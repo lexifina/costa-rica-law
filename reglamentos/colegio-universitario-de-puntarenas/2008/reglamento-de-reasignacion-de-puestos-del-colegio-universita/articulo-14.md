@@ -1,0 +1,1 @@
+Artículo 14. Para lo no dispuesto en este reglamento, se referirá a los “Procedimientos para la Aplicación de las Directrices Generales de Política Salarial, Empleo y Clasificación de puestos para las Entidades Públicas, Ministerios y demás órganos según corresponda, cubiertas por el ámbito de la Autoridad Presupuestaria”, las cuales son emitidas cada año.

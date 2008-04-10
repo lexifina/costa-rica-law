@@ -1,0 +1,4 @@
+Artículo 6°. Formulario de Análisis Ocupacional
+El cuestionario de Análisis Ocupacional (digital) debe ser llenado en forma completa y firmado por el solicitante. Este formulario consta de las siguientes partes: análisis de procesos, productos o servicios, factores de clasificación, necesidades de la entidad de contar con el desempeño de las tareas en forma permanente, consistencia de la estructura orgánica, ocupacional y salarial de la entidad con la propuesta de reasignación.
+El Jefe Inmediato será responsable de justificar, recomendar y avalar con su firma el contenido del análisis ocupacional para la probable reasignación de la plaza.
+El interesado deberá devolver al Departamento de Recursos Humanos debidamente lleno y con las firmas requeridas, el formulario Análisis Ocupacional impreso dentro de los 10 días hábiles posteriores a la fecha en que le fue entregado. De ser necesario podrá adjuntar documentos comprobatorios, para fundamentar sus atestados.
