@@ -1,0 +1,1 @@
+Artículo 7º—El nombramiento de Hijo Predilecto se otorgará mínimo cada dos años, sin perjuicio de que la Municipalidad pueda otorgar más de una orden, en casos excepcionales y cuando haya sido debidamente documentada y justificada su procedencia por acuerdo Municipal firme.

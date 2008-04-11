@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo Municipal delegará a la Comisión de Cultura Municipal, de quien se encargará de promocionar la divulgación de la existencia del Homenaje para motivar a la comunidad a que participe con la propuesta de candidatos, así como para estudiar y valorar cada una de los legajos de las personas propuestas, confeccionar la terna o la nómina de rigor.

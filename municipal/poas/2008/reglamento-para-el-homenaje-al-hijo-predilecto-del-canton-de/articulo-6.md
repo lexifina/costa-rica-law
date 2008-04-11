@@ -1,0 +1,1 @@
+Artículo 6º—La mención honorífica de Hijo Predilecto será conferida por el Concejo Municipal mínimo cada dos años, el día 15 de setiembre, en el Acto Cívico de la celebración de la Independencia, para garantizar la mayor afluencia de ciudadanos que participen en el homenaje. El plazo mínimo de dos años empezó a regir a partir de la publicación del presente Reglamento.

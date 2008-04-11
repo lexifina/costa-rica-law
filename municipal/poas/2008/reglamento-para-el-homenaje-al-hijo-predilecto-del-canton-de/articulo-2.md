@@ -1,0 +1,1 @@
+Artículo 2º—El título conferido lo hará acreedor (placa), con el logotipo de la Municipalidad de Poás y la leyenda que declara “Hijo Predilecto del Cantón de Poás” y con la indicación precisa de la fecha y año a que obedece el reconocimiento.

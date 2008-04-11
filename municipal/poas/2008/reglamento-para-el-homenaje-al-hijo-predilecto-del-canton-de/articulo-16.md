@@ -1,0 +1,1 @@
+Artículo 16.—Con sede en la Municipalidad de Poás, se acondicionará un espacio físico agradable y estético donde se colgarán en sus paredes la placa de reconocimiento a los Hijos Predilectos del Cantón de Poás, con la placa que indica el año a que corresponde su designación.
