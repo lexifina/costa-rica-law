@@ -14,3 +14,4 @@ Reglamento de Becas de estudios para los Funcionarios(as) de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-15 | la propia norma |
+| 2 | 2008-04-15 | Reglamento municipal 182 (2008-04-15) |
