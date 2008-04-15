@@ -1,0 +1,1 @@
+Artículo 26.—Es facultad del Auditor Interno proveer e intercambiar información con la Contraloría General de la República, u otros entes y órganos de control, según su ámbito de competencia. Lo anterior, sin perjuicio de la coordinación interna que deba aplicarse y sin que ello implique una limitación en la actuación de la Auditoría.
