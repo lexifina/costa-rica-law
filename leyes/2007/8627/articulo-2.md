@@ -92,3 +92,4 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 34373 del 11 de febrero de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34391 del 21 de febrero de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34382 del 27 de febrero de 2008)
+(Modificado por el artículo 1° y 2° del decreto ejecutivo N° 34440 del 28 de marzo de 2008)
