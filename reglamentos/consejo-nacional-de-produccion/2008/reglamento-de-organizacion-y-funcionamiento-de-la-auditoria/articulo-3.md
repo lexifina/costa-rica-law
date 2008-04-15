@@ -1,0 +1,1 @@
+Artículo 3º—Del presente reglamento. Para la formulación, aprobación, promulgación y modificación de este Reglamento se estará a lo dispuesto en las “Directrices generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público” N° D-2-2006-CO-DFOE-DAGJ, publicadas en La Gaceta N° 236 del 8 de diciembre del 2006.

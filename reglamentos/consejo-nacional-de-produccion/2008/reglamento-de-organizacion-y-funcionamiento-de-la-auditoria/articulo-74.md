@@ -1,0 +1,1 @@
+Artículo 74.—Coordinación con la Contraloría General de la República. Para el seguimiento a la atención de las disposiciones de la Contraloría General de la República, se efectuará la respectiva coordinación con el área responsable de esa actividad en el Órgano Contralor.
