@@ -1,0 +1,1 @@
+Artículo 3º—Se les recuerda a los Ministros de Estado, Presidentes Ejecutivos, Presidentes de Organizaciones de Bienestar Social y a las Instituciones Autónomas del Estado el deber de cumplir con la Directriz Presidencial de cita.
