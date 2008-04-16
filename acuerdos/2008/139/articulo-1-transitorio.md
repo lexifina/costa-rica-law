@@ -1,0 +1,1 @@
+Transitorio I.—Por una única vez, aquellas embarcaciones que hubieren zarpado de puerto costarricense, con anterioridad a la fecha de publicación del presente acuerdo, en el primer ingreso siguiente a partir de esa fecha que efectúen en puertos costarricenses, se permite por una sola vez la descarga de tiburón con sus respectivas aletas adheridas al cuerpo en forma parcial.
