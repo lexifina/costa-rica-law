@@ -1,0 +1,1 @@
+Artículo 45.—Planteamiento de conflictos ante la Contraloría General de la República: Cuando se presente discrepancia entre las recomendaciones dadas por la auditoría y las soluciones alternas ordenadas por el jerarca, se procederá según lo indicado en el artículo 38 de la Ley General de Control Interno
