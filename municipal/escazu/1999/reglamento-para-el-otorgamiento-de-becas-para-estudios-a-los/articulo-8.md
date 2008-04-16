@@ -1,1 +1,0 @@
-Artículo 8°—Período de duración de la beca. La beca se concederá por el tiempo que el solicitante así lo requiera para terminar los estudios que realiza. El becario deberá renovarla cada año, de acuerdo con el procedimiento contemplado en este Reglamento y los documentos requeridos para el caso.
