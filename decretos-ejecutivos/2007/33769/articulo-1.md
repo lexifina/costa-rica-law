@@ -2,6 +2,7 @@
 Nº 33769-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
+(Anulado este Decreto Ejecutivo mediante resolución de la Sala Constitucional N° 6052-08 del 16 de abril del 2008.)
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; y 27 párrafo primero de la Ley General de Administración Pública; 1º, 2º, 4º, 7º, 49, 142, 143, 144 y 145 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”.
 Considerando:
 I.—Que la salud de la población es un bien de interés público tutelado por el Estado, siendo que el Ministerio de Salud procura garantizar la salud de la población así como el goce de un ambiente sano.

@@ -14,3 +14,4 @@ Reforma Reglamento General de Cementerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-22 | la propia norma |
+| 2 | 2008-04-16 | SINALEVI (sin norma nombrada) |
