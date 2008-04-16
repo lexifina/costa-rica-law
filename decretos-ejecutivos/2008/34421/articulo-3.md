@@ -1,0 +1,1 @@
+Artículo 3º—En el menor plazo posible, el INCOPESCA con el apoyo del sector pesquero nacional no deportivo, llevará a cabo una valoración, generará y ejecutará un plan que contenga las acciones necesarias para fortalecer el sistema de control de uso del combustible destinado a la flota pesquera nacional no deportiva. El plan deberá ser sólido, eficiente y auditable de control.
