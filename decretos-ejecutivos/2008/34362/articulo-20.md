@@ -1,0 +1,1 @@
+Artículo 20.—Prestigio Institucional. El personal del CONAPAM tendrán la obligación de contribuir, tanto en la esfera pública como en la privada, al prestigio de la Institución y deberá abstenerse de toda expresión y actuación que vaya en su demérito, sin perjuicio de su obligación de mantener una actitud vigilante y de crítica constructiva respecto de la Institución.

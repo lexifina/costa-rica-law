@@ -1,0 +1,1 @@
+Artículo 19.—Conflicto de intereses. En caso de conflictos entre los intereses institucionales y el interés del personal del CONAPAM es obligación del personal actuar de conformidad y en estricto apego a las normas de ética contenidas en este Código.

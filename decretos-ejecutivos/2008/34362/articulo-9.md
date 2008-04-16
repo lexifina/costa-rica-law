@@ -1,0 +1,1 @@
+Artículo 9º—Confidencialidad. Es obligación del personal del CONAPAM, bajo el principio de confidencialidad, no divulgar, con las excepciones previstas en la normativa vigente, ningún tipo de información que les sea dada como confidencial.

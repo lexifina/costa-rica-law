@@ -1,0 +1,1 @@
+Artículo 3º—Desempeño de funciones. Es deber del personal del CONAPAM desempeñar sus funciones de la mejor manera posible y cumplir sus labores en estricto apego a los principios éticos aquí consignados y a la normativa vigente.

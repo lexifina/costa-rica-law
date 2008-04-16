@@ -1,0 +1,1 @@
+Artículo 8º—De la educación permanente. El personal del CONAPAM debe mantener un compromiso interno de autoevaluarse, retroalimentarse y participar en actividades que le permitan mejorar sus conocimientos y afianzar sus destrezas. Para ello el CONAPAM procurará mantener dentro de su presupuesto una partida para cubrir esta materia.
