@@ -1,0 +1,5 @@
+Artículo 19.—Refórmese el artículo 117 del Decreto Ejecutivo Nº 31635-MEP fecha 4 de febrero de dos mil cuatro, publicado en La Gaceta Nº 30 del 12 de febrero del año dos mil cuatro, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 117.—Entrega de los resultados de las Pruebas de Bachillerato en Educación Media.
+Recibida el Acta donde la Dirección de Gestión y Evaluación de la Calidad, informa los resultados de las pruebas y las calificaciones finales, el Director de la institución, convocará a los postulantes y al profesor de la disciplina correspondiente, con el fin de comunicarles en sesión formal los resultados obtenidos.
+El postulante tendrá derecho a revisar y confrontar los resultados obtenidos en la prueba, con el documento que transcribe las respuestas correctas. Para estos efectos, podrán contar con la colaboración del profesor de la respectiva disciplina.
+El postulante disconforme con el resultado, podrá plantear la respectiva apelación según se dispone en la sección correspondiente de este capítulo.”

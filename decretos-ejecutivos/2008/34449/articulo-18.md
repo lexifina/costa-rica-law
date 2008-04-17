@@ -1,0 +1,3 @@
+Artículo 18.—Refórmese el artículo 116 del Decreto Ejecutivo Nº 31635-MEP fecha 04 de febrero de dos mil cuatro, publicado en La Gaceta Nº 30 del 12 de febrero del año dos mil cuatro, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 116.—De la consignación de los resultados de las pruebas de Bachillerato en Educación Media.
+Concluido el proceso de calificación de la prueba y establecido el resultado final de cada estudiante, la Dirección de Gestión y Evaluación de la Calidad, procederá a elaborar las actas respectivas, las que remitirá a cada institución educativa junto con el documento que transcribe los resultados.”

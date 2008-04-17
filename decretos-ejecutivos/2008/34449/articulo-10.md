@@ -1,0 +1,3 @@
+Artículo 10.—Refórmese el artículo 97 del Decreto Ejecutivo Nº 31635-MEP fecha 4 de febrero de dos mil cuatro, publicado en La Gaceta Nº 30 del 12 de febrero del año dos mil cuatro, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 97.—Del calendario de aplicación de las Pruebas Nacionales de Bachillerato en Educación Media.
+El Ministerio de Educación Pública organizará dos convocatorias anuales, una ordinaria y otra extraordinaria, para las pruebas nacionales de bachillerato en Educación Media. Las pruebas se realizarán en las fechas y horas que defina el Despacho del Ministro, de conformidad con lo que se establece en el artículo 113 de este Reglamento. Tales fechas se incluirán anualmente en el calendario escolar”.
