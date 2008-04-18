@@ -1,1 +1,1 @@
-Artículo 12.—El canon generado por el hecho indicado en el inciso a) del artículo 5º del presente Reglamento, será retenido por la planta o matadero y lo girará a la Corporación en la semana siguiente. Para las exportaciones de ganado bovino en pie y en las importaciones de carne bovina el canon será cancelado por los sujetos pasivos de previo de la exportación o importación según sea el caso.
+Artículo 12.— (Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)

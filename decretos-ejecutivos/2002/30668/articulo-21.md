@@ -1,1 +1,1 @@
-Artículo 21.—La Dirección de Aduanas facilitará las estadísticas respectivas, necesarias para la fiscalización y control respecto del pago oportuno del impuesto establecido.
+Artículo 21.— (Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)

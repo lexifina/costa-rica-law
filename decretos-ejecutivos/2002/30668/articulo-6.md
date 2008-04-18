@@ -1,1 +1,1 @@
-Artículo 6º—Para efectos legales y administrativos, en lo que se refiere al pago y recaudación del canon legal, en caso de ganado para sacrificio, el sujeto pasivo es quien entrega el ganado al establecimiento de sacrificio. El recaudador del canon es el Establecimiento, quien está obligado a entregar el respectivo recibo o a incluir en la factura el detalle del cobro del mismo al sujeto pasivo.
+Artículo 6º—(Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)

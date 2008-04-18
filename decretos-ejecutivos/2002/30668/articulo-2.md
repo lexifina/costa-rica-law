@@ -1,1 +1,1 @@
-Artículo 2º—En sus actuaciones ordinarias se regirá por el derecho privado, constituyendo actuaciones ordinarias todas aquellas relacionadas con el cumplimiento de los objetivos de la ley y las que la Corporación ejecute en el ámbito de sus competencias.
+Artículo 2º—(Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)

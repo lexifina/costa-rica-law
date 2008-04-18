@@ -1,1 +1,1 @@
-Artículo 14.—Conforme a lo establecido en el párrafo penúltimo del artículo 7º de la Ley Nº 7837, el documento suscrito entre la Corporación y la Planta Empacadora o Matadero constituirá título ejecutivo, siendo la suma líquida y exigible, para efectos de cobro judicial, el principal más los intereses en el monto que se establece en la Ley de Creación de la Corporación.
+Artículo 14.— (Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)

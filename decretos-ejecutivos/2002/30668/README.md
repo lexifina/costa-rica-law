@@ -14,3 +14,4 @@ Reglamento a la Ley de Creación de la Corporación Ganadera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-11 | la propia norma |
+| 2 | 2008-04-18 | Decreto Ejecutivo 34572 (2008-04-18) |

@@ -1,6 +1,1 @@
-Artículo 13.—La Corporación y la planta empacadora o matadero suscribirán, cada año, dentro de las primeras dos semanas del mes de diciembre, un documento que hará constar lo siguiente:
-a. Identificación de la persona física o jurídica propietario del establecimiento o de quien lo opera. Así como el nombre y calidades y facultades del representante legal.
-b. El compromiso expreso por parte de la Corporación de suministrar, en forma oportuna y por escrito, a la planta empacadora o matadero, los días lunes de cada semana, el monto del canon establecido por ley.
-c. El compromiso expreso de la planta empacadora o matadero de cumplir con la obligación legal, cobrar, retener, recaudar y trasladar a favor de la Corporación el monto, originado en el canon legal por sacrificio de animales.
-d. En caso de que la Planta Empacadora o matadero no retenga o no traslade los montos originados en el cobro del canon por el sacrificio del ganado, se consignará en el documento que ésta se constituye en deudora de la Corporación, en la suma correspondiente al monto del canon que el establecimiento de sacrificio debió retener de acuerdo con el promedio de matanza de los tres meses previos a la suscripción del documento. Para efectos de cobro este será el monto del principal.
-e. Indicación exacta de lugar o medio para escuchar notificaciones.
+Artículo 13.—(Así derogado por el artículo 56 del decreto ejecutivo N° 34572 de 18 de abril del 2008)
