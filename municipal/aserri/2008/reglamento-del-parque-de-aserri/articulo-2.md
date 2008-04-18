@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de Aserrí, podrá administrar directamente los parques públicos propiedad de la Municipalidad; o bien delegar ésta, en Organizaciones Comunales constituidas a nivel cantonal o distrital.

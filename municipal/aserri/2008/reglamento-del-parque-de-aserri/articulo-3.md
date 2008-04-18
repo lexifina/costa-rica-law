@@ -1,0 +1,1 @@
+Artículo 3º—Los permisos para celebración de actos culturales u otro tipo en los parques, los otorgará el Concejo Municipal. Para otorgar dichos permisos, deberá considerarse lo dispuesto en el presente Reglamento.
