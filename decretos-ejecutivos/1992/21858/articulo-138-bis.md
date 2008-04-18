@@ -1,0 +1,2 @@
+Artículo 138 bis.—Los días quince (15) y último de cada mes, el Departamento de Cuarentena Animal remitirá, al Área de Gestión Tributaria de la Corporación Ganadera, todas las solicitudes de autorización de Importación de Carne Bovina fresca o congelada, realizadas en los quince días inmediatos anteriores del día de entrega.
+(Así adicionado por el artículo 57 del decreto ejecutivo N° 34572 del 18 de abril del 2008)
