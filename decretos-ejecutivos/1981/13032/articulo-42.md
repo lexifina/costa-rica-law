@@ -1,1 +1,0 @@
-Artículo 42.-Las visitas, de carácter familiar o de amistad que un médico haga a un enfermo atendido por otro colega, no deben, directa ni indirectamente, disminuir la confianza depositada en el médico tratante, ni dejar la impresión de actuación oficiosa.

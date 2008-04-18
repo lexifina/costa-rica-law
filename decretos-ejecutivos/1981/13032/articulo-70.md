@@ -1,1 +1,0 @@
-Artículo 70.-Tampoco podrá ser, a la vez, médico perito y médico tratante del mismo enfermo, salvo casos de inopia, comprobada, en cuyo caso se le aplicarán las mismas restricciones que en el artículo anterior.

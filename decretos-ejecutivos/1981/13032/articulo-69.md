@@ -1,1 +1,0 @@
-Artículo 69.-Nadie podrá ser, a la vez, salvo casos de urgencia, médico contralor y médico tratante del mismo enfermo ni ser, posteriormente, su médico a menos que haya transcurrido un período de un año, a partir del momento de su último acto como contralor.

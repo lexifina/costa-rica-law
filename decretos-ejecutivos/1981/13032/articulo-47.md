@@ -1,1 +1,0 @@
-Artículo 47.-El médico debe responsabilizarse, plenamente, de los cargos gremiales o científicos que se le confíen. Su facultad representativa o ejecutiva en asuntos gremiales, no deberá exceder el límite que se le ha fijado, debiendo obrar de acuerdo con el espíritu de su representación.

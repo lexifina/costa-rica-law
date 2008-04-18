@@ -1,1 +1,0 @@
-Artículo 15.-El médico debe cuidar con las mismas responsabilidades y respeto, a todos sus enfermos, cualesquiera sean su ideología, condición social, nacionalidad, religión, grupo étnico, situación económica, reputación y los sentimientos que le inspiran.

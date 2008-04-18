@@ -1,1 +1,0 @@
-Artículo 3º.-El médico deber ser consciente de sus deberes sociales y profesionales hacia el paciente y la comunidad y brindar su colaboración a toda política cuya finalidad sea asegurar el mejor grado de salud posible.

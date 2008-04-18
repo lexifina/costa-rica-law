@@ -1,2 +1,0 @@
-Artículo 79.-El médico queda obligado al uso de su recetario personal en todas las prescripciones e interconsultas, que por ley no deban hacerse en recetarios oficiales.
-Las solicitudes para realizar exámenes de laboratorio clínico, o para rendir informes sobre estudios de gabinete, citología, patología y cualquier otro procedimiento, debe hacerse también en recetario personal o papelería especial.

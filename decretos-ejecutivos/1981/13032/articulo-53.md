@@ -1,1 +1,0 @@
-Artículo 53.-El médico tratante tiene la obligación de concurrir a las consultas con puntualidad. Si, después de una espera prudencial, no menor de quince minutos, el médico tratante no concurre, ni solicita otra corta espera, los consultantes están autorizados para examinar al paciente.

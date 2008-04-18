@@ -1,1 +1,0 @@
-Artículo 80.-El recetario personal, la papelería especial a que se refiere el artículo 79 y las tarjetas de presentación, debe ser de tamaño y caracteres discretos y su contenido limitado en todo a las normas expresas en el artículo 77 de este Código.

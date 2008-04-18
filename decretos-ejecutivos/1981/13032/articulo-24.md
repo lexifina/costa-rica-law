@@ -1,1 +1,0 @@
-Artículo 24.-En materia de honorarios debe subsistir, en el ejercicio privado, el principio general del acuerdo entre el médico y enfermo. Si se le solicita con anticipación, el médico debe aclarar el importe de sus honorarios.

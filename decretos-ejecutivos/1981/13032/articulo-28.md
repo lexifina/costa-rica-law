@@ -1,1 +1,0 @@
-Artículo 28.-El médico debe respetar las ideas religiosas del paciente, con más razón si él mismo está en condiciones de expresarlas, y puede retirarse si considera que tales ideas son perjudiciales para un buen tratamiento.
