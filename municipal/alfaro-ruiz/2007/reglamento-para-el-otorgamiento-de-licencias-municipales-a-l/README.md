@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Licencias Municipales a la Actividad del Port
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-29 | la propia norma |
+| 2 | 2008-04-21 | Reglamento municipal 15 (2008-04-21) |
