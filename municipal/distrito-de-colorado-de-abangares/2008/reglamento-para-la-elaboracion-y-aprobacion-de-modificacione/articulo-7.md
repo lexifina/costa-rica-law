@@ -1,0 +1,1 @@
+Artículo 7º—El Concejo Municipal Distrito de Colorado improbará las modificaciones presupuestarias que no cumplan con todos los requisitos legales, técnicos y formales indispensables y los aspectos señalados en el artículo 5º del presente reglamento.

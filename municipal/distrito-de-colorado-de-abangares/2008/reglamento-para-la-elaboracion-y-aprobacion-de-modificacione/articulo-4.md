@@ -1,0 +1,1 @@
+Artículo 4º—El encargado del Área Contable deberá mantener un archivo o expediente separado, donde conste el documento presupuestario realizado y el acuerdo correspondiente de aprobación por el Concejo Municipal distrito de Colorado.

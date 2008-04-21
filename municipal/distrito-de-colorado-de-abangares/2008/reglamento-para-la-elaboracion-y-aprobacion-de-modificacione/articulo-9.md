@@ -1,0 +1,1 @@
+Artículo 9º—El Concejo Municipal Distrito de Colorado recibirá para trámite de aprobación hasta un máximo de ocho modificaciones presupuestarias al año. En los casos en que la Administración considere necesario exceder el número autorizado, deberá solicitar autorización al Concejo Municipal justificando los motivos respectivos.
