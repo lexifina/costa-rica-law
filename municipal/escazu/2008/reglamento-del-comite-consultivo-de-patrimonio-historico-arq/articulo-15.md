@@ -1,0 +1,1 @@
+Artículo 15.—Se considera reunido el quórum legal para la celebración de las sesiones, cuando estuviesen presentes tres de los cinco integrantes del Comité. En caso de no reunirse el quórum legal señalado, se procederá a nueva convocatoria, y la sesión se celebrará con los integrantes del Comité que asistieren. En este caso no se podrán tomar acuerdos.

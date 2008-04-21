@@ -1,0 +1,1 @@
+Artículo 9º—El Comité deberá instalarse con la totalidad de sus miembros(as), dentro de los diez días naturales siguiente a la elección de los ciudadanos(as) que integrarán dicho comité, El Director(a) de Cultura de la Municipalidad, convocará a los miembros(as) del Comité al acto de instalación.

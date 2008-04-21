@@ -1,0 +1,1 @@
+Artículo 10.—Los ciudadanos(as) integrantes del Comité serán elegidos(as) por un período de dos años y podrán ser nuevamente propuestos(as) y ratificados en sus cargos para periodos siguientes por el Concejo Municipal.

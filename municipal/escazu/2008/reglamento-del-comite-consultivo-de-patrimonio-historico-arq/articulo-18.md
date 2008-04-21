@@ -1,0 +1,1 @@
+Artículo 18.—Cuando alguno(a) de los integrantes del Comité elegidos(as) por la Municipalidad, sea removido(a), renuncie o por cualquier otra causa se vea impedido(a) para seguir desempeñando su cargo, el Concejo Municipal procederá a sustituirlo(a) de inmediato.

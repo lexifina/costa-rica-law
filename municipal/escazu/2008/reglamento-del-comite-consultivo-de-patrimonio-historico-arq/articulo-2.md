@@ -1,0 +1,1 @@
+Artículo 2º—El objeto del presente reglamento es establecer las atribuciones, integración y funcionamiento del Comité Consultivo de Patrimonio para la Comisión del Plan Regulador del cantón de Escazú.

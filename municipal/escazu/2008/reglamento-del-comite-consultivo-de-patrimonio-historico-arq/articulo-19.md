@@ -1,0 +1,1 @@
+Artículo 19.—Anualmente, el Presidente(a) del Comité deberá rendir ante el pleno, un informe sobre los trabajos realizados por dicho Comité, así como el avance en la ejecución de los acuerdos. De este informe se remitirá copia a la Comisión de Plan Regulador así como al Concejo Municipal.
