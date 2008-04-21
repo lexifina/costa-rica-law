@@ -1,0 +1,2 @@
+Transitorio: Luego de la publicación respectiva, se concederá el plazo de Un saludo, mes, para contar con un sello de hule que se ajuste a lo aquí dispuesto. Asimismo dentro de ese término se continuarán recibiendo para su debido trámite, los tomos que ya cuenten con la impresión del sello blanco en mención. Vencido dicho plazo, todo notario público que presente para su autorización su siguiente tomo de protocolo, deberá cumplir con el uso del sello de hule respectivo. Publíquese.
+San José, 3 de abril del 2008
