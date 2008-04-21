@@ -57,6 +57,8 @@ L. Exoneración del impuesto en caso de inmuebles pertenecientes a las asociacio
 II.—Sección de Licencias Municipales.
 1. Procedimiento para solicitud de licencias municipales (patentes).
 De conformidad con lo estipulado en la Tarifa de impuestos municipales del Cantón de Mora, Ley Nº 7387 del 16 de marzo de 1994, publicada en La Gaceta Nº 67 del 7 de abril de 1994, y en el Reglamento de Patentes aprobado por el Concejo Municipal en sesión Nº 53 de 12 de diciembre de 1994, el procedimiento para trámite de licencias municipales es el que se describe a continuación.
+(*)Para el trámite de solicitud de patente nueva o para realizar el trámite de renovación de patente en el Cantón de Mora, será necesario que el local comercial donde se explotará la misma, cuente con la acera correspondiente. La Municipalidad realizará una inspección al patentado, con el fin de constatar el cumplimiento de dicha obligación. La acera deberá adecuarse a las características establecidas por el Departamento de Desarrollo y Control Urbano.
+(*)(Así adicionado el párrafo anterior mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
 A. Solicitud de patente nueva: (Reglamento de Patentes aprobado por el Concejo Municipal en sesión Nº 53 del 12 de diciembre de 1994)
 i. Documentos que debe presentar el interesado y procedimiento:
 1. "Solicitud de patente nueva" ante el Departamento de Contabilidad, indicando el domicilio fiscal para todos los efectos legales. (Artículo 3º Reglamento Ley Nº 7387) (Formulario Nº 2)
@@ -240,7 +242,13 @@ i. Solicitud de permisos para construcción en general
 - De encontrar el Alcalde algún defecto, o considerara que algún aspecto técnico en los planos debe modificarse, lo comunicará al interesado a efecto de que proceda a hacer las enmiendas señaladas.
 - Si el interesado no está de acuerdo con los señalamientos del Alcalde podrá apelarla ante el Concejo dentro de los cinco días hábiles siguientes a aquel en que se le notificó la resolución.
 - Si el Concejo Municipal encontrare correcto los planos y completa la información indicará al interesado el monto a pagar por concepto de impuesto de construcción.
-- Hecho el pago referido y previa presentación del recibo correspondiente debidamente cancelado, el Alcalde procederá a señalar el día y la hora en que se hará la indicación de la línea de construcción y de los niveles correspondientes, a tal diligencia podrá asistir el interesado.
+(*)- Hecho el pago referido y previa presentación del recibo correspondiente debidamente cancelado, el Departamento de Desarrollo y Control Urbano procederá a señalar el día y la hora en que se hará la indicación de la línea de construcción, de los niveles y la ubicación y características de la acera, a tal diligencia podrá asistir el interesado.
+El Departamento de Desarrollo y Control Urbano establecerá las características de las aceras a construirse, según lo establecido en la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Ley N° 7600, Reglamento de Construcciones y otra normativa relacionada con el tema.
+(*)(Así reformado el punto anterior mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
+(*)En aras de vigilar el cumplimiento de lo establecido en el inciso d) del artículo 75 del Código Municipal, en la primera inspección realizada por la Unidad de Inspecciones se indicará al propietario la línea de construcción, de los niveles y la ubicación y características de la acera.
+Para el momento de la segunda inspección, la construcción de la acera deberá al menos estar iniciada. De constatarse el incumplimiento de la anterior obligación del propietario, el Inspector Municipal procederá a la clausura de la construcción, otorgando un plazo máximo tres días hábiles.
+Se realizará una tercera inspección al concluirse la obra, donde se verificará la adecuación de la obra con los planos constructivos aprobados por el Departamento de Desarrollo y Control Urbano al otorgar el permiso. En esta etapa, las aceras correspondientes deberán estar totalmente concluidas. Caso contrario, se impondrán las sanciones establecidas en los artículos 88 y 89 de la Ley de Construcciones, Ley N° 833”.
+(*)(Así adicionado mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
 - Realizadas las anteriores gestiones y firme la resolución que indica el alineamiento y nivel respectivo, se procederá a extender el permiso correspondiente que deberá ser firmado por el Alcalde y por el funcionario encargado de la supervisión de la obra. Toda persona que desee construir, reparar, o reconstruir deberá cumplir con todos los requisitos anteriores, de no ser así la Municipalidad estará facultada para ordenar la demolición de lo construido corriendo con los gastos el particular.
 - Finalizada la construcción, el supervisor de la obra dará su aprobación final y se procederá a enviar la copia del formulario "solicitud de permiso de construcción" a la Dirección General de Tributación Directa.
 2. Documentos que debe presentar el interesado
@@ -257,6 +265,10 @@ i. Solicitud de permisos para construcción en general
 - Distribución de las aguas pluviales, jabonadas y aguas negras que deban ir a un drenaje.
 - Distribución de techos.
 - Distribución de cimientos.
+(*)- Ubicación de la construcción dentro del lote, con la indicación del alineamiento y los retiros.
+(*)(Así adicionado el párrafo anterior mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
+(*)- Ubicación y características de las aceras.
+(*)(Así adicionado el párrafo anterior mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
 9. Visto bueno del Ministerio de Salud, en planos. (De tener el proyecto servicios sanitarios).
 10. Todo proyecto debe presentar la disponibilidad de agua potable emitida por el Instituto Costarricense de Acueductos y Alcantarillados en planos constructivos.
 11. En caso de plantas de tratamiento de aguas negras debe presentarse permiso de ubicación y de los planos constructivos aprobados por el Ministerio de Salud, en la Dirección de Protección al Ambiente Humano de dicho Ministerio. El interesado deberá presentar el conjunto de planos, cálculos y demás documentos pertinentes para la planificación, construcción y mantenimiento de la planta de tratamiento, se deberán incorporar los demás planos constructivos, con el visto bueno del Ministerio de Salud. El regente deberá vigilar por el funcionamiento de la misma.
@@ -273,6 +285,8 @@ i. Solicitud de permisos para construcción en general
 ii. Solicitud de permiso de construcción para condominios.
 1. Documentos que debe presentar el interesado.
 1. Aplica todos los requisitos para permisos de construcción en general, solo que se amplía el punto 14 con respecto a que los planos presenten la aprobación de las otras instituciones involucradas en el proceso, como INVU, AyA, MOPT, SETENA y otros.
+(*)Para el otorgamiento de permisos de construcción en fincas filiales pertenecientes a un condominio, será necesario que la acera colindante con la vía pública está totalmente concluida y recibida en el Departamento de Desarrollo y Control Urbano.
+(*)(Así adicionado el párrafo anterior mediante publicación efectuada en La Gaceta N ° 76 del 21 de abril de 2008).
 2. Para el caso de aprovisionamientos de agua potable, si el proyecto no se ubica en uno de los distritos en donde la Municipalidad administra el acueducto, se deberá presentar una carta de disponibilidad en donde la empresa, comité o asociación encargada del servicio manifieste la disponibilidad de agua para el número de filiales que componen el proyecto. Para el caso de proyectos a desarrollar en los distritos en donde el acueducto lo administre la Municipalidad, se deberá contar con el acuerdo del Concejo Municipal en donde se otorgue la carta de disponibilidad de agua ya referida. Si el interesado quisiera dotar el proyecto mediante la perforación de un pozo profundo deberá de aportar toda la documentación que tal aspecto conlleva.
 3. Indicar mediante croquis, esquemas, planos, estudios hidráulicos y/o hidrogeológicos, notas y cualquier otro medio el lugar y la forma en que se desfogarán las aguas pluviales del proyecto.
 4. Presentar estudios de percolación de suelos para efectos de construcción de tanques sépticos y drenajes.

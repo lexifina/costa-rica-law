@@ -15,3 +15,4 @@ Requisitos y Trámites Administrativos de la Municipalidad de Mora.
 | --- | --- | --- |
 | 1 | 2003-09-04 | la propia norma |
 | 2 | 2007-06-13 | Acuerdo municipal 0 (2007-06-13) |
+| 3 | 2008-04-21 | Acuerdo municipal 0 (2008-04-21) |
