@@ -1,0 +1,4 @@
+TÍTULO II
+Generalidades de la Auditoría Interna
+Artículo 5.—Ideas rectoras de la actividad de la Auditoría interna. La Auditoría Interna brindará un servicio de asesoría en forma objetiva e independiente para proporcionar seguridad a la Administración Municipal a validar y mejorar las operaciones y así alcanzar los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, de esta forma ayudara a la administración a conformar una organización eficiente, honesta y comprometida con la calidad del servicio.
+La actividad de Auditoría Interna procurará proporcionar una garantía razonable a la ciudadanía que la actuación del jerarca y los demás funcionarios de la administración se apegan al marco legal y técnico para la construcción de un cantón con altos índices de desarrollo sostenible y humano.

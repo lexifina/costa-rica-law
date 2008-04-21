@@ -1,0 +1,1 @@
+Artículo 37.—Aseguramiento de la calidad. La Auditoría Interna formulará y ejecutará un programa de aseguramiento de la calidad en todos los aspectos de la actividad de la Auditoría interna, en cumplimiento de la norma 1.4 del “Manual de normas para el ejercicio de la auditoría interna en el Sector Público”.
