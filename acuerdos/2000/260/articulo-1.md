@@ -1,4 +1,3 @@
-MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
 N° 260.-San José, 31 de mayo del 2000
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
@@ -9,3 +8,7 @@ a) Sonia Muñoz Tuk, mayor, soltera, abogada, cédula de identidad N° 1 -705-83
 b) Marta Luz Pérez Peláez, mayor, divorciada, abogada, cédula de identidad N° 8-046-299, propietaria.
 c) Carlos Miguel Portuguez Méndez, mayor, casado, abogado, cédula de identidad N° 1-674-774, propietario.
 d) Jorge Calvo Cascante, mayor, casado, abogado, cédula de identidad N° 3-222-207, suplente.
+Nota: Mediante el artículo 2° del acuerdo N° 071 del 22 de abril de 2008 se designan como miembros suplentes del “Tribunal Ad Hoc Administrativo de Transportes” a los siguientes funcionarios:
+a) Lic. Ronald Muñoz Corea, cédula de identidad 1-659-765
+b) Licda. Maricela Villegas Herrera, cédula de identidad 1-879-057.
+c) Licda. Damaris Ramírez Ugalde, cédula de identidad 2-433-956.

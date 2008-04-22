@@ -14,3 +14,4 @@ Integra Tribunal Ad Hoc Administrativo de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-09 | la propia norma |
+| 2 | 2008-04-22 | Acuerdo 71 (2008-04-22) |
