@@ -1,0 +1,1 @@
+Artículo 14.—Una vez completados los requisitos, la Oficina de Asuntos Comunales elevará la documentación al Alcalde Municipal para que se presente ante el Concejo Municipal que dará por acuerdo, la calificación de idoneidad que tendrá una vigencia de dos años.

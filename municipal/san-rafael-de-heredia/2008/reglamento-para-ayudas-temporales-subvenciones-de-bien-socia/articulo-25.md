@@ -1,0 +1,1 @@
+Artículo 25.—Los intereses que se generen por los fondos transferidos por la Municipalidad, deberán ser asignados a la misma obra. Si una vez ejecutada la obra, hubiese algún saldo, se debe reintegrar a la Municipalidad,

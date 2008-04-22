@@ -1,0 +1,1 @@
+Artículo 7º—Estas ayudas serán hasta por un monto de dos salarios mínimos de un Técnico 1 Municipal, autorizadas por el Alcalde Municipal una vez recibido el estudio y la recomendación de la Oficina de Asuntos Comunales.

@@ -1,0 +1,1 @@
+Artículo 20.—Para cumplir con el control, los fondos asignados serán depositados en una cuenta especial y se llevarán independientemente en la contabilidad de las organizaciones. La Oficina de Asuntos Comunales velará porque se cumplan estos requisitos.

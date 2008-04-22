@@ -1,0 +1,3 @@
+CAPÍTULO 7
+De las responsabilidades
+Artículo 29.—En caso de incumplimiento de las obligaciones y responsabilidades por parte de las Organizaciones no Gubernamentales, la Municipalidad estará facultada para suspender provisional o permanentemente la asignación de partidas municipales a los infractores, previa garantía del debido proceso. De igual forma, dichos sujetos privados podrán incurrir en responsabilidades civiles, penales y administrativas, por lo cual, la Municipalidad se reserva el derecho de ejercer las denuncias que estime convenientes para preservar lo que dicta la Ley de Control Interno, la Ley de Enriquecimiento Ilícito y demás normas legales establecidas.

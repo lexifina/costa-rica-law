@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad de San Rafael de Heredia, para poder otorgar una ayuda, deberá tener debidamente demostrada la situación de desgracia o infortunio. Para lo anterior, elaborará el informe respectivo por medio de la Comisión de Asuntos Sociales de la Municipalidad y de la Oficina de Asuntos Comunales, que darán la respectiva recomendación al Alcalde Municipal.

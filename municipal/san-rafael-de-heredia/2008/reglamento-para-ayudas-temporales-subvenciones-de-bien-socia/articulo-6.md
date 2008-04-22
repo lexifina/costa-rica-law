@@ -1,0 +1,1 @@
+Artículo 6º—Las ayudas que brinde la Municipalidad serán destinadas única y exclusivamente a solventar las necesidades socioeconómicas, alimentarias, de vivienda, de restablecimiento de la salud o cualquier otra calamidad que afronten el o los solicitantes.

@@ -1,0 +1,1 @@
+Artículo 16.—Las asociaciones integrales y específicas de desarrollo comunal y la Unión Cantonal de Asociaciones de Desarrollo Comunal deberán remitir copia de sus planes de trabajo y presupuesto, a la Oficina de Asuntos Comunales, al Concejo de distrito correspondiente, para conocimiento de los proyectos aprobados en la Asamblea General.

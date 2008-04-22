@@ -1,0 +1,1 @@
+Artículo 15.—Las juntas de educación, la junta administrativa, las asociaciones y la unión cantonal de asociaciones, deben comunicar a la Oficina de Asuntos Comunales de la Municipalidad, los cambios de sus juntas directivas, una vez que sean aprobados por la entidad que corresponde.

@@ -1,0 +1,1 @@
+Artículo 22.—Cuando los recursos económicos hayan sido retirados, la Tesorería Municipal informará a la Oficina de Asuntos Comunales para que tome las medidas del caso. La Oficina de Asuntos Comunales informará al Departamento de Ingeniería cuando corresponda, para las revisiones pertinentes, cuando la obra lo amerite.
