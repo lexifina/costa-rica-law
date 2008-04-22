@@ -27,4 +27,5 @@ i) Monto administrado: Se refiere a los montos autorizados de caja chica o manej
 j) Recaudar: Cobranza de rentas públicas. Percepción de Fondos Públicos.
 k) Recaudador: Funcionario al cual se le encargue llevar a cabo la cobranza de rentas públicas o / y percibir los fondos públicos.
 l) Factor salario: Factor determinado por el salario bruto mensual del empleado que debe rendir una garantía, de acuerdo con este Reglamento.
-m) Salario mínimo: Se refiere a lo establecido en el artículo 2°, Ley 7237.
+m) Salario Base: Se refiere al salario base de un Trabajador Misceláneo establecido por la Dirección de Servicio Civil, que se encuentre vigente al momento de realizar la caución.
+( Asi reformado por el artículo 1 del decreto ejecutivo N° 34627 del 22 de abril del 2008)
