@@ -1,0 +1,1 @@
+Artículo 34.-Dirección del Cabildo. El Concejo Municipal dispondrá las normas en cuanto al derecho de voz de las personas que asistan al Cabildo. El presidente, del Concejo Municipal será el encargado de dirigir el Cabildo debiendo tomar las medidas necesarias para mantener el orden del mismo.

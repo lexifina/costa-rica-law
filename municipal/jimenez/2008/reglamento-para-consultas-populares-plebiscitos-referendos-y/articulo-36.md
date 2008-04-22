@@ -1,0 +1,1 @@
+Artículo 36.- 0rganización. Las consultas populares a escala distrital se realizarán conforme a las normas establecidas para las consultas a escala cantonal. La organización y dirección de la misma estará a cargo del Concejo Distrital.

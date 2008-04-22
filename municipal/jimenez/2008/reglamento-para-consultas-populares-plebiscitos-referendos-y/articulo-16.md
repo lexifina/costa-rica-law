@@ -1,0 +1,1 @@
+Artículo 16.- Formulación de preguntas. La formulación de preguntas objeto de Plebiscito o Referendo debe ser clara y concisa de modo que se evite interrogaciones confusas, capciosas o de doble sentido. Salvo casos excepcionales, la pregunta será formulada de manera que se pueda contestar con un "Sí" o un "No".
