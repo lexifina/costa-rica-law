@@ -1,0 +1,1 @@
+Artículo 2°-Las instituciones nacionales, públicas y privadas brindarán en la medida de sus posibilidades la colaboración y facilidades que estén a su alcance, sin que se menoscaben las funciones propias, para la realización del congreso.
