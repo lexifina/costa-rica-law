@@ -1,0 +1,3 @@
+Artículo 8°-Requisitos: Aparte de los requisitos indicados en el artículo 2 del presente Reglamento, deberá el solicitante, aportar los siguiente documentos:
+a. Declaración jurada otorgada ante Notario Público, en la que manifieste el desconocimiento del paradero del progenitor o progenitora ausente, el tiempo aproximado que ha transcurrido desde la última vez que tuvo conocimiento de ella o de él y la no dependencia económica de la persona menor de edad del ausente.
+b. Certificación de movimientos migratorios de la persona ausente, que contemple por lo menos los últimos cinco años anteriores a la solicitud, para lo cual, en caso de ser necesario la oficina local expedirá el oficio de solicitud correspondiente.

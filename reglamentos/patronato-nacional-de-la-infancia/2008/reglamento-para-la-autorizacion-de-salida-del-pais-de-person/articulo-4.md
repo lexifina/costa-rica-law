@@ -1,0 +1,3 @@
+Artículo 4°-Sobre la audiencia oral y privada: La tramitología de audiencia se regulará por la Ley General de la Administración Pública, del 312 al 318. Aparte de la normativa citada, deberá observar el Director los siguientes procedimientos:
+a. Previo a iniciar el contradictorio, el Órgano Director del Procedimiento Administrativo, invitará a las partes a conciliar sobre el objeto del procedimiento y llegar a una salida amigable al conflicto.
+b. En el trámite de la Audiencia, será obligación del Órgano Director, escuchar la opinión de la o las personas menores de edad, según su madurez y nivel de comprensión y en caso de ser posible, en ausencia de las partes contendientes.

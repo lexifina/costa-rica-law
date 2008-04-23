@@ -1,0 +1,1 @@
+Artículo 15.-Oposición: En los casos en los que exista oposición de alguna de las personas que ostenten la autoridad parental o representación Jurídica, discrecionalmente la Presidencia Ejecutiva podrá conceder audiencia hasta por cuarenta y ocho horas para hacer sus alegatos, posteriormente resolverá en forma inmediata lo que estime ajustado a derecho.
