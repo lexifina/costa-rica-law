@@ -1,1 +1,0 @@
-Artículo 4°—Peritaje: Es el análisis de factores y condiciones de un bien, para establecer su estado actual y de sus partes, así como de posibles estados pasados o futuros debido al uso o la influencia de factores externos, practicado por un Perito Valuador.

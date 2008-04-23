@@ -1,1 +1,0 @@
-Artículo 13.—El Departamento de Servicios Generales debe mantener en archivo lo correspondiente a la elaboración y publicación del Cartel de selección y la comunicación de los resultados del mismo, así como todos aquellos documentos establecidos por las normas legales relacionadas.

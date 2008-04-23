@@ -1,1 +1,0 @@
-Artículo 8°—La preparación del Cartel del concurso para renovación y preselección de Peritos, se hará en forma coordinada entre los Titulares de los Departamentos de Servicios Generales, Recursos Humanos y Crédito.

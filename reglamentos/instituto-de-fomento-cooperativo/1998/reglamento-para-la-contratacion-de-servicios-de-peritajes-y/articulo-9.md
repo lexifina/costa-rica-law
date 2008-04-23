@@ -1,1 +1,0 @@
-Artículo 9°—La selección final de los Peritos corresponderá a la Junta Directiva del INFOCOOP, la cual estará basada en la preselección que realicen los Titulares mencionados en el Artículo 8°. Para ello se considerarán los criterios de especialidad y ubicación geográfica, con el objetivo de cubrir el ámbito cooperativo según necesidades profesionales y de geografía.

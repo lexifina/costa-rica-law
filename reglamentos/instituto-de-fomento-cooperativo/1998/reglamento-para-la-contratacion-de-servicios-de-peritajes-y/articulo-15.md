@@ -1,1 +1,0 @@
-Artículo 15.—El Departamento de Crédito debe procurar, en lo posible, hacer rotar en un alto grado el rol de Peritos, considerando aspectos como: especialidad, ubicación geográfica y costo del avalúo para el usuario, de acuerdo con la cotización presentada por el Perito.

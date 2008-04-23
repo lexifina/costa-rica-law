@@ -1,1 +1,0 @@
-Artículo 2°—Alcances: Este Reglamento establece el marco de referencia que regirá la realización de peritajes y avalúos de bienes muebles e inmuebles en el INFOCOOP, para todos aquellos profesionales, debidamente colegiados, según su especialidad.

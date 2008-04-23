@@ -1,1 +1,0 @@
-Artículo 21.—El profesional está en la obligación de acudir a la Institución para aclaraciones, cada vez que ésta así lo considere conveniente, en plazo no mayor de cinco días hábiles después de ser notificado.

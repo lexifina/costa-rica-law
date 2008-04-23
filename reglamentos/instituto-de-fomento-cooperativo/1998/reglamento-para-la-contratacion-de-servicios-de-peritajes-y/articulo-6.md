@@ -1,1 +1,0 @@
-Artículo 6°—Honorarios profesionales: Es la remuneración que percibe el profesional por el trabajo efectuado y la responsabilidad profesional que el acto o gestión implica al realizar un peritaje o avalúo de conformidad con lo estipulado por el Colegio Profesional respectivo y por Decreto del Poder Ejecutivo.
