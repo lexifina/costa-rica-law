@@ -1,0 +1,1 @@
+Artículo 39. Condonación de honorarios. Procederá únicamente la condonación de honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida a la Sección de Cobros de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 25.—Compensación. La Sección de Cobros de la Municipalidad compensará de oficio o a petición de parte, los crédito tributarios firmes, líquidos y exigibles, que tenga en su favor con los de igual naturaleza del sujeto pasivo, empezando con los más antiguos, sin importan que prevengan de distintos tributos y siempre que se trate de obligaciones tributarias municipales.

@@ -1,0 +1,1 @@
+Articulo 7"—Horario de actuaciones: Los funcionarios de la Administración Tributaria Municipal actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días, cuando sea necesario para lograr el cumplimiento de sus deberes de gestión tributaria.

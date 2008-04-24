@@ -1,0 +1,1 @@
+Artículo 44.—Resolución de la contratación. Los abogados externos que por alguna razón profesional o personal, quieran dejar servir a la Municipalidad deberán comunicar esta decisión expresamente y por escrito al Alcalde Municipal, con treinta días de antelación, nota de la cual remitirán copia a la Oficina de la Sección de Cobros de la Municipalidad.
