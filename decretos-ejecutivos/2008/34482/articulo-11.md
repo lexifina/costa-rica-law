@@ -1,0 +1,1 @@
+Artículo 11.—El Certificado de buenas prácticas de manufactura del fabricante podrá ser sustituido por un certificado emitido por un ente certificador autorizado y reconocido por el Ente Costarricense de Acreditación.

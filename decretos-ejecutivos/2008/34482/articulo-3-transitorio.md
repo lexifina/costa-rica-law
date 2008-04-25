@@ -1,0 +1,1 @@
+Transitorio III.—Todo EMB cuya compra ya haya sido adjudicada por las instituciones estatales prestadoras de servicios de salud, antes de la entrada en vigencia del presente reglamento, podrán ser importados y usados por estas instituciones. Para ello el adjudicatario deberá presentar una nota dirigida al Ministerio de Salud con el visto bueno del ente o institución contratante.

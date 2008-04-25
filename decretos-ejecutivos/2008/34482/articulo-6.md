@@ -1,0 +1,9 @@
+Artículo 6°—Del expediente de solicitud de registro. Para el registro sanitario de un EMB se deberá presentar a la unidad organizacional respectiva del Nivel Central del Ministerio de Salud un expediente de solicitud en forma completa.
+6.1 El solicitante del registro sanitario debe ser el responsable legal del producto en el país.
+6.2 Todo lo señalado en los documentos presentados para cualquier trámite relacionado con el registro sanitario de un EMB, tendrá carácter de declaración jurada, además toda la información debe ser coincidente.
+6.3 Todo certificado o documento oficial requerido debe estar vigente en el momento de su presentación. Con el fin de que esté vigente durante todo el proceso de revisión del registro sanitario, deberá tener una fecha de emisión máxima de un año y diez meses al momento de recibir el expediente, a menos que en el documento se especifique una fecha de vencimiento menor.
+6.4. Todo certificado o documento oficial debe presentarse en idioma español o acompañado de su respectiva traducción oficial.
+6.5 No se permiten correcciones en las certificaciones o los documentos oficiales presentados, a menos que estén sustentadas por la misma instancia que emitió el documento original.
+6.6 Todo documento oficial emitido en el extranjero debe legalizarse o consularizarse según la normativa nacional específica.
+6.7 En aquellos casos en que aplique y para efectos del registro de un EMB específico, se permitirá que el solicitante haga referencia a documentos vigentes que consten en archivos del Ministerio. En este caso el solicitante debe hacer mención de la ubicación del documento original.
+6.8. En la documentación presentada para el registro debe aparecer en forma clara el nombre, la identificación del modelo y si es posible el código de cada uno de los equipos o materiales biomédicos que se desee registrar.

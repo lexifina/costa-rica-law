@@ -1,0 +1,1 @@
+Artículo 2°—Las disposiciones de este reglamento se aplicarán a todo acto de clasificación, importación, registro y control de equipo y material biomédico que se comercializa en el territorio costarricense.

@@ -1,0 +1,1 @@
+Artículo 12.—La presentación de los requisitos para registro podrá hacerse en forma electrónica según procedimiento establecido vía resolución y de acuerdo con los lineamientos establecidos legalmente.
