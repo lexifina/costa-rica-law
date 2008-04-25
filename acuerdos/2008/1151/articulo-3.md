@@ -1,0 +1,1 @@
+3º—Alcance. Este procedimiento aplica al Ministerio de Salud de Costa Rica y las autoridades sanitarias de los países exportadores de EMB con las cuales se desee establecer un acuerdo de equivalencia de los sistemas de registro y control.
