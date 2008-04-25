@@ -1,77 +1,22 @@
 Artículo 18.- Falta o insuficiencia de explotación industrial.
-1.- La concesión de una patente conlleva la obligación de explotarla
-en Costa Rica, en forma permanente y estable, de modo que el mercado sea
-abastecido conveniente y razonablemente dentro del plazo de tres años,
-contados a partir de la concesión de la patente o de cuatro años, contados
-a partir de la solicitud de la patente, según sea el plazo más largo.
-Tampoco podrá interrumpirse la explotación por más de un año.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-2. El titular de una patente está obligado, mediante declaración jurada
-otorgada ante un notario público, a comunicar en forma detallada el comienzo
-de la explotación al Registro de la Propiedad Industrial.
-3.- Para efectos del primer párrafo del presente artículo, se
-considerarán formas de explotación, entre otras, la producción local y la
-importación lícita de productos.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-4. La falta de comunicación del comienzo de la explotación dentro del
-plazo establecido en este artículo, hará presumir la no explotación de la
-patente.
-5. Vencidos los plazos a que se refiere el párrafo 1 de este artículo,
-cualquier persona podrá solicitar la concesión de una licencia obligatoria
-por falta de explotación, durante el año siguiente. Si transcurridos los
-términos la patente no se ha explotado, ésta caducará, salvo caso fortuito o
-de fuerza mayor comprobada por el titular de la patente.
-6.- La autorización de las licencias obligatorias será considerada
-en función de sus circunstancias propias y se extenderán a las patentes
-relativas a los componentes y procesos que permitan su explotación.
-Previamente a que se le otorgue una licencia obligatoria, el solicitante
-deberá probar que tiene la capacidad suficiente para explotar la invención
-patentada y que ha intentado obtener la autorización del titular de los
-derechos, en términos y condiciones comerciales razonables y estos
-intentos no han surtido efectos dentro del plazo fijado en el primer
-párrafo de este artículo.
-7.- El Registro de la Propiedad Industrial decidirá, en un plazo de
-noventa días naturales, la concesión de una licencia obligatoria, previa
-audiencia a las partes. De concederla, determinará las condiciones bajo
-las cuales la otorga, limitando el alcance y duración a los fines
-autorizados, y la remuneración económica que recibirá el titular de los
-derechos. Para ello, deberán tomarse en cuenta las circunstancias
-particulares de cada caso y el valor económico de la autorización, y tener
-presente la tasa de regalías promedio para el sector de que se trate, en
-los contratos de licencias comerciales entre partes independientes.
-Respecto de la tecnología de semiconductores, solo podrá hacerse un uso
-público no comercial o utilizarse para rectificar una práctica declarada
-contraria a la competencia tras un procedimiento judicial o
-administrativo.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-8.- Si se interpone recurso contra la decisión que otorga la licencia
-obligatoria, el reclamo no impedirá la explotación al licenciatario ni
-interrumpirá los plazos que estén transcurriendo. Tampoco impedirá al
-titular de la patente percibir las regalías determinadas por el Registro
-de la Propiedad Industrial, por la parte no reclamada.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-9.- La concesión y las condiciones de las licencias obligatorias
-podrán ser modificadas en cualquier momento por acuerdo de las partes, a
-petición de una de ellas, de oficio por el Registro de la Propiedad
-Industrial cuando lo justifiquen hechos nuevos y, en particular, cuando el
-titular de la patente conceda licencia a terceros en condiciones más
-favorables que las establecidas. Asimismo, la autorización de las
-licencias obligatorias podrá cancelarse a reserva de los intereses
-legítimos de quienes hayan recibido la autorización, si las circunstancias
-que la originaron han desaparecido y no es probable que vuelvan a surgir.
-El Registro de la Propiedad Industrial examinará, previa petición fundada,
-si dichas circunstancias siguen existiendo; además, tendrá facultades para
-denegar la revocación de la autorización, si resulta probable que se
-repitan las condiciones que dieron lugar a esa autorización.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-10.- Las licencias obligatorias no serán exclusivas ni podrán ser
-transmitidas, aun bajo la forma de concesión de sublicencia, salvo con la
-parte de la empresa o el establecimiento mercantil que explote esa
-licencia. Los licenciatarios estarán obligados a explotar su patente
-dentro del plazo de un año, a partir de la fecha en que se otorgue y no
-podrán suspender la explotación por un período mayor, so pena de que la
-licencia concedida quede revocada de pleno derecho."
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
-11. Las solicitudes de licencia obligatoria serán resueltas en el plazo
-máximo de sesenta días hábiles, desde la presentación de la solicitud
-respectiva.
+1.- La concesión de una patente conlleva la obligación de explotarla en Costa Rica, en forma permanente y estable, de modo que el mercado sea abastecido conveniente y razonablemente dentro del plazo de tres años, contados a partir de la concesión de la patente o de cuatro años, contados a partir de la solicitud de la patente, según sea el plazo más largo. Tampoco podrá interrumpirse la explotación por más de un año.
+(Así reformado el inciso anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+2. (Derogado por el artículo 2° aparte l) de la Ley N° 8632 del 28 de marzo de 2008)
+3.- Para efectos del primer párrafo del presente artículo, se considerarán formas de explotación, entre otras, la producción local y la importación lícita de productos.
+(Así reformado el inciso anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+4. (Derogado por el artículo 2° aparte l) de la Ley N° 8632 del 28 de marzo de 2008)
+5. Vencidos los plazos a que se refiere el párrafo 1 de este artículo, cualquier persona podrá solicitar la concesión de una licencia obligatoria por falta de explotación, durante el año siguiente. En caso de que la concesión de la licencia obligatoria no sea suficiente para enmendar la falta de uso de la patente, se declarará la caducidad de la patente. Ninguna acción de caducidad o de revocación de una patente podrá entablarse antes de la expiración de un plazo de dos años, contado a partir de la concesión de la primera licencia obligatoria.
+(Así reformado el inciso anterior por el artículo 2° aparte m) de la Ley N° 8632 del 28 de marzo de 2008)
+6.- La autorización de las licencias obligatorias será considerada en función de sus circunstancias propias y se extenderá a las patentes relativas a los componentes y procesos que permitan su explotación. Se autorizarán esos usos, principalmente para abastecer el mercado interno, de conformidad con las disposiciones del Acuerdo sobre los aspectos de los derechos de la propiedad intelectual relacionados con el comercio. Previamente a que se le otorgue una licencia obligatoria, el solicitante deberá probar que tiene la capacidad suficiente para explotar la invención patentada y que ha intentado obtener la autorización del titular de los derechos, en términos y condiciones comerciales razonables, y que estos intentos no han surtido efectos dentro del plazo fijado en el primer párrafo de este artículo.
+(Así reformado el inciso anterior por el artículo 2° aparte m) de la Ley N° 8632 del 28 de marzo de 2008)
+7.- El Registro de la Propiedad Industrial decidirá, en un plazo de noventa días naturales, la concesión de una licencia obligatoria, previa audiencia a las partes. De concederla, determinará las condiciones bajo las cuales la otorga, limitando el alcance y duración a los fines autorizados, y la remuneración económica que recibirá el titular de los derechos. Para ello, deberán tomarse en cuenta las circunstancias particulares de cada caso y el valor económico de la autorización, y tener presente la tasa de regalías promedio para el sector de que se trate, en los contratos de licencias comerciales entre partes independientes.
+Respecto de la tecnología de semiconductores, solo podrá hacerse un uso público no comercial o utilizarse para rectificar una práctica declarada contraria a la competencia tras un procedimiento judicial o administrativo.
+(Así reformado el inciso anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+8.- Si se interpone recurso contra la decisión que otorga la licencia obligatoria, el reclamo no impedirá la explotación al licenciatario ni interrumpirá los plazos que estén transcurriendo. Tampoco impedirá al titular de la patente percibir las regalías determinadas por el Registro de la Propiedad Industrial, por la parte no reclamada.
+(Así reformado el inciso anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+9.- La concesión y las condiciones de las licencias obligatorias podrán ser modificadas en cualquier momento por acuerdo de las partes, a petición de una de ellas, de oficio por el Registro de la Propiedad Industrial cuando lo justifiquen hechos nuevos y, en particular, cuando el titular de la patente conceda licencia a terceros en condiciones más favorables que las establecidas. Asimismo, la autorización de las licencias obligatorias podrá cancelarse a reserva de los intereses legítimos de quienes hayan recibido la autorización, si las circunstancias que la originaron han desaparecido y no es probable que vuelvan a surgir.
+El Registro de la Propiedad Industrial examinará, previa petición fundada, si dichas circunstancias siguen existiendo; además, tendrá facultades para denegar la revocación de la autorización, si resulta probable que se repitan las condiciones que dieron lugar a esa autorización.
+(Así reformado el inciso 9) anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+10.- Las licencias obligatorias no serán exclusivas ni podrán ser transmitidas, aun bajo la forma de concesión de sublicencia, salvo con la parte de la empresa o el establecimiento mercantil que explote esa licencia. Los licenciatarios estarán obligados a explotar su patente dentro del plazo de un año, a partir de la fecha en que se otorgue y no podrán suspender la explotación por un período mayor, so pena de que la licencia concedida quede revocada de pleno derecho."
+(Así reformado el inciso anterior por el artículo 2° de la Ley N° 7979 del 6 de enero del 2000)
+11. (Derogado por el artículo 2° aparte l) de la Ley N° 8632 del 28 de marzo de 2008)

@@ -19,4 +19,6 @@ partes independientes.
 3.- Cuando el Gobierno haya otorgado una licencia de utilidad pública
 a un tercero, este deberá retribuirle al Estado, total o parcialmente, la
 compensación que corresponda al titular."
+4.- Las licencias de utilidad pública facultan a las autoridades competentes para que use los datos de prueba utilizados para registrar un producto en el país, con el fin de obtener el registro sanitario y la aprobación de la comercialización temporal de los productos a los que se refieren tales licencias, sin divulgar la información protegida. La autoridad competente deberá proteger tal información contra todo uso comercial desleal.
+(Así adicionado el inciso anterior por el artículo 2° aparte n) de la Ley N° 8632 del 28 de marzo de 2008)
 (Así reformado por Ley N° 7979 del 6 de enero del 2000)

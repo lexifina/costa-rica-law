@@ -3,4 +3,5 @@ a) Contiene indicaciones que permiten identificar al solicitante.
 b) Señala una dirección o designa a un representante en el país.
 c) Muestra la marca cuyo registro se solicita o, si se trata de marcas denominativas con grafía, forma o color especial o de marcas figurativas, mixtas o tridimensionales con color o sin él, se adjuntará una reproducción de la marca.
 d) Contiene los nombres de los productos o servicios para los cuales se use o se usará la marca; además indica la clase.
-e) Adjunta el comprobante de pago de la tasa básica.
+e) Adjunta el comprobante del pago total de la tasa establecida
+(Así reformado el inciso anterior por el artículo 1° aparte g) de la Ley N° 8632 del 28 de marzo de 2008)
