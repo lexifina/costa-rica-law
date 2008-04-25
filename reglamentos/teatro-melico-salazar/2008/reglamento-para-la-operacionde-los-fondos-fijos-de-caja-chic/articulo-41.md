@@ -1,0 +1,1 @@
+Artículo 41.—Oportunidad para solicitar el reintegro. Los reintegros de los fondos fijos de caja chica, deberán tramitarse cuando se haya agotado el 70% del fondo autorizado. Aunque no se haya agotado el 70% supracitado, siempre deberá liquidarse mensualmente el fondo fijo de caja chica, según lo establecido en el artículo 16 del presente reglamento.

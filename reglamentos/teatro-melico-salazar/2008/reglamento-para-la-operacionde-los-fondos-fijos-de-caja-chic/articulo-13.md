@@ -1,0 +1,1 @@
+Artículo 13.—Condiciones de custodia. La administración del Teatro proporcionará a los responsables de los fondos fijos de caja chica o de los fondos fijos de boletería, los recursos materiales y el espacio físico necesario para garantizar la seguridad y custodia apropiada de los valores de los cuales son depositarios, tanto durante la jornada laboral como fuera de ella.

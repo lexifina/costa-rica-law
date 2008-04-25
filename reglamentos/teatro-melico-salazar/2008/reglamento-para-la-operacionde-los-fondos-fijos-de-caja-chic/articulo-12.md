@@ -1,0 +1,1 @@
+Artículo 12.—Manual institucional de operación. Es responsabilidad del Departamento Financiero Contable del Teatro, contar con un manual de operación actualizado, en el cual se detallen de forma clara y precisa las rutinas de trabajo relacionadas con la operación de los fondos fijos de caja chica y de los fondos fijos de boletería, y los responsables de ejecutarlas.
