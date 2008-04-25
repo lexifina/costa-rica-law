@@ -1,0 +1,1 @@
+Artículo 8º—La solicitud de servicio al Alcalde se gestionará con anticipación en el formulario “Solicitud uso de vehículo”, confeccionado con ese fin, salvo en caso de emergencia, que será valorado por parte de ese funcionario.

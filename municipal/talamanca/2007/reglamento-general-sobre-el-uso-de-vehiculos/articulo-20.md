@@ -1,0 +1,1 @@
+Artículo 20.—El Alcalde de la Municipalidad de Talamanca es el responsable de velar por la aplicación de este reglamento, así como de interpretar sus disposiciones. Cuando surjan dudas en su aplicación, dictarán las directrices pertinentes pudiendo hacerlo en forma conjunta o separadamente.

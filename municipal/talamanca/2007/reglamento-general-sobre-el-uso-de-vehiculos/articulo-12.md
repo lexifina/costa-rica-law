@@ -1,0 +1,1 @@
+Artículo 12.—Intercambio de combustibles y accesorios. Los conductores de vehículos asignados a la Municipalidad de Talamanca, no podrán hacer intercambio de accesorios o combustibles de un vehículo a otro.

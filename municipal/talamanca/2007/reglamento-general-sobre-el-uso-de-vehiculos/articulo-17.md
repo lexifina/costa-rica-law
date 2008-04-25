@@ -1,0 +1,1 @@
+Artículo 17.—Prohibición de arreglo extrajudicial. Queda prohibido al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos asignados a la Municipalidad de Talamanca, debiendo comunicar al particular que se apersone o se comunique con el Alcalde para efectuar las gestiones correspondientes.

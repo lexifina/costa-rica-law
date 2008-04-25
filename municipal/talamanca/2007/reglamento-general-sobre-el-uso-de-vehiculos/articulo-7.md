@@ -1,0 +1,1 @@
+Artículo 7º—El servicio de transporte utilizando los vehículos de la institución queda restringido al territorio nacional, salvo cuando exista autorización expresa del Alcalde, en tal caso, los vehículos podrán ser utilizados para viajes fuera del país únicamente para efectos relacionados con los fines de la Institución.

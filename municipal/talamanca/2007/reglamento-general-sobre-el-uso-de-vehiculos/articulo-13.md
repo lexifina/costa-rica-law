@@ -1,0 +1,1 @@
+Artículo 13.—Seguridad de los vehículos. Se prohíbe dejar aparcados o abandonados los vehículos Municipales en lugares donde éstos corran peligro, así como los materiales o equipos propiedad de la Municipalidad que se encuentren dentro de ellos, debiendo el funcionario responder por los mismos en caso de hurto o robo.

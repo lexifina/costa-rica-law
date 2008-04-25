@@ -1,0 +1,1 @@
+Artículo 11.—Utilización de los vehículos fuera de la jornada ordinaria. Es prohibido el uso de los vehículos fuera de la jornada ordinaria de labores, salvo autorización expresa del Alcalde de la Municipalidad de Talamanca. Esta disposición no afecta el vehículo de uso discrecional que asigne el Alcalde, que por la índole de su uso puede operar fuera de la jornada citada.
