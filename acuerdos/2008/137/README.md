@@ -14,3 +14,4 @@ Decreta período de veda para el Golfo de Nicoya correspondiente al año 2008
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-24 | la propia norma |
+| 2 | 2008-04-25 | Acuerdo 167 (2008-04-25) |
