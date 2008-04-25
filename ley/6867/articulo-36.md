@@ -1,3 +1,3 @@
-Artículo 36.- Recursos contra decisiones del Registro de la
-Propiedad Industrial.
-DEROGADO por el artículo 73 de la Ley N° 8039 del 12 de octubre del 2000
+Artículo 36.- Dictaminadores de fondo. La Junta Administrativa del Registro Nacional creará su propio régimen de salarios para el personal que se destaque como dictaminador de fondo institucional y estará autorizado para contratar al personal requerido, técnico y profesional, que satisfaga las necesidades del servicio público que brinda el Registro de la Propiedad Industrial. Este personal será pagado con fondos de la Junta Administrativa, por el plazo que estipule o por tiempo indefinido. El personal contratado mediante esta modalidad estará excluido del Régimen del Servicio Civil.
+La Junta Administrativa del Registro Nacional creará, reglamentariamente, un régimen especial para la contratación de personal externo, en forma tal que se garanticen la idoneidad, probidad e imparcialidad de sus funciones.
+(Mediante el artículo 73 de la Ley N° 8039 del 12 de octubre de 2000, este artículo fue derogado. Posteriormente por el artículo 2 aparte r) de la Ley N° 8632 del 28 de marzo de 2008, fue adicionado con su texto actual)
