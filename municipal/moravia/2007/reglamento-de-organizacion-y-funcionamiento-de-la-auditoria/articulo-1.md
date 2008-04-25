@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE MORAVIA
+REGLAMENTO DE ORGANIZACIÓN Y
+FUNCIONAMIENTO DE LA AUDITORÍA INTERNA
+Dictamen de la Comisión de Jurídicos
+Acuerdo Nº 1039: Auditoría Interna
+Artículo 3º—Se recibió el oficio AI 188-2004 de la Auditoría Interna sobre unas aclaraciones solicitadas a la Auditoría Interna, sobre el Reglamentó de Organización y Funcionamiento de la Auditoría Interna sobre la inquietud de cual Comisión ha tramitado este Reglamento ha sido un trabajo conjunto de la Comisión de Gobierno y Administración y la Comisión de Asuntos Jurídicos, analizadas las aclaraciones expuestas por la Auditoría Interna se aprueba el texto del Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Moravia el cual una vez aprobado por el Concejo Municipal deberá ser remitido a la Auditoría Interna para que de previo a su publicación sea consultado a la Contraloría General de la República según el procedimiento de este tipo de reglamentos, se recomienda el siguiente acuerdo:
+Acuerdo: se aprueba el Reglamento de Organización y Funcionamiento de la Auditoría Interna según el proyecto presentado por la Auditoría Interna el texto aprobado se lee como sigue:
+REGLAMENTO DE ORGANIZACIÓN Y
+FUNCIONAMIENTO DE LA AUDITORÍA INTERNA
+La Auditoría Interna de la Municipalidad de Moravia, con fundamento en el artículo 23 de la Ley General de Control Interno Nº 8292 publicada el 4 de setiembre del 2002, emite el presente cuerpo normativo para la organización y funcionamiento de la Auditoría Interna de la Municipalidad de Moravia.
+CAPÍTULO I
+Disposiciones generales, concepto y organización
+Artículo 1º—Normativa. En la Municipalidad de Moravia existirá una sola Unidad de Auditoría Interna, que se regulará de acuerdo al siguiente bloque de legalidad y sin detrimento de otro aplicable: Ley General de Control Interno y su reglamento, la Ley Orgánica de la Contraloría General de la República, la Ley contra la Corrupción y Enriquecimiento Ilícito en la función pública y su reglamento, por el presente Reglamento, por las disposiciones, normas, procedimientos, manuales y otros preceptos emitidos o que en el futuro emita la Contraloría General en el ámbito de su competencia, por las disposiciones del Colegio de Contadores Públicos de Costa Rica y del Instituto de Auditores Internos de Costa Rica en lo que sea aplicable, por las Normas Internacionales de Auditoría emitidas por “The Institute of Internal Auditors Inc. (Instituto de Auditores Internos, Inc., organismo internacional rector del ejercicio de la auditoría interna) en lo que procedan, así como, por los principios básicos del adecuado servicio público y de la buena administración y control.
