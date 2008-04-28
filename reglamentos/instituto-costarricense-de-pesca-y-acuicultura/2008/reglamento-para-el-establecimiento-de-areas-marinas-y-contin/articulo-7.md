@@ -1,0 +1,1 @@
+Artículo 7º—De la vigilancia: La vigilancia el control de las prácticas de pesca en estas áreas, corresponderá al Servicio Nacional de Guardacostas con el apoyo de los Comités de Vigilancia integrados por pescadores, denunciando las infracciones a la ley mediante la organización a la cual pertenecen, para lo cual podrán coordinar con el INCOPESCA.

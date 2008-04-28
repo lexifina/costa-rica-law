@@ -1,0 +1,7 @@
+Artículo 5º—De los términos y condiciones: El INCOPESCA establecerá los términos y condiciones para la gestión de dichas áreas, así como las responsabilidades de las Organizaciones involucradas, tales como:
+a. Asegurar que todos sus miembros se abstengan de pescar, sin contar para ello con la respectiva licencia, permiso o autorización para realizar sus actividades.
+b. Elaborar y aplicar un Código de Ética para la Pesca Responsable como un instrumento voluntario el cual se hace vinculante para los miembros de esta organización una vez aprobado.
+c. Asegurar el cumplimiento de toda la legislación y normativa aplicable, incluyendo las disposiciones establecidas en el Plan de Ordenamiento Pesquero.
+d. Ejercer un deber de vigilancia de sus miembros. En el evento de que una denuncia sea debidamente presentada en contra de algún miembro de la organización, por cualquier infracción a las leyes o reglamentaciones pertinentes, el miembro responderá de acuerdo a las sanciones administrativas o penales aplicables y se sujetará a lo que disponga el Código de Ética de Pesca Responsable adoptado por la organización.
+e. Las personas autorizadas a pescar serán responsables ante el INCOPESCA por cualquier canon o multa a ser pagado en cumplimiento de este acuerdo, según la legislación vigente.
+f. Cooperar y gestionar apoyo adicional financiero y técnico para la colocación de boyas, adquisición de equipos de radiocomunicación, y cualesquiera otros materiales necesarios para el aprovechamiento, conservación y manejo del área.

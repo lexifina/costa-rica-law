@@ -1,0 +1,1 @@
+Artículo 6º—Del ejercicio de la pesca. El ejercicio de la actividad pesquera dentro de estas áreas, estará permitido tanto para aquellos miembros de la Organización solicitante, como para cualquier otro pescador siempre y cuando éste cuente con licencia de pesca vigente y se ajuste a las regulaciones dispuestas en el Plan de Ordenamiento Pesquero definido para cada área.

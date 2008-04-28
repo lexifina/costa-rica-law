@@ -1,0 +1,1 @@
+Artículo 12.—Dicha Comisión de Seguimiento velará por el buen manejo del Área Marina para la Pesca Responsable (de conformidad con el Decreto Ejecutivo Nº 27919-MAG) y mantendrá informada a la Presidencia Ejecutiva del INCOPESCA mediante al menos informes semestrales.
