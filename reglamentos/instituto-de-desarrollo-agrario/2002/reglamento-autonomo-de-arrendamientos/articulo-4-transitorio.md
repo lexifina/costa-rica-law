@@ -1,1 +1,0 @@
-Transitorio IV.—Todas aquellas solicitudes de arrendamiento que se encuentren presentadas antes de la vigencia de este Reglamento, continuarán tramitándose, en lo relativo a los depósitos por concepto de inspecciones, por las disposiciones del reglamento anterior.
