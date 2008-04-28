@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE CARTAGO
+La Administración del Mercado Municipal de Cartago, para efecto de lo que dispone la Ley 8220, incluye y aclara que en los trámites de solicitud de traspaso, cambio de actividad, de licencia comercial (patente) nueva, de certificado de uso de suelo y cualquier otro trámite relativo a actividades que se explote o pretenda explotar en el Mercado Municipal de Cartago, se deberá obtener de previo la aprobación del Administrador del Mercado, con base en lo dispuesto en el artículo 4 inciso e) del Reglamento, Organización y Funcionamiento de locales Fijos y Ventas varias ocasionales (Derechos de Piso) del Mercado Municipal, que establece:
+Artículo 4º—Obligaciones Municipales. Dentro de sus obligaciones, corresponde a la Municipalidad como propietaria del inmueble:
+...e) Autorizar o denegar, por razones de técnicas o de conveniencia, las solicitudes de cambio de destino de los locales.
