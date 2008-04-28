@@ -14,3 +14,4 @@ Establece límite para el archivo de deudas tributarias aduaneras pendientes de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-17 | la propia norma |
+| 2 | 2008-04-28 | Resolución 150 (2008-04-28) |
