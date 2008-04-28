@@ -1,0 +1,2 @@
+Artículo 14.—Adiciónese un artículo 15 bis al Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 15 bis.—Aplicación en el tiempo y costos de remoción vehicular. Una vez infraccionado un vehículo por aplicación de las presentes disposiciones normativas, la Municipalidad , coordinará con las autoridades de tránsito la remoción del vehículo de la zona respectiva.

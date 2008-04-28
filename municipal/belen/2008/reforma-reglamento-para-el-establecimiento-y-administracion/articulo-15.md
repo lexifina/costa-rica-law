@@ -1,0 +1,4 @@
+Artículo 15.—Refórmase el artículo 18 del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 18.—De los inspectores. La Municipalidad de Belén por medio de inspectores establecidos al efecto resguardará el correcto cumplimiento del pago del precio público establecido, reportará los vehículos que infrinjan la ley e impondrá la multa respectiva, y en caso de ser necesario el superior encargado de la sección de estacionamientos pasará el asunto a la agencia de tránsito respectiva.
+Vigencia: La presente reforma al Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén una vez aprobada por el Concejo Municipal, rige a partir de su publicación en el Diario Oficial La Gaceta.
+Belén, 5 de marzo del 2008.—

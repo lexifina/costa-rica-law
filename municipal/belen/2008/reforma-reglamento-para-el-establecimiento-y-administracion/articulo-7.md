@@ -1,0 +1,2 @@
+Artículo 7º—Refórmase el artículo 9º del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 9º—Del destino del precio público. El producto del precio del estacionamiento será invertido en el pago de los gastos administrativos y de vigilancia que genera el sistema de estacionamiento, y en proyectos relacionados con la seguridad del municipio.

@@ -1,0 +1,2 @@
+Artículo 9º—Refórmase el artículo 11 del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 11.—Del sistema de cobro. La fijación del tiempo de aparcado se hará por medio de boletas de estacionamiento, las cuales tendrán diferente color según se trate de boletas validas para estacionar ya sea por media hora, una hora o un plazo mayor según se defina.

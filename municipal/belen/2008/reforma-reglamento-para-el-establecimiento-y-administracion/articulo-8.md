@@ -1,0 +1,2 @@
+Artículo 8º—Refórmase el artículo 10 del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 10.—Del horario de cobro. Por el uso de los espacios de estacionamiento establecidos se deberá pagar de lunes a viernes entre las 06:00 y 18:00 horas el precio fijado; se exceptúa de este cobro los días sábados, domingos, feriados de ley y fiestas nacionales.

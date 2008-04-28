@@ -1,0 +1,2 @@
+Artículo 4º—Refórmase el artículo 6º del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 6º—Del cobro en cada zona. Dentro de toda la Zona Céntrica se cobrará el precio público establecido en este Reglamento, mientras que en la Zona no Céntrica únicamente se cobrará en los lugares especialmente señalados para ese efecto, en el resto de esta zona el estacionamiento será gratuito.

@@ -1,0 +1,2 @@
+Artículo 5º—Refórmase el artículo 7º del Reglamento para el Establecimiento y Administración de Zonas Públicas de Estacionamiento de la Municipalidad de Belén a fin de que se lea así:
+Artículo 7º—Precio público. El estacionamiento de cualquier tipo de vehículo que utilice los espacios demarcados deberá cancelar el precio público fijado por el Concejo Municipal; este precio no podrá en ningún caso ser menor de un 75% del valor que cobren los estacionamientos privados por servicios similares según lo establecido en el artículo 2º de la Ley N º 6852.
