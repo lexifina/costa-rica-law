@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria la empresa desarrolladora: Tila Wind Corporation Sociedad Anónima, cédula de persona jurídica número 3-101-311377, previa autorización de la Oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las áreas de protección, según se indica en el proyecto.
