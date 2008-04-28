@@ -1,0 +1,1 @@
+Artículo 32.—La ausencia del pago del CANON descrita en el inciso g) del artículo 5º de este Reglamento, faculta al INSTITUTO para declarar resuelto administrativamente el respectivo arrendamiento, previo requerimiento de pago.

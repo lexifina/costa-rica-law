@@ -1,0 +1,11 @@
+Artículo 6º—Todo contrato de arrendamiento que otorgue el INSTITUTO llevará implícitas las siguientes cláusulas:
+a) Que se hace sin perjuicio de tercero de mejor derecho.
+b) Que el INSTITUTO no queda obligado al saneamiento y la evicción.
+c) Que el ARRENDATARIO(A) no podrá reclamar contra la medida ni localización qué hubiere servido de base para su otorgamiento.
+d) Que el ARRENDATARIO(A) no podrá variar el destino o el tipo de explotación del contrato, sin la previa autorización del INSTITUTO.
+e) Que el ARRENDATARIO(A) no podrá ceder, segregar, subarrendar o traspasar en cualquier forma el predio arrendado ni los derechos que de él se deriven, sin previa y expresa autorización del INSTITUTO.
+f) Que el ARRENDATARIO(A) no podrá introducir construcciones y plantaciones permanentes en el predio arrendado sin contar con la autorización previa del INSTITUTO.
+g) Que el ARRENDATARIO(A) se obliga iniciar el uso del predio arrendado a partir de la firma del contrato de arrendamiento en un plazo no mayor de cuatro meses cuando el uso sea AGROPECUARIO y no mayor de seis meses cuando los usos sean: COMERCIAL, INDUSTRIAL, HABITACIONAL Y MIXTO, so pena de incurrir en incumplimiento. Se exceptúan de este plazo las instituciones públicas.
+h) Que ante la falta de pago del CANON o el incumplimiento de las obligaciones impuestas por el contrato o por este reglamento, el INSTITUTO deberá declarar resuelto administrativamente dicho contrato, previo cumplimiento del debido proceso y otorgado el derecho de defensa al administrado; y además, demandar el resarcimiento por los daños y perjuicios.
+i) Que el ARRENDATARIO(A) se obliga a cumplir con lo establecido en la legislación ambiental y sanitaria que sea aplicable al uso autorizado para el terreno.
+j) Que el INSTITUTO tendrá derecho a utilizar previo pago de las mejoras y adiciones de buena fe, hasta un doce por ciento del área del terreno arrendado, para la construcción de caminos, el aprovechamiento de fuerzas hidroeléctricas, el paso de líneas telefónicas, la construcción de puentes, el paso y la utilización de cursos de agua que fueren necesarios para el abastecimiento de poblaciones, abrevaderos de ganado, irrigación, drenaje o para cualquier otra finalidad de utilidad pública.
