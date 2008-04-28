@@ -1,0 +1,1 @@
+Artículo 4º—Para el ejercicio de las especialidades farmacéuticas aquí establecidas o que se lleguen a establecer, es indispensable la inscripción en el Registro de Farmacéuticos Especialistas, juramentarse como farmacéutico especialista y contar con el correspondiente certificado expedido por la Junta Directiva que lo reconozca como tal.

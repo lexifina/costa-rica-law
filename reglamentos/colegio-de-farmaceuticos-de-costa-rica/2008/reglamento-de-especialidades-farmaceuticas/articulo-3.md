@@ -1,0 +1,1 @@
+Artículo 3º—Se considera farmacéutico especialista al miembro activo del Colegio de Farmacéuticos de Costa Rica que reúna los requisitos del presente reglamento y esté inscrito en el Registro de Farmacéuticos Especialistas.

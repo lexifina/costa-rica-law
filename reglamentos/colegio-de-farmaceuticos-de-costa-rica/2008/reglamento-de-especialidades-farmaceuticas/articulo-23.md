@@ -1,0 +1,1 @@
+Artículo 23.—En caso de un dictamen desfavorable por parte de la Comisión, el solicitante tiene derecho, si así lo considera, a interponer recurso de revocatoria ante la Comisión y de apelación ante la Junta Directiva. Si la Junta Directiva mantiene un criterio desfavorable, el interesado tiene derecho a interponer un recurso de revisión ante la Asamblea General.

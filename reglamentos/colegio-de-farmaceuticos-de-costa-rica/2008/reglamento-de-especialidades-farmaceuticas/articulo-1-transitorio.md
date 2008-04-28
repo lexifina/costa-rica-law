@@ -1,0 +1,1 @@
+Transitorio I.—Los miembros actuales de la Comisión de Especialistas Farmacéuticos permanecerán en sus cargos hasta la cuarta sesión ordinaria de la Junta Directiva del año 2.009, fecha en que la misma deberá renovar a dos de sus miembros, los cuales serán escogidos por sorteo.
