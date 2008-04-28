@@ -15,3 +15,4 @@ Reglamento de procedimientos de pagos
 | --- | --- | --- |
 | 1 | 2002-12-18 | la propia norma |
 | 2 | 2007-07-02 | Reglamento municipal 0 (2007-07-02) |
+| 3 | 2008-04-28 | Reglamento municipal 17 (2008-04-28) |
