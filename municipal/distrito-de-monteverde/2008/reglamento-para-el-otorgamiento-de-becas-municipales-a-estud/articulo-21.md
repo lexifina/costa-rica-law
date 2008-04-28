@@ -1,0 +1,1 @@
+Artículo 21.—La Comisión de Educación realizará las gestiones correspondientes para abrir una cuenta electrónica para cada estudiante becado en el Banco Nacional a fin de que en la primera semana de cada mes el monto correspondiente asignado por concepto de beca municipal sea depositado a cada uno de los beneficiarios.

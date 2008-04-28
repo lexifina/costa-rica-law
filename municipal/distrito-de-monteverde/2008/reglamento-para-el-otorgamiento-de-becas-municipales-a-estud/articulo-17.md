@@ -1,0 +1,1 @@
+Artículo 17.—Los beneficiarios de las becas municipales deberán aportar 30 horas de servicio al año a sus comunidades, centros educativos o al Concejo Municipal. Esta labor será planificada, evaluada y supervisada por la Comisión Municipal de Educación, y coordinada con los organismos comunales, autoridades educativas y la Intendencia Municipal.

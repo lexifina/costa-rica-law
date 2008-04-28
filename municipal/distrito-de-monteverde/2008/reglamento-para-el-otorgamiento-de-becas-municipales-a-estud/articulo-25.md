@@ -1,0 +1,1 @@
+Artículo 25.—Una vez acordada la aprobación de la lista de becados por el Concejo Municipal la Secretaria Municipal comunicará a cada institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibido por el Departamento de Orientación. Así mismo, se notificará a cada uno de los becados.

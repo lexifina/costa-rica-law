@@ -1,0 +1,1 @@
+Artículo 26.—Pasados tres meses si el estudiante no retira su beca, pierde automáticamente el derecho de continuar disfrutando de este beneficio, siempre y cuando se compruebe que se le ha notificado.
