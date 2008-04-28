@@ -1,2 +1,0 @@
-Artículo 2º—Se consideran Especialidades Farmacéuticas aquellos estudios de posgrado inherentes al campo farmacéutico, realizados por farmacéuticos y que reúnan los requisitos que establece este reglamento. En el caso de posgrados a distancia o capacitaciones no catalogadas como estudios de posgrado pero debidamente certificadas por una universidad, la Comisión evaluará la exigencia de dichos programas.
-(Así reformado por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, y publicado en La Gaceta N° 30 del 10 de febrero del 2006)
