@@ -1,0 +1,1 @@
+Artículo 24.—Del trámite administrativo para el nombramiento del Auditor y Subauditor Interno. Una vez tomado el acuerdo de nombramiento por parte del CONAC, el Secretario Ejecutivo del CONAC instruirá a la Oficina de Recursos Humanos para que ésta realice el trámite administrativo para la formalización del nombramiento correspondiente.

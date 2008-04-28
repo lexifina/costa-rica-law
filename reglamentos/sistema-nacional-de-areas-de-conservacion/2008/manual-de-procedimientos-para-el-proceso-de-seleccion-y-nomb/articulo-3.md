@@ -1,0 +1,1 @@
+Artículo 3º—Solicitud de criterio al Auditor. Cuando se trate del nombramiento del Subauditor Interno, ya sea en forma interina o por tiempo indefinido, el CONAC deberá tomar en cuenta el criterio no vinculante del Auditor Interno, respecto de las valoraciones de los postulantes que se hayan identificado como idóneos para el cargo.

@@ -1,0 +1,1 @@
+Artículo 8º—De la aprobación por parte del Jerarca. El CONAC valorará el informe remitido por la Secretaria Ejecutiva y de aprobarlo, tomará el acuerdo a fin de que se solicite la autorización del nombramiento a la Contraloría General de la República, en los términos establecidos por ésta en la Resolución L-1-2006-CO-DAGJ, indicada en el artículo 1º de este Manual.

@@ -1,0 +1,1 @@
+Artículo 9º—De la autorización de nombramiento por parte de la Contraloría General de la República. El nombramiento del Auditor o Subauditor Interno en forma interina, estará supeditado en todos sus extremos, a la autorización previa por parte de la Contraloría General de la República.

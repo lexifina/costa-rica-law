@@ -1,0 +1,1 @@
+Artículo 13.—Principios rectores. El concurso regulado en este Manual se rige por los principios de la libre concurrencia, igualdad de trato entre todos los posibles concursantes, publicidad, legalidad, transparencia de los procedimientos, seguridad jurídica, idoneidad comprobada, buena fe y eficiencia.
