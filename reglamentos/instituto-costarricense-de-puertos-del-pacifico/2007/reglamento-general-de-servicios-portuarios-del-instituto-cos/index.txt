@@ -240,3 +240,4 @@ articulo-239.md
 articulo-240.md
 articulo-241.md
 articulo-1-anexo.md
+articulo-2-anexo.md
