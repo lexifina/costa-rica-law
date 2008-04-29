@@ -1,2 +1,0 @@
-Transitorio
-Los emisores públicos de valores que cuenten con emisiones de valores de oferta pública en circulación a la fecha de entrada en vigencia de este Acuerdo, contarán con un plazo de un mes contado a partir de su comunicación para remitir a esta Superintendencia el procedimiento que utilizarán para la verificación de la autenticidad de sus títulos valores y de las órdenes de no pago que los afecten.
