@@ -1,0 +1,1 @@
+Artículo 21.—La Administración activa de la Operadora es responsable de establecer, mantener y perfeccionar el sistema de control interno, y la imputación de esa responsabilidad, en lo personal, corresponde a los respectivos jerarcas, según cada estructura organizativa.

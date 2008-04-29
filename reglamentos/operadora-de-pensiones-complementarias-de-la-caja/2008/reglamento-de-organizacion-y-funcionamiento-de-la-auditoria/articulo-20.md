@@ -1,0 +1,1 @@
+Artículo 20.—La Auditoría interna está bajo la responsabilidad y dirección última del Auditor Interno, quien deberá reunir las condiciones de idoneidad profesional y moral requeridas por la normativa, manuales y lineamientos emitidos al respecto por la Contraloría General de la República, así como por la normativa interna institucional que resulte aplicable.

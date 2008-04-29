@@ -1,0 +1,1 @@
+Artículo 32.—El Auditor Interno y los demás funcionarios que conforman esa Unidad de control, en la medida de lo posible, estarán al tanto de las situaciones legales que podrían afectar o beneficiar a la Operadora, de lo cual informarán a la Junta Directiva o a la Gerencia en forma oportuna.

@@ -1,0 +1,2 @@
+Relaciones y coordinaciones
+Artículo 33.—El Auditor Interno deberá establecer y regular a lo interno las pautas principales sobre las relaciones y coordinaciones de los funcionarios de la auditoría con los auditados. Como mínimo se debe coordinar el trabajo de revisión de tal forma que no entorpezca las labores propias de la Administración, así como que debe haber un trato cordial y amable con los auditados.

@@ -1,0 +1,1 @@
+Artículo 22.—La Junta Directiva de la Operadora procurará proveer los medios para la capacitación y entrenamiento continuo al personal de la Auditoría interna, con el fin de lograr un adecuado desarrollo profesional en el área propia de su competencia y disciplinas complementarias para el cumplimiento de sus funciones.

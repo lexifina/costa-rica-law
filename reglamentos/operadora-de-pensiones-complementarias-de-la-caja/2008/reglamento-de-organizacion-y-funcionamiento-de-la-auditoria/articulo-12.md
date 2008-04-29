@@ -1,0 +1,1 @@
+Artículo 12.—La objetividad requiere que los auditores actúen con honestidad y confianza en el producto de su labor y sin comprometer su calidad. Los auditores no deben involucrarse en situaciones en las que se sientan incapacitados para formar juicios profesionales objetivos.

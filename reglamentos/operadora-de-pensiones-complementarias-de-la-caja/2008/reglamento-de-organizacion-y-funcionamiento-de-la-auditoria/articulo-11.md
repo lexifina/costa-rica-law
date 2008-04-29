@@ -1,0 +1,1 @@
+Artículo 11.—La objetividad es una actitud mental independiente que se debe mantener. Al efectuar el examen, el auditor no debe subordinar su juicio sobre asuntos de auditoría al juicio de otras personas.

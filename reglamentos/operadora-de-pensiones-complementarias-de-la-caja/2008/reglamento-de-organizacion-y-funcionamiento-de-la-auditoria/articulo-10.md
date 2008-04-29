@@ -1,0 +1,1 @@
+Artículo 10º—La Auditoría Interna de la OPCCCSS S.A. debe ser independiente, parecer independiente y actuar de manera independiente, lo que le permitirá actuar con objetividad y transparencia al efectuar la auditoría.

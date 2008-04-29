@@ -1,0 +1,1 @@
+Artículo 14.—La objetividad del auditor no se afecta cuando recomienda acciones correctivas o el establecimiento de normas adicionales de control para los sistemas o revisa los procedimientos antes de su implantación.

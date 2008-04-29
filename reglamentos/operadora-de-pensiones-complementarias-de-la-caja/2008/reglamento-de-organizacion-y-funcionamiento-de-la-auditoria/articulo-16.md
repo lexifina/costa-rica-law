@@ -1,0 +1,1 @@
+Artículo 16.—Los auditores internos deberán hallarse suficientemente libres de todo tipo de presión para asegurarse de que podrán practicar sus auditorías con objetividad, independencia e informar de sus hallazgos, opiniones y conclusiones sin temor a restricciones o represalias que les afecten.

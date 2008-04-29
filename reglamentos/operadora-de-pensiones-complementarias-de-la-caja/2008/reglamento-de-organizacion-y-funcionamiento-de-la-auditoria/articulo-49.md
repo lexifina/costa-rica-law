@@ -1,0 +1,1 @@
+Artículo 49.—El Auditor General mantendrá un Programa de Aseguramiento de Calidad para la Auditoría Interna, conforme lo establece el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Publico emitido por la Contraloría General.

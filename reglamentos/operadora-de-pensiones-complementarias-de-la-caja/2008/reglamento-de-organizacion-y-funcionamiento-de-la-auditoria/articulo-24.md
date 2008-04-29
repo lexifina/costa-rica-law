@@ -1,0 +1,1 @@
+Artículo 24.—La Auditoría interna de la Operadora, evalúa a la Administración activa en forma oportuna, independiente y a posteriori, en cuanto a las operaciones contables, financieras, técnicas, de información y administrativas, como base para dar la asesoría constructiva y de protección a que se refiere el artículo primero de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—Los auditores deberán considerar no solamente si son independientes y si sus actitudes y actividades les permiten proceder como tales, sino también si existe algo que pudiera dar lugar a que otros cuestionaran su independencia.
