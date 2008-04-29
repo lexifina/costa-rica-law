@@ -1,1 +1,0 @@
-Artículo 45.—Es prohibido para cualquier trabajador el uso de camisetas abiertas y otros objetos como cadenas, pulseras o cualquier tipo de prendas personales y ropa que puedan ser arrolladas por máquinas en movimiento (grúas, montacargas, etc.) o enganchadas por los aparatos de manipulación de cargas.

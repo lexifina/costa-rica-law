@@ -1,1 +1,0 @@
-Artículo 31.—Todas las personas que ingresen, con excepción de los funcionarios o empleados de la Institución destacados en el Muelle de Quepos, deberán anotar los motivos de sus visitas al muelle y firmar el libro de registro indicando la hora de entrada y posteriormente la salida.
