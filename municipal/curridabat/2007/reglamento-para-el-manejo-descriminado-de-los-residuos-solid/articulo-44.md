@@ -1,1 +1,2 @@
-Artículo 44.—La Dirección de Operaciones deberá elaborar un Plan Anual Operativo del Sistema para el Manejo Discriminado de los Desechos Sólidos, con su respectivo respaldo presupuestario, según lo indicado en el artículo 14 de este Reglamento, para ser incorporado dentro del presupuesto anual ordinario y el respectivo Plan Anual Operativo.
+Artículo 44.—La (*)Dirección de Servicios Ambientales deberá elaborar un Plan Anual Operativo del Sistema para el Manejo Discriminado de los Desechos Sólidos, con su respectivo respaldo presupuestario, según lo indicado en el artículo 14 de este Reglamento, para ser incorporado dentro del presupuesto anual ordinario y el respectivo Plan Anual Operativo.
+(*)(Modificada su denominación mediante sesión N° 105 del 29 de abril de 2008)

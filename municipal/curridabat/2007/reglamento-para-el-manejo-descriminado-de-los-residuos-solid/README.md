@@ -14,3 +14,4 @@ Reglamento para el Manejo Descriminado de los Residuos Sólidos Húmedos y Secos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-10 | la propia norma |
+| 2 | 2008-04-29 | Reglamento municipal 105 (2008-04-29) |

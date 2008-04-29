@@ -1,1 +1,2 @@
-Artículo 46.—Las tasas a pagar serán categorizadas con base en aspectos socioeconómicos, actividades, metros de frente y cantidades de desechos generadas, según muestreos respectivos periódicos llevados a cabo por la Dirección de Operaciones; con apego a lo establecido en el artículo 74 del Código Municipal.
+Artículo 46.—Las tasas a pagar serán categorizadas con base en aspectos socioeconómicos, actividades, metros de frente y cantidades de desechos generadas, según muestreos respectivos periódicos llevados a cabo por la (*)Dirección de Servicios Ambientales; con apego a lo establecido en el artículo 74 del Código Municipal.
+(*)(Modificada su denominación mediante sesión N° 105 del 29 de abril de 2008)

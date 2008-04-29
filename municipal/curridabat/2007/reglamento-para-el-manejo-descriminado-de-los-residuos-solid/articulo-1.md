@@ -32,7 +32,8 @@ Escombros. Son desechos provenientes de las actividades de demolición y constru
 Generadores de Desechos Sólidos. Corresponde a los usuarios del sistema de recolección, acarreo y tratamiento de desechos sólidos húmedos y secos, sean o no ciudadanos del cantón.
 Manejo Discriminado. Conjunto de acciones tendientes a reducir las cantidades de desechos a ser tratados en un relleno sanitario por medio de la organización de la separación, recolección y utilización y/o reciclaje de los materiales aprovechables para su comercialización.
 Municipalidad. Municipalidad de Curridabat.
-Dirección de Operaciones. Entidad adscrita al despacho del Alcalde responsable entre otras funciones, del cumplimiento de la normativa ambiental aplicable al gobierno local y de colaborar con la definición de políticas en el campo ambiental.
+(*) Dirección de Servicios Ambientales. Entidad adscrita al despacho del Alcalde responsable entre otras funciones, del cumplimiento de la normativa ambiental aplicable al gobierno local y de colaborar con la definición de políticas en el campo ambiental.
+(*)(Modificada su denominación mediante sesión N° 105 del 29 de abril de 2008)
 Recipiente. Es el contenedor usado para almacenar los desechos hasta su recolección, como son bolsas plásticas, baldes con tapa, o similares.
 Servicio de Recolección Residuos Sólidos Húmedos. Servicio regular de recolección de los desechos sólidos húmedos que presta la Municipalidad en el cantón de Curridabat.
 Servicio de Recolección Residuos Sólidos Secos o Reciclables: Servicio regular de recolección de los desechos sólidos secos que presta la Municipalidad en el cantón.
