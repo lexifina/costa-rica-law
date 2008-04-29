@@ -1,0 +1,1 @@
+Artículo 2°—Corresponderá a la Contabilidad Nacional como Órgano Rector del Subsistema de Contabilidad, establecer procedimientos contables que respondan a normas y principios de aceptación general en el ámbito gubernamental.
