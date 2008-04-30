@@ -1,1 +1,0 @@
-Artículo 7º—Emisión de normativa complementaria. Para los casos previstos en este Reglamento, la Gerencia del BCCR será el órgano encargado de emitir la normativa complementaria de carácter operativo. Dicha normativa será considerada de carácter público y se difundirá a través de los medios de comunicación establecidos.

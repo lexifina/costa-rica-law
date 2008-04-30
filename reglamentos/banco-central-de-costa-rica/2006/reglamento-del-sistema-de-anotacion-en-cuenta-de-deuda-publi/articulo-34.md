@@ -1,2 +1,0 @@
-Artículo 34.—Acceso a los módulos. El acceso a los distintos módulos y las acciones específicas que se podrán realizar en cada uno, estará condicionado en función del rol de la entidad y del tipo de usuario que se trate, lo que se verificará mediante la autenticación del usuario a través de un código y una clave de acceso.
-Mediante normativa complementaria se indicará los distintos parámetros y disposiciones generales aplicables a la asignación de códigos de usuario y claves de acceso.

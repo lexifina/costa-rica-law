@@ -1,2 +1,0 @@
-Artículo 37.—Planes de contingencia. El DSAC dispondrá de un sitio para atender situaciones de contingencia, y deberá mantener planes de continuidad y contingencia que le permitan la recuperación de su capacidad operativa con la mayor rapidez posible, de modo que no se afecte el normal desenvolvimiento del mercado.
-Los planes antes mencionados deberán ser revisados, actualizados y sometidos a prueba al menor una vez al año.

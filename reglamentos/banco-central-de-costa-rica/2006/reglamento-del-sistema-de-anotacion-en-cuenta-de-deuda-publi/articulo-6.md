@@ -1,7 +1,0 @@
-Artículo 6º—Responsabilidades del BCCR. Sin detrimento de lo establecido en la Ley General de la Administración Pública, el BCCR será responsable por la no realización de las inscripciones, sus inexactitudes o retrasos en el SAC cuando dichos actos obedezcan a una acción dolosa o negligente por parte de uno de sus funcionarios o se dé una mala utilización del SAC por parte de un tercero que haya tenido acceso a este por negligencia suya. Asimismo, será responsable por los daños causados por el cese de operaciones de SAC cuando fallen los mecanismos de continuidad y contingentes o por cualquier otra razón técnica ocasionada por el mal manejo de parte de uno de sus funcionarios.
-No obstante, el BCCR no será responsable de:
-1) Incumplimiento total o parcial de las instrucciones que ordene un usuario, cuando dicho incumplimientos se originen en eventos de fuerza mayor, culpa del usuario, motivos de orden público o hecho de un tercero que ha ingresado al sistema por negligencia de algún participante.
-2) Mal uso de las claves de acceso por parte de algún usuario de las entidades participantes del Sistema.
-3) Errores u omisiones en que incurran los usuarios al registrar sus instrucciones al Sistema.
-4) Los daños directos e indirectos, patrimoniales o morales que se le causen a un tercero, sea por retrasos, no pago del todo o parte del principal o los cupones por los Emisores o las entidades que hubieren designado para estos efectos.
-5) Cualquier otro aspecto imputable a la actuación de usuarios externos.

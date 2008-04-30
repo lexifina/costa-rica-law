@@ -1,5 +1,0 @@
-CAPÍTULO III
-De la Solución de Incidencias en la Liquidación de Operaciones
-Artículo 27.—Tipos de incidencias. La liquidación de operaciones puede verse detenida temporalmente ante dos tipos de incidencias:
-1) Incidencias por falta de valores: Ocurre cuando en una cuenta de valores se pretende debitar determinada cantidad de valores de una emisión y no existe el saldo suficiente para cubrir dicha cantidad. En este caso, la operación se registra “en cola por insuficiencia de valores” si se trata de una operación bilateral, o como “resolviendo incidencias” si se trata de un archivo de saldos netos.
-2) Incidencias por falta de efectivo: Ocurre cuando en la cuenta de reserva del banco liquidador que tiene una posición compradora, no existe la cantidad suficiente de efectivo especificada en la instrucción de liquidación. En este caso, la operación se registra “en cola por falta de efectivo” si es una operación bilateral, o como “resolviendo incidencias” si se trata de un archivo de saldos netos.

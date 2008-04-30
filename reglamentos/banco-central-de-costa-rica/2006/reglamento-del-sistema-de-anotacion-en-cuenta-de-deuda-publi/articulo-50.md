@@ -1,1 +1,0 @@
-Artículo 50.—Registro de desmaterialización de emisiones. El SAC contará con la funcionalidad para registrar títulos valores previamente existentes en forma de macrotítulos, lo que se hará siempre y cuando los emisores y las entidades de custodia hayan cumplido con el procedimiento establecido oficialmente y las disposiciones del Regulador en esta materia.

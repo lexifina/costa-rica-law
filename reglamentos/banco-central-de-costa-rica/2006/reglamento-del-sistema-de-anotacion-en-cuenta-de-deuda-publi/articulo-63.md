@@ -1,1 +1,0 @@
-Artículo 63.—Participantes del módulo. Serán participantes de este módulo todas las entidades que mantengan una conexión a SAC, así como el BCCR en su condición de administrador del SAC y entidad participante del sistema.

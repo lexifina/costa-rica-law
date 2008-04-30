@@ -1,1 +1,0 @@
-Artículo 58.—Procedimientos para realizar una operación. Los participantes deberán velar por el cumplimiento de todos los procedimientos e indicaciones generales estipulados mediante normativa complementaria para registrar operaciones en SAC.

@@ -1,2 +1,0 @@
-Artículo 19.—Disponibilidad de la información registrada. El DSAC establecerá, mediante normativa complementaria, los medios manuales o electrónicos de que dispondrán los participantes para realizar consultas a la información histórica registrada en el Sistema.
-Asimismo, el DSAC contará con las medidas de seguridad necesarias para la conservación de la información contenida en sus registros, de acuerdo a los plazos estipulados por el Regulador y la legislación nacional.

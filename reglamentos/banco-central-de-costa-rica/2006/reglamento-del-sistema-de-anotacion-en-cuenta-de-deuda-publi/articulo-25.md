@@ -1,3 +1,0 @@
-Artículo 25.—Liquidación que sólo incluye movimientos de efectivo. La liquidación de operaciones que sólo incluye movimientos de efectivo (cobro de servicios de SAC, etc.) se efectuará mediante la generación de instrucciones de débito o crédito a las cuentas de reserva en el BCCR. Una operación de este tipo se considerará firme cuando haya concluido el siguiente procedimiento:
-1) Llegada la hora de liquidación de la operación, el SAC enviará automáticamente una instrucción a SINPE con el detalle de cuentas de reserva y movimientos de efectivo que se debe realiza.
-2) De existir el efectivo, el SINPE debitará y acreditará las cuentas de reserva correspondientes y notificará a SAC del movimiento, quien registrará la operación como liquidada.
