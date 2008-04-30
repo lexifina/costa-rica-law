@@ -1,1 +1,2 @@
-Artículo 23.—Cuando un abogado deje de prestar los servicios a la Municipalidad, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo con el grado de avance en que se encuentren los juicios, una vez finalizada la acción judicial, estos correrán por cuenta del deudor. En caso de discrepancia el tribunal de justicia respectivo los fijará.
+Artículo 23.—Tratándose de cobros extrajudiciales, los honorarios mínimos, se fijarán, conforme a los indicado en el artículo 57 del Decreto Ejecutivo Nº 32493-J del 9 de marzo del año 2005: Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado.
+(Así reformado mediante acuerdo 308 de la sesión N° 105 del 30 de abril del 2008)
