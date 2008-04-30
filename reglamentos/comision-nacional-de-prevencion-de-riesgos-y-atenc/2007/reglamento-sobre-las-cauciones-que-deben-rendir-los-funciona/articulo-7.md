@@ -1,0 +1,6 @@
+CAPÍTULO III
+Del control y sanciones
+Artículo 7°—Del control en el cumplimiento de las disposiciones del presente Reglamento. Corresponderá al Departamento de Recursos Humanos, comunicar a cada funcionario a nombrar en alguno de los cargos que se señalan en el artículo 2° del este reglamento, la obligación de rendir de previo a asumir el cargo la garantía correspondiente.
+Asimismo, le corresponderá a la citada dependencia junto con el área administrativa financiera mantener un sistema de control, que permita supervisar que todos los funcionarios obligados a rendir la garantía, que a la entrada en vigencia del presente reglamento ostenten el nombramiento respectivo, hayan rendido la misma conforme las disposiciones aquí dispuestas.
+Se llevará un registro de los funcionarios que se encuentren obligados a rendir la garantía o caución respectiva, así como la fecha de vencimiento de éstas, lo anterior con el fin de tomar las providencias del caso a efecto de que en todo momento se mantengan vigentes.
+Así mismo, deberá verificar la efectividad de los documentos que comprueban la presentación de las garantías y promover ante la instancia pertinente los trámites de ejecución de las mismas cuando proceda o cancelarla cuando el funcionario cese en la Institución.

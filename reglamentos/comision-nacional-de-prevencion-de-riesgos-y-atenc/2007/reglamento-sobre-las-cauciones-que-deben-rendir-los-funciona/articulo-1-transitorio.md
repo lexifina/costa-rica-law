@@ -1,0 +1,1 @@
+Transitorio I.—La Comisión de cauciones contará con un mes contados a partir de la publicación de este reglamento, para determinar los montos de las cauciones que deben rendirse conforme a las disposiciones que por este acto se establecen, acto que deberá notificar a todos y cada uno de los funcionarios a que se refiere el artículo 20 del presente reglamento.
