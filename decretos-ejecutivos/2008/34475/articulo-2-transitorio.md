@@ -1,0 +1,1 @@
+Transitorio II.—Los trámites, procedimientos y actividades que se estuvieren tramitando en las dependencias del Servicio Nacional de Aduanas al amparo del Decreto Ejecutivo Nº 32481-H de 29 junio de 2005, serán asumidas por las Direcciones correspondientes una vez que el presente Decreto entre en vigencia.
