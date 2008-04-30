@@ -1,0 +1,1 @@
+Transitorio I: Los proyectos que presenten planos constructivos completos y obtengan el visado del Colegio Federado de Ingenieros y Arquitectos, durante los seis meses posteriores a la publicación de este decreto, no tendrán que cumplir con lo establecido en este.

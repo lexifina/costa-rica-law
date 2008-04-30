@@ -1,0 +1,1 @@
+Artículo 4º—Vigencia: El presente decreto tendrá una vigencia de cuatro años, sin embargo, si antes de finalizar dicho plazo se aprobare el Plan Regulador correspondiente a cada zona o el Plan Regional Urbano de la Región Chorotega aprobado por la Dirección de Urbanismo del INVU, prevalecerán dichos planes sobre el presente decreto.

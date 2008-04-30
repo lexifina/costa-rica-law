@@ -1,0 +1,1 @@
+Artículo 3º—Las construcciones que se realicen en áreas de especial protección, tales como: parques nacionales, refugios naturales, manglares, áreas de protección forestal, humedales, quebradas y en zonas de bosques primarios, nacientes e islas, se regirán por la legislación vigente respectiva.

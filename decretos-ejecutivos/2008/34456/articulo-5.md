@@ -1,0 +1,1 @@
+Artículo 5º—Exclusiones: Los parámetros aquí contemplados no serán aplicables a las zonas de los litorales que sean declaradas como ciudades, por lo tanto, se regularán por las otras normativas aplicables o sus correspondientes planes reguladores cuando los haya.
