@@ -1,0 +1,7 @@
+ARTÍCULO 144
+Las reformas e interpretaciones al Estatuto Orgánico solicitadas a la Asamblea Institucional Representativa deberán ser discutidas y votadas por ésta en dos sesiones realizadas en un lapso no menor a cuatro meses, conforme al siguiente procedimiento:
+a. En la primera sesión, la Asamblea Institucional Representativa debe discutir y votar la procedencia del proyecto de reforma o interpretación
+b. De aprobarse su procedencia, el proyecto de reforma o interpretación pasa a ser estudiado por una Comisión de análisis, designada por el Directorio de la Asamblea Institucional Representativa, la cual estará integrada al menos por cinco miembros integrantes de la Asamblea Institucional Plebiscitaria, dos de los cuales deberán ser miembros de la Comisión Permanente de Estatuto Orgánico del Consejo Institucional
+c. La Comisión de análisis deberá entregar al Directorio, dentro del plazo definido por éste, un dictamen que contenga la propuesta de reforma o interpretación, el cual será entregado a los asambleístas para ser sometido a discusión y a votación en la siguiente sesión conforme a lo establecido en el cronograma de la Asamblea Institucional Representativa
+d. En la segunda sesión, la Asamblea Institucional Representativa debe discutir y votar el dictamen de la Comisión de análisis así como las mociones de fondo relacionadas conforme a lo establecido en el Reglamento de la Asamblea Institucional Representativa
+Artículo aprobado por la Asamblea Institucional Representativa en la Sesión AIR-058-04, del 22 de setiembre del 2004. (Gaceta 170)

@@ -1,3 +1,3 @@
-Artículo 120.—Las reformas solicitadas por la Asamblea Institucional Representativa que no hayan sido atendidas por el Consejo Institucional; en un plazo de tres meses después de solicitadas, podrán ser realizadas por dicha Asamblea y requerirán, para ser aprobadas, del voto afirmativo de al menos dos terceras partes de sus miembros.
-Estas reformas serán firmes y regirán a partir de la fecha de vigencia establecida en ellas.
-El Consejo Institucional no podrá realizar modificaciones a las reformas acordadas por la Asamblea Institucional Representativa antes de que transcurran dos años de su vigencia, a menos de que esta Asamblea se lo solicite.
+ARTÍCULO 120
+Durante el tiempo que duren los proyectos de investigación y extensión los profesores, conforme con la dedicación asignada, y el personal nombrado para el efecto, estarán sujetos a la supervisión de la Vicerrectoría de Investigación y Extensión en los aspectos relativos al desarrollo de éstos.
+Artículo modificado por el Consejo Institucional en la Sesión 1430, Artículo 12, del 24 de diciembre de 1988. (Gaceta 37)

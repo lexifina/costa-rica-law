@@ -1,1 +1,0 @@
-Transitorio XIX. —La Oficina Ejecutora conservará su actual rango mientras se mantengan en ejecución las obras previstas en los proyectos ya suscritos con el Banco Interamericano de Desarrollo y el Banco Centroamericano de Integración Económica.

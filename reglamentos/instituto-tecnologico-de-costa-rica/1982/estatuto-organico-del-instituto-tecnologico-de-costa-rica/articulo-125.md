@@ -1,1 +1,4 @@
-Articulo 125.—El Consejo - Institucional resolverá, sin perjuicio de la apelación ante la Asamblea Institucional Representativa, las solicitudes de interpretación de textos del Estatuto Orgánico.
+CAPÍTULO II
+RÉGIMEN DEL PERSONAL
+ARTÍCULO 125
+El personal del Instituto podrá organizarse en función de sus intereses y hacer valer sus derechos en forma individual o por medio de sus organizaciones.

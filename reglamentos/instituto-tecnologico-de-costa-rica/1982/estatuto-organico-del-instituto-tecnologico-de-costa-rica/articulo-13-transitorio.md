@@ -1,2 +1,0 @@
-Transitorio XIII.—El Tribunal Institucional Electoral integrará la Asamblea Plebiscitaria de la Sede Regional de San Carlos, una semana después de electo el rector. En esta misma semana hará la convocatoria para elegir el Director de la Sede Regional, lo cual se hará en un plazo no mayor de cuatro semanas después de convocada.
-Este Director iniciará sus funciones una semana después de que se haga la declaratoria oficial de su nombramiento.

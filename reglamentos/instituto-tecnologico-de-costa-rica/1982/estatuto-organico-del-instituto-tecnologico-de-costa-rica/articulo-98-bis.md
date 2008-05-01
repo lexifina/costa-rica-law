@@ -1,0 +1,4 @@
+Artículo 98-bis
+El Consejo de Planificación deberá formular cada cinco años, con el apoyo técnico de la Oficina de Planificación Institucional, la propuesta de Plan estratégico institucional, la cual deberá presentar al Consejo Institucional para su análisis y aprobación.
+El Consejo de Planificación Institucional deberá formular ajustes al Plan estratégico institucional, y proponerlos al Consejo Institucional para que apruebe las modificaciones correspondientes, cada vez que detecte cambios importantes en el entorno, que puedan tener consecuencias significativas en el impacto del Instituto sobre la sociedad.
+(Artículo nuevo ( 98-bis) incorporado por la Asamblea Institucional Representativa en la Sesión AIR-68-08, realizada el 26 de marzo del 2008, cuyo texto final fue aprobado por el Directorio de la AIR, en la Sesión Ordinaria N° 162-2008, del 11 de abril 2008, Artículo N° 3. Gaceta 246-Mayo 08)

@@ -1,0 +1,5 @@
+ARTÍCULO 15 BIS (ver norma reglamentaria a este artículo en el anexo 1)
+La sustitución temporal o permanente de miembros titulares del Consejo Institucional, por parte de miembros suplentes, cuyo nombramiento corresponda a la Asamblea Institucional Plebiscitaria, se realizará conforme a la reglamentación aprobada para tal efecto, por la Asamblea Institucional Representativa, previa consulta al Tribunal Institucional Electoral.
+La sustitución temporal o permanente de miembros titulares del Consejo Institucional, por parte de miembros suplentes, cuyo nombramiento no corresponda a la Asamblea Institucional Plebiscitaria, se realizará conforme a la reglamentación aprobada para tal efecto por la organización que lo eligió.
+En caso de empate, en la cantidad de votos electorales válidos obtenidos para ser nombrado miembro titular o miembro suplente del Consejo Institucional, la designación del miembro titular y del suplente la resolverá el Tribunal Institucional Electoral, por medio del azar.
+Artículo incluido por la Asamblea Institucional Representativa en la Sesión AIR-66-07, del 26 de setiembre 2007. (Gaceta 233)

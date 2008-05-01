@@ -1,1 +1,2 @@
-Artículo 119.—Las reformas al Estatuto Orgánico acordadas por el Consejo Institucional quedarán en firme a partir da la fecha • de vigencia establecida en la misma reforma y deberán, ser puestas en conocimiento de la Asamblea Institucional Representativa, la cual, en su siguiente sesión, podrá decidir derogarlas, para lo cual se requerirá el voto de la mitad más uno de sus miembros.
+ARTÍCULO 119
+Los programas de investigación y extensión estarán adscritos al departamento académico más afín. Por acuerdo del Consejo Institucional y a recomendación del Consejo de Investigación y Extensión, los programas interdisciplinarios o que no tengan departamento académico afín podrán adscribirse a la Vicerrectoría de Investigación y Extensión.

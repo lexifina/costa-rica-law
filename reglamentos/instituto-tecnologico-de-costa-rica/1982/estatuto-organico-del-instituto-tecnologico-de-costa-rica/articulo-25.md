@@ -1,3 +1,4 @@
-CAPÍTULO IV
-Vicerrectorías
-Artículo 25.—Para la ejecución de sus políticas especificas, el Instituto Tecnológico de Costa Rúa tendrá cuatro vicerrectorías: dé Docencia, de Investigación y Extensión, de Administración y de Vida Estudiantil y Servicios Académicos.
+ARTÍCULO 25
+El Rector será elegido por la Asamblea Institucional Plebiscitaria para un período de cuatro años. No podrá ser electo por más de dos períodos consecutivos. Sus funciones las realizará con dedicación exclusiva.
+Para ser electo Rector se requiere obtener la mayoría y, al menos, el 40% del total de los votos válidos emitidos, calculados según lo estipulado en los Artículos 6 y 7 de este Estatuto Orgánico. En caso de que ningún candidato obtenga la cantidad de votos necesaria, el Tribunal Institucional Electoral convocará a una nueva votación en el transcurso del mes siguiente en la cual participarán únicamente los dos candidatos que hayan obtenido mayor número de votos.
+Artículo modificado por el Consejo Institucional en Sesión 1873, Artículo 10, del 14 de marzo de 1996. (Gaceta 111)

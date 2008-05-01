@@ -1,2 +1,2 @@
-Artículo 62.—Las dependencias de los centros académicos, así como su rango, funciones, atribuciones y adscripción serán definidas en los consejos de las vicerrectorías afines a tales dependencias.
-Contarán con un consejo asesor, integrado por su coordinador, quien lo presidirá, por todos los profesionales y profesores cuya jornada sea de un cuarto de tiempo o más y por una representación estudiantil correspondiente al 25% del total de los miembros del consejo, nombrada por la respectiva Asociación de Estudiantes del Centro, de conformidad con los Estatutos de la federación de Estudiantes del Instituto Tecnológico de Costa Rica.
+ARTÍCULO 62
+Artículo eliminado por el Consejo Institucional en la Sesión 2447, Artículo 7, del 15 de diciembre del 2005. (Gaceta 198)

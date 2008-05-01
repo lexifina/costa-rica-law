@@ -1,4 +1,6 @@
-CAPITULO X
-Tribunal Institucional Electoral
-Artículo 70.—El Tribunal Institucional Electoral es el órgano encargado de todos los aspectos relativos á la organización y ejecución de las elecciones que se efectúan en el instituto, exceptuadas las estudiantiles. Se regirá por un reglamento aprobado por el Consejo institucional y sobre sus decisiones no cabe recurso interno alguno, salvo aquellos de aclaración o adición.
-En el desempeño de sus funciones, el Tribunal Institucional Electoral goza de plena independencia.
+CAPÍTULO VII
+DIRECCIONES DE PROYECTOS Y DE
+COOPERACIÓN
+ARTÍCULO 70
+Para ofrecer apoyo técnico a sus labores, la Vicerrectoría de Investigación y Extensión contará con una Dirección de Proyectos y una Dirección de Cooperación a cargo de sendos directores, quienes serán nombrados por el Rector a propuesta del Vicerrector de Investigación y Extensión. Cesarán en sus cargos cuando el Vicerrector cese en el suyo o cuando así lo acuerde el Rector, a solicitud del Vicerrector. Las funciones específicas de estas direcciones se establecerán en un Reglamento dictado por el Consejo Institucional a propuesta del Consejo de Investigación y Extensión.
+Artículo modificado por Asamblea Institucional Representativa en la Sesión AIR-001-88, del 5 de abril de 1988. (Gaceta 37)

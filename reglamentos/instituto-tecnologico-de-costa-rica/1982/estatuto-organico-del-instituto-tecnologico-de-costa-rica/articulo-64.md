@@ -1,1 +1,6 @@
-Artículo 64.—El Director, de la Sede Regional será nombrado por la Asamblea Plebiscitaria «te I» Sede Regional, Durará en su cargo cuatro años y lo desempeñara con dedicación exclusiva. No podrá ser electo por, más de dos periodos consecutivos. Papa ser director de sede se requiere poseer grado o título profesional universitario debidamente reconocido y obtenido, al menos, con cinco años de anticipación al momento de asumir el cargo. Para ser electo Director de Sede Regional se requiere obtener la mayoría y al menos el 40% del total de los votos emitidos; de lo contrario el Tribunal Institucional Electoral convocará a una nueva votación en el transcurso del mes siguiente, en la cual participarán únicamente los dos candidatos que hayan obtenido mayor número de votos.
+ARTÍCULO 64
+Los departamentos de apoyo académico contarán con un Consejo de Departamento, el cual estará integrado de la siguiente manera:
+a. El Director de Departamento quien lo preside
+b. Un máximo de diez funcionarios, además del Director, quienes serán electos por un período de dos años, según el mecanismo que establezca el departamento
+c. Una representación estudiantil correspondiente al 25% del total de los miembros del Consejo de Departamento, según lo establezca el Estatuto de la Federación de Estudiantes del Instituto Tecnológico de Costa Rica. En todo caso, deberá participar al menos un estudiante
+Inciso modificado por la Asamblea Institucional Representativa en la Sesión AIR-053-03, del 19 de marzo del 2003. (Gaceta 150)

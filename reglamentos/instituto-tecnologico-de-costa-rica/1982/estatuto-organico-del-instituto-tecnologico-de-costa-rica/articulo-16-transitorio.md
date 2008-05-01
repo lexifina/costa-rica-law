@@ -1,1 +1,0 @@
-Transitorio XVI. —-En un plazo no mayor de un año, a partir de la vigencia de este Estatuto Orgánico, la Federación de Estudiantes y la Asociación de Egresados del Instituto Tecnológico de Costa Rica deberán registrar sus estatutos y reglamentos ante la Vicerrectoría de Vida Estudiantil y Servicios Académicos.

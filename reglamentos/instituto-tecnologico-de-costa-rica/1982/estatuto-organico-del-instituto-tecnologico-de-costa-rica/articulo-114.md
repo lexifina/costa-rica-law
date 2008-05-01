@@ -1,5 +1,2 @@
-TITULO VI
-Disposiciones generales
-CAPITULO I
-Materia disciplinaria y recursos
-Artículo 114.—Las sanciones que, en materia disciplinarla, disponga el Instituto para su personal y para sus estudiantes estarán regidas por los reglamentos correspondientes.
+ARTÍCULO 114
+El Instituto podrá establecer los programas que considere necesarios a fin de conferir los siguientes grados y títulos académicos: Diplomado, Bachillerato, Licenciatura, Maestría, Doctorado y Especialidad. En toda carrera que se imparta se especificará el título y el grado a que conduce. También podrá otorgar certificados de idoneidad y de asistencia a programas de extensión y capacitación que ofrezca.

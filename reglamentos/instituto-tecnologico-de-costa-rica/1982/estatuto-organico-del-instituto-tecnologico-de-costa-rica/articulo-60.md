@@ -1,1 +1,4 @@
-Artículo 60.—El director de centro académico contará con un consejo de centro presidido por él e integrado por los encargados de la dependencias del centro y una representación estudiantil correspondiente al 25% del total de los miembros del consejo nombrada por la Asociación de Estudiantes del Centro, de conformidad con los estatutos de la Federación de Estudiantes del Instituto Tecnológico de Costa Rica.
+ARTÍCULO 60
+Cada departamento académico podrá nombrar un Consejo Asesor coordinado por su Director e integrado por miembros externos a la Institución afines al campo de acción del departamento, de los cuales al menos uno deberá será egresado del Instituto. Son funciones de este Consejo:
+a. Asesorar al departamento en asuntos de carácter técnico relacionados con el sector para el que el departamento forme profesionales
+b. Asesorar al departamento con respecto a las pautas generales para sus actividades de docencia, investigación y extensión

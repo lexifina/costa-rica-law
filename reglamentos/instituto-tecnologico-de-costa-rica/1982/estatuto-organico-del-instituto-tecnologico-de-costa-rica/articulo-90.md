@@ -1,3 +1,7 @@
-CAPITULO III
-La formación profesional
-Articulo 90.—La formación profesional de los estudiantes se realizará por medio de su participación en los cursos y actividades establecidas en el plan de estudios respectivo, complementada con la oportunidad de participar en otros programas, eventos y actividades académicas y socioculturales que propicie el Instituto.
+ARTÍCULO 90
+La Comisión Organizadora del Congreso Institucional estará integrada de la siguiente manera:
+a. Cuatro profesores
+b. Dos estudiantes designados por la Federación de Estudiantes del Instituto Tecnológico de Costa Rica
+c. Un funcionario administrativo
+La Comisión Organizadora designará, de su seno, quien la presidirá
+Inciso modificado por la Asamblea Institucional Representativa en la Sesión AIR-051-03, del 25 de setiembre del 2002. (Gaceta 137)

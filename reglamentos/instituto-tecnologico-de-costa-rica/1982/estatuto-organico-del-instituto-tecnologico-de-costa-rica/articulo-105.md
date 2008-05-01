@@ -1,1 +1,4 @@
-Artículo 105.—Las funciones y el sistema de selección, evaluación, promoción y remuneración del personal estarán descritos en los manuales y reglamentos correspondientes.
+CAPÍTULO II
+LOS ESTUDIANTES Y LA REPRESENTACIÓN ESTUDIANTIL
+ARTÍCULO 105
+Los estudiantes son los miembros de la Comunidad Institucional que reciben formación mediante su participación en programas académicos que desarrolla el Instituto.

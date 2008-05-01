@@ -1,1 +1,4 @@
-Artículo 93.—-El Instituto podrá establecer los programas que considere necesarios a fin de conferir los siguientes grados y títulos académicos: Diplomado, bachillerato, licenciatura, maestría, doctorado/y especialidad. En toda carrera que se imparta se especificará el título y el grado a que conduce, También podrá otorgar certificados de idoneidad y de asistencia a programas de extensión y capacitación que ofrezca.
+CAPÍTULO XII
+EL AUDITOR
+ARTÍCULO 93
+El Auditor tendrá a su cargo la fiscalización de la gestión del Instituto, con el fin de garantizar el eficiente aprovechamiento de los recursos humanos y materiales y el cumplimiento de las leyes y reglamentos que regulan la actividad del Instituto.

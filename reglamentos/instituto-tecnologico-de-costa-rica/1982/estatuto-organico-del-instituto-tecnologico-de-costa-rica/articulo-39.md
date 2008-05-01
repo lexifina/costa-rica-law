@@ -1,1 +1,3 @@
-Articulo 39. —El Consejo de Vicerrectoría de Vida Estudiantil y Servicios Académicos, estará integrado, por el Vicerrector, quien lo presidirá, tos directores de los departamentos de la Vicerractoría, tos directores de tos departamentos equivalentes de las sedes regionales y centros académicos y una representación estudiantil correspondiente al 33% del total de miembros del Consejo de la Vicerrectoría, nombrada por la Federación de Estudiantes del Instituto Tecnológico de Costa Rica.
+ARTÍCULO 39
+El Consejo de Vicerrectoría de Docencia estará integrado por el Vicerrector de Docencia, quien lo presidirá, los directores de las escuelas del Instituto y una representación estudiantil correspondiente al 25% del total de miembros del Consejo de Vicerrectoría de Docencia, designada por la Federación de Estudiantes del Instituto Tecnológico de Costa Rica.
+Artículo modificado por el Consejo Institucional en la Sesión 2283, Artículo 13, del 10 de abril del 2003. (Gaceta 145)

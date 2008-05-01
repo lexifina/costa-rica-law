@@ -1,0 +1,5 @@
+ARTÍCULO 142
+Las iniciativas de reforma e interpretación al Estatuto Orgánico tramitadas por el Consejo Institucional, cuyo alcance se encuentre dentro de su ámbito de competencia, serán estudiadas por una comisión permanente de este último.
+El dictamen de la Comisión Permanente de Estatuto Orgánico del Consejo Institucional deberá comunicarse a la comunidad del Instituto por lo menos veinte días hábiles antes de que se inicie su discusión en el Consejo Institucional, para que los interesados puedan analizarlo y enviar las observaciones que estimen pertinentes.
+Este tipo de reformas e interpretaciones al Estatuto Orgánico deberá ser aprobada por el Consejo Institucional en dos sesiones ordinarias y con al menos el voto afirmativo de las dos terceras partes de sus miembros.
+El Consejo Institucional, aún dentro del ámbito de su competencia, no podrá realizar modificaciones ni interpretaciones a las reformas al Estatuto Orgánico aprobadas por la Asamblea Institucional Representativa, antes de que transcurran dos años de su entrada en vigencia.

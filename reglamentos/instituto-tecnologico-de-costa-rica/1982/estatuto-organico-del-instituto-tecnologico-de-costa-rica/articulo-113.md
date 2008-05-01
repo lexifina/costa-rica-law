@@ -1,1 +1,2 @@
-Artículo 113.—El presupuesto del Instituto será elaborado bajo la responsabilidad del Rector y para ello se considerarán los criterios y necesidades de todas las dependencias, así como la opinión de las unidades responsables de su ejecución.
+ARTÍCULO 113
+El Instituto impartirá las carreras de tipo tecnológico que, con base en estudios de factibilidad e información complementaria, se considere que son necesarias para el desarrollo del país. Asimismo, garantizará, mediante los mecanismos de seguimiento de los sectores que atienden, la permanente actualización de las carreras.

@@ -1,3 +1,2 @@
-CAPITULO II
-Reformas al Estatuto Orgánico
-Artículo 117.—Las iniciativas en materia de reformas al Estatuto Orgánico deberán canalizarse por medio de los miembros de la Asamblea Institucional Representativa o del Consejo Institucional.
+ARTÍCULO 117
+La investigación y la extensión que se realicen en el Instituto responderán a políticas diseñadas con estricto apego a las necesidades del país.

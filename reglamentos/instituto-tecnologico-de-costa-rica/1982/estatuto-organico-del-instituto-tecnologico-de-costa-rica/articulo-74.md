@@ -1,3 +1,2 @@
-CAPITULO XI
-Congreso Institucional
-Artículo 74. —EI Congreso Institucional es un órgano deliberativo para conocer los asuntos de interés institucional que proponga su comisión organizadora.
+ARTÍCULO 74
+El Director de Centro Académico contará con un Consejo de Centro presidido por él e integrado por los encargados de las dependencias del Centro, y una representación estudiantil correspondiente al 25% del total de los miembros del Consejo nombrada por la Asociación de Estudiantes del Centro de conformidad con los estatutos de la Federación de Estudiantes del Instituto Tecnológico de Costa Rica.

@@ -1,3 +1,5 @@
-CAPITULO II
-Los estudiantes y la representación estudiantil
-Artículo 84. —Los estudiantes son los miembros de la comunidad institucional que recibes formación mediante su participación en programas académicos que desarrolla el instituto.
+CAPÍTULO X
+TRIBUNAL INSTITUCIONAL ELECTORAL
+ARTÍCULO 84
+El Tribunal Institucional Electoral, es el órgano encargado de todos los aspectos relativos a la organización y ejecución de las elecciones que se efectúan en el Instituto, exceptuadas las estudiantiles. Se regirá por un reglamento aprobado por el Consejo Institucional y sobre sus decisiones no cabe recurso interno alguno, salvo aquellos de aclaración o adición.
+En el desempeño de sus funciones, el Tribunal Institucional Electoral goza de plena independencia.

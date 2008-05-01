@@ -1,2 +1,2 @@
-Artículo 94.—Los grados y títulos que confiere el Instituto son válidos para el ejercicio de las profesiones cuya competencia acreditan.
-El Instituto podrá reconocer títulos y grados obtenidos en instituciones de educación superior extranjera cuando los planes de estudio sean similares a los de carreras impartidas en la Institución, de acuerdo con el reglamento correspondiente.
+ARTÍCULO 94
+El Auditor será de libre nombramiento y remoción del Consejo Institucional, del que dependerá. Asistirá a las sesiones del Consejo Institucional con voz y sin voto. Tendrá plena independencia en el ejercicio de su cargo y deberá dejar claramente establecida su posición cuando, a su juicio, algún acuerdo del Consejo Institucional viole alguna ley o reglamento.

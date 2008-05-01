@@ -14,3 +14,4 @@ Estatuto Orgánico del Instituto Tecnológico de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-01-24 | la propia norma |
+| 2 | 2008-05-01 | SINALEVI (sin norma nombrada) |

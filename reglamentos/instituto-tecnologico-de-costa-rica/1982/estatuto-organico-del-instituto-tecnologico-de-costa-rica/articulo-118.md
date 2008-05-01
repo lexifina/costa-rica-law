@@ -1,2 +1,3 @@
-Articulo 118.—Las reformas solicitadas por la Asamblea Institucional Representativa o por los miembros del Consejo Institucional, serán estudiadas por una comisión permanente de éste último, cuyo dictamen "deberá comunicarse a la comunidad del Instituto por lo menos dos semanas antes de que se inicie su discusión en el Consejo Institucional, para que los interesados envíen las observaciones que estimen pertinentes.
-Toda reforma deberá ser aprobada en dos sesiones ordinarias del Consejo Institucional, y con al menos el voto afirmativo de las dos terceras partes de sus miembros.
+ARTÍCULO 118
+La unidad de trabajo en la investigación y la extensión será el programa, el cual estará constituido por un proyecto o grupo de proyectos afines, tendiente a solucionar un problema específico o a atender una necesidad.
+La Vicerrectoría de Investigación y Extensión, por medio de sus órganos especializados, y en conjunto con el Director del Departamento respectivo, evaluará periódicamente la calidad de estas labores y velará porque cumplan los lineamientos establecidos.

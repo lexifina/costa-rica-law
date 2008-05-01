@@ -1,2 +1,0 @@
-Transitorio XVIII.—En un plazo no mayor de un año, a partir de su instalación, el Consejo Institucional deberá decidir sobre la posibilidad de fusionar los Departamentos de Matemática y de Física y los Departamentos de Comunicación y de Ciencias Sociales, así como la fusión del Departamento de Servicios Bibliotecarios con el Centro de .Información Tecnológica y su ubicación.
-Hasta tanto no se decida al respecto, los departamentos académicos mencionados en este transitorio no procederán a ratificar o elegir sus directores.

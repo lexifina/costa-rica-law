@@ -1,1 +1,0 @@
-Transitorio XXXII.—En el transcurso de un ano después de la aprobación de este Estatuto Orgánico, el Consejo Institucional, en coordinación con la Federación de Estudiantes del Instituto Tecnológico de Costa Rica, establecerá una fórmula para dotar de presupuesto adecuado a ésta ultima.

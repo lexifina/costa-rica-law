@@ -1,1 +1,2 @@
-Artículo 66. —Para el desempeño d« sus funciones, el Director de la Sede Regional contará con un consejo asesor, presidido por él, al que asistirán los directores de todos los departamentos a su cargo y una representación estudiantil correspondiente al 25% 'del total de miembros del Consejo, nombrada por la Asociación de Estudiantes de la Sede Regional, de conformidad con los estatutos de la Federación de Estudiantes del Instituto Tecnológico de Costa Rica.
+ARTÍCULO 66
+Artículo eliminado por la Asamblea Institucional Representativa en la Sesión AIR-053-03, del 19 de marzo del 2003. (Gaceta 150)

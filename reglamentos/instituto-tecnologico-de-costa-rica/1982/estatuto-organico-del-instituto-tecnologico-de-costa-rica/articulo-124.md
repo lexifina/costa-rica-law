@@ -1,1 +1,9 @@
-Artículo 124. —Toda jefatura será ejercida por un funcionario de tiempo Completo, quien deberá presentar anualmente, para la aprobación de su superior inmediato, un plan de trabajo, un proyecto de presupuesto y un informe de labores.
+ARTÍCULO 124
+Son deberes y derechos del personal administrativo:
+a. Cumplir con eficiencia, de acuerdo con los fines y principios de la Institución, las labores a su cargo
+b. Cumplir las disposiciones de este Estatuto Orgánico y de los reglamentos específicos
+c. Expresar libremente sus convicciones filosóficas, científicas, religiosas y políticas y respetar las de los demás miembros de la Comunidad Institucional
+d. Disfrutar de los beneficios que este Estatuto Orgánico y los reglamentos específicos le otorguen
+e. Desempeñar cargos de dirección o representación cuando se le asignen
+f. Votar en las elecciones que le corresponda
+g. Asistir puntualmente a los órganos a los cuales pertenezca

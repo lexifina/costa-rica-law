@@ -1,1 +1,2 @@
-Artículo 109.—El Instituto mantendrá un programa tendiente a favorecer la superación laboral, profesional y personal de todos sus funcionarios, para lo cual procurará los recursos necesarios.
+ARTÍCULO 109
+La Federación de Estudiantes del Instituto Tecnológico de Costa Rica contará con un presupuesto formado por las cuotas correspondientes por derechos de matrícula y las sumas que el Consejo Institucional, de acuerdo con las necesidades y las disponibilidades presupuestarias del Instituto, le asigne.

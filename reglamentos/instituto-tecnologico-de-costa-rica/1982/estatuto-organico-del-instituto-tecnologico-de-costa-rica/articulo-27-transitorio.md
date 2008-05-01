@@ -1,1 +1,0 @@
-Transitorio XXVII.—Los directores titulares de los Departamentos de Investigación Tecnológica y de Asistencia Técnica, pasarán a ser Directores de Investigación y de Extensión respectivamente, hasta tanto el Rector no proceda al nombramiento de dichos cargos, con base en el mecanismo establecido en, este Estatuto Orgánico.

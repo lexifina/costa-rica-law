@@ -1,1 +1,4 @@
-Artículo 72.—El Tribunal Institucional Electoral designará de su seno a un presidente, quien fungirá por un año y podrá ser reelecto. El Tribunal sesionará convocado por su presidente y el quórum lo constituirá más de la mitad de sus miembros. Los acuerdos se tomarán mediante el voto afirmativo de más de la mitad de los miembros presentes. En caso de empate la votación se repetirá en la sesión siguiente y de persistir éste, el presidente podrá ejercer el doble, voto.
+CAPÍTULO IX
+SEDES REGIONALES Y CENTROS ACADEMICOS
+ARTÍCULO 72
+El Instituto Tecnológico de Costa Rica puede realizar sus actividades en otros lugares fuera de su Sede Central, respondiendo siempre a las necesidades de desarrollo del país como un todo. Estas actividades se podrán constituir como estructuras organizativas con carácter de Centro Académico o de Sede Regional, con criterio de desconcentración técnica y administrativa.

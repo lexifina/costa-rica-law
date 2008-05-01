@@ -1,3 +1,3 @@
-CAPITULO VIII
-Oficinas de la Rectoría
-Artículo 57,—La Rectoría contará con oficinas asesoras y asistenciales para su gestión. Los directores o encargados de las oficinas asesoras serán designados por el Rector para el periodo de su nombramiento.
+ARTÍCULO 57
+Los directores de departamento académico son los funcionarios que dirigen y representan a esas unidades. En la línea jerárquica inmediata estarán bajo la autoridad del Vicerrector respectivo o el Director de Sede, según corresponda.
+Artículo modificado por el Consejo Institucional en la Sesión 1864, Artículo 9, del 14 de diciembre del 1995. (Gaceta 111)

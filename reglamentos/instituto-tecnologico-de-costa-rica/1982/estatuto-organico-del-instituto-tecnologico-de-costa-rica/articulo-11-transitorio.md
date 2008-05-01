@@ -1,1 +1,0 @@
-Transitorio XI.—En un plazo no mayor de cuatro semanas a partir del momento en que quede electo el rector, el. Tribunal Institucional Electoral integrará la Asamblea Institucional Representativa. La primera reunión de este órgano será presidida Inicialmente por el rector, con el fin de elegir a su directorio.

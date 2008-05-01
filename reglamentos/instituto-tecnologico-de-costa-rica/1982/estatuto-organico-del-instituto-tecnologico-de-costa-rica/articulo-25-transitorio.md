@@ -1,3 +1,0 @@
-Transitorio XXV.—Con base en un estudio técnico, el Consejo de Investigación y Extensión/una vez Instalado y en un plazo no mayor de cuatro meses, recomendará al Consejo Institucional sobre el carácter y la ubicación de los actuales centros y programas de investigación y extensión adscritos a la División de Investigación y Desarrollo tecnológico y a los departamentos docentes.
-El Consejo Institucional aprobará la ubicación definitiva.
-El Rector, posteriormente a la definición del Consejo Institucional acordará con cada funcionario afectado, la forma en que los investigadores y extensionistas actuales se reubicarán en los departamentos académicos en su calidad de profesores.

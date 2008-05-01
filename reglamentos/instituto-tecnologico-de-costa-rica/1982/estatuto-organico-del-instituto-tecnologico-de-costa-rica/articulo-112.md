@@ -1,1 +1,2 @@
-Artículo 112.—Todos los ingresos del Instituto deberán centralizarse en un fondo único. Las disposiciones de fondos y las inversiones sé harán de conformidad con el presupuesto del Instituto y sus modificaciones.
+ARTÍCULO 112
+Los planes de estudio de las carreras serán elaborados por los departamentos encargados de ejecutarlos y aprobados por el Consejo de Docencia. La iniciativa para la elaboración o modificación de un plan de estudio deberá provenir de las unidades académicas respectivas o de los órganos superiores del Instituto. Lo anterior se regirá por los reglamentos correspondientes.

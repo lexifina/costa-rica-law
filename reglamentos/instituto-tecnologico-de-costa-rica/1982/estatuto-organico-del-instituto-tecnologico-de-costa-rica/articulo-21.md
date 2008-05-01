@@ -1,2 +1,3 @@
-Artículo 21.—El Rector será elegido por la Asamblea Institucional Plebiscitaria para un periodo de cuatro anos. No podrá ser electo por más de dos periodos consecutivos. Sus funciones las realizará con dedicación exclusiva.
-Para ser electo Rector sé requiere obtener la mayoría y al menos, el 40% del total de los votos emitidos; de lo contrario, el Tribunal Institucional Electoral convocará .a una nueva votación en el transcurso del mes siguiente en la cual participarán únicamente los dos candidatos que hayan obtenido mayor número de votos.
+ARTÍCULO 21
+La pérdida del cargo por ausencia a las sesiones de los miembros del Consejo Institucional deberá ser declarada por este Consejo a propuesta de su presidente, quien deberá hacer la comunicación oficial a los organismos correspondientes.
+Artículo modificado por la Asamblea Institucional Representativa en la Sesión AIR-039-98, del 30 de setiembre de 1998. (Gaceta 81)

@@ -1,3 +1,4 @@
-CAPITULO IV
-Investigación y extensión
-Artículo 95.—La investigación y la extensión son actividades fundamentales del Instituto orientadas a la generación, adaptación, incorporación y comunicación del conocimiento tecnológico, científico, educativo y sociocultural.
+TÍTULO IV
+POLÍTICAS INSTITUCIONALES
+ARTÍCULO 95
+El Instituto Tecnológico de Costa Rica contará con un marco de Políticas Institucionales, como complemento de sus principios, con el propósito de orientar la toma de decisiones de corto y mediano plazo, la evaluación y la rendición de cuentas.

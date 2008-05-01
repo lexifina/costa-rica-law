@@ -1,9 +1,4 @@
-Artículo 71.—El Tribunal Institucional Electoral está integrado por:
-a) Cuatro profesores;
-b) Dos estudiantes; y
-c) Un funcionario administrativo.
-Cada miembro tendrá un sapiente.
-Los miembros funcionarios serán nombrados por el Consejo Institucional, durarán en sus funciones cinco años y se renovarán primero tres y dos años después dos.
-Los estudiantes serán nombrados; por la Federación de Estudiantes del Instituto Tecnológico de Costa Rica, de acuerdo con lo que disponga su propio estatuto.
-Todos los miembros podrán ser reelectos.
-El Consejo Institucional podrá destituir a cualquier miembro del Tribunal Institucional Electoral por incompetencia o falta de .neutralidad comprobada.
+CAPÍTULO VIII
+OFICINAS DE LA RECTORÍA
+ARTÍCULO 71
+La Rectoría contará con oficinas asesoras y asistenciales para su gestión. Los directores o encargados de las oficinas asesoras serán designados por el Rector para el período de su nombramiento.

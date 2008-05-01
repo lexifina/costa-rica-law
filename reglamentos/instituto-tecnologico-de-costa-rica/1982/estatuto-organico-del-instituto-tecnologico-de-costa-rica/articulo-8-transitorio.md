@@ -1,1 +1,0 @@
-Transitorio VIII. —-El primer día del primer semestre lectivo de 1983, el Consejo Director cesará en sus funciones, e iniciará las suyas el. Consejo Institucional. Los miembros .funcionarios, en la primera sesión de este Consejo, decidirán al azar los tres cuyo período inicial será de dos anos y los dos cuyo período inicial será de tres años.

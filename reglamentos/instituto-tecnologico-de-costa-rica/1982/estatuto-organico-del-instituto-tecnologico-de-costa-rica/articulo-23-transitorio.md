@@ -1,1 +1,0 @@
-Transitorio XXIII.—La Editorial Tecnológica funcionará como una unidad dependiente del Vicerrector de Investigación y Extensión. La conformación de su Consejo Editorial será definida por el Consejo Institucional en un plazo máximo de seis meses a partir de su instalación. Mientras esto se realiza el actual Consejo Editorial seguirá en sus funciones.
