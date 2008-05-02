@@ -1,0 +1,1 @@
+Artículo 15.—La jornada laboral del Auditor Interno de la Municipalidad de Alvarado se regirá por lo establecido en el artículo Nº 30 de la Ley General de Control Interno, Nº 8292, directrices emitidas por la Contraloría General de la República y demás normativa reglamentaria y legal que le aplicable.

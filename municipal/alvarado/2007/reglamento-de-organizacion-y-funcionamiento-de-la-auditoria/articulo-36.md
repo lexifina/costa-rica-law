@@ -1,0 +1,1 @@
+Artículo 36.—El auditor interno deberá mantener actualizado y en uso de su unidad el Manual de Procedimientos de Auditoría Interna, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables a la Municipalidad.
