@@ -1,0 +1,1 @@
+Artículo 40.—Forma de resolver conflictos. En caso de conflictos entre lo recomendado por la Auditoría y lo decidido por el jerarca, se procederá de acuerdo al procedimiento establecido en el artículo 38 de la Ley General de Control Interno.

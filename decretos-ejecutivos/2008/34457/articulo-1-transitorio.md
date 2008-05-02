@@ -1,0 +1,1 @@
+Transitorio único.—En tanto la Administración Activa de la Presidencia y del Ministerio no emita un Manual Institucional de Cargos y Clases, se utilizará el implementado, a lo interno, por la Auditoría.

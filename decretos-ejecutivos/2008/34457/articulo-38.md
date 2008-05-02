@@ -1,0 +1,1 @@
+Artículo 38.—Informes dirigidos a titulares subordinados. Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados se procederá de acuerdo a lo normado en el artículo 36 de la Ley General de Control Interno.

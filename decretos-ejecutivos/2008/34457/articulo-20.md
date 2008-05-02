@@ -1,0 +1,1 @@
+Artículo 20.—Delegación de funciones. El Auditor podrá, eventualmente, delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública en su título tercero, capítulo segundo, sección tercera.

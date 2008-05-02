@@ -1,0 +1,1 @@
+Artículo 46.—Contenido de la Relación de Hechos. La Relación de Hechos contendrá los elementos necesarios para identificar a los presuntos partícipes o responsables contra los cuáles se han de enderezar las acciones que se indican y precisar los hechos anómalos o irregulares que servirán de base a la intimación de cargos.
