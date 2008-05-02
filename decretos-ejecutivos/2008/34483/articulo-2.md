@@ -1,0 +1,1 @@
+Artículo 2º—La importación a que se refiere el artículo anterior será realizada por la Corporación Arrocera Nacional, según lo dispuesto en el artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera Nacional, Ley Nº 8285 del 30 de mayo del 2002, para el período comprendido entre julio del 2008 a mayo del 2009.
