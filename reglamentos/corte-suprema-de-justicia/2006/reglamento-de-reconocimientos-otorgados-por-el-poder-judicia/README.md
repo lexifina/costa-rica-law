@@ -13,3 +13,4 @@ Reglamento de reconocimientos otorgados por el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-29 | la propia norma |
+| 2 | 2008-05-02 | Circular 70 (2008-05-02) |
