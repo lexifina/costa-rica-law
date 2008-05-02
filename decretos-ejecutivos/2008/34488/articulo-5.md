@@ -1,0 +1,1 @@
+Artículo 5º—La disposición o destrucción de cualquier otro tipo de mercancías peligrosas no contempladas en el presente procedimiento requiere, sin excepción, de la autorización previa emitida por funcionarios del Área Rectora de Salud correspondiente, avalando el método de disposición a utilizar.
