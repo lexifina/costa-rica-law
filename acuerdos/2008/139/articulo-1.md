@@ -1,3 +1,5 @@
+(Suspendida)
+(Mediante acuerdo AJDIP/171-2008 del 02 de mayo del 2008, publicado en La Gaceta N° 95 del 19 de mayo de 2008, se suspende la implementación y vigencia del presente acuerdo, por un plazo de dos meses calendario contados a partir de dicha publicación).
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
 A.J.D.I.P./139-2008.—Puntarenas, a los cuatro días del mes de abril del dos mil ocho.
 Considerando:
