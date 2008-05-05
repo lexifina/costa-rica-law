@@ -1,0 +1,1 @@
+Artículo 12.—Rechazo de la solicitud. En caso que la solicitud sea rechazada por la Dirección del CCPC, el Solicitante podrá interponer los recursos establecidos en la Ley General de la Administración Pública, contra dicha decisión ante el Consejo Nacional de Cinematografía, que resolverá dentro de los plazos establecidos al efecto en la citada ley.
