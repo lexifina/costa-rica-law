@@ -1,0 +1,1 @@
+Artículo 7º—De las distancias reconocidas. A efecto de reconocimiento de gasto de transporte se considerará la distancia al sitio de residencia del Regidor o Síndico del Concejo Municipal, o Centro de Población del Distrito, en caso de que el lugar de residencia no corresponda al Distrito representado se reconocerá como máximo el Centro de Población del Distrito en mención.

@@ -1,0 +1,1 @@
+Artículo 17.—Del seguimiento del documento. El formulario de “Liquidación de Gastos de Transporte” se preparara en al menos tres tantos, con la siguiente distribución: Original para custodia de Tesorería, copia Dirección Financiera y copia al sujeto beneficiario.

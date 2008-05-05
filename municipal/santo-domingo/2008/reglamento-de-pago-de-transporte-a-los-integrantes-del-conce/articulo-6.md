@@ -1,0 +1,1 @@
+Artículo 6º—De la hora a partir de la cual se efectuará el reconocimiento. El servicio de transporte solo se reconocerá a los integrantes del Concejo Municipal en los casos en que las Sesiones del Concejo Municipal concluyan después de las 09:00 p. m. (21:00 horas).

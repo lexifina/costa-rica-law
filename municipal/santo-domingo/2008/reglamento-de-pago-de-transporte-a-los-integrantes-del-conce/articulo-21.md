@@ -1,0 +1,1 @@
+Artículo 21.—De las modificaciones al Reglamento. En caso de cambios en la normativa vinculante o por la existencia de nuevas técnicas o tecnología, que redunde en formas más eficientes de lograr los objetivos planteados se deberá tomar las medidas necesarias para la actualización de este Reglamento, conforme al procedimiento seguido para su aprobación.

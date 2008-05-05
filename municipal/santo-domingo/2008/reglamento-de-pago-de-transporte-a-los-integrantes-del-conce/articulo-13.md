@@ -1,0 +1,1 @@
+Artículo 13.—Del visto bueno. La Dirección Financiera de la Municipalidad suministrará un visto bueno a los formularios de Liquidación de forma que se verifique en lo razonable la veracidad de los datos aportados y el reconocimiento resultante.

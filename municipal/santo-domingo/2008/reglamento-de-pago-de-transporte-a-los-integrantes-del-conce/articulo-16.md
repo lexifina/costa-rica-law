@@ -1,0 +1,1 @@
+Artículo 16.—De la fecha de las liquidaciones. Los documentos de “Liquidación de Gastos de Transporte” deberán ser presentados a más tardar quince días posteriores al cierre del mes para el que se liquida el beneficio. Caso contrario salvo justificación razonable o atraso de la administración representará pérdida del derecho.

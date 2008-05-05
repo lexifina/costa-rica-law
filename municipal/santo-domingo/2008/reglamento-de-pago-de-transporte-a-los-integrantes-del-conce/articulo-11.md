@@ -1,0 +1,1 @@
+Artículo 11.—De la autorización. La Autorización en el formulario de “Liquidación de Gastos de Transporte” será suministrada por quien ejerza el cargo de Tesorero Municipal a la fecha de su reconocimiento, esta incluye la verificación del contenido presupuestario necesario para materializar el reconocimiento.

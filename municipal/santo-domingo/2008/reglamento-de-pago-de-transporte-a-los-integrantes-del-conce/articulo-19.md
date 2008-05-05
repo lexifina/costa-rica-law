@@ -1,0 +1,1 @@
+Artículo 19.—De la obligatoriedad. Las disposiciones establecidas en este Reglamento tienen carácter obligatorio en lo que corresponda, para los integrantes del Concejo Municipal, funcionarios y jerarcas de la Municipalidad de Santo Domingo de Heredia.

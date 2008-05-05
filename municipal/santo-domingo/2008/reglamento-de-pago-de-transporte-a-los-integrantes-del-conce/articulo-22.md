@@ -1,0 +1,1 @@
+Artículo 22.—De la liquidación de reconocimientos previos a la presente aprobación. El pago de reconocimientos previos por gastos de transporte se efectuará conforme a aprobación previa mediante acuerdo del Concejo Municipal y el uso de los instrumentos establecidos.
