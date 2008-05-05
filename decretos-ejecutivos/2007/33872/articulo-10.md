@@ -3,7 +3,8 @@ Requisitos y trámites de instalación
 Artículo 10.—Toda persona física o jurídica que desee construir o modificar un edificio que se destinará total o parcialmente a un templo o local de culto, deberá previamente tramitar ante las instancias correspondientes, los siguientes requisitos:
 a) Aprobación del Permiso de Ubicación: Trámite que el interesado deberá realizar ante el Área Rectora de Salud correspondiente, de acuerdo al procedimiento establecido, a fin de que dicha oficina emita la respectiva resolución, donde manifieste su conformidad u oposición para que el templo o local de culto se ubique en el lugar elegido.
 Para su aprobación se solicitarán los siguientes requisitos:
-a.1-) Fotocopia del plano de catastro o escritura para efectos de conocer la localización y ubicación del lugar donde se desarrollará el proyecto.
+a.1-) Fotocopia del plano de catastro, certificación de propiedad o declaración jurada de posesión, para efectos de conocer la localización y ubicación del lugar donde se desarrollará el proyecto.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34646 del 5 de mayo de 2008)
 a.2-) Descripción del proyecto: Indicación de las actividades que se desarrollarán.
 a.3-) Croquis del proyecto: Croquis dimensional del proyecto acotado.
 a.4-) Descripción de los desechos sólidos: Indicación general del manejo de los mismos.

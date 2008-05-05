@@ -1,7 +1,8 @@
 CAPÍTULO V
 Requisitos y trámites para optar por el Permiso Sanitario
 de Funcionamiento de un templo o local de culto
-Artículo 12.—Toda persona física o jurídica propietaria o arrendataria de un inmueble que pretenda optar por el Permiso Sanitario de Funcionamiento, por primera vez, para un templo o local de culto deberá cumplir los siguientes requisitos:
+Artículo 12.—Toda persona física o jurídica, propietaria, representante, administradora o arrendataria de un inmueble que pretenda optar por el Permiso Sanitario de Funcionamiento, por primera vez, para un templo o local de culto deberá cumplir los siguientes requisitos:
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34646 del 5 de mayo de 2008)
 A- Requisitos previos:
 1. Deberá cumplir con los requisitos señalados en los Capítulos IV y VI del presente reglamento.
 2. Viabilidad Ambiental, si aplica.
