@@ -1,0 +1,1 @@
+Artículo 5º—Para el cumplimiento de los dos artículos anteriores, la cooperativa aportará a la oficina correspondiente del Sistema Nacional de Áreas de Conservación, las listas de especies que serán cortadas, con su nombre científico y nombre común; asimismo, debidamente georeferenciadas y mapeadas.

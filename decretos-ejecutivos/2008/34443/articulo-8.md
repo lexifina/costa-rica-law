@@ -1,0 +1,1 @@
+Artículo 8º—En el caso de las propiedades que no se encuentran inscritas en el Registro Público de la Propiedad, se exime a la Empresa Propietaria de la Red y al Instituto Costarricense de Electricidad, del cumplimiento del artículo 89 del Reglamento a la Ley Forestal, en relación con los requisitos para demostrar la titularidad de la posesión.

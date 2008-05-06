@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria la empresa desarrolladora: Cooperativa de Electrificación Los Santos R. L. (COOPESANTOS R. L.), previa autorización de la oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las áreas de protección, según se indica en el proyecto.
