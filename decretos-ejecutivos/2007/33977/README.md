@@ -14,3 +14,4 @@ Modifica para el Consejo de Seguridad Vial (COSEVI), el gasto presupuestario má
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-28 | la propia norma |
+| 2 | 2008-05-06 | Decreto Ejecutivo 34556 (2008-05-06) |
