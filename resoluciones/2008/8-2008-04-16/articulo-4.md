@@ -1,0 +1,1 @@
+Artículo 4º—Sujetos pasivos domiciliados. Si los sujetos a los que se les atribuye las rentas generadas por este tipo de actividad, son personas físicas o jurídicas domiciliadas en el país, están sujetas al impuesto sobre las utilidades, y se les debe aplicar la tarifa correspondiente, según las disposiciones de ley.

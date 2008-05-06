@@ -1,0 +1,1 @@
+Artículo 7º—Deber de Información. El organizador o promotor del espectáculo deberá informar por escrito a la Administración Tributaria, con un mínimo de quince días de antelación, sobre el lugar y fecha en que se realizará el evento.

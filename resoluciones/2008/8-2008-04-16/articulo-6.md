@@ -1,0 +1,1 @@
+Artículo 6°—Sujeción al Impuesto General sobre las Ventas. Las entradas o todo derecho de acceso a los espectáculos públicos, se encuentran gravados con el impuesto general sobre las ventas, de conformidad con el artículo 1° inciso k) de la Ley que rige la materia, sin perjuicio de las exenciones establecidas mediante ley.
