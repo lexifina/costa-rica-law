@@ -1,0 +1,1 @@
+Artículo 61.—Admisión de denuncias anónimas: Las denuncias anónimas serán contempladas siempre que aporten evidencias suficientes y se encuentren respaldadas mediante pruebas que permitan iniciar la investigación, de lo contrario se archivará la denuncia.

@@ -1,0 +1,1 @@
+Artículo 64.—Comunicación al denunciante en caso de denuncias suscritas: Si el denunciante indicó en el documento su nombre, calidades y lugar de notificación. La auditoría interna le informará el curso de su denuncia.

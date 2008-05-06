@@ -1,0 +1,1 @@
+Artículo 28.—Presupuesto de la Auditoría Interna: El responsable del control de presupuesto institucional debe mantener un registro separado del monto asignado y aprobado a la auditoría interna, detallado por objeto del gasto, para el control de su ejecución y el suministro periódico de información a la Auditora Interna.

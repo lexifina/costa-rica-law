@@ -1,0 +1,1 @@
+Artículo 24.—Actualización de su ámbito de acción: La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por órganos y entes sujetos al ámbito de acción de la auditoría interna, con fundamento en lo dispuesto en el artículo 22 inciso a) de la Ley General de Control Interno.

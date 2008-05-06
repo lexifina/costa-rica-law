@@ -1,0 +1,1 @@
+Artículo 45.—Criterios para la comunicación: Las comunicaciones deben incluir los objetivos y alcance del trabajo así como las conclusiones correspondientes, las recomendaciones y los planes de acción.

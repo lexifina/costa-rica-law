@@ -1,0 +1,1 @@
+Artículo 43.—Supervisión del trabajo: Los trabajos realizados por el personal de auditoría deben ser debidamente supervisados por la Auditora con el fin asegurarse el alcance de objetivos, la calidad del trabajo, sobretodo en cuanto al cumplimiento de la normativa y el desarrollo profesional.

@@ -1,0 +1,1 @@
+Artículo 11.—La auditoría interna debe establecer políticas y directrices que permitan prevenir y detectar situaciones internas o externas que comprometan su independencia y objetividad e informar a la instancia competente cualquier impedimento que pueda tener al respecto para que se tomen las medidas correspondientes; además, se deberá abstener de tratar asuntos relacionados con

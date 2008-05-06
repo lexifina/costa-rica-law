@@ -1,0 +1,4 @@
+Artículo 12.—Medidas de resguardo: Los funcionarios de la Auditoría Interna en resguardo de su independencia de criterio y objetividad no deberán:
+a. Participar de manera permanente en reuniones de trabajo o en las sesiones del Concejo Municipal. Cuando se solicite la participación de la Auditora Interna en dichas sesiones o reuniones, ha de ser conforme a su función asesora.
+b. Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa. Cuando su participación sea solicitada, ésta será exclusivamente en su función asesora, en asuntos de su competencia y no podrá ser con carácter permanente.
+c. Evaluar operaciones específicas de las cuales haya sido previamente responsable como funcionario de la Administración, proveedor u otros, En el año inmediato anterior a partir de la fecha de su ingreso a la Auditoría Interna.

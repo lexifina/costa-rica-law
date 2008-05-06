@@ -1,0 +1,1 @@
+Artículo 30.—Apoyo técnico: La Auditoría Interna podrá solicitar, cuando lo estime conveniente, la incorporación de profesionales y técnicos en las diferentes disciplinas, funcionarios o no del Concejo Municipal para que realicen labores de su especialidad en apoyo a la actividad de Auditoría Interna.

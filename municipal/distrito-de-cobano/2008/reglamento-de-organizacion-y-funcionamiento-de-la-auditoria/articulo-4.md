@@ -1,0 +1,5 @@
+CAPÍTULO II
+Sobre la organización de la Auditoría Interna
+SECCIÓN A
+Concepto de Auditoría Interna
+Artículo 4º—Del objetivo: En su concepto funcional según el artículo 21 de la Ley General de Control Interno la auditoría interna es una actividad independiente, objetiva y asesora, creada para añadir valor y mejorar las operaciones de la organización. Procura alcanzar los objetivos organizacionales aportando un enfoque sistemático para valorar y aumentar la efectividad de los procesos de gestión de riesgos, control y dirección. La Auditoría Interna es parte integral y vital del sistema de control interno municipal, y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema. En el Concejo Municipal de Distrito de Cóbano existirá una sola Unidad de Auditoría Interna, la cual brindara a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se desarrollan conforme al marco legal y técnico y a las prácticas sanas.

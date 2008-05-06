@@ -1,0 +1,1 @@
+Artículo 60.—Solicitud de aclaración: Si la Auditoría Interna comprueba que existe imprecisión de los datos, se otorgará al denunciante un plazo no menor de 10 días hábiles para que complete la información, o de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

@@ -1,0 +1,1 @@
+Artículo 25.—Archivo permanente: La Auditoría Interna dispondrá de la información sobre las regulaciones legales y de otro tipo que afecten su ámbito de acción y su actividad como tal, a través de los sistemas de información y archivos impresos, electrónicos y de cualquier otro tipo que se mantengan en la institución.
