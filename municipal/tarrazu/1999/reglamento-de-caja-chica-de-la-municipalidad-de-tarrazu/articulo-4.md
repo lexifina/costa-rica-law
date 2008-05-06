@@ -1,2 +1,2 @@
-4—Ningún pago de la caja chica podrá exceder la suma de ¢10.000,00 (diez mil colones netos)*.
-(*Así reformado en sesión N° 121 del 13 de setiembre del 2004)
+4—Ningún pago de la caja chica excederán al 20% del monto total de caja, por lo tanto de la suma de ¢20.000,00 (veinte mil colones netos).
+(Así reformado mediante sesión N° 114 del 06 de mayo del 2008)
