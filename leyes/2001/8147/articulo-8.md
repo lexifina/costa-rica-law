@@ -1,3 +1,0 @@
-Artículo 8º—Tasa de interés. La tasa de interés fija que los beneficiarios pagarán durante la vigencia total del Fideicomiso será de dos puntos porcentuales por debajo de la tasa básica pasiva más baja calculada por el Banco Central de Costa Rica en el período comprendido entre la aprobación del crédito por parte del Comité de Fideicomiso y la formalización del crédito referido.
-En el momento de la formalización del crédito, los intereses a los que se refiere el párrafo anterior, no podrán ser cobrados por adelantado, sino que se cobrarán por períodos vencidos.
-(Así reformado por el inciso d) del artículo 1 de la ley N° 8332 de 7 de noviembre del 2002)
