@@ -16,3 +16,4 @@ Estatuto Autónomo de Organización de la Defensoría de los Habitantes de la Re
 | 1 | 2001-05-11 | la propia norma |
 | 2 | 2003-05-07 | Reglamento 739 (2003-05-07) |
 | 3 | 2005-06-29 | Acuerdo 1042 (2005-06-29) |
+| 4 | 2008-05-07 | Reglamento 0 (2008-05-07) |
