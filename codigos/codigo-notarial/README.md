@@ -1,6 +1,6 @@
 # Código Notarial
 
-Ley N° 7764 del 1998-04-17. SINALEVI, ficha 42683: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42683&param2=66532&param3=1>.
+Ley N° 7764 del 1998-04-17. SINALEVI, ficha 42683: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42683&param2=72258&param3=1>.
 
 Publicada en La Gaceta N° 98 del 1998-05-22.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 17 | 2004-10-26 | Resolución 1611 (2004-08-04) | 2004-08-04 |
 | 5 de 17 | 2006-05-31 | Sala Constitucional, resolución 06-07965 (2006-05-31) | 2006-05-31 |
 | 6 de 17 | 2006-06-14 | SINALEVI | 2006-06-14 |
+| 7 de 17 | 2008-05-07 | Ley 8634 | 2008-04-23 |
