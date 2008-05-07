@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Escogencia del fiduciario del Fideicomiso
+La escogencia del fiduciario del Fideicomiso se realizará por medio de licitación pública, la cual será tramitada por la Secretaría Técnica. El cartel respectivo será conocido de previo y aprobado por el Consejo Rector, el cual, a su vez, oportunamente efectuará la adjudicación de la licitación. En la licitación pública citada, únicamente podrán participar los bancos públicos, a excepción del Banhvi.

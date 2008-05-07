@@ -1,0 +1,3 @@
+ARTÍCULO 33.- Administración de los fondos
+La administración de los fondos estará a cargo del banco respectivo; serán supervisados y fiscalizados por normas especiales emitidas por el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), para el cumplimiento de los objetivos de esta Ley. La fiscalización de las normas especiales estará a cargo de la Sugef.
+Los movimientos y registros contables del fondo se llevarán por separado y, luego, se consolidarán con la contabilidad del banco. Las utilidades que se generen serán reinvertidas en el fondo y no podrán ser contabilizadas para el cálculo de los beneficios salariales dispuestos a favor de los funcionarios de los bancos públicos.

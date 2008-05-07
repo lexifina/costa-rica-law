@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Fiduciario
+El fiduciario será un banco público, seleccionado mediante una licitación pública que convocará el Consejo Rector. En dicha licitación, solo podrán participar los bancos públicos, a excepción del Banhvi. La remuneración del fiduciario se definirá detalladamente en el contrato de fideicomiso. Todos los servicios y gastos en que incurra el fiduciario, debido a la administración del fideicomiso, quedarán cubiertos con la comisión de administración.

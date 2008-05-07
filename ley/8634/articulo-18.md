@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Recursos para administración y operación
+El Consejo Rector quedará facultado para destinar, anualmente, recursos hasta por un cero coma cinco por ciento (0,5%) de los recursos del Finade, para los gastos administrativos y operativos, incluidos los de la entidad técnica, y para fomentar actividades de información y divulgación que promocionen las distintas actividades relacionadas con el SBD, preferentemente dirigidas a los sectores prioritarios definidos en esta Ley.

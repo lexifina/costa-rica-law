@@ -10,8 +10,8 @@ h) Conocer en alzada de las apelaciones que se presenten contra las resoluciones
 i) Conocer y resolver sobre los proyectos que le presente la Presidencia Ejecutiva o la Gerencia, para crear dependencias o servicios.
 j) Proponer a la Asamblea Legislativa, por medio del Poder Ejecutivo, los proyectos de ley que consideren necesarios para realizar sus funciones.
 k) Adjudicar y resolver las licitaciones públicas u otras que determine el reglamento de esta ley.
-l) Constituir, en cualquier banco comercial del Estado, fideicomisos o cualquier otro mecanismo financiero para la captación, el manejo y la ejecución de los fondos destinados al Programa de Reconversión Productiva.
-m) Administrar y disponer de los recursos a cargo del Programa de Reconversión Productiva, de acuerdo con los objetivos de esta ley.
+l) (Derogado por el artículo 56 inciso a) de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril de 2008).
+m) (Derogado por el artículo 56 inciso a) de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril de 2008).
 n) Aprobar el Plan anual de reconversión productiva del sector agropecuario.
 o) Otorgar y revocar poderes a los funcionarios que determine, con las facultades y limitaciones que ella fije.
 p) Determinar cuáles productos deberán comercializarse por medio de las bolsas de productos agropecuarios o de comercio, y autorizar las funciones del Consejo Nacional de Producción referidas en el inciso n) del artículo 5.

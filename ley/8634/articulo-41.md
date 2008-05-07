@@ -1,0 +1,2 @@
+ARTÍCULO 41.- Financiamiento de capacitación y formación
+La Comisión Nacional de Préstamos para la Educación (Conape) pondrá, a disposición de los beneficiarios de esta Ley, recursos de los aportes que recibe de los bancos comerciales del país, según lo establece el inciso a) del artículo 20 de la Ley Nº 6041, con el objeto de financiar programas de capacitación para el desarrollo de los proyectos productivos referidos en esta Ley.
