@@ -1,0 +1,2 @@
+Del personal de la Auditoría Interna
+Artículo 16.—Comportamiento de los servidores de Auditoría. Los funcionarios de Auditoría Interna desempeñarán sus funciones de modo que su labor sea un medio de mejoramiento y funcionamiento general del Museo Nacional. Por ello actuarán con buen trato verbal, tacto y cortesía en el desempeño de sus funciones, sin que por ello sea un detrimento de la objetividad del trabajo.

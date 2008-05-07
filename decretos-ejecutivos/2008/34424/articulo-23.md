@@ -1,0 +1,1 @@
+Artículo 23.—Protección al personal. De acuerdo con el artículo 26 de la Ley General de Control Interno, cuando el personal de la auditoría interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, el Museo Nacional dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

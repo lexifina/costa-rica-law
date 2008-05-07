@@ -1,0 +1,5 @@
+CAPÍTULO V
+De la comunicación
+Artículo 37.—Política de comunicación. Por principio, toda comunicación formal de y hacia la Auditoria Interna del Museo Nacional de Costa Rica se realizará por escrito, por lo tanto, será ésta la que cuente con el respaldo de este Despacho.
+Cuando se trate de consultas verbales, cualquiera de los Auditores podrá responderlas, no obstante, es claro que la respuesta se da como un acercamiento a priori y con la finalidad de orientar al consultante. Si la complejidad, la naturaleza o el respaldo de la consulta lo ameritan, la misma debe hacerse por escrito.
+Cuando por vía de excepción algún Auditor emita una opinión verbal, la carga de la prueba corresponderá a quien la invoque y estará sujeto a la presentación de pruebas y/o testigos en caso de que sean utilizadas como referencia. Quedan excluidas de este requisito las opiniones que en su función de Asesoria, el Auditor emita verbalmente ante la Junta Administrativa, la cual por procedimiento quedan resumidas en el acta correspondiente.

@@ -1,0 +1,5 @@
+Artículo 22.—Confidencialidad de la información. La información que el Auditor Interno o cualquiera de sus subalternos obtenga en el ejercicio de sus funciones será estrictamente confidencial. Esta confidencialidad no se aplicará ante:
+a) Solicitudes o requerimientos de la Contraloría General de República en el ejercicio de su competencia fiscalizadora.
+b) Solicitudes o requerimientos de la Junta Administrativa (salvo la disposición del artículo 6 de la Ley General de Control Interno), ni cuando haya solicitud expresa de autoridad competente.
+c) Solicitudes o requerimientos de información de la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política, de conformidad con lo dispuesto en el artículo 6 y el inciso h) del articulo 32 de la Ley General de Control Interno.
+El Auditor Interno debe controlar el acceso a los registros y papeles de trabajo de los estudios que se realicen, a personas ajenas a la Auditoría Interna. Deberá tomar las previsiones de modo que se requiera de su autorización o la de quien él designe.
