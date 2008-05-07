@@ -1,0 +1,1 @@
+Artículo 3º—Los vehículos de carga que se verán afectados con las restricciones de circulación antes dicha, podrán optar por utilizar vías alternas o transitar fuera del horario de circulación restringida antes dicho.
