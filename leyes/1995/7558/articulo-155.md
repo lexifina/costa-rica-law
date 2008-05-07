@@ -17,6 +17,5 @@ iv) Los directores, gerentes, subgerentes, representantes o auditores internos s
 d) Con una multa igual al cinco por ciento (5%) de su patrimonio, cuyo monto ingresará a la Tesorería Nacional, cuando:
 i) No comuniquen a la Superintendencia de inmediato, cualquier cesación o suspensión de pago.
 ii) Impida u obstaculice la inspección o supervisión de sus operaciones, mediante actos tales como impedir el acceso al personal de la Superintendencia a las instalaciones de la entidad.
-e) Con la suspensión, por el término de quince años, del acceso al redescuento, a la captación de recursos en cuentas corrientes y a la posibilidad de mantener secciones de ahorro, a las entidades financieras privadas que incumplieren con los requisitos establecidos en los artículos 52 y 162, incisos c)y g) de esta ley.
-No procederá la aplicación de las multas previstas en este artículo cuando una entidad fiscalizada se encuentre intervenida por la Superintendencia.
+e) (Derogado este incsio por el artículo 61 de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril del 2014)
 (Así reformado por el artículo 84 de la Ley N° 7983 del 16 de febrero del 2000)
