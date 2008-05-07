@@ -1,0 +1,1 @@
+Artículo 47.—Comunicación preliminar. El Auditor Interno, cuando lo considere conveniente, durante el desarrollo de la auditoria, podrá efectuar una comunicación de resultados preliminar mediante memorando, oficio o informe parcial. En el informe final hará referencia a los informes parciales o preliminares que hubiera emitido.

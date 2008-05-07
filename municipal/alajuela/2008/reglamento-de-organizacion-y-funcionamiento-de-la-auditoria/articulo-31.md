@@ -1,0 +1,1 @@
+Artículo 31.—Asesoría Legal. La Auditoría Interna contará con el servicio de Asesoría que brinda el Proceso de Servicios Jurídicos de la Municipalidad, relacionado con estudios y criterios jurídicos que requiera la Auditoría para el cumplimiento de su plan anual de trabajo y estudios especiales, conforme lo establece el inciso c), artículo 33 de la Ley 8292.

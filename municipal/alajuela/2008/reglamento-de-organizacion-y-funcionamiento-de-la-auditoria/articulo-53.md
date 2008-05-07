@@ -1,0 +1,1 @@
+Artículo 53.—Programa de Seguimiento. La auditoría interna deberá formular y ejecutar un programa de seguimiento enfocado a verificar el cumplimiento de las recomendaciones giradas en los Informes de auditoría, así como de las disposiciones de la Contraloría General y otros órganos de control en los casos que corresponda.

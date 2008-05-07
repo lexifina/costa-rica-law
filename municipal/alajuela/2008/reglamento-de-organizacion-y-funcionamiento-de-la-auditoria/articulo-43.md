@@ -1,0 +1,1 @@
+Artículo 43.—Acceso a los papeles de trabajo: El auditor interno debe controlar el acceso a los papales de trabajo de personas ajenas a la Auditoría Interna, de modo que se realice sólo con su autorización o la de quien él designe.

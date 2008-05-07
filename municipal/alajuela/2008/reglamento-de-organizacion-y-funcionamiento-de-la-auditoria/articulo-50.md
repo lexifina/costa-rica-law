@@ -1,0 +1,1 @@
+Artículo 50.—Trámite y plazos de los informes. Lo concerniente al trámite y plazos de aprobación de los informes de auditoría, se regirán por lo que se establece en la Sección IV, Capítulo IV de la Ley 8292.

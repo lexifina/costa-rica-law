@@ -1,0 +1,1 @@
+Artículo 58.—Admisibilidad de denuncias. La Auditoría Interna elaborará un Manual de Normas en el cual se determinen los procedimientos para la atención, la admisibilidad y el trámite de las denuncias que se le presenten o les sean trasladas por la Contraloría General de la República o el Concejo Municipal, siempre y cuando sean atinentes al ámbito de su competencia.

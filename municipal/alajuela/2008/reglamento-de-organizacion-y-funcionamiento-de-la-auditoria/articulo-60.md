@@ -1,0 +1,1 @@
+Artículo 60.—Derogatorias. Este reglamento deroga el Reglamento de Organización y Funciones de la Auditoría Interna, aprobado por el Concejo Municipal en Sesión Ordinaria 108-92 celebrada el 14 de diciembre de 1992 y publicado en la Gaceta 50 del día 12 de marzo de 1993, así como cualquier otra disposición legal que se le oponga.

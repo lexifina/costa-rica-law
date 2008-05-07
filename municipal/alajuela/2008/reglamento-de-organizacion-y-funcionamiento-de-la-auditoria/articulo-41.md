@@ -1,0 +1,1 @@
+Artículo 41.—Procesamiento de información: Los funcionarios de la Auditoría Interna, en el desempeño de sus labores de fiscalización, deben identificar, analizar, evaluar y registrar suficiente información de manera tal que les permita cumplir con los objetivos del trabajo. Tal información debe ser suficiente, confiable, relevante y útil.

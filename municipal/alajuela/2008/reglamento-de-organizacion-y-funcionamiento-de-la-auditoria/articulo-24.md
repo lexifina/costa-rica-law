@@ -1,0 +1,1 @@
+Artículo 24.—Supervisión. El Auditor Interno debe vigilar y tomar las decisiones que correspondan, para que los funcionarios de la auditoría interna cumplan, en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que les sean aplicables.

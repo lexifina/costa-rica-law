@@ -1,0 +1,1 @@
+Artículo 9º—Participación en comisiones. El Auditor Interno y su personal no pueden formar parte de grupos de trabajo o comisiones que ejerzan función propia de la administración activa. Cuando así lo solicite el jerarca, se debe tener en cuenta que su participación será exclusivamente en su función de asesor, en asuntos de su competencia y no podrá ser con carácter permanente.

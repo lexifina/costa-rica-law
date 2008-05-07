@@ -1,0 +1,3 @@
+CAPÍTULO II
+Funcionamiento de la Auditoría Interna
+Artículo 33.—Función de la Auditoría Interna. La función de la auditoria interna consiste en la evaluación en forma independiente y posterior, dentro de la organización, de las operaciones contables, financieras, administrativas y de otra naturaleza, con el propósito de proporcionar un servicio constructivo y de protección a la administración para que la misma alcance sus metas y objetivos institucionales con mayor, eficiencia, eficacia y economicidad y así generar un valor agregado en los procesos de control, riesgos y dirección institucionales.

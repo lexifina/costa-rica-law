@@ -1,0 +1,1 @@
+Artículo 21.—Aseguramiento de la calidad. El Auditor Interno deberá establecer un programa de aseguramiento de la calidad para la auditoría interna, para lo cual considerará lo previsto en el Manual para el ejercicio de la Auditoría Interna en el Sector Público, emitido por el Ente Contralor.

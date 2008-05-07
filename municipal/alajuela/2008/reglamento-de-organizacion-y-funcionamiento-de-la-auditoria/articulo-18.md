@@ -1,0 +1,2 @@
+Artículo 18.—Rendición de cuentas. El auditor interno responderá por su gestión ante el Concejo Municipal, por lo que deberá presentar durante el primer trimestre de cada periodo, el Informe de labores y ejecución del Plan Anual de Trabajo previsto en el inciso g), artículo 22 de la Ley 8292.
+Al subauditor interno le corresponderá apoyar al auditor interno en el descargo de sus funciones, lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

@@ -1,0 +1,1 @@
+Artículo 42.—Análisis, evaluación y registro: Los funcionarios de la Auditoría Interna, en el desempeño de sus labores de fiscalización, deben basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo mediante un adecuados análisis y evaluación de la información procesada, que deben registrar en sus papeles de trabajo.

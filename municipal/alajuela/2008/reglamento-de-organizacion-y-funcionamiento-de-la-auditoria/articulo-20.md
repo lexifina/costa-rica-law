@@ -1,0 +1,1 @@
+Artículo 20.—Pericia y debido cuidado profesional. El Auditor deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, será vigilante de que su personal responda de igual manera.

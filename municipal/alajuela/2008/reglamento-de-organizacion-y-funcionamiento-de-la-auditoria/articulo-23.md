@@ -1,0 +1,3 @@
+Artículo 23.—Plazas Vacantes. Las plazas vacantes que, por cualquier razón, tengan lugar en la auditoría interna, deberán llenarse en un plazo máximo de tres meses, contado a partir del momento de la vacante. El plazo podrá prorrogarse por un periodo igual, por razones debidamente acreditadas en el respectivo expediente.
+El Auditor Interno deberá gestionar en forma oportuna lo regulado en esta norma y será responsabilidad del Proceso de Recursos Humanos atender las gestiones realizadas con la prioridad requerida a efecto de cumplir con el plazo estipulado.
+La disminución de plazas por movilidad laboral, reestructuración u otros movimientos en la auditoría interna, deberá ser previamente autorizada por el auditor interno.

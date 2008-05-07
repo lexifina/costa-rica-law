@@ -1,0 +1,1 @@
+Artículo 39.—Servicios de Auditoría. Los servicios de auditoría comprenden las auditorías de tipo financiera, administrativa, operativa, de sistemas y otras; las evaluaciones de control interno y los estudios especiales de auditoría sobre situaciones que pudieran eventualmente generar algún grado de responsabilidad.

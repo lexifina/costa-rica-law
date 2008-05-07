@@ -1,0 +1,1 @@
+Artículo 29.—Registro separado. El Subproceso de Control presupuestario, deberá llevar un registro separado del monto asignado y aprobado para la auditoría interna, detallado por objeto del gasto, de manera que se mantenga control sobre la ejecución y modificaciones de los recursos presupuestarios.

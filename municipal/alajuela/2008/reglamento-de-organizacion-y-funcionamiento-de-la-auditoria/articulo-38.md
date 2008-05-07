@@ -1,0 +1,1 @@
+Artículo 38.—Servicios. El Auditor Interno, según las circunstancias, diseñará, documentará e implantará los procesos de los servicios que preste, así como elaborará efectivos instrumentos para su administración.

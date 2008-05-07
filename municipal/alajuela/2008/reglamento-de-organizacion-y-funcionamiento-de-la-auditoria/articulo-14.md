@@ -1,0 +1,4 @@
+Artículo 14.—Dirección de la Auditoría Interna. La dirección superior y administración de la Auditoría Interna estará a cargo del Auditor Interno. Entre otras labores, le corresponderá:
+a) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de esa dependencia, según la normativa jurídica y técnica aplicable.
+b) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6 de la Ley 8292 y 8 de la Ley 8422.
+c) Mantener actualizado, cumplir y hacer cumplir el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 30.—Espacio. Por la índole de sus funciones, la Auditoría Interna debe ejecutar sus labores en un espacio físico que no interfiera con las unidades administrativas y operativas de la Municipalidad, por tal motivo las instalaciones que la Administración Municipal asigne a la Auditoría Inerna deberán ser apropiadas e independientes.

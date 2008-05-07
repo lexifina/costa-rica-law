@@ -1,0 +1,1 @@
+Artículo 5º—Visión, misión, políticas y valores de la Auditoría Interna. Es obligación del Auditor Interno establecer y mantener actualizado la visión, misión y políticas, que rigen el accionar de la Auditoría Interna, así como los enunciados éticos que deben tener en cuenta el personal de auditoría al conducirse en sus relaciones internas y externas.

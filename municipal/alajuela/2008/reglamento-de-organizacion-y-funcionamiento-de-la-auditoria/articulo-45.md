@@ -1,0 +1,1 @@
+Artículo 45.—Supervisión del trabajo: Los trabajos que se realicen en la Auditoría Interna deben ser adecuadamente supervisados por el Auditor Interno o funcionario responsable dentro de la Auditoría, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

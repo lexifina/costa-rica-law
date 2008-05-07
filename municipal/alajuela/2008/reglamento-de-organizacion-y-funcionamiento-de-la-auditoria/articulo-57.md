@@ -1,0 +1,1 @@
+Artículo 57.—Seguimiento autorización de libros. La auditoría interna hará un seguimiento periódico del control individual de autorización de libros para verificar que las dependencias correspondientes mantengan el principio de continuidad en las operaciones financieras y administrativas que deben registrarse en libros autorizados por la Auditoría Interna.

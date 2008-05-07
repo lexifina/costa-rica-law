@@ -1,0 +1,1 @@
+Artículo 44.—Custodia de los papales y documentos del trabajo: El auditor interno debe establecer un adecuado control sobre la custodia de los registros y documentación de cada trabajo efectuado, el cual debe ser consistente con las regulaciones pertinentes u otros requerimientos sobre este tema.

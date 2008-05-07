@@ -1,0 +1,1 @@
+Artículo 56.—Seguimiento de advertencias. La auditoría interna verificará lo actuado por la administración respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno, de Relaciones de Hechos, u otros pertinentes.

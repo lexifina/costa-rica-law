@@ -1,0 +1,2 @@
+Artículo 49.—Formato de informe. El texto de los informes que emita la Auditoría Interna constarán de: Introducción, resultados, conclusiones y recomendaciones, aspectos que se subdividirán en secciones de acuerdo a las necesidades de exposición.
+Los memorandos, oficios o informes parciales que se emitan durante el desarrollo de un estudio de auditoría, no necesariamente deben observar el formato mencionado, siempre y cuando se mantenga la concisión, exactitud, objetividad, y claridad de la información.

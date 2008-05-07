@@ -1,0 +1,1 @@
+Artículo 26.—Regulación interna. El Auditor Interno, establecerá y regulará a lo interno de la auditoría, las principales pautas sobre las relaciones y coordinaciones, entre los funcionarios a su cargo con los auditados. En tales pautas como mínimo se debe establecer la obligación de comunicar de previo al auditado cuando se va a realizar un auditoraje.

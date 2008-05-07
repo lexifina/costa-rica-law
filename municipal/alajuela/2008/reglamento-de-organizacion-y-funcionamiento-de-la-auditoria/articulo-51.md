@@ -1,0 +1,1 @@
+Artículo 51.—Discrepancia de criterios. Cuando el Concejo Municipal discrepe de las recomendaciones giradas por la Auditoría Interna, se procederá de acuerdo al procedimiento que se establece el artículo 38 de la Ley 8292.

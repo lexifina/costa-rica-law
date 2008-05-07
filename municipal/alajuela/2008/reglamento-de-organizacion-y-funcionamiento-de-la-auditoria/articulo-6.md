@@ -1,0 +1,1 @@
+Artículo 6º—Independencia funcional y de criterio. El Auditor Interno y los funcionarios de la auditoría interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y los titulares subordinados de la institución.
