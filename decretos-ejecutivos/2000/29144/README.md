@@ -15,3 +15,4 @@ Reglamento a la Ley del Servicio Nacional de Guardacostas
 | --- | --- | --- |
 | 1 | 2000-12-13 | la propia norma |
 | 2 | 2004-07-06 | Decreto Ejecutivo 32234 (2004-07-06) |
+| 3 | 2008-05-07 | Decreto Ejecutivo 34609 (2008-05-07) |
