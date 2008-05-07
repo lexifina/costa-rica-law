@@ -14,3 +14,4 @@ Reglamento para gastos de representación e imprevistos del señor Alcalde Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-22 | la propia norma |
+| 2 | 2008-05-07 | Reglamento municipal 105 (2008-05-07) |
