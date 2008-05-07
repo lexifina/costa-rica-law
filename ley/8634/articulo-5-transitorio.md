@@ -1,0 +1,2 @@
+TRANSITORIO V.-
+Para lo dispuesto en el artículo 35 de esta Ley, a la entrada en vigencia de esta, los bancos estatales que actualmente administran recursos, de conformidad con el artículo 59 de la Ley orgánica del Sistema Bancario Nacional, Nº 1644, de 26 de setiembre de 1953, reformado en esta Ley, trasladarán en un plazo máximo de seis meses, los recursos actualmente disponibles y los invertidos por este concepto al Banco Crédito Agrícola de Cartago; para ello, establecerán un cronograma de entrega.
