@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Fiscalización del Finade
+Con el propósito de velar por la solidez, la estabilidad y el eficiente funcionamiento del Finade, la Contraloría General de la República ejercerá sus actividades de fiscalización sobre las operaciones que se realicen con los recursos que formen parte del Fideicomiso. El Finade, además, será fiscalizado por medio de la auditoría interna del fiduciario y las auditorías externas que decida contratar el Consejo Rector. Los gastos por concepto de contratación de las auditorías externas serán cubiertos con los recursos a cargo del Consejo Rector.
+En igual forma, la Sugef presentará, cada cuatro años, un informe sobre el desempeño financiero y la gestión de riesgo del SBD, tomando como base aspectos tanto económicos como financieros.

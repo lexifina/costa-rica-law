@@ -1,0 +1,4 @@
+ARTÍCULO 7.- Sectores prioritarios
+Tendrán tratamiento prioritario y preferencial, los proyectos viables y factibles promovidos por las micro, pequeñas y medianas unidades productivas impulsadas por mujeres, minorías étnicas, personas con discapacidad, jóvenes emprendedores, asociaciones de desarrollo, cooperativas, así como los proyectos que se ajusten a los parámetros de esta Ley, promovidos en zonas de menor desarrollo relativo.
+Asimismo, tendrán tratamiento preferencial los proyectos viables y factibles que incorporen o promuevan el concepto de producción más limpia, entendiéndose como una estrategia preventiva integrada que se aplica a los procesos, productos y servicios, a fin de aumentar la eficiencia y reducir los riesgos para los seres humanos y el ambiente.
+La referencia a jóvenes incluida en esta Ley, corresponde a la definición contenida en la Ley general de la persona joven, Nº 8261.

@@ -1,4 +1,6 @@
+(Derogado)
 8147
+(Esta Ley fue derogada el artículo 61 de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril del 2014, la cual sufrió una reforma integral mediante la norma N° 9274 del 12 de noviembre del 2014. Anteriormente el presente artículo había sido derogada por el numeral 56 de la norma indicada)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 CREACIÓN DEL FIDEICOMISO PARA LA PROTECCIÓN Y EL

@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Acceso equitativo para las mujeres
+El SBD, por medio del Consejo Rector, diseñará las políticas para neutralizar las desigualdades por razones de género, con políticas de financiamiento y apoyo no financiero que posibiliten un acceso equitativo de las mujeres, en cuanto al acceso al crédito, avales, garantías, condiciones y servicios no financieros y de desarrollo empresarial.
+Para los fines que persigue esta Ley, las entidades financieras que accedan a los recursos del Fideicomiso Nacional para el Desarrollo (Finade), y respalden sus operaciones financieras con avales y garantías, deberán tener, entre sus programas de financiamiento y condiciones, políticas especiales que compensen las desigualdades de género.

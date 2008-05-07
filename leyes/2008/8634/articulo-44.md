@@ -1,0 +1,2 @@
+ARTÍCULO 44.- Cumplimiento de los objetivos
+Para cumplir los objetivos de investigación, promoción, divulgación y concesión de financiamiento, establecidos en la Ley de creación de la Comisión Nacional de Préstamos para la Educación (Conape), esta Institución no estará sujeta a las disposiciones que sobre política presupuestaria se establecen en los artículos 21, 23 y 24 de la Ley Nº 8131, Administración financiera de la República y presupuestos públicos, de 18 de setiembre de 2001.

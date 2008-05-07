@@ -1,0 +1,2 @@
+ARTÍCULO 45.- Contingencias
+El SBD podrá readecuar deudas a los sujetos beneficiarios, cuando se compruebe, de acuerdo con los parámetros que se definirán vía reglamento por el Consejo Rector, que han sido afectados por contingencias como desastres naturales o factores antrópicos, que les impidan cumplir los compromisos adquiridos al otorgárseles el crédito. La readecuación no hará perder la condición de sujeto de crédito beneficiario ante el SBD.

@@ -1,0 +1,4 @@
+ARTÍCULO 26.- Disposiciones sobre activos muebles e inmuebles
+Trasládanse al Finade para su administración y disposición, los bienes inmuebles de los fideicomisos citados en el artículo 24 de esta Ley.
+Los bienes muebles de los fideicomisos citados en el artículo 24 de esta Ley serán trasladados al Consejo Rector para su administración y disposición. Se autoriza al Consejo a trasladar dichos bienes muebles a las instituciones públicas integrantes del SBD.
+Se excluyen de lo establecido en el párrafo anterior, los bienes muebles patrimonio del Fideicomiso 520 CNP /BNCR Reconversión Productiva, que en lo sucesivo serán patrimonio del Consejo Nacional de Producción (CNP), con el propósito de brindar los servicios no financieros a cargo de esta Institución, definidos en la Ley Nº 7742, Creación del Programa de reconversión productiva del sector agropecuario, y que son fundamentales para los fines del SBD.

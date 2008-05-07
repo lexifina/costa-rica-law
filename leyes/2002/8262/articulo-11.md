@@ -1,3 +1,6 @@
-Artículo 11.—Además de lo dispuesto en el artículo anterior y en el resto de esta Ley, así como de lo estipulado por la Junta Directiva Nacional del Banco Popular, los recursos de el FODEMIPYME destinados a crédito, deberán cumplir, las siguientes condiciones:
-a) Establecer los requisitos mínimos para la evaluación de los créditos, así como las políticas para el seguimiento y cobro de esas operaciones.
-b) Determinar los montos máximos de las líneas de crédito.
+Artículo 1 1 . - Además de lo dispuesto en el artículo anterior y en el resto de esta ley, así como lo estipulado por la Junta Directiva Nacional del Banco Popular, la Unidad Técnica del Fodemipyme, para los recursos destinados a crédito, deberá cumplir las siguientes funciones:
+a) Establecer los requisitos mínimos para la evaluación de los créditos, así como las políticas para el seguimiento y el cobro de esas operaciones.
+b) Determinar los montos máximos de las líneas de crédito.”
+(Así reformado mediante el aparte d) del artículo 51 de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril del 2014, la cual sufrió una reforma integral mediante la norma N° 9274 del 12 de noviembre del 2014. Anteriormente el presente artículo había sido afectado por el numeral 50 de la norma indicada y establecía lo siguiente: " Artículo 11.- Además de lo dispuesto en el artículo anterior y en el resto de esta Ley, así como lo estipulado por la Junta Directiva Nacional del Banco Popular, la Unidad Técnica del Fodemipyme, para los recursos destinados a crédito, deberá cumplir las siguientes funciones:
+a) Establecer los requisitos mínimos para la evaluación de los créditos, así como las políticas para el seguimiento y el cobro de esas operaciones.
+b) Determinar los montos máximos de las líneas de crédito.)
