@@ -1,0 +1,1 @@
+Artículo 9º—La Auditoría Interna se organizara conforme lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno, contará con el personal asistente necesario, el que deberá poseer los requisitos profesionales idóneos para el cabal cumplimiento de sus funciones.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la comunicación de resultados
+Artículo 19.—Los informes de Auditoría Interna versarán sobre diversos asuntos de su competencia, así como sobre asuntos de los que pueden derivarse posibles responsabilidades para funcionarios, ex funcionarios de la institución y terceros. Cuando de un estudio se deriven recomendaciones sobre asuntos de responsabilidad y otras materias, la Auditoría Interna deberá comunicarlas en informes independientes para cada materia.
+Los hallazgos, las conclusiones y recomendaciones de los estudios realizados por la Auditoría Interna deberán comunicarse oficialmente, mediante informes al jerarca o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones. La comunicación oficial de resultados deberán observarse las disposiciones contenidas en los artículos 36, 37 y 38 de la Ley General de Control Interno.
