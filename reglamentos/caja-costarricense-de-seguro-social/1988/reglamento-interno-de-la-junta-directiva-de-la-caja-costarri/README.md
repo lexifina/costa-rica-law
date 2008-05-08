@@ -23,3 +23,4 @@ Reglamento Interno de la Junta Directiva de la Caja Costarricense de Seguro Soci
 | 8 | 2005-12-01 | Reglamento 8013 (2005-12-01) |
 | 9 | 2005-12-13 | Reglamento 8017 (2005-12-13) |
 | 10 | 2006-06-22 | Reglamento 8066 (2006-06-22) |
+| 11 | 2008-05-08 | Reglamento 8247 (2008-05-08) |
