@@ -1,0 +1,1 @@
+Artículo 16.—Expediente. El SENASA mantendrá un expediente administrativo digital de cada uno de los laboratorios con ensayos oficializados, en el que constarán todas aquellas incidencias, actuaciones y otros trámites que se realicen. El expediente físico estará en custodia cada uno de los laboratorios y podrá ser cotejado con el digital en las visitas de control que se realicen.

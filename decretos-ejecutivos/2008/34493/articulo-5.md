@@ -1,0 +1,1 @@
+Artículo 5º—Oficialidad de Lanaseve. La utilización de laboratorios de referencia, no afectará la oficialidad de los resultados de LANASEVE, según lo establece el artículo 47 de la Ley SENASA, Nº 8495.

@@ -1,0 +1,1 @@
+Artículo 24.—Responsabilidad Profesional. Igualmente se aplicará sin perjuicio de la responsabilidad y sanción que resulte según la normativa del Colegio Profesional correspondiente, ante quien se impondrá conocimiento para los respectivos efectos.

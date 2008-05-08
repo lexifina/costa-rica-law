@@ -1,0 +1,1 @@
+Artículo 22.—Debido proceso. Las sanciones anteriores se aplicarán con respeto al debido proceso, mediante la formación de un expediente administrativo levantado al efecto y otorgándole al interesado la posibilidad de una adecuada defensa de sus intereses.
