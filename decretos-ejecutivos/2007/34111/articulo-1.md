@@ -15,4 +15,5 @@ ESTABLECER EL PRECIO MÍNIMO DE COMPRA
 DEL INDUSTRIAL AL PRODUCTOR DE ARROZ
 Y PRECIOS MÁXIMOS DE VENTA, EN TODAS
 LAS ETAPAS DE COMERCIALIZACIÓN
-Artículo 1º—Se establece un precio mínimo de compra, del industrial al productor de arroz, el cual será de ¢14.827,00 por saco de 73,6 kilogramos de arroz en granza. Este equivale al precio de arroz en granza puesto en planta, con 13% de humedad y 1,5 % de impurezas. Este precio regirá a partir de la publicación del presente Decreto Ejecutivo.
+Artículo 1º—Se establece un precio mínimo de compra, del industrial al productor de arroz, el cual será de ¢17.981,00 (diecisiete mil novecientos ochenta y un colones con cero céntimos) por saco de 73,6 kilogramos de arroz en granza. Este equivale al precio de arroz en granza puesto en planta, con 13% de humedad y 1,5 % de impurezas. Este precio regirá a partir de la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta .
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34525 del 8 de mayo del 2008)
