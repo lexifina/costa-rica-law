@@ -1,0 +1,1 @@
+Artículo 2º—A esos efectos, el órgano encargado del procedimiento deberá fundamentar la respectiva habilitación mediante resolución motivada. El motivo del acto podrá ser general para cierto grupo de sujetos, pero el acto de habilitación deberá ser particular y constar en el respectivo expediente.
