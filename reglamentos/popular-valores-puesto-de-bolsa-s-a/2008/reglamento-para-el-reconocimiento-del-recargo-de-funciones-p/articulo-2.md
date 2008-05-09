@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por recargo de funciones el desempeño temporal y completo de las tareas de un puesto de categoría superior que realiza un trabajador, simultáneamente con las labores propias del cargo que el trabajador ocupa en propiedad, por ausencia del titular.

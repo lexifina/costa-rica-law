@@ -1,0 +1,1 @@
+Artículo 3º—En el evento en el que el trabajo del superior sea asignado parcialmente a varios trabajadores, no procederá el recargo y consecuentemente no existirá ningún reconocimiento salarial por el desempeño de las funciones encargadas.
