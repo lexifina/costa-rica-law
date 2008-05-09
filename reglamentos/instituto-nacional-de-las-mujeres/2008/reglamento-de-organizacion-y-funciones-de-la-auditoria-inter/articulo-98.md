@@ -1,0 +1,3 @@
+CAPÍTULO XVIII
+Servicio de seguimiento de recomendaciones
+Artículo 98.—Servicio de seguimiento de recomendaciones. El Auditor o Auditora Interna deberá establecer y mantener un sistema de seguimiento a las recomendaciones con base en los informes que remita la Administración Activa. Ese sistema deberá incluir los resultados de las evaluaciones realizadas por los auditores externos, la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan y que hayan sido puestos de su conocimiento. El sistema contendrá los avances y observaciones que haya realizado la Administración sobre la implementación de las recomendaciones, así como las anotaciones que realice la Auditoría Interna.

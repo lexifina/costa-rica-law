@@ -1,0 +1,1 @@
+Artículo 101.—Seguimiento de los servicios de Advertencia. La Auditoría Interna podrá verificar lo actuado por la Administración respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento emita informe de control interno o de responsabilidades, u otros pertinentes.

@@ -1,0 +1,1 @@
+Artículo 36.—Dependencia de profesionales asesores. Los profesionales que sean asignados o contratados que en virtud del artículo anterior que participen en estudio de auditoría estarán bajo la autoridad de la Auditoría Interna y los informes deberán rendirlos ante la Auditora o Auditor Interno o al Subauditor o Subauditora.
