@@ -6,4 +6,5 @@ TÍTULO I:
 Principios
 CAPÍTULO I
 Principios éticos
-Artículo 1º—Obligación de servicio y rogación. Brindar el servicio, salvo excusa justa, moral o legal. El servicio está cimentado en la rogación, de manera que el notario público1 no podrá autorizar actos contrarios a este principio. El arraigo del notario a una oficina abierta al público consolida el hecho de que, en materia notarial, no existe intermediación alguna.
+Artículo 1º— Obligación de servicio y rogación. Brindar el servicio, salvo excusa justa, moral o legal. El servicio está cimentado en la rogación, de manera que el notario público1 no podrá autorizar actos contrarios a este principio. El arraigo del notario a una oficina abierta al público consolida el hecho de que, en materia notarial, no existe intermediación alguna.
+NOTA DE SINALEVI: La adición realizada a este artículo por resolución N° 740 del 9 de mayo de 2008, quedó sin efecto, al dejarse sin efecto esta última por resolución N° 1196 del 25 de julio de 2008, por lo cual el artículo recobra el texto que tenía antes de dicha reforma.
