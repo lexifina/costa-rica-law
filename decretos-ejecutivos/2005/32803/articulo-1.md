@@ -12,4 +12,5 @@ Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos c) y j) y punto 
 c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 j. Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
 2) Miembros suplentes:
-j. Abdenago Brenes Hine, representante del Consejo Nacional de Rectores.
+j) Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
+(Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
