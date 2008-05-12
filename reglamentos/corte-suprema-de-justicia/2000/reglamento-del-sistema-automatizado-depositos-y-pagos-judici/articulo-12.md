@@ -1,1 +1,0 @@
-Artículo 12.—Encargado del S.D.J. en la Unidad o Subunidad Administrativa Regional. Además de las funciones atinentes a su cargo, en relación con el S.D.J. le corresponde realizar aquellas definidas en el artículo 10, excepto lo que señala el inciso j); en cuyo caso deberán remitir los estados financieros que ahí se mencionan.

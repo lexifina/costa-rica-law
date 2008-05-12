@@ -1,2 +1,0 @@
-Artículo 69.—Responsables. El Juez Encargado del Despacho Judicial origen es el responsable de autorizar la transferencia de fondos y reversiones. La Sección de Cuentas Corrientes o a la U.A.R. serán los responsables de gestionar lo pertinente con el Banco a fin de que se haga efectivo el traspaso de los fondos.
-El Despacho Judicial destino será responsable de la inclusión del expediente al S.D.J. y de la correcta acreditación de los dineros al expediente respectivo.

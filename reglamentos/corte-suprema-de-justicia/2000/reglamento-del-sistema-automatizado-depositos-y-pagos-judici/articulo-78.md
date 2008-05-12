@@ -1,2 +1,0 @@
-Artículo 78.—Responsables. Los encargados del Sistema Automatizado en la Sección de Cuentas Corrientes y en la U.A.R. serán los responsables directos de que los estados diarios que emita el S.D.J. estén debidamente conciliados en su jurisdicción. Cuando ocurra alguna diferencia deberá investigar la causa en coordinación con la oficina pertinente, y resolver la situación lo más pronto posible para que no se acumule alguna diferencia.
-El Departamento Financiero Contable será el responsable de la conciliación a nivel nacional, no permitiendo la acumulación de diferencias.

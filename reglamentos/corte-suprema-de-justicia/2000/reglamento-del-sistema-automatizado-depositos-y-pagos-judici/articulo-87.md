@@ -1,2 +1,0 @@
-Artículo 87.—Responsables. Corresponderá al Encargado del Sistema del Despacho Judicial, solicitar formalmente al Departamento de Informática y a la U.A.R. del Circuito Judicial respectivo, la inclusión, modificación o exclusión de los Códigos en el Sistema.
-Es responsabilidad de los analistas encargados del Departamento de Informática, el actualizar los Códigos en el S.D.J. y de ser necesario, coordinar con los encargados del Sistema en el Banco para su asignación.

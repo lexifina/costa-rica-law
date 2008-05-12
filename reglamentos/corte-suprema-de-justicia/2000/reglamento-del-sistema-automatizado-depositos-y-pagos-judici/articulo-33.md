@@ -1,1 +1,0 @@
-Artículo 33.—Periodicidad. Las bitácoras del Sistema se respaldarán todos los días, mediante la opción que provee el S.D.J., la cual es ejecutada por Financiero Contable o la U.A.R. Semestralmente debe efectuarse un respaldo general, y emitir un reporte para que se limpien todos los datos con fechas mayores al período mencionado.

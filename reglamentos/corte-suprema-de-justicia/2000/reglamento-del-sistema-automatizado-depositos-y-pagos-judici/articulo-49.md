@@ -1,1 +1,0 @@
-Artículo 49.—Control de las autorizaciones. Toda autorización debe ser mediante resolución judicial, excepto pensiones alimentarias y consignación de alquileres, que deberá contar con un auto inicial.

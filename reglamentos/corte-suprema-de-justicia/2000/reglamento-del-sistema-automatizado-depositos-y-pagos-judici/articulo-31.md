@@ -1,1 +1,0 @@
-Artículo 31.—Del acceso de las bitácoras. Unicamente el personal autorizado del Departamento Financiero Contable y de la U.A.R. así como el Juez Encargado, podrán revisar las bitácoras del Sistema. El ingreso para cualquier usuario será sólo de consulta.

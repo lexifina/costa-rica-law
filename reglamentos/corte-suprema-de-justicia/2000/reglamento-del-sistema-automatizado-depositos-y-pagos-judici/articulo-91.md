@@ -1,1 +1,0 @@
-Artículo 91.—Periodicidad. El respaldo de la información en el Circuito Judicial se realizará en dos modalidades: -respaldos parciales y -respaldos totales. Los respaldos parciales se efectuarán diariamente; mientras que el respaldo total, se hará cada fin de semana.

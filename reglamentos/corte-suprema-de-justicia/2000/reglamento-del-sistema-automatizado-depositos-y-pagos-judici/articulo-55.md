@@ -1,1 +1,0 @@
-Artículo 55.—Del Control. Cada vez que haya un traspaso de depósito, el Despacho Judicial enviará un listado firmado por el Juez Encargado de las transferencias al Departamento Financiero Contable o a la U.A.R. del Circuito Judicial respectivo.

@@ -1,2 +1,0 @@
-Artículo 60.—Reversión. En caso de que se determine que el traspaso de expedientes no fuera procedente, si no se ha realizado el envío de datos al Banco, el despacho debe coordinar con las oficinas pertinentes para que el expediente regrese a su estado original.
-Si se generaron los archivos que se remitirán al Banco, debe realizarse la transferencia conforme a lo estipulado en los artículos anteriores.

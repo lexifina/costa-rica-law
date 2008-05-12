@@ -1,1 +1,0 @@
-Artículo 42.—Modificación del monto. Cuando mediante resolución judicial se varía el monto, deberá registrarse ese cambio en el S.D.J., tanto en la información general del expediente, como en la información que se refiere a los autorizados a retirar y obligados a depositar; en el caso de las pensiones alimentarias y alquileres, dichos montos deben ser iguales.

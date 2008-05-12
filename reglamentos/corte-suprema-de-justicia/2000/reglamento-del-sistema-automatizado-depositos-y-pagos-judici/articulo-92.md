@@ -1,1 +1,0 @@
-Artículo 92.—Custodia de los respaldos. La custodia del respaldo del Circuito Judicial, quedará a cargo del Departamento de Informática y de la U.A.R., de acuerdo con los lineamientos establecidos para la Institución.

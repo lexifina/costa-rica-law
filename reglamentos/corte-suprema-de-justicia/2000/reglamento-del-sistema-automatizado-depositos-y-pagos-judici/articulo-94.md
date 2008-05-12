@@ -1,2 +1,0 @@
-Artículo 94.—Contingencias. En caso de siniestro, hurto, robo, supresión u ocultación o destrucción de información o cualquier otra contingencia que afecte el funcionamiento del S.D.J. en el Despacho o en la Oficina Judicial, corresponderá a la jefatura del Departamento Financiero Contable o de la U.A.R., informar inmediatamente a las instancias competentes.
-En caso de que no exista comunicación electrónica con el Banco, el Encargado del S.D.J. en la Sección de Cuentas Corrientes o la U.A.R. será responsable del envío de la información al Banco mediante un medio electrónico.

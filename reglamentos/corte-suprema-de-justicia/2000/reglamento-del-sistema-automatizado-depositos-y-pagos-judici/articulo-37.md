@@ -1,1 +1,0 @@
-Artículo 37.—De la deducción por planilla. Cuando se requiera practicar la deducción automática del salario de la parte obligada, el Despacho Judicial deberá comunicar al patrono del obligado, que efectúe la deducción y realice el depósito sobre el número único de expediente.

@@ -1,1 +1,0 @@
-Artículo 39.—De los depósitos pendientes de retiro. El Departamento Financiero Contable y la U.A.R. serán los responsables de comunicar al despacho judicial cuáles autorizaciones tienen un mes o más pendientes de retirar. El Juez ordenará al encargado del S.D.J. del Despacho que elimine del sistema las autorizaciones que tienen un mes o más pendientes de retiro.
