@@ -1,0 +1,4 @@
+Artículo 30.—Para ser tomada en cuenta la calificación de servicios de los funcionarios de nivel profesional, deberá estar registrada en el departamento de Recursos Humanos de la institución, antes de 30 de agosto de cada año. Si no estuviera registrada la calificación de servicios en el departamento precitado, se considera como “satisfactoria”. Se exceptúan los casos de fuerza mayor debidamente justificados ante dicho departamento. Que se dispense del trámite de comisión y se declare acuerdo definitivamente aprobado.
+Una vez conocido el presente acuerdo, el Concejo Municipal, avala el mismo de manera definitiva por medio de los votos de los Regidores Propietarios Alba Cerdas Aguilar, Yanina Chaverri Rosales, Daisy Anchía Angulo, Jessica Hernández Sanarrusia y Marvin Antonio Loría Murillo. Por tanto se aprueba el Reglamento para la Aplicación de la Carrera Profesional de la Municipalidad de Osa.
+Ciudad Cortés, 22 de abril del 2008.
+REMATES
