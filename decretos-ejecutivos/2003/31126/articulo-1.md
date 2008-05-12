@@ -49,7 +49,8 @@ h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y A
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
-j. Abdenago Brenes Hine, representante del Consejo Nacional de Rectores.
+j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
+(Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
 k) Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
 (Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 (Así reformados el punto 1, incisos c) y j) y punto 2, inciso j) por Artículo 1° del Decreto Ejecutivo N° 32803 del 4 de noviembre del 2005)
