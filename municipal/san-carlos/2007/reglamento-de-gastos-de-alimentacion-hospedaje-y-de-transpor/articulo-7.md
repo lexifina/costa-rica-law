@@ -1,1 +1,2 @@
-Artículo 7º—En el caso de pago de transporte a Regidores y Síndicos se pagará de acuerdo a la tarifa aprobada por ARESEP.
+Artículo 7º—En el caso de pago de transporte a Regidores y Síndicos, se pagará de acuerdo a la tarifa aprobada por la ARESEP para el servicio de buses, y en los lugares donde no existe servicio de buses, se pagará el servicio de taxi, debiendo el Regidor o Síndico para su pago, presentar la factura correspondiente por el servicio brindado.
+( Así reformado en sesión ordinaria del 12 de mayo del 2008.)

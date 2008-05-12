@@ -14,3 +14,4 @@ Reglamento de Gastos de Alimentación, Hospedaje y de Transporte para Regidores 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-11 | la propia norma |
+| 2 | 2008-05-12 | Reglamento municipal 0 (2008-05-12) |
