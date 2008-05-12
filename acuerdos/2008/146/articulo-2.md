@@ -1,0 +1,1 @@
+Artículo 2º—Calce de plazos. Los fondos de inversión indicados en el artículo anterior deben mantener diariamente un índice de calce de plazos a un mes mayor que 1. El índice de calce de plazos se obtiene del cociente de los recursos líquidos entre las obligaciones del fondo, según se define en los artículos 3 y 4 de este acuerdo.
