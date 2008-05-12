@@ -1,0 +1,1 @@
+Artículo 25.-Supervisión. Toda práctica de tiro, entrenamiento o capacitación con armas de fuego, sin excepción debe ser dirigida y/o supervisada por uno o más Instructores de Tiro, según se requiera.
