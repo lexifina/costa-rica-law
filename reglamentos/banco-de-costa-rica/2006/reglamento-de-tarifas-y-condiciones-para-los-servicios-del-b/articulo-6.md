@@ -45,10 +45,11 @@ Deutche Bank | 13,000 | 13,000 | 13,000 | 13,000 | 13,000
 7. Comisión Medios Magnéticos.
 Servicio que se brinda para el depósito, cuidado y conservación de los medios magnéticos
 Estos espacios se alquilarán por mes adelantado.
-Tipo de estante | Centímetros cúbicos | Tarifa mensual
-1 | 30,720 | $21
-2.00 | 106,875 | $71
-3.00 | 201,600 | $134
+Tipo de estante | Centímetros cúbicos | Tarifa mensual ¢
+1 | 30,720 | 11.000
+2 | 106,875 | 37.000
+3 | 201,600 | 69.900
+(Así reformado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
 8. Comisión por transacción de medios magnético.
 Se cobrará ¢1.000,00 para cada transacción (puede implicar Sustitución de una o varias cintas).
 Transacción se refiere a cada visita realizada por las empresas para sustituir cintas, diskettes, etc por otras. Si una empresa sustituye estos artículos en distintas horas del día, la comisión por cobrar sería el número de visitas que hiciera por los ¢1.000,00

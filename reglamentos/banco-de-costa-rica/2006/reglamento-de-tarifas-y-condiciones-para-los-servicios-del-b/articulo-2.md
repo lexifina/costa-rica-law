@@ -88,9 +88,10 @@ Billetes ¢ | Billetes ¢ | Comisión | Comisión
 10.000 | 10.000 | ¢300.00 | ¢800.00
 Para monedas | Monedas ¢ | ¢500 por bolsa | ¢1.000,00 por bolsa
 Dólares | Comisión por cada dólar
-> $0.00 < $1.0 millón | ¢700.00
-> $1.0 millón < $3.0 millones | ¢400.00
-De $3.0 millones en adelante | ¢300.00
+> $0.00 < $1.0 millón | ¢1.25
+> $1.0 millón < $3.0 millones | ¢0.75
+De $3.0 millones en adelante | ¢0.66
+(Así reformado mediante sesión N° 21 del 05 de mayo del 2008 y sesión N° 22 del 12 de mayo del 2008)
 28. Comisión por sobregiros accidentales
 Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo ¢5.200,00
@@ -110,3 +111,6 @@ Reposición certificados de depósito: 0.25% sobre el valor del título con un m
 35. Certificación o constancia de operación cancelada. | ¢6.300,00 cada una
 36. Movilización de efectivo
 ¢1.000,00 por cada depósito que realicen clientes de otras instituciones financieras que se compruebe que están utilizando la infraestructura del Banco.
+37. Traslado de expedientes judiciales a cuenta corriente o ahorros
+¢500 por traspaso.
+(Así adicionado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)

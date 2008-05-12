@@ -1,20 +1,21 @@
 III Tarjetas de crédito y débito
-1. Comisión por reemplazo normal
-¢2.600,00
-NOTA:
-Para los productos de Compras Institucionales, Empresariales y BCR Distribución no pagarán comisión por reemplazo.
+1. Comisión por reemplazo normal y reposición
+¢2.600,00.
+NOTA: Los productos de Compras Institucionales no pagarán comisión por reemplazo.
+(Así reformado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
 2. Comisión por reemplazo de emergencia
 Local ¢10.400,00
 Internacional, Oro y Platino ¢15.600,00
 3. Comisión por adelanto de efectivo
 Tarjetas de Crédito
-1 % avance efectivo en Bancobcr.com y Bancatel.
-1% avance de efectivo en cajeros del BCR
-1 % avance efectivo en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR)
-3 % avance efectivo en ventanilla del BCR.
-$2.00 avance efectivo en ATM´S que no estén en convenio con el BCR.
-- Por los avances de efectivo de la BCR Compras del ICE, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente al momento de la formalización de cada giro, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente. (Según acuerdo Comité de Crédito 16-04 del 29-04-2004)
+1% avance efectivo en Bancobcr.com y Bancatel.
+1% avance de efectivo en cajeros del BCR.
+1% avance efectivo en cajeros dentro de los convenios que tenga el BCR (ATH y BNCR).
+3% avance efectivo en ventanilla del BCR.
+¢1.000,00 avance efectivo en ATM´S que no estén en convenio con el BCR.
+- Por los avances de efectivo de la BCR Compras del ICE, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente al momento de la formalización de cada giro, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente. (Según acuerdo Comité de Crédito 16-04 del 29-04-2004).
 - Los funcionarios del BCR, Operadora de Pensiones, Puesto de Bolsa y Sociedad de Fondos de Inversión, pagarán el 50 % de las comisiones establecidas.
+(Así reformado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
 Tarjetas de Débito
 No generará comisión avance efectivo en cajeros del BCR o en redes que el BCR realice convenios mediante conexión Host to Host, Bancatel o Bancobcr.com.
 - ¢100.00 avance efectivo en cajeros del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $350.00.
@@ -27,9 +28,9 @@ No generará comisión avance efectivo en cajeros del BCR o en redes que el BCR 
 6. Comisiones a negocios afiliados
 7. Monto a cobrar por tarjetas recuperadas.
 Es cobrado al tarjetahabiente y pagado al recuperador de la tarjeta (persona física o negocio afiliado).
-Por tarjetas localizadas en el exterior hasta un máximo de $165.00
-(¢78.200,00 por localización más ¢7.800,00 por manejo o su equivalente en colones)
-Por tarjeta localizada en el territorio nacional ¢5.200,00
+Por tarjetas localizadas en el exterior hasta un máximo de ¢86.000,00 (¢78.200,00 por localización más ¢7.800,00 por manejo o su equivalente en colones).
+Por tarjeta localizada en el territorio nacional ¢5.200,00.
+(Así reformado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
 8. Comisión por retiro de efectivo en ventanilla para intercambio con otros emisores internacionales y locales que no estén en convenio
 ¢1.000,00 + 0.33 % de la transacción
 9. Multa por pago automático con débito a una cuenta (sin fondos)

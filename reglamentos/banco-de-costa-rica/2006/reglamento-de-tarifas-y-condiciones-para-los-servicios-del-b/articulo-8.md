@@ -1,13 +1,14 @@
-VIII Avalúos, inspecciones y fiscalizaciones
+VIII.—Avalúos, inspecciones y fiscalizaciones
 1. Cobro de avalúos e inspecciones para operaciones de crédito y prórrogas, arreglos y otros solicitados por los clientes.
-Monto de crédito | % | Exceso | Acumulado (¢)
-HASTA $15.000.00 | --- | --- | 47.000,00
-S/EXCESO DE $15.000 a $70.000.00 | 0.6 | $ 330.00 | 219.000,00
-S/EXCESO DE $70.000 a $140.000.00 | 0.4 | $ 280.00 | 365.000,00
-S/EXCESO DE $140.000 a $280.000.00 | 0.2 | $ 280.00 | 511.000,00
-S/EXCESO DE $280.000 a $560.000.00 | 0.1 | $ 280.00 | 657.000,00
-S/EXCESO DE $560.000 a $1.120.000.00 | 0.05 | $ 280.00 | 803.000,00
-MAS DE $1.120.000.00 | 0.03 | --- | ---
+Monto de crédito $ | % | Exceso $ | Acumulado $
+Hasta 15.000.00 | — | — | 90.00
+S/Exceso de 15.000 a 70.000 | 0.6 | 330.00 | 420.00
+S/Exceso de 70.000 a 140.000 | 0.4 | 280.00 | 700.00
+S/Exceso de 140.000 a 280.000 | 0.2 | 280.00 | 980.00
+S/Exceso de 280.000 a 560.000 | 0.1 | 280.00 | 1.260.00
+S/Exceso de 560.000 a 1.120.000 | 0.05 | 280.00 | 1.540.00
+Más de 1.120.000 | 0.03 | |
+| | |
 a. El total de la comisión acumulada forma la base para la siguiente categoría.
 b. Para avalúos de vehículos, de cualquier tipo, la comisión corresponde al 50% del resultado según la tabla.
 c. Cuando corresponda realizar avalúos para efectos de seguimiento, la comisión se calculará con base en el saldo adeudado, en lugar del monto de crédito, salvo cuando el avalúo sea factible realizarlo por el mismo valuador que realizó el avalúo anterior, en cuyo caso la comisión corresponderá al 50% del resultado según la tabla, calculado con base en el saldo adeudado, en lugar del monto de crédito en la tabla.
@@ -16,6 +17,7 @@ e. Para efectos del cálculo de la comisión por avalúo en casos de cobro judic
 f. Para efectos del cálculo de la comisión por avalúo en casos de venta de bienes, se usará como base el monto de la adjudicación, en lugar del monto de crédito en la tabla.
 g. En el caso que el avalúo no se realice debido a razones no imputables al Banco y siempre y cuando el valuador haya hecho la inspección de campo, para el cálculo de la comisión aplica la tarifa establecida para “Otras Inspecciones”.
 h. Por entregar al cliente copia de un avalúo hecho por funcionarios del Banco o por valuadores externos contratados por el Banco, se cobrará la diferencia entre el pago original que hizo el cliente y la tarifa vigente del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
+(Así reformado mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
 El cálculo de la comisión por inspecciones previas es sobre el monto del crédito y corresponde al 25% de la tarifa por concepto de avalúos.
 Inspecciones previas
 2. Las que son requeridas en el estudio y análisis de una solicitud de crédito y son efectuadas por profesionales designados por el Banco.
