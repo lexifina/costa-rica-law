@@ -1,0 +1,2 @@
+Artículo 41.—De la corresponsabilidad de los ejecutivos: Es obligación de los ejecutivos de las empresas, trabajadores o vigilantes, denunciar a la administración del Parque, cualquier anomalía que en este sentido note o detecte, en beneficio de la buena marcha de las empresas, del prestigio de ellas y del parque, y especialmente del cumplimiento de las normas legales respectivas.
+Dirección General de Aduana.—Lic. Carlos Wong Zúñiga, Representante Legal.—1 vez.—(38422).

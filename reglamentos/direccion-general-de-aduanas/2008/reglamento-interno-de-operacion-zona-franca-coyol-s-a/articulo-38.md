@@ -1,0 +1,1 @@
+Artículo 38.—Disposiciones finales: En general, todos los aspectos relacionados con la protección del ambiente y de la salud de las personas, se regirán por las regulaciones establecidas en La Ley General de Salud y Reglamentos afines y en la Declaración Ambiental del Parque emitida por la Setena.
