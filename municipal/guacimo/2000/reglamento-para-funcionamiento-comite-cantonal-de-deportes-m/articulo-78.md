@@ -1,1 +1,2 @@
-Artículo 78.—El Comité Cantonal y sus órganos solo podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad de Guácimo.
+Artículo 78.—El Comité Cantonal de Deportes y sus Órganos, podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad de Guácimo; de igual forma lo podrán hacer para desarrollar proyectos deportivos e infraestructura, sobre terrenos propiedad de organizaciones comunales, debidamente acreditadas como tales; cuyo aprovechamiento de las instalaciones sobre las cuales se invierte, se asegure sea para fines deportivos y de uso comunal.
+(Así reformado por acuerdo N° 12 de la sesión N° 20 del 13 de mayo de 2008).
