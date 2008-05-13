@@ -1,1 +1,0 @@
-Artículo 2º—Derogatorias. Se deroga el Acuerdo SGV-A-118 Ajuste al capital social y pagado de las bolsas de valores, de los puestos de bolsa y de las sociedades administradoras de fondos de inversión y al activo neto mínimo de participaciones de los fondos de inversión.
