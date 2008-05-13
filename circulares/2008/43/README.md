@@ -13,3 +13,4 @@ Envío de la grabación de las audiencias orales que se celebran en los procesos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-31 | la propia norma |
+| 2 | 2008-05-13 | Circular 87 (2008-05-13) |
