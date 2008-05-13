@@ -1,0 +1,1 @@
+Transitorio I.—Aprobación interna. El proyecto del presente Reglamento de Organización y Funcionamiento de la Auditoría Interna, deberá ser presentado por el Auditor Interno a conocimiento y aprobación del Concejo Municipal, quien tendrá treinta días hábiles para resolver esa gestión.

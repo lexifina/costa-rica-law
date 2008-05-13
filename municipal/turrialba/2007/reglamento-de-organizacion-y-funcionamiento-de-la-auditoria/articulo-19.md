@@ -1,0 +1,1 @@
+Artículo 19.—Pericia y debido cuidado profesional. El Auditor deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera. El Auditor Interno deberá establecer un programa de aseguramiento de la calidad para la Auditoría Interna.
