@@ -1,0 +1,14 @@
+Nº 34497
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley de Promoción del Desarrollo Científico y Tecnológico, N° 7169 del 26 de junio de 1990, publicada en La Gaceta N° 144 de 01 de agosto de 1990, el artículo 27 de la Ley General de la Administración Pública, N° 6227 de 2 de mayo de 1978, y
+Considerando:
+1º—Que el Centro de Electroquímica y Energía Química, CELEQ y la Facultad de Microbiología de la Universidad de Costa Rica, el Instituto Tecnológico de Costa Rica y la Red para el Análisis de la Calidad Ambiental en América Latina, (RACAL), está organizando el “8avo Simposio Latinoamericano de Química Analítica Ambiental y Sanitaria”, previos al Simposio se realizará el 4to Taller en Microbiología Ambiental y dos Talleres Adicionales, uno sobre muestreo ambiental y el otro sobre tópicos actuales en la evaluación de contaminantes químicos en el ambiente. Estas actividades tendrán lugar entre el 16 y 20 de febrero del año 2009.
+2°—Que el mencionado Simposio, será de gran importancia, ya que los temas que se abordarán son asuntos que afectan las condiciones de vida de los costarricenses: la calidad del agua, del aire y del suelo. La aparición de contaminantes emergentes, como son residuos de antibióticos, hormonas, plaguicidas y sus metabólicos, la presencia de metales traza con propiedades cancerígenas, la evaluación del riesgo de la exposición a sustancias químicas por medio de biosensores, entre otras.
+3°—Que el objetivo general es propiciar un espacio de encuentro e intercambio de experiencias y conocimientos entre académicos e investigadores comprometidos con el cuidado, evaluación y desarrollo sostenible del medio ambiente, ya que estos nos brindarán una visión actualizada de la problemática microbiológica, toxicología y química actual, por medio de conferencias, talleres, etc.
+4°—Que de conformidad con el artículo 8 de la Ley de Promoción del Desarrollo Científico y Tecnológico, N° 7169, todas las actividades científicas y tecnológicas sin fines de lucro, realizadas por las entidades que forman parte del Sistema Nacional de Ciencia y Tecnología, son de interés público. Por tanto,
+DECRETAN:
+Declaratoria de interés
+“8avo Simposio latinoamericano de Química
+Analítica Ambiental y Sanitaria”
+Artículo 1°—Con fundamento en el artículo 8 de la Ley de Promoción del Desarrollo Científico y Tecnológico, N° 7169, se declara de interés público el “8avo Simposio Latinoamericano de Química Analítica Ambiental y Sanitaria”, organizado por el Centro de Electroquímica y Energía Química, CELEQ y la Facultad de Microbiología de la Universidad de Costa Rica, el Instituto Tecnológico de Costa Rica y la Red para el Análisis de la Calidad Ambiental en América Latina, (RACAL) el cual se realizará entre el 16 y 20 de febrero del año 2009.
