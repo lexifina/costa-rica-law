@@ -14,3 +14,4 @@ El Reglamento del Servicio de Transporte Estudiantil en los Centros Educativos P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-31 | la propia norma |
+| 2 | 2008-05-14 | SINALEVI (sin norma nombrada) |
