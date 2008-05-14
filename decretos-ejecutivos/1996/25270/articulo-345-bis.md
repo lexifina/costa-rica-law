@@ -1,0 +1,2 @@
+Artículo 345 bis.—Plazo para enviar copia de la factura al Banco Central. En el plazo de cinco días hábiles contados a partir de la confirmación de la declaración, el declarante deberá remitir al Banco Central de Costa Rica, a través de las diferentes oficinas de la Promotora de Comercio Exterior de Costa Rica, una copia de la factura de exportación junto con la impresión de la declaración confirmada.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 34564 del 14 de mayo del 2008)

@@ -247,6 +247,7 @@ articulo-217.md
 articulo-218.md
 articulo-219.md
 articulo-220.md
+articulo-220-bis.md
 articulo-221.md
 articulo-221-bis.md
 articulo-222.md
@@ -387,12 +388,14 @@ articulo-342.md
 articulo-343.md
 articulo-344.md
 articulo-345.md
+articulo-345-bis.md
 articulo-346.md
 articulo-347.md
 articulo-348.md
 articulo-349.md
 articulo-350.md
 articulo-351.md
+articulo-351-bis.md
 articulo-352.md
 articulo-353.md
 articulo-354.md
