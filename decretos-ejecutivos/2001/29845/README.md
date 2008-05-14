@@ -14,3 +14,4 @@ Determina la correpondencia de los estudios que se realicen en el Centro Educati
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-09 | la propia norma |
+| 2 | 2008-05-14 | Decreto Ejecutivo 34544 (2008-05-14) |
