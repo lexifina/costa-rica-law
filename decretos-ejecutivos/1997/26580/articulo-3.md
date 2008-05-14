@@ -1,1 +1,0 @@
-Artículo 3°—El responsable institucional de la ejecución presupuestaria, deberá coordinar la correcta aplicación de las siguientes disposiciones, para que su Ministerio. Poder o Junta de Pensiones, ejecute las acciones que sean necesarias para evitar errores en el trámite de la planilla de pago; o en su defecto proceda a recuperar las sumas que se hayan girado sin corresponder.
