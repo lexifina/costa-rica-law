@@ -1,3 +1,5 @@
+(Derogado)
+(Esta Ley fue derogada por el artículo 14 aparte c) de la Ley N° 8638 del 14 de mayo de 2008)
 CREACION DEL COLEGIO UNIVERSITARIO PARA EL RIEGO
 Y EL DESARROLLO DEL TROPICO SECO
 ARTICULO 1.- Créase el Colegio Universitario para el Riego y el
