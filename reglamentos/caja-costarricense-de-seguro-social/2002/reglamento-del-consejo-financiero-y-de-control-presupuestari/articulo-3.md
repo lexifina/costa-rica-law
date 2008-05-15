@@ -1,3 +1,2 @@
-Artículo 3º—De las sesiones. Las sesiones ordinarias del Consejo se realizarán al menos dos veces al mes y extraordinariamente cuando lo soliciten dos de sus miembros o la Junta Directiva de la Institución.
-El quórum se establece con la participación de al menos tres miembros y los acuerdos y resoluciones se adoptan por mayoría simple de entre los presentes.
-En caso de empate el Presidente podrá ejercer voto adicional de calidad para decidir.
+Artículo 3º—De las Sesiones. Las sesiones ordinarias del Consejo se realizarán al menos una vez al mes y extraordinariamente cuando lo solicite uno de sus miembros plenos.
+El quórum se establece con la participación de al menos tres miembros, dos de los cuales deberán ser el Gerente Financiero y el Gerente Administrativo. Sólo se podrán tratar temas o adoptar acuerdos que se refieran o afecten a Gerencias, cuyo Gerente participe en la sesión. Los acuerdos y resoluciones se adoptan por mayoría simple de entre los presentes. En caso de empate, el Presidente podrá ejercer el voto adicional de calidad para decidir.

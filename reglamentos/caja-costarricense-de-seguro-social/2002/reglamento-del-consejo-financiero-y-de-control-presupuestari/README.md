@@ -16,3 +16,4 @@ Reglamento del Consejo Financiero y de Control Presupuestario
 | 1 | 2002-05-30 | la propia norma |
 | 2 | 2002-09-12 | Reglamento 7686 (2002-09-12) |
 | 3 | 2006-03-16 | Reglamento 8043 (2006-03-16) |
+| 4 | 2008-05-15 | Reglamento 8248 (2008-05-15) |
