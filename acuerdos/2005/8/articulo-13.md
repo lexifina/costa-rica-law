@@ -1,0 +1,6 @@
+13.—De la pérdida y reposición del cuaderno de Bitácora.
+a) Si el extravío se da antes del inicio de la obra, el Profesional solicitará al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, la sustitución de la Bitácora previo pago del valor de la bitácora, más el 50% de lo pagado originalmente por concepto de Cupón de Registro. Además se pagará la publicación en La Gaceta. La Bitácora se numerará como copia adicional según corresponda.
+b) Si es durante el proceso constructivo, o bien, al final del mismo, el Profesional solicitará al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica la sustitución, adjuntando fotocopia con su firma, de los folios en su poder. Deberá pagar el valor de la bitácora más el 50% de lo pagado originalmente por concepto del Cupón de Registro y además pagar también la publicación en La Gaceta. La Bitácora se numerará como copia adicional según corresponda. La Bitácora será entregada al profesional en ambos casos en forma inmediata, una vez cumplidos los requisitos anteriormente solicitados.
+Notas:
+Para ambas situaciones se debe presentar carta firmada por el profesional solicitando la venta de la Bitácora.
+Este trámite se puede llevar a cabo únicamente de forma física
