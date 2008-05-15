@@ -1,0 +1,6 @@
+Artículo 4º—Funciones del Comité de Gestión de Pasivos. Las funciones del Comité de Gestión de Pasivos serán las siguientes:
+a) Definir la estrategia a seguir en lo que se refiere a la gestión del portafolio de afinamiento de la política monetaria y establecer los mecanismos e instrumentos específicos mediante los cuales se gestionará dicho portafolio, de forma consistente con el Programa Macroeconómico aprobado por la Junta Directiva del Banco.
+b) Analizar la actualidad del mercado financiero y su impacto en la gestión de pasivos del Banco Central, para lo que tendrá en cuenta las evaluaciones que efectúe la División Gestión de Activos y Pasivos.
+c) Promover el entendimiento y la coordinación interna, así como con el Ministerio de Hacienda, con el fin alcanzar los objetivos de la gestión de pasivos con costo del Banco Central.
+d) Valorar el cumplimiento de los objetivos señalados en el artículo 2 de las presentes políticas. Para asegurar el mejor cumplimiento de esos objetivos, el Comité evaluará y someterá a consideración de la Junta Directiva del Banco los cambios que se requieran en estas disposiciones.
+e) Hacer de conocimiento de la Junta Directiva del Banco, las decisiones tomadas en virtud de las facultades antes señaladas.

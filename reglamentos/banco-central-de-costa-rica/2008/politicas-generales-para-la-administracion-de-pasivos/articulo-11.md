@@ -1,0 +1,1 @@
+Artículo 11.—Mercado de Negociación. Dada la naturaleza del Ejercicio Diario de Seguimiento de Liquidez (EDSL), al que se refiere el artículo 14 de estas disposiciones, el mercado objetivo para el control de la liquidez que utilizará el BCCR será el Mercado Interbancario de Dinero, en el cual los bancos comerciales del país concentran la gestión de su liquidez.

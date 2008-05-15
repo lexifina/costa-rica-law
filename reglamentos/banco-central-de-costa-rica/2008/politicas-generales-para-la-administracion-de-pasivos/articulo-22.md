@@ -1,0 +1,1 @@
+Artículo 22.—Revisión de parámetros. Las características de los instrumentos, su composición y estructura de vencimientos, establecidos en los artículos 19, 20 y 21 de estas políticas, deberán ser revisadas al menos anualmente por el Comité de Gestión de Pasivos, según información que suministre la División de Gestión de Activos y Pasivos.

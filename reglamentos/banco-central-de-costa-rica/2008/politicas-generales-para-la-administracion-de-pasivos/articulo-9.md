@@ -1,0 +1,1 @@
+Artículo 9º—Delimitación. El afinamiento de la política monetaria de corto plazo se realizará por medio de la administración de activos y pasivos en moneda local, constituidos por el BCCR a 30 días o menos.

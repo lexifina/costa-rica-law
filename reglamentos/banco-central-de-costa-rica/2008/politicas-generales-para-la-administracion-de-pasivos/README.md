@@ -1,0 +1,16 @@
+# Reglamento (2008-04-23)
+
+Políticas Generales para la Administración de Pasivos
+
+- Tipo: Reglamento
+- Número: 5375
+- Fecha: 2008-04-23
+- Ente emisor: Banco Central de Costa Rica
+- Publicación: La Gaceta N° 93 del 2008-05-15
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=63112&param2=72381&param3=1 (ficha 63112)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-05-15 | la propia norma |

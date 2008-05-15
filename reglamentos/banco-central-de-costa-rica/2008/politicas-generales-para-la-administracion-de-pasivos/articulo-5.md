@@ -1,0 +1,3 @@
+Artículo 5º—Funciones de la División Económica. La División Económica es la responsable diseñar y proponer las acciones de política monetaria. En este contexto, para efectos de la gestión de pasivos del Banco Central:
+a) Determinará el volumen de pasivos con costo del Banco y la proporción de estos que se destinará a cada uno de los tramos. Para lo anterior, entre otros aspectos, tendrá en cuenta los objetivos, supuestos y proyecciones del Programa Macroeconómico.
+b) Efectuará un ejercicio diario de seguimiento de liquidez que permita determinar la intervención diaria del Banco Central en el mercado de dinero. Dicho ejercicio será la base para la ejecución de las operaciones que se realicen como parte del Tramo de Afinamiento de la Política Monetaria.
