@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las regencias y asesorías permanentes
+Artículo 12.—Todo establecimiento y evento que requiera de la Regencia o de la Asesoría Permanente de un Médico Veterinario para su operación o celebración, según lo establecen los artículos 96, 216, 219, 220, 221 de la Ley General de Salud, Nº 5395, el artículo 3º, literal g) de la Ley Orgánica del Colegio de Médicos Veterinarios Nº 3455, el transitorio III de la Ley Orgánica del Colegio de Ingenieros Agrónomos Nº 7221 y el Capítulo XVII del Reglamento a la Ley Orgánica del Colegio de Médicos Veterinarios, Decreto Ejecutivo Nº 19184-MAG y decreto 19369-MAG; debe contar con la Autorización de la Regencia o Asesoría Permanente en el Colegio, y cumplir los requisitos legales, técnicos y administrativos.

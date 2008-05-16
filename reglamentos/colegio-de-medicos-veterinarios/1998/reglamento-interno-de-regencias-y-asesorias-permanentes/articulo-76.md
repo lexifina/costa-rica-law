@@ -1,0 +1,1 @@
+Artículo 76.—En todo Contrato de Trabajo se contemplará exclusivamente el pago de las funciones de Regencia o Asesoría Permanente; los honorarios correspondientes a labores que no correspondan a las funciones del Regente o Asesor Permanente, deberán ser sujetos de negociación separada.

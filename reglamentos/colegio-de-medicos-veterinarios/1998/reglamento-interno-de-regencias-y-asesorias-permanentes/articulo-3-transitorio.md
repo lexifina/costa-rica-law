@@ -1,0 +1,1 @@
+Transitorio III.—La Junta Directiva evaluará las condiciones y determinará el momento para que la Contraloría realice las inspecciones según los parámetros contenidos en el Título VII, Capítulo I del Reglamento Interno de Regencias.

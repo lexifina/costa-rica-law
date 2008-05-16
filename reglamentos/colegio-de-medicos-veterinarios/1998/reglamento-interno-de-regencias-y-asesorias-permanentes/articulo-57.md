@@ -1,0 +1,1 @@
+Artículo 57.—Deberá promover la utilización del método de ANÁLISIS DE RIESGOS EN PUNTOS CRÍTICOS DE CONTROL (HACCP), como método preventivo de la contaminación basado en la identificación de riesgos en puntos críticos de la cadena de producción y mercadeo de un alimento bajo los lineamientos oficiales.

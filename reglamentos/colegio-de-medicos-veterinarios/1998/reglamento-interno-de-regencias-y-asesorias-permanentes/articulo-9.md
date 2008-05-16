@@ -1,0 +1,5 @@
+Artículo 9º—Para obtener o renovar del Colegio la Licencia Veterinaria, el interesado deberá:
+1) Presentar solicitud por escrito, conteniendo al menos la información del formulario que suministra el Colegio, la cual deberá ser firmada por el propietario (representante legal en caso de personas jurídicas). Todas las firmas deberán estar autenticadas, agregando el timbre correspondiente.
+2) Presentar copia de la cédula de identidad y si se trata de una persona jurídica debe aportar, personería jurídica, que incluya nombre completo, dos apellidos, número de cédula de identidad y calidades del representante legal, facultades y alcances de su poder y número de cédula de persona jurídica, copia de la cédula del representante legal y de la cédula jurídica.
+3) Cuando proceda, debe adjuntarse recomendación de la Filial Regional o Agrupación Gremial.
+4) La Junta Directiva resolverá la solicitud de Licencia Veterinaria, y en caso de aprobarla, su emisión queda sujeta al cumplimiento de los demás trámites legales, técnicos y administrativos; el Fiscal velará por el debido cumplimiento de los mismos, antes de hacer entrega de la Constancia de Autorización.

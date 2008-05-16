@@ -1,0 +1,2 @@
+Artículo 21.—La Junta Directiva resolverá la solicitud de Autorización para la Regencia o Asesoría Permanente, y en caso de aprobarla, la emisión del Certificado queda sujeta al cumplimiento de los demás trámites legales, técnicos y administrativos; el Fiscal velará por el debido cumplimiento de los mismos, antes de hacer su entrega.
+En caso de no aprobar la solicitud se le indicará al interesado las causas de la denegatoria, quien podrá presentar nueva solicitud cuando los factores por los que se razonó la denegatoria hayan dejado de existir.

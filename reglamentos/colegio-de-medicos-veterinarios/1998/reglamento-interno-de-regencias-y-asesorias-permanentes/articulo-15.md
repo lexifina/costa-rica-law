@@ -1,0 +1,1 @@
+Artículo 15.—Solamente se puede regentar un Establecimiento de Medicamentos Veterinarios en el mismo horario. El cargo de regente de un Establecimiento de Medicamentos Veterinarios es incompatible con cualquier otro empleo que requiera para su desempeño las mismas horas señaladas para la Regencia.

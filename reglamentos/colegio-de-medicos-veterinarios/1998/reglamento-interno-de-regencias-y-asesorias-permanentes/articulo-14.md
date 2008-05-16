@@ -1,0 +1,1 @@
+Artículo 14.—La Junta Directiva establecerá los horarios de Regencia según las necesidades técnicas de cada tipo de establecimiento o evento y dicho horario se señalará en el correspondiente Certificado de Autorización de Regencia, el cual deberá exhibirse al público en el establecimiento o local del evento.

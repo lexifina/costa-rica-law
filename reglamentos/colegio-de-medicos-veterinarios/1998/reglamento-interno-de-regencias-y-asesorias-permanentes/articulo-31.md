@@ -1,0 +1,1 @@
+Artículo 31.—Cuando sea indicado, la documentación de respaldo debe formar parte del Certificado Veterinario, certificándose con la firma del Médico Veterinario las observaciones, los exámenes que acompañan, las aclaraciones e interpretaciones que así lo requieran.

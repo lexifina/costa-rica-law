@@ -1,0 +1,1 @@
+Artículo 74.—Cada vez que la Junta Directiva realice Licencia Veterinaria de Establecimientos, autorice Regencias o Asesorías Permanentes, realice suspensiones temporales, acoja renuncias de Regentes y Asesores Permanentes, deberá publicarlo en el medio oficial del Colegio.

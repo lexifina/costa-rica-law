@@ -1,0 +1,1 @@
+Artículo 72.—En caso de suspensión de la Regencia o Asesoría Permanente, la Fiscalía recogerá el respectivo Certificado, debiendo el propietario contratar a un nuevo Regente para lo que resta del período en los siguientes treinta días naturales a la cancelación.

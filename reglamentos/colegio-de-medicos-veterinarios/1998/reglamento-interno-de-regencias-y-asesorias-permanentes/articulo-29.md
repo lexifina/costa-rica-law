@@ -1,0 +1,2 @@
+Artículo 29.—El Médico Veterinario sólo puede certificar sobre materia de la cual tiene conocimiento propio, que ha revisado o inspeccionado personalmente.
+Materia que no sea del conocimiento del Médico Veterinario, y no tenga documentación de respaldo, aunque sea del conocimiento de otras personas, como el finquero, el criador, el conductor; sólo puede ser declarada por estas personas y no puede incluirse en la certificación.

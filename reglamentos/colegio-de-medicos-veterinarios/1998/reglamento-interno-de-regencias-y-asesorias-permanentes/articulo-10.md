@@ -1,0 +1,1 @@
+Artículo 10.—La Licencia Veterinaria de los establecimientos, son intransferibles a otra instalación física. En caso de venta de un establecimiento, o de la persona jurídica propietaria, se debe tramitar nuevamente la Licencia Veterinaria.

@@ -1,0 +1,2 @@
+Artículo 24.—En caso de terminación del espacio disponible de la Bitácora o Protocolo, el profesional solicitará una nueva a la Fiscalía demostrando que efectivamente ha llenado completamente la anterior, cancelando su costo en el momento de retirarla.
+En caso de daño que impida su utilización, o extravío, el profesional deberá comunicarlo por escrito a la Fiscalía y solicitar su reposición. Conservará la Bitácora o Protocolo dañado para verificación por parte de la Fiscalía y la conservará por el plazo señalado.

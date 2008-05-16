@@ -1,0 +1,1 @@
+Artículo 20.—La Fiscalia después de efectuar el estudio correspondiente, deberá elaborar un informe que contendrá la recomendación de otorgamiento o denegatoria. Con la adición del informe, entregará el expediente así constituido a la Junta Directiva para continuar su trámite.

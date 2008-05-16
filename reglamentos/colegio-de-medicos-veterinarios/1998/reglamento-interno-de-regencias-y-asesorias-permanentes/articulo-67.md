@@ -1,0 +1,1 @@
+Artículo 67.—El Colegio de Médicos Veterinarios suspenderá la Autorización de Regencia y la Licencia Veterinaria de un Establecimiento, cuando la Contraloría (auditoría externa) haya clasificado como Grado “D”.

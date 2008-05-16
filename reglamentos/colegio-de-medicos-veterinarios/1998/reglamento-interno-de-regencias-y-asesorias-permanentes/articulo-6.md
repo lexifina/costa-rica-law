@@ -1,0 +1,1 @@
+Artículo 6º—En Cumplimiento del artículo 84, literal d), del Reglamento, el Fiscal deberá rendir ante la Junta Directiva, al menos un informe anual de sus labores antes del 15 de diciembre, que comprenda hasta el 30 de noviembre de cada año.

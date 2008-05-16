@@ -1,0 +1,1 @@
+Transitorio I.—Todos los aspectos concernientes a la Fiscalía, deberán trasladarse a la Contraloría en cuanto se apruebe el Proyecto de Ley Orgánica del Colegio, Expediente 12.300 de la Asamblea Legislativa (Decreto Legislativo Nº 7724).

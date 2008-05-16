@@ -1,0 +1,1 @@
+Artículo 73.—El colegiado a quién se la haya suspendido la Autorización de Regencia o Asesoría Permanente en tres ocasiones, se le suspenderá el derecho a ejercer la Regencia o Asesoría Permanente por un período que la Junta Directiva determinará de acuerdo con la naturaleza de las faltas.
