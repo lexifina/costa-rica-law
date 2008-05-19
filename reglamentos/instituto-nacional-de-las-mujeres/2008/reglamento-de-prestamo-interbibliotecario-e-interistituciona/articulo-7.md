@@ -1,0 +1,3 @@
+CAPÍTULO III
+Regulación del préstamo
+Artículo 7º—Tendrán derecho a disfrutar del Préstamo Interbibliotecario los usuarios y las usuarias de cada Biblioteca, Centro de Documentación, OFIM y UPEG, que hayan establecido previamente el convenio respectivo con la UDOC, que soliciten el material a través de una carta oficial, indicando los datos bibliográficos completos (referencia bibliográfica) del material solicitado, con la firma de la persona responsable o de la persona encargada de este servicio, y el sello de la Biblioteca, Centro de Documentación, OFIM o UPEG, acompañada con las boletas de préstamo de materiales de la UDOC, debidamente llenas con la información correspondiente a cada documento solicitado.

@@ -1,0 +1,1 @@
+Artículo 13.—Los materiales que se autoricen en préstamo interbibliotecario, deberán permanecer en la Biblioteca, Centro de Documentación, OFIM o UPEG solicitante, a efecto de garantizar su seguridad.

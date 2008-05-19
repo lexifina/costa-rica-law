@@ -1,0 +1,1 @@
+Artículo 17.—Transitorio 1. Las bibliotecas, centros de documentación, UPEG y OFIM que tienen antes de la publicación de este Reglamento Préstamos Interbibliotecarios e Institucionales establecidos, deberán formalizar los convenios de conformidad con lo establecido en el presente Reglamento.

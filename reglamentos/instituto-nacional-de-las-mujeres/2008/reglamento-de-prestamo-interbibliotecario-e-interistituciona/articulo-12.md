@@ -1,0 +1,1 @@
+Artículo 12.—Cuando por razones de fuerza mayor, la Biblioteca, Centro de Documentación, OFIM, o UPEG solicitante no puede devolver a tiempo el material bibliográfico, deberá comunicar la situación y solicitar una prórroga a más tardar el día anterior al vencimiento del préstamo.

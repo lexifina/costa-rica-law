@@ -1,0 +1,1 @@
+Artículo 9º—Se facilitará en Préstamo Interbibliotecario e Institucional a un máximo de cinco documentos por un período de cinco días naturales, prorrogables por gestión bibliotecaria o institucional, por el mismo período, siempre y cuando no sean requeridos por otro ente participante.

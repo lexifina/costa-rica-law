@@ -1,0 +1,1 @@
+Artículo 6º—Las entidades participantes se comprometen a brindar a la UDOC la información pertinente para que pueda actualizar cada seis meses, las calidades de la persona responsable y/o de la persona encargada del servicio de préstamo interbibliotecario de la Biblioteca, Centro de Documentación, OFIM o UPEG.

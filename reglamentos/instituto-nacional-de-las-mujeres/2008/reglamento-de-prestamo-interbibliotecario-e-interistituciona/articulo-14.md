@@ -1,0 +1,1 @@
+Artículo 14.—El retiro y la devolución de los materiales otorgados por Préstamo Interbibliotecario deberá hacerlo un/a funcionario/a o la persona autorizada por la Biblioteca, Centro de Documentación, OFIM o UPEG solicitante
