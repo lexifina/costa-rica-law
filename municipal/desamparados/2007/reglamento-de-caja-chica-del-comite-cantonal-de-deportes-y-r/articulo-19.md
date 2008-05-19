@@ -1,0 +1,1 @@
+Artículo 19.—La compra de bienes y servicios se tramitará por Caja Chica bajo la responsabilidad de la Dirección Ejecutiva o del Presidente del Comité cantonal de Deportes y Recreación, solamente cuando en la bodega no haya existencia del bien que se solicita, y exista contenido en la partida presupuestaria correspondiente.

@@ -1,0 +1,1 @@
+Artículo 14.—Una vez efectuado el correspondiente arqueo, el Director Ejecutivo guardará, en presencia del Encargado del fondo de caja chica, en un sobre sellado y firmado por este último, una copia de la llave que será usada por el sustituto (excepto cuando es temporal durante el día).
