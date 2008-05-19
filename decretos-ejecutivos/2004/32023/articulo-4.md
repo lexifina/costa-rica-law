@@ -1,1 +1,0 @@
-Artículo 4º—El Museo de Formas, Espacios y Sonidos, hará del conocimiento de los usuarios, el valor histórico-arquitectónico de la Antigua Estación del Ferrocarril al Atlántico, así como del ferrocarril propiamente dicho.

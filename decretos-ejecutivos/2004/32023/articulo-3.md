@@ -1,1 +1,0 @@
-Artículo 3º—El Museo de Formas, Espacios y Sonidos, fomentará la integración de las personas con alguna discapacidad al proceso cultural y educativo, en igualdad de condiciones de calidad, derechos y oportunidades que el resto de los ciudadanos, facilitando la accesibilidad tanto en su espacio físico como en sus contenidos programáticos.
