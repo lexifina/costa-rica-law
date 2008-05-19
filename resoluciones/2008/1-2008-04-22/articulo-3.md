@@ -1,0 +1,5 @@
+Artículo 3º—Ámbito de aplicación. El siguiente reglamento se aplica en los siguientes casos:
+3.1. Cuando el ingrediente activo grado técnico, como tal o formando parte de un Plaguicida Sintético Formulado, no se encuentren registrados por el solicitante en el país.
+3.2. Como una excepción de lo dispuesto en e inciso a-, si el Plaguicida no sintético y sintético formulado está registrado por el solicitante en el país, y se desea traer una concentración o formulación nueva y no tiene su IAGT registrado, además el SFE y otras autoridades competentes podrán valorar a solicitud de parte, la información del IAGT suministrada por el solicitante dentro del expediente del Plaguicida Formulado inscrito, con el fin de determinar si se requiere información adicional para la evaluación de riesgo.
+3.3. Cuando una sustancia Afín y un Coadyuvante no estén registrados.
+3.4. Cuando el solicitante cuente con el ingrediente activo grado técnico registrado y no tenga registrado el plaguicida no sintéticos o sintéticos formulados, del cual pretende importar la muestra con fines experimentales,
