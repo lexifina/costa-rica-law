@@ -1,0 +1,3 @@
+Artículo 13- Enmiendas
+1. Toda Alta Parte Contratante podrá proponer una o varias enmiendas al presente Protocolo. El texto de cualquier enmienda propuesta se comunicará al depositario, el cual, tras celebrar consultas con todas las Altas Partes Contratantes, con el Comité Internacional de la Cruz Roja y la Federación Internacional de Sociedades de la Cruz Roja y de la Media Luna Roja, decidirá si conviene convocar una conferencia para examinar la enmienda propuesta.
+2. El depositario invitará a esa conferencia a las Altas Partes Contratantes y a las Partes en los Convenios de Ginebra, sean o no signatarias del presente Protocolo.

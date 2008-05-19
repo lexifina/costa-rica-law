@@ -1,0 +1,2 @@
+Artículo 4- El Comité Internacional de la Cruz Roja y la Federación Internacional de Sociedades de la Cruz Roja y de la Media Luna Roja
+El Comité Internacional de la Cruz Roja y la Federación Internacional de Sociedades de la Cruz Roja y de la Media Luna Roja, así como su personal debidamente autorizado, podrán emplear, en circunstancias excepcionales y para facilitar su labor, el signo distintivo mencionado en el artículo 2 del presente Protocolo.
