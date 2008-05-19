@@ -1,0 +1,1 @@
+13.—Remisión y recepción del informe. En el trámite de los informes motivados en denuncias, la Auditoría Interna, observará lo dispuesto en los artículos 35, 36 y 37 de la Ley General de Control Interno.
