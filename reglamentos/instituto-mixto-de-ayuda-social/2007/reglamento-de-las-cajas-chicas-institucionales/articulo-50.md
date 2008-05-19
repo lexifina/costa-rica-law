@@ -1,1 +1,4 @@
-Artículo 50.—De los tiempos requeridos por las unidades responsables de realizar los reintegros: La Unidad de Contabilidad contará con dos días hábiles para realizar las acciones de su competencia en el trámite de reposición de los Fondos que soliciten las unidades respectivas. Para el giro de los recursos, en el caso de las Gerencias Regionales y Empresas Comerciales, la Unidad de Tesorería contará con un día hábil como máximo para realizar el trámite correspondiente a su ámbito de acción.
+Artículo 50.—De los tiempos requeridos por las unidades responsables de realizar los reintegros:
+Reintegros de Oficinas Centrales: La Unidad de Contabilidad contará con cinco días hábiles para realizar las acciones de su competencia en el trámite de reposición de los Fondos que solicite la Tesorería.
+Reintegros en Gerencias Regionales: La Unidad de Contabilidad contará con dos días hábiles para realizar las acciones de su competencia en el trámite de reposición de los Fondos.
+(Así reformado mediante acuerdo N° C.D. 181, acta N° 38-08, artículo cuarto de sesión celebrada el 19 de mayo de 2008)

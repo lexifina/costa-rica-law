@@ -12,7 +12,8 @@ g) Declaración jurada: Es la manifestación que hace el funcionario, bajo fe de
 h) Emergencias: Todo tipo de desastre natural o provocado, que ocurre de manera imprevisible, y que afecta a una persona, familia, grupo o comunidad.
 i) Fondos de Caja Chica: Es el monto total de recursos asignados a cada dependencia institucional que tiene la responsabilidad de administrarlo, para cubrir los gastos que se realicen bajo esta modalidad.
 j) Fraccionar: Es que, cualquier Unidad Administrativa, para atender una misma necesidad como las que previstas en este Reglamento, divida su costo total en más de un adelanto de Caja Chica, cuando éste exceda el monto máximo autorizado, con el interés de evadir los procedimientos establecidos en la Ley de Contratación Administrativa y su Reglamento.
-k) Intervenciones Financieras: Se refiere a aquellas acciones de fiscalización que deben realizar los funcionarios de los Equipos Técnicos Especializados del Área de Apoyo y Asesoría Financiera, con el propósito de cumplir con las responsabilidades establecidas en el presente Reglamento.
+k) Revisiones Financieras: Se refiere a aquellas acciones de fiscalización que deben realizar los funcionarios de los Equipos Técnicos Especializados del Área de Apoyo y Asesoría Financiera, con el propósito de cumplir con las responsabilidades establecidas en el presente Reglamento.
+(Así reformado el inciso anterior mediante acuerdo N° C.D. 181, acta N° 38-08, artículo cuarto de sesión celebrada el 19 de mayo de 2008)
 l) IMAS: Instituto Mixto de Ayuda Social
 m) Mantenimiento Ordinario: Es todo aquel mantenimiento periódico, requerido para el buen funcionamiento de los Activos y Bienes de Menor Cuantía Institucionales, que se debe prever con antelación.
 n) Necesidad Urgente: Son todos aquellos requerimientos que requieren de respuesta o solución inmediata, que puedan ser atendidos por medio de los Fondos de Caja Chica.

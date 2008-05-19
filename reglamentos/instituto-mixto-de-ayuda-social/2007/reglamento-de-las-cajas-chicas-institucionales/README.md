@@ -14,3 +14,4 @@ Reglamento de las cajas chicas institucionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-02 | la propia norma |
+| 2 | 2008-05-19 | Reglamento 0 (2008-05-19) |
