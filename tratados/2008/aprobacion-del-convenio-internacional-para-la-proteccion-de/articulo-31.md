@@ -1,0 +1,5 @@
+Artículo 31
+Relaciones entre las Partes Contratantes y los Estados
+obligados por Actas anteriores
+1) [Relaciones entre Estados obligados por el presente Convenio] Sólo será aplicable el presente Convenio a los Estados miembros de la Unión que estén obligados a la vez por el presente Convenio y por un Acta anterior del mismo.
+2) [Posibilidad de relaciones con Estados no obligados por el presente Convenio] Todo Estado miembro de la Unión no obligado por el presente Convenio podrá declarar, mediante una notificación dirigida al Secretario General, que aplicará la última Acta del Convenio por la que esté obligado, en sus relaciones con cualquier miembro de la Unión obligado por el presente Convenio solamente. Tras la expiración de un plazo de un mes a partir de la fecha de esa notificación y hasta que el Estado miembro de la Unión que haya formulado la declaración quede obligado por el presente Convenio, dicho miembro de la Unión aplicará la última Acta por la que esté obligado, en sus relaciones con cada uno de los miembros de la Unión obligados por el presente Convenio solamente, mientras que éste aplicará el presente Convenio en sus relaciones con aquél.

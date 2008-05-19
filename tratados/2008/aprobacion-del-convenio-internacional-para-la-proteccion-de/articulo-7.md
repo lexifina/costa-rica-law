@@ -1,0 +1,3 @@
+Artículo 7
+Distinción
+Se considerará distinta la variedad si se distingue claramente de cualquier otra variedad cuya existencia, en la fecha de presentación de la solicitud, sea notoriamente conocida. En particular, el depósito, en cualquier país, de una solicitud de concesión de un derecho de obtentor para otra variedad o de inscripción de otra variedad en un registro oficial de variedades, se reputará que hace a esta otra variedad notoriamente conocida a partir de la fecha de la solicitud, si ésta conduce a la concesión del derecho de obtentor o a la inscripción de esa otra variedad en el registro oficial de variedades, según el caso.
