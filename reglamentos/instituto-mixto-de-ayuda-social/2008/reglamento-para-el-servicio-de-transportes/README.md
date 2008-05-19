@@ -14,3 +14,4 @@ Reglamento para el Servicio de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-19 | la propia norma |
+| 2 | 2008-05-19 | Reglamento 0 (2008-05-19) |

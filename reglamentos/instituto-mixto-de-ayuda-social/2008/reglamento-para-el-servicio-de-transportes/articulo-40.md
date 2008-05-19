@@ -1,5 +1,6 @@
 Artículo 40.—Prohibiciones en general. Serán prohibiciones generales para los conductores y usuarios de los vehículos del IMAS, las siguientes:
-a) Utilizar los vehículos de la Institución en otras actividades que no sean las normales de la misma, salvo casos de emergencia demostrada.
+a) Utilizar los vehículos de la Institución en otras actividades que no sean acordes a los fines y objetivos del IMAS, salvo casos de emergencia demostrada.
+(La reforma practicada al inciso anterior mediante acuerdo N° CD 180 acta N° 38-08 artículo cuarto de sesión celebrada el 19 de mayo de 2008, posteriormente fue derogada por el artículo 68 del Reglamento para el Servicio de Transporte, publicado en La Gaceta N° 244 del 20 de diciembre del 2011. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
 b) Utilizar los vehículos en actividades políticas.
 c) Transportar a particulares, salvo en casos en que por razones de trabajo o emergencia, lo justifique el responsable de la gira.
 d) Recoger o dejar funcionarios en su casa de habitación, salvo que esto se encuentre en la ruta de la gira programada y así se haga constar por escrito en ésta.
