@@ -1,4 +1,0 @@
-Artículo 2º—Tipo de Cambio. El tipo de cambio para las operaciones a que se refiere ese Reglamento, del colón con respecto al dólar de los EEUU, será determinado por la Unidad de Cambios y Telecomunicaciones del Subproceso de Extranjería del Banco, tomando como parámetro el comportamiento del mercado y el tipo de cambio de referencia que suministre el Banco Central de Costa Rica.
-El tipo de cambio del dólar de los Estados Unidos con respecto a otra moneda extranjera se obtendrá del tipo de referencia que suministre el Banco Central de Costa Rica.
-El tipo de cambio para el cobro de tarifas y/o comisiones será el establecido por el Banco para la venta de divisas. En tales casos se tomará el tipo de cambio vigente al momento en que se conviene el pago, siempre que éste se realice el mismo día en que tal acuerdo se efectúe.
-El tipo de cambio que regirá para efectos contables, será el que determine el Banco Central de Costa Rica.

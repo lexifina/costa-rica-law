@@ -1,3 +1,0 @@
-Artículo 9º—Períodos de Congelamiento de Cheques Internacionales. Los cheques internacionales en dólares de los EEUU serán congelados dependiendo de la ubicación geográfica del banco girado, y los períodos serán definidos por el Comité Internacional dentro de un plazo comprendido entre 15 y 45 días hábiles.
-Cheques internacionales en moneda diferente al dólar de los Estados Unidos de Norteamérica, deberán ser tramitados por cobranza simple, de conformidad con el procedimiento establecido para este servicio.
-Dichos plazos se publicarán para información de los usuarios, en el medio que la Administración considere conveniente.

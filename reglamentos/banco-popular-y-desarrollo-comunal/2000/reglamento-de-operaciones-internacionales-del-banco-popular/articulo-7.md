@@ -1,1 +1,0 @@
-Artículo 7º—Disponibilidad de billete en divisa. La venta de billete dólar de los EEUU estará sujeta a la disponibilidad del Banco. Los límites diarios de negociación serán fijados por el Coordinador del Subproceso de Extranjería o en ausencia de éste el Coordinador de la Unidad de Cambios y Telecomunicaciones.
