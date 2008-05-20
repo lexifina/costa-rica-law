@@ -1,3 +1,1 @@
-ARTÍCULO 666.- Imposibilidad de remate.
-Mientras no haya transcurrido el plazo de la citación, no
-podrá efectuarse la venta del inmueble.
+ARTÍCULO 666.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

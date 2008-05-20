@@ -1,0 +1,3 @@
+ARTÍCULO 19.- Preferencia entre embargantes
+El derecho del acreedor anotante del embargo prevalecerá sobre los derechos de los acreedores reales o personales, que nazcan con posterioridad a la presentación de la anotación en el Registro. Los acreedores posteriores no podrán pretender derecho alguno sobre el bien, ni en el precio de este, con perjuicio del embargante, salvo en los casos de prioridad regulados en la legislación sustantiva.
+El anotante no gozará de preferencia alguna por el solo motivo de la anotación o de la práctica del embargo en bienes no registrados frente a los acreedores personales anteriores que hagan tercería, cuando no existan bienes suficientes para cubrir los créditos.

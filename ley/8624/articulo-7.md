@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Cosa juzgada formal, garantía en ordinario para suspender y plazo
+La sentencia dictada en proceso monitorio tendrá efecto de cosa juzgada formal. La presentación de un nuevo proceso no suspenderá la ejecución, salvo que se rinda una garantía suficiente, a satisfacción del tribunal, que cubra todo lo adeudado, ambas costas, los daños y perjuicios. El proceso ordinario deberá presentarse antes de que los bienes adjudicados se entreguen en remate.

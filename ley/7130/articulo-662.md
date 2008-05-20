@@ -1,2 +1,1 @@
-Artículo 662.-Tercer poseedor. El juez le otorgara un plazo de diez días al tercer poseedor para que pague o abandone la finca a la ejecución.
-En el caso final del artículo 419 del Código Civil, se procederá contra la finca como si no hubiera salido de la propiedad del deudor.
+Artículo 662.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

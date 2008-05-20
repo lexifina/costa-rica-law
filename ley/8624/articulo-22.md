@@ -1,0 +1,2 @@
+ARTÍCULO 22.- Suspensión del remate
+El remate se suspenderá por solicitud del acreedor o de todos los acreedores ejecutantes apersonados. También se suspenderá, cuando cualquier interesado deposite, a la orden del tribunal, una suma que cubra la totalidad de los extremos reclamados, incluidas las costas. Cuando la suma depositada sea evidentemente insuficiente, no se suspenderá el remate. Si hay duda, se realizará sujeto a que, determinada la suma faltante, el interesado cubra la diferencia dentro del quinto día, en cuyo caso se dejará sin efecto.

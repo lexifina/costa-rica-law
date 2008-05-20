@@ -1,5 +1,1 @@
-ARTÍCULO 682.- Aplicación de normas.
-En los demás procedimientos del remate se aplicará lo dicho en la
-sección tercera, Capítulo II, Título I de este libro.
-Asimismo, en lo que no se oponga a lo dicho en este capítulo, se
-aplicará lo dispuesto en el Capítulo I de este Título II.
+ARTÍCULO 682.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

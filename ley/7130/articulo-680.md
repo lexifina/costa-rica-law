@@ -1,2 +1,1 @@
-ARTÍCULO 680.- Remate.
-Al remate se le aplicará lo dispuesto en el artículo 652.
+ARTÍCULO 680.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)
