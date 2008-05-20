@@ -1,4 +1,1 @@
-Artículo 5º—Funciones del Secretario del Órgano. El secretario del órgano tendrá las siguientes obligaciones y atribuciones:
-a) Levantar las Actas de las sesiones y custodiar el Libro de Actas
-b) Comunicar debidamente a los miembros del órgano y someterla a aprobación del Presidente antes de la sesión.
-c) Las demás que resulten de la naturaleza propia del cargo.
+Artículo 5º—Asesores. El comité podrá solicitar la participación, tanto en los estudios y análisis como en las sesiones, del personal técnico, administrativo o legal adicional que sea requerido.

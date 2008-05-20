@@ -1,2 +1,1 @@
-Artículo 13.—Auditoría Interna. Según lo establecido en la Ley General de Control Interno, Nº 8292; la Auditoría Interna de BN Valores, Puesto de Bolsa S. A. tiene la potestad de revisar el cumplimiento de este Reglamento.
-El Comité de Licitaciones deberá remitir copia de las actas a la Auditoría Interna de BN Valores, Puesto de Bolsa, dentro de los cinco días hábiles después de firmadas las mismas.
+Artículo 13.—Vigencia. Las presentes normas de operación empezarán a regir a partir de su publicación en La Gaceta.

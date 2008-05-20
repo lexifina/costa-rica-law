@@ -1,1 +1,2 @@
-Artículo 12.—En lo no regulado expresamente aquí, se estará en lo dispuesto por la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Valores.
+Artículo 12.—Fiscalización Auditoría Interna. La fiscalización de cumplimiento de este reglamento estará a cargo de la Auditoría Interna de BN Valores Puesto de Bolsa S. A. según lo establecido en la Ley General de Control Interno, Nº 8292;
+El Comité de Licitaciones deberá remitir en forma física o electrónica una copia de las actas a la Auditoría Interna de BN Valores, Puesto de Bolsa, dentro de los cinco días hábiles después de firmadas las mismas.
