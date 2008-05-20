@@ -14,3 +14,4 @@ Reglamento de Arrendamiento, Organización y Funcionamiento de Locales Fijos y V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-11 | la propia norma |
+| 2 | 2008-05-20 | Reglamento municipal 0 (2008-05-20) |
