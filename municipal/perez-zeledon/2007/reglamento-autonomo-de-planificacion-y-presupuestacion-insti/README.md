@@ -15,3 +15,4 @@ Reglamento Autónomo de Planificación y Presupuestación Institucional de la Mu
 | --- | --- | --- |
 | 1 | 2007-06-06 | la propia norma |
 | 2 | 2008-03-11 | Reglamento municipal 98 (2008-03-11) |
+| 3 | 2008-05-20 | Reglamento municipal 108 (2008-05-20) |
