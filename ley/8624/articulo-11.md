@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Prejudicialidad
+Cuando sea formulada la acusación por el Ministerio Público o se presente querella por falsedad del documento base de la ejecución hipotecaria o prendaria, el remate no se aprobará mientras no esté resuelto el proceso penal. Quedará a opción del oferente mantener o no la propuesta, cuando al efectuarse el remate no se tenga conocimiento de la existencia del proceso penal.

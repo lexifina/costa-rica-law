@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Procedimiento
+Para dilucidar las tercerías se seguirá el procedimiento incidental, el que se resolverá en audiencia oral, según lo dispuesto para el proceso monitorio. En la resolución inicial se dará traslado al ejecutante, al ejecutado y a cualquier acreedor que se haya apersonado. En las tercerías de distribución, si el promovente carece de sentencia a su favor, al dictarse el fallo deberá emitirse un pronunciamiento sobre la existencia y extensión del crédito, así como el derecho de participar en el producto de la ejecución.

@@ -1,3 +1,1 @@
-ARTÍCULO 663.- Trámite.
-Si no se hubiere renunciado a los trámites del proceso ejecutivo, se
-aplicará lo dispuesto para éste.
+ARTÍCULO 663 (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

@@ -1,5 +1,1 @@
-ARTÍCULO 422.- Es permitido renunciar en la escritura de
-hipoteca, los trámites del juicio ejecutivo. En tal caso se
-procederá desde luego a la venta judicial, sirviendo de base el
-precio fijado por las partes en la escritura; si no se hubiere fijado
-el precio, se establecerá por peritos.
+ARTÍCULO 422.- (Derogado por el artículo 37 aparte b) de la Ley N° 8624 del 1° de noviembre de 2007)

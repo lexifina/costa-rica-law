@@ -1,3 +1,1 @@
-ARTÍCULO 676.- Prenda no inscrita.
-La prenda no inscrita no confiere privilegio de garantía, pero el
-documento sí conserva la condición de titulo ejecutivo.
+ARTÍCULO 676 (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

@@ -1,3 +1,1 @@
-ARTÍCULO 443.- Cuenta corriente.
-Si se tratare de un contrato de cuenta corriente, se estará a lo
-dispuesto en el Código de Comercio.
+ARTÍCULO 443.- (Derogado por el artículo 37 aparte a) de la Ley N° 8624 del 1° de noviembre de 2007)
