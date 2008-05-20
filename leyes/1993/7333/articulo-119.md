@@ -1,1 +1,1 @@
-ARTICULO 119.- (Derogado por el artículo 212 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).
+ARTICULO 119.- (Derogado por el artículo 212 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo y posteriormente vuelto a derogar por el artículo 37 aparte b) de la Ley N° 8624 del 1° de noviembre de 2007)
