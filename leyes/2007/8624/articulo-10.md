@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Oposición
+En los procesos de ejecución hipotecaria y prendaria solo se admitirá la oposición que se funde en la falta de exigibilidad, el pago o la prescripción, sustentada en prueba documental o declaración de parte sobre hechos personales. Para dilucidar la oposición, se seguirá el procedimiento incidental, el que se resolverá en audiencia oral, según lo dispuesto para el proceso monitorio. El remate no se suspenderá, pero tampoco se aprobará mientras la oposición no sea rechazada.

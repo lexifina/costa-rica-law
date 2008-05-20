@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Puesta en posesión
+Aprobado el remate por resolución firme, sin más trámite, al adjudicatario se le pondrá en posesión del bien por medio de la autoridad administrativa, con aplicación de lo dispuesto en materia de ejecución de sentencia. A solicitud del interesado, de ser necesario, la puesta en posesión se hará directamente por el tribunal o, en su caso, mediante comisión a otra autoridad judicial. De promoverse algún incidente para impedir esa actuación, se rechazará de plano, cuando sea evidente su improcedencia, sin recurso alguno.

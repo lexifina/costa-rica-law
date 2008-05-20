@@ -1,0 +1,2 @@
+ARTÍCULO 27.- Aprobación, protocolización y cancelación de gravámenes y puesta en posesión
+Celebrado el remate y habiéndose cumplido todos los requerimientos legales, el tribunal lo aprobará. En la resolución que lo apruebe, se ordenará cancelar las inscripciones o anotaciones relativas al crédito de grado superior vencido que se ejecuta y las inferiores de este, así como las que consten en la certificación base de la subasta y las que se hayan anotado después. Asimismo, el tribunal autorizará la protocolización pertinente y ordenará la entrega del bien.
