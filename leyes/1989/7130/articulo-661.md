@@ -1,3 +1,1 @@
-ARTÍCULO 661.- Embargo.
-No habrá necesidad de verificar el embargo de la finca hipotecada,
-pero podrá decretarse en cualquier tiempo, a instancia de parte.
+ARTÍCULO 661 (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

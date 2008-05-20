@@ -1,5 +1,1 @@
-ARTÍCULO 671.- Oposición de un acreedor real citado.
-Si uno de los acreedores reales citados se opusiere, en el plazo de
-la citación, a las pretensiones del actor, para lo cual alegare prelación o
-la extinción total o parcial del derecho del último, se tramitará el punto
-por las reglas de las tercerías de mejor derecho.
+ARTÍCULO 671.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

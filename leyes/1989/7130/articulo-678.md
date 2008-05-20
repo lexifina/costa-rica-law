@@ -1,4 +1,1 @@
-ARTÍCULO 678.- Tribunal competente.
-La ejecución la podrá plantear el acreedor ante el tribunal del
-domicilio del deudor, del lugar donde esté los bienes, o en su propio
-domicilio.
+ARTÍCULO 678.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

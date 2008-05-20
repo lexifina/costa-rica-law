@@ -1,3 +1,1 @@
-ARTÍCULO 441.- Consecuencias de la incompetencia.
-Declarada la incompetencia, el embargo decretado y el practicado
-conservarán su validez.
+ARTÍCULO 441.- (Derogado por el artículo 37 aparte a) de la Ley N° 8624 del 1° de noviembre de 2007)

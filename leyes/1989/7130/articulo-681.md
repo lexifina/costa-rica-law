@@ -1,4 +1,1 @@
-ARTÍCULO 681.- Insubsistencia del remate.
-Si el postor no depositare el precio dentro del plazo establecido en
-el párrafo primero del artículo 657, se aplicará lo dispuesto en el
-artículo 658.
+ARTÍCULO 681.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

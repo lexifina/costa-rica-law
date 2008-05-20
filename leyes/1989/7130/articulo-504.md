@@ -1,4 +1,1 @@
-ARTÍCULO 504.- Oposición inadmisible.
-Si el demandado que se opone no ofrece prueba alguna, o si la ofrecida
-fuere impertinente, el juez dictará sentencia estimatoria, si la demanda
-fuere procedente.
+ARTÍCULO 504.- (Derogado por el artículo 37 aparte a) de la Ley N° 8624 del 1° de noviembre de 2007)

@@ -1,4 +1,1 @@
-ARTÍCULO 667.- Base del remate.
-La base del remate será la fijada por las partes en la escritura. Si
-no se hubiere fijado se establecerá pericialmente.
-Será aplicable lo dispuesto en el párrafo final del artículo 649.
+ARTÍCULO 667.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

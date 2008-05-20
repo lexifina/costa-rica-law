@@ -1,5 +1,1 @@
-ARTÍCULO 677.- Embargo.
-No habrá necesidad de verificar el embargo de los bienes dados en
-garantía, pero podrá decretarse en cualquier tiempo a instancia de parte.
-Los bienes se depositarán en el acreedor, en el deudor, o en el tercero que
-el ejecutor designe.
+ARTÍCULO 677.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

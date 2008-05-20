@@ -1,3 +1,1 @@
-ARTÍCULO 439.- Demanda.
-A la demanda se le aplicará lo dispuesto en el artículo 433. En el
-escrito se solicitará el despacho de ejecución y el decreto de embargo.
+ARTÍCULO 439.- (Derogado por el artículo 37 aparte a) de la Ley N° 8624 del 1° de noviembre de 2007)

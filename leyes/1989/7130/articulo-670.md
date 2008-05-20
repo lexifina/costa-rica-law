@@ -1,5 +1,1 @@
-ARTÍCULO 670.- Acreedor común.
-Lo dispuesto en los artículos anteriores se observará en lo que fuere
-aplicable en el caso en que un acreedor común siga una ejecución contra su
-deudor y le embargue un inmueble que se halle gravado en favor de
-acreedores con derecho real.
+ARTÍCULO 670.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)

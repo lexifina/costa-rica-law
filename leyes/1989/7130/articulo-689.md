@@ -1,5 +1,1 @@
-ARTÍCULO 689.- Derechos del deudor.
-Realizada la venta, el deudor podrá hacer valer, en proceso ordinario
-o abreviado, según el caso, los derechos que le asisten a causa de la
-ejecución, pero sin que por eso deje de quedar firme la venta del objeto
-hecha a favor de un tercero.
+ARTÍCULO 689.- (Derogado por el artículo 37 aparte a) de la Ley de Cobro Judicial, ley N° 8624 del 1° de noviembre de 2007)
