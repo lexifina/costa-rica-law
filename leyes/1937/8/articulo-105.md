@@ -1,5 +1,6 @@
 Artículo 105.- Los juzgados civiles conocerán:
-1) De todo asunto cuya cuantía exceda de la fijada por la Corte para el conocimiento de los juzgados de menor cuantía, incluso los procesos ejecutivos, aun cuando la acción se ejercite a favor o en contra de la Administración Pública.
+1) De los procesos de mayor cuantía, excepto de los que correspondan al juzgado contencioso-administrativo y civil de hacienda, agrario o juzgado especializado en cobro de obligaciones dinerarias.
+(Así reformado el inciso anterior por el artículo 36 aparte b) de la Ley N° 8624 del 1° de noviembre de 2007)
 2) En grado, de las resoluciones dictadas por los juzgados de menor cuantía de la materia civil.
 3) De las competencias que se susciten en lo civil entre las alcaldías de su respectivo territorio.
 4) De los demás asuntos que determinen las leyes.

@@ -1,5 +1,6 @@
 Artículo 115.- En materia civil, los juzgados de menor cuantía conocerán:
-1) De los juicios ejecutivos de menor cuantía, incluso los interpuestos a favor o en contra del Estado, un ente público o una empresa pública.
+1) De los procesos monitorios, hipotecarios y prendarios de menor cuantía, excepto de los que correspondan a los tribunales especializados.
+(Así reformado el inciso anterior por el artículo 36 aparte c) de la Ley N° 8624 del 1° de noviembre de 2007)
 2) De todo lo relativo a la aplicación de la Ley general de arrendamientos urbanos y suburbanos, aun cuando el proceso sea interpuesto a favor o en contra del Estado, un ente público o una empresa pública, salvo en procesos ordinarios y abreviados de mayor cuantía o en procesos ordinarios correspondientes a la Jurisdicción de lo Contencioso-Administrativo y Civil de Hacienda.
 3) De toda diligencia de pago por consignación. Si surge contención sobre la validez o eficacia del pago, el negocio continuará radicado en el despacho al que corresponda, conforme a la cuantía.
 4) De los demás asuntos cuya cuantía no exceda de la establecida como máxima por la Corte.
