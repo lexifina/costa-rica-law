@@ -13,3 +13,4 @@ Días límite para el recibido de documentos a conocer en las sesiones del Conse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-24 | la propia norma |
+| 2 | 2008-05-21 | Circular 62 (2008-05-21) |
