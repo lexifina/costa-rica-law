@@ -1,0 +1,1 @@
+85. Para la operación de estos fondos, se habilitará y mantendrá una cuenta operativa separada, la cual funcionará como un fondo rotatorio, reembolsando los recursos al momento de mostrar en forma adecuada el destino de los mismos, de acuerdo con lo establecido en el Programa, su reglamento y el Convenio.

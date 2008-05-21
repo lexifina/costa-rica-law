@@ -1,0 +1,3 @@
+C. De la elegibilidad de las propuestas.
+58. Para acceder a los recursos del Programa se podrán presentar propuestas en distintas formas, de acuerdo con lo establecido para cada componente:
+En el caso del Componente I, las organizaciones de productores podrán presentar sus propuestas en función de las demandas específicas de la organización. El perfil de proyecto deberá incluir todos los aspectos relacionados con el objetivo, integrando el conjunto de inversiones, y actividades de asistencia técnica que se realizarán de acuerdo con lo establecido en el capítulo VI del presente Reglamento. En todo caso, las organizaciones, para ser elegibles, deberán demostrar que cuentan con la capacidad gerencial y administrativa para ejecutar el proyecto conforme sus exigencias.

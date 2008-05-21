@@ -1,0 +1,1 @@
+101. El CMR podrá sujetar la aprobación de proyectos al cumplimiento de condiciones que se estimen necesarias como ajustes al presupuesto o tiempos de ejecución, contratación o adquisición de ciertos insumos críticos, o cualquier otra que, privilegiando criterios técnicos y de costo-efectividad, facilite el logro de sus resultados en forma más eficiente.

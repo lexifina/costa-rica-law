@@ -1,0 +1,1 @@
+40.El subcomponente de Información apoyará la adquisición de equipos y servicios de de conectividad para los fines ya indicados. Los gastos que se generen del uso, mantenimiento, reparaciones y operación ordinaria de los mismos serán asumidos por la organización usuaria con recursos de contrapartida.

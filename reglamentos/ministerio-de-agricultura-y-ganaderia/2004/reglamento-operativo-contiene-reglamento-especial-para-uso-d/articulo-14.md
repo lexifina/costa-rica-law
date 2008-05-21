@@ -1,0 +1,2 @@
+E. Las propuestas
+14. Cada organización o entidad participante deberá elaborar una propuesta de perfil de proyecto, para formalizar su demanda, de acuerdo con los criterios y actividades establecidas en el Programa. Se exime la presentación de este perfil a aquellas organizaciones y a los pequeños y medianos productores agropecuarios que las integren y califiquen de conformidad con el ANEXO UNO del presente Reglamento.

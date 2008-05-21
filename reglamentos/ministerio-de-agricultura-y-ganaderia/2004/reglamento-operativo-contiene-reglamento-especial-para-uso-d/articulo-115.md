@@ -1,0 +1,2 @@
+F. Contratación y pago de proveedores de servicios
+115. Las organizaciones seleccionarán y contratarán al proveedor del registro de proveedores acreditados por la DNA para la ejecución de las actividades especificadas en el proyecto y en su convenio con la UCP. Se establecerá un contrato de servicios que reflejará estrictamente los términos establecidos en el proyecto, objetivos, actividades, cronograma, presupuestos, formas de pago y de seguimiento.

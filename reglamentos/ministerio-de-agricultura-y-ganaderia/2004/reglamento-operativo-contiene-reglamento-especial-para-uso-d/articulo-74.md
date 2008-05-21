@@ -1,0 +1,7 @@
+74. Las principales funciones de la entidad financiera estarán definidas en el Convenio que para tales efectos se establecerá entre el MAG y la entidad financiera. La entidad financiera que participe deberá cumplir entre otras funciones con las siguientes:
+- Participar con potestad de veto argumentado, como miembro del Comité Regional Mixto en la aprobación de proyectos del componente I y cumplir con los criterios de elegibilidad establecidos en el presente Reglamento;
+- Otorgar recursos crediticios en forma directa a las organizaciones o productores (as) que lo soliciten en el marco de los proyectos, para el financiamiento de las inversiones productivas. Los montos, plazos y garantías dependerán de la naturaleza de cada proyecto y de las políticas y normas internas de la entidad financiera;
+- Preparar los contratos para el crédito relacionado con los proyectos del Componente I aprobados por el CRM e informar a las organizaciones participantes cuando están listos para ser firmados;
+- Desarrollar y mantener un sistema administrativo ágil y oportuno para trasladar los recursos a las organizaciones participantes cuyos proyectos han sido aprobados;
+- Llevar el control de cuentas de los recursos crediticios por organización y presentar los informes correspondientes a la UCP y la AEA;
+- Realizar la gestión de pago y garantizar el repago de los fondos dados en créditos, de acuerdo con la programación y el cumplimiento de los objetivos.

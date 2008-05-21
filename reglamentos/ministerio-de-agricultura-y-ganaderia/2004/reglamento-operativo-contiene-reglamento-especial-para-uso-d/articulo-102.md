@@ -1,0 +1,1 @@
+102. En todo caso, los representantes del Banco Nacional o del ente financiero, tendrán derecho a veto sobre cualquier proyecto presentado, dado que asumen el riesgo final del préstamo. En el caso de proyectos que no requieran crédito, el Banco Nacional o la entidad financiera, no tendrán voto.

@@ -1,0 +1,13 @@
+69. El Consejo Nacional Directivo tendrá las siguientes funciones y atribuciones:
+- Establecer las prioridades del Programa.
+- Aprobar los planes operativos e informes semestrales y anuales del Programa.
+- Aprobar el Reglamento Operativo y posibles modificaciones futuras y presentarlo para no objeción al BID.
+- Asegurar que los criterios para evaluar, priorizar y seleccionar los proyectos presentados por las organizaciones de productores (as) sean cumplidos por los órganos de análisis y aprobación técnica.
+- Aprobar los requisitos mínimos, formales y de contenido, que deben incluir las propuestas de perfiles de proyectos.
+- Emitir las directrices correspondientes a los Comités Regionales Mixtos, mediante el análisis y aprobación del Reglamento Operativo de los Comités Regionales Mixtos.
+- Aprobar la conformación de los órganos de análisis y aprobación técnica de las propuestas de proyectos.
+- Actuar como instancia superior para resolver conflictos que se puedan generar en el ámbito regional y nacional en la selección y ejecución de proyectos.
+- Seleccionar y nombrar, mediante los procedimientos establecidos al Director del Programa, previa solicitud de no objeción del BID.
+- Ratificar el personal designado como contraparte del MAG para la conformación de la UCP.
+- Aprobar las escalas de valoración y puntajes, así como los procedimientos para la aprobación de las propuestas de proyectos y de reconocimientos de beneficios ambientales de las organizaciones de productores (as).
+- Cualesquiera otras acorde con sus objetivos y naturaleza.

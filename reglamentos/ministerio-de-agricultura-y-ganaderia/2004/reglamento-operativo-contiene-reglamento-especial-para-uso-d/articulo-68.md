@@ -1,0 +1,1 @@
+68. Podrán participar en las sesiones del Consejo Nacional Directivo representantes de otras organizaciones de pequeños y medianos productores (as) agropecuarios que hayan sido invitados por su presidente, los cuales tendrán voz cuando así se les solicite, pero no tendrán voto.

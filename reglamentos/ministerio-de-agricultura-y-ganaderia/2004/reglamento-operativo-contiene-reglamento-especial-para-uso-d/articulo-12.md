@@ -1,0 +1,1 @@
+12. En cuanto al componente II, son sujetos adicionales del Programa, los funcionarios del MAG, las entidades privadas y centros de estudios, que participarán en la ejecución de actividades de sus componentes.

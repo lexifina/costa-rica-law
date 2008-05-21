@@ -1,0 +1,2 @@
+La Agencia Especializada Administradora de Contratos- AEA
+83. Una Agencia Especializada Administradora externa se encargará de los aspectos de licitación, adjudicación, contratos, adquisiciones y desembolsos. Su rol principal será el de proporcionar servicios de apoyo para las actividades de ejecución en la contratación de obras y servicios de los Componentes II y III y de la UCP (preparación, licitación y aprobación, presentación de informes y preparación de documentación varia).

@@ -1,0 +1,2 @@
+C. Vigencia y Enmiendas
+8. El presente Reglamento Operativo ha sido aprobado por el Consejo Nacional Directivo en su sesión del 7 de julio de 2004 y ha sido modificado mediante sesión de 10 de enero de 2008, entrando en vigencia junto con su ANEXO UNO a partir de su publicación, en la Página Web del MAG. Las enmiendas que se introdujeran al presente Reglamento Operativo estarán sujetas a un proceso aprobatorio similar al que le dio origen.

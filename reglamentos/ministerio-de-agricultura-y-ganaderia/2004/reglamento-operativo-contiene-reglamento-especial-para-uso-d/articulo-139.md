@@ -1,0 +1,1 @@
+139. Para incluir una nueva iniciativa de proyecto, la UCP establecerá el procedimiento correspondiente en concordancia con la SETENA, el cual deberá permitir visualizar los beneficios ambientales, sociales y financieros.

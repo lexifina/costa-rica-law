@@ -1,0 +1,1 @@
+122. La organización deberá mantener a disposición del Programa, copia de cada proyecto, junto a su evaluación final, y de todos los documentos necesarios, a los que se hace referencia en el párrafo precedente, a efectos de realizar el seguimiento y practicar las auditorías que se estimen convenientes.

@@ -1,0 +1,1 @@
+99. Los proyectos que el ASA dictaminó positivamente, son trasladados a la organización correspondiente, debidamente firmados por el Agente de Extensión para que ésta los entregue en la sede del CRM, concretamente en la oficina del Jefe Regional de Extensión.

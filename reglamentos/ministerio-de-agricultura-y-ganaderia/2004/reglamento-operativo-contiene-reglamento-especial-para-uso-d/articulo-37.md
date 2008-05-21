@@ -1,0 +1,1 @@
+37.Los recursos del subcomponente privilegiarán las inversiones orientadas a la dotación de equipos y de servicios de conectividad a Internet, así como otro tipo de herramientas que le permitan a las ASA y a los operadores de InfoAgro en el nivel regional y nacional, desarrollar con eficiencia la prestación de servicios de información a los usuarios.

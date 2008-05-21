@@ -1,0 +1,1 @@
+86. Para la selección y contratación de esta Agencia, el Director de la UCP elaborará sus Términos de Referencia y el proceso de licitación, que deberán ser aprobados por el CND. Para su contratación se deberá seguir un proceso de licitación pública nacional e internacional, el cual deberá contar con la no objeción del BID.

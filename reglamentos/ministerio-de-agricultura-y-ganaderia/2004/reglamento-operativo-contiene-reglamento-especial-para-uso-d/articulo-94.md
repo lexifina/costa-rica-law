@@ -1,0 +1,11 @@
+94. Las organizaciones prepararán y presentarán sus proyectos con base en la guía establecida en el presente reglamento, y en el Formato para la presentación y evaluación de proyectos que será incluido en el Manual de Procedimientos. En cada proyecto se deberá indicar detalladamente los montos requeridos para la asistencia técnica, las inversiones agropecuarias y obras ambientales y las presentarán posteriormente a las ASAS, las cuales revisarán en primera instancia, con el fin de determinar si tiene viabilidad financiera y socio ambiental y que se ajusta a los criterios establecidos por el Programa. Los proyectos deberán contener al menos la siguiente información:
+- Nombre de la organización y participantes.
+- Justificación del financiamiento.
+- Situación actual a atender.
+- Resultados que se esperan alcanzar al final del proyecto.
+- Impacto estimado de la actividad.
+- Actividades a realizar.
+- Insumos requeridos, necesidades de mano de obra, de inversiones importantes para la elaboración del presupuesto del proyecto.
+- Análisis costo/beneficio estimados.
+- Esquema de ejecución, incluyendo período de ejecución de las obras y asistencia técnica.
+- Presupuesto y financiamiento.

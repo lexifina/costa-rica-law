@@ -1,0 +1,1 @@
+41.En función de promover el acceso, uso y prestación de servicios de información por parte de los productores, las ASA contarán con una rotulación que las identifique como Centros de Información y dispondrán de espacio físico que permita a los usuarios consultar, por su medio o a través de funcionarios de la ASA, la información que corresponda.

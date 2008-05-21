@@ -1,0 +1,2 @@
+B. Preparación y presentación de proyectos
+92. Los proyectos serán identificados y formulados directamente por una organización de productores, a través de un proceso participativo que permita contar con una demanda concreta de acuerdo con los parámetros establecidos por el Programa. Donde no existan proyectos, o las organizaciones no tuvieran la capacidad para hacerlo, podrán solicitar asistencia a través de las ASAS, que apoyarán a las organizaciones que lo demanden, en la preparación de los documentos necesarios.

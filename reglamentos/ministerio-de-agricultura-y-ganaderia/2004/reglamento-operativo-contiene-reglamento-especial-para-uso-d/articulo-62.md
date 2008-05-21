@@ -1,0 +1,1 @@
+62.El Consejo Nacional Directivo del Programa aprobará las escalas y ponderaciones que la UCP proponga para que las ASAS y Comités Regionales Mixtos evalúen los proyectos mediante la asignación de puntajes mínimos parciales y totales que deberán obtener los proyectos para ser aprobados por el CRM.

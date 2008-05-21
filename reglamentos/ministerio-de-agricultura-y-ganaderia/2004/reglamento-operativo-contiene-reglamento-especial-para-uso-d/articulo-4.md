@@ -1,0 +1,2 @@
+B. Bases jurídicas y Ámbito de Aplicación
+4. El Convenio de Préstamo entre el Gobierno de la República de Costa Rica y el Banco Interamericano de Desarrollo, N°. 1436/OC.CR, de fecha 24 de enero de 2003, comprometen al MAG a establecer una Unidad Coordinadora del Programa-UCP y a establecer un Convenio con una Agencia Especializada Administradora, de acuerdo con los procedimientos establecidos con el BID, para la gerencia y coordinación de las actividades del Programa.

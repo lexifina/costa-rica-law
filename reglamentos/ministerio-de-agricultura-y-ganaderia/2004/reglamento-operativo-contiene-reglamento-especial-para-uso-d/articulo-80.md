@@ -1,0 +1,1 @@
+80. El Comité tendrá las facultades para seleccionar y aprobar los proyectos, pero el representante de la entidad financiera tendrá poder de veto, en caso de que un proyecto no llene los requisitos establecidos en sus lineamientos.

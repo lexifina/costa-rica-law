@@ -1,0 +1,1 @@
+25. Cuando las organizaciones no cuenten con la capacidad suficiente para preparar sus proyectos podrán solicitar financiamiento al Programa a través de los Comités Regionales Mixtos. Este financiamiento no será mayor de US$ 1,500 por organización y por una sola vez.

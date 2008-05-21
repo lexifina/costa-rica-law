@@ -1,0 +1,4 @@
+D. Celebración de Contratos y Manejo de Recursos
+107. Al momento de recibir de parte del CRM la aprobación de un proyecto, en sus carpetas respectivas, tanto la UCP como el Banco Nacional u otra entidad financiera, procederán a formalizar la relación con la organización correspondiente. Dos documentos normarán esta relación, los cuales forman parte integral de este Reglamento:
+(a) Un convenio entre la organización y el MAG/UCP, donde se detallarán los aspectos relacionados a las pautas a seguir para hacer llegar los recursos al Banco u otra entidad financiera y del Banco u otra entidad financiera a la organización para financiar la asistencia técnica y obras ambientales;
+(b) Un contrato entre la organización y el Banco Nacional u otra entidad financiera, donde se detallarán los aspectos relacionados con el crédito. Este documento será emitido de acuerdo con los procedimientos ordinarios de los bancos o cualquier otra entidad financiera.

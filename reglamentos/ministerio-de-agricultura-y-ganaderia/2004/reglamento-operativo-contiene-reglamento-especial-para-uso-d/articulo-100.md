@@ -1,0 +1,1 @@
+100. Sobre la base de los antecedentes que presenta la ASA, el equipo regional de extensión, presidido por el Jefe Regional de Extensión, quien a su vez actuará como secretario técnico del CRM, analizará el proyecto y la evaluación financiera y socioambiental para emitir un criterio técnico que sirva de base para la decisión de aprobación por parte del CMR.

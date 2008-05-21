@@ -1,0 +1,2 @@
+El Consejo Nacional Directivo-CND
+65. La responsabilidad del CND, será la de establecer las prioridades del Programa, revisar y ajustar los planes anuales, aprobar el Reglamento Operativo del Programa y cambios futuros con el visto bueno del Banco, revisar los estados financieros anuales, y resolver cualquier otro problema que surja durante su ejecución Actuará como un Consejo adscrito al MAG, cuyo Ministro lo presidirá y estará conformado por:

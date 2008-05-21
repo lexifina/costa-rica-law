@@ -1,0 +1,1 @@
+27. Para el reconocimiento de los beneficios ambientales que oscilan entre 20% y 30%, el monto máximo a ser reconocido por finca será de US$ 4.500 incluida la contrapartida de los productores para la asistencia técnica.

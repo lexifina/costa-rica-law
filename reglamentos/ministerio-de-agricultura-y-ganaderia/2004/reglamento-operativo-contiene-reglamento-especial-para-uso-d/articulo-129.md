@@ -1,0 +1,1 @@
+129. Todos los desembolsos a realizar con recursos de los Componentes II y III, sólo podrán ser efectuados por la AEA, al contar con el aval de la UCP, a fin de constatar que los servicios fueron rendidos en forma satisfactoria.

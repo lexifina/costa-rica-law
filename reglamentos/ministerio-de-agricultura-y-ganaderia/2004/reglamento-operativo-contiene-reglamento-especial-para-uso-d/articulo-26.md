@@ -1,0 +1,1 @@
+26. Si la organización requiere un estudio de pre-inversión referente a cambios tecnológicos productivos y ambientales que son necesarios para responder a oportunidades y exigencias del mercado internacional, el monto máximo a financiar será de US$ 5,000 por una sola vez y por organización.

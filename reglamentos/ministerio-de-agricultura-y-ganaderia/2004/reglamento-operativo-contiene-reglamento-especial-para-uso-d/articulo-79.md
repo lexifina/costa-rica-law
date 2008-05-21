@@ -1,0 +1,1 @@
+79. La evaluación de las propuestas considera los aspectos relativos a los contenidos técnicos y los propios de la entidad financiera. A este comité, se presentarán los proyectos previamente elaborados con su viabilidad técnica, financiera y ambiental, y revisados por las ASAS respectivas y el equipo técnico regional de extensión.

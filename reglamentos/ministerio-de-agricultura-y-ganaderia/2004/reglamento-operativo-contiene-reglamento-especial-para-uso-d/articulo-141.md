@@ -1,0 +1,1 @@
+141. El Director de la UCP y el especialista socio-ambiental y del Componente I, podrán recomendar, según los resultados del Informe de Auditorías ambientales, la suspensión de desembolsos o terminación anticipada del proyecto, debido a situaciones críticas encontradas.

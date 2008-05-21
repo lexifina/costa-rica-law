@@ -1,0 +1,1 @@
+111. El contrato entre la organización (o el productor) y el Banco Nacional u otra entidad financiera, se suscribirá en un mínimo de tres ejemplares originales y una copia, quedando uno en poder del Banco o entidad financiera, otro de la UCP y el tercero en poder de la organización y una copia en la ASA respectiva.

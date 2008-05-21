@@ -1,0 +1,2 @@
+Los proveedores de servicios
+90. Los proveedores de servicios, son todas las personas físicas o jurídicas, técnicos, profesionales, productores (as) o empresas de servicios y organizaciones no gubernamentales de desarrollo, que demuestren ante la Unidad Coordinadora del Programa idoneidad para prestar los servicios demandados, por las organizaciones y el Programa de acuerdo con los parámetros establecidos.

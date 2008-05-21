@@ -1,0 +1,1 @@
+108. Una vez se hayan formalizado estas relaciones, la UCP emitirá dos órdenes de pago, para que se desembolse la primera cuota para cubrir los pagos a los proveedores de servicios de asistencia técnica y de los primeros desembolsos por incentivos en las obras con beneficios ambientales, conforme a los plazos y objetivos establecidos en el proyecto.

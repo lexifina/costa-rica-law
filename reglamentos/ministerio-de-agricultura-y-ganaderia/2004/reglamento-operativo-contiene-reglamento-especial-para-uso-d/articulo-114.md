@@ -1,0 +1,2 @@
+De los fondos de crédito
+114. Las organizaciones y sus beneficiarios manejarán los fondos relacionados con el crédito, de acuerdo con las disposiciones emitidas por el Banco Nacional o la entidad financiera correspondiente, y que para los efectos quedarán consignadas en el contrato correspondiente. En todos los casos, la entidad financiera, para iniciar los desembolsos a las organizaciones sobre los créditos, requiere que la asistencia técnica haya sido contratada, en caso de que se requiera este servicio.

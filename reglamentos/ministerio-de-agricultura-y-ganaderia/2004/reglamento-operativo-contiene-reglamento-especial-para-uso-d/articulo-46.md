@@ -1,0 +1,1 @@
+46. Los aportes de co-financiamiento de las organizaciones para la capacitación se han establecido en 10% del valor total de los eventos. Este aporte podrá ser en efectivo y/o en especie. Para las entidades públicas y sus funcionarios no se ha establecido ningún tipo de co-financiamiento.

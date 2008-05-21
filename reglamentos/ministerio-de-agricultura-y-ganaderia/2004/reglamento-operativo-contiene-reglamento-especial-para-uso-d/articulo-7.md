@@ -1,0 +1,1 @@
+7. El presente Reglamento Operativo establece los criterios, normas, procedimientos y mecanismos que regirán las acciones y los recursos previstos para el Programa de Fomento de la Producción Agropecuaria Sostenible, de acuerdo con el Contrato de Préstamo descrito en el Artículo 4.

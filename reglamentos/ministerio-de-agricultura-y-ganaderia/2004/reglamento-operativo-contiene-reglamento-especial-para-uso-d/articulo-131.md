@@ -1,0 +1,1 @@
+131. Todos los bienes y servicios deberán ser utilizados exclusivamente en la ejecución de las actividades contratadas. La UCP podrá solicitar a la AEA la suspensión parcial o total de un contrato, si encuentra que dichos recursos no están siendo utilizados para lo que fueron contratados.

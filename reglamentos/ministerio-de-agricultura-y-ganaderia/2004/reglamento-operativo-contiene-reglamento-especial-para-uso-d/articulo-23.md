@@ -1,0 +1,1 @@
+23. Podrán acceder a estos recursos las organizaciones de productores, mediante la preparación de perfiles de proyectos que serán presentados de acuerdo con lo establecido en el Cap. VI de este Reglamento.

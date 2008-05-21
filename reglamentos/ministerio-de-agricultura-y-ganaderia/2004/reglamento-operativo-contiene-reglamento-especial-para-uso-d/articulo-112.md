@@ -1,0 +1,3 @@
+E. Movimiento de Fondos
+De los recursos no reembolsables
+112. En lo que se refiere a los recursos para la asistencia técnica y beneficios ambientales, una vez el proyecto haya sido aprobado por el CRM, la UCP autorizará el depósito en las cuentas de la organización, los montos correspondientes a las cuotas establecidas en cada proyecto de acuerdo con el contrato de servicios profesionales en el caso de la asistencia técnica. En lo que se refiere al incentivo por beneficios ambientales, los desembolsos se realizarán con base en el criterio emitido por la ASA sobre el avance en la ejecución del proyecto.

@@ -1,0 +1,1 @@
+5. El MAG establecerá un convenio con el Banco Nacional de Costa Rica o cualquier otra entidad financiera de reconocida trayectoria, para poner a disposición de los productores (as), los recursos crediticios que financien las inversiones productivas de los proyectos presentados por las organizaciones beneficiarias del Programa.
