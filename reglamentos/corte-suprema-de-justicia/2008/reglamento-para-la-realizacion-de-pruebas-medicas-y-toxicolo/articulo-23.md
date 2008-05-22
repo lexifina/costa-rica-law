@@ -1,0 +1,1 @@
+Artículo 23.—En caso de determinarse como resultado de la prueba la presencia de sustancias prohibidas, la Sección de Toxicología deberá indicar en el informe si la sustancia detectada es o no susceptible de prescripción médica.

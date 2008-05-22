@@ -1,0 +1,1 @@
+Artículo 31.—Después de aprobado el presente Reglamento mediante los mecanismos idóneos aplicables, la Dirección General del Organismo de Investigación Judicial tendrá la obligación de hacerlo de conocimiento general.

@@ -1,0 +1,1 @@
+Artículo 26.—Una vez realizados los análisis de la muestra “B”, la Sección de Toxicología remitirá en sobre cerrado a la Dirección General del Organismo de Investigación Judicial, los informes debidamente firmados, revisados y refrendados por parte del (de la) profesional que realizó la pericia, la Jefatura de Sección y del Departamento de Ciencias Forenses.

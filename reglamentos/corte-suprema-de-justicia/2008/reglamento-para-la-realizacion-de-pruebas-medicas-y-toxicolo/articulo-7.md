@@ -1,0 +1,1 @@
+Artículo 7º—Cuando el sujeto a examinar, sea oferente y no concurra a la cita señalada para la realización del examen, el laboratorio informará el asunto a la Dirección General del Organismo de Investigación Judicial, la cual solicitará al Departamento de Personal que se tenga por desistida su oferta de servicios por incumplimiento de requisitos.

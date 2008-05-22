@@ -1,0 +1,1 @@
+Artículo 3º—La Sección de Toxicología será la responsable de que todo el proceso se realice conforme lo exigen las reglas científicas, desde su inicio y hasta que el laboratorio encargado entregue los resultados, y deberá guardar la confidencialidad de la información que pueda resultar de los referidos exámenes.

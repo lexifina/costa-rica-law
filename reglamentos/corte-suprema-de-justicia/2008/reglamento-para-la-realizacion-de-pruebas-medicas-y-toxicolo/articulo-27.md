@@ -1,0 +1,2 @@
+Artículo 27.—Cuando se presente una prescripción médica válida para el caso, a criterio de la Dirección General del Organismo de Investigación Judicial, o el análisis de la muestra “B” sea negativo se procederá al archivo de las diligencias. Tratándose de oferentes, la Dirección General deberá además informar al Departamento de Personal, a fin de que éste continúe con el respectivo proceso de reclutamiento y selección.
+Para determinar la validez de la prescripción médica la Dirección General podrá solicitar el criterio de los profesionales de la Institución.

@@ -1,0 +1,1 @@
+Artículo 6º—Si quien se niega a someterse a la prueba es un(a) funcionario(a) activo(a), el personal técnico encargado de la misma enviará un informe detallado de lo sucedido a la Dirección General del Organismo de Investigación Judicial, para que se instaure el correspondiente proceso disciplinario en su contra dentro de los parámetros del debido proceso.

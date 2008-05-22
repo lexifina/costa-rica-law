@@ -1,0 +1,1 @@
+Artículo 11.—Para la realización del examen toxicológico será necesario el uso de cuatro diferentes formularios, cuya manipulación quedará bajo la responsabilidad de los profesionales encargados de realizar la prueba.

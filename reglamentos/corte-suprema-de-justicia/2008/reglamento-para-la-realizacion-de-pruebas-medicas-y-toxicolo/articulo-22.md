@@ -1,0 +1,1 @@
+Artículo 22.—Cuando el análisis de la muestra “A” sea negativo se procederá al archivo de las diligencias. Tratándose de oferentes, la Dirección General del Organismo de Investigación Judicial deberá además informar al Departamento de Personal sobre el resultado negativo del análisis a fin de que éste continúe con el respectivo proceso de reclutamiento y selección.
