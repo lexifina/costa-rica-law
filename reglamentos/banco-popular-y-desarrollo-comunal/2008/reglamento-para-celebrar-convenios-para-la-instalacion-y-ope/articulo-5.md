@@ -1,0 +1,1 @@
+Artículo 5º—De la comisión. El Banco Popular y de Desarrollo Comunal reconocerá, a las entidades que figuren como contraparte en estos convenios, una comisión por cada producto o servicio autorizado que ésta venda o coloque, siempre y cuando medie la aprobación del Banco.

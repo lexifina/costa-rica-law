@@ -1,0 +1,1 @@
+Artículo 10.—De la selección. Concluida la fase de valoración, corresponderá al Subgerente General de Negocios del Banco Popular o al Director de Área en quien este delegue por escrito, mediante acto motivado, designar a la entidad o entidades que figurarán como contraparte, por resultar las más convenientes para los intereses institucionales.

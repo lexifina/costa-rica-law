@@ -1,0 +1,3 @@
+Artículo 6º—De la aprobación de la comisión. Los montos y porcentajes que el Banco Popular y de Desarrollo Comunal reconocerá por concepto de comisión, serán los que se detallan en el Anexo de este reglamento.
+Los montos de las comisiones indicadas en el anexo podrán ser variados por la Gerencia General Corporativa o la Subgerencia General de Negocios, lo cual deberá ser notificado a la contraparte por los medios legales a su alcance con al menos treinta días naturales de antelación a su vigencia.
+Esta variación podrá superar hasta en un 80% el monto máximo fijado para el determinado producto o servicio durante el año natural anterior a la modificación.
