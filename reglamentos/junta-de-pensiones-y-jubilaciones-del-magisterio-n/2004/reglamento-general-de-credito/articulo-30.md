@@ -1,9 +1,7 @@
-Artículo 30.—Derogatorias. Este reglamento deroga las disposiciones reglamentarias y acuerdos anteriores, dictados por la Junta Directiva que se indican a continuación:
-- Reglamento General de Créditos. Aprobado en Sesiones ordinarias Nº 39 y 40 de fechas 16 y 21 de mayo de 1991 respectivamente, y sus modificaciones.
-- Reglamento de Crédito para Contingencias. Última modificación en sesión Extraordinaria Nº 12-01 del 02 de marzo de 2001.
-- Reglamento de Crédito para el Desarrollo de Microempresas. Aprobado en sesión Ordinaria Nº 62-95 de fecha 2 de noviembre de 1995 y sus modificaciones.
-- Reglamento de Créditos para Asistencia Especial. Aprobado en sesión ordinaria Nº 09-96 de fecha 8 de febrero de 1996 y sus modificaciones.
-- Reglamento de Crédito para Línea de Urgencia. Aprobado en la sesión Ordinaria Nº 30-00 de fecha 24 de mayo del 2000.
-- Reglamento de Crédito a Pensionados con cargo de Directivo. Derogado en la sesión Ordinaria Nº 66-02 de fecha 11 de setiembre del 2002.
-Considérese derogado cualquier otro Reglamento o Acuerdo de Junta Directiva, relacionados con créditos que no se incluya en este artículo por omisión.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 29 al 30 actual).
+Artículo 30.—Excepciones. Las solicitudes de crédito excepcionales, que no califiquen con los requerimientos que indica el presente Reglamento de Crédito, deberán ser analizadas y resueltas por la Junta Directiva.
+Se exceptúa de este trámite lo concerniente a la Línea de Salud y Derechos Sucesorios, cuyas solicitudes atípicas serán analizadas por el Comité de Crédito, quien tomará la resolución final en un plazo no mayor de tres días hábiles.
+Se podrán autorizar hasta un máximo de dos prórrogas de pago por sujeto de crédito. La primera será autorizada por la Dirección Ejecutiva y la segunda por la Junta Directiva , cada una de las cuales no podrá exceder un plazo superior a seis meses.
+Se autoriza a la Dirección Ejecutiva , para que en casos de excepción se solicite una fianza solidaria o garantía real de funcionarios activos del Magisterio Nacional, previa recomendación del estudio técnico elaborado por el Departamento Financiero Contable.
+(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 28 al 29 actual).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 29 al 30 actual)
+(Así reformado mediante sesión N° 56 del 22 de mayo de 2008)

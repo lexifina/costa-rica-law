@@ -1,8 +1,13 @@
-Artículo 12.—Línea de Urgencia.
-a) Poseer un líquido de pensión, mayor o igual a los ¢75.000,00 (setenta y cinco mil colones con 00/100). Se aplicará el principio de proporcionalidad residual según corresponda.
-b) Tener un crédito vigente por la Línea de Gastos Personales.
-c) Presentar los documentos que comprueben la necesidad de solventar uno o varios de los requerimientos determinados para acceder a esta línea de crédito (dictámenes médicos, facturas, documentos de cobro administrativo o judicial, certificaciones del Registro de la Propiedad, estados de cuenta de otras operaciones, denuncias planteadas ante el Organismo de Investigación Judicial etc.)
-d) Presentar fotocopia de la cédula de identidad (por ambos lados).
-e) Proporcionar satisfactoriamente los datos (personales y de familiares cercanos solicitados por el Área de Crédito.
-f) Presentar y cumplir con los documentos y requisitos adicionales, que le solicite el Área de Crédito, en caso de considerarse necesario.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 11 al 12 actual).
+Artículo 12.—Línea de Salud.
+a) El interesado deberá contar con una pensión o jubilación líquida mayor a tres veces el monto de la cuota asignada.
+b) No poseer operaciones con otras entidades magisteriales, ni del Sector Público o Privado, que comprometan el 60% o más del monto devengado de la pensión o jubilación (para los casos en que el monto nominal de la pensión o jubilación sea inferior a los doscientos mil colones).
+c) Deberá firmar un pagaré a favor de la Junta de Pensiones, en el cual se especifican las condiciones en que fue otorgado el crédito.
+d) Como garantía, solo se acepta la pignoración de la póliza de vida mutual administrada por la Sociedad de Seguros de Vida del Magisterio Nacional.
+e) De existir compromisos crediticios con la Junta , estos deben estar completamente al día.
+f) Las cuotas del crédito, incluyendo amortización y pago de intereses, serán deducidas de la pensión o jubilación, previa autorización del interesado.
+g) Presentar fotocopia de la cédula de identidad (por ambos lados).
+h) Presentar documentos probatorios que muestren fehacientemente el tratamiento médico a realizar.
+La Junta de Pensiones se reserva el derecho de solicitar garantías adicionales, en aquellos casos que así lo considere conveniente.
+(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 10 al 11 actual).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 11 al 12 actual)
+(Así reformado mediante sesión N° 56 del 22 de mayo de 2008)

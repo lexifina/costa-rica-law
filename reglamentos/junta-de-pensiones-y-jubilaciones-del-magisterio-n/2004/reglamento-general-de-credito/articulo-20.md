@@ -1,4 +1,9 @@
-Artículo 20.—Mecanismo de aprobación. Las solicitudes de crédito serán recibidas, analizadas y aprobadas o denegadas por el Área de Crédito del Departamento Financiero-Contable de la Junta de Pensiones, según los parámetros establecidos en este Reglamento.
-Se exceptúan de esta aprobación, los casos que por su naturaleza atípica deben ser aprobados por la Junta Directiva de la Junta de Pensiones y los de la línea para Entidades Sociales y Financieras del Magisterio Nacional, cuya aprobación final también la brinda ese órgano.
-Queda entendido que por el hecho de recibir la solicitud de crédito, la Junta no adquiere compromiso y obligación alguna con el solicitante y que la aprobación del mismo queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria, y los acuerdos expresos de la Junta Directiva.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 19 al 20 actual).
+Artículo 20.—Desembolsos. La Junta de Pensiones, por medio del Área de Crédito del Departamento Financiero-Contable, se reserva el derecho de realizar desembolsos parciales, en los créditos por la línea de Microempresa.
+Por lo tanto, podrá solicitar a los deudores la presentación de facturas originales, facturas pro-forma, informes de avance, y en general, cualquier otro documento que permita comprobar el uso que se le ha dado a los recursos derivados de la operación crediticia.
+En el caso de la Línea de Salud y de Urgencia, los desembolsos serán girados a nombre del beneficiario, o directamente a nombre de la persona u organización que prestó o prestará el servicio o que le será cancelada la deuda pendiente, según sea la naturaleza o la finalidad del crédito.
+Para los casos otorgados bajo la Línea de Pago de Deuda de Pensión, los desembolsos deberán realizarse a nombre de la Junta y del Ministerio de Hacienda, cuando se trate de casos del Régimen Transitorio de Reparto; y a nombre de la Junta , cuando sean casos correspondientes al Régimen de Capitalización Colectiva.
+En la línea de crédito para Entidades Sociales y Financieras del Magisterio Nacional, se aplicará lo que consigne el acuerdo de Junta Directiva que autorizó el préstamo.
+Todo desembolso parcial generará intereses que correrán a partir de la fecha propuesta de la formalización.
+(Así reformado y corrida su numeración mediante sesión N °60 del 31 de mayo del 2006, que lo traspasó del antiguo 18 al 19 actual).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 19 al 20 actual)
+(Así reformado mediante sesión N° 56 del 22 de mayo de 2008)

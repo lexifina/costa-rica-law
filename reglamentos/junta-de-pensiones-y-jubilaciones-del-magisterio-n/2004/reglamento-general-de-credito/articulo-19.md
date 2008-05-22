@@ -1,7 +1,6 @@
-Artículo 19.—Desembolsos. La Junta de Pensiones, por medio del Área de Crédito del Departamento Financiero-Contable, se reserva el derecho de realizar desembolsos parciales, en los créditos por la línea de Microempresa.
-Por lo tanto, podrá solicitar a los deudores la presentación de facturas originales, facturas proforma, informes de avance, y en general, cualquier otro documento que permita comprobar el uso que se le ha dado a los recursos derivados de la operación crediticia.
-En el caso de la Línea de Salud, los desembolsos no serán girados a nombre del beneficiario, sino directamente a nombre de la persona u organización que prestó o prestará el servicio o que le será cancelada la deuda pendiente. Por la vía de la excepción el reintegro de facturas será girado al solicitante.
-En la línea de crédito para entidades sociales y financieras del Magisterio Nacional, se aplicará lo que consigne el acuerdo de Junta Directiva que autorizó el préstamo.
-En el caso de la Línea de Urgencia, como regla general los desembolsos serán girados a nombre de la persona u organización que prestó o prestará el servicio o que le será cancelada la deuda pendiente, salvo que ello no fuere posible.
-Todo desembolso parcial generará intereses que correrán a partir de la fecha en que se efectúe la formalización de la operación crediticia.
-(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 18 al 19 actual).
+CAPÍTULO IV
+Análisis, formalización y cobro
+Artículo 19.—Formalización. El proceso de análisis de la solicitud presentada por el interesado, en cualquiera de las diferentes líneas, se iniciará cuando éste haya presentado, a satisfacción del Área de Crédito, la totalidad de los requisitos previamente definidos en este reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
+La responsabilidad de determinar la fecha de formalización de los préstamos otorgados, le corresponde al Departamento Financiero- Contable, el cual coordinará los trámites internos y externos que se requieran para los casos que así lo ameriten, tomando en consideración el flujo de efectivo y el número de solicitudes que se estén administrando simultáneamente.
+(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 17 al 18 actual).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 18 al 19 actual)

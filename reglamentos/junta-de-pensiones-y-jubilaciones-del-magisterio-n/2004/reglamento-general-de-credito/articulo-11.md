@@ -1,12 +1,13 @@
-Artículo 11.—Línea de salud.
-a) El interesado deberá contar con una pensión líquida mayor a tres veces el monto de la cuota asignada.
-b) No poseer operaciones con otras entidades magisteriales, ni del sector público o privado, que comprometan el 60% o más del monto devengado de la pensión.
-c) Deberá firmar un pagaré a favor de la Junta de Pensiones, en el cual se especifican las condiciones en que fue otorgado el crédito.
-d) Como garantía, solo se acepta la pignoración de la póliza de vida mutual administrada por la Sociedad de Seguros de Vida del Magisterio Nacional.
-e) De existir compromisos crediticios con la Junta, estos deben estar completamente al día.
-f) Las cuotas del crédito, incluyendo amortización y pago de intereses, serán deducidas de la pensión, previa autorización del interesado.
-g) Presentar fotocopia de la cédula de identidad (por ambos lados).
-h) Presentar facturas proforma donde se muestre el servicio a financiar, o facturas timbradas y canceladas acompañadas de un dictamen médico extendido dentro de los 30 días naturales a la presentación de la solicitud.
-i) Formulario debidamente lleno, donde se muestre en forma breve y clara el motivo del crédito, la dirección exacta del deudor, entre otros.
-La Junta de Pensiones se reserva el derecho de solicitar garantías adicionales, en aquellos casos que así lo considere conveniente.
-(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 10 al 11 actual).
+Artículo 11.—Derechos Sucesorios.
+a) El interesado deberá contar con una pensión o jubilación líquida mayor a tres veces el monto de la cuota asignada.
+b) No poseer operaciones con otras entidades magisteriales, ni del Sector Público o Privado, que comprometan el 60% o más del monto devengado de la pensión o jubilación.
+c) Estar en capacidad de aportar un fiador, que sea un trabajador activo en propiedad del Magisterio Nacional, para que responda por cualquier cuota no pagada por el deudor y que asuma el compromiso en caso de fallecimiento de éste. Dicho fiador, deberá mostrar la solvencia económica necesaria, por medio de las constancias de los salarios desglosados de los últimos seis meses, así como certificación de que se encuentran en propiedad.
+d) Presentar fotocopia de la cédula de identidad.
+e) Presentar documentos probatorios que muestren fehacientemente el servicio médico a financiar, gastos escolares o matrículas. En caso de robo, desastres naturales, etc. presentar copia de la denuncia ante el Organismo de Investigación Judicial o certificación de la autoridad competente.
+f) Las cuotas del crédito, incluyendo amortización y pago de intereses, serán deducidas de la pensión o jubilación previa autorización del interesado.
+g) Presentar certificación de estado civil con no más de quince días de emitida y declaración jurada que indique que no se encuentra conviviendo de hecho.
+h) Cualquier otro requisito adicional, no considerado en los incisos anteriores, a criterio del Departamento Financiero Contable.
+La Junta de Pensiones se reserva el derecho de solicitar garantías o documentos adicionales, en aquellos casos que así lo considere conveniente.
+(Así adicionado mediante sesión N° 60 del 31 de mayo del 2006).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 10 al 11 actual)
+(Así reformado mediante sesión N° 56 del 22 de mayo de 2008)
