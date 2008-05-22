@@ -1,0 +1,2 @@
+Artículo 24.—Sanciones. El incumplimiento de las obligaciones, las funciones, los procedimientos y los plazos aquí establecidos será sancionado como falta grave de acuerdo con las penas instituidas en el Reglamento Autónomo de Trabajo.
+De igual sanción se hará acreedor el funcionario que por razón de su cargo o puesto se encuentre obligado a exigir o constatar la suscripción de las garantías; con su actuar omita, obvie o no compela al obligado a la prestación de la misma.

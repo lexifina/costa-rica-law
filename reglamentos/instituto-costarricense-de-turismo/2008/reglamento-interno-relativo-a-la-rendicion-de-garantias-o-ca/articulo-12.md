@@ -1,0 +1,4 @@
+Artículo 12.—Del monto de la garantía. Todos los funcionarios obligados a rendir caución deberán hacerlo de acuerdo con los siguientes montos y los niveles de responsabilidad.
+Cargo o puesto | Nivel de responsabilidad | Monto a caucionar en colones
+-Miembros de Junta Directiva. -Presidente Ejecutivo. -Consejo Director de Papagayo. -Comisión Reguladora de Turismo. -Asesor de Ministro. - Gerente General. -Auditor -Asesor Legal -Asistentes Técnico y Administrativo de la Gerencia General. -Subgerente de Mercadeo. -Director PGP. -Integrantes de la CIMAT. -Secretario Técnico CIMAT. -Líderes de Macroproceso. -Asesor de Planificación. -Proveedor Institucional. -Líderes de Proceso. | A | 5 salarios base (equivalentes a la fecha a ¢1.135.000,00)
+-Coordinador de Subproceso. -Auditores Fiscales. -Encargado de la Tesorería. -Responsable de confeccionar los cheques y transferencias. -Operadores de equipo móvil. | B | 2 ½ salarios base (equivalentes a la fecha a ¢567.500,00)

@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Responsabilidades y sanciones
+Artículo 23.—Responsabilidad. El incumplimiento o inobservancia de cualquiera de las disposiciones de la presente normativa será causal de responsabilidad disciplinaria, sin perjuicio de otras responsabilidades administrativas, penales o civiles en las que incurra el funcionario.
+Le corresponde al Proceso de Recursos Humanos tomar las medidas necesarias que correspondan para el resarcimiento de daños y perjuicios irrogados por el caucionante al patrimonio de la Institución, cuando la responsabilidad del caucionante haya sido declarada conforme lo establece el ordenamiento jurídico vigente.
+La ejecución de la garantía debe de ir precedida de un procedimiento administrativo tramitado conforme al Libro Segundo de la Ley General de la Administración Pública, en donde se demuestre la falta del servidor caucionante y se ordene el resarcimiento de los daños y perjuicios irrogados al Instituto Costarricense de Turismo, lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan.
+En el transcurso del proceso de ejecución la Administración está facultada para acceder a la información ante las instancias que efectuaron o poseen comprobantes del trámite de la garantía.

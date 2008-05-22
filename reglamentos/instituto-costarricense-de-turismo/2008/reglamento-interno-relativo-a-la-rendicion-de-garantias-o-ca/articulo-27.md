@@ -1,0 +1,1 @@
+Artículo 27.—Transitorio II—Los funcionarios obligados en esta normativa a prestar caución que actualmente se desempeñan en los cargos y puestos comprendidos en los incisos a), b), c), d), e), f), g), h) o i) del artículo 3º deberán gestionar su caución y presentar una copia en el Proceso de Recursos Humanos dentro del mes natural posterior a su publicación.

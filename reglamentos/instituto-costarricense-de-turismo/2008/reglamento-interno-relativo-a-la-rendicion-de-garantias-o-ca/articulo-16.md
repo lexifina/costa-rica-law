@@ -1,0 +1,1 @@
+Artículo 16.—De la sustitución de garantías. El funcionario podrá sustituir en cualquier momento la garantía rendida a favor del Instituto, siempre y cuando la que la sustituya cumpla con todos los requerimientos que exige la presente normativa y se rinda a entera satisfacción del ICT.
