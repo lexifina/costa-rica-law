@@ -14,3 +14,4 @@ Reforma Reglamento Interno de la Junta de Adquisiciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
+| 2 | 2008-05-22 | Reglamento 5833 (2008-05-22) |
