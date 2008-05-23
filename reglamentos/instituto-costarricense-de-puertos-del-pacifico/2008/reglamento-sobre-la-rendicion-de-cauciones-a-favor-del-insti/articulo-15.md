@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 15.—Caución mínima. El monto mínimo de la garantía a favor del Instituto Costarricense de Puertos del Pacífico será de quinientos mil colones. Anualmente, la Dirección de Gestión Administrativa-Financiera, actualizará para cada nivel el monto por caucionar tomando como parámetro el salario base de un Oficinista 4 establecido por la Autoridad Presupuestaria a inicio de año. Dicha actualización será comunicada por escrito tanto a los funcionarios caucionantes como al Área de Administración de Capital Humano. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.

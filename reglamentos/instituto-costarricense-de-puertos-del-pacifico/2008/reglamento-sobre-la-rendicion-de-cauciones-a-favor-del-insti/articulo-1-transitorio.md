@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio Primero.—Los funcionarios que al momento de entrada en vigencia de este Reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una copia al Área de Tesorería, posterior a la resolución que emita la Gerencia general basada en el estudio técnico que elaborará el Director de Gestión Administrativo-Financiero y el Encargado del Área de Administración del Capital humano.
