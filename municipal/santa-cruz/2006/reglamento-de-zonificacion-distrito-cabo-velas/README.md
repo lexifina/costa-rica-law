@@ -14,3 +14,4 @@ Reglamento de Zonificación Distrito Cabo Velas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-03 | la propia norma |
+| 2 | 2008-05-23 | SINALEVI (sin norma nombrada) |
