@@ -1,0 +1,3 @@
+Artículo 8º—Cuando el beneficiario se vea imposibilitado para adquirir el combustible, sea por baja rentabilidad pesquera, inactividad, daños o reparación de la embarcación o el motor, enfermedad o cualquier otro motivo, deberá presentar una justificación escrita y la solicitud de combustible competitivo con la documentación completa y correcta.
+Dicha gestión deberá ser presentada ante el INCOPESCA dentro de los primeros veinte días hábiles a partir del último período de pesca, caso contrario la misma caducará de pleno derecho.
+A gestión del beneficiario el DCAC hará constar la presentación de la solicitud y estará facultada a emitir la orden de compra de combustible a precio competitivo, cuando el interesado lo solicite nuevamente por escrito.

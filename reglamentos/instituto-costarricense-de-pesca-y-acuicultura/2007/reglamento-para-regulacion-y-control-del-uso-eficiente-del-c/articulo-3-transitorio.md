@@ -1,0 +1,1 @@
+Transitorio 3.—Aquellos beneficiarios que a la fecha de publicación del presente Reglamento, tengan en existencia Factureros de Venta de productos pesqueros, se les permitirá su uso hasta agotar existencias.

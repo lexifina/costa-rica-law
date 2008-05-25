@@ -1,0 +1,1 @@
+Artículo 10.—En caso de inactividades o sus prórrogas, se seguirá el mismo procedimiento indicado en el Artículo 9 y la orden de compra de combustible será emitida una vez vencido el plazo de la misma y se hará constar en el expediente respectivo la solicitud y su documentación.

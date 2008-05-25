@@ -1,0 +1,1 @@
+Artículo 43.—Este Acuerdo rige a partir de 30 días calendario después de su publicación en el Diario Oficial La Gaceta y deroga cualquier otra disposición anterior emitida en esta materia para la flota pesquera nacional comercial no deportiva.

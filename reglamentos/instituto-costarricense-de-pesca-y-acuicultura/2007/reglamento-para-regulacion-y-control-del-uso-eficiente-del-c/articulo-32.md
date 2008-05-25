@@ -1,0 +1,1 @@
+Artículo 32.—Para efectos del cálculo de combustible, en aquellas embarcaciones que se utilizan dos motores fuera de borda debidamente inscritos ante el Registro Nacional de Buques, el INCOPESCA solamente reconocerá el gasto de combustible para el motor de mayor potencia.
