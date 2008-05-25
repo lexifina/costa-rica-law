@@ -15,3 +15,4 @@ Reglamento para Regulación y Control del Uso Eficiente del Combustible a Precio
 | --- | --- | --- |
 | 1 | 2008-05-25 | la propia norma |
 | 2 | 2008-05-25 | Acuerdo 33 (2008-01-25) |
+| 3 | 2008-05-25 | Reglamento 119 (2008-03-14) |
