@@ -1,0 +1,1 @@
+Artículo 18.—El pago de las becas se hará mediante cheque en la Tesorería Municipal en las fechas que se disponga al efecto. En caso de menores el cheque se confeccionará a nombre de la persona encargada del menor quien deberá retirarlo personalmente o mediante autorización al menor quien deberá identificarse debidamente.

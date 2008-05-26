@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo de Distrito deberá trasladar a la Comisión Municipal de Becas las solicitudes que avale y apruebe a más tardar ocho días hábiles después de cerrado el período de recepción de solicitudes. Junto a cada solicitud aprobada indicaran de forma sucinta las consideraciones que se tomaron para el otorgamiento del aval.

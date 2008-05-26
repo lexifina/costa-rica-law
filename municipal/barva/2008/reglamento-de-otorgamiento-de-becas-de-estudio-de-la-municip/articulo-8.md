@@ -1,0 +1,1 @@
+Artículo 8º—El Concejo Municipal, una vez recibida la recomendación junto al expediente respectivo cuenta con un plazo de 15 días hábiles para pronunciarse favorable o desfavorablemente. En caso de resolver positivamente remitirá el expediente al Concejo de Distrito (o Comisión) para su seguimiento.

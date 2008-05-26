@@ -1,0 +1,1 @@
+Artículo 17.—El Concejo Municipal adjudicará becas de estudio hasta el monto de dinero que se haya dispuesto presupuestariamente. En caso de revocatoria de beneficios podrá reasignarla a otro aspirante siguiendo los procedimientos establecidos.

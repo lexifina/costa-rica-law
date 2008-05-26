@@ -1,0 +1,1 @@
+Artículo 2º—El objeto del presente Reglamento será regular el procedimiento para el otorgamiento de becas de estudio y garantizar que la adjudicación de dichos incentivos se realice de la forma más justa y equitativa. Las becas se otorgarán con el propósito de que estudiantes destacados pero con limitaciones económicas puedan finalizar sus estudios.
