@@ -1,1 +1,3 @@
 Artículo 19.—Respeto a los derechos de autor: Toda propuesta deberá ser respetuosa de los derechos de autor de sus creadores, de manera que cuando sea procedente, el proyecto deberá contar con las respectivas autorizaciones –por escrito- de los autores de las obras, coreógrafos, directores escénicos, compositores y cualquier otro que posea derechos de autor sobre ellas.
+Esta obligación es responsabilidad exclusiva del solicitante, por lo que el Teatro no asume ninguna consecuencia ni responsabilidad que pueda derivarse del irrespeto a los derechos de autor por parte del beneficiario.
+(Así adicionado el párrafo anterior por el artículo N° 16 del decreto ejecutivo N° 34615 del 26 de mayo de 2008).

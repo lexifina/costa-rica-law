@@ -1,0 +1,2 @@
+Transitorio III. La entrega del material de inscripción, al que se refiere el artículo 33 del Reglamento, se hará únicamente de forma personal en los lugares señalados para tal efecto, hasta tanto no se cuente con un Reglamento formal para la entrega de dicho material a través del uso de medios electrónicos.
+(Así adicionado por el artículo N° 39 del decreto ejecutivo N° 34615 del 26 de mayo de 2008).

@@ -14,3 +14,4 @@ Reglamento del Programa Nacional para el Desarrollo de Las Artes Escénicas Proa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-22 | la propia norma |
+| 2 | 2008-05-26 | Decreto Ejecutivo 34615 (2008-05-26) |

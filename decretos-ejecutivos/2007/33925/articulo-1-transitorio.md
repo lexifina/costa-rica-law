@@ -1,0 +1,3 @@
+Transitorio I. Para las convocatorias de los años 2008 y 2009, se aceptará la presentación de propuestas de aquellas organizaciones que estén en conformación de su personalidad jurídica, para lo cual deberán presentar la documentación idónea que acredite que dicho trámite está en proceso. En estos casos, para los giros respectivos, se aceptarán facturas timbradas del postulante del proyecto que figura como representante legal de la organización en constitución.
+Durante la ejecución del proyecto, cuando la organización adquiera su personalidad jurídica, deberá regular su situación con el Teatro y presentar toda la documentación que acredite su nuevo estatus jurídico.
+(Así adicionado por el artículo N° 39 del decreto ejecutivo N° 34615 del 26 de mayo de 2008).
