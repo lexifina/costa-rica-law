@@ -1,0 +1,1 @@
+Artículo 26.—Del Manual de Auditoría. Es obligación del Auditor Interno definir y mantener actualizado en el Manual de Auditoría, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna, así como los procedimientos de control interno, realizando las evaluaciones internas de su unidad.

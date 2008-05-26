@@ -1,0 +1,1 @@
+Artículo 41.—Servicios preventivos. Los estudios preventivos de Auditoría se fundamentan en la asesoría, advertencia y autorización de libros que la Auditoría pueda brindar al Jerarca, a la Administración Activa y a los órganos adscritos a la Municipalidad de Flores, brindando un seguimiento razonable a estas labores.

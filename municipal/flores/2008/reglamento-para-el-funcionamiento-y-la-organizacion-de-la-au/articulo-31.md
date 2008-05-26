@@ -1,0 +1,1 @@
+Artículo 31.—Apoyo profesional externo. El Auditor Interno podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionario o no de la Municipalidad de Flores, para que lleven a acabo labores de su especialidad en apoyo a las Auditorías que realice la Auditoría Interna.

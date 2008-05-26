@@ -1,0 +1,1 @@
+Artículo 48.—Objeciones a informes. En los casos en que la Administración discrepe con la Auditoría Interna sobre las situaciones comunicadas, se procederá según lo establecido en el artículo 36 de la Ley General de Control Interno.

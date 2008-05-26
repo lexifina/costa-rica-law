@@ -1,0 +1,1 @@
+Articulo11.—Participación en sesiones. El Auditor Interno, en su calidad y responsabilidad de asesor del Concejo Municipal, podrá participar en las Sesiones del Jerarca cuando así el ente director lo solicite, siendo su participación esporádica y no permanente, participando únicamente con voz cuando sean necesarias sus opiniones sobre los temas que se debaten en las sesiones.

@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Ubicación y estructura organizativa
+Artículo 13.—Ubicación. La Unidad de Auditoría Interna de la Municipalidad de Flores, será organizada y funcionará bajo la responsabilidad del Auditor Interno, de acuerdo a las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República. La Unidad de Auditoría Interna de la Municipalidad de Flores podrá contar con el personal que así lo amerite y de acuerdo a las necesidades de la misma, siempre que sea aprobado por el Jerarca, cumpliendo la función de órgano asesor de muy alto nivel con dependencia orgánica del jerarca institucional.

@@ -1,0 +1,1 @@
+Artículo 38.—Plazo razonable. Cuando se trate de comunicaciones de la Auditoría Interna, referente a solicitudes de información o documentación para algún estudio, ésta determinará un plazo razonable dentro del cual la Administración Municipal deberá remitirla.
