@@ -1,1 +1,0 @@
-Artículo 11°—Derogatorias. Deróguese el Decreto de “Creación y Organización de las Contralorías de Servicios No 22511-MIDEPLAN de 17 de setiembre de 1993, así reformado por el Decreto No 23721-PLAN del 6 de octubre de 1994, para que en adelante el Sistema Nacional de Servicios se rija el presente Decreto Ejecutivo.

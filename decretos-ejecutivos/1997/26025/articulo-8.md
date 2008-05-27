@@ -1,1 +1,0 @@
-Artículo 8°—Apoyo institucional a las Contralorías. Para el cumplimiento de sus funciones, los órganos competentes de cada Institución suministrarán a su Contraloría de Servicios los recursos necesarios para el cumplimiento de las funciones establecidas en el presente decreto de acuerdo con la legislación vigente.

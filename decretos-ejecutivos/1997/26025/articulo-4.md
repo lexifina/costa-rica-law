@@ -1,2 +1,0 @@
-Artículo 4°— Principios del Servicio Público.
-a) Las actividades de las instituciones públicas estarán sujetas a los principios fundamentales del servicio público para asegurar su continuidad, eficiencia, adaptación a todo cambio legal o necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios, según lo establecido en la Ley General de la Administración Pública
