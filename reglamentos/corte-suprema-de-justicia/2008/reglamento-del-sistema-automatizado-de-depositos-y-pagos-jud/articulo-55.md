@@ -1,0 +1,1 @@
+Artículo 55.—Reversión. Reversión. Si el traspaso fue realizado y se determina que no era procedente, el Juez debe solicitar al despacho donde se envió el expediente que el día hábil siguiente realice la transferencia nuevamente.

@@ -1,0 +1,1 @@
+Artículo 26.—Perfiles de Acceso. Los perfiles de acceso serán definidos por los encargados del S.D.J. del Departamento de Informática, de acuerdo con los requerimientos de los usuarios, en coordinación con la Administración del Circuito y el Juez Encargado del Sistema respectivamente.

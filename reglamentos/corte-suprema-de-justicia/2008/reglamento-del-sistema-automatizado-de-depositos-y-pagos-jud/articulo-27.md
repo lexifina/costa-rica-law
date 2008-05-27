@@ -1,0 +1,1 @@
+Artículo 27.—Del acceso al S.D.J. El ingreso al S.D.J. se realizará únicamente a través de la código de acceso, el cual deberá ser solicitado formalmente al Departamento de Tecnología de Información, o a los analistas regionales informáticos, suministrando la información requerida por el Departamento de Tecnología de Información.
