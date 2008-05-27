@@ -14,3 +14,4 @@ Criterios de Clasificación Tributaria de grandes contribuyentes y gran empresa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-28 | la propia norma |
+| 2 | 2008-05-27 | Resolución 9 (2008-05-27) |
