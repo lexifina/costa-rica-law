@@ -1,0 +1,2 @@
+Transitorio único.—Las deudas cuyo trámite de cobro se haya iniciado antes de la fecha de entrada en vigencia de este procedimiento, se tramitarán de conformidad con el procedimiento anterior. El presente procedimiento fue aprobado por la Junta Directiva de Correos de Costa Rica S. A., mediante Acuerdo número 4378, tomado en la sesión extraordinaria 864, celebrada el día jueves 10 de abril del 2008.
+Rige a partir de su publicación.

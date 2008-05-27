@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia: Este procedimiento rige un mes después de su aprobación por parte de la Junta Directiva de Correos de Costa Rica S.A. y deberá ponerse en conocimiento de los trabajadores a través de las Jefaturas respectivas las que colocarán el texto respectivo en un lugar visible en cada centro de trabajo.

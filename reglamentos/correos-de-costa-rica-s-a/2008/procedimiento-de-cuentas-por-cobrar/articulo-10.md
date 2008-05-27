@@ -1,0 +1,1 @@
+Artículo 10.—Se deja sin efecto el Procedimiento de Cuentas por Cobrar aprobado por la Junta Directiva de Correos de Costa Rica S. A. por Acuerdo 1498 de la Sesión 259 del 3 de setiembre de 2001, así como sus reformas.

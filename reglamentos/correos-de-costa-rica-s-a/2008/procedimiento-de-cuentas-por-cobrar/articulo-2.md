@@ -1,0 +1,1 @@
+Artículo 2º—Este procedimiento tiene por objeto la recuperación de las deudas que se hayan establecido a favor de la empresa, por parte de sus trabajadores y/o extrabajadores, por su condición de sujetos de la relación laboral o cualquier otra causa que les fuere atribuible.
