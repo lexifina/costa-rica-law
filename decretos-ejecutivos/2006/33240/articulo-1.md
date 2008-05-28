@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo N° 77 del decreto ejecutivo N° 34728 del 28 de mayo de 2008).
 Nº 33240-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
