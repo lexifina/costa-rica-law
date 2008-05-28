@@ -15,3 +15,4 @@ Reglamento Sobre Protección Contras las Radiaciones Ionizantes
 | 1 | 1995-03-08 | la propia norma |
 | 2 | 1998-04-22 | Decreto Ejecutivo 26983 (1998-04-22) |
 | 3 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
+| 4 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
