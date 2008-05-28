@@ -15,3 +15,4 @@ Reforma Reglamento sobre Rellenos Sanitarios
 | --- | --- | --- |
 | 1 | 2005-09-13 | la propia norma |
 | 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
+| 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
