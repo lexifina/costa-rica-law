@@ -1,1 +1,0 @@
-Artículo 14.—En los establecimientos en donde se utilicen dispositivos, equipos y materiales biomédicos, así como sustancias químicas en el proceso de atención, deberán de presentar el Certificado de Registro correspondiente emitido por la Dirección de Registros y Controles, así como la ficha técnica de seguridad correspondiente a cada producto.

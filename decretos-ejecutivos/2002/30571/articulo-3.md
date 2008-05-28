@@ -1,1 +1,0 @@
-Artículo 3º—Para los efectos legales y administrativos que corresponda, la Habilitación será equivalente a los términos: "permiso", "autorización de funcionamiento u operación", "autorización previa" e "inscripción o registro", a los que hace referencia la Ley General de Salud, como requisito para que tales establecimientos se puedan instalar y funcionar.

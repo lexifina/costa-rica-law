@@ -1,1 +1,0 @@
-Artículo 11.—Las Direcciones Regionales del Ministerio, deberán supervisar (orientar, educar y asesorar) capacitar, controlar y dar seguimiento al cumplimiento de las actividades aquí asignadas a las Direcciones de Área Rectora de Salud, y a todos los establecimientos ubicados en su jurisdicción.
