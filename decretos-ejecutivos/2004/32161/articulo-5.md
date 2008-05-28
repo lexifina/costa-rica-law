@@ -1,2 +1,2 @@
-Artículo 5º—De conformidad con lo dispuesto en el “Reglamento General para el Otorgamiento de Permisos de Funcionamientodel Ministerio de Salud”, las bases de datos deberán contener la clasificación en Grupo A, (alto riesgo) Grupo B (moderado riesgo) y Grupo C (bajo riesgo). Tratándose de otro tipo de establecimiento deberá consignarse su naturaleza.
-(Así reformado mediante el artículo 87 del decreto ejecutivo N° 33240 del 30 de junio del 2006).
+Artículo 5º—De conformidad con lo dispuesto en el “Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud”, las bases de datos deberán contener la clasificación en Grupo A, (alto riesgo) Grupo B (moderado riesgo) y Grupo C (bajo riesgo). Tratándose de otro tipo de establecimiento deberá consignarse su naturaleza.
+(Así reformado por el artículo 73 del del decreto ejecutivo N° 34728 de 28 de mayo de 2008).
