@@ -13,8 +13,8 @@ PROCEDENTES DE TANQUES SEPTICOS
 I. Disposiciones generales.
 I.1 Los lodos procedentes de tanques sépticos, deberán ser manejados adecuada y sanitariamente a fin de evitar la contaminación del agua, suelo y aire.
 I.2 Se entiende por manejo de lodos, la extracción del lodo del tanque séptico, el transporte, la descarga, el tratamiento sanitario y la disposición final.
-I.3 Toda persona o empresa propietaria de establecimientos o actividades que se dedique a la limpieza y transporte de lodos provenientes de tanques sépticos, deberá contar con el permiso sanitario de funcionamiento y cumplir con los requisitos que señala el Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud y el presente Reglamento.
-(Así reformado el párrafo anterior mediante el artículo 79 del decreto ejecutivo N° 33240 del 30 de junio del 2006).
+1.3 Toda persona o empresa propietaria de establecimientos o actividades que se dedique a la limpieza y transporte de lodos provenientes de tanques sépticos, deberá contar con el permiso sanitario de funcionamiento y cumplir con los requisitos que señala el Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud y el presente Reglamento.
+(Así reformado en inciso anterior por el artículo 66 del Decreto Ejecutivo N° 34728 de 28 de mayo de 2008).
 I.4 Las empresas para su instalación, deberán cumplir con los requisitos estipulados en este Reglamento, las "Normas para la ubicación de sistemas de tratamiento de aguas residuales" y los "Requisitos para la revisión de sistemas de tratamiento de aguas residuales".
 I.5 Las empresas que presten el servicio de purga de lodos deberán realizar las obras sanitarias para el adecuado manejo de los lodos, así como darles la adecuada operación y mantenimiento.
 I.6 El Sistema de Tratamiento deberá ser eficaz y sencillo, utilizando una tecnología apropiada, orientado hacia el secado de lodos y posterior utilización como mejorador de suelos.
@@ -36,8 +36,8 @@ III.5 Contará con un área de lavandería, con lavadora automática, para el la
 III.6 Mantener un botiquín de primeros auxilios conforme a lo estipulado por el Consejo de Salud Ocupacional, con los medicamentos adecuados y personal apto para su utilización.
 III.7 Sólo tendrán acceso a los locales, aquellas personas que trabajen con la empresa y las autoridades durante el desempeño de sus funciones.
 IV. Deberes y restricciones a que quedan sujetas los camiones recolectores y accesorios complementarios.
-IV.1 Los camiones recolectores deben estar autorizados por el Ministerio de Salud a través de las Áreas Rectoras y portar la leyenda “Transporte Exclusivo de Aguas Residuales y Lodos”. Para la disposición finalde las aguas transportadas debe contarse con la autorización de la empresa encargada del sistema de tratamiento, y ésta a la vez debe tener el permiso sanitario de funcionamiento vigente. El vehículo debe tener los horarios y rutas aprobadas por el Ministerio de Obras Públicas y Transportes.
-(Así reformado el párrafo anterior mediante el artículo 79 del decreto ejecutivo N° 33240 del 30 de junio del 2006).
+IV.1 Los camiones recolectores deben estar autorizados por el Ministerio de Salud a través de las Áreas Rectoras y portar la leyenda “Transporte Exclusivo de Aguas Residuales y Lodos”. Para la disposición final de las aguas transportadas debe contarse con la autorización de la empresa encargada del sistema de tratamiento, y ésta a la vez debe tener el permiso sanitario de funcionamiento vigente. El vehículo debe tener los horarios y rutas aprobadas por el Ministerio de Obras Públicas y Transportes.
+(Así reformado en inciso anterior por el artículo 66 del Decreto Ejecutivo N° 34728 de 28 de mayo de 2008).
 IV.2 Los vehículos dedicados al transporte por lodos, no podrán ser utilizados para transportar ningún otro tipo de material.
 IV.3 Los vehículos, equipos y accesorios utilizados en el manejo de lodos deberán ser lavados y descontaminados después de cada jornada de trabajo, para lo cual se utilizará agua clorada o un desinfectante apropiado. El agua usada en el lavado, debe ser dispuesta sanitariamente de conformidad con las normas dictadas por el Ministerio de Salud.
 IV.4 El tanque (cisterna) del camión, debe ser hermético, con el objeto de evitar fugas y derrames en la vía pública.
