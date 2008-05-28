@@ -14,3 +14,4 @@ Reglamento Servicio Alimentación al Público
 | --- | --- | --- |
 | 1 | 1990-03-14 | la propia norma |
 | 2 | 1990-03-14 | Decreto Ejecutivo 20044 (1990-10-31) |
+| 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
