@@ -15,3 +15,4 @@ Reglamento sobre la gestión de los desechos infecto-contagiosos que se generan 
 | --- | --- | --- |
 | 1 | 2003-08-03 | la propia norma |
 | 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
+| 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
