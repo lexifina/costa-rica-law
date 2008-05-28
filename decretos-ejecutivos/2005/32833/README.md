@@ -17,3 +17,4 @@ Reglamento General de Cementerios
 | 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
 | 3 | 2007-04-25 | Decreto Ejecutivo 33769 (2007-04-25) |
 | 4 | 2007-06-18 | Decreto Ejecutivo 33862 (2007-06-18) |
+| 5 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
