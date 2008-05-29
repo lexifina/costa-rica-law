@@ -1,0 +1,1 @@
+Artículo 27.—Del cartel. En forma adicional a los requisitos definidos en el artículo 7 del presente Reglamento, el aviso de convocatoria a concurso deberá incluir los siguientes puntos: número de código vacante, centro de trabajo, jornada de trabajo y horario para su desempeño.

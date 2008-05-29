@@ -1,0 +1,7 @@
+Artículo 9º—Recursos. Se podrán interponer los recursos ordinarios de revocatoria y apelación, en contra de los siguientes actos:
+1. Contra los defectos del cartel y el proceso de publicación del mismo.
+2. El que declare no admisible la solicitud de inscripción en el concurso.
+3. El que otorgue la condición de no elegible.
+4. La calificación de atestados.
+Para la interposición de los recursos se dispondrá de un plazo máximo de cinco días hábiles posteriores a la notificación del acto administrativo que resulte impugnable, según lo dispuesto en los puntos anteriores, debiendo presentarse ante la unidad que dictó el respectivo acto. Requisito fundamental para la admisibilidad del recurso consiste en brindar al momento de su interposición los motivos de inconformidad, dentro de las que deberá contemplar los motivos de nulidad de actuaciones efectuadas en el concurso.
+Recibido el recurso de revocatoria la unidad que dictó el acto impugnado se pronunciará sobre él en el plazo máximo de cinco días hábiles. En caso de declararse sin lugar y haberse ejercido también el recurso de apelación se procederá de inmediato a remitir todo el expediente ante la Dirección de Recursos Humanos de la Caja Costarricense del Seguro Social, que deberá resolver en el plazo máximo de 15 (quince) días. Las apelaciones de las calificaciones efectuadas por la Dirección de Recursos Humanos serán resueltas por la Gerencia Administrativa.

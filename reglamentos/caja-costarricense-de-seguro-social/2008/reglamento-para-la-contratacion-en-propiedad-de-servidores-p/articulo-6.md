@@ -1,0 +1,1 @@
+Artículo 6º—Periodicidad de los concursos. La convocatoria a concurso interno para actualizar el registro de funcionarios elegibles en todos los centros de trabajo o bien para ocupar un puesto específico de jefatura que se encuentra vacante deberá efectuarse por lo menos dos veces al año.

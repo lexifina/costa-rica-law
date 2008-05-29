@@ -1,0 +1,1 @@
+Artículo 16.—Inexistencia de candidatos elegibles. En caso de no encontrarse ninguna persona inscrita en el Registro de Elegibles conformado en el centro de trabajo, se procederá a la convocatoria del concurso externo.
