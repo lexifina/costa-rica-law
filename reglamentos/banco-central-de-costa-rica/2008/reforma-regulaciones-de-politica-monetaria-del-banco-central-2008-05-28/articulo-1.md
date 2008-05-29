@@ -1,0 +1,13 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el literal A, artículo 7 del acta de la sesión 5379-2008, celebrada el 28 de mayo del 2008,
+A) La tasa de política monetaria y la estructura de tasas de interés de dichos instrumentos en Central Directo,
+Considerando que:
+1. En enero del presente año, ante las expectativas de apreciación cambiaria y la reducción de las tasas de interés internacionales, se generó un incentivo para el ingreso de capitales de corto plazo, por lo que el Banco Central con el propósito de desestimular dichos ingresos redujo sus tasas de interés de captación mediante Central Directo.
+2. Durante las últimas semanas, el tipo de cambio nominal se despegó del límite inferior de la banda cambiaria, lo cual proporciona un espacio para intensificar el control monetario por parte del Banco Central.
+3. Complementariamente, se reconoce que las tasas de interés pasivas de los instrumentos permanentes de captación del Banco Central se encuentran en un nivel incompatible con una postura de endurecimiento de la política monetaria dadas las expectativas de inflación y los indicios de excesos de demanda, lo cual justifica un incremento generalizado en dichas tasas.
+4. La efectividad de la gestión de liquidez del Banco Central requiere de la posibilidad de que el Banco en sus operaciones activas (de préstamo), pueda incrementar el costo marginal de los fondos de la banca comercial, por lo que es preciso redefinir la tasa de política monetaria como la tasa de interés para los préstamos a 24 horas del Banco Central de Costa Rica.
+Dispuso, en firme y por unanimidad:
+I.Modificar el título IV, numeral 2) literal D) de las Regulaciones de Política Monetaria para que en adelante se lea de la siguiente manera:
+“D. Se define la Tasa de Política Monetaria como la tasa de interés que cobra el Banco Central de Costa Rica en sus operaciones activas (préstamos) a un día plazo en el Mercado Interbancario de Dinero, la cual será determinada por la Junta Directiva del Banco Central de Costa Rica.
+La Junta Directiva determinará, también, la tasa de interés de captación a un día plazo.
+Las tasas de interés brutas para las operaciones del mercado abierto a plazos superiores a un día deberán ser las necesarias para captar los montos requeridos. No obstante, dichas tasas a cada plazo no podrán diferir en 200 puntos base de la última tasa de interés vigente para cada plazo de referencia. En el caso de las operaciones de mercado abierto mediante subastas, las tasas no podrán variar a más de 200 puntos base de las tasas equivalentes para cada plazo de referencia de la última subasta de títulos realizada.”
