@@ -1,0 +1,1 @@
+Artículo 54.—En aquellos casos que por resolución administrativa se declara procedente la prescripción, la Intendenta ordenará la apertura de un procedimiento administrativo para que, observando el debido proceso, se proceda a determinar en quien o quienes recae la responsabilidad por haber dejado prescribir los tributos.

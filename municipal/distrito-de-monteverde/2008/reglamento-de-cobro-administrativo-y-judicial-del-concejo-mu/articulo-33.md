@@ -1,0 +1,1 @@
+Artículo 33.—En aquellos casos comprobados de negligencia profesional, impericia, irrespeto al ordenamiento jurídico y al Reglamento o abandono de la gestión de cobro judicial, el Concejo Municipal se reserva el derecho de presentar los reclamos sobre daños y perjuicios en las vías administrativas y judicial correspondiente contra el abogado que incurrió en tales incumplimientos.

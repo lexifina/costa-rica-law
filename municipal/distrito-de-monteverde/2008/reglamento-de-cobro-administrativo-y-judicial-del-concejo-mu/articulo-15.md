@@ -1,0 +1,1 @@
+Artículo 15.—Los casos de cobro que, a juicio de la Administración Tributaria, puedan presentar dificultades especiales, recibirán de parte del Abogado un trámite expedito de cobro judicial. El Abogado deberá realizar con prontitud los trámites de juicio ejecutivo, a efecto de apresurar el aseguramiento y embargo de bienes.

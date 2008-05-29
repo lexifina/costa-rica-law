@@ -1,0 +1,1 @@
+Artículo 27.—Por razones de carácter ético en el ejercicio de su profesión, el abogado no podrán aceptar casos de litigio en contra del Concejo Municipal. El incumplimiento de esta disposición facultará al Concejo Municipal a rescindir el contrato respectivo, sin que exista la posibilidad de reclamos de ninguna especie.
