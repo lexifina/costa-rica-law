@@ -14,3 +14,4 @@ Autorización para la importación de cuota de maíz blanco por desabastecimient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-28 | la propia norma |
+| 2 | 2008-05-29 | Decreto Ejecutivo 34610 (2008-05-29) |
