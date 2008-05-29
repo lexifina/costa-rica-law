@@ -6,7 +6,8 @@ La Junta Directiva Nacional en sesión ordinaria Nº 4560, celebrada el 24 de ma
 REGLAMENTO DE CUENTAS CORRIENTES
 Artículo 1º—
 1) El presente Reglamento regula las operaciones de Cuenta Corriente Bancaria en el Banco Popular y de Desarrollo Comunal.
-2) El Banco ofrecerá diferentes modalidades de cuentas corrientes, con las condiciones y beneficios que se indican en el Anexo Nº 2, el cual forma parte de este Reglamento. Asimismo, podrá modificar las existentes o crear nuevas modalidades.
+2) El Banco ofrecerá diferentes modalidades de cuentas corrientes, con las condiciones y beneficios que se indican en el Anexo Nº 1, el cual forma parte de este Reglamento. Asimismo, podrá modificar las existentes o crear nuevas modalidades.
+(Así reformado el inciso anterior mediante acuerdo N° 508 de la sesión N° 4578 del 29 de mayo de 2008)
 3) Las cuentas corrientes pueden ser operadas en moneda nacional o extranjera.
 4) La Gerencia General Corporativa podrá variar los montos asignados como saldos mínimos para cada modalidad de cuenta de acuerdo con criterios técnico-administrativos, lo cual deberá informarse a los cuentacorrentistas, con al menos 1 mes de anticipación.
 5) El Gerente General Corporativo, en un rango inferior o igual a las tasas vigentes en ahorro voluntario a la vista, podrá fijar las tasas de interés que sobre saldos mensuales o inferiores y pagaderos dentro de los primeros cinco días naturales del siguiente mes, salvo caso fortuito o fuerza mayor-evento en el cual ese plazo podrá ser de hasta quince días naturales-el Banco cancelará en cada modalidad de cuentas corrientes, lo que hará de acuerdo a criterios técnicos, administrativos y de negocio que así lo justifiquen.

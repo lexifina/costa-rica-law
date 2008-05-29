@@ -14,3 +14,4 @@ Reglamento de Cuentas Corrientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-29 | la propia norma |
+| 2 | 2008-05-29 | Reglamento 4578 (2008-05-29) |
