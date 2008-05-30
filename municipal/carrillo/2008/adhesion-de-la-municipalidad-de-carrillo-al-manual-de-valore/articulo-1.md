@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE CARRILLO
+El Concejo Municipal del cantón de Carrillo, Guanacaste, por unanimidad de votos y en firme dispuso a través del acuerdo Nº 3, inciso 6), emitido en la sesión ordinaria Nº 19-08 celebrada el día 6 de mayo del año en curso; adherirse a la publicación hecha por el Órgano de Normalización Técnica en La Gaceta Nº 78 del miércoles 23 de abril del 2008, que va de la página 29 a la 60, donde se publicó el nuevo Manual de Valores Base Unitarios por Tipología Constructiva, para usarlos en todos los procesos relacionados con el impuesto sobre Bienes Inmuebles. Acuerdo definitivamente aprobado.
+Filadelfia, 15 de mayo del 2008.—
