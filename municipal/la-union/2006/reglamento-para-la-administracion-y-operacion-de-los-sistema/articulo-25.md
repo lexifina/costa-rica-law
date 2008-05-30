@@ -1,4 +1,5 @@
-Artículo 25.—Las tarifas a pagar por el uso de zonas o espacios para estacionamiento autorizado mediante calcomanía o “marchamo” se determina de la siguiente manera:
-El valor de la calcomanía o “marchamo” tendrán un costo ¢ 25.000,00 mensuales o su equivalencia al 70% del costo, en razón de:
-a) 20 días mensuales a un promedio de 8 horas diarias al costo oficial de la hora.
-b) El costo de la calcomanía o “marchamo” variará de acuerdo al valor de la hora, cuando así lo determinen los costos de operación futuros.
+Artículo 25.—Las zonas o espacios para estacionamiento autorizado mediante calcomanía, marchamo o cualquier otro medio que la Municipalidad autorice podrán venderse las calcomanías comerciales por plazos semestrales y anuales, según los valores de ¢30.000,00 y ¢60.000,00 respectivamente, los residenciales para los vehículos cuyos propietarios residan (debidamente comprobado) en la zona demarcada dentro del proyecto de parqueo con boleta, semestral ¢15.000,00 y anual ¢30.000,00. También existirá una calcomanía semestral y anual para vehículos distribuidores de bienes y servicios al comercio local con un valor similar a la calcomanía comercial.
+(Así reformado el párrafo anterior mediante sesión N° 164 del 30 de mayo del 2008)
+a) ( Este inciso fue eliminado mediante sesión N° 164 del 30 de mayo del 2008)
+b) La Municipalidad podrá ajustar el valor de los marchamos o calcomanías, cada año, según estudio de costos y mercado y tomando en cuenta el Índice de Precios al Consumidor o la Inflación.
+(Así reformado el inciso anterior mediante sesión N° 164 del 30 de mayo del 2008)
