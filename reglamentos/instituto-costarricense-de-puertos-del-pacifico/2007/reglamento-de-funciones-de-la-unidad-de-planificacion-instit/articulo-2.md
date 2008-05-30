@@ -1,1 +1,1 @@
-Artículo 2º—De la supervisión del Departamento de Planificación Institucional. La Oficina estará adscrita a la Presidencia Ejecutiva y corresponderá al Presidente Ejecutivo en ejercicio de sus funciones supervisar y dirigir su funcionamiento.
+Artículo 2º—De la supervisión de la Unidad de Planificación Institucional. La Unidad estará adscrita a la Presidencia Ejecutiva y corresponderá al Presidente Ejecutivo en ejercicio de sus funciones supervisar y dirigir su funcionamiento.

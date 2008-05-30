@@ -14,3 +14,4 @@ Reglamento de funciones de la Unidad de Planificación Institucional del Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-02 | la propia norma |
+| 2 | 2008-05-30 | Reglamento 3493 (2008-05-30) |
