@@ -1,2 +1,0 @@
-Artículo 4.
-La solicitud para que sea autorizada la constitución, apertura y funcionamiento de un banco privado se presentará a la Auditoría General de Entidades Financieras en tres tantos, debidamente firmados por los interesados y autenticada por un abogado. En la mencionada solicitud se indicará el nombre y dirección de la persona con quien pueda comunicarse la Auditoría para tratar asuntos relacionados con la petición.

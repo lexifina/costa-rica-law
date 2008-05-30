@@ -1,2 +1,0 @@
-Artículo 21.
-Los bancos privados comerciales y cooperativos podrán establecer sucursales, agencias u oficinas en cualquier lugar del territorio nacional o fuera de él, así como suprimir las que ya hubiesen establecido, todo de acuerdo con lo previsto en el Capítulo IV, del Título II de la Ley Orgánica del Sistema Bancario Nacional, y en la reglamentación especial que al respecto tenga en vigencia el Banco Central de Costa Rica.

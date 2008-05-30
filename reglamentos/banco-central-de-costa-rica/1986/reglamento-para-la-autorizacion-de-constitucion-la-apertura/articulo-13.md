@@ -1,2 +1,0 @@
-Artículo 13.
-Una vez concluido el análisis de la solicitud, la Auditoría General de Entidades Financieras rendirá a la Junta Directiva del Banco Central de Costa Rica el dictamen que prevé el Artículo 142 de la Ley Orgánica del Sistema Bancario Nacional, acompañado de un resumen de todos los atestados y documentos que dieron origen a ese dictamen. Dicho dictamen se fundamentará en razones de legalidad, oportunidad y conveniencia.

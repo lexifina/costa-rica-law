@@ -1,2 +1,0 @@
-Artículo 19.
-En el caso de que los bancos privados cooperativos efectúen los aportes de capital en bienes distintos al numerario, la Auditoría General de Entidades Financieras los calificará y justipreciará, y únicamente cuando haya comprobado que se naturaleza corresponde a los activos característicos de un banco y que su cuantía es al menos igual a cinco millones de colones, autorizará al banco privado cooperativo a iniciar operaciones.

@@ -1,3 +1,0 @@
-Artículo 2.
-Los bancos privados cooperativos que se constituyan formarán parte del Sistema Bancario Nacional y por lo tanto serán regulados por la Ley Orgánica del Sistema Bancario Nacional, por la Ley Orgánica del Banco Central de Costa Rica y por la Ley de Asociaciones Cooperativas.
-Para la constitución y funcionamiento de un banco cooperativo deberán concurrir al menos diez asociaciones cooperativas costarricenses, que a juicio de la Auditoría General de Entidades Financieras sean económica, financiera y administrativamente solventes. El número de asociaciones no podrá reducirse sin autorización expresa de la Junta Directiva del Banco Central de Costa Rica.

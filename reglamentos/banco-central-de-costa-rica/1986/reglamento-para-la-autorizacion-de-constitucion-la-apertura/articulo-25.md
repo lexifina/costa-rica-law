@@ -1,3 +1,0 @@
-Artículo 25.
-Después de transcurrido el primer año de operaciones del banco de que se trate, el crédito contingente, o bien, el depósito en títulos valores, mencionados en el Artículo 7 de este Reglamento, no podrá ser menor al diez por ciento del total de sus activos no líquidos al 31 de diciembre anterior.
-Cuando la Auditoría General de Entidades Financieras determine que un banco privado tiene problemas de liquidez, deberá informarlo de inmediato a la Junta Directiva del Banco Central de Costa Rica. En el evento de que la situación lo amerite, la Junta Directiva podrá ordenar el uso del crédito de contingencia o del depósito respectivo.
