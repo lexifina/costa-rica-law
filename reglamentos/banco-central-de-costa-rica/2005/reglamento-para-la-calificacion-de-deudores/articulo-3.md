@@ -12,13 +12,20 @@ e irrevocable realizará la compensación del saldo total adeudado de la operaci
 h) Operación crediticia: Toda operación, cualquiera que sea la modalidad de instrumentación o documentación, excepto inversiones en valores, mediante la cual -asumiendo un riesgo de crédito- una entidad provee o se obliga a proveer fondos o facilidades crediticias, adquiere derechos de cobro o garantiza frente a terceros el cumplimiento de obligaciones.
 i) Operación crediticia especial: Operación crediticia que por sus condiciones contractuales de pago pueda ser utilizada para evitar la mora o que por las modificaciones a sus condiciones contractuales de pago puedan estar ocultando la mora de la operación.
 Entre otras, son operaciones especiales las siguientes:
-1. la operación crediticia comprada excepto aquella comprada a una entidad supervisada por la SUGEF y excepto aquella con menos de un mes de haber sido desembolsada al deudor;
+1. la operación crediticia comprada excepto las siguientes: a) la operación comprada a una entidad supervisada por la SUGEF , b) la operación con menos de un mes de haber sido desembolsada al deudor y c) la operación adquirida por la entidad financiera local con motivo de la fusión de la misma con otra empresa de su mismo grupo o conglomerado financiero, o la operación adquirida por la entidad financiera local con motivo de la liquidación de una empresa de su mismo grupo o conglomerado financiero;
+(Así reformado el numeral anterior mediante sesión N° 720 del 30 de mayo de 2008).
 2. la operación crediticia modificada más de una vez en un periodo de 24 meses mediante readecuación, prórroga, refinanciamiento o una combinación de estas modificaciones;
-3. el crédito revolutivo, excepto los siguientes casos:
+(*) 3. el crédito revolutivo, excepto los siguientes casos:
 i) aquel destinado exclusivamente para la emisión de avales, garantías de cumplimiento y garantías de participación,
 ii) aquel destinado al financiamiento de ciclos definidos de negocio cuyos desembolsos no sean readecuados, prorrogados o refinanciados, excepto capital de trabajo,
-iii) aquel destinado al financiamiento de capital de trabajo, cuyo saldo total desembolsado, sea reducido a cero durante un periodo no menor de dos semanas por lo menos una vez cada doce meses, y
+iii) aquel destinado al financiamiento de capital de trabajo, cuando se cumpla alguna de las siguientes condiciones:
+a. el saldo total desembolsado, sea reducido a cero durante un periodo no menor de dos semanas por lo menos una vez cada doce meses, o
+b. el deudor cumpla, simultáneamente, las siguientes condiciones:
+1. se ubique en Nivel 1 o Nivel 2 de capacidad de pago. En caso de que la capacidad de pago sea Nivel 2, deberá existir en el expediente un análisis semestral de la capacidad de pago del deudor, y éste no podrá permanecer en este nivel por más de un año. Este párrafo no aplica para deudores clasificados en Grupo 2,
+2. se ubique en Nivel 1 de Comportamiento de Pago Histórico, y
+3. se presente una morosidad igual o menor a 30 días.
 iv) las operaciones de tarjeta de crédito,
+(*)(Así reformado el numeral anterior mediante sesión N° 720 del 30 de mayo de 2008).
 4. la operación de pago único de principal a la fecha de vencimiento con un plazo mayor a seis meses y la operación de pago único de principal e intereses a la fecha de vencimiento con un plazo mayor a tres meses;
 5. la operación que a juicio de la entidad califique como operación crediticia especial; y
 6. la operación crediticia que a juicio de la SUGEF está siendo utilizada para evitar la mora o, por las modificaciones que ha sufrido, está ocultando la mora de la operación.
