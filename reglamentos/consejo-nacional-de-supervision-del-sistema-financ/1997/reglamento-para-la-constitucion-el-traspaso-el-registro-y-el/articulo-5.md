@@ -1,2 +1,0 @@
-Artículo 5.
-El depósito indicado en el Artículo anterior deberá efectuarse dentro de un plazo no mayor a tres días hábiles posteriores a la aprobación de funcionamiento como Grupo Financiero otorgada por el Consejo Nacional de Supervisión del Sistema Financiero o del momento en que se formalice la adquisición de nuevas acciones. Dicho depósito se hará a nombre de la sociedad controladora, con indicación de que el mismo se realiza en cumplimiento de lo estipulado en el Artículo 142 de la Ley Orgánica del Banco Central de Costa Rica.

@@ -1,6 +1,0 @@
-Artículo 27.
-Una entidad financiera que forme parte de un Grupo Financiero costarricense autorizado, podrá realizar operaciones en oficinas situadas en las instalaciones de otras entidades integrantes del mismo Grupo, siempre que cumpla las siguientes disposiciones:
-a) Notificar por escrito al órgano supervisor correspondiente el detalle de cada uno de los servicios que prestará en dichas instalaciones.
-b) Identificar con signos externos los nombres de las empresas que operan en el establecimiento, de manera que el usuario pueda identificar fácilmente con cual entidad desea contratar, e informar al usuario, en el momento en que se lleva a cabo la negociación, por cuenta de cual entidad del Grupo Financiero se está realizando la misma, así como entregar al usuario un comprobante que identifique claramente la naturaleza y detalle de la operación que está realizando, así como las entidades financieras involucradas y sus responsabilidades.
-c) En el caso de que se actúe a nombre y por cuenta de un banco o empresa domiciliada en el exterior, deberá informarse al usuario en que país se encuentra registrado dicha entidad del exterior.
-En los casos de los incisos b) y c) se proporcionará al usuario un comprobante que detalle la empresa que está realizando la transacción y su país de domicilio.
