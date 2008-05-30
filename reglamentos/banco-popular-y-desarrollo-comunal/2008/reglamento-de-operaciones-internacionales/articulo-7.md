@@ -1,0 +1,1 @@
+Artículo 7º—Disponibilidad de billete en divisa. La venta por ventanilla de billete dólar de los E.E.U.U. estará sujeta a la disponibilidad del Banco. Los límites diarios de negociación serán fijados por el Coordinador del Subproceso de Internacional o, en ausencia de éste, por el Coordinador de la Unidad de Cambios y Telecomunicaciones.

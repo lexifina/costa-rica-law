@@ -1,0 +1,1 @@
+Artículo 3º—Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Subproceso de Internacional del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fijará el Comité indicado en el artículo diez de este Reglamento.
