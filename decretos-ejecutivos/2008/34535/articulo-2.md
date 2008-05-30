@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al INA, dentro del marco legal respectivo y en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, a contribuir con recursos económicos para el funcionamiento del Ente Rector del Plan Nacional de Inglés.
