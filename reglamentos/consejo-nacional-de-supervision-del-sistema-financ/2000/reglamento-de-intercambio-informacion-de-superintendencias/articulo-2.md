@@ -1,3 +1,0 @@
-Artículo 2º—Trámite. La información podrá brindarse tanto a solicitud de un Superintendente, como de oficio.
-En el primer caso, la Superintendencia que requiera la información deberá realizar una solicitud formal a la Superintendencia respectiva. Esta solicitud deberá realizarse por medio de acuerdo del Superintendente, debidamente motivado en razón del ejercicio de su competencia de supervisión prudencial.
-En el segundo caso, procederá la remisión de información cuando la Superintendencia que posea la información estime que ésta puede tener implicaciones para la adecuada supervisión de un sujeto fiscalizado por otra Superintendencia o para el mercado financiero en su conjunto.

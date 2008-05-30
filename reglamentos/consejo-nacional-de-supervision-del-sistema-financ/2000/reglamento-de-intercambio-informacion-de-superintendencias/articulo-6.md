@@ -1,1 +1,0 @@
-Artículo 6º—Conflictos de intercambio de información. Los conflictos de intercambio de información que se presenten entre las Superintendencias serán resueltos por el Consejo Nacional de Supervisión del Sistema Financiero.
