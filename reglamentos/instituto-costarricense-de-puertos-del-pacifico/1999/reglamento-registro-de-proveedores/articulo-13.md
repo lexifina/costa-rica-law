@@ -1,1 +1,0 @@
-Artículo 13.-En aquellos casos en que un proveedor no esté inscrito en el Registro de Proveedores y tenga interés en participar en algún procedimiento de contratación promovido, deberá presentar la correspondiente solicitud junto con los documentos requeridos, preferiblemente con cinco días de anticipación al vencimiento del plazo para la presentación de las ofertas del concurso.

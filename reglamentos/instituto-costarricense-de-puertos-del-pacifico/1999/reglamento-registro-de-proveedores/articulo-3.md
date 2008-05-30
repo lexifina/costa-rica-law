@@ -1,1 +1,0 @@
-Artículo 3°-La Actividad de Proveeduría del INCOP, será la encargada de administrar, para todos los efectos; el Registro de Proveedores. Para ello se apoyará en los medios tecnológicos y los demás recursos disponibles que garanticen la eficiencia y eficacia del registro.

@@ -1,1 +1,0 @@
-Artículo 8°-Todos los interesados en ser incluidos en el Registro de Proveedores del INCOP, sean personas físicas o jurídicas, podrán solicitar su incorporación en cualquier momento, no hay tiempo establecido para hacerlo.
