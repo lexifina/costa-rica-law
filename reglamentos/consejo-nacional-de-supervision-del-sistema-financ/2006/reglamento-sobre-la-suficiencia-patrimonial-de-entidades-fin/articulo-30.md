@@ -1,5 +1,10 @@
-Artículo 30.-Referencia. Toda referencia a los Acuerdos SUGEF 22-00, 23-00, 25-00 y 26-00 derogados en el artículo anterior que se realice en las normas vigentes emitidas por el Consejo Nacional de Supervisión del Sistema Financiero debe entenderse referida al Acuerdo SUGEF 3-06 "Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras".
-(Así reformado el párrafo anterior en sesión N° 569 del 6 de abril de 2006)
-(Así modificada su numeración en sesión N° 620 del 14 de diciembre de 2006, que lo traspaso del antiguo artículo 28 al 29)
-(Así modificada su numeración en sesión N° 650 del 4 de junio de 2007, que lo traspaso del antiguo artículo 29 al 30)
-Regirá a partir del 18 de julio del 2006
+CAPÍTULO VI
+Disposiciones finales
+Artículo 30.-Derogatorias. Se derogan las siguientes normas:
+a) SUGEF 22-00 "Normas Generales para definir y calcular el patrimonio de las entidades fiscalizadas por la Superintendencia General de Entidades Financieras";
+b) SUGEF 23-00 "Normas para establecer la suficiencia patrimonial de las entidades fiscalizadas por la Superintendencia General de Entidades Financieras";
+c) SUGEF 25-00 "Normas Generales para definir y calcular el patrimonio de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda"; y
+d) SUGEF 26-00 "Normas para establecer la suficiencia patrimonial de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda".
+(Así modificada su numeración en sesión N° 620 del 14 de diciembre de 2006, que lo traspaso del antiguo artículo 27 al 28)
+(Así modificada su numeración en sesión N° 650 del 4 de junio de 2007, que lo traspaso del antiguo artículo 28 al 29)
+(Así modificación su numeración en sesión N° 720 del 30 de mayo de 2008, que lo traspaso del antiguo del artículo 29 al 30)

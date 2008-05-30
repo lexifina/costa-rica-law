@@ -1,6 +1,12 @@
-Artículo 25.—Calificación de la entidad por suficiencia patrimonial. La entidad es calificada por suficiencia patrimonial según el siguiente cuadro:
-Categoría de riesgo | Rango de coeficiente
-Normal | SPE ≥ 10%
-Grado 1 | 9% ≤ SPE < 10%
-Grado 2 | 8% ≤ SPE < 9%
-Grado 3 | SPE < 8%
+CAPÍTULO V
+Suficiencia patrimonial
+Artículo 25.-Cálculo de la suficiencia patrimonial. La suficiencia patrimonial de la entidad se calcula según la siguiente fórmula:
+[imagen]
+Donde:
+SPE = Suficiencia patrimonial de la entidad.
+CB = Capital base.
+RC = Activos y pasivos contingentes ponderados por riesgo de crédito.
+RP = Requerimiento patrimonial por riesgo de precio.
+RO = Requerimiento patrimonial por riesgo operacional.
+(Así reformado en sesión N° 720 del 30 de mayo de 2008)
+(Así modificación su numeración en sesión N° 720 del 30 de mayo de 2008, que lo traspaso del antiguo del artículo 24 al 25)
