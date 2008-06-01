@@ -14,3 +14,4 @@ Política Municipal de cantón de Flores para valoración, regulación y adminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-24 | la propia norma |
+| 2 | 2008-06-01 | Acuerdo municipal 1709 (2008-06-01) |
