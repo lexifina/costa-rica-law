@@ -1,9 +1,0 @@
-Artículo 57.—Son funciones y atribuciones del Departamento de Acreditación para la tramitación de solicitudes de autorización de organismos o entidades colaboradoras de la adopción internacional, las siguientes:
-a. Brindar información a los organismos o entidades colaboradoras de adopción internacional sobre el procedimiento, requisitos y trámites requeridos a fin de ser autorizados por el Consejo Nacional de Adopciones, para realizar las funciones delegadas o autorizadas por la Autoridad Central del país en domicilio social.
-b. Tramitar las solicitudes de autorización o prórroga de los organismos indicados en el inciso anterior, así como evaluar y recomendar a dicho Consejo si procede o no la solicitud.
-c. Crear los controles internos necesarios que determinen los periodos de vigencia de las licencias de acreditación otorgados a los organismos u otras entidades colaboradoras de adopción internacional, por parte de las Autoridades competentes del Estado donde tienen su domicilio social.
-d. Establecer los mecanismos de control para determinar oportunamente el vencimiento del plazo de vigencia de la autorización otorgada a los organismos o entidades colaboradoras en adopción internacional, por el Consejo Nacional de Adopciones.
-e. Remitir al Departamento de Adopciones y a la Oficina Permanente de La Haya información periódica de los organismos indicados en los incisos anteriores que fueran autorizados por el Consejo Nacional, así como su plazo de vigencia.
-f. Custodiar los expedientes activos de organismos o entidades colaboradoras de la adopción internacional autorizadas por el Consejo Nacional, y el libro de autorizaciones, y garantizar su confidencialidad.
-g. Instruir los procesos de cancelación de la autorización a los citados organismos o entidades.
-h. Cualquier otra que le asigne la Junta Directiva, la Presidencia Ejecutiva o la Gerencia Técnica de la Institución.

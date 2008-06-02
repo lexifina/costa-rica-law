@@ -1,1 +1,0 @@
-Artículo 18.—Los integrantes de los Consejos, tendrán derecho a voz y voto. Los acuerdos se adoptarán por mayoría simple de votos. En caso de empate, el presidente tendrá voto de calidad. Para la resolución de cualquier asunto que sea competencia de los Consejos, se prohíbe a sus miembros, participar y emitir su voto cuando tengan intereses incompatibles con su cargo.

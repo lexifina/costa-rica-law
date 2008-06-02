@@ -1,1 +1,0 @@
-Artículo 20.—Las resoluciones administrativas que atañen a la competencia de los Consejos adquirirán validez con las firmas del Presidente y del Secretario, y cuando concurran situaciones en las que, por caso fortuito o fuerza mayor resulte imposible recabar las firmas indicadas, las actas adquirirán validez con la firma del resto de los miembros asistentes a la sesión.

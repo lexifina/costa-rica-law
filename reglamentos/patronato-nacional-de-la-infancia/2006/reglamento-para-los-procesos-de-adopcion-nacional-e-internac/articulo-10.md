@@ -1,1 +1,0 @@
-Artículo 10.—Dichos consejos dependerán jerárquicamente de la Junta Directiva institucional. El funcionamiento de estos Consejos, así como los recursos contra los actos administrativos dictados por ellos, se regirán, por lo establecido para los Órganos Colegiados en la Ley General de la Administración Pública, y por lo preceptuado en el presente Reglamento.

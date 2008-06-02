@@ -1,4 +1,0 @@
-SECCIÓN III
-De la declaratoria de idoneidad y la ubicación
-con fines de Adopción Nacional de Personas Menores de Edad
-Artículo 29.—En el momento en que el Departamento de Adopciones tenga conocimiento de que una persona menor de edad se encuentra en condiciones de ser ubicada con fines de adopción, se encargará de realizar el proceso pertinente a efecto de determinar la compatibilidad entre las personas menores de edad en condición de adoptabilidad y los perfiles de los solicitantes de adopción valorados, y remitirá al Consejo Regional competente, o al Consejo Nacional cuando no exista en la región correspondiente un Consejo Regional, los expedientes respectivos como propuesta de posibles ubicaciones y remitirá las recomendaciones específicas atendiendo a las características particulares de cada caso.

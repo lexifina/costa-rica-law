@@ -1,2 +1,0 @@
-Transitorio III.—En la primera sesión de Junta Directiva del PANI de enero del 2007, se harán los nombramientos del (los) Consejo(s) Regionale(s) de Adopciones, recomendado por la Gerencia Técnica por el período correspondiente.
-En el primer nombramiento que se haga y por una única vez se nombrarán por un año: el Trabajador Social, el Psicólogo, y el padre o madre adoptiva señalados en el artículo 12 por el período correspondiente.

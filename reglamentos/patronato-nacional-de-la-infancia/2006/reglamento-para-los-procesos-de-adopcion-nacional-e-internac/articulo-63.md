@@ -1,1 +1,0 @@
-Artículo 63.—El Departamento de Adopciones deberá implementar mecanismos de control interno, sean éstos manuales o electrónicos, con el fin de controlar los plazos de remisión de los informes de seguimiento postadoptivo internacional por parte de las Autoridades centrales u organismos colaboradores encargados de la elaboración de los mismos.
