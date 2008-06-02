@@ -1,0 +1,1 @@
+Artículo 67.—Errores y omisiones. Si una comunicación final contiene un error u omisión significativos, el auditor interno debe comunicar la información corregida a todas las partes que recibieron la comunicación original.
