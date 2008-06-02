@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad Ejecutora, de acuerdo con lo indicado en el Artículo 3, queda facultada para alquilar vehículos, en cuyo caso su uso, mantenimiento, reparación y control quedará supeditado a las normas establecidas en el presente Reglamento.

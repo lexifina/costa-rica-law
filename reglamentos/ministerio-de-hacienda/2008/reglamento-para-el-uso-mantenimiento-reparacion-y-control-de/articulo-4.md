@@ -1,0 +1,1 @@
+Artículo 4º—La asignación de los vehículos para uso administrativo es un medio para facilitar los servicios que presta la UE y en ningún caso puede ser considerada como un beneficio adicional de los contratos de las personas que prestan servicios a la UE.
