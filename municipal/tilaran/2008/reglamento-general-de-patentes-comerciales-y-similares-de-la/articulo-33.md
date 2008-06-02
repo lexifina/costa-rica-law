@@ -1,0 +1,1 @@
+Artículo 33.—De la limitación de puestos por manzana. La ubicación de los puestos estacionarios será de un máximo de ocho por manzana, sean dos puestos cada cien metros, siempre y cuando las condiciones lo permitan a juicio de la Municipalidad, y el presente Reglamento.

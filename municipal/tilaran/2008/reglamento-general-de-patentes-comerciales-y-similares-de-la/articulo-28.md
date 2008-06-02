@@ -1,0 +1,1 @@
+Artículo 28.—De otros vendedores. Los vendedores de flores, periódicos, lotería y revistas, limpiadores de calzado, deberán solicitar la respectiva licencia, para la obtención de la misma y no podrán hacer uso de ningún tipo de mobiliario para ejercer la actividad en las vías públicas.

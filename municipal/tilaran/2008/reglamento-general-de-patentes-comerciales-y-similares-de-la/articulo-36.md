@@ -1,0 +1,1 @@
+Artículo 36.—De las cesiones, donaciones y ventas. Queda terminantemente prohibido la cesión, donación, venta o cualquier forma de traspaso de los puestos estacionarios; sus licencias. Al que se le comprobare tal negociación sin autorización municipal se le cancelará la licencia.

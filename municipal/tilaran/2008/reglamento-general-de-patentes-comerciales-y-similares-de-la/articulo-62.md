@@ -1,0 +1,1 @@
+Artículo 62.—Infracciones y sanciones. Según lo estipulado en el artículo 3º de la Ley Nº 6844, Ley del Impuesto de Espectáculos Públicos, la Municipalidad de Tilarán impondrá una multa equivalente a diez veces el monto dejado de pagar, a los contribuyentes que, en forma total o parcial, incurran en la falta de pago de este impuesto.
