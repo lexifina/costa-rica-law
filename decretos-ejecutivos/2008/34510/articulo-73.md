@@ -1,0 +1,1 @@
+Artículo 73.—De los Despachos de los Directores de Servicios de Nutrición y Desarrollo Infantil. Los Directores de las Direcciones de Servicios de Nutrición y Desarrollo Infantil dependen orgánicamente del Director General de Nutrición y Desarrollo Infantil. Les corresponde dirigir y articular a los equipos itinerantes y a los equipos de los establecimientos CEN, CINAI y CENCE.

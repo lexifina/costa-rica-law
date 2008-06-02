@@ -1,0 +1,2 @@
+Artículo 4º—De los servicios de salud a cargo del Ministerio de Salud. Las actividades que mantenga el Ministerio como proveedor directo de servicios de salud se prestarán en condiciones de eficiencia, oportunidad y eficacia.
+Como proveedor directo de servicios de salud, el Ministerio continuará priorizando el mejoramiento de la calidad y el aumento de la cobertura de los servicios de nutrición y desarrollo infantil.
