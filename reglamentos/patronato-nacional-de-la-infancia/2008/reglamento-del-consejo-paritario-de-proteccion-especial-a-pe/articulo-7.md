@@ -1,0 +1,2 @@
+Artículo 7º—Sesiones y quórum. El Consejo Paritario sesionará ordinariamente una vez al mes y extraordinariamente, cuando sea convocado por su presidente, a solicitud de una tercera parte de la totalidad de sus miembros.
+El quórum para sesionar se conformará con dos terceras partes del total de miembros. Los acuerdos se tomarán por mayoría absoluta de votos y en caso de empate el presidente tendrá voto de calidad.

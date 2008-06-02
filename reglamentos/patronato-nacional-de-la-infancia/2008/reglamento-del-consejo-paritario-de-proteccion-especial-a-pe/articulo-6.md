@@ -1,0 +1,3 @@
+Artículo 6º—Organización interna. El Consejo Paritario tendrá un presidente (el cual es designado por el Presidente Ejecutivo del PANI y un Secretario, que será elegido en el seno del Consejo) los cuales pueden ser reelectos, por periodos similares.
+La designación y funciones de ambos se regirán por las disposiciones establecidas por la Ley General de la Administración Pública en materia de Órganos Colegiados.
+La ausencia continua de los miembros a tres sesiones, por razones injustificadas será comunicada a los superiores inmediatos en el caso de los funcionarios del PANI, y en lo que se refiere a los otros representantes de la sociedad, serán sustituidos según los mecanismos establecidos.

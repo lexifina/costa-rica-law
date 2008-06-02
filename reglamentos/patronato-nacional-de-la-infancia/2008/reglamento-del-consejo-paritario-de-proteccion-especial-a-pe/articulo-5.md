@@ -1,0 +1,7 @@
+Artículo 5º—Nombramiento de los miembros. Corresponderá a la Presidencia Ejecutiva del Patronato Nacional de la Infancia el nombramiento de los miembros propietarios y suplentes del Consejo Paritario.
+En los casos de los miembros indicados en los incisos a), b), c) y d) del artículo 4 anterior, el nombramiento se realizará con base en la elección efectuada por dicha Presidencia Ejecutiva, de acuerdo con las ternas que, al efecto le serán remitidas por la Gerencia Técnica.
+Las organizaciones que están agrupadas en uniones, confederaciones u otras, según lo establecido en el inciso e) del artículo 4 del presente Reglamento, podrán designar los candidatos a la terna a través de los mecanismos que consideren oportunos.
+Los candidatos propietarios y suplentes mencionados en el inciso f) de ese mismo artículo serán elegidos por las organizaciones mencionadas en los mismos por medio de una asamblea, la cual será convocada por el PANI.
+En la misma, cada organización estará representada por el presidente u otro miembro de su Junta Directiva o personero debidamente autorizado para tales efectos. En este caso, el procedimiento de elección de los miembros de la terna será definido por los representantes de las organizaciones.
+Todos los miembros durarán en sus cargos tres años y podrán ser reelectos por un período igual.
+El nombramiento de los nuevos miembros del Consejo Paritario deberá hacerse por lo menos con treinta días de antelación al vencimiento del período respectivo.
