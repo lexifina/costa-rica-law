@@ -1,0 +1,1 @@
+Artículo 38.—Disponibilidad del Reglamento. La Administración del MINAE pondrá a disposición este Reglamento en la página web de esta Institución, en el módulo de Auditoría para que sea del conocimiento de los funcionarios de este Ministerio y de la Sociedad Civil.

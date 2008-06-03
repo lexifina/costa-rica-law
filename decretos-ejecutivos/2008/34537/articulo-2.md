@@ -1,0 +1,31 @@
+Artículo 2º—Definiciones. Para efectos del presente Reglamento, se entiende por:
+Administración: Uno de los dos componentes orgánicos del control interno. Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa que deciden y ejecutan, incluyendo al jerarca como última instancia. Es el sujeto pasivo de la fiscalización superior que realiza la Contraloría General de la República.
+Advertencia: Es un servicio preventivo brindado por la auditoría interna a la Administración, ya sea oral o escrita, con el fin de prevenir sobre alguna situación que pueda conllevar a determinadas consecuencias o riesgos negativos.
+Asesoría: Es un servicio preventivo brindado por la auditoría interna a solicitud del Ministro, de los Titulares Subordinados o a criterio del Auditor, en forma verbal o escrita, en donde vierte su observación en asuntos de su competencia sin que menoscabe o comprometa la independencia y objetividad en el normal desarrollo de sus otras labores.
+Auditor Interno: La máxima autoridad de la Auditoría Interna del Ministerio del Ambiente y Energía.
+Auditoría Interna: Dentro de la organización institucional del Ministerio del Ambiente y Energía corresponde a aquella citada en el artículo 20 de la Ley General de Control Interno.
+Autorización de libros: Es un servicio preventivo brindado por la Auditoría Interna a la Administración, que consiste en autorizar, mediante la firma del auditor general o en quien él delegue, la apertura y cierre de los libros de contabilidad y de actas, así como de otros libros que deban llevar los órganos sujetos a su competencia institucional y que a criterio del Auditor requieran de su legalización respectiva.
+Bloque de legalidad: Conjunto de normas con rango de ley, reglamentos, manuales y directrices emitidas en las áreas que correspondan, así como cualquier otra fuente de derecho del Ordenamiento Jurídico que le sea atinente y se encuentre vigente.
+Competencias: Atribución legítima para el conocimiento o resolución de un asunto; conjunto de actividades, labores o funciones, asignadas por la normativa a la auditoría interna.
+Conflicto de intereses: Se origina en el momento que un funcionario recibe algún beneficio económico o personal o participa de alguna situación que se contrapone a su cargo, y con ello comprometa su objetividad e independencia.
+Control Interno: También denominado sistema de control interno. Comprende la serie de acciones diseñadas y ejecutadas por la Administración, para proporcionar una seguridad razonable en torno a la consecución de los objetivos de la organización.
+Cuidado profesional: Propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
+Enfoque sistémico y profesional: Línea de dirección para percibir la interacción entre las partes de un todo, acorde con los objetivos de la función a realizar y desarrollado en forma competente por el Auditor.
+Ente: Es la institución u organización, principalmente estatal.
+Entes fiscalizadores: Son las Instituciones u Órganos que fiscalizan la actuación pública de las distintas entidades.
+Ética: Es la interiorización de normas y principios que hacen responsable al individuo de su propio bienestar y consecuentemente de los demás, mediante un comportamiento basado en conductas morales socialmente aceptadas, para comportarse consecuentemente con éstas; es decir, son aquellos valores morales que permiten a quien toma una decisión, determinar un curso de comportamiento adecuado, basado en lo que está bien, lo que puede ir más allá de lo que es legal.
+Fiscalizar: Actividad tendiente a la verificación del cumplimiento de determinadas actividades o funciones realizados por otros.
+Idóneo: Que una persona cuente con la pericia y el cuidado profesional requerido para efectuar una labor.
+Independencia: Libertad profesional que le asiste al Auditor para expresar su opinión libre de presiones (políticas, religiosas, familiares, etc.) y subjetividades (sentimientos personales e intereses de grupo).
+Informe de Auditoría: Producto final con el que la Auditoría Interna comunica al Jerarca o a los Titulares Subordinados, así como a otras Entidades en caso que corresponda, los resultados de los estudios de auditoría y los informes relativos a la asesoría que brinda.
+Jerarca: Superior jerárquico del órgano o del ente; ejerce la máxima autoridad dentro del órgano o ente, unipersonal o colegiado.
+Ministerio o MINAE: El Ministerio del Ambiente y Energía.
+Ministro: El superior jerárquico del Ministerio del Ambiente y Energía.
+Objetividad: Implica el mantenimiento de una actitud imparcial por parte del Auditor, en todas las funciones que le correspondan, para ello, debe gozar de una total independencia en sus relaciones, debe ser justo y no permitir ningún tipo de influencia o prejuicio.
+Órgano: Persona jurídica, integrada por un conjunto de personas, con un ámbito de competencia determinado.
+Pericia: Conocimientos y aptitudes requeridas para efectuar una labor.
+Potestades: Facultades del auditor, de acuerdo a la naturaleza de su función.
+Rendición de cuentas: Obligación de responder por la responsabilidad conferida. Incluye la obligación de explicar y justificar acciones específicas realizadas con el patrimonio público.
+Riesgo: Probabilidad de que un factor, acontecimiento o acción, sea de origen interno o externo, afecte de manera adversa a la organización, área, proyecto o programa y perjudique el logro de los objetivos. Titular Subordinado: Funcionario de la administración activa, responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+Universo fiscalizable: Es el conjunto de áreas, dependencias, oficinas, servicios, procesos, sistemas, etc. que pueden ser evaluados por la auditoría interna en un plazo determinado.
+Valoración del riesgo: Identificación y análisis de los riesgos que enfrenta la institución, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; deben ser realizados por el Jerarca y los Titulares Subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.

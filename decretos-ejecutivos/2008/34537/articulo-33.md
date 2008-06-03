@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Del trámite de los informes y aceptación de las recomendaciones
+Artículo 33.—De los informes de auditoría. El informe es el producto sustantivo por medio del cual, la Auditoría Interna agrega valor para el cumplimiento de los objetivos institucionales y velando porque la Administración aplique en su gestión todos aquellos controles internos necesarios y respete los procedimientos que la normativa señala en cada situación en particular.
+Los informes de auditoría deben incluir como mínimo los objetivos, el alcance, los hallazgos, las conclusiones, las recomendaciones y demás resultados del trabajo, según la naturaleza de éste y con observancia de las disposiciones legales y normativa emitida por la Contraloría General de la República, la Procuraduría General de la República, Corte Suprema de Justicia y por el Ministerio de Hacienda, entre otros.
+Los informes sobre los servicios de auditoría versarán sobre diversos asuntos de su competencia y sobre aspectos de los que puedan derivarse posibles responsabilidades administrativas, civiles y/o penales, los cuales deben cumplir con la normativa técnica y legal correspondiente.
+Para los servicios preventivos, el Auditor Interno definirá el contenido y la forma de los informes, oficios u otros medios de comunicación, conforme con la naturaleza de los estudios o las situaciones que los generan.
+La Auditoría Interna, en la remisión de sus informes según corresponda, consignará la información referente a lo estipulado en los artículos 36, 37, 38 y 39 de la Ley N° 8292.

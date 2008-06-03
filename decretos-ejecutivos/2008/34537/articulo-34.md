@@ -1,0 +1,1 @@
+Artículo 34.—Trámite de informes de servicios de auditoría. Los informes producto de los servicios de Auditoría, se tramitarán de conformidad con lo dispuesto en el capítulo IV de la Ley General de Control Interno denominado Informes de Auditoría Interna y con observancia del Manual para el Ejercicio de la Auditoría Interna emitido por la Contraloría General de la República.

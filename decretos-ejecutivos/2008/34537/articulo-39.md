@@ -1,0 +1,1 @@
+Artículo 39.—Derogatoria. Déjese sin efecto el oficio DA-008-88 del 20 de junio de 1988, que se venía utilizando como “Reglamento de Organización y funciones de la Auditoría Interna”, el cual fue aprobado por el Dr. Álvaro Umaña Quesada, Ministro en su oportunidad del MINAE.

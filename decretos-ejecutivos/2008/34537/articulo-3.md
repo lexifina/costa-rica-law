@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios que conforman el Ministerio del Ambiente y Energía en la materia que les resulte aplicable.

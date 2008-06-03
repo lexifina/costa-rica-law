@@ -1,0 +1,1 @@
+Artículo 32.—Comunicación de los servicios preventivos de la Auditoría Interna. La comunicación de los servicios preventivos se hará en forma oral o por escrito a criterio del Auditor Interno, definirá el contenido y la forma de los informes, oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y su criterio profesional.

@@ -1,0 +1,3 @@
+Artículo 25.—Independencia funcional y de criterio. El Auditor Interno y los demás funcionarios de la Auditoría Interna, deberán ejercer su actividad con total independencia funcional y de criterio respecto al Ministro y a los demás Órganos de la Administración; por lo que:
+a) No podrán ser empleados ni ejercer funciones en ninguna otra unidad administrativa del Ministerio.
+b) No podrán ser miembros de juntas directivas, comisiones de trabajo o similares ni pertenecer en puestos directivos en la asociación solidarista del Ministerio, todo de conformidad con las disposiciones y prohibiciones que al respecto establecen la Ley General de Control Interno y la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
