@@ -1,5 +1,15 @@
-Articulo 49.—El Departamento de Soporte Técnico tendrá las siguientes funciones:
-1) Atender y solucionar problemas técnicos derivados de la operaci6n de equipos y programas.
-2) Coordinar con la Dirección de Sanidad, en materia de competencia, la solución de problemas que afecten o puedan afectar la integridad de los usuarios en materia de su competencia.
-3) Brindar mantenimiento preventivo y correctivo a los dispositivos físicos y lógicos cuando estos no cuenten con garantía, esta haya caducado o que no exista contrato, con alguna empresa externa al Ministerio que realice el servicio.
-4) Atender cualquier otra propia de su competencia.
+SECCION VIII
+Dirección de Informática
+Articulo 49.—La Dirección de Informática además de las funciones contempladas en el Decreto Ejecutivo 28921-SP tendrá las siguientes funciones:
+1) Analizar, diseñar, planificar, desarrollar y dar mantenimiento a los sistemas informáticos necesarios para la labor del Ministerio, considerando las recomendaciones y decisiones de la Comisión de Informática.
+2) Determinar y recomendar a la Comisión de Informática el equipo y programas informáticos necesarios para este Ministerio.
+3) Definir y aplicar procedimientos para el mejor aprovechamiento de los recursos informáticos.
+4) Elaborar y actualizar manuales técnicos de los diversos sistemas en operación.
+5) Coordinar y ejecutar actividades de capacitación en el Área de la Informática para el personal del Ministerio.
+6) Analizar los avances tecnológicos en Informática y su viabilidad y la eventual aplicación en el Ministerio.
+7) Administrar y dar mantenimiento a la red de transmisión de datos del Ministerio.
+8) Coordinar la obtención de información sistematizada de otros entes, que resulte de interés para este Ministerio.
+9) Recomendar y ejecutar las políticas de protección y seguridad de la información digital institucional.
+10) Brindar criterio técnico sobre los dispositivos físicos y lógicos o ; programas de compute que requiera este Ministerio.
+11) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 45 al 49 actual)

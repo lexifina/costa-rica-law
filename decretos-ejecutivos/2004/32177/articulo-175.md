@@ -1,10 +1,10 @@
-Articulo 175.—Al Museo de Armas Ie corresponde:
-1) Seleccionar el armamento, equipo policial y materiales explosivos que tengan interés histórico o tecnológico.
-2) Recopilar, ordenar y catalogar información de interés histórico referente a las armas del Estado.
-3) Custodiar y dar mantenimiento a todas las piezas que conformen el Museo.
-4) Solicitar a las instituciones gubernamentales que realizan decomisos, las piezas que puedan ser integradas al Museo de Armas.
-5) Gestionar frente a particulares, instituciones no gubernamentales, organismos internacionales y gobiernos amigos, piezas para ser integradas a la colección del Museo.
-6) Crear la base de datos que permita mantener actualizada la información e inventario de las piezas que integran el Museo.
-7) Establecer programas de difusión y proyección mediante los cuales se instruya al publico sobre la reseña histórica y la problemática de la tenencia de armas y explosivos.
-8) Cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 168 al 175 actual)
+Articulo 175.—El Departamento de Arsenal Nacional tendrá los siguientes deberes y responsabilidades:
+1)Custodiar, preservar, fiscalizar, dar mantenimiento preventivo y correctivo y trasladar las armas, municiones, cargadores, explosivos, aditamentos y accesorios, así como, equipo policial propiedad del Estado.
+2)Suministrar, mediante orden emitida por el Director (a) General de Armamento, las armas, municiones, aditamentos y accesorios, así como, cargadores, explosivos y equipo policial para el cumplimiento de las funciones de los distintos cuerpos policiales.
+3)Mediante acto razonado, emitir los procedimientos y directrices que serán de acatamiento obligatorio para las armerías comerciales y privadas y para los funcionarios de las distintas unidades policiales, en materia, la custodia, guarda, almacenamiento y mantenimiento de armas y explosivos.
+4)Asignar, mediante orden emitida por el Ministro (a) de esta Cartera, las armas, cargadores, municiones, aditamentos y accesorios que asignen, a cada uno de los Ministros (as) de Gobierno, para su protección personal mientras ejerzan sus respectivos cargos, de conformidad con lo dispuesto en la Ley de Armas y Explosivos y su Reglamento.
+5)Mantener actualizados los registros que muestren adecuada y apropiadamente los movimientos de entrega, inventarios, autorizaciones y otros controles que sean necesarios en relación con las armas, municiones, cargadores, aditamentos y accesorios; así como el equipo policial propiedad del Estado.
+6)Custodiar aquel armamento que por su peligrosidad, cantidad, magnitud o por las eventuales consecuencias cualitativas y/o cuantitativas de su manipulación y/o almacenaje, requiere traslado, previa autorización de la Dirección General de Armamento.
+7)Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 164 al 171 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 171 al 175 actual)

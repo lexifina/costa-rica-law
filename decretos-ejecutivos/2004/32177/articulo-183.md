@@ -1,19 +1,3 @@
-Articulo 183.—Modificaciones:
-a. Modifiquese el párrafo tercero del articulo primero, del Decreto N° 28856-SP, para que en adelante se lea:
-“Tendrá competencia en todo el territorio nacional, orgánicamente esta adscrito a la Dirección General Administrativa y deberá actuar de oficio o por denuncia o queja interpuesta”.
-b. Modifiquese el Decreto N° 26059-SP-MOPT, para que en donde dice “Taller Mecánico de la Fuerza Publica”, en lo sucesivo se lea “Centro de Servicios de Transporte de la Fuerza Publica”.
-C .Modifiquese el articulo 5 del Decreto Ejecutivo N° 28921-SP para que en lugar de Dirección General se lea “la Dirección”.
-d. Modifiquese el inciso h) del articulo 32 del Decreto Ejecutivo N° 28921-SP, sobre normas y políticas de informática, para que en adelante se lea:
-“h) Se utilizara como estándar para usuario final el software que adquiera y autorice la administración siempre que los recursos de la maquina lo permitan”.
-e. Modifiquese el párrafo primero del articulo 16 del Reglamento para el Uso de Vehículos del Ministerio de Seguridad Publica, Decreto Ejecutivo N° 26112-SP, para que en lo sucesivo se lea:
-“El Departamento de Transportes, que dependerá jerárquicamente de la Dirección General Administrativa y Financiera, será la responsable de llevar el control de todos los vehículos del Ministerio de Seguridad Publica y de velar por el eficaz cumplimiento de este Reglamento”.
-f. Modifiquense, del Reglamento de Servicios de los Cuerpos Policiales adscritos al Ministerio de Seguridad Publica, Decreto N° 23880-SP y sus reformas, las siguientes normas:
-Inciso 5) del articulo 166, inciso 4 del articulo 178, articulo 183, para que en donde dice “Viceministro del Consejo de Personal en su caso”, en lo sucesivo se lea únicamente:
-“Consejo de Personal”.
-g. Modifiquese el articulo 74 del Decreto Ejecutivo 23880-SP “Reglamento de Servicios de los Cuerpos Policiales adscritos al Ministerio de Seguridad Publica” para que en adelante se lea:
-“Articulo 74.—El órgano competente para conocer de los procesos disciplinarios en contra de los servidores policiales protegidos por el Estatuto Policial, es la Sección de Inspección Policial del Departamento Disciplinario Legal, el cual deberá instruir el caso, otorgar los plazos y garantías al servidor mediante el debido proceso y recomendar al Consejo de Personal lo pertinente, incluyendo las medidas cautelares que resulten procedentes.
-El Consejo de Personal, sin perjuicio de las facultades del Ministro para ese efecto, podrá ordenar como medidas cautelares mediante resolución fundada, la reubicación temporal o la suspensión temporal del funcionario investigado.
-La variación temporal de funciones se decretara a efectos de que el servidor desempeñe en forma provisional funciones policiales distintas a las que realizaba al momento del hecho que origino la investigación interna; o bien, a efectos de restringir sus actuaciones como funcionario publico, por lo que será su deber abstenerse de efectuar aquellas actividades que provisionalmente se Ie prohíban.
-Estas medidas provisionales o cautelares no irán en demérito de las condiciones salariales del servidor investigado y se impondrán atendiendo al tipo de falta investigada y a su gravedad, con la finalidad de mantener la buena imagen de la Institución y para evitar el riesgo de que el sometido a investigación, pueda obstruiría o, bien, modificar o destruir la prueba.
-La recomendación emitida por el Departamento Disciplinario Legal para aplicar una u otra medida cautelar, considerara la conveniencia y oportunidad del asunto, en relación con los principios de eficiencia y continuidad del servicio en materia de seguridad ciudadana y de conformidad con el interés publico predominante.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 176 al 183 actual)
+Articulo 183.—Toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica de este Ministerio deberá ser revisada por la Oficina de Planificación Institucional en coordinación con la Asesoría Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del Ministro.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 172 al 179 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 179 al 183 actual)

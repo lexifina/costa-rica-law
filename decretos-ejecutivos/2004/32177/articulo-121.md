@@ -1,9 +1,6 @@
-Articulo 121.—Las direcciones regionales, sin perjuicio de las funciones establecidas para la Fuerza Publica, cumplirán las siguientes funciones:
-1) Realizar acciones para promover intensamente la prevención y represión del delito.
-2) Planear y ejecutar estrategias y operativos preventivos ordinarios y de reacción, según las necesidades regionales, con el objeto de mantener el orden publico y la seguridad de los habitantes, sus bienes y el respeto de sus derechos y libertades fundamentales.
-3) Velar por el cumplimiento de la normativa ambiental en su Región, ejerciendo las labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos judiciales y administrativos competentes, aquellos actos y omisiones que contravengan esta normativa.
-4) Participar en los procesos de capacitación relacionados con la normativa y educación ambiental, que posibiliten ejercer mejor control, vigilancia, protección y conservación del ambiente.
-5) Coordinar con el Oficial Regional Administrativo las acciones administrativas y de soporte operacional de la Región.
-6) Apoyar a la Dirección del Servicios de Seguridad Privados en la labor de verificación y control de las personas físicas y jurídicas dedicadas a prestar este servicio al amparo de la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados.
-7) Ejercer la representación de la Fuerza Publica, en su Región, cuando así sea necesario.
-8) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+Articulo 121.—El Departamento de Investigación de Propiedad Intelectual, Ie corresponde:
+1) Investigar y aplicar lo establecido en la Ley N° 8039 de Observancia de los Derechos de Propiedad Intelectual, y Ley N° 6683 de Derechos de Autor y Derechos Conexos, normativa conexa y/o concordante, incluyendo los convenios internacionales, así como cualquier reforma legal que se hicieren sobre la materia.
+2) Procurar recibir, analizar y distribuir informaciones confidenciales de manera directa, poniéndolas en conocimiento del Ministerio Publico de conformidad con la legislación procesal penal.
+3) Realizar las investigaciones policiales que Ie sean solicitadas por el Ministerio Publico.
+4) Realizar los operativos, requisas, decomisos, secuestros, detenciones e investigaciones policiales de acuerdo a la legislación vigente.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 117al 121 actual)

@@ -1,10 +1,18 @@
-Articulo 43.—El Departamento de Presupuesto tendrá las siguientes funciones:
-1) Controlar y dar seguimiento a la ejecución de las partidas presupuestarias, así como velar por la aplicación de la normativa y procedimientos necesarios para una adecuada racional y proporcional ejecución.
-2) Vigilar que el control y ejecución presupuestario del Ministerio sea acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto Nacional, así como las demás Instituciones que intervienen en los procesos de ejecución presupuestaria.
-3) Coordinar con las diferentes unidades ejecutoras de presupuesto, la elaboración del Ante Proyecto Presupuestario, con el objetivo de que este responda a los Planes Operativos Institucionales.
-4) Coordinar y consolidar el anteproyecto de presupuesto del Ministerio, atendiendo la normativa técnica establecida por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices, generales y específicos, emitidos por la Autoridad Presupuestaria y la Contraloría General de la Republica.
-5) Ejercer supervisión sobre las actividades presupuestarias, de conformidad con las disposiciones y políticas que imparta el Ministerio de Hacienda y la Dirección General de Presupuesto Nacional.
-6) Valorar el resultado de la ejecución de las partidas presupuestarias, de acuerdo con los recursos asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad.
-7) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respaldan las operaciones económicas y financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinacion con la Contraloría General de la Republica.
-8) Formular las opciones de contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los programas, subprogramas y actividades presupuestarias.
-9) Atender cualquier otra propia de su competencia.
+SECCION VII
+Dirección Financiera
+Articulo 43.—La Dirección Financiera tendrá las siguientes funciones:
+1) Coordinar con las diferentes unidades ejecutoras de presupuesto la elaboración del Ante Proyecto Presupuestario.
+2) Vigilar que la actividad presupuestaria y otros ingresos del Ministerio estén acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto Nacional y la Contraloría General de la Republica.
+3) Coordinar, redactar y consolidar el anteproyecto de presupuesto del Ministerio, atendiendo la normativa jurídica vigente y la normativa técnica establecida y dictada por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices generales y especificas emitidos por la Autoridad Presupuestaria y la Contraloría General de la Republica. Este deberá ser presentado al Jerarca de este Ministerio para su aprobación y tramite ante la Dirección General de Presupuesto Nacional, a mas tardar, el 15 de mayo de cada año.
+4) Consolidar y presentar al Ministro la programación de la ejecución física y financiera del presupuesto, una vez autorizada y aprobada por la Dirección General de Presupuesto y velar por su cumplimiento.
+5) Velar por el cumplimiento de la ejecución física y financiera del presupuesto.
+6) Registrar los documentos de ejecución presupuestaria de cada Programa, Subprograma y Actividad, mediante los medios informáticos y materiales que establezca la Contabilidad Nacional, sin perjuicio de la supervisión que esta ejerza y de la fiscalización superior de la Contraloría General de la Republica y la Auditoria General del Ministerio.
+7) Realizar los tramites administrativos para gestionar cobros de las sumas adeudadas y recuperación de bienes a este Ministerio; así como, determinar la responsabilidad civil de terceros.
+8) Ejercer el control jurídico, contable y técnico de los documentos de ejecución presupuestaria, establecidos conforme a la normativa legal y reglamentaria vigentes.
+9) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respaldan las operaciones financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinacion con la Contraloría General de la Republica.
+10) Administrar la caja chica autorizada por la Tesorería Nacional, de conformidad con las disposiciones que se establezcan para tal efecto.
+11) Proponer a la Tesorería Nacional los pagos que correspondan por los bienes y/o servicios adquiridos, de conformidad con las regulaciones que al efecto esta defina.
+12) Valorar periódicamente los resultados de la ejecución, según los recursos presupuestarios asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad.
+13) Dar contenido presupuestario a los documentos de ejecución, estudios o proyectos que generan los ejecutores de la estructura presupuestaria.
+14) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 39 al 43 actual)

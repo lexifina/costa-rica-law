@@ -1,2 +1,3 @@
-Articulo 142.—El Consejo Académico es el órgano asesor que recomienda las políticas generales en el ámbito de educación policial, de conformidad con los criterios establecidos en la Ley General de Policía y sus reformas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 135 al 142 actual)
+Articulo 142.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de trafico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 131 al 138 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 138 al 142 actual)

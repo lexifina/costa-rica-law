@@ -1,4 +1,3 @@
-TITULO III
-Disposiciones finales
-Articulo 177.—Las direcciones tendrán el personal de apoyo, administrativo y técnico necesario para el desempeño de sus funciones.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 170 al 177 actual)
+Articulo 177.—El Departamento de Control de Armas y Explosivos no inscribirá en favor de particulares, armas que sean calificadas por la Ley de Armas y Explosivos como prohibidas, ni aquellas que calificadas de tales al momento de su fabricación, sean objeto de supresión o modificación en sus mecanismos, para disminuir su poder ofensivo. Tampoco podrán ser inscritas armas reportadas al Departamento como sustraídas, extraviadas o adquiridas o vendidas en forma ilegitima. Al respecto se procederá al decomiso del arma y su remisión a la autoridad judicial competente.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 166 al 173 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 173 al 177 actual)

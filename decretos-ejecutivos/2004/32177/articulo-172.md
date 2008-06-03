@@ -1,6 +1,15 @@
-Articulo 172.—El Departamento de Control de Armas y Explosivos tendrá los siguientes deberes y responsabilidades:
-1) Levantar y mantener actualizados y en forma adecuada y apropiada, los registros de todas las armas propiedad de particulares y tramitar los permisos establecidos en la Ley de Armas y Explosivos y su Reglamento y demás disposiciones vinculantes.
-2) Tramitar y resolver por escrito, los permisos que se soliciten para la inscripción, portación, adquisición, fabricación, importación, exportación, distribución y comercialización de las armas de fuego permitidas, sus municiones, sus partes, repuestos, aditamentos, accesorios; así como de la pólvora destinada a uso industrial agrícola, de minería, pirotécnico, deportivo y el gas para uso personal.
-3) Comprobar, inspeccionar, supervisar y fiscalizar la fabricación, compra, venta, importación, exportación, desalmacenaje, almacenaje, distribución, traslado y decomiso de armas, municiones, cargadores, aditamentos, accesorios, explosivos y afines.
-4) Aquellas otras que se deriven de nuestro ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 165 al 172 actual)
+CAPITULO XI
+Dirección General de Armamento
+SECCION I
+Normas generales
+Articulo 172.—La Dirección General de Armamento dependerá del Ministro (a) y tendrá las siguientes funciones:
+1) Autorizar, controlar, supervisar y fiscalizar el uso, manejo, custodia, guarda e inventario de las armas de fuego, municiones, explosivos y aditamentos utilizados por las fuerzas de policía del Estado, asf como de vigilar el cumplimiento de las disposiciones de la Ley de Armas y Explosivos y otras normas conexas y concordantes.
+2) Ejercer control sobre la inscripción, portación y fabricación de armas, municiones y explosivos, así como la actividad pirotécnica.
+armas, municiones y explosivos, así como la actividad pirotécnica.
+3) Coordinar con la Dirección de Unidades Especializadas la ejecución de acciones policiales en cumplimiento de la normativa concerniente a armas y explosivos.
+4) Enviar el informe anual a la Contraloría General de la Republica, al Ministro (a) y a la Auditoria General del Ministerio, sobre el inventario de armas del Estado.
+5) Hacerse cargo y administrar el Museo de Armas.
+6) Desarrollar procesos una vez al ano de auto evaluación de control interno y valoración de riesgo, según lo establecido en la Ley General de Control Interno.
+7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 161 al 168 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 168 al 172 actual)

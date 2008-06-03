@@ -1,12 +1,10 @@
-CAPITULO VI
-Policía encargada del control de drogas
-no autorizadas y actividades conexas
-Articulo 131.—La Policía Encargada del Control de Drogas no Autorizadas y Actividades Conexas, en adelante Policía de Control de Drogas dependerá del Ministro (a) y cumplirá las siguientes funciones:
-1) Realizar las actividades de prevención e investigación de lugares, personas y actividades en diversas zonas y centres de todo el país, con el propósito de detectar e impedir acciones tendientes al consumo, tenencia y trafico ilícito de estupefacientes y sustancias psicotrópicos, que prevé y sanciona la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas.
-2) Realizar operaciones permanentes de control preventivo en fronteras, costas, puertos y aeropuertos, y otros lugares nacionales estratégicos, para impedir el ingreso o salida de drogas ilegales del país y los bienes y/o derechos originados o utilizados en actividades de trafico de drogas y/o legitimación de capitales y actividades conexas.
-3) Prestar especial atención a la prevención, detección e investigación de todas aquellas acciones tendientes a la utilización de nuestro país, para el desvió de sustancias químicas esenciales y de precursores para la producción de drogas ilícitas, así como aquellas investigaciones policiales contra la legitimación de capitales, bienes y/o derechos, provenientes o utilizados en el trafico ilícito de drogas, procurando la efectiva actuación policial sustentada en criterios técnicos jurídicos, con la finalidad de recabar la prueba necesaria e identificar a los presumes responsables.
-4) Mantener canales de comunicacion con otros cuerpos policiales adscritos al Ministerio para que, informen a la Policía de Control de Drogas en forma inmediata para lo de su competencia y posible continuación de las investigaciones, cuando tengan conocimiento de información referente a algún hecho u omisión que pudiera eventualmente tipificarse dentro de los delitos previstos en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, o de alguna situación en relación con dicha normativa y lo hayan atendido en condiciones de urgencia o flagrancia.
-5) Ejecutar aquellos actos y diligencias ordenados por el Ministerio Publico, para prevenir, detectar, investigar y evitar toda actividad delictiva relacionada con lo dispuesto en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, los artículos 25 y 26 de la Ley General de Policía, y demás legislación y convenios internacionales concordantes y/o conexos.
-6) Desarrollar procesos una vez al ano, de auto evaluación, de control interne y valoración de riesgos, según lo establecido en la Ley General de Control Interno.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 124 al 131 actual)
+Artículo 131.—El Departamento de Aseguramiento Logístico, realizará las siguientes funciones:
+a) Mantener un registro actualizado y ordenado sobre el inventario de recursos asignados a la Dirección de Seguridad Turística.
+b) Gestionar la adquisición y distribución de recursos en coordinación con el Departamento de Operaciones, Inteligencia y Análisis.
+c) Coordinar los requerimientos logísticos de las operaciones a desarrollar por la Dirección de Seguridad Turística, asegurando que se suministren de manera pronta, eficaz, oportuna y adecuada.
+d) Establecer un plan anual de trabajo de mantenimiento preventivo y correctivo de las unidades móviles.
+e) Mantener enlaces con las Direcciones Regionales del Ministerio de Seguridad Pública, dependencias y organismos sujetos a convenio, relativo a suministros, hospedaje, transporte y alimentación para el personal policial asignado a la Dirección de Seguridad Turística.
+f) Llevar los controles de combustible, repuestos, avituallamiento y alimentación de la Dirección de Seguridad Turística.
+g) Aquellas otras propias de su competencia.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre del 2006)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 127 al 131 actual)

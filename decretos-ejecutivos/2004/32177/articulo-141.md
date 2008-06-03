@@ -1,8 +1,3 @@
-Articulo 141.—La Dirección tendrá, además de los deberes y responsabilidades establecidas en el articulo 19 del presente Reglamento, las siguientes:
-1) Valorar y ejecutar las políticas y lineamientos acordados por el Consejo Académico.
-2) Elaborar y proponer el plan anual de formación y capacitación; así como, el de presupuesto de la Escuela.
-3) Presidir el Consejo de Instructores.
-4) Conocer y resolver los reclames interpuestos por los estudiantes en asuntos académicos.
-5) Conocer y resolver, las solicitudes de convalidación que Ie sean presentadas, según lo dispuesto en los artículos 15 y 93 del Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Publica (N° 23880-SP), de conformidad con la reglamentación que se establezca al efecto. Previo estudio y recomendación que realice el Departamento Académico.
-6) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 134 al 141 actual)
+Articulo 141.—Los cuerpos policiales nacionales e internacionales acreditados podrán efectuar consultas al Centro, referentes a investigaciones concluidas, las cuales se regirán de acuerdo con lo establecido en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas y la Ley General de Policía y sus Reformas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 130 al 137 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 137 al 141 actual)

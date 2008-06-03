@@ -1,4 +1,2 @@
-Articulo 91.—La Dirección de Operaciones estará conformada por:
-1) Departamento de Planes y Operaciones.
-2) Departamento de Análisis y Tratamiento de la Información.
-3) Departamento de Enlace y Comunicaciones.
+Articulo 91.—Para los efectos del presente reglamento, el termino “Casa Presidencial” se usa indistintamente de “Presidencia de la Republica” y “Ministerio de la Presidencia”.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 87 al 91 actual)

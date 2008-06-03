@@ -1,5 +1,7 @@
-Articulo 108.—La Unidad Especial de Protección, como unidad especializada de la Fuerza Publica, realizara las siguientes funciones:
-1) Brindar vigilancia y protección física por medio de puestos fijos a las sedes diplomáticas, ex presidentes, viudas de ex presidentes, ex primeras damas, residencias de embajadores, dignatarios y otros funcionarios del Estado que la requieran por razones judiciales o de otra índole.
-2) Proteger objetivos especiales por decisión del Ministro de Seguridad Publica.
-3) Coordinar dispositivos de seguridad a solicitud de la Sede Diplomática, de eventos organizados en donde haya presencia de Representantes Diplomáticos o personalidades importantes.
-4) Cualquier otra que indique el ordenamiento jurídico.
+Articulo 108.—La Unidad de Operaciones en Armas y Explosivos, como unidad especializada de la Fuerza Publica, realizara las siguientes funciones:
+1) Ejecutar operativos para controlar la fabricación, posesión, manipulación, aportación, transporte, venta y distribución de armas y explosivos.
+2) Aplicar las medidas técnicas y de seguridad para el traslado de armamento y equipo policial propiedad del Estado.
+3) Asegurar el aérea geográfica y verificar el cumplimiento de las medidas de seguridad ordenadas por las autoridades competentes en detonaciones de explosivos industriales y pirotécnicos.
+4) Custodiar los cargamentos de armas y explosivos, así como sus partes, componentes y materias primas, cuyo destine final sea nuestro país o se encuentren en transito.
+5) Aquellas otras que se deriven de nuestro ordenamiento jurídico de conformidad con su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 104 al 108 actual)

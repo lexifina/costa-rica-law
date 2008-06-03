@@ -1,6 +1,4 @@
-Articulo 113.—El Departamento Técnico Aeronáutico tendrá las siguientes funciones:
-1) Actualizar el registro de habilitaciones del personal técnico, de pilotos y mecánicos encargados de operar y reparar las aeronaves pertenecientes o asignadas al Ministerio.
-2) Mantener actualizado el registro y las pólizas de las aeronaves propiedad del Ministerio, así como las asignadas a este.
-3) Velar porque los tripulantes de las aeronaves operen estas, de acuerdo con las regulaciones de transito aéreo y operación.
-4) Cumplir, ejecutar y dar seguimiento y continuidad a los programas de mantenimiento de las aeronaves, de conformidad con las directrices del fabricante.
-5) Aquellas otras propias de su competencia.
+SECCION VII
+Dirección Policial de Apoyo Legal
+Articulo 113.—La Dirección Policial de Apoyo Legal, dependerá de la Dirección General de la Fuerza Publica. Se compondrá de la Dirección, la Subdirección y una delegación en cada región programática policial. Esta Dirección cumplirá las funciones de asesoramiento legal y policial que establece la Ley General de Policía y sus Reformas, así como cualquier otra que se derive de nuestro ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 109 al 113 actual)

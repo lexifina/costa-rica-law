@@ -1,14 +1,18 @@
-Artículo 30.—El Departamento de Remuneraciones y Compensaciones tendrá las siguientes responsabilidades:
-1) Velar por el correcto trámite de aplicación de los movimientos de personal, relacionados con la administración de salarios y derechos pecuniarios derivados de la relación laboral.
-2) Mantener actualizado el sistema de pagos registrando y monitoreando los movimientos de personal de la Institución.
-3) Estudiar, analizar y tramitar, según su viabilidad jurídica y material, los incentivos y beneficios para los funcionarios de este Ministerio.
-4) Dar trámite al cobro de sumas pagadas de más a funcionarios y exfuncionarios con deudas pendientes y remitir a la Dirección Financiera cuando corresponda.
-5) Elaborar propuestas de planillas de pago del Instituto Nacional de Seguros y Caja Costarricense del Seguro Social, de acuerdo con los períodos que establezca el Ministerio de Hacienda.
-6) Recibir y tramitar las denuncias por accidentes laborales y de tránsito; así como las incapacidades emitidas por el Instituto Nacional de Seguros y la Caja Costarricense del Seguro Social, en materia propia de su competencia.
-7) Administrar la relación de puestos para el trámite y aplicación de los movimientos de personal de este Ministerio.
-8) Coordinar y elaborar el anteproyecto de presupuesto en materia salarial y dar el seguimiento a su ejecución, que sirva como base para la confección del proyecto de ley para el presupuesto ordinario anual de la Institución.
-9) Tramitar, ejecutar y controlar el contenido económico para asignar, reasignar, reclasificar, entre otros, los puestos con que cuenta este Ministerio.
-10) Ejecutar las disposiciones emitidas mediante resoluciones relacionadas con la materia salarial.
-11) Ejercer el control y monitoreo quincenal de pago de la planilla para verificar y analizar los resultados referentes a ésta.
-12) Atender cualquier otra propia de su competencia.
+SECCIÓN V
+Dirección de Recursos Humanos
+Artículo 30.— La Dirección de Recursos Humanos tendrá las siguientes funciones:
+1) Velar por la correcta aplicación del ordenamiento jurídico, políticas, manuales y lineamientos sobre la administración del recurso humano.
+2) Aplicar las recomendaciones y disposiciones que formula la Contraloría General de la República , el Ministerio de Hacienda, la Dirección General de Servicio Civil, la Auditoría General y otras instancias competentes del Ministerio, en materia de recursos humanos.
+3) Velar por la correcta administración del erario público, respecto de la materia salarial de la Institución.
+4) Coordinar procesos de capacitación que permitan el desarrollo técnico y funcional del recurso humano y realizar acciones que contribuyan a la formación profesional.
+5) Velar por la actualización del sistema de clasificación de puestos, con el propósito de que sirva de insumo para la valoración, reclutamiento, selección y capacitación del recurso humano.
+6) Dar seguimiento y control a los procesos y procedimientos llevados a cabo por esta Dirección.
+7) Emitir propuestas que permitan contar con el personal idóneo, según los requerimientos reales de la Institución para el cumplimiento de sus objetivos.
+8) Emitir políticas y lineamientos relacionados con la verificación del cumplimiento de la normativa legal y administrativa en materia de administración de recursos humanos.
+9) Velar por el correcto control y actualización de la relación de puestos y su contenido económico.
+10) Administrar los sistemas de información que permitan la inspección y control de los recursos humanos del Ministerio.
+11) Coordinar el sistema de Control Interno de la Dirección de Recursos Humanos.
+12) Tramitar lo relacionado con los movimientos de personal que se realizan en el Ministerio.
+13) Aquellas otras propias de su competencia.
 (Así reformado mediante artículo 1° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 26 al 30 actual)

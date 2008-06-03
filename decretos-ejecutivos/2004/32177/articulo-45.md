@@ -1,14 +1,11 @@
-SECCION VIII
-Dirección de Informática
-Articulo 45.—La Dirección de Informática además de las funciones contempladas en el Decreto Ejecutivo 28921-SP tendrá las siguientes funciones:
-1) Analizar, diseñar, planificar, desarrollar y dar mantenimiento a los sistemas informáticos necesarios para la labor del Ministerio, considerando las recomendaciones y decisiones de la Comisión de Informática.
-2) Determinar y recomendar a la Comisión de Informática el equipo y programas informáticos necesarios para este Ministerio.
-3) Definir y aplicar procedimientos para el mejor aprovechamiento de los recursos informáticos.
-4) Elaborar y actualizar manuales técnicos de los diversos sistemas en operación.
-5) Coordinar y ejecutar actividades de capacitación en el Área de la Informática para el personal del Ministerio.
-6) Analizar los avances tecnológicos en Informática y su viabilidad y la eventual aplicación en el Ministerio.
-7) Administrar y dar mantenimiento a la red de transmisión de datos del Ministerio.
-8) Coordinar la obtención de información sistematizada de otros entes, que resulte de interés para este Ministerio.
-9) Recomendar y ejecutar las políticas de protección y seguridad de la información digital institucional.
-10) Brindar criterio técnico sobre los dispositivos físicos y lógicos o ; programas de compute que requiera este Ministerio.
-11) Atender cualquier otra propia de su competencia.
+Articulo 45.—El Departamento de Tesorería tendrá las siguientes funciones:
+1) Controlar y dar seguimiento a los recursos financieros del Ministerio asignados por la Tesorería Nacional al Fondo General de Caja Chica del Ministerio.
+2) Administrar y custodiar los dineros y valores que se generen, así como atender el pago de las obligaciones que sean legalmente contraídas con cargo a los recursos financieros de este Ministerio.
+3) Dar contenido presupuestario a los documentos de ejecución tramitados por medio de las reservas de efectivo de caja chica destinadas por cada programa presupuestario, para compras menores y urgentes gestionadas a través del Fondo General de Caja Chica según se establece en el Reglamento General de Cajas Chicas publicado mediante Decreto 28338-H del 6 de enero del 2000 y sus reformas.
+4) Controlar y administrar el Fondo General de la Caja Chica Auxiliar, y los fondos que al efecto se aporten o se segreguen de este.
+5) Elaborar los flujos de caja de acuerdo con las necesidades del Ministerio.
+6) Definir y proponer al Ministerio de Hacienda la priorización de los pagos que solicita la Tesorería Nacional.
+7) Dar a conocer a las autoridades superiores por medio de informes, el estado de los recursos financieros que se administran a través de la Tesorería.
+8) Mantener y custodiar un archive de los documentos de ejecución presupuestaria que respaldan las operaciones financieras y económicas que se realicen, de conformidad con la normativa vigente, así como las regulaciones y lineamientos que definan el Ministerio de Hacienda y la Contraloría General de la Republica.
+9) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 41 al 45 actual)

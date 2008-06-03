@@ -1,2 +1,8 @@
-Articulo 138.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de trafico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 131 al 138 actual)
+Articulo 138.—El Departamento de Inteligencia tendrá las siguientes funciones:
+1) Realizar labores de inteligencia de cierta complejidad y análisis, con respecto a personas físicas y a grupos organizados dedicados al trafico ilícito de drogas, a la legitimación de capitales y/o actividades conexas.
+2) Crear enlaces con otras fuentes de información vinculadas con la materia, con el propósito de mantener actualizadas las bases documentales e informáticas de la Policía de Control de Drogas.
+3) Apoyar las investigaciones de casos relativos a legitimación de capitales, provenientes del trafico ilícito de drogas.
+4) Suministrar información a las dependencias y cuerpos policiales nacionales e internacionales debidamente autorizados por el Ministro (a) o a solicitud de una autoridad judicial competente.
+5) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 127 al 134 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 134 al 138 actual)

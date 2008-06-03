@@ -1,10 +1,9 @@
-Articulo 92.—El Departamento de Planes y Operaciones tendrá las siguientes funciones:
-1) Planificar y establecer los requerimientos operacionales policiales, ordinarios y extraordinarios, de las diferentes actividades dirigidas al mantenimiento de la seguridad nacional, de los habitantes, sus bienes, sus derechos y libertades fundamentales y el orden publico dentro el territorio nacional.
-2) Participar activamente y evaluar el proceso operativo policial ordinario y extraordinario de la Fuerza Publica, para identificar las limitaciones, deficiencias y duplicidades existentes y realizar las coordinaciones, recomendaciones y acciones que conlleven a la superación de estas.
-3) Elaborar programas, proyectos e informes orientados a mejorar la función operacional de la Fuerza Publica.
-4) Mantener comunicacion y coordinación con organismos privados y públicos, de carácter nacional e internacional, con los cuales la Fuerza Publica ejecuta acciones operacionales de índole policial.
-5) Desarrollar iniciativas de comunicacion e información dirigidas al publico en general con el propósito de fortalecer la seguridad de los habitantes, la preservación del orden publico y la prevención del delito.
-6) Planificar, coordinar, supervisar y participar en la atención de las emergencias naturales o antrópicas.
-7) Establecer los requerimientos de las Operaciones a desarrollar por la Dirección, coordinando y asegurando que los recursos requeridos se suministren de manera pronta, eficaz, oportuna y adecuada.
-8) Mantener un registro actualizado y en estricto orden sobre el inventario de recursos asignados a la Dirección.
-9) Cualquier otra propia de su competencia.
+Articulo 92.—El Centre de Servicios de Policiales tendrá las siguientes funciones:
+1) Participar en las labores policiales, brindando el transporte a funcionarios.
+2) Procurar que el suministro de transporte se brinde de manera eficiente y oportuna.
+3) Facilitar el transporte de materiales, equipo y productos alimenticios a las unidades policiales.
+4) Brindar transporte a funcionarios, así como el traslado de suministros requeridos en casos de emergencia nacional.
+5) Brindar el servicio de transporte de funcionarios, cosas o mercaderías en cumplimiento de funciones policiales.
+6) Asignar, cuando se requiera, los conductores policiales autorizados de acuerdo a las necesidades de las dependencias del Ministerio.
+7) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 88 al 92 actual)

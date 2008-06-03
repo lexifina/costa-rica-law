@@ -1,6 +1,6 @@
-Articulo 82.—El Consejo Superior de Oficiales será el órgano asesor de la Dirección General de la Fuerza Publica y tendrá las siguientes funciones:
-1) Brindar asesoría en cuanto a tácticas, experiencias, técnicas, estrategias, fortalezas, procedimientos, protocolos, necesidades y limitaciones de las unidades policiales.
-2) Asesorar sobre las Operaciones ordinarias, especiales, de capacitación y coordinación de ejercicios conjuntos.
-3) Cooperar con la preparación de los planes logísticos, estratégicos de abastecimiento y mantenimiento de bienes.
-4) Recomendar mecanismos de enlace entre la Dirección General de la Fuerza Publica, las organizaciones civiles y la población.
-5) Cualquier otra actividad técnico-policial que requiera la Dirección General de la Fuerza Publica.
+Articulo 82.—El Ejecutivo(a) del Director(a) General de la Fuerza Publica tendrá al menos el grado policial de Comandante y cumplirá con las siguientes funciones, sin perjuicio de las señaladas para la Dirección General de la Fuerza Publica:
+1) Coordinar con las unidades policiales, 6rganos judiciales y otras instituciones u organizaciones, la acción policial de forma inmediata para el mantenimiento de la seguridad de los habitantes, el ejercicio legitimo de derechos y libertades fundamentales, el orden publico, la prevención y represión del delito, como consecuencia de la atención de reportes de incidencias delictivas efectuados a través del sistema 9.1.1. y de cualquier otro medio.
+2) Administrar los recursos humanos y materiales necesarios para dar respuesta de manera inmediata a la incidencia, según la naturaleza del evento reportado.
+3) Informar a la Dirección General de la Fuerza Publica, sobre aquellas circunstancias, elementos u otros aspectos que hayan limitado la atención efectiva y oportuna del incidente reportado.
+4) Atender cualquier o propia de su competencia o designio de la Dirección General.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 78 al 82 actual)

@@ -1,17 +1,12 @@
-SECCIÓN V
-Dirección de Recursos Humanos
-Artículo 26.— La Dirección de Recursos Humanos tendrá las siguientes funciones:
-1) Velar por la correcta aplicación del ordenamiento jurídico, políticas, manuales y lineamientos sobre la administración del recurso humano.
-2) Aplicar las recomendaciones y disposiciones que formula la Contraloría General de la República , el Ministerio de Hacienda, la Dirección General de Servicio Civil, la Auditoría General y otras instancias competentes del Ministerio, en materia de recursos humanos.
-3) Velar por la correcta administración del erario público, respecto de la materia salarial de la Institución.
-4) Coordinar procesos de capacitación que permitan el desarrollo técnico y funcional del recurso humano y realizar acciones que contribuyan a la formación profesional.
-5) Velar por la actualización del sistema de clasificación de puestos, con el propósito de que sirva de insumo para la valoración, reclutamiento, selección y capacitación del recurso humano.
-6) Dar seguimiento y control a los procesos y procedimientos llevados a cabo por esta Dirección.
-7) Emitir propuestas que permitan contar con el personal idóneo, según los requerimientos reales de la Institución para el cumplimiento de sus objetivos.
-8) Emitir políticas y lineamientos relacionados con la verificación del cumplimiento de la normativa legal y administrativa en materia de administración de recursos humanos.
-9) Velar por el correcto control y actualización de la relación de puestos y su contenido económico.
-10) Administrar los sistemas de información que permitan la inspección y control de los recursos humanos del Ministerio.
-11) Coordinar el sistema de Control Interno de la Dirección de Recursos Humanos.
-12) Tramitar lo relacionado con los movimientos de personal que se realizan en el Ministerio.
-13) Aquellas otras propias de su competencia.
-(Así reformado mediante artículo 1° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)
+SECCION II
+Unidades adscritas a la (*)Dirección General
+Administrativa
+Articulo 26.—El Ministerio contara con una Unidad de Proyectos de Infraestructura y Equipamiento Policial, la cual estará adscrita a la (*)Dirección General Administrativa y realizara las siguientes funciones:
+(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 34389 del 13 de febrero del 2008).
+1) Planificar, desarrollar, administrar y, supervisar las actividades relacionadas con proyectos de infraestructura y equipamiento para los cuerpos policiales del Ministerio, bajo el concepto de Policía Civilista.
+2) Diagnosticar las necesidades de inversión en Obras de infraestructura y equipamiento policial y emitir las recomendaciones pertinentes.
+3) Elaborar y presentar perfiles, estudios de prefactibilidad, así como, otros informes relativos a infraestructura y equipamiento policial.
+4) Coadyuvar en la formulación del presupuesto relacionado con el desarrollo de proyectos de infraestructura y equipamiento policial.
+5) Elaborar manuales de procedimientos para la ejecución y evaluación de procesos de formulación y desarrollo de proyectos de infraestructura y equipamiento policial.
+6) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 22 al 26 actual)

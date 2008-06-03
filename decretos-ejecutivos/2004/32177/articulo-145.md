@@ -1,12 +1,9 @@
-Articulo 145.—El Departamento Administrativo es el órgano de apoyo de la Escuela, subordinado a la Dirección y tendrá las siguientes funciones:
-1) Velar por la eficiencia administrativa de la Escuela y emitir recomendaciones a la Dirección que optimicen el uso de los recursos y la eficiencia de la Escuela.
-2) Preparar la información técnica administrativa para las instancias que lo requieran.
-3) Elaborar, ejecutar y evaluar, en coordinación con la Dirección y los departamentos, el presupuesto asignado, de acuerdo con las políticas del Ministerio.
-4) Coordinar con la Dirección de Recursos Humanos el optimo reclutamiento y selección de personal de la Escuela Nacional de Policía, de acuerdo con los requisitos establecidos.
-5) Mantener el registro actualizado de los expedientes del personal y llevar los controles de asistencia, vacaciones, capacitación, permisos, incapacidades, suspensiones y demás aspectos que se refieran a la relación laboral administrativa de cada uno de los integrantes del personal.
-6) Establecer, mantener, perfeccionar y evaluar el sistema de control interno de la Escuela. Asimismo, coordinar las acciones necesarias con el jerarca y titulares subordinados, para garantizar su efectivo funcionamiento, en las diversas áreas administrativas, logísticas y propias de la actividad ordinaria, tales como, pero no limitados a: alimentación, combustible, control de activos, mantenimiento, vehículos, etc.
-7) Realizar las funciones de Secretaria Técnica del Consejo Académico.
-8) Tramitar los informes internos, quejas, reportes disciplinarios y otros documentos propios de las competencias del Departamento.
-9) Supervisar el buen estado de conservación y utilidad de las instalaciones físicas.
-10) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 138 al 145 actual)
+Articulo 145.—La Dirección tendrá, además de los deberes y responsabilidades establecidas en el articulo 19 del presente Reglamento, las siguientes:
+1) Valorar y ejecutar las políticas y lineamientos acordados por el Consejo Académico.
+2) Elaborar y proponer el plan anual de formación y capacitación; así como, el de presupuesto de la Escuela.
+3) Presidir el Consejo de Instructores.
+4) Conocer y resolver los reclames interpuestos por los estudiantes en asuntos académicos.
+5) Conocer y resolver, las solicitudes de convalidación que Ie sean presentadas, según lo dispuesto en los artículos 15 y 93 del Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Publica (N° 23880-SP), de conformidad con la reglamentación que se establezca al efecto. Previo estudio y recomendación que realice el Departamento Académico.
+6) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 134 al 141 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 141 al 145 actual)

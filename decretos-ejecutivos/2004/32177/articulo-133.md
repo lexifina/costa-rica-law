@@ -1,6 +1,12 @@
-Articulo 133.—El Departamento de Operaciones tendrá las siguientes funciones:
-1) Realizar investigaciones, operativos, decomisos y secuestros, además de detenciones de personas vinculadas con el trafico ilícito de drogas, legitimación de capitales y actividades conexas.
-2) Apoyar a las Delegaciones Regionales con logística, personal y recursos, en investigaciones y operativos de cierta dificultad y complejidad, con la finalidad de detectar, prevenir y reprimir actividades de trafico ilícito de drogas, legitimación de capitales y actividades conexas.
-3) Realizar investigaciones que involucran actividades de desviación de precursores y químicos esenciales para la preparación o fabricación de drogas ilícitas; así como, operaciones de erradicación de plantaciones de drogas ilícitas.
-4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 126 al 133 actual)
+Artículo 133.—El Departamento de Operaciones, Inteligencia y Análisis, tendrá las siguientes funciones:
+a) Planificar y establecer los requerimientos operacionales policiales, ordinarios y extraordinarios, de las actividades dirigidas a mantener la seguridad de la población turística, sus bienes, sus derechos y libertades fundamentales.
+b) Recopilar, analizar y procesar información de interés policial que permita el desarrollo de acciones policiales con eficacia y eficiencia, tanto en el plano estratégico como en el táctico.
+c) Coordinar labores de inteligencia de cierta complejidad y análisis con respecto a personas físicas o grupos organizados dedicados a delinquir contra la población turística.
+d) Participar activamente y evaluar el proceso operativo policial ordinario y extraordinario de la Dirección de Seguridad Turística, para identificar las limitaciones, deficiencias y duplicidades existentes y realizar las coordinaciones, recomendaciones y acciones que conlleven a la superación de estas.
+e) Coordinar el intercambio de información con otras dependencias del Ministerio y entidades policiales nacionales e internacionales.
+f) Estructurar y mantener el registro de información documental y la base informática de datos en materia de seguridad turística, que sea ágil, sistemática y segura.
+g) Gestionar la elaboración de documentos para que sean utilizados operacionalmente por las unidades policiales.
+h) Participar de las diferentes Operaciones policiales que requieran un monitoreo constante, con la finalidad de recopilar información de interés policial que conlleven a la toma de decisiones de la Dirección o del jerarca.
+i) Aquellas otras propias de su competencia.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre del 2006)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 129 al 133 actual)

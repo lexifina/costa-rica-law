@@ -1,8 +1,10 @@
-SECCION VI
-Dirección Administrativa
-Articulo 33.—La Dirección Administrativa, tendrá las siguientes funciones:
-1) Satisfacer en forma ágil y oportuna la custodia, distribución y mantenimiento de los recursos materiales y servicios como apoyo a la labor sustantiva que realiza el Ministerio.
-2) Velar por el registro y control de los vehículos que circulan por las vías publicas terrestres, propios y asignados a las diferentes dependencias del Ministerio, con el fin de asegurar el uso y la distribución racionales y adecuados del equipo móvil de transporte.
-3) Velar por la correcta adquisición y distribución de los bienes y servicios requeridos por las diferentes instancias de la Institución con el propósito de desarrollar la gestión presupuestaria bajo los principios de eficiencia, eficacia, economía y calidad.
-4) Velar por el mantenimiento, reparación y construcción de la infraestructura con que cuenta el Ministerio, con el propósito de brindar un mejor servicio y mejorar las condiciones sociolaborales de los funcionarios y los usuarios.
-5) Aquellas otras propias de su competencia.
+Artículo 33.—El Departamento de Análisis y Evaluación tendrá las siguientes funciones:
+1) Revisar la estructura orgánica institucional con la finalidad de mantener el orden congruente entre la necesidad del recurso humano y los cambios de la misma.
+2) Diseñar y mantener actualizada la estructura ocupacional de puestos y cargos.
+3) Determinar la cantidad de clases de puestos que requieren los distintos procesos institucionales, de acuerdo con su naturaleza y en coordinación con las dependencias involucradas.
+4) Elaborar y mantener actualizado el Manual de Clases Institucional, acorde con la estructura orgánica.
+5) Realizar estudios técnicos en materia de análisis ocupacional relacionados con: reasignaciones, asignaciones, cambios y creación de especialidades, atinencias del rango de aplicación, homologación de clases, dispensa de requisitos, creación de especialidades, entre otros.
+6) Desarrollar estudios de productividad relacionados con: optimización, aprovechamiento del tiempo, estudios de cargas de trabajo, manuales de procedimientos, entre otros.
+7) Atender cualquier otra propia de su competencia.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 34106 del 24 de setiembre de 2007)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 29 al 33 actual)

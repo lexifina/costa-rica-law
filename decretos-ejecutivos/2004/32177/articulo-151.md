@@ -1,6 +1,9 @@
-Articulo 151.—La Academia del Servicio Nacional de Guardacostas tendrá las siguientes funciones:
-1) Desarrollar el proceso de formación y capacitación táctica-operativa y estratégica con la finalidad de formar funcionarios del Servicios Nacional de Guardacostas capaces de velar por la seguridad de las especies marinas, los recursos naturales marítimo-costeros, mar patrimonial, plataforma continental, rescate de personas en situaciones de peligro y localización de embarcaciones extraviadas.
-2) Diseñar los programas de instrucción permanente orientándolos al desarrollo de la educación científica en el ámbito policial, ambiental y humanístico, que brinde la formación según la orientación y competencia del Servicio Nacional de Guardacostas.
-3) Promover el establecimiento de convenios de cooperación con gobiernos, instituciones nacionales e internacionales y la empresa privada para el desarrollo de programas de educación conjuntos.
-4) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 144 al 151 actual)
+Articulo 151.—Al Departamento de Investigación y Evaluación Ie corresponderán las siguientes funciones:
+1) Conducir investigaciones sobre temas de seguridad y policía que sirvan de insumo para la elaboración de políticas en el campo de la Enseñanza.
+2) Realizar diagnósticos, en coordinación con la Dirección General de la Fuerza Publica, sobre las necesidades de formación y capacitación de los servidores policiales, Reserva de la Fuerza Publica, oficiales de seguridad privada y recomendar ajustes a los programas de instrucción.
+3) Confeccionar y mantener actualizados los manuales de procedimientos.
+4) Evaluar los procesos de formación y capacitación en coordinación con el Departamento Académico.
+5) Brindar seguimiento, en coordinación con la Dirección General de la Fuerza Publica, a las labores policiales de los egresados.
+6) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 140 al 147 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 147 al 151 actual)

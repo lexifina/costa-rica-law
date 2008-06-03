@@ -1,5 +1,6 @@
-Articulo 48.—El Departamento de Telemática tendrá las siguientes funciones:
-1) Instalar los diferentes equipos que conforman la red de transmisión de datos, tanto lo correspondiente a la fuente de energía, como a los programas que estos necesitan para su operación.
-2) Fijar los estándares de protocolo de comunicación.
-3) Velar por el eficiente y adecuado funcionamiento de la red de transmisión de datos y los servidores de bases de datos.
-4) Atender cualquier otra propia de su competencia.
+Articulo 48.—El Departamento de Cobros Administrativos tendrá las siguientes funciones:
+1) Tramitar los procesos de lesividad de conformidad con el ordenamiento jurídico.
+2) En relación con el personal, gestionar los procesos de cobro o recuperación de sumas giradas de mas, enriquecimiento sin causa, preavisos, incumplimiento de contratos, incluyendo los convenios de estudio, incapacidades no deducidas o no deducidas oportunamente, o cualquier otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para la Administración, para lo cual se constituirá en órgano director del respectivo procedimiento.
+3) Tramitar los procesos de carácter indemnizatorio a favor de la administración por concepto de danos y perjuicios, incumplimiento de contratos, responsabilidad extracontractual, enriquecimiento sin causa o cualquiera otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para el Estado relacionados con los bienes y/o derechos del Ministerio.
+4) Cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 44 al 48 actual)

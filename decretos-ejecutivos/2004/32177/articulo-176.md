@@ -1,4 +1,7 @@
-CAPITULO XII
-Servicio Nacional de Guardacostas
-Articulo 176.—El Servicio Nacional de Guardacostas, creado mediante la Ley N° 8000, del 5 de mayo, 2000, cumplirá las funciones y tendrá la organización establecida en este cuerpo legal y en su reglamento.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 169 al 176 actual)
+Articulo 176.—El Departamento de Control de Armas y Explosivos tendrá los siguientes deberes y responsabilidades:
+1) Levantar y mantener actualizados y en forma adecuada y apropiada, los registros de todas las armas propiedad de particulares y tramitar los permisos establecidos en la Ley de Armas y Explosivos y su Reglamento y demás disposiciones vinculantes.
+2) Tramitar y resolver por escrito, los permisos que se soliciten para la inscripción, portación, adquisición, fabricación, importación, exportación, distribución y comercialización de las armas de fuego permitidas, sus municiones, sus partes, repuestos, aditamentos, accesorios; así como de la pólvora destinada a uso industrial agrícola, de minería, pirotécnico, deportivo y el gas para uso personal.
+3) Comprobar, inspeccionar, supervisar y fiscalizar la fabricación, compra, venta, importación, exportación, desalmacenaje, almacenaje, distribución, traslado y decomiso de armas, municiones, cargadores, aditamentos, accesorios, explosivos y afines.
+4) Aquellas otras que se deriven de nuestro ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 165 al 172 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 172 al 176 actual)

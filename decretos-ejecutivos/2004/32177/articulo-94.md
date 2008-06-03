@@ -1,14 +1,15 @@
-Articulo 94.—El Departamento de Enlace y Comunicaciones tendrá las siguientes funciones:
-1) Operar la red de comunicaciones del Ministerio y la intercomunicación con frecuencias externas publicas o privadas de interés policial.
-2) Administrar el protocolo operacional denlas comunicaciones y coordinar el enlace de los usuarios con las cadenas del sistema de información del país. Asimismo, establecer y asignar los códigos y claves para uso de las diferentes dependencias del Ministerio.
-3) Establecer procedimientos para operar los sistemas de automatización de los equipos de comunicacion y sus programas.
-4) Coordinar la configuración de la red de comunicaciones policiales en sectores, subsectores y hacia las instancias superiores.
-5) Comunicar al Ejecutivo(a) de la Dirección General de la Fuerza Publica, la atención de reportes de incidencias delictivas recibidos a través del sistema 9.1.1. y de cualquier otro medio.
-6) Enlazar las diferentes regiones policiales y unidades especializadas de la Fuerza Publica, para coordinar trabajos, estrategias, operaciones y acciones policiales conjuntas.
-7) Instalar y brindar el mantenimiento preventivo y correctivo a las diferentes redes de comunicacion del Ministerio.
-8) Programar los equipos de comunicacion en los diferentes segmentos de banda (VHP, UHF, HP) y banda celular, dentro de un estricto marco de confidencialidad. Asimismo, diseñar y construir circuitos lógicos y fuentes de poder para tales efectos.
-9) Determinar las necesidades y especificaciones técnicas de circuitos lógicos y fuentes de poder requeridos por la Dirección.
-10) Asesorar a funcionarios policiales y administrativos, sobre el mejor aprovechamiento y uso adecuado de los equipos de radio-comunicacion.
-11) Diseñar y construir cobertores y gabinetes para la protección de los equipos de radio-comunicacion.
-12) Instalar, desinstalar, mantener y reparar antenas y torres de diferentes clases, modelos y dimensiones, así como equipo de radio-comunicacion colocado en vehículos y unidades policiales.
-13) Cualquier otra propia de su competencia.
+SECCION V
+Dirección de Operaciones
+Articulo 94.—La Dirección de Operaciones dependerá de la Dirección General de la Fuerza Publica y cumplirá las siguientes funciones:
+1) Planificar, coordinar, supervisar y participar en los diversos operativos policiales ordinarios y extraordinarios para el mantenimiento de la seguridad nacional, de los habitantes, sus bienes, sus derechos y libertadas fundamentales, el orden publico y la prevención del delito, velando por el estricto cumplimiento de la normativa vigente y de las políticas, directrices y lineamientos emanadas por la Dirección General de la Fuerza Publica.
+2) Brindar soporte operacional y técnico a las Direcciones Regionales y unidades policiales.
+3) Proveer información a la Dirección General de la Fuerza Publica sobre situaciones operativas.
+4) Mantener actualizadas las necesidades de seguridad de las diferentes unidades policiales del país.
+5) Recopilar y analizar información obtenida de diferentes fuentes, con la finalidad de producir y suministrar a las entidades que corresponda, de modo permanente, inteligencia policial oportuna, confiable y útil para la adopción de medidas tácticas y estratégicas en materia de seguridad de los habitantes y de resguardo del orden publico mediante la confección de orden de Operaciones.
+6) Identificar necesidades de capacitación y gestionar con las instancias pertinentes las actividades de capacitación para el personal policial y administrativo.
+7) Colaborar con la Oficina de Planificación Institucional en la elaboración de diagnósticos, estudios e investigaciones, operacionales o técnicos para crear, fortalecer, modificar, reubicar o suprimir unidades, delegaciones u otro tipo de dependencia policial.
+8) Asegurar que los recursos requeridos en situaciones operativas se suministren de manera pronta, eficaz, oportuna y adecuada.
+9) Realizar las acciones pertinentes con la finalidad de actualizar los sistemas de radio-comunicacion, de acuerdo con las necesidades de las diferentes instancias del Ministerio, aplicando criterios de racionalidad.
+10) Administrar las redes de comunicacion del Ministerio en los diferentes segmentos del espectro radioeléctrico (VHF, UHF, HF), y la banda celular, así como la interconexión de frecuencias externas, publicas o privadas, de interés policial.
+11) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 90 al 94 actual)

@@ -1,26 +1,16 @@
-CAPITULO V
-(*)Dirección General Administrativa
-SECCION I
-Dirección General
-Articulo 21.—La (*)Dirección General Administrativa estará adscrita al Despacho del Ministro, teniendo las siguientes funciones:
-(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 34389 del 13 de febrero del 2008).
-1) Planificar, dirigir, coordinar y controlar el funcionamiento de las diferentes unidades que conforman el área administrativa o de apoyo de la Institución, con la asistencia de los subdirectores generales, los directores y los jefes de departamento a su cargo.
-2) Conducir la gestión de las dependencias bajo su cargo.
-3) Formular en coordinación con la Jerarquía Institucional los lineamientos, procedimientos y políticas de la Dirección General que regulen y controlen la gestión de las unidades que la conforman.
-4) Coordinar la planificación estratégica de la Dirección General.
-5) Especificar a las unidades bajo su cargo las metas de gestión, definir los plazos de cumplimiento, proponer mecanismos de realimentación que permitan corregir desviaciones y establecer reuniones periódicas de evaluación.
-6) Brindar soporte administrativo y técnico a las actividades sustantivas del Ministerio de Seguridad Pública mediante el ejercicio de las funciones encomendadas a cada una de las unidades bajo su cargo.
-7) Fomentar, promocionar, estimular y potenciar el desarrollo de actividades que ayuden a elevar la calidad de la gestión de la dirección general administrativa del Ministerio de Seguridad Pública.
-8) Impulsar los procesos de innovación y cambio que requiera la Dirección General con el propósito de mejorar la calidad de su gestión, mediante la promoción y desarrollo de actividades sistemáticas y participativas.
-9) Proponer y coordinar la realización de estudios básicos de las áreas que integran la Dirección General en temas relevantes y afines a la especialidad de cada unidad que conforma la dirección general.
-10) Proponer los diferentes instrumentos de información que servirán de apoyo a la gestión de la dirección.
-11) Propiciar el desarrollo de estadísticas generales que describan la actividad de la dirección, así como la formulación de proyectos que potencien su capacidad de gestión.
-12) Velar por la debida gestión, coordinación y control de las contrataciones y adquisiciones que le competen, velando por su calidad, el seguimiento técnico y el buen uso de los recursos.
-13) Evaluar las operaciones y los productos obtenidos por la Dirección General e informar a los superiores sobre los resultados.
-14) Representar al Despacho Ministerial en actividades internas y externas del Ministerio en materia de su competencia.
-15) Supervisar la formulación y presentación de reportes e informes oficiales, de recursos materiales, de infraestructura, de contrataciones y adquisiciones, de servicios generales, recursos humanos, informática, médicos y disciplinarios, así como cualquier otro tipo de informe relacionado con las áreas bajo su cargo a las autoridades del Ministerio y a las correspondientes del Gobierno Central, así como a las entidades fiscalizadoras de la Administración Pública.
-16) Coordinar la asesoría oportuna y pertinente en las materias bajo su cargo a las áreas sustantivas del ministerio por medio de actividades propias de su competencia.
-17) Servir de enlace y coordinación de las relaciones institucionales entre los jerarcas de la institución y las áreas sustantivas del Ministerio en materia de su competencia.
-18) Ejecutar la legislación vigente en materia de su competencia por parte de las unidades a su cargo.
-19) Las demás funciones establecidas legal y reglamentariamente; amén de las asignadas por el Ministro.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33854 del 2 de julio del 2007).
+Artículo 21.— La Unidad de Control Interno tendrá las siguientes funciones:
+1) Velar por la correcta aplicación del sistema de control interno que posibilite la protección y utilización racional de los recursos institucionales.
+2) Remitir a los titulares subordinados los lineamientos a seguir en las diferentes etapas de la autoevaluación.
+3) Asesorar en el desarrollo y mejoramiento del Sistema de Control Interno a los titulares subordinados.
+4) Capacitar, asesorar y evaluar sobre el modelo de Auto evaluación de Control Interno que se aplicarán en la institución.
+5) Verificar que el Sistema de Control Interno esté formalmente establecido en la organización y que su ejercicio sea intrínseco al desarrollo de las funciones de todos los cargos, en particular, en aquellos que tengan responsabilidad de mando.
+6) Colaborar con la Administración en la implementación de las recomendaciones remitidas por la Contraloría General de la República y la Auditoría General del Ministerio, para el fortalecimiento de los controles internos.
+7) Verificar que los controles asociados con las actividades de la organización, sean definidos, apropiados y mejoren permanentemente, de acuerdo con la evolución de la entidad.
+8) Velar por que los controles aseguren y se adecuen al cumplimiento de las leyes, normas, políticas, procedimientos, planes, programas, proyectos y metas de la organización.
+9) Verificar los controles relacionados con el manejo de los recursos, bienes y sistemas de información de la entidad y recomendar las medidas correctivas sean necesarias.
+10) Verificar la implementación de las medidas correctivas recomendadas para la Auto Evaluación de Control Interno.
+11) Preparar en coordinación con la Unidad de Gestión de Riesgos, la información para la elaboración del Manual de Políticas y Procedimientos para la Administración Integral de Riesgos.
+12) Elaborar y aplicar los planes de contingencia, en caso de que el Control Interno sea desfavorable e inseguro para el patrimonio de la Institución.
+13) Elaborar y presentar los informes al superior jerárquico y al Equipo Gerencial de la Auto evaluación de Control Interno.
+14) Cualquier otra propia de su competencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008)

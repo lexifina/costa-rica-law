@@ -1,3 +1,3 @@
-Articulo 186.—Rige a partir de su publicación.
-Dado en San José, a las ocho horas del día primero de diciembre del ano dos mil cuatro.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 179 al 186 actual)
+Articulo 186.—El Ministerio integrara las comisiones que considere necesarias para la atención de asuntos o temas específicos que, a su juicio, sean de interés institucional o nacional.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 175 al 182 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 182 al 186 actual)

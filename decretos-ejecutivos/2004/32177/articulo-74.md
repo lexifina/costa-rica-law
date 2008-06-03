@@ -1,7 +1,12 @@
-Articulo 74.—El Director(a) General de la Fuerza Publica, además de los requisitos señalados en la Ley General de Policía y sus reformas, deberá cumplir con los siguientes:
-1) Ostentar el grado policial de Comisario(a).
-2) Tener conocimientos básicos en Administración, Derechos Humanos, Legislación Policial, Derecho Penal, Derecho Procesal Penal y Criminología.
-3) Cumplir con los cursos de capacitación y actualización profesional que el Ministro(a) designe.
-4) Poseer, como mínimo, un diplomado universitario en una carrera afán al desempeño de las funciones policiales, o bien, contar con el bachillerato en Enseñanza Media y haber laborado en funciones policiales por un periodo mínimo de 15 anos.
-5) Someterse a investigación confidencial en el ámbito socioeconómico, laboral, judicial, crediticio y antecedentes de conducta.
-6) Otros requisitos que este Ministerio establezca, previo al proceso de selección.
+Artículo 74.—A la Inspección General, le corresponderá las siguientes funciones:
+1) Verificar oportunamente que los funcionarios de los cuerpos de policía del Ministerio cumplan fielmente y en estricto apego con el ordenamiento jurídico, las directrices e instrucciones de carácter operacional, así como cualquier otra disposición emitida por los órganos competentes del Ministerio, con excepción de los casos que se encuentran en investigación bajo la dirección del Ministerio Público.
+2) Realizar inspecciones con la finalidad de comprobar el uso adecuado, proporcional, racional, eficiente y eficaz de los recursos asignados a los cuerpos de policía.
+3) Analizar problemas de tipo técnico, operativo y de servicio, así como tramitar, con la aprobación del Ministro (a), las respectivas disposiciones a las instancias pertinentes del Ministerio.
+4) Recibir quejas o denuncias que presente cualquier persona en contra de los servidores del Ministerio de Seguridad Pública y darle la tramitación debida de conformidad con sus funciones.
+5) Realizar las diligencias previas de investigación y recolección de indicios y elementos probatorios con respecto a las irregularidades y faltas disciplinarias en que puedan verse involucrados los servidores del Ministerio, para lo cual podrán actuar de oficio, por denuncia, queja o a solicitud de los órganos competentes del Ministerio.
+6) Hacer entrevistas y recibir declaraciones a funcionarios públicos y personas particulares, así como levantar actas sobre inspecciones oculares y sobre cualquier otro tipo de evidencias que se requieran en razón de la investigación que se realice. Asimismo, constatar en las distintas instancias judiciales, la existencia de expedientes penales en trámite o concluidos, en contra de los servidores del Ministerio de Seguridad Pública, y de las resoluciones que de ellos deriven, con la finalidad de obtener las fotocopias certificadas necesarias para la tramitación disciplinaria administrativa.
+7) Requerir a los funcionarios del Ministerio cooperación y demás facilidades de toda índole para el buen desempeño de sus funciones, para lo cual tendrá acceso a los documentos, libros, archivos y demás papelería y controles que se lleven en las diferentes dependencias del Ministerio. Se considerará y sancionará la negativa a brindar información o bien, interferir u oponerse en alguna forma al buen desempeño de sus funciones.
+8) Remitir el resultado de las investigaciones -expediente y pruebas- a la Jefatura del Departamento Disciplinario Legal, mediante informe completo cuando se presuma la comisión de una falta grave por parte de un servidor del Ministerio.
+9) Todas las demás relacionadas conforme a las competencias y potestades definidas por el ordenamiento jurídico y las que encargue el Ministro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 33974 del 28 de mayo de 2007)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 70 al 74 actual)
