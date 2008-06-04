@@ -1,0 +1,1 @@
+Artículo 3º—Por motivo de efectuar alteraciones o reparaciones de construcciones que afecten la seguridad de los peatones, el propietario o poseedor debe solicitar a la Municipalidad el permiso para el cierre temporal de aceras.

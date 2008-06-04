@@ -1,0 +1,1 @@
+Artículo 4º—Se entenderá por omisiones a los deberes de los propietarios de bienes inmuebles todos los estipulados en el artículo 76, del Código Municipal y en acatamiento a lo estipulado en el artículo 14 de Ley de Construcciones y el artículo IV-4 del Reglamento de Construcciones.

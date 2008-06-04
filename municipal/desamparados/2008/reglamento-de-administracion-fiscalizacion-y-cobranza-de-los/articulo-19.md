@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de la actualización de los *precios de los servicios indicados en este Reglamento se utilizará el procedimiento indicado en los artículos 75, 76, del Código Municipal o el costo efectivo del servicio, el que sea mayor. La aprobación de los precios de los servicios entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
