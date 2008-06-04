@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE MATINA
+Indira Barcias Solano, secretaria municipal a. í, certifica que en el acta ordinaria Nº 170/08 del 19 de mayo del 2008, consta que: En informe del alcalde municipal licenciado Lorenzo Colphan Reid:
+En la sesión ordinaria número 164-2008, del 15 de abril de 2008, en el artículo número 7, se aprobó el Reglamento Sobre Gastos Fijos y Adquisición de Bienes y Servicios Competencia del Alcalde Municipal, cuando en realidad lo que se pretendía reformar era el artículo N° 5 que autoriza al Alcalde que establece el monto por medio del cual puede adquirir bienes y servicios.
+Por todo lo anterior el Concejo Municipal de Matina, acuerda:
+Aprobar todo el Reglamento, pero este reglamento ya existe en esta Municipalidad, de tal forma que solicito se reforme el acuerdo antes indicado, para que diga lo siguiente: Se acuerda que se autoriza al alcalde municipal para realizar compras y adquisición de bienes y servicios hasta por la suma de ¢2.500.000,00 (Dos millones quinientos mil colones con 00/100). Que esta reforma se publique en La Gaceta y empiece a regir un día después de su publicación.
+Expido la presente en lo conducente a solicitud del interesado el 14 de mayo del 2008.
