@@ -1,1 +1,0 @@
-Artículo 34.- El Comité Intersectorial estará compuesto por los coordinadores de los sectores en la región y por el encargado de la Secretaría de Planificación Regional, quien lo presidirá y quien reportará al MIDEPLAN y al respectivo Consejo Regional de Desarrollo sobre los problemas y limitaciones que se presenten en el desempeño de las funciones encomendadas.

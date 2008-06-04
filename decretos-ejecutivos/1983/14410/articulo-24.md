@@ -1,1 +1,0 @@
-Artículo 24.- Le corresponde a este comité coordinar y promover el proceso de planificación entre las distintas instituciones involucradas en las actividades del Sector, en apoyo de la Secretaría Ejecutiva de Planificación Sectorial, del Consejo Nacional Sectorial y del Ministro Sectorial.

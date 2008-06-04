@@ -1,1 +1,0 @@
-Artículo 21.- El Director de la Secretaría Ejecutiva de Planificación Sectorial actuará como colaborador directo del Ministro Sectorial y asimismo como Secretario Ejecutivo del respectivo Consejo Nacional Sectorial, participando en sus sesiones con derecho a voz; siendo requisito obligatorio que su dedicación al cargo sea de tiempo completo.

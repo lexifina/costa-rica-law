@@ -1,1 +1,0 @@
-Artículo 35.- En caso de conflicto entre un Ministro Sectorial y un Consejo Regional de Desarrollo, éste solicitará el criterio del Ministro de Planificación Nacional y Política Económica y en caso de no aceptarse, la parte disconforme elevará el asunto a conocimiento del Presidente de la República, quien previa audiencia a las partes decidirá.
