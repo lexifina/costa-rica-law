@@ -1,1 +1,0 @@
-Artículo 14.—El Director de la Secretaría Ejecutiva actuará como colaborador directo del Ministro Sectorial y actuará asimismo como Secretario Ejecutivo del respectivo Consejo Nacional Sectorial, participando en sus sesiones con derecho a voz.

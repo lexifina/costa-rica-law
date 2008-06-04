@@ -1,1 +1,0 @@
-Artículo 9°—A las sesiones del Consejo Sectorial de Educación y Recursos Humanos, podrán ser convocados por su Presidente o por decisión mayoritaria del mismo con derecho a voz, representantes de otras instituciones públicas y privadas y en general todas aquellas personas a quienes el Consejo estima conveniente escuchar.
