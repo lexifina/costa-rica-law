@@ -13,4 +13,4 @@ Considerando:
 8°—Que de acuerdo con la Ley de Promoción del Desarrollo Científico y Tecnológico, las universidades y los centros de investigación, son miembros del Sistema Nacional de Ciencia y Tecnología a quienes compete la formación de recursos humanos y de investigación y desarrollo en el país. Por tanto,
 Decretan:
 CREACIÓN DEL SECTOR DE CIENCIA Y TECNOLOGÍA
-Artículo 1°—Créase el Sector de Ciencia y Tecnología, integrado por el Ministerio de Ciencia y Tecnología, el Consejo Nacional para Investigaciones Científicas y Tecnológicas, la Academia Nacional de Ciencias, la Cámara Nacional de Empresas de Base Tecnológica y la Asociación Costarricense para la Promoción de las Ciencias y la Tecnología , dentro del marco de Sectorialización del Estado, de conformidad con la Ley.
+Artículo 1°—( Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)

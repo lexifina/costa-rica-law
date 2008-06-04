@@ -13,3 +13,4 @@ Crea Sector de Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-05 | la propia norma |
+| 2 | 2008-06-04 | Decreto Ejecutivo 34582 (2008-06-04) |
