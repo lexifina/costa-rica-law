@@ -1,5 +1,3 @@
 Transitorios
-Transitorio I.- Créase, a través de esta ley, los colegios universitarios de Alajuela, Cartago y Puntarenas, cuyas sedes estarán en los cantones centrales de Alajuela, Cartago y Puntarenas, respectivamente.
-El Colegio Universitario creado en la ciudad de Puntarenas atenderá, preferentemente:
-a) Carreras relacionadas con las ciencias del mar.
-b) Carreras sobre la industrialización y comercialización de los recursos agropecuarios y del mar.
+Transitorio I.- Créase, por medio de esta Ley, el Colegio Universitario de Cartago cuya sede estará en el cantón Central de Cartago.
+(Así reformado por el artículo 15 de la Ley N° 8638 del 14 de mayo de 2008)
