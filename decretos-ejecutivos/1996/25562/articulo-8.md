@@ -1,1 +1,0 @@
-Artículo 8°-Los diferentes Ministerios que forman parte del Consejo Nacional Ambiental incorporarán en sus presupuestos, los gastos que demanda el correcto funcionamiento del Consejo Nacional Ambiental y su Secretaría Ejecutiva.

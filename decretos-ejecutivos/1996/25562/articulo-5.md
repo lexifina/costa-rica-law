@@ -1,1 +1,0 @@
-Artículo 5°-El Consejo Nacional Ambiental se reunirá una vez al mes y extraordinariamente cuando su presidente lo convoque. Los acuerdos del Consejo se adoptarán por mayoría simple de los presentes. De cada sesión se levantará un acta de los asuntos tratados.

@@ -1,1 +1,0 @@
-Artículo 3°-Para el mejor cumplimiento de sus funciones el Consejo Nacional Ambiental podrá convocar la participación de cualquier otro ministro, asesor, consejero presidencial o jerarca de entes descentralizados o empresas públicas.
