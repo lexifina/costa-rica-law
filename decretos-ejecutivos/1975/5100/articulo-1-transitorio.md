@@ -1,2 +1,0 @@
-TRANSITORIO: Dentro de 30 días, todas las instituciones afectas por este decreto deberán informar a la Oficina Sectorial de Planificación Industrial de todos los planes, programas y proyectos en elaboración y ejecución con copia a la Oficina de Planificación Nacional y Política Económica.
-Dado en la Casa Presidencial.-San José, a los treinta días del mes de julio de mil novecientos setenta y cinco.

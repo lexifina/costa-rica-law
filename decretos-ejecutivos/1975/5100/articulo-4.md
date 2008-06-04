@@ -1,1 +1,0 @@
-Artículo 4°-Los organismos del sistema constituyen una unidad de trabajo adscrita al Ministerio de Economía, Industria y Comercio, la cual actuará con autonomía administrativa y contará con personal y presupuesto propios. El presupuesto deberá estar identificado como un Programa y será administrado de acuerdo a las normas trazadas por el Consejo Industrial Nacional.
