@@ -1,1 +1,0 @@
-Artículo 6°-A las sesiones del Consejo Nacional de Protección y Mejoramiento del Ambiente, podrán ser convocados por su Presidente o por decisión del Consejo, los representantes de otras instituciones públicas o privadas y en general todas aquellas personas a quienes el Presidente estime conveniente escuchar.
