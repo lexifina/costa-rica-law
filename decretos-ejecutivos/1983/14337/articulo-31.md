@@ -1,1 +1,0 @@
-ARTICULO 31.-El Comité Sectorial Regional del Sector Transporte y Obras Públicas será coordinado por uno de los miembros, nombrado al efecto por el Ministro de Obras Públicas y Transportes y el Presidente de la República conjuntamente, mediante decreto ejecutivo.

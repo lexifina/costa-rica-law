@@ -1,1 +1,0 @@
-ARTICULO 19.-Para el cumplimiento de sus funciones, la Secretaría Ejecutiva de Planificación Sectorial de Transportes y Obras Públicas, estará directamente subordinada al Ministerio de Obras Públicas y Transportes en su calidad de director político del Sector y para Efectos administrativos estará adscrita al Ministerio de Obras Públicas y Transportes.

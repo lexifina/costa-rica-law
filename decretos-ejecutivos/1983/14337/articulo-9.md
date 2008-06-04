@@ -1,2 +1,0 @@
-ARTICULO 9°.-El Consejo Nacional Sectorial de Transportes y Obras Públicas, se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada vez que sea convocado por su Presidente.
-El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberán formularse mediante reglamento interno. Los miembros del Consejo Nacional de Transportes y Obras Públicas, realizarán sus funciones ad honorem y serán juramentados por el Ministro del ramo.

@@ -1,1 +1,0 @@
-ARTICULO 23.-Le corresponderá a este Comité, coordinar y proponer el proceso de planificación entre las distintas instituciones involucradas en las actividades del Sector Transportes y Obras Públicas, en apoyo de la Secretaría Ejecutiva, del Consejo Nacional Sectorial y del Ministro Sectorial.
