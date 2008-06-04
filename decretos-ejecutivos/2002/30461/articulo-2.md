@@ -1,1 +1,0 @@
-Artículo 2º—El Instituto Costarricense del Deporte y la Recreación quedará sujeto a la misión establecida en su Ley de Creación, número 7800 del 30 de abril de 1998, así como a los objetivos establecidos en el Decreto Ejecutivo Nº 14313-SPPS-PLAN del 15 de febrero de 1983, de creación del Sector Salud.

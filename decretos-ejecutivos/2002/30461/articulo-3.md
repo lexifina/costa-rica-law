@@ -1,1 +1,0 @@
-Artículo 3º—Mientras la Ley Nº 7800 del 30 de abril de 1998 no sea reformada, el Ministerio de Cultura, Juventud y Deportes continuará presupuestando a favor del Instituto Costarricense del Deporte y la Recreación la asignación presupuestaria correspondiente.
