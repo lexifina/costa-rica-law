@@ -1,0 +1,1 @@
+Artículo 18.—El Consejo Académico en Odontología implementará los cambios necesarios en pro de mejorar el Programa de Recertificación Profesional; dichos cambios serán presentados a la Junta Directiva para su aprobación.

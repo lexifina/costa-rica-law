@@ -1,0 +1,1 @@
+Artículo 20.—Es función del Consejo Académico en Odontología el extender o denegar la autorización a los entes proveedores de educación continua y verificar el cumplimiento de las actividades educativas avaladas a través de instrumentos de evaluación y observaciones de las mismas.

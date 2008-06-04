@@ -1,0 +1,1 @@
+Artículo 38.—El Consejo Académico en Odontología tiene potestad para suspender la acreditación de un proveedor de Educación Continua o de una actividad educativa con aval otorgado previamente en caso de falsedad de datos por parte del proveedor de Educación Continua.
