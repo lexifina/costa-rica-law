@@ -1,1 +1,0 @@
-Artículo 14.—Limitaciones legales de las rectorías. Las rectorías indicadas en el artículo 12 de este Reglamento se ejercerán sin perjuicio de lo que en casos concretos disponga la legislación vigente.
