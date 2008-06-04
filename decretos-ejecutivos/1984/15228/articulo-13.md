@@ -1,1 +1,0 @@
-Artículo 13.—El Director de la Secretaría Ejecutiva de Planificación Sectorial Cooperativa, con dedicación a tiempo completo, actuará como colaborador directo del Ministro Sectorial y actuará asimismo como Secretario Ejecutivo del Consejo Nacional Sectorial Cooperativo.

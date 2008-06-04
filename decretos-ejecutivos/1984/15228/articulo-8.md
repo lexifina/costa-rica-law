@@ -1,2 +1,0 @@
-Artículo 8°—El Consejo Nacional Sectorial Cooperativo se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada vez que sea convocada por su Presidente.
-El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberá formular mediante reglamento interno, aprobado por el Ministro Sectorial. Los miembros del Consejo Nacional Sectorial Cooperativo, realizarán sus funciones ad honorem y serán juramentados por el Presidente de la República.

@@ -1,3 +1,0 @@
-CAPITULO SÉTIMO
-Del Comité Técnico Sectorial
-Artículo 15.—El Sector Cooperativo contará con un Comité Técnico Sectorial, el cual estará integrado por el Director de la Secretaría Ejecutiva de Planificación Sectorial Cooperativa quien lo presidirá, y por los jefes de los departamentos o unidades de planificación de las instituciones y de los programas representados en el respectivo Consejo Nacional Sectorial Cooperativo. Le corresponderá a dicho Comité coordinar y promover el proceso de planificación entre las distintas instituciones involucradas en las actividades del Sector Cooperativo, en apoyo de la Secretaría Ejecutiva, del Consejo Nacional Sectorial y del Ministro Sectorial Cooperativo.
