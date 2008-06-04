@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Exoneración fiscal
+Exonérase a la Universidad Técnica Nacional del pago de todo tipo de tributos, tasas, derechos y contribuciones nacionales. Asimismo, se autoriza para que venda los bienes adquiridos al amparo de esta disposición, previo pago de los impuestos y tributos que se exoneran. La Universidad Técnica Nacional no disfrutará de menos exoneraciones y privilegios fiscales que los establecidos a favor de las demás universidades estatales.

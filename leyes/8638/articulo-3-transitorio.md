@@ -1,0 +1,2 @@
+TRANSITORIO III.- Continuidad de los planes de estudio actuales
+Los estudiantes inscritos actualmente en las instituciones que se fusionan para crear la Universidad Técnica Nacional, continuarán su carrera hasta su conclusión, de acuerdo con los actuales planes de estudio y requisitos académicos. La Universidad Técnica Nacional les garantizará dicha oferta académica hasta por un plazo de tres años, contado a partir de la entrada en vigencia de esta Ley.

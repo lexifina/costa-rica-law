@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Organización interna
+La organización interna de la Universidad Técnica Nacional se definirá mediante su Estatuto Orgánico. Estará constituida por sedes, facultades y áreas de acción académica que agruparán otras unidades, centros, escuelas, institutos y programas especiales, articulados en una organización flexible, acorde con las necesidades de la educación universitaria y técnica superior que demanda el país.
