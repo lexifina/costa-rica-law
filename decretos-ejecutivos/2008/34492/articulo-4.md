@@ -1,0 +1,1 @@
+Artículo 4º—Los proyectos mineros metálicos y no metálicos que se encuentren operando al momento de la promulgación de este decreto, podrán adscribirse voluntariamente al mismo como parte de su gestión ambiental y de responsabilidad social empresarial.
