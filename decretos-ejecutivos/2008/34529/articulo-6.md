@@ -1,0 +1,1 @@
+Artículo 6º—Las sesiones del Comité serán siempre privadas, pero ésta podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general, o bien invitados especiales quienes participarán con derecho a voz pero sin voto.

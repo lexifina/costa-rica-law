@@ -1,0 +1,1 @@
+Artículo 13.—Para mantener la eliminación, Costa Rica asegura la sostenibilidad de las estrategias y coberturas de vacunación, así como una vigilancia epidemiológica efectiva para detectar y responder oportunamente ante la importación de virus de la rubéola y el sarampión.

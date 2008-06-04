@@ -1,0 +1,1 @@
+Artículo 11.—El proceso de documentación incluye la identificación de las fuentes de información, no solo oficiales, sino también alternativas, que permitan disponer de información y determinar la concordancia con los datos reportados por el sistema oficial de vigilancia.
