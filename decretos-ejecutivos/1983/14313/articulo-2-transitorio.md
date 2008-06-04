@@ -1,1 +1,0 @@
-Transitorio II.-El Director de la Secretaría Ejecutiva de Planificación Sectorial de Salud, será nombrado dentro del plazo de un mes, contado a partir de La fecha de celebración de la primera reunión del Consejo Nacional Sectorial.

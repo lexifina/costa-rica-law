@@ -1,1 +1,0 @@
-Artículo 30.-El Comité Sectorial Regional del Sector será coordinado por uno de sus miembros, nombrado mediante Decreto Ejecutivo, por el Ministro de Salud y el Presidente de la República conjuntamente.

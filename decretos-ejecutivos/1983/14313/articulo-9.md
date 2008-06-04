@@ -1,2 +1,0 @@
-Artículo 9°-El Consejo Nacional Sectorial de Salud se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada vez que sea convocado por su Presidente.
-El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberá formular mediante reglamento interno. Los miembros del Consejo Nacional Sectorial de Salud, realizarán sus funciones ad honórem y serán juramentados por el Ministro de Salud.

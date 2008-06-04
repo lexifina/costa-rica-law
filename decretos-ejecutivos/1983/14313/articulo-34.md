@@ -1,1 +1,0 @@
-Artículo 34.-En caso de conflicto entre el Ministro del Sector y el Consejo Regional de Desarrollo, éste solicitará el criterio del Ministro de Planificación; en caso de no aceptado, la parte inconforme elevará el asunto a conocimiento del Presidente de la República; quien previa audiencia a las partes decidirá.

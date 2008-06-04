@@ -1,6 +1,0 @@
-Artículo 31.-EI coordinador del Comité sectorial Regional tendrá las siguientes funciones:
-a) Formar parte del Consejo Regional de Desarrollo y del Comité Técnico Intersectorial Regional, respectivamente, así como de cualquier otro foro o situación de emergencia donde se requiera la participación del Sector como tal, o en negociaciones con grupos especiales de interés o presión, a menos que el Ministro de Salud disponga expresamente lo contrario;
-b) Ofrecer el aporte del Sector cuando sea posible, ante peticiones o solicitudes concretas del Consejo Regional de Desarrollo;
-c) Coordinar las actividades del Sector en la región;
-ch) Reportar al Ministro de Salud o a la Secretaria Ejecutiva de Planificación Sectorial de Salud, cualquier anomalía por parte de 'los otros miembros del Comité Sectorial, a fin de que aquél recomiende las acciones correctivas pertinentes a los respectivos superiores jerárquicos del ente y corregir así tales anomalías; y
-d) Enviar al Ministro de Salud cada tres meses un informe detallado de las actividades del Sector Salud en la región, con copia al Consejo Regional de Desarrollo y a la Secretaria Ejecutiva Sectorial, indicando avance de planes y programas de trabajo, logros, obstáculos, aprovechamiento de recursos, etc.

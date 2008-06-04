@@ -1,1 +1,0 @@
-Artículo 32.-Corresponderá al Comité Sectorial Regional de Salud como tal, programar y coordinar las actividades del Sector en la región, para apoyar tanto al Ministro de Salud como al Consejo Regional de Desarrollo, respectivos.
