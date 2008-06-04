@@ -1,2 +1,0 @@
-Artículo 48.-Las instituciones, programas Y actividades incluidos en el Sector Agropecuario elaborarán el Plan Anual Operativo correspondiente, conforme con los objetivos, políticas y metas de la organización, siguiendo los lineamientos esbozados por el Plan Nacional de Desarrollo y las directrices del Ministro Sectorial y los procedimientos establecidos por SEPSA.
-Dicho plan constituirá la base para el trabajo anual y deberá ser remitido a SEPSA para su incorporación al Plan Anual Operativo Sectorial.

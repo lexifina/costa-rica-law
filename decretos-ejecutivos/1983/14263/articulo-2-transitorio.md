@@ -1,2 +1,0 @@
-Transitorio II.-Las Unidades de Planificación del Ministerio de Agricultura y Ganadería, Consejo Nacional de Producción e Instituto de Desarrollo Agrario, con la asesoría de SEPSA, para el 30 de junio de este año deberán contar con la metodología de formulación, control y evaluación de sus respectivos Planes Anuales Operativos.
-Dado en presidencia de la República.-San José, a los cuatro días del mes de febrero de mil novecientos ochenta y tres.

@@ -1,1 +1,0 @@
-Artículo 16.-Los representantes de las organizaciones que integran la Comisión Consultiva serán nombrados par los respectivos organismos autorizados en cada organización. Tendrá que ser de las niveles más altos de la organización. La Junta Directiva enviará el nombre del representante y un sustituto al Ministra de Agricultura y Ganadería.

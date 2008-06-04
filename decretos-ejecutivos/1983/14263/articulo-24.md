@@ -1,1 +1,0 @@
-Artículo 24.-COTECSA se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente toda vez que sea convocado por el Presidente de dicho Comité.

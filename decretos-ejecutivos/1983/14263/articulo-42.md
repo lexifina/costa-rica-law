@@ -1,1 +1,0 @@
-Artículo 42.-Para efectos de coordinación, las instituciones del Sector, encargarán a las Unidades de Planificación o en su defecto, a la Unidad de Información respectiva, de canalizar la información a SEPSA.

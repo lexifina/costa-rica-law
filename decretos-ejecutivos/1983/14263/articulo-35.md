@@ -1,1 +1,0 @@
-Artículo 35.-Corresponderá al Comité Sectorial Regional como tal, programar y coordinar las actividades del Sector en la Región, en apoyo tanto del Ministro Sectorial como del Consejo Regional de Desarrollo, respectivo.

@@ -1,1 +1,0 @@
-Artículo 44.-Las directrices que emitan el Presidente de la República, el Poder Ejecutivo como tal o el Ministro de Agricultura y Ganadería con la aprobación del Presidente, deberán cumplir con los requisitos legales de forma y fondo establecidos en el artículo 41 del Decreto Ejecutivo N° 14184 de 8 de enero de 1983.
