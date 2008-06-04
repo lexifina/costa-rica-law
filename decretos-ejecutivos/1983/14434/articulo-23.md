@@ -1,1 +1,0 @@
-Artículo 23.-Le corresponderá a este Comité coordinar y promover el proceso de Planificación entre las distintas instituciones involucradas en las actividades del Sector Industria, Energía y Minas, en apoyo de la Secretaria Ejecutiva, del Consejo Nacional Sectorial y del Ministro Sectorial.

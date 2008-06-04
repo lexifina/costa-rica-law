@@ -1,1 +1,0 @@
-Transitorio II-El Director de la Secretaría Ejecutiva de Planificación Sectorial de Industria, Energía y Minas que fungirá para el período que vence el 19 de junio de 1986, será nombrado dentro del plazo de un mes, contado a partir de la fecha de celebración de la primera reunión del Consejo Nacional Sectorial.

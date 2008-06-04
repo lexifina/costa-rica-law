@@ -1,1 +1,0 @@
-Artículo 30.-El Comité Sectorial Regional del Sector Industria, Energía y Minas será coordinado por uno de sus miembros, nombrado al efecto por el Ministro de Industria, Energía y Minas y el Presidente de la República conjuntamente, mediante decreto ejecutivo.

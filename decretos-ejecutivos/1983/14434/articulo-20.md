@@ -1,1 +1,0 @@
-Artículo 20.-El Director de la Secretaria Ejecutiva de Planificación Sectorial de Industria, Energía y Minas, actuará como colaborador directo del Ministro Sectorial y será así mismo el Secretario Ejecutivo del Consejo Nacional Sectorial de Industria, Energía y Minas, participando en sus sesiones con derecho a voz.

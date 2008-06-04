@@ -1,6 +1,0 @@
-Artículo 31. -Dicho Coordinador tendrá las siguientes funciones:
-a) Formar parte del Consejo Regional de Desarrollo y el Comité Técnico Intersectorial Regional, respectivamente, así como de cualquier otro foro, o en cualquier situación de emergencia donde se requiera la participación del Sector Industria, Energía y Minas como tal, o en negociaciones con grupos especiales de interés o presión, a menos que el Ministro del Sector disponga lo contrario expresamente;
-b) Ofrecer el aporte del Sector Industria, Energía y Minas, cuando sea posible, ante peticiones o solicitudes concretas del Consejo Regional de Desarrollo;
-c) Coordinar las actividades del Sector Industria, Energía y Minas en la región;
-ch) Reportar al Ministro de Industria, Energía y Minas o a la Secretaria Ejecutiva de Planificación Sectorial de Industria, Energía y Minas, cualquier anomalía por parte de los otros miembros del Comité Sectorial, a fin de que aquel recomiende las acciones correctivas pertinentes a los respectivos superiores jerárquicos del ente en San José y corregir así tales anomalías; y
-d) Enviar al Ministro de Industria, Energía y Minas, cada 2 meses un informe detallado de las actividades del Sector en la región, con copia al Consejo Regional de Desarrollo, indicando avance de planes y programas de trabajo, logros, obstáculos, aprovechamiento de recursos, etc.

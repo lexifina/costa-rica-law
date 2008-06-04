@@ -1,1 +1,0 @@
-Artículo 25.-El Comité Técnico Sectorial de Industria, Energía y Minas se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente toda vez que sea convocado por el Director de la Secretaria Ejecutiva de Planificación Sectorial de Industria, Energía y Minas quien presidirá dicho Comité.

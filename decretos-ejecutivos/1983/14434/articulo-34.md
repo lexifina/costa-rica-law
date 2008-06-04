@@ -1,1 +1,0 @@
-Artículo 34.-En caso de conflicto entre el Ministro del Sector Industria, Energía y Minas y el Consejo Regional de Desarrollo, éste solicitará el criterio del Ministro de Planificación Nacional y Política Económica y en caso de no aceptar, la parte disconforme elevará el asunto a conocimiento del Presidente de la República, quien previa audiencia .a las partes decidirá.
