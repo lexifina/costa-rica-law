@@ -1,3 +1,0 @@
-CAPITULO V
-De los UNIDESOS
-Artículo 14.-Constitución de UNIDESOS. Las "Unidades Institucionales de Desarrollo Sostenible", pudiendo abreviarse "UNIDESOS", son grupos de trabajo constituidos dentro de órganos, entes y empresas del Estado que sirven para la coordinación de las actividades del SINADES. Los UNIDESOS son equipos promotores y de divulgación del proceso de cambio de actitud para desarrollar acciones más acordes con políticas y estrategias de desarrollo sostenible. Dependerán del jerarca del órgano, ente o empresa donde se constituyan y contarán con un coordinador general que será denominado "Enlace Institucional". La constitución de UNIDESOS debe ser aprobada por MIDEPLAN.

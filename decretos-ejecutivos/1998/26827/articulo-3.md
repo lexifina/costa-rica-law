@@ -1,1 +1,0 @@
-Artículo 3°-0bjetivos del desarrollo sostenible. Los objetivos de las acciones para el desarrollo sostenible, son lograr el mejoramiento continuo de las condiciones de vida que se ofrecen en el país en los campo económico, social, ambiental y cultural, satisfaciendo las necesidad. humanas básicas de la población, sin comprometer las opciones de las futuras generaciones.

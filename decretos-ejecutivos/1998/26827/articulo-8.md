@@ -1,1 +1,0 @@
-Artículo 8°-Secretaría Ejecutiva. MIDEPLAN tendrá una Secretaría Ejecutiva encargada de coordinar y atender las actividades que resulten de su competencia dentro del SINADES. Su constitución no implicará aumentos de personal.

@@ -1,2 +1,0 @@
-Transitorio Único.-Las "Comisiones Técnicas Consultivas" constituidas al amparo de las disposiciones contenidas en el Decreto Ejecutivo N° 23671-MIRENEM-MIDEPLAN de 23 de setiembre de 1994, continuarán funcionando en conformidad con las regulaciones establecidas en los respectivos Decretos Ejecutivos que las constituyeron y las disposiciones contenidas en el presente Decreto Ejecutivo.
-Dado en la Presidencia de la República.-San José, a los 6 días del mes de marzo de mil novecientos noventa y ocho.

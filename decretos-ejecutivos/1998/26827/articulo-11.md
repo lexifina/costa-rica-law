@@ -1,1 +1,0 @@
-Artículo 11.-CONADES. Para promover la participación ciudadana en la consulta, el diálogo y la concertación de estrategias orientadas a lograr una visión nacional del desarrollo sostenible de largo alcance y amplio espectro, el SINADES se apoyará en el Consejo Nacional de Desarrollo Sostenible, pudiendo abreviarse CONADES, constituido por Decreto Ejecutivo.
