@@ -1,12 +1,4 @@
 CAPÍTULO III
 De la Dirección y Coordinación
 del Sector Vivienda y Asentamientos Humanos
-Artículo 5º—Corresponderá al Ministro de Vivienda y Asentamientos Humanos en su condición de Rector del Sector:
-a) Definir, en consulta con el Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos y con la aprobación del Presidente de la República, el Plan Nacional de Vivienda y Asentamientos Humanos de corto y mediano plazo.
-b) Convocar, presidir y levantar las sesiones del Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos.
-c) Procurar que las actuaciones de las entidades componentes del Sector Vivienda y Asentamientos Humanos sean dirigidas y coordinadas dentro del marco del Plan Nacional de Vivienda y Asentamientos Humanos y bajo los principios de transparencia y racionalidad en el uso de los recursos existentes.
-d) Nombrar comisiones con participación pública y privada, que coadyuve al mejor funcionamiento del Sector Vivienda y Asentamientos Humanos.
-e) Velar porque los lineamientos y directrices de la Autoridad Presupuestaria y la valoración por parte de ésta de los presupuestos de los entes del Sector, se enmarquen dentro de los lineamientos y directrices de política sectorial en materia de Vivienda y Asentamientos Humanos.
-f) Participar activamente en el Consejo de Gobierno y el Consejo del Área Social para coordinar o acordar en este nivel, aspectos básicos del Sector Vivienda y Asentamientos Humanos.
-g) Coordinar con otros órganos, entes o sectores del Estado, la toma de decisiones necesarias para el correcto desempeño de las funciones que se les asignen.
-h) Cumplir cualesquiera otras funciones que se le encarguen de conformidad con la legislación vigente.
+Artículo 5º—(Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)

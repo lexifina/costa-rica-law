@@ -1,1 +1,1 @@
-Artículo 9º—El Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos se reunirá ordinariamente una vez al mes y extraordinariamente por convocatoria del Ministro Rector. El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberá formular mediante reglamento interno. Los miembros del Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos realizarán sus funciones ad honorem.
+Artículo 9º—(Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)

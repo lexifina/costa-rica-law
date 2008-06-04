@@ -1,11 +1,3 @@
 CAPÍTULO II
 De los objetivos del Sector Vivienda y Asentamientos Humanos
-Artículo 4º—El Sector Vivienda y Asentamientos Humanos tendrá los siguientes objetivos:
-a) Promover la dotación de vivienda digna a aquellas familias que viven en condición de pobreza y pobreza extrema, sí como de aquellas que cuentan con ingresos medios o clase media.
-b) Garantizar la transparencia en la entrega del Bono Familiar para la Vivienda, procurando que este subsidio llegue a quienes lo necesitan y que a su vez éstos hagan un uso adecuado de su vivienda.
-c) Facilitar gradualmente a la población el uso y acceso a asentamientos humanos bien estructurados y provistos de los espacios públicos y privados adecuados para el mejoramiento de la calidad de vida de sus habitantes.
-d) Lograr una mayor eficacia y eficiencia de los recursos de las instituciones del Sector, mediante el impulso a la desconcentración administrativa y funcional de sus estructuras, en coordinación con el resto del Sector Público, favoreciendo en este proceso la mayor participación de los gobiernos locales y las comunidades.
-e) Promover la atención prioritaria de los sectores sociales más necesitados, en especial a aquellos localizados en asentamientos en precario, condición de tugurio, áreas peligrosas o nocivas, dando énfasis en la atención de mujeres jefas de hogar familias indígenas y aquellas con algún miembro con alta discapacidad, en particular en la zona rural del país.
-f) Promover la integración y participación de los sectores sociales afectados por el problema habitacional en la solución de éste, aprovechando los recursos humanos, materiales y organizativos de las comunidades, los distritos, cantones y regiones del país.
-g) Promover la revisión, actualización y ejecución del Plan Nacional de Desarrollo Urbano y de los Planes Reguladores y sobre esta base establecer lineamientos para la necesaria compatibilidad entre la producción de vivienda y los servicios de infraestructura física.
-h) Velar por el desarrollo planificado de los asentamientos humanos, de modo que se respete y mejore el ambiente natural y construido, buscando la mayor participación de los gobiernos locales, la iniciativa privada y los grupos comunales.
+Artículo 4º—(Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)

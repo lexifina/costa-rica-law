@@ -14,3 +14,4 @@ La Constitución del Sector Vivienda y Asentamientos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-13 | la propia norma |
+| 2 | 2008-06-04 | Decreto Ejecutivo 34582 (2008-06-04) |

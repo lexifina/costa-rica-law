@@ -16,4 +16,4 @@ Considerando:
 10.—Que para lograr lo anterior, deben crearse mecanismos que tengan como objetivo principal fomentar el ahorro y la inversión nacional y extranjera, con el fin de recaudar recursos financieros para procurar la solución del problema habitacional, incluida la calidad de los servicios.
 CAPÍTULO I
 Disposiciones básicas
-Artículo 1º—Créase el Sector de Vivienda y Asentamientos Humanos con el objeto de cumplir con lo dispuesto por el Sistema Nacional de Planificación, así como las disposiciones relacionadas con el Sector que emanen de la Presidencia de la República, directamente del Despacho del señor Presidente o por medio del Ministerio de Planificación Nacional y Política Económica, del Consejo de Gobierno, el Plan Nacional de Desarrollo y del Ministro de Vivienda y Asentamientos Humanos.
+Artículo 1º— (Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)

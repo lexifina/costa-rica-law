@@ -1,1 +1,1 @@
-Artículo 7º—El Consejo Nacional Sectorial podrá ampliarse con otros funcionarios de alta jerarquía, de aquellas instituciones públicas o privadas con actividad en el Sector, cuando sean convocados por el Presidente del Consejo.
+Artículo 7º—(Así derogado por el artículo 26 del decreto ejecutivo N° 34582 del 4 de junio de 2008)
