@@ -1,1 +1,0 @@
-Artículo 5°-El Presidente de la República nombrará como responsable por la dirección y coordinación de cada sector, a un Ministro de Gobierno, con o sin Cartera, de acuerdo al respectivo ramo de actividades.

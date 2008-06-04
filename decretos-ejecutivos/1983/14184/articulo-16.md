@@ -1,2 +1,0 @@
-Las Comisiones Consultivas
-Articulo 16.-En cada Sector habrá una Comisión Consultiva que integrará la participación de las organizaciones nacionales populares y privadas más relevantes y vinculadas al Sector a juicio del Ministro Sectorial y del Presidente de la República, quienes decidirán tal conformación en el Decreto Ejecutivo específico del Sector, buscando el equilibrio adecuado entre ambas fuerzas socioeconómicas.

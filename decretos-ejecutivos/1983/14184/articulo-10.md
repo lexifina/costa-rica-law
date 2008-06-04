@@ -1,1 +1,0 @@
-Artículo 10.-Las Comisiones Económica y Social del Consejo Económico y Social Nacional, serán las encargadas, de acuerdo con sus ramos, de analizar, coordinar y recomendar a éste las acciones pertinentes de Gobierno.
