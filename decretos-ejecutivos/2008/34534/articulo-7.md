@@ -1,0 +1,3 @@
+Artículo 7º—De las reuniones: La Comisión se reunirá ordinariamente una vez al mes y extraordinariamente cuando se considere necesario. Para efectos de convocar extraordinariamente a una sesión se requerirá que el Coordinador realice la convocatoria previa, con al menos tres días de anticipación.
+Cuando en función de los temas a tratar se requiera la participación del representante de la Dirección General de Servicio Civil y la Secretaría Técnica de la Autoridad Presupuestaria, de representantes de otras dependencias del Ministerio de Hacienda o de otras instituciones, la convocatoria deberá realizarse con al menos cinco días de anticipación.
+El quórum para sesionar estará constituido por la mitad más uno de sus miembros.
