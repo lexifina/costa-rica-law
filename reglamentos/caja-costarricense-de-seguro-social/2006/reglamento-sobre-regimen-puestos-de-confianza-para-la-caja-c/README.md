@@ -14,3 +14,4 @@ Reglamento sobre Régimen Puestos de Confianza para la Caja Costarricense de Seg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-18 | la propia norma |
+| 2 | 2008-06-05 | Reglamento 8256 (2008-06-05) |
