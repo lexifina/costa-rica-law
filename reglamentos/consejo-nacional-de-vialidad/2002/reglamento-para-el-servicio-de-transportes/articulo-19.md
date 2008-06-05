@@ -1,6 +1,4 @@
 CAPÍTULO VI
 Del uso y control de combustible
-Artículo 19.—Del suministro de combustible.
-a) La entrega de cupones de combustible se hará por medio de la Dirección de Administración y Finanzas o a quién este designe.
-b) El Director o quien este autorice, serán las personas autorizadas para retirar y liquidar los cupones de combustible, directamente a la Dirección de Administración y Finanzas.
-c) Las Unidades Administrativas de Dirección fuera de la Sede Central, retiraran cupones de combustible mensualmente, excepto en casos de emergencia o en situaciones debidamente justificadas ante la Dirección de Administración y Finanzas.
+Artículo 19.—Del sistema de combustible. El “Contrato para el servicio de tarjetas de compra institucional de combustibles para el pago por compra de combustible” suscrito entre el CONAVI y el Banco de Costa Rica, regulara las acciones relacionadas con la compra, liquidación y manejo del combustible por medio de la Tarjeta de Compras Institucionales. Posteriormente los tarjetahabientes adquieren el combustible en las Estaciones de Servicio de acuerdo con los parámetros de horario, frecuencia y monto, así como, liquidarán el consumo de combustible asignado mensualmente ante la Unidad de Servicios Generales de CONAVI quién consolidará la información y la presentará mensualmente ante la Unidad de Tesorería para los trámites correspondientes.
+(Así reformado mediante acuerdo del artículo tercero de la sesión 583-08, de fecha 5 de junio del 2008, del Consejo de Administración del Consejo Nacional de Vialidad CONAVI.)

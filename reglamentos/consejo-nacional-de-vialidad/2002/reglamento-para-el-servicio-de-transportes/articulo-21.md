@@ -1,11 +1,9 @@
-Artículo 21.—De los requisitos de la liquidación.
-a) Los comprobantes que respaldan el gasto del combustible deben tener los siguientes requisitos:
-· Ser extendidos a nombre del Consejo Nacional de Vialidad CONAVI.
-· Indicar el nombre del Centro expendedor del combustible.
-· Llevar el sello o leyenda de "Cancelado".
-· Deben ser originales y timbradas por Tributación.
-· Indicar la fecha en que se adquirió el servicio.
-· Indicar la serie del cupón consumido.
-· Indicar el número de placa del vehículo.
-· Indicar el kilometraje de acuerdo al espirómetro.
-· Sellada y firmada por el responsable de la gira.
+Artículo 21.—Funciones de la Dirección Administrativa Financiera en el manejo de combustible.
+a) Controlar el uso que institucionalmente se está dando al combustible con base en las liquidaciones consolidadas y presentadas por las Direcciones y demás Unidades de CONAVI, así como por medio de los reportes y estadísticas que puedan generarse por medio del sistema que utilice la institución para la habilitación y deshabilitación de tarjetas para la compra de combustible.
+b) Incluir en el Presupuesto Institucional los recursos necesarios, para el suministro adecuado y abastecimiento de combustible para la flotilla de vehículos de CONAVI.
+c) Consolidar el informe mensualmente del control de uso y rendimiento de combustible enviado por el Banco de Costa Rica por cada tarjeta habiente y comunicado a la Tesorería par los trámites pertinentes.
+d) Informar a la Dirección Ejecutiva , sobre cualquier anomalía o mal manejo que se presente con relación al uso del combustible para los vehículos de la flotilla institucional.
+e) Llevar un histórico de consumo, kilómetros recorridos y rendimiento obtenidos, en el expediente de cada tarjeta habiente.
+f) Revisar los estados de cuenta de los tarjeta habientes asignados al nivel central de CONAVI, validando en dicho documento o a través del acceso a Internet Banking, que las transacciones por compra de combustible que aparecen registradas en la cuenta maestra, correspondan a compras debidamente autorizadas, caso contrario, reportar en forma inmediata al Banco de Costa Rica y a las instancias internas que correspondan las discrepancias o anomalías detectadas.
+g) Emitir los reportes y estadísticas que el Sistema de Combustible brinde para verificar el uso que se da al combustible por parte de cada Administrador con el fin de poder modificar parámetros para la distribución del combustible en caso de ser necesario.
+(Así reformado mediante acuerdo del artículo tercero de la sesión 583-08, de fecha de 5 de junio del 2008, del Consejo de Administración del Consejo Nacional de Vialidad CONAVI)
