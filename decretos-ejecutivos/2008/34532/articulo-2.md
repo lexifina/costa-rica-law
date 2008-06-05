@@ -1,0 +1,2 @@
+Articulo 2°.-Modificase el articulo 2° de la Ley No. 8627, Ley de presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del año 2008, publicada en el Alcance No. 41 a La Gaceta No. 251 de 31 de diciembre de 2007, en la forma que se indica a continuación:
+(NOTA: Por lo extenso de su contenido y tipo de formato, ver Alcance N° 23 a La Gaceta N° 108 del 05 de junio de 2008).
