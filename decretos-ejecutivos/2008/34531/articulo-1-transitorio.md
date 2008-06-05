@@ -1,0 +1,1 @@
+Transitorio único: para la ejecución del programa en el año 2009, el Poder Ejecutivo girará los recursos necesarios al Instituto Mixto de Ayuda Social, provenientes del Presupuesto Nacional en el periodo presupuestario 2008.

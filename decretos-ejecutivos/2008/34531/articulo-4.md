@@ -1,0 +1,1 @@
+Artículo 4º—Del control presupuestario. En caso de requerirse y a fin de contar con los artículos escolares al inicio del periodo lectivo, el Instituto Mixto de Ayuda Social podrá contratar la elaboración de los artículos escolares en el periodo presupuestario inmediatamente anterior al que corresponde a su entrega.

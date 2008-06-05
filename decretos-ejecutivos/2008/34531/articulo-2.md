@@ -1,0 +1,2 @@
+Artículo 2º—De la Institución responsable: El Instituto Mixto de Ayuda Social será la Institución responsable de la ejecución del programa, financiado principalmente mediante los recursos que le transfiera el Poder Ejecutivo para este fin, provenientes del Presupuesto de la República o de otras Instituciones del Estado.
+Adicionalmente, el Instituto Mixto de Ayuda Social podrá destinar recursos propios o provenientes del Fondo de Desarrollo y Asignaciones Familiares como complemento para cumplir con el objeto del presente decreto.
