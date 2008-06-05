@@ -1,0 +1,1 @@
+Transitorio IV.—Aplicación. Se concede un plazo de seis meses a partir de la vigencia del presente Reglamento a la Auditoría Interna y Administración Activa, para que realice los ajustes necesarios para la implantación del mismo.
