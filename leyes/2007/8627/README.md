@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2008
 
-Ley N° 8627 del 2007-11-30. SINALEVI, ficha 62183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62183&param2=72463&param3=1>.
+Ley N° 8627 del 2007-11-30. SINALEVI, ficha 62183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62183&param2=72713&param3=1>.
 
 Publicada en La Gaceta N° 251 del 2007-12-31.
 
@@ -20,3 +20,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 34 | 2008-05-12 | Decreto Ejecutivo 34502 (2008-04-17) | 2008-04-17 |
 | 11 de 34 | 2008-05-20 | Decreto Ejecutivo 34514 (2008-04-30) | 2008-04-30 |
 | 12 de 34 | 2008-05-20 | Decreto Ejecutivo 34513 (2008-05-05) | 2008-05-05 |
+| 13 de 34 | 2008-06-05 | Decreto Ejecutivo 34532 (2008-05-15) | 2008-05-15 |
