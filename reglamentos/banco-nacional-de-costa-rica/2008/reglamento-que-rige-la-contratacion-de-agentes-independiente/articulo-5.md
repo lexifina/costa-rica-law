@@ -1,0 +1,1 @@
+Artículo 5º—La acreditación del Agente y la autorización para la venta de líneas específicas es potestad exclusiva del INS. Asimismo, todo lo relacionado con coberturas, primas, beneficios y demás elementos técnicos inherentes a los seguros que se vendan, serán regulados por el Instituto.

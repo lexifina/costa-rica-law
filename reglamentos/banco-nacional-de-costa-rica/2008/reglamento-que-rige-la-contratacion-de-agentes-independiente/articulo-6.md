@@ -1,0 +1,1 @@
+Artículo 6º—Para funcionar como Agente en la comercializadora de seguros del Banco, este deberá presentar a esta institución la respectiva acreditación vigente otorgada por el INS, así como la autorización de las respectivas líneas a vender.

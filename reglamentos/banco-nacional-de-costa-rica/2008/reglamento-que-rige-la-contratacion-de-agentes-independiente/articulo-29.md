@@ -1,0 +1,1 @@
+Artículo 29.—El presente Reglamento regula el procedimiento sustitutivo de contratación de agentes independientes de seguros, según lo autorizado por la Contraloría General de la República, mediante el oficio Nº 01682 del 28 de febrero del 2008.

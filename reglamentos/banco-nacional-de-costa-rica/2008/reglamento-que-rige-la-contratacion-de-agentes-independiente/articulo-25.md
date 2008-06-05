@@ -1,0 +1,1 @@
+Artículo 25.—La autorización para la venta de productos y servicios de seguros bajo contrato con El Banco, tendrá una vigencia de un año calendario, contados desde la fecha de la firma del contrato, prorrogable por períodos iguales hasta completar un plazo de cuatro años, sin que este exceda el que se cita en la credencial que le haya otorgado el INS.

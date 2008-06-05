@@ -1,0 +1,1 @@
+Artículo 18.—Se considerarán incumplimientos graves de este reglamento los que disponga el Reglamento General de Entidades Comercializadoras de Seguros, los cuales serán aplicables en todos sus extremos en el presente reglamento.

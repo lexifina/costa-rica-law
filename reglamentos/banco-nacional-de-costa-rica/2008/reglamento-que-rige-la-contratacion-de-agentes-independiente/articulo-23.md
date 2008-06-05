@@ -1,0 +1,16 @@
+Artículo 23.—Son funciones específicas del Agente las siguientes:
+a) Contactar y promover la colocación de las pólizas entre personas y empresas de su área de atracción.
+b) Actuar basado en un plan comercial con metas definidas en cada región, previamente definidos por el Banco, las cuales serán puestas en su conocimiento en los primeros meses del año.
+c) Cumplir con el plan de visitas diseñado por los directores regionales de seguros, con el fin de promover los productos de seguros.
+d) Organizar actividades de promoción de ventas, someterla a la consideración del Banco y participar en ella. Es entendido que, en estas actividades tendrán el respaldo absoluto y los recursos necesarios para su realización.
+e) Desplazarse a donde se encuentran ubicados los clientes potenciales, según la distribución geográfica definida y aceptada.
+f) Someterse a un proceso de capacitación continua en los productos financieros del Banco en la forma y establecimiento que este indique y durante la vigencia del contrato mercantil que se celebre entre ambas partes. Para proceder a renovar el contrato, será requisito indispensable contar con al menos cinco charlas debidamente documentadas mediante listas de asistencia o documento idóneo.
+g) Acompañar a ejecutivos del Banco para materializar seguros relacionados con el crédito gestionado por los clientes.
+h) Realizar giras conjuntas no solo para la venta de seguros, si no también para variaciones de los ya otorgados.
+i) Supervisar las pólizas otorgadas.
+j) Conformar el expediente completo de la póliza y entregarlo en las instalaciones de la comercializadora de seguros del Banco o en la sucursal del INS que le sea señalada por el Banco.
+k) Dar un adecuado seguimiento a las solicitudes de seguro que hayan sido aceptadas para su trámite, a efecto de lograr los compromisos en los tiempos de entrega pactados con el cliente.
+l) Brindar información a los clientes sobre el estado en que se encuentra su solicitud de seguro y, una vez aprobado, brindar la información escrita y, en general, las condiciones básicas de la póliza.
+m) Observar las normas fundamentales del buen vestir, con respeto, decoro y decencia, en concordancia con las características del grupo meta a atender, de conformidad con las normas mínimas establecidas por el Banco para sus funcionarios y que se encuentran detalladas en La Directriz de Recursos Humanos de esta Institución, Nº DIR. DCGM. RH. 01, edición 5, que se anexa al presente Reglamento.
+n) Brindar capacitación a los funcionarios del Banco, de acuerdo con su disponibilidad de tiempo, conocimientos y autorizaciones recibidas. Este servicio será pagado por separado y corresponde a La Dirección de Recursos Humanos su negociación y pago.
+o) Mantener una relación de coordinación con los encargados regionales de seguros en las regiones donde sean destacados, y un contacto funcional con La Gerencia de La Comercializadora del Banco. Las negociaciones deberán realizarse en estrecha relación con las oficinas del Banco en donde se registre la venta e involucrar en todas las etapas del proceso de emisión de la póliza a los ejecutivos del Banco de las oficinas en donde se registre el seguro, a fin de que absorban los conocimientos necesarios y coadyuven en el buen desempeño del negocio.

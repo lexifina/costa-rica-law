@@ -1,0 +1,1 @@
+Artículo 16.—Son obligaciones genéricas a cargo de Los Agentes las que contenga este reglamento y otras como el Reglamento sobre Entidades Comercializadoras, las disposiciones y circulares del Banco, el contrato y el Código de Ética y Prácticas Comerciales de las Agencias, así como el Reglamento para Agentes de Seguros.

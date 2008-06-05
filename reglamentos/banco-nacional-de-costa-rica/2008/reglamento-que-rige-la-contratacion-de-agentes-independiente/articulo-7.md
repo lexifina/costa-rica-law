@@ -1,0 +1,1 @@
+Artículo 7º—De acuerdo con lo dispuesto en el artículo 3 de La Ley General de la Administración Pública, la relación entre el Banco y el Agente será estrictamente de carácter mercantil común, de acuerdo con lo regulado en el Código de Comercio y el artículo 2º de este reglamento.

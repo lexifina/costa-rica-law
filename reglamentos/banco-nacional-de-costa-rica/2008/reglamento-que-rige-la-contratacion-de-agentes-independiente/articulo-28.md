@@ -1,0 +1,2 @@
+Artículo 28.—El Banco se reserva el derecho de solicitar ampliaciones o aclaraciones que no impliquen modificación de este reglamento, así como verificar cualquier información suministrada.
+Cualquier requisito que se hubiera omitido al momento de presentación de su oferta y que pueda ser subsanado por parte del Agente, deberá ser aportado por este dentro de un plazo de dos días hábiles contados a partir de la fecha de notificación por parte del Banco.

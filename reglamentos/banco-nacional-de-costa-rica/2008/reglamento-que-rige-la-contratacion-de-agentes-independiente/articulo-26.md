@@ -1,0 +1,1 @@
+Artículo 26.—En todo lo demás, deberá acatarse lo dispuesto por el INS en el Reglamento para la Operación de Intermediarios en la Comercialización de Productos y Servicios de Seguros del Instituto Nacional de Seguros.

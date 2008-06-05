@@ -1,0 +1,1 @@
+Artículo 20.—El contrato del Agente con el Banco se entenderá para todos los conceptos, con carácter de exclusividad. No obstante el Banco se reserva la facultad de promocionar, gestionar y vender directamente seguros a sus clientes y suscribir contratos especiales de comercialización de seguros con otros entes o personas.

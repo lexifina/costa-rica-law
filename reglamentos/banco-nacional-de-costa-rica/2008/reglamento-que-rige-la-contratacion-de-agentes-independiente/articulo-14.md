@@ -1,0 +1,1 @@
+Artículo 14.—El Agente será responsable directo del cumplimiento de las obligaciones estipuladas en el contrato de seguro suscrito por el agente de seguros con el cliente, en los términos y condiciones en que emita la respectiva póliza.
