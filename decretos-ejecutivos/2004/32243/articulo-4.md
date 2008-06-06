@@ -1,1 +1,0 @@
-Artículo 4º―El incumplimiento del presente reglamento será sancionado, según su gravedad de conformidad con lo dispuesto en la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472 de 20 de diciembre de 1994, publicada en La Gaceta Nº 14 del 19 de enero de 1995; y en el Código Penal vigente.
