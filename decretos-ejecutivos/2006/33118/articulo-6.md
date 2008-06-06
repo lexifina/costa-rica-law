@@ -1,2 +1,0 @@
-Artículo 6º―Refórmese el artículo 26 del Decreto Ejecutivo Nº 4 del 5 de enero de 1951, Reglamento sobre Producción y Venta de Mantequillas, Margarinas y Grasa para Pastelería, publicado en La Gaceta Nº 10 del 13 de enero de 1962, para que su primer párrafo se lea así:
-"Artículo 26.―Las grasas para pastelería ("Shortening") sólo podrán ser vendidas al público cuando se llenen los siguientes requisitos:"
