@@ -1,0 +1,2 @@
+Artículo 15.—Procedimientos para aplicar sanciones administrativas:
+La Municipalidad de Curridabat, en el ejercicio de su función de control y planificación del desarrollo urbano del Cantón de Curridabat, podrá aplicar cualquiera de las sanciones que describe este capítulo siempre y cuando lo haga saber así al administrado por medio de resolución motivada y ésta quede firme de acuerdo al procedimiento que describe este Reglamento.
