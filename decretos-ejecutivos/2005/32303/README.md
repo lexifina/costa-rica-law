@@ -14,3 +14,4 @@ Reglamento a la Ley Reguladora de la Propiedad en Condominio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-19 | la propia norma |
+| 2 | 2008-06-06 | Decreto Ejecutivo 34708 (2008-06-06) |
