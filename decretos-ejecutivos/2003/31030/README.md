@@ -15,3 +15,4 @@ Reglamento de los Guías de Turismo
 | --- | --- | --- |
 | 1 | 2003-03-14 | la propia norma |
 | 2 | 2006-09-12 | Decreto Ejecutivo 33379 (2006-09-12) |
+| 3 | 2008-06-09 | Decreto Ejecutivo 34649 (2008-06-09) |
