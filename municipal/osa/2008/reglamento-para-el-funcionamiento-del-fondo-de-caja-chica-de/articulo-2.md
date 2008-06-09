@@ -1,0 +1,1 @@
+Artículo 2º—El monto total de la Caja Chica será de ¢500.000,00 y el monto total autorizado para sacar vales por día por funcionario será del 10% del total de la Caja Chica, es decir, ¢50.000,00 para efectuar las compras correspondientes y debidamente justificadas de acuerdo a lo que establece el presente Reglamento.
