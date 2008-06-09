@@ -14,3 +14,4 @@ Reglamento de evaluación y calificación de servicio de la Municipalidad de San
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-22 | la propia norma |
+| 2 | 2008-06-09 | Reglamento municipal 35 (2008-06-09) |
