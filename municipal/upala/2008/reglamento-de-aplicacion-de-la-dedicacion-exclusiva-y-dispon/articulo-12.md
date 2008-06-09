@@ -1,0 +1,1 @@
+Artículo 12.—Para solicitar acogerse a la disponibilidad, se debe laborar para la Municipalidad de Upala en jornada completa en un puesto en propiedad por un espacio no menor a seis meses y que el nombramiento no haya sido interrumpido, seguidamente la Oficina de Personal elevará al conocimiento del señor Alcalde Municipal para su aprobación final.
