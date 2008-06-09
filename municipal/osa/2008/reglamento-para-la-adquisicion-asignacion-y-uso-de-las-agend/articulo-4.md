@@ -1,0 +1,1 @@
+Artículo 4º—Los funcionarios municipales a los que se les haya asignado una línea de telefonía celular, serán responsables de velar por el cuido y conservación de la respectiva agenda electrónica con teléfono celular tipo pocket pc.
