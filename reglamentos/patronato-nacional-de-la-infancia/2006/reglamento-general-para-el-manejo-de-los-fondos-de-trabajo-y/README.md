@@ -14,3 +14,4 @@ Reglamento General para el Manejo de los Fondos de Trabajo y Cajas Chicas Auxili
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-24 | la propia norma |
+| 2 | 2008-06-09 | Reglamento 25 (2008-06-09) |
