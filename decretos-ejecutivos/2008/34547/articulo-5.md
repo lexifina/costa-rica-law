@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a las Municipalidades de La Unión, Desamparados, Curridabat y Cartago a poner a disposición de la Comisión los estudios de fragilidad ambiental y de otro tipo concernientes a la Zona Protectora Cerros de La Carpintera que hayan realizado, así como a colaborar con dicha Comisión y tomar en cuenta las conclusiones a que llegue ésta.

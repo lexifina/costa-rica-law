@@ -1,0 +1,1 @@
+Artículo 3º—Que dicha Comisión estará conformada por cinco miembros de la siguiente manera: un representante de la Asociación de Guías y Scouts de Costa Rica, un representante de la Asociación Movimiento Cívico del Cantón de La Unión, un representante de la Municipalidad de La Unión y dos representantes del Área de Conservación Cordillera Volcánica Central.
