@@ -1,0 +1,1 @@
+Artículo 38.—Régimen supletorio. Para la aplicación e interpretación de este Reglamento en lo que corresponda a normas supletorias se aplicarán las disposiciones de la Ley de Contratación Administración y el Reglamento a la Ley de Contratación Administrativa y Ley General de la Administración Pública.
