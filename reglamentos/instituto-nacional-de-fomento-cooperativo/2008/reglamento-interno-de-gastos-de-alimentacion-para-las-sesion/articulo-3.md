@@ -1,0 +1,3 @@
+Artículo 3º—Supuestos de procedencia. Se podrá autorizar el pago de gastos mínimos de alimentación durante la celebración de las sesiones de la Junta Directiva, en su sede central en San José o en lugar distinto en el que haya acordado sesionar, cuando en el cumplimiento de sus funciones se configure alguna de las siguientes situaciones:
+a) Que la sesión se prolongue por más de dos horas y durante ésta deban decidirse aspectos de relevancia institucional o de interés prioritario de la población beneficiaria.
+b) Cuando las horas en que deba reunirse la Junta Directiva o las circunstancias para la asistencia representen algún grado de desgaste del funcionario, siendo que se va a necesitar su presencia durante un lapso que supere el que se indicó en el punto anterior.

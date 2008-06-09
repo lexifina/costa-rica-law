@@ -1,0 +1,1 @@
+Artículo 10.—Verificación de requisitos. La verificación de la procedencia de incurrir en este tipo de gastos y de que se presenten los supuestos de procedencia del artículo primero de este Reglamento, quedará bajo la responsabilidad de la Dirección Ejecutiva.
