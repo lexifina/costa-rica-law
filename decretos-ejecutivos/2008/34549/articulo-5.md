@@ -1,0 +1,1 @@
+Artículo 5º—Derogaciones. A partir de la vigencia de este Reglamento, se deroga el Decreto Nº 33094-H del 16 de noviembre de 2005, publicado el Alcance Nº 30 a La Gaceta Nº 97 del 22 de mayo del 2006, “Reglamento Sobre Criterios de Selección de Sujetos (exportadores, importadores y auxiliares de la función pública aduanera), Mercancías y Operaciones Aduaneras a Fiscalizar”.
