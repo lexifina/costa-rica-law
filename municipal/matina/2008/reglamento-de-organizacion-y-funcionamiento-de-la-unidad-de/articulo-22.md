@@ -1,0 +1,1 @@
+Artículo 22.—Papeles de trabajo. Constituyen los papeles de trabajo el conjunto de cédulas y documentos, en los cuales el auditor registra todos los datos e información útil e importante, obtenidos durante la auditoría o estudio especial de auditoría, así como los resultados de las pruebas realizadas durante su examen.

@@ -1,0 +1,1 @@
+Artículo 3º—Dependencia orgánica. La Auditoría Interna es parte integral y vital del sistema de control interno, de la Municipalidad de Matina o uno de sus componentes orgánicos y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.

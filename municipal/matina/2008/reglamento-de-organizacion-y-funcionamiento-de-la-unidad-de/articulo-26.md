@@ -1,0 +1,1 @@
+Artículo 26.—Archivo. Los papeles de trabajo que se originen en las auditorías o estudios especiales de Auditoría se deben archivar en orden lógico, de acuerdo con las necesidades de la Auditoría, y conservar por el tiempo que las disposiciones legales lo determinen o, por un tiempo más largo si se considera necesario, a criterio del jefe de la Unidad de Auditoría Interna.

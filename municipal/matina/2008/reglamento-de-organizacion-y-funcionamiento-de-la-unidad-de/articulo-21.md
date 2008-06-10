@@ -1,0 +1,2 @@
+Artículo 21.—Evidencia. En toda auditoría o estudio especial de auditoría, se obtendrá material de prueba suficiente y adecuado, por medio de la inspección, observación, investigación, indagación y confirmación, que permita sustentar los memorandos e informes que se suscriban.
+El auditor debe consignar en sus papeles de trabajo la evidencia obtenida mediante la aplicación de los procedimientos de auditoría, la cual debe ser suficiente, adecuada y pertinente para sustentar en forma amplia y segura sus comentarios, conclusiones y recomendaciones.
