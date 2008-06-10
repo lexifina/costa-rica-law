@@ -1,0 +1,1 @@
+Artículo 4º—Valoración de denuncias. El Auditor Interno de la Municipalidad de Aserrí será el encargado de valorar la admisibilidad de las denuncias presentadas ante este órgano fiscalizador, conforme a lo establecido en este Reglamento.
