@@ -1,0 +1,1 @@
+Artículo 15.—Establecimiento de las funciones para los cargos de Auditor y Subauditor Internos. Las funciones de los cargos de Auditor y Subauditor internos deben estar definidos en el Manual Descriptivo de Puestos de la Municipalidad de Desamparados y de conformidad con lo que resuelva la Contraloría General de la Republica, sobre este particular.
