@@ -1,0 +1,2 @@
+Artículo 8º—Requisitos para adscripción del comité de caminos. Para la adscripción de los Comités de Caminos se deberá cumplir con lo siguiente:
+a- Solicitud formal indicando, la nómina de lo(a)s de la Junta Directiva del Comité, así como el listado de los integrantes de la Asamblea General. También incluir el código o códigos y nombre del camino a intervenir (en caso de no existir, brindar la ubicación y descripción del mismo). De ello se informará a la Unidad Técnica de Gestión Vial de la Municipalidad de Carrillo o al Departamento de Obras Municipales.

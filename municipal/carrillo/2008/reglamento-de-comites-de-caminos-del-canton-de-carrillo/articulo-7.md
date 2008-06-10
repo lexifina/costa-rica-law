@@ -1,0 +1,1 @@
+Artículo 7º—Relaciones de dependencia. El Comité de Caminos depende en primera instancia de la Municipalidad y en segunda instancia de la Asamblea General de Vecino(a)s; siendo ésta el órgano máximo de representación.

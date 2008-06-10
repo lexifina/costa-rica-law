@@ -1,0 +1,1 @@
+Artículo 9º—Investidura del Comité de Caminos. El Comité de Caminos para su legitimación deberá ser juramentado en un plazo máximo de treinta días naturales, a partir de la presentación de la solicitud por el Concejo Municipal de la Municipalidad de Carrillo a petición de la Unidad Técnica de Gestión Vial Municipal.
