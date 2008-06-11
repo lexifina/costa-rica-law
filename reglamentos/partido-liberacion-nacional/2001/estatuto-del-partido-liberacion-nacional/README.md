@@ -14,3 +14,4 @@ Estatuto del Partido Liberación Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-28 | la propia norma |
+| 2 | 2008-06-11 | SINALEVI (sin norma nombrada) |
