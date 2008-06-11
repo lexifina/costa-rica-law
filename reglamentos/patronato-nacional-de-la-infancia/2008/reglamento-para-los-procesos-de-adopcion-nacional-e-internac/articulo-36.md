@@ -1,0 +1,9 @@
+SECCIÓN I
+De los requisitos para la declaratoria
+de adoptabilidad
+Artículo 36.—Para la declaratoria de adoptabilidad de una persona menor de edad, el Apoderado General Judicial y Administrativo de la Oficina Local competente, deberá determinar que se cumplan los siguientes requisitos:
+1. Que se encuentre bajo la custodia y la protección del PANI, o de otras organizaciones privadas dedicadas a atender a la niñez y la adolescencia.
+2. Que no tenga ninguna alternativa de ubicación con los miembros de su familia consanguínea materna o paterna, o que teniéndola, las mismas han sido formalmente descartadas como recurso de ubicación de la persona menor de edad.
+3. Contar con una valoración psicosocial actualizada, que considerando las condiciones personales, familiares, emocionales, de salud, de educación y otras, recomiende la declaratoria de adoptabilidad de las personas menores de edad.
+4. Que se haya constatado que la situación socio-legal de la persona menor de edad lo justifique, en consecuencia, se haya recomendado la interposición de la demanda de la declaratoria judicial de abandono o ésta se encuentre en trámite.
+5. Que las valoraciones psicosociales acerca de la situación de la persona menor de edad comprendan como mínimo los siguientes aspectos: desarrollo socio-afectivo, psicomotor e intelectual del niño, niña o adolescente, valoración que acredite el nivel de elaboración de la pérdida de su familia biológica, identificación y evaluación detallada de los recursos familiares existentes, con indicación de que han sido agotadas todas las alternativas de ubicación con la familia consanguínea materna o paterna, así como las diligencias realizadas para tal efecto. Asimismo cuando la edad de la persona menor de edad lo permita, ésta exprese su opinión en cuanto a ser adoptado.

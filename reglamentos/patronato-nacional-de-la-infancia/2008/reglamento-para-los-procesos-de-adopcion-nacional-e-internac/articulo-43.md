@@ -1,0 +1,1 @@
+Artículo 43.—Las personas interesadas en que les sea ubicado un niño (s), niña (s) o adolescente (s) con fines de adopción, deberán realizar la solicitud formal respectiva ante la Oficina Local competente, según su lugar de residencia habitual.

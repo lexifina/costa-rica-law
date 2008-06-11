@@ -1,0 +1,2 @@
+Artículo 19.—Los nombramientos de los miembros de los citados Consejos, serán realizados por la Junta Directiva a partir de ternas que remita la Gerencia Técnica, y durarán en sus funciones dos años. Dichos nombramientos podrán ser prorrogados, únicamente por otro período igual.
+Cada miembro del Consejo tendrá también un suplente que sustituirá al miembro propietario en ausencias temporales. En caso de ausencia definitiva, la Junta Directiva hará una elección del miembro propietario por el resto del período correspondiente.

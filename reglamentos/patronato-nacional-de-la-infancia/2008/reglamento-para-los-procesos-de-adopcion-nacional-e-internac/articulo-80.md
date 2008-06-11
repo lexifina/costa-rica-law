@@ -1,0 +1,1 @@
+Artículo 80.—De requerirse una ampliación psicosocial, el aporte o aclaración de un documento, el Consejo Nacional de Adopciones, prevendrá a la Autoridad Central u Organismo o entidad colaboradora de adopción internacional, su presentación dentro de un plazo de sesenta días naturales, so pena de proceder al archivo definitivo del expediente administrativo.

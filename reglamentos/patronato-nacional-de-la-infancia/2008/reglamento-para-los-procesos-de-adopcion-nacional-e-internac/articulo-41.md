@@ -1,0 +1,1 @@
+Artículo 41.—Si el Apoderado (a) General Judicial y Administrativo de la Oficina Local competente, luego de analizar los informes técnicos psicosociales que recomendaron la declaratoria de adoptabilidad, considera que la persona o personas menores de edad no tienen esa condición, deberá pronunciarse al respecto, mediante acto administrativo debidamente fundamentado.

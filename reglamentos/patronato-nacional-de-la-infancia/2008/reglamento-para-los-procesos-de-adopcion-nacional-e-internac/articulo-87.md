@@ -1,0 +1,1 @@
+Artículo 87.—Estudiados y valorados los expedientes, el Consejo Nacional de Adopciones, definirá cual de los solicitantes resulta ser el más idóneo para la ubicación con fines de adopción de la persona menor de edad y declarará la adoptabilidad, tomando el acuerdo respectivo.

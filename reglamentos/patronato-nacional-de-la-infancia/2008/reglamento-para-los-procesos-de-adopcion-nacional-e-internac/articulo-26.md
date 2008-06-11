@@ -1,0 +1,1 @@
+Artículo 26.—El quórum será de cuatro miembros en los Consejos Regionales y en el Consejo Nacional. La asistencia de los miembros de los Consejos a las sesiones convocadas, serán de carácter obligatorio.

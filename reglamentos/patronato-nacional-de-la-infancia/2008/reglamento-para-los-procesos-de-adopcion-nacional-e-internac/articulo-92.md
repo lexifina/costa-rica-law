@@ -1,0 +1,1 @@
+Artículo 92.—El correspondiente acuerdo de aprobación o rechazo de la solicitud de autorización o prórroga, será comunicado al solicitante por el Departamento de Adopciones, otorgándole el recurso de revocatoria establecido en la Ley General de la Administración Pública.

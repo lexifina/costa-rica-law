@@ -1,0 +1,1 @@
+Artículo 71.—Ubicado el niño, niña o adolescente con la persona o las personas que haya acordado el Consejo Regional, se procederá conforme a lo establecido en el artículo sesenta y dos de este Reglamento.

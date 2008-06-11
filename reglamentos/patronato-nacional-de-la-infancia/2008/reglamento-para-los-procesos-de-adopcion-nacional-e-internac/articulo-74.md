@@ -1,0 +1,1 @@
+Artículo 74.—La solicitud de ubicación de una (as) persona (as) menor (es) de edad con fines de adopción internacional, deberá ser presentada por los petentes a través de la Autoridad Central u organismos o entidades colaboradoras de adopción internacional.

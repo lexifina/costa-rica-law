@@ -1,0 +1,1 @@
+Artículo 52.—Cuando las personas solicitantes de adopción aportan valoraciones sociales y psicológicas, realizadas por profesionales que ejercen su profesión en forma liberal, la Oficina Local procederá a la revisión técnica de las mismas, en plazo no mayor a dos meses, elaborando un informe psicosocial con los resultados de dicha revisión.

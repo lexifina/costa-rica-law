@@ -1,0 +1,1 @@
+Artículo 57.—Una vez declarada la idoneidad y firme el acto administrativo, la Oficina Local procederá en un plazo no mayor de tres días hábiles, a remitir el expediente administrativo al Departamento de Adopciones, a efecto de que se incluya en el registro de familias elegibles para la adopción nacional.

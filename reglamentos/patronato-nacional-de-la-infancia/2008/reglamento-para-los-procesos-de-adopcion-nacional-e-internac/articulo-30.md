@@ -1,0 +1,1 @@
+Artículo 30.—Las resoluciones administrativas que atañen a la competencia de los Consejos adquirirán validez con las firmas del Presidente y del Secretario, o en su defecto por quién los sustituya conforme a lo establecido en este Reglamento.

@@ -1,0 +1,4 @@
+Artículo 9º—Son funciones y atribuciones de las Oficinas Locales, en materia de adopción internacional, las siguientes:
+a. Informar en forma inmediata al Consejo Nacional de Adopciones sobre la tramitación en algún despacho judicial asentado dentro de su jurisdicción de asuntos relativos a la Adopción Internacional.
+b. Plantear las acciones legales que correspondan cuando se determine que una autoridad judicial de su jurisdicción, tramita un proceso como adopción nacional, cuando en realidad se trata de un proceso de adopción internacional.
+c. Cualquier otra función que en materia de adopción internacional le confiera la Junta Directiva, Presidencia Ejecutiva o Gerencia Técnica de la institución.

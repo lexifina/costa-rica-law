@@ -1,0 +1,1 @@
+Artículo 94.—En caso de que la organización deseara prorrogar el plazo, deberá presentar una solicitud al Consejo Nacional de Adopciones, dos meses antes de su vencimiento, aportando toda la documentación actualizada, establecida en el artículo noventa del presente Reglamento.

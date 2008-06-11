@@ -1,0 +1,1 @@
+Artículo 83.—El Departamento de Adopciones deberá solicitar la actualización de los documentos establecidos en el artículo setenta y cinco, numerales del tres al trece, a los (as) solicitantes de adopción internacional, que han sido declaradas idóneas, y que tengan más de un año y medio de haberse realizado.
