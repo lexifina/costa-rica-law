@@ -1,0 +1,5 @@
+SECCIÓN II
+Servicios de fiscalización
+Artículo 32.—Del Plan anual de trabajo. El plan anual de trabajo de la Auditoría Interna es el medio por el cual esta dependencia proyecta en forma sistemática y ordenada la mejor disposición de los recursos que posee para fiscalizar durante un determinado año, las áreas en las que de acuerdo con criterios preestablecidos y a su juicio profesional, considera importantes evaluar, a fin de coadyuvar en el cumplimiento de los objetivos institucionales. Dicho plan debe ser formulado con base en la planificación estratégica, lo que señala el Manual de Normas para el ejercicio de la Auditoría Interna y los lineamientos emitidos sobre este tema por la Contraloría.
+Las modificaciones a dicho Plan deberán documentarse y comunicarse al jerarca y a la Contraloría de manera oportuna.
+La Auditoría deberá realizar como mínimo un informe de labores por año, donde se rinda cuentas, entre otros, sobre el cumplimiento del Plan Anual de Trabajo y sus respectivas modificaciones, de conformidad con lo establecido en las Leyes Nº 8292 y Nº 7333.

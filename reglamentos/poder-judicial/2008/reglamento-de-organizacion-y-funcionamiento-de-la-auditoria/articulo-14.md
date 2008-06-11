@@ -1,0 +1,7 @@
+Artículo 14.—Participación del Auditor o Auditora Interna en sesiones ordinarias y extraordinarias de los órganos de la administración. Con la finalidad de mantener su objetividad e independencia de criterio, la participación del Auditor o Auditora Interna en las sesiones de los órganos de la administración debe ser la excepción y no la regla; bajo las siguientes condiciones:
+a) Asistir con voz pero sin voto.
+b) Asistir cuando lo estime conveniente para el cabal cumplimiento de sus deberes, o cuando sea convocado por el Órgano administrativo facultado.
+c) Brindar su asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) Pedir y vigilar que su opinión conste en las actas respectivas.
+e) Posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
+f) Ni la presencia, ni el silencio del Auditor Interno en las sesiones, releva al jerarca de la responsabilidad de respetar el ordenamiento jurídico y técnico en lo que acuerde. No obstante el silencio, ello no impide que el Auditor Interno emita su opinión posteriormente de manera oportuna, sea de forma verbal en otra sesión, o por escrito.

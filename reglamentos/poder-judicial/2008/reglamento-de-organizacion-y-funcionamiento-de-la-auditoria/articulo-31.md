@@ -1,0 +1,1 @@
+Artículo 31.—Potestades de la Auditoría Interna. Las potestades de la Auditoría Interna están establecidas en el artículo 33 de la Ley Nº 8292, tales potestades serán ejercidas con debido cuidado profesional y efectividad.

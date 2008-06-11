@@ -1,0 +1,1 @@
+Artículo 34.—Servicios de Fiscalización de la Auditoría Judicial. Los servicios de fiscalización de la Auditoría, conforme a sus competencias, se clasifican en los servicios de auditoría y los servicios preventivos.

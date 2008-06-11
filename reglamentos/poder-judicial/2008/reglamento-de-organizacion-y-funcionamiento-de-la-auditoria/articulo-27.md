@@ -1,0 +1,2 @@
+Artículo 27.—Perfil de competencias del Personal de Auditoría Judicial. La capacitación y el reclutamiento del personal de la Auditoría Interna, se orientarán hacia el perfil de competencias que los faculte para el ejercicio en los distintos ámbitos de acción de las dependencias del Poder Judicial.
+El perfil de los auditores o auditoras, reunirá profesionales de las diversas disciplinas académicas y que cuenten con las cualidades personales idóneas para garantizar el éxito en las funciones de la auditoría.

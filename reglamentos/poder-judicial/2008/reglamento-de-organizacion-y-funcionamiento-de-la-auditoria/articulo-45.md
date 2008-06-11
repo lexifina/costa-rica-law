@@ -1,0 +1,1 @@
+Artículo 45.—Requisitos de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en el “Manual de normas para el ejercicio de la auditoría interna en el sector público, M-1-2004-CO-DDI”.

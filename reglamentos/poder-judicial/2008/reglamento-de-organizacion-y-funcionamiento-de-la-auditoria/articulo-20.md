@@ -1,0 +1,1 @@
+Artículo 20.—Delegación de los deberes y funciones al Subauditor o Subauditora Interna. Los anteriores deberes y funciones se podrán delegar por parte del Auditor o Auditora Interna, cuando así lo estime conveniente u oportuno, al Subauditor o Subauditora Interna. Además tendrá todas las demás funciones establecidas en los manuales institucionales para ese puesto.

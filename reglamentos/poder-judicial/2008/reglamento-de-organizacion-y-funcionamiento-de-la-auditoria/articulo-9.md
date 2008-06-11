@@ -1,0 +1,1 @@
+Artículo 9º—Confidencialidad de la información. Será estrictamente confidencial la información que el Auditor o Auditora Interna o cualquiera de sus subalternos obtenga en el ejercicio de sus funciones, de conformidad con los artículos 6, 32 y 35 de la Ley Nº 8292, así como el artículo 8 de la Ley Nº 8422.

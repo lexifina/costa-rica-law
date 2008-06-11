@@ -1,0 +1,3 @@
+SECCIÓN IV
+De las denuncias
+Artículo 52.—Obligación de denunciar. De conformidad con el artículo 281 de la Ley Nº 7594, los servidores de la Auditoría Judicial están en la obligación de denunciar en forma oportuna al Ministerio Público, en caso de tener noticia de presuntos ilícitos penales en contra de la Hacienda Pública, e informar en forma concomitante al jerarca lo pertinente, salvo que éste último sea el denunciado, en tal caso será el Ministerio Público el que, en razón de su quehacer, lo pondrá en autos. El incumplimiento de este deber convertirá a los servidores de la Auditoría Interna en corresponsables pasivos de esos perjuicios y daños cometidos.
