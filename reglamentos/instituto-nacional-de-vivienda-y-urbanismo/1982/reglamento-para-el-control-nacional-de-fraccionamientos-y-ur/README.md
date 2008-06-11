@@ -26,3 +26,4 @@ Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
 | 11 | 1996-08-20 | SINALEVI (sin norma nombrada) |
 | 12 | 2003-05-14 | Reglamento 5277 (2003-05-14) |
 | 13 | 2003-05-28 | Reglamento 5281 (2003-05-28) |
+| 14 | 2008-06-11 | Reglamento 5677 (2008-06-11) |
