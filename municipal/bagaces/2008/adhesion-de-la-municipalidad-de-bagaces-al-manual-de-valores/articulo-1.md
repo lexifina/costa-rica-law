@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE BAGACES
+El Concejo Municipal de Bagaces acuerda adherirse a la publicación del documento “Manual de Valores, Base Unitarios por Tipología Constructiva”, emitida por el Órgano de Normalización Técnica, Dirección General de Tributación-Ministerio de Hacienda, publicado en La Gaceta Nº 78 del 23 de abril del 2008, proceder a su publicación, acuerdo unánime definitivamente aprobado. Sesión ordinaria Nº veintisiete, celebrada el 5 de mayo del 2008.
