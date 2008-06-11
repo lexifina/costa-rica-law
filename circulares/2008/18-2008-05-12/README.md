@@ -13,3 +13,4 @@ Aclaración de la circular N° 16-2008 "Pago de honorarios a peritos, actuarios,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-12 | la propia norma |
+| 2 | 2008-06-11 | Circular 22 (2008-06-11) |
