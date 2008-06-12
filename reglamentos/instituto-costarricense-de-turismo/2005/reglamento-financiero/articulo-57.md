@@ -1,1 +1,2 @@
 Artículo 57.—Para los efectos de este fondo, la autorización de los gastos la efectuará el superior jerárquico del funcionario delegado, quien refrendará la liquidación respectiva. El encargado de los fondos será solidariamente responsable ante sus superiores inmediatos de los gastos que autorice.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

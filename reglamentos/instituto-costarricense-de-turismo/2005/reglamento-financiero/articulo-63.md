@@ -1,5 +1,5 @@
-Artículo 63.—Cada pago que se haga mediante estos fondos, deberá estar respaldado por los siguientes documentos:
-Para tiquetes u órdenes de canje:
-63.1 Fotocopia de los cupones del tiquete u orden de canje, con el sello de "reembolsado", que haga constar que no fueron utilizados y el sello particular de la compañía o agencia certificando lo anterior.
-63.2 Fotocopia del cheque o del documento en donde conste la devolución del valor del tiquete u orden de canje, o determinada porción no utilizada.
-Además, se requiere el original del recibo de reembolso en la fórmula editada al efecto, debidamente firmado por el Jefe de Ingresos y el interesado o representante autorizado. También debe entenderse, que los datos consignados en las fotocopias solicitadas deberán ser legibles y avaladas por la empresa. Queda a criterio del Instituto aceptar documentos sustitutos en casos especiales.
+CAPÍTULO VI
+De los gastos de representación, artículos
+y gastos para recepciones y otros
+Artículo 63.—El Presidente Ejecutivo y el Gerente, son los funcionarios autorizados para efectuar Gastos de Representación Institucionales y aquellos ubicados en la subpartida Artículos y Gastos para Recepciones sujetos a liquidación y verificación posterior. Por autorización expresa, podrán efectuar este tipo de gastos, los funcionarios de otros niveles, debiendo visarse la liquidación respectiva por quien dio el consentimiento. Asimismo, no se autoriza la compra de cigarrillos y el uso del licor debe ser en forma racional. Aquellos funcionarios que participen en atenciones y recepciones (cenas, bufetes, etc.), no pueden a la vez, hacer uso de la tarifa correspondiente que estipula el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, debiendo velar además, de que los funcionarios del Instituto, solo en casos muy específicos superen al número de personas atendidas.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

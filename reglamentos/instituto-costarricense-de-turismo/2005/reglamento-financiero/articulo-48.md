@@ -6,6 +6,7 @@ Artículo 48.—Cada compra que se haga mediante estos fondos, deberá ser respa
 48.5 Número de factura del vendedor.
 48.6 Nombre completo o razón social del vendedor.
 48.7 Firma de recibido del vendedor o de quien efectuó la compra.
-48.8 Firma de la jefatura de la unidad, solicitante.
+48.8 Firma de la jefatura de la unidad solicitante.
 48.9 Codificación y refrendo de Presupuesto.
-48.10 Indicación del objetivo y meta de acuerdo al PAO vigente.
+48.10 Indicación del objetivo y meta de acuerdo al POI vigente.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, sesión 5511 de 11 de marzo de 2008).

@@ -1,6 +1,3 @@
-Artículo 68.—Los artículos y gastos de recepciones se definen como aquellas erogaciones que se originen en la celebración de recepciones o atenciones de carácter oficial, a personas o agrupaciones de interés para el Instituto, excepto aquellos que por su naturaleza pudiesen corresponder al grupo de servicios no personales. Esas atenciones no podrán ser en forma exclusiva a funcionarios de la propia institución.
-Para el reconocimiento de dichas erogaciones deberá cumplirse con los siguientes requisitos:
-1) Cargo y nombre de los funcionarios responsables del gasto.
-2) Nombre y firma del funcionario responsable del gasto.
-3) Motivo de la atención.
-4) Clase o tipo de atención.
+Artículo 68.—Las facturas por gastos de representación o recepción deben contener un detalle o desglose de lo consumido emitido por el negocio que brindó el servicio y firmadas por el funcionario responsable de la atención quien también consignará en la factura su número de cédula. Además debe anexarse información acerca de las personas atendidas, su rango y procedencia.
+La comprobación de falsedad o el ocultamiento de información en los datos incluidos en la liquidación, se considerará falta grave y hará incurrir al responsable en las sanciones previstas en el artículo 53 del RAT, sin perjuicio de las responsabilidades de tipo penal que pudiesen corresponder.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

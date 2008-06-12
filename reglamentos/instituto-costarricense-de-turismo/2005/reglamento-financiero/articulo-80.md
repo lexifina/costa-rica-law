@@ -1,2 +1,2 @@
-Artículo 80.—En el momento en que se suspenda la orden de ejecutar el gasto que originó el adelanto y el cheque se encuentra en trámite, se debe enviar nota de anulación del mismo dirigida a Contabilidad con copia al encargado de liquidaciones, con la finalidad de actualizar los controles de liquidaciones y contables.
-En caso de que el cheque de adelanto haya sido retirado y se suspenda la contratación, se reintegrará el dinero inmediatamente y también se enviará la nota de anulación en los términos expuestos anteriormente.
+Artículo 80.—
+(NOTA DE SINALEVI: De conformidad con la reforma hecha a este Reglamento mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008, el texto que contenía este artículo se encuentra en el artículo 77)

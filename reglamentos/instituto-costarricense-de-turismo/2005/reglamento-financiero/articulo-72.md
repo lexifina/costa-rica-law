@@ -1,6 +1,2 @@
-Artículo 72.—Todos los comprobantes de pago deben cumplir con las siguientes condiciones:
-a) Ser originales y no tener borrones ni tachaduras.
-b) Estar timbrado o autorizado de corresponder, según lo dispone el Reglamento de la Ley del Impuesto sobre la Renta.
-c) Emitidos a nombre del Instituto Costarricense de Turismo.
-d) Mostrar toda la información requerida tal como la fecha, dirección del vendedor, detalle y descripción del servicio brindado.
-e) Cada factura debe de pegarse en una hoja bond.
+Artículo 72.—En el momento en que una liquidación de gastos es devuelta con el fin de que sean corregidas las inconsistencias, el funcionario quedará nuevamente con Liquidación Pendiente, impidiendo de esta forma que se pueda autorizar otro adelanto de gastos, incluyendo gastos de viaje o adelantos por caja chica, hasta tanto dicha liquidación sea totalmente corregida y presentada ante la persona que tenga a cargo la revisión.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

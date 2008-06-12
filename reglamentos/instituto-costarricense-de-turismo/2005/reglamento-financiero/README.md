@@ -15,3 +15,4 @@ Reglamento Financiero
 | --- | --- | --- |
 | 1 | 2005-12-14 | la propia norma |
 | 2 | 2006-07-11 | Reglamento 5420 (2006-07-11) |
+| 3 | 2008-06-12 | Reglamento 5511 (2008-03-11) |

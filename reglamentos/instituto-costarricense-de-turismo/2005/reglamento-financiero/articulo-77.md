@@ -1,2 +1,3 @@
-Artículo 77.—No está permitido utilizar los adelantos de gastos en fines distintos para los que se solicitaron.
-La presentación de la liquidación y la rendición de cuentas, fuera del tiempo concedido en este Reglamento, se tipifica como falta grave y obliga a la Administración, a exigir el reintegro inmediato.
+Artículo 77.—En el momento en que se suspenda la orden de ejecutar el gasto que originó el adelanto y el cheque se encuentra en trámite, se debe enviar nota de anulación del mismo dirigida a Contabilidad con copia al encargado de liquidaciones, con la finalidad de actualizar los controles de liquidaciones y contables.
+En caso de que el cheque de adelanto haya sido retirado y se suspenda la contratación, se reintegrará el dinero inmediatamente y también se enviará la nota de anulación en los términos expuestos anteriormente.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

@@ -1,1 +1,6 @@
-Artículo 65.—Las disposiciones generales contenidas en los artículos 44, 45, 46, 47,48 y 49 no son aplicables a este fondo.
+Artículo 65.—Los artículos y gastos de recepciones se definen como aquellas erogaciones que se originen en la celebración de recepciones o atenciones de carácter oficial, a personas o agrupaciones de interés para el Instituto, excepto aquellos que por su naturaleza pudiesen corresponder al grupo de servicios no personales. Esas atenciones no podrán ser en forma exclusiva a funcionarios de la propia institución. Para el reconocimiento de dichas erogaciones deberá cumplirse con los siguientes requisitos:
+1. Cargo y nombre de los funcionarios responsables del gasto.
+2. Nombre y firma del funcionario responsable del gasto.
+3. Motivo de la atención.
+4. Clase o tipo de atención.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

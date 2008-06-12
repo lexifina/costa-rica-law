@@ -1,1 +1,2 @@
 Artículo 58.—Se exceptúa de este fondo, cuando las circunstancias lo ameriten, la prohibición establecida por el artículo 44, inciso 44.1. Tampoco se requerirá en los pagos tramitados con estos fondos, lo establecido por el artículo 46 en cuanto a la autorización previa de Financiero.
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

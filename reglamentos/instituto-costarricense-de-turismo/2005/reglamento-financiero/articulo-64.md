@@ -1,2 +1,7 @@
-Artículo 64.—El impuesto se le reintegra al comprador del tiquete u orden de canje, debiendo presentar su cédula de identidad o su pasaporte.
-Cuando por razones especiales el beneficiario del reembolso no pueda presentarse a gestionar el reintegro, podrá autorizar a otra persona mediante nota debidamente firmada y acompañada con fotocopia de la cédula de identidad o pasaporte para que retire el impuesto a reintegrar.
+Artículo 64.—Se clasifican como Gastos de Representación, aquellas atenciones que se brindan a individuos vinculados con las actividades del Instituto. Queda terminantemente prohibido brindar atenciones en forma exclusiva a funcionarios del ICT. Para el caso de los viajes al exterior, tampoco podrán atenderse exclusivamente a funcionarios representantes o personeros costarricenses, cualquiera que sea su cargo, rango o ente al que pertenezca, según lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
+Para el reconocimiento de dichas erogaciones deberá cumplirse con los siguientes requisitos:
+Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
+Nombre y firma del funcionario responsable del gasto.
+Motivo de la atención.
+Clase o tipo de atención
+(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)
