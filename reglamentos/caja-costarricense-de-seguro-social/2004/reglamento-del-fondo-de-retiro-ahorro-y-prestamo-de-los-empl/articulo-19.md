@@ -1,7 +1,14 @@
-De la Junta Administrativa
-Artículo 19.—La Junta Administrativa estará constituida por ocho miembros de la siguiente forma: el Gerente Financiero, el Gerente de Pensiones, el Gerente Administrativo de la Caja, un miembro representante de la Junta Directiva y cuatro representantes de los trabajadores.
-Cuando resulte necesario, la Junta Administrativa podrá solicitar la colaboración en calidad de Asesores Técnicos, al Director Actuarial o su representante, al Subgerente Jurídico o su representante y a cualquier otro director o funcionario de la Institución que se considere conveniente para contar con los respectivos criterios técnicos.
-Los representantes de los trabajadores y sus respectivos suplentes deberán ser designados cada tres años, mediante voto directo, secreto y universal en elecciones, que se llevarán a cabo en el transcurso del mes de noviembre del año respectivo, pudiendo ser reelectos de conformidad con el instructivo que para el proceso electoral apruebe la Junta Administrativa. La Gerencia Administrativa tomará las medidas necesarias para que la elección de los representantes de los trabajadores se realice en forma correcta y oportuna.
-Le corresponderá a la Gerencia Financiera realizar la designación de los suplentes para los miembros representantes de la Institución. Los miembros suplentes deberán asistir a las sesiones de la Junta Administrativa, cuando el titular por alguna circunstancia no pudiese hacerlo. En caso de que el titular y su suplente no pudieran asistir, la responsabilidad de justificar tal ausencia recae exclusivamente sobre el miembro titular.
-El Administrador del Fondo o Director Ejecutivo reportará a la Junta Administrativa y participará en las sesiones con voz y sin derecho a voto.
-(Así reformado mediante sesión N° 8234 de 13 de marzo de 2008)
+Funciones de la Junta Administrativa
+Artículo 19.—Además de las funciones indicadas en el reglamento del FRE, son funciones de la Junta Administrativa las siguientes:
+a) Establecer los procedimientos de trámite para la concesión de los beneficios, incluidos los préstamos.
+b) Establecer los procedimientos para hacer efectivas las devoluciones de ahorros.
+c) Fijar las condiciones y el tipo de interés que devengarán los préstamos, de acuerdo con las recomendaciones de la Dirección Actuarial y de Planificación Económica.
+d) Disponer la distribución anual de los excedentes entre los ahorrantes voluntarios afiliados al FAP, según las políticas emanadas de la Junta Administrativa, tomando en cuenta las recomendaciones que brinde la Dirección Actuarial y de Planificación Económica.
+e) Aprobar los presupuestos anuales de operación y de inversiones del FRAP.
+f) Dictar la política de inversiones e instruir lo procedente al comité de inversiones.
+g) Velar por la mayor rentabilidad, seguridad y solidez del FRAP. Al efecto, deberá supervisar e inspeccionar todo lo relacionado con sus operaciones e inversiones.
+h) Nombrar al Director Ejecutivo del FRAP, quien se desempeñará como Administrador del FRE y del FRAP.
+i) Convocar a elecciones a los trabajadores activos, por medio de la Gerencia de División Administrativa, para el nombramiento de sus representantes y del fiscal.
+j) Pronunciarse de previo ante la Junta Directiva de la Caja sobre cualquier reforma parcial o total del reglamento del FRAP.
+k) Dar su criterio previo a la aprobación de cualquier modificación al perfil de beneficios.
+l) Otras funciones atinentes a sus obligaciones legales o reglamentarias.

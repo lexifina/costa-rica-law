@@ -1,4 +1,6 @@
-CAPÍTULO II
-De la Administración
-Artículo 18.—La implementación de las funciones administrativas del FRAP estarán a cargo de un órgano administrativo designado institucionalmente para tales efectos, en éste se integrarán las actividades propias del FRE y del FAP, las cuales estarán a cargo de un Director Ejecutivo designado por acuerdo de la Junta Administrativa del FRAP, mediante votación calificada de al menos dos terceras partes de sus miembros. El nombramiento del Director Ejecutivo será por un período de 3 años, deberá ser ratificado por acuerdo de Junta Directiva pudiendo ser reelecto en el cargo. Para el desempeño de sus funciones se le otorgará un poder general con límite de suma.
-El perfil de las funciones, requisitos y las condiciones del proceso de selección y contratación del Director Ejecutivo serán determinados por la Junta Administrativa del FRAP, vía instructivo.
+Representación laboral en la Junta Administrativa
+Artículo 18.—Los representantes de los trabajadores tomarán posesión de sus cargos cada tres años, a partir del 1º de enero. Los representantes institucionales se nombrarán por tiempo indefinido.
+Si alguno de los miembros de la Junta dejare de ser trabajador de la Caja, cesará al mismo tiempo como miembro de la Junta Administrativa del Fondo. Para llenar la vacante, en el caso del representante titular de los trabajadores, asumirá el respectivo suplente. La suplencia será asumida por el trabajador de la Caja que hubiere obtenido el mayor número de votos válidos, en orden descendente, después de quienes resultaron electos en la elección previa.
+En el caso de que el suplente o candidato a suplente dejare de ser empleado de la Caja, será sustituido siguiendo el mismo procedimiento antes descrito. El suplente ocupará el puesto hasta que se complete el período por el que fue nombrado el titular original.
+Los representantes de los trabajadores elegidos en la Junta Administrativa gozarán de permiso con goce de salario, para cumplir apropiadamente con sus funciones.
+(Así reformado mediante sesión N° 8234 de 13 de marzo del año 2008).

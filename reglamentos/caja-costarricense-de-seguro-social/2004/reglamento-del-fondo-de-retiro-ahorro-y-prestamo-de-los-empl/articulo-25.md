@@ -1,2 +1,1 @@
-De los gastos
-Artículo 25.—Los gastos generales que demande la administración del FRAP, se harán con cargo al presupuesto correspondiente. Se faculta a la Junta Administrativa el financiamiento de gastos adicionales para el mejoramiento y la promoción del fondo, los cuales en ningún caso podrán representar más del 25% (veinticinco por ciento) del total anual de los gastos generales antes indicados, monto que deberá ser financiado con los recursos previstos en el artículo 35 de este reglamento.
+Artículo 25.—Todos los demás servicios de apoyo serán brindados en la medida de sus posibilidades por las Direcciones de Sede de la Institución.

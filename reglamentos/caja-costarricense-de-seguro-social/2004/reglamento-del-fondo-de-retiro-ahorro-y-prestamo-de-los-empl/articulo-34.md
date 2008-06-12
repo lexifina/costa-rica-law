@@ -1,1 +1,0 @@
-Artículo 34.—El derecho a reclamar cualquier liquidación del FAP prescribe en un plazo de cinco años, a partir de la fecha en que se efectuó la respectiva liquidación y los recursos que de ellos se generen se destinarán de acuerdo con lo establecido en el artículo 15 de este reglamento.

@@ -1,1 +1,2 @@
-Artículo 6.- (Así derogado mediante sesión N° 8234 de 13 de marzo de 2008)
+Deducción de planillas
+Artículo 6º—Las cuotas de amortización e intereses tanto para préstamos ordinarios sobre ahorro voluntario, préstamo fiduciario corriente como para préstamos extraordinarios, se cobrarán mediante deducciones del salario del trabajador conforme al sistema de pago de la Institución.

@@ -1,3 +1,4 @@
-Congelación de ahorros
-Artículo 8º—Mientras el prestatario mantenga saldos pendientes por concepto de crédito, ya sea ordinario o extraordinario, no podrá retirar sus ahorros ni los respectivos intereses.
-Esta disposición no afecta la distribución de excedentes que en cada oportunidad se llegare a acordar.
+Renovación del préstamo
+Artículo 8º—La renovación de un préstamo sobre ahorro, ordinario o extraordinario fiduciario, podrá efectuarse en cualquier momento, siempre y cuando el afiliado cuente con la liquidez suficiente y presente las garantías requeridas en cada uno de estos casos. De igual manera, es indispensable que se encuentre laborando en forma regular al servicio de la Institución y en el caso del préstamo ordinario sobre ahorro y extraordinario debe ser ahorrante activo del fondo.
+Con el producto del nuevo préstamo se pagará el saldo insoluto del préstamo anterior, así como las cuotas atrasadas del préstamo extraordinario, intereses atrasados o cualquier otro compromiso con el Fondo, si los hubiere. La unidad administrativa del FRAP hará la imputación de pago directamente, en los términos aquí indicados.
+(Así reformado mediante sesión N° 8234 de 13 de marzo del año 2008).

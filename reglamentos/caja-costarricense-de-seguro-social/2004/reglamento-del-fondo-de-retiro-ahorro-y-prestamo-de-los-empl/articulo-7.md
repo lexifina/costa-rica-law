@@ -1,2 +1,3 @@
-Deducción de planillas
-Artículo 7º—Las cuotas de amortización e intereses tanto para préstamos ordinarios sobre ahorro voluntario, préstamo fiduciario corriente como para préstamos extraordinarios, se cobrarán mediante deducciones del salario del trabajador conforme al sistema de pago de la Institución.
+Congelación de ahorros
+Artículo 7º—Mientras el prestatario mantenga saldos pendientes por concepto de crédito, ya sea ordinario o extraordinario, no podrá retirar sus ahorros ni los respectivos intereses.
+Esta disposición no afecta la distribución de excedentes que en cada oportunidad se llegare a acordar.

@@ -1,2 +1,1 @@
-Informe anual
-Artículo 28.—En el mes de marzo de cada año, el Presidente y Vicepresidente de la Junta Administrativa presentarán a la Junta Directiva de la Caja, un informe de la gestión administrativa y financiera del FRAP correspondiente al ejercicio del período anual anterior; el cual harán del conocimiento de los trabajadores.
+Artículo 28.—Al trabajador que habiendo aplicado sus ahorros para cancelar los saldos de préstamo con el FRAP, según los términos del artículo anterior, le quede un remanente a su favor, deberá indicar si desea ese saldo en el FRAP, o solicitar su devolución, lo que será atendido por la Administración del FRAP conforme a las posibilidades de liquidez del fondo.

@@ -1,2 +1,2 @@
-De la contabilidad y otros servicios de apoyo
-Artículo 26.—La Sección de Contabilidades Especiales de la Caja Costarricense de Seguro Social, será la responsable de llevar la contabilidad del FAP. Mensualmente deberá presentar a la Junta Administrativa los estados financieros.
+Informe anual
+Artículo 26.—En el mes de marzo de cada año, el Presidente y Vicepresidente de la Junta Administrativa presentarán a la Junta Directiva de la Caja, un informe de la gestión administrativa y financiera del FRAP correspondiente al ejercicio del período anual anterior; el cual harán del conocimiento de los trabajadores.

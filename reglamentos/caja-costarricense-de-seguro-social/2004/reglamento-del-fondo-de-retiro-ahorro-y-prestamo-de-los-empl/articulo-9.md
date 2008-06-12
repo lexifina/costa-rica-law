@@ -1,4 +1,2 @@
-Renovación del préstamo
-Artículo 9º—La renovación de un préstamo sobre ahorro, ordinario o extraordinario fiduciario, podrá efectuarse en cualquier momento, siempre y cuando el afiliado cuente con la liquidez suficiente y presente las garantías requeridas en cada uno de estos casos. De igual manera, es indispensable que se encuentre laborando en forma regular al servicio de la Institución y en el caso del préstamo ordinario sobre ahorro y extraordinario debe ser ahorrante activo del fondo.
-Con el producto del nuevo préstamo se pagará el saldo insoluto del préstamo anterior, así como las cuotas atrasadas del préstamo extraordinario, intereses atrasados o cualquier otro compromiso con el Fondo, si los hubiere. La unidad administrativa del FRAP hará la imputación de pago directamente, en los términos aquí indicados.
-(Así reformado mediante sesión N° 8234 de 13 de marzo de 2008)
+Posibilidad de reducir plazos
+Artículo 9.—Los plazos de amortización estipulados para los préstamos podrán ser inferiores a los previstos en este Reglamento, siempre que el interesado lo solicite en la respectiva fórmula de crédito.
