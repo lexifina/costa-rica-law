@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: Sobre este tema, La Caja Costarricense de Seguro Social, había emitido anteriormente el Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense de Seguro Social (FRE), aprobado en sesión N° 7746 del 10 de abril de 2003)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
 JUNTA DIRECTIVA
 APROBACIÓN REGLAMENTO
@@ -5,5 +6,5 @@ La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 7�
 REGLAMENTO DEL FONDO DE RETIRO DE LOS EMPLEADOS
 DE LA CAJA COSTARRICENSE DE SEGURO SOCIAL
 La Junta Directiva de la Caja Costarricense de Seguro Social, con fundamento en el artículo 14 inciso f) de la Ley Constitutiva de la Caja, N° 17 del 22 de octubre de 1943 y sus reformas, en relación con el artículo 21 ibídem, dispone dictar el Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense de Seguro Social (FRE), que se regirá por las siguientes normas:
-Creación y fines
+NOTA DE SINALEVI: El texto de este Reglamento fue reformado mediante acuerdo tercero de la sesión N° 8257 del 12 de junio de 2008 y publicado en La Gaceta N °123 del 26 de junio de 2008, por lo que se reproduce a continuación:
 Artículo 1º—Se crea el Fondo de Retiro, de los servidores de la Caja Costarricense de Seguro Social, para proteger a todos aquellos trabajadores que se encontraren laborando a su servicio en la actualidad o que llegaren a hacerlo en el futuro, en una plaza contemplada en el presupuesto de salarios ordinarios, descrita en el Estatuto de Servicios de la Institución.

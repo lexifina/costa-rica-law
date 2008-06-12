@@ -1,23 +1,17 @@
 CAPÍTULO II
 Del financiamiento, inversiones y fiscalización
-Artículo 10.— El Fondo de Retiro funcionará como un sistema de pensiones complementarias, solidario y de capitalización colectiva. Para el financiamiento de los beneficios estipulados en el régimen de protección básica, la Caja como patrono contribuirá con el 1.5% (uno y medio por ciento) de la planilla total de salarios ordinarios de sus servidores.
+Artículo 10.—El Fondo de Retiro funcionará como un sistema de pensiones complementarias, solidario y de capitalización colectiva. Para el financiamiento de los beneficios estipulados en el régimen de protección básica, la Caja como patrono contribuirá con el 2.0% (dos por ciento) de la planilla total de salarios ordinarios de sus servidores.
+Adicionalmente, el FRE se financia con cualesquiera otros recursos que en caso necesario aporte la Caja dentro del límite establecido por el artículo 21 de su Ley Constitutiva.
 Dichos aportes, junto con las reservas iniciales y la capitalización pertinente, se utilizarán para el establecimiento de un régimen de financiamiento de reparto de capitales de cobertura.
 Para el financiamiento de la administración la Caja aportará los recursos necesarios, tomados de acuerdo con el límite que establece el artículo 21 de su Ley Constitutiva, los cuales no podrán superar el 0.10% de la planilla de salarios ordinarios.
-Para garantizar el financiamiento de los beneficios, con los recursos antes indicados y las reservas disponibles, se constituirán los siguientes fondos de reserva:
+Para garantizar el financiamiento de los beneficios, con los recursos antes indicados y los activos disponibles, se constituirán los siguientes fondos de reserva:
 a) Fondo de reserva para pensiones en curso de pago.
-b) Fondo de reserva para beneficios futuros y contingencias.
-c) Fondo de reserva para beneficio de separación.
-El Fondo de Reserva para Pensiones en curso de pago tiene como fin garantizar el financiamiento de las pensiones en curso de pago y se alimentará de la siguiente manera:
-a) Con una reserva inicial determinada actuarialmente, equivalente al valor presente de las pensiones en curso de pago.
-b) Con los capitales de cobertura provenientes de la reserva para beneficios futuros y contingencias.
-c) Con los capitales de cobertura que aporte la Caja, dentro del límite indicado por el artículo 21 de su Ley Constitutiva.
-d) Con los rendimientos generados por las inversiones y otros ingresos.
-El Fondo de Reserva para Beneficios Futuros y Contingencias tiene como fin financiar parte de los capitales de cobertura y otras contingencias que se presenten, y se conformará de la siguiente manera:
-a) Con un monto equivalente al costo de los beneficios proyectados durante los próximos dieciocho meses.
-b) Con el 1.5% sobre la planilla de salarios ordinarios y los rendimientos pertinentes desde el 1º de marzo del año 2001 o desde la fecha de ingreso del trabajador, cuando éste ocurra en fecha posterior.
-c) Con las reservas actuariales que se consideren necesarias para atender gastos por eventuales sentencias judiciales.
-El Fondo de Reserva para Beneficio de Separación estará conformado por una reserva determinada actuarialmente, equivalente al valor presente de los beneficios futuros en caso de separación.
-El aporte de la Caja equivalente al 1.5% del salario del trabajador más los rendimientos a partir del 1º de marzo del año 2001 o a partir de la fecha de ingreso, según corresponda, se registrarán en cuentas contables a nombre de cada trabajador, para llevar el control del monto del beneficio en caso de separación.
-Anualmente, en el mes de diciembre de cada año la Dirección Actuarial y de Planificación Económica realizará una evaluación del nivel y suficiencia de cada una de las tres reservas y recomendará los ajustes pertinentes, así como los montos de los capitales de cobertura que deben tomarse de la reserva de beneficios futuros y contingencias. En el caso de que dicha reserva no pueda garantizar la totalidad de tales capitales de cobertura, el faltante será aportado por la Caja, dentro del límite establecido por el artículo 21 de su Ley Constitutiva y en concordancia con el artículo 35 del Reglamento de Fondo de Retiro Ahorro y Préstamo de los empleados de la Caja Costarricense de Seguro Social.
-El Sistema de Protección Adicional se financiará con el aporte voluntario del servidor, que en ningún caso será menor del 1% (uno por ciento) del salario total
-(Así reformado mediante sesión N° 8019 del 15 de diciembre del 2005)
+b) Fondo de Reserva para Beneficios en Formación.
+c) Fondo de Reserva para Contingencias.
+d) Fondo de Reserva para Sentencias Judiciales.
+e) Fondo de reserva para beneficios futuros y contingencias.
+f) Fondo de reserva para beneficio de separación.
+Anualmente se realizará una evaluación actuarial del FRE con corte a la fecha establecida por la Superintendenc ia de Pensiones, para estimar los niveles actuariales de las reservas técnicas e investigar el equilibrio financiero y actuarial del Fondo. Si en dicha evaluación se determina que existe un déficit, éste será aportado por la Caja, dentro del límite establecido por el artículo 21 de su Ley Constitutiva.
+Mensualmente se realizara los ajustes contables a la Reserva para Pensiones en Curso de Pago, para lo cual durante los primeros cinco días del mes la Dirección Actuarial informará a la Subárea Contable del FRAP el monto estimado para dicha reserva. Los ajustes a las inversiones de respaldo a esta reserva se realizarán anualmente.
+El sistema de Protección Adicional se financiará con el aporte voluntario del servidor, que en ningún caso será menor del 1% (uno por ciento) del salario total.
+(Así reformado en el artículo 27 de la sesión número 8257 del 12 de junio del año 2008).

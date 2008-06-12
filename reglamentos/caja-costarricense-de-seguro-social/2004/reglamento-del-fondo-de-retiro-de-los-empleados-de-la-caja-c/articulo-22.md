@@ -1,2 +1,2 @@
-Informe anual
-Artículo 22.—En el mes de marzo de cada año, el Presidente y Vicepresidente de la Junta Administrativa presentarán a la Junta Directiva de la Caja, un informe de la gestión administrativa y financiera del FRE correspondiente al ejercicio del período anual anterior; el cual harán del conocimiento de los trabajadores.
+De la Fiscalía
+Artículo 22.—La Junta Administrativa contará con un fiscal, elegido en los mismos términos y plazos que los representantes de los trabajadores, éste deberá asistir a las sesiones de la Junta Administrativa y del Comité de Inversiones con derecho a voz y no a voto. Corresponderá al fiscal velar por el estricto cumplimiento de las disposiciones contenidas en este Reglamento, actuar como contralor de todas las actividades de la Junta Administ rativa y velar porque todas las actuaciones de la Junta Administrativa se ajusten a los intereses de los trabajadores de la Institución.

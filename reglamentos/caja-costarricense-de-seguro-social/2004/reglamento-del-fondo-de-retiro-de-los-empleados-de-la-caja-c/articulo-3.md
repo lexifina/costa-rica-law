@@ -1,4 +1,3 @@
-CAPÍTULO I
 Régimen de beneficios
 Artículo 3º—El Régimen de Protección Básica incluye los siguientes beneficios:
 a) Pensión complementaria en caso de invalidez, vejez o muerte.
