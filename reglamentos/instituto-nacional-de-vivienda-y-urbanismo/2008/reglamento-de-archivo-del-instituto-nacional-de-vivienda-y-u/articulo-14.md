@@ -1,0 +1,1 @@
+Artículo 14.—Además de las funciones que se le designan al Comité Institucional de Selección y Eliminación de Documentos en la Ley Nº 7202 y su Reglamento, el mismo funcionará como ente de apoyo al Archivo Central.

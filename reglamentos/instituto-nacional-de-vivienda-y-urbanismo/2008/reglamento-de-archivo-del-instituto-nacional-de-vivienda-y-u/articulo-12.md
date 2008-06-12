@@ -1,0 +1,1 @@
+Artículo 12.—En el Archivo Central se mantendrán únicamente documentos originales, salvo que por disposiciones o circunstancias especiales de caso fortuito o fuerza mayor, se cuente solo con copias de los documentos.
