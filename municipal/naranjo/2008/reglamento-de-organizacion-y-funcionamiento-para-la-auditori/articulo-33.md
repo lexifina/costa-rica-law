@@ -1,0 +1,1 @@
+Artículo 33.—Apoyo a evaluaciones o Auditorías Externas. La Auditoría Interna servirá de apoyo para las Evaluaciones y Auditorías Externas, las cuales son realizadas por la CGR y por empresas de Auditoría Externa contratadas por el Concejo Municipal.

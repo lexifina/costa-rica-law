@@ -1,0 +1,1 @@
+Artículo 42.—Programa de Aseguramiento de la Calidad. La Jefatura de la Auditoría Interna en conjunto con su personal, debe de crear, desarrollar, mantener y actualizar un programa de Aseguramiento de la calidad con el cual evaluar la forma en la que se están llevando a cabo las actividades de Auditoría Interna.

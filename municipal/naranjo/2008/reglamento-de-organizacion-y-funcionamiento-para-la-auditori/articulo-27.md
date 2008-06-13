@@ -1,0 +1,1 @@
+Artículo 27.—Organización. La Auditoría Interna se organizará y funcionará conforme lo permitan los recursos físicos y humanos y así lo disponga el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices que emita el Concejo Municipal, las cuales serán de acatamiento obligatorio.

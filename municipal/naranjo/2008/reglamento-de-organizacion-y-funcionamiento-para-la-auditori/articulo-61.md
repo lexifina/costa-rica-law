@@ -1,0 +1,1 @@
+Artículo 61.—Responsabilidades. El Auditor Interno y el Subauditor Interno, son los responsables, en ese orden, del correcto cumplimiento de las funciones encomendadas a la Auditoría Interna. El Auditor Interno podrá delegar autoridad y exigir responsabilidad.

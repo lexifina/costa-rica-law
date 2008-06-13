@@ -1,0 +1,1 @@
+Artículo 11.—Órganos del sistema de control interno. La Administración Activa junto con la Auditoría Interna Municipal, son los componentes orgánicos del sistema de control interno implantado en la Institución.

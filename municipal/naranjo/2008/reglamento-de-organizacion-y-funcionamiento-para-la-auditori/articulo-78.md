@@ -1,0 +1,1 @@
+Artículo 78.—Elaboración del presupuesto. La Auditoría Interna confeccionará su presupuesto anual en forma independiente, de acuerdo con los lineamientos que sobre esta materia emita la CGR y la Institución, cumpliéndose con los requisitos establecidos.
