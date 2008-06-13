@@ -1,4 +1,5 @@
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(NOTA: El Instituto Costarricense de Pesca y Acuicultura mediante acuerdo N° A.J.D.P./434-2008 del 28 de noviembre de 2008, establece las tarifas por concepto de bienes y servicios que brinda el Instituto durante el periodo económico 2009, publicado en el Alcance N° 55 a La Gaceta N° 248 de 23 de diciembre del 2008)
 AJDIP/338-2007.—Puntarenas, a los siete días del mes de setiembre del 2007
 Considerando:
 I.—Que la Contraloría General de la República, ha ordenado al INCOPESCA, establecer las tablas de tarifas por concepto de licencias de pesca.
@@ -221,8 +222,11 @@ Autorización Transporte productos pesqueros
 (vehículos 2.01-5 toneladas) autorización ¢30,300
 Autorización Transporte productos pesqueros
 (vehículos más 5 toneladas) autorización ¢47,600
-Permiso Exportación e Importación de Productos Pesqueros
+(*) Permiso Exportación e Importación de Productos Pesqueros
 (por cada exportación o importación) autorización ¢30,300
+(*) Autorización para Exportación de Productos Pesqueros (por trámite), ¢10.000,00.
+(*) Autorización para Importación de Productos Pesqueros (por trámite), ¢15.000,00.
+NOTA: (*) Así adicionado mediante acuerdo AJDIP-242 del 13 de junio del 2008; asimismo se deja sin efecto la tarifa establecida en este acuerdo por concepto de “Autorización para Exportación e Importación de Productos Pesqueras” (por trámite))
 Boleta o Guía para el transporte de productos
 pesqueros (por mes) boleta ¢3,250
 Trasbordo de productos pesqueros a barcos nodrizas autorización ¢113,400
