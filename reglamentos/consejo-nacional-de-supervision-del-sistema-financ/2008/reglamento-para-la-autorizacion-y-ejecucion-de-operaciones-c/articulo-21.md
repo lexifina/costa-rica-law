@@ -1,0 +1,1 @@
+Artículo 21.—Recurso. La revocación de la autorización tendrá el recurso de reposición o reconsideración ante la Junta Directiva del BCCR, en el plazo de tres días hábiles, contado a partir de comunicada la suspensión.
