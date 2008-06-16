@@ -1,0 +1,3 @@
+Artículo 14.—Observaciones técnicas. Los interesados que, como parte del uso de la Guía Ambiental, consideren a que a la misma, deben hacerse correcciones, ajustes o ampliaciones, podrán recomendar, por medio escrito la realización de las mismas, aportando el fundamento técnico que las respalda.
+La comunicación se realizará por medio de un correo electrónico firmado digitalmente o en su defecto por un fax, según las direcciones indicadas en la misma Guía Ambiental.
+Las observaciones se deberán presentar en cualquier momento durante el uso de la correspondiente Guía Ambiental. Dichas observaciones serán enviadas a la dirección electrónica o número de fax indicados en la Guía Ambiental correspondiente.

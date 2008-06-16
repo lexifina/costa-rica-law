@@ -1,0 +1,1 @@
+Artículo 4º—Elaboración de propuestas. El MINAE por sus propios medios, o en su defecto, el sector productivo correspondiente, podrán solicitar a un profesional o equipo profesional con conocimientos y experiencia en el tema de la guía que se pretende emitir, la elaboración de una Guía Ambiental sectorial o subsectorial específica.

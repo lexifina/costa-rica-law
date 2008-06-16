@@ -1,0 +1,1 @@
+Artículo 9º—Rechazo de la guía. En caso de determinar ambas comisiones que la propuesta de Guía adolece de factores técnicos o legales, otorgará al grupo técnico proponente un plazo de 10 días hábiles a partir de la notificación, para subsanar los vacíos comunicados.

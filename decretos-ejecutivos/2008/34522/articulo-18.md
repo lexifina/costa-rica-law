@@ -1,0 +1,4 @@
+Artículo 18.—Guías ambientales subsectoriales. Las guías ambientales subsectoriales son aquellas guías elaboradas para subsectores productivos dentro de un sector de desarrollo dado.
+Cuando esté disponible una Guía Sectorial, estas guías se deberán elaborar tomando como base dicha guía y complementándole los temas específicos que corresponda, según el subsector productivo en cuestión.
+En el caso de que no exista o esté disponible una Guía Ambiental sectorial, se podrá elaborar la guía ambiental subsectorial, siempre y cuando se cumpla el espectro temático mínimo y el procedimiento de elaboración descrito en el Anexo 1 de este Reglamento.
+En ausencia de guías subsectoriales o de actividades específicas, deberá aplicar la guía ambiental sectorial que cubre ya sea la construcción o en su defecto, la operación de las actividades, obras o proyectos que se circunscriben a dicho sector productivo.

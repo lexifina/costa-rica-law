@@ -1,0 +1,1 @@
+Artículo 7º—Presentación de las propuestas de Guía Ambiental. Cuando el sector productivo interesado tome la iniciativa de elaborar una propuesta de Guía Ambiental, deberá presentarla al MINAE, a efecto de que éste continúe con el procedimiento establecido en el presente reglamento.

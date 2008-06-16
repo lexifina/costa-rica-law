@@ -1,0 +1,1 @@
+Artículo 16.—Revisión periódica de las guías ambientales. El MINAE, realizará una revisión de las Guías Ambientales oficializadas, según las observaciones técnicas que se hayan presentado a las mismas o cada dos años. El mecanismo de revisión seguirá el mismo procedimiento de revisión y oficialización señalado en el presente reglamento.
