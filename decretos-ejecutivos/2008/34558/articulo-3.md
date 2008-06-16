@@ -1,0 +1,1 @@
+Artículo 3º—Las modificaciones a los Lineamientos Técnicos y Metodológicos estarán a cargo de los Ministerios de Planificación Nacional y Política Económica y de Hacienda. Se publicarán en los sitios electrónicos de ambos Ministerios y se comunicarán vía circular a los Ministros Rectores Sectoriales y a los jerarcas institucionales.
