@@ -14,3 +14,4 @@ Reglamento Sobre La Rendición de Cauciones a Favor del Ministerio de Trabajo y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-29 | la propia norma |
+| 2 | 2008-06-16 | Decreto Ejecutivo 34668 (2008-06-16) |
