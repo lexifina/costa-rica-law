@@ -14,3 +14,4 @@ Reglamento de Reconocimiento de Tarifa Básica por el Uso de Teléfonos Celulare
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-15 | la propia norma |
+| 2 | 2008-06-16 | Decreto Ejecutivo 34584 (2008-06-16) |
