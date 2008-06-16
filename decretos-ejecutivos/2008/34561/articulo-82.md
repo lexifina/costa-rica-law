@@ -1,0 +1,1 @@
+Artículo 82.—El médico deberá informar con claridad y convenir previamente con el paciente sus honorarios, el de sus asistentes, el costo probable de los procedimientos propuestos, y atender cualquier solicitud al respecto de parte del paciente. Se exceptúan emergencias imprevistas.

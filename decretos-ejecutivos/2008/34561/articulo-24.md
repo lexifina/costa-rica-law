@@ -1,0 +1,2 @@
+Artículo 24.—El médico que desempeña un cargo en la administración pública, o en cualquier institución debe respetar la ética profesional y cumplir con lo establecido en este Código, la Ley General de Salud, la Ley Orgánica del Colegio de Médicos y sus Reglamentos, así como otras disposiciones legales y reglamentarias propias de la competencia de la institución en que prestan sus servicios.
+Sus obligaciones con el Estado y con la institución no lo eximen de sus deberes éticos con sus colegas, pacientes y el Colegio de Médicos y Cirujanos.

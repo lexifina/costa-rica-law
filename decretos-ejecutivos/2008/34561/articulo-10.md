@@ -1,0 +1,1 @@
+Artículo 10.—El médico, en el ejercicio de la profesión, está obligado a cumplir lo estipulado en los principios éticos del Juramento Hipocrático, la Declaración de Ginebra, la Declaración de Helsinki, la Declaración de la Asociación Médica Mundial, la Declaración de los Derechos Humanos y cualquier otra que en materia de salud, el país suscriba.

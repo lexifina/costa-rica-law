@@ -1,0 +1,1 @@
+Artículo 69.—El médico debe rehusar efectuar Juntas Médicas con personas no autorizadas para ejercer la profesión médica, exceptuando el caso de estudiantes de medicina o por requerimiento justificado.

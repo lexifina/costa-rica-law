@@ -1,0 +1,1 @@
+Transitorio I.—Todas las denuncias interpuestas ante la Fiscalía del Colegio de Médicos, así como todos los procesos pendientes ante el Tribunal de Moral Médica, que hayan sido iniciados antes de la entrada en vigencia del presente Código, serán resueltos con base en el Código de Moral Médica anterior.
