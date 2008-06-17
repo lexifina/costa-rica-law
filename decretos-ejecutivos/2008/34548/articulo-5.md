@@ -1,0 +1,1 @@
+Artículo 5º—Cada entidad participante en la Comisión Nacional del Programa Bandera Azul Ecológica, apoyará con recursos económicos y humanos al PBAE, con el fin de atender las actividades de la Estrategia Nacional del Cambio Climático y la iniciativa Paz con la Naturaleza, con el objetivo de inducir al cambio de comportamiento ambiental en la población del país.

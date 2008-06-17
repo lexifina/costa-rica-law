@@ -1,0 +1,1 @@
+Artículo 2º—Para participar en la categoría de “Acciones para enfrentar el Cambio Climático”, cada entidad participante deberá crear un comité local pro-bandera azul ecológica, el cual preparará un programa de trabajo anual, en concordancia con los parámetros de evaluación definidos en el siguiente artículo.

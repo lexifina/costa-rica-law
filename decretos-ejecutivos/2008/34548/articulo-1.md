@@ -1,0 +1,16 @@
+Nº 34548
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, 1º, 2º, 6º, y 50 la Ley Orgánica del Ambiente Nº 7554, publicada en La Gaceta Nº 215 del 13 de noviembre de 1995, y 1º y 10 de la Ley de Biodiversidad, Nº 7788, publicada en La Gaceta Nº 101 del 27 de mayo de 1998.
+Considerando:
+I.—Que el Estado debe velar por proteger y conservar los recursos naturales, garantizando una gestión ambiental y una política de desarrollo sostenible de los elementos esenciales que posibilitan la vida. II.—Que la Constitución Política de Costa Rica establece en su artículo 50, el deber del Estado para procurar un ambiente sano y ecológicamente equilibrado, siendo su obligación garantizar, difundir y preservar ese derecho.
+III.—Que mediante el Decreto Ejecutivo Nº 33487-MP, publicado en el Diario Oficial La Gaceta del 29 de diciembre del 2006, Costa Rica asumió el reto de Paz con la Naturaleza, cuyo objetivo es fortalecer sus acciones y políticas públicas y asumir un mayor compromiso en la consecución de la sostenibilidad ambiental, para el mantenimiento y la recuperación de los ecosistemas que permiten la vida en la Tierra.
+IV.—Que en el marco de la iniciativa de Paz con la Naturaleza, el Ministro del Ambiente y Energía, está impulsando la estrategia nacional de Cambio Climático, la cual tiene como objetivo general “maximizar la competitividad y minimizar el riesgo causado por los efectos del Cambio Climático en los diferentes sectores del país”.
+V.—Que el cambio climático producto de la acumulación de gases de efecto invernadero en la atmósfera, es una de las principales amenazas para el ser humano y los ecosistemas, debido a sus impactos adversos y a que sus manifestaciones son a nivel regional, local y hasta personal.
+VI.—Que el Programa Bandera Azul Ecológica (PBAE) ha demostrado ser un excelente instrumento para organizar comités locales a nivel nacional, en sus diferentes categorías, tales como: Organizaciones Comunales de Playas, Comunidades, Centros Educativos, Espacios Naturales Protegidos y ahora Micro Cuencas Hidrográficas.
+VII.—Que el PBAE cuenta con las categorías antes citadas, fomentando la concientización de la población para proteger los recursos naturales, en especial los recursos hídricos del país.
+VIII.—Que la Comisión Nacional del Programa Bandera Azul Ecológica, realizó el 24 de noviembre del 2006, el segundo Plan Estratégico para el período 2007-2011, en el cual se modificó el objetivo general y se establecieron nuevas metas, ampliando la posibilidad de crear nuevas categorías en el Programa Bandera Azul Ecológica, con el objetivo de impulsar la protección ambiental, la salud pública y la calidad de vida del costarricense. Por tanto,
+DECRETAN:
+Crear la Categoría Número 6 del Programa Bandera Azul Ecológica, Denominada
+“Acciones para Enfrentar el Cambio Climático”
+Artículo 1º—Crear la categoría número 6 del Programa Bandera Azul Ecológica denominada “Acciones para enfrentar el Cambio Climático”, con el objetivo de incentivar la organización en los sectores industriales, de salud y en las entidades públicas y privadas, para “maximizar la competitividad y minimizar el riesgo provocado por los efectos del cambio climático en los diferentes sectores del país.
