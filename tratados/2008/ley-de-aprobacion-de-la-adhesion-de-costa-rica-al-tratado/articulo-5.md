@@ -1,0 +1,10 @@
+Artículo 5
+Fecha de presentación
+1) [Requisitos permitidos]
+a) Con sujeción a lo dispuesto en el apartado b) y en el párrafo 2), una Parte Contratante asignará como fecha de presentación de la solicitud la fecha en que la Oficina haya recibido las siguientes indicaciones y elementos en el idioma previsto en el Artículo 3.3): i) una indicación expresa o implícita de que se pretende registrar una marca; ii) indicaciones que permitan establecer la identidad del solicitante; iii) indicaciones suficientes para entrar en contacto por correo con el solicitante o con su representante, si lo hubiere; iv) una reproducción suficientemente clara de la marca cuyo registro se solicita; v) la lista de los productos y/o servicios para los que se solicita el registro; vi) cuando sea aplicable el Artículo 3.1) a) xvii) o b), la declaración a que se hace referencia en el Artículo 3.1) a) xvii) o la declaración y las pruebas a que se hace referencia en el Artículo 3.1) b), respectivamente, tal como lo estipule la legislación de la Parte Contratante, debiendo estas declaraciones, si la mencionada legislación así lo estipula, estar firmadas por el propio solicitante incluso si tiene representante.
+b) Cualquier Parte Contratante podrá asignar como fecha de presentación de la solicitud la fecha en la que la Oficina reciba sólo algunas, en lugar de todas, las indicaciones y elementos mencionados en el apartado a), o los reciba en un idioma distinto del exigido en virtud del Artículo 3.3).
+2) [Requisito adicional permitido]
+a) Una Parte Contratante podrá prever que no se asignará ninguna fecha de presentación mientras no se hayan pagado las tasas exigidas.
+b) Una Parte Contratante sólo podrá exigir el cumplimiento del requisito mencionado en el apartado a) si exigía su cumplimiento en el momento de adherirse al presente Tratado.
+3) [Correcciones y plazos] Las modalidades y plazos para las correcciones previstas en los párrafos 1) y 2) se prescribirán en el Reglamento.
+4) [Prohibición de otros requisitos] Ninguna Parte Contratante podrá pedir que se cumplan requisitos distintos de los mencionados en los párrafos 1) y 2) respecto de la fecha de presentación.
