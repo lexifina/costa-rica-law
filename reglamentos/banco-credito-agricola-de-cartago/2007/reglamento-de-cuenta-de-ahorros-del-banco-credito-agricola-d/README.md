@@ -14,3 +14,4 @@ Reglamento de Cuenta de Ahorros del Banco Crédito Agrícola de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-01 | la propia norma |
+| 2 | 2008-06-17 | Reglamento 8145 (2008-06-17) |
