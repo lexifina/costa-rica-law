@@ -14,3 +14,4 @@ Plan de Ahorro Energético, dirigida a los Jerarcas de Ministerios, Institucione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-12 | la propia norma |
+| 2 | 2008-06-18 | Decreto Ejecutivo 34577 (2008-06-18) |
