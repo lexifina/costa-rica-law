@@ -1,0 +1,2 @@
+Artículo 32.—Otras regulaciones. El Concejo Municipal deberá establecer las disposiciones y regulaciones de tipo administrativo que le sean aplicables al Auditor Interno, las cuales serán similares a los puestos de igual jerarquía.
+Las regulaciones de tipo administrativo no deberán afectar negativamente la actividad de Auditoría Interna, la independencia funcional y de criterio de la Auditoría y en caso de duda, la Contraloría General de la República, dispondrá lo correspondiente.

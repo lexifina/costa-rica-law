@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del Auditor y Subauditor Internos
+Artículo 9º—Nombramiento del Auditor y Subauditor Internos. El nombramiento del Auditor y Subauditor Internos lo hará el Concejo Municipal por tiempo indefinido, se hará mediante concurso público, de conformidad con lo establecido en el artículo 31 de la Ley Nº 8292 y deberá satisfacer los requisitos establecidos en los “Lineamientos sobre los requisitos de los cargos de Auditor y Subauditor Internos, y las gestiones de nombramiento en dichos cargos”, (emitidos por la Contraloría General de la República, L-1-2006-CO-DAGJ, publicados en el Diario Oficial La Gaceta Nº 236 del 8 de diciembre del 2006).
+El Auditor deberá ser contador público autorizado y deberá conocer las disposiciones legales que rigen el Régimen municipal y la Administración Pública, y cumplir con los demás requisitos que establece el Manual Descriptivo de Puestos de la Municipalidad Talamanca.

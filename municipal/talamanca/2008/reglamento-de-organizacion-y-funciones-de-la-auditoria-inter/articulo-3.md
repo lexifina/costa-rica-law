@@ -1,0 +1,1 @@
+Artículo 3º—Visión, misión y políticas de la Auditoría Interna. El Auditor Interno deberá establecer y actualizar la visión, misión y las políticas que regirán el accionar de la Auditoría Interna, a fin de coadyuvar en el logro de los objetivos institucionales.

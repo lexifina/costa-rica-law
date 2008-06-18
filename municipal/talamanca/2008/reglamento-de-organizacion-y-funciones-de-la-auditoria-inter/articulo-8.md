@@ -1,0 +1,1 @@
+Artículo 8º—Jornada laboral del Auditor y Subauditor Internos. La jornada laboral del Auditor Interno de la Municipalidad será de tiempo completo. El Auditor y Subauditor Internos estarán excluidos del registro de asistencia.
