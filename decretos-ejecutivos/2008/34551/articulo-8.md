@@ -1,0 +1,1 @@
+Artículo 8º—Para realizar las tareas de dragado del Estero y Ayudas a la Navegación en el Canal, la Municipalidad deberá contar con la autorización previa de la División Marítima Portuaria del MOPT, la que, a su vez, queda facultada por este acto para prestar la asistencia técnica que necesite la Municipalidad de Puntarenas para el cumplimiento de estos objetivos.
