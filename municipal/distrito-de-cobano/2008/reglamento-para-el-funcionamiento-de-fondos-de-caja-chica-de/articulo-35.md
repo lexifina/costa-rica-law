@@ -1,0 +1,1 @@
+Artículo 35.-Ningún funcionario de la Municipalidad, con la excepción de los que tengan en custodia la reserva de caja chica, podrá mantener en su poder fondos de caja chica por mas del día siguiente a la solicitud del dinero.
