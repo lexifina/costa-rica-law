@@ -1,0 +1,1 @@
+Artículo 15.—Mociones. Los integrantes de la comisión, podrán presentar al Coordinador(a) sus mociones y proposiciones por escrito y debidamente firmadas. Por el orden de presentación serán conocidas y analizadas por la comisión, hasta que sean votadas. El Coordinador tendrá la facultad para calificar el trámite urgente de dichas mociones a fin de darles prioridad.

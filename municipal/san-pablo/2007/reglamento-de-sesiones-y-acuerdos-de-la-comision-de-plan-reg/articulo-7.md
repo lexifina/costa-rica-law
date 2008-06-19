@@ -1,0 +1,1 @@
+Artículo 7º—La sesión terminará solo cuando se haya agotado la agenda, siempre que no sobrepase el tiempo estipulado. Se podrá terminar la sesión sin analizar todos los puntos mediante acuerdo tomado por mayoría simple de sus integrantes, quedando pendientes para la próxima sesión.
