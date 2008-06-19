@@ -1,0 +1,92 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+La Dirección de Cobros de la Gerencia Financiera de la Caja Costarricense de Seguro Social, comunica que el “Instructivo para la aplicación del Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social” se encuentra disponible en la página Web de la CCSS. Se puede descargar ingresando a http://www.ccss.sa.cr. menú ORGANIZACIÓN, submenú NORMATIVA. Una vez allí, acceder a INSTRUCTIVOS, o bien, ingresando mediante el siguiente vínculo directo:
+http://www.ccss.sa.cr/html/organizacion/normativa/instructivos.html
+Dicho instructivo se encuentra aprobado por la Gerencia Financiera y de conformidad con el artículo 19 del mismo, rige a partir de la publicación del presente aviso. El mismo deroga el “Instructivo que regula el trámite de las solicitudes de arreglos y convenios de pago a patronos morosos”, publicado en el Alcance Nº 79 a La Gaceta Nº 209 del 30 de octubre del año 2002.
+San José, 10 de junio del 2008.
+(NOTA DE SINALEVI: Tal como se indica anteriormente , el Instructivo para la aplicación del Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social, se extrajo de la página Web de la Caja Costarricense de Seguro Social, mismo que se transcribe)
+Instructivo para la aplicación del Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social (Acuerdo Junta Directiva, Artículo 20 de la sesión Nº 8119, del 21 de diciembre de 2006)
+Abril 2008
+ÍNDICE
+Capítulo I___________________________________________________________________________________ 1
+Aspectos generales_________________________________________________________________________ 1
+Artículo 1 ________________________________________________________________________________ 1
+Del objeto _______________________________________________________________________________ 1
+Artículo 2 ________________________________________________________________________________ 1
+Del concepto ___________________________________________________________________________ 1
+Artículo 3 ________________________________________________________________________________ 3
+De las funciones _________________________________________________________________________ 3
+Artículo 4 ________________________________________________________________________________ 5
+De los conceptos adeudados que se incluyen en las adecuaciones de pago ______________ 5
+Capítulo II __________________________________________________________________________________ 6
+De los requisitos_____________________________________________________________________________ 6
+Artículo 5 ________________________________________________________________________________ 6
+De las solicitudes_________________________________________________________________________ 6
+Artículo 6 ________________________________________________________________________________ 6
+De los requisitos generales________________________________________________________________ 6
+Artículo 7 ________________________________________________________________________________ 7
+De los requisitos específicos ______________________________________________________________ 7
+7.1. Arreglos de pago con garantía ____________________________________________________ 7
+7.1.1. Garantía fiduciaria ____________________________________________________________ 7
+7.1.2. Garantía Hipotecaria__________________________________________________________ 7
+7.1.3. Garantía cédulas hipotecarias _________________________________________________ 8
+7.1.4. Garantía de cumplimiento y aval bancario_____________________________________ 8
+7.1.5. Garantía título valor ___________________________________________________________ 9
+7.2. Cesión de facturas ________________________________________________________________ 9
+7.3. Daciones en pago ________________________________________________________________ 9
+7.4. Convenios de pago _______________________________________________________________ 9
+7.5. Readecuaciones __________________________________________________________________ 9
+Capítulo III_________________________________________________________________________________ 10
+Del procedimiento para la formalización ___________________________________________________ 10
+Artículo 8 _______________________________________________________________________________ 10
+Del trámite de formalización ____________________________________________________________ 10
+8.1. Arreglos de pago con garantía ___________________________________________________ 10
+8.1.1. Garantía fiduciaria ___________________________________________________________ 10
+8.1.2. Garantía hipotecaria _________________________________________________________ 11
+8.1.3. Garantía Cédulas Hipotecarias _______________________________________________ 12
+8.1.4. Garantía de Cumplimiento; Aval Bancario ____________________________________ 13
+8.1.5. Garantía con títulos valores ___________________________________________________ 14
+8.2. Combinación de garantías _______________________________________________________ 15
+8.3. Cesión de facturas _______________________________________________________________ 15
+8.4. Dación en pago__________________________________________________________________ 16
+8.5. Convenios administrativos ________________________________________________________ 18
+8.5.1 Condiciones generales________________________________________________________ 18
+8.5.2 Procedimiento trabajadores independientes y patronos del sector privado______ 19
+8.5.3 Procedimiento para entes públicos ___________________________________________ 19
+8.6 Readecuaciones de pago________________________________________________________ 20
+8.7 Financiamiento de las cuotas obreras______________________________________________ 20
+8.8. Plazos____________________________________________________________________________ 22
+8.9. Tasas de interés __________________________________________________________________ 22
+8.10. Niveles de aprobación __________________________________________________________ 22
+8.11. De los tipos de cuotas ___________________________________________________________ 23
+Capítulo IV ________________________________________________________________________________ 24
+Otras disposiciones ________________________________________________________________________ 24
+Artículo 9 _______________________________________________________________________________ 24
+De las garantías que no cubren el total de la deuda _____________________________________ 24
+Artículo 10 ______________________________________________________________________________ 25
+Otras garantías no establecidas _________________________________________________________ 25
+Artículo 11 ______________________________________________________________________________ 25
+Sustitución de garantías _________________________________________________________________ 25
+Artículo 12 ______________________________________________________________________________ 26
+De la liberación parcial de garantías ____________________________________________________ 26
+Artículo 13 ______________________________________________________________________________ 27
+De la cancelación de garantías hipotecarias ____________________________________________ 27
+Artículo 14 ______________________________________________________________________________ 27
+De la devolución de los títulos valores. ___________________________________________________ 27
+Artículo 15 ______________________________________________________________________________ 27
+De la actividades declaradas de emergencia ___________________________________________ 27
+Artículo 16 ______________________________________________________________________________ 27
+De la conformación del expediente de la adecuación de pago__________________________ 27
+Artículo 17 ______________________________________________________________________________ 28
+Del registro, control y liquidación ________________________________________________________ 28
+Artículo 18 ______________________________________________________________________________ 28
+Del derecho a solicitar información ______________________________________________________ 28
+Artículo 19 ______________________________________________________________________________ 29
+De la vigencia de este Instructivo________________________________________________________ 29
+Transitorio ______________________________________________________________________________ 29
+ANEXOS ___________________________________________________________________________________ 30
+Instructivo para la aplicación del Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social (Acuerdo Junta Directiva, Artículo 20 de la sesión Nº 8119 del 21 de diciembre de 2006)
+Capítulo I
+Aspectos generales
+Artículo 1
+Del objeto
+El presente Instructivo regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social por parte de patronos y trabajadores independientes en estado de morosidad con la Caja; lo anterior con fundamento en la Ley Constitutiva de la Caja Costarricense de Seguro Social y el Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la Seguridad Social, aprobado por la Junta Directiva en el artículo 20 de la sesión Nº 8119, del 21 de diciembre de 2006.
