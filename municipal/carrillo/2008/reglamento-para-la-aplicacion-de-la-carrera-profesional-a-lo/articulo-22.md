@@ -1,0 +1,1 @@
+Artículo 22.—El Departamento de Recursos Humanos estudiará la solicitud y si la aprobare, determinará el puntaje obtenido, comunicando al petente el resultado de su gestión, y proceder al cálculo del monto a pagar.

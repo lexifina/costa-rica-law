@@ -1,0 +1,4 @@
+De los cursos de capacitación recibidos:
+Artículo 10.—Las modalidades de aprovechamiento y participación de los cursos de capacitación (recibidos por los funcionarios de nivel profesional) se definen para los efectos del presente reglamento, de la siguiente manera:
+a) Aprovechamiento: Son aquellos cursos de entrenamiento y capacitación, impartidas a los funcionarios de nivel profesional, igual o mayores a veinticinco horas, en los cuales el participante debe rendir pruebas evaluables sobre la materia desarrollada en la actividad y cuando éstas sean fundamentales para determinar, mediante nota final en las cuales se debe obtener un mínimo.
+b) Participación: Son aquellas actividades de entrenamiento y capacitación, impartidas a los funcionarios de nivel profesional, iguales o mayores a las seis horas naturales de instrucción efectiva, en las cuales se debe cumplir con una asistencia no inferior al noventa y cinco por ciento del total de aquellas.

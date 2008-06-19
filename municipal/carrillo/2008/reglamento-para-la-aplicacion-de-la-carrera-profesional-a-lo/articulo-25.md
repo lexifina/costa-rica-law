@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la remuneración
+Artículo 25.—El monto del incentivo derivado de la aplicación de los factores previstos para la Carrera Profesional, se establecerá mediante el valor de cada punto, de acuerdo con el procedimiento indicado en el artículo 8º y afines. El valor del punto es de ¢2.500,00, el cual se modificará el 1º de enero de cada año de acuerdo al Índice de Precios al Consumidor (IPC), emitido por el Banco Central de Costa Rica. El área Financiero Contable en coordinación con Recursos Humanos, tomará las previsiones presupuestarias respectivas y las incluirán en el Presupuesto Ordinario de cada año.
