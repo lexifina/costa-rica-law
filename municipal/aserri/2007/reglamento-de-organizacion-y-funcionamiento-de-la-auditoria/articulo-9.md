@@ -1,0 +1,2 @@
+Artículo 9º—Estructura organizativa. La auditoría interna de la Municipalidad de Aserrí, se encuentra conformada únicamente por el Auditor Interno, razón por la cual, su estructura organizativa estaría en función de una auditoría unipersonal, incluyendo todos los aspectos administrativos y los procesos de auditoría en la figura del Auditor Interno.
+Por otra parte, el Auditor Interno será responsable de garantizar una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.
