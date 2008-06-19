@@ -1,0 +1,1 @@
+Artículo 25.—Manual de Organización, órganos y entes sujetos al ámbito de Acción. Es obligación del Auditor Interno definir y mantener actualizado en el Manual de Auditoría, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna.

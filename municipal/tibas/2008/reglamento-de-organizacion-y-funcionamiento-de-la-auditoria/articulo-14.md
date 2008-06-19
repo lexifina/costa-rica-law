@@ -1,0 +1,1 @@
+Artículo 14—Estructura organizativa La Auditoría Interna, se encuentra conformada por el Auditor Interno y dos Asistentes de Auditoría. Por otra parte, el Auditor Interno será responsable de garantizar una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.
