@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Jurisdicción Contencioso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-10 | la propia norma |
+| 2 | 2008-06-19 | Circular 106 (2008-06-19) |
