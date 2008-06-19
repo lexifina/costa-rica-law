@@ -1,1 +1,0 @@
-Artículo 4º—Las autoridades del tránsito deberán tomar especial nota del cumplimiento de lo que por este acto se establece, aplicando las disposiciones previstas en la Ley de Tránsito ante quienes infrinjan las disposiciones que por este acto se establecen.
