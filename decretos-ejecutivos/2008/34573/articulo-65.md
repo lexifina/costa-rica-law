@@ -1,0 +1,1 @@
+Artículo 65.—Derogatoria. Derógase el Decreto Ejecutivo Nº 33340-H, publicado en el diario oficial La Gaceta Nº 176 del 13 de setiembre del 2006 Reglamento de Organización y Funcionamiento de la Dirección General de Auditoría Interna del Ministerio de Hacienda.

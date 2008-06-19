@@ -1,0 +1,6 @@
+Artículo 27.—Impedimentos del personal de la Auditoría Interna. Con el propósito de no perjudicar su objetividad individual y ética profesional, el personal de la Auditoría Interna debe:
+a) Rechazar regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, so pena del deber de denunciar tales hechos ante las instancias competentes.
+b) No utilizar su cargo oficial con propósitos de carácter privado.
+c) Evitar relaciones de índole personal, sentimental, de negocios, o de cualquier otra naturaleza con personal del Ministerio de Hacienda y otras personas, que puedan influir, comprometer, o amenazar la capacidad para actuar, o que puedan afectar su independencia, o la imagen de la Auditoría Interna.
+d) Abstenerse de auditar operaciones de las cuales hayan sido previamente responsables de su ejecución como funcionarios de la administración activa, proveedores, o prevalezcan relaciones familiares entre éstos y el personal de la Auditoría Interna, hasta el tercer grado de consanguinidad. Este impedimento se hace extensivo tratándose de las citadas operaciones, en relación con la prestación de los servicios de asesoría y advertencia.
+e) Omitir la participación en la prestación de servicios para una actividad en la que se tuvo responsabilidades o relaciones que puedan resultar incompatibles.

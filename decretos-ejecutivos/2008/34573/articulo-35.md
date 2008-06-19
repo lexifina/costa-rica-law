@@ -1,0 +1,6 @@
+SECCIÓN VI
+De la Asignación y Administración de Recursos
+Artículo 35.—Asignación de recursos. De conformidad con lo establecido por el artículo 27 de la Ley General de Control Interno, el Ministro de Hacienda asignará dentro de las disponibilidades presupuestarias, los recursos humanos, materiales, tecnológicos, de capacitación, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión. Para efectos presupuestarios, se dará a la Auditoría Interna una categoría programática.
+En la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del Auditor Interno y las instrucciones que emita al respecto la Contraloría General de la República.
+De presentarse serias limitaciones, que afecten el cumplimiento de la labor asignada a la Auditoría Interna, el Auditor Interno debe comunicar y fundamentar esta situación ante el Ministro, para su oportuna atención.
+Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la Auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, debe informar al Ministro del riesgo que está asumiendo y de la eventual imputación de responsabilidad que esta situación puede generarle.

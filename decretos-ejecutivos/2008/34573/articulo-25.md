@@ -1,0 +1,1 @@
+Artículo 25.—Pericia y debido cuidado profesional del personal. Los funcionarios de la Auditoría Interna deben cumplir su trabajo con el debido cuidado y la pericia que se espera de un auditor razonablemente prudente y competente.

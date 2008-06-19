@@ -1,0 +1,1 @@
+Artículo 33.—Relaciones con la asesoría legal. Corresponde a la Asesoría Jurídica del Ministerio de Hacienda brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera el Auditor Interno para atender sus necesidades de orden jurídico en el ejercicio de sus competencias.
