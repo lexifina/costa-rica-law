@@ -1,0 +1,1 @@
+Artículo 15.—Los atletas becados 0, deberán sujetarse a las condiciones establecidas por la Comisión de becas en cuanto a requisitos, tiempo de disfrute de la beca, tipo de beca, obligaciones y otros.

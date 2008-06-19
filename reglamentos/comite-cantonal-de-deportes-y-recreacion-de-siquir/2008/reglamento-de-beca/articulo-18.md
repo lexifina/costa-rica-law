@@ -1,0 +1,1 @@
+Artículo 18.—Como complemento de su formación personal, el becario con beca 0, 1, 2, 3 que no sea estudiante regular de algún centro educativo deberán realizar horas comunales den beneficio del deporte y el cantón de Siquirres.

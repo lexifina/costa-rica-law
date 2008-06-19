@@ -1,0 +1,1 @@
+Artículo 11.—Una vez dictaminada la solicitud y otorgada la beca, deberá presentar a la Junta Directiva del CCDR de Siquirres para su ratificación y aprobación final, posteriormente se expedirá una Carta Compromiso que el alumno beneficiario deberá firmar, en la que se indican las condiciones que debe cumplir.

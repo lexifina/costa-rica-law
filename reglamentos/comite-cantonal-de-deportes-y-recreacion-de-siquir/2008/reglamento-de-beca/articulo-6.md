@@ -1,0 +1,2 @@
+Artículo 6º—La determinación del tipo de beca a otorgar, su clasificación y monto, estará en función del resultado del estudio deportivo y del estudio socio-económico realizado por la Comisión de Becas del CCDRS. Su resolución corresponde a la Comisión de Becas.
+La valoración de las aptitudes y habilidades deportivas, esto último al tratarse de Becas Deportista, debe ser realizada y certificada por el respectivo promotor a cargo y revisada o comprobada por un miembro o delegado del CCDRS.
