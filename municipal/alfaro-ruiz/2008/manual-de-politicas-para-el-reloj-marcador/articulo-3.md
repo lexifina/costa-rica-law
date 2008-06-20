@@ -1,0 +1,1 @@
+Artículo 3º—Solo podrán dejar de marcar aquellos trabajadores que estén autorizados por el Alcalde Municipal para no hacerlo y que por la naturaleza de sus funciones, les corresponde ejercer su trabajo en lugares fuera de la oficina o permanecer en gira.
