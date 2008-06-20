@@ -1,0 +1,3 @@
+Artículo 77.—
+a) Una vez presentada la denuncia, el Departamento de Régimen Disciplinario, bajo procedimiento establecido administrativamente y aprobado por la Junta Directiva General, procederá a realizar una investigación previa en un plazo no mayor de seis meses calendario contados desde la recepción de la denuncia o desde el momento en que el Departamento de Régimen Disciplinario inicie de oficio la investigación, con el objeto de determinar si existe la probabilidad de que el miembro o la empresa inscrita en el Colegio Federado haya o no cometido la falta o faltas denunciadas.
+b) No se dará trámite a las quejas o denuncias que resulten evidentemente maliciosas e infundadas, previa consulta con la Dirección Ejecutiva o la Subdirección de Ejercicio Profesional.
