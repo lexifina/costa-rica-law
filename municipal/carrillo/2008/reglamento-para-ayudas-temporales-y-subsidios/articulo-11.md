@@ -1,0 +1,1 @@
+Artículo 11.—Las ayudas que concederá la Municipalidad de Carrillo podrán ser gestionadas a través de caja chica, en materiales o víveres, según la recomendación que de acuerdo con lo establecido en el Artículo 5 anterior, realizará el Concejo de Distrito respectivo.

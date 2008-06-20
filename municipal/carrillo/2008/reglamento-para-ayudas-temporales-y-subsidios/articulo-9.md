@@ -1,0 +1,1 @@
+Artículo 9º—La Administración dispondrá un plazo de ocho días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio de la Oficina de la Condición de la Mujer, para la emisión de la recomendación final (con copia a los Concejos de Distrito).

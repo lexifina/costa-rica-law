@@ -1,0 +1,1 @@
+Artículo 19.—El monto del subsidio que la Municipalidad transferirá a cada uno de los Centros Educativos, Asociaciones o Comités solicitantes, será aprobado por el Concejo Municipal mediante el trámite presupuestario que corresponda.

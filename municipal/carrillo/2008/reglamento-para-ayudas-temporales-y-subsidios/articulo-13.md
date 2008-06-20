@@ -1,0 +1,1 @@
+Artículo 13.—Para otorgar esta clase de subsidios, la Municipalidad de Carrillo deberá incluir cada año en las partidas presupuestarias correspondientes, el suficiente contenido económico para hacer frente a las necesidades debidamente demostradas de las entidades y organizaciones descritas en el artículo siguiente.

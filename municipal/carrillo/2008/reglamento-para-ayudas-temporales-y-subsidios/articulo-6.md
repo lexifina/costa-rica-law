@@ -1,0 +1,1 @@
+Artículo 6º—Las ayudas que brinde la Municipalidad serán destinadas, exclusivamente para solventar las necesidades socioeconómicas, alimentarias, de vivienda, salud o de pobreza, que afronte la persona o familia perteneciente al cantón, según la situación de desgracia o infortunio a que se refiere el artículo 4 anterior.
