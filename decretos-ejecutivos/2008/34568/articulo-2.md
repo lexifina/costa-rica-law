@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión tendrá por función asesorar a las autoridades del Instituto Meteorológico Nacional en la programación de los eventos a ser llevados a cabo para la celebración del centenario y velar por la correcta aplicación y control de los fondos que para este respecto se dispongan.
