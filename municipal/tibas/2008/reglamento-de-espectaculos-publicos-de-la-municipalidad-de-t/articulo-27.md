@@ -1,0 +1,1 @@
+Artículo 27.—De los requisitos. Para la solicitud de autorización de actividades con karaoke, los interesados deberán cumplir con los requisitos establecidos por la Municipalidad de Tibás para la solicitud de Espectáculos Públicos.

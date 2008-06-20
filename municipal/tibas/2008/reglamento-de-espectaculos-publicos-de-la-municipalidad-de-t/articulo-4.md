@@ -1,0 +1,1 @@
+Artículo 4º—Base imponible. Constituye la base imponible para la determinación de este impuesto, el monto que resulte de la sumatoria del valor de cada uno de los tiquetes, boletas o entradas individuales del respectivo espectáculo público que se efectúe en el Cantón de Tibás.

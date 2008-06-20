@@ -1,0 +1,1 @@
+Artículo 15.—De la identificación de los inspectores. Los Inspectores contarán con una identificación extendida por la Municipalidad de Tibás, la cual certificará su condición de funcionario municipal. Esta identificación deberá ser presentada en el lugar en que se realizará el evento sujeto a inspección.

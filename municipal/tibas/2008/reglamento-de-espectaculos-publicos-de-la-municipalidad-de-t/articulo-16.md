@@ -1,0 +1,1 @@
+Artículo 16.—Del informe final de la inspección. El Departamento de Patentes, de conformidad con lo dispuesto en el artículo 11, revisarán los boletos y el informe de los contribuyentes y remitirá un informe a la Tesorería para su respectivo cobro. Una vez verificados los boletos, procederá mediante un acta y conjuntamente en el Teatro Nacional a la destrucción de los mismos.

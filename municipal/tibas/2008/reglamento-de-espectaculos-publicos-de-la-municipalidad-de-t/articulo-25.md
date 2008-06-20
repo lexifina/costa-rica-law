@@ -1,0 +1,1 @@
+Artículo 25.—Plazo para presentar solicitud. Las solicitudes de patentes de espectáculos públicos para la realización de karaoke u otros similares, deberán presentarse con 30 días hábiles de anticipación al evento, de acuerdo con lo establecido en los artículos 80 y 81 del Código Municipal.

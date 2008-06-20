@@ -1,0 +1,1 @@
+Artículo 24.—Autorización preliminar. Para presentar la solicitud de permiso a que se refiere el artículo anterior, se deberá obtener de previo la autorización preeliminar del Ministerio de Salud y cumplir con la normativa establecida en las Leyes y Reglamentos aplicables, referentes a los niveles autorizados y confinamiento de ruidos.
