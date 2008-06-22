@@ -14,3 +14,4 @@ Reglamento de la Policía Municipal de Aguirre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-20 | la propia norma |
+| 2 | 2008-06-22 | Reglamento municipal 211 (2008-07-22) |

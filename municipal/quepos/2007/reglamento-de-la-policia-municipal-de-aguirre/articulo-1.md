@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue derogado por acuerdo N° 2 de la sesión N° 211 del 22 de julio de 2008).
 MUNICIPALIDAD DE AGUIRRE
 El Concejo Municipal de Aguirre-Quepos en sesión ordinaria Nº 126 celebrada el 25 de setiembre del 2007, en artículo cuarto, informes, conoce y acuerda lo siguiente:
 REGLAMENTO DE LA POLICÍA MUNICIPAL DE AGUIRRE
