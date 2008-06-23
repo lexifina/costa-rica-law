@@ -1,0 +1,1 @@
+Artículo 85.—Programas de trabajo. Los funcionarios y las funcionarias de la Auditoría Interna deberán preparar programa que cumplan con los objetivos del trabajo. Estos programas deberán estar por escrito.

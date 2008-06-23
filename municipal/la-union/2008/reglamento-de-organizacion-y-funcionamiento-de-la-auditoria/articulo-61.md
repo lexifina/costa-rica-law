@@ -1,0 +1,3 @@
+Artículo 61.—Utilización de “realizado de acuerdo con las normas”. Las funcionarias y funcionarios de la Auditoría Interna, en el ejercicio de sus facultades, deberán informar que sus actividades fueron realizadas de acuerdo con el Manual de Normas Para La Auditoría Inte rna.
+Sólo podrán utilizar esta declaración si las evaluaciones del programa de mejoramiento de calidad demuestran que la actividad de la Auditoría cumple con esas Normas.
+Cuando el incumplimiento del Manual de Normas afecte el alcance general o el funcionamiento de la actividad de la Auditoría Interna, deberá declararse y justificarse formalmente, así como realizar las gestiones correspondientes.

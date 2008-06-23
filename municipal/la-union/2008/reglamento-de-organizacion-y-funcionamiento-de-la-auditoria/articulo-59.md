@@ -1,0 +1,1 @@
+Artículo 59.—Informe sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deberán constar en un informe y el Auditor o Auditora Interna deberá preparar un plan de mejora, si así lo requieren los resultados y comunicarlo al Concejo Municipal. El Auditor o Auditora Interna será responsable de dar un seguimiento adecuado al plan de mejora.

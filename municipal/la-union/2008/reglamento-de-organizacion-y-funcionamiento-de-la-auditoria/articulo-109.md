@@ -1,0 +1,1 @@
+Artículo 109.—Comunicación a partes fuera de la Municipalidad. Cuando se envíen resultados de un trabajo a partes ajenas a la organización, la comunicación deberá estar sustentada en las regulaciones atinentes.

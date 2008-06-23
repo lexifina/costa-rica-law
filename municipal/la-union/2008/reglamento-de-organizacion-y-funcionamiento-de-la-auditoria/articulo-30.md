@@ -1,0 +1,1 @@
+Artículo 30.—Dependencia del Auditor o Auditora Interna. El Auditor o Auditora Interna dependerá orgánicamente del Concejo Municipal considerando siempre su independencia funcional. Dicha relación de puestos deberá contemplarse en el manual institucional de cargos y clases.
