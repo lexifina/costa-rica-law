@@ -1,0 +1,2 @@
+Artículo 21
+Los candidatos preseleccionados por la Junta Directiva deberán realizar una prueba escrita y una prueba oral. La prueba escrita consiste en presentar un documento de máximo quince páginas sobre un tema técnico de interés del CATIE, definido previamente por la Junta Directiva. La prueba oral será a través de una presentación a la comunidad institucional y podrá abordar los planes del candidato para su período como nuevo Director General del CATIE.

@@ -1,0 +1,2 @@
+Artículo 13
+El Consejo Superior recibirá la propuesta indicada en el artículo anterior, para su análisis por parte de los miembros del Consejo, con el fin de proceder o no a su aprobación. En caso de que el Consejo Superior decida iniciar un proceso de reclutamiento, para la elección de un nuevo Director General del CA TIE, este se deberá llevar a cabo conforme las disposiciones establecidas al respecto en el presente reglamento.

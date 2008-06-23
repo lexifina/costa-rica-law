@@ -1,0 +1,3 @@
+Capítulo IV: Renuncia, remoción o incapacidad prolongada
+Artículo 25
+Cuando el cargo de Director General quedare vacante, en forma permanente antes de haberse completado su mandato, dicho cargo será ocupado, previa aprobación de la Junta Directiva, con carácter interino por el Subdirector General, hasta por un período máximo de un año. En caso de incapacidad prolongada o ausencia temporal, el Subdirector General sustituirá al Director General en sus funciones, hasta por un periodo máximo de un año. Si no hubiera un Subdirector General, la Junta Directiva puede escoger a un Director de Programa para nombrarlo como Director General interino hasta por un periodo máximo de un año.
