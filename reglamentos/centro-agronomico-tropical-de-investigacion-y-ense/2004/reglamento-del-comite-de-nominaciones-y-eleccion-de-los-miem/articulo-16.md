@@ -1,0 +1,2 @@
+ARTÍCULO 16
+Al proponer nuevos candidatos para la Junta, el Comité de Nominaciones deberá procurar un balance en la membresía para proporcionar a la Junta competencia académica, científica, técnica, administrativa y financiera que sirva de guía y de supervisión a la Institución, con sensibilidad del género. Asimismo procurará la incorporación de representantes de los sectores privado y productivo.

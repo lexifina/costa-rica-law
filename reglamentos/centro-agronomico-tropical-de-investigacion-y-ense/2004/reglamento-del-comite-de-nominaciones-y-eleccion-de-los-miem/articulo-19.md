@@ -1,0 +1,2 @@
+ARTÍCULO 19
+Los miembros de las categorías a) y b) arriba ejercerán su cargo en la Junta Directiva por todo el plazo que permanezcan en sus funciones de Ministro de Agricultura y Ganadería de Costa Rica y Director General del IICA. Los miembros de las categorías c) y d) no podrán ser representantes de un mismo país. Los miembros de las categorías c), d), e) y f) serán elegidos por un período de tres años y podrán ser reelegidos una vez.

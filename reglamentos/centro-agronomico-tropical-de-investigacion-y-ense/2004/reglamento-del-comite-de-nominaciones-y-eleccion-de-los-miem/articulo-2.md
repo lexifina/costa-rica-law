@@ -1,0 +1,2 @@
+ARTÍCULO 2
+Los miembros del Comité de Nominaciones, con el apoyo de la Junta Directiva, son los responsables del cumplimiento de este Reglamento y por esta razón, las disposiciones contenidas deben servir como la base para establecer normas, políticas, procedimientos generales y específicos que, de acuerdo con su trascendencia, se harán del conocimiento de la Junta Directiva, según se indica en este Reglamento.
