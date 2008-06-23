@@ -13,3 +13,4 @@ Disposiciones relacionadas con los permisos para impartir lecciones dentro y fue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-14 | la propia norma |
+| 2 | 2008-06-23 | Circular 104 (2008-06-23) |
