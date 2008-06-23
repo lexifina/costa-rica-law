@@ -54,3 +54,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 39 | 2008-06-13 | Decreto Ejecutivo 34605 (2008-06-13) |
 | 40 | 2008-06-13 | Decreto Ejecutivo 34604 (2008-06-13) |
 | 41 | 2008-06-13 | Decreto Ejecutivo 34603 (2008-06-13) |
+| 42 | 2008-06-23 | Decreto Ejecutivo 34614 (2008-06-23) |
