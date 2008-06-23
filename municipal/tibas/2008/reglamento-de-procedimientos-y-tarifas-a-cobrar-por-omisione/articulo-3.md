@@ -1,0 +1,1 @@
+Artículo 3º—De previo a la efectiva prestación del servicio respectivo, la Municipalidad notificará por una única vez al propietario correspondiente del inmueble para que proceda por su cuenta a cumplir con su obligación legal, concediéndole al efecto el plazo de 15 días naturales, pasado el cual la Municipalidad procederá de conformidad.
