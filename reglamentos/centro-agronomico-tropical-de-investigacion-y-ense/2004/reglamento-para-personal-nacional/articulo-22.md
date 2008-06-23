@@ -1,0 +1,2 @@
+Artículo 22 Honores y favores
+Todo funcionario debe informar al Director General, y solicitar su autorización antes de aceptar honores, condecoraciones, premios o remuneración en dinero o especie, favores, regalos u otros, de cualquier gobierno o instituciones. El Director General determinará si tal favor u honor es compatible con la condición de funcionario de una organización internacional y a los intereses del CATIE.

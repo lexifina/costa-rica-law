@@ -1,0 +1,2 @@
+Artículo 21 Contribución de Impuestos
+Los funcionarios de la categoría de personal nacional tienen la obligación de contribuir con los impuestos y demás obligaciones aplicables, conforme con lo establecido en la legislación nacional respectiva. Dichos pagos podrán ser efectuados mediante retención directa en el salario del funcionario o mediante pago a través del mismo funcionario, según lo indique tal legislación.

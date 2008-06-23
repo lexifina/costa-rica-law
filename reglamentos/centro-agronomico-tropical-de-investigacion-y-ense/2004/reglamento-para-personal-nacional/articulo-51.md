@@ -1,0 +1,2 @@
+ARTICULO 51 Finalización del nombramiento
+El CATIE podrá dar por terminado en cualquier momento el nombramiento de un miembro del personal nacional, por motivo de reorganización, limitaciones presupuestarias, cese de operaciones o por cualquier otro. En estos casos se cumplirá con los requisitos aplicables y establecidos en la legislación laboral del país. Asimismo, el funcionario tendrá derecho al pago de los derechos y beneficios laborales correspondientes.

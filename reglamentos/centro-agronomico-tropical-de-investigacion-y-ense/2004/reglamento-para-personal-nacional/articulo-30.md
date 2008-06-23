@@ -1,0 +1,2 @@
+Artículo 30 Beneficios que otorga la ley
+Todo funcionario nacional recibirá los beneficios y prestaciones señaladas en las leyes laborales locales, así como los establecidos en el presente reglamento. En cada caso, la porción de lo que debe pagar el Centro y la porción que debe pagar el empleado se basarán en lo establecido por la legislación laboral o bien por las condiciones incluidas en este Reglamento. El personal nacional sin excepción, participará en el sistema de seguro social de los países donde trabajan.

@@ -1,0 +1,3 @@
+Artículo 31 Plan Colectivo de Seguros
+a) El CATIE brindará a su personal nacional cobertura dentro del plan de seguro social de cada país, conforme con las regulaciones laborales locales. Asimismo, el CATIE otorgará a su personal nacional un seguro de vida el cual es pagado en su totalidad por el Centro. Aquél personal que así lo solicite podrá participar en un seguro de salud del cual el CATIE podrá pagar hasta el 70% del costo de las primas y el porcentaje restante será financiado por el funcionario.
+b) Los seguros adicionales que ofrezca la Compañía de Seguros como: seguro dental, seguro para automóviles u otros son opcionales y en caso de tomar dichos seguros, el funcionario deberá cubrir el 100% del costo de las primas respectivas.

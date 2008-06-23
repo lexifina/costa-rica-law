@@ -1,0 +1,4 @@
+Artículo 11 Designación de beneficiarios
+a) Todo funcionario al aceptar el nombramiento, deberá completar la designación legal del beneficiario (os) a quien el Centro pagará los beneficios del Plan de Seguro Colectivo que brinda el CATIE a su personal, así como cualquier saldo a su favor que se adeude, en caso de defunción. Los pagos así efectuados liberan al CATIE de cualquier obligación posterior.
+b) Cuando los beneficiarios no sobrevivan al funcionario o su designación hubiera sido revocada, sin haberse efectuado una nueva designación, las sumas a favor del funcionario serán pagadas, en caso de muerte, a sus herederos legales.
+c) Será responsabilidad de cada funcionario comunicar directamente al Área de Recursos Humanos, cualquier cambio del beneficiario. Esta información tendrá carácter confidencial.

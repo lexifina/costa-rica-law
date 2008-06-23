@@ -1,0 +1,2 @@
+Artículo 15 Carné de Identificación
+El CATIE emitirá un carné de identificación para todos los miembros del personal, el cual deberá ser utilizado por el funcionario y como mínimo contendrá la siguiente información: nombre, departamento, fecha de terminación del contrato, firma del funcionario, firma del emisor. También contendrá la fotografía y el logotipo oficial del Centro. Las regulaciones de este carné oficial, será regido por el Manual de Línea Gráfica del Centro.

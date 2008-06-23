@@ -1,0 +1,4 @@
+Artículo 12 Parentesco
+a) No se podrán nombrar funcionarios emparentados hasta un segundo grado de consanguinidad y primer grado de afinidad. Sin embargo, se podrán autorizar excepciones solamente con el consentimiento expreso del Director General. En ningún caso los funcionarios emparentados en los grados anteriores podrán trabajar bajo la supervisión inmediata del otro.
+b) Si dos funcionarios contraen matrimonio, el Director General decidirá si ambos pueden continuar como funcionarios, pero en ningún caso uno de los cónyuges podrá trabajar bajo la supervisión inmediata del otro.
+c) El cónyuge del Director General, del Sub-Director General, del Director de Administración y Finanzas, Directores, Jefe de Recursos Humanos, de los Asistentes y Asesores de la Dirección General, sólo podrán ser contratados con autorización previa de la Junta Directiva. En estos casos, el funcionario no deberá en ningún caso depender en términos jerárquicos, directamente de su cónyuge.

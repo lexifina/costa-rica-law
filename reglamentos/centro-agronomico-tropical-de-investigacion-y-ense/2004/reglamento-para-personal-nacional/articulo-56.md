@@ -1,0 +1,4 @@
+ARTICULO 56 Reconsideración
+a) Los funcionarios que sean afectados por la aplicación del artículo anterior tienen el derecho a ser escuchados si consideran que hay una sanción, medida disciplinaria o administrativa que afecta sus intereses. Para tal fin, el empleado puede presentar una solicitud escrita de reconsideración. Esta solicitud debe explicar sus razones de solicitud de reconsideración al Área de Recursos Humanos y debe ser presentada dentro de los próximos 10 días hábiles después de recibir la notificación de la decisión.
+b) Antes de solicitar la audiencia a un nivel jerárquico más alto, el funcionario tratará de resolver su problema con el supervisor inmediato o con el supervisor próximo en jerarquía a éste.
+c) Ningún funcionario debe tener temor de interferencia, restricción, coerción, discriminación, o represión por presentar su caso. Esto también aplica para funcionarios que están representando o ayudando a otro empleado que solicitó reconsideración.

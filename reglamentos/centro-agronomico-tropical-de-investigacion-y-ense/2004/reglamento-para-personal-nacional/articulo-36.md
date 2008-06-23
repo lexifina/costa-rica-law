@@ -1,0 +1,3 @@
+Articulo 36 Actividades de cooperación interinstitucional
+a) Basado en un convenio o contrato específico, el CATIE podrá facilitar la colaboración de un funcionario de la categoría de personal nacional en calidad de consultor, o asesor a una institución o a un país miembro. La duración de este servicio, gastos de traslado, viáticos, remuneración y demás costos serán establecidos de antemano en el convenio o contrato respectivo.
+b) El funcionario seguirá siendo miembro del personal nacional del CATIE, mientras dure la prestación de este servicio. La colaboración del funcionario podrá ser por un período máximo de un año.

@@ -1,0 +1,7 @@
+ARTICULO 62 Procedimiento para la apelación
+El procedimiento para la apelación es el siguiente:
+i. El funcionario que se considere afectado solicita por escrito al Director General la consideración del caso objeto de apelación, y le comunica el nombre de su representante y de su asesor legal, si así lo desea.
+ii. El Director General nombra un representante dentro de los cinco días hábiles posteriores al recibo de la solicitud y lo comunica por escrito al apelante y al Área de Recursos Humanos.
+iii. Los dos representantes, de común acuerdo, nombran y hacen las gestiones pertinentes para integrar al miembro que presidirá el comité, y lo comunican por escrito al Director General y al Área de Recursos Humanos.
+iv. El comité actuará rápidamente en el estudio y revisión del caso. El procedimiento considerará, además de la solicitud escrita presentada por quien se considere afectado, todos aquellos documentos pertinentes a su relación laboral con el CATIE.
+v. El comité emitirá su resolución lo más pronto posible, en un período no mayor de 60 días a partir de la fecha en que se abrió el proceso de apelación. El comité informará de su resolución al apelante y apelado en los cinco días posteriores al cierre del proceso. El comité entregará al Área de Recursos Humanos el expediente del caso incluyendo su resolución y justificación de la misma, debidamente firmada por los miembros del comité, informándole a su vez, la conclusión y cierre del caso objeto de la apelación.

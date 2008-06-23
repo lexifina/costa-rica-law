@@ -1,0 +1,2 @@
+Artículo 7 Nombramiento de personal nacional
+El nombramiento de un funcionario nacional se realizará mediante una acción de personal y comunicación escrita dirigida al interesado, firmada por la Jefatura del Área de Recursos Humanos y contendrá la información relativa a título y clasificación del cargo, período de vigencia, sede de trabajo, ubicación del cargo, salario y declaración de lealtad al Centro. Asimismo, se deberá adjuntar la descripción de funciones y nombre del supervisor inmediato.
