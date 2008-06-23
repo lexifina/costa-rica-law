@@ -1,0 +1,2 @@
+ARTICULO 5
+Los Programas educativos se desarrollarán de preferencia en beneficio de los estados miembros del IICA y, en su ejecución, el CATIE acatará a los convenios, acuerdos y programas establecidos con universidades e instituciones de educación superior e investigación, públicas o privadas, nacionales o extranjeras. En sus relaciones con tales instituciones, el Centro impulsará por todos los medios a su alcance la cooperación horizontal.

@@ -1,0 +1,2 @@
+ARTICULO 114
+El Comité Administrativo estará integrado por el Director General quien lo preside, el Subdirector General, Directores de Programas Técnicos, el Director de Administración y Finanzas, el Director de Planificación Estratégica y tres funcionarios del Centro, nombrados por la Junta Directiva de ternas propuestas para cada cargo por el Director General y quienes durarán en sus cargos dos años pudiendo ser reelegidos.

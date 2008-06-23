@@ -1,0 +1,2 @@
+ARTICULO 4
+El CATIE concentrará sus esfuerzos en aquellos proyectos concebidos con el objeto de obtener conjuntos de prácticas tecnológicas, en respuesta a problemas prioritarios de la agricultura y la vida rural del trópico americano. El estudio de los problemas se hará con un enfoque integral y multidisciplinario que considere la interrelación de los cultivos, ganadería, bosques y otros recursos naturales renovables, dando consideración especial al estudio de sistemas agropecuarios y forestales.

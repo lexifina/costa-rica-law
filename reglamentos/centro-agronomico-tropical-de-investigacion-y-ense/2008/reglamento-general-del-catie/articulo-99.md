@@ -1,0 +1,2 @@
+ARTICULO 99
+El Subdirector General sustituirá al Director General en su cargo cuando éste quedare vacante en forma permanente, previa aprobación de la Junta Directiva, antes de completarse el mandato y en carácter interino hasta por un período de un año. En caso de incapacidad prolongada, impedimento o ausencia temporal, el Subdirector General sustituirá interinamente al Director General en sus funciones, hasta por un período máximo de un año, o hasta que la Junta Directiva nombre un nuevo titular y éste tome posesión del cargo.

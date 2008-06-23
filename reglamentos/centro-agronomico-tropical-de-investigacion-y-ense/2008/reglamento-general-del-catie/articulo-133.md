@@ -1,0 +1,2 @@
+ARTICULO 133
+El Director General podrá establecer un fondo de reserva para la liquidación de las obligaciones pendientes de pago, dentro de las partidas autorizadas del presupuesto que se hayan contraído durante el ejercicio económico; autorización que regirá únicamente hasta el último día de febrero del siguiente año natural. Cualquier saldo no invertido ingresará asimismo al fondo general de trabajo.

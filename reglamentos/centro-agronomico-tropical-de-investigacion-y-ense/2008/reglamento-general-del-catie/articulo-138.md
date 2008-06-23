@@ -1,0 +1,2 @@
+ARTICULO 138
+El Gobierno de Costa Rica concederá al CATIE y al personal profesional principal, no costarricense, que preste servicios en él, los derechos, privilegios e inmunidades concedidos al IICA, por el Contrato ley No. 29 del 19 de diciembre de 1942 y en el acuerdo aprobado por el decreto legislativo No. 3367, del 6 de agosto de 1964 y en el convenio aprobado por decreto ejecutivo No. 51, del 26 de noviembre de 1968, así como otras ventajas, que pueden resultar de contratos, acuerdos o convenios posteriores, entre el gobierno de Costa Rica y el IICA o el CATIE.

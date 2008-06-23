@@ -1,0 +1,2 @@
+ARTICULO 47
+El temario provisional, los informes, los estudios y las propuestas aprobadas por el Comité Ejecutivo y de Finanzas y Científico-Académico, se someterán a la consideración de la Junta, en la primera sesión plenaria de la reunión. Una vez aprobado el temario definitivo, sólo podrán agregarse asuntos considerados urgentes e importantes, mediante aprobación por el voto de las dos terceras partes de la Junta.
