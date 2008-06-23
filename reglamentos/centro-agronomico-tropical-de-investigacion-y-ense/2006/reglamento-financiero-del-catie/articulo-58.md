@@ -1,0 +1,2 @@
+ARTICULO 58
+La tesorería del CATIE mantendrá durante seis meses, desde la fecha de emisión, los cheques no retirados por los beneficiarios. Vencido este plazo se procederá a la anulación de estos cheques, manteniéndose el derecho de los interesados de solicitar durante el año siguiente, la emisión de un nuevo cheque. Una vez vencido el plazo de dieciocho meses, los pagos cuyos cheques no fueron retirados prescribirán de pleno derecho en beneficio del CATIE.

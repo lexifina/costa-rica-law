@@ -1,0 +1,2 @@
+ARTICULO 20
+El Director General del CATIE enviará a todos los miembros de la Junta Directiva, al principio del segundo semestre de cada año, un informe sobre la administración financiera correspondiente a los primeros seis meses, en el que detalla los resultados obtenidos y proyectados para el segundo semestre respecto al presupuesto, situación de liquidez y cualquier otro aspecto que se considere relevante.

@@ -1,0 +1,2 @@
+ARTICULO 25
+El funcionario o empleado que en nombre del CATIE contraiga deudas o compromisos de cualquier naturaleza, sin contar con la autorización de la Dirección General para ello, será exclusivamente y personalmente responsable ante los acreedores de la obligación civil proveniente del compromiso contraído y será además considerado esto como falta grave y acreedor a la sanción correspondiente.

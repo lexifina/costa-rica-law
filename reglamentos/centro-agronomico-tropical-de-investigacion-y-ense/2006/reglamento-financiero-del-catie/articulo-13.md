@@ -1,0 +1,2 @@
+ARTICULO 13
+Todos los recursos y derechos institucionales deben utilizarse exclusivamente para fines que estén conformes con los propósitos y el mandato del CATIE. Con este mismo fin, el representante del CATIE puede participar en Asociaciones, Sociedades y otras formas de agrupación empresarial. Las dietas, y otros ingresos que se generen debido a esta representación, se destinarán a una partida específica que apoye gastos operativos del CATIE.

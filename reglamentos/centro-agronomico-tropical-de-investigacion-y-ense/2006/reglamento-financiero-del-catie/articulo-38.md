@@ -1,0 +1,2 @@
+ARTICULO 38
+De acuerdo con el artículo 133 del Reglamento General del CATIE, el Director General del CATIE podrá establecer un fondo de reserva para la liquidación de las obligaciones pendientes de pago, dentro de las partidas autorizadas del presupuesto, que se hayan contraído durante el ejercicio económico. Esta autorización regirá hasta el último día de febrero del siguiente año natural. Cualquier saldo no invertido ingresará asimismo al fondo general de trabajo.

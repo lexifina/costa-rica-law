@@ -1,0 +1,2 @@
+ARTICULO 5
+Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las personas físicas o jurídicas que se vinculen con el CATIE, ya sea a través de un convenio o de una relación laboral establecida por la presencia de todos o algunos de sus elementos (pago de salario, subordinación jerárquica, supervisión de su trabajo, utilización de los recursos y/o facilidades de la Institución); en su defecto será responsable de las consecuencias que se puedan derivar y sujeto a recibir las sanciones establecidas en los reglamentos y leyes aplicables.

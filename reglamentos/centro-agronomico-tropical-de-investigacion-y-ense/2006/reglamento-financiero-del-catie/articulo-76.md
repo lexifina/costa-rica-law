@@ -1,0 +1,2 @@
+ARTICULO 76
+La apertura de las ofertas así como la adjudicación, deben constar en un libro de actas que se llevará para estos efectos. En este libro se llevará el registro del nombre de los concursantes, el monto de las cotizaciones, las observaciones que se consideren pertinentes y las diferencias graves observadas en las ofertas tales como, la falta de firmas, la falta de plazo de entrega o ejecución, etc.

@@ -1,0 +1,2 @@
+ARTICULO 11
+De conformidad con el artículo 124 del Reglamento General del CATIE, la Dirección General del CATIE está facultada para recibir legados, donaciones y contribuciones especiales para fines compatibles con los propósitos y normas institucionales, sean éstos en dinero, servicios o cualquier otra forma, de instituciones públicas, privadas, nacionales, extranjeras, de gobiernos que tengan relaciones de cooperación o efectúen programas por medio del CATIE, así como aportes similares del gobierno de Costa Rica o del IICA.

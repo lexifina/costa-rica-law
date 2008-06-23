@@ -1,0 +1,2 @@
+ARTICULO 35
+Conforme el artículo 123 del Reglamento General del CATIE, el salario y remuneraciones de quienes ostenten los cargos de Director General y Subdirector General, deberán estar contemplados dentro de los gastos básicos del Centro. Los salarios y remuneraciones de los Directores de Programa y Departamento y Jefes de Área, deben estar preferiblemente contemplados, dentro de los gastos básicos del Centro.

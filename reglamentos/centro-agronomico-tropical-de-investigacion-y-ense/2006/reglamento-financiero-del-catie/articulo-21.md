@@ -1,0 +1,2 @@
+ARTICULO 21
+De acuerdo con el inciso e) del artículo 91 del Reglamento General del CATIE, el Director General debe presentar a la Junta Directiva un informe anual de progreso sobre las actividades y la situación financiera del CATIE, en el que indique el cumplimiento de los planes aprobados, los resultados más importantes y los principales obstáculos encontrados, acompañado del correspondiente informe de los auditores externos.

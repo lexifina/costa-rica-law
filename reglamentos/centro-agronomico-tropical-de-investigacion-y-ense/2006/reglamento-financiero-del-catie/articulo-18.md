@@ -1,0 +1,3 @@
+ARTICULO 18
+En situaciones imprevistas que hicieran necesario resolver algún déficit temporal de flujo de caja, el Director General del CATIE puede solicitar préstamos, siempre y cuando el monto no sobrepase el 15% del presupuesto básico, y tenga certeza de que tendrá ingresos reales para amortizarlo.
+La formalización de dichos préstamos se realizaría según lo estipulado en el artículo 16 de este Reglamento, debiendo informar a la Junta Directiva en la siguiente sesión. En caso de que el monto del déficit sea mayor que el porcentaje estipulado, el Director General deberá consultar a la Junta Directiva para la aprobación del préstamo correspondiente.

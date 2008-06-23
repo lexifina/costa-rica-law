@@ -1,0 +1,2 @@
+ARTICULO 7
+El Director General del CATIE, de conformidad con el ordenamiento jurídico vigente, puede disponer libremente de las divisas para las operaciones en o desde Costa Rica, según lo estipula la cláusula trigesimaoctava del Contrato del CATIE. El Director General del CATIE, para operaciones cambiarias, debe hacer uso de las ventajas máximas permitidas por el ordenamiento legal del país en que se efectúe dicha transacción.
