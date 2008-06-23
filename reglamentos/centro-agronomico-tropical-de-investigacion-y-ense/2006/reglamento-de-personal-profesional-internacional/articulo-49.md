@@ -1,0 +1,7 @@
+ARTÍCULO 49. Evaluación del desempeño
+a) Con el objeto de lograr un mejor aprovechamiento de sus funcionarios, el CATIE llevará a cabo una revisión y evaluación de sus funcionarios en forma periódica, por lo menos una vez al año. La evaluación tendrá por objeto determinar el grado de eficiencia del funcionario, sus deficiencias y su capacidad actual y potencial.
+b) Las evaluaciones servirán como base para aumentos de salarios por mérito, para promociones y otros reconocimientos.
+c) El resultado de la evaluación del desempeño de funcionarios, constituirá uno de los criterios fundamentales para decidir sobre la continuación, renovación, reducción o terminación del nombramiento o contrato.
+d) El funcionario deberá ser informado por su supervisor inmediato sobre los resultados de la evaluación, y firmar el formulario en señal de aceptación de la misma. En caso de inconformidad con la evaluación, deberá consignarlo así en el formulario respectivo.
+e) El Director General enviará una nota a cada miembro del personal profesional internacional, donde le comunique los resultados de la evaluación así como sus comentarios u observaciones.
+f) Todo funcionario que tenga responsabilidad de supervisión, antes de dejar su cargo, deberá efectuar una evaluación de todos sus subalternos y presentarla a la Dirección del respectivo Programa o a la Dirección General, según corresponda. Copias de estas evaluaciones deben enviarse al Área de Recursos Humanos.

@@ -1,0 +1,3 @@
+ARTÍCULO 70. Viaje a la residencia del cónyuge
+a) En caso de que el cónyuge de un funcionario tenga una nacionalidad distinta a la de éste, el viaje a la patria podrá hacerse alternativamente a cualquiera de los dos lugares. No obstante, el CATIE cubrirá únicamente los costos equivalentes al viaje a la residencia reconocida del funcionario.
+b) En caso de que el funcionario demuestre fehacientemente que no tiene vínculos familiares cercanos en el lugar de residencia reconocida, o que por razones de alejamiento de ese lugar haya perdido lazos afectivos, previa autorización del Director General, podrá optar por hacer el viaje a otro lugar. No obstante, el CATIE cubrirá únicamente los costos equivalentes al viaje a la residencia reconocida del funcionario.

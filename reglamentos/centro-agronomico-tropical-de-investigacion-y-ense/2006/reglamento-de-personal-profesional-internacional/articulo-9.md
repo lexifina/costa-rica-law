@@ -1,0 +1,14 @@
+CAPÍTULO II
+Reclutamiento, selección y nombramiento del personal
+ARTÍCULO 9. Reclutamiento y selección de personal
+a) Para la integración de sus cuadros profesionales, el CATIE dará preferencia a ciudadanos de sus países miembros y a ciudadanos de los países miembros del Instituto Interamericano de Cooperación para la Agricultura.
+b) Las gestiones para la contratación de un ciudadano de un país no incluido en el Artículo anterior, requerirá de la aprobación del Director General.
+c) No se hará discriminación alguna por género, origen étnico, credo religioso o político.
+d) El Área de Recursos Humanos tendrá la responsabilidad de velar para que se cumplan todas las normas y procedimientos relativos al reclutamiento y selección de personal, tanto las contenidas en el presente reglamento como las contenidas en órdenes ejecutivas y otras comunicaciones.
+e) El reclutamiento de personal se hará sobre la base más amplia posible, en términos de brindar la oportunidad de participar al mayor número de candidatos. Factores tales como competencia, experiencia, grado académico y conocimiento de la región de mandato del CATIE serán determinantes en la selección final. El dominio de los idiomas inglés y español también serán factores indispensables.
+f) Las posiciones disponibles serán ampliamente divulgadas en Latinoamérica, a través de revistas especializadas, instituciones especializadas, Ministerios de Agricultura y Ambiente, Oficinas del IICA, Coordinaciones Técnicas Nacionales, redes (electrónicas, egresados, universidades, etc.), organismos y centros internacionales, así como la comunidad del CATIE. Otros medios convencionales de divulgación podrán también ser utilizados a nivel regional o internacional.
+g) Los candidatos deberán enviar al Área de Recursos Humanos una carta de solicitud, documentación de soporte, curriculum vitae e historia salarial.
+h) Para el análisis de los candidatos, se nombrará un Comité de Selección, que estará integrado por el jefe inmediato superior de la persona a reclutar, el jefe del Área de Recursos Humanos y al menos dos miembros del personal profesional de CATIE de un área distinta a la que se desempeñará el funcionario.
+i) En aquellos casos en que el Comité de Selección no seleccione al menos dos candidatos que llenen los requisitos indispensables establecidos para la posición vacante en el CATIE, el proceso de selección se declarará desierto y el Director General procederá a re-abrirlo siguiendo una metodología que establezca al respecto.
+j) Los candidatos finales, en la medida de lo posible, deberán ser entrevistados por el Comité y presentar un seminario, en el área de su especialidad, a la comunidad científicoacadémica del Centro.
+k) Se dará preferencia, en igualdad de condiciones, a profesionales que son o han sido miembros del personal del CATIE.

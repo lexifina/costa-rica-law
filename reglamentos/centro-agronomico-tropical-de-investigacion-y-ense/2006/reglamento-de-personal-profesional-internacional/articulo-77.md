@@ -1,0 +1,2 @@
+ARTÍCULO 77. Vencimiento del nombramiento
+El nombramiento temporal del personal profesional internacional vencerá en la fecha en que se indique en la oferta de servicio, memorandos de revisión y acciones de personal, según corresponda. El Director General deberá informar a los funcionarios, en un plazo no menor a 60 días previos a la fecha de vencimiento, si tiene o no intenciones de ofrecerle un nuevo nombramiento. La separación al vencer el nombramiento no es una rescisión del mismo.

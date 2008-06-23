@@ -1,0 +1,2 @@
+TRANSITORIO III: La modalidad de Fondo de Retiro de la OEA será de aplicación con efecto retroactivo a partir del 01 de agosto del 2005. Los miembros del personal profesional internacional nombrados a la fecha de entrada en vigencia de dicha modalidad, podrán trasladarse al Fondo de la OEA o continuar en el Fondo de Retiro Institucional, bajo las condiciones aplicables en cada caso.
+Firmamos en la ciudad de Turrialba, a los cinco días del mes de setiembre del año dos mil seis.

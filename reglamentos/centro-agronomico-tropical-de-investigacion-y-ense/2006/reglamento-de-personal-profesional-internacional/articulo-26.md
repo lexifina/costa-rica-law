@@ -1,0 +1,3 @@
+ARTÍCULO 26. Privilegios, inmunidades y exenciones
+a) El CATIE solicitará al Gobierno de Costa Rica el otorgamiento de privilegios, inmunidades y exenciones a su personal profesional internacional no costarricense, de acuerdo a las leyes nacionales y al Contrato de creación del CATIE. En los otros países miembros tal solicitud se hará a través del convenio existente con el IICA, para personal que no sea originario de ese país.
+b) Los privilegios, inmunidades y exenciones otorgados por los distintos gobiernos serán utilizados en forma prudente y únicamente en beneficio directo de los funcionarios y de sus dependientes reconocidos.

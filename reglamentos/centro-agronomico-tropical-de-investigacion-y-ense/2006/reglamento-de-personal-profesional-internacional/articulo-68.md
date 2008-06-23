@@ -1,0 +1,5 @@
+ARTÍCULO 68. Viaje a la patria
+a) El derecho de viaje a la patria corresponde únicamente a los miembros del personal profesional internacional y sus dependientes reconocidos.
+b) El viaje a la patria es un beneficio que se otorga con el propósito de brindar al funcionario y sus dependientes reconocidos la oportunidad de visitar su residencia reconocida a fin de renovar lazos familiares y de regresar con cierta frecuencia a su país de origen. El funcionario no dispondrá de licencia especial con este fin, y para obtener este beneficio deberá emplear sus vacaciones anuales por períodos mayores de 15 días calendario.
+c) El funcionario elegible tendrá derecho a un viaje a la patria cada dos años con la condición de haber aceptado la continuación de su nombramiento por un período adicional de no menos de un año.
+d) Los funcionarios pagados con fondos de proyectos especiales o fondos en custodia tendrán derecho al viaje a la patria, siempre que la fuente de financiamiento o convenio tenga presupuestados fondos para este beneficio.

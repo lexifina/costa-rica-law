@@ -1,0 +1,2 @@
+ARTÍCULO 47. Actividades de cooperación interinstitucional
+Basado en un convenio o contrato específico, el CATIE podrá facilitar la colaboración de un funcionario, en calidad de consultor, a una institución o a un país miembro. La duración de este servicio y su respectiva remuneración será establecido de antemano en el convenio o contrato respectivo. El funcionario seguirá siendo miembro del personal del CATIE mientras dure la prestación de este servicio.

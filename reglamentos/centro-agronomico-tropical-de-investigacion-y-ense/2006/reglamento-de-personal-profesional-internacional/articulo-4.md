@@ -1,0 +1,8 @@
+ARTÍCULO 4. Personal de confianza
+a) Es aquel que ocupa puestos profesionales que conforman la asistencia principal del Director General, cuyo nombramiento está sujeto a las siguientes disposiciones y condiciones:
+b) Son de libre elección y remoción del Director General; sirviendo como notificación oficial de nombramiento o cese de funciones, la carta de nombramiento o despido firmada por el Director General.
+c) Se debe garantizar que los titulares de los puestos de confianza sean de alto nivel y bien calificados, además de contar con una amplia experiencia profesional.
+d) El salario de un puesto de confianza normalmente será fijado con base a la escala de salarios para puestos de nivel similar, sin embargo, para garantizar el reclutamiento de personal de alto nivel, el Director General podrá fijar el salario a un nivel superior, que no duplique al salario del nivel apropiado.
+e) Cualquier miembro del Personal profesional internacional, temporal, que haya sido nombrado para ocupar un puesto de confianza, una vez que deje de desempeñarlo, podría volver a su clasificación anterior como funcionario del CATIE, si las necesidades de masa crítica y el financiamiento así lo permiten.
+f) Se consideran puestos de confianza dentro del CATIE: Subdirector General, Directores de Programa, Director de Planificación Estratégica, Director de Relaciones Externas, Director de Administración y Finanzas, Jefe del Área de Recursos Humanos, Asistentes y Asesores de la Dirección General.
+g) El Director General podrá designar puestos adicionales, con características similares, como puestos de confianza, de acuerdo a la estructura organizativa del CATIE, aprobada por su Junta Directiva, y a las disponibilidades presupuestarias.

@@ -1,0 +1,1 @@
+TRANSITORIO II: El presente Reglamento regula todas las actividades, trámites y procedimientos efectuados desde el momento de su aprobación, mediante resolución 4-00/II ROCS del 11 de agosto del 2000 y las modificaciones posteriores autorizadas por el Consejo Superior, contenidas también en el presente documento, hasta la fecha.

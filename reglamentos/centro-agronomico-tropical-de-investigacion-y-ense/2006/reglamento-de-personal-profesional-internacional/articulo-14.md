@@ -1,0 +1,3 @@
+ARTÍCULO 14. Residencia reconocida
+a) La residencia reconocida es el lugar especificado en la oferta de nombramiento, que se tomará para efectos de reclutamiento y repatriación, así como para el viaje a la patria.
+b) La ciudadanía se tomará en cuenta como criterio fundamental para determinar la residencia reconocida. En los casos en que la ciudadanía no se tome como criterio fundamental para determinar la residencia reconocida, se tendrán en cuenta también otros factores como el lugar permanente de residencia de los parientes en primer grado; o lugar de nacimiento del funcionario o donde tiene los mayores vínculos permanentes. Este lugar oficial de residencia reconocida deberá determinarse en el momento del nombramiento.

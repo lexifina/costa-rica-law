@@ -1,0 +1,3 @@
+ARTÍCULO 80. Terminación de nombramiento por cumplimiento de edad de retiro
+a) El Director General podrá dar por terminado el nombramiento de un funcionario que haya alcanzado la edad de retiro definida en 65 años. Al igual que en los artículos 78 y 79, el funcionario será notificado, con 60 días calendario de antelación, a través de una carta de terminación, la decisión de finalizar su contrato e indicando su último día de trabajo.
+b) Los funcionarios separados del servicio según esta disposición, tendrán todos los derechos indicados en el Artículo 75, más el reconocimiento por años de servicio.

@@ -1,0 +1,4 @@
+ARTÍCULO 86. Reconsideración
+a) Los funcionarios que sean afectados por la aplicación del Artículo 81 tienen el derecho a ser escuchados si consideran que hay una sanción, medida disciplinaria o administrativa que afecta sus intereses. Para tal fin, el empleado puede presentar una solicitud escrita de reconsideración. Esta solicitud debe explicar sus razones al Director General y debe ser presentada dentro de los próximos 20 días hábiles después de recibir la notificación de la decisión.
+b) Antes de solicitar audiencia a un nivel jerárquico más alto, el funcionario tratará de resolver su problema con el supervisor o con el supervisor próximo en jerarquía a éste.
+c) Ningún funcionario debe tener temor de interferencia, restricción, coerción, discriminación, o represión por presentar su caso. Esto también aplica para funcionarios que están representando o ayudando a otro empleado que solicitó reconsideración.

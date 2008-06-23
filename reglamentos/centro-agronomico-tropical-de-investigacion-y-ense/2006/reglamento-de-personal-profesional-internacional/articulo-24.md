@@ -1,0 +1,4 @@
+ARTÍCULO 24. Responsabilidad financiera
+a) Todo funcionario que por malicia, ineptitud, negligencia inexcusable o incumplimiento de los Reglamentos, normas y disposiciones administrativas, ocasione al CATIE un perjuicio financiero, será responsable por éste y estará obligado a pagar al CATIE el monto de la pérdida. Esta responsabilidad de pago es independiente de las medidas disciplinarias establecidas en el presente Reglamento.
+b) Para declarar la responsabilidad de un funcionario, la Auditoría Interna realizará una investigación sumaria, a la que adjuntará las pruebas pertinentes y la manifestación de descargo de parte del funcionario imputado.
+c) Todo aquel funcionario que haya sido declarado responsable por un gasto o pérdida ocasionado al CATIE, responderá personalmente ante la Institución con su salario y beneficios acumulados, pudiéndose deducir de éstos el monto correspondiente por el daño o perjuicio causado.

@@ -1,0 +1,3 @@
+ARTÍCULO 12. Declaración de lealtad
+Antes de iniciar sus funciones, todo funcionario deberá firmar la siguiente declaración de lealtad:
+“Me comprometo solemnemente a ejercer con lealtad, discreción y conciencia las obligaciones que me corresponden como miembro del personal al servicio del Centro Agronómico Tropical de Investigación y Enseñanza, y a regular mi conducta con dignidad y de conformidad con la naturaleza, propósito e intereses del Centro, y no solicitar ni aceptar instrucciones en relación con mis obligaciones como miembro del personal de ningún gobierno en particular o de cualquier autoridad que no sea del Centro, por medio del Director General o su delegado.”

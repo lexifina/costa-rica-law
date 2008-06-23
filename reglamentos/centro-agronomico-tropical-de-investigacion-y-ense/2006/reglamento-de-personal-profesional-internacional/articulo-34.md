@@ -1,0 +1,2 @@
+ARTÍCULO 34. Pago por trabajo en tiempo extraordinario
+En ningún caso se pagará por trabajo en tiempo extraordinario al personal profesional internacional. En circunstancias muy especiales, y con la correspondiente aprobación de los Jefes de Área o Directores de Programa, según corresponda, podrá compensarse el tiempo laborado los fines de semana o los fines de semana invertidos en viajes oficiales, siempre y cuando esta compensación no afecte una actividad en marcha.

@@ -1,0 +1,5 @@
+ARTÍCULO 73. Tiempo en que podrá hacerse el viaje a la patria
+a) Los arreglos que se hagan para disfrutar del viaje a la patria deberán ajustarse al programa de trabajo del funcionario, conforme lo disponga el respectivo superior jerárquico; no obstante, se tomarán en cuenta, en cuanto sea posible, las circunstancias y preferencias personales del funcionario. En ningún caso, exceptuando el cumplimiento del artículo 68 inciso d., se perjudicará haciéndole perder el derecho que tiene dentro de los plazos establecidos.
+b) Si se trata del primer viaje a la patria, se podrá disfrutar dentro de los doce meses siguientes a la fecha en que se adquiera este derecho.
+c) Si se trata de períodos de nombramientos posteriores, éste también podrá tomarse hasta seis meses antes de que se adquiera el derecho. Esto podrá ser hecho siempre y cuando exista confirmación de que el nombramiento del funcionario ha sido renovado y aceptado por él.
+d) Si el funcionario renunciara al CATIE dentro de los seis meses siguientes al disfrute del viaje a la patria, deberá pagar al CATIE el costo de los pasajes que el Centro hubiese cubierto.
