@@ -1,0 +1,1 @@
+Artículo 2º—La inspección de las obras que se realice en la jurisdicción cantonal de San Rafael, corresponde al Departamento de Desarrollo y Control Urbano, mediante los inspectores designados y calificados para tal efecto, también quedando facultado cualquier otro funcionario que se designe por parte de la misma Municipalidad.

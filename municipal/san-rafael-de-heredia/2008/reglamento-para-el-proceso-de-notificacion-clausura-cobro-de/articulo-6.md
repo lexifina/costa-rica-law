@@ -1,0 +1,1 @@
+Artículo 6º—La verificación por parte de los inspectores municipales, de claras violaciones a la reglamentación y normativa vigente, será suficiente para el levantamiento del acta respectiva y la clausura de la obra, en concordancia con el artículo 3 de este reglamento.
