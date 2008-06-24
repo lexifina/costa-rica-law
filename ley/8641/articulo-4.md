@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Desígnase al Cuerpo de Bomberos del Instituto Nacional de Seguros (INS), como instancia técnica consultiva que coordinará, con los operadores de los sistemas de distribución del servicio de agua potable, públicos o privados, todo lo referente a la definición de los tipos de hidrantes, sus ubicaciones, caudales y prioridad en la instalación.
