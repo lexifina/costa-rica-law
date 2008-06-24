@@ -1,0 +1,1 @@
+ARTÍCULO 2.- El desarrollo de la red de hidrantes, su instalación, operación y mantenimiento, serán responsabilidad de los operadores de los sistemas de distribución del servicio de agua potable, públicos o privados, según el área concesionada.
