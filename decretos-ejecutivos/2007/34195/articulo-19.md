@@ -1,0 +1,1 @@
+Artículo 19.—Deberes. El Auditor y Subauditor Internos y demás funcionarios de la Auditoría Interna deberán cumplir con las obligaciones establecidas en el artículo 32 de la LGCI, sus modificaciones y reformas, así como regulaciones conexas; conforme el marco legal y técnico.
