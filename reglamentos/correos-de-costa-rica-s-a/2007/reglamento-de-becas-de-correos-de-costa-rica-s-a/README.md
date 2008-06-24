@@ -14,3 +14,4 @@ Reglamento de Becas de Correos de Costa Rica S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-30 | la propia norma |
+| 2 | 2008-06-24 | Reglamento 883 (2008-06-24) |
