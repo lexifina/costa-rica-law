@@ -1,0 +1,1 @@
+Artículo 10.—Las tarifas a aplicar por concepto de Omisiones de los deberes de los Propietarios de Inmuebles, se basarán en la Tabla de Valores por Actividad y Lista de Materiales de Construcción del Colegio de Ingenieros y Arquitectos y serán actualizadas de manera automática, según la publicación oficial que se encuentra en la página de dicha entidad.

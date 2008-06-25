@@ -1,0 +1,1 @@
+Artículo 9º—Los cargos totales de las obras a realizar y las multas por Omisiones de los Deberes de los Propietarios de Inmuebles serán debidamente notificados mediante las boletas respectivas que se encuentran debidamente aprobadas por la Administración.

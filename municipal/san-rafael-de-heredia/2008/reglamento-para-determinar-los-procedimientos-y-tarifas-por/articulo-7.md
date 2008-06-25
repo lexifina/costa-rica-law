@@ -1,0 +1,1 @@
+Artículo 7º—En los casos donde la Municipalidad de San Rafael de Heredia, por cuestiones presupuestarias o de programación no pueda realizar las acciones sustitutivas de las Omisiones de los Deberes de los Propietarios de Inmuebles, se procederá como establece el artículo 76 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 12.—Para las obras que se deban efectuar dentro del derecho de vía o dominio público, se actuará de manera directo por parte de los funcionarios municipales o terceros que la Municipalidad de San Rafael de Heredia designe.

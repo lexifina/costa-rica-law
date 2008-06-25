@@ -1,0 +1,1 @@
+Artículo 5º—Los cargos que se incurran por concepto de gasto administrativo, deberán ser cancelados aunque el propietario del inmueble realice los trabajos solicitados antes de la ejecución final del acto administrativo por parte de Ingeniería Municipal.

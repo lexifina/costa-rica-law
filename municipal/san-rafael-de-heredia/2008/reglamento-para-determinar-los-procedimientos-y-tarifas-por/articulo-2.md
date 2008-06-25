@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de San Rafael de Heredia deberá notificar un mínimo de dos ocasiones mediante un plazo no menor de diez días hábiles entre cada una de ellas y la ejecución del acto administrativo.
