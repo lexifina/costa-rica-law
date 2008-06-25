@@ -1,0 +1,1 @@
+Artículo 36.—Obligación de asesorar a la Auditoría. La Asesoría Legal del Ministerio de Salud, estará en la obligación de atender de manera oportuna y efectiva, las necesidades de orden jurídico de la Auditoría Interna, que le permitan cumplir sus competencias.

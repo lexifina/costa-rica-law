@@ -1,0 +1,1 @@
+Artículo 80.—Plan anual de trabajo. La Auditoría Interna confeccionará y presentará para su aprobación jerarca, de conformidad con los lineamientos emitidos por la Contraloría General, un plan anual de trabajo que entrará en vigor a partir del primer mes del año a que corresponde.
