@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo: Regular el control y recuperación de las acreditaciones provenientes de fondos del Gobierno de la República que no corresponden, estableciendo los procedimientos y las responsabilidades de los gestores de los pagos y los receptores de los mismos.

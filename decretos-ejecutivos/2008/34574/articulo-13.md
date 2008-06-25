@@ -1,0 +1,1 @@
+Artículo 13.—Responsables del Sistema de Control Interno: Los titulares subordinados encargados de los procesos de las acreditaciones de conformidad al ámbito de su competencia serán los responsables de velar por el control interno de su gestión.

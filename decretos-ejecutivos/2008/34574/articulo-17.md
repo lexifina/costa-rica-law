@@ -1,0 +1,1 @@
+Artículo 17.—Información: El responsable Institucional de la gestión de acreditaciones que no correspondan deberá mantener en su Institución la información atinente al proceso respectivo a disposición de los funcionarios de la Tesorería Nacional y de otros entes de control.

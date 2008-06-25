@@ -1,0 +1,1 @@
+Artículo 18.—Seguimiento: La Tesorería Nacional y otros entes de control podrán llevar a cabo investigaciones cuando lo estimen conveniente, como seguimiento a la producción, recuperación y al saldo pendiente de las acreditaciones que no corresponden.

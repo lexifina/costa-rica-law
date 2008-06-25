@@ -1,0 +1,1 @@
+Artículo 7º—Determinación de los casos de acreditaciones que no corresponden: Las acreditaciones que no corresponden se determinarán cuando medie dolo, culpa o negligencia del servidor público en el cumplimiento de sus funciones, correspondiente en los casos señalados en el artículo 6 de este reglamento.
