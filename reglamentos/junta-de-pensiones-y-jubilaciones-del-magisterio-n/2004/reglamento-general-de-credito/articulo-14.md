@@ -1,6 +1,11 @@
-CAPÍTULO III
-Garantías
-Artículo 14.—Pagarés. Como parte del proceso de formalización de un crédito por las líneas de Gastos Personales, Pago de Deuda al Fondo de Pensiones, Salud, Derechos Sucesorios, Urgencia y Microempresa, cuando en éste la garantía no sea hipotecaria; el solicitante firmará un Pagaré, documento legal que contiene las principales características de la operación crediticia.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 12 al 13 actual).
-(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 13 al 14 actual)
-(Así reformado mediante sesión N° 56 del 22 de mayo de 2008)
+Artículo 14.—Línea para Servicios Funerarios
+a) El solicitante deberá tener un líquido de pensión o jubilación superior o igual al monto de la cuota del crédito requerido, multiplicada por tres.
+b) No poseer operaciones con otras entidades magisteriales, ni del sector público o privado, que comprometan el 60% o más del monto de pensión o jubilación devengado. Esto califica solo para pensiones con un nominal menor de ¢200.000,00.
+c) Autorizar la pignoración de la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional.
+d) De existir compromisos crediticios con la Junta , estos deben estar completamente al día.
+e) Presentar fotocopia de la cédula de identidad (por ambos lados).
+f) Las cuotas del crédito, incluyendo amortización y pago de intereses, serán deducidas de la pensión o jubilación, previa autorización del interesado.
+g) Presentar facturas pro-forma donde se muestre el servicio funerario a financiar, o facturas timbradas y canceladas acompañadas del acta de defunción.
+h) Proporcionar satisfactoriamente los datos (personales y de familiares cercanos) solicitados por el Área de Crédito.
+i) En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite el Área de Crédito, para resguardar los intereses de la institución.
+(Así adicionado mediante sesión N° 72 del 25 de junio de 2008)

@@ -1,7 +1,11 @@
-Artículo 28.—Deducciones. Atendiendo lo indicado en el Artículo 109 de la Ley N ° 7531, las deducciones mensuales que corresponden al pago de los intereses y la amortización a los créditos, seguros y pólizas, serán aplicadas directamente del monto recibido por pensión o jubilación del beneficiario, previa autorización escrita de éste al formalizarse el crédito, así como en la hipoteca o pagaré.
-Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a la Junta , siempre y cuando esta situación se haya generado con posterioridad la formalización del crédito. En estos casos, el deudor quedará obligado a pagar las cuotas oportunamente en las oficinas de la Junta de Pensiones.
-Esta disposición aplica para todas las líneas de crédito vigentes, excepto para la de Entidades Sociales y Financieras del Magisterio Nacional, las cuales deben cancelar las cuotas correspondientes en las oficinas de la Junta de Pensiones, o bien depositar por medio de transferencia o depósito directo el monto en la cuenta corriente que para tal efecto indique el Departamento Financiero Contable.
-Cualquier excepción relativa a la aplicación automática de las deducciones, deberá ser expresamente aprobada por la Junta Directiva.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 26 al 27 actual).
-(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 27 al 28 actual)
+CAPÍTULO V
+Disposiciones finales
+Artículo 28.—Limitaciones de alcance general.
+a) No se permiten renovaciones en la línea de crédito de Microempresa, Pago de Deuda al Fondo de Pensión, Salud y Urgencia.
+b) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de dos cuotas sin justificación, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado, para optar por un nuevo crédito o renovación del mismo.
+c) La determinación del número de créditos a otorgar a una entidad social o financiera del Magisterio Nacional, será potestad exclusiva de la Junta Directiva de la Junta de Pensiones.
+d) No se aceptarán como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación o que estén ubicados en zonas de alto riesgo. La Junta de Pensiones se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+(Así reformado y corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 25 al 26 actual).
+(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 26 al 27 actual)
 (Así reformado mediante sesión N° 56 del 22 de mayo de 2008)
+(Así corrida su numeración mediante sesión N° 72 del 25 de junio de 2008, que lo traspaso del antiguo artículo 27 al 28 actual)
