@@ -22,3 +22,4 @@ Reglamento General de Gestión, Fiscalización y Recaudación Tributaria.
 | 7 | 2002-12-10 | Decreto Ejecutivo 30909 (2002-12-10) |
 | 8 | 2003-09-05 | Decreto Ejecutivo 31436 (2003-09-05) |
 | 9 | 2004-09-02 | Decreto Ejecutivo 31942 (2004-09-02) |
+| 10 | 2008-06-25 | Decreto Ejecutivo 34629 (2008-06-25) |
