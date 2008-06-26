@@ -1,0 +1,1 @@
+Artículo 2º—Esta ampliación de límite únicamente podrá utilizarse para implementar la propuesta de reorganización estructural que contempla el estudio de transformación administrativa y funcional del Consejo Nacional de Producción.
