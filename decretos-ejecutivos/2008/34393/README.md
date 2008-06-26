@@ -14,3 +14,4 @@ Modifica para la Cuenta Especial del Servicio Nacional de Salud Animal del Minis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-26 | la propia norma |
+| 2 | 2008-06-26 | Decreto Ejecutivo 34634 (2008-06-26) |
