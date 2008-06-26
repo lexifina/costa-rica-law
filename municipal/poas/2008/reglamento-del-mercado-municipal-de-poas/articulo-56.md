@@ -1,0 +1,1 @@
+Artículo 56.—Por cualquier ausencia temporal del Administrador del Mercado, las funciones que competen a este funcionario corresponderán al Alcalde Municipal, o quien este designe; igualmente en caso de ausencia definitiva, hasta que sea nombrado el nuevo administrador.

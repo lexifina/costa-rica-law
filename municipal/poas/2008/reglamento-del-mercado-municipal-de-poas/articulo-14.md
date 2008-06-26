@@ -1,0 +1,1 @@
+Artículo 14.—En caso de aprobación, la Alcaldía la remitirá a la Administración Tributaria para su incorporación al sistema y la aplicación del cobro de mercaderías diferentes a aquellas para las cuales le fue adjudicado el puesto. La infracción a esta disposición provocará el rompimiento del contrato en forma inmediata.
