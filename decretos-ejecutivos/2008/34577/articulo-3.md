@@ -1,0 +1,1 @@
+Artículo 3º—Área de la regulación. La restricción horaria aplicará en el área conformada por el Bulevar de Circunvalación (Ruta Nacional Nº 39), la Radial La Uruca (Ruta Nacional Nº 108) y la carretera La Uruca-Calle Blancos (Ruta Nacional Nº 100). La restricción incluye las rutas nacionales antes mencionadas y las rutas de estos sectores hacia el centro de San José.
