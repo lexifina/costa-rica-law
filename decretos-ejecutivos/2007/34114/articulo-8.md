@@ -1,2 +1,1 @@
-Artículo 8º—Rige a partir del 1º de enero del 2008.
-Dado en la Presidencia de la República.—San José, el día 30 de octubre del 2007.
+Artículo 8º—Los salarios señalados en este Decreto son consecuencia de un incremento general de 6.58%, más un ajuste adicional de ¢5.000,00 (cinco mil colones) mensuales para los Trabajadores no Calificados, incluyendo Servicio Doméstico y ¢4.000,00 (cuatro mil colones) mensuales para los Trabajadores Semicalificados, en relación a los salarios establecidos en el Decreto N° 34114-MTSS de 30 de octubre de 2007, publicado en La Gaceta N° 232 de 3 de diciembre de 2007.
