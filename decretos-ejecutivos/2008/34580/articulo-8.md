@@ -1,0 +1,1 @@
+Artículo 8º—El plazo de vigencia del permiso sanitario de funcionamiento para casino de juegos será de 1 año por las implicaciones y efectos que produce en la salud de las personas la adicción a los juegos. Lo anterior con sustento en la declaratoria de problema de salud pública y de interés público y nacional que ha hecho el Poder Ejecutivo sobre la ludopatía.

@@ -1,0 +1,2 @@
+Artículo 14.—En caso de que el casino de juegos se encuentre funcionando sin el permiso sanitario de funcionamiento, la autoridad de salud, al amparo de las disposiciones contenidas en el artículo 363 de la Ley General de Salud, deberá clausurar temporal o definitivamente las instalaciones.
+Asimismo la autoridad de salud podrá revocar conforme al numeral 364 del mismo cuerpo normativo el permiso sanitario de funcionamiento, cuando las instalaciones se encuentren funcionando al margen de la Ley General de Salud o de su reglamentación.

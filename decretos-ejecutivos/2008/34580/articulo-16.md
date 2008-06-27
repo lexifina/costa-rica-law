@@ -1,0 +1,1 @@
+Artículo 16.—Las resoluciones que dicten las autoridades de salud, tendrán recurso de revocatoria con apelación en subsidio ante el titular de la cartera, dentro del quinto día hábil después de su notificación.

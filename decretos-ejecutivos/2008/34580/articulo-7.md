@@ -1,0 +1,1 @@
+Artículo 7º—Plan de emergencias. Los interesados tendrán un plazo de cuatro meses contados a partir del día siguiente del otorgamiento del permiso sanitario de funcionamiento por primera vez para implementar dicho plan.
