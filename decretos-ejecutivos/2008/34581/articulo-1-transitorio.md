@@ -1,0 +1,1 @@
+Transitorio I.—Los casinos que se encuentren operando a la entrada en vigencia de este reglamento tendrán un plazo de 6 meses para reunir los requisitos señalados en este Reglamento para su operación, a excepción de los que se refieren al número de habitaciones, calificación del Instituto Costarricense de Turismo, ubicación en hoteles o infraestructura.
