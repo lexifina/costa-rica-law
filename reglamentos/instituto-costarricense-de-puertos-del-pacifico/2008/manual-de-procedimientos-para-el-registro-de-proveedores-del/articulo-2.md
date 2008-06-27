@@ -1,0 +1,1 @@
+Artículo 2º—Definición. El Registro de Proveedores será el mecanismo idóneo para incluir la información de las personas físicas o jurídicas que deseen participar en los procesos de contratación administrativa que se lleven a cabo en la institución, con el fin de adquirir sus bienes y/ o servicios.
