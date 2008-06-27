@@ -1,0 +1,2 @@
+Artículo 14.—La liquidación mensual reflejada en el formulario denominado “Liquidación de gastos de kilometraje”, debe ser presentada a la Unidad de Presupuesto, a más tardar dentro de los 5 días hábiles del mes calendario inmediato siguiente. La liquidación mensual deberá ir acompañada con la totalidad de los formularios de “Autorización Viaje con Vehículo Particular” del mes respectivo.
+Esta liquidación mensual debe ser firmada por el superior inmediato.

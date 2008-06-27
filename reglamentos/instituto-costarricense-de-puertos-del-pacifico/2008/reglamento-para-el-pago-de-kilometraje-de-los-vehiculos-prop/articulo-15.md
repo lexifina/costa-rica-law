@@ -1,0 +1,1 @@
+Artículo 15.—Si la liquidación indicada en el artículo 14 no se presenta a la Unidad de Presupuesto en el plazo establecido, los subsiguientes desplazamientos no se podrán realizar bajo este sistema, y será suficiente causa para que no se reconozca su pago.

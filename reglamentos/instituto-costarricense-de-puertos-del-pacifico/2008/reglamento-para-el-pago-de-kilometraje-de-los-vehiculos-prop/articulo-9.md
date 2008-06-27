@@ -1,0 +1,1 @@
+Artículo 9º—El pago de kilometraje se calculará de acuerdo a las tarifas de arrendamiento de vehículos a funcionarios de la Administración autorizados por la Contraloría General de la República, y en cuanto a distancias, la Tabla Oficial de distancias emitida por el MOPT.

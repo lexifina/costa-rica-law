@@ -1,0 +1,1 @@
+Artículo 3º—Cuando en el desempeño de labores propias del INCOP, no se cuente con vehículos oficiales disponibles, o bien la Gerencia General considere que su uso resulta inconveniente, se podrá contratar el arrendamiento del vehículo propiedad del funcionario, de conformidad con la normativa del presente reglamento.
