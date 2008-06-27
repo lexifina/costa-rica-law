@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Turrubares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-05 | la propia norma |
+| 2 | 2008-06-27 | Reglamento municipal 30 (2008-06-27) |
