@@ -1,0 +1,1 @@
+Artículo 29.—Derogatorias. Deróguese a partir de la vigencia del presente Decreto Ejecutivo en todos sus extremos, la resolución Nº DGT-03-2007, de las ocho horas del 25 de enero del 2007 y cualquier disposición que se le oponga a este decreto.

@@ -1,0 +1,1 @@
+Artículo 2º—Monto máximo de las deducciones. La deducción de los aportes a que hace referencia el artículo anterior no podrá exceder del diez por ciento (10%) del salario o ingreso bruto del mes, para lo cual debe considerarse, además del aporte del mes propiamente dicho, cualquier aporte extraordinario o correspondiente a meses anteriores que haya sido realizado en ese mes.

@@ -1,0 +1,1 @@
+Artículo 9º—Prescripción. Conforme lo establecen los artículos 51 y 52 del Código de Normas y Procedimientos Tributarios, la acción de la Administración Tributaria para determinar la obligación, prescribe a los tres años, contada a partir del 1º de enero del año calendario siguiente a aquél en que el tributo debe pagarse. Igual término rige para exigir el tributo y sus intereses.
