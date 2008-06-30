@@ -1,5 +1,1 @@
-ARTICULO 16.- Las radiodifusoras comerciales, salvo casos de
-emergencia, no deberán transmitir mensajes de carácter particular u
-oficial, locales o internacionales. Las estaciones dedicadas al servicio
-de radiocomunicaciones a su vez no deberán radiodifundir programas
-comerciales.
+ARTICULO 16.- (Derogado por el artículo 76 aparte b) de la Ley N° 8642 del 4 de junio de 2008).

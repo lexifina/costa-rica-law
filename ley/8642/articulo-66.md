@@ -1,0 +1,4 @@
+ARTÍCULO 66.- Medidas cautelares
+Durante el procedimiento, la Sutel podrá imponer las medidas cautelares necesarias para asegurar el resultado de un procedimiento sancionatorio o evitar que se pueda comprometer la actividad prestada, así como la integridad de instalaciones, redes, equipos y aparatos.
+Cuando tenga indicios claros acerca de la operación ilegítima de redes o la prestación ilegítima de servicios de telecomunicaciones, la Sutel podrá imponer como medida cautelar el cierre de establecimientos, la clausura de instalaciones o la remoción de cualquier equipo o instrumento. Para ejecutar estas medidas se dispondrá del auxilio de la Fuerza Pública.
+La Sutel mediante resolución fundada y previa audiencia a los interesados, debe resolver si confirma, modifica o revoca la medida adoptada en un plazo máximo de dos meses, contado a partir del inicio del procedimiento.

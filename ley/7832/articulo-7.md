@@ -1,4 +1,1 @@
-ARTÍCULO 7.- La internación, en el país, de los cables y los equipos
-necesarios para el funcionamiento del sistema y la conexión con la red
-nacional de telecomunicaciones, estará exenta del pago de todo tipo de
-impuestos.
+ARTÍCULO 7.- (Así derogado por el artículo 75 aparte b) de la Ley N° 8642 del 4 de junio de 2008).

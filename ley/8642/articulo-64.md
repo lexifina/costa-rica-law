@@ -1,0 +1,2 @@
+ARTÍCULO 64.- Intereses y multas por mora
+En caso de falta de pago de las contribuciones, los cánones y las tasas establecidas en la presente Ley, se aplicarán los intereses calculados de conformidad con el artículo 57 del Código de Normas y Procedimientos Tributarios. Se aplicará adicionalmente una multa por concepto de mora, equivalente a un cuatro por ciento (4%) por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación hasta la fecha del pago efectivo.

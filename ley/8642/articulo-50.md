@@ -1,0 +1,4 @@
+ARTÍCULO 50.- Precios y tarifas
+Las tarifas de los servicios de telecomunicaciones disponibles al público serán establecidas inicialmente por la Sutel, conforme a la metodología de topes de precio o cualquier otra que incentive la competencia y la eficiencia en el uso de los recursos, de acuerdo con las bases, los procedimientos y la periodicidad que se defina reglamentariamente.
+Cuando la Sutel determine, mediante resolución motivada, que existen las condiciones suficientes para asegurar una competencia efectiva, los precios serán determinados por los proveedores de los servicios de telecomunicaciones.
+En caso de que la Sutel determine, mediante resolución motivada, que las condiciones de competencia efectiva en el mercado dejan de darse, deberá intervenir procediendo a fijar la tarifa, de acuerdo con lo estipulado en el primer párrafo de este artículo.

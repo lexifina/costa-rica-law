@@ -1,6 +1,4 @@
-ARTICULO 10.- Responsabilidad del ICE
-Son responsabilidades exclusivas del Instituto Costarricense de
-Electricidad, diseñar, adquirir, instalar, mantener, reponer y operar,
-técnica y administrativamente, un sistema de telecomunicaciones ágil,
-moderno y de alta calidad tecnológica, que permita atender y transferir
-las llamadas, según los requerimientos de los usuarios del Sistema.
+Artículo 10.- Responsabilidad de los proveedores de los servicios de telefonía
+Son responsabilidades exclusivas de los proveedores de servicios de telefonía diseñar, adquirir, instalar, mantener, reponer y operar, técnica y administrativamente, un sistema de telecomunicaciones ágil, moderno y de alta calidad tecnológica, que permita atender y transferir las llamadas, según los requerimientos de los usuarios del Sistema.
+Los proveedores de servicios de telefonía, públicos o privados, que operen en el país deberán poner a disposición los recursos de infraestructura que el Sistema de Emergencias 9-1-1 requiera para el cumplimiento eficiente y oportuno de sus servicios, en aspectos que garanticen que las llamadas realizadas por la población deberán ser recibidas por los centros de atención que el Sistema habilite y se brindarán los datos de localización del usuario que disponga el acceso al servicio.
+(Así reformado por el artículo 74 aparte a) de la Ley N° 8642 del 4 de junio de 2008).

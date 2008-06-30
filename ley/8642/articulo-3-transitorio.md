@@ -1,0 +1,3 @@
+TRANSITORIO III.-
+El Instituto Costarricense de Electricidad y Radiográfica Costarricense S. A., continuarán prestando los servicios para los que se encuentren autorizados en sus respectivas leyes de creación y estarán sujetos a los deberes, los derechos y las obligaciones dispuestos en la presente Ley.
+Los contratos de concesión de uso de espectro radioeléctrico suscritos al amparo de la Ley de radio, N.º 1758, de 19 de junio de 1954, y su Reglamento, mantendrán plena vigencia por el plazo establecido en el contrato respectivo. Los concesionarios continuarán prestando los servicios en las condiciones indicadas en la concesión correspondiente y estarán sujetos a las regulaciones previstas en esta Ley, de conformidad con el artículo 29 de esta Ley.

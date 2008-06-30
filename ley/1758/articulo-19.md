@@ -1,3 +1,1 @@
-ARTICULO 19.- Las estaciones de radioaficionados, cuando sirvan como
-estaciones meteorológicas no pagarán ningún impuesto y en los demás casos
-pagarán veinticinco colones (¢ 25.00) anuales.
+ARTICULO 19.- (Derogado por el artículo 76 aparte b) de la Ley N° 8642 del 4 de junio de 2008).
