@@ -1,0 +1,3 @@
+ARTÍCULO 55.- Criterio técnico de la Comisión para Promover la Competencia
+Las prácticas monopolísticas serán sancionadas por la Sutel, de conformidad con esta Ley. Previo a resolver sobre la procedencia o no del procedimiento y antes de dictar la resolución final, la Sutel solicitará a la Comisión para Promover la Competencia los criterios técnicos correspondientes. Dichos criterios se rendirán en un plazo de quince días hábiles, contado a partir del recibo de la solicitud de la Sutel.
+Los criterios de la Comisión para Promover la Competencia no serán vinculantes para la Sutel. No obstante, para apartarse de ellos, la resolución correspondiente deberá ser debidamente motivada y se requerirá mayoría calificada para su adopción.

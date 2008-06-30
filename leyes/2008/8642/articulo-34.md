@@ -1,0 +1,2 @@
+ARTÍCULO 34.- Creación del Fondo Nacional de Telecomunicaciones
+Créase el Fondo Nacional de Telecomunicaciones (Fonatel), como instrumento de administración de los recursos destinados a financiar el cumplimiento de los objetivos de acceso universal, servicio universal y solidaridad establecidos en esta Ley, así como de las metas y prioridades definidas en el Plan nacional de desarrollo de las telecomunicaciones.

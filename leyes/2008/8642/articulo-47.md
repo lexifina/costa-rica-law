@@ -1,0 +1,2 @@
+ARTÍCULO 47.- Vías de reclamación
+Los operadores de redes públicas y los proveedores de servicios de telecomunicaciones disponibles al público, deberán garantizar la atención eficiente y gratuita de las reclamaciones que presenten los usuarios finales por violación a lo dispuesto en este capítulo, de acuerdo con la reglamentación que al efecto se dicte. Con este fin, deberán comunicar a la Sutel los medios disponibles y los tiempos ofrecidos de atención de dichas reclamaciones.

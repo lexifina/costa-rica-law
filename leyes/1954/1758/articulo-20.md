@@ -1,5 +1,2 @@
-ARTICULO 20.- Las radiodifusoras que tengan por fin exclusivamente
-la difusión cultural y las estaciones inalámbricas al servicio
-meteorológico y de navegación aérea o marítima estarán exentas de todo
-impuesto, siempre y cuando no se dedique a realizar propaganda comercial
-ni de otra clase que sea remunerada.
+ARTICULO 20.- Las radiodifusoras que tengan por fin exclusivamente la difusión cultural y las estaciones radiodifusoras al servicio meteorológico y de navegación aérea o marítima estarán exentas de todo impuesto, siempre y cuando no se dedique a realizar propaganda comercial ni de otra clase que sea remunerada.
+(Así reformado por el artículo 76 aparte a) de la Ley N° 8642 del 4 de junio de 2008).

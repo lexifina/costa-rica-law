@@ -1,0 +1,7 @@
+ARTÍCULO 35.- Administración de Fonatel
+Corresponde a la Sutel la administración de los recursos de Fonatel. Dicha administración deberá hacerse de conformidad con esta Ley, el Plan nacional de desarrollo de las telecomunicaciones y los reglamentos que al efecto se dicten.
+Se autoriza a la Sutel para que administre los recursos financieros del Fondo, mediante la constitución de los fideicomisos que le sean necesarios para el cumplimiento de sus fines.
+Los contratos de fideicomiso deberán suscribirse con bancos públicos del Sistema Bancario Nacional, seleccionados de acuerdo con la mejor oferta entre las recibidas, a partir de la invitación que se realice.
+El fiduciario deberá observar las obligaciones que le imponen las disposiciones legales vigentes, así como las que se derivan del contrato de fideicomiso que se suscriba. Los recursos que se administren en los fideicomisos, deberán invertirse en las mejores condiciones de bajo riesgo y alta liquidez. Los fideicomisos y su administración serán objeto de control por parte de la Contraloría General de la República.
+Se declaran de interés público, las operaciones realizadas mediante los fideicomisos establecidos en la presente Ley; por lo tanto, tendrán exención tributaria, arancelaria y de sobretasas para todas las adquisiciones o venta de bienes y servicios, así como las inversiones que haga y las rentas que obtenga para el cumplimiento de sus fines.
+Los fideicomisos se financiarán con los recursos establecidos en el artículo 38 de esta Ley.

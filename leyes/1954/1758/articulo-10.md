@@ -1,4 +1,1 @@
-ARTICULO 10.- Es servicio de radiodifusión el que, mediante
-emisiones sonoras o visuales -televisión- trasmite directamente al
-público programas culturales educativos, artísticos, informativos o de
-entretenimiento que respondan al interés general.
+ARTICULO 10.- (Derogado por el artículo 76 aparte b) de la Ley N° 8642 del 4 de junio de 2008).

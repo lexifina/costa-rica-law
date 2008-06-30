@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Casos de emergencia
+En caso de declaración de emergencia decretada, conforme al ordenamiento jurídico, el Poder Ejecutivo podrá dictar medidas temporales que deberán ser cumplidas por los operadores, proveedores y usuarios de los servicios de telecomunicaciones. Dichas medidas se adoptarán conforme al marco constitucional vigente.
+El Poder Ejecutivo, con carácter excepcional y transitorio y respetando los principios de proporcionalidad y razonabilidad, podrá asumir, temporalmente, la prestación directa de determinados servicios o la explotación de ciertas redes de telecomunicaciones cuando sea necesario para mitigar los efectos del estado de necesidad y urgencia.

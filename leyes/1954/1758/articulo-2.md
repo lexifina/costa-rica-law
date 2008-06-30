@@ -1,4 +1,1 @@
-ARTICULO 2º.- No puede ser objeto de concesión, el derecho que el
-Estado se reserva a perpetuidad de establecer estaciones radiográficas en
-el territorio nacional para usos militares y para la trasmisión y
-recepción de mensajes oficiales.
+ARTICULO 2º.- (Derogado por el artículo 76 aparte b) de la Ley N° 8642 del 4 de junio de 2008).

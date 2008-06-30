@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Procedimiento concursal
+Las concesiones de frecuencias para la operación y explotación de redes públicas de telecomunicaciones, serán otorgadas por el Poder Ejecutivo por medio del procedimiento de concurso público, de conformidad con la Ley de contratación administrativa y su reglamento. La Sutel instruirá el procedimiento, previa realización de los estudios necesarios, para determinar la necesidad y factibilidad del otorgamiento de las concesiones, de conformidad con el Plan nacional de desarrollo de las telecomunicaciones y las políticas sectoriales.
