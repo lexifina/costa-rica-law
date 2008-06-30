@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8285 de Creación de la Corporación Arrocera Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-18 | la propia norma |
+| 2 | 2008-06-30 | Decreto Ejecutivo 34667 (2008-06-30) |
