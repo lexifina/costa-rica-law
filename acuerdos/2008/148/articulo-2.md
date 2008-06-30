@@ -1,0 +1,1 @@
+Artículo 2º—Derogatorias. Se deroga el Acuerdo SGV-A-132 Ajuste al capital social suscrito y pagado de las Bolsas de Valores, de las Bolsas de Comercio, de los Puestos de Bolsa y de las Sociedades Administradoras de Fondos de Inversión y de las Sociedades Calificadoras de Riesgo.
