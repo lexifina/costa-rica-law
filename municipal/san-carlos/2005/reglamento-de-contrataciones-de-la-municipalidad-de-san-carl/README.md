@@ -15,3 +15,4 @@ Reglamento de Contrataciones de la Municipalidad de San Carlos
 | --- | --- | --- |
 | 1 | 2005-09-06 | la propia norma |
 | 2 | 2006-10-09 | Reglamento municipal 0 (2006-10-09) |
+| 3 | 2008-06-30 | Reglamento municipal 0 (2008-06-30) |
