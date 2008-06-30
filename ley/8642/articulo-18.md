@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Contrato de concesión
+Firme el acto de adjudicación, el Poder Ejecutivo suscribirá con el concesionario el respectivo contrato, el cual deberá especificar las condiciones y obligaciones que dicho concesionario deberá cumplir, de conformidad con esta Ley, sus reglamentos, las bases de la convocatoria, la oferta y el acto de adjudicación. El contrato deberá ser refrendado por la Contraloría General de la República.

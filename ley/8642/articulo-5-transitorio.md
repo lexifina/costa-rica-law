@@ -1,0 +1,2 @@
+TRANSITORIO V.-
+En el plazo máximo de tres meses, contado desde la integración del Consejo de la Sutel, el Poder Ejecutivo gestionará ante la Sutel el inicio de los procedimientos correspondientes para el otorgamiento de las concesiones de las bandas de frecuencia de telefonía celular u otras bandas requeridas, de conformidad con los principios de esta Ley, el Plan nacional de desarrollo de las telecomunicaciones y las políticas sectoriales.

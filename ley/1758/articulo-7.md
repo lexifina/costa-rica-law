@@ -1,9 +1,2 @@
-ARTICULO 7º.- Para operar una estación inalámbrica debe obtenerse la
-licencia del caso, previo pago del impuesto que por esta ley se establece
-y haber llenado los requisitos que el Reglamento respectivo imponga.
-Todo nuevo concesionario gozará de seis meses de término, a partir
-de la fecha de su concesión, para poner en operación su radioemisora, con
-seis meses más de prórroga cuando pueda comprobar que ha hecho
-inversiones considerables a juicio del Departamento de Control Nacional
-de Radio que justifiquen esa prórroga. Pasado este último plazo será
-cancelada la licencia.
+ARTICULO 7º.- Para operar una estación radiodifusora debe obtenerse la concesión del caso, previo pago del impuesto que por esta ley se establece y haber llenado los requisitos que el Reglamento respectivo imponga. Todo nuevo concesionario gozará de seis meses de término, a partir de la fecha de su concesión, para poner en operación su radioemisora, con seis meses más de prórroga cuando pueda comprobar que ha hecho inversiones considerables a juicio del Ministerio de Ambiente y Energía que justifiquen esa prórroga. Pasado este último plazo será cancelada la licencia.
+(Así reformado por el artículo 76 aparte a) de la Ley N° 8642 del 4 de junio de 2008).

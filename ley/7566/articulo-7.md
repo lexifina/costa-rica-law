@@ -1,18 +1,9 @@
-ARTICULO 7.- Financiamiento
-El Instituto Costarricense de Electricidad incluirá, dentro de la
-factura telefónica de todos sus abonados y usuarios cubiertos por el
-Sistema de Emergencias 9-1-1, los costos que este le demande, hasta en
-un uno por ciento (1%) de la facturación telefónica. Cualquier saldo
-pendiente se liquidará durante el siguiente ejercicio anual, dentro del
-margen autorizado en este artículo, para lo cual ese Instituto llevará
-una contabilidad separada.
-Previa comprobación de los costos de operación e inversión que
-demande este servicio, el Servicio Nacional de Electricidad determinará
-el monto mensual que deban pagar los abonados y usuarios por este
-concepto.
-Además, el Sistema de Emergencias 9-1-1 se financiará con los
-aportes económicos de las instituciones integrantes de la Comisión
-Coordinadora, para lo cual quedan autorizadas por esta norma; asimismo,
-con las transferencias globales contenidas en los presupuestos de la
-República y las donaciones y legados de cualquier naturaleza, que se
-reciban para utilizarse en ese Sistema.
+Artículo 7.- Tasa de financiamiento
+Para garantizar una oportuna y eficiente atención en las situaciones de emergencia para la vida, libertad, integridad y seguridad de los abonados y usuarios de los servicios de telefonía, se financiarán los costos que demande el Sistema de Emergencias 9-1-1, así como el desarrollo y mejoramiento de las comunicaciones con las instituciones adscritas al Sistema.
+Los contribuyentes de esta tasa son los abonados y usuarios de los servicios de telefonía, quienes se beneficiarán del servicio y de la garantía de su permanencia y eficiente prestación.
+Previa comprobación de los costos de operación e inversión del Sistema de Emergencias 9-1-1, la Sutel fijará la tarifa porcentual correspondiente a más tardar el 30 de noviembre del año fiscal en curso. En el evento que la Superintendencia no fije la tarifa al vencimiento del plazo señalado, se aplicará la tarifa aplicada al período fiscal inmediato anterior. La tarifa porcentual será determinada en función de los costos que demande la eficiente administración del sistema y en consideración con la proyección del monto de facturación telefónica para el siguiente ejercicio fiscal. La tarifa porcentual no podrá exceder un uno por ciento (1%) de la facturación telefónica.
+Los proveedores de los servicios de telefonía, en su condición de agente de percepción de esta tasa tributaria, incluirán en la facturación telefónica mensual de todos sus abonados y usuarios el monto correspondiente. Asimismo, deberán poner a disposición de la administración del Sistema de Emergencias 9-1-1 los fondos recaudados a más tardar un mes posterior al período de recaudación, mediante la presentación de una declaración jurada del período fiscal mensual.
+Dichos agentes de percepción asumirán responsabilidad solidaria por el pago de esta tasa, en caso de no haber practicado la percepción efectiva. En caso de mora se aplicarán los intereses aplicables a deudas tributarias, de conformidad con el artículo 57 del Código de Normas y Procedimientos Tributarios, y la multa por concepto de morosidad prevista en el artículo 80 bis del Código de Normas y Procedimientos Tributarios.
+El monto de los mencionados intereses y multas no podrá considerarse, por ningún concepto, como costo de operación.
+Además, el Sistema de Emergencias 9-1-1 se financiará con los aportes económicos de las instituciones integrantes de la comisión coordinadora, para lo cual quedan autorizadas por esta norma; asimismo, con las transferencias globales contenidas en los presupuestos de la República y las donaciones y legados de cualquier naturaleza, que se reciban para utilizarse en ese Sistema.
+(Así reformado por el artículo 74 aparte a) de la Ley N° 8642 del 4 de junio de 2008).

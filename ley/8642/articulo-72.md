@@ -1,0 +1,2 @@
+ARTÍCULO 72.- Cobro judicial
+Los débitos constituidos en razón de las sanciones establecidas en este capítulo, que no sean cancelados en sede administrativa, se cobrarán judicialmente. Para ello, la certificación expedida por la Sutel constituirá título ejecutivo. Los débitos que no hayan sido cancelados dentro del plazo conferido, generarán la obligación de pagar intereses moratorios de tipo legal.

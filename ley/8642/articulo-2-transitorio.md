@@ -1,0 +1,3 @@
+TRANSITORIO II.-
+Los operadores de redes y los proveedores de servicios de telecomunicaciones disponibles al público que, a la entrada en vigencia de esta Ley, se encuentren suministrando dichos servicios y estén conformes con el ordenamiento jurídico, estarán sujetos a la presente Ley.
+A partir de la entrada en vigencia de esta Ley, los operadores y proveedores podrán competir efectivamente para suministrar directamente al cliente los servicios de telecomunicaciones de redes privadas, Internet y servicios inalámbricos móviles, así como todos los nuevos servicios que surjan en virtud de los adelantos tecnológicos.
