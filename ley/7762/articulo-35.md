@@ -1,27 +1,7 @@
-ARTÍCULO 35.- Apelación de la adjudicación
-1.- Contra el acto de adjudicación podrá interponerse recurso de
-apelación, dentro de los diez días hábiles siguientes a la publicación del
-acuerdo en La Gaceta. El recurso, debidamente fundamentado, se presentará
-ante la Contraloría General de la República.
-2.- El recurrente deberá demostrar que está legitimado para resultar
-readjudicatario y que las ofertas con calificación mejor que la suya
-carecen de legitimación para ser adjudicatarias.
-3.- El recurso de apelación deberá resolverse dentro de los cuarenta
-días hábiles siguientes al auto inicial de traslado. Este plazo podrá
-prorrogarse mediante resolución motivada hasta por otros quince días
-hábiles, en casos muy calificados, cuando se necesite recabar prueba
-pericial especialmente importante para resolver el recurso, y que por la
-complejidad no pueda ser rendida dentro del plazo normal de resolución.
-Vencido el plazo para resolver o su prórroga sin dictarse la resolución
-final, automáticamente se tendrá por confirmado el acto de adjudicación
-recurrido
-4.- La readjudicación también podrá ser recurrida cuando las causas
-de la inconformidad hayan surgido del motivo que fundamentó el acto de
-readjudicación.
-5.- La resolución final o el auto que ponga término al recurso dará
-por agotada la vía administrativa. Dentro de los tres días hábiles
-posteriores a la comunicación, el interesado podrá impugnar el acto final
-sin efectos suspensivos, ante el Tribunal Superior Contencioso-
-Administrativo, por medio del proceso especial dispuesto en los artículos
-89 y 90 de la Ley Reguladora de la Jurisdicción Contencioso-
-Administrativa.
+Artículo 35.- Apelación de la adjudicación
+1.- Contra el acto de adjudicación podrá interponerse recurso de apelación, dentro de los diez días hábiles siguientes a la publicación del acuerdo en La Gaceta. El recurso, debidamente fundamentado, se presentará ante la Contraloría General de la República.
+2) El recurrente deberá demostrar que está legitimado para resultar readjudicatario y que todas las ofertas con calificación mejor que la suya carecen de legitimación para ser adjudicatarias.
+(Así reformado el inciso anterior, por el artículo 1 aparte a) punto 22) de la Ley N° 8643 del 30 de junio de 2008).
+3.- El recurso de apelación deberá resolverse dentro de los cuarenta días hábiles siguientes al auto inicial de traslado. Este plazo podrá prorrogarse mediante resolución motivada hasta por otros quince días hábiles, en casos muy calificados, cuando se necesite recabar prueba pericial especialmente importante para resolver el recurso, y que por la complejidad no pueda ser rendida dentro del plazo normal de resolución. Vencido el plazo para resolver o su prórroga sin dictarse la resolución final, automáticamente se tendrá por confirmado el acto de adjudicación recurrido
+4.- La readjudicación también podrá ser recurrida cuando las causas de la inconformidad hayan surgido del motivo que fundamentó el acto de readjudicación.
+5.- La resolución final o el auto que ponga término al recurso dará por agotada la vía administrativa. Dentro de los tres días hábiles posteriores a la comunicación, el interesado podrá impugnar el acto final sin efectos suspensivos, ante el Tribunal Superior Contencioso- Administrativo, por medio del proceso especial dispuesto en los artículos 89 y 90 de la Ley Reguladora de la Jurisdicción Contencioso- Administrativa.

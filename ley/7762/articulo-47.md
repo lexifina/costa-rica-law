@@ -1,17 +1,7 @@
-ARTÍCULO 47.- Financiamiento por endeudamiento
-1.- El concesionario podrá realizar cualquier operación financiera
-sin necesidad de autorización de la Administración concedente, con las
-excepciones estipuladas en esta ley y el contrato de concesión.
-2.- El concesionario podrá fideicometer, gravar de cualquier manera
-o dar en garantía los ingresos que resulten de la explotación de la
-concesión, así como toda contraprestación económica ofrecida por la
-Administración concedente bajo los términos y las condiciones establecidos
-en el contrato de concesión, todo para garantizar las obligaciones
-derivadas de las operaciones financieras necesarias para ejecutar el
-contrato de concesión.
-3.- El endeudamiento máximo al que podrá recurrir el concesionario se
-fijará en el cartel de la licitación respectivo.
-4.- Cuando el concesionario vaya a realizar una operación de
-endeudamiento, en cualquiera de sus formas, deberá comunicarlo previamente
-a la Administración concedente. La omisión de esta comunicación se
-considerará falta grave.
+Artículo 47.- Financiamiento por endeudamiento
+1.- El concesionario podrá realizar cualquier operación financiera sin necesidad de autorización de la Administración concedente, con las excepciones estipuladas en esta ley y el contrato de concesión.
+2.- El concesionario podrá fideicometer, gravar de cualquier manera o dar en garantía los ingresos que resulten de la explotación de la concesión, así como toda contraprestación económica ofrecida por la Administración concedente bajo los términos y las condiciones establecidos en el contrato de concesión, todo para garantizar las obligaciones derivadas de las operaciones financieras necesarias para ejecutar el contrato de concesión.
+3.- El endeudamiento máximo al que podrá recurrir el concesionario se fijará en el cartel de la licitación respectivo, pero no podrá ser superior al ochenta por ciento (80%) del valor del gasto total proyectado para construir la obra y, una vez concluida, para la explotación del servicio de la obra y sus servicios.
+(Así reformado el inciso anterior, por el artículo 1° aparte a) punto 30) de la Ley N° 8643 del 30 de junio de 2008).
+4.- Cuando el concesionario realice una operación de endeudamiento, en cualquiera de sus formas, deberá comunicarlo previamente a la administración concedente. La omisión de esta comunicación se considerará falta grave. En todo caso, el endeudamiento no reportado no se considerará para efectos tarifarios ni para ningún beneficio que pudiera corresponder a esos acreedores según esta Ley.
+(Así reformado el inciso anterior, por el artículo 1° aparte a) punto 30) de la Ley N° 8643 del 30 de junio de 2008).

@@ -1,19 +1,6 @@
-ARTÍCULO 48.- Nuevas inversiones
-1.- Por acuerdo entre el concesionario y la Administración concedente
-o decisión unilateral de esta, motivada en razones de interés público,
-podrán modificarse las características de las obras y los servicios
-contratados; se compensará al concesionario con las indemnizaciones
-necesarias en caso de perjuicio. Previa aprobación de la Contraloría
-General de la República, las indemnizaciones serán fijadas por acuerdo
-mutuo entre las partes y, a falta de acuerdo, se recurrirá a la cláusula
-arbitral prevista en el contrato. La indemnización podrá expresarse en el
-plazo de la concesión, las tarifas, los aportes de la Administración
-concedente o cualquier otro régimen económico de la concesión, para lo
-cual podrán utilizarse uno o más factores a la vez.
-2.- El cartel fijará el monto máximo de la inversión que el
-concesionario puede estar obligado a realizar en virtud de lo dispuesto en
-el párrafo precedente; asimismo, el plazo máximo dentro del cual la
-Administración concedente podrá ordenar la modificación de las obras. En
-ningún caso, las modificaciones podrán exceder del veinticinco por ciento
-(25%) del monto total de la inversión inicial del concesionario, según el
-contrato de concesión.
+Artículo 48.- Nuevas inversiones
+1.- Por acuerdo entre el concesionario y la Administración concedente o decisión unilateral de esta, motivada en razones de interés público, podrán modificarse las características de las obras y los servicios contratados; se compensará al concesionario con las indemnizaciones necesarias en caso de perjuicio. Previa aprobación de la Contraloría General de la República, las indemnizaciones serán fijadas por acuerdo mutuo entre las partes y, a falta de acuerdo, se recurrirá a la cláusula arbitral prevista en el contrato. La indemnización podrá expresarse en el plazo de la concesión, las tarifas, los aportes de la Administración concedente o cualquier otro régimen económico de la concesión, para lo cual podrán utilizarse uno o más factores a la vez.
+2.- El cartel fijará el monto máximo de la inversión que el concesionario puede estar obligado a realizar en virtud de lo dispuesto en el párrafo precedente; asimismo, el plazo máximo dentro del cual la Administración concedente podrá ordenar la modificación de las obras. En ningún caso, las modificaciones podrán exceder del veinticinco por ciento (25%) del monto total de la inversión inicial del concesionario, según el contrato de concesión.
+3) El cartel de licitación deberá definir los niveles de servicio a ser cumplidos por el concesionario durante todo el período de vigencia de la concesión. No obstante, si durante la vigencia de la concesión, la obra resulta insuficiente para la prestación del servicio en los niveles definidos en el cartel de licitación y en el contrato de concesión y, por iniciativa de la Administración en casos excepcionales donde medie un interés público razonado, se considera conveniente su ampliación o mejoramiento, se procederá a suscribir un convenio complementario al referido contrato de concesión, cuando las obras sean consustanciales a las concesionadas. Este convenio requerirá la autorización previa de la Contraloría General de la República y establecerá las condiciones particulares a las que debe sujetarse la realización de las obras y su repercusión en el régimen de tarifas, en cualquier otro factor del régimen económico, en el plazo de la concesión o en uno o varios de esos factores a la vez. Sin perjuicio de lo anterior, en el cartel de licitación y en el contrato de concesión podrán contemplarse los mecanismos para determinar el costo de las obras adicionales y las mejoras por realizar, así como los mecanismos de compensación que podrán o deberán ser utilizados, salvo si en el cartel y/o el contrato están expresamente indicados estos mecanismos. Las condiciones del convenio deberán ser acordadas por ambas partes.
+De requerirse una modificación de la estructura tarifaria, antes de que sea acordada deberá ser aprobada por la Autoridad Reguladora de los Servicios Públicos (Aresep), de conformidad con el artículo 21.2 de esta Ley.
+(Así reformado el inciso 3) por el artículo 1° aparte b) punto 16) de la Ley N° 8643 del 30 de junio de 2008).
