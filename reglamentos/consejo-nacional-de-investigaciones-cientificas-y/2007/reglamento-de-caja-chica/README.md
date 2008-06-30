@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-21 | la propia norma |
+| 2 | 2008-06-30 | Reglamento 1877 (2008-06-30) |

@@ -6,5 +6,6 @@ b. Suma solicitada en números y letras.
 c. Especificar el tipo de bien o servicio que se va a adquirir.
 d. Firmado por la persona autorizada.
 e. Firmado y sellado por el encargado(a) de presupuesto.
-f. Firmado por la tesorería, quien ejecutará la transacción.
+f. Firmado por el Encargado (a) de la Caja Chica , quien ejecutará la transacción.
+( Así reformado el ininciso anterior mediante sesión N° 1877 de 30 junio del 2008)
 g. Firmado por el que recibe el dinero.
