@@ -1,3 +1,0 @@
-Articulo 8° —Ampliación de plazos:
-En casos muy calificados a criterio razonado y por escrito del nivel resolutivo que corresponde según el artículo 3 de este Reglamento y con fundamento en los estudios técnicos correspondientes, el Banco podrá ampliar el plazo origina! del crédito hasta por la suma que permita que la nueva cuota no sea inferior en un 30% a la cuota vigente en el momento de solicitar el arreglo de pago. En casos muy calificados, a criterio razonado y por escrito de dicho nivel se podrán aceptar cuotas interiores, en donde el criterio técnico determine la suma a amortizar.
-Dicha resolución estará a cargo del nivel inmediato superior al indicado en el párrafo primero de este articulo.

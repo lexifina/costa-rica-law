@@ -1,2 +1,0 @@
-Artículo 23.—Arreglos de pago en situaciones excepcionales:
-En casos muy calificados, la Junta Directiva Nacional podrá emitir disposiciones para arreglos de pago en condiciones diferentes a las establecidas en este Reglamento, cuando medien circunstancias de fuerza mayor, caso fortuito o por emergencia nacional declarada por la autoridad competente, para lo cual deberá existir el criterio técnico correspondiente que justifique tales circunstancias.

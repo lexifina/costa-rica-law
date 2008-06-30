@@ -1,2 +1,0 @@
-Artículo 21.—Posibilidad de nuevos arreglos de pago:
-De incumplirse un arreglo de pago efectuado bajo cualquiera de las modalidades indicadas en este Reglamento, se permitirá un segundo arreglo en casos muy calificados a juicio razonado por escrito del nivel resolutivo y con la debida justificación del cliente. En casos muy excepcionales podrá autorizarse un ultimo arreglo de pago. para lo cual deberán cumplirse las condiciones mencionadas.

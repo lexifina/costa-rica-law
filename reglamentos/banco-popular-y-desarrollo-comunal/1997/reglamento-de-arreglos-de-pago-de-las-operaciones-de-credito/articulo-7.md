@@ -1,3 +1,0 @@
-Artículo 7°—Dación en pago:
-En rasos muy calificados a criterio razonado y por escrito del nivel resolutivo correspondiente, el Banco y el cliente podrán convenir la dación de pago del bien que constituye la garantía de la operación de crédito u otro Bien de fácil liquidez que satisfaga los intereses del Banco, ya sea para la cancelación total o para efectuar un arreglo de pago de la deuda. En caso de efectuarse un arreglo de pago, en cuanto al saldo al descubierto se procederá conforme a los artículos 4 ó 5 de este Reglamento y se deberá garantizar a satisfacción del Banco.
-En cuanto al avalúo se procederá conforme a 3o indicado en el párrafo final del artículo anterior.

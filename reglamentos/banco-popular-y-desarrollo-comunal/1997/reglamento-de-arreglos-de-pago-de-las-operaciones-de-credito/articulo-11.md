@@ -1,2 +1,0 @@
-Artículo 11—Compromiso de pago en operaciones en trámite de cobro administrativo:
-En operaciones morosas que no tengan presentada la demanda, el Banco podrá aceptar pagos parciales, los cuales ,se aplicarán a intereses por los días que correspondan y la techa de último pago se trasladará hasta los días que el pago cubra el rubro de intereses, mediante el compromiso del cliente de normalizar la deuda en el plazo que al efecto se convenga.

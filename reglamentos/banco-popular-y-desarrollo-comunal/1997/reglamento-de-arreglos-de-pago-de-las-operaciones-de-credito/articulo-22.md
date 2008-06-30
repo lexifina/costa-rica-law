@@ -1,2 +1,0 @@
-Artículo 22.—Formalización de arreglos de pago:
-Tanto la solicitud como el arreglo de pago que se pretenda realizar o que se efectué bajo cualquiera de las modalidades establecidas en este Reglamento, deberá formalizarse mediante documento, en el que debe constar necesariamente fa firma de la persona(s) que realiza(n) el arreglo de pago, así como el reconocimiento y renuncia de los intereses prescritos.

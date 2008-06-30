@@ -1,3 +1,0 @@
-Artículo 14.—Concesión de períodos de gracia y prórrogas:
-El Banco podrá otorgar prórrogas sin pago de intereses o períodos de gracia por un plazo máximo de 3 meses cuando se determine con fundamento en los estudios técnicos correspondientes y a criterio razonado y por escrito del nivel resolutivo señalado en el artículo 3 de este Reglamento. que las condiciones financieras del cliente impidan el pago de las cuotas establecidas, con el compromiso de que transcurrido el plazo otorgado se cubra los intereses y cuotas de amortización vencidas en la forma que al efecto se establezca.
-El plazo indicado podrá ser prorrogado por una única vez por un período de tiempo igual.

@@ -1,2 +1,0 @@
-Artículo 24.—Derogatoria de otras disposiciones:
-Este reglamentó deroga los acuerdos tomados, en sesiones de Junta Directiva Nacional 2706 del 21 de abril de 1992, 3150 del 3 de octubre de 1995 y el inciso c) del artículo 27 del Reglamento de Contratación de Abogados Externos para el Cobro Judicial y Servicios Notariales, así como cualquier otra disposición emitida por el Banco sobre arreglos de pago de operaciones de crédito y cualquier otra que se oponga.
