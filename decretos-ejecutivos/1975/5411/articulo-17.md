@@ -1,1 +1,0 @@
-Artículo 17.-Facúltase a la OFIPLAN para dictar las normas complementarias referentes a presentación y trámites de presupuestos y proyectos de inversión, en coordinación con la Contraloría General de la República cuando así corresponda.

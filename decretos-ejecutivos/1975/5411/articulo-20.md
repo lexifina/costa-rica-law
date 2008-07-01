@@ -1,1 +1,0 @@
-Artículo 20.-Los plazos establecidos en los artículos 18 y 19 anteriores, se ampliarán en 30 días cuando se traten de programas y proyectos que no hayan sí do previamente evaluados por la OFIPLAN, conforme lo que al efecto dispone el artículo 21 de este Reglamento.

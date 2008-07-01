@@ -1,1 +1,0 @@
-Articulo 7°-El Director de la División de Inversiones de la OFIPLAN deberá asistir a las sesiones del Consejo de Coordinación Interinstitucional cuando se traten asuntos relacionados con las Inversiones Públicas.

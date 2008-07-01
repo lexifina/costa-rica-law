@@ -1,1 +1,0 @@
-Artículo 23.-El documento mencionado .en el artículo anterior será sometido a consideración del Consejo Nacional de Inversiones Públicas y a conocimiento del Consejo de Coordinación Interinstitucional, por conducto de la Dirección de la Oficina de Planificación Nacional y Política Económica.
