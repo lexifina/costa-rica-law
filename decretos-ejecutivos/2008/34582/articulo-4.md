@@ -1,0 +1,3 @@
+Artículo 4º—Rectorías. Entiéndase por rectoría la potestad que tiene el Presidente de la República conjuntamente con el ministro del ramo para definir y conducir las estrategias y las políticas públicas de cada sector y asegurarse que éstas sean cumplidas.
+Para lograr esto, el Poder Ejecutivo deberá coordinar, dar seguimiento y evaluar los resultados de las diferentes actividades que realicen las instituciones de cada sector para ejecutar las políticas públicas sectoriales.
+En determinadas materias de especial interés para el Estado, como salud, educación y seguridad pública, la rectoría del Poder Ejecutivo, como forma de acción estatal, puede extenderse al ámbito privado de conformidad con la ley.

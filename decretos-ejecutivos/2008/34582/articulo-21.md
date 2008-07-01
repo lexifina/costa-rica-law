@@ -1,0 +1,8 @@
+Artículo 21.—Operaciones. Para el desempeño de sus funciones, los Consejos Sectoriales actuarán conforme las siguientes condiciones:
+a) Los Consejos Sectoriales celebrarán sesiones ordinariamente al menos una vez cada cuatro meses y extraordinariamente cuando sea convocado por el respectivo Ministro Rector. El Ministro Rector será sustituido en sus ausencias por el respectivo Viceministro.
+Cuando exista más de un Ministro Rector por sector, por acuerdo decidirán quién convoca.
+b) Las convocatorias las hará el Ministro Rector por medio de la Secretaría Sectorial, las cuales deberán hacerse por escrito, especificando el orden del día.
+c) El Ministro Rector recurrirá a la Secretaria Sectorial cuando requiera cualquier documentación relacionada con los acuerdos, resoluciones, planes o programas del Consejo Sectorial.
+d) Las sesiones del Consejo serán privadas, pero, cuando se considere pertinente, podrá autorizarse la participación de ciudadanos, asesores, colaboradores o especialistas en temas de interés para el Consejo.
+e) De cada sesión ordinaria o extraordinaria, se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, los resultados y el contenido de los acuerdos.
+f) Los órganos y entes de cada sector deberán presentar al Ministro Rector un informe anual sobre los resultados de ejecución de los acuerdos tomados por el Consejo. El Ministro Rector, a su vez, presentará al Presidente de la República el informe consolidado, comentado y analizado de su sector.

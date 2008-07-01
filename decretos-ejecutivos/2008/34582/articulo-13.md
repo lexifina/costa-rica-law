@@ -1,0 +1,1 @@
+Artículo 13.—Organización interna de cada Ministerio. La organización interna de cada Ministerio se determinará por reglamento que dicte el Poder Ejecutivo, dentro del marco de las respectivas competencias legales.

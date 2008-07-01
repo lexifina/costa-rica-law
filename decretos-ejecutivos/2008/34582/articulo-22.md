@@ -1,0 +1,1 @@
+Artículo 22.—Consejos Sectoriales con actividades intersectoriales. Los Consejos Sectoriales serán ampliados con la presencia de los Ministros Rectores de otros sectores y de los representantes de los órganos y entes de esos otros sectores, cuando sea necesaria la coordinación intersectorial para la ejecución de planes y programas nacionales, provinciales o cantonales.
