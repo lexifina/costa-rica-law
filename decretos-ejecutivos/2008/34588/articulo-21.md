@@ -1,0 +1,1 @@
+Artículo 21.—Valoración de la prueba. Las pruebas se valorarán de forma objetiva, con amplitud de criterio, de acuerdo con los principios de la sana crítica racional, así como los principios contenidos en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

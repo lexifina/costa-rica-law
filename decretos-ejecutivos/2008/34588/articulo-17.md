@@ -1,0 +1,1 @@
+Artículo 17.—Ampliación de la denuncia. Cuando lo estime conveniente el Director General o el Ministro de Justicia podrá solicitar la comparecencia del denunciante para que aclare o amplíe el contenido de su denuncia.

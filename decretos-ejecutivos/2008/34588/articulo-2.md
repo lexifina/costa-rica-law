@@ -1,0 +1,1 @@
+Artículo 2º—Competencia subjetiva. El presente reglamento regirá para todos los servidores del Registro Nacional en sus relaciones de empleo, sean estos regulares o interinos, según las definiciones establecidas en el artículo 3.
