@@ -15,3 +15,4 @@ Promueve la excelencia higiénicosanitaria de las playas y comunidades, mediante
 | --- | --- | --- |
 | 1 | 2004-03-09 | la propia norma |
 | 2 | 2007-01-31 | Decreto Ejecutivo 33604 (2007-01-31) |
+| 3 | 2008-07-01 | Decreto Ejecutivo 34777 (2008-07-01) |
