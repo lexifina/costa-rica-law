@@ -12,4 +12,5 @@ Considerando:
 7º—Que la señora Ministra Rectora del Sector Cultura, mediante el oficio DM-024-08 de 10 de enero del año en curso, avala la solicitud planteada por el Museo Nacional.
 8º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo Nacional para el año 2008, incrementándolo en la suma de ¢78.000.000,00 (setenta y ocho millones sin céntimos). Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Museo Nacional, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34177-H, publicado en La Gaceta Nº 17 de 24 de enero de 2008, quedando el gasto presupuestario máximo en la suma de ¢1.155.548.542,00 colones (mil ciento cincuenta y cinco millones quinientos cuarenta y ocho mil quinientos cuarenta y dos colones sin céntimos) para ese período.
+Artículo 1º—Modifícase para el Museo Nacional, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34177-H, publicado en La Gaceta Nº 17 de 24 de enero de 2008, quedando el gasto presupuestario máximo en la suma de ¢1.171.043.542,00 colones (mil ciento setenta y un millones cuarenta y tres mil quinientos cuarenta y dos colones sin céntimos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34632 del 01 de julio del 2008).
