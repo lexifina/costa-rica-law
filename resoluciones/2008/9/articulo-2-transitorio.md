@@ -1,0 +1,2 @@
+Transitorio II. Las relaciones de hechos y las denuncias penales cuyo trámite haya sido iniciado por las auditorías internas con anterioridad a la fecha de vigencia de las presentes directrices podrán continuar el proceso respectivo, pero se recomienda ajustar los procedimientos si el trámite empieza con posterioridad a la fecha de publicación en el Diario Oficial “La Gaceta”.
+Publíquese.—San José, 04 de marzo del 2008.

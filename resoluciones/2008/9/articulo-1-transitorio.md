@@ -1,0 +1,1 @@
+Transitorio I. A partir de la fecha de publicación de las presentes directrices en el Diario Oficial La Gaceta y hasta su fecha de entrada en vigencia, las auditorías internas procederán a ajustar sus procedimientos y su normativa interna para conformar su gestión a lo aquí regulado.
