@@ -16,3 +16,4 @@ Modifica para el Museo Nacional de Costa Rica, el gasto presupuestario máximo p
 | 1 | 2007-12-11 | la propia norma |
 | 2 | 2007-12-11 | Decreto Ejecutivo 34177 (2007-12-05) |
 | 3 | 2008-03-31 | Decreto Ejecutivo 34472 (2008-03-31) |
+| 4 | 2008-07-01 | Decreto Ejecutivo 34632 (2008-07-01) |
