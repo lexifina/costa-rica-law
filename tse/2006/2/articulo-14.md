@@ -1,2 +1,2 @@
-Artículo 14.—De la aprobación del proceso del concurso. Concluido el proceso del concurso, la unidad responsable presentará a la Secretaría del Tribunal el informe sobre todo lo actuado, el expediente, completo y la lista de los primeros diez elegibles para la conformación de la terna.
-Luego de que el señor Secretario ha conformado la terna, la someterá conjuntamente con el expediente del concurso a conocimiento del Tribunal para su aprobación o improbación.
+Artículo 14.—De la aprobación del proceso del concurso. Concluido el proceso del concurso, la unidad responsable presentará al Tribunal el informe sobre todo lo actuado, el expediente completo y la terna correspondiente para su aprobación o improbación.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 03 del 1° de julio de 2008).
