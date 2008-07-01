@@ -14,3 +14,4 @@ Reglamento Especial que Regula el Procedimiento de exoneración para la Administ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-18 | la propia norma |
+| 2 | 2008-07-01 | Acuerdo 40 (2008-07-01) |
