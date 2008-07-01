@@ -16,5 +16,5 @@ Considerando:
 11.—Que la señora Ministra Rectora a. í. del Sector Cultural, mediante el oficio DM-1504-07 de 2 de noviembre del año en curso, avala la solicitud planteada por el Museo Nacional de Costa Rica.
 12.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo Nacional de Costa Rica para el año 2008, incrementándolo en la suma de ¢78.987.842,00 (setenta y ocho millones novecientos ochenta y siete mil ochocientos cuarenta y dos colones sin céntimos). Por tanto,
 DECRETAN:
-Artículo 1º— Modifícase para el Museo Nacional, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34092-H, quedando el gasto presupuestario máximo en la suma de ¢1.155.548.542,00 colones (mil ciento cincuenta y cinco millones quinientos cuarenta y ocho mil quinientos cuarenta y dos colones sin céntimos) para ese período.
-(Así reformado el monto anterior, mediante artículo 1° del decreto ejecutivo N° 34472 del 31 de marzo del 2008).
+Artículo 1º— Modifícase para el Museo Nacional, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34092-H, quedando el gasto presupuestario máximo en la suma de ¢1.171.043.542,00 colones (mil ciento setenta y un millones cuarenta y tres mil quinientos cuarenta y dos colones sin céntimos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34632 del 01 de julio del 2008).
