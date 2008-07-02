@@ -1,0 +1,6 @@
+CAPÍTULO III
+Del personal de la Auditoría Interna
+Artículo 17.—Del personal de la auditoría Interna. En relación al personal de la auditoría, el Auditor Interno tendrá las siguientes potestades:
+a. Autorizar movimientos de personal (nombramiento, traslado, la suspensión, remoción, concesión de licencias y otros) en la Auditoría Interna de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno y demás normas aplicables.
+b. Gestionar oportunamente lo relativo a las plazas vacantes de la unidad a su cargo.
+c. Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (Institucionales y de la auditoría interna) que les sean aplicables.

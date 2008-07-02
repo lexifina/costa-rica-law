@@ -1,0 +1,1 @@
+Artículo 31.—Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría interna y para el resto de los funcionarios de la Administración Activa en la materia que les resulte aplicable.
