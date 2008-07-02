@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE ESPARZA
+EL CONCEJO MUNICIPAL DE ESPARZA ACUERDA:
+En acta cero seis de sesión ordinaria, artículo siete del capítulo tercero efectuada el lunes nueve de junio de dos mil ocho, modificar los siguientes artículos al Reglamento de Cobro Administrativo, Judicial y Extrajudicial de la Municipalidad de Esparza.
+“Artículo 9º—Plazo del arreglo de pago. El tiempo máximo que se concede en los arreglos de pago para cancelar la deuda morosa no excederá los doce meses, contados a partir de la firma del documento de formalización de dicho convenio.
+Cuando se trate de instituciones sin fines de lucro, el Concejo Municipal mediante acuerdo definitivamente aprobado, podrá ampliar el plazo hasta un máximo de veinticuatro meses.
+Artículo 10.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte del Encargado de Gestión Tributaria y en su ausencia por la Dirección Administrativa y Financiera, bajo el cumplimiento de las siguientes condiciones:
+a. El solicitante deberá cancelar un pago inicial del 30% del monto adeudado, quedando facultada dicha Dirección para autorizar pagos iniciales con un mínimo del 15% de la deuda, en casos de extrema dificultad para contribuyente para hacer frente al porcentaje inicialmente señalado.
+b. En caso de incumplimiento de las condiciones en que fue otorgado el Arreglo de Pago, el Encargado de Cobros procederá a comunicarlo al Encargado de Gestión Tributaria o a la Dirección Administrativa y Financiera en ausencia de éste, y a efectuar la tramitación pertinente del caso para su remisión al trámite de cobro judicial.”
+“Artículo 12.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente ante el pago total que realice el sujeto pasivo de la cuenta morosa o cuando se haya retrasado quince días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.”
