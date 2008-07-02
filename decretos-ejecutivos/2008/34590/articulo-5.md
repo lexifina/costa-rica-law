@@ -1,0 +1,8 @@
+Artículo 5º—El CIMACO tendrá las siguientes funciones:
+a. Brindar apoyo al cumplimiento de las disposiciones técnicas, científicas y las recomendaciones o normas para la conservación, uso y manejo sostenible y responsable de los recursos naturales y la biodiversidad en el Refugio Nacional de Vida Silvestre Ostional y su área de influencia.
+b. Participar activamente en el diseño, gestión y seguimiento de las actividades y políticas para el manejo del Refugio Nacional de Vida Silvestre Ostional.
+c. Recomendar al Área de Conservación Tempisque, la aprobación de los diferentes planes de acción que se requieran para los fines de investigación, educación, protección, control y el aprovechamiento sostenible de los recursos naturales.
+d. Velar por el adecuado funcionamiento y calidad de los servicios que se presten en el Refugio Nacional de Vida Silvestre Ostional.
+e. Colaborar con la aplicación de las normas básicas de conservación, uso y manejo sostenible y responsable de los recursos naturales, así como aspectos que la Administración del Refugio Nacional de Vida Silvestre Ostional requiera.
+f. Proponer y fomentar al Área de Conservación Tempisque y a la Administración del Refugio Nacional de Vida Silvestre Ostional, políticas para la conservación, uso y manejo responsable de los recursos naturales.
+g. Promover la generación de recursos y fondos para los fines que procura el Refugio Nacional de Vida Silvestre Ostional, a través de proyectos, donaciones, convenios y alianzas, entre otros, a través de las organizaciones aquí representadas. Los recursos generados estarán sometidos a la fiscalización de la Contraloría General de la República, los cuales serán administrados y depositados en el Fondo de Vida Silvestre.
