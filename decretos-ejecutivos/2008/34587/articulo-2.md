@@ -1,0 +1,1 @@
+Artículo 2º—Deber del Poder Ejecutivo. Es deber del Poder Ejecutivo vigilar por el buen funcionamiento de los servicios públicos que brindan sus dependencias administrativas y técnicas, de acuerdo con la competencia funcional que le asigna el artículo 140, inciso 8) de la Constitución Política.

@@ -1,0 +1,1 @@
+Artículo 23.—Las entidades públicas donde no opere ya una Contraloría de Servicios, tendrán un plazo de seis meses para crearlas, a partir de la publicación de este Decreto. Sino tienen plazas deben incluirlas en el presupuesto extraordinaria del 2008 o en presupuesto del 2009.
