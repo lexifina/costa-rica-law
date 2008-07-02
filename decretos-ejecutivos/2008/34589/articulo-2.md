@@ -1,0 +1,1 @@
+Artículo 2º—La actual sede del Museo de Formas, Espacios y Sonidos (MUFES), sea la Antigua Estación de Ferrocarril al Atlántico, será utilizada por el Museo de Arte Costarricense para el desarrollo de los objetivos propios de su creación. Para ello el Museo de Arte Costarricense coordinará lo pertinente con el Instituto Costarricense de Ferrocarriles.
