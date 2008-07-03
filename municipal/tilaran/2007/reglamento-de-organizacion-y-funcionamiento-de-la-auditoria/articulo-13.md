@@ -1,0 +1,2 @@
+Artículo 13.—Organización por procesos. La Auditoría Interna se organizará bajo el enfoque de administración de procesos para propósitos de garantizar la efectividad en el cumplimiento de sus competencias, así como una administración eficaz, eficiente y económica de sus recursos.
+Dichos procesos son: de Auditoria, de Seguimiento de Recomendaciones, de Servicios Preventivos, de Desarrollo y de Gestión Gerencial, los cuales se documentarán en el Manual de Procesos de la Auditoría Interna.

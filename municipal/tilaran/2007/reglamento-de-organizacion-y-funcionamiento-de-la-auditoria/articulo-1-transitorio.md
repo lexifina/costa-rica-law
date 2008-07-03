@@ -1,0 +1,3 @@
+Transitorio único.—La Auditoría Interna dispondrá de un plazo de dos meses contados a partir de la publicación de este Reglamento para concordar sus políticas y procedimientos con las regulaciones contempladas en este cuerpo normativo.
+El acta de la sesión ordinaria número 75 y el acuerdo municipal no. 823 del día 3 de octubre de 2007, quedó definitivamente aprobada en la sesión ordinaria Nº 76, celebrada el día 10 de octubre de 2007.
+Mediante el oficio No. 14053, DAGJ-1519-2007 de fecha 26 de noviembre de 2007, la Contraloría General de la República, aprobó el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Tilarán.
