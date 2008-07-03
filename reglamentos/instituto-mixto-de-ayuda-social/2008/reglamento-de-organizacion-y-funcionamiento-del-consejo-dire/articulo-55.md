@@ -1,0 +1,1 @@
+Artículo 55.—De las observaciones formales: Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán considerados para efectos del inciso anterior como recurso de revisión, y su trámite se seguirá conforme con la discusión normal del contenido del acta.
