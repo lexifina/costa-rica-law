@@ -1,0 +1,1 @@
+Artículo 30.—Obtención de información de relevancia tributaria. En el ejercicio de su función de fiscalización, el Área de Gestión Tributaria podrá fiscalizar la situación tributaria de un sujeto, obteniendo información de oficinas públicas, terceros relacionados o por la recepción de denuncias escritas o anónimas, orientadas a dar información de relevancia tributaria.

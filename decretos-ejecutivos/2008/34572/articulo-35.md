@@ -1,0 +1,1 @@
+Artículo 35.—Competencia del recurso de apelación y plazo de resolución. El Director Ejecutivo resolverá el Recurso de Apelación dentro del plazo de diez días hábiles luego de recibida la documentación correspondiente.

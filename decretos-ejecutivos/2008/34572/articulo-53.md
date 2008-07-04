@@ -1,0 +1,1 @@
+Artículo 53.—Ejecución de la orden de cierre. La clausura podrá ser ejecutada a cualquier hora del día, pero de preferencia se efectuará en horas en que hubiere el menor número de personas dentro del establecimiento.

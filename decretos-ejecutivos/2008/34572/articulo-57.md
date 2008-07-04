@@ -1,0 +1,2 @@
+Artículo 57.—Se crea un artículo 138 bis al Decreto No 21858-MAG, del 11 de Marzo de 1993 y sus reformas, que dirá lo siguiente:
+“Artículo 138 bis.—Los días quince (15) y último de cada mes, el Departamento de Cuarentena Animal remitirá, al Área de Gestión Tributaria de la Corporación Ganadera, todas las solicitudes de autorización de Importación de Carne Bovina fresca o congelada, realizadas en los quince días inmediatos anteriores del día de entrega.”

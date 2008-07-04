@@ -1,0 +1,1 @@
+Artículo 55.—No responsabilidad del daño con ocasión del cierre. No incurren en responsabilidad, ni el Estado ni los ejecutores, por los perjuicios económicos que se le ocasione al contribuyente, en virtud de incurrir en cualquiera de las causales que dan razón para efectuar el cierre de negocios de conformidad con lo establecido en el presente Reglamento.

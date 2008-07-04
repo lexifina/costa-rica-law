@@ -1,0 +1,2 @@
+Artículo 52.—Resguardo de cosas perecederas y animales vivos. Si dentro del matadero que debe ser clausurado se encuentran mercancías de fácil descomposición, canales sin ser retiradas, cuero o vísceras o cualquier otro, se ordenará al dueño, gerente o administrador que las coloque en un lugar apropiado, para que no sufran perjuicio. En caso de negativa, la pérdida será atribuible al propietario del negocio.
+Si se encuentran animales vivos dentro del local, estos serán puestos a disposición del interesado.

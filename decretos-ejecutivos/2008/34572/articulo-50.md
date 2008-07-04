@@ -1,0 +1,5 @@
+Artículo 50.—Prevención y orden de cierre. Recibida la solicitud de cierre, el Ministerio de Agricultura y Ganadería procederá a hacer una prevención de cierre al infractor. En dicha resolución consignará los motivos dados por la Corporación para proceder con el cierre del negocio y, concederá al administrado un plazo de cinco días hábiles para que cancele lo adeudado.
+Cuando el responsable de la recaudación del tributo presente pruebas de descargo, éstas serán puestas en conocimiento del Área de Gestión Tributaria de CORFOGA por el plazo de tres días hábiles, después se dictará la resolución razonada que corresponda.
+Transcurrido el plazo concedido, sin que se haya constatado el pago, el Ministerio procederá a emitir la orden de cierre de conformidad con lo dispuesto en el artículo 48 de este Reglamento.
+La anterior resolución de cierre del negocio será notificada al administrador, al gerente o cualquier empleado mayor de quince años en el establecimiento.
+Contra la resolución que ordena el cierre del negocio, se puede interponer el recurso de reposición para ante el Ministro de Agricultura y Ganadería.

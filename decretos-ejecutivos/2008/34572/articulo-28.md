@@ -1,0 +1,1 @@
+Artículo 28.—Información de relevancia tributaria. En el ejercicio de su función de fiscalización, el Área de Gestión Tributaria podrá solicitar, al respectivo sujeto pasivo, todo lo relativo a documentos y antecedentes de operaciones y situaciones que constituyan hechos gravados.

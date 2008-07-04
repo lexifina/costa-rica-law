@@ -1,0 +1,1 @@
+Artículo 11.—Presentación de la Autoliquidación y Pago. La autoliquidación y el pago deberán realizarse dentro del término previsto en la Ley y este Reglamento en las oficinas de la Administración Tributaria o en las Agencias Bancarias de los Bancos del Sistema Bancario Nacional debidamente autorizadas para estos efectos.

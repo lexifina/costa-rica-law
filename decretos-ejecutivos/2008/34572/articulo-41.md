@@ -1,0 +1,1 @@
+Artículo 41.—Certificaciones. Vencido el término del requerimiento de pago sin que el deudor se presentara a arreglar su deuda, el Director Ejecutivo expedirá certificación del adeudo tributario donde mencionará el nombre e identificación del sujeto pasivo al que se le determinó la obligación tributaria dejada de pagar, el tributo dejado de pagar y sus intereses.

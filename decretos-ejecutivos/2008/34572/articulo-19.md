@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Principios generales de los procedimientos
+tributarios de CORFOGA
+Artículo 19.—Objeto de la Gestión Tributaria. CORFOGA, como Administración Tributaria de los tributos establecidos en el artículo 7 de la Ley Nº 7837 del 5 de octubre de 1998, Ley de Creación de Corporación Ganadera, ejecutará sus funciones en este campo a través de la materialización de todas las diligencias, acciones y actuaciones orientadas a asegurar el cumplimiento voluntario como norma general o forzoso por parte de los sujetos pasivos, hasta la efectiva contabilización, acreditación y cobro de la citada contribución o su archivo en los términos previstos en la Ley y este Reglamento. En ese sentido, deberá implementar y ejecutar todos los mecanismos de control, supervisión, coordinación y planificación necesarios a fin de lograr esa atribución legal.

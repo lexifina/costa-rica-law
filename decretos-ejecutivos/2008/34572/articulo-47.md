@@ -1,0 +1,2 @@
+Artículo 47.—De la suspensión y terminación del juicio. Planteada la solicitud de arreglo de pago, la Administración podrá suspender la ejecución del proceso, salvo que exista embargo practicado, en cuyo caso, la suspensión no podrá exceder el término de dos meses.
+Acordado el arreglo de pago, suscrita la garantía, efectuado el pago de la prima prevista en este reglamento, y canceladas las costas personales y procesales del proceso ejecutivo, se terminará la ejecución judicial de la deuda.
