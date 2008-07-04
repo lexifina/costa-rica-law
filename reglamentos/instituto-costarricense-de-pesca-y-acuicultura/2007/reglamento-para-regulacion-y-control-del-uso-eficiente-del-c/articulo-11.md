@@ -1,3 +1,3 @@
-Artículo 11.—Si por alguna razón la orden de compra fue emitida por el INCOPESCA y posteriormente el beneficiario se vea imposibilitado para adquirir el combustible, éste deberá presentar antes del vencimiento de dicha orden, la justificación escrita y solicitar su anulación ante el DCAC.
-El DCAC hará constar dicha situación y procederá a emitirla una vez que el (la) interesado (a) así lo solicite, en las mismas condiciones.
-De no procederse de esta manera la orden por ningún motivo podrá ser emitida nuevamente ni revalidada y caducará de pleno derecho.
+Artículo 11.—En aquellos casos en donde se autorice un traspaso de la Licencia de Pesca, el INCOPESCA deberá emitir una Licencia de Pesca Comercial Temporal por el mismo plazo de autorización del traspaso y/o sus prórrogas, para efectos del beneficio del combustible a precio competitivo.
+Cuando un beneficiario cuente con una licencia temporal este podrá tramitar combustible ante el INCOPESCA con dicha licencia, para lo cual deberá cumplir con los requisitos establecidos en el presente reglamento.
+(Así reformado mediante acuerdo AJDIP/274 del 4 de julio de 2008)
