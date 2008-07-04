@@ -14,3 +14,4 @@ Suspender la implementación y vigencia del Acuerdo A.J.D.I.P/139-2008 sobre Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-19 | la propia norma |
+| 2 | 2008-07-04 | Acuerdo 275 (2008-07-04) |

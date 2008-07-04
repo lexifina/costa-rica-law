@@ -8,3 +8,4 @@ Considerando:
 5º—Que la implementación de las medidas establecidas en el Acuerdo A.J.D.I.P/139-2008, podrían tener efectos negativos respecto de posibles acciones legales contra el Instituto, incumplimiento de disposiciones a nivel de Organismos Internacionales y medidas técnicas de carácter sanitario, establecidas por autoridades competentes nacionales. Por tanto,
 La Junta Directiva, dispone:
 Artículo I.—Suspender la implementación y vigencia del Acuerdo A.J.D.I.P/139-2008, por un plazo de dos meses calendario, contados a partir de la publicación del presente acuerdo.
+(NOTA: Mediante el artículo 1° del acuerdo AJDIP/275 del 4 de julio de 2008, publicado en La Gaceta N° 144 del 25 de julio de 2008, se amplia el plazo establecido en este acuerdo a efectos de suspender la implementación y vigencia del Acuerdo A.J.D.I.P/139-2008, por un plazo de tres meses calendario contados a partir de la publicación del citado acuerdo)
