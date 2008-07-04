@@ -1,0 +1,1 @@
+Artículo 26.—Firma. Una vez aprobada el acta, el Secretario procederá a consignarla en el Libro de Actas, y será firmada por el Presidente y el Secretario dando fe de que la misma es fiel del documento aprobado por el Consejo Consultivo.

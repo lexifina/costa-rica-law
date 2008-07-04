@@ -1,0 +1,1 @@
+Artículo 27.—Publicidad de las actas. Las actas de sesión del Consejo Consultivo, una vez aprobadas por éste, son públicas de conformidad con lo dispuesto en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nº 8422.

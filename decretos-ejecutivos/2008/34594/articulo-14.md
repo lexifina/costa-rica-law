@@ -1,0 +1,4 @@
+Artículo 14.—De las sesiones extraordinarias. La convocatoria a sesiones extraordinarias deberá hacerse con una antelación mínima de veinticuatro horas.
+La convocatoria se acompañará con el orden del día, y únicamente podrán conocerse los asuntos que se indiquen en la convocatoria, salvo casos de urgencia.
+La convocatoria a sesiones extraordinarias será comunicada por escrito, o por cualquier medio de comunicación dejando constancia de recibo.
+No obstante lo establecido en los párrafos precedentes, el Consejo Consultivo sesionará válidamente, sin cumplir todos los requisitos formales referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros con derecho a voto y así lo acuerden por unanimidad.

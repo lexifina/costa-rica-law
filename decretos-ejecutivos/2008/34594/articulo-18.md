@@ -1,0 +1,2 @@
+Artículo 18.—Mociones. Las peticiones o propuestas que sometan a conocimiento los miembros del Consejo Consultivo se denominan mociones. Deberán presentarse por escrito. Serán conocidas y votadas en la sesión inmediata siguiente.
+Las mociones de orden han de referirse necesariamente a cuestiones de procedimiento y tendrán prioridad en la discusión. Se votarán y resolverán en forma inmediata y lo que se resuelva, carece de recurso alguno.
