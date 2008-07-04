@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE CORREDORES
+La Municipalidad de Corredores comunica a todos los vecinos del cantón, que a través del acuerdo Nº 4, acuerdo definitivamente aprobado en la sesión extraordinaria Nº 15, celebrada el día 19 de junio del 2008, el Concejo Municipal de Corredores acuerda adherirse al nuevo Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Diario Oficial La Gaceta Nº 78, del 23 de abril del 2008, en acatamiento de lo dispuesto en el artículo 12, de la Ley Sobre el Impuesto de los Bienes Inmuebles y el artículo 19 del Reglamento respectivo.
