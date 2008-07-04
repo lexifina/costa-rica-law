@@ -14,3 +14,4 @@ Disposiciones de regulación de circulación vehicular hora/placa en el centro d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-26 | la propia norma |
+| 2 | 2008-07-04 | Decreto Ejecutivo 34620 (2008-07-04) |
