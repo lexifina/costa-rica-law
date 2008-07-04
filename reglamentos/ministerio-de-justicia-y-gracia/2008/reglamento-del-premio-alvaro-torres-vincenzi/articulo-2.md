@@ -1,0 +1,1 @@
+Artículo 2º—El Premio consistirá en una medalla de oro y un pergamino que le entregará el Registro Nacional en ceremonia especial en fecha que determinará la Junta Administrativa y se otorgará cada dos años
