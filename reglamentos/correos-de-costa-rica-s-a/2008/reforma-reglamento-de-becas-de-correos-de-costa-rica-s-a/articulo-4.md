@@ -1,0 +1,1 @@
+Artículo 4º—El artículo 31, inciso a) para que en adelante después de la palabra “mínimo”, en la línea 4, y hasta cerrar el paréntesis en la línea 5, se lea como sigue: “un fiador (trabajador o no de la empresa, que tenga solvencia económica)...”
