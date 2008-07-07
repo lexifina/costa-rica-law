@@ -1,1 +1,0 @@
-Artículo 3°.- Queda facultado el personero legal del Estado con facultades para ello para comparecer ante uno de los notarios del Estado y suscribir la correspondiente escritura en favor del ITCO, así como las adicionales que fueren necesarias a fin de que las tierras incluidas en las disposiciones anteriores pasen a ser propiedad de dicho instituto en forma gratuita.
