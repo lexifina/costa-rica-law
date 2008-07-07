@@ -1,0 +1,2 @@
+Artículo 3º—Deróguense los artículos 82 y 84 y modifíquese el artículo 83 del Decreto Ejecutivo N° 32177-SP: Reglamento de Organización del Ministerio de Seguridad Pública, para que en adelante se lea así:
+“Artículo 83.—La labor de los (las) Subdirectores (as) Generales de la Fuerza Pública, se desarrollará las 24 horas del día, durante todos los días del año. Será ejercida por los funcionarios que designe el Ministro de Seguridad Pública, previo cumplimiento de los requisitos establecidos para el puesto.”
