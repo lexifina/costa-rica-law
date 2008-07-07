@@ -14,3 +14,4 @@ Sistema de selección alternativo a la licitación para la contratación de serv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-29 | la propia norma |
+| 2 | 2008-07-07 | Reglamento 0 (2008-07-07) |
