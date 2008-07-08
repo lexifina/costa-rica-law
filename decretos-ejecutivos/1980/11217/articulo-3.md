@@ -5,4 +5,5 @@ Artículo 3º—Los principales tipos de empresa de hospedaje turístico son:
 4. Pensiones,
 5. Albergues,
 6. Villas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33972 del 11 de julio del 2007)
+7. Posadas de turismo rural
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34717 del 8 de julio de 2008)
