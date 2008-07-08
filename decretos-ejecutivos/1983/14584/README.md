@@ -17,3 +17,4 @@ Reglamento de Defensa Sanitaria Animal
 | 2 | 1983-05-16 | SINALEVI (sin norma nombrada) |
 | 3 | 2001-02-05 | Decreto Ejecutivo 29285 (2001-02-05) |
 | 4 | 2002-12-09 | Decreto Ejecutivo 31105 (2002-12-09) |
+| 5 | 2008-07-08 | Decreto Ejecutivo 34669 (2008-07-08) |
