@@ -1,0 +1,18 @@
+Nº 34609-MSP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SEGURIDAD PÚBLICA
+Con fundamento en los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política; artículos 25, inciso 1) y 28, inciso 2), acápites a) y b) de la Ley General de la Administración Pública.
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 29144-MSP del 04 de diciembre de 2000 publicado en La Gaceta N° 239 del 13 de diciembre del 2000, se promulgó el Reglamento a la Ley del Servicio Nacional de Guardacostas -Ley N° 8000-.
+2º—Que de conformidad con el Informe AGSP-A01-49-2007 del 21 de diciembre de 2007 emitido por la Auditoría General del Ministerio de Seguridad Pública, se estima contraproducente en aplicación del las normas contenidas en la Ley General de Control Interno Nº 8292, la participación directa de la Auditoría Interna como parte del proceso de preparación de informes internos y externos, en virtud de que corresponde realizarlos a la Administración Activa del Servicio Nacional de Guardacostas, según lo dispuesto en el artículo 8 inciso a) del Reglamento a la Ley Nº 8000.
+3º—Que la Ley General de Control Interno Nº 8292, en su artículo 34 inciso a), establece como parte de las prohibiciones para los funcionarios de la Auditoría General, realizar funciones propias de la Administración Activa.
+4º—Que de conformidad con las consideraciones anteriormente expuestas, resulta imperioso modificar lo relacionado con la preparación de informes de control interno y externo de los estados financieros del Servicio Nacional de Guardacostas, a efecto de excluir a la Auditoría Interna del Ministerio de Seguridad Pública de esa labor. Por tanto,
+Decretan:
+REFORMA AL DECRETO EJECUTIVO N° 29144-MSP:
+REGLAMENTO A LA LEY DEL SERVICIO
+NACIONAL DE GUARDACOSTAS
+Artículo 1º—Modifíquese el artículo 8 inciso a) del Decreto Ejecutivo N° 29144-MSP: “Reglamento a la Ley del Servicio Nacional de Guardacostas”, para que se lea de la siguiente manera:
+“Artículo 8.—El Departamento Administrativo, estará coordinado por jefe administrativo y conformado por las siguientes secciones:
+a) Financiero/contable. Sección encargada de los procesos de planificación, administración y custodia del fondo especial del servicio nacional de guardacostas, así como el mantenimiento del catálogo de cuentas, control presupuestal, contabilidad, preparación de informes de control internos y externos de los estados financieros. Además velará por los recursos y activos que la Ley Nº 8000, faculta al servicio para recibir, de modo que los mismos sean captados con prontitud.
+b) Personal. Sección encargada de realizar todos los procesos administrativos ante la instancias correspondientes, referente a la selección, nombramiento, traslados, permutas, incapacidades, vacaciones, ascensos, permisos u otros movimientos de personal, de los funcionarios del Servicio Nacional de Guardacostas, así como coordinar entre la Dirección del Servicio, Ministerio de Seguridad Pública, Academia del Servicio y cualquier otra institución, los trámites administrativos en la programación de cursos, selección de candidatos para cursos y becas entre otros.
+c) Proveeduría. Sección encargada de recibir los pedidos de material, equipo, suministro de las Estaciones de Guardacostas, así como coordinar con la Proveeduría del Ministerio, las solicitudes de las cotizaciones, además de gestionar los trámites previos, y dar el seguimiento a las compras, para así distribuirlas en las Estaciones del Servicio. La Proveeduría del Ministerio de Seguridad Pública, asignará en lo posible dos personas para que se encarguen de los trámites del Servicio Nacional de Guardacostas.”
