@@ -1,1 +1,0 @@
-Artículo 30.—Del cartel o Pliego de Condiciones. Corresponde a la Proveeduría la elaboración del cartel o pliego de condiciones, con base en la SMS y las especificaciones técnicas recibidas de las Unidades Solicitantes.
