@@ -14,3 +14,4 @@ Reglamento para la Contratación de Servicios Profesionales Externos en Avalúos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-24 | la propia norma |
+| 2 | 2008-07-08 | Reglamento 8151 (2008-07-08) |
