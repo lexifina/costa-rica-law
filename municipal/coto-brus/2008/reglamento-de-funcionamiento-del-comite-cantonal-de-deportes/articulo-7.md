@@ -1,0 +1,2 @@
+Artículo 7º—El Comité Cantonal de Deportes y Recreación funcionará con el presente reglamento que incluye además las normas para regular el funcionamiento de los comités comunales y la administración de las instalaciones deportivas municipales.
+Funcionará como un Ente Colegiado, estará adscrito a la Municipalidad y gozará de personería jurídica instrumental para construir, administrar y mantener las instalaciones de su propiedad y otorgadas en administración. Asimismo habrá Comités Comunales de Deportes y Recreación adscritos al Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se produzca alguna destitución por parte del Comité Cantonal de Deportes y Recreación, este deberá comunicar su decisión por escrito a la entidad y a la persona afectada, dando las razones que fundamentaron su decisión.
