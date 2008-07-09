@@ -1,0 +1,1 @@
+Artículo 48.—Los hallazgos obtenidos en los estudios de Auditoría, deben ser comentados con los funcionarios responsables de la unidad o actividad auditada, de previo a emitir las conclusiones y recomendaciones definitivas que contendrá el informe final, para obtener de ellos sus puntos de vista, opiniones y facilitar la implantación práctica de las recomendaciones.

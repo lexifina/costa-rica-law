@@ -1,0 +1,1 @@
+Artículo 40.—La Auditoría obtendrá material de prueba suficiente, competente y relevante, aplicando las técnicas y prácticas de Auditoría, que permitan sustentar los memorandos e informes que proporcione.

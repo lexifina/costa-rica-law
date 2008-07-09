@@ -1,0 +1,1 @@
+Artículo 52.—Modificaciones. El Auditor Interno, podrá proponer las modificaciones que considere oportunas al presente reglamento, enviándolas para su conocimiento y aprobación por parte del Concejo Municipal.

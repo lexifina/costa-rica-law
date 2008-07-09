@@ -1,0 +1,1 @@
+Artículo 39.—Los planes que elabore que elabore el Auditor o Subauditor Interno se realizaran conforme a los lineamientos de la Contraloría General de la República. Y el Auditor y Subauditor Interno responderán por su gestión ante el jerarca.

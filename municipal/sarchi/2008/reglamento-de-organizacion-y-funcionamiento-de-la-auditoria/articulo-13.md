@@ -1,0 +1,1 @@
+Artículo 13.—Capacitación. La Administración Activa debe proveer los medios para la capacitación y entrenamiento al personal de la Auditoría interna, con el fin de lograr un adecuado desarrollo profesional en el área propia de su competencia y en disciplinas complementarias para el cumplimiento de sus funciones.

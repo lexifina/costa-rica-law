@@ -1,0 +1,1 @@
+Artículo 16.—Asignación de recursos. El jerarca de los entes y órganos sujetos a esta Ley deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión.

@@ -1,0 +1,1 @@
+Artículo 28.—El Auditor Interno establecerá un programa de aseguramiento de la calidad para la Auditoría Interna; que le permita la retroalimentación respectiva para determinar áreas que requieren mejoras y tomar las medidas que necesarias para ir mejorando progresivamente los servicios de Auditoría.

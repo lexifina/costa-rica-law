@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la comunicación de resultados
+Artículo 47.—Los hallazgos, las conclusiones y recomendaciones de los estudios realizados por la Auditoría interna, deberán comunicarse oficialmente, mediante informes al jerarca o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones. La Auditoría interna puede comunicar los resultados de las Auditorías de programas o estudios especiales, mediante memorandos, oficios o informes, a efecto que se tomen las decisiones del caso. La comunicación oficial de resultados de un informe de Auditoría se regirá por las directrices emitidas por la Contraloría General de la República.

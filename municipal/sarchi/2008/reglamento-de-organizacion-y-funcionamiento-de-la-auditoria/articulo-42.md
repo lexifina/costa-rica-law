@@ -1,0 +1,1 @@
+Artículo 42.—El tipo de pruebas, extensión y su alcance serán determinadas según las técnicas de muestreo o juicio profesional. Dichas pruebas serán aplicadas de conformidad con las atribuciones de la Auditoría y lo que fuere de aplicación en las disposiciones de la Contraloría General de la República, según sea el caso.

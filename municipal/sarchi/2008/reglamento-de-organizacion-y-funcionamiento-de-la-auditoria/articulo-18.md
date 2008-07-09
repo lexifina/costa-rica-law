@@ -1,0 +1,1 @@
+Artículo 18.—Jornada laboral. La jornada laboral del Auditor y Subauditor Internos será de tiempo completo. Sin embargo, podrá ingresar y dejar las instalaciones de la Municipalidad en horas distintas al horario anterior en el cumplimiento de sus funciones y competencias.
