@@ -1,0 +1,2 @@
+Artículo 26.—Modifíquese el artículo 35 del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“Artículo 35.—Cierre del periodo de recepción de proyectos: Transcurrido el plazo estipulado para ese fin, no será posible recibir ninguna solicitud, completar o cambiar documentación. La Comisión Supervisora cerrará formalmente la recepción de los proyectos y se encargará de elaborar un acta en la que consignará el número total de propuestas presentadas, su nombre y persona responsable de la misma.”

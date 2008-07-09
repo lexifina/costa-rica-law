@@ -1,0 +1,5 @@
+Artículo 10.—Adiciónese un artículo 10 bis al Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“Artículo 10 bis.—Mecanismo de selección de proyectos: La selección de los proyectos a los que se refiere el último párrafo del artículo 7º de este Reglamento, es decir los de la Modalidad 2 de PROARTES, constará de tres etapas:
+1. Convocatoria Nacional: Se realizará de acuerdo con lo establecido en el artículo 30 de este Reglamento y según los mecanismos internos que defina PROARTES, la Junta Directiva del Teatro Popular Melico Salazar y las bases de participación u otras reglamentaciones provenientes de la organización, programa o fondo nacional o internacional correspondiente.
+2. Revisión y selección de proyectos: A cargo de una Comisión Evaluadora creada para ese efecto, de conformidad con los artículos 26 y 27 de este Reglamento y las bases de participación u otras reglamentaciones provenientes de la organización, programa o fondo nacional o internacional correspondiente.
+3. Envío de proyectos seleccionados a la organización, programa o fondo nacional o internacional respectiva”.

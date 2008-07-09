@@ -1,0 +1,1 @@
+Artículo 38.—Modifíquese el inciso 4) del artículo 50 del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá: “4. Elaborar el contrato para el desarrollo de los proyectos artísticos con los seleccionados, de conformidad con las normas vigentes y fiscalizar su cumplimiento.”

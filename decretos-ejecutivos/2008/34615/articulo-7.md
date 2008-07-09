@@ -1,0 +1,2 @@
+Artículo 7º—Adiciónese un inciso 8) al artículo 9º del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“8. Proyectos de los programas y órganos del Ministerio de Cultura y Juventud y sus órganos desconcentrados, excepto cuando se trate de proyectos que concursan para la Modalidad 2 del programa, en cuyo caso se permitirá que estos coproduzcan con alguna organización cultural costarricense independiente que deberá tener la característica de coproductor principal.”

@@ -1,0 +1,2 @@
+Artículo 4º—Adiciónese un párrafo segundo al artículo 6º del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“PROARTES podrá cubrir con su presupuesto el pago de las membresías y gastos operativos que se requieran para el establecimiento y mantenimiento de las alianzas a las que se refiere el artículo 2 inciso 2) del presente Reglamento, siempre que se compruebe fehacientemente que éstas contribuyen al cumplimiento de las finalidades del programa”.

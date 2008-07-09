@@ -1,0 +1,1 @@
+Artículo 36.—Modifíquese el nombre del Capítulo V del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá: “Obligaciones de los beneficiarios de recursos de PROARTES seleccionados en la Modalidad 1 y casos de incumplimiento”

@@ -1,0 +1,2 @@
+Artículo 5º—Adiciónese un párrafo final al artículo 7º del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“No se considerarán beneficiarios de los recursos de PROARTES pero se regirán por sus principios y normas generales aquellos proyectos que participen en la Modalidad 2 del programa, es decir los que pretendan participar en los concursos o convocatorias nacionales o internacionales a los que se refiere el artículo 2 inciso 2) de este Reglamento. Lo anterior, sin perjuicio de las reglas particulares existentes para tales concursos”.

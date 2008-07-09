@@ -1,0 +1,7 @@
+Artículo 6º—Modifíquese el encabezado y el inciso 6 del artículo 9 del Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, cuyo texto dirá:
+“Exclusiones: Quedan excluidos de participar en cualquiera de las dos modalidades de PROARTES:
+6. Proyectos que beneficien a:
+a. Funcionarios del Teatro Popular Melico Salazar que ocupen puestos con algún grado de injerencia en los procesos de revisión, adjudicación o ejecución de los fondos de PROARTES, o a las organizaciones no estatales a las que estos pertenecen. Se incluyen en esta prohibición los Directores de los programas del Teatro Popular Melico Salazar y los miembros de su Junta Directiva, así como las organizaciones no estatales a las que estos pertenecen.
+b. Personas involucradas en la toma de decisiones de las Comisiones Evaluadoras, Supervisora o del Equipo de Desarrollo de Proyectos de PROARTES, o a las organizaciones no estatales a las que estas pertenecen.
+Lo anterior sin perjuicio de lo dispuesto en el inciso 8 de este artículo para el caso de los programas y órganos del Ministerio de Cultura y Juventud y sus órganos desconcentrados.
+Cuando existiere duda sobre la aplicación de esta prohibición a un caso concreto, el asunto será sometido a la Junta Directiva del Teatro Popular Melico Salazar, para que determine si existe motivo de exclusión para el caso concreto. Este órgano colegiado tomará su decisión de forma razonada y tendrá la potestad de solicitar criterio técnico a los órganos asesores pertinentes.”
