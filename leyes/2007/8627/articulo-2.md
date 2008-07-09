@@ -99,4 +99,5 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 34513 del 05 de mayo de 2008).
 (Modificado por el artículo 1° y 2° del decreto ejecutivo N° 34532 del 15 de mayo de 2008).
 (Reformado por los artículos 2° y 3° de la Ley N° 8637 del 22 de mayo de 2008).
-(Modificado por el artículo 1° del decreto ejecutivo N° 34554 del 28 de mayo de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34554 del 28 de mayo de 2008).
+(Modificado por el artículo 1° del decreto ejecutivo N° 34602 del 19 de junio de 2008).
