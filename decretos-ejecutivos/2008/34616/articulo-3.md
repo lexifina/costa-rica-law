@@ -1,0 +1,1 @@
+Artículo 3º—La ejecución de la letra y la música del Himno Nacional, deberá verificarse de conformidad con lo establecido en el artículo 1º de la Ley Nº 551 y los artículos 2º y 3º del Decreto Ejecutivo Nº 10471-E.

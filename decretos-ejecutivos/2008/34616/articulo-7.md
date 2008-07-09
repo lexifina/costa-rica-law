@@ -1,0 +1,1 @@
+Artículo 7º—Para los efectos del artículo anterior, deberá entenderse como representación oficial del país, aquella que es dada mediante un acto del Poder Ejecutivo que declare de interés cultural la participación de dicho grupo en determinada actividad.

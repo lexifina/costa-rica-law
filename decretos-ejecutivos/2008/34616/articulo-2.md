@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente Reglamento, se tendrá como Himno Nacional de Costa Rica, el Canto Patrio oficial cuya letra fue escrita por el poeta costarricense José María Zeledón Brenes y cuya música fue compuesta por el músico Manuel María Gutiérrez.

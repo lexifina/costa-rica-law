@@ -1,0 +1,1 @@
+Artículo 8º—También podrá ejecutarse el Himno Nacional en los festivales, ferias o cualesquiera otras actividades nacionales o internacionales de alguna disciplina artística o cultural, que hayan sido previamente declaradas de interés cultural.
