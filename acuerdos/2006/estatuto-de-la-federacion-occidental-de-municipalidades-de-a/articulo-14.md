@@ -1,1 +1,0 @@
-Artículo 14.—De la vicepresidencia. La vicepresidencia sustituirá al presidente(a) por razones de ausencia o enfermedad. Así mismo, lo hará como presidente(a) en funciones en caso de cese, dimisión, censura o fallecimiento del presidente(a), contando con las mismas atribuciones y obligaciones establecidas por el Estatuto para el presidente(a).

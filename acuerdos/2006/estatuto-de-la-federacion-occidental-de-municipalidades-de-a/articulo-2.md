@@ -1,1 +1,0 @@
-Artículo 2º—La Federación constituida se denominará FEDERACIÓN OCCIDENTAL DE MUNICIPALIDADES DE ALAJUELA (FEDOMA) y la jurisdicción de la Federación es la misma que la de los cantones de las municipalidades federadas, tendrá su domicilio en Sarchí Sur de Valverde Vega, 100 metros oeste de la plaza de deportes.
