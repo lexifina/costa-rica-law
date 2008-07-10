@@ -1,1 +1,0 @@
-Artículo 12.- El Auditor Interno actuará como jefe de personal de la Unidad. En esa condición ejercerá todas las funciones que le son propias en la Administración de Personal, tales como: sanciones, recomendaciones, promociones, y concesión de vacaciones, permisos, todo de acuerdo con el marco jurídico que en la materia rige para el Ministerio.

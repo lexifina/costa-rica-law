@@ -1,1 +1,0 @@
-Artículo 31.- La Administración deberá establecer y mantener programas de capacitación para los funcionarios y servidores de la Auditoría Interna, en las áreas de Administración General, Operacional, Informática, Presupuesto y cualquier otra relacionada en el campo de su trabajo.

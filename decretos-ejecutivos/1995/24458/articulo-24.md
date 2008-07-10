@@ -1,1 +1,0 @@
-Artículo 24.- En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en el Manual para el ejercicio de la Auditoría Interna en las Entidades y Órganos sujetos a la fiscalización de la Contraloría General de la República.

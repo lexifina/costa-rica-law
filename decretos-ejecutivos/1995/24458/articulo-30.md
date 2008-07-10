@@ -1,1 +1,0 @@
-Artículo 30.- Cuando existan casos bajo examen que impliquen irregularidades o conducta indebida, o exista la sospecha de tales actuaciones, la Auditoría está facultada para tomar declaraciones juradas por escrito a servidores y funcionarios de la institución y obtener otras evidencias que sean necesarias según las circunstancias.
