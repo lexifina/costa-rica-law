@@ -1,1 +1,0 @@
-Artículo 55.—Las mociones de orden deberán ser conocidas por el Concejo en el orden estricto de presentación, pero sobre una moción de este tipo no cubra otra posterior que se le oponga, si esta ha sido aprobada.

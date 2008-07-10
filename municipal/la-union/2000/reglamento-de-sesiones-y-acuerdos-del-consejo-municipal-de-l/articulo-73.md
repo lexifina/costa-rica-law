@@ -1,1 +1,0 @@
-Artículo 73.—Las Comisiones tomarán sus acuerdos por simple mayoría de los presentes, consignándose dicha votación en los dictámenes del Concejo. El o los miembros que estén en contra de algún asunto específico aprobado por la omisión podrán remitir un dictamen de minoría ante el Concejo junto con el de mayoría.

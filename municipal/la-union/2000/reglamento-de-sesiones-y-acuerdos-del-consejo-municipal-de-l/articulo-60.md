@@ -1,1 +1,0 @@
-Artículo 60.—Las Comisiones de Trabajo Ordinarias se instalarán tal y como lo indica el artículo 49 del Código Municipal y serán integradas por el Presidente Municipal designando en ese momento el Directorio de las mismas que estará formado por un Presidente, un Vicepresidente y un Secretario.

@@ -1,3 +1,0 @@
-Artículo 85
-Además de las funciones que establecen los artículos 56, 57, 59 y 69 del reglamento de sesiones y las comisiones de trabajo y los demás artículos que regulen la materia. Las comisiones deberán de rendir un informe ante el Concejo Municipal cada mes de sus actuaciones y no podrán atribuirse en nombre del Concejo, hacer negociaciones, en donde se compromete el patrimonio municipal, no podrán recibir donaciones de ninguna índole sin antes haber realizado los trámites legales correspondientes y las mismas haber sido aprobadas por este Concejo Municipal.
-(Así adicionado y publicado en La Gaceta N° 99 de 26 de mayo de 2003)

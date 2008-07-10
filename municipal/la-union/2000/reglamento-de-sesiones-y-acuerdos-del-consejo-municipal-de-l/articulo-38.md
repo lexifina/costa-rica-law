@@ -1,1 +1,0 @@
-Artículo 38.—Las actas deberán aprobar en la sesión inmediata siguiente, salvo que esa sea extraordinaria o que surjan circunstancias especiales que no lo permitan, quedándose su aprobación para la sesión ordinaria siguiente.

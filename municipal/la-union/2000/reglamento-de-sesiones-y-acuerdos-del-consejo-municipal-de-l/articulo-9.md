@@ -1,1 +1,0 @@
-Artículo 9º—En caso de no contar con el número de Regidores Propietarios necesarios para alcanzarse el quórum, sea el inicio o durante la sesión, el señor Presidente del Concejo lo completará llamando para ello a los Regidores Suplentes correspondientes.

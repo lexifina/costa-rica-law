@@ -1,1 +1,0 @@
-Artículo 48.—Las mociones y proposiciones así presentadas se pondrán a la orden de la Secretaría Municipal quien de inmediato las numerará en forma consecutiva y constante conforme a su presentación. El orden de presentación será el mismo que se seguirá para conocerlas en el Concejo, salvo que por razones de extrema urgencia se deba variar dicho orden.

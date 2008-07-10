@@ -1,1 +1,0 @@
-Artículo 41.—Para que la revisión del acuerdo pueda aceptarse, deberá someterse a votación y alcanzar la misma mayoría que exigía la ley para ser aprobado, no la misma cantidad que obtuvo cuando fue aprobado.

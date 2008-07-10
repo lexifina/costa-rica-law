@@ -1,1 +1,0 @@
-Artículo 77.—Queda facultado el Presidente del Concejo Municipal por sí o a solicitud de uno o más Regidores por fuerza mayor u otro motivo a reestructurar las Comisiones de Trabajo cuando así se amerite.

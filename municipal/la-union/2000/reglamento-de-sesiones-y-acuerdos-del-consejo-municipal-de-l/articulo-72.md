@@ -1,1 +1,0 @@
-Artículo 72.—Salvo casos de legalidad u oportunidad por los cuales se requiera rendir un dictamen en menos tiempo las Comisiones podrán celebrar sesiones extraordinarias, previa solicitud a la Presidencia o por acuerdo municipal.

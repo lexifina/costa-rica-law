@@ -1,1 +1,0 @@
-Artículo 31.—Salvo los casos previstos en la ley todos los demás acuerdos que tome el Concejo requieren para su aprobación la mayoría simple o absoluta, sea la mitad más uno de los miembros del Concejo.

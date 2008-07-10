@@ -1,1 +1,0 @@
-Artículo 25.—Los acuerdos del Concejo solo adquirirán aprobación definitiva contra la aprobación del acta de la sesión en que se tomó, salvo que por situaciones debidamente calificadas y de extrema urgencia, el Concejo con el voto de las dos terceras partes declare el acuerdo como definitivamente aprobado.

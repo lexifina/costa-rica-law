@@ -1,1 +1,0 @@
-Artículo 24.—Debe el Concejo someter a consulta pública por medio de publicación en el Diario Oficial La Gaceta todo proyecto de reglamento salvo aquellos de carácter interno. No obstante todos los reglamentos deben publicarse en el Diario Oficial, tal como lo dispone el artículo 43 del Código Municipal.

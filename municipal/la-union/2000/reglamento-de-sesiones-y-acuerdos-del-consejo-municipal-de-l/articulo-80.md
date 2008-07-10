@@ -1,1 +1,0 @@
-Artículo 80.—En cualquier momento de la sesión y por asuntos de orden el Presidente podrá pedir a la Secretaría del Concejo la comprobación de los asistentes que se registraron con su firma, caso de no encontrarse alguno de los miembros del Gobierno Local que estuvo presente en el momento de abrir la sesión, será declarado como ausente y no devengará la dieta correspondiente.

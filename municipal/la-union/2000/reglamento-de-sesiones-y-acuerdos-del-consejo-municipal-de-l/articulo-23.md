@@ -1,1 +1,0 @@
-Artículo 23.—Las mociones y proposiciones que busquen adoptar, reformar, suspender o derogar disposiciones reglamentarias, deberán ser presentadas o acogidas para su trámite por el Alcalde Municipal o alguno de los Regidores, si la iniciativa nace de alguien que no es miembro del Concejo, la misma deberá cumplir con lo especificado anteriormente.

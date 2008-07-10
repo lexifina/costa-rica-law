@@ -1,1 +1,0 @@
-Artículo 59.—Podrá el Concejo por medio de acuerdo crear cuantas Comisiones de Trabajo Especiales estime conveniente para la atención de asuntos específicos de interés comunal o propios de la Municipalidad.

@@ -1,1 +1,0 @@
-Artículo 10.—Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme con el reloj del local donde se lleve a cabo la sesión. Si no hubiese reloj se aplicará la hora que tenga el Presidente.
