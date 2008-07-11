@@ -1,0 +1,12 @@
+Nº 34619-J
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones Nº 218 de 08-08-39 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Coordinadora Indígena Campesina de Agroforestería Comunitaria, cédula de persona jurídica Nº 3-002-228864, se inscribió en el Registro de Asociaciones del Registro Público desde el día catorce de setiembre de mil novecientos noventa y ocho, bajo el expediente Nº 10.055.
+III.—Que los fines que persigue la Asociación, según el artículo cuarto de sus Estatutos, son: “... A.- Apoyar la generación de decisiones políticas de las organizaciones de campesinos e indígenas del área para facilitar su participación en la gestión del poder local e incidiendo en las decisiones políticas y técnicas en ámbito local, nacional, y regional, relacionadas con los recursos naturales, que permitan la eficaz integración vertical y horizontal del campesino y el indígena del área. B.- Apoyar a las organizaciones indígenas y campesinas afines a CICAFOC a consolidar los procesos iniciados a nivel local para vincularlos con los programas nacionales y regionales que garanticen al campesino e indígena, el acceso a la tierra, al uso y manejo de los recursos naturales, financieros y técnicos, así como participación en los procesos de comercialización e industrialización de sus productos. Lo anterior en el marco del desarrollo sostenible, manejo, co-manejo de áreas protegidas, concesiones comunitarias, planes de manejo y agroforestería. C.- Promover y fortalecer el conocimiento ancestral que tienen los pueblos indígenas en el uso y manejo de los recursos naturales y su territorio.”
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación Coordinadora Indígena Campesina de Agroforestería Comunitaria, cédula de persona jurídica Nº 3-002-228864.
