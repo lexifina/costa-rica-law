@@ -14,3 +14,4 @@ Manual de Normas para el ejercicio de la Auditoría Interna en el Sector Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-16 | la propia norma |
+| 2 | 2008-07-11 | Resolución 33 (2008-07-11) |
