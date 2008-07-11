@@ -1,0 +1,1 @@
+Artículo 26.—Vacaciones. En el caso de las vacaciones, si el período solicitado es menor o igual a cinco días hábiles, el Auditor Interno las tramitará por escrito ante el Alcalde Municipal, en caso contrario será ante el Concejo Municipal y ante el Alcalde Municipal.
