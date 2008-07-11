@@ -16,3 +16,4 @@ Reglamento del Fondo de Preinversión (MIDEPLAN).
 | 1 | 1995-09-21 | la propia norma |
 | 2 | 2001-05-07 | Decreto Ejecutivo 29466 (2001-05-07) |
 | 3 | 2005-08-01 | Decreto Ejecutivo 32653 (2005-08-01) |
+| 4 | 2008-07-11 | Decreto Ejecutivo 34724 (2008-07-11) |
