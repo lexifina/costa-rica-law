@@ -14,3 +14,4 @@ Modifica para el Instituto de Fomento y Asesoría Municipal, el gasto presupuest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-05 | la propia norma |
+| 2 | 2008-07-15 | Decreto Ejecutivo 34662 (2008-07-15) |
