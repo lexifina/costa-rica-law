@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE TURRIALBA
+La Municipalidad de Turrialba, comunica a los vecinos del cantón, que en la sesión ordinaria N° 112-2008 del martes 17 de junio del 2008, en su artículo segundo, inciso 3), punto 3.1, el Concejo Municipal de Turrialba autorizó mediante acuerdo SM-758-2008, aprobar la adhesión de la Municipalidad de Turrialba a la aplicación del Manual de Valores Bases Unitarios por Tipología Constructiva, las tablas de vidas útiles de construcciones y factor de depreciación utilizando el Método de Ross- Hiedecke, documento publicado en La Gaceta N° 78 del miércoles 23 de abril del 2008. Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado.
+Turrialba, 2 de julio del 2008
