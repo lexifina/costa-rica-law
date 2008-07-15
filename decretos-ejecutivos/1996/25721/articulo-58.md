@@ -1,1 +1,1 @@
-Artículo 58: El FONAFIFO será el ente encargado de darle cumplimiento a lo dispuesto en la Ley en los artículos 22 último párrafo, artículo 69 y otros que establezca la inscripción en el Registro de la Propiedad de las limitaciones a la propiedad. El pago por este servicio lo asumirá el beneficiario o beneficiaria.
+Artículo 58.- (Así derogado por el artículo 1° del Decreto Ejecutivo N° 34761 de 15 de julio de 2008).

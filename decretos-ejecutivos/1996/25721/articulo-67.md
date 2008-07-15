@@ -1,1 +1,1 @@
-Artículo 67: Los recursos que se obtengan, se considerarán como aportes de capital de inversión de socios extranjeros en proyectos de actividades realizadas conjuntamente para la mitigación de emisiones de gases con efecto invernadero y se invertirán bajo los términos que indiquen los mismos proyectos.
+Artículo 67.- (Así derogado por el artículo 1° del Decreto Ejecutivo N° 34761 de 15 de julio de 2008).
