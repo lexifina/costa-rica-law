@@ -1,0 +1,1 @@
+3º—La Municipalidad de Turrialba promoverá la Accesibilidad de sus servicios de atención al público de información y documentación, asesoría profesional y otros para las personas con discapacidad en igualdad de condiciones. En el cumplimiento con lo establecido en la Ley 7600. Esto tomando en consideración sus limitaciones logísticas, materiales, legales y económicas.

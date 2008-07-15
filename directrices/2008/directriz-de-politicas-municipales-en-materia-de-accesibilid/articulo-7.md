@@ -1,0 +1,1 @@
+7º—La Municipalidad de Turrialba a través de la Comisión Municipal de Accesibilidad facilitará las adecuaciones necesarias para hacer accesibles el lugar Trabajo de los funcionarios (as) con discapacidad en la jurisdicción del Cantón de Turrialba.

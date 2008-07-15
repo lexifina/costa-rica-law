@@ -1,0 +1,1 @@
+2º—La Municipalidad de Turrialba en procura del ejercicio de los derechos de las personas con discapacidad, promoverá y contribuirá al desarrollo pleno en el seno familiar y comunal con apoyos concretos para estos, asegurando así la adecuada atención, así como el acceso a medios y servicios que coadyuven en el desarrollo integral de esta población.

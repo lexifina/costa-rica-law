@@ -1,0 +1,1 @@
+10.—La Municipalidad de Turrialba, facilitará y promoverá la adecuación de las directrices políticas y normativas municipales a los lineamientos nacionales sobre discapacidad, para ello la Comisión Municipal en Accesibilidad brindará la asesoría al respecto. Que se publique en el Diario Oficial La Gaceta.

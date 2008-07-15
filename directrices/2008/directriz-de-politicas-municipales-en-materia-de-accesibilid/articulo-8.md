@@ -1,0 +1,1 @@
+8º—Las políticas locales de la Municipalidad de Turrialba en materia de discapacidad serán de conocimiento público para toda la población del Cantón de Turrialba, constituyéndose en el marco político institucional, para la promoción de la Igualdad de Oportunidades.
