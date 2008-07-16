@@ -1,0 +1,1 @@
+Artículo 7º—Seguimiento y fiscalización. Cada tres meses, el Director de Hacienda, o en su defecto el Contador Municipal, informará al Alcalde y éste a su vez al Concejo Municipal, mediante un cuadro resumen de las modificaciones presupuestarias de segundo y tercer orden que se ejecuten durante el respectivo período.
