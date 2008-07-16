@@ -14,3 +14,4 @@ Comunica monto máximo que una persona física o jurídica puede invertir median
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-20 | la propia norma |
+| 2 | 2008-07-16 | Acuerdo 0 (2008-07-16) |
