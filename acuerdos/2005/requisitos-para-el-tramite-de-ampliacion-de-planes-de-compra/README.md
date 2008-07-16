@@ -14,3 +14,4 @@ Requisitos para el trámite de ampliación de planes de compra, de empresas en f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-28 | la propia norma |
+| 2 | 2008-07-16 | Directriz 1302 (2008-07-16) |
