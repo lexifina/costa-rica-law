@@ -1,0 +1,1 @@
+Artículo 11.—La Plataforma de Servicios será constituida como una instancia técnica independiente, vinculada a la Subdirección de Recursos Humanos, que brindará apoyo a la Dirección de Recursos Humanos y sus dependencias técnicas, de conformidad con los manuales de procedimientos establecidos para tales efectos.

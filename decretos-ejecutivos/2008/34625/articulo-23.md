@@ -1,0 +1,1 @@
+Artículo 23.—A la entrada en vigencia del presente decreto, se derogan los incisos “c”, “ch”, “d” y “h” del artículo 19, del Decreto Ejecutivo 23490-MEP, Reglamento de la Organización Administrativa de las Direcciones Provinciales de Educación Docente, publicado en La Gaceta Nº de 11 de julio del 2004.
