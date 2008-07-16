@@ -1,2 +1,2 @@
 Artículo 3º—Prohibición. Queda prohibido el pago de gastos de transporte, alimentación y hospedaje de testigos, ofendidos, imputados y menores infractores, salvo a quienes por su estado de pobreza y que provengan de lugares lejanos, lo amerite según la tarifa autorizada por el Consejo Superior a juicio del responsable de la Caja Chica.
-(Así reformado en sesión N° 7 del 7 de febrero del 2006)
+(Así reformado en sesión de Corte Plena Nº 07-06, celebrada el 7 de febrero de dos mil seis, artículo XLIV. Tal modificación fue comunicada mediante Circular Nº 29-2006, publicada en el Boletín Judicial Nº 46 del 6 de marzo de 2006).
