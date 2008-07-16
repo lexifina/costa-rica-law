@@ -14,3 +14,4 @@ Reglamento a la Ley de Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-08 | la propia norma |
+| 2 | 2008-07-16 | Decreto Ejecutivo 34781 (2008-07-16) |
