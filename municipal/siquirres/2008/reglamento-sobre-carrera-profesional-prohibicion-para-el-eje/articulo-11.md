@@ -1,0 +1,1 @@
+Artículo 11.—Participación de servidores como instructores en actividades de capacitación. Se reconocerá la participación de los servidores en calidad de instructores en actividades de capacitación de interés para la Municipalidad de Siquirres, siempre que estas actividades sean patrocinadas, organizadas o avaladas por la Municipalidad.

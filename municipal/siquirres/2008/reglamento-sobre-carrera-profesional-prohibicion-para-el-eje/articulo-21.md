@@ -1,0 +1,1 @@
+Artículo 21.—Valor monetario de los puntos. El valor monetario de cada punto se establecerá y modificará por medio de resolución del Concejo Municipal definiéndose para iniciar en mil ochocientos colones (¢1800) y aumentará cien colones (¢100) por semestre.

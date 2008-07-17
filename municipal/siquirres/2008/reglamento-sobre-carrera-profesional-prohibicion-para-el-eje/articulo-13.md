@@ -1,0 +1,1 @@
+Artículo 13.—Reconocimiento de publicaciones. La publicación de libros y de ensayos en revistas avaladas por la Municipalidad de Siquirres, se reconocerá para los efectos de asignación de puntaje, si tienen relación con las funciones, planes, tareas y necesidades de la Municipalidad de Siquirres, y han sido autorizados con sello editorial o por un consejo editorial.

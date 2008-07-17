@@ -1,0 +1,1 @@
+Artículo 27.—Profesionales. Se considerarán profesionales los servidores con grado académico universitario igual o superior al Bachillerato, otorgado por una universidad debidamente reconocida por el Estado.

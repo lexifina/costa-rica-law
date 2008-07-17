@@ -1,0 +1,1 @@
+Artículo 19.—Estudio de las solicitudes y determinación del puntaje. La Unidad de Recursos Humanos efectuará el estudio de las solicitudes y determinará el puntaje obtenido, así como el beneficio económico correspondiente, y comunicará al interesado los puntos no aprobados.

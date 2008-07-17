@@ -1,0 +1,1 @@
+Artículo 18.—Solicitud de ingreso. Para ingresar al sistema de mérito profesional, los interesados deberán solicitarlo ante la Unidad de Recursos Humanos, haciendo uso de los formularios existentes para tal efecto, y agregar al formulario los documentos exigidos en este Reglamento.

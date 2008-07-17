@@ -1,0 +1,1 @@
+Artículo 12.—Instructor permanente en programas de capacitación. El servidor cuya labor permanente sea la de instructor en programas de capacitación, no tendrá derecho al beneficio que se otorga a los participantes como instructor en actividades de capacitación.

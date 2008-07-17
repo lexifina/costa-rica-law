@@ -1,0 +1,1 @@
+Artículo 5º—Simultaneidad de condiciones. Para la obtención de los beneficios aquí regulados se requiere que el servidor ostente como mínimo la condición profesional de bachiller y que simultáneamente preste sus servicios en un puesto de jefatura como mínimo.
