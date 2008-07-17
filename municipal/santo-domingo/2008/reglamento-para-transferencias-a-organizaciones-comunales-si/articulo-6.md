@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección de Servicios y Ordenamiento Territorial de la Municipalidad debe verificar que la obra corresponde a la planteada por el Concejo de Distrito ante la Alcaldía y que establezca las condiciones para su ejecución y esta debe estar implícita en el presupuesto municipal, aprobado por el Concejo Municipal.

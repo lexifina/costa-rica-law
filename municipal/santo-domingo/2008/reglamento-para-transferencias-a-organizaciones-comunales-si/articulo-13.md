@@ -1,0 +1,1 @@
+Artículo 13.—El informe final de liquidación debe ser presentado en un plazo no mayor a un mes calendario desde la fecha de la culminación de la obra, anotando en el mismo los principales componentes del programa u obra financiada o ejecutada, dificultades presentes en la ejecución y principales variaciones a lo planeado.

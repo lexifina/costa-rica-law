@@ -1,0 +1,1 @@
+Artículo 2º—Para otorgar esta clase de beneficios, la Municipalidad de Santo Domingo anualmente presupuestará los recursos necesarios para atender los diferentes proyectos contemplados en el Programa Anual Operativo (PAO) o Presupuesto Municipal.
