@@ -1,0 +1,1 @@
+Artículo 49.—Al fijarse el saldo en descubierto, el abogado deberá efectuar los estudios necesarios para determinar si existen bienes registrados a nombre de los obligados o salarios, que permitan cobrar ese saldo. Asimismo, emitirá su criterio por escrito, si conviene la continuación de este cobro.

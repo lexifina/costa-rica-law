@@ -1,0 +1,1 @@
+Artículo 19.—Es obligación del abogado director del proceso comunicar a la Gerencia de Zona Comercial o al CSOR, según corresponda, la publicación de cualquier edicto que tenga relación con un juicio bajo su dirección, acompañado del comentario correspondiente.

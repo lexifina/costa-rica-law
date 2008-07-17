@@ -1,0 +1,1 @@
+Artículo 54.—Cuando el abogado externo dejare de prestar sus servicios al Banco por cualquier motivo, el pago de honorarios, se distribuirá entre los abogados que intervengan en cada proceso particular y en proporción al trabajo realizado por cada uno de ellos.
