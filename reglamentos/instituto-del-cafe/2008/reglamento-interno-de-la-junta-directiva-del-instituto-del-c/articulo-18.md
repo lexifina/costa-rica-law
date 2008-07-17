@@ -1,0 +1,1 @@
+Artículo 18.—El Orden del Día contemplará una sección específica para los temas relacionados por el FONECAFE, incluyendo correspondencia, aspectos financieros y cualquier otro específico de dicho ente.

@@ -1,0 +1,1 @@
+Artículo 35.—Al dar por discutido un asunto, el Presidente de la Junta Directiva dará un término prudencial para recibir la votación correspondiente, procurando que ésta se realice cuando los presentes estén ocupando sus asientos.

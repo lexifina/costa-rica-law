@@ -1,0 +1,1 @@
+Artículo 19.—Las Sesiones de la Junta Directiva se desarrollarán conforme al orden del día previamente señalado, el que podrá ser modificado conforme lo establece la Ley General de la Administración Pública.

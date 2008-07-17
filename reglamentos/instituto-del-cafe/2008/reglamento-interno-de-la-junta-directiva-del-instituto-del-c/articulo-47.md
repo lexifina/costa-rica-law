@@ -1,0 +1,1 @@
+Artículo 47.—Los Directores que se presenten después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión ordinaria o extraordinaria perderán el derecho a devengar la dieta.
