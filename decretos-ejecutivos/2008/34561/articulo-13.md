@@ -1,1 +1,0 @@
-Artículo 13.—El médico tiene derecho a abstenerse de ejercer su profesión, en instituciones públicas o privadas en donde las condiciones de ambiente y trabajo no sean las adecuadas para salvaguardar su salud y seguridad y dar un buen servicio.

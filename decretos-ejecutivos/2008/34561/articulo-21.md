@@ -1,1 +1,0 @@
-Artículo 21.—En caso de emergencia nacional o peligro para la salud de la población es deber del médico cooperar con las autoridades competentes, en la protección de la salud y la organización de los cuidados pertinentes, a no ser que la edad o la salud se lo impidan.

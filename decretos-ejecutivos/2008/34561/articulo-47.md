@@ -1,1 +1,0 @@
-Artículo 47.—Es deber asistir, sin cobrar honorarios, al colega, padres, cónyuges, e hijos dependientes, salvo casos de excepción a criterio del Tribunal de Ética Médica. Se hace la salvedad con el derecho de reembolso, cuando el médico ha aportado otros insumos que no son reutilizables o recuperables.

@@ -1,1 +1,0 @@
-Artículo 84.—El médico no debe desviar hacia otra clínica o institución, al paciente atendido por él en calidad de funcionario, cuando existan las condiciones adecuadas en el centro donde labora; excepto a solicitud del paciente.

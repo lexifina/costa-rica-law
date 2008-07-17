@@ -1,1 +1,0 @@
-Artículo 56.—El médico deberá utilizar su posición jerárquica para que sus subordinados actúen dentro de los principios éticos, profesionales, administrativos, docentes y de investigación, priorizando la prestación idónea del servicio médico.

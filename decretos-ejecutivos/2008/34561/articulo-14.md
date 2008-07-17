@@ -1,1 +1,0 @@
-Artículo 14.—El médico puede rehusarse a realizar actos médicos, que aún siendo permitidos por ley, sean contrarios a los dictados de su conciencia siempre y cuando no se ponga en peligro la salud del enfermo.

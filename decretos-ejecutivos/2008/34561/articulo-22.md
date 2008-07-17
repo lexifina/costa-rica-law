@@ -1,1 +1,0 @@
-Artículo 22.—El médico no debe hacer abandono de sus responsabilidades hacia su paciente, aún de manera temporal, sin dejar a otro médico capacitado e informado que lo sustituya en la atención de aquel, salvo motivo de fuerza mayor plenamente demostrado.

@@ -1,1 +1,0 @@
-Artículo 130.—El médico no debe realizar experimentos con nuevos tratamientos en pacientes con afección terminal, sin que haya esperanza razonable de beneficio para el paciente, imponiendo sufrimientos adicionales o falsas expectativas.
