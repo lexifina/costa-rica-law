@@ -1,0 +1,1 @@
+Artículo 178.—Seguimiento del sistema de control interno. Se deberá valorar la calidad del funcionamiento del sistema de control interno a lo largo del tiempo. Asimismo, se deberá asegurar que los hallazgos de la Auditoría y los resultados de otras revisiones se atiendan con prontitud.

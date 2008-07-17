@@ -1,0 +1,1 @@
+Artículo 149.—Evaluaciones del programa de calidad. La actividad de auditoría interna debe adoptar un proceso para supervisar y evaluar la eficacia general del programa de calidad. Este proceso debe incluir tanto evaluaciones internas como externas y autoevaluaciones.

@@ -1,0 +1,4 @@
+Artículo 179.—Deberes en cuanto al seguimiento del control interno. En cuanto al seguimiento del sistema de control interno, serán deberes de la Administración Activa, los siguientes:
+a) Que los funcionarios responsabilizados realicen continuamente las acciones de control y prevención en el curso de las operaciones normales integradas a tales acciones.
+b) Que la Administración Activa realice, por lo menos una vez al año, las autoevaluaciones que conduzcan al perfeccionamiento del sistema de control interno del cual es responsable. Asimismo, que pueda detectar cualquier desvío que aleje a la Organización del cumplimiento de sus objetivos.
+c) Que sean implantados los resultados de las evaluaciones periódicas que realizan la Administración Activa, la Auditoría Interna, la Contraloría General de la República, la auditoría externa y demás instituciones de control y fiscalización que correspondan, dentro de los diez días hábiles siguientes a su notificación.

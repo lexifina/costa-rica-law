@@ -1,0 +1,1 @@
+Artículo 128.—Comunicación de informes parciales. Podrán comunicarse informes parciales durante el transcurso de la Auditoría Interna si las circunstancias lo ameritan. Estos informes deberán ser recopilados completamente en el informe final de resultados.

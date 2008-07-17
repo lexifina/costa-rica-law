@@ -1,0 +1,1 @@
+Artículo 124.—Contenido del informe de control interno. El informe de control interno contendrá al menos los siguientes elementos: Fortalezas del Sistema de Control Interno y Aspectos susceptibles de mejora segregados en hallazgos, conclusiones y recomendaciones de los estudios realizados por la Auditoría Interna.

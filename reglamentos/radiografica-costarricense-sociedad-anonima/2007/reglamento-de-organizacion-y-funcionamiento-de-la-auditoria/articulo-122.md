@@ -1,0 +1,1 @@
+Artículo 122.—Excepción en la discusión de informe. Se exceptúan de la discusión, los casos de auditoría o estudio especial de auditoría con el carácter de lo establecido en la Norma 205.04 del Manual de Normas Generales de Auditoría para el Sector Público.

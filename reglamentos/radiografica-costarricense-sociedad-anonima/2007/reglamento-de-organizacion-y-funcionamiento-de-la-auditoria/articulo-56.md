@@ -1,0 +1,1 @@
+Artículo 56.—Área de Auditoría Operativa. Las tareas de la Auditoría Operativa consisten en el examen de las áreas de operación de la Empresa, para determinar si se tienen los apropiados controles y procedimientos, tanto administrativos como operativos y poder así lograr la mayor eficiencia y economía en la Organización, incluyendo la revisión del control interno de RACSA.

@@ -1,0 +1,1 @@
+Artículo 86.—Comunicación directa entre la Junta Directiva y el Auditor Interno. El auditor interno y la Junta Directiva tendrán acceso libre y directo entre ellos, para atender aspectos de interés común referentes al proceso de fiscalización empresarial.

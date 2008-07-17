@@ -1,0 +1,1 @@
+Artículo 171.—Sobre la Advertencia. La advertencia será dada de oficio, cuando los asuntos sean de conocimiento del auditor, debe hacerse por escrito e implica verificar posteriormente lo actuado por la Administración sujeta a ella. En caso de que la advertencia sea dada en forma verbal, el Auditor Interno, a la brevedad posible, la hará en forma escrita.

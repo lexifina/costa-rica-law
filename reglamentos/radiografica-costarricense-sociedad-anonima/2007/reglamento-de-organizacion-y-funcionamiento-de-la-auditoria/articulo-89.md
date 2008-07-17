@@ -1,0 +1,1 @@
+Artículo 89.—Publicidad de Informes de Auditoría. La Auditoría Interna podrá entregar en forma parcial o total sus informes relacionados con el control interno, siempre que el solicitante esté plenamente facultado por ley. En este aspecto, la Auditoría comunicará a la Junta Directiva la entrega de la información.

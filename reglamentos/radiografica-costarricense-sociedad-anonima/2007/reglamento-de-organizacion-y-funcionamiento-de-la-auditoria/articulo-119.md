@@ -1,0 +1,1 @@
+Artículo 119.—Obligatoriedad de participar en la conferencia final. La administración convocada está obligada a participar en la conferencia final de resultados. La falta de participación injustificada podrá reputarse como un debilitamiento del sistema de control interno, aspecto que deberá ser informado por la Auditoría Interna en el informe final escrito.

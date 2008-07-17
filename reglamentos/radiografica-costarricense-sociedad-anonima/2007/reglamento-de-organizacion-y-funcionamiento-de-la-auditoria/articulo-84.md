@@ -1,0 +1,1 @@
+Artículo 84.—Pautas de relación interna y externa. Es responsabilidad del Auditor Interno establecer y regular a lo interno de la Auditoría las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su Unidad con los auditados.

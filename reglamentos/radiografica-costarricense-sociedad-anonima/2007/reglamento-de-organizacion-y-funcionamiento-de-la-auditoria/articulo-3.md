@@ -1,0 +1,1 @@
+Artículo 3º—Presentación y aprobación del Reglamento. Corresponde al Auditor Interno de RACSA elaborar, actualizar y presentar a la Junta Directiva, el Reglamento de Organización y Funcionamiento de la Auditoría Interna para su debida aprobación.

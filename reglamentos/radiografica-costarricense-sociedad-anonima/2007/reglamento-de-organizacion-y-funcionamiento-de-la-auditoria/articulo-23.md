@@ -1,0 +1,9 @@
+Artículo 23.—Prohibiciones e impedimentos a la independencia u objetividad. Si la independencia u objetividad del Auditor se viese comprometida de hecho o en apariencia, los detalles del impedimento deberán darse a conocer a las partes correspondientes. Asimismo, el Auditor Interno no podrá evaluar operaciones específicas de las cuales haya sido previamente responsable en el año inmediato anterior.
+El Auditor Interno y el Personal de Auditoría tendrán las siguientes prohibiciones según lo establece el artículo 34, sección III del capítulo IV de la Ley General de Control Interno:
+a) Realizar funciones y actuaciones de Administración Activa, salvo las necesarias para cumplir su competencia.
+b) Formar parte de un Órgano Director de un procedimiento administrativo.
+c) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, excepto que exista impedimento por la existencia de un interés directo o indirecto de RACSA. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+d) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+e) Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios.
+f) El Auditor Interno tiene la obligación de establecer las medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o peligro la objetividad e independencia de la Auditoría Interna.
+g) Además de los anteriores se considerarán los impedimentos contemplados en el ordenamiento, como sería otras leyes y los reglamentos internos de la Institución y similares.

@@ -1,0 +1,1 @@
+Artículo 129.—Plazos de los informes parciales y finales. Los informes de control interno, parciales y finales, están sujetos al trámite y a los plazos improrrogables previstos en los artículos 36 al 38 de la Ley General de Control Interno, así como los de responsabilidades, excepto aquellos que la Contraloría General de la República determine.

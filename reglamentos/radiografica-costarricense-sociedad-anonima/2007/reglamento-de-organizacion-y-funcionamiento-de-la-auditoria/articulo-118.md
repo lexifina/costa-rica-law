@@ -1,0 +1,1 @@
+Artículo 118.—Convocatoria a la conferencia final. La Auditoría Interna convocará por escrito a quienes tengan parte en los asuntos para realizar la conferencia final de resultados, dentro de un plazo razonable establecido junto con los interesados.

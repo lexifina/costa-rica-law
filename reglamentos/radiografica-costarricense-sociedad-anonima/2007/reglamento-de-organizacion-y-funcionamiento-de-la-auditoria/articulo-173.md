@@ -1,0 +1,1 @@
+Artículo 173.—Comunicación de servicios preventivos. El trabajo derivado de los servicios preventivos se comunica mediante memorandos o informes, observando los lineamientos que al respecto ha emitido la Contraloría General de la República, en el Manual de Normas para el Ejercicio de la Auditoría Interna.

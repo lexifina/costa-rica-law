@@ -1,0 +1,1 @@
+Artículo 158.—Revisor externo. Las revisiones externas deberán ser realizadas por personas cualificadas, independientes de la Organización y que no tengan conflictos de intereses ni reales ni aparentes. El revisor externo podrá incluir en su equipo auditores internos de fuera de la Organización o proveedores de servicios externos.

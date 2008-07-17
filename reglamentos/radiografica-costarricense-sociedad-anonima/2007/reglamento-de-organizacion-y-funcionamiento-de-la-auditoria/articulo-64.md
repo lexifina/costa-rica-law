@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Recursos y apoyo a la gestión
+Artículo 64.—Recursos de la Auditoría. La Auditoría Interna deberá contar con los recursos humanos, tecnológicos, asesoría técnica y capacitación para el desarrollo profesional de sus funcionarios e instalaciones físicas necesarias para el adecuado cumplimiento de sus objetivos. El auditor interno debe proponer al jerarca oportuna y debidamente justificados estos requerimientos según lo establece el párrafo noveno, inciso d), punto 2.3.2 de las Directrices Generales Relativas al Reglamento de Organización y Funcionamiento de las Auditorías del Sector Público.

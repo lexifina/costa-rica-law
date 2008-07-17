@@ -1,0 +1,1 @@
+Artículo 134.—Participación de un asesor legal. El auditor puede requerir la participación de un asesor legal interno o contratado para que se regulen adecuadamente los temas de las relaciones de hecho.

@@ -1,0 +1,1 @@
+Artículo 80.—Revisión del presupuesto por parte de la Junta Directiva. La Junta Directiva podrá requerir de la Auditoría Interna su presupuesto, el cual debe ser formulado técnica y profesionalmente de conformidad con los lineamientos aplicables y su plan anual de trabajo.

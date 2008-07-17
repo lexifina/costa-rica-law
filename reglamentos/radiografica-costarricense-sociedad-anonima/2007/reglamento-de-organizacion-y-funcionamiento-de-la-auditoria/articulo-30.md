@@ -1,0 +1,1 @@
+Artículo 30.—Alianzas estratégicas. La Auditoría Interna mantendrá en forma actualizada, las alianzas estratégicas con las Auditorías Internas del Grupo ICE, con el fin de establecer un norte común, de acuerdo con las políticas definidas por las Empresas del Grupo en materia de auditoría, de manera consistente.

@@ -1,0 +1,1 @@
+Artículo 172.—Asesoría y advertencia durante la ejecución de un estudio de auditoría. La Auditoría Interna podrá advertir y asesorar sobre la marcha de un estudio de auditoría que se esté llevando a cabo. Y sin embargo, en este caso, la advertencia y la asesoría no son vinculantes para el que las reciba, cuyas decisiones quedan bajo entera responsabilidad de la Administración.

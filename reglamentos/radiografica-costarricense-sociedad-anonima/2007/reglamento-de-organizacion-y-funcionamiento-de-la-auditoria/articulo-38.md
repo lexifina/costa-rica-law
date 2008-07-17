@@ -1,0 +1,1 @@
+Artículo 38.—Dirección de la Auditoría Interna. Corresponde al Auditor Interno la dirección superior y administración de la unidad de Auditoría Interna, aplicando criterios adecuados en el ejercicio de las competencias y en las relaciones con la Administración.

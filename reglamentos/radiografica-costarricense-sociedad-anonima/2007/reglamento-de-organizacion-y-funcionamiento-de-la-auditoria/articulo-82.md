@@ -1,0 +1,1 @@
+Artículo 82.—De los registros presupuestarios. El responsable del manejo presupuestario deberá llevar un registro separado del monto asignado y aprobado para la Auditoría Interna y detallado por objeto del gasto, de manera que se controlen con toda exactitud la ejecución y las modificaciones del gasto asignado y aprobado.
