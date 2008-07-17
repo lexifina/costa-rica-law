@@ -1,0 +1,1 @@
+Artículo 3º—En los hospitales, se restringe el uso de fentanilo ampollas para ser prescrito exclusivamente por médicos especialistas, en servicios o unidades adecuadamente equipados para el manejo de pacientes intervenidos quirúrgicamente o en condiciones críticas.
