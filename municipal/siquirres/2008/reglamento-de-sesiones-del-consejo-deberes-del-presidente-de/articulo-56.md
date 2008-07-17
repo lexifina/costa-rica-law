@@ -1,0 +1,1 @@
+Artículo 56.—Finalizadas las exposiciones de los particulares el Presidente concederá la palabra (2 minutos) a los regidores que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre el asunto de que se trate.

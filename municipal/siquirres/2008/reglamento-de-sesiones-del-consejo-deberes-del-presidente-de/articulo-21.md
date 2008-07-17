@@ -1,0 +1,1 @@
+Artículo 21.—El Presidente Municipal, calificará los asuntos de trámite urgente y enviará a la secretaría para incluirlos en el orden del día. En el desarrollo de la sesión Ordinaria podrán incluirse los de trámite urgente por iniciativa del Presidente o de uno o más regidores.

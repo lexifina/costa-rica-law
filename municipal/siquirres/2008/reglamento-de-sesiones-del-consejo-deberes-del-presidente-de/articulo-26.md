@@ -1,0 +1,1 @@
+Artículo 26.—Todo planteamiento realizado al Concejo deberá presentarse por escrito y respaldado con el sello de alguna asociación, timbres, papel membreteado, en caso que se trate de un asunto personal, bastará con la firma, número de cédula, lugar para notificaciones y número telefónico.

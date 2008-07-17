@@ -1,0 +1,1 @@
+Artículo 83.—Los síndicos suplentes que no estén sustituyendo a un propietario y se encuentren presentes durante toda la sesión, devengarán un veinticinco por ciento de la dieta de un regidor propietario.

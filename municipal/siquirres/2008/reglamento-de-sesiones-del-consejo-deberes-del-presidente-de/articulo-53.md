@@ -1,0 +1,1 @@
+Artículo 53.—Si se presentaren memoriales que dirijan los particulares al Concejo, la secretaría los examinará, y si resulta que lo solicitado es de competencia del Alcalde Municipal, lo enviará a dicho funcionario para que le dé el trámite que le corresponda y se informará a los firmantes.

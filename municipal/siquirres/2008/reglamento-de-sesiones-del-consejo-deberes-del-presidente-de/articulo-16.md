@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones del Concejo se desarrollarán conforme con la orden previamente elaborada, la cual podrá ser modificada o alterada mediante acta aprobada por el Concejo por dos terceras partes de los miembros presentes.

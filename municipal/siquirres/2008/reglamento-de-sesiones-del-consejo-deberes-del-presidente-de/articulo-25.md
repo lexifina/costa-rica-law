@@ -1,0 +1,1 @@
+Artículo 25.—El Concejo recibirá audiencias al público el primer y tercer lunes de cada mes, en las que tendrán 5 minutos para hacer su exposición y se someterán a una breve discusión. El asunto se retomará en el capítulo de regidores.

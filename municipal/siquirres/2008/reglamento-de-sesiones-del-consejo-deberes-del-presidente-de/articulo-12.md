@@ -1,0 +1,1 @@
+Artículo 12.—Si en el transcurso de una sesión se rompiere el quórum, el Presidente por medio del Secretario instará a los señores regidores que se hubieren retirado sin permiso, para que ocupen sus curules. Transcurridos diez minutos sin que se pueda restablecerse el quórum, se levantará la sesión. Los regidores remisos perderán el derecho a la dieta correspondiente.

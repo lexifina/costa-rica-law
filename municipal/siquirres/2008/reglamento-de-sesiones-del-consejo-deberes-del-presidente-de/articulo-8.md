@@ -1,0 +1,1 @@
+Artículo 8º—La convocatoria se notificará personalmente al funcionario o en su casa de habitación, por los medios técnico, y tecnológicos disponibles. (fax, correo electrónico, etc.). En uno y otro caso firmará la persona que reciba la notificación debiendo la autoridad o el funcionario notificador hacerlo constar en el acta del notificador.

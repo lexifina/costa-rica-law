@@ -1,0 +1,1 @@
+Artículo 29.—El presidente municipal controlará el uso de la palabra de los visitantes en tiempo y oportunidad de los temas. Para una mejor trascripción de lo dicho, los visitantes y regidores harán uso del estrado y del micrófono u otro medio alternativo que garantice fidelidad de lo expresado.
