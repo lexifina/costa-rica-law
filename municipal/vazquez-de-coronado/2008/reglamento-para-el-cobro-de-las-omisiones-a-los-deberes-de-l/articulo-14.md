@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad cobrará las obras cuando se incumplan con las obligaciones señaladas en el artículo 75, en forma trimestral y en el mismo recibo en el que se cobran los tributos municipales.

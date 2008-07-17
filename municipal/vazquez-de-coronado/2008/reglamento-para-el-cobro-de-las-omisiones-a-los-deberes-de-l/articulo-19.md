@@ -1,0 +1,1 @@
+Artículo 19.—La pendiente en el sentido transversal de la acera, tendrá como máximo el 2% y como mínimo el 1%. En los casos en que se requiera construir rampas de acceso vehicular al predio, se deberá construir según lo establece el Plan Regulador.

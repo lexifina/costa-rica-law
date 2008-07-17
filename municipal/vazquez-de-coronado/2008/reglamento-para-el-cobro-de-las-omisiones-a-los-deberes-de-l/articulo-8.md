@@ -1,0 +1,2 @@
+Artículo 8º—Corresponderá a la Sección de Inspección del Departamento de Ingeniería y Urbanismo, determinar en el campo, la omisión de los deberes de los propietarios o poseedores de bienes inmuebles que señala el artículo 75, del Código.
+Una vez que se determina la omisión, el Inspector Municipal verificará quién es el propietario del inmueble donde se dan esas omisiones y cursará una notificación, otorgándole un plazo de treinta días hábiles para que cumpla con su deber.

@@ -1,0 +1,1 @@
+Artículo 17.—En la construcción de aceras se usará únicamente el concreto, chorreado o prefabricado, con acabado antideslizante. Toda acera cuyo deterioro supere una tercera parte de la totalidad, deberá reconstruirse totalmente.

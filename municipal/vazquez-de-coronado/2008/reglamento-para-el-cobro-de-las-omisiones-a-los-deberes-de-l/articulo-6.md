@@ -1,0 +1,1 @@
+Artículo 6º—Las notificaciones e inspecciones en general serán competencia de la Sección de Inspección del Departamento de Ingeniería y Urbanismo, las obligaciones establecidas en los incisos a), b), c), d), e), f), g), h), i), j), del artículo 75, del Código Municipal.

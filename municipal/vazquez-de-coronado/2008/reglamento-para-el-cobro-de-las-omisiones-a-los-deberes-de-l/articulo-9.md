@@ -1,0 +1,1 @@
+Artículo 9º—Transcurrido el plazo señalado en la notificación, el inspector verificará su cumplimiento y en caso de persistir la omisión, remitirá un informe a su jefatura, para que, se aplique la multa correspondiente, cada trimestre, hasta su efectivo cumplimiento, o bien, la Municipalidad realizará la obra.

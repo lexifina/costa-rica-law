@@ -1,0 +1,1 @@
+Artículo 13.—La determinación del costo efectivo, se realizará con base en el párrafo cuarto del artículo 75 del Código Municipal, mediante un estudio previo, la Municipalidad determinará los precios a cobrar y entrarán en vigencia una vez publicados en el Diario Oficial La Gaceta.

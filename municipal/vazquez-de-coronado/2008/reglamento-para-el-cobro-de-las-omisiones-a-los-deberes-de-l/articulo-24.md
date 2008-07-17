@@ -1,0 +1,1 @@
+Artículo 24.—Las canoas se deberán colocar a una altura no inferior a 2.40 metros, con hierro 28 o superior, pudiendo colocarse en material PVC. Los bajantes deberán desaguar en una tubería PVC, empotrada horizontalmente en la acera.
