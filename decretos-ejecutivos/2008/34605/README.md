@@ -14,3 +14,4 @@ Modifica para el Instituto de Desarrollo Agrario, el gasto presupuestario máxim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-10 | la propia norma |
+| 2 | 2008-07-17 | Decreto Ejecutivo 34664 (2008-07-17) |
