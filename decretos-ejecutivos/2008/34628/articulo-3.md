@@ -1,0 +1,1 @@
+Artículo 3º—Creación del programa: Créase el programa “Incentivar para innovar con Diseño” como programa del Museo de Arte y Diseño Contemporáneos, que se regirá por la Ley de Creación del Museo de Arte y Diseño Contemporáneos Nº 7758 del 19 de marzo de 1998 y demás normativa aplicable.

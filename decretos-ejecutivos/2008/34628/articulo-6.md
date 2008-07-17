@@ -1,0 +1,1 @@
+Artículo 6º—Supervisión del programa: De acuerdo con el artículo 5 inciso a) de la Ley de Creación del Museo de Arte y Diseño Contemporáneos Nº 7758 corresponderá a la Junta Administrativa del Museo de Arte y Diseño Contemporáneos la aprobación de las iniciativas y actividades atinentes a este programa, quien también verificará el cumplimiento de sus objetivos de creación.
