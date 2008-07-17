@@ -1,0 +1,1 @@
+Artículo 38.—Requisitos técnicos para caminos no clasificados. Para ejecutar cualquier obra de mantenimiento, conservación o mejoramiento se requiere que el camino esté debidamente reclasificado según se establece en el artículo 25 de este Reglamento en cuyo caso aplicarán los requisitos técnicos correspondientes a la nueva clasificación.
