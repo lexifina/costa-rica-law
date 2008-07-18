@@ -14,3 +14,4 @@ Autoriza a la Caja Costarricense de Seguro Social para que realice compras de bi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-09-21 | la propia norma |
+| 2 | 2008-07-18 | Resolución 107 (2008-07-18) |
