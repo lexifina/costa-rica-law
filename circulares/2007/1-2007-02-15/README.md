@@ -15,3 +15,4 @@ Procedencia de la inscripción de expresiones o señales de publicidad comercial
 | --- | --- | --- |
 | 1 | 2007-03-02 | la propia norma |
 | 2 | 2007-08-24 | Circular 14 (2007-08-24) |
+| 3 | 2008-07-18 | Circular 11 (2008-07-18) |

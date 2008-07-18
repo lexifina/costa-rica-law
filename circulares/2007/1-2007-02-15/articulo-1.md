@@ -20,7 +20,7 @@ Por consiguiente, a efecto de que las disposiciones de este Registro, en relaci�
 (Así reformado el punto anterior mediante circular N° 0014 del 24 de agosto de 2007)
 1) La inscripción de expresiones o señales de publicidad comercial, dependerá directamente de la relación y correspondencia de los productos o servicios a proteger o distinguir; así como con el giro comercial de las marcas o nombres comerciales a las que van asociadas, lo anterior con el firme propósito de no crear confusión o inducir a error al consumidor, según lo establece el artículo 62 inciso d), de la citada Ley de Marcas.
 (Así adicionado el punto anterior mediante circular N° 0014 del 24 de agosto de 2007)
-2) La inscripción de expresiones o señales de publicidad comercial, devengará la tasa de US$ 50,00 (cincuenta dólares de los Estados Unidos de América), por cada marca o nombre comercial al que vaya asociada, lo anterior de conformidad y en concordancia con los artículos 63 y 94 inciso c) de la Ley de Marcas y otros Signos Distintivos, Nº 7978.
+2) (Derogado mediante circular N° 011-2008 de 18 de julio de 2008)
 (Así adicionado el punto anterior mediante circular N° 0014 del 24 de agosto de 2007)
 Se recuerda que las disposiciones contenidas en esta circular son de acatamiento obligatorio.
 Rige a partir de su publicación en el Diario Oficial La Gaceta.
