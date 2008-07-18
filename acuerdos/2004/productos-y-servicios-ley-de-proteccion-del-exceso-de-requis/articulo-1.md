@@ -569,6 +569,7 @@ Internet Banking Corporativo
 Ver formulario de “Solicitud de Contrato B: N: Servicios Bancarios y Contrato de Servicios Bancarios”, en el Alcance N° 43 de La Gaceta N° 183 del 20 de setiembre del 2004.
 (Reformado los formularios BN Servicios Bancarios Persona Física y Persona Jurídica, mediante acuerdo del Banco Nacional, publicado en La Gaceta N° 232 del 01 de diciembre del 2005)
 (Reformado los formularios BN-Servicios bancarios Persona Física y Persona Jurídica, mediante acuerdo publicado en La Gaceta N° 74 del 18 de abril de 2007)
+(Reformado los formularios BN Servicios Bancarios Persona Física y Persona Jurídica, mediante acuerdo del Banco Nacional y publicado en La Gaceta N° 148 del 1 de agosto de 2008)
 Requisitos para el pago automático de salarios (PAS)
 Entrega de solicitud PAS, firmada por los responsables.
 Copia de personería jurídica.
