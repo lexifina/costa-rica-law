@@ -1,1 +1,1 @@
-Artículo 50.—Obtención de información no divulgada por medios ilícitos. Será sancionado con prisión de uno a tres años quien, por medios ilícitos o desleales, obtenga información no divulgada.
+Artículo 50.- (Derogado por el artículo 1° aparte e) de la ley N° 8656 del 18 de julio del 2008)

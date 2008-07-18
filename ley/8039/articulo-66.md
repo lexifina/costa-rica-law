@@ -1,1 +1,1 @@
-Artículo 66.—Violación de derechos derivados de patentes o modelos de utilidad registrados en Costa Rica. Será sancionado con prisión de uno a tres años quien fabrique productos patentados y registrados en Costa Rica por modelos de utilidad, emplee procedimientos patentados y registrados en Costa Rica sin el consentimiento de su titular, o actúe sin licencia ni autorización, de modo que pueda resultar daño al legítimo titular del derecho.
+Artículo 66.- (Derogado por el artículo 1° aparte e) de la ley N° 8656 del 18 de julio del 2008)
