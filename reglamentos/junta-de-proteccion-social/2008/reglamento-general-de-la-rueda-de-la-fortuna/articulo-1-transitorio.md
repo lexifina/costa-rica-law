@@ -1,0 +1,1 @@
+Transitorio I.—Los concursantes elegidos para el primer sorteo, se escogerán en el caso de los concursantes bajo la modalidad de boletos sin premio, de las personas que enviaron sobres con seis boletos sin premio, de los juegos vigentes a esa fecha.
