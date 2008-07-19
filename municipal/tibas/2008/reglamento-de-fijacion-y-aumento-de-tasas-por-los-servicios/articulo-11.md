@@ -1,0 +1,1 @@
+Artículo 11.—Para los casos de recolección de basura en zona comercial se aplicarán los mínimos y máximos fijados en el artículo anterior, pero con tarifa comercial. Este servicio se da con un máximo de dos estañones de basura por día de recolección, y sólo pueden ser residuos administrativos.

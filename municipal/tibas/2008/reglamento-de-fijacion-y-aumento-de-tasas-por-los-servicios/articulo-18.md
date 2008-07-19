@@ -1,0 +1,1 @@
+Artículo 18.—Para el cobro de tasas para el mantenimiento de parques y zonas verdes, se divide la suma anual a recuperar entre el total de m2 de parques y zonas verdes del cantón, el factor resultante se divide entre cuatro y el resultado se multiplica por los metros lineales totales de frente de cada propiedad.

@@ -1,0 +1,1 @@
+Artículo 3º—Entre otros se fijarán tasas por los servicios de limpieza de vías, recolección de basura, mantenimiento de parques y zonas verdes, policía municipal y cualquier otro que se establezca por ley en el futuro.

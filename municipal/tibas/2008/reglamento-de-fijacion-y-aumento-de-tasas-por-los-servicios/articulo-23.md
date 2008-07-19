@@ -1,0 +1,1 @@
+Artículo 23.—Una vez aprobados por el Concejo Municipal se envía a la Contraloría General de la República para su revisión y aprobación, luego de la aprobación por parte de dicho ente, las nuevas tasas o tarifas se deberán publicar en el Diario Oficial La Gaceta.

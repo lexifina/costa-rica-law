@@ -1,0 +1,1 @@
+Artículo 14.—En el caso de propiedades esquineras en cualquier tipo y/o naturaleza, ya sea alameda, calle, servidumbre o camino, se cobrará por el frente más largo, aplicando los mismos criterios de los artículos 10, 11 y 12 de este mismo reglamento.

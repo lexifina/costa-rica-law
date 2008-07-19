@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de Tibás podrá fijar o aumentar, tasas por los servicios que preste, las cuales se dictarán tomando en consideración el costo efectivo más un diez por ciento de utilidades para desarrollarlos.

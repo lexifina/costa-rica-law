@@ -1,0 +1,1 @@
+Artículo 22.—Las objeciones del Concejo serán comunicadas a la Administración Municipal, y sólo se podrán basar en criterios técnicos y jurídicos. La Administración gozará de ocho días hábiles para contestar las objeciones del Concejo.
