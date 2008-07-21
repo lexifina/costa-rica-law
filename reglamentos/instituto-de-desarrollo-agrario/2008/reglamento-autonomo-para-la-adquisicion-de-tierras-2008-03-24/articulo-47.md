@@ -1,10 +1,3 @@
-CAPÍTULO VII
-Plazos máximos para iniciar los procesos agrarios y de desarrollo
-Artículo 47.—Se establece como plazos máximos para el inicio de las etapas de apoyo técnico y control agrario en los procesos de adquisición de fincas, estudio de relación tierra-familia, selección de beneficiarios, adjudicación y titulación los siguientes:
-a. Adquisición de fincas: hasta un año contado a partir de la oferta de venta de la finca formalmente recibida por el IDA.
-b. Estudio de relación tierra familia: seis meses contados a partir de la compra de la finca.
-c. Selección de beneficiarios: un año contado a partir de la compra de la finca.
-d. Adjudicación: Seis meses contados a partir de la selección de beneficiarios.
-e. Control agrario: tres meses a partir de la firma del contrato de asignación de tierras, esta labor es permanente durante el periodo de prueba y los quince años de limitaciones a partir de la titulación de los predios.
-f. Acciones de apoyo al desarrollo: tres meses a partir de la adjudicación de las familias, esta labor es permanente pero tendrá mayor énfasis en los primeros cinco años, contados a partir de la adjudicación.
-g. Otorgamiento de escrituras: Un año contado a partir del vencimiento del período de prueba.
+Artículo 47.—La falta de cumplimiento de las condiciones aquí establecidas, impide la compra del terreno en conflicto en cuyo caso, el Instituto podrá ofrecer a los ocupantes otras soluciones de acuerdo a los procesos ordinarios de compra de tierras y según las posibilidades de este.
+Si durante la tramitación o ya enteramente cumplidos los procedimientos que señala el Capítulo Sexto de la Ley de Tierras y Colonización, denominado “Regulación de Conflictos entre Propietarios y Poseedores en Precario”, el Instituto por medio de su Junta Directiva, decida adquirir el inmueble objeto de conflicto, se aplicará en lo pertinente el procedimiento señalado en el Capítulo III de este Reglamento.
+(Así corrida su numeración mediante sesión N° 021, del 21 de julio del 2008. que lo traspaso del antiguo artículo 42 al 47actual)

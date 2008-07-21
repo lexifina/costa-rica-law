@@ -1,2 +1,6 @@
-Artículo 42.—La falta de cumplimiento de las condiciones aquí establecidas, impide la compra del terreno en conflicto en cuyo caso, el Instituto podrá ofrecer a los ocupantes otras soluciones de acuerdo a los procesos ordinarios de compra de tierras y según las posibilidades de este.
-Si durante la tramitación o ya enteramente cumplidos los procedimientos que señala el Capítulo Sexto de la Ley de Tierras y Colonización, denominado “Regulación de Conflictos entre Propietarios y Poseedores en Precario”, el Instituto por medio de su Junta Directiva, decida adquirir el inmueble objeto de conflicto, se aplicará en lo pertinente el procedimiento señalado en el Capítulo III de este Reglamento.
+(*) CAPÍTULO V
+(*) (Así corrida su numeración mediante sesión N° 021, del 21 de julio del 2008. que lo traspaso del antiguo capítulo IV al V actual)
+De la adquisición de tierras para solucionar
+conflictos de ocupación precaria
+Artículo 42.—Habiéndose declarado un conflicto de ocupación precaria en los términos de los artículos 92 a 97 de la Ley de Tierras y Colonización, el Instituto se avocará a intermediar para que, en la medida de lo posible, entre los ocupantes y propietarios se pueda realizar una compra venta del inmueble en conflicto.
+(Así corrida su numeración mediante sesión N° 021, del 21 julio del 2008 que lo traspaso del antiguo artículo 37 al 42 actual.)
