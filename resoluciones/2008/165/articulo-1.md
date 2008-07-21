@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-165-2008.—Dirección General de Aduanas.—San José, a las quince horas del día ocho de mayo del año dos mil ocho.
+Considerando:
+I.—Que es competencia del Director General de Aduanas determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+II.—Que de conformidad con el artículo 2 del Decreto Ejecutivo Nº 32456-H del 29 de junio del 2005, publicado en La Gaceta número 138 del 18 de julio del 2005, el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, un nuevo sistema informático denominado Sistema de Información para el Control Aduanero TICA.
+III.—Que mediante la RES-DGA-146-2007 de fecha 19 de marzo de 2007 se comunicó el “Plan de Contingencia para la Continuidad de las Operaciones de la Aduana de Limón”, el cual es de acatamiento obligatorio para los funcionarios del Servicio Nacional de Aduanas, Auxiliares de la función pública aduanera y demás usuarios del Sistema Aduanero Nacional.
+IV.—Que el Por tanto 2, de la Resolución DGA-146-2007 establece lo siguiente: “El Plan de Contingencia deberá ser revisado y actualizado de conformidad con las necesidades del Servicio Nacional de Aduanas…”
+V.—Que mediante la Resolución DGA-155-2008 de fecha 28 de abril de 2008 se aprueban y adicionan a los contenidos en el Manual de Procedimientos Aduaneros, publicado en la resolución RES-DGA-203- 2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005, los Procedimientos de Exportación, los que regirán a partir del 19 de mayo de 2008.
+VI.—Que dado la aprobación de los Procedimientos de Exportación y su implementación en el sistema TICA, es necesario ajustar el “Plan de contingencia” citado, a efectos de estar preparados para asegurar la continuidad del servicio aduanero. Por tanto,
+Con fundamento en las consideraciones de hecho y de derecho citadas, el Director General de Aduanas, resuelve:
+1º—Comunicar el “Plan de Contingencia para la Continuidad de las Operaciones del Servicio Nacional de Aduanas”, ajustado a las nuevas necesidades que impone la implementación del procedimiento de exportación, el cual será de acatamiento obligatorio para los funcionarios del Servicio Nacional de Aduanas, Auxiliares de la función pública aduanera y demás usuarios del Sistema Aduanero Nacional.
+2º—Este Plan deberá implementarse, de conformidad con las etapas y momentos apropiados, cuando ocurra alguna de las situaciones imprevistas indicadas en el mismo.
+3º—El Plan de Contingencia deberá ser revisado y actualizado de conformidad con las necesidades del Servicio Nacional de Aduanas.
+4º—Dicho documento se encuentra publicado en la página web del Ministerio de Hacienda, en la dirección electrónica www.hacienda.go.cr, apartado TICA/Planes de Contingencia y el apartado Dirección de Gestión Técnica/Manuales.
+5º—Rige a partir del 19 de mayo del 2008.
