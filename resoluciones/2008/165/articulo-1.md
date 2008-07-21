@@ -12,4 +12,5 @@ Con fundamento en las consideraciones de hecho y de derecho citadas, el Director
 2º—Este Plan deberá implementarse, de conformidad con las etapas y momentos apropiados, cuando ocurra alguna de las situaciones imprevistas indicadas en el mismo.
 3º—El Plan de Contingencia deberá ser revisado y actualizado de conformidad con las necesidades del Servicio Nacional de Aduanas.
 4º—Dicho documento se encuentra publicado en la página web del Ministerio de Hacienda, en la dirección electrónica www.hacienda.go.cr, apartado TICA/Planes de Contingencia y el apartado Dirección de Gestión Técnica/Manuales.
-5º—Rige a partir del 19 de mayo del 2008.
+(*)5º—Rige a partir del 16 de junio del 2008.
+(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).

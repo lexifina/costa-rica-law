@@ -14,3 +14,4 @@ Comunica que "Plan de Contingencia para continuidad de operaciones del Servicio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-21 | la propia norma |
+| 2 | 2008-07-21 | Resolución 193 (2008-05-14) |
