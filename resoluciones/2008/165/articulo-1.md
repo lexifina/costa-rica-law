@@ -13,4 +13,5 @@ Con fundamento en las consideraciones de hecho y de derecho citadas, el Director
 3º—El Plan de Contingencia deberá ser revisado y actualizado de conformidad con las necesidades del Servicio Nacional de Aduanas.
 4º—Dicho documento se encuentra publicado en la página web del Ministerio de Hacienda, en la dirección electrónica www.hacienda.go.cr, apartado TICA/Planes de Contingencia y el apartado Dirección de Gestión Técnica/Manuales.
 (*)5º—Rige a partir del 16 de junio del 2008.
-(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).
+(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).(**)
+(**) (NOTA: Mediante resolución N° 236 de 12 de junio de 2008, se indica que se traslada de forma indefinida la fecha de implementación en la Aduana de Limón del nuevo sistema de Exportaciones TICA, por lo que "Congruente con lo anterior, las fechas de vigencia de las resoluciones DGA-155-2008 del 28 de abril de 2008, DGA-167-2008 del 02 de mayo de 2008, DGA-165-2008 del 08 de mayo de 2008, y cualquier otra directriz que conlleve actuaciones asociadas directamente a este sistema, será la fecha que se defina en su oportunidad para la implementación en la Aduana de Limón del Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA").
