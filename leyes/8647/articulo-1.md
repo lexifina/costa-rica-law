@@ -1,0 +1,8 @@
+8647
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE PÉREZ ZELEDÓN
+PARA QUE SEGREGUE UN TERRENO DE SU PROPIEDAD
+Y LO DONE AL MINISTERIO DE AMBIENTE Y ENERGÍA
+ARTÍCULO 1.-
+Autorízase a la Municipalidad de Pérez Zeledón para que segregue un lote de la propiedad inscrita en el Registro Nacional de la Propiedad, bajo el Sistema de Folio Real matrícula número dos ocho cinco. seis cuatro uno – cero cero cero (Nº 285.641-000), del partido de San José, ubicada en el distrito 3º, Daniel Flores; cantón XIX, Pérez Zeledón; provincia, San José; linda al norte con la carretera interamericana, la Universidad Nacional Estatal a Distancia y el Consejo Nacional de Rehabilitación y Educación Especial; al sur, con la Asociación de Desarrollo Pro Atención al Menor y otro; al este, con Liliana Halder Picado y otro, y al oeste, con la Asociación de Desarrollo Pro Atención al Menor y otro. La medida registral de dicha propiedad es de ciento veintisiete mil trescientos ochenta y ocho metros con diecisiete decímetros cuadrados (127.388,17 m2). El lote por segregar mide tres mil quinientos cuarenta metros con cuarenta y tres decímetros cuadrados (3.540,43 m2); es terreno para construir y sus linderos son: al norte, el Consejo Nacional de Rehabilitación y Educación Especial; al sur, la Municipalidad de Pérez Zeledón; al este, con calle pública, con un frente a ella de treinta y nueve metros con noventa y ocho centímetros lineales, y al oeste, calle pública, con un frente a ella de treinta y nueve metros con quince centímetros lineales, según se describe en el plano catastrado número SJ – seis siete dos . seis dos nueve – dos cero cero cero (Nº SJ-672.629-2000).

@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad de Pérez Zeledón para que done el lote de tres mil quinientos cuarenta metros con cuarenta y tres decímetros cuadrados (3.540,43 m2), segregado conforme al artículo 1 de esta Ley, al Ministerio de Ambiente y Energía (Minae), para que en él se construyan tanto el edificio que albergará sus instalaciones en el cantón de Pérez Zeledón como sus oficinas y demás instalaciones necesarias.
