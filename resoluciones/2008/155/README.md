@@ -16,3 +16,4 @@ Reforma Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y 
 | 1 | 2008-07-21 | la propia norma |
 | 2 | 2008-07-21 | Resolución 167 (2008-05-12) |
 | 3 | 2008-07-21 | Resolución 193 (2008-05-14) |
+| 4 | 2008-07-21 | Resolución 236 (2008-06-12) |

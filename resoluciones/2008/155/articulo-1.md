@@ -573,5 +573,6 @@ B. El funcionario aduanero controlará que el DUA se presente en los primeros di
 (*) (Así adicionada la Sección V anterior por resolución DGA-167 del 12 de mayo de 2008).
 2º—Dichos procedimientos se adicionan a los contenidos en el Manual de Procedimientos Aduaneros, publicado en la resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005.
 (*)3º—La presente Resolución rige a partir del 16 de junio del 2008.
-(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).
+(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).(**)
+(**) (NOTA: Mediante resolución N° 236 de 12 de junio de 2008, se indica que se traslada de forma indefinida la fecha de implementación en la Aduana de Limón del nuevo sistema de Exportaciones TICA, por lo que "Congruente con lo anterior, las fechas de vigencia de las resoluciones DGA-155-2008 del 28 de abril de 2008, DGA-167-2008 del 02 de mayo de 2008, DGA-165-2008 del 08 de mayo de 2008, y cualquier otra directriz que conlleve actuaciones asociadas directamente a este sistema, será la fecha que se defina en su oportunidad para la implementación en la Aduana de Limón del Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA"):
 4º—Comuníquese y publíquese en el Diario Oficial La Gaceta.
