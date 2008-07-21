@@ -14,3 +14,4 @@ Reglamento para los funcionarios del Instituto Mixto de Ayuda Social que deben r
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-31 | la propia norma |
+| 2 | 2008-07-21 | Reglamento 0 (2008-07-21) |
