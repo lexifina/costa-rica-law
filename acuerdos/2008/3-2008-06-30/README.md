@@ -14,3 +14,4 @@ Procedimiento para el otorgamiento de concesiones para explotar centrales de lim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-21 | la propia norma |
+| 2 | 2008-07-21 | Acuerdo 1 (2008-07-14) |
