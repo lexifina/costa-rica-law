@@ -1,0 +1,18 @@
+Nº 34629-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones y facultades conferidas en los artículos 140, incisos 3), 8) y 18) y 146, de la Constitución Política, y los artículos 25 inciso 1), 27 inciso 1), y 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de Administración Pública del 2 de mayo de 1978, artículo 42 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 de 3 de mayo de 1971, Decreto Ejecutivo Nº 29264-H, del 24 de enero del 2001, publicado en La Gaceta Nº 27 de 7 de febrero del 2001.
+Considerando:
+1º—Que el artículo 42 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 de 3 de mayo de 1971 y sus reformas, faculta al Ministerio de Hacienda a variar, por medio de Decreto Ejecutivo, las formas de pago de los tributos previstas por leyes tributarias, para hacer más eficiente y ágil la recaudación tributaria.
+2º—Que la Administración Tributaria bajo una filosofía de servicio al contribuyente, ha utilizado el desarrollo tecnológico, para facilitar el cumplimiento y pago de las obligaciones tributarias, al reconocer que el empleo de medios electrónicos favorece no sólo la eficiencia y productividad de las actividades de los sujetos pasivos, sino también su control y supervisión. Para estos efectos, ha implementado sistemas de pago electrónico mediante el uso de Internet, como medio para facilitar ese cumplimiento.
+3º—Que el Sistema Interbancario de Negociación y Pagos Electrónicos (SINPE) del Banco Central de Costa Rica, posibilita el pago de las obligaciones tributarias por medio de órdenes de débito directo y débitos en tiempo real, a las cuentas que expresamente autorice el contribuyente.
+4º—Que la Administración Tributaria considera necesario adoptar formas de pago apoyadas en medios electrónicos, para agilizar y facilitar el cumplimiento de las obligaciones tributarias.
+5º—Que existe un impacto importante, provocado por la utilización de las Tecnologías de la Información y Comunicaciones, que ameritan que la Administración Tributaria encargada de la percepción y fiscalización de los tributos, adopte nuevas formas de pago acordes con los avances experimentados en la Internet y en las políticas de fomento del Gobierno Digital.
+6º—Que el Decreto Ejecutivo Nº 29264-H, o Reglamento General de Gestión, Fiscalización y Recaudación Tributaria del 24 de enero del 2001, publicado en La Gaceta Nº 27 de 7 de febrero del 2001, contempla los medios y formas de pago de los tributos, sin considerar el avance tecnológico y los nuevos medios y formas que imperan, lo cual permite a la Administración Tributaria brindar servicios más eficientes y ágiles y reducir los costos que implican los procesos actuales. Por tanto,
+Decretan:
+Artículo 1º—Modifíquese el artículo 86 del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria, Decreto Ejecutivo Nº 29264-H, del 24 de enero del 2001, publicado en La Gaceta Nº 27 de 7 de febrero del 2001, para que se lea como sigue:
+“Artículo 86.—Medios y formas de pago: El pago se hará por alguno de los siguientes medios y formas, con los requisitos y condiciones que para cada uno de ellas se establecen en los artículos siguientes:
+a) Moneda de curso legal.
+b) Cheque.
+c) Pago por medios electrónicos, tales como: transferencia vía Internet, tarjetas de crédito o débito en redes digitales, pagos vía telemática, tarjetas inteligentes, cheques electrónicos, tarjetas prepagadas, dinero electrónico y otros que puedan surgir con la evolución tecnológica.
+d) Cualesquiera otros medios y formas autorizados por ley o por decreto ejecutivo.
