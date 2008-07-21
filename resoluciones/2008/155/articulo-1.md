@@ -569,8 +569,9 @@ C- Actuaciones de las Autoridades Portuarias o Aeroportuarias
 A- Actuaciones de RECOPE
 1) En los primeros diez días hábiles a la finalización del mes calendario, RECOPE transmite el mensaje definitivo del DUA de exportación, declarando en el campo (MON_ASOC)”momento de declaración del inventario”, el código 3 que corresponde a “no requiere la asociación de inventario” y en campo TIPO_CARGA “Origen del tipo de carga”, el código 9, que corresponde “sin inventario”. Además deberá enviar en el mensaje del DUA en la casilla de observaciones un detalle por cada línea aérea y los distintos números de vuelo o el detalle de los buques, según corresponda.
 B- Actuaciones de la Aduana
-A. El funcionario aduanero controlará que el DUA se presente en los primeros diez días hábiles a la finalización del mes calendario y en caso de “revisión documental y reconocimiento físico” realizará únicamente la revisión documental por cuanto la mercancía salió de previo del territorio aduanero.
+B. El funcionario aduanero controlará que el DUA se presente en los primeros diez días hábiles a la finalización del mes calendario y en caso de “revisión documental y reconocimiento físico” realizará únicamente la revisión documental por cuanto la mercancía salió de previo del territorio aduanero.
 (*) (Así adicionada la Sección V anterior por resolución DGA-167 del 12 de mayo de 2008).
 2º—Dichos procedimientos se adicionan a los contenidos en el Manual de Procedimientos Aduaneros, publicado en la resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005.
-3º—La presente Resolución rige a partir del 19 de mayo del 2008.
+(*)3º—La presente Resolución rige a partir del 16 de junio del 2008.
+(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).
 4º—Comuníquese y publíquese en el Diario Oficial La Gaceta.
