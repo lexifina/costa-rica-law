@@ -1,0 +1,2 @@
+Artículo 110.—Para un mejor cumplimiento de lo indicado en el artículo anterior, cada oficina subregional deberá mantener un banco de elegibles, ello con la finalidad de que los predios puedan ser asignados en el menor tiempo posible y puestos en posesión de los y las nuevas asignatarias.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 104 al 110 actual).

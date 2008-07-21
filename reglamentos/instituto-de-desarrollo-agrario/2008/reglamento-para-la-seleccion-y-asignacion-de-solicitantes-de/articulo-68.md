@@ -1,8 +1,3 @@
-Artículo 68.—Finalizados los estudios anteriores, la Oficina Subregional, elevará el informe técnico detallado a la Dirección Regional respectiva, adjuntándose toda la documentación aportada, así como la encuesta aplicada. Dicho informe contendrá como mínimo los siguientes aspectos:
-a) Características generales del predio a traspasar.
-b) Nombre completo y cédula de las personas asignatarias y de las personas adquirentes.
-c) Motivo del traspaso.
-d) Situación actual del predio.
-e) Aspectos socioeconómicos de las personas adquirentes.
-f) Recomendación del funcionario o la funcionaria autorizada que indique si considera conveniente la aprobación o no del traspaso.
-g) Cualquier información adicional que se considere importante.
+Artículo 68.—Las personas jurídicas asignatarias de tierras tendrán un máximo de seis meses, a partir de la notificación de la asignación, para empezar a desarrollar las actividades previstas en el predio. Las Oficinas Subregionales velarán por el cumplimiento de estas disposiciones.
+Si por alguna razón injustificada la persona jurídica asignataria no pudiera iniciar el desarrollo del proyecto en el plazo fijado, se procederá con el trámite correspondiente de revocatoria y subsecuente nulidad de título, si lo hubiera.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 62 al 68 actual).

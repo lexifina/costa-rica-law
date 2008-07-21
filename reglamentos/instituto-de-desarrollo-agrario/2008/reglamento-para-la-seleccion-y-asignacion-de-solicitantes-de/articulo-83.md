@@ -1,1 +1,3 @@
-Artículo 83.—Una vez autorizada la segregación en cabeza de su dueño, deberá recurrir ante notario para el trámite de inscripción ante el Registro Público de la Propiedad. La escritura pública donde se materialice dicha segregación deberá cumplir con el trámite de referendo y requisitos a que hace referencia el artículo 73 de este Reglamento.
+Artículo 83.—Para dicha segregación, la persona solicitante y su pareja deberán llenar el formulario de solicitud correspondiente y aportar los requisitos que establece el artículo 70 de este reglamento, además copia del plano catastrado del área a segregar.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 77 al 83 actual).
+(Así reformado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

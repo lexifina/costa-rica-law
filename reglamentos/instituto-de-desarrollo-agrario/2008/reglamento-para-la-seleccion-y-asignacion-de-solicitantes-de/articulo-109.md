@@ -1,0 +1,2 @@
+Artículo 109.—Los predios que quedasen disponibles por renuncias, revocatorias o nulidades de títulos, serán nuevamente asignados en el plazo no mayor de treinta días hábiles, entre las personas solicitantes de la Región, dando prelación a los restantes calificados a los cuales se refiere el artículo 14 de este Reglamento.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 103 al 109 actual).

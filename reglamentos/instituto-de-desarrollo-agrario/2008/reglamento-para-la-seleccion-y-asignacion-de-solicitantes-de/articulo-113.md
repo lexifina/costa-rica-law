@@ -1,0 +1,2 @@
+Artículo 113.—Este Reglamento deroga el Reglamento para la Selección y Adjudicación de Solicitantes de Tierras, aprobado por la Junta Directiva en el artículo 6º de la sesión Nº 029-2007 del 3 de setiembre del 2007, publicado en el Diario Oficial La Gaceta Nº 198 del 16 de octubre del 2007, así como cualquier otra disposición reglamentaria que se le oponga.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 107 al 113 actual).

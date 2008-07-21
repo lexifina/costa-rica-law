@@ -1,5 +1,15 @@
-Artículo 50.—Toda solicitud de predio para otros fines que no sean los de vivienda, deberá ser acompañada de las constancias o certificaciones dentro de las cuales se adjuntarán invariablemente las indicadas en el artículo 64 de este Reglamento, en lo que al solicitante se refiere y las que se describen a continuación.
-a) Declaración jurada de que no posee tierras aledañas a la comunidad o que las que posee no son aptas para el desarrollo del proyecto.
-b) Constancia de las entidades correspondientes que no existe impedimento para el desarrollo del proyecto.
-c) En caso de proceder, nota del ente que financiara el proyecto y las condiciones de financiamiento.
-d) Nota de las organizaciones representativas de la comunidad que avalan el proyecto.
+Artículo 50.—A pesar de lo estipulado en el Artículo 13 de este Reglamento, se dará por descalificada una familia solicitante de granja familiar, aún cuando cuente con la calificación mínima, cuando se comprobare el encontrarse en una o más de las siguientes situaciones:
+a) Incumplimiento de deudas de la persona solicitante o su pareja con el Sistema Bancario Nacional u otras entidades en forma injustificada.
+b) Comprobación de que la persona solicitante o miembros del núcleo familiar poseen vivienda, parcela o propiedades suficientes que le permitan establecer la misma o su granja familiar.
+c) Comprobación de que la persona solicitante, o miembros del núcleo familiar poseen ingresos mayores a dos salarios mínimos mensuales de un trabajador no calificado dentro del Sector Agrícola.
+d) Comprobación de que la persona solicitante o su pareja han poseído bienes muebles o inmuebles que les permitían un nivel socioeconómico estable y seguro y que dejaron de poseerlos por razones injustificadas.
+e) Comprobación de que la persona solicitante o su pareja declararon información falsa en la entrevista o por haber aportado u omitido aportar documentación, que por su relevancia hizo que variara el puntaje mencionado en el Artículo 13 de este Reglamento.
+f) Comprobación de que la persona solicitante o su pareja han vendido mejoras o abandonado un predio del Instituto, sin razones justificadas o haber vendido en forma ilegal.
+g) Comprobación de que posteriormente a la aplicación de la encuesta, una familia sujeto de análisis se ha desintegrado, en cuyo caso el estudio debe repetirse con las nuevas condiciones presentadas.
+h) Comprobación de que la persona solicitante o su pareja se dedica al comercio de tierras.
+i) Comprobación de que la persona solicitante, su pareja o miembros de su núcleo familiar son de una conducta reprochable, o que riñe con las reglas de la moral, las buenas costumbres y que atenta contra las buenas relaciones con los demás pobladores del asentamiento.
+j) Renuencia a explotar o desarrollar la granja familiar y habitar en ella.
+k) Personas extranjeras que no tengan su status de residente permanente conforme a lo establecido en el Artículo 16 de este Reglamento, o que estén optando a un predio adquirido con recursos de FODESAF.
+l) Comprobación de que la persona solicitante o miembros de su núcleo familiar son asignatarios o asignatarias de una parcela, granja familiar o lote para vivienda.
+m) Que la persona solicitante o su pareja esté en la condición de casada y no conviva con su cónyuge.
+(Así adicionado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

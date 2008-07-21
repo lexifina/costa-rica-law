@@ -15,3 +15,4 @@ Reglamento para la Selección y Asignación de Solicitantes de Tierras
 | --- | --- | --- |
 | 1 | 2008-02-22 | la propia norma |
 | 2 | 2008-02-22 | Reglamento 9 (2008-04-21) |
+| 3 | 2008-07-21 | Reglamento 21 (2008-07-21) |

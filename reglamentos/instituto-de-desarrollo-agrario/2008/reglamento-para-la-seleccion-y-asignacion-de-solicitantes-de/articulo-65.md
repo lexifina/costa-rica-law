@@ -1,1 +1,2 @@
-Artículo 65.—Para la aprobación de traspasos de predios la persona vendedora debe cancelar la totalidad de las deudas con el Instituto, sean estas por tierras o crédito rural.
+Artículo 65.—Con base en los anteriores requisitos, el funcionario o la funcionaria autorizada realizará un estudio de la solicitud para ver su procedencia. Si el funcionario o la funcionaria avalan la solicitud remitirá un informe y recomendación a la Dirección Regional con el visto bueno del Jefe Subregional, quien a su vez, de avalar dicha gestión lo remitirá a la Junta Directiva para su aprobación.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 59 al 65 actual).

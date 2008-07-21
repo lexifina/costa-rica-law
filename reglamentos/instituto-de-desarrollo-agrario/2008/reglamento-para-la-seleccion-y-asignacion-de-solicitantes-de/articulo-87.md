@@ -1,1 +1,2 @@
-Artículo 87.—Revisada la solicitud y verificado el cumplimiento de requisitos la Oficina Subregional emitirá un informe recomendatorio dirigido a la Dirección Regional para su aprobación definitiva.
+Artículo 87.—Una vez elaborada la resolución, la misma será comunicada a la Oficina Subregional, para su debida notificación a las personas interesadas. También deberá la Dirección Regional remitir copia de esta resolución a la Dirección de Asuntos Jurídicos, al Área de Selección de Familias y al Área de Titulación.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 81 al 87 actual).

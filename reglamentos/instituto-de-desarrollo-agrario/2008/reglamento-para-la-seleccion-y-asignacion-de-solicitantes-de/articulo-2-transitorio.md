@@ -1,2 +1,2 @@
-Transitorio II.—En el caso de granjas familiares recuperadas por el Instituto ya sea por renuncia o por procedimientos de revocatoria o nulidad de título, la Dirección Regional correspondiente deberá realizar la adecuación del caso para que las mismas sean redefinidas en la modalidad de lote para vivienda, en los términos de presente reglamento.
-(Así reformado mediante sesión N° 009 del 21 de abril de 2008).
+Transitorio II.- El plazo de dos años establecido en el Artículo 13 de este Reglamento, se hace extensivo a todas aquellas personas solicitantes de tierras que hayan sido declaradas elegibles con antelación y que no hayan sido adjudicadas.
+(Así adicionado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

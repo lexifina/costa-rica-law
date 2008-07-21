@@ -1,3 +1,2 @@
-CAPÍTULO IX
-De las sanciones por incumplimiento
-Artículo 105.—La violación de alguno de los artículos del presente reglamento por parte de los solicitantes, asignatarios o propietarios, traerá como consecuencia la pérdida del derecho que ostenta, previa aplicación del debido, y en los términos aquí consignados.
+Artículo 105.—De los permisos temporales que se aprueben por parte de la Oficina Subregional, deberá remitirse copia a la Dirección Regional y al Área de Selección de Familias para su control y fiscalización correspondiente.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 99 al 105 actual).

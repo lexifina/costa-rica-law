@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-De las renuncias, permisos, revocatorias y nulidades de títulos
-Artículo 84.—Si por alguna razón la persona asignataria y su pareja se viesen imposibilitados de continuar permanentemente al frente de su predio, deberán devolverlo al Instituto mediante renuncia formal por escrito a la asignación del mismo. La renuncia deberá presentarse ante la Oficina Subregional correspondiente, quien la remitirá junto con un informe detallado a la Dirección Regional, para su debida aceptación.
+Artículo 84.—La solicitud y documentación adjunta, deberá ser remitida a la Dirección Regional conjuntamente con el informe y recomendación correspondiente, para su resolución o trámite ante la Junta Directiva, cuando la solicitud de segregación sea a favor de familiares en primer grado, en cuyo caso se deberá de seguir el procedimiento normal de traspaso ante el órgano competente.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 78 al 84 actual).

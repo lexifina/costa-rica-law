@@ -1,1 +1,6 @@
-Artículo 69.—En caso de estimarlo necesario, la Dirección Regional podrá solicitar ampliación de la información a la Oficina Subregional u ordenar que un nuevo funcionario o funcionaria autorizada realice en el campo el estudio de dicho traspaso. Así mismo, esta Dirección tendrá facultad para apartarse del criterio de la Oficina Subregional cuando del análisis de la documentación o del estudio de campo realizado se determine la inconveniencia de la aprobación o denegatoria del traspaso solicitado.
+(*)CAPÍTULO VII
+Del procedimiento para el traspaso de predios
+a personas físicas o jurídicas
+(*)(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo capítulo VI al VII actual).
+Artículo 69.—Durante la vigencia del período de prueba, no se autorizarán traspasos o venta de mejoras de parcelas.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 63 al 69 actual).

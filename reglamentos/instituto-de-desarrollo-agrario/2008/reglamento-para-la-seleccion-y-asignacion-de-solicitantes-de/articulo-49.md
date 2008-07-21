@@ -1,4 +1,13 @@
-Artículo 49.—En caso de que una persona física requiera de un predio para otros fines que no sean los de vivienda, pero que implique el desarrollo de alguna actividad de beneficio social, comunal o comercial y de servicios en beneficio del asentamiento, deberá realizar una solicitud ante la Oficina Subregional correspondiente. Dicha solicitud deberá contener al menos los siguientes aspectos:
-a) Nombre de la persona solicitante y su pareja.
-b) Ubicación del predio solicitado.
-c) Justificación del uso que le dará al predio solicitado con su respectivo detalle a nivel de perfil, donde, entre otros aspectos, se demuestre el beneficio directo para la comunidad.
+Artículo 49.—Para la ponderación de las solicitudes de Granjas familiares, se pondrá especial énfasis en las siguientes variables:
+a) Lugar de Residencia.
+b) Edad.
+c) Escolaridad.
+d) Responsabilidad familiar.
+e) Aporte de mano de obra familiar.
+f) Actividad o actividades más importantes en las que se ha ocupado en los últimos diez años.
+g) Producción agrícola como trabajo extra en los últimos cinco años.
+h) Uso del crédito y responsabilidad financiera en los últimos cinco años.
+i) Participación en organizaciones de productores o productoras, comunales y sociales en los últimos cinco años.
+j) Capacitación agropecuaria en los últimos cinco años.
+k) Posesión de propiedades por parte del núcleo familiar.
+(Así adicionado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

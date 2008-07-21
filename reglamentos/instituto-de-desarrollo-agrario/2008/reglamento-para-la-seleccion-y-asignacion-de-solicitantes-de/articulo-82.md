@@ -1,1 +1,3 @@
-Artículo 82.—Contra la resolución negativa que emita el Director Regional cabrá recurso de apelación ante la Junta Directiva del Instituto, el cual deberá interponerse en los términos y plazos que establece los artículos 27 y 28 de este Reglamento.
+Artículo 82.—No se autorizarán segregaciones en parcelas en período de prueba o no tituladas.
+(Así reformado mediante sesión N° 009 del 21 de abril de 2008).
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 76 al 82 actual).

@@ -1,7 +1,2 @@
-Artículo 58.—Toda solicitud de un predio, por parte de personas jurídicas sin fines de lucro, será acompañada de las constancias o certificaciones a que hace referencia el artículo 64 de este reglamento, dentro de las cuales se adjuntarán invariablemente las siguientes:
-a) Certificación de personería jurídica y copia de cédula jurídica vigentes.
-b) Copia del acta constitutiva.
-c) Constancia expedida por la respectiva entidad, de los miembros que conforman la organización, con sus calidades de ley.
-d) Trascripción del acuerdo, debidamente certificado, donde la asamblea general solicite la asignación del predio al Instituto.
-e) Estados financieros del último período fiscal, debidamente certificados o en su defecto, si no los hubiere, constancia de la persona jurídica de no poseer deudas.
-f) Certificación del Registro Público de la Propiedad que indique si posee bienes inmuebles inscritos. En caso de tenerlos deberá adjuntar certificación literal de cada uno de ellos.
+Artículo 58.—Las familias asignatarias de parcelas podrán optar por un lote para vivienda o predio para otros fines, siempre y cuando demuestren su necesidad, en razón de las condiciones de la parcela con respecto a la ubicación de servicios públicos tales como transporte, educación, salud, agua potable y servicio eléctrico para lo cual se le aplicará, en lo que corresponda, lo establecido en este capítulo.
+(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 52 al 58 actual).
