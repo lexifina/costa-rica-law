@@ -1,5 +1,11 @@
 DIRECCIÓN GENERAL DE ADUANAS
 Resolución DGA-155-2008.—Dirección General de Aduanas.—San José, a las nueve horas del día veintiocho de abril de dos mil ocho.
+(NOTA: Mediante resolución RES-DGA-430-2008 de 6 de octubre de 2008, se indica que las actuaciones asociadas al sistema TICA, tendrán vigencia en la Aduana de Paso Canoas a partir del 20 de octubre de 2008).
+(NOTA: Mediante Resolución RES-DGA-053 de 19 de febrero de 2009 se comunica que apartir del 16 de marzo de 2009 se implementará en la Aduana Santamaría el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA).
+(NOTA: Mediante Resolución RES-DGA-083-2009 de 10 de marzo del 2009, se comunica que se traslada la implementación del Régimen de Exportaciones en el Sistema de Información para el Control Aduanero (TICA) en la Aduana Juan Santamaría para el 23 de Marzo del 2009 y se deja sin efecto la RES-DGA-053 de 19 de febrero de 2009).
+(NOTA: Mediante Resolución RES-DGA-0112 - 2009 de 20 de marzo del 2009, se comunica que se traslada la implementación del Régimen de Exportaciones modalidad courier en el Sistema de Información para el Control Aduanero (TICA) en la Aduana Juan Santamaría para el 13 de abril del 2009, e informa que las demás modalidades de exportación inician el lunes 23 de marzo de 2009 como se oficializó en la resolución RES-DGA-083-2009 de 10 de marzo del 2009).
+(NOTA: Mediante Resolución RES-DGA-127-2009 de 13 de abril de 2009, se comunica que a partir del 18 de mayo de 2009 se implementará en la Aduana de Limón el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA.)
+Considerando:
 Considerando:
 1º—Que en cumplimiento al rol de facilitación y control que debe tener la aduana moderna, en las operaciones de comercio exterior, la Dirección General de Aduanas ha efectuado esfuerzos para dotar al Sistema Aduanero Nacional de herramientas necesarias para el desarrollo de ese papel.
 2º—Que la resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005, recoge los procedimientos de Ingreso y Salida de Mercancías, Vehículos y Unidades de Transporte, Tránsito Aduanero, Depósito Fiscal e Importación Definitiva y Temporal.
@@ -572,7 +578,9 @@ B- Actuaciones de la Aduana
 B. El funcionario aduanero controlará que el DUA se presente en los primeros diez días hábiles a la finalización del mes calendario y en caso de “revisión documental y reconocimiento físico” realizará únicamente la revisión documental por cuanto la mercancía salió de previo del territorio aduanero.
 (*) (Así adicionada la Sección V anterior por resolución DGA-167 del 12 de mayo de 2008).
 2º—Dichos procedimientos se adicionan a los contenidos en el Manual de Procedimientos Aduaneros, publicado en la resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005.
-(*)3º—La presente Resolución rige a partir del 16 de junio del 2008.
-(*)(Así reformada la fecha de vigencia de ésta resolución por resolución DGA-193-2008 del 14 de mayo de 2008).(**)
+(*)3º—La presente Resolución rige a partir del 21 de julio del 2008.
+(*)(Así reformada la fecha de vigencia de esta resolución por resolución DGA-256-2008 del 24 de junio de 2008).(**)
 (**) (NOTA: Mediante resolución N° 236 de 12 de junio de 2008, se indica que se traslada de forma indefinida la fecha de implementación en la Aduana de Limón del nuevo sistema de Exportaciones TICA, por lo que "Congruente con lo anterior, las fechas de vigencia de las resoluciones DGA-155-2008 del 28 de abril de 2008, DGA-167-2008 del 02 de mayo de 2008, DGA-165-2008 del 08 de mayo de 2008, y cualquier otra directriz que conlleve actuaciones asociadas directamente a este sistema, será la fecha que se defina en su oportunidad para la implementación en la Aduana de Limón del Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA"):
+(NOTA: Mediante resolución RES-DGA-360 del 14 de agosto de 2008, se comunica que a partir del 1° de setiembre de 2008, se implementará en la Aduana de Peñas Blancas el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA)
+(NOTA: Mediante resolución RES - DGA-477-2008 de 7 de noviembre de 2008, se indica que las actuaciones asociadas al sistema TICA, tendrán vigencia en la Aduana Central a partir del 08 de diciembre del 2008).
 4º—Comuníquese y publíquese en el Diario Oficial La Gaceta.
