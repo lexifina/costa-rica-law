@@ -1,1 +1,2 @@
-9º—Para tal efecto, deberá tramitarse la solicitud de dinero por medio del documento, Vale de Caja Chica, que se emitirá en estricto orden numérico, debidamente autorizado por el Alcalde o la persona que este designe, el cual deberá contener la exoneración del Impuesto de Ventas según corresponda
+Artículo 9º—Para tal efecto, deberá tramitarse la solicitud de dinero por medio del Documento Vale de Caja Chica, que se emitirá en estricto orden numérico, debidamente autorizado por el Alcalde o la persona que este designe, el cual deberá contener la exoneración del impuesto de Ventas, cuando el monto supere los cinco mil colones (¢5.000,00)
+(Así reformado mediante acuerdo 013 de la sesión N° 117 del 21 de julio de 2008)
