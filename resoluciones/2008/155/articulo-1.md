@@ -9,7 +9,6 @@ Considerando:
 Ministerio de Hacienda
 Dirección General de Aduanas
 PROCEDIMIENTO DE EXPORTACIÓN
-[imagen]
 Abreviaturas
 Las abreviaturas no definidas en este procedimiento corresponderán a las establecidas en la Resolución DGA-203-2005 de fecha veintidós de junio 2005, publicadas en el Alcance Nº 23 del Diario Oficial La Gaceta Nº 143 de fecha 26 de julio de 2005 y sus distintas modificaciones.
 AIJS: Aeropuerto Internacional Juan Santamaría.
@@ -529,6 +528,49 @@ B. Actuaciones de la Aduana
 3º Para la reexportación de mercancías en importación temporal, la aplicación informática, con la declaración del DUA precedente, generará un reporte asociando el DUA de tránsito con el número de DUA y línea de importación temporal.
 4º El funcionario aduanero realizará en el lugar de ubicación declarado la “revisión documental y reconocimiento físico”, tratándose de mercancías de difícil movilización dicha revisión la realizará en la dirección declarada en el campo de observaciones del DUA.
 5º Para mercancías del régimen de importación temporal, la aplicación informática validará que la reexportación se realice dentro del plazo otorgado en la modalidad de importación temporal.
+(*) V. De la Exportación de RECOPE
+Esta modalidad de exportación será aplicable para la venta de combustible realizada por RECOPE debiendo seguirse el procedimiento común de exportación, adicionando las siguientes directrices.
+Política de Operación
+1) A efectos de autorizar las instalaciones de RECOPE para el reconocimiento físico de las mercancías cuando corresponda, éstas deberán estar legalmente autorizados mediante resolución emitida por la DGA, como exportador habitual, además deberán contar con los medios informáticos para que el funcionario aduanero ingrese a la aplicación informática los resultados y hallazgos producto de su actuación, cuando corresponda.
+2) RECOPE, para la exportación de mercancías que se expenden por tubería, deberá consignar en el mensaje de confirmación, el número que reporta el contador, medidor o lectura de tanque de tierra (en caso de que no exista medidor o contador) al inicio y finalización del proceso de carga.
+3) Debido a la no transmisión del manifiesto de salida, RECOPE deberá declarar en el campo de observaciones del DUA, el nombre la embarcación o buque a las que se les cargó el combustible. Tratándose de salida por vía aérea, deberá consignar el nombre de la aerolínea y el número de vuelo.
+4) Para la exportación de combustible por vía marítima y aérea no en cisterna, RECOPE sólo presentará un DUA de exportación utilizando la modalidad que al efecto se establezca con los datos definitivos, mismo que deberá realizar en los primeros diez días hábiles contados a partir de la fecha de finalización del mes calendario.
+5) Con excepción de la exportación por vía terrestre, para ninguna de de las exportaciones realizadas por RECOPE será obligatorio el conocimiento de embarque. En lo relacionado a la factura comercial el número y fecha podrá ser declarado en el TICA hasta el mensaje de confirmación del DUA.
+6) Para la exportación definitiva de combustible utilizado en el abastecimiento de aviones o buques, RECOPE confeccionará el DUA consignando en líneas distintas, el país de destino y la línea aérea o nombre del buque, según corresponda. Dicho DUA no requerirá de la asociación de inventario ni del manifiesto de salida y podrá realizarse en forma posterior a la partida del medio de transporte.
+1) Salida por Puerto Terrestre
+A- Actuaciones de RECOPE
+1) RECOPE transmite el mensaje inicial del DUA de exportación, declarando en el campo (MON_ASOC)”momento de declaración del inventario”, el código 2 que corresponde a “normal y posterior a la aceptación” y en campo TIPO_CARGA “Origen del tipo de carga”, el código 2, que corresponde al registro de inventario en un manifiesto de salida terrestre. Además, deberá declarar en el campo AFORO_INM el código N para solicitar la revisión en forma posterior a la aceptación del DUA.
+2) RECOPE conociendo por parte del transportista aduanero internacional terrestre, el número del manifiesto de carga de salida, transmite el “mensaje de asociación del DUA” de exportación con el manifiesto terrestre de salida terrestre, relacionado el número y la línea de la “carta de porte” con el número y línea del DUA.
+3) Confirmada exitosamente la asociación del DUA de exportación con el manifiesto de salida terrestre, RECOPE envía el mensaje de Solicitud de Tipo de Revisión.
+4) Cuando producto de la aplicación de los criterios de riesgo se le haya notificado que le corresponde “revisión documental y reconocimiento físico”, RECOPE deberá poner la mercancía a disposición del funcionario aduanero en el lugar de ubicación autorizado y declarado en el DUA.
+5) Recibido por parte de la aplicación informática “el levante del DUA”, RECOPE imprime el “Comprobante de Autorización del Levante” y lo entrega al transportista aduanero internacional terrestre para la elaboración manual de la DTI con la que movilizará la mercancía hasta la frontera terrestre y demás países centroamericanos; lo anterior hasta tanto se implemente el proceso de intercambio electrónico de las DTIs entre los países signatarios del Reglamento de Tránsito Internacional Terrestre.
+6) En el plazo máximo de diez días hábiles, contados a partir de la autorización de levante, RECOPE deberá enviar el “mensaje de confirmación del DUA”.
+B- Actuaciones del Transportista Terrestre
+1) El transportista internacional terrestre o su representante, transmite el manifiesto de salida terrestre, en el que detalla la carta de porte con la mercancía exportada.
+2) El transportista internacional terrestre, recibe la Autorización de Levante que le entrega RECOPE y confecciona la DTI manual con la que movilizará las mercancías. Lo anterior, hasta tanto la DGA no haya implementado el proceso de intercambio de DTIs con Centroamérica y Panamá.
+C- Actuaciones de la Aduana de Control y de Salida
+1) La aplicación informática validará, para el caso de mercancía que requiera el cumplimiento de requisitos no arancelarios, que la nota técnica autorizada tenga saldo disponible.
+2) De corresponder “revisión documental y reconocimiento físico”, el funcionario aduanero designado de la aduana de control, realiza la inspección de las mercancías en el lugar de ubicación autorizado. Finalizado el proceso de revisión, ingresa el resultado en la aplicación informática y de ser procedente autoriza el levante provisional o definitivo, según corresponda.
+3) El funcionario aduanero verifica que la mercancía se movilice bajo precinto aduanero y cumpliendo las formalidades establecidas para el tránsito internacional terrestre.
+4) Recibido el medio de transporte con las mercancías de exportación, el funcionario aduanero en el portón de salida de la aduana terrestre, registra en la aplicación informática el número de UT e inspecciona los precintos colocados en el lugar de origen cuando corresponda y la condición del medio de transporte. De estar correcto firmará en el lugar dispuesto para ese fin en la DTI documental y autoriza en la aplicación informática la continuación del tránsito internacional.
+5) La aplicación informática con el registro del fin del viaje en la aduana de salida terrestre, oficializa el manifiesto de salida terrestre.
+2) Salida por Puerto Marítimo o Aéreo por Medio de Cisternas
+A- Actuaciones de RECOPE
+1) RECOPE transmite el mensaje inicial del DUA de exportación, declarando en el campo (MON_ASOC)”momento de declaración del inventario”, el código 3 que corresponde a “no requiere la asociación de inventario” y en campo TIPO_CARGA “Origen del tipo de carga”, el código 9, que corresponde “sin inventario”. Además deberá declarar en la casilla de observaciones, todas las matrículas de los vehículos que utilizará para movilizar las mercancías hasta el costado del buque o avión, según corresponda.
+2) RECOPE, una vez autorizado el levante, por cada movilización de mercancías hacia el puerto de embarque, imprimirá por matrícula, el “Comprobante de Autorización de Levante”.
+3) En el plazo máximo de diez días hábiles, contados a partir del día de la autorización de levante, RECOPE deberá enviar el “mensaje de confirmación del DUA”, sin que de previo haya asociado el DUA con el manifiesto de salida, por no existir el mismo.
+B- Actuaciones de la Aduana
+1) La aplicación informática validará, para el caso de mercancía que requiera el cumplimiento de requisitos no arancelarios, que la nota técnica autorizada tenga saldo disponible.
+2) De corresponder “revisión documental y reconocimiento físico”, el funcionario aduanero designado de la aduana de control, realizará la inspección de las mercancías en el lugar de ubicación declarado. Finalizado el proceso de revisión, ingresa el resultado en la aplicación informática y autoriza el levante definitivo.
+3) La aplicación informática controlará que en plazo de diez días hábiles, contados a partir de la autorización de levante, se reciba la confirmación del DUA de exportación.
+C- Actuaciones de las Autoridades Portuarias o Aeroportuarias
+1) Las autoridades portuarias destacadas en el portón de entrada en el puerto de embarque, solicitarán el comprobante de autorización de levante y deberán verificar en la aplicación informática, el levante definitivo de las mercancías de cada uno de los vehículos que ingresan al puerto de embarque.
+3) Salida por Puerto Aéreo o Marítimo de Combustible Cargado por Tubería.
+A- Actuaciones de RECOPE
+1) En los primeros diez días hábiles a la finalización del mes calendario, RECOPE transmite el mensaje definitivo del DUA de exportación, declarando en el campo (MON_ASOC)”momento de declaración del inventario”, el código 3 que corresponde a “no requiere la asociación de inventario” y en campo TIPO_CARGA “Origen del tipo de carga”, el código 9, que corresponde “sin inventario”. Además deberá enviar en el mensaje del DUA en la casilla de observaciones un detalle por cada línea aérea y los distintos números de vuelo o el detalle de los buques, según corresponda.
+B- Actuaciones de la Aduana
+A. El funcionario aduanero controlará que el DUA se presente en los primeros diez días hábiles a la finalización del mes calendario y en caso de “revisión documental y reconocimiento físico” realizará únicamente la revisión documental por cuanto la mercancía salió de previo del territorio aduanero.
+(*) (Así adicionada la Sección V anterior por resolución DGA-167 del 12 de mayo de 2008).
 2º—Dichos procedimientos se adicionan a los contenidos en el Manual de Procedimientos Aduaneros, publicado en la resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005.
 3º—La presente Resolución rige a partir del 19 de mayo del 2008.
 4º—Comuníquese y publíquese en el Diario Oficial La Gaceta.
