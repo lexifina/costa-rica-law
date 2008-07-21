@@ -1,1 +1,0 @@
-Artículo 13.—El inspector municipal elevará al Alcalde Municipal, el expediente con las copias de los documentos que respalden el debido proceso por parte de su dependencia, ya finalizada, junto con una copia del estudio de registro de la propiedad o predio involucrado, para que se tome la decisión de aplicar el proceso administrativo de demolición de obras.

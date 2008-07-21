@@ -1,9 +1,0 @@
-MUNICIPALIDAD DE SAN RAFAEL DE HEREDIA
-REGLAMENTO PARA EL PROCESO DE NOTIFICACIÓN,
-CLAUSURA, COBRO DE MULTA Y DEMOLICIÓN DE
-CONSTRUCCIONES SEGÚN LOS ARTÍCULOS 89
-Y SIGUIENTES DE LA LEY 833, “LEY DE
-CONSTRUCCIONES”, APROBADO POR LA
-MUNICIPALIDAD DE SAN RAFAEL
-DE HEREDIA
-Artículo 1º—El presente reglamento norma las infracciones a la Ley Nº 833, Ley de Construcciones, en sus artículos 89 y siguientes, así como el respectivo Reglamento de dicha Ley.

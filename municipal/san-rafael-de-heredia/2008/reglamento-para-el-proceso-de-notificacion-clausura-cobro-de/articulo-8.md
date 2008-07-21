@@ -1,6 +1,0 @@
-Artículo 8º—Toda obra que se clausure pagará una multa. La multa será un porcentaje del Impuesto de Construcción que debe cancelar el interesado. La multa se calcula como un porcentaje de lo establecido en la Ley Nº 4240, artículo 70, incisos a, b y c de la siguiente manera:
-a- Veinticinco por ciento (25%) de multa por inicio de obras preliminares, hasta antes de la chorrea de cimientos.
-b- Cincuenta por ciento (50%) de multa por levantamiento de paredes hasta antes de la chorrea correspondiente a viga corona.
-c- Cien por ciento (100%) de multa por paredes con viga corona chorreada o entrepiso para construcciones de más de un nivel.
-d- En caso de obras menores, cuya área constructiva sea menor de treinta metros cuadrados, movimientos de tierra, tapias, muros y otros afines, la multa correspondiente será de un cien por ciento 100%), sin ser relevante el avance de la misma.
-No obstante lo anterior, el monto de la multa se establecerá con base en el avance constructivo de la obra en el momento del pago efectivo, previa visita y recalificación que el inspector designado realice mediante informe detallado.

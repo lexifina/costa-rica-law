@@ -1,1 +1,0 @@
-Artículo 9º—Se aplicará un veinticinco por ciento (25%) de multa del Impuesto de Construcción en todo caso de infracción del Artículo 89 de la Ley Nº 833, en los incisos d, e, f, g, h, i, j y k. Toda infracción debe ser notificada mediante el acta respectiva.
