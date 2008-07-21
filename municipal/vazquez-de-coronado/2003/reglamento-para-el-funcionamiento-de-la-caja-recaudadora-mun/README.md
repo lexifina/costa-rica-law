@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de la Caja Recaudadora Municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-14 | la propia norma |
+| 2 | 2008-07-21 | Reglamento municipal 117 (2008-07-21) |
