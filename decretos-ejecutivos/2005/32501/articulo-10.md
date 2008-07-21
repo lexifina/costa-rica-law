@@ -1,1 +1,0 @@
-Artículo 10.—Aquellos animales que a criterio del profesional indicado en el Artículo anterior, no cumplan con los requisitos zoosanitarios mínimos necesarios, no podrán entrar en las instalaciones de la subasta. El regente veterinario deberá informar a los servicios veterinarios oficiales, si la causa es una enfermedad de declaración obligatoria.

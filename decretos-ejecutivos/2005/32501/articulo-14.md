@@ -1,1 +1,0 @@
-Artículo 14.—El vendedor será responsable frente al comprador, cuando posterior a la venta y celebración de la subasta, los animales subastados fueren decomisados o sacrificados por problemas zoosanitarios, responsabilidad, que se deberá efectivizar dentro de los ocho días naturales posteriores de efectuada la venta.
