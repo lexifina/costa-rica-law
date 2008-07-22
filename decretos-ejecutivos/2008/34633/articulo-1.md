@@ -1,0 +1,14 @@
+N° 34633-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que le confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, la Ley de Creación del Ministerio de Obras Públicas y Transportes, y el artículo 152 y siguientes de la Ley General de la Administración Pública.
+Considerando:
+I.—Que mediante Decreto Ejecutivo N° 12484-T del 14 de abril de 1981, publicado en La Gaceta N° 79 del 27 de octubre de 1981, el Ministerio de Obras Públicas y Transportes declaró de reserva y utilidad pública la zona marítimo-terrestre, localizada en Cerro Gordo, San Buenaventura, Colorado de Abangares, provincia de Guanacaste, para la construcción de un puerto destinado a la exportación de cemento.
+II.—Que mediante Oficio N° PESJU-152-2008 del 26 de marzo del 2008, el Ingeniero Urías Ugalde Varela, Presidente Ejecutivo del Instituto Costarricense de Puertos del Pacífico, indica lo siguiente:
+“…que no existe ningún proyecto que pretenda construir un muelle para la exportación de cemento en la localidad de “Cerro Gordo” en Colorado de Abangares. Si en el pasado se presentó algún proyecto y éste no se concretó, al día de hoy el mismo ya no está vigente, por cuanto la Ley de Concesión Pública lo ha dejado sin efecto…”.
+III.—Que mediante Oficio N° DMP-DG-535-2008 del 04 de junio del 2008, el Doctor Héctor Arce Cavallini, Director General de la División Marítimo-Portuaria del Ministerio de Obras Públicas y Transportes, indica lo siguiente:
+“…el propósito de dicha declaratoria perdió interés desde que la empresa cementera ubicada en la zona y que era la que promovía un muelle especializado, dejó de existir; aparte de que la nueva legislación en materia de concesiones modificó las posibilidades de construir obras bajo las condiciones imperantes en la fecha del Decreto Ejecutivo mencionado.
+Dicho lo anterior, desde esta División no tenemos objeción alguna en cuanto a derogar el Decreto Ejecutivo N° 12484-T”.
+IV.—Que en razón de lo anterior, carece de interés actual el Decreto Ejecutivo N° 12484-T, señalado en el Considerando primero, por lo que se procede a emitir el presente Decreto, de conformidad con la Ley General de la Administración Pública, que en sus numerales 152 y siguientes y concordantes, determinan que la Administración Pública puede dejar sin efecto (revocar) por causas de oportunidad, conveniencia o mérito los actos administrativos emitidos. Por tanto,
+Decretan:
+Artículo 1º—Dejar sin efecto el Decreto Ejecutivo N° 12484-T del 14 de abril de 1981, publicado en La Gaceta N° 79 del 27 de octubre de 1981, del Ministerio de Obras Públicas y Transportes, por carecer de interés actual los motivos que dieron origen a la emisión del Decreto, que por este acto se deja sin efecto ni valor alguno.
