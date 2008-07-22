@@ -1,0 +1,4 @@
+Artículo 6º—Ausencias temporales. En los casos que se presenten ausencias temporales, el recargo de funciones se determinará de la siguiente manera:
+1. Cuando se trate de suplir a la secretaria (o) del Concejo y contador (a) municipal, el Concejo Municipal será el encargado de determinar cuál será el trabajador (a) al que se le recargarán las funciones temporalmente.
+2. Cuando se trate de suplir al auditor (a) y subauditor (a) internos, se aplicarán los lincamientos establecidos en la directriz R-CO-91-2006 emitida por la Contraloría General de la República, del 17 de noviembre de 2006, punto 3.7 “Ausencia temporal del auditor y del subauditor”.
+3. En los demás casos en los que proceda el recargo de funciones, será el Alcalde o Alcaldesa quien designe el trabajador (a) al que le recargarán las funciones.

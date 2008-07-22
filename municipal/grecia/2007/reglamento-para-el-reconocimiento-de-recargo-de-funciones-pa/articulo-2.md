@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad. El presente reglamento tiene como finalidad, determinar las situaciones en las que procede el recargo de funciones a un trabajador (a) de la Municipalidad de Grecia y la autorización para el pago de dicho recargo.
