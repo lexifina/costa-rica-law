@@ -1,0 +1,1 @@
+Artículo 3º—En todos los demás casos, se aplicarán las disposiciones establecidas en el citado Reglamento promulgado por Resolución Nº R-CO-1-2007 de las quince horas del 22 de enero del 2007 y sus modificaciones.
