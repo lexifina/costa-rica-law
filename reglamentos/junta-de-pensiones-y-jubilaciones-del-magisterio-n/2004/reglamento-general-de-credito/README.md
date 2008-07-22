@@ -23,3 +23,4 @@ Reglamento General de Crédito
 | 8 | 2007-11-07 | Reglamento 126 (2007-11-07) |
 | 9 | 2008-05-22 | Reglamento 56 (2008-05-22) |
 | 10 | 2008-06-25 | Reglamento 72 (2008-06-25) |
+| 11 | 2008-07-22 | Reglamento 82 (2008-07-22) |
