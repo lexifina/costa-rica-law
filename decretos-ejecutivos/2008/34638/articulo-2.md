@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento establece y regula las disposiciones y procedimientos aplicables a las garantías o cauciones que deberán rendir los funcionarios del Ministerio de Agricultura y Ganadería; así como los destacados en los Programas Adscritos al mismo.

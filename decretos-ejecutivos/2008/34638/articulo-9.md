@@ -1,0 +1,4 @@
+CAPÍTULO III
+Unidades encargadas de las garantías o cauciones
+Artículo 9º—Unidad responsable. Corresponderá al Departamento de Recursos Humanos del Ministerio de Agricultura y Ganadería y a las Unidades de Recursos Humanos de los Programas Adscritos y Cuentas Especiales, según sea el caso, la responsabilidad de supervisar que todos los funcionarios del Ministerio de Agricultura y Ganadería obligados a rendir la garantía, lo hagan dentro de los primeros quince días del mes de enero de cada año, para lo cual deberán de presentar una fotocopia, misma que debe confrontarse y agregarse al expediente del funcionario.
+En caso de no presentar la fotocopia dentro del periodo indicado, la oficina de Recursos Humanos la prevendrá por única vez, en caso de no presentarla dentro de los tres días hábiles siguientes, se procederá con la sanción respectiva.
