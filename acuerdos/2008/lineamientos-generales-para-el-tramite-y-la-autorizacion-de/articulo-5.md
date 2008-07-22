@@ -1,0 +1,1 @@
+Artículo 5º—Órganos responsables. La verificación, aplicación y cumplimiento de los presentes lineamientos, estará a cargo del superior inmediato, como órganos ejecutores, y también del Departamento de Recursos Humanos y Departamento Financiero.

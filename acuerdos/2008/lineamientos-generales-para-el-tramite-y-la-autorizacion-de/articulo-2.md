@@ -1,0 +1,3 @@
+Artículo 2º—Definición de conceptos.
+Jornada ordinaria: Es la jornada habitual del trabajador con un horario plenamente establecido, en el Reglamento Autónomo de Organización y Servicio del CTP, en concordancia con el artículo 136 del Código de Trabajo.
+Jornada extraordinaria: Es la jornada de trabajo que se desarrolla extraordinariamente y debe obedecer a una necesidad imperiosa por parte de la administración, es decir, se trata de una circunstancia excepcional, derivada de una situación específica que lo amerite, de ahí que no se convierta en habitual, en perjuicio de la jornada ordinaria establecida para responder a las necesidades de orden público, interés social y en defensa de la salud del trabajador.
