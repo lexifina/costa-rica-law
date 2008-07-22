@@ -4,7 +4,7 @@ Artículo 13.—De la facultad de autorizar. Los únicos facultados para autoriz
 A. Presidente Ejecutivo.
 B. Gerente General.
 C. Auditor General.
-D. Secretaria de la Junta Directiva.
+D Secretaria de la Junta Directiva.
 E. Jefes de Dirección.
 F. El Fiscalizador.
 G. Encargado de Planificación.
@@ -13,6 +13,8 @@ I. Administrador del Muelle de Quepos.
 J. Administrador del Muelle de Golfito.
 K. Administrador del Muelle de Puntarenas.
 L. Subgerente General.
+M. Secretaria Junta Promotora de Turismo de la ciudad de Puntarenas.
+(Así reformado el párrafo anterior mediante acuerdo N°3 tomado en sesión N° 3502 del 22 de julio de 2008)
 Cada uno de los funcionarios anteriormente señalados podrán nombrar un sustituto para firmar, cuando éste se encuentre fuera de su área de trabajo, para lo cual deberá comunicarlo por escrito al encargado del fondo.
 Los funcionarios indicados en los incisos anteriores o quien ellos designen, serán responsables de garantizar al Instituto que se recibió el bien o el servicio y revisar debidamente las facturas que respaldan dicho gasto, además serán responsables de firmar el vale de caja chica definitivo.
 Bajo ninguna circunstancia un Jefe de Dirección podrá autorizar un vale de caja chica a una unidad que no está adscrita a la Dirección a su cargo.
