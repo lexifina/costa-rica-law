@@ -1,1 +1,1 @@
-Artículo 15.—Período de prueba. Todo servidor que ingrese al Estatuto deberá pasar un período de prueba no menor de tres meses. El nombramiento en propiedad una vez pasado el período de prueba, deberá ser solicitado por el superior inmediato en forma escrita a Recursos Humanos, el que resolverá lo pertinente. El servidor interino deberá aprobar satisfactoriamente el Curso Básico para Policías de Tránsito.
+Artículo 15.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)

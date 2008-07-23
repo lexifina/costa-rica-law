@@ -1,1 +1,1 @@
-Artículo 51.—Incentivo por riesgo policial. Se reconocerá un incentivo por concepto de riesgo policial, para lo cual se observará lo dispuesto en la ley y/o reglamento que regule este beneficio.
+Artículo 51.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)

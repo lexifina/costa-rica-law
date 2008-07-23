@@ -1,1 +1,1 @@
-Artículo 41.—Legitimación para participar en concursos internos. Podrán participar en los concursos internos todos los servidores nombrados en propiedad, que tengan como mínimo un año consecutivo de laborar; entre un ascenso y el siguiente deberá haber transcurrido al menos doce meses.
+Artículo 41.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)

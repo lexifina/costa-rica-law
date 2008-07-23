@@ -1,1 +1,1 @@
-Artículo 47.—Aumento anual escalonado. Aumento anual escalonado del 1% sobre el salario base a los funcionarios que obtengan una calificación anual de desempeño, de muy bueno o excelente.
+Artículo 47.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)

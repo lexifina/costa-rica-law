@@ -1,1 +1,1 @@
-Artículo 13.—Bases para la selección. Recursos Humanos aplicará los bases de selección y conformará una lista de candidatos elegibles para integrar las ternas para cada puesto.
+Artículo 13.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)

@@ -1,1 +1,1 @@
-Artículo 42.—Tabla de valoración. Para definir los resultados de los concursos, Recursos Humanos confeccionará una tabla de valoración para clasificar los atestados personales de cada aspirante.
+Artículo 42.—(Así derogado por el artículo 84 del decreto ejecutivo N° 34686 del 23 de julio del 2008)
