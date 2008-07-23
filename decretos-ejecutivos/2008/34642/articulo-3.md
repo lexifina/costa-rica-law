@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución a favor de MIDEPLAN sólo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad; sin embargo, el Ministro de Planificación Nacional y Política Económica podrá disponer mediante resolución razonada otros medios que resulten idóneos para ese fin.

@@ -1,0 +1,1 @@
+Artículo 5º—Momento para rendir la caución. La caución deberá de ser rendida cuando sea designada la persona en el puesto sujeto a rendir la garantía, durante los quince días hábiles siguientes al momento en que asume el cargo. La Unidad de Recursos Humanos prevendrá de la obligación de rendir la caución al momento de nombrar al funcionario.

@@ -1,0 +1,1 @@
+Artículo 9º—Cálculo de la caución en el nivel A. Quienes desempeñen puestos contemplados dentro de los incisos a), b), c), d), e), f), g), h) e i) del artículo 12 del presente Reglamento, deberán rendir una caución equivalente a cinco salarios base. La Unidad de Recursos Humanos de MIDEPLAN establecerá las personas que conforme el inciso i) mencionado deben rendir caución.

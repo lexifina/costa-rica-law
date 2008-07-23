@@ -1,0 +1,1 @@
+Artículo 10.—Cálculo de la caución en el nivel B. Quienes desempeñen puestos contemplados dentro del inciso j) del artículo 12 del presente Reglamento, deberán rendir una caución equivalente a tres y medio salarios base. La Unidad de Recursos Humanos de MIDEPLAN establecerá las personas que conforme ese inciso deben rendir caución.
