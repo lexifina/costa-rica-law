@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, con la “Compra, Construcción y Equipamiento del Centro Regional de Rehabilitación Integral de la Zona Norte (CRIZNO)”.
