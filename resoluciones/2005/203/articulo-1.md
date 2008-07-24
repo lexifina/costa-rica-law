@@ -1361,6 +1361,29 @@ c) monto total y detallado del cálculo de la obligación tributaria aduanera, a
 a) aduana, año y número de aceptación asignado al DUA.
 b) fecha de aceptación del DUA.
 c) monto total y detallado del cálculo de la obligación tributaria aduanera, autodeterminado por el declarante.
+(*)F. Rechazo e impugnación de las notificaciones
+1) Cuando el declarante reciba la notificación, deberá enviar un mensaje indicando si rechaza o acepta la reliquidación del DUA.
+2) Los ajustes a la determinación de la obligación tributaria que NO sean aceptadas por el declarante, serán tomadas como RECHAZADAS en la aplicación informática.
+3) El simple rechazo en el sistema no implica la impugnación de la modificación realizada, en el tanto la impugnación implica la interposición del recurso y la presentación de los alegatos correspondientes; lo cual no puede realizarse a través de este medio. La impugnación deberá presentarse físicamente ante la aduana que corresponde.
+4) El declarante, a partir del día de la notificación del acto final, contará con 3 días hábiles para rechazarla y presentar los recursos que dispone el artículo 198 de la Ley General de Aduanas para impugnar los actos de la Aduana , los que deberán estar rotulado en la primera página, a efectos de agilizar el trámite interno en la Aduana.
+5) Transcurrido este plazo, si NO se ha presentado los recursos de ley o se han presentado fuera del plazo indicado, la determinación quedará en firme y el sistema dará por ACEPTADA automáticamente la notificación.
+6) Cuando los recursos hayan sido presentados extemporáneamente la Gerencia de la Aduana deberá resolver de conformidad.
+(*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
+(*)G. Impugnación de las determinaciones de la obligación tributaria
+1) El trámite de impugnación es un proceso manual donde el interesado debe presentar ante la Aduana el o los recursos que corresponden, después de haber rechazado la reliquidación notificada.
+2) Para IMPUGNAR una notificación se requiere que previamente haya sido rechazada en el sistema por el declarante.
+3) El declarante deberá presentar el (los) recurso (s) ante la Aduana correspondiente, el que deberá ser recibido en forma inmediata y sellado en el primer folio, con la fecha del día en que se recibe y el nombre, firma y cédula del funcionario que lo realiza.
+4) La Gerencia de la aduana deberá coordinar las acciones correspondientes para que los recursos que presenten los usuarios (Reconsideración y/o Apelación) sean trasladados en forma inmediata al Departamento Técnico de la Aduana , para que el funcionario autorizado incluya en la aplicación informática la fecha de presentación de los recursos, la que deberá corresponder, sin excepción, al día de recibo por parte de la Aduana , fecha que deberá constar en la primera página del (los) recurso (s).
+5) Los ajustes a la determinación de la obligación tributaria que hayan sido impugnados en el plazo que dispone el artículo 198 de la Ley General de Aduanas aparecerán en la pantalla de notificaciones con el estado IMP (impugnada).
+6) La Gerencia de la Aduana deberá tomar las previsiones necesarias para que no se retarde la inclusión de la fecha de impugnación en la aplicación informática, ya que esto dará como consecuencia que la notificación sea aceptada automáticamente por el sistema (estado ACE).
+(*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
+(*)H. Desistimiento del rechazo o la impugnación de las notificaciones
+1) El desistimiento brinda la posibilidad de cancelar el proceso de rechazo o de impugnación de una reliquidación.
+2) El declarante, después de haber rechazado y/o impugnado la notificación de las actuaciones de la Aduana , puede presentar formal desistimiento ante la Aduana , aceptando los alcances de la notificación e indicando que pagará la diferencia de tributos por la reliquidación de DUA, en caso de que se haya generado alguna diferencia.
+3) Para proceder con la solicitud del declarante, la Aduana , debe emitir un acto resolutivo que acoja el desistimiento, el que se notificará al interesado.
+4) El número de resolución y fecha se registrarán en la aplicación informática, para que continúe con el proceso de finiquito del DUA.
+5) Las notificaciones objeto de desistimiento aparecerán en la pantalla de notificaciones con el estado ACE y con la fecha correspondiente al Desistimiento.
+(*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
 III. De la Asociación del Inventario Posterior a la Aceptación
 A. Actuaciones del Declarante
 1) Para el caso de desalmacenajes de mercancías ingresadas por vía terrestre, el declarante podrá enviar, previo al ingreso de las mismas, el mensaje del DUA sin la asociación del manifiesto, conocimiento de embarque y línea, para lo que deberá indicar en el campo del mensaje denominado “momento de la declaración de inventario” la opción “posterior a la aceptación”.
@@ -1470,6 +1493,8 @@ b) literal ii): el funcionario aduanero a través de la aplicación informática
 En estos casos, el funcionario aduanero podrá realizar la asociación del documento al DUA, siempre que el mismo se encuentre digitalizado y el declarante le indique el nombre del archivo.
 Cuando se trate de la aplicación del procedimiento especial para la determinación del valor en aduanas de las mercancías, el funcionario podrá autorizar el levante con garantía, previo a la presentación de la documentación adicional solicitada, una vez presentada la solicitud correspondiente y cumplido con todos los requisitos y procedimientos del caso.
 c) literal iii): el funcionario aduanero a través de la aplicación informática enviará un mensaje de notificación al declarante con las observaciones respectivas. El declarante podrá comunicar que está de acuerdo con la modificación a la declaración. Si el declarante no comunica su consentimiento en el plazo de tres días se entenderá que consciente la modificación y se realizarán los ajustes o modificaciones en la aplicación y se continuará con el proceso de despacho aduanero. En caso de que el declarante impugne el acto que corrige el error material dentro del mismo plazo de tres días, el DUA quedará pendiente de la resolución de los recursos correspondientes.
+(*)Cuando el funcionario haya enviado una notificación por error, tendrá una única opción de deshabilitar dicha notificación, por medio de la aplicación informática. No obstante, para dichos efectos, la aduana deberá emitir un acto resolutivo autorizando la deshabilitación, la que notificará al declarante para su información.
+(*)(Así adicionado el párrafo anterior mediante resolución DGA-342 del 24 de julio de 2008)
 d) literal iv): el funcionario aduanero:
 i. una vez determinada la diferencia en el adeudo tributario lo notificará al declarante, quien dispone de un plazo de tres días para impugnar:
 1. en caso de que el declarante consienta expresamente el ajuste o no lo impugne dentro del plazo de Ley:
@@ -1541,6 +1566,8 @@ b) asumir él mismo u otro funcionario (mediante reasignación), la continuació
 15) Para el caso en que el declarante solicite el levante con garantía de las mercancías y de ser procedente, el funcionario aduanero actuará según lo establecido en el aparte de este procedimiento en el que se regulan las importaciones asociadas a garantía.
 16) Cuando el DUA corresponda a cualquiera de las partidas arancelarias objeto de transmisión al Registro Público de la Propiedad, la aplicación informática generará un archivo con la información requerida de los DUA con autorización de levante y lo enviará a dicha Institución a través de un mensaje.
 17) Para el caso de DUA con forma de despacho DAD con destino Golfito, la aplicación informática una vez ingresado los resultados de actuación por parte de los funcionarios encargados de la revisión documental y reconocimiento físico de las mercancías en la aduana de control y de la recepción de las mercancías en la Aduana de Golfito, dará por concluido el trámite de movilización de las mismas y del DUA.
+(*)18) En los casos de envío de una notificación por error, se deberá proceder conforme el procedimiento establecido en el párrafo segundo al literal iii) del inciso c) del numeral 5º) del Epígrafe A-Actuaciones de la Aduana , de la sección VII De la Revisión Documental , del capítulo II Procedimiento Común, del Título Procedimiento de Importación Definitiva y Temporal de la resolución.
+(*)(Así adicionado mediante resolución DGA-342 del 24 d ejulio de 2008)
 B. Actuaciones del Declarante
 (*)1) El declarante entregará al funcionario aduanero designado para realizar el reconocimiento físico de las mercancías, los documentos físicos originales, que fueron declarados como respaldo del DUA de importación definitiva.
 (*)(Así reformado mediante resolución DGA-479 del 9 de agosto de 2007)
