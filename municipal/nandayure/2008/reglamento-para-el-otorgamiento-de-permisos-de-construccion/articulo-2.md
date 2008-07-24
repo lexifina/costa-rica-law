@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Este reglamento pretende apoyar un esfuerzo sostenible entre el Gobierno Local, la Administración Pública, la sociedad civil y el sector privado para garantizar la conservación de los recursos marino-costeros y culturales asociados al ecosistema costero marino en el largo plazo, que permitan el desarrollo sostenible en esta área geográfica.

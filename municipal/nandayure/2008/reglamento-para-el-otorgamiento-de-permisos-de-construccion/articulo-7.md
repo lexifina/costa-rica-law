@@ -1,0 +1,1 @@
+Artículo 7º—Sobre la densidad. En el área de amortiguamiento de contacto directo el área máxima de construcción no debe exceder del 30% del terreno. Los lotes no deben ser menores a 1500 m². En el caso de proyectos hoteleros, estos deben ser de bajo impacto por lo que se recomienda una densidad máxima de 30 personas por hectárea.

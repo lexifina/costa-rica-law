@@ -1,0 +1,1 @@
+Artículo 46.—Realización de operativos. Los funcionarios municipales junto con las autoridades de la Fuerza Pública, el Ministerio de Ambiente y Energía, el Ministerio de Salud, el Ministerio de Obras Públicas y Transportes, o cualquier otra entidad afín, podrá realizar operativos para comprobar el adecuado cumplimiento de las normas de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.—Para la colocación de rótulos los interesados deberán someterse a lo indicado en el Reglamento de la Ley de construcciones, y el presente Reglamento. Estos rótulos deberán respetar las directrices de luminosidad y ubicación de la luz para evitar el impacto lumínico sobre el Refugio Nacional de Vida Silvestre Camaronal.

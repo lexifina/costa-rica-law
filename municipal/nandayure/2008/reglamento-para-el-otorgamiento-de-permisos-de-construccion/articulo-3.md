@@ -1,0 +1,1 @@
+Artículo 3º—Quien no respetare las disposiciones que contiene el presente Reglamento, se hará acreedor a las sanciones que se indican en el artículo 46 y siguientes del mismo, sin perjuicio de las que constituyan delito de acuerdo con el Código Penal.

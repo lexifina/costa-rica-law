@@ -1,0 +1,1 @@
+Artículo 10.—Sobre los instrumentos voluntarios: La Municipalidad de Nandayure desarrollará diferentes instrumentos de aplicación y cumplimiento de la legislación, promoviendo especialmente instrumentos de aplicación y cumplimiento de la legislación voluntarios, los cuales surgen desde la iniciativa de los diferentes actores sociales.

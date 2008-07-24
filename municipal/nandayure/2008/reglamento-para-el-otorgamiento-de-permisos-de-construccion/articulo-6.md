@@ -1,0 +1,1 @@
+Artículo 6º—Sobre la coordinación interinstitucional. La aplicación de este reglamento debe involucrar la participación de las instituciones públicas, organizaciones no gubernamentales y el sector privado, para alcanzar los objetivos propuestos.

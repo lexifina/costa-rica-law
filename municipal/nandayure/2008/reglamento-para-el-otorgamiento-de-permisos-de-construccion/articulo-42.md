@@ -1,0 +1,5 @@
+Artículo 42.—Clausura de la actividad. En los casos que se detallan a continuación quedan facultadas las autoridades municipales para acudir a la Fuerza Pública para proceder a la paralización de las obras que se hayan realizado en contra de lo establecido en el Ordenamiento Jurídico sin responsabilidad para esta Municipalidad.
+a) En cualquier caso que la Municipalidad conozca y confirme que existe una construcción, remodelación, reparación, excavación, relleno, ampliación o demolición, sin el permiso municipal.
+b) En cualquier caso que la Municipalidad conozca y confirme el no cumplimiento de alguno(s) de los requisitos establecidos en este Reglamento o cualquier otra norma jurídica vigente a la fecha, por parte de aquel a quien se haya otorgado un permiso en los términos regulados por este Reglamento.
+c) En los casos que establece el artículo 29 de la Ley de Planificación Urbana.
+Para los efectos que conciernen a la ejecución de esta paralización de las obras los funcionarios municipales podrán proceder a marcar con sellos el área del inmueble que sea necesario restringir de manera que se asegure el cumplimiento de la medida.

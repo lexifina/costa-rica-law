@@ -1,0 +1,1 @@
+Artículo 38.—Todo terreno o solar que se encuentre dentro del cuadrante debe deslindarse por medio de una tapia. La Municipalidad podrá permitir el cierre de los mismos, por medio de alambres o cercas, pero sin púas; estos hilos de alambre deberán colocarse a una distancia máxima de 30 centímetros y estar debidamente tensos.
