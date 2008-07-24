@@ -1,1 +1,0 @@
-Artículo 7°—La Caja Chica mantendrá siempre el total del monto asignado, el cual estará integrado de la siguiente forma: dinero en efectivo, facturas autorizadas, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta a la de la Caja Chica.

@@ -1,1 +1,0 @@
-Artículo 5°—Corresponde a la Junta Directiva, mediante acuerdo firme, variar el monto establecido para este Fondo, y crear otras siguiendo este mismo reglamento, de acuerdo con la solicitud escrita y fundamentada por parte de la Directora Adminístrate a Financiera.

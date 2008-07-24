@@ -1,1 +1,0 @@
-Artículo 17.—El monto de lo gastado no podrá exceder el monto autorizado en el vale de Caja Chica, salvo en casos fortuitos o de fuerza mayor, o lo cual debe ser justificado por escrito por el funcionario a quien se le entregó el adelanto, con el visto bueno de la Jefatura Superior Inmediata.

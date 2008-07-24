@@ -1,1 +1,0 @@
-Artículo 20.—La liquidación del vale queda formalizada cuando la responsable de la Caja Chica revisa todos los requisitos y estampa en ellos el sello de recibido conforme. Será responsabilidad de la Jefatura que firma el vale, constatar el ingreso o la recepción de los bienes y que los servicios contratados hayan sido recibidos a satisfacción.

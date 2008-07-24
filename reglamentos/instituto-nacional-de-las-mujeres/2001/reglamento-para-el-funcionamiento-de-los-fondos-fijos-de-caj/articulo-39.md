@@ -1,1 +1,0 @@
-Artículo 39.—Las sanciones que correspondan, según lo dispuesto en el articulo anterior, serán aplicadas conforme al procedimiento establecido, en el Reglamento Autónomo de Organización y Servicios del Instituto.
