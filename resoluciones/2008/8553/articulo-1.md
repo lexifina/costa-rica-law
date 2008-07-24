@@ -1,0 +1,16 @@
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+Resolución RRG-8553-2008.—San José, a las diez horas del primero de julio del dos mil ocho.
+Modificación parcial y transitoria de trámites de las solicitudes tarifarias que se presenten ante la Autoridad Reguladora de los Servicios Públicos.
+Considerando:
+1º—Que la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley Nº 7593, establece los procedimientos, requisitos y condiciones a que se someterán las peticiones tarifarias.
+2º—Que la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos, Ley Nº 8220, establece en su artículo 4º que todo trámite o requisito que sea exigible a un administrado, deberá estar fundamentado en una norma jurídica.
+3º—Que los requisitos que deben cumplir las peticiones tarifarias para ser tramitadas en esta Autoridad Reguladora, fueron establecidos en la resolución 6570-2007, publicada en La Gaceta 108 del 6 de junio del 2007.
+4º—Que uno de los requisitos para el trámite de las peticiones tarifarias es estar al día con el pago del canon de la Autoridad Reguladora de los Servicios Públicos (artículo 59-Ley 7593).
+5º—Que de acuerdo con el oficio 199-DAJ-2008 del 11 de marzo del 2008 de la Dirección de Asesoría Jurídica concluye que el plazo de prescripción para el cobro de los cánones de regulación es el establecido en el Código de Normas y Procedimientos Tributarios, es de tres años.
+6º—Que mediante el oficio 209-RG-2008 el Regulador General remitió consulta a la Procuraduría General de la República a efectos de determinar en forma definitiva el plazo de la prescripción de los cánones de regulación.
+7º—Siendo que no es claro el criterio administrativo señalado, el solicitar como requisito de admisibilidad a los prestadores estar al día con los cánones de regulación, le causa grave perjuicio a éstos y a los usuarios, pues le limita la presentación de solicitudes de ajuste tarifario, atentando contra la sostenibilidad del servicio. Así las cosas, en protección de los intereses de los prestadores y del interés público que reviste la fijación tarifaria, es necesario establecer una disposición transitoria que permita proteger a los usuarios y prestadores del perjuicio que les podría causar el actuar de la administración. Por tanto,
+Al amparo de lo dispuesto en la Ley General de la Administración Pública; la Ley Nº 7593; en el Decreto Ejecutivo 29732-MP; Ley Nº 8220; en la Ley 5292 y su reglamento y en la Ley 3503,
+EL REGULADOR GENERAL, RESUELVE:
+I.—Suspender temporalmente como requisito de admisibilidad de las peticiones tarifarias, estar al día con el pago del canon de la Autoridad Reguladora de los Servicios Públicos (artículo 59-Ley 7593) de períodos anteriores a tres años, a partir de la fecha de vigencia de la presente resolución, a los prestadores que aleguen la prescripción.
+II.—Esta suspensión rige hasta que la Procuraduría General de la República emita su criterio vinculante en relación con el plazo de la prescripción de los cánones de regulación y se emita la directriz correspondiente por parte de esta Administración.
+Publíquese en el Diario Oficial. De dicha publicación avísese en un diario de circulación nacional. Téngase esta resolución a disposición del público en un lugar visible dentro de la institución y en la página en Internet de la Autoridad Reguladora.
