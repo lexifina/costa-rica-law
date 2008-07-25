@@ -1,0 +1,3 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+San José, a las quine horas del veinticinco de julio de dos mil ocho. Siendo que en opinión del suscrito, las resoluciones números 739-2008 y 740-2008, emitidas por esta Dirección, a las catorce horas, y catorce horas treinta minutos, respectivamente, del nueve de mayo de dos mil ocho y publicadas en el Boletín Judicial de hoy, podrían contener roces con el principio de legalidad y el debido proceso, con un mejor criterio y en aplicación de los artículos 11 de la Constitución Política; 11 y 16 de la Ley General de la Administración Pública, se dejan sin efecto dichos pronunciamientos. Publíquese la presente resolución en el Boletín Judicial.
+San José, 29 de julio de 2008.
