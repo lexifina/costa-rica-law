@@ -1,0 +1,1 @@
+Artículo 60.—De la creación de la Unidad Técnica. La Unidad Técnica es un equipo multidisciplinario formado por profesionales en diferentes áreas según las necesidades de las municipalidades. Podrán ser funcionarios de la Federación o profesionales contratados externamente.
