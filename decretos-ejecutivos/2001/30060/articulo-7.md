@@ -1,1 +1,0 @@
-Artículo 7º—Los cosméticos de igual fórmula con diferente tamaño, aroma o color, se aprobarán en un solo trámite. En este caso, se presentará la fórmula cualitativa que incluya los diferentes aromas y colorantes.
