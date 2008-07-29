@@ -1,0 +1,1 @@
+5º—Instruir al Alcalde Municipal para que implemente, en un plazo no mayor de quince días después de dictada y publicada esta política, las directrices administrativas por medio de las cuales se comuniquen las disposiciones previamente reguladas y comunicará a todos los funcionarios municipales por los medios idóneos los alcances de esta política y de las directrices emitidas.
