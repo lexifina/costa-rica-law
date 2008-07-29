@@ -1,8 +1,9 @@
 II Productos de captación
-1. Cuentas corrientes con saldos promedios mensuales menores a $350.00.
-1- Saldo menor a $350.00 – Giro hasta 5 cheques, s/ exceso de giro ¢500.00 c/u
-2- De $350.00 a $2.350,00 – Giro hasta 10 cheques, s/ exceso de giro ¢500.00 c/u.
-3- Saldo Superior a $2.350,00 – Giro de 15 cheques por cada $2.350,00 de promedio mensual por cliente, s/ exceso ¢500.00 c/cheque girado de más según cantidad permitida producto del saldo promedio mensual.
+1.- Cuentas corrientes con saldos promedios mensuales menores a $350,00.
+1- Saldo menor a $350,00 - Giro hasta 5 cheques, s/ exceso de giro ¢500,00 c/u.
+2- De $350,00 a $2.350,00 - Giro hasta 10 cheques, s/ exceso de giro ¢500,00 c/u.
+3- Saldo Superior a $2.350,00 - Giro de 15 cheques por cada $2.350,00 de promedio mensual por cuenta, s/ exceso ¢500,00 c/cheque girado de más según cantidad permitida producto del saldo promedio mensual.
+(Así reformado mediante sesión N° 34 del 29 de julio del 2008)
 2. Órdenes de no pago de cheques y depósitos a plazo
 Cheques ¢2.100,00
 Depósitos a plazo ¢3.700,00
@@ -55,9 +56,11 @@ Esta tarifa será ajustada semestralmente.
 Mínima ¢10,400.00
 Máxima ¢62,600.00
 24. Venta de Cheques de Gerencia | ¢5.200,00
-25. Recolección depósitos especiales en cuenta corriente |
-Hasta $ 7.000.00 cobrar la suma de | ¢3.100,00 Remeseras propias ¢4.200,00 Remeseras privadas
-Sobre el exceso se aplicará la siguiente fórmula Temporalmente | ¢1.000,00 por cada $3.500,00
+(*) 25. Recolección depósitos especiales en cuenta corriente |
+Hasta ¢4.000.000,00 cobrar la suma de: | ¢3.000,00 Remeseras propias ¢4.500,00 Remeseras externas
+Sobre el exceso se aplicará la siguiente fórmula | ¢2.000,00 por cada ¢ 1.000.000.00
+Nota: En primera instancia, se debe consultar a la Gerencia Área Administración de Efectivo BCR, la disponibilidad de camiones propios (a), de no contar con camiones, se procede a la contratación de Remeseras externas (b), de apoyo Institucional.
+(*) ( Así reformado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008)
 26. Comisión para la recepción de efectivo para Instituciones del Sector Financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios
 Colones | Comisión por millón
@@ -114,3 +117,6 @@ Reposición certificados de depósito: 0.25% sobre el valor del título con un m
 37. Traslado de expedientes judiciales a cuenta corriente o ahorros
 ¢500 por traspaso.
 (Así adicionado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
+(*) 38. Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas de crédito.
+¢2.000,00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (Oficinas y Canales Electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
+(*) (Así adicionado el inciso anterior mediante sesión N° 34 del 29 de julio de 2008)

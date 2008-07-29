@@ -16,9 +16,15 @@ Colones: 1.50% anual al formalizar
 Dólares: 1.00% anual al formalizar
 Ambas cobrarse por una única vez
 3. Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares.
-3% para créditos superiores a $10.000,00 según el tipo de crédito*, sobre el abono extraordinario aplicado como amortización del principal o cancelación total.
-*Aplica para los créditos Empresariales mayores a doce meses y créditos personales, para vivienda, vehículos y programas promocionales. Para créditos de largo plazo la comisión por prepago estará vigente durante los primeros cinco años de vigencia del crédito o por todo el plazo en caso que sea menor.
-(Así reformado mediante sesión N° 21 del 5 de mayo del 2008 y sesión N° 22 del 12 de mayo del 2008)
+3% para todos excepto:
+1. Líneas de crédito revolutivas a corto plazo (12 meses)
+2. Vivienda de interés social
+3. Créditos menores a $10.000,00
+4. Operaciones del BCR que se cancelan con la constitución de un nuevo crédito del BCR
+Nota:
+a) 3% sobre el saldo actual en caso de cancelación de la deuda.
+b) 3% sobre el monto pago parcial adelantado.
+(Así reformado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008 )
 4. Comisión de formalización por sobregiros documentados en cuenta corriente
 SOBREGIROS FORMALES
 Crédito en cuenta Corriente de 3 Meses |
@@ -34,14 +40,15 @@ Se cobrará, además de los intereses correspondientes, una comisión del 2% sob
 Mínima ¢10.400,00.
 6. Comisión de manejo en Operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros)
 ¢50.00 mensual por cada $5.00 del principal adeudado
-7. Estudios en el Registro de la Propiedad y estudios sobre Sociedades que realiza la División Jurídica.
-¢1.000,00 por estudio de propiedad y de vehículos.
-¢1.000,00 por estudio de índice de bienes inscritos.
+(*) 7. Estudios en el Registro de la Propiedad y estudios sobre personas Jurídicas.
+¢1.000,00 por cada estudio de índice de bienes inscritos.
+¢1.000,00 por cada estudio de propiedad mueble o inmueble.
 ¢1.000,00 por estudios de sociedades y de poderes generalísimos.
-¢2.600,00 por estudios de Asociaciones (Asociaciones solidaristas, Asoc. de Desarrollo, Asoc. comunales, etc.)
+¢3.000,00 cada estudio mercantil o asociaciones realizados en las instalaciones de registro.
+¢5.000,00 por estudios de asociaciones solidaristas, asoc. de desarrollo, asoc. comunales y cooperativas de desarrollo integral o especial etc.).
 Se exceptúan aquellas que por ley no deben cobrarse.
-El Banco no adquiere compromiso alguno al aceptar esta suma y no devolverá la misma, si el cliente decide retirar o abandonar la solicitud o si al realizar los estudios y análisis correspondientes, dicha solicitud se rechace, se apruebe por una suma menor o bajo determinadas condiciones que el cliente no acepte.
-(Así reformado mediante sesión N° 21 del 5 de mayo del 2008 y sesión N° 22 del 12 de mayo del 2008)
+El banco no adquiere compromiso alguno al aceptar esta suma y no devolverá la misma, si el cliente decide retirar o abandonar la solicitud o si al realizar los estudios y análisis correspondientes, dicha solicitud se rechace, se apruebe por una suma menor o bajo determinadas condiciones que el cliente no acepte.
+(*) (Así reformado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008)
 8. Conformidad salida del país a vehículos prendados al Banco ¢7.800,00
 9. Cobro administrativo de operaciones en mora Créditos superiores a $1.000:
 1-10 Días | ¢5.200,00
@@ -52,3 +59,6 @@ NOTA:
 Rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa, cuyo monto original sea mayor o igual a $1.000 o su equivalente en colones y que al momento del pago se encuentre en cartera normal o en cobro judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses.
 Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, según lo establezca el contrato de crédito respectivo.
 10. Cobro Telegramas enviados oper. Vencidas ¢2.600,00
+(*) 11. Por concepto de administración colones y dólares.
+Se cobrará un 1% anual pagaderos mensualmente sobre los proyectos empresariales a largo plazo.
+(*) (Así adicionado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008)

@@ -14,18 +14,21 @@ Otros | Se exceptúa el envío del estado cuando el cliente no lo recibió.
 5. Fotocopias | ¢10.00 no se cobra cuando las fotocopias son para trámites bancarios internos
 6. Copias Planos | Según costo
 7. Apartado Bancario | ¢18.300,00 anual membresía ¢5.000,00 cada bolso de cuero Nota: El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente
-ASPECTOS GENERALES
-1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
-2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
-3. Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
-4. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, distribuidas de la siguiente forma:
-| Porcentaje a negociar
-Gerente General | 100%
-Subgerentes | 100%
-Director de División (1) | 100%
-Gerente de División (1) | 100%
-Gerente Área Comercio Exterior (2) | 75%
-NOTA:
-(1) Directores de División y Gerentes de División informando al superior inmediato.
+8. Servicio por examinar videos BCR. Nota: Se cobra esta comisión por cada video revisado en cassette o digital. (Así adicionado el inciso anterior mediante sesión N° 34 del 29 de julio de 2008 | ¢10.000,00 por examinar cada video de seguridad.
+(*) ASPECTOS GENERALES
+1) En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
+2) Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
+3) Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
+4) Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen rangos de atribuciones para la negociación de las mismas cuando así se requiera, siendo los siguientes funcionarios los únicos en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
+5)
+Porcentaje de Rango
+Gerente de Área: Permitido a Negociar:
+Gerente General 100%
+Subgerentes 100%
+Director de Comercial 100%
+Gerente de División (1) y (2) 50%
+Gerente Área Comercio Exterior (1) y (2) 50%
+Nota:
+(1) Informando al superior inmediato.
 (2) Únicamente en su ámbito de acción.
-(Así reformado mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
+(*) (Así reformado mediante sesión N° 34 del 29 de julio de 2008

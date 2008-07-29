@@ -1,8 +1,8 @@
 III Tarjetas de crédito y débito
 1. Comisión por reemplazo normal y reposición
 ¢2.600,00.
-NOTA: Los productos de Compras Institucionales no pagarán comisión por reemplazo.
-(Así reformado el inciso anterior mediante sesión N°21 del 05 de mayo del 2008 y sesión N°22 del 12 de mayo del 2008)
+Nota: Para los productos de Compras Institucionales del BCR, no pagarán comisión por reemplazo.
+(Así reformado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008)
 2. Comisión por reemplazo de emergencia
 Local ¢10.400,00
 Internacional, Oro y Platino ¢15.600,00
@@ -43,9 +43,14 @@ Máximo ¢1.000,00
 61-90 Días | ¢20.900,00
 NOTA:
 Esta comisión se cobra mensualmente durante el período en que permanezca el crédito en esa condición.
-11. Reposición de Pin para tarjeta de crédito y débito.
-¢1,300.00
-Se cobra esta tarifa cuando el cliente ha olvidado el PIN, pero si se le sustituye por problemas que se presenten con el Banco y que es responsabilidad de este no se le debe cobrar.
-b) Para los productos de Compras Institucionales, Empresariales y BCR Distribución no pagarán comisión por reemplazo.
+(*) 11. Reposición de Pin para tarjeta de crédito y débito.
+¢1.300,00
+Se cobra esta tarifa cuando el cliente ha olvidado el Pin, pero si se le sustituye por problemas que se presenten con el Banco y que es responsabilidad de este no se le debe cobrar.
+Para los productos de Compras Institucionales del BCR, no pagarán comisión por reemplazo.
+(*) (Así reformado el inciso anterior mediante sesión N° 34 del 29 de julio del 2008)
 12. Comisión por servicios administrativos en tarjetas de débito
 ¢2,600.00 excepto tarjetas: Cuenta Conmigo, Cuenta Propia, Pensionados y ANAFA.
+11. Reposición de Pin para tarjeta de crédito y débito.
+¢1.300,00
+Se cobra esta tarifa cuando el cliente ha olvidado el Pin, pero si se le sustituye por problemas que se presenten con el Banco y que es responsabilidad de este no se le debe cobrar.
+Para los productos de Compras Institucionales del BCR, no pagarán comisión por reemplazo.

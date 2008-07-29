@@ -21,3 +21,4 @@ Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica
 | 6 | 2007-11-19 | Reglamento 55 (2007-11-19) |
 | 7 | 2008-02-18 | Reglamento 8 (2008-02-18) |
 | 8 | 2008-05-12 | Reglamento 22 (2008-05-12) |
+| 9 | 2008-07-29 | Reglamento 34 (2008-07-29) |

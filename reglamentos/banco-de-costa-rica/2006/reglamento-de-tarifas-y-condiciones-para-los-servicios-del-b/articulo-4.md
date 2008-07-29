@@ -21,3 +21,6 @@ Según convenio: La comisión que para este servicio se acuerde entre el Banco y
 8. Créditos Directos Salientes SINPE |
 Cuentas Clientes | ¢300.00 por transacción
 9. Bancobcr Empresarial | ¢13.000,00 Dispositivo de lectura (nuevo y reposición) ¢4.200,00 Tarjeta Smart Card (nueva y reposición)
+(*)10. Órdenes de Pago Electrónica, mediante el canal www.bancobcr.com
+$10 por transferencia
+(*) (Así adicionado el insiso anterior mediante sesión N° 34 del 29 de julio de 2008)
