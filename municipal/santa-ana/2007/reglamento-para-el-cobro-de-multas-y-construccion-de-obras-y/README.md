@@ -14,3 +14,4 @@ Reglamento para el Cobro de Multas y Construcción de Obras y Servicios realizad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-13 | la propia norma |
+| 2 | 2008-07-29 | Reglamento municipal 114 (2008-07-29) |

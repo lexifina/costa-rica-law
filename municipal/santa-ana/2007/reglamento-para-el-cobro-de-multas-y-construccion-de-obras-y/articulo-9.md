@@ -12,7 +12,7 @@ Para predios de 5 001 a 1 ha 15 días hábiles.
 Para predios de 1 ha en adelante 1 mes calendario.
 3. Separar, recolectar o acumular, para el trasporte y la disposición final, los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales, de salud y turísticas, solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud.
 Plazo 8 días hábiles.
-4. Construir las aceras frente a sus propiedades y darles mantenimiento, de conformidad con el nivel y alineamiento que defina la Dirección de Desarrollo y Control Urbano.
+4. Construir las aceras frente a sus propiedades y darles mantenimiento, de conformidad con el nivel y alineamiento que defina la Dirección de Ordenamiento Territorial.
 Para aceras de 0 a 20 metros lineales 8 días hábiles.
 Para aceras de 21 a 100 metros lineales 15 días hábiles.
 Para aceras de 101 metros en adelante 1 mes calendario.
@@ -33,3 +33,4 @@ Para predios de 0 a 1 000 metros 8 días hábiles.
 Para predios de 1 001 a 5 000 metros 10 días hábiles.
 Para predios de 5 001 a 1 ha 15 días hábiles.
 Para predios de 1 ha en adelante 1 mes calendario.
+(Así reformado mediante sesión N° 114 del 29 de julio del 2008)

@@ -1,4 +1,2 @@
-Artículo 46.—Entrada en vigencia de los precios. Los precios de las obras y servicios rigen treinta días después de la publicación definitiva del presente Reglamento.
-En lo demás, rige a partir de su segunda publicación.
-De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública por un lapso de diez días hábiles, vencido se pronunciará sobre el fondo.
-Santa Ana, 16 de octubre del 2007.
+Artículo 46.—Derogatoria. El presente Reglamento deroga el Reglamento para aplicar el artículo 75 y 76 del Código Municipal publicado en La Gaceta Nº 118 del 18 de junio de 1999 y cualquier disposición reglamentaria o acuerdo municipal, que se le oponga.
+(Corrida su numeración mediante sesión N° 114 del 29 de julio del 2008, que lo paso del 45 al 46)

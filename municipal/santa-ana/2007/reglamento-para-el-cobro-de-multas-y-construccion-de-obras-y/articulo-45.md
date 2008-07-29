@@ -1,1 +1,4 @@
-Artículo 45.—Derogatoria. El presente Reglamento deroga el Reglamento para aplicar el artículo 75 y 76 del Código Municipal publicado en La Gaceta Nº 118 del 18 de junio de 1999 y cualquier disposición reglamentaria o acuerdo municipal, que se le oponga.
+CAPÍTULO X
+Disposiciones finales
+Artículo 45.—Integración del ordenamiento. Cualquier disposición oscura u omisa, se integrará acudiendo a los principios generales del derecho municipal y administrativo, expresados en el Código Municipal y en la Ley General de Administración Pública.
+(Corrida su numeración mediante sesión N° 114 del 29 de julio del 2008, que lo paso del 44 al 45)
