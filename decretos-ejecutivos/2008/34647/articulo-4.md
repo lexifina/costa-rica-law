@@ -1,0 +1,2 @@
+Artículo 4º—La UCIP estará conformada por representantes del Ministerio de Salud, el Ministerio de Ambiente y Energía y por el Instituto de Fomento y Asesoría Municipal y será coordinada por el representante del Ministerio de Salud como ente rector en la materia.
+Para la implementación y actualización del PRESOL, la UCIP deberá asegurar la participación de los diferentes sectores vinculados a la gestión integral de residuos sólidos, quedando facultada para crear las comisiones o grupos de trabajo que considere necesarias.

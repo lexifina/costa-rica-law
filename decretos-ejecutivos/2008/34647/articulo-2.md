@@ -1,0 +1,1 @@
+Artículo 2º—Para la implementación del PRESOL se conforma una instancia ejecutora llamada la Unidad Coordinadora Interinstitucional de PRESOL, en adelante “UCIP”, la cual estará ubicada en Dirección de Protección al Ambiente Humano o de la Unidad de Servicios de Salud de Protección y Mejoramiento del Hábitat Humano, ambas del Ministerio de Salud.

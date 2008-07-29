@@ -1,0 +1,1 @@
+Artículo 16.—Para la sostenibilidad financiera a la UCIP y la implementación del PRESOL, las instituciones que la conforman deberán hacer las gestiones necesarias a fin de dotarla de recursos económicos suficientes mediante los presupuestos institucionales, préstamos, donaciones, fondos provenientes de la cooperación internacional u otras que se consideren pertinentes.
