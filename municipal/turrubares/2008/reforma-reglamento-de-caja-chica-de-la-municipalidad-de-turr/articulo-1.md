@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE TURRUBARES
+En sesión ordinaria Nº 30-2008, celebrada el 27 de junio del 2008, en acuerdo definitivamente aprobado, el Concejo Municipal de Turrubares, aprueba:
+Artículo 1º—Se modifica para que en lo sucesivo se lea: “Artículo 1º—Se autoriza el Fondo Fijo de Caja Chica en el monto de ¢500.000,00 (quinientos mil colones), además cada año en el mes de enero se incrementará automáticamente el fondo en un 10% hasta llegar a un millón de colones. Artículo 4º—Se modifica para que en lo sucesivo se lea “Artículo 4º—Ningún pago por Caja Chica podrá exceder del 20% del Fondo Fijo de Caja Chica. Esta modificación se realiza debido a que hace más de 9 años el Fondo de Caja Chica no se ha modificado y a solicitud del Sr. Tesorero Municipal.
+San Pablo de Turrubares, 17 de julio del 2008.
