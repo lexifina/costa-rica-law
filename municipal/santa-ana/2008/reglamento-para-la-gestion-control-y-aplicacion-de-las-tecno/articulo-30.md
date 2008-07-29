@@ -1,0 +1,2 @@
+Artículo 30.—Desecho de hardware. Corresponderá al Departamento de Informática determinar y emitir los informes de factibilidad correspondientes para desechar y dar de baja el equipo de cómputo; quien en última instancia requerirá de la autorización del Alcalde para proceder a su desecho final.
+En estos casos, corresponderá al Jefe del Departamento respectivo, dirigir un memorando al Departamento de Contabilidad, reportando la salida del activo.
