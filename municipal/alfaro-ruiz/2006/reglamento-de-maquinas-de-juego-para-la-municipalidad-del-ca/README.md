@@ -14,3 +14,4 @@ Reglamento de Máquinas de Juego para la Municipalidad del Cantón de Alfaro Rui
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-10 | la propia norma |
+| 2 | 2008-07-30 | SINALEVI (sin norma nombrada) |
