@@ -25,4 +25,12 @@ Además se informa que, en la Unidad de Servicio al Cliente, están a su disposi
 · Área de Servicios Públicos: pajas de agua, disponibilidad de agua, cementerio.
 · Área Administrativa Financiera: recepción de documentos; arreglos de pago; solicitudes, retiros, traspaso y traslados de patentes comerciales y de licores; solicitudes de permisos para espectáculos públicos (permanentes y ocasionales).
 · Área de Desarrollo Social: solicitudes de ayudas (a indigentes y a Organizaciones Sociales) y solicitudes de becas para estudiantes.
+(NOTA: Mediante acuerdo publicado en La Gaceta N ° 157 del 14 de agosto de 2008, la Municipalidad de Belén, sustituye en las solicitudes de patente para establecimientos de origen animal y sus derivados el requisito de Permiso Sanitario de Funcionamiento por el Certificado Veterinario de Operación. A su vez, incluye como un requisito adicional la Certificación de estar al día en el pago de las cuotas obrero patronales de la Caja Costarricense de Seguro Social, en los siguientes trámites municipales:
+• Declaración de Patentes
+• Solicitud de disponibilidad de Agua
+• Solicitud de Pajas de Agua
+• Solicitud de patentes
+• Solicitud de Permisos de Construcción
+• Renovación de contratos del Cementerio Municipal
+• Visado de planos.)
 Belén, 28 de junio del 2002.—Viria Murillo Murillo, Secretaria Municipal.

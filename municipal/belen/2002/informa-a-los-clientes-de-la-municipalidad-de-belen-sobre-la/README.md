@@ -14,3 +14,4 @@ Informa a los Clientes de la Municipalidad de Belén sobre las fórmulas y docum
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-10 | la propia norma |
+| 2 | 2008-07-30 | Acuerdo municipal 0 (2008-07-30) |
