@@ -1,0 +1,1 @@
+Artículo 4º—Contratación de consultor o empresa consultora. La Autoridad Reguladora contratará los servicios de un consultor o de una empresa consultora idóneo, para que realice el reclutamiento, la preselección, la selección y la evaluación de los(las) candidatos(as), así como la recomendación de los nombramientos.

@@ -1,0 +1,1 @@
+Artículo 2º—Normas supletorias. Para los casos y las situaciones no previstos en este reglamento, se aplicará supletoriamente, lo dispuesto en el “Reglamento autónomo de las relaciones de servicio entre la Autoridad Reguladora de los Servicios Públicos y sus funcionarios(as)”.

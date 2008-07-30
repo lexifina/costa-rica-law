@@ -1,0 +1,1 @@
+Artículo 9º—Envío de expedientes a la Asamblea Legislativa. La Junta Directiva ordenará que se envíen a la Asamblea Legislativa, para su no objeción, el expediente indicado en el inciso e) del artículo 5° de este reglamento. El envió se hará inmediatamente después de que el acuerdo de nombramiento adquiera firmeza.

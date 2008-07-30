@@ -1,0 +1,1 @@
+Artículo 7º—Comunicación del resultado del proceso de selección. La Junta Directiva ordenará que se les comunique a los (las) candidatos (as) seleccionados (as), los resultados del proceso de selección.
