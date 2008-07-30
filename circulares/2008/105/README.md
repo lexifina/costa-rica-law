@@ -13,3 +13,4 @@ A partir del 1° de febrero del 2008, los Juzgados Penales Juveniles del Primer 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-19 | la propia norma |
+| 2 | 2008-07-30 | Circular 132 (2008-07-30) |

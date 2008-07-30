@@ -2,9 +2,16 @@ CIRCULAR N° 105-08
 ASUNTO: A partir del 1° de febrero del 2008, los Juzgados Penales Juveniles del Primer Circuito Judicial de San José, Alajuela, Cartago, Heredia y Puntarenas atenderán la disponibilidad en forma exclusiva con la colaboración de los Juzgados Penales de la localidad, de ser necesario.
 A LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
-El Consejo Superior en sesión N° 89-07 celebrada el 27 de noviembre del 2007, artículo XLVI, aprobó que a partir del 1° de febrero del 2008, los Juzgados Penales Juveniles del Primer Circuito Judicial de San José, Alajuela, Cartago, Heredia y Puntarenas atendieran la disponibilidad en forma exclusiva con la colaboración de los Juzgados Penales de la localidad de ser necesario, relevando a los Juzgados de Familia especializados de esa atención y tomando en cuenta los Jueces Penales y los Contravencionales y de Menor Cuantía, en razón de la distancia con el despacho judicial competente en asuntos Penales Juveniles.
-El rol de disponibilidad para la atención de la materia Penal Juvenil, en horas y días inhábiles a nivel nacional, será el siguiente:
+NOTA DE SINALEVI: El texto de esta circular fue reformada por circular N° 132 del 30 de julio de 2008 y publicada en El Boletín Judicial N° 154 del 11 de agosto de 2008, por lo que se reproduce a continuación:
+El Consejo Superior en sesión N° 89-07 celebrada el 27 de noviembre del 2007, artículo XLVI, aprobó que a partir del l° de febrero del 2008, los Juzgados Penales Juveniles del Primer Circuito Judicial de San José, Alajuela, Cartago, Heredia y Puntarenas atendieran la disponibilidad en forma exclusiva con la colaboración de los Juzgados Penales de la localidad de ser necesario, relevando a los Juzgados de Familia especializados de esa atención y tomando en cuenta los Jueces Penales y los Contravencionales y de Menor Cuantía, en razón de la distancia con el despacho judicial competente en asuntos Penales Juveníles.
+El rol de disponibilidad para la atención de la materia penal juvenil, en horas y días inhábiles a nivel nacional, será el siguiente:
 Competencia Territorial | Lunes a Viernes | Fines de Semana, (Incluye fines de semana largos) | Días Feriados, de asueto y Períodos de Cierre Colectivo
+SAN JOSE
+Cantones cubiertos por los Circuitos Judiciales de San José | Juzgado Penal Juvenil del I Circuito Judicial de San José | Juzgado Penal Juvenil del I Circuito Judicial de San José | Juzgado Penal Juvenil del I Circuito Judicial de San José
+Puriscal, Turrubares | Juzgado Civil y Laboral de Puriscal | Juzgado Civil y Laboral de Puriscal | Juzgado Civil y Laboral de Puriscal
+Pérez Zeledón | Jdo. De Familia y Penal Juvenil de Pérez Zeledón | Jdo. De Familia y Penal Juvenil de Pérez Zeledón | Jdo. De Familia y Penal Juvenil de Pérez Zeledón
+Buenos Aires de Puntarenas | Juzgado Contravencional y de Menor Cuantía de Buenos Aires de Puntarenas | Jdo. De Familia y Penal Juvenil de Pérez Zeledón | Jdo. De Familia y Penal Juvenil de Pérez Zeledón
+| | |
 ALAJUELA
 Cantón central de Alajuela, Atenas, Orotina, San Mateo y Poás | Juez Penal Juvenil de Alajuela | Juez Penal Juvenil de Alajuela / Juzgado Penal de Alajuela (1) | Juez Penal Juvenil de Alajuela / Juzgado Penal de Alajuela (1)
 San Carlos, Río Cuarto de Grecia, La Fortuna | Juzgado de Familia y Penal Juvenil de San Carlos | Juzgado de Familia y Penal Juvenil de San Carlos | Juzgado de Familia y Penal Juvenil de San Carlos
@@ -16,7 +23,7 @@ Grecia, Valverde Vega, Naranjo | Juzgado de Familia, Penal Juvenil y Violencia D
 San Ramón, Palmares y Alfaro Ruiz | Juzgado de Familia, Penal Juvenil y Violencia Doméstica de San Ramón | Juzgado de Familia, Penal Juvenil y Violencia Doméstica de San Ramón | Juzgado de Familia, Penal Juvenil y Violencia Doméstica de San Ramón
 | | |
 CARTAGO
-Cartago, Paraíso, San Marcos de Tarrazú, Santa María de Dota, San Pablo de León Cortés, La Unión, Alvarado, Oreamuno y el Guarco | Juez Penal Juvenil de Cartago | Juez Penal Juvenil de Cartago / Juzgado Penal de Cartago (1) | Juez Penal Juvenil de Alajuela / Juzgado Penal de Cartago (1)
+Cartago, Paraíso, San Marcos de Tarrazú, Santa María de Dota, San Pablo de León Cortés, La Unión , Alvarado, Oreamuno y el Guarco | Juez Penal Juvenil de Cartago | Juez Penal Juvenil de Cartago / Juzgado Penal de Cartago (1) | Juez Penal Juvenil de Alajuela / Juzgado Penal de Cartago (1)
 Turrialba, Jiménez | Juzgado de Familia, Violencia Doméstica y Penal Juvenil de Turrialba | Juzgado de Familia, Violencia Doméstica y Penal Juvenil de Turrialba | Juzgado de Familia, Violencia Doméstica y Penal Juvenil de Turrialba
 | | |
 HEREDIA
@@ -44,8 +51,7 @@ LIMÓN
 Limón, Matina | Juzgado de Familia y Penal Juvenil del I Circuito Judicial de la Zona Atlántica | Juzgado de Familia y Penal Juvenil del I Circuito Judicial de la Zona Atlántica | Juzgado de Familia y Penal Juvenil del I Circuito Judicial de la Zona Atlántica
 Pococí, Guácimo, Siquirres | Juzgado de Familia y Penal Juvenil del II Circuito Judicial de la Zona Atlántica | Juzgado de Familia y Penal Juvenil del II Circuito Judicial de la Zona Atlántica | Juzgado de Familia y Penal Juvenil del II Circuito Judicial de la Zona Atlántica
 Talamanca | Juzgado Penal de Talamanca | Juzgado de Familia y Penal Juvenil del I Circuito Judicial de la Zona Atlántica | Juzgado de Familia y Penal Juvenil del I Circuito Judicial de la Zona Atlántica
-| | | | |
+| | | | | | |
 NOTA:
 (1) La atención la brindará fin de semana de por medio y día feriado o de asueto de por medio a fin de que el Juez Penal Juvenil, o el Civil, Laboral y de Familia, en el caso de Osa, pueda descansar en esos lapsos. En los períodos de cierre colectivo, la disponibilidad la hará el Juez Penal Juvenil y en el caso de Osa el Juez Civil, Laboral y de Familia.
 (2) A los despachos que les corresponda la atención de la disponibilidad, deberán llevar un registro de la cantidad de asuntos atendidos en horas y días inhábiles, así como su lugar de origen; registro que deberán remitir mensualmente al Departamento de Planificación sin más trámite y en caso de que no lo cumplan, lo hará del conocimiento del Tribunal de la Inspección Judicial para la aplicación del régimen disciplinario correspondiente.
-San José, 19 de junio de 2008.
