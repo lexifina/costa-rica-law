@@ -1,0 +1,1 @@
+Artículo 45.—Derogatorias. El presente reglamento deroga el Reglamento de Organización y Funciones de la Auditoría Interna de la Municipalidad de Paraíso publicado en el Diario Oficial La Gaceta Nº 24 del 4 de febrero de 1999.

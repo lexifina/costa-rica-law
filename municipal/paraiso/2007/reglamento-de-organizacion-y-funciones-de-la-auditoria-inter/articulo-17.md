@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+Del Personal
+Artículo 17.—Del personal de la auditoría interna. El Auditor Interno actuará como jefe del personal a su cargo y en esa condición ejercerá todas las funciones que le son propias en la Administración del Personal, tales como autorizar nombramientos, sanciones, promociones y concesión de licencias y demás movimientos de personal, todo de acuerdo con el ordenamiento jurídico que rige en la Municipalidad de Paraíso y en observancia a lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno. Asimismo, deberá gestionar en forma oportuna lo relativo a las plazas vacantes de la dependencia a su cargo de conformidad con el artículo 28 de la Ley General de Control Interno.

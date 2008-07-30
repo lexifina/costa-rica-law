@@ -1,0 +1,1 @@
+Artículo 8º—Asistencia de sesiones del Concejo. El Auditor Interno asistirá a las sesiones del Concejo Municipal, únicamente cuando éste lo convoque expresamente para asesorar en materia de competencia de la Auditoría Interna, sobre un asunto específico.
