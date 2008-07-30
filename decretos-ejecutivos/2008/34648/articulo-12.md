@@ -1,0 +1,1 @@
+Artículo 12.—Independencia funcional y de criterio. La Auditoría Interna desarrollará su trabajo con total independencia funcional y de criterio respecto a la Junta Directiva y de los demás órganos de la Administración activa. La labor de Auditoría obedece al cumplimiento de la normativa legal, técnica y ética que rige su competencia y su plan de trabajo.

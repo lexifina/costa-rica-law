@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 102.—Derogatoria. El presente reglamento deroga el Reglamento de Organización y Funciones de la Auditoría Interna, que fue promulgado con base en los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las auditorías internas de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en La Gaceta Nº 14 del 21 de enero de 1988 y aprobado en el Artículo sexto de la sesión de Junta Directiva del COSEVI número 812-88, celebrada el 30 de julio de 1988.

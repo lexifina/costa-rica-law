@@ -1,0 +1,3 @@
+SECCIÓN VI
+Competencias
+Artículo 45.—Ámbito de competencia. La Auditoría Interna cumplirá su función en relación con los fondos públicos sujetos al ámbito de competencia del COSEVI, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar, o sobre fondos y actividades privadas de acuerdo con los artículos 5º y 6º de la Ley Orgánica de la Contraloría General de la República, en el tanto éstos se originen en transferencias efectuadas por componentes dentro de la competencia del COSEVI.

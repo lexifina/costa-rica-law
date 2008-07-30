@@ -1,0 +1,2 @@
+Artículo 20.—Dependencia orgánica y regulaciones aplicables. El Auditor Interno o la Auditora Interna dependerá orgánicamente de la Junta Directiva y responderá por su gestión ante está.
+Corresponderá al Auditor Interno o la Auditora Interna la dirección superior de la Auditoría Interna. En cuanto a las regulaciones de tipo administrativo de personal de la Auditoría Interna, deberá atenderse lo dispuesto en los artículos 24 y 28 de la Ley General de Control Interno.

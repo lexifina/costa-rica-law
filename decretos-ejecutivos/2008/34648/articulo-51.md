@@ -1,0 +1,1 @@
+Artículo 51.—Presupuesto de la Auditoría Interna. La Auditoría Interna confeccionará su presupuesto anual en forma independiente, de acuerdo con su plan de trabajo, la administración incluirá por separado una estructura programática dentro del Presupuesto Ordinario de cada año.

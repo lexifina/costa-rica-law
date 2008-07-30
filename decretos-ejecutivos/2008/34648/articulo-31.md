@@ -1,0 +1,1 @@
+Artículo 31.—Pericia y debido cuidado profesional. El Auditor Interno o la Auditora Interna y el subauditor interno o la subauditora interna deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
