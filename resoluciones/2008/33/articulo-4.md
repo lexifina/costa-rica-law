@@ -1,0 +1,1 @@
+IV.—Derogar la Resolución R-CO-15-2007 publicada en La Gaceta N° 68 del 9 de abril del 2007, mediante la que se emitieron las “Directrices para la autoevaluación anual de calidad de las auditorías internas del Sector Público” (D-2-2007-CO-DFOE).

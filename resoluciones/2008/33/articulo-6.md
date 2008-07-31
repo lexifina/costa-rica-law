@@ -1,0 +1,1 @@
+VI.—Derogar la circular sobre “Proyecto de regulación de la evaluación externa de calidad de las auditorías internas del Sector Público y ampliación de plazo para la realización de ésta”, comunicada mediante oficio N° 4591 (FOE-ST-0084) de 23 de mayo de 2008

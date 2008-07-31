@@ -1,0 +1,1 @@
+Segundo.—Las auditorías internas que hayan realizado una evaluación externa de calidad con anterioridad al año 2010, deberán aplicar la periodicidad de cinco años a partir de la fecha en que esa evaluación fue concluida, siendo obligatoria para esa evaluación siguiente la aplicación de estas directrices.

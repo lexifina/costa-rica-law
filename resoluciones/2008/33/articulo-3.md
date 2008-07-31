@@ -1,0 +1,2 @@
+III.—Modificar la norma 210.03 del Manual de normas generales de auditoría para el Sector Público (M-2-2006-CO-DFOE), emitido mediante resolución N° R-CO-94-2006 del 17 de noviembre del 2006, publicada en La Gaceta N° 236 del 8 de diciembre de 2006, para que se lea de la siguiente forma:
+“La organización de auditoría debe someterse periódicamente a revisiones externas de calidad, preferiblemente cada cinco años…”
