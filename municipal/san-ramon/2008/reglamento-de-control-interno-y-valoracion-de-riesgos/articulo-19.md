@@ -1,0 +1,2 @@
+Artículo 19.—Responsabilidad. Es responsabilidad del Jerarca y de los colaboradores, revisar y perfeccionar su SCI por medio del proceso de autoevaluación, el cual debe ejecutarse mínimo una vez al año y de conformidad con el plan aprobado por el Concejo Municipal.
+La revisión no se debe limitar únicamente a la simple verificación del cumplimiento o no de un control, sino que conlleva a la determinación de rediseñar, mejorar, desaplicar, complementar o implantar controles.

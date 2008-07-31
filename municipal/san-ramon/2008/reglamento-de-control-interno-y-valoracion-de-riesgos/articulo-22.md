@@ -1,0 +1,1 @@
+Artículo 22.—Guía para la auto-evaluación. En la Municipalidad se aplicará cada año una Guía de Auto-Evaluación, con base en la preparada por la Contraloría General de la República, y mejorada para ser adaptada a las necesidades institucionales, la cual consiste en un cuestionario que contempla las normas mínimas de control por observar.

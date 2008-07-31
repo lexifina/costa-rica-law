@@ -1,0 +1,1 @@
+Artículo 32.—Procedimiento para la implementación del Sistema Específico de Valoración del Riesgo. Una vez establecida la metodología a utilizar, la comisión de Valoración del Riesgo Institucional, enviará dicha propuesta a la Comisión Ejecutiva para su aval, luego se enviará a la Alcaldía, para su primera aprobación. La Alcaldía elevará al Concejo para la aprobación final.

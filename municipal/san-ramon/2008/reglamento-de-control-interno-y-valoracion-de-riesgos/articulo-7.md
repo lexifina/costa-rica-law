@@ -1,0 +1,1 @@
+Artículo 7º—Comisión Ejecutiva de Control Interno. Se crea la Comisión Ejecutiva de Control Interno (en adelante se identifica con las siglas CECI), con el fin de liderar, y conducir el proceso de control interno institucional, con el apoyo de la Alcaldía Municipal.

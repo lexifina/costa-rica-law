@@ -1,0 +1,1 @@
+Artículo 6º—Comisión Ejecutiva. Se constituye la Comisión Ejecutiva de Control Interno que analizará las acciones de Control Interno, para que las mismas sean avaladas por la Alcaldía y a su vez sea elevado al Concejo municipal para su conocimiento y aprobación

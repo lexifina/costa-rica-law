@@ -1,0 +1,4 @@
+Artículo 9º—Sesiones de la Comisión Ejecutiva de Control Interno. Dicha Comisión sesionará ordinariamente al menos una vez al mes.
+La agenda de la sesión Ordinaria, la fecha propuesta y toda la documentación por conocer será remitida por la UCCI a la CECI para su conocimiento y análisis, por medio de correo electrónico u algún otro medio que se determine.
+Además, la CECI sesionará de forma extraordinaria para conocer los temas que tengan relación con la materia de Control Interno como conflictos u otros asuntos importantes por definir (situaciones de emergencia, fuerza mayor). En estos casos la UCCI con al menos 3 días de anticipación remitirá la fecha propuesta de la sesión.
+Los miembros de la CECI podrán incorporar en la agenda de las sesiones ordinarias temas de trascendental importancia en materia de Control Interno, con al menos dos días de anticipación a la fecha de la sesión.

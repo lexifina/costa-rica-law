@@ -1,0 +1,1 @@
+Artículo 44.—Modificaciones. La reforma total o parcial de este Reglamento sólo lo podrá hacer el Concejo Municipal, en sesión Ordinaria y deberá contar con la aprobación de las 2/3 partes del total de sus miembros y deberá ser publicada en el Diario Oficial para su eficacia.

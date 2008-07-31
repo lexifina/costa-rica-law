@@ -1,0 +1,1 @@
+Artículo 31.—Estructura del proceso de valoración de riesgos. Se establece una Comisión, con el fin de apoyar la Actividad de Control Interno, en el establecimiento del Sistema de Valoración de Riesgos, y las propuestas deberán ser avaladas por la Comisión Ejecutiva de Control interno.
