@@ -14,3 +14,4 @@ Reforma Integral Manual de procedimientos de la inspección de trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-13 | la propia norma |
+| 2 | 2008-07-31 | Directriz 23 (2008-07-31) |
