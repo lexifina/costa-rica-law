@@ -1,0 +1,1 @@
+Artículo 49º. - El Director (a) Nacional podrá otorgar permisos sin goce de salario, vía excepción, en tiempo, no contemplados en el artículo anterior, siempre que exista acuerdo mutuo entre funcionario y la administración.

@@ -1,0 +1,1 @@
+Artículo 118º. —Se considerarán faltas leves, la violación de las disposiciones contenidas en los artículos 15, literales a., b., c., del artículo 16 literales e., f., h., artículo 17 literales b., c., f., del 18, literales a., del presente Reglamento.

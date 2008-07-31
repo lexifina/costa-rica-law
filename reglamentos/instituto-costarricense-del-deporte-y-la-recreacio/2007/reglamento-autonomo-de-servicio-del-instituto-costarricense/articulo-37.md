@@ -1,0 +1,1 @@
+Artículo 37º. —La llegada tardía que exceda de diez minutos, contados a partir de la hora de ingreso estipulada y que carezca de justificación, se tomará como ausencia de media jornada y por consiguiente, injustificada.

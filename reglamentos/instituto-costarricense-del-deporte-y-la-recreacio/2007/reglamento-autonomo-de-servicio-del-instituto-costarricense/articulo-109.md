@@ -1,0 +1,1 @@
+Artículo 109º. —En la misma audiencia oral y privada del servidor(a) investigado o después de ésta, el instructor u órgano director del procedimiento evacuará la prueba de descargo ofrecida por aquel, así como cualquier otra que estime necesaria para determinar la verdad real de los hechos.

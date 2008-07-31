@@ -1,0 +1,1 @@
+Artículos 59º-- Los funcionarios del ICODER, y sus familiares, hasta segundo grado de consanguinidad, tendrán acceso para disfrutar gratuitamente las instalaciones deportivas y recreativas. El ICODER le proporcionará un carné de pensionado a los funcionarios que se acojan a la pensión y tendrán derecho al uso de las instalaciones.

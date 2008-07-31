@@ -1,0 +1,1 @@
+Artículo 111º. —A partir del momento en que la Dirección, reciba todos los informes y atestados resultantes de la instrucción del procedimiento disciplinario, contará con un plazo improrrogable de dos meses para dictar la resolución final.

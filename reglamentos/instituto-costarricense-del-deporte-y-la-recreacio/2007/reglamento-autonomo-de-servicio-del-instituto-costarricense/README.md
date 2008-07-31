@@ -1,0 +1,16 @@
+# Reglamento (2007-10-04)
+
+Reglamento Autónomo de Servicio del Instituto Costarricense del Deporte y la Recreación
+
+- Tipo: Reglamento
+- Número: 567
+- Fecha: 2007-10-04
+- Ente emisor: Instituto Costarricense del Deporte y la Recreación
+- Publicación: La Gaceta N° 147 del 2008-07-31
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69457&param2=83432&param3=1 (ficha 69457)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-07-31 | la propia norma |

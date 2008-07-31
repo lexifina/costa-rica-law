@@ -1,0 +1,1 @@
+Artículo 135º. - A falta de disposiciones de este Reglamento, aplicable a un caso determinado deberán tenerse como normas supletorias: La Ley General de la Administración Pública, Estatuto del Servicio Civil, Código de Trabajo y demás leyes y reglamentos conexos.

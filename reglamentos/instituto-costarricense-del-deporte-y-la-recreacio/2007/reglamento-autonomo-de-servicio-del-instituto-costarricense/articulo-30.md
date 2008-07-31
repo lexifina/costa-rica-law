@@ -1,0 +1,1 @@
+Artículo 30º. —El registro de asistencia será computado mensualmente, por lo que la Unidad de Recursos Humanos dispondrá del mes siguiente, para la aplicación después del debido proceso, de las sanciones administrativas que corresponda realizar.

@@ -1,0 +1,3 @@
+Artículo 60º. – Se crea la Unidad o programa de Capacitación, el encargado realizará anualmente un diagnóstico de necesidades de capacitación y elaborará un plan de capacitación para los funcionarios (ias) del ICODER. De acuerdo con la asignación presupuestaria.
+El plan de capacitación será aprobado por Director (a) Nacional, la inclusión o exclusión de un evento de capacitación debe contar con su visto bueno.
+A la unidad de capacitación o encargado de programa, le corresponde coordinar todo lo relacionado con la capacitación y recibir las solicitudes de capacitación planteadas por lo jefes y los funcionarios, las cuales analizará y recomendará al Director Nacional los candidatos a capacitar.

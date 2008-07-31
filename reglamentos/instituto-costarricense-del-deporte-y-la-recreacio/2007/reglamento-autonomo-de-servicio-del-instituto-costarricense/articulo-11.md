@@ -1,0 +1,2 @@
+Artículo 11º. —Al ocurrir una vacante en un Departamento o Dirección, se podrá llevar a cabo el procedimiento de selección, salvo que el Director (a), conjuntamente con el coordinador y bajo su responsabilidad, decidan no llenarla por considerarlo conveniente y compatible con el buen servicio público.
+Cuando quede un puesto vacante primero se hará un concurso interno, si existe inopia para este puesto se hará un concurso externo.

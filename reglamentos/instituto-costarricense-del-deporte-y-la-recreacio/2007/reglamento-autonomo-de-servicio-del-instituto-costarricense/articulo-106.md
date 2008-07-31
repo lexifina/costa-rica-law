@@ -1,0 +1,1 @@
+Artículo 106º. —Cuando por razones muy calificadas de necesidad o conveniencia evidentes, se requiera separar temporalmente del cargo al servidor instruido durante el desarrollo del procedimiento de investigación disciplinaria, la Dirección en su caso, podrá suspenderlo cautelarmente con goce de salario mediante resolución motivada.

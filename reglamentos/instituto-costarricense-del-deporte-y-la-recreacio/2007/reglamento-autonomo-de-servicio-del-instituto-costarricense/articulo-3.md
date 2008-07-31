@@ -1,0 +1,1 @@
+Artículo 3º—La responsabilidad de velar por la correcta aplicación de las disposiciones del Reglamento, corresponde al Director (a) Nacional, Coordinadores de Departamentos y Directores de Dirección y los funcionarios en general. La Unidad Recursos Humanos es el encargado de velar por la correcta aplicación general de las disposiciones del Reglamento y de asesorar.

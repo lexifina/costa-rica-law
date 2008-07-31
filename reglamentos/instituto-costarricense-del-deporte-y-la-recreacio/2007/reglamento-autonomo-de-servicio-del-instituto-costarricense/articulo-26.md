@@ -1,0 +1,1 @@
+Artículo 26º. —Cuando necesidades imperiosas del ICODER lo requieran, los servidores quedan en la obligación de laborar horas extraordinarias, salvo que razones justificadas lo impidan, pero en ningún caso la jornada ordinaria sumada a la extraordinaria podrá ser superior a doce horas diarias; con excepción de los puestos excluidos del límite de jornada.

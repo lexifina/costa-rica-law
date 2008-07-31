@@ -1,0 +1,1 @@
+Artículo 22º. - La jornada de trabajo se desarrollará en las sedes del Instituto, ubicadas en diferentes instalaciones de ésta, en el territorio nacional. El cambio de lugar de trabajo deberá ser puesto en conocimiento de los servidores con el mínimo de un mes calendario y sólo podrá darse con causa muy calificada y de acuerdo con la normativa vigente.

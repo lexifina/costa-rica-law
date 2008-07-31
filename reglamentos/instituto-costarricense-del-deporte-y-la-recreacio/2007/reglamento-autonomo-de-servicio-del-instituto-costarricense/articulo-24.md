@@ -1,0 +1,2 @@
+Artículo 24º.- La Dirección podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y en tanto no se cause perjuicio graves a sus servidores. En este caso el cambio deberá comunicarse a los afectados, con un mínimo de tres días de anticipación.
+La variación definitiva de los horarios deberá aprobarse por modificación de este Reglamento.

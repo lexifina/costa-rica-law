@@ -1,0 +1,1 @@
+Artículo 102º. —Recibida la denuncia por la Dirección, o por la Unidad Recursos Humanos y previo a determinar la necesidad o procedencia de iniciar un procedimiento de investigación disciplinaria, la Dirección podrá nombrar al instructor(a) u órgano director del procedimiento de conformidad con lo indicado en la Ley General de la Administración Pública.

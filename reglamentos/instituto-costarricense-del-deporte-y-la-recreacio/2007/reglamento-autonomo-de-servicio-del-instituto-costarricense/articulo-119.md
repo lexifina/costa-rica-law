@@ -1,0 +1,1 @@
+Artículo 119º. —Se considerarán faltas de alguna gravedad la violación de las disposiciones de los artículos 15, literales d., e., f., g., h., i., j., k., l., del artículo 17 literales e., g., del 18, literales Q, b., c., d., e., f., g., h artículo19 literales a., b., c., d., del presente Reglamento.

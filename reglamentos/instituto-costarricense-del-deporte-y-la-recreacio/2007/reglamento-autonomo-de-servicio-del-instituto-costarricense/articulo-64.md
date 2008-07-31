@@ -1,0 +1,1 @@
+Artículo 64º. - Cuando un funcionario del ICODER considere que las funciones de su puesto han cambiado sustancialmente puede solicitar al Coordinador de Departamento un estudio de su puesto. El Coordinador de Departamento plantea solicitud al Director de Dirección para que solicite a la Unidad de Recursos Humanos realice el estudio correspondiente.

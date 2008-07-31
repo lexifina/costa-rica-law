@@ -1,0 +1,2 @@
+Artículo 82º. —Lo resuelto por la Dirección Nacional, tendrá recurso de revocatoria ante esta misma Dirección y de apelación ante el Consejo Nacional del Deporte y la Recreación los cuales deberán ser interpuestos dentro de un término de tres días hábiles cada uno, posteriores a su notificación.
+La apelación interpuesta será resuelta mediante resolución por el Consejo Nacional del Deporte y la Recreación, misma que agotará la vía administrativa.

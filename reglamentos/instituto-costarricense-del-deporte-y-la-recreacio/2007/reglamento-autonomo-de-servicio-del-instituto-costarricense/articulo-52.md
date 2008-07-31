@@ -1,0 +1,2 @@
+Artículo 52º. - Licencias para docencia: Será permitido que los funcionarios realicen labores docentes en instituciones de nivel superior, durante el horario del ICODER, siempre y cuando no se sobrepase las seis horas semanales y bajo las siguientes condiciones:
+Que las horas solicitadas se repongan mediante la modificación de la jornada de trabajo, siempre y cuando no se afecte la calidad del servicio que presta la institución.

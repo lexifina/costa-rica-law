@@ -1,0 +1,3 @@
+Artículo 75º. —El funcionario (a) afectado 8ª9 por acoso u hostigamiento sexual podrá plantear la respectiva denuncia, sea en forma verbal o escrita, ante la Unidad de Recursos Humanos.
+De lo manifestado, se levantará un acta mediante la cual dará inicio el procedimiento, que al menos contendrá: nombre del o la denunciante y sus calidades, nombre del funcionario (a) denunciado (a), indicación de las manifestaciones de acoso sexual, firma del denunciante y de quien recibe la denuncia.
+Dicha denuncia será trasladada, en forma inmediata, a la Unidad Recursos Humanos, quienes se encargarán de realizar la investigación que el caso requiera.

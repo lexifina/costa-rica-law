@@ -1,0 +1,3 @@
+Artículo 51º- La Dirección Nacional del ICODER puede otorgar licencias para capacitación a sus funcionarios para aprovechar las becas u otras facilidades que otorguen gobiernos, instituciones y organismo s nacionales o extranjeros.
+Las becas que se otorguen deben estar relacionadas y ser atinentes al puesto que ocupe el funcionario (ria). El nivel de especialización requerido lo establece la Dirección Nacional.
+Si la licencia se concede con goce parcial o total de salario, el funcionario deberá suscribir un contrato con el ICODER y sujetarse a las disposiciones, tanto de dicho contrato, como a las de la citada ley y su reglamento. Lo anterior no regirá cuando la licencia, para tales fines, sea sin goce de salario.

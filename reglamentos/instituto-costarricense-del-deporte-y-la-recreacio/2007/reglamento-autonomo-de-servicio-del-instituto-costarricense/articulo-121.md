@@ -1,0 +1,1 @@
+Artículo 121º. —Las medidas disciplinarias que se indican en el presente Capítulo, deberán imponerse dentro del mes siguiente, a aquel en que cometió la falta o que fue de conocimiento del la Dirección Nacional o la Unidad Recursos Humanos.

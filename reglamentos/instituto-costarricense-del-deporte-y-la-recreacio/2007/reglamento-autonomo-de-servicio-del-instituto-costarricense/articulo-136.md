@@ -1,0 +1,4 @@
+Artículo 136º. —Se deroga el Reglamento Autónomo de Servicio vigente, publicado en el Diario Oficial La Gaceta Nº 98, Decreto Ejecutivo Nº 23279-C del 23 de mayo de 1994.
+Se deroga el Programa de Incentivos de la Dirección General de Educación Física y Deportes, aprobado por el Consejo Nacional de Deportes en su sesión número 1259 del 14 de enero de 1993.
+Se deroga el Reglamento de Becas y Licencias de Estudio para el personal del ICODER, dado en el salón de sesiones del Consejo Nacional del Deporte y la Recreación a los veinticuatro días del mes de octubre del año dos mil uno y toda aquella normativa que se oponga.
+Dado en el Salón de Sesiones del Consejo Nacional del Deporte y la Recreación en la Sesión Ordinaria 567-2007, a los cuatro días del mes de octubre del año dos mil siete, artículo VIII, inciso 1, acuerdo Nº 28.

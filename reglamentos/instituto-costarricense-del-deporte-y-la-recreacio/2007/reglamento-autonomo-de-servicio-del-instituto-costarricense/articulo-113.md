@@ -1,0 +1,1 @@
+Artículo 113º. —La Unidad Recursos Humanos notificará y ejecutará la resolución que emita la Dirección. Los efectos de dicha resolución empezarán a regir a partir de la fecha en el superior jerárquico le indico que deberá hacerlo en el plazo que corresponda.

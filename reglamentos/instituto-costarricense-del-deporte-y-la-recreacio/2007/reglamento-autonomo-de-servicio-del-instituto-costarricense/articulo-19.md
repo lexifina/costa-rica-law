@@ -1,0 +1,6 @@
+ARTICULO 19º.- Además de las contempladas en el artículo 17 y en otros de este reglamento, queda absolutamente prohibido a todos los empleados y choferes de la Institución:
+a. Tomar licor durante las horas de trabajo, conducir vehículos en estado alcohólico o bajo cualquier otra condición análoga o presentarse a laborar bajo estas condiciones.
+b. Conducir a velocidades superiores a las permitidas por las leyes o reglamentos de tránsito, así como incumplir disposiciones que las mismas contemplen.
+c. Usar el vehículo en lugares diferentes al del itinerario que corresponda. Cuando por circunstancias muy calificadas, el conductor se vea obligado a salirse de la ruta respectiva, al término de la jornada deberá dar la información del caso al Jefe respectivo.
+d. Ceder la conducción del vehículo a otras personas, salvo por razones muy calificadas o de fuerza mayor. El funcionario que incurra en esta falta se hará acreedor a las mismas responsabilidades en que incurra el conductor.
+e. Ocupar o permitir que se use el vehículo en actividades ajenas al servicio de la institución, así como transportar a funcionarios o particulares que no tengan relación con el servicio que presta, excepto los casos que así lo obliguen o ameriten, a requerimiento del funcionario responsable de la misión, por la índole o el propósito del viaje.

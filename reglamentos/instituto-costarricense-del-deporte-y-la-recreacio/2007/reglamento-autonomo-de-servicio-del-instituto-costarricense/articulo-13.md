@@ -1,0 +1,2 @@
+Artículo 13º. — El período de prueba sólo se aplicará en los casos de iniciación de nombramiento, ascensos y traslados.
+El Director de Dirección podrá recomendar a la Director (a) Nacional el despido del funcionario durante el período de prueba, en un nombramiento por primera vez, o su regreso al puesto anterior en caso de ascensos o traslados. El Director (a) Nacional deberá comunicar su decisión motivada a la Unidad de Recursos Humanos.
