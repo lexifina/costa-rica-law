@@ -1,0 +1,1 @@
+Artículo 4º—Solo podrán ser árbitros las personas físicas que se encuentren en pleno ejercicio de sus derechos civiles. En el caso de que postulante lo sea para integrar la lista de árbitros de derecho, deberá además ser abogado en ejercicio con más de cinco años de ejercicio profesional.

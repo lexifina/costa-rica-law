@@ -1,0 +1,1 @@
+Artículo 5º—En el proceso de elaboración de las listas, hará una primera etapa de preselección que consistirá en la verificación del cumplimiento de los requisitos formales de los antecedentes acompañados por el participante. Todo oferente que cumpla con los requisitos podrá formar parte de la nómina de preseleccionados.

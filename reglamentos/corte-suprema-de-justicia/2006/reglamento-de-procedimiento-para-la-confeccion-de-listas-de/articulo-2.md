@@ -1,0 +1,1 @@
+Artículo 2º—La Corte Suprema de Justicia autorizará dos listas: una de árbitros de derecho y otra de árbitros de equidad, a propuesta de la Comisión de Nombramientos. Esas listas estarán compuestas, cada una, de treinta candidatos como máximo, ordenadas alfabéticamente por apellidos.

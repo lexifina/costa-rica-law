@@ -1,0 +1,1 @@
+Artículo 8º—Los árbitros, de Derecho como de equidad, serán designados por períodos de cinco años, pudiendo ser reelectos. El plazo se computará a partir de la firmeza del acuerdo en que la Corte Plena autorice el nombramiento.
