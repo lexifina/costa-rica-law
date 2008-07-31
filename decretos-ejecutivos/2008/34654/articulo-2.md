@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Instituto de Desarrollo Agrario para que mediante el procedimiento correspondiente proceda a cancelar las inscripciones en el Registro Público que se generaron a raíz de los decretos mencionados.
