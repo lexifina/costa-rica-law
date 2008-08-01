@@ -1,0 +1,5 @@
+Artículo 3º—Vehículos de uso administrativo general. Los vehículos de uso administrativo general son todos los del Instituto, de conformidad con lo dispuesto en la Ley de Tránsito Nº 7331, que se encuentran a su disposición y que son utilizados por sus servidores, con la finalidad de desarrollar las labores normales de las funciones y actividades de la Institución, así como medio de transporte de material o equipo. Por tal motivo, no deberán ser asignados en forma exclusiva al servicio de ningún funcionario. Deberán estar sometidos a las siguientes regulaciones:
+a) Serán utilizados únicamente dentro de la jornada ordinaria de la Institución, salvo lo dispuesto en el artículo 17 de este Reglamento.
+b) Serán utilizados exclusivamente para asuntos oficiales y no para asuntos particulares.
+c) Estarán sometidos a un control de kilometraje y explicación del motivo del recorrido.
+d) Serán guardados al finalizar la jornada de trabajo dentro del edificio del INCIENSA u otro lugar, si así lo amerita la situación.

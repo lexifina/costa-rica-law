@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones Finales
+Artículo 35.—Inscripción de vehículos. Todo vehículo que sea adquirido por el Instituto, deberá inscribirse en el Registro Público de Vehículos a su nombre. Asimismo, deberán ser debidamente des-inscritos cuando éstos le dejen de pertenecer o sean retirados de circulación. Para ello, se deberá seguir la normativa establecida en el Título V sobre el “Sistema Complementario de Administración de Bienes y Contratación Administrativa”, Sección II sobre la Administración de Bienes, del Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, Decreto Nº 30058-H-MP-PLAN, publicado en el Diario Oficial La Gaceta Nº 68 del martes 9 de abril del 2002 y sus reformas.
