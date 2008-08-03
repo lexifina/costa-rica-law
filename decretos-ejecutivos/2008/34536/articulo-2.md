@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. De conformidad con el marco jurídico vigente, la fijación de tarifas y de traslado de costos se aplicará a documentos, guías y publicaciones que la SETENA emita para realizar y validar la Evaluación de Impacto Ambiental.
