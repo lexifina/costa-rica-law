@@ -1,1 +1,1 @@
-Artículo 14.—De los concursos de ofertas. Todo concurso de ofertas realizado por cualquiera de los procesos de contratación, ya sea Licitación Pública, Licitación por Registro o Licitación Restringida; deberán cumplir con los trámites establecidos en la Ley de Contratación Administrativa y su Reglamento.
+Artículo 14.—Si no existiera en el registro de proveedores una persona o empresa calificada para la prestación del servicio, se procederá de acuerdo a lo que establece el Reglamento de Contratación Administrativa

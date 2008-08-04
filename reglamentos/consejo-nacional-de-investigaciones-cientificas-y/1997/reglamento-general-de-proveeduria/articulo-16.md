@@ -1,6 +1,6 @@
-CAPITULO V
-Disposiciones finales
-Artículo 16.—Lo no dispuesto en el presente reglamento se regirá supletoriamente por las disposiciones de la Ley de Contratación Administrativa N° 7494 del 2 de mayo de 1995 y sus reformas y el Reglamento General de Contratación Administrativa, Decreto Ejecutivo 25038-H del 6 de marzo de 1996.
-Este Reglamento rige a partir de su publicación en el Diario Oficial “La Gaceta”.
-Aprobado por el Consejo Director en sesión N° 1375 del 2 de setiembre de 1997.
-San José, 11 de setiembre de 1997
+Artículo 16.—Registro de Proveedores. De conformidad con lo establecido en la Ley de Contratación Administrativa, el CONICIT mantendrá un registro de Proveedores.
+a. La Unidad de Recursos Materiales y Servicios será la encargada de administrar todos los trámites concernientes al mantenimiento y operación del Registro de Proveedores.
+c. Toda persona física o jurídica que desee formar parte del registro, deberá llenar el formulario dispuesto para ese fin con toda la información que se solicita.
+d. Según lo establece el artículo 121 del Reglamento a la Ley de Contratación Administrativa, la Unidad de Recursos Materiales y Servicios, con el fin de garantizar una adecuada rotación de los potenciales oferentes del Registro de Proveedores, tomará en cuenta los siguientes aspectos: El orden cronológico conforme fue inscrito, la cantidad de oferentes registrados para el bien o servicio y la evaluación de la ejecución contractual.
+e. Serán causales de exclusión del registro de proveedores las causas enumeradas en el artículo 124 del Reglamento de la Ley de Contratación Administrativa:
+Según lo establecen los artículos 116 al 124 del Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo 33411-H del 27 de setiembre del 2006 y 34049-H, La Gaceta 205 del 25 de octubre del 2007.

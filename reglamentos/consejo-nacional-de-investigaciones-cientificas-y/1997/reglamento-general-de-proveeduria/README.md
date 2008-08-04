@@ -14,3 +14,4 @@ Reglamento General de Proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-14 | la propia norma |
+| 2 | 2008-08-04 | Reglamento 1882 (2008-08-04) |

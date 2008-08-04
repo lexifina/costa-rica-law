@@ -1,1 +1,3 @@
-Artículo 12.—Contratación Directa. Se realizarán las contrataciones directas cuando su valor no sobrepase los montos establecidos en el inciso 4) del artículo 79 del Reglamento General de Contratación Administrativa . Igualmente cuando se presenten los presupuestos establecidos por los demás incisos del artículo 79 anteriormente referido.
+CAPÍTULO IV
+Proceso de compra
+Artículo 12.—Con el fin de resguardar los intereses de la institución y brindar un buen servicio, la Unidad de Recursos Materiales y Servicios deberá cumplir con el siguiente procedimiento.

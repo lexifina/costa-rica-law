@@ -1,3 +1,7 @@
-Artículo 10.—Niveles de aprobación. Se establecen los siguientes niveles de autorización para las contrataciones:
-1. El Coordinador del Área Administrativa-Financiera junto con el Proveedor adjudicarán todas las contrataciones que se realicen por los trámites de contratación directa y concurso de licitación restringida, así mismo los remates cuyo monto no supere los diez millones de colones.
-2. Compete al Consejo Director adjudicar toda contratación que se realice siguiendo los trámites de licitación pública y licitación por registro.
+CAPÍTULO III
+Normas Generales sobre Contrataciones
+Artículo 10.—Documentación requerida:
+a) La tramitación de una contratación se iniciará con la solicitud presentada por el Director o Coordinador de la Unidad que requiere el bien o servicio.
+b. La Unidad de Recursos Materiales y Servicios en cada caso emitirá una orden de compra, la cual será aprobada por el Director de Soporte Administrativo.
+c. Se elimina.
+Toda compra de bienes que constituya un activo fijo, debe ser aprobada por el Director de Soporte Administrativo, excepto los equipos de cómputo y multimedia, licencias y aplicaciones de software, que deben ser aprobadas por el Comité Gerencial de Informática.

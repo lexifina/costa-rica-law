@@ -1,4 +1,1 @@
-Artículo 15.—Registro de Proveedores. De conformidad con lo establecido en la Ley de Contratación Administrativa, el CONICIT mantendrá un registro de Proveedores.
-a) La Proveeduría será la encargada de administrar todos los trámites concernientes al mantenimiento y operación del registro.
-b) Se inscribirán en él todos los interesados única y exclusivamente en los bienes y servicios que estén en capacidad de suministrar, de acuerdo con la información que proporcionen al efecto.
-c) Toda persona física o jurídica que forme parte del registro deberá presentar una declaración en la que acepte quedar sometido en un todo al ordenamiento jurídico y Tribunales de Justicia de Costa Rica en cuanto a los trámites, documentos aportados y procedimientos, lo cual acepta incondicionalmente renunciando a cualquier otra jurisdicción extranjera.
+Artículo 15.—De los concursos: Todo concurso realizado por cualquiera de los procesos de contratación, ya sea Licitación Pública o Licitación Abreviada y Contratación Directa, deberán cumplir con los trámites establecidos en la Ley de Contratación Administrativa y su Reglamento.

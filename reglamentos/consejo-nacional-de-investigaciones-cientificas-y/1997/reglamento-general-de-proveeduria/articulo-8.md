@@ -1,12 +1,1 @@
-Artículo 8°—Salvo que en el cartel se indique otra cosa, el método para valorar y comparar ofertas estará regido por la siguiente tabla de evaluación:
-Concepto | Puntaje
-Precio ofrecido........................................................................................ | 15%
-Calidad del producto cotizado................................................................ | 15%
-Ajuste a las condiciones y especificaciones del cartel............................. | 5%
-Plazo de entrega...................................................................................... | 15%
-Plazo de entrega...................................................................................... | 15%
-Garantías ofrecidas................................................................................. | 10%
-Término de su vigencia .......................................................................... | 10%
-Demás aspectos favorables a los intereses de la administración ........... | 10%
-Experiencia en el campo ........:............................................................... | 15%
-TOTAL................................................................................................. | 100%
+Artículo 8º—El perfeccionamiento y formalización contractual se regirá de conformidad con los artículos 189 y 190 del Reglamento General de Contratación Administrativa. La Asesoría Legal confeccionará el contrato con el apoyo de la Unidad de Recursos Materiales y Servicios. La formalización del contrato será responsabilidad de la Asesoría Legal.
