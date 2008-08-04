@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34550-H
+(Este decreto fue Derogado por el artículo 1° del decreto ejecutivo N° 34920 del 4 de agosto de 2008)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en las atribuciones que les confieren los artículos 140 inciso 18) y 146 de la Constitución Política, artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2 acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978 y sus reformas; artículos 1 al 7, 12, 14 al 17, 25 al 27 y 29 al 31 de la Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia, Ley Nº 7476 del 03 de marzo de 1995, la Convención de las Naciones Unidas sobre la eliminación de todas las formas de discriminación contra la mujer y la Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer, el Decreto Ejecutivo Nº 25271-H del 12 de julio de 1996 y sus reformas.
