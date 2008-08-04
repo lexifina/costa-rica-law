@@ -13,6 +13,7 @@ DECRETAN:
 El siguiente
 Reglamento para el Pago de Zonaje a los Servidores de la Dirección Nacional de Desarrollo de la Comunidad
 Artículo 1°-:
-a) Por zonaje se entenderá la compensación adicional que la Dirección Na cional de Desarrollo de la Comunidad reconocerá a sus servidores que tengan que prestar sus servicios permanentes en lugar distinto al de su domicilio legal, o que eventualmente permanezcan fuera de la circunscripción territorial de éste por más de un mes, en forma continua siempre que la zona en donde realizan su trabajo justifique tal compensación.
-b) Incentivo por regionalización: Estímulo a los funcionarios que se desempeñen como promotores comunales en alguna de las nueve regiones que abarca DINADECO a nivel nacional, beneficiando con ello a la institución y al país. Éste será equivalente a un 50% de la cantidad asignada por el Zonaje.
-(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33803 del 22 de marzo de 2007).
+A) Por zonaje se entenderá la compensación adicional que la Dirección Nacional de Desarrollo de la Comunidad reconocerá a sus servidores que tengan que prestar sus servicios permanentes en lugar distinto al de su domicilio legal, que eventualmente permanezcan fuera de la circunscripción territorial de éste por más de un mes, en forma continúa siempre que la zona en donde realizan su trabajo justifique tal compensación.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 34795 de 04 de sagosto de 2008).
+B) Incentivo por regionalización: Estímulo a los funcionarios que se desempeñen como promotores comunales en alguna de las nueve regiones que abarca DINADECO a nivel nacional, beneficiando con ello a la institución y al país. Este será equivalente a un 50% de la cantidad asignada por el Zonaje. En el caso de que un mismo funcionario atienda varios cantones, le será aplicable el cantón de mayor porcentaje.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 34795 de 04 de sagosto de 2008).
