@@ -1,0 +1,1 @@
+Artículo 33.—El Auditor Interno y los funcionarios de la Auditoría Interna de la Municipalidad de Limón, estarán en el deber de observar las prohibiciones que están establecidas en el artículo 34 de la Ley General de Control Interno.
