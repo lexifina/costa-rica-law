@@ -14,3 +14,4 @@ Reglamento para la Contratación de Bienes y Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-04 | la propia norma |
+| 2 | 2008-08-05 | Reglamento 0 (2008-08-05) |
