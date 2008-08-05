@@ -1,0 +1,1 @@
+Artículo 13.—Comunicación. La comunicación debe ser un pilar fundamental en el cual se desempeñan los funcionarios de esta Auditoría Interna, se debe fomentar dentro de esta dependencia la comunicación orientada hacia el mejoramiento de las actividades de auditoría, como mecanismo de resolución de problemas y optimización de las labores llevadas a cabo.

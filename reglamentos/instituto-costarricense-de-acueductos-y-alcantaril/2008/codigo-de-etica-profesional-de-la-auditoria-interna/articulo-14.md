@@ -1,0 +1,1 @@
+Artículo 14.—Compromiso. Los funcionarios de la Auditoría Interna están en la obligación de desempeñar sus funciones de la mejor manera posible, identificándose con la Institución para la cual se desempeñan y teniendo claro que como funcionarios públicos, llevan consigo la responsabilidad de trabajar para el Estado y por consiguiente, para la sociedad costarricense.
