@@ -15,3 +15,4 @@ Reforma decreto que Fija Precio Mínimo Exportación Banano Fruta Primera Calida
 | --- | --- | --- |
 | 1 | 2007-10-11 | la propia norma |
 | 2 | 2007-12-06 | Decreto Ejecutivo 34203 (2007-12-06) |
+| 3 | 2008-08-05 | Decreto Ejecutivo 34692 (2008-08-05) |
