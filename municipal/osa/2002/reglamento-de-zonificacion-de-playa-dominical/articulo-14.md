@@ -24,5 +24,8 @@ d) Los accesos peatonales que corran por zonas costeras con pendientes fuertes o
 4.—Para los sistemas individuales o colectivos de aguas negras, es necesario presentar para el visado correspondiente, estudios de la calidad del suelo, pruebas de infiltración, localización y diseño respectivo.
 a) En ningún caso se aceptarán drenajes en zonas de relleno cercanas a cauces naturales aunque fueran intermitentes, o en las inmediaciones de la playa.
 b) Los sistemas de acueductos y alcantarillado pluvial deberán demostrar que se pueden conectar al sistema público, de no existir, se podrán proveer los servicios sin que la extracción de agua en el sitio o la disposición de las aguas servidas y pluviales tengan un impacto significativo en el medio o la salud pública.
-EL MAPA SOLO EN LA GACETA
-IMPRESA
+EL MAPA SOLO EN LA GACETA IMPRESA
+(Nota de Sinalevi: La Municipalidad de Osa, mediante sesión N° 31 del 6 de agosto de 2008, reformó el artículo 12 de este reglamento, así mismo publica las láminas N° 1 y N° 2 en donde se detalla el alcance de la anterior corrección. De lo anterior se transcribe la lámina N° 1 y 2:)
+[imagen]
+[imagen]
+(Mediante Fe de Erratas publicada en La Gaceta N° 127 del 1° de julio de 2010, se publicó la lámina anterior)
