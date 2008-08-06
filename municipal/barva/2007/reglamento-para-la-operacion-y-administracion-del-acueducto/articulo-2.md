@@ -17,11 +17,10 @@ o) Servicio de acueducto: suministro de agua potable que es prestado por la Muni
 p) Suspensión del servicio: privación temporal del servicio de agua potable.
 q) Unidad de ocupación: se refiere al espacio físico en donde existe una estructura que se fija o incorpora al terreno, destinado a vivienda, comercio, culto, instalaciones deportivas públicas, instituciones del gobierno, organizaciones de beneficencia o bien social, centros educativos, industrial, al que se le asignará el uso del agua a que se refiere este reglamento. Toda remodelación, alteración o ampliación que se realice a una estructura existente deberá ser valorada por la dirección a efectos de determinar si origina una nueva unidad de ocupación.
 r) Usuario: es la persona física o jurídica que utiliza los servicios de agua puede ser o no el abonado.
-s) Uso del agua: es el destino principal que el abonado o la Municipalidad de Barva determine que se le da al servicio de agua potable, misma que se clasifica como:
-Ø Domiciliar.
-Ø Comercial ordinaria.
-Ø Comercial reproductiva.
-Ø Preferencial.
-Ø Industrial reproductiva.
-Ø Social.
-Ø Provisional.
+s) Uso del agua: Es el destino principal que el abonado o la Municipalidad de Barva determine que se le da al servicio de agua potable, misma que se clasifica como:
+Domiciliar.
+Comercial ordinaria.
+Comercial reproductiva.
+Preferencial.
+De gobierno.
+(Así reformado el inciso anterior mediante sesión N° 47 del 06 de agosto de 2008).
