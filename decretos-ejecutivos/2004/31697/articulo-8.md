@@ -1,1 +1,0 @@
-Artículo 8º—Comisiones. El fondo podrá establecer un sistema de comisiones, de conformidad con el plazo, la actividad, riesgo o cualquiera otra variable, en apego a los principios de un fondo de garantías, tal como se enumeran en el inciso g) del artículo 2° de este Reglamento. La efectividad de este sistema será revisada por la Auditoría Interna del Banco Popular.

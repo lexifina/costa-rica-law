@@ -1,1 +1,0 @@
-Artículo 11.—La unidad técnica. La administración del fondo de garantías estará a cargo de una unidad técnica del Banco Popular a cargo del Director del FODEMIPYME, la cual coordinará sus actividades con la Administración del Banco Popular y será supervisada de acuerdo con los controles establecidos en el artículo 12 de la Ley N° 8262.
