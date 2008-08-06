@@ -16,3 +16,4 @@ Reglamento de funcionamiento del comité de contratación de hidrocarburos
 | 1 | 2005-09-09 | la propia norma |
 | 2 | 2006-07-26 | Reglamento 4065 (2006-07-26) |
 | 3 | 2006-11-15 | Reglamento 4102 (2006-11-15) |
+| 4 | 2008-08-06 | Reglamento 4282 (2008-08-06) |
