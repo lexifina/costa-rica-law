@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a todas las dependencias del Sector Público para que en la medida de sus posibilidades y dentro del marco legal respectivo apoyen esta actividad, para su exitosa realización, sin perjuicio de sus propios objetivos.
