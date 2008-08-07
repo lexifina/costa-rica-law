@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las sanciones
+Artículo 23.—Las infracciones al presente reglamento serán sancionados de conformidad con lo dispuesto en los artículos 14, 100 y 308 de la Ley General de la Administración Pública, Reglamento Autónomo de Organización de la Municipalidad, Reglamento Interno de Trabajo de la Municipalidad, artículo 81 del Código de Trabajo, Ley Orgánica de la Contraloría General de la República en sus artículos 74, 75, 76 y 77 así como las demás disposiciones vigentes y lo preceptuado en este reglamento, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor.

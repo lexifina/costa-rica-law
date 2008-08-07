@@ -1,0 +1,1 @@
+Artículo 31.—A falta de disposiciones en el presente reglamento aplicables a un caso determinado, deberán tenerse como normas supletorias, el Reglamento Autónomo de Organización de la Municipalidad, y el Manual Sobre Normas Técnicas de Control Interno Relativas al Uso, Control y Mantenimiento de Vehículos, emanado de la Contraloría General de la República, de diciembre de 1995.
