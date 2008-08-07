@@ -1,0 +1,4 @@
+ARTÍCULO 23.- Autorización a entidades financieras
+Los grupos o conglomerados financieros regulados por el Consejo Nacional, podrán constituir o mantener sociedades que se dediquen a la intermediación de seguros, siempre que cumplan lo dispuesto en esta Ley.
+Los bancos públicos podrán participar en la actividad de seguros como intermediarios, mediante la constitución de una sociedad anónima que deberá tener como fin exclusivo realizar las actividades indicadas en el presente capítulo, y podrán constituirla como únicos accionistas.
+Las entidades supervisadas por la Sugef no podrán exigir que los contratos de seguros que requieran de sus clientes sean contratados con determinadas entidades aseguradoras o intermediarios de seguros. Lo anterior se considerará para todos los efectos prácticas monopolísticas relativas, en los términos de la Ley N.º 7472, Promoción de la competencia y defensa efectiva del consumidor, de 20 de diciembre de 1995, y sus reformas.

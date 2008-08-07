@@ -1,4 +1,1 @@
-Artículo 39.- Auditor interno. La Superintendencia tendrá una auditoría interna, encargada de verificar el cumplimiento de las labores reguladoras, supervisoras y fiscalizadoras previstas en esta ley y la normativa dictada por la Superintendencia, así como de la suficiencia de los sistemas de control establecidos por el Superintendente. En materia presupuestaria, el Consejo Nacional determinará el ámbito de competencia que le corresponderá.
-La Auditoría Interna dependerá directamente del Consejo Nacional y funcionará bajo la dirección de un auditor, nombrado por este Consejo con el voto de cinco miembros como mínimo. El auditor será un funcionario de tiempo completo y dedicación exclusiva.
-El auditor interno debe asistir a las sesiones del Consejo Nacional donde se discutan temas atinentes a la Superintendencia; en ellas tendrá voz, pero no voto.
-(Así reformado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).
+Artículo 39.- (Este artículo fue Derogado por el artículo 50 aparte c) de la Ley N° 8653 del 22 de julio de 2008)

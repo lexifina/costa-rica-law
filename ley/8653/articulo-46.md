@@ -1,0 +1,3 @@
+ARTÍCULO 46.- Rentas netas para efectos tributarios
+Las rentas netas de las entidades aseguradoras y reaseguradoras resultarán de deducir de la renta bruta los costos, los gastos, las reservas y las provisiones técnicas necesarias que garanticen el buen funcionamiento de estas entidades. A partir de esta se determinará el pago del impuesto sobre la renta correspondiente. Para efectos tributarios, la Dirección General de Tributación definirá, en forma vinculante, los límites técnicos aplicables para determinar las sumas necesarias de reservas y provisiones técnicas, a efectos de fijar la utilidad disponible de las entidades aseguradoras y reaseguradoras.
+En materia contable, regirá lo establecido en la Ley del impuesto sobre la renta.

@@ -1,3 +1,5 @@
-Artículo 11.- DEROGADO
-(Derogado por el artículo 10 de la Ley Nº 5932 de 27 de setiembre de
-1976).
+Artículo 11.- Eliminación y distribución de cargas económicas
+Elimínase cualquier carga o contribución económica extraordinaria ajena a su actividad, excepto la relacionada con el Benemérito Cuerpo de Bomberos, que por precepto de ley se haya impuesto al INS.
+Quedan incluidos dentro de la eliminación del párrafo anterior, entre otras y sin limitarse a las enunciadas, las cuotas establecidas en la Ley N.º 3418, de 3 de octubre de 1964, y sus reformas, referente al pago de cuotas a organismos internacionales por el Estado y los entes públicos.
+Los aportes directamente relacionados con el Seguro de Riesgos del Trabajo regulado en el Código de Trabajo y con el Seguro Obligatorio de Vehículos Automotores regulado en la Ley de tránsito por vías públicas terrestres, continuarán operando de manera obligatoria y universal y se regirán por lo dispuesto en los cuerpos normativos que los rigen.
+Igualmente, quedan a salvo de esta disposición los aportes a los que está obligado el INS en materia de Salud Ocupacional, de acuerdo con el artículo 205 de la Ley N.º 6727, de 9 de marzo de 1982, y para cosechas, según la Ley de seguro integral de cosechas, N.º 4461, de 10 de noviembre de 1969, y sus reformas.

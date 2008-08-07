@@ -1,5 +1,4 @@
-Artículo 8º.- El capital de fundación del Instituto se constituye con
-cuatro millones de colones (¢ 4.000,000.00).
-(Así reformado por el artículo 2 de la Ley Nº 5279 de 27 de julio de
-1973 y conforme al artículo 1 de la Ley Nº 4183 de 4 de setiembre
-de 1968).
+Artículo 8.- Plazos y procedimientos especiales
+Para los trámites de contratación del INS y los de sus sociedades anónimas sujetas al régimen de contratación de la Ley N.º 7494, Contratación administrativa, de 2 de mayo de 1995, estas y la Contraloría General de la República observarán las siguientes disposiciones especiales:
+a) En relación con los recursos de apelación de licitaciones públicas y abreviadas, los plazos para presentar el recurso serán de cinco días hábiles. Por su parte, la Contraloría General de la República contará, para el dictado de la resolución final y para la prórroga, con un plazo máximo de veinticinco días hábiles y cinco días hábiles, respectivamente, dicho plazo incluye el plazo de cinco días hábiles para realizar la audiencia.
+b) Para los contratos que requieran la aprobación de la Contraloría General de la República , esta deberá resolver lo que corresponda dentro de un plazo de quince días hábiles, contada a partir de la solicitud que le presente la administración. La falta de pronunciamiento en ese plazo dará lugar al silencio positivo, siempre que se hayan cumplido los procedimientos de ley, con la consecuente responsabilidad de los funcionarios encargados. La Contraloría General de la República no podrá improbar los contratos mencionados en el párrafo anterior, a partir de valoraciones de oportunidad y conveniencia relativas a aspectos técnicos del objeto de la contratación, salvo cuando mediante un dictamen técnico pericial constate una amenaza al interés general o se esté ante un supuesto de ilegalidad.

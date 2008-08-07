@@ -1,6 +1,4 @@
-Artículo 12.- El Instituto pagará los impuestos y contribuciones
-que graven a los particulares, pero estará exento de cubrir los que
-recaigan directamente sobre las operaciones del seguro y sus reservas
-técnicas, incluida la de Contingencias.
-(Así reformado por el artículo 2 de la Ley Nº 5279 de 27 de julio de
-1973).
+Artículo 12.- Manejo de información confidencial
+La información que obtenga el INS de sus asegurados o potenciales asegurados, en virtud de un contrato de seguros, su ejecución o sus tratativas, es de carácter confidencial y solo podrá ser utilizada para los fines del negocio. Su conocimiento por parte de terceros queda restringido, salvo cuando así lo solicite una autoridad legalmente competente, que justifique su necesidad y por los medios respectivos.
+También, es confidencial la información, relacionada con cualquiera de las actividades del INS, calificada por este como secreto industrial, comercial o económico, cuando por motivos estratégicos, comerciales y de competencia no resulte conveniente su divulgación a terceros. Este tipo de información solo deberá ser divulgada cuando lo considere conveniente la administración, o cuando alguna autoridad legalmente competente así lo solicite.
+Toda la información que se genere a partir de las tratativas, los contratos y la ejecución de contratos de seguros ofrecidos por el INS, es propiedad de este último. Los funcionarios del INS o cualquier tercero que tenga acceso a esta, deberán observar lo dispuesto en este artículo; además, deberán contar con autorización expresa del INS para divulgar esa información o darle un uso distinto al autorizado por el INS.
