@@ -14,3 +14,4 @@ Reglamento de Almacenes y Bodegas del Ministerio de Obras Públicas y Transporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-04 | la propia norma |
+| 2 | 2008-08-07 | Decreto Ejecutivo 34723 (2008-08-07) |
