@@ -1,9 +1,2 @@
-Artículo 3º.-Los contratos de seguros existentes en el momento en
-que el Gobierno decrete asumir el monopolio de la clase correspondiente,
-continuarán obligando a los contratantes hasta la expiración del plazo o
-fecha de su vencimiento, siempre que estén debidamente registrados en la
-Superintendencia de Seguros o en cualquiera otra oficina que señale el
-Ejecutivo. Si esos contratos no estuviesen registrados, deberán
-registrarse dentro de los tres meses de la fecha del decreto respectivo,
-so pena de multa de ¢ 1.000-00 para el asegurador y de ¢ 500-00 para el
-asegurado.
+Artículo 3.- Planificación
+Los planes operativos institucionales anuales, a mediano y largo plazo, así como el plan estratégico institucional, deberán ser aprobados por la Junta Directiva del INS, su elaboración, principios y requerimientos generales serán regulados internamente por el mismo Instituto, de conformidad con las sanas prácticas administrativas y del negocio

@@ -1,0 +1,6 @@
+ARTÍCULO 9.- Junta directiva y puestos administrativos
+Las entidades aseguradoras constituidas como sociedades anónimas, tendrán una junta directiva integrada al menos por cinco miembros de reconocida honorabilidad y comprobada idoneidad técnica. Al menos el cuarenta por ciento (40%) de los miembros de la junta directiva no podrán ser accionistas de la entidad, ni parientes de los accionistas de la sociedad, hasta el tercer grado de consanguinidad o afinidad; tampoco podrán ser empleados de empresas del mismo grupo económico o financiero.
+No podrán ser miembros de la junta directiva:
+a) Las personas contra quienes, en los últimos cinco años, haya recaído sentencia judicial penal condenatoria firme por la comisión de un delito doloso contra la propiedad, la buena fe de los negocios o la fe pública, tipificados en los títulos VII, VIII y XVI del libro II del Código Penal, respectivamente.
+b) Las personas que se encuentren cumpliendo sentencia judicial penal condenatoria por la comisión de los delitos citados en el inciso anterior.
+Les serán aplicables idénticas prohibiciones a los representantes de las sucursales y a los puestos administrativos de las entidades aseguradoras que señale, junto con los otros requisitos aplicables, el reglamento respectivo.

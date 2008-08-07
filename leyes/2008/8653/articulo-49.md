@@ -1,0 +1,2 @@
+ARTÍCULO 49.- Venta de seguros al costo
+No se aplicará el inciso i) del artículo 6 de la Ley de asociaciones cooperativas y creación del Instituto Nacional de Fomento Cooperativo, N.º 4179, a las asociaciones cooperativas que participen en la actividad aseguradora, ya sea en forma directa o mediante sociedades anónimas. Lo anterior únicamente para los ramos de seguros que se encuentren autorizados para estas sociedades.

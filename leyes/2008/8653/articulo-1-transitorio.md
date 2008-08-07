@@ -1,0 +1,5 @@
+CAPÍTULO III
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.- Organización de la Superintendencia General de Seguros
+Al entrar en vigencia la presente Ley, el Consejo Nacional procederá en un plazo máximo de noventa días, a definir si procede el nombramiento del superintendente e intendente de seguros o recargar, temporalmente, sus funciones por un período máximo de dieciocho meses, en uno de los otros organismos de supervisión del Sistema Financiero bajo su dirección, a efecto de facilitar las labores de organización del nuevo ente. En este evento deberá, por resolución motivada, definir la estructura temporal de trabajo y podrá nombrar al respectivo intendente de seguros.
+Se exceptúa, durante dieciocho meses, a la Superintendencia o, en su defecto, a la entidad a la cual se le recargan las funciones, según lo dispuesto en el párrafo anterior, de la obligatoriedad de la aplicación de los procedimientos ordinarios establecidos por la Ley de la contratación administrativa, para adquirir los materiales, bienes y servicios que resulten necesarios para la instalación de la entidad.

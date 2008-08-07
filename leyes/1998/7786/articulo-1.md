@@ -1,6 +1,6 @@
 "LEY SOBRE ESTUPEFACIENTES, SUSTANCIAS PSICOTRÓPICAS, DROGAS DEUSO NO AUTORIZADO, LEGITIMACIÓN
 DE CAPITALES Y ACTIVIDADES CONEXAS
-(Nota de Sinalevi El texto corresponde al de la Reforma integral hecha por la Ley N° 8204 de 26 de diciembre de 2001: Reforma Integral a la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capitales y actividades conexas.)
+(Nota de Sinalevi: El texto corresponde al de la Reforma integral hecha por la Ley N° 8204 de 26 de diciembre de 2001: Reforma Integral a la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capitales y actividades conexas.)
 TÍTULO I
 Disposiciones generales
 CAPÍTULO ÚNICO

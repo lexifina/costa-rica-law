@@ -1,0 +1,3 @@
+ARTÍCULO 21.- Acreditación de intermediarios
+Además de la licencia mencionada en el artículo anterior, para realizar actividades de intermediación, los agentes de seguros requerirán estar acreditados por una entidad aseguradora y los corredores, por una sociedad corredora. También, las sociedades agencias de seguros requerirán dicha acreditación por parte de una entidad aseguradora para iniciar operaciones.
+La entidad aseguradora será responsable de la selección, formación, capacitación continua y acreditación, ante la Superintendencia, de los agentes de seguros que conformen su canal de distribución. Las sociedades corredoras lo serán en relación con los corredores.

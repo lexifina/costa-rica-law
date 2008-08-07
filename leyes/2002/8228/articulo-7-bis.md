@@ -1,0 +1,20 @@
+Artículo 7 bis.- Organización, funciones, funcionamiento y dietas del Consejo Directivo
+A los miembros del Consejo Directivo les serán aplicables, en lo que razonablemente corresponda, y con excepción de las normas propias de la actividad aseguradora, los requisitos, las incompatibilidades y causas de cese dispuestos para los miembros de la Junta Directiva del Instituto Nacional de Seguros; además, podrán ser removidos libremente de sus puestos por la Junta Directiva del Instituto Nacional de Seguros, por mayoría de cinco de sus miembros.
+El Consejo Directivo realizará las sesiones en forma ordinaria al menos una vez al mes y, en forma extraordinaria, las veces que sean convocados por alguno de sus miembros o por el director del Cuerpo de Bomberos, sin que pueda superar cuatro sesiones extraordinarias al mes.
+El director general del Cuerpo de Bomberos asistirá a las sesiones del Consejo Directivo, tendrá voz, pero no voto. Sin embargo, cuando lo considere necesario, podrá hacer constar en las actas respectivas sus opiniones sobre los asuntos que se debaten. No obstante, el Consejo Directivo podrá sesionar únicamente con la presencia de sus miembros, cuando así lo acuerde.
+La organización y el funcionamiento del Consejo Directivo se regirá, en lo aplicable, por el capítulo referente a los órganos colegiados de la Ley general de la Administración Pública , así como por lo estipulado en el Reglamento de la presente Ley.
+Son funciones del Consejo Directivo del Cuerpo de Bomberos de Costa Rica:
+a) Definir y autorizar la organización del Cuerpo de Bomberos de Costa Rica, lo que incluye la creación de puestos, así como la definición y asignación de competencias de las dependencias funcionales, operativas, técnicas y administrativas, necesarias para el cumplimiento eficiente y eficaz de sus cometidos públicos.
+b) Emitir los reglamentos de organización y servicio necesarios para el adecuado desempeño de las funciones del Cuerpo de Bomberos.
+c) Nombrar, mediante concurso interno de atestados, de conformidad con la legislación aplicable al director general del Cuerpo de Bomberos. En caso de inopia dentro de la misma organización, se dispondrá la celebración de un concurso público.
+d) Remover al director general del Cuerpo de Bomberos, cumpliendo con el debido proceso.
+e) Nombrar y remover al auditor interno, de conformidad con el proceso señalado en la Ley general de control interno, N.º 8292, de 31 de julio de 2002, así como con la Ley orgánica de la Contraloría General de la República , N.º 7428, de 7 de setiembre de 1994.
+f) Emitir la normalización técnica y el ordenamiento, que serán de acatamiento obligatorio para las personas, físicas o jurídicas, así como para las entidades, públicas o privadas, en materia de seguridad, de protección contra incendio y de seguridad humana.
+g) Conocer y resolver en apelación los recursos interpuestos contra las resoluciones dictadas por el director general del Cuerpo de Bomberos. Las resoluciones del Consejo Directivo agotarán la vía administrativa.
+h) Aprobar el plan estratégico y el plan anual operativo.
+i) Acordar los presupuestos, sus modificaciones y su liquidación y remitir la documentación correspondiente a la Contraloría General de la República , para la aprobación final.
+j) Velar por el cumplimiento de las disposiciones de las autoridades de control o de carácter técnico que tengan competencia sobre el Cuerpo de Bomberos.
+k) Definir las tarifas que el Cuerpo de Bomberos cobrará por la prestación de los servicios especiales y sus variaciones, lo cual se establecerá en el Reglamento de esta Ley.
+l) Las demás funciones que disponga la ley.
+Los miembros del Consejo Directivo devengarán dietas por sesión, cuyo monto será igual al cincuenta por ciento (50%) de las dietas percibidas por los miembros de la Junta Directiva del INS, excepto si son funcionarios de la misma Institución y las sesiones se lleven a cabo en horas laborales, caso en el cual no tendrán derecho a remuneración alguna.
+(Así adicionado por el artículo 53 aparte c) de la Ley N° 8653 del 22 de julio de 2008)
