@@ -1,7 +1,24 @@
-Artículo 5º.-La administración de los seguros del Estado
-corresponde a la institución autónoma denominada Instituto Nacional de
-Seguros. El Instituto tendrá su domicilio legal en la ciudad de San José
-y podrá establecer en cualquier lugar del país, las sucursales y agencias
-que su Junta Directiva acuerde.
-(Así reformado por el artículo 1 de la Ley Nº 4183 de 4 de setiembre de
-1968).
+Artículo 5. Funcionamiento de la Junta Directiva
+La Junta Directiva ejercerá sus funciones con absoluta independencia y bajo su exclusiva responsabilidad, dentro de las normas establecidas por las leyes, los reglamentos aplicables y los principios de la técnica. A los miembros de la Junta Directiva se les aplicará lo dispuesto en los artículos 22 y 23 de la Ley orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953, y sus reformas; no obstante, la asunción de algún margen de riesgo comercial no será un hecho generador de responsabilidad personal, en tanto haya tenido adecuada proporción con la naturaleza emprendida y no se haya actuado con dolo, culpa o negligencia; todo de conformidad con las reglas de la sana administración.
+La Junta Directiva del INS se regirá por las siguientes disposiciones:
+a) La Junta Directiva tendrá las siguientes funciones y atribuciones:
+1) Dictar las políticas generales de la Institución y ejercer la dirección y el control estratégico de la Institución y sus empresas.
+2) Velar por que las finanzas de la Institución y las de sus empresas sean sanas.
+3) Examinar, aprobar e improbar los presupuestos y los estados financieros auditados del Instituto. Definir su política presupuestaria, así como revisar y autorizar los presupuestos de la Institución.
+4) Aprobar los planes de desarrollo, la política general de inversiones de corto, mediano y largo plazo, así como los planes de endeudamiento.
+5) La Junta Directiva nombrará de su seno, cada año, un vicepresidente, quien sustituirá al presidente ejecutivo en sus funciones y responsabilidades en la Junta Directiva en los casos de ausencia o impedimento, y un secretario.
+6) Nombrar al gerente, los subgerentes, el auditor y el subauditor, el secretario de actas y el subsecretario de actas, quienes no podrán haber ocupado un cargo como miembro de la Junta Directiva de la Institución durante el año anterior a su nombramiento.
+7) Ejercer la vigilancia superior del Instituto, para cumplir y hacer cumplir las facultades y los deberes del Instituto, así como las disposiciones legales y reglamentarias que rigen su funcionamiento.
+8) Otorgar y revocar poderes, con las facultades y limitaciones que determine la misma Junta Directiva.
+9) Conocer y resolver los asuntos que le sometan a su consideración las unidades de negocio o las empresas en las que el INS tenga participación de capital.
+10) Determinar y aprobar la estructura administrativa de la Institución y sus empresas.
+11) Aprobar y modificar su normativa interna en materia de administración del recurso humano y políticas de remuneración.
+12) Aprobar, reformar e interpretar para su aplicación los reglamentos de la Institución.
+13) Actuar como asamblea de accionistas o accionista, según corresponda. En este último caso, podrá delegar, en el presidente ejecutivo, la actuación que expresamente defina, en relación con las empresas en las que el INS sea propietario de la totalidad del capital social o de una parte, respectivamente.
+14) Cualquier otra que por ley o reglamento le corresponda.
+b) Las sesiones de la Junta Directiva se regirán por las siguientes reglas:
+1) La Junta Directiva del INS se reunirá en sesión ordinaria, al menos una vez al mes en el lugar, el día y la hora que ella determine y, en sesión extraordinaria, cuando sea absolutamente necesario, cada vez que sea convocada para tal efecto, todo de acuerdo con los reglamentos internos.
+2) La asistencia puntual de los miembros de la Junta Directiva a las sesiones, les dará derecho al cobro de dietas fijas como única remuneración por las funciones en ese cargo. El monto de las dietas lo determinará, periódicamente, el Consejo de Gobierno con base en criterios de racionalidad y de conformidad con la responsabilidad del cargo y la realidad nacional. No podrán celebrarse más de ocho sesiones remuneradas por mes, incluidas las ordinarias y extraordinarias, estas cuando sean absolutamente necesarias.
+3) El quórum se considerará constituido con cuatro miembros presentes y los acuerdos se tomarán por mayoría de los votos presentes, salvo los casos en que la ley exija una mayoría especial determinada. Cuando se produzca empate, el presidente tendrá voto de calidad y resolverá.
+4) Además de sus miembros, a las sesiones de la Junta Directiva asistirán el gerente, quien tendrá voz, pero no voto. Los subgerentes, el auditor y otros funcionarios asistirán cuando sean invitados, en iguales condiciones que el gerente; sin embargo, cuando lo consideren necesario, podrán hacer constar, en las actas respectivas, sus opiniones sobre los asuntos que se debatan. La asistencia a las sesiones de la Junta Directiva no otorgará a los funcionarios no miembros de la Junta , derecho a cobro de remuneración adicional. También podrán asistir las personas invitadas especialmente por la Junta Directiva ; no obstante, a juicio del presidente, la Junta podrá sesionar estando presentes únicamente sus miembros.
+Cuando alguno de los asistentes a las sesiones de la Junta tenga interés personal en el trámite de una operación o lo tengan sus socios o parientes dentro del tercer grado de consanguinidad o afinidad, deberá retirarse de la respectiva sesión, mientras se discute y se resuelve el asunto en que está interesado; esta circunstancia se hará constar en el acta respectiva.

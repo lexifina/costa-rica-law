@@ -1,0 +1,2 @@
+TRANSITORIO IX.-Ajuste de razones sociales de sociedades anónimas
+De conformidad con lo establecido en el inciso b) del artículo 29, de esta Ley, se concede un plazo de seis meses, contado a partir de la entrada en vigor de esta Ley, para que las sociedades anónimas inscritas en el Registro Público ajusten su razón social. Vencido el plazo, el Registro Público, de oficio, eliminará los términos improcedentes.

@@ -1,0 +1,14 @@
+ARTÍCULO 56.- Reforma de la Ley N.º 7472
+Adiciónase un artículo 27 bis a la Ley N.º 7472, Promoción de la competencia y defensa efectiva del consumidor, de 20 de diciembre de 1994. El texto dirá:
+"Artículo 27 bis.- Relación con los supervisores del Sistema Financiero
+La relación entre la Comisión para Promover de la Competencia y la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante las superintendencias, se regirá por las siguientes normas:
+a) Procesos de concentración
+Corresponde a las superintendencias la obligación de autorizar, previamente, las cesiones de carteras, fusiones, adquisiciones, cambios de control accionario y demás procesos de concentración definidos en esta Ley, que sean realizados por las entidades bajo su supervisión.
+Recibida la solicitud de autorización, las superintendencias deberán consultar a la Comisión para Promover la Competencia en relación con los efectos que dichos procesos de concentración puedan tener sobre el nivel de competencia.
+La opinión de la Comisión deberá ser rendida en un plazo máximo de quince días hábiles, contado a partir de la solicitud de la Superintendencia. Dicha opinión no es vinculante, sin embargo, la Superintendencia deberá motivar su resolución en caso que decida apartarse de tal opinión.
+b) Apertura de procedimientos sancionadores
+Corresponde a la Comisión para Promover la Competencia, las potestades para determinar y sancionar prácticas monopolísticas verticales u horizontales en los mercados supervisados por las superintendencias.
+Ante la apertura de un procedimiento sancionador por parte de la Comisión por hechos contrarios a esta Ley y en los cuales haya participado alguna entidad supervisada del Sistema Financiero, se solicitará criterio a la superintendencia respectiva. Dicho informe se rendirá en un plazo máximo de quince días hábiles, contado a partir de la solicitud de la Comisión.
+La opinión de la Superintendencia no tendrá carácter vinculante para la Comisión; no obstante, en los casos en que la Superintendencia advierta expresamente la necesidad de evitar que una acción sancionadora ponga en riesgo la estabilidad del Sistema Financiero, la Comisión deberá motivar su resolución para separarse válidamente de la opinión del órgano técnico.
+c) Obligación de los superintendentes
+Los superintendentes deberán denunciar ante la Comisión para Promover la Competencia, las prácticas contrarias a la competencia tipificadas en esta Ley que lleguen a conocer por parte de los entes supervisados y de las empresas integrantes, o relacionadas con los grupos o conglomerados financieros a que pertenezcan. La Superintendencia podrá intervenir como parte interesada en los procedimientos correspondientes.”

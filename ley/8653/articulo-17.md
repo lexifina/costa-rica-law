@@ -1,0 +1,3 @@
+ARTÍCULO 17.- Oficinas de representación
+La Superintendencia llevará un registro de las oficinas de representación que se constituyan en el territorio nacional de la República. El Consejo Nacional reglamentará los requisitos de inscripción, así como las situaciones de desinscripción que puedan tener lugar. Únicamente las oficinas inscritas en el registro podrán mantener un local abierto al público y deberán utilizar en su razón social la frase reservada: “Oficina de representación de compañía aseguradora”.
+La inscripción de una oficina de representación en el registro no la autoriza para que realice oferta pública o negocios de seguros en el territorio nacional.

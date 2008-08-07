@@ -1,25 +1,11 @@
-Artículo 4º.- Desde la fecha que el ejecutivo declare asumir el
-monopolio de toda clase de seguros, quedará prohibido a las compañías,
-sociedades y agencias y particulares el tramitar operaciones de seguro de
-la clase indicada en el respectivo decreto, y se reputarán como
-inexistentes y sin valor, las pólizas expedidas en contravención de esta
-ley y que deban tener su realización en el país.
-Toda persona física o jurídica que viole o intente violar en
-cualquier forma el monopolio que esta ley establece, incurrirá en una
-pena de noventa a ciento ochenta días multa, que se determinará con
-sujeción al artículo 53 del Código Penal vigente; y en inhabilitación de
-tres a seis meses con las pérdidas, incapacidades y privaciones que
-señala el artículo 57 del expresado cuerpo de leyes.
-Al reincidente se aplicarán las mismas penas principal y accesoria
-señaladas, pero elevados en una mitad sus extremos menor y mayor.
-Cuando la violación o la tentativa de violación del monopolio fuese
-imputable a una persona jurídica se impondrán las penas indicadas a su
-representante legal y a la entidad representada sólo la de inhabilitación
-absoluta.
-Para efectos de punición, la violación perpetrada y la tentativa de
-violación tendrán la misma categoría.
-Corresponde al Juzgado Penal de Hacienda el conocimiento de las
-causas por violación o tentativa de violación del Monopolio de Seguros
-del Estado.
-(Así reformado por el artículo 2 de la Ley Nº 5279 de 27 de julio de
-1973).
+CAPÍTULO II
+ORGANIZACIÓN DEL INS
+Artículo 4.- La Junta Directiva y el presidente ejecutivo
+El Instituto será administrado por una Junta Directiva integrada de la siguiente manera:
+a) Un presidente ejecutivo designado por el Consejo de Gobierno, de reconocida experiencia y conocimientos en el campo de los seguros, las finanzas o la administración de empresas, quien tendrá la representación judicial y extrajudicial del Instituto, con las facultades que para los apoderados generalísimos determina el artículo 1253 del Código Civil. Su gestión se regirá por lo establecido en esta Ley, supletoriamente por la Ley N.° 4646, de 20 de octubre de 1970, la cual modifica la integración de las juntas directivas de las instituciones autónomas, y demás normativa aplicable. Por su condición de presidente ejecutivo, no tendrá impedimento o prohibición alguna para ser miembro de las juntas directivas de las sociedades anónimas en cuyo capital participe el INS.
+b) Seis miembros de elección del Consejo de Gobierno, que se regirán por las siguientes disposiciones:
+1) En lo que corresponda, les será aplicable la legislación propia de los miembros de la junta directiva de las entidades aseguradoras.
+2) Deberán ser costarricenses, haber cumplido treinta años de edad y tener reconocida experiencia o amplios conocimientos en cuestiones económicas, financieras, de seguros o de administración de empresas. Poseer grado académico en el nivel de licenciatura o título profesional equivalente. De ellos, al menos uno deberá ser licenciado en Ciencias Económicas y otro en Derecho.
+3) Se concretarán, en sus funciones, al ejercicio de las atribuciones que por ley les han sido conferidas, sin abarcar funciones privativas de la administración, ni influir en los funcionarios encargados de dictaminar sobre la procedencia de indemnizaciones de seguros.
+4) Respecto a las fechas de nombramientos, período de desempeño de funciones, régimen de sustituciones y remociones, prohibiciones e incompatibilidades, se aplicará, en lo que corresponda, lo establecido en la Ley N.º 4646, de 20 de octubre de 1970.
+5) No podrán ser, simultáneamente, a su vez empleados de la Institución , ni empleados, directivos o accionistas de entidades aseguradoras privadas o de otras entidades que pertenezcan a otros grupos financieros.

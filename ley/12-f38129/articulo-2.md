@@ -1,7 +1,2 @@
-Artículo 2º.-Las Compañías, Sociedades o Agencias de seguros sobre
-la vida, contra incendios y en general contra riesgos de todo género,
-actualmente establecidas en el país, podrán continuar funcionando con
-carácter provisorio hasta tanto el Poder Ejecutivo decrete para cada
-clase de seguros, la fecha en que comenzará a hacerse efectivo el
-monopolio, lo cual deberá verificarse, a más tardar, dentro del año
-siguiente a la publicación de esta ley.
+Artículo 2.- Aplicación del Derecho privado
+Los actos que se generen a partir del desarrollo de su actividad comercial de seguros, actuando como empresa mercantil común, serán regulados por el Derecho privado, por lo que en el ejercicio de la actividad aseguradora, el Instituto quedará sometido a la competencia de los tribunales comunes.

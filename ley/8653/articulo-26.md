@@ -1,0 +1,24 @@
+ARTÍCULO 26.- Obligaciones de los intermediarios
+Sin perjuicio de las demás obligaciones estipuladas en esta Ley, serán obligaciones comunes de los intermediarios de seguros:
+a) Acatar los reglamentos y las disposiciones del Consejo Nacional y la Superintendencia.
+b) Realizar oferta pública o negocios de seguros exclusivamente en relación con seguros o entidades aseguradoras y reaseguradoras autorizados.
+c) Abstenerse de revelar o utilizar, en su beneficio o de un tercero, la información propiedad de la entidad aseguradora, que en virtud de la actividad como intermediario haya obtenido.
+d) Preservar libres de cualquier alteración las fórmulas y los demás documentos que complementen las solicitudes de seguro, así como la información consignada en ellos, salvo autorización en ese sentido, y consignar únicamente información exacta y correcta acerca de las condiciones del riesgo.
+e) Brindar sus servicios de intermediación sin recibir, de parte del asegurado, remuneración alguna no autorizada.
+f) Brindar, en forma inmediata, ante el requerimiento de la entidad aseguradora, la documentación o información relacionada con los negocios de la aseguradora.
+g) Revelar, en forma inmediata, hechos relevantes y suministrar a la Superintendencia la información correcta, completa y en los plazos y las formalidades requeridos.
+h) Realizar la publicidad con información veraz y correcta, y entregar la información referida en el artículo 4 de la presente Ley.
+i) En el caso de las personas jurídicas, realizar intermediación de seguros exclusivamente por medio de personas físicas que cuenten con la licencia y acreditación correspondientes.
+j) Informar a los clientes, en el caso de los agentes y las sociedades agencias de seguros, si actúan en nombre de la entidad aseguradora y por cuenta de ella, o solamente por cuenta de esta última.
+k) En los casos de agentes de seguros y las sociedades agencias de seguros, representar únicamente a una aseguradora en relación con la intermediación de líneas de seguros que compitan entre sí.
+l) En los casos de agentes de seguros y sociedades agencias, abstenerse de promover el cambio de entidad aseguradora en todo o en parte de la cartera de los contratos de seguros que se hayan celebrado con su intermediación. Igualmente, abstenerse de llevar a cabo, sin consentimiento de la entidad aseguradora que representan, actos de disposición sobre su posición intermediadora en dicha cartera, por cuanto la cartera se considera propiedad de la aseguradora.
+m) En el caso de sociedades corredoras de seguros y sus corredores, asesorar con imparcialidad a la persona que desea asegurarse por su intermedio, ofreciendo la cobertura más conveniente a sus necesidades e intereses.
+n) En los casos de sociedades corredoras, mantener las garantías o la cobertura de responsabilidad civil que exija el reglamento para responder por sus actuaciones como intermediario de seguros y las de sus corredores acreditados.
+ñ) Abstenerse de realizar, por interpósita persona, actos dirigidos a conseguir un resultado cuya obtención directa implicaría la comisión de una infracción grave o muy grave.
+o) Mantener a disposición del público muestras actualizadas de las pólizas suministradas por la entidad aseguradora.
+p) Mantener abierta, como mínimo, una oficina de atención al público.
+q) Brindar asistencia y asesoramiento al asegurado o potencial asegurado, proporcionándole información veraz y oportuna en relación con las pólizas, en particular sobre las condiciones de los riesgos asegurados, el monto cubierto, la vigencia del contrato y las normas, así como los procedimientos aplicables en caso de siniestro. Ajustarse a las tarifas y condiciones definidas por la entidad aseguradora, no ofrecer a sus clientes otras distintas ni cobrar a los asegurados por sus servicios de intermediación cualquier tipo de remuneración no autorizada.
+r) Entregar al asegurado, dentro de los plazos establecidos, la póliza o los documentos exigidos en la normativa.
+s) Trasladar los dineros y valores recaudados a nombre del asegurador dentro de los plazos y las condiciones fijados en los respectivos contratos, a efecto de no causar perjuicio a los asegurados.
+Para todos los casos, se tiene la obligación de no revelar ni utilizar, de manera injustificada y sin autorización de la entidad aseguradora o del asegurado, la información relacionada con estos que haya obtenido en virtud de la actividad como intermediario.
+Para las obligaciones señaladas en este artículo, el Consejo Nacional y la Superintendencia, según corresponda, podrán emitir la normativa necesaria que determine el contenido de las obligaciones, la periodicidad, las condiciones, los formatos, los términos, la operatividad y, en general, cualquier aspecto necesario para su efectivo cumplimiento, supervisión, verificación y sanción en caso de inobservancia.

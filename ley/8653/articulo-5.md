@@ -1,0 +1,7 @@
+ARTÍCULO 5.- Intereses de los consumidores
+En materia de protección de intereses del consumidor, adicionalmente se observarán las siguientes disposiciones:
+a) Se le garantiza el derecho a la protección de sus intereses económicos, así como a un trato equitativo y no discriminatorio.
+b) Se reconoce su derecho a la libertad de elección entre las aseguradoras, los intermediarios de seguros y servicios auxiliares de su preferencia con adecuados estándares de calidad.
+c) En materia de contratos de seguros, las entidades aseguradoras deberán acatar plenamente la normativa aplicable y las estipulaciones de estos. En caso de duda, siempre deberá resolverse a favor del consumidor. Este principio debe observarse tanto en sede administrativa como arbitral y judicial.
+d) Los reclamos, las solicitudes y las peticiones de contratos de seguros deberán atenderse en forma ágil y mediante resolución motivada y por escrito, entregada al interesado en la forma acordada para tal efecto.
+e) La resolución de controversias sobre contratos de seguros deberá observar, en su orden, la legislación especial vigente, lo dispuesto en el Código de Comercio, el Código Civil y el resto del ordenamiento y la jurisprudencia nacional aplicable, así como los principios técnicos, los usos, las costumbres y la jurisprudencia internacional compatibles con nuestro ordenamiento; privarán las disposiciones especiales sobre las generales.
