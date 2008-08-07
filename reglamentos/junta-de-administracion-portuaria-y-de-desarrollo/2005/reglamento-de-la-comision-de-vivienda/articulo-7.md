@@ -1,9 +1,4 @@
-Artículo 7º—Los préstamos serán otorgados solamente a los funcionarios que reúnan los siguientes requisitos:
-a) Poseer un lote debidamente inscrito o un derecho de posesión válido, o un contrato de adjudicación o compra de vivienda, que requiera algún tipo de reparación, ampliación o conclusión de la misma.
-Documento que deber estar a su nombre, de su cónyuge o de sus padres cuando convive con ellos.
-b) Cuando se trate de empleados que realizarán trabajos en una propiedad que esté inscrita a nombre del cónyuge o padres, deberán presentar una autorización por escrito del dueño del inmueble para realizar las reparaciones respectivas.
-c) Ser trabajador fijo de la institución y tener una antigüedad no menor de dos años.
-d) La garantía ofrecida por el solicitante será de carácter fiduciario y sus fiadores deberán ser funcionarios de la institución, libres de embargo y tener la adecuada capacidad de pago.
-e) El plazo máximo para el pago de dicho préstamo será de cuatro (4) años, con un período de un mes de gracia, sin intereses corrientes, pero con un uno por ciento (1%) de intereses mensuales en caso de mora sobre los saldos atrasados.
-Igualmente, al finiquitarse el giro del préstamo el solicitante deberá autorizar a JAPDEVA para que ésta pueda retener de sus salario vía planillas, el abono correspondiente.
-f) Los trabajos a realizar por los funcionarios a los que se les otorgó el préstamo de vivienda, deberán iniciarse a más tardar quince días después de haber recibido el dinero, caso contrario se hará exigible el reintegro del mismo en su totalidad.
+Artículo 7º—De acuerdo con lo establecido en la Ley N º 6609 del 13 de agosto de 1981, tendrán derecho a lotes los trabajadores que reúnan los siguientes requisitos:
+a) Tener por lo menos dos (2) años de trabajar ininterrumpidamente con JAPDEVA
+b) No tener bienes inscritos a su nombre, al igual que su cónyuge. (Artículo 2, Ley 6609).
+Cuando la Comisión llegare a comprobar que el adjudicatario de un lote en Los Cocos, no ha construido y éste o su cónyuge aparecen con bienes inscritos o que ya solucionó su problema habitacional, ésta procederá a iniciar los trámites para anular dicha adjudicación y readjudicar el mismo al trabajador que corresponda, según la lista pendiente, respetando el orden en que recibieron las respectivas solicitudes. Para ello, el nuevo adjudicatario deberá reintegrar en un plazo que deberá definirse, los gastos de mantenimiento del lote y otros afines, que demuestre fehacientemente haber incurrido el anterior propietario, transcurrido ese plazo y no habiéndose llegado a acuerdo satisfactorio, la Comisión le dará la oportunidad al trabajador que sigue en la lista de solicitudes de lote.

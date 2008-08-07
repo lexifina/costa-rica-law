@@ -14,3 +14,4 @@ Reglamento de la Comisión de Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-30 | la propia norma |
+| 2 | 2008-08-07 | Reglamento 0 (2008-08-07) |
