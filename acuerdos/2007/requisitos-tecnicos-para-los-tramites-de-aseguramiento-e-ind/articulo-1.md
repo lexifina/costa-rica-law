@@ -1,35 +1,35 @@
 INSTITUTO NACIONAL DE SEGUROS
+(NOTA: El Instituto Nacional de Seguros, publicó en La Gaceta N° 172 del 5 de setiembre de 2008, la modificación a los requisitos técnicos para los trámites de aseguramiento e indemnizaciones de todos los productos que ofrece el Instituto Nacional de Seguros, dichas modificaciones ya fueron incluidas en este texto)
 Requisitos técnicos para los trámites de aseguramiento e indemnizaciones de todos los productos que ofrece el Instituto Nacional de Seguros, lo anterior con el fin de cumplir con lo estipulado en la Ley Nº 8220, “Protección al ciudadano del exceso de requisitos”.
 DIVISIÓN MÉDICA.
 Archivo Clínico.
-Certificación de Expediente Clínico. 8 días naturales.
+Certificación de Expediente Clínico. 10 días naturales.
 Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
-Secuestro de Expediente Clínico 8 días naturales.
+Secuestro de Expediente Clínico 10 días naturales.
 Secuestro de Estudios Radiológicos. 8 días naturales.
 Solicitud de secuestro del expediente clínico ó estudio radiológico debidamente firmada por un juez o fiscal.
-Cédula de identidad de la persona facultada para efectuar el secuestro.
 Préstamo de Estudios Radiológicos. 1 día hábil.
 Cédula de identidad del paciente, documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite y la cédula de identidad del que hace el trámite.
 Solicitud por escrito del Centro Médico que requiere las placas, con el aval del Jefe Médico y Jefe Administrativo.
-Presentación de solicitud escrita o cumplimentar formulario correspondiente, cualquiera de los documentos presentados debe contar con la autorización de las Jefaturas Médica y Administrativa.
+Cualquiera de los documentos presentados debe contar con la autorización de las Jefaturas Médica y Administrativa.
 Unidad de Admisión y Especialidades Médicas.
 Admisión de pacientes por seguro. Inmediato (10 minutos).
 Formulario “Orden de Atención Médica” cumplimentada por el patrono en los casos de Riesgos del Trabajo, Sucursal o por el departamento para las otras líneas de seguro.
 Referencia de C.C.S.S. (Si fue atendido por primera vez en alguno de los centros médicos de la C.C.S.S).
 Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
-Solicitud de cita de reapertura. Inmediato (10 minutos).
+Solicitud de cita de reapertura. Inmediato
 Carta de despido, carta de renuncia o copia de liquidación y cumplimentar la solicitud de reapertura (en los casos de Riesgos de Trabajo en que el patrono se niega a otorgar la orden de atención médica, el trabajador ha sido despedido de la empresa o ha renunciado a ella)
 Orden de Atención Médica (para los demás seguros).
+Cuando la persona no trabaja para la empresa debe presentar: Carta de despido, carta de renuncia o copia de liquidación y cumplimentar la solicitud de reapertura (en los casos de Riesgos de Trabajo en que el patrono se niega a otorgar la orden de atención médica, el trabajador ha sido despedido de la empresa o ha renunciado a ella)
 Certificación de períodos de incapacidad. 15 minutos.
 Si es una solicitud judicial, Mandamiento emitido por el juzgado solicitante con los datos relativos al caso.
 Si es una solicitud personal, cumplimentación de formulario establecido con todos los datos.
 Cédula de identidad.
-Reconocimiento de incapacidades emitidas por la C.C.S.S. 8 días naturales.
+Reconocimiento de incapacidades emitidas por la C.C.S.S. 8 días hábiles
 Incapacidad de la CSS. O certificación de los períodos otorgados y el dictamen médico correspondiente.
 Duplicado de Incapacidades 30 minutos.
 Reconocimiento de pasajes y viáticos. 30 minutos.
 Cédula de identidad.
-Cumplimentación de formulario de solicitud de duplicado de incapacidades.
 Cambio de Régimen. 10 minutos.
 Cumplimentación de formulario de solicitud de cambio de régimen.
 Constancia emitida por el departamento donde conste la aceptación del Riesgo (si es un caso de Riesgos del Trabajo).
@@ -38,22 +38,23 @@ Constancia de la guardia rural más cercana a su domicilio donde se indique a di
 Casos P.O.A.M. (Pendiente de Atención médica). Inmediato (10 minutos).
 Orden de Atención Médica.
 Cédula de identidad.
+Recibo de servicio público y/o carta del arrendatario en caso de que no tenga casa propia.
 Cuentas Médicas.
 Pago de Facturas a Proveedores. De acuerdo a lo establecido en el Contrato.
 Relación contractual con el INS, de acuerdo al reglamento de Contratación Administrativa.
 Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
 Formulario solicitud de examen o el definido administrativamente, debidamente autorizado por el solicitante.
-Personería jurídica al día, cédula de identidad o carné otorgado por el Departamento de Inversiones.
-Reconocimiento de Facturas por atención médica en hospitales, clínicas o médicos privados. 22 días naturales.
-Documento o carta explicando porqué se acudió a centro hospitalario privado, incluyendo, solicitud expresa del reintegro del dinero utilizado.
+Personería jurídica con no más de un mes de emitida, cédula de identidad o carné otorgado por el Departamento de Inversiones, así como Factura original timbrada o constancia de dispensación de timbraje.
+Reconocimiento de Facturas por atención médica en hospitales, clínicas o médicos privados. 22 días hábiles
+Documento o carta explicando porqué se acudió a centro hospitalario privado, incluyendo, solicitud expresa del reintegro del dinero utilizado y debe existir un caso clínico abierto y un caso administrativo aceptado.
 Epicrisis o historia de la atención médica completa (pre y post-ingreso) recibida en el hospital o clínica privada, que se incluya si a criterio médico se trató de una emergencia que puso en peligro la vida del paciente.
 Facturas originales timbradas o dispensadas con el detalle de los servicios recibidos.
 Dos copias de todos los documentos citados anteriormente.
 Personería jurídica al día o cédula de identidad o residencia.
-Reconocimiento de facturas por realización de exámenes de la vista. Reintegro 30 minutos.
+Reconocimiento de facturas por realización de exámenes y otros. 30 minutos.
 Caso aceptado por el departamento correspondiente.
 Factura original cancelada, timbrada o dispensada.
-Referencia original del oftalmólogo del INS (no hay formato establecido).
+Referencia original del Médico del INS (no hay formato establecido).
 Cédula de identidad o residencia.
 Reposición de lentes y aros. Reintegro 30 minutos.
 Mínimo dos facturas proforma de ópticas de su elección.
@@ -62,13 +63,12 @@ Caso aceptado por departamento correspondiente.
 Referencia a odontólogo externo. Reintegro 30 minutos.
 Referencia original de odontólogo del INS.
 Caso aceptado por departamento correspondiente.
-Pago por compra de bienes y servicios. 7 días naturales.
+Pago por compra de bienes y servicios. 7 días hábiles.
 Estar inscrito en el registro de proveedores.
 Presentar factura original timbrada o dispensada.
 Transportes.
-Traslado Colectivo de pacientes a nivel Nacional. Transporte con Acompañante. Reconocimiento de transporte especial. 30 minutos a 2 horas y media dura todo el trámite.
+Traslado Colectivo de pacientes a nivel Nacional. Transporte con Acompañante. Reconocimiento de transporte especial. 30 a 2: 30 horas
 Orden de transporte emitida ese mismo día por el médico.
-Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
 Cédula u otro documento de identificación.
 Para el caso de acompañantes y de transporte especial la orden debe tener el Visto Bueno de Jefatura Médica.
 Requisitos adicionales. Pacientes de área metropolitana: Deben estar listos 3 horas antes de la cita programada.
@@ -98,6 +98,7 @@ Solicitud escrita.
 Justificación de ausencias a terapia. 1 a 2 días hábiles.
 Presentar justificación por escrito de los motivos por los cuales faltó a la cita.
 Cédula de identidad o autorización escrita en caso de que el trámite lo haga un tercero.
+f
 Confección de incapacidad para completar terapia o incapacidad retroactiva durante la terapia en Dispensarios. 1 ó 2 días hábiles.
 Resultado de consulta de última cita de Fisiatría.
 Memorando de referencia del Dispensario
@@ -134,10 +135,6 @@ Solicitud escrita de la empresa interesada.
 Cumplimentación del cuestionario “Inscripción en el programa de consultorios médicos laborales”
 Cumplimiento de los requisitos establecidos en cuánto a infraestructura, mobiliario, equipo y recurso humano.
 Fotocopias de las acreditaciones del Médico, la Enfermera (si se tiene) y del Técnico en Emergencias Médicas.
-Pago a Proveedores varios (INS-Salud). 3 días hábiles.
-Relación contractual (compras mayores de 50.000 mil)
-Factura original timbrada o dispensada (detalle de compra o servicio y lugar donde se efectúa).
-Personería jurídica al día/o cédula de identidad y/o carné otorgado por el Departamento de Inversiones.
 Trabajo Social
 Valoración Social para aumento de cobertura del SOA 3 a 8 días hábiles.
 Documento de la C.C.S.S previamente revisado por el encargado de reclamos que indique si el lesionado está cubierto por algún Régimen.
@@ -151,43 +148,33 @@ Solicitud expresa del usuario de la Unidad Financiero Contable de INS-SALUD para
 Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
 Epicrisis completa pre y post ingreso, si a criterio del médico se trató de una emergencia médica que puso en peligro la vida del usuario (a).
 Facturas (copias) con desglose de cada uno de los renglones de éstas
-Solicitud de adelanto de cita de valoración. 15 días hábiles.
+Solicitud de adelanto de cita de valoración. Inmediato
 Solicitud expresa y específica del usuario (a) pidiendo adelanto de cita de valoración. Se debe justificar las causas del eventual adelanto o no de la cita de valoración.
 Presentar (de existir) documentación que justifique la solicitud, por ejemplo: viaje al exterior, casos de tipo social y otros.
-Solicitud de información de Patronos, Abogados y otros interesados en el estado clínico de nuestros pacientes. 15 días hábiles a partir de la recepción de documentos.
-Solicitud expresa de información sobre el estado de salud, tratamiento e incapacidades del (la) usuario (a) de nuestros servicios, la cual no es posible suministrar en su totalidad, basados en confidencialidad del expediente clínico, de acuerdo con el Artículo 24 de la Constitución Política y voto No.1026 de la Sala Constitucional (Sala IV).
-Solicitud de Cambio de Médico. 15 días hábiles a partir de la recepción de la solicitud.
+Solicitud de Cambio de Médico. Inmediato
 Presentación de la cédula de identidad y cumplimentación de la solicitud denominada “Solicitud de dictamen u otros”.
-Solicitud de Epicrisis por Monto Agotado de la Póliza del SOA.. 15 días hábiles a partir del recibo de la nota de reporte de monto agotado.
+Solicitud de Epicrisis por Monto Agotado de la Póliza del SOA.. Inmediato
 Reporte de monto agotado.
 Presentar la cédula de identidad.
-Solicitud de Epicrisis. 15 días hábiles a partir de la recepción de la solicitud.
+Solicitud de Epicrisis. Inmediato
 Presentación de solicitud formal directa del solicitante:
 a) Médicos de empresa.
 b) Médicos de centros hospitalarios de la C.C.S.S.
 c) Poder judicial.
 d) Representante legal autorizado por el usuario.
-Agotamiento de la Vía Administrativa. 15 días hábiles al recibo de la solicitud.
-El (la) usuario(a) solicita a la Jefatura respectiva, agotamiento de la vía administrativa, mediante un documento formal.
-Solicitud de Dictamen Médico. 15 días hábiles a partir de la fecha de recibo de la solicitud.
+Solicitud de Dictamen Médico. Inmediato
 Presentación de la cédula de identidad y cumplimentación de la solicitud denominada “SOLICITUD DE DICTAMEN U OTROS”. Únicamente el interesado puede solicitar este documento, caso contrario debe autorizar a otra persona adjuntando a la autorización el original de la cédula de identidad. En caso de menores de edad, será el padre que ejerza la patria potestad o los encargados del mismo quienes realicen el trámite de dictamen médico. Aportar los timbres médicos y de la Cruz Roja.
 Reconocimiento de Incapacidades Retroactivas. 8 días hábiles.
 Dictamen Médico.
 Boleta de incapacidad.
 Hospital.
-Solicitud de Dictámenes y Certificados Médicos a pacientes internados en Casa de Salud. 5 días hábiles.
+Solicitud de Dictámenes y Certificados Médicos a pacientes internados en Casa de Salud. 2 días hábiles.
 Timbre médico ¢100.
 Timbre de la Cruz Roja ¢200.
-Cédula de identidad o documento autenticado u Orden Judicial que faculte al portador para efectuar el trámite.
-De ser solicitante un tercero contar con la autorización escrita del paciente.
 Si es solicitado por el Poder Judicial, presentar Mandamiento correspondiente.
-Cédula de identidad al solicitar y retirar el documento.
 Solicitud escrita de documentos a certificar a través de una nota o formula de “Solicitud de dictamen u otros”.
 Solicitud de Epicrisis para pacientes internados. Día posterior al egreso del paciente.
-De ser solicitante un tercero contar con la autorización escrita del paciente.
 Si es solicitado por el Poder Judicial, presentar Mandamiento Judicial correspondiente.
-Cédula de identidad al solicitar y retirar el documento.
-Solicitud escrita.
 RIESGOS DEL TRABAJO.
 INVESTIGACIÓN, INSPECCIÓN Y PROMOCIÓN.
 Determinación de derechohabientes, casos de fallecidos. 45 a 60 días.
@@ -234,6 +221,7 @@ Presentar el formulario debidamente cumplimentado.
 Presentación de planillas magnéticas. 5 a 10 minutos.
 Constancia de cuenta cliente de un Banco del Sistema Bancario Nacional.
 Presentar el disquete con el archivo en formato texto que genera la correspondiente aplicación.
+Retirar en cualquier sede del INS la aplicación junto con los manuales del usuario.
 SERVICIOS AL PATRONO
 Emisión de pólizas. 20 minutos.
 Fotocopia cédula jurídica o física. Este trámite se realiza en la Sede Central
@@ -494,11 +482,11 @@ Copia del finiquito de pago
 Oficio Formal de la Unidad Técnica Ejecutora enviando solicitud del(a) beneficiario(a) -trabajador(a) a la C.C.S.S
 SEGURO OBLIGATORIO AUTOMOTOR.
 Aseguramiento.
-Pagos en cajas de recibos de Derecho de Circulación emitidos por el Sistema. 10 minutos.
+Pagos en cajas de recibos de Derecho de Circulación emitidos por el Sistema. Plazó 5 minutos.
 Cédula o identificación.
 RTV favorable en el sistema.
 Número de placa a cancelar.
-Devoluciones de dinero por cajas a cliente. 30 minutos.
+Devoluciones de dinero por cajas a cliente. Plazo 15 minutos.
 Cédula o identificación del propietario.
 Autorización si el débito no esta a nombre de la persona que se presenta, fotocopia de la cédula del tramitador.
 Personería jurídica con menos de tres meses de emitida si el débito es a nombre de una persona jurídica.
@@ -522,7 +510,7 @@ Fotocopias de la cédula de identidad del Apoderado Generalísimo y del autoriza
 Inclusión de Vehículos nuevos (vehículos de primera inscripción). 10 minutos.
 Copia del DUA.
 Fotocopia de la revisión técnica de inscripción emitida por RTV.
-Sustitución de Tarjeta de Circulación. 15 minutos.
+Sustitución de Tarjeta de Circulación. Plazo 10 minutos.
 Derecho de circulación original (T0_ Temporal - según el año que corresponda).
 Copia del título de propiedad o certificación rápida emitida por el Registro Nacional.
 Fotocopia de la cédula de identidad de la persona que solicita la sustitución.
@@ -531,31 +519,40 @@ Derecho de circulación original cancelado (del periodo en cobro).
 Depósito de placa anterior ante el Registro Nacional.
 Fotocopia de la cédula de identidad de la persona que solicita el cambio.
 Emisión de Certificaciones.
-Si la certificación es de pago a realizar: 10 minutos.
+Si la certificación es de pago a realizar: Plazo 5 minutos.
 Aportar el número correcto de la placa e indicar para que efectos la solicita.
-Si la certificación es de pago realizado o de pago en historia: 10 minutos.
+Si la certificación es de pago realizado o de pago en historia: Plazo 5 minutos.
 Fotocopia de la cédula o identificación del propietario.
 En caso de que el propietario no pueda presentarse a solicitar el duplicado es necesario que el tramitador presente una autorización por escrito del dueño.
 Copia de la cédula del tramitador.
 Eliminación de marca de capacidad para autobuses. 10 minutos.
-Nota emitida por el MOPU donde indique si determinado vehículo tiene ruta. En caso de que no tenga ruta deben indicar la capacidad de pasajeros autorizada o fotocopia del Permiso de Explotación.
-Cambios de Características. 15 minutos.
+Nota emitida por el MOPU donde indique si determinado vehículo tiene ruta. En caso de que no tenga ruta deben indicar la capacidad de pasajeros autorizada (mediante el titulo de propiedad o certificación rápida)o fotocopia del Permiso de Explotación.
+Cambios de Características. Plazo 10 minutos.
 Copia del Título de Propiedad o certificación rápida emitida por el Registro Nacional.
-Ajustes por Depósitos de Placas. 20 minutos.
+Ajustes por Depósitos de Placas. Plazo 15 minutos.
 Certificación del Registro Nacional (Departamento de Placas) donde indique la fecha de depósito de la placa la certificación no debe tener más de 3 meses de emitida.
-Levantamiento de Marcas Restrictivas por Robo. 15 minutos.
+Levantamiento de Marcas Restrictivas por Robo. Plazo 5 minutos.
 Aportar acta de entrega del Organismo de Investigación Judicial, donde indique que el automotor apareció.
-Aplicación o Devolución por pago equivocado en los Derechos de Circulación. 20 minutos.
+Aplicación o Devolución por pago equivocado en los Derechos de Circulación. Plazo 10 minutos.
 Derecho de Circulación Original y Marchamo.
 En caso de presentarse un tramitador deberá aportar la autorización por parte del Propietario Registral.
-Cuando el Propietario es una Persona Física: 20 minutos.
+Cuando el Propietario es una Persona Física: Plazo 10 minutos.
 Solicitud del Asegurado Registral solicitando la aplicación de la placa correcta.
 Fotocopia de la cédula de identidad.
-Cuando el Propietario es una Persona Jurídica: 20 minutos.
+Cuando el Propietario es una Persona Jurídica: Plazo 10 minutos.
 Solicitud y autorización del Apoderado Generalísimo.
 Fotocopias de la cédula de identidad del Apoderado Generalísimo y del autorizado.
-Pago de Pólizas Turistas. 15 minutos.
+Pago de Pólizas Turistas. Plazo 10 minutos.
 Nota emitida por la Dirección General de Aduanas donde indiquen la prórroga de permanencia del vehículo en el país con las respectivas características el automotor o fotocopia del Titulo de Propiedad extranjero y del pasaporte del conductor.
+Recepción de aviso de accidente. 10 minutos.
+Documentos comprobantes de ocurrencia de accidente emitidos por alguna Autoridad que se hiciera presente al lugar de los hechos (Parte Oficial de Tránsito o Boleta de Citación o Constancia de traslado de Cruz Roja Costarricense o Paramédicos, Aviso de accidente por Automóviles Voluntario entregado en el evento por el Inspector del INS), reportajes de medios de comunicación y expediente del OIJ.
+Pago a empresas en convenio. 15 días hábiles.
+Solicitud formal de parte de la empresa que mantiene el convenio con el ,firmada por la persona autorizada
+Estudios de ocurrencia del accidente. 5 días hábiles.
+Documentos comprobantes de ocurrencia de accidente emitidos por alguna Autoridad que se hiciera presente al lugar de los hechos,(parte oficial de tránsito, boleta de citación, constancia de traslado de CRC, paramédicos, ambulancia privada, bomberos, informe del perito del INS del seg. voluntario de automóviles) reportajes de medios de comunicación, expediente del OIJ.
+Estudios de pérdida económica. 30 días hábiles.
+Certificaciones de un contador público con el desglose de los costos fijos y variables. Índice Cartular
+Protocolo o Índice cartular
 Pago Permisos de placas de agente vendedor (AGV) Primera Vez. 15 minutos.
 Nota emitida por el Consejo de Transporte Público del MOPT donde indique el código asignado y el número de permisos autorizados.
 Copia de la cédula de identidad del tramitador.
@@ -677,42 +674,37 @@ Hoja de estudio de asegurado por la C.C.S.S (formulario emitido por el SOA).
 Estudio de trabajo social del INS (debe ser favorable para optar por el aumento de cobertura).
 AGROPECUARIO.
 Aseguramiento.
-Suscripción de un Seguro de Cosechas. 20 días naturales.
+Suscripción de un Seguro de Cosechas y Camarón Marino
 Solicitud del seguro debidamente cumplimentada.
 Solicitar por escrito al INS la inspección para el aseguramiento del cultivo (cuando este se encuentre debidamente germinado o arraigado).
 Utilizar semilla certificada en cultivos incluidos dentro del programa de certificación de la Oficina Nacional de Semillas y presentar la respectiva factura (Factura Oficial de Semilla).
 Contrato de compraventa de la cosecha en cultivos de exportación.
 Fotocopias de aforos y concesiones en cultivos con riego o aniego.
 Planos del área de siembra con extensiones mayores a 25 hectáreas.
+Para Camarón Marino:
+Utilizar semilla certificada y presentar la respectiva factura de compra.
+Contar con la asistencia técnica de un biólogo marino.
 Suscripción de un Seguro de Ganado. 15 días naturales.
 Solicitud del seguro debidamente cumplimentada.
 Reporte de vacunas y certificado de laboratorio que indique que el animal está libre de enfermedades infectocontagiosas para optar por la cobertura contra este tipo de enfermedades.
 Fotocopia del pedigree si el animal está registrado.
 Certificado de salud extendido por un médico veterinario para animales de valor superior a ¢500.000.00.
 Examen andrológico para animales reproductores.
-Suscripción de un Seguro para Camarón Marino. 20 días naturales.
-Solicitud de seguro debidamente cumplimentada.
-Utilizar semilla certificada y presentar la respectiva factura de compra.
-Contar con la asistencia técnica de un biólogo marino.
 Reclamos.
-Indemnización de un Seguro de Cosechas. 15 días naturales.
+Indemnización de un Seguro de Cosechas y Camarón Marino
 Presentar dentro de los quince días siguientes al siniestro los comprobantes de las inversiones realizadas en el cultivo (facturas de mano de obra y de agroquímicos).
 En el caso de pérdidas parciales, presentar comprobantes de venta del producto, facturas del transporte de este al lugar de compra y de la labor de recolección.
 Haber cumplido y realizado oportunamente todas las inversiones y labores que requiere el cultivo.
 Haber cumplido con el envío de los avisos escritos de siniestro, de agravación y de recolección.
+El Instituto se reservar el derecho de solicitar los requisitos necesarios, según sea el caso.
 Indemnización de un Seguro de Ganado. 15 días naturales.
 En el caso de lesiones o alteración fisiológica del animal asegurado, se deberá dar aviso por escrito al INS dentro de las 48 horas posteriores al descubrimiento del daño y contratar los servicios de un médico veterinario para su tratamiento.
 En el caso de que el animal muera por accidente o una enfermedad cubiertos por la póliza, se debe dar aviso por escrito dentro de las 24 horas después de ocurrido el evento. Asimismo se debe presentar dentro de un plazo máximo de diez días hábiles el Certificado Médico Veterinario que indique la identificación, fecha y causa de la muerte del animal o sino recurrir a un agrónomo titulado o a la autoridad local para que sea extendida la certificación de muerte respectiva.
 En caso de ser necesario el sacrificio del animal, se deberá presentar dentro de un plazo máximo de diez días hábiles, un informe médico veterinario que justifique esa acción.
 Si la muerte ocurre durante el transporte, se deberá presentar la guía de transporte extendida por la guardia local o el ente respectivo.
-Indemnización de un Seguro de Camarón Marino. 15 días naturales.
-Presentar dentro de los cinco días siguientes al siniestro los comprobantes de las inversiones realizadas en el cultivo (facturas de mano de obra y de agroquímicos).
-En caso de pérdidas parciales, deberán presentar comprobantes de venta de la cosecha y de la labor de recolección.
-Haber cumplido y realizado oportunamente todas las inversiones y labores que requiere el cultivo.
-Haber cumplido con el envío de los avisos escritos de siniestro, de agravación y recolección.
 DIVERSOS Y MARÍTIMO.
 Aseguramiento.
-Suscripción de Bonos de Garantía. 1 día.
+Suscripción de Fianzaz de Garantía. 1 día.
 Llenar la solicitud del Bono, completando detalladamente la información requerida, la cual deberá contemplar la firma del representante legal o del solicitante (según sea el caso) y la firma de los fiadores, autenticadas por un Notario Público, agregando el timbre del Colegio de Abogados.
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
 Adjuntar copia del cartel de licitación y/o del contrato respectivo.
@@ -749,46 +741,40 @@ Adjuntar fotocopia de la póliza de incendio por el valor real de la propiedad* 
 Constancias de impuestos al día (Municipales, Territoriales y otros)
 Se debe adjuntar avalúo de la propiedad ofrecida realizado por un profesional en el ramo.
 Además de lo anterior, se requieren los siguientes requisitos para cada tipo de Bono:
-Bono de Garantía de Clubes de Venta de Mercancías y Bono de Garantía Club de Viajes. 1 día.
+Fianza de Garantía de Clubes de Venta de Mercancías y Bono de Garantía Club de Viajes. 1 día.
 Nota del Ministerio de Economía autorizando la actividad.
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
-Bono de Garantía para Costas Procesales, Curatelas o Excarcelación. 1 día.
+Fianza de Garantía para Costas Procesales, Curatelas o Excarcelación. 1 día.
 Copia de la Demanda y Contra demanda del juicio.
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
-Bono de Garantía para Aduanas. 1 día.
+Fianza de Garantía para Aduanas. 1 día.
 Número de Aduanas y descripción de actividades (consolidador, transportista etc.)
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
-Bono de Garantía para Pensión Alimenticia. 1 día.
+Fianza de Garantía para Pensión Alimenticia. 1 día.
 Requisitos generales.
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
 contra garantía:
 Opción 1. Depositar una contra garantía del 50% del monto afianzado y presentar 2 ó 3 fiadores dependiendo del monto de la fianza.
 Opción 2. Depositar una contra garantía del 100% del monto afianzado.
-Bono de Impacto Ambiental. 1 día.
+Fianza de Impacto Ambiental.
 Informe del SETENA (Secretaría Técnica Nacional Ambiental).
 (Siempre y cuando se haya completado el proceso de inspección, presentado todos los requisitos y el nivel de aprobación del bono esté en manos del Departamento).
-Suscripción de Seguro de Responsabilidad Civil.
-Seguro de Responsabilidad Civil Parqueos, Talleres, Estaciones de Servicio, Hoteles, Espectáculos Públicos, Construcción, Centros de Recreo, Industrias.
-30 días hábiles.
+Suscripción del Seguro de Responsabilidad Civil General
+(Responsabilidad Civil: Parqueos, Talleres, Estaciones de Servicios, Hoteles, Operadores Turísticos, Espectáculos Públicos, Construcción, Centros de Recreo, Juegos Mecánicos, Eventos Taurinos y Pirotécnicos, Vallas Publicitarias, Licencias de Menos de Edad, Servicios, Local comercial, Centros Educativos, Vigilancia, Farmacias Veterinarias, Industrias, Químicas, Productos) 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Cumplimentar el formulario llamado cuestionario adicional (dicho formulario es específico para cada uno de los diferentes tipos de seguro).
 Para espectáculos públicos, además de lo anterior, el asegurado deberá presentar:
 Plan de contingencia que se aplicará durante el evento y croquis del lugar del evento.
-Seguro de Responsabilidad Civil Vigilancia. 30 días hábiles.
+Seguro de Responsabilidad Civil Umbrella. 60 días hábiles
 Solicitud del seguro debidamente cumplimentada.
-(Siempre y cuando se hayan presentado todos los requisitos solicitados).
-Listado con número de guardas (nombre y número de cédula de cada uno).
-Seguro de Responsabilidad Civil para Farmacias, Veterinarias y Cosméticos, Industrias Químicas, Productos. 30 días hábiles.
-Solicitud del seguro debidamente cumplimentada. (Siempre y cuando se hayan presentado todos los requisitos solicitados).
-Cumplimentar el formulario llamado cuestionario adicional (dicho formulario es específico para cada uno de los diferentes tipos de seguro.
-Descripción de productos y muestras de los empaques de los mismos.
+Además el Instituto está facultado a solicitar cualquier otro documento que por la naturaleza del seguro sea necesario el análisis de la suscripción
 Seguro de Responsabilidad Civil Profesional. 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Curriculum Vitae de cada profesional incluyendo fotocopia del carné de colegiado.
 Cuando se trate de empresa jurídica deberá presentar: perfil de la empresa y listado de los profesionales incluidos.
-Seguro de Fidelidad Individual y Colectiva. 30 días hábiles.
+Seguro de Fidelidad Individual
 Para montos asegurados de ¢250.000,00 hasta ¢2.099.000,00 se requiere lo siguiente:
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Solicitud del seguro debidamente cumplimentada.
@@ -808,7 +794,7 @@ Constancia de salario del solicitante o certificación de ingresos extendida por
 Firma de letra de cambio.
 Fiadores: Constancia de salario que cubra el 40% del monto asegurado ó certificación de ingresos extendida por un Contador Público Autorizado.Firma de letra de cambio y Fotocopia de cédula de identidad.
 ó contra garantía real de un 35% del monto asegurado (hipotecario o efectivo) en lugar de fiadores.
-Seguro de Fidelidad Comprensiva y de Fidelidad Bancaria y Fidelidad de Posiciones 30 días hábiles.
+Seguro de Fidelidad Colectiva, Fidelidad Bancaria y Fidelidad de Posiciones 30 días hábiles.
 Solicitud debidamente completada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Lista de personal donde se indique: Nombre y número de cédula de identidad de cada uno de los empleados y puestos ocupados.
@@ -819,10 +805,12 @@ Solicitud del seguro debidamente cumplimentada.
 Adjuntar fotografías por los cuatro costados del bien a asegurar.
 Suscripción de un Seguro de Equipo Electrónico.
 Coberturas de Riesgo Nombrado y Cobertura de Todo Riesgo. 30 días hábiles.
+Suscripción del Seguro de Seguro Robo de Celulares
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Aportar un listado de los equipos indicando el nombre, tipo de equipo: fijo o móvil, marca, modelo, número de serie, fecha de fabricación, valor.
 Copia de la cédula de identidad del suscriptor de la póliza.
+Fotocopia de la factura de compra
 Suscripción de Seguro de Riesgo Nombrado 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado los requisitos solicitados).
@@ -832,11 +820,11 @@ De Importación / Exportación “Cerrada” y “Abierta” Transporte Interior
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 En caso de suscribir un seguro de carga cerrada, el asegurado deberá además, presentar: copia de la factura del embarque ó guía de embarque.
-Suscripción de un Seguro Técnico de Todo Riesgo Construcción y Montaje. 30 días hábiles.
+Seguros Técnicos
+Suscripción de un Seguro de Todo Riesgo de Construcción, Obra Civil Terminada y Todo Riesgo de Montaje
 Solicitud del seguro debidamente cumplimentada, sin omitir el nombre y números de teléfono y fax, del profesional responsable del proyecto.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Cronograma de actividades, de ser posible conteniendo el programa de inversión preliminar *
-Fotocopia del contrato de construcción celebrado entre el propietario de la obra y el contratista principal, que incluyan los trabajos a contratar por subcontratistas.
 Resumen de memoria de cálculo del diseño sismo resistente, que contemple consideraciones de diseño y muestra de cálculos *
 Estudio de suelos*
 Si el aseguramiento se refiere a canales abiertos o por tuberías o proyectos hidroeléctricos se deberán aportar los estudios hidrológicos de la cuenca respectiva*
@@ -844,7 +832,6 @@ Si el aseguramiento se refiere a proyectos como: puertos, muelles, diques, túne
 (*) Estos requisitos pueden ser representados en forma digital.
 En el momento de efectuar la inspección del riesgo a asegurar, se deberá tener a disposición de los profesionales del INS los siguientes documentos:
 1.Curriculum de las empresas contratistas y subcontratistas, 2.Permisos ambientales.
-Suscripción de un Seguro Técnico.
 Rotura de Maquinaria. 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
@@ -865,7 +852,6 @@ Suscripción de Seguro de Embarcaciones. 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
 (Siempre y cuando se hayan presentado todos los requisitos solicitados).
 Fotocopias de los Certificados de Navegabilidad y de Matrícula vigentes.
-Cancelar el monto de los gastos de inspección de las embarcaciones.
 En caso de asegurar embarcaciones para la actividad pesquera, se requiere el permiso de pesca del Instituto Costarricense de Turismo cuando sea comercial en esos usos específicos.
 Suscripción de Seguro de Aviación. 30 días hábiles.
 Solicitud del seguro debidamente cumplimentada.
@@ -883,17 +869,15 @@ Aseguramiento.
 Hogar Seguro 2000. 22 días hábiles.
 Solicitud del seguro debidamente cumplimentada. Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la emisión o variación del seguro en un plazo no mayor de 22 días hábiles.
 En el caso de obras de arte: detalle de la obra (nombre, autor, técnica, valor), facturas, certificaciones de adquisición y autenticidad de la obra y fotografías.
-Hogar Seguro 2000 Colectivo. 22 días hábiles.
-Solicitud del seguro debidamente cumplimentada. Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la emisión o variación del seguro en un plazo no mayor de 22 días hábiles.
+Para el Seguro Colectivo, además de lo anteriro se pide:
 Formulario de inclusión de seguros colectivos o deudores debidamente completado.
 Listado de Renovación con lista de exclusiones e inclusiones para el siguiente período ó firma del asegurado en el último listado suministrado por la Sede.
 En el caso del menaje, un listado de todos aquellos artículos que tengan un valor superior al establecido en las políticas de Aseguramiento.
-En el caso de obras de arte: detalle de la obra (nombre, autor, técnica, valor), facturas, certificaciones de adquisición y autenticidad de la obra y fotografías.
-Seguro Hogar Comprensivo y Seguro de Condominios 22 días hábiles.
+Seguro Hogar Comprensivo
 Solicitud del seguro debidamente cumplimentada. Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la emisión o variación del seguro en un plazo no mayor de 22 días hábiles.
 En el caso de aseguramiento del menaje, presentar listado de los bienes a asegurar, indicando marca, serie, modelo, antigüedad y valor.
 En el caso de obras de arte: detalle de la obra (nombre, autor, técnica, valor), facturas, certificaciones de autenticidad, fotografías.
-Incendio Local Comercial y Seguro de Todo Riesgo Daño Físico 22 días hábiles.
+Seguro de Todo Riesgo Daño Físico e Incendio Comercial
 Solicitud del seguro debidamente cumplimentada. Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la emisión o variación del seguro en un plazo no mayor de 22 días hábiles.
 Para aseguramiento de Estaciones de Servicio (Gasolineras) y Calderas, fotocopia del permiso de funcionamiento extendido por la Oficina de Higiene del Ministerio de Trabajo.
 En caso de asegurarse mercadería o cualquier otra partida bajo la modalidad de libros contables, debe presentar formulario contable debidamente completado.
@@ -904,28 +888,47 @@ Solicitud del seguro debidamente cumplimentada. Una vez recibidos todos los requ
 Lista detallada de los bienes a asegurar en donde se indique las características del bien (marca, serie, modelo, antigüedad y valor).
 En el caso de obras de arte se debe presentar lo siguiente: detalle de la obra (nombre, autor, dimensiones, técnicas, valor), facturas de la galería, certificaciones de autenticidad y fotografías.
 Para local comercial: Formulario Contable debidamente cumplimentado, Lista detallada de las películas a asegurar (en donde se indique: valor unitario, nombre, compañía cinematográfica, indicando cuales son para la venta y cuales para alquiler).
-Indemnización Seguros de Incendio y líneas aliadas (Casa de Habitación, Local Comercial y Daño Físico Directo) 60 días hábiles.
-Estos requisitos se consideran al amparo de: mercaderías, maquinaria, mobiliario y equipo, equipo electromecánico, edificios, infraestructura, instalaciones, obras complementarias, etc.
-Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la indemnización del reclamo en un plazo no mayor de 30 días hábiles.
-Presentar carta dando aviso del siniestro, o bien la solicitud de indemnización debidamente cumplimentada en los cinco (5) días siguientes a la fecha del evento con la siguiente información: Fecha del evento, causa y origen del daño, detalle que contenga un recuento dentro de lo razonablemente posible, de todos los artículos o partes de la propiedad perdida, destruída o dañada, y de la cantidad de tal pérdida, destrucción o daño, identificación del elemento dañado, antigüedad (con su respectiva placa o número de activo). En caso de que esta sea una maquinaria de producción, cuáles eran las condiciones particulares al momento del siniestro. Asimismo indicar los nombres de las personas involucradas en el evento, número de cédula, licencias de conducir, en caso necesario (como en accidentes con montacargas), dirección exacta e identificación de la zona de fuego (local comercial). Indicar si hubo daños a terceros (como propiedades o dispositivos colindantes), lesiones a personas, daños en equipos dentro del inmueble no asegurados, daños en dispositivos externos y que en el momento del siniestro estaban dentro de la zona de fuego.
-Aportar pronunciamientos especiales sobre el problema que genera la denuncia, u otros problemas adicionales y/o relacionados, por parte de organismos como: la Comisión Nacional de Emergencias, el Colegio Federado de Ingenieros y Arquitectos, denuncias originadas, si el evento lo amerita.
+Indemnización
+Requisitos para la Indemnización de los seguros de Hogar Seguro 2000, Hogar Comprensivo, Daño Físico Directo e Incendio Comercial y Cristales
+Presentar carta dando aviso del siniestro, o bien la solicitud de indemnización debidamente cumplimentada dentro de las cuarenta y ocho horas siguientes a la fecha del suceso con la siguiente información: Fecha del evento, causa y origen del daño, detalle que contenga un recuento dentro de lo razonablemente posible, de todos los artículos o partes de la propiedad perdida, destruida o dañada.
+En caso de que se vea afectada la cobertura de robo el asegurado deberá presentar:
+Fotocopia de la denuncia emitida y/o ampliación en caso de existir, ente el Organismo de Investigación Judicial (OIJ).
+Fotocopia de la inspección ocular realizada por el Organismo de Investigación Judicial ( OIJ).
+Factura proforma membretada de los artículos sustraídos.
+Informe de resolución de la investigación por parte de las Autoridades Competentes.
+Si la partida afectada es mobiliario o mercancía se deberá presentar:
+Declaraciones juradas del impuesto sobre la renta del último período fiscal.
+Declaraciones juradas del impuesto general sobre las ventas, partiendo del último cierre fiscal hasta la fecha del evento y además de la documentación soporte de estas declaraciones (facturas de compra y ventas).
+Detalle del inventario físico realizado después del evento.
+Detalle de la pérdida sufrida, en unidades y su costo.
+Detalle de: códigos, características, cantidad, valor en libros (costo original, menos depreciación mensual acumulada) y monto total de los activos dañados; saldo total en libros (costo original menos depreciación acumulada) y valor en libros.
+En ausencia del registro auxiliar, deberá aportar las facturas originales de los bienes afectados, para comprobar la pertenencia.
+Al efectuarse la inspección de parte de la Unidad de Estudios y Registros Contables, el asegurado debe mantener Libros legales de contabilidad al día a la fecha del evento (Diario, Mayor, Inventario y Balances, estados financieros auditados y demás documentación que complemente el análisis del caso).
+Si es una póliza con acreencia debe presentar V° B° del acreedor para que autorice girar cheque a nombre del asegurado.
+En caso de reclamo en la cobertura de Cristales, el asegurado deberá:
+Presentar carta o solicitud de indemnización debidamente cumplimentada en los cinco días siguientes a la fecha del evento.
+Fecha del evento, causa y origen del daño.
+La carta en la que se reporte el siniestro deberá indicar las dimensiones de los cristales dañados.
+Facturas proforma membretadas por compra de los vidrios o rótulos con las dimensiones de los mismos.
+Estos requisitos se consideran al amparo de: mercancías, maquinaria, mobiliario y equipo, equipo electromecánico, edificios, infraestructura, instalaciones, obras complementarias, etc. :
+Presentar carta dando aviso del siniestro, o bien la solicitud de indemnización debidamente cumplimentada en los cinco (5) días siguientes a la fecha del evento con la siguiente información:
+Fecha del evento, causa y origen del daño, detalle que contenga un recuento dentro de lo razonablemente posible, de todos los artículos o partes de la propiedad perdida, destruída o dañada, y de la cantidad de tal pérdida, destrucción o daño, identificación del elemento dañado, antigüedad (con su respectiva placa o número de activo). Si es maquinaria de producción, indicar las condiciones particulares al momento del siniestro. Asimismo indicar los nombres de las personas involucradas en el evento, número de cédula, licencias de conducir, en caso necesario (como en accidentes con montacargas), dirección exacta e identificación de la zona de fuego (local comercial). Indicar si hubo daños a terceros (como propiedades o dispositivos colindantes), lesiones a personas, daños en equipos dentro del inmueble no asegurados, daños en dispositivos externos y que en el momento del siniestro estaban dentro de la zona de fuego.
 Indicar si el Edificio es propio o de alquiler (debe presentar contrato de arrendamiento y antigüedad del mismo).
-Si es una póliza con acreencia debe presentar V°B° del acreedor para que autorice girar cheque a nombre del asegurado.
+Aportar pronunciamientos especiales sobre el problema que genera la denuncia, u otros problemas adicionales y/o relacionados, por parte de organismos como: la Comisión Nacional de Emergencias, el Colegio Federado de Ingenieros y Arquitectos, denuncias originadas, si el evento lo amerita.
+Si es una póliza con acreencia debe presentar V° B° del acreedor para que autorice girar cheque a nombre del asegurado.
 Facturas proforma membretadas de los artículos siniestrados cuando exista pérdida total.
 En caso de daños se deberá presentar un informe técnico de un profesional en el ramo, en donde indique las causas de los daños y un presupuesto de reparación.
 En caso de afectarse la cobertura de Interrupción de Negocios se debe presentar:
 1- Estados Financieros auditados del los dos últimos años último período fiscal antes de ocurrir el siniestro.
-2- Estimados de producción para el período anual en que se presentó el del siniestro.
-3- Estimados de ingresos para el período afectado por el siniestro.
-4- Flujo grama de producción.
-5- Lista de proveedores y compradores.
-6- Producción real de los últimos dos años tomando como base la fecha del siniestro.
-7- Presupuesto de reparación.
+2- Estimados de producción y de ingresos para el período anual en que se presentó el del siniestro.
+3- Flujograma deproducción
+4- Lista de proveedores y compradores.
+5- Producción real de los últimos dos años tomando como base la fecha del siniestro.
+6- Presupuesto de reparación.
 En caso de haber testigos del siniestro se deberá presentar una Declaración Jurada rendida por cada uno de ellos.
 En caso de daños por rayo se deberá presentar informe técnico de un profesional que señale la causa del daño y los bienes afectados.
-Mantener Libros legales de contabilidad al día a la fecha del evento (Diario, Mayor, Inventario y Balances, estados financieros auditados y demás documentación que complemente el análisis del caso). Se necesitaran al momento de la inspección que realiza la Unidad de Estudios y Registros Contables
+Al momento de la inspección que realiza la Unidad de Estudios y Registros Contables se debe mantener Libros legales de contabilidad al día a la fecha del evento (Diario, Mayor, Inventario y Balances, estados financieros auditados y demás documentación que complemente el análisis del caso).
 En caso de reclamo por siniestro de Mercadería se debe adicionar:
-Libros legales de contabilidad (Diario, Mayor e Inventario y Balances) actualizados a fecha del evento.
 Declaraciones juradas del impuesto sobre el renta de los últimos dos periodos fiscales.
 Declaraciones juradas del impuesto general sobre las ventas partiendo del último cierre fiscal hasta la fecha del evento y además la documentación soporte de estas declaraciones (facturas de compra y venta).
 Detalle del inventario físico, realizado al último cierre fiscal.
@@ -935,15 +938,14 @@ Detalle de códigos, características, cantidad, valor en libros (costo original
 Registro auxiliar de los activos fijos donde se detalle al menos número de activo, descripción, fecha de compra, valor original, depreciación mensual acumulada, número de archivo y valor en libros.
 En ausencia del registro auxiliar, deberá aportar las facturas originales de los bienes afectados, para comprobar la pertenencia.
 Saldo total en libros (costo original menos depreciación acumulada, partidas aseguradas en la póliza).
-Entregar al Ingeniero Evaluador de forma detallada y por escrito las facturas membretadas (original y copia) que respaldan la compra de los elementos dañados. Se aceptan en este caso como documento las guías de embarque y nacionalizaciones.
 Entregar documentos probatorios de garantías de fábrica o de representantes en el país, con la identificación de cada bien, elemento, dispositivo o equipo, con sus respectivas cláusulas, alcances de las garantías, fechas de vigencias, lugar y condiciones.
 De igual forma cuando se trate de un bien adquirido de “segunda mano”: se debe presentar documentación con detalle de materiales utilizados, con su costo unitario, cantidades y mano de obra utilizada cuando el bien no sea adquirido directamente con un representante.
+Facturas membretadas (original y copia) que respaldan la compra de los elementos dañados. Se aceptan en este caso como documento las guías de embarque y nacionalizaciones.
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 Indemnización Cobertura y Línea de Robo (casa de habitación y local comercial). 60 días hábiles.
 Presentar carta dando aviso del siniestro, o bien la solicitud de indemnización debidamente cumplimentada dentro de las cuarenta y ocho horas siguientes a la fecha del suceso con la siguiente información: Fecha del evento, causa y origen del daño, detalle que contenga un recuento dentro de lo razonablemente posible, de todos los artículos o partes de la propiedad perdida, destruida o dañada.
 Una vez recibidos todos los requisitos el INS tendrá la potestad de aceptar o rechazar la indemnización del reclamo en un plazo no mayor de 30 días hábiles.
-Fotocopia de la denuncia interpuesta ante el Instituto en las 48 horas siguientes a la fecha de evento en donde contenga un detalle de cómo sucedió el evento indicando numero de series, marcas y modelos de los artículos robados.
-Fotocopia de la Inspección ocular realizada por el Organismo de Investigación Judicial (OIJ).
-Fotocopia de la ampliación de la denuncia emitida ente el Organismo de Investigación Judicial (OIJ) en caso de que falte denunciar cualquier situación pendiente ante esa autoridad.
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 Factura proforma membretada de los artículos sustraídos.
 Informe de resolución de la investigación por parte de las Autoridades Competentes.
 Si la partida afectada es mobiliario o mercancía se deberá presentar:
@@ -956,13 +958,21 @@ Detalle de: códigos, características, cantidad, valor en libros (costo origina
 En ausencia del registro auxiliar, deberá aportar las facturas originales de los bienes afectados, para comprobar la pertenencia.
 Al efectuarse la inspección de parte de la Unidad de Estudios y Registros Contables, el asegurado debe mantener Libros legales de contabilidad al día a la fecha del evento (Diario, Mayor, Inventario y Balances, estados financieros auditados y demás documentación que complemente el análisis del caso).
 En caso de reclamo en la cobertura de Cristales, el asegurado deberá:
-Presentar carta o solicitud de indemnización debidamente cumplimentada en los cinco días siguientes a la fecha del evento.
-Fecha del evento, causa y origen del daño.
-Carta en la que indique las dimensiones de los cristales dañados.
+Presentar carta o solicitud de indemnización debidamente cumplimentada en los cinco días siguientes a la fecha del evento, indicando fecha del evento, causa y origen del daño.
 Facturas proformas membretadas por compra de los vidrios o rótulos con las dimensiones de los mismos.
 Si es una póliza con acreencia presentar Visto Bueno para girar el pago a nombre del asegurado.
 Indemnización.
-Seguro de Equipo Electrónico Riesgo Nombrado y Todo Riesgo y Seguro de Riesgo Nombrado 60 días hábiles.
+Indemnización del Seguro de Equipo Electrónico modalidades: Riesgo Nombrado, Todo Riesgo y Robo de Celulares
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
+Indemnización Seguro Riesgo Nombrado
+En caso de daño de equipo el asegurado deberá :
+Dar aviso inmediato por escrito de la ocurrencia del siniestro, en un plazo no mayor a los cinco (5) días hábiles, de la naturaleza y causa de la pérdida al Instituto indicando la fecha del siniestro, número de póliza que lo ampara y características del equipo dañado (marca, modelo y número de serie)
+Informe técnico elaborado por un especialista del ramo que indique: fecha de la ocurrencia, monto de los daños, causa de los daños, características del equipo.
+En caso de robo del equipo el asegurado deberá presentar:
+Fotocopia de la denuncia presentada ante el Organismo de Investigación Judicial (OIJ), donde se indique claramente al menos: fecha del evento, descripción exacta del equipo robado y forma en que ocurrió el evento.
+Fotocopia del Acta de Inspección Ocular que realiza el Organismo de Investigación Judicial (OIJ).
+Factura proforma de un equipo similar que contenga el valor de reposición del equipo.
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 En caso de daño del equipo:
 Dar aviso inmediato por escrito de la ocurrencia del siniestro, en un plazo no mayor a los cinco (5) días hábiles, de la naturaleza y causa de la pérdida al Instituto indicando la fecha del siniestro, número de póliza que lo ampara y características del equipo dañado (marca, modelo y número de serie) Informe técnico elaborado por un especialista del ramo que indique: fecha de la ocurrencia, monto de los daños, causa de los daños, características del equipo.
 En caso de robo del equipo:
@@ -970,12 +980,12 @@ Fotocopia de la denuncia presentada ante el Organismo de Investigación Judicial
 Fotocopia del Acta de Inspección Ocular que realiza el Organismo de Investigación Judicial (OIJ).
 Factura proforma de un equipo similar que contenga el valor de reposición del equipo.
 Fotocopia del aviso al Instituto Costarricense de Electricidad (ICE), con sello de recibido por parte de esa entidad, en caso de que el bien robado corresponda a uno o varios teléfonos celulares.
-Indemnización Bonos de Garantía (Todas las modalidades). 60 días hábiles.
+Indemnización Fianzas (Todas las modalidades).
 El acreedor deberá:
 Notificar al Instituto a más tardar a las 24 horas del día de vencimiento de la fianza, por medio de carta solicitando la ejecución de la garantía.
 Presentar el original de la garantía (Bono) junto con todos los endosos.
 Dependiendo del tipo de ejecución presentada (bono privado-bono público) se establecerán por parte del INS los requisitos adicionales respectivos, en razón de la diversidad de los bonos.
-Indemnización Seguros de Responsabilidad Civil (Todas las modalidades). 60 días hábiles.
+Requisitos de Indemnización para el Seguro de Responsabilidad Civil (todas las modalidades: Responsabilidad Civil General: Parqueos, Talleres, Estaciones de Servicio, Hoteles, Operadores Turísticos, Espectáculos Públicos, Construcción, Centros de Recreo, Juegos Mecánicos, Eventos Taurinos y Pirotécnicos, Vallas Publicitarias, Licencias Menor de Edad, Servicios, Local Comercial, Centros Educativos, Vigilancia, Farmacias, Veterinarias, Industrias, Químicas, Productos) Responsabilidad Civil Profesional y Responsabilidad Civil Umbrella) 60 días hábiles.
 Dar aviso inmediato al Instituto en forma escrita a más tardar dentro de las 48 horas naturales siguientes a la fecha en que se tenga conocimiento del siniestro, indicando la fecha exacta y la forma en que ocurrió el accidente (detalle completo), datos personales de la persona afectada, detalle de las lesiones sufridas a consecuencia del accidente y estado de salud actual, o bien un detalle de los bienes dañados. Se requiere además criterio de su representada en cuanto a si el accidente se dio como consecuencia de impericia, descuido, negligencia o imprudencia de parte de alguno de sus empleados, nombre de los empleados que se vieron involucrados en el accidente y si se acepta la responsabilidad del evento.
 Siempre y cuando se haya completado el proceso de inspección, se cuente con la aprobación de Reaseguros en caso de ser requerido y que el nivel de aprobación esté en manos del Departamento.
 Carta de reclamo de parte de la persona perjudicada o lesionada, si la hubiera.
@@ -1000,6 +1010,7 @@ Dar aviso inmediato al Instituto en forma escrita a más tardar dentro de las 48
 Fotocopia de contrato de servicios.
 Carta de reclamo de parte del perjudicado, si la hubiera.
 Si dentro de los daños se encuentra equipo electrónico, deberá presentar un informe técnico elaborado por un especialista en la materia, el cual contenga fecha de ocurrencia, monto de los daños, causa de los daños y características del equipo. Si en ese informe se indica que el daño del equipo es total, se deberá presentar una factura proforma de un equipo igual o similar al dañado.
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 En caso de existir Responsabilidad Civil Profesional:
 Dar aviso inmediato al Instituto en forma escrita a más tardar dentro de las 48 horas naturales siguientes a la fecha en que se tenga conocimiento del siniestro, indicando la fecha exacta y la forma en que ocurrió el accidente (detalle completo), datos personales de la persona afectada, detalle de las lesiones sufridas a consecuencia del accidente y estado de salud actual de la persona lesionada, o bien un detalle de los bienes dañados, criterio de su representada en cuanto a si el accidente se dio como consecuencia de impericia, descuido, negligencia o imprudencia de parte de sus empleados, nombre de los empleados que se vieron involucrados en el accidente y si se acepta la responsabilidad del evento.
 Carta de reclamo de parte del perjudicado, si la hubiera.
@@ -1009,6 +1020,9 @@ Acción de personal del empleado involucrado.
 Fotocopia del curriculum vitae del empleado involucrado.
 Facturas originales canceladas producto de la atención médica inmediata recibida a raíz del accidente, tratándose de una lesión.
 En caso de existir demanda judicial, deberá entregarse al Instituto la notificación antes del vencimiento del período de emplazamiento.
+En caso de existir Responsabilidad Civil Umbrella:
+Se pedirán las pólizas que cubran el exceso de la póliza básica.
+El Instituto se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 En caso de existir Responsabilidad General Productos:
 Dar aviso inmediato al Instituto en forma escrita a más tardar dentro de las 48 horas naturales siguientes a la fecha en que se tenga conocimiento del siniestro, indicando la fecha exacta y la forma en que ocurrió el accidente (detalle completo), datos personales de la persona afectada, detalle de las lesiones sufridas a consecuencia del accidente y estado de salud actual de la persona lesionada, o bien un detalle de los bienes dañados; además criterio de su representada en cuanto a si el accidente se dio como consecuencia de impericia, descuido, negligencia o imprudencia de parte de sus empleados, nombre de los empleados que se vieron involucrados en el accidente y si se acepta la responsabilidad del evento.
 Carta de reclamo de parte del perjudicado, si la hubiera.
@@ -1055,7 +1069,12 @@ Presentar facturas originales canceladas por concepto de reparación de los dañ
 En caso de daño a contenedor se deberá presentar el registro en el puerto de entrada, así como el valor de depreciación, valor en libros y año de fabricación.
 Dos cotizaciones o bien facturas canceladas por concepto de reparación de los daños del contenedor, luego de la evaluación efectuada por el perito asignado por el Instituto.
 El Instituto se reservará el derecho de solicitar otros requisitos que considere necesarios.
-Indemnización Seguro Todo Riesgo de Construcción y Montaje, Seguro de Rotura de Maquinaria y Seguro de Obra Civil Terminada. 60 días hábiles.
+Seguros Técnicos
+Indemnización Seguro de Rotura de Maquinaria, Todo Riesgo de Construcción y Montaje y Seguro de Obra Civil Terminada 60 días hábiles.
+Para la atención de reclamos por cualquier causa:
+Planos constructivos debidamente aprobados por la Comisión Revisora de Permisos del Colegio Federado de Ingenieros y Arquitectos (CFIA)
+Contrato de construcción suscrito entre las partes involucradas.
+Cronograma de actividades
 Dar aviso al Instituto con carácter inmediato y en forma escrita, de la naturaleza y causa de la pérdida.
 Siempre y cuando se haya completado el proceso de inspección, se cuente con la aprobación de Reaseguros en caso de ser requerido y que el nivel de aprobación esté en manos del Departamento.
 Confirmar por escrito dentro de los quince (15) días siguientes al siniestro, mediante un informe que detalle un recuento, dentro de lo razonablemente posible, de todos los artículos o partes de la propiedad perdida, destruida o dañada, y del valor estimado de tal pérdida, destrucción o daño, tomando en cuenta su valor indemnizable en el momento de la ocurrencia del evento, junto con los detalles de cualquier otro seguro que ampare la propiedad aquí asegurada.
@@ -1119,18 +1138,18 @@ En caso de que el accidente haya ocurrido fuera del territorio nacional, present
 Fotocopia de la protesta del Capitán del Buque (sólo en caso de avería gruesa)
 Presentar documento denominado: “Ware House” (Documento que utilizó el proveedor para entregar la mercancía al transportista local)
 Presentar documento denominado: “Pick Up” (Documento que utilizó el Transportista local para entregar la mercadería a la naviera ó al consignatario)
-Acta de supervisión emitida por el Ministerio de Hacienda (cuando se trate de Productos perecederos).
+Acta de supervisión emitida por el Ministerio de salud (cuando se trate de Productos perecederos).
 Manifiesto de carga con sello de recibido por el Almacén Fiscal (legible)
 Control de ingreso del contenedor al país (esto se solicita cuando la mercancía llega mojada)
 Control de ingreso a Bodega.
 Carta de reclamo al proveedor con sello, fecha y firma de recibido y su respectiva respuesta.
 Fotocopia de certificado de origen
-B/L original negociable, por ambos lados.
+Fotocopia del B/L original negociable, por ambos lados.
 En caso de avería a vehículos, el asegurado deberá solicitar ante el Instituto la valoración respectiva por parte de la Sección de Avalúos
-En caso de robo se deberá presentar fotocopia de la denuncia planteada ante la autoridad competente en donde ocurrió el hecho y que detalle la mercancía sustraída, el número de facturas, monto total de lo robado, tipo de mercadería robada, nombre del propietario de ésta. Asimismo se debe aportar fotocopia de la declaración de los hechos efectuado por el conductor y el custodio.
-Certificación de la Policía a un mes de ocurrido el evento, que indique si el furgón fue recuperado ó no y en qué condiciones.
+En caso de robo se deberá presentar fotocopia de la denuncia planteada ante la autoridad competente en donde ocurrió el hecho y que detalle la mercancía sustraída, el número de facturas, monto total de lo robado, tipo de mercadería robada, nombre del propietario de la mercancía sustraída. Asimismo se debe aportar fotocopia de la declaración de los hechos efectuado por el conductor y el custodio.
+Certificación de la Policía a un mes de ocurrido el evento, que indique si el furgón y /o cabezal (cuando se trate de vehículos artículados) fue recuperado ó no y en qué condiciones.
 Carta de Porte
-Fotocopia de la declaración de mercancías para el Tránsito Aduanero Internacional Terrestre por ambos lados (Debe contener todos los sellos de las aduanas por donde pasó el furgón)
+Fotocopia de la declaración de mercancías para el Tránsito Aduanero Internacional Terrestre por ambos lados. Debe contener todos los sellos de las aduanas por donde pasó el furgón /o cabezal. (cuando se trate de vehículos articulados)
 Declaración aduanera de Exportación con sello de la Aduana de Salida (Formulario Único Centroamericano cuando son exportaciones a Centroamérica)
 Carta de reclamo al transportista (con sello, fecha y firma de recibido y su respectiva respuesta)
 Carta de reclamo del perjudicado por el robo de la mercancía.
@@ -1144,8 +1163,8 @@ Dar aviso de la pérdida o daño por escrito al Instituto, en un plazo máximo d
 Siempre y cuando se haya completado el proceso de inspección, se cuente con la aprobación de Reaseguros en caso de ser requerido y que el nivel de aprobación esté en manos del Departamento.
 Fotocopia de factura comercial.
 Guía de transporte local o guía de redestino de la zona portuaria.
-Fotocopia oficial del parte de Tránsito o certificación de la Guardia Rural.
-Declaración del conductor del vehículo asegurado.
+Fotocopia del parte de Tránsito Oficial o certificación de la Guardia Rural.
+Declaración del conductor del vehículo asegurado (para la modalidad monto fijo prima fija)
 Fotocopia de cédula de identidad y del permiso de conducir del conductor del vehículo accidentado.
 Comprobantes de gasto de salvamento.
 Acta de destrucción y/ó donación de los bienes dañados.
@@ -1159,7 +1178,7 @@ En caso de daños a mercancías que sean vehículos, el asegurado deberá presen
 Detalle de los daños ocasionados al vehículo a fin de extender la respectiva orden de avalúo.
 Una vez efectuada la valoración por parte de la sección de Avalúos del Instituto, el asegurado deberá: Presentar facturas originales canceladas por concepto de reparación de los daños, basándose en el avalúo remitido por la Sección de Avalúos del Instituto
 Para el riesgo de robo protegido bajo la cobertura de extraterritorialidad, debe aportarse declaración del conductor y del custodio ante la autoridad judicial competente del país en que suceda el robo, carta de porte (contrato de fletamento), formulario único aduanero (cuando son productos fabricados fuera de Costa Rica), factura comercial (importación ó exportación), declaración aduanera de tránsito terrestre internacional, fotocopia de identidad ó documento oficial que lo identifique como conductor.
-Cualquier otro documento adicional que el Instituto considere necesario.
+El Instituto Nacional de Seguros se reservará el derecho de solicitar otros requisitos necesarios según sea el caso.
 Indemnización Seguro de Embarcaciones. 60 días hábiles.
 Comunicar al Instituto, en un plazo máximo de cinco (5) días hábiles a partir de la ocurrencia del evento y en forma escrita, la naturaleza y causa de la pérdida.
 Siempre y cuando se haya completado el proceso de inspección, se cuente con la aprobación de Reaseguros en caso de ser requerido y que el nivel de aprobación esté en manos del Departamento.
@@ -1213,31 +1232,55 @@ Documentación relacionada con la gestión de cobro que realizó el asegurado co
 Fotocopia de la demanda presentada por el asegurado contra el deudor.
 En caso de quiebra o insolvencia, deberá presentar certificación de una autoridad competente del país del importador cuando se trate de Crédito a a a Exportación.
 ACCIDENTES Y SALUD.
+Facturas originales debidamente pagadas y que cumplan con todos los requisitos para efectos fiscales.
 Reclamos.
 Reclamos de coberturas de Gastos Médicos 15 días hábiles.
+Facturas originales debidamente pagadas y que cumplan con todos los requisitos para efectos fiscales.
 Formulario Solicitud de Beneficios.
-Facturas originales debidamente pagadas.
 Copia de los Resultados. (en casos necesarios y obligatorio en INS Medical)
 Copia de Recetas.
-Reclamos de cobertura de muerte 15 días hábiles.
+Reclamos de cobertura de muerte INS Medical/ Accidentes
 Carta del contratante o del beneficiario solicitando la indemnización.
 Boleta de autorización para revisar expedientes médicos.
 Certificado original de defunción emitido por el Registro Civil en el que se indiquen las causas de la muerte.
 Nombre de los centros médicos en que fue atendido.
-Fotocopia de la cédula del fallecido y del beneficiarios para los casos de pólizas individuales.
+Fotocopia de la cédula del fallecido y de los beneficiarios.
 Reclamos de la cobertura de sepelio 15 días hábiles.
 Carta del beneficiario solicitando la indemnización.
-Factura original de la funeraria.
+Factura original de la funeraria que cumpla con todos los requisitos pare efectos fiscales.
 Fotocopia de la cédula del beneficiario.
 Reclamo de la cobertura de pérdida de equipaje 15 días hábiles.
 Denuncia ante la línea aérea, naval o autoridad aeroportuaria.
-Fotocopia del pasaje.
+Fotocopia del pasaje y /o recibo del pago hecho por la aerolínea.
 Original y copia de la indemnización que dio la línea aérea o declaración del Asegurado de haber recibido la indemnización. (esto sólo en casos de pérdida definitiva del equipaje)
 Reclamo de la cobertura de cancelación y acortamiento de viaje 15 días hábiles.
 Certificado médico para los casos de enfermedad.
 Certificado original de la línea aérea de dicha cancelación.
 Facturas originales de los gastos incurridos por la cancelación.
 Fotocopia del pasaje cancelado.
+Constancia que certifique la relación de parentesco.
+Nota en la que el asegurado solicita que se le indemnice ese concepto.
+Nota en la que el asegurado solicita que se le indemnice ese concepto.
+Carta del emisor reportando el evento
+Solicitud original del seguro que firmó el asegurado
+Impresión del registro de primas pagadas
+Fotocopia del documento de identificación del asegurado
+Fotocopia de la tarjeta de crédito (solo para los casos de fraude)
+Fotocopia del pasaporte del Asegurado en caso de que se trate de cargos hechos en el exterior
+Copia del video del emisor, en caso de asalto en cajeros
+Impresión de los movimientos con la información de cada transacción, la fecha, la hora, el monto, comercio, país, número de referencia y número de autorización
+Impresión del registro de bloqueo de tarjeta (en caso de pérdida o de robo)
+Copia de la investigación hecha por el emisor, así como el resultado y la determinación del monto a pagar.
+Copia de los estados de cuenta del Asegurado con los movimientos potencialmente susceptibles de indemnización.
+Copia de la “Carta de Reclamo” r
+Copia de la Denuncia del Organismo de Investigación Judicial
+Copia de Vouchers de las transacciones.
+Reclamos del Seguro de Desempleo
+El asegurado debe dar aviso del reclamo al Contratante, dentro de los siguientes cinco (5) días hábiles a partir del momento en que quedó desempleado.
+Copias de los comprobantes de salarios pagados en los últimos seis (6) mese, o en su defecto, constancia emitida por ex patrono de los últimos seis (6) meses pagados.
+Carta de despido indicando motivo y si el mismo se da con o sin responsabilidad patronal
+Constancia emitida por la CCSS en la que se indique que el Asegurado ha estado cotizando para ese régimen, durante los últimos 6 meses. El asegurado será el responsable de brindar las pruebas requeridas para que se proceda al análisis del reclamo.
+Iniciado el estudio de pago el asegurado será responsable de actualizar la constancia Estudio de cuotas emitido por la CCSS, cada tres meses.
 Constancia que certifique la relación de parentesco.
 ACCIDENTES Y SALUD.
 Aseguramiento.
@@ -1314,9 +1357,6 @@ Si es de grupo Familiar debe indicar los mismos datos para los familiares a incl
 Póliza U. 10 días.
 Carta del contratante solicitando el seguro, indicando el nombre del Centro Educativo, cédula jurídica, número de estudiantes matriculados por periodos, fecha de inicio del periodo.
 Listado en orden alfabético por apellido, de los estudiantes matriculados por periodos.
-Accidente Estudiantil en Práctica Profesional. 10 días.
-Carta del Contratante solicitando el seguro, indicando, Razón Social del Colegio, cédula jurídica, número de estudiantes a realizar la práctica, opción deseada y la fecha de inicio de la práctica.
-Listado en Orden alfabético por apellido de los estudiantes con los datos personales y el nombre de la empresa donde cada uno de ellos realizará la práctica.
 Asientos de Vehículos. 15 días.
 Carta del Contratante solicitando el seguro, indicando, Razón Social, cédula jurídica, Montos asegurados deseados para cada una de las coberturas, forma de pago.
 Listado de vehículos a incluir, indicando Tipo de Vehículo, Nº de Placa, Número de motor o chasis, Número de asientos, Marca y modelo, estado actual.
@@ -1333,64 +1373,70 @@ Solicitud de Indemnización por defunción del Asegurado. Vida Individual
 Llenar formulario “Solicitud de reclamo”, del Departamento de Vida, en su parte correspondiente.
 Fotocopia de la cédula de identidad del asegurado y de los beneficiarios por ambos lados.
 Si el beneficiario es menor de edad, se debe presentar “Certificado de nacimiento extendido por el Registro Civil”, “Certificado del Registro Público sobre Apoderados del Menor de Edad”, “Fotocopia de la cédula de identidad de la madre o del padre supérstite.
-Certificado del Registro Civil original con causa de muerte, con el folio, tomo y asiento correspondiente.
-Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol o tóxicos en la sangre.
+Certificado de defunción extendido por el Registro Civil que contenga las causas de muerte debidamente inscrito con tomo folio y asiento
+Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol y tóxicos en la sangre.
 Además se debe presentar cualquier prueba adicional que se requiera, de acuerdo con el estado de salud que declare en la solicitud de seguro y/o el análisis de Selección de Riesgos.
 Si el asegurado dejó Testamento, debe presentar una copia certificada del mismo y una certificación del Archivo Nacional que indique que es el último testamento vigente del asegurado.
 Boleta de autorización de revisión de expedientes clínicos, firmada por el beneficiario. Indicando los centros médicos donde se atendió el asegurado durante su vida.
-Documentos póliza.
+Documentos póliza de Vida original o una declaración de extravío de póliza, firmada por el asegurado, debidamente autenticada por un abogado y pagar ¢500.00 por cada duplicado de póliza.
 Si es un reclamo por Incapacidad total y permanente del asegurado y la póliza tiene beneficios adicionales que cubran.
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren investigación (Historia Clínica) 2 semanas si se requiere información de salud del asegurado 5 semanas.
 Llenar el formulario “Solicitud de reclamo” del Departamento de Vida, en su parte correspondiente.
 Fotocopia de la cédula de identidad del asegurado.
-Boleta de autorización de revisión de expedientes clínicos. Indicando los centros de salud donde fue atendido el asegurado
+Boleta de autorización de revisión de expedientes clínicos. Indicando los centros de salud donde fue atendido el asegurado durante toda su vida.
 Certificado de Incapacidad, extendido por la Caja Costarricense del Seguro Social, ó el Poder Judicial, ó el Ministerio de Trabajo, ó el Instituto Nacional de Seguros, ó la Medicatura Forense, que indique que la invalidez se otorga NO SUJETA A REVISION el diagnóstico y la fecha exacta de la incapacidad.
 Documento póliza de Vida original o una declaración de extravío de póliza, firmada por el asegurado, debidamente autenticada por un abogado y pagar ¢500.00 por cada duplicado de póliza.
-Certificados de los médicos tratantes, marcando claramente la evolución de la enfermedad incapacitante indicando, sintomatología e inicio.
+Certificados de los médicos tratantes, marcando claramente la evolución de la enfermedad incapacitante indicando, sintomatología e inicio, marcando claramente tanto la evolución de los síntomas como el diagnóstico.
 Si el reclamo es por desmembramiento ó pérdida de la vista por causa accidental y la póliza tiene el beneficio adicional que lo cubra.
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren investigación (Historia Clínica) 5 semanas si se requiere información del asegurado.
 Llenar el formulario “Solicitud de reclamo” del Departamento de Vida, en su parte correspondiente.
 Fotocopia de la cédula de identidad del asegurado.
 Documento póliza de Vida original o una declaración de extravío de póliza, firmada por el asegurado, debidamente autenticada por un abogado y pagar ¢500.00 por cada duplicado de póliza.
-Una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol o tóxicos en la sangre. Estos documentos deben venir sellados por el Juzgado correspondiente
 Boleta de autorización de revisión de expedientes clínicos, firmada por el asegurado. Indicando los centros médicos donde se ha tratado.
+Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol y tóxicos en la sangre.
 Si el reclamo es por enfermedad crítica, terminal o por transplante de órganos y la póliza tiene el beneficio adicional que lo cubra.
-15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren investigación (Historia Clínica) 5 semanas si se requiere información del asegurado.
+15 días después de obtener los documentos probatorios de oficinas gubernamentales.
 Llenar el formulario “Solicitud de reclamo” del Departamento de Vida, en su parte correspondiente.
 Fotocopia de la cédula de identidad del asegurado.
 Documento póliza de Vida original o una declaración de extravío de póliza, firmada por el asegurado, debidamente autenticada por un abogado y pagar ¢500.00 por cada duplicado de póliza.
-Certificados de los médicos tratantes de la enfermedad crítica, terminal o necesidad de transplante de órganos, que establezca: tipo de enfermedad o transplante de órgano que tiene el asegurado, evolución con sintomatología y fecha de inicio, expectativa
+Certificados de los médicos tratantes de la enfermedad crítica, terminal o necesidad de transplante de órganos, que establezca: tipo de enfermedad o transplante de órgano que tiene el asegurado, evolución con sintomatología y fecha de inicio, expectativa marcando claramente tanto la evolución de los síntomas como el diagnóstico.
 Boleta de autorización de revisión de expedientes clínicos, firmada por el asegurado. Indicando los centros médicos donde se ha tratado
 Solicitud de Indemnización por defunción del Asegurado. VIDA COLECTIVA
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren Investigación 7 (Historia Clínica) 2 semanas 5 semanas para los casos que requieren investigación.
-Carta del Contratante solicitando la indemnización La mayoría de los seguros colectivos se pagan al contratante.
-Fotocopia de la cédula de identidad del asegurado si se paga al Contratante, si se paga a los beneficiarios, fotocopia de la cédula de identidad de los beneficiarios por ambos lados.
+Carta del Contratante solicitando la indemnización que indique fecha de inclusión del asegurado en el seguro, monto asegurado a la fecha del siniestro.
+Fotocopia de la cédula de identidad del asegurado en todos los casos.Si se paga a los beneficiarios, fotocopia de la cédula de identidad de los beneficiarios por ambos lados.
 Si el beneficiario es menor de edad, se debe presentar “Certificado de nacimiento extendido por el Registro Civil”, “Certificado del Registro Público sobre Apoderados del Menor de Edad”, “Fotocopia de la cédula de identidad de la madre o del padre supérstite.
 Certificado del Registro Civil original con causa de muerte, con el folio, tomo y asiento correspondiente.
-Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol o tóxicos en la sangre.
+Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol y tóxicos en la sangre.
 Además se debe presentar cualquier prueba adicional que se requiera, de acuerdo con el estado de salud que declare en la solicitud de seguro y/o el análisis de Selección de Riesgos.
 Si la póliza estipula que se pague al beneficiario y el asegurado dejó Testamento, debe presentar una copia certificada del mismo y una certificación del Archivo Nacional que indique que es el último testamento vigente del asegurado.
 Boleta de autorización de revisión de expedientes clínicos, firmada por el beneficiario. Indicando los centros médicos donde se atendió el asegurado durante su vida.
 Si es un reclamo por Incapacidad total y permanente del asegurado y la póliza tiene beneficios adicionales que cubran.
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren Investigación (Historia Clínica) 2 semanas si se requiere información de salud del asegurado 5 semanas.
-Carta del Contratante solicitando la indemnización
+Carta del Contratante solicitando la indemnización que indique fecha de inclusión del asegurado en el seguro, monto asegurado a la fecha del siniestro.
 Fotocopia de la cédula de identidad del asegurado.
-Boleta de autorización de revisión de expedientes clínicos. Indicando los centros de salud donde fue atendido el asegurado
+Boleta de autorización de revisión de expedientes clínicos. Indicando los centros de salud donde fue atendido el asegurado durante toda su vida
 Certificado de Incapacidad, extendido por la Caja Costarricense del Seguro Social, ó el Poder Judicial, ó el Ministerio de Trabajo, ó el Instituto Nacional de Seguros, ó la Medicatura Forense, que indique que la invalidez se otorga NO SUJETA A REVISIÓN el diagnóstico y la fecha exacta de la incapacidad
-Certificados de los médicos tratantes, marcando claramente la evolución de la enfermedad incapacitante indicando, sintomatología e inicio.
+Certificados de los médicos tratantes, marcando claramente la evolución de la enfermedad incapacitante indicando, sintomatología e inicio marcando claramente tanto la evolución de los síntomas como el diagnóstico
 Si el reclamo es por desmembramiento ó pérdida de la vista por causa accidental y la póliza tiene el beneficio adicional que lo cubra.
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren investigación (Historia Clínica) 5 semanas Si se requiere información de salud del asegurado.
-Carta del Contratante solicitando la indemnización
+Carta del Contratante solicitando la indemnización que indique fecha de inclusión del asegurado en el seguro, monto asegurado a la fecha del siniestro
 Fotocopia de la cédula de identidad del asegurado.
-Una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol o tóxicos en la sangre. Estos documentos deben venir sellados por el Juzgado correspondiente .
-Boleta de autorización de revisión de expedientes clínicos, firmada por el asegurado. Indicando los centros médicos donde se ha tratado.
+Si la muerte es accidental y la póliza tiene beneficio DID, debe presentar una copia de la Sumaria Judicial, que contenga la descripción de hechos y el dictamen médico legal con las pruebas del laboratorio forense sobre alcohol y tóxicos en la sangre
+Boleta de autorización de revisión de expedientes clínicos, firmada por el asegurado. Indicando los centros médicos donde se ha tratado durante toda su vida
 Si el reclamo es por Beneficio Familiar y la póliza tiene el beneficio adicional que lo cubra.
 15 días después de obtener los documentos probatorios de oficinas gubernamentales. Para los casos que no requieren investigación (Historia Clínica) 5 semanas si se requiere información de salud del asegurado.
-Carta del Contratante solicitando la indemnización.
+Carta del Contratante solicitando la indemnización que indique fecha de inclusión del asegurado en el seguro, monto asegurado a la fecha del siniestro
 Fotocopia de la cédula de identidad del asegurado y del familiar fallecido (cónyuge , e hijos).
 Boleta de autorización de revisión de expedientes clínicos, firmada por el asegurado. Indicando los centros médicos donde fue atendido durante su vida el fallecido.
-Certificado de defunción del familiar fallecido indicando las causas de muerte con el tomo folio y asiento correspondientes.
+Certificado de defunción extendido por el Registro Civil que contenga las causas de muerte debidamente inscrito con tomo folio asiento correspondientes.
 Documento probatorio de la relación del fallecido con el asegurado (certificación de nacimiento, constancia de matrimonio etc) extendido por el Registro Civil.
+Si el reclamo es del Seguro Microcréditos
+Dar aviso escrito del reclamo al Acreedor, dentro de los siguientes cinco (5) días de quedar Desempleado.
+El Acreedor facilitará al Asegurado un formulario, el cual deberá ser completado y devuelto al mismo, con toda la información solicitada. El Acreedor tendrá treinta días hábiles para presentar el reclamo ante el Instituto.
+Constancia del expatrono donde indique el período laborado y el salario devengado de los últimos seis meses, anteriores a la fecha del despido o constancia emitida por la CCSS, donde indique que el Asegurado ha estado cotizando para ese régimen, durante los últimos seis (6) meses, anteriores a la fecha de emisión del seguro y seis (6) meses anteriores a la fecha del despido.
+Carta de despido. 10 días.
+Fotocopia de la cédula.
 VIDA.
 Aseguramiento
 Ventas de Seguro de Vida Global, Universal, Dólares y Vida Individual 10 días.
@@ -1652,212 +1698,507 @@ Colesterol total, Colesterol de Alta Densidad (Fracción HDL) y Triglicéridos.
 Bilirrubina total y fraccionada.
 Creatinina.
 Nitrógeno ureico.
-Colectivos de Vida Obrero-Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): Hasta $50,000.00 (De 18 años y más).
+Colectivos de Vida (en dólares): Hasta $80.000,00 (De 18 años a 50 años)
 Sin requisitos.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado,Asociaciones, Sindicatos y otros (en dólares): De $50,001.00 hasta $100,000.00 (De 18 a 50 años).
-Declaración de Salud (INS-F-1000537).
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): De $50,001.00 hasta $100,000.00 (De 51 años y más).
-Examen médico.
-Uroanálisis.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): De $100,001.00 a $150,000.00 (De 18 a 50 años).
-Examen médico.
-Uroanálisis.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): De $100,001.00 a $150,000.00 (De 51 años y más).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): De $150,001.00 hasta $200,000.00 (De 18 años en adelante).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): De $200,001.00 hasta $250,000.00 (De 18 años en adelante).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y otros (en dólares): Más de $250,000.00 (De 18 años en adelante).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Certificación de Contador Público Autorizado que indique Ingresos (de dónde provienen, otras utilidades, Promedio de Ingresos del año anterior a
-la solicitud, etc.)
-Glicemia en ayunas.
-Transaminasas SGPT y SGOT.
-Gamaglutamil transpeptidasa (GGT).
-Colesterol total, Colesterol de Alta Densidad (Fracción HDL) y Triglicéridos.
-Bilirrubina total y fraccionada.
-Creatinina.
-Nitrógeno ureico.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): Hasta ¢21,000,000.00 (De 18 años en adelante).
+Colectivos de Vida (en dólares): Hasta $80.000,00 (De 51 años a 65 años)
 Sin requisitos.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢21,000,001.00 hasta ¢35,000,000.00 (De 18 a 50 años).
-Declaración de Salud (INS-F-1000537).
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢21,000,001.00 hasta ¢35,000,000.00 (De 51 años y más).
+Colectivos de Vida (en dólares): De $80,001.00 hasta $ 175,000.00 (De 18 a 50 años).
+Declaración Breve V7
+Colectivos de Vida (en dólares): De $80,001.00 hasta $ 175,000.00 (De 51 a 65 años).
+Declaración Breve V7
+Colectivos de Vida (en dólares): de $175,001.00 hasta $ 225,000.00 (DE 18 a 50 años)
+Examen médico.
+Uro análisis.
+Colectivos de Vida (en dólares): de $175,001.00 hasta $ 225,000.00 (DE 51 a 65 años)
+Examen médico.
+Uro análisis.
+electrocardiograma de reposo
+valoración cardiovascular
+Colectivos de Vida (en dólares): de $225,001.00 a $ 275,000.00 (De 18 a 50 años).
+Examen médico.
+Uro análisis.
+electrocardiograma de reposo
+valoración cardiovascular
+Colectivos de Vida (en dólares): de $225,001.00 a $ 275,000.00 (De 51 años a 65 años).
+Examen médico.
+Uro análisis.
+electrocardiograma de reposo
+valoración cardiovascular.
+Colectivos de Vida (en dólares): de $275,001.00 a $ 325,000.00 (De 18 años a 50 años)
+Examen médico.
+uro análisis.
+test de Elisa
+electrocardiograma de reposo
+valoración Cardiovascular.
+informe confidencial
+Colectivos de Vida (en dólares): de $275,001.00 a $ 325,000.00 (De 51 años a 65 años)
+Examen médico.
+uro análisis.
+test de Elisa
+electrocardiograma de reposo
+valoración Cardiovascular.
+Colectivos de Vida (en dólares): más de 325.000.00 (De 18 años a 50 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida (en dólares): más de $325,000.00 (De 51 a 65 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida para mayores de 65 años (en dólares): Hasta $50,000.00 (De 66 a 70 años).
+Declaración de Salud tradicional V7
+Colectivos de Vida para mayores de 65 años (en dólares): Hasta $50,000.00 ( Más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático (en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en dólares): De $50,001 a $ 100,000.00 (De 66 a 70 años).
+Examen Médico
+uro análisis
+Colectivos de Vida para mayores de 65 años (en dólares): De $50,001 a $ 100,000.00 ( Para más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático (en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en dólares): De $100,001 a $200,000 (De 66 a 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en dólares): De $100,001 a $200,000 (Más de 70 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida (en colones): Hasta ¢40,000,000.00 (De 18 años a 50 años).
+Sin requisitos.
+Colectivos de Vida (en colones): Hasta ¢40,000,000.00 (De 51 años a 65 años).
+Sin requisitos.
+Colectivos de Vida (en colones): De ¢40,000,001.00 a ¢87,500,000 (De 18 a 50 años).
+Declaración Breve V7
+Colectivos de Vida (en colones): De ¢40,000,001.00 a ¢87,500,000 (De 51 a 65 años).
+Declaración Breve V7
+Colectivos de Vida (en colones): De ¢87,500,001.00 a ¢112,500,000 de 18 a 50 años)
+Examen Médico.
+uro análisis.
+Colectivos de Vida (en colones): De ¢87,500,001.00 a ¢112.500,000 de 51 a 65 años)
+Examen Médico.
+uroanálisis.
+electrocardoograma de reposo
+valoración cardiovascular
+Colectivos de Vida (en colones): De ¢ 112,500,0001.00 a ¢137,500,000 de 18 a 50 años)
 Examen Médico.
 Uroanálisis.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢35,000,001.00 a ¢50,000,000.00 (De 18 a 50 años).
+electrocardiograma de reposo
+valoración cardiovascular.
+Colectivos de Vida (en colones): De ¢112,500,0001.00 a ¢137,500,000 de 51 a 65 años)
 Examen Médico.
-Uroanálisis.
-Colectivos de Vida, Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢35,000,001.00 a ¢50,000,00.00 (De 51 años y más).
+Uro análisis.
+electrocardiograma de reposo
+valoración cardiovascular.
+Colectivos de Vida (en colones): De ¢135,500,001.00 a ¢162,500,000 de 18 a 50 años)
 Examen Médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢50,000,001.00 a ¢75,000,000.00 (De 18 años en adelante).
-Examen Médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): De ¢75,000,001.00 a ¢100,000,000.00 (De 18 años en adelante).
-Examen Médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
+uro análisis.
+Electrocardiograma de reposo
+Valoración Cardiovascular.
 Test de Elisa (HIV).
 Informe confidencial.
-Colectivos de Vida Obrero Patronal, Salarios, Monto Uniforme, Escalonado, Asociaciones, Sindicatos y Otros (en colones): Más de ¢100,000,000.00 (De 18 años en adelante).
+Colectivos de Vida (en colones): De ¢135,500,001.00 a ¢162,500,000 de 51 a 65 años)
+Examen Médico.
+uro análisis.
+Electrocardiograma de reposo
+Valoración Cardiovascular.
+Test de Elisa (HIV).
+Informe confidencial.
+Colectivos de Vida (en colones): Más de ¢162,500,000.00 (De 18 a 50 años ).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida (en colones): Más de ¢162,500,000.00 (De 51 a 65 años ).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida para mayores de 65 años (en colones): Hasta ¢25,800.000 (De 66 a 70 años).
+Declaración de Salud tradicional V7
+Colectivos de Vida para mayores de 65 años (en colones): Hasta ¢25,800.000 (Más de 70 años).
 Examen Médico
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Certificación de Contador Público Autorizado que indique Ingresos (de dónde provienen, Otras utilidades, Promedio de Ingresos del año anterior a la solicitud, etc.)
-Glicemia en ayunas.
-Transaminasas SGPT y SGOT.
-Gamaglutamil transpeptidasa (GGT).
-Colesterol total, Colesterol de Alta Densidad (Fracción HDL) y Triglicéridos.
-Bilirrubina total y fraccionada.
-Creatinina.
-Nitrógeno ureico.
-Colectivos de Saldos Deudores (en dólares): Hasta $50,000.00 (De 18 años y más).
-Sin requisitos.
-Colectivos de Saldos Deudores (en dólares): De $50,001.00 hasta $150,000.00 (De 18 años y más).
-Declaración Breve de Salud (V4).
-Colectivos de Saldos Deudores (en dólares): De $150,001.00 a $200,000.00 (De 18 a 50 años).
-Examen médico.
-Uroanálisis.
-Colectivos de Saldos Deudores (en dólares): De $100,001.00 a $200,000.00 (De 51 años y más).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Saldos Deudores (en dólares): De $200,001.00 hasta $250,000.00 (De 18 años en adelante)
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Saldos Deudores (en dólares): De $250,001.00 hasta $300,000.00 (De 18 años en adelante)
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Colectivos de Saldos Deudores (en dólares): Más de $300,000.00 (De 18 años en adelante).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Certificación de Contador Público Autorizado que indique Ingresos (de dónde provienen, otras utilidades, Promedio de Ingresos del año anterior a la solicitud, etc.)
-Glicemia en ayunas.
-Transaminasas SGPT y SGOT.
-Gamaglutamil transpeptidasa (GGT).
-Colesterol total, Colesterol de Alta Densidad (Fracción HDL) y Triglicéridos.
-Bilirrubina total y fraccionada.
-Creatinina.
-Nitrógeno ureico.
-Colectivos de Saldos Deudores (en colones): Hasta ¢25,800,000.00 (De 18 años y más).
-Sin requisitos.
-Colectivos de Saldos Deudores (en colones): De ¢25,800,001.00 hasta ¢75,000,000.00 (De 18 años y más).
-Declaración Breve de Salud (V4).
-Colectivos de Saldos Deudores (en colones): De ¢75,000,001.00 a ¢103,000,000.00 (De 18 a 50 años).
-Examen médico.
-Uroanálisis.
-Colectivos de Saldos Deudores (en colones): De ¢75,000,001.00 a ¢103,000,000.00 (De 51 años y más).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Saldos Deudores (en colones): De ¢103,000,001.00 hasta ¢129,000,000.00 (De 18 años en adelante)
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Colectivos de Saldos Deudores (en colones): De ¢129,000,001.00 hasta ¢155,000,000.00 (De 18 años en adelante)
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Colectivos de Saldos Deudores (en colones): Más de ¢155,000,000.00 (De 18 años en adelante).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Test de Elisa (HIV).
-Informe Confidencial.
-Certificación de Contador Público Autorizado que indique Ingresos (de dónde provienen, otras utilidades, Promedio de Ingresos del año anterior a la solicitud, etc.)
-Glicemia en ayunas.
-Transaminasas SGPT y SGOT.
-Gamaglutamil transpeptidasa (GGT).
-Colesterol total, Colesterol de Alta Densidad (Fracción HDL) y Triglicéridos.
-Bilirrubina total y fraccionada.
-Creatinina.
-Nitrógeno ureico.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en dólares): Hasta $50,000.00 (De 66 a 70 años).
-Declaración de Salud (INS-F-1000537).
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en dólares): Hasta $50,000.00 (Más de 70 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en dólares): De $50,001.00 hasta $100,000.00 (De 66 a 70 años).
-Examen médico.
-Uroanálisis.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en dólares): De $50,001.00 hasta $100,000.00 (Más de 70 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en dólares): De $100,001.00 hasta $200,000.00 (Más de 66 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en colones): Hasta ¢25,800,000.00 (De 66 a 70 años).
-Declaración de Salud (INS-F-1000537).
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en colones): Hasta ¢25,800,000.00 (Más de 70 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en colones): De ¢25,800,001.00 hasta ¢51,600,000.00 (De 66 a 70 años).
-Examen médico.
-Uroanálisis.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en colones): De ¢25,800,001.00 hasta ¢51,600,000.00 (Más de 70 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Seguro Temporal Decreciente Colectivos de Vida y Saldos Deudores (en colones): De ¢51,600,001.00 hasta ¢103,200,000.00 (Más de 66 años).
-Examen médico.
-Uroanálisis.
-Electrocardiograma de Reposo y su Valoración Cardiovascular.
-Antígeno Prostático en el caso de los hombres.
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en dólares): Hasta $20,000.00 (Todas las edades).
-Sin requisitos.
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en dólares): De $20,001.00 a $35,000.00 (De 18 a 50 años).
-Declaración de Salud (INS-F-1000537).
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en dólares): De $20,001.00 a $35,000.00 (De 51 años y más).
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en colones): De ¢25,800.001 a ¢ 51,600,000 (De 66 a 70 años).
+Examen médico
+uro análisis
+Colectivos de Vida para mayores de 65 años (en colones): De ¢25,800.001 a ¢ 51,600,000 (Más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en colones): De ¢51,600.001 a ¢ 100,000,000 (De 66 a 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Colectivos de Vida para mayores de 65 años (en colones): De ¢51,600.001 a ¢ 100,000,000 (Más de 70 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere
+Protección Credicticia (en dólares): Hasta $80,000.00 (De 18 a 50 años)
+Sin requisitos
+Protección Credicticia (en dólares): Hasta $80,000.00 (De 51 a 65 años)
+Sin requisitos
+Protección Credicticia (en dólares): De $80,001.00 hasta $ 175,000.00 (De 18 a 50 años)
+Declaración Breve V4
+Protección Credicticia (en dólares): De $80,001.00 hasta $ 175,000.00 (De 51 a 65 años)
+Declaración Breve V4
+Protección Credicticia (en dólares): De $175,001.00 hasta $ 225,000.00 (De 18 a 50 años)
+Examen médico
+uro análisis
+Protección Credicticia (en dólares): De $175,001.00 hasta $ 225,000.00 (De 51 a 65 años)
+Examen médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascualr
+Protección Credicticia (en dólares): De $225,001.00 hasta $ 275,000.00 (De 18 a 51 años)
+Examen médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Protección Credicticia (en dólares): De $225,001.00 hasta $ 275,000.00 (De 51 a 65 años)
+Examen médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Protección Credicticia (en dólares): De $275,001.00 hasta $ 325,000.00 (De 18 a 50 años)
+Examen médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Test de Elisa ( HIV)
+Informe Confidencial
+Protección Crediticia (en dólares): De $275,001.00 hasta $325,000.00 (De 51 a 65 años).
 Examen Médico.
-Uroanálisis.
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en colones): Hasta ¢5,000,000.00 (Todas las edades).
-Sin requisitos.
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en colones): De ¢5,000,001.00 a ¢10,000,000.00 (De 18 a 50 años).
-Declaración de Salud (INS-F-1000537).
-Colectivos de Tarjeta habientes y Operadora de Pensiones (en colones): De ¢5,000,001.00 a ¢10,000,000.00 (De 51 años y más).
+Uro análisis.
+Electrocardiograma de reposo
+Valoración Cardiovascular.
+Test de Elisa (HIV).
+Informe confidencial.
+Protección Crediticia (en dólares): más de $325,000.00 (De 18 a 50 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Protección Crediticia (en dólares): más de $325,000.00 (De 50 a 65 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Protección Crediticia para mayores de 65 años (en dólares): Hasta $50,000.00 (De 66 a 70 años).
+Declaración de Salud tradicional V7
+Protección Crediticia para mayores de 65 años (en dólares): Hasta $50,000.00 (más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Protección Crediticia para mayores de 65 años (en dólares): De $50,001.00 a $ 100,000,00 (de 66 a 70 años).
+Examen Médico
+uro análisis
+Protección Crediticia para mayores de 65 años (en dólares): De $50,001.00 a $ 100,000,00 (más de 70 años).
+Exámen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Protección Crediticia para mayores de 65 años (en dólares): De $100,001.00 a $ 200,000,00 (de 66 a 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Protección Crediticia para mayores de 65 años (en dólares): De $100,001.00 a $ 200,000,00 (más de 70 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Protección Crediticia (en colones): Hasta $ 40,000.00 (De 18 años a 50 años)
+Sin requisitos
+Protección Crediticia (en colones): Hasta $ 40,000.00 (De 51 a 65 años)
+Sin requisitos
+Protección Crediticia (en colones): De ¢ 40,000.001.00 a ¢87.500,00 (De 18 a 50 años)
+Declaración Breve V4
+Protección Crediticia (en colones): De ¢ 40,000.001.00 a ¢87.500,00 (De 51 a 65 años)
+Declaración Breve V4
+Protección Crediticia (en colones): De ¢87.500,001.00 a ¢112,500,00 (de 18 a 50 años)
+Examen Médico
+uro análisis
+Protección Crediticia (en colones): De ¢87.500,001.00 a ¢112,500,00 de 51 a 65 años)
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Protección Crediticia (en colones): De ¢112,500,001.00 a ¢137,500,000 (de 18 a 50 años).
+Examen Médico
+Uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Protección Crediticia (en colones): De ¢112,500,001.00 a ¢137,500,000 (de 51 a 65 años).
+Examen Médico
+Uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+Protección Crediticia (en colones): De ¢137,500,001.00 a ¢162,500,000 (de 18 a 50 años).
 Examen Médico.
-Uroanálisis.
-Colectiva de Vida del Colegio de Médicos (en dólares): Monto único de $10,000.00 (De 23 a 50 años)
+Uro análisis.
+Electrocardiograma de reposo
+Valoración Cardiovascular.
+Test de Elisa (HIV).
+Informe confidencial.
+Protección Crediticia (en colones): De ¢137,500,001.00 a ¢162,500,000 de 51 a 65 años ).
+Examen Médico.
+Uro análisis.
+Electrocardiograma de reposo
+Valoración Cardiovascular.
+Test de Elisa (HIV).
+Informe confidencial.
+Protección Crediticia (en colones): Más de ¢162,500,000 (de 18 a 50 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Protección Crediticia (en colones): Más de ¢162,500,000 (de 51 a 65 años).
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT r
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Protección Crediticia para mayores de 65 años (en colones): Hasta ¢25,800,000.00 (De 66 a 70 años).
+Declaración de Salud tradicional V7
+Protección Crediticia para mayores de 65 años (en colones): Hasta ¢25,800,000.00 (más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Examen Médico
+Uro análisis
+Protección Crediticia para mayores de 65 años (en colones): De ¢25,800,001 a ¢51,600,000 (más de 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático ( en el caso de los hombres)
+Protección Crediticia para mayores de 65 años (en colones): De ¢51,600,001 a ¢100,000,000 ( de 66 a 70 años).
+Examen Médico
+uro análisis
+electrocardiograma de reposo
+valoración cardiovascular
+antígeno prostático
+antígeno prostático ( en el caso de los hombres)
+Examen médico
+uro análisis
+Test de Elisa
+electrocardiograma de reposo
+valoración cardiovascular
+glicemia en ayunas
+Tranasminasas SGPT y SGOT
+gamaglutil transpeptidasa
+Bilirrubina total
+bilirrubina directa
+Bilirrubina indirecta
+creatinina
+nitrógeno ureico
+colesterol total
+colesterol de alta densidad (fracción HDL)
+triglicéridos
+informe confidencial
+Certificación Contador Público autorizado que indique al menos: monto de ingresos del año inmediato anterior a solicitud del seguro, actividad económica de que provienen y otras utilidades si las hubiere.
+Colectivos de Vida Operadora de Pensiones (en dólares): Hasta $20,000.00 (De 18 a 50 años).
+Sin requisitos
+Colectivos de Vida Operadora de Pensiones (en dólares): Hasta $20,000.00 (De 51 a 65 años).
+Sin requisitos
+Colectivos de Vida Operadora de Pensiones (en dólares): Hasta de $20,001 a $ 40,000 (De 18 a 50 años).
+Declaración de Salud tradicional V7
+Colectivos de Vida Operadora de Pensiones (en dólares): Hasta de $20,001 a $ 40,000 (De 51 a 65 años).
+Examen médico
+uro análisis
+Colectivos de Vida Operadora de Pensiones (en colones): Hasta ¢10,000,000.00 (De 18 a 50 años).
+Sin requisitos.
+Colectivos de Vida Operadora de Pensiones (en colones): Hasta ¢10,000,000.00 (De 51 a 65 años).
+Sin requisitos.
+Colectivos de Vida Operadora de Pensiones (en colones): De ¢10,000.001 a ¢20,000,000 (De 18 a 50 años).
+Declaración de Salud tradicional V7
+Colectivos de Vida Operadora de Pensiones (en colones): De ¢10,000.001 a ¢20,000,000 (De 51 a 65 años).
+Examen médico
+uro análisis
+Colectiva de Vida del Colegio de Médicos (en dólares): Monto único de $100,000.00 (De 23 a 50 años)
 Declaración de Salud (INS-F-1000537)
-Colectiva de Vida del Colegio de Médicos (en dólares): Monto único de $10,000.00 (De 51 años y más)
+Colectiva de Vida del Colegio de Médicos (en dólares): Monto único de $100.000,00 (De 51 años y más)
 Examen médico.
-Uroanálisis.
+Uro análisis.
 Vida Global: Hasta ¢10,000,000.00 (De 15 a 45 años con índices de crecimiento de 5%, 10% y 15%)
 Declaración de Salud (INS-F-1000537).
 Vida Global: Hasta ¢10,000,000.00 (De 46 a 55 años con índices de crecimiento de 5% y 10%)
@@ -2053,11 +2394,13 @@ Aplicación Depósito bancario con fotocopia. 24 horas.
 Carta indicando el motivo del por qué no presenta el original.
 Devolución de Depósito bancario con fotocopia. 8 horas hábiles.
 Carta del motivo de la devolución.
-Documento original del Depósito bancario, si no es posible presentar el original, carta del motivo por el cual no presenta el original del depósito.
-Afiliación Cargo Automático. Afiliación inmediato, rebajo en 30 días naturales.
+Documento original del Depósito bancario, si no es posible presentar el original, carta del motivo por el cual no presenta el original del depósito. Si el depósito se realizó con cheque, copia del mismo.
+Fotocopia de la Cédula del depositante o autorización y copia de la cédula del depositante y del autorizado.
+Afiliación Cargo Automático. Afiliacióninmediata, rebajo en 30 días naturales.
 Pagar dos meses por adelantado de la Hipoteca.
 Llenar la boleta de afiliación a Cargo Automático.
 Presentar la tarjeta a la que se hará el rebajo.
+Fotocopia de la cédula de identidad.
 Devolución por concepto de Dobles Cargos o Deducción Mensual. 15 minutos.
 Presentarse a Oficinas Centrales o a una Sede del INS a solicitar la devolución.
 Cédula si es el interesado, si es otra persona la que realiza el trámite, autorización escrita y fotocopia de la cédula de la persona a la que se hizo el doble cargo.
@@ -2066,14 +2409,14 @@ Llenar la boleta de afiliación a los plantes de deducción mensual con los dato
 Que exista el patrono con Plan de Deducción Mensual activo.
 Cédula de Identidad.
 Pagar dos meses por adelantado de la Hipoteca.
-Reporte de Cancelación de Deuda. 10 minutos.
-Recibo de cancelación de la Hipoteca.
-Si es el deudor: cédula original, si es otra persona: autorización escrita y fotocopia de la cédula del deudor, si es de parte del abogado: autorización escrita y fotocopia del carné del abogado.
-Liberación de pólizas. 20 minutos.
+Presentar Cédula de Identidad y fotocopia de la misma.
+Entraga de Informe de Cancelación de Deuda. 10 minutos.
+Si es el deudor: cédula original, si es otra persona: autorización escrita y fotocopia de la cédula del deudor, si es de parte del abogado: autorización escrita y fotocopia del carné del abogado. Este informe se entrega los días lunes, miércoles y viernes.
+Liberación de pólizas por cancelación total de Hipoteca. 20 minutos.
 Si es el deudor el que realiza el trámite: cédula original, recibo de cancelado. Si es otra persona de parte del deudor: Autorización, fotocopia de la cédula, recibo cancelado, recibo del mes anterior, o en su defecto el número de cédula o el nombre completo de deudor.
 Impresión de recibos. 3 minutos.
 Recibo del mes anterior, o en su defecto el número de cédula o el nombre completo del deudor.
-Arreglos de pago saldo de primas de Riesgos del Trabajo y Casos no asegurados de Riesgos del Trabajo. 1 semana.
+Arreglos de pago saldo de primas de Riesgos del Trabajo y Casos no asegurados de Riesgos del Trabajo. Máximo 4 horas.
 Requisitos comunes:
 Pago previo del 25% de la deuda.
 Intereses moratorios.
@@ -2082,27 +2425,362 @@ Gastos Administrativos.
 Original y copia de la cédula y personería jurídica.
 Autorización para firmar el arreglo de pago.
 Para los casos de No asegurados de Riesgos del Trabajo además de lo anterior debe pagar: Recargo administrativo.
-Arreglo de pago por Operaciones Hipotecarias: Máximo 2 semanas.
-Carta del deudor, en los siguientes términos: Solicitando un nuevo arreglo de pago, explicar en que ha mejorado la situación económica actual, con respecto a los meses anteriores, en los cuales no pudo cumplir con el pago de las mensualidades, las características de la propiedad que esta en garantía del crédito (tamaño del terreno y de la construcción en metros cuadrados, dirección exacta de la propiedad, distribución de la construcción, número de dormitorios, sala, comedor, cocina, cochera, patio, etc.) valor estimado de la propiedad, según criterio del deudor. Debe reportar los gastos familiares (aportar copia de los recibos agua, luz, teléfono, alimentación, etc.)
-Constancia de salario emitida por el patrono, con los siguientes datos: salario bruto y Líquido, fecha de ingreso, ocupación y si se encuentra libre de embargos.
+Pago de recargo administrativo en Casos no Asegurados de Riesgos del Trabajo
+Autorización para firmar el arreglo de pago y fotocopia de la cédula jurídica de la empresa
+Constancia de salario emitida por el patrono, con los siguientes datos: salario bruto y Líquido, fecha de ingreso, ocupación y si se encuentra libre de embargos, fotocopia de la orden patronal.
 Si trabaja en lo propio: Constancia de salario, emitida por un Contador Público Autorizado, con un ingreso promedio de los últimos seis meses (como mínimo) y con los mismos datos del punto anterior. En este caso debe adjuntar los documentos que respalden dicha certificación (copias de recibos de ingresos y egresos, documentos de trabajo del profesional, etc.)
-Copia de la orden patronal.
-Cancelación de Prendas y Pagarés: 2 días entrega de Pagarés y 5 días en la entrega de documentos prendarios una vez cancelados.
+Arreglo de pago por Operaciones Hipotecarias y Vales Máximo 5 horas
+Solicitud por escrito firmada por el interesado y fotocopia de la cédula de identidad
+Capacidad de pago: Si es empleado público Debe presentar copia de la orden patronal. Si es asalariado: Constancia de salario emitida por el patrono, con los siguientes datos: a) Salario bruto y líquido, b) Si se encuentra libre de embargos, c) Fecha de ingreso, d) Tiempo de laborar para la empresa; Copia de la Orden Patronal. Si no es asalariado: Certificación de ingresos extendida por un Contador Público Autorizado, indicando: Destinatario (INS), período revisado (últimos 12 meses), documentación revisada, origen de los ingresos, monto promedio de los ingresos brutos y netos, además el Contador deberá hacer referencia de los artículos 20 y 21 del Reglamento del Colegio de Contadores Públicos Autorizados.
+Pagos Previos para formalizar arreglo de pago: 1) 25% de las cuotas atrasadas, 2) Intereses moratorios, 3) Pólizas cedidas pendientes en Cobros, Vida e Incendio., 4) Honorarios y Gastos de Abogado. 5) Gestiones Administrativas. Nota: En caso de estar la deuda en cobro judicial, todo pago previo o cancelación total deberá realizarse en efectivo, cheque certificado o de gerencia o tarjeta de crédito o débito.
+Importante: Para deudas en cobro administrativo y cobro judicial, el deudor cuando formaliza el arreglo de pago se da por enterado y se compromete a lo siguiente: “El atraso de un día en el pago o el incumplimiento de cualquiera de las obligaciones estipuladas en el Arreglo de pago, facultará al INS para trasladar la operación a Cobro Judicial, sin que medie previo aviso. Con la formalización del arreglo de pago, el deudor manifiesta el reconocimiento de la obligación a la fecha, en todos sus extremos sea: la partida de amortización, pólizas, intereses, e intereses moratorios y otros. La constitución del arreglo de pago, suspende en forma temporal (no definitiva), la acción judicial de manera que el incumplimiento en un día de atraso al acuerdo pactado, reanudará de oficio el proceso originalmente interpuesto en la vía judicial. El deudor, expresamente renuncia a invocar el instituto de la deserción mientras el presente arreglo de pago se mantenga vigente.”
+Entrega de Pagaré o prenda por cancelación de Deuda Máximo 5 días despúes de la solicitud, se entrega la prenda o pagaré
 Recibo cancelado.
-Prenda original.
-Certificación de cancelación de la deuda.
-Certificación de Personería Mercantil del apoderado.
-Arreglos de Pago por casos de Subrogación. La aceptación y aprobación es casi inmediata, el mismo día o a lo sumo el día siguiente se puede firmar el pagaré respectivo.
+Arreglos de Pago por casos de Subrogación. Máximo 5 horas
 Solicitud de arreglos de pago.
 Garantía fiduciaria, dos fiadores, los cuales deben ganar 5 veces la cuota que se establezca para el arreglo de pago.
-Tarjeta del caso.
-Sentencia condenatoria.
-Certificación contable de la deuda.
-Finiquito firmado por el asegurado, a la hora de recibir su pago.
-Poder especial si el caso es dado a un tercero, como puede ser el dueño del taller donde se reparte el vehículo asegurado.
+Cédula de identidad y fotocopia de la misma
+Constancia de Salarios y Orden Patronal para los fiadores como persona obligada a pagar
+si no es asalariado, certificación de ingresos emitida por un Contador Público Autorizado (tanto para los fiadores como para la persona obligada a pagar.
+Fotocopia de la cédula de identidad de los fiadores
+Trámite de Cancelación de Hipoteca Máximo 2 horas
+Presentarse en Oficinas Centrales los días martes y jueves de 8:00 am a 11:00 am
+Si la finca en garantía ha sido objeto de segregación o reunión, deberá aportar la documentación necesaria para verificar el nuevo número de finca y que la cita registral a liberar es correcta.
+Informe de Cancelación emitido por el Departamento de Cobros o Sede (original y copia)
+Estudio Registral certificado por el Registro Público.
+Dos fotocopias del protocolo del notario para cada una de las escrituras a firmar.
 MERCADEO Y VENTAS.
 Recepción de denuncias contra Agentes de Seguros y/o Sedes. 10 días hábiles.
-Rendir la declaración respectiva en la Intendencia de Comercialización o en cualquiera de las Sedes ubicadas en todo el país a rendir la declaración respectiva o remitir la denuncia al fax: 243-9973 (indicando en forma clara el nombre del agente denuncias y el relato de los hechos).
-Presentar cédula de identidad.
-En caso de que la denuncia se refiera al no reporte de primas por parte del agente o Agencia Comercializadora al INS, es necesario que el asegurado presente alguno de los siguientes documentos: Recibo oficial de prima original con la consignación de cancelado. Recibo de depósito sobre primas en original con la consignación de cancelado. Recibo - póliza autoexpedible en original.
+Rendir la declaración respectiva en el Departamento de Control y Seguimiento o en cualquiera de las Sedes ubicadas en todo el país a rendir la declaración respectiva o remitir la denuncia al fax: 22876220 (indicando en forma clara el nombre del agente que denuncia, el relato de los hechos y aportar por correo tradicional o personalmente los documentos comprobatorios, si es que los hay). Agregar : las sedes deben considerar el tiempo para que sean ellas las que remitan el caso inmediatamente a nuestro Departamento de Control y Seguimiento.
+Pasaporte, en caso de ser menor de edad, se solicita que la denuncia sea acompañada por la firma del padre o la madre y aportar la fotocopia de la cédula.
+En caso de que la denuncia sea presentada en una Sede, se debe incluir dentro del traslado de la denuncia a nuestro Departamento un breve estudio del estado de la póliza que respalde la denuncia. Así como también en caso de ser necesario, el expediente de la póliza del asegurado denunciante.
+AUTOMÓVILES.
+Aseguramiento.
+Suscripción de Póliza de Automóviles Voluntario. Hasta 10 días hábiles.
+Requisitos Generales:
+Solicitud del seguro debidamente cumplimentada sin correcciones o alteraciones.
+Guía de Inspección del vehículo realizada por el intermediario de Seguros, debidamente cumplimentada (con una vigencia de tres días hábiles contados a partir del día siguiente de su confección). *Ver Gaceta.
+Cuatro fotografías (con una vigencia de tres días hábiles contados a partir del día siguiente de su confección) del vehículo de excelente calidad de imagen, que brinden detalle de cada costado del vehículo (las medidas de estas no deben ser inferiores a un cuarto de página.
+En caso de inclusión de acreedor prendario debe indicarse el porcentaje de acreencia, número de cédula del acreedor así como la dirección.
+Requisitos Específicos:
+Factura de compra para vehículos nuevos, cero kilómetros que hayan sido vendidos por una agencia distribuidora de la marca del vehículo domiciliada en Costa Rica.
+Copia de póliza de Desalmacenaje en caso de vehículos con placa SIN o TMP, que no sean cero kilómetros.
+En caso de vehículos importados no inscritos en el Registro Público de la Propiedad, cuyo valor sea igual o mayor a $20.000 impuestos incluidos, se debe presentar copia de Revisión Técnica vigente y documentos que demuestren el ingreso del vehículo al país. En estos casos la Inspección del vehículo únicamente la podrá efectuar un perito de valoración de vehículos del Instituto.
+El Instituto se reserva la potestad de solicitar entre otros documentos, de acuerdo con la naturaleza del riesgo, tales como:
+Tarjeta de Pesos y Dimensiones.
+Permiso de Permanencia del vehículo en el país.
+Copias de Trámites por Juicios Sucesorios.
+Certificaciones de Estado Civil y de Defunción con no más de un mes de emitida.
+Recibos de depósitos sobre primas.
+Copias de Depósitos Bancarios a cuentas del Instituto.
+Poderes (Especiales, Generales, Generalísimos y Especialísimos).
+Contratos de arrendamientos o similares.
+Cumplimentar formulario de autorización para que la Institución solicite documentos a otras instituciones públicas.
+Pólizas Colectivas de Flotilla. Hasta 10 días hábiles.
+Se debe asegurar un mínimo de dos vehículos propiedad de una misma persona física o jurídica, inscritos en el Registro de la Propiedad a nombre del asegurado.
+Se ofrecerá el Beneficio de Inclusión Automática, en los siguientes casos:
+Mediante carta del asegurado solicitando el beneficio, cuando la póliza cuente con diez o más vehículos asegurados.
+Cuando los vehículos sean nuevos con cero kilómetros o vehículos con modelo igual al del año o del año anterior, el aseguramiento se realice dentro de los treinta días naturales posteriores a la adquisición del vehículo, el amparo automático bajo cobertura
+Pólizas Colectivas para Asociaciones de empleados, Colegios Profesionales u otro gremio. Hasta 10 días hábiles.
+Para los casos de pólizas de asociados, agremiados y otros, se deberá aportar certificación del gremio, asociación o grupo de afiliación correspondiente o en su lugar firma y sello del representante legal, debe asegurarse un mínimo de diez vehículos propiedad del asociado o agremiado.
+Pólizas de Acreedores. Hasta 10 días hábiles.
+Para los casos de pólizas de acreedores se establece un mínimo de diez vehículos para la suscripción del seguro propiedad del asegurado, la Solicitud del seguro debe firmada por el asegurado y por el acreedor prendario.
+Pólizas de Declaración de Trayectos y Demostraciones. Hasta 10 días hábiles.
+Carta del asegurado solicitando la emisión, indicando la actividad a la que se dedica.
+Depósito de una prima mínima de doscientos cincuenta mil colones.
+Tipo de vehículos a asegurar.
+Reporte de movimientos diarios.
+Indicar coberturas y deducibles solicitados, rutas o lugares de los movimientos.
+Para el aseguramiento de vehículos con placas de Agente Vendedor se deben incluir todas las placas autorizadas por el MOPT a la agencia vendedora de vehículos.
+Indicar expresamente a cual vehículo le fue asignada la placa de prueba y por cuántos días.
+En los casos de Pólizas de Licencias para casas importadoras o vendedoras, o taller de carrocería y mecánica, se requiere: Hasta 10 días hábiles.
+Que la póliza se suscriba a nombre de la casa importadora o vendedora o del taller.
+Las licencias que se aseguran del personal de la empresa o taller deben ser válidas y estar vigentes.
+Para la suscripción de pólizas de licencias individuales, se requiere:
+Información del tipo de licencia y características de la persona a quien pertenece.
+Pólizas de vehículos de Organismos Internacionales, Diplomáticos y Pensionados Rentistas. Hasta 10 días hábiles.
+Fotocopia del carné de diplomático del asegurado.
+Documento de exoneración de impuestos del Ministerio de Hacienda.
+Aseguramiento vehículos de Turistas en Tránsito o Placas Extranjeras. Hasta 10 días hábiles.
+Permiso de Permanencia del vehículo en el país.
+Aseguramiento de bicicletas. Hasta 10 días hábiles.
+Será necesario adjuntar factura de compra del vehículo y reportarse además el número de marco
+Aseguramiento de cuadraciclos. Hasta 10 días hábiles.
+Contar con la licencia habilitante para manejo de este tipo de vehículo.
+Aseguramiento de autobuses. Hasta 10 días hábiles.
+Se debe contar con la placa que lo acredite como tal.
+Asimismo los autobuses dedicados al transporte no remunerado de personas deben aportar documento que pruebe que el vehículo es propiedad del centro educativo, asociación, iglesia o fundación correspondiente o cualquier empresa que brinde transporte a sus empleados.
+Aseguramiento de Trailer de pasajeros. Hasta 10 días hábiles.
+Carta de autoridad del lugar en donde se indique que en la zona no existe transporte colectivo de personas.
+Certificación del MOPT que autoriza el transporte de personas.
+Documento que demuestre que el vehículo cumple con los requisitos mínimos de seguridad para el transporte de personas.
+La revisión por parte del INS.
+Aseguramiento de Vehículos tipo Camper. Hasta 10 días hábiles.
+Se debe asegurar como Equipo especial el menaje del vehículo, detallando los accesorios y los valores de los mismos.
+Aseguramiento de Vehículos de Carga.
+Aseguramiento de Furgones refrigerados. Hasta 10 días hábiles.
+Se debe asegurar el equipo o sistema de enfriamiento como Equipo Especial.
+Pólizas de Declaraciones de Rallies. Hasta 10 días hábiles.
+Presentación del Formulario de Inscripción de cada vehículo en la competencia.
+Reportar fecha y vigencia de la actividad.
+Sistemas de Pago.
+Pólizas en el sistema de Deducción Mensual. 10 días hábiles.
+Asegurar un mínimo de 5 vehículos.
+La firma del Contrato de Deducción Mensual.
+Únicamente vehículos de uso privado de pasajeros, persona física.
+Firma de boleta de autorización para deducción de salario.
+Pago de 2 cuotas por adelantado.
+Pólizas en el sistema de Cargo Automático. 10 días hábiles.
+Firma de boleta de autorización e inclusión correspondiente.
+Indicar tipo de tarjeta.
+Fecha de vencimiento de la tarjeta.
+Número de tarjeta.
+Nombre de la Empresa.
+Firma del tarjetahabiente.
+En caso de que se trate de una póliza mensual es necesario pagar 2 cuotas por adelantado.
+Devolución de Primas.
+Devolución de Primas no Devengadas Personas Físicas.
+Copia carta de autorización del cliente con sello y firma del agente (en caso de las comercializadoras con firma del Gerente o su Representante Legal).
+Copia de la cédula del cliente (clara y legible tanto la foto, datos y firma del asegurado).
+Copia de la cédula de la persona a quien se autoriza para retirar el débito (clara y legible tanto la foto, datos y su firma).
+En caso de servicio SINPE, el asegurado debe solicitarlo por escrito y proporcionar el número de su cuenta cliente (17 dígitos), verificando que sea el correcto.
+Devolución de Primas no Devengadas Personas Jurídicas.
+Carta de autorización de la empresa, con firma del Apoderado Generalísimo.
+Copia de la cédula del Apoderado Generalísimo o Representante Legal de la Empresa.
+Copia de la Cédula Jurídica.
+Copia de la Cédula de la Persona autorizada por la Empresa.
+Carta donde el cliente autoriza al agente o Comercializadora a realizar dicha gestión y/o el retiro de la devolución.
+En caso de servicio SINPE, el asegurado debe solicitarlo por escrito y proporcionar el número de su cuenta cliente (17 dígitos), verificando que sea el correcto.
+Reposición de prima por pagos con cheques sin fondos. 10 días hábiles.
+Solicitud formal del asegurado para reposición del documento defectuoso.
+Carta indicando y dando fe que el vehículo se encuentra en perfectas condiciones hasta la fecha y hora máxima que el INS dio como plazo para la reposición del cheque.
+Endosos o Variaciones a las pólizas de Automóviles Voluntario. 10 días hábiles.
+Solicitud del seguro debidamente cumplimentada sin correcciones o alteraciones.
+Guía de Inspección del vehículo realizada por el Intermediario de Seguros, Sedes del INS o Rampas de Valoración del INS, debidamente cumplimentada.
+4 fotografías del vehículo de excelente calidad de imagen, que brinde detalle de cada costado del vehículo. (Las medidas no deben ser inferiores a 1/4 de página tamaño carta).
+Presentación del duplicado de la póliza.
+Visto Bueno del acreedor prendario en papel membretado o autenticado, en los casos que se requiera.
+Requisitos Específicos:
+Factura de compra o copia fiel del original con firma del asegurado o Intermediario de Seguros, para vehículos nuevos, Cero Kilómetros, que hayan sido vendidos por una Agencia Distribuidora de la marca del vehículo domiciliada en el país.
+Revisión Técnica.
+Copia de póliza de Desalmacenaje en caso de vehículos con placa SIN o TMP, que no sean cero kilómetros.
+En caso de vehículos no inscritos en el Registro Público de la Propiedad, con el valor que determina el INS en sus normas o procedimientos:
+Revisión Técnica.
+Guía de Inspección emitida por el INS.
+Fotografías.
+El Instituto se reserva la potestad de solicitar entre otros documentos, de acuerdo con la naturaleza del riesgo, tales como:
+Derecho de Circulación.
+Certificado de propiedad del vehículo.
+Tarjeta de Pesos y Dimensiones.
+Permiso de Permanencia del vehículo en el país.
+Copias de Trámites por Juicios Sucesorios.
+Certificaciones de Estado Civil y de Defunción con no más de un mes de emitida.
+Recibos de depósitos sobre primas.
+Copias de Depósitos Bancarios a cuentas del Instituto.
+Poderes (Especiales, Generales, Generalísimos y Especialísimos).
+Contratos de arrendamientos o similares.
+Casos Especiales:
+Ajustes de Vigencia:
+La solicitud debe presentarse con un mes de antelación a la renovación del seguro.
+Cambio de forma de pago:
+Únicamente se puede solicitar al vencimiento semestral de la póliza.
+Cambio de año y número de motor del vehículo:
+Documentos de rectificación del modelo emitidos por el Registro Público de la Propiedad; factura de compra del motor; Revisión Técnica.
+Cambio de uso de Vehículo Diplomático a Particular:
+Documentos probatorios del pago de impuestos al Registro Público de la Propiedad.
+Cambio de modalidad de Aseguramiento a primer Riesgo absoluto (PRA):
+Vehículo con valor real efectivo al mínimo establecido por el INS, en el Manual de Normas y Procedimientos; puede asegurarse desde un 100% del VRE, hasta un mínimo de US$10.000.
+Inclusión de Extraterritorialidad:
+Indicar la fecha de salida y regreso al país en caso de extraterritorialidad temporal; señalar el país del destino.
+Equipo especial:
+Presentar la factura de compra de los accesorios; no puede superar el 50% del VRE del vehículo asegurado.
+Cancelación de póliza:
+Nota formal solicitando la cancelación.
+Indicar el número de póliza a cancelar.
+En el caso de que el asegurado no realice personalmente este trámite debe aportar nota de autorización.
+Cuando se trate de pólizas colectivas se deben reportar aquellos faltantes de pago.
+Doble aseguramiento de vehículo:
+Se debe presentar los documentos que demuestren el doble aseguramiento del vehículo.
+Doble pago de prima en una misma póliza:
+Se debe presentar los documentos que demuestren el doble pago de prima.
+Otorgamiento de descuento en cobertura F por instalación de dispositivos de seguridad.
+Factura de compra e instalación de dispositivo de seguridad.
+Certificación de la Agencia vendedora instaladora del dispositivo de seguridad.
+Comprobante de que el dispositivo de seguridad instalado se encuentra en perfecto estado de funcionamiento.
+Cambio de Intermediario de Seguros:
+Se debe hacer solicitud formal y presentarse en Ventas, como mínimo 15 días naturales previos a la renovación masiva.
+Cambio de domicilio:
+Reportar por escrito la nueva dirección exacta, número de teléfono, fax, dirección electrónica.
+Cambio de placas:
+Reporte de placa definitiva; indicación de nuevo uso en caso requerido.
+Renovación de las pólizas de Automóviles Voluntario. 10 días hábiles.
+Guía de Inspección del vehículo realizada por Intermediario de Seguros, Sedes del INS o Rampas de Valoración del INS, debidamente cumplimentada.
+Cuatro fotografías del vehículo de excelente calidad de imagen, que brinden detalle de cada costado del vehículo (las medidas de estas no deben ser inferiores a 1/4 de página tamaño carta).
+En caso de pólizas colectivas:
+Debe solicitarse el listado de vehículos con 10 días de anticipación a la renovación, para ser revisados por el asegurado y devolverlo al INS para solicitar factura definitiva con 3 días de anticipación si no hay cambios y 5 días en caso de que haya variaciones.
+Exoneración del pago del impuesto de ventas. 10 días hábiles.
+En caso de persona física:
+Copia del carné diplomático con el sello de exoneración emitido por la Dirección General de Tributación Directa.
+En el caso de personas jurídicas:
+Certificado de exención emitido por la Dirección General de Tributación Directa.
+Reintegro de facturas por el Servicio del INS-Asistencia. 10 días hábiles.
+Cumplir con lo establecido en las secciones 10,11 y 12 de las Condiciones Generales del Seguro de Automóviles (Modalidad Tradicional y Comprensivas).
+Presentación de la factura original del servicio recibido.
+Nota formal solicitando el reintegro y explicando lo acaecido.
+(*) Interposición de Denuncia de Accidente ante el INS.
+(*)(Corregido el aparte anterior, mediante Fe de Erratas y publicada en La Gaceta N° 202 del 20 de octubre de 2008)
+Llamar al INS a través de la línea 800-800-8000 y a la Autoridad Competente. inmediata
+En caso de no poder realizar la llamada de Aviso de Accidente deberá dentro de los 5 días hábiles siguientes formalizar el aviso y formalizar por escrito la razón por la cual no permaneció en el lugar del accidente. Cinco días
+Solicitar cita de valoración de daños del vehículo, aportando el número de aviso de accidente. Cinco días
+Presentar el vehículo a valoración de daños en el Centros de Valoración del Instituto, presentando copia carbón de la boleta de citación emitida por el Inspector de Tránsito y copia del Aviso de Accidente. Cuando le asignen cita
+Presentar en las oficinas del INS los requisitos establecidos para cada cobertura. Un año para daño directo 10 años resp. civil
+Indemnización Automóviles.
+Cobertura A: Responsabilidad Civil Extracontractual por Lesión o Muerte de Personas. 30 días naturales a partir de la presentación de todos los requisitos
+Cumplir con todas las obligaciones estipuladas en los distintos contratos de seguros y su adendum.
+Copia completa del expediente judicial (sumaria), incluyendo boletas de citación, parte oficial de tránsito, croquis y declaraciones de las partes involucradas. Este documento debe venir con sellos en tinta del respectivo juzgado que atiende la causa.
+Copia certificada de la licencia de conducir del asegurado, o bien original y copia, la cual debe ser habilitante para conducir el vehículo asegurado y además estar vigente a la fecha del accidente. (Se exime su presentación, si fue presentada al Inspector del INS, el día del suceso.
+Copia certificada de la cédula de identidad del asegurado, o bien original y copia.
+Si el conductor es extranjero, con permanencia temporal, presentar licencia de su país de procedencia y copia del pasaporte que muestre el sello de la última fecha del ingreso, si tiene más de tres meses de estar en el país debe presentar fotocopia de la licencia costarricense.
+Si el vehículo no figura a nombre del asegurado, presentar copia de escritura pública de traspaso para el análisis del interés asegurable, o bien cualquier otro documento que demuestre esa condición.
+El Instituto se reserva el derecho de solicitar otros requisitos especiales, que de acuerdo a las circunstancias y particularidades del caso, se vea en la necesidad de aportar por parte de los interesados en el reclamo.
+Copia certificada de la cédula de identidad del imputado.
+En caso de agotamiento del SOA, solicitar formalmente la aplicación de esta cobertura.
+Constancia de salario del lesionado emitida por su patrono a la fecha del accidente. En última instancia, podrá presentar certificación de ingresos por medio de un contador público autorizado, acompañada de los respectivos documentos de trabajo como respaldo.
+Solicitar autorización para aplicación de la póliza por medio de la figura de Conciliación u otra Resolución Alterna, ante la Sucursal que atiende el reclamo.
+Aportar el dictamen médico legal definitivo que indique el período de incapacidad temporal y el grado de disminución de su capacidad general orgánica (impedimento) si fuere el caso de que se haya dado de alta al lesionado.
+Informar la aceptación de los términos, que en caso de ser afirmativo se llevarán a cabo los estudios de rigor para establecer los montos de indemnización y aportar al caso copia certificada del acta de conciliación.
+Firmar el finiquito correspondiente previo al retiro del pago por parte del beneficiario para la extinción.
+Apelación por escrito para que se reconsidere la propuesta económica, en caso de desacuerdo con los montos establecidos por el INS.
+Existiendo sentencia penal o civil en firme que liquide montos indemnizatorios en contra de nuestro asegurado, se deberá presentar copia certificada de la misma, junto con los requisitos básicos de la cobertura A.
+Cobertura B: Gastos Médicos Familiares. 30 días naturales a partir de la presentación de todos los requisitos
+Cumplir con todas las obligaciones estipuladas en los distintos contratos de seguros y su adéndum.
+Copia completa del expediente judicial (sumaria), incluyendo boletas de citación, parte oficial de tránsito, croquis y declaraciones de las partes involucradas. Este documento debe venir con sellos en tinta del respectivo juzgada que atiende la causa.
+Copia autenticada de la licencia de conducir del asegurado, o bien original y copia, la cual debe ser habilitante para conducir el vehículo asegurado y además estar vigente a la fecha del accidente. (se exime su presentación, si fue presentada al Inspector del INS el día del evento.)
+Copia autenticada de la cédula de identidad del asegurado, o bien original y copia.
+Si el conductor es extranjero, con permanencia temporal, presentar licencia de su país de procedencia y copia del pasaporte que muestre el sello de la última fecha del ingreso, si tiene más de tres meses de estar en el país debe presentar fotocopia de la licencia costarricense.
+Si el vehículo no figura a nombre del asegurado, presentar documentos idóneos para el análisis del interés asegurable, o cualquier otro documento que demuestre esa condición.
+El Instituto se reserva el derecho de solicitar otros requisitos especiales, que de acuerdo a las circunstancias y particularidades del caso, se vea en la necesidad de aportar por parte de los interesados en el reclamo.
+En caso de agotamiento del SOA, solicitar formalmente la aplicación de esta cobertura.
+Presentar la epicrisis del paciente, facturas y comprobantes originales cancelados, por gastos, servicios médicos, y medicamentos.
+Firmar finiquito subrogación cobertura “B”.
+Cobertura C: Responsabilidad Civil Extracontractual por Daños a la Propiedad de Terceros. 30 días naturales a partir de la presentación de todos los requisitos
+Cumplir con todas las obligaciones estipuladas en los distintos contratos de seguros y su adéndum.
+Copia completa del expediente judicial (sumaria), incluyendo boletas de citación, parte oficial de tránsito, croquis y declaraciones de las partes involucradas. Este documento debe venir con sellos en tinta del respectivo juzgada que atiende la causa.
+Copia certificada de la licencia de conducir del asegurado, o bien original y copia, la cual debe ser habilitante para conducir el vehículo asegurado y además estar vigente a la fecha del accidente. (Se exime su presentación, si fue presentada al Inspector del INS el día del evento.)
+Copia certificada de la cédula de identidad del asegurado, o bien original y copia.
+Si el conductor es extranjero, con permanencia temporal, presentar licencia de su país de procedencia y copia del pasaporte que muestre el sello de la última fecha del ingreso, si tiene más de tres meses de estar en el país debe presentar fotocopia de la licencia costarricense
+Si el vehículo no figura a nombre del asegurado, presentar copia de escritura pública de traspaso para el análisis del interés asegurable, o cualquier otro documento que demuestre esa condición.
+El Instituto se reserva el derecho de solicitar otros requisitos especiales, que de acuerdo a las circunstancias y particularidades del caso, se vea en la necesidad de aportar por parte de los interesados en el reclamo.
+Copia certificada, o bien original y copia, de la cédula de identidad del propietario registral del vehículo.
+Nota confeccionada por el tercero perjudicado, dirigida a la Sucursal que tramita el reclamo, donde exprese su conformidad con la reparación, o de ser exigido por el INS, presentar el vehículo reparado para ser revisado y dar el “Visto Bueno Posterior a la Reparación”.
+El tercero deberá entregar comprobante de devolución de piezas, si es solicitado por el Instituto.
+Firmar finiquito por cobertura “C”.
+La denuncia interpuesta ante el INS debe estar firmada por el asegurado.
+En el caso de que el asegurado y/o tercero sea una Persona Jurídica, deberá presentar fotocopias de la personería jurídica con no más de un mes de emitida y de la cédula del Apoderado Generalísimo certificadas, o bien originales y copias.
+Presentar el vehículo a valoración de daños en el Centros de Valoración del Instituto, previa concertación de cita 800-800-8000.
+Certificación rápida de los bienes que resultaron dañados a consecuencia de la colisión amparada emitida por el Registro Nacional con no más de un mes de emitida. La indemnización se girará a nombre del propietario registral al momento del accidente.
+Los rubros indemnizatorios serán fijados por los peritajes técnicos que elabore el Instituto. Si el perjudicado presenta ejecutoria de sentencia civil en firme, se indemnizarán los rubros que correspondan de conformidad a lo señalado por la misma.
+Facturas originales de los repuestos a sustituir aprobados por el INS. Las mismas deben ser autorizadas por la Dirección General de Tributación Directa, cumpliendo con los requisitos de ley establecidos, canceladas y extendidas por una agencia distribuidora de repuestos con local abierto al público e inventario verificable, cuya eventual indemnización quedará sujeta al análisis de amparabilidad del reclamo.
+Realizar la revisión Post-Reparación, emitida en los Centros de Valoración del INS en caso de Taxis, Autobuses o cuando la Institución lo requiera. caso de que un tercero realice esta gestión, debe presentar Poder Especial que lo faculte para tal acto.
+Si el beneficiario desea que la indemnización sea girada a un tercero, deberá otorgar una orden de giro autenticada en la que establezca el nombre completo del tercero y número de cédula o identificación a nombre del cual desea sea girado el pago.
+Toda copia debe ser certificada, de lo contrario presentar original y copia para la respectiva cotejación.
+Cobertura D: Colisión y/o vuelco. Cobertura H: Riesgos Adicionales. 30 días naturales a partir de la presentación de todos los requisitos
+Cumplir con todas las obligaciones estipuladas en los distintos contratos de seguros y su adéndum.
+Copia completa del expediente judicial (sumaria), incluyendo boletas de citación, parte oficial de tránsito, croquis y declaraciones de las partes involucradas. Este documento debe venir con sellos en tinta del respectivo juzgado que atiende la causa.(Cobertura D).
+Copia certificada de la licenciada de conducir del asegurado, la cual debe ser habilitante para conducir el vehículo asegurado y además estar vigente a la fecha del accidente. (se exime su presentación, si fue presentada al Inspector del INS, el día del evento.)
+Copia certificada de la cédula de identidad del asegurado, o bien original y copia.
+Si el conductor es extranjero, con permanencia temporal, presentar licencia de su país de procedencia y copia del pasaporte que muestre el sello de la última fecha del ingreso. Si tiene más de tres meses de estar en el país, debe presentar fotocopia de la licencia costarricense.
+Si el vehículo no figura a nombre del asegurado, presentar copia de escritura pública de traspaso para el análisis del interés asegurable, o bien cualquier otro documento que demuestre esa condición.
+El Instituto se reserva el derecho de solicitar otros requisitos especiales, que de acuerdo a las circunstancias y particularidades del caso, se vea en la necesidad de aportar por parte de los interesados en el reclamo.
+Extender nota donde exprese la conformidad con la reparación.
+Entregar comprobante de devolución de piezas, si es solicitado por el Instituto.
+Si en la póliza fue consignado un acreedor prendario, para que le sea girado el pago al asegurado, debe presentar el respectivo VB otorgado por el acreedor mediante nota autenticada, acompañada de la personería jurídica original con no más de un mes de emitida y copia, o bien, realizarle al vehículo una “Inspección posterior a la reparación”
+Firmar el finiquito de subrogación por cobertura “D”, si corresponde.
+Llamar al Instituto y a la autoridad de tránsito, en el momento de ocurrencia del evento.
+Cumplimentar el aviso de accidente, firmado por el conductor asegurado.
+Aportar nota de justificación en caso de omisión de llamada al 800-800-8000.
+Presentar el vehículo a valoración de daños en el Centros de Valoración del Instituto.
+Documento de identidad del asegurado, en caso de Persona Jurídica, presentar Certificación de Personería Jurídica con no mas de un mes de emitida y fotocopia certificada de cédula del Apoderado Generalísimo, o bien originales y copias.
+Copia del Título de Propiedad o Certificación Rápida emitida por el Registro Nacional.
+Facturas originales de los repuestos a sustituir aprobados por el INS. Las mismas deben ser autorizadas por la Dirección General de Tributación Directa, cumpliendo con los requisitos de ley establecidos, canceladas y extendidas por una agencia distribuidora de repuestos con local abierto al público e inventario de repuestos verificable, cuya eventual indemnización quedará sujeta al análisis de amparabilidad del reclamo.
+Realizar la revisión Post-Reparación, emitida en los Centros de Valoración del INS en caso de Taxis, Autobuses o cuando la Institución lo requiera. .En caso de que un tercero realice esta gestión, debe presentar Poder Especial que lo faculte para tal acto.
+Si el beneficiario desea que la indemnización sea girada a un tercero, deberá otorgar una orden de giro autenticada en la que establezca el nombre completo del tercero y número de cédula o identificación a nombre del cual desea sea girado el pago.
+Firmar el finiquito correspondiente.
+Toda copia debe ser certificada, de lo contrario presentar original y copia para la respectiva cotejación.
+Cobertura F: Robo o Hurto. 30 días naturales a partir de la presentación de todos los requisitos
+Interponer denuncia del robo ante el OIJ, inmediatamente que ocurra el delito.
+Cumplir con lo establecido en el aparte: “Interposición de denuncia ante el INS” de este documento.
+Presentar copia de la denuncia ante el OIJ, sellada en tinta y firmada por el denunciante.
+En caso de que el vehículo aparezca:
+Copia del Acta de Inspección Ocular realizada por el Organismo de Investigación Judicial en el lugar de los hechos.
+Presentar el vehículo a valoración de daños en el Centros de Valoración del Instituto.
+Facturas originales de los repuestos a sustituir aprobados por el INS. Las mismas deben ser autorizadas por la Dirección General de Tributación Directa, cumpliendo con los requisitos de ley establecidos, canceladas y extendidas por una agencia distribuidora de repuestos con local abierto al público e inventario de repuestos verificable, cuya eventual indemnización quedará sujeta al análisis de amparabilidad del reclamo.
+Si en la póliza fue consignado un acreedor prendario, para que le sea girado el pago al asegurado, debe presentar el respectivo VB otorgado por el acreedor mediante nota autenticada, acompañada de la personería jurídica original con no más de un mes de emitida y copia, o bien, realizarle al vehículo una “Inspección posterior a la reparación”
+Si el beneficiario desea que la indemnización sea girada a un tercero, deberá otorgar una orden de giro autenticada en la que establezca el nombre completo del tercero y número de cédula o identificación a nombre del cual desea sea girado el pago.
+Realizar la revisión Post-Reparación, emitida en los Centros de Valoración del INS en caso de Taxis, Autobuses o cuando la Institución lo requiera. .En caso de que un tercero realice esta gestión, debe presentar Poder Especial que lo faculte para tal acto.
+Firmar el finiquito correspondiente.
+Toda copia debe ser certificada, de lo contrario presentar original y copia para la respectiva cotejación.
+En caso de Robo Parcial: 30 días naturales a partir de la presentación de todos los requisitos
+Llamar al Instituto y a la autoridad competente, de manera inmediata a la ocurrencia del evento a efecto de que se realice la inspección de los daños. En caso de que no pudiera llamar al Inspector del INS o esperar su llegada, o que el Inspector no se le pudiera enviar, deberá presentar denuncia en el OIJ de los daños que presenta el vehículo.
+Cumplimentar el aviso de accidente, firmando por el conductor asegurado.
+Aportar nota de justificación de omisión de llamada al 800-800-8000.
+Presentar el vehículo a valoración de daños en el Centros de Valoración del Instituto.
+Copia de la licencia del conductor, en caso de que sea extranjero pasaporte y licencia de su país.
+Documento de identidad del asegurado, en caso de Persona Jurídica, presentar Certificación de Personería Jurídica con no más de un mes de emitida y fotocopia certificada de cédula del Apoderado Generalísimo, o bien originales y copias.
+Si el vehículo no figura a nombre del asegurado, presentar copia de escritura pública de traspaso para el análisis del interés asegurable, o cualquier otro documento que demuestre esa condición.
+Facturas originales de los repuestos a sustituir aprobados por el INS. Las mismas deben ser autorizadas por la Dirección General de Tributación Directa, cumpliendo con los requisitos de ley establecidos, canceladas y extendidas por una agencia distribuidora de repuestos con local abierto al público e inventario de repuestos verificable, cuya eventual indemnización quedará sujeta al análisis de amparabilidad del reclamo.
+Realizar la revisión Post-Reparación, emitida en los Centros de Valoración del INS en caso de Taxis, Autobuses o cuando la Institución lo requiera. .En caso de que un tercero realice esta gestión, debe presentar Poder Especial que lo faculte para tal acto.
+Si el beneficiario desea que la indemnización sea girada a un tercero, deberá otorgar una orden de giro autenticada en la que establezca el nombre completo del tercero y número de cédula o identificación a nombre del cual desea sea girado el pago.
+Toda copia debe ser certificada, de lo contrario presentar original y copia para la respectiva cotejación.
+En caso de Robo Total: 30 días naturales a partir de la presentación de todos los requisitos
+Llamar al Instituto y a la autoridad competente, según las circunstancias del evento.
+Cumplimentar el aviso de accidente, firmando el conductor y el asegurado.
+Aportar nota de justificación de omisión de llamada al 800-800-8000.
+Interponer denuncia del robo ante el OIJ, inmediatamente que ocurra el delito, presentando copia de ese documento sellado en tinta y firmado por el denunciante.
+Documento de identidad del asegurado, en caso de Persona Jurídica, presentar Certificación de Personería Jurídica con no más de un mes de emitida y fotocopia certificada de cédula del Apoderado Generalísimo, o bien originales y copias.
+Si el vehículo no está inscrito a nombre del asegurado deberá proceder a la inscripción.
+Transcurridos quince días del robo, solicitar certificación al OIJ donde se determine el resultado de las investigaciones, en el cual deberá señalar que el vehículo no apareció desde la fecha de ocurrencia del evento y es válida por treinta días contados a partir de la ocurrencia del evento.
+Certificación rápida del vehículo asegurado actual, emitida por el Registro Nacional.
+Si el valor de mercado del vehículo es inferior al declarado, deberá el asegurado declarar que acepta el valor del mercado.
+Si en la póliza fue consignado un acreedor prendario, para que le sea girado el pago al asegurado, debe presentar el respectivo VB otorgado por el acreedor mediante nota autenticada, acompañada de la personería jurídica original con no más de un mes de emitida y copia.
+Solicitar cita para la firma de la escritura de traspaso del vehículo a nombre del INS, el vehículo debe aparecer libre de gravámenes, anotaciones e infracciones.
+Cobertura G: Asistencia en Viaje.
+Llamar al 800 800 8001 en el territorio nacional y en el extranjero al 506 22576201 506 2257 5821. inmediata
+Cobertura H: Riesgos Adicionales. 30 días naturales a partir de la presentación de todos los requisitos
+Extender nota donde exprese la conformidad con la reparación.
+Entregar comprobante de devolución de piezas, si es solicitado por el Instituto.
+Facturas originales de los repuestos a sustituir aprobados por el INS. Las mismas deben ser autorizadas por la Dirección General de Tributación Directa, cumpliendo con los requisitos de ley establecidos, canceladas y extendidas por una agencia distribuidora de repuestos con local abierto al público e inventario de repuestos verificable, cuya eventual indemnización quedará sujeta al análisis de amparabilidad del reclamo.
+Si en la póliza fue consignado un acreedor prendario, para que le sea girado el pago al asegurado, debe presentar el respectivo VB otorgado por el acreedor mediante nota autenticada, acompañada de la personería jurídica original con no mas de un mes de emitida y copia, o bien, realizarle al vehículo una “Inspección posterior a la reparación”
+Firmar los finiquitos correspondientes.
+Pérdida Total: 30 días naturales a partir de la presentación de todos del requisitos
+Los requisitos se aplican según cada cobertura.
+El propietario del vehículo debe depositar las placas y el marchamo, o des inscribir el vehículo según corresponda.
+Si en la póliza fue consignado un acreedor prendario, para que le sea girado el pago al asegurado, debe presentar el respectivo VB otorgado por el acreedor mediante nota autenticada, acompañada de la personería jurídica original con no mas de un mes de emitida y copia, o bien, realizarle al vehículo una “Inspección posterior a la reparación”
+En caso de que el INS decida dejarse el vehículo como Salvamento, el asegurado o perjudicado deberá desinscribir el vehículo ante el Registro Nacional y firmar la Escritura de Traspaso.
+Conciliación bajo las Coberturas “C” y “D” en Sede Judicial. 30 días naturales a partir de la presentación de todos los requisitos
+Presentar solicitud expresa de conciliación indicando los términos de la misma.
+Homologar el acuerdo conciliatorio en el Juzgado que corresponda, una vez autorizado por el Instituto. Estará obligado a presentar copia certificada del mismo en aras de finiquitar la indemnización.
+Firmar el finiquito correspondiente.
+Reintegro de facturas por el Servicio de Asistencia en viaje en caso de excepción 30 días naturales a partir de la presentación de todos los requisitos
+Cumplir con lo establecido en Condiciones Generales del Seguro de Automóviles
+Presentación de la factura original del servicio recibido.
+Nota formal solicitando el reintegro y explicando lo acaecido.
+Conciliación por daños materiales 30 días naturales a partir de la presentación de todos los requisitos
+Presentar solicitud expresa de conciliación indicando los términos de la misma.
+Sumaria completa compuesta de: boletas de citación, resultados de alcoholemia, parte, plano y declaración firmada del conductor asegurado, con sello original del juzgado o fotocopia certificada.
+Solicitud para avalúo del vehículo
+Se debe llamar a la línea 800 800 8000 y solicitar la cita para la valoración. Cinco días naturales
+Traer la copia del aviso de accidente, dada por el inspector del INS en el momento del accidente o la presentada en ventanilla
+Si la persona que trae el vehículo a avalúo no es el propietario registral tiene que traer una autorización del mismo.
+Visto bueno de reparación
+Avalúo original del vehículo a indemnizar
+Facturas originales de la mano de obra y de los repuestos a sustituir. Las mismas deben de ser autorizadas por la dirección general de tributación directa, con sellos de cancelada y extendidas por una agencia distribuidora de repuestos con local abierto al publico e inventario verificable. Si la factura tiene el campo para impuesto de ventas debe venir detallado el impuesto en la misma.
+Retiro de cheques 30 días naturales a partir de la presentación de todos los requisitos
+Si el beneficiario directo es quien retira el cheque, solo debe presentar identificación que lo acredite como tal (cédula, pasaporte, cédula de residencia, etc.)
+Si el beneficiario es persona jurídica y quien retira el cheque es el representante legal debe presentar personería jurídica con no más de un mes de emitida y la cédula.
+Si la persona que retira el cheque, es autorizado:
+a) En caso que el beneficiario sea persona jurídica: el autorizado debe presentar carta de autorización autenticada por abogado, firmada por el apoderado generalísimo de la empresa, fotocopia de cédula certificada tanto del representante legal como del autorizado y personería jurídica con no más de un mes de emitida.
+b) En caso que el beneficiario sea persona física: el autorizado debe presentar carta de autorización autenticada por abogado, fotocopia de cédula de quien autoriza y del autorizado; o carta de autorización, sin autenticar, y fotocopia y original de las cédulas de quien autoriza y del autorizado.
+d) En caso que el beneficiario haya otorgado poder generalísimo a un tercero, este último puede retirar el pago una vez que presente certificación expedida por un abogado o por el mismo Registro Nacional con el fin de confirmar la vigencia actual del poder, además de la cédula del autorizado.
+e) En caso de que quien retira es albacea del beneficiario, i- puede presentar resolutoria del Juzgado que atiende el caso determinando el nombramiento, ii- puede presentar certificación del Registro Nacional que demuestre el nombramiento registrado como tal.
 San José, 13 de noviembre del 2007

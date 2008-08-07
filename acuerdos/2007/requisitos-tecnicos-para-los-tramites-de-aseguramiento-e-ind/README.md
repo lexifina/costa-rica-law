@@ -14,3 +14,4 @@ Requisitos técnicos para los trámites de aseguramiento e indemnizaciones de to
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-21 | la propia norma |
+| 2 | 2008-08-07 | Acuerdo 0 (2008-08-07) |
