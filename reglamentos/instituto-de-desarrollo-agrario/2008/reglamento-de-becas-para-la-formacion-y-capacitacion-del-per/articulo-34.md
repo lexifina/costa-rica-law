@@ -1,0 +1,2 @@
+Artículo 34.—Horario para recibir capacitaciones: En atención a su naturaleza, a las necesidades de la Institución y a la oferta del mercado, las acciones de capacitación podrán recibirse dentro o fuera de la jornada laboral, tratando de recibirlas preferiblemente fuera de la misma.
+El tiempo dedicado a actividades de capacitación fuera de la jornada laboral, no dará derecho al pago de horas extras, ni a ningún otro tipo de remuneración.

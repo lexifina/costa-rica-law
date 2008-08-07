@@ -1,0 +1,1 @@
+Artículo 10.—Tratándose de solicitudes para el pago de pruebas de grado, coloquios, tutorías, seminarios de actualización, gastos de graduación, convalidaciones o trabajos afines de graduación, siempre y cuando la Comisión lo considere una prioridad Institucional y que no afecte o incida en la limitación de otras solicitudes prioritarias.

@@ -1,0 +1,1 @@
+Artículo 17.—Como trámite inicial para las Becas al exterior, el Área de Recursos Humanos, le dará publicidad a éstas, divulgándolas a nivel del Instituto por medio de avisos en los cuales se dará toda la información sobre la Beca y el plazo máximo para la recepción de las solicitudes.

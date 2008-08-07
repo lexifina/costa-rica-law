@@ -1,0 +1,1 @@
+Artículo 41.—El quórum lo formarán la representación mínima de las partes, a saber dos miembros de la Administración, dos de UNEIDA y sus acuerdos se tomarán por simple mayoría, en el entendido de que dicha Comisión es recomendativa, por lo que sus decisiones no son vinculantes para la Dirección Superior.

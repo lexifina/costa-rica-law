@@ -1,0 +1,1 @@
+Artículo 27.—Con respecto a las becas al exterior, que implique la obtención de un grado académico, el beneficiario /a/, en caso de reprobar el curso, deberá reintegrar al Instituto la inversión institucional ya sea, viáticos, pasajes, gastos de aeropuerto, permiso con goce de salario y otros.

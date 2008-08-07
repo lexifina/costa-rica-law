@@ -1,0 +1,2 @@
+Sobre la capacitación a funcionarios
+Artículo 29.—Todo lo concerniente a la capacitación a funcionarios /as/ nombrados en propiedad para la Institución, se coordinará por el Área de Recursos Humanos. En esta dependencia se analizarán las solicitudes y se tramitarán las requisiciones para efecto de pago, misma que deberá elaborar los informes y emitir las recomendaciones que tramitará ante la Comisión de Becas.

@@ -1,0 +1,6 @@
+Artículo 36.—Requisitos para disfrutar del beneficio:
+a) No estar gozando de otra capacitación al momento de la solicitud, salvo casos de excepción en que se demuestre la necesidad institucional técnica de que el funcionario /a/ participe bajo las condiciones enunciadas, ya sea por responder al perfil de la misma, sea por continuidad de la actividad u otra razón de interés determinante para la institución, la cual quedará constando en el expediente administrativo, siempre que no exista superposición horaria.
+b) Desempeñar funciones afines con el objeto de la capacitación de que se trate.
+c) Estar al día con las obligaciones pecuniarias con la institución, así como las derivadas de cualquier beca o facilidad, establecidas en un contrato con la Institución.
+d) No haber perdido ninguna capacitación otorgada por la Institución, en los términos que dispone el presente Reglamento, salvo que dicha capacitación haya sido perdida por el funcionario /a/ por razones de fuerza mayor o caso fortuito debidamente acreditadas ante el Área de Recursos Humanos.
+e) Una vez concluida la capacitación, el servidor, tendrá que organizar e impartir un curso interno a funcionarios de su dependencia administrativa u otros afines, extendiendo sus nuevos conocimientos y sirviendo esto de aporte a la Institución.

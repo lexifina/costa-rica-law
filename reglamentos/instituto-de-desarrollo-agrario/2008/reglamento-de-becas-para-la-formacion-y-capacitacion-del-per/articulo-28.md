@@ -1,0 +1,1 @@
+Artículo 28.—La restitución a que hace referencia el artículo 27, debe hacerse a más tardar, antes de solicitar un nuevo beneficio, o en su defecto, después de haber autorizado por escrito la deducción respectiva.

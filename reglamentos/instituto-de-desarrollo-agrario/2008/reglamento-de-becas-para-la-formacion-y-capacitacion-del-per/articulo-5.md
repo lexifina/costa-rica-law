@@ -1,0 +1,1 @@
+Artículo 5º—El Instituto de Desarrollo Agrario se reserva la potestad de suspender el otorgamiento de nuevos beneficios, cuando la Junta Directiva así lo determine, pero de ninguna manera, dicha suspensión, afectará a quien ya disfrute de ellos.

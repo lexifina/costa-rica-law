@@ -1,0 +1,1 @@
+Artículo 4º—La concesión que de estos beneficios pueda hacer el Instituto de Desarrollo Agrario, queda supeditada a las posibilidades presupuestarias de este, así como a la no afectación del trabajo a su cargo.

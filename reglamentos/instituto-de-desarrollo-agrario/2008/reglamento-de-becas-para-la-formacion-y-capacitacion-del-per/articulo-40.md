@@ -1,0 +1,1 @@
+Artículo 40.—La Comisión de Becas, podrá recurrir para el análisis, discusión y decisión de los casos sometidos a su consideración, a diferentes fuentes de información, tales como: diagnóstico de necesidades de capacitación de la Institución, Jefaturas inmediatas, etc., a efecto de tener mayor claridad en cuanto al tipo de beca a otorgar y la necesidad institucional de otorgarla.

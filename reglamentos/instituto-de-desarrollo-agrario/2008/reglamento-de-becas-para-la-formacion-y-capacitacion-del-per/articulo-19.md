@@ -1,0 +1,1 @@
+Artículo 19.—Tanto para las Becas, las licencias y capacitación, el Área de Recursos Humanos, una vez hecho el análisis de las mismas, realizará un informe para someterlas a conocimiento de la Comisión de Becas.

@@ -1,0 +1,2 @@
+Del trámite de las becas y licencias de estudios
+Artículo 16.—Las solicitudes de beca económica y licencia de estudios deben hacerse por escrito, con el visto bueno del Jefe inmediato y presentadas en el Área de Recursos Humanos, con un mínimo de veintidós días de antelación a la fecha en que se va iniciar el período de estudio, salvo que exista causa justificada, caso en el cual se permitirá hacer la solicitud en un plazo menor al indicado. La Administración Superior procurará en la medida de lo posible, realizar el trámite en término de un mes.

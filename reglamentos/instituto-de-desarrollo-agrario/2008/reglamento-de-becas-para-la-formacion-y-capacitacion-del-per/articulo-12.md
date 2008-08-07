@@ -1,0 +1,1 @@
+Artículo 12.—Con respecto al tiempo que se pudiere otorgar para la realización de Tesis de Grado, trabajos de Investigación, Trabajos de Graduación u otros, el mismo se dará de acuerdo con la complejidad de la labor a realizar.
