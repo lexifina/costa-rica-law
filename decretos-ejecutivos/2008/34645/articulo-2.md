@@ -1,0 +1,1 @@
+Artículo 2º—Los recursos provenientes de la transferencia de la segunda modificación al Presupuesto de la República para el ejercicio económico 2008, únicamente podrán utilizarse para realizar las actividades que le competen al Consejo Nacional de Producción dentro del Plan Nacional de Alimentos establecido por el Gobierno.
