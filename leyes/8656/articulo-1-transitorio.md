@@ -1,0 +1,1 @@
+TRANSITORIO I.- Confiérese al Poder Judicial un plazo de dos (2) años, a partir de la publicación de esta Ley, para la implementación de los parámetros de montos mínimos y máximos para la fijación de daños y perjuicios establecidos en el artículo 40 bis de la Ley de procedimientos de observancia de los derechos de propiedad intelectual, N.º 8039, de 12 de octubre de 2000.

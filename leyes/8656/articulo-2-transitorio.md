@@ -1,0 +1,1 @@
+TRANSITORIO II.- Las disposiciones incorporadas en el artículo 62 bis de la Ley de procedimientos de observancia de los derechos de propiedad intelectual, N.º 8039, de 12 de octubre de 2000, entrarán en vigencia dos (2) años después de la publicación de esta Ley.
