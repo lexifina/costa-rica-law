@@ -1,0 +1,6 @@
+Artículo 70 bis.- Criterios de valoración. El monto del perjuicio contenido en los artículos del 46 al 48 del capítulo V de esta Ley, se fijará usando el valor de los productos genuinos objeto de la infracción o el valor de la autorización, según corresponda.
+El monto del perjuicio contenido en los artículos 51, 52, 54, 55, 57, 59 y 60 del capítulo V de esta Ley, se fijará usando los siguientes elementos, según sea el caso:
+a) El precio al detalle para cada obra original, interpretación o ejecución, o para cada fonograma infringido, multiplicado por el número total de copias infractoras de la obra, interpretación o ejecución o fonograma.
+b) La tarifa de licencia aplicable por la interpretación o ejecución pública, comunicación al público, la puesta a disposición, fijación, reproducción, o transmisión de la obra, interpretación o ejecución o fonograma, tal como lo fijen las sociedades de gestión colectiva.
+Al determinar el monto del perjuicio, el juez también deberá considerar cualquier otra medida legítima del valor de las obras, interpretaciones o ejecuciones o fonogramas originales que sea presentada, incluidas las tarifas de licencias establecidas por obras, interpretaciones o ejecuciones o fonogramas comparables
+(Así adicionado por el artículo 2° aparte e) de la ley 8656 de 18 de julio de 2008.)

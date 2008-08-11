@@ -1,1 +1,1 @@
-Artículo 68.—Venta, almacenamiento, distribución, depósito, exportación o importación de ejemplares fraudulentos. Será sancionado con prisión de uno a tres años quien venda, ofrezca para la venta, almacene, distribuya, guarde en depósito, importe o exporte ejemplares fraudulentos de modo que se pueda causar daño a los derechos conferidos en la Ley de patentes de invención, dibujos y modelos industriales y modelos de utilidad, Nº 6867, de 25 de abril de 1983.
+Artículo 68.-(Derogado por el artículo 1° aparte e) de la ley N° 8656 del 18 de julio del 2008)

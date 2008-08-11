@@ -1,1 +1,3 @@
-Artículo 43.—Acción penal. El régimen procesal penal común regirá los procesos relativos a los delitos referidos en la presente Ley, cuya acción será pública a instancia privada.
+Artículo 43.- Acción penal. El régimen procesal penal común regirá los procesos relativos a los delitos referidos en la presente Ley, cuya acción será pública a instancia privada. Cualquier decisión sobre la acción penal no afectará el derecho de ejercer la acción civil ante los Tribunales correspondientes, sin perjuicio de lo dispuesto en el artículo 164 del Código Procesal Civil.
+No obstante, las autoridades podrán llevar a cabo investigaciones o tomar otras medidas de observancia de oficio, sin la necesidad de una denuncia formal de un privado o titular de derecho, con el propósito de preservar pruebas y prevenir la continuación de la actividad infractora.
+(Así reformado por el artículo 1° aparte e) de la ley N° 8656 de 18 de julio de 2008.)
