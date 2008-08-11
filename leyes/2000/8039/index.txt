@@ -1,5 +1,6 @@
 articulo-1.md
 articulo-2.md
+articulo-2-bis.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
@@ -36,8 +37,11 @@ articulo-35.md
 articulo-36.md
 articulo-37.md
 articulo-38.md
+articulo-38-bis.md
+articulo-38-ter.md
 articulo-39.md
 articulo-40.md
+articulo-40-bis.md
 articulo-41.md
 articulo-42.md
 articulo-43.md
@@ -59,7 +63,9 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
 articulo-62.md
+articulo-62-bis.md
 articulo-63.md
 articulo-64.md
 articulo-65.md
@@ -68,6 +74,7 @@ articulo-67.md
 articulo-68.md
 articulo-69.md
 articulo-70.md
+articulo-70-bis.md
 articulo-71.md
 articulo-72.md
 articulo-73.md
