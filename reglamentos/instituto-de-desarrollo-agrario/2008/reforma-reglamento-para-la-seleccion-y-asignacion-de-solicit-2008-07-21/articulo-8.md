@@ -1,0 +1,2 @@
+Artículo 8º—Modifíquese el Artículo 53 del Reglamento para la Selección y Asignación de Solicitantes de Tierras para que en adelante se lea de la siguiente manera:
+“Artículo 53.—Otorgado el título de propiedad, las personas asignatarias de lotes para vivienda o para otros fines, tendrán un plazo de un año para iniciar su construcción así como de seis meses adicionales, para concluirla. En caso de no hacerlo en los términos indicados, la Oficina Subregional procederá a iniciar el respectivo procedimiento revocatoria de la asignación y subsecuente nulidad de título.”

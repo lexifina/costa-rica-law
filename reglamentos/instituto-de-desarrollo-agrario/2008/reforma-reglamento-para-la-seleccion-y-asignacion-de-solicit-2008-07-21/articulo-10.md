@@ -1,0 +1,2 @@
+Artículo 10.—Modifíquese el Artículo 77 del Reglamento para la Selección y Asignación de Solicitantes de Tierras para que en adelante se lea de la siguiente manera:
+Artículo 77.—Para dicha segregación, la persona solicitante y su pareja deberán llenar el formulario de solicitud correspondiente y aportar los requisitos que establece el artículo 70 de este reglamento, además copia del plano catastrado del área a segregar.
