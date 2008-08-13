@@ -1,1 +1,2 @@
-Artículo 128.- El estudiante que necesite un permiso especial lo hará saber por escrito al Instructor o Táctico el que a su vez trasladará la gestión a la Unidad de Secretaría Estudiantil para que esta decida sobre el asunto.
+Artículo 128.- En los dormitorios deberá existir orden y disciplina y evitarán cualquier acto que pueda atentar contra sus compañeros o que implique transgresión a las reglas de cortesía. Igual comportamiento deben guardar en otros recintos de la Escuela, tales como el baño, barbería, etc.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 120 al 128 actual)

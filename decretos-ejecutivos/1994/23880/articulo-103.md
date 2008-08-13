@@ -1,1 +1,2 @@
-Artículo 103.- Los grupos de estudiantes bajo adiestramiento se identificarán por números arábigos en orden ascendente. Estarán conformados por escuadras. Los grupos estarán a cargo de un táctico.
+Artículo 103.- Para poder ingresar a los cursos de promoción y ascenso se tomará en cuanta el récord laboral (antigüedad, méritos, calificaciones de servicios, etc.), pudiéndose además considerar los resultados de su participación en cursos anteriores.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 95 al 103 actual)

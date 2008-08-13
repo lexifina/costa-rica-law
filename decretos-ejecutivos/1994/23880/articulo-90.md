@@ -1,3 +1,3 @@
-CAPITULO XV
-Adiestramiento y capacitación
-Artículo 90.- La Escuela Nacional de Policía ofrecerá obligatoriamente los siguientes cursos o programas: Programa Básico Policial. Programa de Suboficiales de Policía, Programa de Oficiales de Policía y Programa de Adiestramiento Policial. Además todos aquellos cursos o programas de especialidad policial y otros que respondan a la demanda de los cuerpos de seguridad privada, la reserva de la fuerza pública.
+Artículo 90.—Del procedimiento se levantará un expediente administrativo, en el que constarán todos los actos realizados. Las piezas del mismo serán archivadas en estricto orden cronológico y debidamente foliadas.
+Una copia de las resolución final y de los recursos ordinarios, serán enviadas al Departamento de Control y Documentación de la Dirección de Recursos Humanos, para que sea aportada al expediente personal.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

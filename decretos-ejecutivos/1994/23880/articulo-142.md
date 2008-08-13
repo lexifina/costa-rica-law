@@ -1,1 +1,2 @@
-Artículo 142.- La Comisión dará a conocer todas las ofertas de becas a través de la Dirección de Recursos Humanos del Ministerio, mediante circulares, para lo cual podrá solicitar a éste exhibir la información completa y hacerla llegar a las oficinas.
+Artículo 142.- Las presentes normas deben asegurar un sistema de participación igualitaria entre todos los participantes.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 134 al 142 actual)

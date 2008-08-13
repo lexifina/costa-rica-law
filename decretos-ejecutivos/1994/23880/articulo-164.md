@@ -1,1 +1,2 @@
-Artículo 164.- Los funcionarios que hayan sido sancionados con correcciones disciplinarias, con suspensión mayor a dos semanas en el último año, no podrán concursar para obtener becas.
+Artículo 164.- Las ofertas para participar en el concurso de becas deben de ser presentadas en formularios confeccionados previamente por la Dirección de Recursos Humanos. Los avisos de apertura del concurso se exhibirán por parte de dicha Dirección con la mayor anticipación posible a la fecha de cierre de la recepción de las suscripciones por parte del organismo auspiciante.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 156 al 164 actual)

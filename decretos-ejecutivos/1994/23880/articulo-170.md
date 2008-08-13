@@ -1,3 +1,2 @@
-Artículo 170.—Denuncia. Toda persona que sea víctima de algún acto de acoso u hostigamiento sexual, podrá plantear la denuncia contra el presunto hostigador, ante el Departamento Disciplinario Legal.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+Artículo 170.- En caso de becas internacionales la Dirección de Recursos Humanos hará los trámites respectivos para la salida del país de los seleccionados.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 162 al 170 actual)

@@ -1,9 +1,3 @@
-Artículo 79.- Las llegadas tardías injustificadas mayores de cinco minutos y que no excedan de veinte minutos, computadas en un mismo mes calendario, se sancionarán de la siguiente forma:
-a) Por dos: amonestación verbal.
-b) Por tres: amonestación escrita.
-c) Por cuatro: suspensión por un día.
-d) Por cinco: suspensión por dos días.
-e) Por seis: suspensión por cuatro días.
-f) Por siete: suspensión por ocho días.
-g) Por ocho o más: despido sin responsabilidad patronal.
-Las sanciones se tramitarán el mes siguiente.
+Artículo 79.-En el caso de no haberse propuesto ninguna reparación del daño, o de no aceptarse por parte del Departamento Disciplinario Legal la propuesta de reparación o reposición del mismo, o realizada y aceptada la propuesta el funcionario la incumple, el Departamento dictará el auto de apertura e iniciará el procedimiento administrativo correspondiente.
+En cualquier etapa del procedimiento y hasta antes de remitir la recomendación al órgano decisor, el encausado podrá proponer al Departamento Disciplinario Legal, la reparación del daño o reposición del bien.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

@@ -1,1 +1,2 @@
-Artículo 156.- Las ofertas para participar en el concurso de becas deben de ser presentadas en formularios confeccionados previamente por la Dirección de Recursos Humanos. Los avisos de apertura del concurso se exhibirán por parte de dicha Dirección con la mayor anticipación posible a la fecha de cierre de la recepción de las suscripciones por parte del organismo auspiciante.
+Artículo 156.- En caso de incumplimiento del contrato, el Ministerio podrá cobrar los daños y perjuicios y podrá separar de su cargo al becado in responsabilidad patronal cuando este incumplimiento se origine en una alta grave.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 148 al 156 actual)

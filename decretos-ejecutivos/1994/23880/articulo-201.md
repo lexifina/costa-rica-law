@@ -1,0 +1,3 @@
+Artículo 201.—Restitución de la persona denunciante a la condición laboral anterior. La persona que demuestre haber sido objeto de acoso u hostigamiento sexual, y compruebe que por este hecho sufrió perjuicio en su condición laboral, tendrá derecho a ser restituida al estado en que se encontraba antes del hostigamiento, para lo cual, el órgano decisorio de primera instancia dispondrá las acciones que se estimen necesarias para salvaguardar ese derecho, siendo éstas en todo caso de acatamiento obligatorio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 193 al 201 actual)

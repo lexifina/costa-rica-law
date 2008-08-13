@@ -1,1 +1,2 @@
-Artículo 144.- La Comisión se dará su reglamentación interna y establecerá la periodicidad de sus sesiones.
+Artículo 144.- El Ministerio de Seguridad Pública a través de la Escuela Nacional de Policía gestionará ante los diferentes Gobiernos, organismos e instituciones, la participación de sus funcionarios en todo programa de capacitación que se realice en nuestro país y en el extranjero y que tengan relación con la función policial promoviendo a la vez la adjudicación de becas para la realización de estudios de interés institucional.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 136 al 144 actual)

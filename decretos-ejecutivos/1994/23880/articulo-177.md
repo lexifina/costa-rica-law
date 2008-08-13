@@ -1,8 +1,4 @@
-Artículo 177.—Circunstancias agravantes. Para determinar la gravedad de la conducta y a efecto de graduar las sanciones contempladas en el artículo anterior, se tomará en cuenta:
-1) Si el denunciado es reincidente en la comisión de actos de acoso u hostigamiento sexual, por los que haya sido sancionado con anterioridad.
-2) Si existen dos o más víctimas por conductas de acoso u hostigamiento sexual.
-3) Si se demuestran conductas intimidatorias hacia la víctima, miembros de su familia, testigos o compañeros de trabajo o de estudio.
-4) Que el acoso u hostigamiento sexual se haya transformado en persecución laboral en contra de la víctima.
-5) Que el estado psicológico de la víctima haya sufrido graves alteraciones o distorsiones debidamente acreditadas mediante certificado médico oficial rendido por un especialista.
-6) La relación de superioridad jerárquica del denunciado respecto de la víctima, sea en grado de jefatura, de subordinación, de docente o de educando.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
+Artículo 177.—Orientación profesional. Toda persona que sienta que está siendo víctima de hostigamiento u acoso sexual podrá solicitar asesoría profesional en el Área de Psicología de este Ministerio, para que se valore y atienda su situación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 169 al 177 actual)

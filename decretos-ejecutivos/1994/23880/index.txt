@@ -194,6 +194,14 @@ articulo-193.md
 articulo-194.md
 articulo-195.md
 articulo-196.md
+articulo-197.md
+articulo-198.md
+articulo-199.md
+articulo-200.md
+articulo-201.md
+articulo-202.md
+articulo-203.md
+articulo-204.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

@@ -1,7 +1,2 @@
-Artículo 88.- El despido se efectuará sin responsabilidad patronal en los siguientes casos:
-a) Cuando incurra en causal de suspensión menor de ocho días después de habérsele aplicado dos veces esa misma sanción.
-b) Cuando reincida en causal de suspensión mayor de ocho días.
-c) En los casos expresamente previstos en el artículo 65 de la Ley General de Policía.
-d) Cuando el servidor incurra en alguna de las causales de despido contempladas en el Código de Trabajo en su artículo 81.
-e) Cuando el servidor incurra en falta grave.
-No podrá considerarse justificado un despido si antes no se ha realizado el procedimiento establecido en la ley.
+Artículo 88.-El competente en calidad de órgano director, para conocer de las llegadas tardías y las ausencias de los servidores policiales que no estén tipificadas por la normativa como causal de despido, serán: los Jefes de las Delegaciones Policiales, en el caso de los Cuerpos Policiales bajo el mismo mando de la Dirección General de la Fuerza Pública; por los Jefes de Departamento Regional y Subdirector para la Sede Central, en el caso de la Policía de Control de Drogas; por los Oficiales Directores de Estación, Jefe Operacional para la Sede Central y Director de la Academia, en el caso del Servicio Nacional de Guardacostas; por el Jefe de Seguridad Aeroportuaria, en el caso del Servicio Nacional de Vigilancia Aérea; y por los Jefes de Departamento en el caso de la Escuela Nacional de Policía.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

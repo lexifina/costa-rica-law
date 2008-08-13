@@ -1,1 +1,2 @@
-Artículo 107.- Los diferentes órganos administrativos, docentes o técnico policial de la institución, están en el deber de velar por el cumplimiento del presente reglamento reportando cualquier anomalía o transgresión al mismo.
+Artículo 107.- Es requisito para graduación, en cualquier tipo de programa, haber aprobado la totalidad de las materias que lo conforman, con una nota no inferior a setenta, en la escala de uno a cien, además aprobar el entrenamiento dirigido en los cursos en que esto sea pertinente.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 99 al 107 actual)

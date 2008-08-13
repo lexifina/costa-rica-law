@@ -1,1 +1,2 @@
-Artículo 97.- Para ser aspirante a un curso de especialización es necesario que tenga un rango formalmente otorgado de Sargento de Policía o superior a este, que se haya desempeñado en forma eficiente y ejemplar en sus labores y que satisfaga el perfil de entrada correspondiente al curso por recibir.
+Artículo 97.—Se tendrá como reincidente al servidor que en un período de tres meses diere mérito a ser sancionado por otra falta.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

@@ -1,1 +1,2 @@
-Artículo 131.- Los casos en que los actos y conductas no alcanzaren la consideración de falta leve, por corresponder a un nivel inferior a este, serán corregidos por el Instructor Profesor, Táctico o funcionario competente, con el apercibimiento respectivo.
+Artículo 131.- De las disciplina y asistencia en las lecciones. La sala de clases debe ser considerada como el lugar de estudio y de trabajo intelectual. Allí el alumno debe observar el máximo de atención y respeto para con los instructores, profesores y sus compañeros.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 123 al 131 actual)

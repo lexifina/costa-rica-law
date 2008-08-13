@@ -1,4 +1,7 @@
-Artículo 86.- La amonestación escrita corresponderá en los siguientes casos:
-a) Cuando el servidor en forma expresa incurra en falta de alguna gravedad por infracción de cualquiera de las obligaciones o prohibiciones estipuladas en la Ley o este Reglamento, siempre y cuando la falta no diera méritos para una sanción mayor.
-b) En los casos previstos en la ley, este Reglamento y en el Código de Trabajo.
-c)Cuando el ordenamiento jurídico exige la amonestación antes del despido.
+Artículo 86.-Las ausencias injustificadas, computadas dentro de un mismo mes calendario, se sancionarán de la siguiente forma:
+a) Por una fracción de jornada, amonestación escrita.
+b) Por ausencia de un día completo, o de dos medias jornadas alternas o consecutivas, suspensión hasta por cuatro días.
+c) Por ausencia de tres medias jornadas, suspensión hasta por seis días.
+d) Por ausencia de cuatro medias jornadas, o de dos días alternos, suspensión hasta por ocho días.
+e) Por ausencia de cinco o más medias jornadas, o por ausencia de dos días consecutivos o más de dos días alternos, despido sin responsabilidad patronal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

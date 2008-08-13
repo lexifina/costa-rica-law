@@ -1,1 +1,2 @@
-Artículo 119.- Los estudiantes tienen el deber de mantener su espacio, sea su cama, guardarropa y sus alrededores, en perfecto orden y limpieza.
+Artículo 119.- Todo acto irregular, comisión de delito o falta del educando que demande la aplicación de una sanción, deberá ajustarse al debido proceso. En el caso de las faltas leves, se instruirá el expediente por parte del Director General de la Escuela Nacional de Policía. En el caso de faltas graves deberá remitirse el informe correspondiente ante la Inspección Policial a efecto de que se levante el respectivo proceso administrativo-laboral.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 111 al 119 actual)

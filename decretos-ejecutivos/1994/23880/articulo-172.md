@@ -1,4 +1,2 @@
-Artículo 172.—Confidencialidad de la investigación. Se prohíbe a los funcionarios del Ministerio divulgar información sobre el contenido de las denuncias presentadas o en proceso de investigación, así como de las resoluciones o actos finales adoptados en materia de acoso u hostigamiento sexual.
-No implicará inobservancia de esta prohibición, los informes que por mandato legal o jurisdiccional deban remitirse a los órganos e instancias competentes. Cualquier infidencia grave o malintencionada respecto a las actuaciones substanciadas dentro de una causa disciplinaria, será considerada como falta grave en el desempeño de sus funciones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+Artículo 172.- Los funcionarios que hayan sido sancionados con correcciones disciplinarias, con suspensión mayor a dos semanas en el último año, no podrán concursar para obtener becas.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 164 al 172 actual)

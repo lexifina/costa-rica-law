@@ -1,1 +1,2 @@
-Artículo 106.- Desde el momento en que se formalice la admisión de un alumno en la Escuela y mientras permanezca en su régimen, quedarán sometidos dentro y fuera del plantel en sus actos como tales, a las disposiciones contempladas en este reglamento.
+Artículo 106.- Los cursos de especialización que se impartan en la Escuela Nacional de Policía, los definirá el Consejo Asesor de conformidad con la política del Ministerio de Seguridad Pública y las recomendaciones de la Dirección de la Escuela Nacional de Policía.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 98 al 106 actual)

@@ -1,1 +1,2 @@
-Artículo 85.- La amonestación verbal la aplicará el Jefe inmediato en caso de que el servidor en forma expresa cometa una falta leve a las obligaciones de su relación de servicio.
+Artículo 85.- La llegada tardía injustificada superior a veinte minutos, acarreará la pérdida de la fracción de la jornada correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

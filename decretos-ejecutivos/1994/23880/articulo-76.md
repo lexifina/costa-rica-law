@@ -1,5 +1,2 @@
-Artículo 76.- De las sanciones. De conformidad con lo establecido en la ley, existe la clasificación de las faltas cometidas en
-a) Leves y
-b) Graves
-Las faltas leves se sancionarán con amonestación verbal y amonestación escrita y serán aplicadas por el superior inmediato, una vez otorgada la audiencia de ley.
-Las faltas graves, se remitirán a la inspección Policial a efecto de abrir el correspondiente proceso disciplinario. Para tales faltas se aplicarán las sanciones de suspensión sin goce de salario y el despido sin responsabilidad para el patrono.
+Artículo 76.- Cuando las circunstancias de tiempo, distancia o lugar lo aconsejen, el Jefe del Departamento Disciplinario Legal podrá comisionar mediante resolución fundamentada a un funcionario del Ministerio para que sea el encargado de participar en la comparecencia oral y privada, estando facultado para juramentar a los testigos y peritos, tomar las declaraciones de los testigos, recibir la prueba de los encausados y sus conclusiones, preguntar y repreguntar, suspender o reiniciar la comparecencia, dar la palabra a las partes, admitir o rechazar preguntas de las partes. Podrá reservar para la resolución final, los recursos o incidentes que podrían interponer las partes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

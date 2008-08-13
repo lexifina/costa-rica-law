@@ -1,11 +1,2 @@
-Artículo 159.- La comisión de previo a adjudicar la beca tomará en cuenta en los participantes lo siguiente:
-a- Formación académica.
-b- Cumplimiento de los requisitos exigidos para la beca.
-c- Calificaciones anuales.
-d- Experiencia laboral.
-e- Antigüedad.
-f- Permanencia en el puesto.
-g- Edad.
-h- Estudio de expediente para lo cual el participante debe actualizarlo.
-i- Informe que al respecto emita el superior inmediato.
-j- Otros aspectos que interesen tomar en cuenta en relación con el grado de preparación del funcionario.
+Artículo 159.- Todo beneficiario de una beca estará obligado en el momento en que se solicite, a brindar sesiones de instrucción sobre la materia objeto de la beca y a colaborar con los programas de adiestramiento de la Escuela Nacional de Policía.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 151 al 159 actual)

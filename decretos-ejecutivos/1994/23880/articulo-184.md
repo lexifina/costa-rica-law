@@ -1,5 +1,6 @@
-Artículo 184.—Traslado de los cargos al denunciado. Recibida la denuncia o cumplido el trámite previsto en el artículo 182 del presente Reglamento, el órgano director contará con tres días hábiles para trasladar la apertura del procedimiento al servidor denunciado, quien será notificado en forma personal.
-El auto de apertura deberá contar con las prevenciones estipuladas en la Ley General de la Administración Pública que garantizan el debido proceso, incluyendo la citación a la comparecencia oral y privada para que dentro del término de cinco días hábiles contados a partir del día siguiente al de la notificación, el denunciado se refiera a todos y cada uno de los supuestos hechos que se le imputan y ofrezca los medios de prueba en descargo. La supuesta víctima, como parte del procedimiento, también será citada a la audiencia oral y privada, en donde podrá ejercitar los derechos y tendrá las responsabilidades que el ordenamiento le determine.
-La Administración evacuará las pruebas confesionales, testimoniales, o el uso del careo entre las partes dentro de la misma comparecencia oral y privada.
-Si el denunciado no ejerce su derecho de defensa, se continuará con el proceso hasta el dictado de la resolución de recomendación emitida por el Órgano Director.
+Artículo 184.—Sanciones. De conformidad con lo dispuesto por el artículo 25 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, según la gravedad de la falta, se impondrán las siguientes sanciones:
+1) Amonestación escrita.
+2) Suspensión sin goce de salario hasta por un mes.
+3) Despido sin responsabilidad patronal.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 176 al 184 actual)

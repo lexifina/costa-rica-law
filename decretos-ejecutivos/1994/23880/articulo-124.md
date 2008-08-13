@@ -1,1 +1,2 @@
-Artículo 124.- Las clases de acondicionamiento físico y orden cerrado, serán obligatorias para todos los educandos, salvo casos especiales, de prescripción médica.
+Artículo 124.- Se establecerá un horario para que cada grupo de estudiantes asista al comedor, este horario debe ser observado estrictamente. Antes de ingresar al comedor, los estudiantes procederán a formarse en el patio, ingresando en orden.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 116 al 124 actual)

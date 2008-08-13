@@ -1,1 +1,2 @@
-Artículo 157.- De previo a la participación en el concurso, el funcionario debe notificar a su superior acerca de su posible participación. El citado jefe puede objetar que el servidor concurse, pero debe notificar su negativa por escrito, lo cual no será vinculante en la decisión de Comisión de Becas.
+Artículo 157.- El Ministerio podrá exigir una garantía real o personal.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 149 al 157 actual)

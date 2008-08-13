@@ -1,1 +1,2 @@
-Artículo 122.- En caso de que ocurriera alguna emergencia en horas de la noche el Oficial de Compañía será la persona encargada de tomar todas las medidas que considere necesarias.
+Artículo 122.- Los estudiantes permanecerán en las aulas únicamente cuando estén recibiendo lecciones o bien en horas de estudio. Para dirigirse a cualquier área diferente a ésta, deberán requerir la autorización respectiva del táctico o instructor.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 114 al 122 actual)

@@ -1,3 +1,12 @@
-Artículo 167.—Política de Divulgación de la Ley y del presente capítulo del Reglamento. La prevención del hostigamiento sexual y la divulgación de la Ley y del presente Capítulo del Reglamento, corresponderá a la Dirección de Recursos Humanos y a la Dirección de la Fuerza Pública, para cuya tarea deberán coordinar con las Jefaturas de cada Unidad Policial del país. Podrá solicitarse además, la colaboración y participación de todos aquellos funcionarios que en razón de su cargo, puedan coadyuvar en el proceso de difusión.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+Artículo 167.- La comisión de previo a adjudicar la beca tomará en cuenta en los participantes lo siguiente:
+a- Formación académica.
+b- Cumplimiento de los requisitos exigidos para la beca.
+c- Calificaciones anuales.
+d- Experiencia laboral.
+e- Antigüedad.
+f- Permanencia en el puesto.
+g- Edad.
+h- Estudio de expediente para lo cual el participante debe actualizarlo.
+i- Informe que al respecto emita el superior inmediato.
+j- Otros aspectos que interesen tomar en cuenta en relación con el grado de preparación del funcionario.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 159 al 167 actual)

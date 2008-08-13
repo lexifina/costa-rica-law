@@ -1,1 +1,4 @@
-Artículo 147.- El funcionario favorecido con la adjudicación de una beca, está obligado a suscribir un contrato con el Ministerio estipulándose las condiciones específicas de los beneficios que recibirá el adjudicatario y de sus obligaciones para con el Ministerio. Las condiciones estipuladas en los carteles de las becas se entenderán por incorporadas al contrato.
+SECCION II
+Comisión de becas
+Artículo 147.- La Comisión de Becas es la encargada de a beneficiario de las becas en las diferentes especialidades, previa verificación y aprobación de los requisitos exigidos al candidato.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 139 al 147 actual)

@@ -1,1 +1,5 @@
-Artículo 94.- Los Programas de Suboficiales y Oficiales tienen como objeto habilitar al funcionario policial para asumir cargos y niveles superiores por la vía de la carrera policial.
+Artículo 94.—La amonestación escrita corresponderá en los siguientes casos:
+a) Cuando el servidor en forma expresa incurra en falta de alguna gravedad por infracción de cualquiera de las obligaciones o prohibiciones estipuladas en la Ley o este Reglamento, siempre y cuando la falta no diera méritos para una sanción mayor.
+b) En los casos previstos en la Ley, este Reglamento y en el Código de Trabajo.
+c) Cuando el ordenamiento jurídico exige la amonestación antes del despido.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34752 del 13 de agosto de 2008)

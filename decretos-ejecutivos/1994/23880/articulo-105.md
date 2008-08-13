@@ -1,3 +1,2 @@
-CAPITULO XVI
-Del Régimen Interno de la Escuela Nacional de Política
-Artículo 105.- Con el fin de regular el orden interno en la Escuela Nacional de Policía, se establecen normas para controlar el orden y la disciplina del estudiantado.
+Artículo 105.- Para ser aspirante a un curso de especialización es necesario que tenga un rango formalmente otorgado de Sargento de Policía o superior a este, que se haya desempeñado en forma eficiente y ejemplar en sus labores y que satisfaga el perfil de entrada correspondiente al curso por recibir.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 97 al 105 actual)

@@ -1,1 +1,2 @@
-Artículo 114.- Los estudiantes permanecerán en las aulas únicamente cuando estén recibiendo lecciones o bien en horas de estudio. Para dirigirse a cualquier área diferente a ésta, deberán requerir la autorización respectiva del táctico o instructor.
+Artículo 114.- Desde el momento en que se formalice la admisión de un alumno en la Escuela y mientras permanezca en su régimen, quedarán sometidos dentro y fuera del plantel en sus actos como tales, a las disposiciones contempladas en este reglamento.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 106 al 114 actual)

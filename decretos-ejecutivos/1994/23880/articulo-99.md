@@ -1,1 +1,2 @@
-Artículo 99.- Es requisito para graduación, en cualquier tipo de programa, haber aprobado la totalidad de las materias que lo conforman, con una nota no inferior a setenta, en la escala de uno a cien, además aprobar el entrenamiento dirigido en los cursos en que esto sea pertinente.
+Artículo 99.- El Programa Básico Policial está dirigido a dotar de conocimientos básicos dentro del marco teórico-práctico, a los aspirantes a integrar los cuerpos policiales. Está estructurado en los siguientes módulos: Area Humanidades, Area Jurídica, Area Técnico-Policial y Area de Entrenamiento Dirigido.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 91 al 99 actual)

@@ -1,1 +1,2 @@
-Artículo 104.- En cada grupo se designará un "Distinguido" quien fungirá como colaborador de los instructores en la disciplina del grupo y otras actividades de aprendizaje. Su designación será hecha por conducto del Jefe de Instrucción. Tal designación no le concede prerrogativa alguna.
+Artículo 104.- Los cursos de especialización tienen como propósito consolidar, profundizar y ampliar los conocimientos y habilidades adquiridos por el servidor policial para el desempeño de su cargo, en función con las necesidades administrativas y operativas específicas de la Unidad a que está adscrito.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 96 al 104 actual)

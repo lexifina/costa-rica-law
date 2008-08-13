@@ -1,1 +1,2 @@
-Artículo 134.- Las presentes normas deben asegurar un sistema de participación igualitaria entre todos los participantes.
+Artículo 134.- Los alumnos deben estar a la hora exacta, fijada en el horario, en su respectiva aula. En el momento en que ingresa el instructor deberá permanecer de pie hasta que se les indique que pueden sentarse. Con respecto a las ausencias o llegadas tardías, se podrá justificar ante el instructor, quedando a criterio de éste si procede o no la justificación.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 126 al 134 actual)

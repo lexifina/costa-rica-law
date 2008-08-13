@@ -1,1 +1,2 @@
-Artículo 150.- Todo funcionario que goce de una beca haya finalizado la misma debe rendir un informe a la Escuela Nacional de Policía dentro del plazo de 30 días sobre su participación en el programa o curso donde asistió, bajo pena de aplicación de una sanción disciplinaria de apercibimiento por escrito en caso de incumplimiento de esta disposición.
+Artículo 150.- La Comisión dará a conocer todas las ofertas de becas a través de la Dirección de Recursos Humanos del Ministerio, mediante circulares, para lo cual podrá solicitar a éste exhibir la información completa y hacerla llegar a las oficinas.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 142 al 150 actual)
