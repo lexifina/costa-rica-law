@@ -1,0 +1,5 @@
+ARTÍCULO 29.- Refrendo
+El trámite de refrendo de las licitaciones públicas del ICE deberá ser resuelto por la Contraloría General de la República, en un plazo que no podrá exceder de veinte (20) días hábiles, a partir de la fecha en que la solicitud haya sido presentada ante el órgano contralor.
+Los requisitos para la solicitud del refrendo se establecerán en el Reglamento de refrendo de las contrataciones, emitido por el órgano contralor, conforme a las disposiciones especiales establecidas para el ICE en esta Ley.
+Los contratos y convenios que no requieran refrendo contralor, estarán sujetos a la aprobación de la Unidad de Asesoría Jurídica Institucional del ICE; esta última resolverá con independencia del criterio de la Proveeduría y de la Auditoría Interna. El procedimiento interno de aprobación será establecido reglamentariamente.
+No estarán sujetas al refrendo las modificaciones contractuales que realice el ICE. Será responsabilidad exclusiva de la administración garantizar la legalidad de las modificaciones citadas, aspecto que estará sujeto a la fiscalización posterior facultativa de la Contraloría General de la República.

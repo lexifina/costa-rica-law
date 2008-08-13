@@ -1,6 +1,6 @@
 # Ley de Adquisiciones, Expropiaciones y Servidumbres del ICE
 
-Ley N° 6313 del 1979-01-04. SINALEVI, ficha 32618: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32618&param2=70695&param3=1>.
+Ley N° 6313 del 1979-01-04. SINALEVI, ficha 32618: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32618&param2=73662&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1994-04-15 | SINALEVI (1 normas) | 1979-01-04 |
 | 2 de 4 | 1994-04-15 | SINALEVI | 1979-01-04 |
 | 3 de 4 | 2008-01-01 | Ley 8508 | 2006-04-28 |
+| 4 de 4 | 2008-08-13 | Ley 8660 | 2008-08-08 |

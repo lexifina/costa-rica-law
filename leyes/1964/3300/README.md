@@ -1,6 +1,6 @@
 # Crea Junta del Servicio Eléctrico de Cartago JASEC
 
-Ley N° 3300 del 1964-07-16. SINALEVI, ficha 1377: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1377&param2=1481&param3=1>.
+Ley N° 3300 del 1964-07-16. SINALEVI, ficha 1377: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1377&param2=73658&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1-2 de 4 | 1998-05-29 | SINALEVI (6 normas) | 1964-07-16 |
 | 3 de 4 | 2002-01-22 | Ley 8175 | 2001-12-17 |
+| 4 de 4 | 2008-08-13 | Ley 8660 | 2008-08-08 |

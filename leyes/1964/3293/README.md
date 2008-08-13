@@ -1,6 +1,6 @@
 # Traspasa Telecomunicaciones al ICE y éste se Asocia a RACSA
 
-Ley N° 3293 del 1964-06-18. SINALEVI, ficha 35500: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35500&param2=37426&param3=1>.
+Ley N° 3293 del 1964-06-18. SINALEVI, ficha 35500: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35500&param2=81264&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1992-05-15 | SINALEVI (1 normas) | 1964-06-18 |
 | 2 de 3 | 1992-05-15 | SINALEVI (2 normas) | 1964-06-18 |
+| 3 de 3 | 2008-08-13 | Ley 8660 | 2008-08-08 |

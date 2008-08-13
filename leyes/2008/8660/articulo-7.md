@@ -1,0 +1,3 @@
+ARTÍCULO 7.- Servicio telefónico básico tradicional
+Excluyese el otorgamiento de concesiones o autorizaciones relacionadas con la prestación del servicio telefónico básico tradicional, salvo concesión otorgada por ley. No obstante, dichas redes y el servicio telefónico básico tradicional estarán sometidos a la competencia de la Sutel para efectos de su regulación
+El servicio telefónico básico tradicional es el que tiene como objeto la comunicación de usuarios, mediante centrales de conmutación de circuitos para voz y datos, en una red predominantemente alámbrica, con acceso generalizado a la población; se excluyen los servicios de valor agregado asociados.

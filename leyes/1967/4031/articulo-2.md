@@ -1,1 +1,3 @@
-Artículo 2º.- Las obligaciones y derechos de Costa Rica como Estado contratante se asignan al Instituto Costarricense de Electricidad, en razón de habérsele encomendado a dicha Institución la atención de las telecomunicaciones, según ley Nº 3226 de 28 de octubre de 1963.
+Artículo 2.-
+Las obligaciones y los derechos de Costa Rica como Estado contratante, se le asignan al ministro de Ambiente, Energía y Telecomunicaciones como rector del Sector Telecomunicaciones de Costa Rica. El ICE conservará la propiedad de los activos invertidos en las redes centroamericanas de telecomunicaciones, según el artículo 5 del Tratado centroamericano de telecomunicaciones.
+(Así reformado por el artículo 50 de la Ley N° 8660 del 8 de agosto de 2008)

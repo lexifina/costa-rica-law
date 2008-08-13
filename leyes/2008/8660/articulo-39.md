@@ -1,0 +1,15 @@
+ARTÍCULO 39.- Rectoría del Sector Telecomunicaciones
+El rector del Sector será el ministro de Ambiente, Energía y (Telecomunicaciones (Minaet), a quien le corresponderán las siguientes funciones:
+a) Formular las políticas para el uso y desarrollo de las telecomunicaciones.
+b) Coordinar, con fundamento en las políticas del Sector, la elaboración del Plan nacional de desarrollo de las telecomunicaciones. El primer Plan que se dicte deberá establecer, como mínimo, el acceso para las personas físicas a opciones o paquetes de tarifas que difieran de las aplicadas en
+condiciones normales de explotación comercial, con objeto de garantizar el acceso al servicio telefónico para las personas con necesidades sociales especiales, los habitantes de las zonas donde el servicio no sea financieramente rentable, o las personas que no cuenten con recursos suficientes
+c) Velar por que las políticas del Sector sean ejecutadas por las entidades públicas y privadas que participan en el Sector Telecomunicaciones.
+d) Aprobar o rechazar el criterio técnico de la Superintendencia de Telecomunicaciones, sobre la adjudicación, prórroga, extinción, resolución, cesión, reasignación y rescate de las concesiones y los permisos de las frecuencias del espectro radioeléctrico. En el caso de que se separe de dicho criterio, el Poder Ejecutivo deberá justificar las razones de orden público o interés nacional que lo sustenten
+e) Dictar el Plan nacional de telecomunicaciones, así como los reglamentos ejecutivos que in correspondan
+f) Realizar la declaratoria de interés público y dictar el decreto para la imposición de servidumbres forzosas o para la expropiación de los bienes necesarios para la operación de las redes publicas de telecomunicaciones
+g) Representar al país ante las organizaciones y los foros internacionales de telecomunicaciones y en los relacionados con la sociedad de la información.
+h) Coordinar las políticas de desarrollo de las telecomunicaciones con otras políticas publicas destinadas a promover la sociedad de la información.
+i) Velar por el cumplimiento de la normativa ambiental nacional aplicable y el desarrollo sostenible de las telecomunicaciones en armonía con la naturaleza.
+j) Impulsar una eficiente gestión integral de los residuos provenientes de las actividades de telecomunicaciones, así como la optimización de los recursos mediante la planificación y ejecución de acciones regulatorias. operativas, financieras, administrativas, educativas, de monitoreo y evaluación, en coordinación con los demás entes competentes, según la legislación nacional de residuos.
+k) Las demás funciones que le asigne la ley.
+El Minaet. para cumplir estas funciones y garantizar la calidad e idoneidad (ti.’ su personal, contará con los profesionales y técnicos que requiera en las materias de su competencia. Dichos funcionarios estarán sujetos al régimen jurídico laboral aplicable a los de la Superintendencia de Telecomunicaciones Asimismo, podrá contratar a los asesores y consultores que necesite para el cumplimiento efectivo de sus funciones. La organización, las funciones y demás atribuciones se definirán reglamentariamente

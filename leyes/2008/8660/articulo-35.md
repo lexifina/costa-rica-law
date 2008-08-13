@@ -1,0 +1,3 @@
+ARTICULO 35.- Manejo de información confidencial
+La información que el ICE y sus empresas obtengan de sus usuarios y clientes, será de carácter confidencial y solo podrá ser utilizada y compartida entre el ICE y sus empresas, para los fines del negocio. Su conocimiento por parte de terceros queda restringido, salvo cuando así lo solicite una autoridad legalmente competente, justificando su necesidad y por los medios respectivos.
+Es confidencial la información relacionada con las actividades del ICE y sus empresas, calificada por estas como secreto industrial, comercial o económico, cuando, por motivos estratégicos, comerciales y de competencia, no resulte conveniente su divulgación a terceros.

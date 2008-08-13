@@ -1,0 +1,16 @@
+ARTÍCULO 14.- Política de endeudamiento
+1. Para el cumplimiento de los fines establecidos en esta Ley, el ICE y sus empresas, salvo aquellas empresas subsidiarias constituidas fuera del país, están facultados para negociar, contratar y ejecutar, de manera autónoma, endeudamientos internos y externos de mediano y largo plazo hasta un nivel de endeudamiento máximo del cuarenta y cinco por ciento (45%) en relación con sus activos totales. El endeudamiento se calculará con base en el total consolidado del valor de los activos totales del ICE y sus empresas al 31 de diciembre del año anterior; para el cálculo se o excluirán los pasivos de corto plazo. La inversión externa podrá ejecutarse siempre y cuando no menoscabe la inversión interna requerida para la prestación óptima de sus servicios y productos.
+Los cambios en el pasivo total del ICE, como consecuencia de las variaciones en los tipos de cambio, no serán considerados para efectos de medir la variación neta del pasivo total, para el cálculo del nivel de endeudamiento regulado en este artículo.
+2. En caso de que el ICE y sus empresas requieran incrementar su endeudamiento en un porcentaje mayor que el contemplado en el inciso 1 de este artículo, deberán someter sus requerimientos de financiamiento adicional a la autorización del Poder Ejecutivo, el cual, en el plazo de cinco (5) días naturales a partir del recibo de la solicitud, le pedirá una recomendación al Consejo Consultivo en Energía y Telecomunicaciones. Para elaborar su recomendación, el Consejo considerará:
+a) Las condiciones de oferta y demanda en el mercado de energía eléctrica y telecomunicaciones.
+b) El impacto en la capacidad competitiva de la economía.
+c) El acceso de los habitantes a estos servicios, en condiciones de universalidad y solidaridad.
+d) La capacidad de endeudamiento total del país y el efecto del nuevo financiamiento en la balanza de pagos.
+e) El impacto del financiamiento sobre la situación global de las finanzas públicas.
+f) Los requerimientos de inversión de otros sectores económicos y sociales y las prioridades del desarrollo nacional.
+g) Las necesidades de servicios de energía eléctrica, telecomunicaciones e infocomunicaciones; así como las condiciones de competitividad que el país requiere en esos sectores.
+El Consejo Consultivo en Energía y Telecomunicaciones adoptará las decisiones por mayoría calificada y la recomendación deberá ser motivada y razonada, de conformidad con lo establecido en la Ley general de la Administración Pública, N.° 6227, de 2 de mayo de 1978.
+El Poder Ejecutivo autorizará o rechazará el incremento de endeudamiento solicitado, en el plazo de diez días naturales a partir del recibo de la recomendación.
+El incremento de financiamiento resultante de las autorizaciones adicionales concedidas según el inciso 2 de este artículo, no disminuirá la capacidad de endeudamiento autorizada en el inciso 1 anterior.
+3. El endeudamiento no ejecutado en cualquier año podrá utilizarse en los períodos siguientes, en adición al endeudamiento del año correspondiente.
+4. El ICE y sus empresas quedan facultados para suscribir, ejecutar y desembolsar instrumentos financieros de corto plazo para el financiamiento de capital de trabajo, entre otros, cartas de crédito, garantías, líneas de crédito y pasivos contingentes de corto plazo.

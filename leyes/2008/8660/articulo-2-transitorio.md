@@ -1,0 +1,2 @@
+TRANSITORIO II.-
+Sin perjuicio de lo dispuesto en e! artículo 39 de esta Ley, las competencias del Ministerio de Gobernación y Policía y e! Departamento de Control Nacional de Radio, asignadas en la Ley de radio, N.” 1758, de 19 de junio de 1954, y relacionadas con el control del espectro radioeléctrico, se traspasan a la Sutel. De igual manera, se trasladan a la Sutel las funciones asignadas a la Dirección de Servicios de Telecomunicaciones, de la Autoridad Reguladora de los Servicios Públicos.

@@ -1,8 +1,3 @@
-ARTÍCULO 23.- La Junta Administrativa del Servicio Eléctrico
-Municipal de Cartago estará sujeta a la Ley de Administración Financiera
-de la República y de Presupuestos Públicos, No. 1279, de 2 de mayo de
-1951; la Ley de Contratación Administrativa, No. 7494, de 2 de mayo de
-1995; la Ley para el Equilibrio Financiero del Sector Público, No. 6955,
-de 24 de febrero de 1984 y la Ley de Creación de la Autoridad
-Presupuestaria, No. 6821, de 19 de octubre de 1982, no se aplicarán a la
-Junta Administrativa del Servicio Eléctrico Municipal de Cartago.
+Artículo 23.- La Junta Administrativa del Servicio Eléctrico Municipal de Cartago no estará sujeta a la Ley de administración financiera de la República y presupuestos públicos, N.° 8131, de 18 de setiembre de 2001, y sus reformas, excepto a los artículos 57 y 94; tampoco a la Ley para el equilibrio financiero del Sector Público, N.° 6955, de 24 de febrero de 1984, ni a la Ley de creación de la Autoridad Presupuestaria, N.° 6821, de 19 de octubre de 1982.
+A la Junta Administrativa del Servicio Eléctrico Municipal de Cartago se le aplicará el mismo Régimen de contratación administrativa que al Instituto Costarricense de Electricidad, establecido en la normativa vigente.
+(Así reformado por el artículo 45 aparte b) de la Ley N° 8660 del 8 de agosto de 2008)

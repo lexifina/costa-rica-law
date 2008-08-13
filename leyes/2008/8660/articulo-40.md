@@ -1,0 +1,6 @@
+ARTÍCULO 40.- Plan nacional de desarrollo de las telecomunicaciones
+El Plan nacional de desarrollo de las telecomunicaciones es el instrumento
+de planificación y orientación general del Sector y define las metas, los objetivos y
+las prioridades de este.
+El Plan deberá tomar en consideración las políticas del Sector y adoptará una perspectiva de corto, mediano y largo plazo; será dictado por el ministro rector en consulta con las entidades públicas y privadas relacionadas con el Sector y en coordinación con el Ministerio de Planificación Nacional y Política Económica. Asimismo, este Plan deberá tomar en cuenta las políticas y los planes ambientales nacionales que promueva el Ministerio para la protección ambiental y los recursos naturales, así como los principios contenidos en la normativa internacional ratificada por el país, relativa a estos temas. Será sometido a la consideración y aprobación de la Presidencia de la República, con el fin de que sea integrado al Plan nacional de desarrollo.
+El Plan será remitido a la Contraloría General de la República, a la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos (Aresep), la Sutel y la Asamblea Legislativa, para su información.
