@@ -1,6 +1,8 @@
 CAPITULO III
-Del bautizo de Instituciones, Red Vial, Edificios, Grupos Habitaría parajes obras públicas y accidentes geográficos
-Artículo 14.—Los interesados en bautizar con determinado nombre una institución, edificio, calle, carretera, paraje, grupos habitacionales, obras públicas y accidentes geográficos lo comunicarán así a la Comisión, observando las disposiciones de este Reglamento:
+(*)Del bautizo de Instituciones, Red Vial, Edificios, Parajes, Obras Públicas y Accidentes Geográficos
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34762 de 13 de agosto de 2008)
+Artículo 14.—Los interesados en bautizar con determinado nombre una Institución, Edificio, Red Vial, Parajes, y Obras todas ellas Públicas, así como Accidentes Geográficos, lo comunicarán a la Comisión , observando las disposiciones de este Reglamento.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 34762 de 13 de agosto de 2008)
 a. No se permitirá el empleo de nombre en idioma extranjero, excepto aquellos que representen valores culturales establecidos en nuestro país.
 b. Si se trata de nombres indígenas, se conservará la fonética original, adaptándola a la ortografía castellana.
 c. Todo nombre geográfico se inscribirá con la ortografía que tradicionalmente haya tenido. Los nombres que se incorporen en lo sucesivo, se inscribirán con la ortografía vigente, salvo las adaptaciones que deban hacerse para efecto de la fonética indígena.
