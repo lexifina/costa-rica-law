@@ -19,3 +19,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivie
 | 4 | 2004-01-07 | Reglamento 5340 (2004-01-07) |
 | 5 | 2007-12-12 | Reglamento 5647 (2007-12-12) |
 | 6 | 2008-02-08 | Reglamento 5658 (2008-02-08) |
+| 7 | 2008-08-13 | Reglamento 5688 (2008-08-13) |

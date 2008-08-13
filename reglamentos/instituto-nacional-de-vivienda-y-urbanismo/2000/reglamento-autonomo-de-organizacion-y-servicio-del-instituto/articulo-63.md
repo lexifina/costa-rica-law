@@ -1,2 +1,2 @@
-Artículo 63.—Las licencias no comprendidas en los artículos anteriores deberán ser aprobadas por la Gerencia.
-Los permisos que conceda el Instituto no interrumpen la continuidad del trabajo para efectos de antigüedad.
+Artículo 63: El Instituto podrá también conceder permisos para la realización de estudios dentro o fuera del país, lo que se regirán por el Reglamente Becas.
+(Así reformado mediante sesión N° 5688 del 13 de agosto de 2008)
