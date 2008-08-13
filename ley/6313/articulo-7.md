@@ -1,16 +1,4 @@
-ARTICULO 7º.- Una vez aprobado por el Consejo Directivo el avalúo
-que se indica en los artículos anteriores, el expropiante requerirá al
-propietario, a los inquilinos o arrendatarios en su caso mediante
-notificaciones personales o telegráficas, para que manifiesten, dentro de
-los ocho días hábiles siguientes, si están dispuestos a vender el inmueble
-y aceptar las indemnizaciones de desalojo, por los precios que indiquen
-los avalúos, a efecto de que comparezcan al otorgamiento de las
-escrituras correspondientes. Simultáneamente, con el requerimiento, la
-Gerencia podrá expedir un mandamiento provisional de anotación de las
-diligencias, y el Registro Público hará la anotación respectiva,
-Practicada esta anotación, la transmisión de la propiedad, o la
-constitución de cualquier derecho real sobre la cosa, se entenderá hecha
-sin perjuicio del anotante. La anotación caducará y se cancelará de
-oficio, si dentro de los tres meses siguientes no se presenta el
-mandamiento de anotación definitivo, expedido por el juzgado que conoce
-de las diligencias judiciales.
+Artículo 7.-
+Una vez aprobado por la Gerencia el avalúo indicado en el artículo anterior y dictado el acuerdo expropiatorio correspondiente por parte del Consejo Directivo, el expropiante requerirá al propietario, a los inquilinos o arrendatarios, en su caso, mediante notificaciones personales para que manifiesten, dentro de los ocho días siguientes, si están dispuestos a vender el inmueble y a aceptar las indemnizaciones de desalojo, por los precios que señalan los avalúos, a efecto de que comparezcan al otorgamiento de las escrituras correspondientes.
+Simultáneamente con el requerimiento, la Gerencia podrá expedir un mandamiento provisional de anotación de las diligencias, y el Registro Público hará la anotación respectiva. Practicada esa anotación, la transmisión de la propiedad o la constitución de cualquier derecho real sobre esta, se entenderá hecha sin perjuicio del anotante. La anotación caducará y se cancelará de oficio, si, dentro del año siguiente, no se presenta el mandamiento de anotación definitivo, expedido por el juzgado que conoce de las diligencias judiciales.
+(Así reformado por el artículo 49 de la Ley N° 8660 del 8 de agosto de 2008)

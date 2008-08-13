@@ -1,21 +1,5 @@
 CAPITULO III
 Organización y Administración
-Artículo 10.-La Administración superior del Instituto corresponderá
-a un Consejo Directivo integrado por siete miembros propietarios de
-nombramiento del Poder Ejecutivo, cuatro de los cuales formarán el quórum
-necesario para las sesiones.
-Por lo menos tres directores serán Ingenieros, uno Licenciado en
-Leyes, otro entendido en Ciencias Económicas y los otros dos personas de
-reconocida capacidad y diligencia en finanzas, industrias o agricultura.
-Todos deberán ser personas caracterizadas por su honorabilidad, su
-convicción democrática y su fe en que los ideales expresados en el
-Instituto son realizables y de positivo beneficio para Costa Rica. Serán
-costarricenses de preferencia, o extranjeros profundamente vinculados en
-el país, con diez años de residencia en él por lo menos, y que no estén
-ligados por empleo o por posesión legal a empresas o actividades que por
-su naturaleza resulten antagónicas a los propósitos del Instituto o sean
-competidoras de éste.
-( Así reformado por el artículo 1º de la Ley Nº 646 de 27 de julio
-de 1949).
-( TACITAMENTE REFORMADO por el artículo 5º de la Ley Nº 4646 de 20
-de octubre de 1970 y 3º de la Nº 5507 de 19 de abril de 1974).
+Artículo 10.- La administración superior del Instituto corresponderá a un Consejo Directivo, integrado por siete (7) miembros propietarios de nombramiento del Poder Ejecutivo, cuatro (4) de los cuales formarán el quorum necesario para las sesiones. Los miembros de la Junta Directiva, salvo el presidente ejecutivo, quien devengará salario fijo, percibirán por cada sesión a la que asistan, las dietas equivalentes al diez por ciento (10%) del salario base del contralor o la contralora general de la República. Podrán remunerarse hasta un máximo de ocho (8) sesiones por mes. El Consejo Directivo determinará la frecuencia con que celebre sus sesiones.
+Tres (3) directores serán ingenieros, con especialidad o experiencia profesional en telecomunicaciones o electricidad; uno, licenciado en Ciencias Económicas con el grado de maestría en Administración; uno, licenciado en Informática, con especialidad en Telemática y otro, licenciado en Derecho, con especialidad o experiencia profesional en Derecho público; todos deberán estar incorporados a sus respectivos colegios profesionales, de conformidad con la ley. El presidente ejecutivo deberá reunir al menos una de las especialidades o experiencia profesional antes mencionadas. Los directores deberán contar con un mínimo de siete (7) años de reconocida experiencia profesional, gerencial o empresarial en las áreas antes indicadas. Todos deberán ser costarricenses caracterizados por su honorabilidad. No podrán ser nombrados quienes, por un período de un año anterior al nombramiento, hayan realizado actividades que presenten un conflicto de intereses con el nuevo cargo; los directores serán elegidos por un concurso de antecedentes.
+(Así reformado por el artículo 43 de la Ley N° 8660 del 8 de agosto de 2008)

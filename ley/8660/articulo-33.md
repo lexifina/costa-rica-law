@@ -1,0 +1,2 @@
+ARTÍCULO 33.- Derechos laborales y situaciones jurídicas consolidadas
+Ratifícanse la vigencia, la plena validez y la eficacia de los derechos laborales, las situaciones jurídicas consolidadas y los beneficios socioeconómicos que tienen y han venido recibiendo los trabajadores del ICE, conforme a su Estatuto de personal; los de Radiográfica Costarricense Sociedad Anónima (Racsa), de acuerdo con su Reglamento de trabajo, y los de la Compañía Nacional de Fuerza y Luz (CNFL), según la convención colectiva, los que se mantendrán vigentes con la promulgación de esta Ley.

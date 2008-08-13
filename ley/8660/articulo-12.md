@@ -1,0 +1,4 @@
+ARTÍCULO 12.- Compras verdes
+Autorízase al ICE y sus empresas, para que promuevan la compra y utilización de materiales reutilizables, reciclables, biodegradables y valorizables, así como de productos fabricados con material reciclado bajo procesos ambientalmente amigables, que cumplan las especificaciones técnicas requeridas por la Administración Pública.
+Para ello, en la valoración de las licitaciones y compras directas, deberán dar un veinte por ciento (20%) adicional a los oferentes que, en igualdad de condiciones, demuestren que los productos ofrecidos, incorporan los criterios de la gestión integral de residuos, así como la gestión del residuo, una vez terminada su vida útil.
+La Proveeduría de la Institución deberá incluir, en los carteles de licitación o de compra directa, criterios ambientales y de ciclo de vida de los productos, para evaluar las licitaciones de conformidad con los criterios establecidos en el Reglamento de esta Ley.

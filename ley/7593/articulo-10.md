@@ -1,13 +1,4 @@
-ARTICULO 10.- Competencia del prestatario
-El ente encargado de otorgar el permiso o la concesión para prestar
-un determinado servicio público, establecerá el ámbito de competencia del
-prestatario. Por la naturaleza del servicio, se puede otorgar la
-prestación exclusiva; sin embargo, esta disposición podrá variarse de
-acuerdo con lo dispuesto en el artículo 13.
-La autoridad reguladora resolverá los conflictos de competencia por
-razón de territorio que se presenten entre los prestatarios, en las
-materias sobre las que esta ley le atribuye funciones en los términos del
-artículo 5. Para ello, concederá una audiencia a las entidades
-involucradas, en el plazo de quince días a partir de la denuncia del
-conflicto y resolverá dentro del lapso establecido en la Ley General de
-la Administración Pública.
+Artículo 10.- Competencia del prestador
+El ente encargado de otorgar el permiso o la concesión para prestar un determinado servicio público, establecerá el ámbito de competencia del prestador. Por la naturaleza del servicio, se puede otorgar la prestación exclusiva; sin embargo, esta disposición podrá variarse de acuerdo con lo dispuesto en el artículo 13.
+La autoridad reguladora resolverá los conflictos de competencia por razón de territorio que se presenten entre los prestadores, en las materias sobre las que esta ley le atribuye funciones en los términos del artículo 5. Para ello, concederá una audiencia a las entidades involucradas, en el plazo de quince días a partir de la denuncia del conflicto y resolverá dentro del lapso establecido en la Ley General de la Administración Pública.
+(Así reformado por el artículo 41 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)

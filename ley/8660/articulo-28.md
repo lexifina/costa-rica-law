@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Límites de la cesión
+Los derechos y las obligaciones del contratista no podrán cederse sin la autorización previa y expresa del ICE, por medio de acto debidamente razonado. En ningún caso la cesión procederá en contra de las prohibiciones establecidas en la Ley N.° 7494, Contratación administrativa. El ICE podrá autorizar la cesión siempre que no se desmejoren las condiciones del contrato anterior.

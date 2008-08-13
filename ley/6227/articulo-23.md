@@ -8,9 +8,9 @@ d) Seguridad Pública;
 e) Hacienda;
 f) Agricultura y Ganadería;
 g) Economía, Industria y Comercio;
-( Así reformado por el artículo 15 de la Ley Nº 7152 de 5 de junio de 1990)
-h) Ambiente y Energía;
-(El artículo 116 de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995 modificó el nombre del Ministerio en la forma indicada)
+(Así reformado este inciso por el artículo 15 de la Ley Orgánica del Ministerio del Ambiente y Energía N° 7152 de 5 de junio de 1990)
+h) Ambiente, Energía y Telecomunicaciones
+(Así reformado el inciso anterior por el artículo 48, aparte a) de la Ley N° 8660 del 8 de agosto de 2008)
 i) Obras Públicas y Transportes;
 j) Educación Pública;
 k) Salud;

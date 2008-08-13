@@ -1,0 +1,2 @@
+TRANSITORIO III.-
+A! entrar en vigencia la presente Ley, el personal, ei presupuesto, los activos, los pasivos y e! patrimonio del Departamento Nacional de Control de Radio del Ministerio de Gobernación y Policía asignado a labores de control del espectro radioeléctrico, se transferirán a la Sutel. De igual manera, se trasladan a la Sutel el presupuesto, los activos, pasivos y el patrimonio de la Autoridad Reguladora de los Servicios Públicos, asignado a la Dirección de Servicios de Telecomunicaciones.

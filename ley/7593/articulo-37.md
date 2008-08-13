@@ -1,10 +1,3 @@
-ARTICULO 37.- Plazo para fijar precios y tarifas
-La Autoridad Reguladora resolverá en definitiva toda solicitud
-ordinaria para la fijación de precios y tarifas, en un plazo que no podrá
-exceder de treinta días naturales después de la audiencia. Si pasado ese
-término el Regulador General no ha tomado la decisión correspondiente,
-será sancionado por la Junta Directiva del Organo Regulador, con
-suspensión del cargo hasta por treinta días.
-La suspensión de dos o más veces en un mismo año calendario, se
-considerará falta grave y constituirá causal de despido sin
-responsabilidad patronal.
+Artículo 37.- Plazo para fijar precios y tarifas
+La Autoridad Reguladora resolverá en definitiva toda solicitud de fijación o cambio ordinario de tarifas, en un plazo que no podrá exceder de treinta (30) días naturales posteriores a la fecha de la celebración de la audiencia. Si, pasado ese término, quien, de conformidad con esta Ley, deba resolver, no ha tomado la decisión correspondiente, será sancionado por el regulador general de la Autoridad Reguladora, con suspensión del cargo hasta por treinta (30) días. La suspensión dos veces o más en un mismo año calendario, se considerará falta grave y constituirá causal de despido sin responsabilidad patronal.
+(Así reformado por el artículo 41 aparte g) de la Ley N° 8660 del 8 de agosto de 2008)

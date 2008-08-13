@@ -1,29 +1,14 @@
 CAPITULO VIII
-AUDIENCIAS
-ARTICULO 36.- Convocatoria
-Para los asuntos indicados en este artículo, la Autoridad Reguladora
-convocará a audiencia, en la que podrán participar las personas que
-tengan interés legítimo para manifestarse. Con ese fin, la Autoridad
-Reguladora ordenará publicar en el diario oficial La Gaceta y en dos
-periódicos de circulación nacional, los asuntos que a continuación se
-enumeran:
-a) Las solicitudes para la fijación ordinaria de tarifas y precios
-de los servicios públicos.
-b) Las solicitudes de autorización de generación de fuerza eléctrica
-de acuerdo con la Ley No. 7200, del 28 de setiembre de 1990,
-reformada por la Ley No. 7508, del 9 de mayo de 1995.
-c) La formulación y revisión de las normas técnicas aplicables a los
-servicios públicos objeto de regulación.
-d) La formulación o revisión de los modelos de fijación de precios y
-tarifas, de conformidad con el artículo 31 anterior.
-Después de la publicación se convocará a una audiencia, dentro de un
-plazo de treinta días naturales para la presentación de oposiciones con
-base en estudios técnicos.
-Las oposiciones habrán de formularse por escrito y se sustentarán
-oralmente con las razones de hecho y de derecho que sean pertinentes. En
-esta audiencia, podrán hacer uso de la palabra quienes hayan formulado las
-oposiciones, según lo estipule el reglamento.
-La Autoridad Reguladora establecerá un registro de asociaciones para
-la defensa de los consumidores o los usuarios, asociaciones de desarrollo
-comunal u otras organizaciones sociales, que podrán oponerse, cuando
-tengan interés legítimo, al contenido de las publicaciones.
+Audiencias
+Artículo 36.- Asuntos que se someterán a audiencia pública
+Para los asuntos indicados en este articulo, la Autoridad Reguladora convocará a audiencia, en la que podrán participar las personas que tengan interés legítimo para manifestarse. Con ese fin, la Autoridad Reguladora ordenará publicar en el diario oficial La Gaceta y en dos periódicos de circulación nacional, los asuntos que se enumeran a continuación:
+a) Las solicitudes para la fijación ordinaria de tarifas y precios de los servicios públicos.
+b) Las solicitudes de autorización de generación de fuerza eléctrica de acuerdo con la Ley N.° 7200, de 28 de setiembre de 1990, reformada por la Ley N.° 7508, de 9 de mayo de 1995.
+c) La formulación y revisión de las normas señaladas en el artículo 25.
+d) La formulación o revisión de los modelos de fijación de precios y tarifas, de conformidad con el artículo 31 de la presente Ley.
+Para estos casos, todo aquel que tenga interés legítimo podrá presentar su oposición o coadyuvancia, por escrito o en forma oral, el día de la audiencia, momento en el cual deberá consignar el lugar exacto o el número de fax, para efectos de notificación por parte de la Aresep. En dicha audiencia, el interesado deberá exponer las razones de hecho y de derecho que considere pertinentes.
+La audiencia se convocará una vez admitida la petición y si se han cumplido los requisitos formales que establece el ordenamiento jurídico. Para este efecto, se publicará un extracto en el diario oficial La Gaceta y en dos periódicos de circulación nacional, con veinte (20) días naturales de anticipación a la celebración de la audiencia.
+Tratándose de una actuación de oficio de la Autoridad Reguladora, se observará el mismo procedimiento.
+Para los efectos de legitimación por interés colectivo, las personas jurídicas organizadas bajo la forma asociativa y cuyo objeto sea la defensa de los derechos de los consumidores o de los usuarios, podrán registrarse ante la Autoridad Reguladora para actuar en defensa de ellos, como parte opositora, siempre y cuando el trámite de la petición tarifaria tenga relación con su objeto. Asimismo, estarán legitimadas las asociaciones de desarrollo comunal u otras organizaciones sociales que tengan por objeto la defensa de los derechos e intereses legítimos de sus asociados.
+Las personas que estén interesadas en interponer una oposición con estudios técnicos y no cuenten con los recursos económicos necesarios para tales efectos, podrán solicitar a la Aresep, la asignación de un perito técnico o profesional que esté debidamente acreditado ante este ente, para que realice dicha labor. Esto estará a cargo del presupuesto de la Autoridad Reguladora. Asimismo, se faculta a la Autoridad Reguladora de los Servicios Públicos para que establezca oficinas regionales en otras zonas del país, conforme a sus posibilidades y necesidades.
+(Así reformado por el artículo 41 aparte g) de la Ley N° 8660 del 8 de agosto de 2008)
