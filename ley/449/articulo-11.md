@@ -1,20 +1,3 @@
-Artículo 11.- Los miembros del Consejo Directivo desempeñarán su
-cometido con entera independencia del Poder Ejecutivo, y serán únicos
-responsables de su gestión ante la ley. Serán inamovibles durante el
-período de su cargo, salvo el caso de declararse contra ellos alguna
-responsabilidad legal. Las relaciones entre el Instituto y el Poder
-Ejecutivo serán a través del Ministerio de Obras Públicas.
-Los miembros del Consejo durarán en funciones ocho años, y serán
-nombrados por partes cada dos años, debiendo hacerse sus nombramientos un
-año y tres años después de la toma de posesión de cada Poder Ejecutivo.
-Las partes a que se hace mención aquí serán cuatro: tres compuestas de
-dos miembros cada una y una de un miembro. Al expirar su período,
-cualquier director podrá ser nombrado nuevamente como tal.
-Dejará de ser miembro del Consejo el que se ausentare del país por
-más de tres meses sin autorización del Consejo, o con ésta si la ausencia
-fuere mayor de un año; o bien el que faltare a seis sesiones ordinarias
-consecutivas sin autorización previa. En estos casos, el Consejo
-procederá a informar al Poder Ejecutivo para que designe a otra persona
-por el resto del período respectivo.
-( TACITAMENTE REFORMADO por el artículo 5º de la Ley Nº 4646 de 20
-de octubre de 1970).
+Artículo 11.- Los miembros del Consejo Directivo desempeñarán su cometido con autonomía, de conformidad con el ordenamiento jurídico, y serán los únicos responsables de su gestión ante la ley. Sin perjuicio de las otras sanciones que les correspondan, responderán personalmente con su patrimonio, por las pérdidas que le provoquen al ICE, por la autorización que hayan hecho de operaciones prohibidas por la ley o contrarias a los intereses y objetivos de la Institución. Quedarán exentos de esa responsabilidad, únicamente quienes hagan constar su voto disidente. Serán inamovibles durante el período de su cargo, excepto cuando exista justa causa o se declare contra ellos alguna responsabilidad legal que los inhiba del cumplimiento de sus funciones. Las relaciones entre el Instituto y el Poder Ejecutivo serán por medio del ministro rector de los Sectores Energía y Telecomunicaciones.
+El presidente ejecutivo será nombrado por un período de cuatro (4) años, a partir del inicio del período presidencial respectivo. Los demás miembros del Consejo durarán en funciones seis (6) años; serán nombrados uno cada año y podrán ser reelegidos. Dejará de ser miembro del Consejo quien se ausente del país por más de dos (2) meses sin la autorización del Consejo, o con esta, si la ausencia es mayor que nueve (9) meses, o bien, el que falte a cuatro (4) sesiones ordinarias consecutivas sin autorización previa. En estos casos, el Consejo procederá a informar al Poder Ejecutivo, para que designe a otra persona por el resto del período respectivo.
+(Así reformado por el artículo 43 de la Ley N° 8660 del 8 de agosto de 2008)

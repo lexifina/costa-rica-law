@@ -1,9 +1,3 @@
-ARTICULO 24.- Suministro de información
-A solicitud de la Autoridad Reguladora, las entidades reguladas
-suministrarán informes, reportes, datos, copias de archivos y cualquier
-otro medio electrónico o escrito donde se almacene información
-financiera, contable, económica, estadística y técnica relacionada con la
-prestación del servicio público que brindan. Para el cumplimiento
-exclusivo de sus funciones, la Autoridad Reguladora tendrá la potestad de
-inspeccionar y registrar los libros legales y contables, comprobantes,
-informes, equipos y las instalaciones de los prestatarios.
+Artículo 24.- Suministro de información
+A solicitud de la Autoridad Reguladora, las entidades reguladas suministrarán informes, reportes, datos, copias de archivos y cualquier otro medio electrónico o escrito donde se almacene información financiera, contable, económica, estadística y técnica relacionada con la prestación del servicio público que brindan. Para el cumplimiento exclusivo de sus funciones, la Autoridad Reguladora tendrá la potestad de inspeccionar y registrar los libros legales y contables, comprobantes, informes, equipos y las instalaciones de los prestadores.
+(Así reformado por el artículo 41 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)

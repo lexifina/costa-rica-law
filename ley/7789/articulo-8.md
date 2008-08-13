@@ -1,18 +1,4 @@
-ARTÍCULO 8.- La Empresa y sus subsidiarias estarán sometidas al
-derecho privado en el giro normal de sus actividades. En esta medida, se
-entienden excluidas expresamente de los alcances de la Ley de
-Administración Financiera de la República, No. 1279, de 2 de mayo de 1951;
-la Ley de Creación de la Autoridad Presupuestaria, No. 6821, de 19 de
-octubre de 1982; la Ley de Contratación Administrativa, No. 7494, de 2 de
-mayo de 1995; la Ley de Planificación Nacional, No. 5525, de 2 de mayo de
-1974, y la Ley para el Equilibrio Financiero del Sector Público, No. 6955,
-de 24 de febrero de 1984 y los respectivos reglamentos; además, del
-artículo 3 de la Ley Constitutiva del Instituto Costarricense de
-Acueductos y Alcantarillados, No. 2726, de 14 de abril de 1961.
-La Contraloría General de la República, la Superintendencia General
-de entidades financieras y la Autoridad Reguladora de los Servicios
-Públicos ejercerán sus facultades legales sobre la sociedad, bajo la
-modalidad de control posterior.
-Asimismo, en materia de gestión operativa de los servicios a cargo de
-la Empresa, la Contraloría General de la República ejercerá funciones de
-fiscalización.
+Articulo 8.- La Empresa y sus subsidiarias, en el giro normal de sus actividades, estarán sometidas al Derecho privado. En esta medida, se entienden excluidas, expresamente, de los alcances de la Ley N.° 7494, Contratación administrativa, de 2 de mayo de 1995; la Ley de planificación nacional, N.° 5525, de 2 de mayo de 1974, la Ley para el equilibrio financiero del Sector Público, N.° 6955, de 24 de febrero de 1984, y la Ley de administración financiera de la República y presupuestos públicos, N.° 8131, de 18 de setiembre de 2001, y sus reformas, excepto de los artículos 57 y 94, y de los respectivos Reglamentos; además, del artículo 3 de la Ley constitutiva del Instituto Costarricense de Acueductos y Alcantarillados, N.° 2726, de 14 de abril de 1961.
+(Así reformado el párrafo anterior por el artículo 44 aparte b) de la Ley N° 8660 del 8 de agosto de 2008)
+La Contraloría General de la República, la Superintendencia General de entidades financieras y la Autoridad Reguladora de los Servicios Públicos ejercerán sus facultades legales sobre la sociedad, bajo la modalidad de control posterior.
+Asimismo, en materia de gestión operativa de los servicios a cargo de la Empresa, la Contraloría General de la República ejercerá funciones defiscalización.

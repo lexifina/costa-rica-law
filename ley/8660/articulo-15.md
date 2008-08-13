@@ -1,0 +1,5 @@
+ARTÍCUL0 15.- Instrumentos financieros
+El ICE y sus empresas podrán emitir todo tipo de títulos valores, en moneda nacional o extranjera, al interés, la tasa de amortización y el monto, que su Consejo Directivo determine de conformidad con la legislación aplicable. Dichos títulos tendrán la garantía que el ICE y sus empresas les señalen en el acuerdo de emisión; para ello, podrán titularizar sus ingresos actuales y futuros o sus bienes, mediante contratos financieros, tales como arrendamientos o fideicomisos, o
+podrán gravar sus bienes e ingresos.
+Los títulos que emitan el ICE y sus empresas serán negociables libremente y podrán ser adquiridos por todos los entes públicos o privados, nacionales o extranjeros, incluyendo las operadoras de pensiones.
+El ICE y sus empresas podrán emitir, vender y adquirir valores en el mercado financiero primario o secundario, directamente en ventanilla, o por medio de los puestos de bolsa de valores que se estime necesarios. Los valores podrán emitirse en serie o en forma individual y podrán ser objeto de oferta publica. Los bienes patrimoniales del ICE y sus empresas podrán garantizar dichas emisiones.

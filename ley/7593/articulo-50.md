@@ -1,13 +1,4 @@
-ARTICULO 50.- Prohibición de nombramiento
-Ningún nombramiento para desempeñar cargos en la Autoridad
-Reguladora, podrá recaer en parientes o cónyuges del Regulador General ni
-de los miembros de la Junta Directiva, hasta el cuarto grado de
-parentesco por consanguinidad o afinidad. Tampoco podrán ser nombrados
-para ocupar puestos de jefatura en la Autoridad Reguladora, accionistas,
-asesores, gerentes o similares, miembros de las Juntas Directivas de las
-empresas privadas reguladas ni sus parientes hasta el cuarto grado de
-consanguinidad o afinidad.
-Esta prohibición estará vigente hasta un año después de que los
-funcionarios a quienes se refiere el párrafo anterior, hayan dejado de
-prestar sus servicios. La violación de este impedimento causará la
-nulidad absoluta del nombramiento.
+Articulo 50.- Prohibición de nombramiento
+Ningún nombramiento para desempeñar cargos en la Autoridad Reguladora o en la Sutel, podrá recaer en parientes ni en cónyuges del regulador general, el regulador general adjunto, ni de los miembros de la Junta Directiva, hasta el cuarto grado de parentesco por consanguinidad o afinidad. Tampoco podrán ser nombrados para ocupar puestos de jefatura en la Autoridad Reguladora ni en la Sutel accionistas, asesores, gerentes o similares, miembros de las juntas directivas de las empresas privadas reguladas ni sus parientes hasta el cuarto grado de consanguinidad o afinidad.
+Esta prohibición permanecerá vigente hasta un año después de que los funcionarios a quienes se refiere el párrafo anterior, hayan dejado de prestar sus servicios. La violación de este impedimento causará la nulidad absoluta del nombramiento.
+(Así reformado por el artículo 41 aparte i) de la Ley N° 8660 del 8 de agosto de 2008)

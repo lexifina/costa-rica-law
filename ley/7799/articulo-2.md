@@ -1,13 +1,4 @@
-ARTÍCULO 2.- JASEC es una persona jurídica de derecho público, de
-carácter no estatal, con plena capacidad jurídica, patrimonio propio y
-autonomía financiera, administrativa y técnica en el cumplimiento de sus
-deberes y queda facultada para prestar los servicios públicos que define
-el artículo 5 de la Ley de la Autoridad Reguladora de los Servicios
-Públicos, excepto los servicios de transmisión de datos y los señalados en
-el inciso b) de dicha ley, deberá contar con la concesión respectiva
-cuando sea necesario. Queda también facultada para prestar los servicios
-de televisión por cable.
-Las municipalidades, mediante convenio, debidamente refrendado por la
-Contraloría General de la República, podrán ceder a JASEC la prestación de
-aquellos servicios municipales que hasta este momento prestan por sí
-mismas.
+Articulo 2.- Jasec es una persona jurídica de Derecho Público, de carácter no estatal, con plena capacidad jurídica, patrimonio propio y autonomía financiera, administrativa y técnica en el cumplimiento de sus deberes; además, queda facultada para restar los servicios públicos que define el articulo 5 de la Ley de la Autoridad Reguladora de los Servicios Públicos, así como los servicios de telecomunicaciones, infocomunicaciones y otros servicios en convergencia; deberá contar con la concesión respectiva cuando sea necesario. También queda facultada para prestar los servicios de televisión por cable. La Junta Administrativa del Servicio Eléctrico de Cartago estará sujeta al pago de los cánones, los impuestos, las tasas, las contribuciones especiales y los demás tributos a los que estén sometidos los operadores y proveedores de telecomunicaciones, sin detrimento de las exenciones establecidas en otras leyes. .
+Las municipalidades, mediante convenio, debidamente refrendado por la Contraloría General de la República, podrán ceder a JASEC la prestación de aquellos servicios municipales que hasta este momento prestan por sí mismas.
+Se autoriza a Jasec para que venda, en el mercado nacional e internacional, servicios de asesoramiento, consultoría, capacitación y cualquier otro servicio afín a sus competencias. Los precios de esos productos y servicios serán determinados libremente por Jasec. Asimismo, se le autoriza a implementar las prácticas comerciales y de mercadeo usuales en la industria y el comercio, en general.
+(Así reformado por el artículo 45 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)

@@ -1,15 +1,6 @@
-ARTICULO 61.- Patrimonio
-El patrimonio general de la Autoridad Reguladora será inembargable
-y, en ninguna forma, podrá ser traspasado al Gobierno Central o sus
-instituciones ni usado por ellos.
-Además de los cánones mencionados en el artículo 59, formarán parte
-de los ingresos de la Autoridad Reguladora:
-a) Los fondos que se le asignen en el Presupuesto Nacional.
-b) Las donaciones y subvenciones.
-c) Los ingresos que obtenga mediante convenios y contratos con
-personas físicas, jurídicas, públicas o privadas, nacionales o
-extranjeras.
-La Autoridad Reguladora asumirá todos los activos, pasivos y
-patrimonio del Servicio Nacional de Electricidad. Se exceptúan los
-activos que se trasladarán al Ministerio del Ambiente y Energía, según el
-transitorio V de esta ley.
+Artículo 61.- Integración
+La Superintendencia de Telecomunicaciones estará a cargo de un Consejo que estará integrado por tres miembros propietarios. De entre sus miembros le corresponderá al presidente la representación judicial y extrajudicial de la Superintendencia, para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento de la entidad que le asigne el Consejo. Para suplir las ausencias temporales se nombrará a un suplente.
+Los miembros serán seleccionados por idoneidad comprobada, mediante concurso público de antecedentes.
+Los miembros titulares y el suplente del Consejo, serán nombrados por la Junta Directiva de la Autoridad Reguladora de Servicios Públicos, por mayoría de al menos cuatro votos, por períodos de cinco años, los cuales ejercerán sus cargos a tiempo completo y con dedicación exclusiva y podrán ser reelegidos por una sola vez por parte de la Junta Directiva de Aresep.
+Los miembros titulares y el suplente del Consejo podrán ser removidos en cualquier momento, por la Junta Directiva por igual número de votos requeridos para su nombramiento, si en el procedimiento ordinario iniciado al efecto, se determinare que han dejado de cumplir con los requisitos necesarios para su nombramiento, que han incurrido en alguna causa de impedimento, de incompatibilidad o por incumplimiento grave en el ejercicio de sus funciones.
+La Junta Directiva de la Aresep una vez que haya nombrado a los miembros, titulares y al suplente del Consejo de Sutel, enviará todos los expedientes a la Asamblea Legislativa, la cual dispondrá de un plazo de 30 días para objetar los nombramientos. Si en ese lapso no se produjere objeción, se tendrán por ratificados. En caso de objeción, la Junta Directiva sustituirá al miembro del Consejo objetado y el nuevo designado será objeto del mismo procedimiento.

@@ -1,0 +1,9 @@
+ARTÍCULO 2.- Objetivos de la Ley
+Son objetivos de esta Ley:
+a) Fortalecer, modernizar y dotar al Instituto Costarricense de Electricidad (ICE), a sus empresas y a sus órganos adscritos, de la legislación que le permita adaptarse a todos los cambios en el régimen legal de generación y prestación de los servicios de electricidad, así como de las telecomunicaciones, infocomunicaciones, productos y servicios de información y demás servicios en convergencia.
+b) Complementar el Decreto-Ley N.° 449, de 8 de abril de 1949, Reglamento para la creación del Instituto Costarricense de Electricidad, y sus reformas, para dotar al ICE de las condiciones jurídicas, financieras y administrativas necesarias para que continúe con la prestación y comercialización de productos y servicios de electricidad y telecomunicaciones, dentro del territorio nacional y fuera de él.
+c) Crear el Sector Telecomunicaciones y su rectoría, dentro del marco de sectorización del Estado, así como desarrollar las competencias y atribuciones que competen al ministro rector del Sector, quien en conjunto con el presidente de la República, elaborará el Plan nacional de desarrollo de las telecomunicaciones, que deberá respetar la legislación ambiental vigente, la protección ambiental, el manejo y uso sostenible de los recursos naturales, así como la promoción del uso de las fuentes de energía renovables.
+d) Reformar la Ley de la Autoridad Reguladora de los Servicios Públicos, N.° 7593, de 9 de agosto de 1996, para constituir la Sutel, encargada de regular, aplicar, vigilar y controlar el marco regulatorio de las telecomunicaciones.
+e) Flexibilizar y ampliar los mecanismos y procedimientos de contratación pública que tienen el ICE y sus empresas.
+f) Garantizar y reafirmar la autonomía administrativa y financiera del ICE y sus empresas
+g) Garantizar la rendición de cuentas y la evaluación de resultados por parte del ICE y sus empresas.

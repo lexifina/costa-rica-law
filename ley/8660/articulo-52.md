@@ -1,0 +1,3 @@
+ARTÍCULO 52.- Representación ante la Comisión Técnica Regional de Telecomunicaciones
+La Superintendencia de Telecomunicaciones acreditará a los miembros designados por Costa Rica ante la Comisión Técnica Regional de Telecomunicaciones (Comtelca), de conformidad con el inciso a) del artículo 6 del Protocolo al Tratado centroamericano de telecomunicaciones, aprobado por la Ley N.° 8209, de 8 de marzo de 2002.
+El ICE conservará la propiedad de los activos invertidos en las redes centroamericanas de telecomunicaciones, según el Tratado centroamericano de telecomunicaciones y el presente Protocolo.

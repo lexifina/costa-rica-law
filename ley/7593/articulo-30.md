@@ -1,20 +1,6 @@
-ARTICULO 30.- Cambios de tarifas
-Los prestatarios de servicios públicos, las organizaciones de
-consumidores legalmente constituidas y cualquier entidad pública con
-facultades podrán presentar solicitudes de cambio de tarifas y precios.
-La Autoridad Reguladora estará obligada a recibir y tramitar esas
-peticiones, únicamente cuando, al presentarlas, cumplan con los
-requisitos formales que el reglamento establezca. Esta Autoridad podrá
-modificarlas, aprobarlas o rechazarlas.
-De acuerdo con las circunstancias, las fijaciones tarifarias serán
-de carácter ordinario o extraordinario. Serán de carácter ordinario
-aquellas que contemplen factores de costo e inversión, de conformidad con
-lo estipulado en el inciso b) del artículo 3, de esta ley. Los
-prestatarios deberán presentar, por lo menos una vez al año, un estudio
-ordinario. La Autoridad Reguladora podrá realizar de oficio,
-modificaciones ordinarias y deberá otorgarles la respectiva audiencia
-según lo manda la ley.
-Serán fijaciones extraordinarias aquellas que consideren variaciones
-importantes en el entorno económico, por caso fortuito o fuerza mayor y
-cuando se cumplan las condiciones de los modelos automáticos de ajuste.
-La Autoridad Reguladora realizará, de oficio, esas fijaciones.
+Artículo 30.-Solicitud de fijación o cambios de tarifas y precios
+Los prestadores de servicios públicos, las organizaciones de consumidores legalmente constituidas y los entes y órganos públicos con atribución legal para ello, podrán presentar solicitudes de fijación o cambios de tarifas. La Autoridad Reguladora estará obligada a : “ recibir y tramitar esas peticiones, únicamente cuando, al presentarlas, cumplan los requisitos formales que el Reglamento establezca. Esta Autoridad podrá modificar, aprobar o rechazar esas peticiones. De acuerdo con las circunstancias, las fijaciones de tarifas serán de carácter ordinario o extraordinario.
+(Así reformado el párrafo anterior por el artículo 41 aparte f) de la Ley N° 8660 del 8 de agosto de 2008)
+De acuerdo con las circunstancias, las fijaciones tarifarias serán de carácter ordinario o extraordinario. Serán de carácter ordinario aquellas que contemplen factores de costo e inversión, de conformidad con lo estipulado en el inciso b) del artículo 3, de esta ley. Los prestadores deberán presentar, por lo menos una vez al año, un estudio ordinario. La Autoridad Reguladora podrá realizar de oficio, modificaciones ordinarias y deberá otorgarles la respectiva audiencia según lo manda la ley.
+Serán fijaciones extraordinarias aquellas que consideren variaciones importantes en el entorno económico, por caso fortuito o fuerza mayor y cuando se cumplan las condiciones de los modelos automáticos de ajuste. La Autoridad Reguladora realizará, de oficio, esas fijaciones.
+(Así reformado por el artículo 41 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)

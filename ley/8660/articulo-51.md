@@ -1,0 +1,3 @@
+ARTÍCULO 51.- Reforma de la Ley N.° 4806
+Refórmase el artículo 2 de la Ley N.° 4806, de 28 de julio de 1978, la cual aprueba la adhesión al Acuerdo del Sistema Comercial de Telecomunicaciones Vía Satélite. El texto dirá:
+“Artículo 2.- Las obligaciones y los derechos de Costa Rica como Estado miembro del acuerdo para establecer un sistema comercial mundial de telecomunicaciones vía satélite, se le asigna al ministro de Ambiente, Energía y Telecomunicaciones, como rector del Sector Telecomunicaciones de Costa Rica. El ICE conservará la propiedad de los activos y las inversiones hechas en el Sistema de Telecomunicaciones Satelitales.”

@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Subasta a la bajas
+EL ICE podrá emplear la adjudicación por subasta a la baja, para adquirir cualquier tipo de producto o servicio. Antes de emplear este procedimiento, el ICE deberá fijar los términos de participación en la subasta, entre los cuales se definirán, por lo menos, los parámetros técnicos y de calidad de los bienes o servicios por adquirir. La reglamentación de este procedimiento deberá garantizar que se respeten los principios de la contratación administrativa y se resguarde, especialmente, la transparencia de la negociación.

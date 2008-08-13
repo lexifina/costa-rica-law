@@ -1,6 +1,4 @@
-ARTICULO 71.- Autorización
-Se autoriza a las instituciones y empresas públicas que brindan
-servicios para vender directamente a otras empresas o instituciones
-públicas y privadas, nacionales o extranjeras, servicios de
-asesoramiento, consultoría, capacitación o cualquier otra actividad afín
-a sus competencias.
+Articulo 71.- Remuneración y prohibición de prestar servicios
+La remuneración de los miembros del Consejo de la Sutel, así como la de sus funcionarios de nivel profesional y técnico se determinará a partir de las remuneraciones prevalecientes en los servicios regulados por la Autoridad Reguladora y el mercado de las telecomunicaciones en el ámbito nacional, o las de organismos con funciones similares, de manera que se garantice la calidad del personal. La fijación de la remuneración de estos funcionarios no estará sujeta a lo dispuesto en la Ley N.° 8131, Administración financiera de la República y presupuestos públicos, de 18 de setiembre de 2001, y sus reformas.
+Los miembros suplentes del Consejo devengarán, por día de trabajo o sesión, dietas proporcionales de la remuneración de los propietarios.
+Los miembros del Consejo de la Sutel y los funcionarlos de la Superintendencia estarán sujetos a las disposiciones del artículo 51 de esta Ley.

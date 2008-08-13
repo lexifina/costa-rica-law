@@ -1,6 +1,7 @@
-ARTICULO 54.- Quórum
-Para sesionar válidamente, tres miembros constituirán quórum. Los
-acuerdos se tomarán por mayoría de votos de los presentes, salvo los
-casos en que la ley exija una mayoría calificada. Cuando se produzca un
-empate, el Presidente o quien lo sustituya, resolverá con doble voto.
-Ningún miembro presente podrá abstenerse de votar.
+Articulo 54.- Quórum y remuneración
+Para sesionar válidamente, tres (3) miembros constituirán el quórum. Los acuerdos se tomarán por mayoría de votos de los presentes, salvo los casos en que la ley exija una mayoría calificada. : Cuando se produzca un empate, el presidente o quien lo sustituya, resolverá con voto de calidad. Ningún miembro podrá abstenerse de votar.
+La Junta podrá sesionar siempre que para ello exista el quórum de ley, aunque no estén nombrados ni ratificados todos sus miembros.
+Los miembros de la Junta Directiva devengarán, por cada sesión a la que asistan, dietas correspondientes al diez por ciento (10%) del salario base del contralor general de la República. No podrán remunerarse más de tres (3) sesiones por semana.
+La remuneración del regulador general, el regulador general adjunto, así como la de los funcionarios de nivel profesional y técnico de la Autoridad Reguladora se determinará tomando en cuenta las remuneraciones prevalecientes en los servicios bajo su regulación, en su conjunto, de manera que se garanticen la calidad e idoneidad del personal. La fijación de la remuneración de estos funcionarios no estará sujeta a lo dispuesto en la Ley N.° 8131, Administración financiera de la República y presupuestos públicos, de 18 setiembre de 2001, y sus reformas.
+Cuando así lo acuerde la Junta, y previa aprobación de la Contraloría General de la República, sus miembros podrán laborar en sus funciones a tiempo completo, o bien, a medio tiempo en el desempeño de sus responsabilidades directivas.
+(Así reformado por el artículo 41 aparte i) de la Ley N° 8660 del 8 de agosto de 2008)

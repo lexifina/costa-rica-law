@@ -1,3 +1,2 @@
-ARTICULO 69 - Reglamento
-El Poder Ejecutivo reglamentará esta ley en un plazo de noventa días
-naturales contados a partir de su publicación.
+Articulo 69.- Organización
+La Sutel tendrá una organización de apoyo formada por profesionales en las materias de su competencia, según se disponga reglamentariamente. Asimismo, podrá contratar a los asesores y consultores que requiera para el efectivo cumplimiento de sus funciones. No podrán ser contratados quienes, durante el último año antes del nombramiento, sean o hayan sido socios, apoderados o directivos de una empresa o de un grupo de empresas subsidiarlas o filiales sujetas a la regulación de la Sutel.

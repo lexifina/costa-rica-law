@@ -1,3 +1,3 @@
-ARTICULO 68.- Derogaciones
-Se derogan la Ley No. 258, del 18 de agosto de 1941, y sus reformas
-y el artículo 8 de la Ley No. 1634, del 14 de setiembre de 1953.
+Articulo 68.- Sesiones, quórum y votaciones
+El Consejo de la Sutel se reunirá ordinariamente una vez por semana y en forma extraordinaria cuando lo considere necesario. Para sesionar serán convocados de oficio por el presidente. Sin embargo, a solicitud de uno de sus miembros, el presidente deberá convocar a sesión extraordinaria y para ello, quien lo solicite deberá señalar el tema de interés por tratar.
+El quórum se integrará con la presencia de la mayoría de los miembros. Los acuerdos se tomarán con el voto concurrente de la mayoría de ellos. Cuando se produzca un empate, el Presidente resolverá con su voto de calidad. Quien no coincida debe razonar su voto. Salvo que tenga causal de impedimento o excusa, ningún miembro presente podrá abstenerse de votar. La renuncia o el cese de uno de los miembros no implicará la desintegración del órgano, siempre y cuando el quórum requerido, para sesionar se mantenga.
