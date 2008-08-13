@@ -1,0 +1,1 @@
+Artículo 33.—Se entiende por Concurso Externo aquel que la Oficina de Recursos Humanos en coordinación con el Consejo de Personal realice para llenar plazas del Régimen Policial, que no han sido posibles llenar vía ascenso directo o concurso interno.

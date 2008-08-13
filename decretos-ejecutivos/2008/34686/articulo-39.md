@@ -1,0 +1,1 @@
+Artículo 39.—Para cada concurso que se tramite, la oficina de recursos humanos confeccionará un manual o guía que incluya la justificación del concurso, plazas en concurso, tareas, bases de selección y predictores a evaluar.

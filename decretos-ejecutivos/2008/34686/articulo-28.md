@@ -1,0 +1,1 @@
+Articulo 28.—En todos los casos, la persona que se nombre en forma provisional deberá reunir las condiciones previstas en este Reglamento y cualquier otra que estime conveniente el Consejo de Personal para garantizar el buen servicio público.

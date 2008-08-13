@@ -1,0 +1,1 @@
+Artículo 35.—El desarrollo de los concursos externos y de los internos son responsabilidad de la oficina de recursos humanos, la que deberá asesorar al Consejo de Personal en lo que al concurso se refiere, atendiendo toda consulta que se genere en este sentido sea del Consejo de Personal como de los posibles oferentes.

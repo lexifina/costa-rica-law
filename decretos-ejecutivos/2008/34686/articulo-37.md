@@ -1,0 +1,1 @@
+Artículo 37.—En concursos internos se podrán aceptar funcionarios del Régimen Policial nombrados en forma interina, en el entendido de que si son escogidos para ocupar las plazas vacantes, su nombramiento será interino, ya que únicamente podrán alcanzar su propiedad por medio de Concursos Externos.

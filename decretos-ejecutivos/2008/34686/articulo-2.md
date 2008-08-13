@@ -1,0 +1,1 @@
+Artículo 2º—La administración de los incentivos salariales de los funcionarios de la Dirección General de la Policía de Transito, cubiertos por el Estatuto Policial, se regirá por lo dispuesto en esta normativa.

@@ -1,0 +1,1 @@
+Artículo 23.—Solo podrá acordarse una nueva promoción para el mismo servidor después de transcurrido, a partir de la fecha del anterior ascenso, un plazo mínimo de seis meses, con excepción de aquel que sea escogido del Registro de Elegibles que mantiene el Consejo de Personal.

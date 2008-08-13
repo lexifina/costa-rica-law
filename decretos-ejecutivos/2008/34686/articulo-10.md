@@ -1,0 +1,1 @@
+Artículo 10.—No podrá ser nombrado un funcionario para ocupar un puesto en el Régimen Policial, por un término de cinco años, a quien se encuentre inhabilitado o si hubiese sido despedido sin responsabilidad patronal con anterioridad de este Régimen u otro Régimen del Estado.

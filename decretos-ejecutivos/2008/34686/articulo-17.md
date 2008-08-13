@@ -1,0 +1,1 @@
+Artículo 17.—Todo aspirante a un puesto dentro del Régimen Policial será indagado en el Registro Judicial a efectos de que se corrobore si tiene o no antecedentes penales. Así como en el Consejo de Transporte Público a efecto de verificar si existe a su favor alguna concesión en el servicio de Transporte Público.

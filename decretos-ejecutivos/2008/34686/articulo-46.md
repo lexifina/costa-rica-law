@@ -1,0 +1,1 @@
+Artículo 46.—El Registro de Candidatos o Registro de Elegibles deberá ordenarse en forma descendente de conformidad con el orden de notas, ocupando los primeros lugares quienes hayan obtenido mayor puntaje.

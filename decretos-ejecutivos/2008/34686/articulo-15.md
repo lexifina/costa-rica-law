@@ -1,0 +1,1 @@
+Artículo 15.—Cuando se considere indispensable la aplicación de alguna prueba, se le dará preferencia a aquellas que han sido estandarizadas con población costarricense o aquellas que tengan coeficientes de fiabilidad y validez más altos.

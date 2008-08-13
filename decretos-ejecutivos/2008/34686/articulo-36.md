@@ -1,0 +1,1 @@
+Artículo 36.—En los concursos internos, que se realicen para llenar en propiedad una o varias plazas vacantes, sólo pueden participar servidores nombrados en propiedad en el Régimen Policial, y en los concursos externos podrán participar candidatos ajenos a ese sistema y a la institución.

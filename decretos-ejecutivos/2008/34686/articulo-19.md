@@ -1,0 +1,1 @@
+Artículo 19.—La Oficina de Recursos Humanos procederá a coordinar la realización de los exámenes médicos y sicológicos necesarios a los candidatos que aspiren a un puesto dentro del Régimen Policial, con el propósito de verificar si poseen la idoneidad física y mental requerida.

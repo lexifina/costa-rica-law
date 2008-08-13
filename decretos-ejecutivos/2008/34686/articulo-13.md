@@ -1,0 +1,1 @@
+Artículo 13.—Las pruebas y demás predictores que constituyen una base de selección se calificarán con una escala de uno a cien, por lo que la sumatoria de los valores asignados a cada factor o predictor debe dar cien como resultado máximo.

@@ -1,0 +1,1 @@
+Artículo 20.—Es responsabilidad de la Oficina de Recursos Humanos corroborar la autenticidad de los atestados (requisitos académicos y experiencia), licencias y demás documentos necesarios para realizar los movimientos de personal para lo cual debe realizar las consultas que estime pertinentes a otras instituciones.

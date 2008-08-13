@@ -1,0 +1,1 @@
+Artículo 45.—Con los oferentes que participen en concursos internos y externos que alcancen la condición de elegible, se conformará un registro de candidatos elegibles, el cual estará a cargo, en forma unificada, por parte del Consejo de Personal, oficina que establecerá los mecanismos adecuados para su actualización permanente y el manejo confidencial de la información.

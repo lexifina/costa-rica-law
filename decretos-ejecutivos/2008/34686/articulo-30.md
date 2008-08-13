@@ -1,0 +1,1 @@
+Artículo 30.—El servidor provisional podrá ser cesado sólo por justa causa. Las razones para ser cesado serán básicamente la resolución de la solicitud o pedimento de personal, el regreso del titular del puesto o bien por resultar no idóneo para el puesto. En tales casos la Oficina de Recursos Humanos preparará un informe al Consejo de Personal, para la resolución pertinente.
