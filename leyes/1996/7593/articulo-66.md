@@ -1,6 +1,3 @@
-ARTICULO 66.- Modificaciones de la Ley No. 5406
-Se modifica la Ley reguladora del transporte remunerado de personas
-en vehículos taxi, No.5406, del 31 de octubre de 1973, de la siguiente
-manera:
-a) ... ... ...
-b) Se derogan los artículos 3, 20 y 21.
+Articulo 66.- Responsabilidad por lesión patrimonial
+Los miembros del Consejo de la Sutel desempeñarán su cometido con absoluta independencia y serán, por tanto, los únicos responsables de su gestión.
+Sin perjuicio de las otras sanciones que les correspondan, responderán personalmente con su patrimonio por los daños que causen por el incumplimiento de esta Ley. Quedarán exentos de esta responsabilidad únicamente quienes hagan constar su voto disidente.

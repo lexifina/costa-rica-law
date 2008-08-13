@@ -1,19 +1,7 @@
-ARTICULO 3.- Definiciones
+Artículo 3.- Definiciones
 Para efectos de esta ley, se definen los siguientes conceptos:
-a) Servicio Público. el que por su importancia para el desarrollo
-sostenible del país sea calificado como tal por la Asamblea
-Legislativa, con el fin de sujetarlo a las regulaciones de esta
-ley.
-b) Servicio al costo. principio que determina la forma de fijar las
-tarifas y los precios de los servicios públicos, de manera que se
-contemplen únicamente los costos necesarios para prestar el
-servicio, que permitan una retribución competitiva y garanticen
-el adecuado desarrollo de la actividad, de acuerdo con lo que
-establece el artículo 31.
-c) Prestatario de servicio público. Sujeto público o privado que
-presta servicios públicos por concesión, permiso o ley. d)
-Evaluación de impacto ambiental. Estudio científico-técnico,
-realizado por profesionales en la materia, que permite
-identificar y predecir los efectos que producirá un proyecto
-específico sobre el ambiente, cuantificándolo y ponderándolo,
-para plantear una recomendación.
+a) Servicio Público. el que por su importancia para el desarrollo sostenible del país sea calificado como tal por la Asamblea Legislativa, con el fin de sujetarlo a las regulaciones de esta ley.
+b) Servicio al costo. principio que determina la forma de fijar las tarifas y los precios de los servicios públicos, de manera que se contemplen únicamente los costos necesarios para prestar el servicio, que permitan una retribución competitiva y garanticen el adecuado desarrollo de la actividad, de acuerdo con lo que establece el artículo 31.
+c) Prestador de servicio público. Sujeto público o privado que presta servicios públicos por concesión, permiso o ley.
+d) Evaluación de impacto ambiental. Estudio científico-técnico, realizado por profesionales en la materia, que permite identificar y predecir los efectos que producirá un proyecto específico sobre el ambiente, cuantificándolo y ponderándolo, para plantear una recomendación.
+(Así reformado por el artículo 41 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)

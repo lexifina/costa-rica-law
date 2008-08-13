@@ -1,3 +1,3 @@
 ARTICULO 44.-
-Para la exportación de especímenes obtenidos por una recolecta científica o cultural, se debe contar con el permiso por escrito de la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía, de acuerdo con el procedimiento establecido en esta Ley.
-(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
+Para la exportación de especímenes obtenidos por una recolecta científica o cultural, se debe contar con el permiso por escrito de la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente, Energía y Telecomunicaciones, de acuerdo con el procedimiento establecido en esta Ley.
+(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)

@@ -1,11 +1,9 @@
 CAPITULO III
-FUNCIONES Y ATRIBUCIONES
-ARTICULO 5.- Funciones
-En los servicios públicos definidos en este artículo, la Autoridad Reguladora fijará precios y tarifas; además, velará por el cumplimiento
-de las normas de calidad, cantidad, confiabilidad, continuidad, oportunidad y prestación óptima, según el artículo 25 de esta ley. Los
-servicios públicos antes mencionados son:
+Funciones y atribuciones
+Artículo 5.- Funciones
+En los servicios públicos definidos en este artículo, la Autoridad Reguladora fijará precios y tarifas; además, velará por el cumplimiento de las normas de calidad, cantidad, confiabilidad, continuidad, oportunidad y prestación óptima, según el artículo 25 de esta ley. Los servicios públicos antes mencionados son:
 a) Suministro de energía eléctrica en las etapas de generación, trasmisión, distribución y comercialización.
-b) Los servicios de telecomunicaciones cuya regulación esté autorizada por ley.
+b) (Así derogado este inciso por el artículo 42 de la Ley N° 8660 del 8 de agosto de 2008)
 c) Suministro del servicio de acueducto y alcantarillado, incluso el agua potable, la recolección, el tratamiento y la evacuación de las aguas negras, las aguas residuales y pluviales, así como la instalación, la operación y el mantenimiento del servicio de hidrantes.
 (Así reformado el inciso anterior por el artículo 5° de la Ley N° 8641 del 11 de junio del 2008)
 d) Suministro de combustibles derivados de hidrocarburos, dentro de los que se incluyen: 1) los derivados del petróleo, asfaltos, gas y naftas destinados a abastecer la demanda nacional en planteles de distribución y 2) los derivados del petróleo, asfaltos, gas y naftas destinados al consumidor final. La Autoridad Reguladora deberá fijar las tarifas del transporte que se emplea para el abastecimiento nacional.
@@ -25,7 +23,5 @@ Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica 
 Puertos del Pacífico, respectivamente.
 Inciso h): Ministerio de Obras Públicas y Transportes.
 Inciso i): Las municipalidades.
-En el otorgamiento de la concesión para el aprovechamiento de aguas para riego deberá incluirse la obligación del usuario de aplicar las
-técnicas adecuadas de manejo de agua, a fin de evitar la degradación del recurso suelo, ya sea por erosión, revenimiento, salinización,
-hidromorfismo y otros efectos perjudiciales.
+En el otorgamiento de la concesión para el aprovechamiento de aguas para riego deberá incluirse la obligación del usuario de aplicar las técnicas adecuadas de manejo de agua, a fin de evitar la degradación del recurso suelo, ya sea por erosión, revenimiento, salinización, hidromorfismo y otros efectos perjudiciales.
 (Así adicionado este párrafo final por el artículo 63 de la Ley de Uso y Conservación de Suelos No.7779 de 30 de abril de 1998)

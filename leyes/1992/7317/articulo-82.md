@@ -5,6 +5,6 @@ Son refugios nacionales de fauna y vida silvestre, los que el Poder Ejecutivo de
 a) Refugios de propiedad estatal.
 b) Refugios de propiedad mixta.
 c) Refugios de propiedad privada.
-Los recursos naturales comprendidos dentro de los refugios nacionales de vida silvestre, quedan bajo la competencia y el manejo exclusivo de la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía, según se determina en la presente Ley y en su Reglamento.
+Los recursos naturales comprendidos dentro de los refugios nacionales de vida silvestre, quedan bajo la competencia y el manejo exclusivo de la Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía y Telecomunicaciones(*), según se determina en la presente Ley y en su Reglamento.
+(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
 Las personas físicas o jurídicas que deseen realizar actividades o proyectos de desarrollo y de explotación de los recursos naturales, comprendidos en los refugios de tipo b y c, requerirán de la autorización de la Dirección General de Vida Silvestre. Dicha autorización deberá otorgarse con criterios de conservación y de estricta "sostenibilidad" en la protección de los recursos naturales y se analizará mediante la presentación de una evaluación de impacto de la acción por desarrollar, siguiendo la metodología técnico científica que se aplica al respecto. Esta evaluación será costeada por el interesado y será elaborada por profesionales competentes en el campo de los recursos naturales.
-(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

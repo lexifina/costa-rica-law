@@ -1,6 +1,6 @@
 # Ley de Conservación de la Vida Silvestre
 
-Ley N° 7317 del 1992-10-30. SINALEVI, ficha 12648: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12648&param2=63855&param3=1>.
+Ley N° 7317 del 1992-10-30. SINALEVI, ficha 12648: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12648&param2=76857&param3=1>.
 
 Publicada en La Gaceta N° 235 del 1992-12-07.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 18 | 2002-08-07 | SINALEVI | 2002-08-07 |
 | 7 de 18 | 2005-10-25 | Decreto Ejecutivo 32715 (2005-03-07) | 2005-03-07 |
 | 8 de 18 | 2005-11-08 | Decreto Ejecutivo 32732 (2005-03-07) | 2005-03-07 |
+| 9 de 18 | 2008-08-13 | Ley 8660 | 2008-08-08 |

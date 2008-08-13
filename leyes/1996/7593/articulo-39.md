@@ -1,9 +1,5 @@
-ARTICULO 39.- Multas por mora
-En caso de falta de pago de los cánones establecidos en la presente
-ley, se impondrá una multa de quince por ciento (15%) mensual sobre el
-monto del canon adeudado. Si el retraso se prolonga por un período
-superior a los dos meses, esta conducta se interpretará como causal de
-revocatoria de la concesión o el permiso.
-Los representantes legales de las instituciones o empresas reguladas
-responderán, civil y administrativamente, según corresponda, por el
-retraso en el pago de los cánones establecidos en esta ley.
+Articulo 39.- Intereses moratorios
+En caso de falta de pago de los cánones y las tasas establecidos en la presente Ley, se aplicarán los intereses calculados de conformidad con el artículo 57 del Código de Normas y Procedimientos Tributarios. Adicionalmente, se aplicará una multa por concepto de mora, consistente en un cuatro por ciento (4%) por cada mes o fracción de mes que haya transcurrido desde la fecha en que debió satisfacerse la obligación hasta la fecha del pago efectivo del tributo. Esta sanción se calculará sobre la suma sin pagar a tiempo.
+Si la mora es superior a tres (3) meses, será causal de caducidad de la concesión o el permiso, en los casos en que la concesión o el permiso hayan sido otorgados mediante acto administrativo.
+En esos casos, la competencia para declarar la caducidad de la concesión, licencia, autorización o permiso, corresponde a la Autoridad Reguladora de los Servicios Públicos, previo cumplimiento del debido proceso. En este supuesto, la Autoridad Reguladora notificará a la respectiva administración concedente, la apertura del procedimiento, así como el acto final, a efectos de que se ejecute el acto administrativo en lo que le competa.
+(Así reformado por el artículo 41 aparte i) de la Ley N° 8660 del 8 de agosto de 2008)

@@ -1,9 +1,3 @@
-ARTICULO 13.- Prohibición de monopolios
-Los prestatarios no tendrán ningún derecho monopólico sobre el
-servicio público que exploten y estarán sujetos a las limitaciones y los
-cambios que les sean impuestos por ley. Podrán otorgarse nuevas
-concesiones, permisos, autorizaciones siempre que la demanda de servicios
-lo justifique, o que estos puedan ofrecerse en mejores condiciones para
-el usuario. En todo caso, se dará prioridad a los concesionarios que se
-encuentren prestando el servicio. Se exceptúan de esta norma los
-monopolios estatales, creados por ley u otorgados en administración.
+Artículo 13.- Prohibición de monopolios
+Los prestadores no tendrán ningún derecho monopólico sobre el servicio público que exploten y estarán sujetos a las limitaciones y los cambios que les sean impuestos por ley. Podrán otorgarse nuevas concesiones, permisos, autorizaciones siempre que la demanda de servicios lo justifique, o que estos puedan ofrecerse en mejores condiciones para el usuario. En todo caso, se dará prioridad a los concesionarios que se encuentren prestando el servicio. Se exceptúan de esta norma los monopolios estatales, creados por ley u otorgados en administración.
+(Así reformado por el artículo 41 aparte a) de la Ley N° 8660 del 8 de agosto de 2008)
