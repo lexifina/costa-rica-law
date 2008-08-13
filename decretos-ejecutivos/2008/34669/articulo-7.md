@@ -1,0 +1,1 @@
+Artículo 7º—El administrado que incumpla los deberes mencionados anteriormente, será sujeto, entre otras, de la sanción administrativa procedente, luego de un debido proceso, conforme a las determinaciones establecidas al respecto por la Ley del Servicio Nacional de Salud Animal, Nº 8495 del 16 de abril del 2006.
