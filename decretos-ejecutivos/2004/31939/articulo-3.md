@@ -1,2 +1,0 @@
-Artículo 3°—Exonérese de todo tributo y sobretasas la importación de maquinaria, equipo, e insumos para la actividad agropecuaria.
-Asimismo, exonérense de todo tributo y sobretasas, excepto de los derechos arancelarios, las materias primas para la elaboración de los insumos para la actividad agropecuaria y el empaque del banano, de conformidad con el artículo 5 de la Ley Reguladora de todas las Exoneraciones vigente.

@@ -1,3 +1,0 @@
-Artículo 18.—La Comisión sesionará en forma ordinaria una vez al mes y en forma extraordinaria cuando la convoque el presidente, en la sede de la Secretaría, salvo que por mayoría simple de los miembros de la Comisión acordaran sesionar en otro lugar distinto.
-La Comisión podrá sesionar válidamente con la presencia de tres de sus miembros como mínimo, dos de los cuales deberán ser el representante del Ministerio de Agricultura y Ganadería y el otro un representante de alguna otra institución del Estado.
-Los acuerdos de la Comisión se adoptarán por mayoría simple de votos. En caso de empate el Presidente ejercerá el voto de calidad.
