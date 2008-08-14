@@ -1,1 +1,1 @@
-Artículo 9º—Cuando un bien ofrecido en garantía se encuentre exento del pago de algún tipo de impuesto y pueda llegar a tener otros usos alternativos, se exigirá garantía adicional por el monto total de la exoneración.
+Artículo 9º—(Este artículo fue Derogado mediante sesiones Nos.4568 y 4599 celebradas el 21 de abril y 14 de agosto de 2008)

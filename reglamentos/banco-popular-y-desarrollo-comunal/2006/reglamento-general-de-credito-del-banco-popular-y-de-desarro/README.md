@@ -16,3 +16,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | 1 | 2006-06-23 | la propia norma |
 | 2 | 2007-11-05 | Reglamento 4529 (2007-11-05) |
 | 3 | 2007-11-15 | Reglamento 4532 (2007-11-15) |
+| 4 | 2008-08-14 | Reglamento 4599 (2008-08-14) |
