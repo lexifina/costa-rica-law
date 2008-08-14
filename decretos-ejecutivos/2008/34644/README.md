@@ -14,3 +14,4 @@ Establece el precio mínimo de compra de arroz en granza del industrial al produ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-23 | la propia norma |
+| 2 | 2008-08-14 | Decreto Ejecutivo 34725 (2008-08-14) |

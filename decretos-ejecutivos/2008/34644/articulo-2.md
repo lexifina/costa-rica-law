@@ -1,14 +1,11 @@
-Artículo 2º—Considerando los precios del saco de arroz granza, estipulados en su oportunidad, en el Decreto Ejecutivo Nº 34525, de fecha 8 de mayo del 2008, publicado en el Diario Oficial La Gaceta Nº 101 del martes 27 de mayo del 2008, se establecen los siguientes precios máximos de venta para el arroz pilado en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos en los costos de industrialización y comercialización, tanto al mayoreo como al detalle, los cuales regirán a partir del 08 de agosto del 2008 y son los siguientes:
-De industrial De mayorista De detallista
-a mayorista a detallista a consumidor
-Arroz pilado sacos de 46 kg colones / saco colones / saco colones / kg
-Máximo de 40% grano quebrado 19.583,00 20.170,00 482,00
-Máximo de 30% grano quebrado 20.807,00 21.431,00 512,00
-Máximo de 20% grano quebrado 22.030,00 22.691,00 543,00
-De industrial De mayorista De detallista
-Arroz empacado en bultos de a mayorista a detallista a consumidor
-12 bolsas de 2 kg colones / 24 kg colones / 24 kg colones / 2 kg
-De 31% a 40% grano quebrado 10.499,00 10.814,00 991,00
-De 26% a 30% grano quebrado 11.155,00 11.490,00 1.053,00
-De 21% a 25% grano quebrado 11.483,00 11.828,00 1.084,00
-De 11% a 20% grano quebrado 11.811,00 12.166,00 1.115,00
+Artículo 2°-Considerando el precio del saco de arroz granza, estipulado en el artículo 1° del Decreto Ejecutivo N° 34644, de fecha 8 de julio del 2008, publicado en el Diario Oficial La Gaceta N° 142 del miércoles 23 de julio del 2008, se establecen los siguientes precios máximos de venta para el arroz pilada en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos en los costos de industrialización y comercialización, tanto al mayoreo como al detalle, y el cargo adicional de ¢17,50 por kilogramo que corresponde a la recuperación del Sector Industrial Arrocero, por el adelanto del diferencial a cubrir para la importación del arroz faltante, y son los siguientes:
+Arroz pilado sacos de 46 kg | De industrial a mayorista colones I saco | De mayorista a detallista colones I saco | De detallista a consumidor colones I kg
+Máximo de 40% grano quebrado | 23.395,00 | 24.072,00 | 574,00
+Máximo de 30% grano quebrado | 24.857,00 | 25.578,00 | 610,00
+Máximo de 20% grano quebrado | 26.319,00 | 27.084,00 | 646,00
+Arroz empacado en bultos de 12 bolsas de 2 kg | De industrial a mayorista colones I 24 kg | De mayorista a detallista colones I 24 kg | De detallista a consumidor colones I 2 kg
+De 31% a 40% grano quebrado | 12.488,00 | 12.850,00 | 1.174,00
+De 26% a 30% grano quebrado | 13.268,00 | 13.654,00 | 1.248,00
+De 21% a 25% grano quebrado | 13.659,00 | 14.056,00 | 1.285,00
+De 11% a 20% grano quebrado | 14.049,00 | 14.458,00 | 1.322,00
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34725 del 14 de agosto del 2008).
