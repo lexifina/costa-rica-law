@@ -14,3 +14,4 @@ Reforma acuerdo que suspende la implementación y vigencia del Acuerdo A.J.D.I.P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-25 | la propia norma |
+| 2 | 2008-08-14 | Acuerdo 343 (2008-08-14) |
