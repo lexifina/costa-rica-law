@@ -16,3 +16,4 @@ Regulación sobre el adecuado aprovechamiento y protección del recurso Tiburón
 | 1 | 2008-04-16 | la propia norma |
 | 2 | 2008-05-02 | Acuerdo 171 (2008-05-02) |
 | 3 | 2008-07-04 | Acuerdo 275 (2008-07-04) |
+| 4 | 2008-08-14 | Acuerdo 343 (2008-08-14) |

@@ -1,5 +1,4 @@
-(Suspendida)
-(Mediante acuerdo AJDIP/171-2008 del 02 de mayo del 2008, publicado en La Gaceta N° 95 del 19 de mayo de 2008, se suspende la implementación y vigencia del presente acuerdo, por un plazo de dos meses calendario contados a partir de dicha publicación, posteriormente mediante acuerdo AJDIP/275 del 4 de julio de 2008, publicado en La Gaceta N° 144 del 25 de julio de 2008, se suspende por un plazo de tres meses calendario contados a partir de la publicación del citado acuerdo la implementación y vigencia de este acuerdo)
+(Mediante acuerdos AJDIP/171-2008 del 02 de mayo del 2008 y acuerdo AJDIP/275 del 4 de julio de 2008, se suspende la implementación y vigencia de este acuerdo, posteriormente mediante artículo 1 del acuerdo AJDIP/343-2008 del 14 de agosto de 2008, se derogaran los acuerdos AJDIP/171-2008 y AJDIP/275 del 4 de julio de 2008 y en su artículo 2 se ordena a la Presidencia Ejecutiva del Instituto Costarricense de Pesca y Acuicultura, proceda de inmediato a ejecutar lo dispuesto en este acuerdo)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
 A.J.D.I.P./139-2008.—Puntarenas, a los cuatro días del mes de abril del dos mil ocho.
 Considerando:
