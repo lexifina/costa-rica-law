@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE BELÉN
+La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la sesión ordinaria Nº 44-2008, artículo 38, celebrada el veintidós de julio del dos mil ocho, que literalmente dice:
+Considerando:
+a) Que se nos remite el oficio GDF-19285/DE-412-07, suscrito por el señor Manuel Ugarte Brenes, Gerente de la División Financiera de la Caja Costarricense de Seguro Social y por el Lic. Dionisio Miranda Rodríguez, Director Ejecutivo del IFAM, donde se nos informa acerca de la modificación realizada a varios artículos de la Ley Constitutiva de la Caja Costarricense de Seguro Social, entre los que están el artículo 74.
+b) Que el citado artículo se refiere a que los patronos y las personas que realicen total o parcialmente actividades independientes o no asalariadas, deberán estar al día en el pago de sus obligaciones con la Caja Costarricense de Seguro Social, por lo que conforme a la ley para realizar trámites administrativos, será requisito estar al día en el pago de las obligaciones de con la CCSS de conformidad con el artículo 31 de la indicada ley.
+c) Que una vez realizado el análisis respectivo del citado oficio, la Dirección Jurídica de la Municipalidad de Belén determinó que los trámites municipales que requerirán como requisito adicional estar al día en las cuotas Obrero Patronales de la Caja Costarricense del Seguro Social serían los siguientes:
+• Declaración de Patentes
+• Solicitud de disponibilidad de Agua
+• Solicitud de Pajas de Agua
+• Solicitud de patentes
+• Solicitud de Permisos de Construcción
+• Renovación de contratos del Cementerio Municipal
+• Visado de planos.
+d) Que con oficio SENASA-RCOC 032-2007 del Ministerio de Agricultura y Ganadería se nos informa que con fundamento en la Ley 8495 del Servicio General de Salud Animal, se debe sustituir el Permiso Sanitario de Funcionamiento como requisito para otorgar patente municipal a establecimientos de origen animal y sus derivados (mataderos, carnicerías, ventas de queso, venta de embutidos, marisquería, vehículos que transportan productos de origen animal, entre otros) por el Certificado Veterinario de Operación. Por lo tanto,
+En aras de cumplir con los señalamientos realizados por las instituciones mencionadas y con el propósito de hacer valer lo indicado en el artículo Nº 4 de la Ley 8220, “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, el cual señala que todo trámite o requisito, con independencia de su fuente normativa, para que pueda exigirse al administrado, deberá estar publicado en el Diario Oficial La Gaceta.
+Se acuerda por unanimidad: Segundo: Incluir como un requisito adicional a los establecidos por la Municipalidad de Belén en la reglamentación vigente, solicitar la certificación de estar al día en el pago de las cuotas obrero patronales de la Caja Costarricense de Seguro Social, en los siguientes trámites: Declaración de Patentes. Solicitud de Disponibilidad de Agua, Solicitud de Paja de Agua, Solicitud de Patentes, Solicitud de Permiso de Construcción, Renovación de contrato de cementerio y Visado de Planos. Tercero: Sustituir en las solicitudes de patente para establecimientos de origen animal y sus derivados el requisito de Permiso Sanitario de Funcionamiento por el de Certificado Veterinario de Operación. Cuarto: Adicionar al aviso publicado en el diario oficial La Gaceta Nº 132 del 10 de julio del 2002 el presente acuerdo.
+Belén, 30 de julio del 2008
