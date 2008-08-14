@@ -1,0 +1,6 @@
+Artículo 36
+Entrada en vigor
+1.- El presente Convenio entrará en vigor al nonagésimo día contado desde la fecha en que haya sido depositado en poder del Depositario el cuadragésimo instrumento de ratificación, aceptación, aprobación, confirmación oficial o adhesión.
+2.- Respecto de cada Estado que ratifique, acepte, apruebe el Convenio o se adhiera a él una vez satisfechas las condiciones relativas a la entrada en vigor establecidas en el párrafo 1 del presente artículo, el Convenio entrará en vigor al nonagésimo día contado desde la fecha en que el Estado haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.
+3.- Respecto de cada organización de integración económica regional que deposite un instrumento de confirmación oficial o de adhesión, una vez satisfechas las condiciones relativas a la entrada en vigor estipuladas en el párrafo 1 del presente artículo, el Convenio entrará en vigor al nonagésimo día contado desde la fecha en que la organización haya depositado su instrumento de confirmación oficial o de adhesión.
+4. A los efectos del presente artículo, los instrumentos depositados por una organización de integración económica regional no se considerarán adicionales a los depositados por los Estados Miembros de esa organización.

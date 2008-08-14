@@ -1,0 +1,9 @@
+Artículo 12
+Educación, comunicación, formación y concienciación del público
+Cada Parte promoverá y fortalecerá la concienciación del público acerca de las cuestiones relativas al control del tabaco utilizando de forma apropiada todos los instrumentos de comunicación disponibles. Con ese fin, cada Parte adoptará y aplicará medidas legislativas, ejecutivas, administrativas u otras medidas eficaces para promover lo siguiente:
+a) un amplio acceso a programas integrales y eficaces de educación y concienciación del público sobre los riesgos que acarrean para la salud el consumo de tabaco y la exposición al humo de tabaco, incluidas sus propiedades adictivas;
+b) la concienciación del público acerca de los riesgos que acarrean para la salud el consumo de tabaco y la exposición al humo de tabaco, así como de los beneficios que reportan el abandono de dicho consumo y los modos de vida sin tabaco, conforme a lo especificado en el párrafo 2 del artículo 14;
+c) el acceso del público, de conformidad con la legislación nacional, a una amplia variedad de información sobre la industria tabacalera que revista interés para el objetivo del presente Convenio;
+d) programas eficaces y apropiados de formación o sensibilización y concienciación sobre el control del tabaco dirigidos a personas tales como profesionales de la salud, trabajadores de la comunidad, asistentes sociales, profesionales de la comunicación, educadores, responsables de las políticas, administradores y otras personas interesadas;
+e) la concienciación y la participación de organismos públicos y privados y organizaciones no gubernamentales no asociadas a la industria tabacalera en la elaboración y aplicación de programas y estrategias intersectoriales de control del tabaco; y
+f) el conocimiento público y el acceso a la información sobre las consecuencias sanitarias, económicas y ambientales adversas de la producción y el consumo de tabaco.
