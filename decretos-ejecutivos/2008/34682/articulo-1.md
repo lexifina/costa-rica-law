@@ -1,0 +1,17 @@
+Nº 34682-MP-MIVAH
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA,
+Y VIVIENDA Y ASENTAMIENTOS HUMANOS
+En uso de las facultades que les confieren el inciso 18) del artículo 140 y 146 de la Constitución Política, el artículo 28 párrafo segundo, inciso b) de la Ley General de Administración Pública (Ley N° 6227 del 2 de mayo de 1978); la Ley de Planificación Urbana (Ley N° 4240 del 15 noviembre de 1968): Decreto Ejecutivo N° 25902-MIVAH-MP-MINAS del 12 de febrero de 1997, publicado en el Alcance N° 15 a La Gaceta N° 66 de 7 de abril de 1997; Acuerdos e Instrumentos de Planificación Urbana emitidos por la Junta Directiva del INVU con base en las recomendaciones técnicas de su Dirección de Urbanismo.
+Considerando:
+1°—Que la Municipalidad de San Pablo de Heredia no cuenta con Plan Regulador y ha solicitado al Instituto Nacional de Vivienda y Urbanismo realizar las gestiones con el propósito de analizar las posibilidades de cambiar parte de la zonificación de la zona industrial que se ubica en dicho Municipio para convertirla en Zona Mixta Industrial Residencial.
+2°—Que existen necesidades imperiosas de vivienda para salvaguardar la vida de los habitantes ubicados en las zonas de alto riesgo del cantón de San Pablo de Heredia, necesidades que han sido acreditadas por la Municipalidad y la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+3º—Que la zona industrial no se ha desarrollado a la fecha, siendo factible utilizar dicha área para otros usos distintos al industrial, siempre y cuando se respete las limitaciones lógicas del desarrollo urbano en sus aspectos ambientales, tales como las variables topográficas e hidrográficas entre otras.
+4º—Que en análisis practicado por el Instituto Nacional de Vivienda y Urbanismo, se observó el estudio de las variables ambientales así como de las continuidades viales, tanto dentro de la zona industrial, como también en los alrededores, definiendo los derechos de vías, caminos principales, así como las ciclo vías, todos propuestos conjuntamente entre la Municipalidad y los representantes del Instituto Nacional de Vivienda y Urbanismo.
+5º—Que mediante oficio Nº CM-79-08 del 3 de marzo del 2008 el Consejo Municipal emitió el visto bueno a la propuesta presentada por el Instituto Nacional de Vivienda y Urbanismo.
+6º—Que mediante oficio Nº C-JD-047-2008 del 14 de mayo del 2008, se informa que por medio del artículo II, inciso 3) del acta de la sesión ordinaria Nº 5672, celebrada el 7 de mayo del 2008, la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, acordó aprobar la propuesta de modificación de la zona industrial de San Pablo de Heredia, en Zona Mixta Industrial-Residencial. Por tanto,
+Decretan:
+Modificación de la zona industrial del cantón
+de San Pablo de Heredia en zona mixta
+industrial residencial
+Artículo 1°—Conforme con los parámetros establecidos en el Decreto 25902-MIVAH-MP-MINAE de 12 de febrero de 1997, que define las industrias constituidas en la Zona Especial de Protección, modifíquese la Zona Industrial del cantón de San Pablo de Heredia, entendiéndose ésta como Zona Mixta Industrial Residencial separada a lo interno por su vialidad, de acuerdo con los planos anexos emitidos por la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo, cuyos originales pueden ser consultados en la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo y la Municipalidad de San Pablo de Heredia.
