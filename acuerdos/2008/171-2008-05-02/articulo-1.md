@@ -1,3 +1,5 @@
+(Derogado)
+(Así derogado mediante acuerdo AJDIP /343-2008 de 14 de agosto del 2008)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
 AJDIP/171-2008.—Puntarenas, a los dos días del mes de mayo del 2008.
 Considerando:
