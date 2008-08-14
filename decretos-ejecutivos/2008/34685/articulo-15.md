@@ -1,0 +1,1 @@
+Artículo 15.—Trámite de modificaciones presupuestarias. Las modificaciones presupuestarias que afecten los rubros asignados a la Auditoría General deberán contar de previo con la autorización expresa del Auditor(a) General o del funcionario designado por éste para esa función.
