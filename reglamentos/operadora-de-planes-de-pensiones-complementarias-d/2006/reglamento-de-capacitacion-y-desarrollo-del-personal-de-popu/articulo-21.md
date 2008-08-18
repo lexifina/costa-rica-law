@@ -1,1 +1,0 @@
-Artículo 21.—De la contratación de capacitación. El Área de Compras será la responsable de los procesos de contratación que correspondan para la ejecución de eventos de capacitación, previa solicitud del Área de Recursos Humanos, todo de conformidad con la normativa aplicable.

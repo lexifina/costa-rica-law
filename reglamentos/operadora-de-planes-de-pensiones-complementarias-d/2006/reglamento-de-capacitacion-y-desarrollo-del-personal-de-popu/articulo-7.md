@@ -1,1 +1,0 @@
-Artículo 7º—Aplicación e interpretación. Las acciones de capacitación y actualización deberán realizarse en estricto apego a las normas previstas en este Reglamento. Incurrirán en responsabilidad el colaborador, superiores jerárquicos o autoridades superiores que contravengan las disposiciones del presente Reglamento.

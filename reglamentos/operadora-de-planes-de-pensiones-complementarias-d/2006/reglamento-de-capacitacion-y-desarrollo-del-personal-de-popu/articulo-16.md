@@ -1,4 +1,0 @@
-Artículo 16.—Plan de Capacitación. El Plan de Capacitación y actualización será anual y la responsabilidad de su elaboración corresponderá al Área de Recursos Humanos, contando con la participación de todas las jefaturas en la determinación de las necesidades de capacitación y actualización.
-El Plan de Capacitación y Desarrollo de la Operadora debe responder a los lineamientos estratégicos definidos en el Plan Estratégico, Plan Anual Operativo y las Estrategias de Desarrollo Humano que se establezcan.
-Una vez aprobado el Plan, el Área de Recursos Humanos ajustará el presupuesto correspondiente y será responsable de su administración (operativa y presupuestaria) con la participación activa de las Jefaturas de cada Departamento.
-Cuando se presenten requerimientos no contemplados en el Plan Anual de Capacitación y los mismos respondan a necesidades calificadas, las mismas serán valoradas oportunamente por la Gerencia para determinar la viabilidad de su aplicación.

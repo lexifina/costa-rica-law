@@ -1,1 +1,0 @@
-Artículo 22.—Horario. Las actividades de capacitación pueden desarrollarse en horas laborales tomando en cuenta la conveniencia de los colaboradores y de la Operadora, velando por el desarrollo normal de los procesos productivos de la misma.

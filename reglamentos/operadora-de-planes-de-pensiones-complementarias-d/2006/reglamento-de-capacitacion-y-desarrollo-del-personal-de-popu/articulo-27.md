@@ -1,1 +1,0 @@
-Artículo 27.—Rompimiento de la relación laboral con responsabilidad patronal. La conclusión de la relación laboral con responsabilidad patronal dada durante la participación del colaborador en una actividad de capacitación o una vez concluida ésta, lo libera de los compromisos adquiridos con motivo de dicha participación.

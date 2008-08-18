@@ -1,2 +1,0 @@
-Artículo 24.—Licencias y permisos. La Operadora podrá conceder licencia de tiempo sin goce de salario de hasta cinco días hábiles, para elaborar trabajos finales de graduación o preparación de pruebas de grado, que permitan al colaborador la obtención de un grado académico.
-El otorgamiento de licencias de tiempo requiere la aprobación previa de la Jefatura inmediata del solicitante y los comprobantes correspondientes.

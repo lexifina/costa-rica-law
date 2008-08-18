@@ -1,1 +1,0 @@
-Artículo 6º—De la planificación en materia de capacitación y actualización. El Área de Recursos Humanos como responsable de la ejecución del Plan de Capacitación, será quien lleve a cabo la función de planificación, control y evaluación de todas las actividades de capacitación y actualización que se realicen conforme a los requerimientos de la Operadora.

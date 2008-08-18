@@ -1,1 +1,0 @@
-Artículo 28.—Rompimiento de la relación laboral sin responsabilidad patronal. La conclusión de la relación laboral sin responsabilidad patronal ocurrida durante el proceso de capacitación o una vez concluida ésta, obliga a retribuir a la Operadora el costo atribuido a su participación y a los compromisos que esta conlleva.

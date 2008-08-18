@@ -1,1 +1,0 @@
-Artículo 26.—Prescripción médica. Quedará libre de los compromisos adquiridos por la participación en actividades de capacitación el colaborador que la interrumpa por prescripción médica. Solo tendrá valor para este propósito el certificado que extienda un médico de la Caja Costarricense del Seguro Social.
