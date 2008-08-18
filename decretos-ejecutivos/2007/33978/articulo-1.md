@@ -16,4 +16,5 @@ Considerando:
 8º—Que el señor Ministro rector del Sector Productivo, mediante el oficio DM-431-2007 de 13 de junio de 2007, avala la solicitud planteada por ese Órgano.
 9º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Servicio Fitosanitario del Estado para el año 2008. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para el Servicio Fitosanitario del Estado, el gasto presupuestario máximo del 2008, establecido según el artículo 1º del Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 de 22 de marzo de 2007, quedando el límite de gasto presupuestario en la suma de ¢7.379.480.000,00 (siete mil trescientos setenta y nueve millones cuatrocientos ochenta mil colones exactos), para ese período.
+Artículo 1º—Modifícase para el Servicio Fitosanitario del Estado, el gasto presupuestario máximo del 2008, establecido según el artículo 1º del Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 de 22 de marzo de 2007, quedando el límite de gasto presupuestario en la suma de ¢9.379.480.000,00 (nueve mil trescientos setenta y nueve millones cuatrocientos ochenta mil colones exactos), para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34712 del 18 de agosto de 2008)

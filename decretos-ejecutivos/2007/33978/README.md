@@ -14,3 +14,4 @@ Modifica para el Servicio Fitosanitario del Estado, el gasto presupuestario máx
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-18 | la propia norma |
+| 2 | 2008-08-18 | Decreto Ejecutivo 34712 (2008-08-18) |
