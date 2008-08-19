@@ -1,0 +1,1 @@
+Artículo 25.—Control del Presupuesto de Auditoría Interna. La administración llevará un control separado del presupuesto de gastos asignado a la Auditoría Interna, y emitirá informes periódicos de su ejecución.

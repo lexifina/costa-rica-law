@@ -1,0 +1,1 @@
+Artículo 72.—Objetivos de los servicios preventivos. Los objetivos del trabajo de los servicios preventivos, deben considerar los procesos de valoración del riesgo, control y de dirección de manera integral.

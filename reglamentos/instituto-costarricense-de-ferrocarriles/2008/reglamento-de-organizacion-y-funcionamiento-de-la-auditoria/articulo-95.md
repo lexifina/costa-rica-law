@@ -1,0 +1,1 @@
+Artículo 95.—Incorporación del conocimiento sobre controles. Los funcionarios de la Auditoría Interna coadyuvarán con el SEVRI (Sistema de Evaluación de riesgo), mediante la incorporación de los conocimientos de los controles obtenidos en los estudios, a través de los productos de los servicios de Auditoría.

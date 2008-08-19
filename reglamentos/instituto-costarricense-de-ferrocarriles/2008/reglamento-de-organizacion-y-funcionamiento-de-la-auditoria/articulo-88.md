@@ -1,0 +1,1 @@
+Artículo 88.—Incorporación del conocimiento sobre riesgo. Los funcionarios de la Auditoría Interna colaborarán con el SEVRI mediante la fiscalización, donde se incluirá el conocimiento del riesgo obtenido en los estudios.

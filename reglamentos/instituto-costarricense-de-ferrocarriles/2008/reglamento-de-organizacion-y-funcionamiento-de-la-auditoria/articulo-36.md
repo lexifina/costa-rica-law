@@ -1,0 +1,1 @@
+Artículo 36.—Otras regulaciones. El Consejo Directivo deberá establecer las disposiciones y regulaciones de tipo administrativo que le sean aplicables al Auditor Interno y deberán ser equitativas con aquellas aplicables a los cargos de similar jerarquía. Dichas regulaciones no podrán afectar la independencia o ámbito de control del Auditor Interno.
