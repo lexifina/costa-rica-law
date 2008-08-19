@@ -1,4 +1,2 @@
-ARTÖCULO 4§.-El Ministerio de Obras P£blicas y Transportes
-proporcionar
-a la Comisi¢n la sede y los elementos necesarios para su
-funcionamiento.
+Artículo 4º—La Comisión se reunirá en la sede central División Marítimo Portuaria del MOPT o en el lugar que ésta acuerde y contará, para el cumplimiento de sus funciones, con la ayuda técnica y logística que requiera de las entidades que la integran. Igualmente, se podrá hacer uso del recurso humano ya existente en dichas instituciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34747 del 19 de agosto del 2008)

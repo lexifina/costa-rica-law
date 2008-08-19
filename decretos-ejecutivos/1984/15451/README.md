@@ -13,3 +13,4 @@ Crea la Comisión Nacional Prevención y Control de Contaminación MarHidrocarbu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-06-11 | la propia norma |
+| 2 | 2008-08-19 | Decreto Ejecutivo 34747 (2008-08-19) |

@@ -1,7 +1,2 @@
-ARTÖCULO 10.-De conformidad con el inciso c) del art¡culo
-3§, esta Comisi¢n
-tendr un plazo de seis meses contado a partir de la fecha de
-publicaci¢n de
-este Decreto para representar el Plan Nacional para prevenir,
-controlar y combatir
-la contaminaci¢n del mar por hidrocarburos.
+Artículo 10.—Para la definición del “Plan Nacional de Contingencia para Prevenir, Controlar y Combatir la Contaminación del Mar por Derrame de Hidrocarburos”, la Comisión podrá solicitar la colaboración de la Organización Marítima Internacional (OMI) y de la Comisión Centroamericana de Transporte Marítimo (COCATRAM), mediante la División Marítima Portuaria. El Plan Nacional de Contingencia deberá ser publicado en el Diario Oficial La Gaceta para conocimiento del subsector marítimo portuario.
+( Así reformado por el artículo 1° del decreto ejecutivo N°34747 del 19 de agosto del 2008)

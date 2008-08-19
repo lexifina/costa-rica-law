@@ -1,5 +1,2 @@
-ARTÖCULO 7§.-La Comisi¢n establecer sus propios
-procedimientos y normas
-de trabajo, de conformidad con lo establecido en la Ley General
-de la Administraci¢n
-P£blica.
+Artículo 7º—La Comisión establecerá sus propios procedimientos y normas de trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34747 del 19 de agosto del 2008)
