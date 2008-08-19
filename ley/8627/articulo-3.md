@@ -4,3 +4,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 34440 del 28 de marzo de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34532 del 15 de mayo de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34657 del 15 de julio de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34721 del 19 de agosto de 2008).
