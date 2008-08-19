@@ -1,0 +1,1 @@
+Artículo 23.—En caso de renuncia justificada o que se le retire la beca a algún estudiante, ésta se otorgará a otra persona que se encuentre en lista de espera de la Institución a la que correspondía el estudiante.

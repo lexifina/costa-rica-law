@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión de Asuntos Sociales y los Concejos de Distrito en coordinación con las instituciones educativas, basadas en las solicitudes presentadas, seleccionarán a los beneficiarios dando prioridad a los estudiantes de menores ingresos familiares; en caso de personas con discapacidad será la GOMAD la que evalúe las solicitudes presentadas basadas en la Ley Nº 7600.

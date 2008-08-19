@@ -1,0 +1,1 @@
+Artículo 8º—La Secretaría del Concejo Municipal será la encargada de informar a los centros educativos y a las personas interesadas, sobre los estudiantes que de forma definitiva resultaren becados por parte del Concejo.
