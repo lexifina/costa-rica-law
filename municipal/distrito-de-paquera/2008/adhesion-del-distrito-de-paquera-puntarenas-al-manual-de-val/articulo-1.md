@@ -1,0 +1,3 @@
+CONCEJO MUNICIPAL DEL DISTRITO PAQUERA
+El Concejo Municipal del Distrito de Paquera, Puntarenas, en sesión Nº 403, celebrada el día 31 de julio del 2008, en su artículo 7º, inciso F) “El Concejo Municipal se adhiere a la publicación del documento Manual de Valores Base Unitarios por Topología Constructiva, publicado en las páginas de la 29 a la 60 del Diario Oficial La Gaceta, Nº 78, del miércoles 23 de abril del 2008, por el Órgano de Normalización Técnica del Ministerio de Hacienda”. Este Reglamento rige a partir de la publicación de este acuerdo en el Diario Oficial La Gaceta.
+Paquera, 5 de agosto del 2008.—
