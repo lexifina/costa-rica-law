@@ -1,2 +1,0 @@
-Artículo 64.—Fundamentos de la ética.
-Las funciones de regulación, que también comprenden las de control de calidad de los servicios públicos encomendadas a la Institución, se orientarán por el principio de satisfacción del interés público. También se orientarán por los valores fundamentales de lealtad, eficiencia, probidad, responsabilidad, integridad, veracidad, confidencialidad, imparcialidad e iniciativa en el desempeño de las funciones. Los deberes y en general las actuaciones de los funcionarios, estarán inspiradas en esos valores.

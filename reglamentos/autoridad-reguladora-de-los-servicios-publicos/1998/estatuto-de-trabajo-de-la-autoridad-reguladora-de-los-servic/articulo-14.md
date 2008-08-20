@@ -1,3 +1,0 @@
-Artículo 14.—Pago quincenal del salario y pago del aguinaldo.
-El salario mensual se liquidará en dos pagos quincenales de acuerdo al programa de pagos elaborado por la unidad de Finanzas al inicio del año. Todo funcionario tendrá derecho a ser remunerado adicionalmente a más tardar cada quince de diciembre, en la dozava parte del total de los salarios ordinarios y extraordinarios percibidos durante el período transcurrido entre el primero de diciembre del año anterior y el treinta de noviembre del año siguiente, conforme al período laborado.
-En el caso de que el funcionario cesare en sus labores por cualquier causa, tendrá derecho a ser remunerado en la dozava parte de los salarios percibidos hasta la fecha del retiro.

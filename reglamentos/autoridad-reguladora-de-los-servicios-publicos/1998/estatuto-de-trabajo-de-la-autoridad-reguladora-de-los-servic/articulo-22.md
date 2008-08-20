@@ -1,2 +1,0 @@
-Artículo 22.—Período de la evaluación del desempeño.
-Durante el primer trimestre de cada año todo funcionario será evaluado y calificado por la labor desempeñada y los méritos obtenidos durante el último período trabajado que como mínimo será de seis meses y como máximo de doce. El sistema de evaluación del desempeño y los formularios correspondientes serán administrados por la Unidad de Recursos Humanos.

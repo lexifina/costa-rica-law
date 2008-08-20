@@ -1,2 +1,0 @@
-Artículo 51.—Plazo para fijar fecha del disfrute de vacaciones.
-Las jefaturas superiores señalarán oportunamente la fecha de disfrute de vacaciones de los subalternos, procurando que no se altere ni la buena marcha de la dependencia, ni la efectividad del descanso pero sujetándose a lo dispuesto en el artículo 155 del Código de Trabajo sobre el plazo para fijarlas. Los funcionarios gozarán sin interrupción del período completo de vacaciones. Sin embargo, éste podrá fraccionarse cuando exista convenio con la Jefatura.

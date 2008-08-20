@@ -1,2 +1,0 @@
-Artículo 48.— Tipos de justificación.
-La ausencia por razón de enfermedad, mayor o igual a cuatro días naturales se justificará mediante certificación médica de incapacidad extendida por la Caja Costarricense del Seguro Social, por el Instituto Nacional de Seguros o por el médico de empresa. Aquélla menor o igual a tres días naturales, podrá justificarse por otros medios, sujeta a la aceptación de la jefatura inmediata del funcionario.

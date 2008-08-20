@@ -1,2 +1,0 @@
-Artículo 30.— Sustitución temporal de funcionarios.
-La sustitución temporal por períodos mayores o iguales a seis meses en puestos de igual o de superior categoría se efectuará mediante el proceso de selección interna. La sustitución podrá darse para puestos en dependencias distintas a la que pertenece el candidato tomando en consideración el criterio de la jefatura superior del área donde se dará la sustitución.

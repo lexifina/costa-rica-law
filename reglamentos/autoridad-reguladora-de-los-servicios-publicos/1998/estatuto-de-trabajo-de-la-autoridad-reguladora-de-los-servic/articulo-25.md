@@ -1,3 +1,0 @@
-Artículo 25.— Proceso de selección interna.
-Los funcionarios con puestos en propiedad, con puestos interinos o aquellos funcionarios en periodo de prueba por ingreso a la Institución, podrán concursar para ocupar puestos vacantes y de nueva creación mediante el proceso de selección interna, tomando en cuenta la carrera administrativa del funcionario participante. Sólo si ninguno de los funcionarios aquí mencionados no concursaren o no cumplieran con los requisitos exigidos para ocupar la plaza, se iniciará el proceso de selección externa.
-El aviso de existencia de plazas vacantes y nuevas se expondrá en lugares accesibles de la Institución durante ocho días naturales consecutivos como mínimo, a fin de que los interesados participen.

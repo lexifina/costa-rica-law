@@ -1,2 +1,0 @@
-Artículo 72.—Plazo para imponer sanciones.
-Las sanciones se impondrá dentro del mes inmediato siguiente, al momento en que se remita el expediente y la recomendación en su caso, al órgano encargado de imponer la sanción que corresponda. Las sanciones serán impuestas por la Jefatura inmediata del funcionario de que se trate; salvo en caso del despido, que corresponde al Regulador General imponerlo.

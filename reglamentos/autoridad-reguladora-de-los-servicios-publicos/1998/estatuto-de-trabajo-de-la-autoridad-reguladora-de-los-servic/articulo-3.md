@@ -1,3 +1,0 @@
-Artículo 3°— Legislación aplicable.
-Serán aplicables a los funcionarios las normas atinentes a la función publica contenidas en la Constitución Política, en la Ley General, en la Ley 7593 y su reglamento y el presente estatuto.
-A falta de disposición en este estatuto y en las normas precitadas, se aplicarán en su orden la legislación laboral, las leyes conexas, los decretos ejecutivos, la jurisprudencia y los principios generales de derecho público. En caso de duda en cuanto a la interpretación de los artículos de este estatuto, se aplicará el Principio de la Norma más Favorable al trabajador.
