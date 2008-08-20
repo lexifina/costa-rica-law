@@ -1,0 +1,1 @@
+Artículo 2°-De conformidad con el artículo 5° de la Ley contra el Hostigamiento Sexual en el Empleado y la Docente , N° 7476 del 30 de enero de 1995, se establece este Reglamento, en cuanto su tipifación, sanciones y procedimientos.
