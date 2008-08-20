@@ -1,1 +1,0 @@
-Artículo 2°-Se deja sin efecto la resolución N° 150-2007 de diez horas y veinticinco minutos del día primero de noviembre del dos mil siete, de la Dirección General de Hacienda, publicada en La Gaceta N ° 242, del 17 de diciembre del 2007.
