@@ -1,0 +1,1 @@
+Artículo 5º—El fondo se mantendrá en dinero efectivo, vales liquidados, vales pendientes y vales en trámite de reintegro y servirá para atender exclusivamente la adquisición de servicios y artículos en situaciones de verdadera urgencia, y aquellos que por su naturaleza y monto se exceptúan de los trámites de la orden de compra y de la cancelación directa por medio de cheque.
