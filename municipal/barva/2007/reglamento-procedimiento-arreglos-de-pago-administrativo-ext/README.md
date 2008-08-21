@@ -14,3 +14,4 @@ Reglamento Procedimiento Arreglos de Pago Administrativo, Extrajudicial y Judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-10 | la propia norma |
+| 2 | 2008-08-21 | Reglamento 49 (2008-08-21) |
