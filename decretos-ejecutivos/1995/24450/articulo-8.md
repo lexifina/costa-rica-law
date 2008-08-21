@@ -1,1 +1,0 @@
-Artículo 8º.- En caso de que un funcionario sea trasladado a otra área, el jefe inmediato lo comunicará a la mayor brevedad al Departamento de Recursos Humanos del MIRENEM, para éste efectúe los ajustes necesarios.

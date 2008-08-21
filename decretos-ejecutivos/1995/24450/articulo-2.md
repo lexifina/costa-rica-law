@@ -1,2 +1,0 @@
-Artículo 2º—Tendrán derecho a beneficiarse del incentivo por Concepto de Desarraigo Familiar, aquellos funcionarios del Ministerio del Ambiente y Energía que se encuentren destacados en las áreas silvestres protegidas y desarrollen en ellas funciones propias de su puesto y que en virtud de la jornada mensual acumulativa con disponibilidad laboral en la cual laboran y por la cual deban abandonar sus hogares para cumplir sus funciones laborales.
-(Así reformado por el artículo 2° del Decreto Ejecutivo N° 31032 del 5 de febrero de 2003)

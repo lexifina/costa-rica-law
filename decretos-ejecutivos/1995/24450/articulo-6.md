@@ -1,1 +1,0 @@
-Artículo 6º.- Los jefes inmediatos de los funcionarios acreedores a este incentivo, serán los encargados de presentar las nóminas al Departamento de Recursos Humanos del Ministerio, con el fin de que el citado Departamento efectúe el estudio de la documentación que demuestre que el servidor cumple con los requisitos señalados en el artículo 2º.

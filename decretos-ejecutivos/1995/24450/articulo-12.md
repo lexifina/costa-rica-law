@@ -1,1 +1,0 @@
-Artículo 12.- Los funcionarios que disfruten de esta compensación económica, no podrán acogerse al "incentivo por regionalización para funcionarios del MIRENEM" establecido en el decreto ejecutivo Nº 21894-MIRENEM.
