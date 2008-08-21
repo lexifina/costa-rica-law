@@ -1,6 +1,0 @@
-MUNICIPALIDAD DE PEREZ ZELEDON
-Reglamento del Manejo de los Fondos de la Caja Chica Municipales
-La Municipalidad de Pérez Zeledón avisa que mediante inciso c), capítulo IV, de la sesión ordinaria N° 144, celebrada por el Concejo el día 10 de noviembre de 1987, aprobó el siguiente Reglamento del Manejo de los Fondos de Caja Chica Municipales, que dice:
-1) *El fondo de la caja chica es de novecientos cincuenta mil colones, y fue aumentado a ese monto mediante acuerdo tomado en sesión ordinaria Nº 081-07, artículo 6), inciso 4), celebrada el 13 de noviembre del 2007. Tiene por facilitar la adquisición y pago de servicios y suministros de emergencia por un costo máximo de ¢ 10.000,00 como lo establece el artículo 134 del Código Municipal; y no requiere orden de compra, pues se supone que un gasto mayor corresponde a trabajos o servicios proyectados o adquisiciones estudiadas con anticipación y por tanto deben solicitarse mediante requisiciones (solicitud de materiales y servicios) por intermedio de la Proveeduría Municipal.
-(*Así reformado mediante sesión N° 081 del 13 de noviembre de 2007)
-Por su carácter de inventariables no se deben comprar: herramientas equipos o mobiliario de oficina, etc.

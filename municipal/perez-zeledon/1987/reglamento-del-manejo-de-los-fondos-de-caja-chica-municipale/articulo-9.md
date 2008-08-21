@@ -1,1 +1,0 @@
-9) Cada vez que se solicite un reembolso. el fondo debe ser balanceado para cerciorarse que el total de comprobantes de gastos más el efectivo en Caja, es igual al fondo asignado. Cualquier diferencia que resulte, sea sobrante o faltante, debe contabilizarse de inmediato y ser comunicada por escrito al señor Ejecutivo Municipal y a la Auditoría.
