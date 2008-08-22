@@ -1,0 +1,7 @@
+Artículo 3º—Implementación de Programas de Teletrabajo dentro de las instituciones del Estado: Las instituciones del Estado podrán poner en marcha Programas de Teletrabajo, en coordinación con el Equipo Coordinador Interinstitucional. Para el diseño de los programas, las instituciones deberán contemplar como mínimo, los siguientes extremos:
+a) Objetivos del Programa de Teletrabajo, los cuales deben responder a criterios de mejoramiento en la prestación de servicios a la ciudadanía, aumento en la productividad y mejora en la calidad de vida de los funcionarios.
+b) Los puestos de trabajo que se incluirán en el Programa se fijarán atendiendo la naturaleza de sus funciones, de forma tal que éstas puedan desarrollarse parcialmente de manera no presencial. Podrán ser incluidos aquellos puestos de trabajo que requieran para su adecuado desempeño contactos personales frecuentes o atención directa al público, siempre y cuando su atención no requiera necesariamente su presencia en la institución.
+c) Condiciones de los funcionarios que podrán solicitar su participación en el programa, quienes deberán encontrarse en servicio activo y contar con conocimientos suficientes de ofímática.
+d) Número máximo de participantes y procedimiento de selección de los teletrabajadores que participarán en el Programa.
+e) Duración del Programa y de la prestación de servicios no presenciales en función de cada tipo de jornada.
+f) Determinación del órgano responsable y los criterios para el control y sistema de evaluación del trabajo desarrollado de forma no presencial.
