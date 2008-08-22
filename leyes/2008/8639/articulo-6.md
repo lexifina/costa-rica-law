@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Procedimientos de contratación administrativa
+Se aplicará el inciso b) del artículo 2 de la Ley N.º 7494, Contratación administrativa, para los procedimientos de contratación administrativa. Sin embargo, los principios y parámetros constitucionales que rigen la actividad contractual del Estado, derivados del artículo 182 de la Constitución Política y el régimen de prohibiciones de la contratación administrativa, establecidos por la legislación ordinaria, serán de aplicación obligatoria, al igual que los procedimientos por la vía supletoria.
