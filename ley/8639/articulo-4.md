@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Creación del Consejo Asesor del Programa (CAP)
+Créase el Consejo Asesor del Programa (CAP) que estará presidido por el ministro o la ministra de Agricultura y Ganadería, el ministro o la ministra de Ambiente y Energía, el presidente o la presidenta de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) y la alcaldesa o el alcalde de la Municipalidad de Talamanca.
