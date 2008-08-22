@@ -1,0 +1,1 @@
+Artículo 2º—Ordenar a la Presidencia Ejecutiva del Instituto Costarricense de Pesca y Acuicultura, proceda de inmediato a ejecutar lo dispuesto en el acuerdo de Junta Directiva AJDIP/139-2008, publicado en La Gaceta N° 73 del 16 de abril de 2008.
