@@ -1,0 +1,3 @@
+Artículo 25.—Del cumplimiento de las normas de inversión. Las Rectorías son las responsables de velar porque el análisis técnico-económico y la emisión de la opinión técnica sean efectuados conforme con lo establecido en las Normas Técnicas, Lineamientos y Procedimientos vigentes del SNIP.
+La Rectoría del Sector verificará el contenido de los estudios de preinversión y el programa de inversiones de acuerdo a la metodología que establezca MIDEPLAN.
+Concluida satisfactoriamente la función de verificación y aprobación técnica por parte de la Rectoría, ésta comunicará a la institución responsable del proyecto el aval para que realice la incorporación en el Banco de Proyectos de MIDEPLAN.

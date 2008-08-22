@@ -1,0 +1,6 @@
+Artículo 20.—Del ciclo de vida de los proyectos de inversión. Para el SNIP, el ciclo de vida de los proyectos de inversión será el siguiente:
+a) Para los proyectos de formación de capital fijo: Perfil, Prefactibilidad, Factibilidad, Diseño y Ejecución.
+b) Para los proyectos que no forman capital fijo: Perfil y Ejecución.
+Tomando en cuenta sus características, dimensiones y complejidad los proyectos de formación de capital fijo podrán cumplir la totalidad del ciclo de vida en forma parcial o total, pero siempre respetando el orden y términos indicados en este artículo. Las instituciones formuladoras deberán programar su inversión en función del ciclo de vida que deberá desarrollar cada proyecto, cualquiera que sea su tipología, de acuerdo con lo aquí dispuesto o lo que disponga las normas técnicas especializadas.
+Los proyectos de inversión que forman capital fijo, que por su tamaño y complejidad deseen solicitar financiamiento para la etapa de ejecución, requerirán presentar diseños finales como requisito indispensable para obtener la opinión técnica favorable.
+Los estudios deben abarcar, como mínimo, tanto el Perfil, la Prefactibilidad y la Factibilidad técnica, económica, social y ambiental, así como el incremento en la capacidad productiva que originará.

@@ -1,0 +1,1 @@
+Artículo 10.—Del órgano operativo. En MIDEPLAN existirá un órgano operativo denominado Unidad de Inversiones Públicas, que se encargará de la administración y ejecución de todas las acciones pertinentes que posibiliten el correcto funcionamiento del SNIP.

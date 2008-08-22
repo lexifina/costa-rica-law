@@ -1,0 +1,1 @@
+Artículo 23.—Del archivo. Cada Rectoría dispondrá de un sistema de archivo con todos los antecedentes del proyecto, desde su preinversión hasta su ejecución. Para ellos se deberán utilizar medios de memorización de datos, cuya tecnología garantice la estabilidad, perdurabilidad e inalterabilidad de la documentación.

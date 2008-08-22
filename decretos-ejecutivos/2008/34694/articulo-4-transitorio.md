@@ -1,0 +1,1 @@
+Transitorio IV.—Durante el período de implementación, el Ministerio de Hacienda desarrollará el plan de desembolsos de capacitación para la formulación, evaluación y gestión de los proyectos de inversión pública, mediante el uso de los recursos provenientes de la Cuenta B del PRODEV, destinados al componte de inversiones públicas.

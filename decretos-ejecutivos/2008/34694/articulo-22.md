@@ -1,0 +1,1 @@
+Artículo 22.—De los proyectos rechazados. Los proyectos presentados dentro de los plazos previstos en los lineamientos, pero que no alcanzaron su ingreso al SNIP en el proceso de verificación a cargo de la Rectorías, podrán ser reingresados al sistema una vez que la institución formuladora adecue su proyecto de inversión a las normas de inversión.
