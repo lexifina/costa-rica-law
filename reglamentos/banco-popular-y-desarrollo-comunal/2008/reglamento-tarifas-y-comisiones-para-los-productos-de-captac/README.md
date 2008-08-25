@@ -14,3 +14,4 @@ Reglamento "Tarifas y Comisiones para los productos de Captación"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-06 | la propia norma |
+| 2 | 2008-08-25 | Reglamento 4602 (2008-08-25) |
