@@ -1,0 +1,3 @@
+Artículo 42.—Incumplimiento injustificado respecto de las recomendaciones aceptadas por la Administración. La Auditoría Interna verificará oportunamente, utilizando los medios que estime apropiados, la puesta en práctica de las recomendaciones aceptadas por la Administración.
+Si como resultado de sus verificaciones, la Auditoría Interna detecta un incumplimiento de tales recomendaciones, deberá realizar un análisis exhaustivo para establecer si éste es justificado o injustificado.
+El incumplimiento injustificado se producirá cuando, como producto del análisis de sus causas, se compruebe una renuencia grave e injustificada de la Administración a cumplir con las recomendaciones previamente aceptadas.

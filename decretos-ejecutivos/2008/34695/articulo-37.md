@@ -1,0 +1,1 @@
+Artículo 37.—La Administración, responsable de la implantación de las recomendaciones de la Auditoría Interna. La Administración será la responsable de la adopción de todas las medidas y acciones que aseguren y permitan la efectiva, eficiente y oportuna implantación de las recomendaciones emitidas por la Auditoría Interna y aceptadas por esa Administración.

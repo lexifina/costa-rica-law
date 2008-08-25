@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo del Reglamento. El presente Reglamento tiene por finalidad regular los aspectos fundamentales, de las actividades de la Auditoría Interna del Ministerio de Justicia, su organización, objetivos, funciones y atribuciones.

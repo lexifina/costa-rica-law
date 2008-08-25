@@ -1,0 +1,1 @@
+Artículo 3º—La Auditoría Interna y el control interno. La Auditoría Interna es parte integral y vital del Sistema de Control Interno del Ministerio de Justicia y tendrá como una de sus principales competencias la comprobación del cumplimiento, la suficiencia y la validez de dicho sistema.

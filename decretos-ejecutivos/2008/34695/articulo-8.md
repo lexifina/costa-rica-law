@@ -1,0 +1,1 @@
+Artículo 8º—La Auditoría Interna no realiza funciones y actuaciones de administración activa. La Auditoría Interna, con el propósito de mantener su carácter asesor e independiente, no ejercerá ninguna labor propia de la administración activa.

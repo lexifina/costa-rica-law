@@ -1,0 +1,3 @@
+Artículo 27.—Plazas vacantes. Las vacantes que por cualquier razón se den en los puestos de la Auditoría Interna, deberán llenarse en un plazo máximo de tres meses, contado a partir del momento de la vacante. El plazo podrá prorrogarse por otros tres, por razones debidamente acreditadas en el expediente que confeccione al efecto la Dirección General de Personal.
+La disminución de plazas por movilidad laboral u otros movimientos deberá ser previamente autorizada por el Auditor Interno.
+Los requisitos para la creación y ocupación de plazas de la Auditoría Interna, deberán considerar en todo momento sus necesidades reales y no podrán ser aplicados en perjuicio del funcionamiento del sistema de control interno de la Institución.

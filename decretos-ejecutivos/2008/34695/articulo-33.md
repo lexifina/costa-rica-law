@@ -1,0 +1,5 @@
+CAPÍTULO VI
+De la comunicación de resultados
+Artículo 33.—Los informes de la Auditoría Interna. La Auditoría Interna deberá comunicar los resultados de sus auditorías o estudios especiales de auditoría, mediante informes, a efecto de que se tomen las decisiones del caso en tiempo, a propósito y convenientes. Dicha comunicación se dirigirá al titular subordinado competente; se dirigirá al Despacho del Ministro o de los Viceministros de Justicia, sólo cuando la gravedad o importancia de los hechos lo ameriten, las decisiones a tomar sean de su exclusiva competencia o así lo soliciten.
+La comunicación de resultados se deberá hacer preferentemente por escrito. Podrá efectuarse durante el desarrollo de la auditoría o estudio especial de auditoría, mediante informes parciales o al finalizar la labor por medio del informe final.
+En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará, principalmente, lo dispuesto por las normas para el ejercicio profesional de la auditoría interna y lo que establezcan al respecto la Auditoría Interna y la Contraloría General de la República.
