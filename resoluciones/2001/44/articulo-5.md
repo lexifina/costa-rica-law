@@ -1,1 +1,1 @@
-Artículo 5°—Límite en la aplicación del descuento por practicabilidad administrativa. Por razones de practicabilidad administrativa, el descuento sólo podrá aplicarse si la suma autoliquidada en la declaración es también pagada electrónicamente o compensada en la declaración electrónica, dentro del plazo legal, y en forma íntegra o total.
+Artículo 5°—(Derogado mediante el artículo 1° de la resolución DGT-13 del 25 de agosto del 2008)

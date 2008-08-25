@@ -1,1 +1,1 @@
-Artículo 4°—Carácter no determinativo de los descuentos. El monto del descuento no forma parte de la determinación de la obligación tributaria, por lo que para aplicar los correspondientes procedimientos de recaudación de los montos descontados indebidamente, no deberán agotarse los procedimientos de determinación de oficio.
+Artículo 4°—(Derogado mediante el artículo 1° de la resolución DGT-13 del 25 de agosto del 2008)
