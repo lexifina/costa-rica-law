@@ -1,1 +1,0 @@
-Artículo 37.—Evidencia en el Expediente Administrativo. Una vez aportada la información indicada en el artículo anterior, la Sección Administrativa dejará evidencia de la resolución de prorrogar, en el expediente correspondiente, al menos cinco días antes al vencimiento de la fecha máxima para adjudicar.

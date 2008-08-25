@@ -1,3 +1,0 @@
-Artículo 65.—Respuesta a la Audiencia Inicial. Una vez notificada la audiencia inicial concedida por la Contraloría General de la República a la Operadora, deberá la Sección Administrativa dentro del día hábil siguiente convocar al Área Técnica y a la Asesoría Legal para que se pronuncien en un plazo no mayor a tres días hábiles.
-La Sección Administrativa debe aportar todos los documentos adicionales existentes en poder de la Contraloría General de la República, con el objetivo de que éstos sean analizados por las áreas involucradas antes de su respuesta.
-Corresponderá a la Sección Administrativa integrar una sola respuesta y remitirla al ente contralor dentro del plazo otorgado para contestar la audiencia.

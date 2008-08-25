@@ -1,3 +1,0 @@
-Artículo 19.—Entrega de Documentación. Los interesados en inscribirse en el Registro de Proveedores deberán retirar un formulario suministrado por la Sección Administrativa. Una vez completado el mismo se podrá enviar a ésta vía correo electrónico o entregar por fax o personalmente.
-Junto con la solicitud, o en un plazo máximo de tres días posteriores a la presentación de la misma, deberán anexarse los documentos de respaldo y la información complementaria que se solicita.
-La documentación que se presente para incorporarse al Registro de Proveedores podrá ser utilizada en cualquiera de los procesos de contratación.

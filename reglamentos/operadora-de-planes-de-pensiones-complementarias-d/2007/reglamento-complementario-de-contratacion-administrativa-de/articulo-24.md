@@ -1,1 +1,0 @@
-Artículo 24.—Debido Proceso. Salvo cuando la exclusión se fundamente en las causas señaladas en el artículo anterior, se deberá dar audiencia al proveedor a fin de que ejercite las garantías constitucionales que le asisten entre ellas el Debido Proceso y el Derecho de Defensa.

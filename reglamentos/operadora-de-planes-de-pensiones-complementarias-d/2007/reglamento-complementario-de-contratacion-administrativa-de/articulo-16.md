@@ -1,2 +1,0 @@
-Artículo 16.—Evaluación de la Gestión de Adquisición de Bienes y Servicios. Al finalizar cada periodo presupuestario la Sección Administrativa realizará una evaluación de la gestión de adquisición de bienes y servicios de la Operadora relacionándola con el Programa Anual de Adquisiciones e informará de los resultados a la Gerencia.
-Dicha evaluación incluirá las recomendaciones que la Sección Administrativa considere pertinentes con el objetivo de que sean tomadas en cuenta para el siguiente período presupuestario.

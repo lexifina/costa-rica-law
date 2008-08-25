@@ -1,2 +1,0 @@
-Artículo 50.—Garantía no Renovada. En casos excepcionales, si la Operadora se viere en la obligación de hacer efectiva una garantía de cumplimiento porque no se renovó en tiempo, deberá custodiar el dinero obtenido mediante esa gestión, mientras el contratista se apersona a poner a derecho su garantía.
-Dicha gestión deberá hacerla la Sección Administrativa de oficio de conformidad con la legislación vigente.

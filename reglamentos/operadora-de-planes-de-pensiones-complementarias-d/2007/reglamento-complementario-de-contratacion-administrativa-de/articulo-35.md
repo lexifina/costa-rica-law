@@ -1,3 +1,0 @@
-Artículo 35.—Publicidad de las Licitaciones Abreviadas. En la licitación abreviada se utilizará el mecanismo de invitación directa o publicación en el Diario Oficial La Gaceta, según el número de proveedores inscritos, cuyo plazo de tramitación estará acorde con las disposiciones que rigen la materia.
-Si se utiliza el mecanismo de invitación directa no podrá invitarse a menos de cinco proveedores quienes deberán estar inscritos en el Registro de Proveedores de la Operadora.
-Si el número de proveedores que existe en dicho Registro es inferior a cinco, se deberá cursar invitación en el Diario Oficial La Gaceta, de conformidad con lo establecido por el artículo 98 del Reglamento a la Ley de Contratación Administrativa.

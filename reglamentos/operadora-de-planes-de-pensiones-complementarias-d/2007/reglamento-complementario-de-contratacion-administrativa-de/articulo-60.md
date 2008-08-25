@@ -1,2 +1,0 @@
-Artículo 60.—Criterio Técnico y Legal. Vencida la audiencia concedida, y/o recibidos los argumentos del adjudicatario recurrido, la Sección Administrativa los enviará al Área Técnica y la Asesoría Legal cuando corresponda, para que ambas dependencias se pronuncien en un plazo de cinco días hábiles.
-Recibidos los criterios del Área Técnica y de la Asesoría Legal la Sección Administrativa contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación para emitir su recomendación y elevarla al órgano competente para resolver.

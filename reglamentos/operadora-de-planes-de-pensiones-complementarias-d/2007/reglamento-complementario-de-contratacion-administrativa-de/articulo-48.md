@@ -1,2 +1,0 @@
-Artículo 48.—Devolución de Garantías. La devolución de las garantías de participación se hará previa autorización de la Jefatura del Departamento de Administración y Finanzas, a los oferentes no adjudicados y al adjudicatario cuando éste haya rendido la garantía de cumplimiento respectiva.
-Para el caso de las garantías de cumplimiento la devolución se hará previa autorización del Comité de Licitaciones.

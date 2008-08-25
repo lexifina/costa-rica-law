@@ -1,2 +1,0 @@
-Artículo 30.—Audiencias Públicas. Antes de la elaboración del cartel definitivo y si las características propias de la contratación así lo requiere, la Operadora podrá celebrar audiencias públicas previas con los potenciales oferentes.
-Para esos efectos deberá mediar invitación publicada en algún Diario de circulación nacional y cumplir con los requisitos establecidos en el artículo 53 del Reglamento a la Ley de Contratación Administrativa.

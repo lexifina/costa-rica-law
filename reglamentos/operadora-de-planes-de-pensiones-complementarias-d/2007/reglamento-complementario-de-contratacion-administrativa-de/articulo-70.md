@@ -1,1 +1,0 @@
-Artículo 70.—Criterio Técnico y Legal. Una vez recibidos los descargos del contratista, los mismos serán remitidos al Área Técnica la cual en coordinación con la Asesoría Legal deberán pronunciarse con respecto a dichos alegatos y pruebas si las hubiera, en un plazo de 3 días hábiles.

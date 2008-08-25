@@ -1,2 +1,0 @@
-Artículo 40.—Contratación Directa de Escasa Cuantía. La contratación directa de escasa cuantía es un procedimiento contractual de excepción que permite a la Operadora adquirir bienes y/o servicios por montos iguales o menores al límite establecido por la legislación nacional para este tipo de trámite, o bien para contratar aquellas actividades que por su naturaleza y circunstancias no están sujetas a concurso público.
-Este es un proceso que utilizará el Registro de Proveedores como el medio idóneo para invitar a posibles oferentes y garantizar así una amplia participación.

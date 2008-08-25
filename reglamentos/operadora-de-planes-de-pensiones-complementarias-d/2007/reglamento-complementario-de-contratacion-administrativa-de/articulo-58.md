@@ -1,1 +1,0 @@
-Artículo 58.—Recurso de Revocatoria y/o Apelación. En los concursos cuyos procedimientos proceda la interposición del recurso de revocatoria y/o apelación, el recurrente deberá presentarse ante la Sección Administrativa dentro de los plazos establecidos por ley.

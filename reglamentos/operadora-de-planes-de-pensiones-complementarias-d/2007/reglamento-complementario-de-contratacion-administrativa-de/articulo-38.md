@@ -1,6 +1,0 @@
-Artículo 38.—Niveles de Adjudicación. En los procedimientos de contratación que celebre la Operadora los niveles competentes para adjudicar mediante resolución motivada serán los siguientes:
-a) Licitaciones abreviadas y públicas: El órgano competente para adjudicar en este tipo de procedimientos será el Comité de Licitaciones.
-b) Contrataciones directas que excedan el monto de escasa cuantía: El órgano competente para adjudicar en este tipo de procedimientos será el Comité de Licitaciones.
-c) Contrataciones directas de escasa cuantía: El órgano competente para adjudicar en los procedimientos de contratación directa por escasa cuantía, será la Jefatura del Departamento de Administración y Finanzas.
-Para todos los procedimientos de contratación, excepto para los que se promuevan al amparo de los procedimientos de contratación directa de escasa cuantía, la recomendación de adjudicación que prepara la Sección Administrativa deberá ser validada jurídicamente por la Asesoría Legal y técnicamente por la Unidad Usuaria que corresponda.
-Cuando la excepción para contratar directamente haya sido autorizada por la Contraloría General de la República, indistintamente de la cuantía del negocio jurídico autorizado, el órgano competente para adjudicar será el Comité de Licitaciones.
