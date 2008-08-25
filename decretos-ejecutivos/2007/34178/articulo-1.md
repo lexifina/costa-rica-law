@@ -14,4 +14,5 @@ Considerando:
 9º—Que el señor Ministro Rector del Sector Ambiente, Energía y Telecomunicaciones, mediante el oficio DM-1187-07 del 25 de setiembre de 2007, avala la solicitud planteada por el Fondo de Parques Nacionales.
 10.—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado para el Fondo de Parques Nacionales para el año 2008. Por tanto,
 Decretan:
-Artículo 1º—Modifícase para el Fondo de Parques Nacionales, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 del 22 de marzo de 2007, quedando el límite de gasto presupuestario en la suma de ¢3.642.360.000,00 (tres mil seiscientos cuarenta y dos millones trescientos sesenta mil colones sin céntimos) para ese período.
+Artículo 1º—Modifícase para el Fondo de Parques Nacionales, el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 33646-H y sus reformas, publicado en La Gaceta Nº 58 del 22 de marzo de 2007, quedando el límite de gasto presupuestario en la suma de ¢4.219.940.000,00 (cuatro mil doscientos diecinueve millones novecientos cuarenta mil colones sin céntimos) para ese período.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34743 de 25 de agosto de 2008).
