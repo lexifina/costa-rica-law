@@ -15,3 +15,4 @@ Reglamento Registro Control Aportes Obligatorios Trabajadores y Patronos
 | --- | --- | --- |
 | 1 | 2000-06-30 | la propia norma |
 | 2 | 2007-10-22 | Reglamento 4526 (2007-10-22) |
+| 3 | 2008-08-25 | Reglamento 4602 (2008-08-25) |
