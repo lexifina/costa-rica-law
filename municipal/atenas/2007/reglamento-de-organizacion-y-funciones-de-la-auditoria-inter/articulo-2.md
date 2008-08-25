@@ -1,0 +1,1 @@
+Artículo 2º—Definiciones. Para la interpretación, aplicación y actualización de este reglamento, en la terminología aplicada, se estará a lo dispuesto por los glosarios y definiciones de los cuerpos normativos referidos en el artículo 7 del presente reglamento.

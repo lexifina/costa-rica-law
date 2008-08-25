@@ -1,0 +1,1 @@
+Artículo 76.—Modificaciones: el Auditor(a) interno podrá proponer las modificaciones que considere oportunas al presente reglamento, según lo dispuesto en el artículo 22 inciso h), de la Ley General de Control Interno.

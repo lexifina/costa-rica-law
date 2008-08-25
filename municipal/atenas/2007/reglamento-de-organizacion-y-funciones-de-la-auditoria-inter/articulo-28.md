@@ -1,0 +1,1 @@
+Artículo 28.—Vacaciones, permisos, y otros del Auditor(a). Las vacaciones, y permisos del Auditor(a) deberán ser remitidos para que sean conocidos y aprobados por el Concejo Municipal, cuando estos superen un total de cuatro días hábiles.

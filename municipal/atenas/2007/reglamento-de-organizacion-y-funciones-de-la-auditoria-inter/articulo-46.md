@@ -1,0 +1,2 @@
+Artículo 46.—Planificación de la actividad. El Auditor(a) deberá administrar efectivamente la actividad de la Auditoría Interna, para asegurar que añada valor a la municipalidad.
+El Auditor(a) deberá establecer planes basados en criterios razonables y fundamentados, especialmente en una valoración del riesgo, a fin de determinar las prioridades de la actividad de la Auditoría Interna. Dichos planes deberán ser consistentes con los objetivos de la organización.

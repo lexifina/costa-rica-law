@@ -1,0 +1,1 @@
+Artículo 30.—Manuales institucionales. Los cargos de Auditor y Subauditor internos deben observar las respectivas funciones establecidas en los manuales institucionales de cargos y clases o de denominación similar.

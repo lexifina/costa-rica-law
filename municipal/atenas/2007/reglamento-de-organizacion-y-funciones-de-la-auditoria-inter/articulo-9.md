@@ -1,0 +1,1 @@
+Artículo 9º—Independencia de criterio. En toda actuación, la Auditoría Interna deberá proceder con completa independencia de criterio. En sus criterios no podrá haber injerencia del Concejo, el Alcalde y los demás órganos de la administración.

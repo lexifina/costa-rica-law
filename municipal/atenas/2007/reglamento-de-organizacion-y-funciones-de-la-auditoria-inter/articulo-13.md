@@ -1,0 +1,1 @@
+Artículo 13.—Objetividad. Es deber de todos lo funcionarios de la Auditoría Interna manejarse en estricta imparcialidad y objetividad respecto de su trabajo y los criterios que emita, así como evitar el conflicto de intereses.

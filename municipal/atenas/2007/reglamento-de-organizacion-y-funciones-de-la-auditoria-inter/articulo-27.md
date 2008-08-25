@@ -1,0 +1,1 @@
+Artículo 27.—Del proceso de recursos humanos. El Auditor, Subauditor y los funcionarios de la auditoría, tramitarán ante el Departamento de Gestión Estratégica, Proceso de Recursos Humanos, o ante el Alcalde, como jerarca administrativo, todo tipo de permisos, vacaciones, salidas, horarios, etc., siempre que esta comunicación no entorpezca sus funciones e independencia.

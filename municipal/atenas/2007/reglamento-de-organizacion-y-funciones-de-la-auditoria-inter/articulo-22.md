@@ -1,0 +1,1 @@
+Artículo 22.—Dependencia del Subauditor(a). Al Subauditor(a) le corresponderá apoyar al Auditor(a) en el descargo de sus funciones, lo sustituirá en sus ausencias temporales y deberá responder ante él o ella por su gestión.

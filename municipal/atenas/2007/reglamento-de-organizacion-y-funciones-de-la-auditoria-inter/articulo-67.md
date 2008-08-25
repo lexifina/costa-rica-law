@@ -1,0 +1,1 @@
+Artículo 67.—Ámbito de competencia en denuncias. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten la hacienda pública, así como lo conceptuado en la Ley contra la corrupción y el enriquecimiento ilícito.

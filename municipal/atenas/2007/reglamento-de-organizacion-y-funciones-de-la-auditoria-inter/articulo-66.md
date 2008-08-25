@@ -1,0 +1,1 @@
+Artículo 66.—Resultado seguimiento de recomendaciones. Con base en el sistema indicado en el artículo anterior, la Auditoría Interna emitirá el informe indicado en el artículo 43. El informe contendrá una evaluación sobre el grado general de cumplimiento por parte de la administración sobre el alcance determinado.

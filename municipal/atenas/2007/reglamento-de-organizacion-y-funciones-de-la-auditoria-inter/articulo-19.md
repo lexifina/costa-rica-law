@@ -1,0 +1,1 @@
+Artículo 19.—Comunicación de los planes y requerimientos de recursos. El Auditor(a) deberá realizar la comunicación anual de los planes y requerimientos de recursos a la administración activa, así como de las modificaciones que se hagan de dichos planes. También deberá comunicar el impacto que sobre la fiscalización y el control correspondientes produce la limitación de recursos.
