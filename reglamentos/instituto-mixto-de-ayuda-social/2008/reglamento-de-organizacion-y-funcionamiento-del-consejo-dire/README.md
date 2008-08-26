@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento del Consejo Directivo del Instituto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-03 | la propia norma |
+| 2 | 2008-08-26 | Reglamento 0 (2008-08-26) |
