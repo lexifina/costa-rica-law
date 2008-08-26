@@ -1,0 +1,2 @@
+ARTÍCULO 12.-
+A las personas físicas o jurídicas que no hayan presentado la declaración jurada sobre la renta, con la obligación de hacerlo, o a las que estén exentas de tal obligación, se les aplicará, igualmente, la tarifa que establece el artículo 14 de esta Ley, conforme queda señalado en el artículo 16 de esta misma Ley.
