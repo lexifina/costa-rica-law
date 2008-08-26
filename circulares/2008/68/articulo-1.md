@@ -48,3 +48,6 @@ Nombre del exportador 40 190 230
 La información eliminada y no incluida en el cuadro anterior, se obtiene directamente de la aplicación informática.
 Se les recuerda que se deberá enviar el mensaje de asociación del manifiesto de salida con el manifiesto de entrada y presentar a la Aduana de Limón el formulario físico de la DTI debidamente completo para su autorización en original y dos copias.
 Rige a partir del 16 de junio del 2008 y publíquese en el Diario Oficial La Gaceta.
+(NOTA DE SINALEVI: esta circular fue aclarada por Circular DGT-114-2008 de 26 de agosto de 2008, en el siguiente sentido:
+"...se aclara que en el manifiesto de salida se debe declarar información de las mercancías en tránsito internacional de paso, reexportaciones generadas en cualquier aduana de país en el sistema SIA, reexportaciones generadas en las aduanas que operen el módulo de exportación en sistema TICA, reexportaciones de mercancías de los regímenes de zona franca y perfeccionamiento activo y exportaciones tramitadas en el sistema TICA y en el SIA.
+Con el fin de evitar congestionamiento en las aduanas de salida terrestre, el transportista o su representante deberá transmitir el manifiesto de salida terrestre previo a la llegada de la unidad de transporte a estas aduanas.")

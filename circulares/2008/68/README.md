@@ -14,3 +14,4 @@ Ajustes en manifiestos y declaraciones de tránsito terrestre para exportación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-16 | la propia norma |
+| 2 | 2008-08-26 | Circular 114 (2008-08-26) |
