@@ -1,0 +1,2 @@
+ARTÍCULO 5.-
+Salvo los casos en que esta Ley determine un procedimiento diferente para fijar el monto del impuesto de patentes, se establecen como factores determinantes de la imposición, las ventas o los ingresos brutos que perciban las personas físicas o jurídicas afectas al impuesto, durante el ejercicio económico anterior al período que se grava. Por ventas se entiende el volumen de estas, hecha la deducción del impuesto que establece la Ley de impuesto general sobre las ventas u otra ley que establezca salvedades, lo cual será demostrado por el patentado.
