@@ -7,3 +7,4 @@ El Poder Ejecutivo queda autorizado para establecer vía reglamento, el plazo ha
 Pago de intereses de bonos de la deuda pública. En el marco de la renegociación de la deuda entre el Gobierno Central y las instituciones del Sector Público No Financiero, se autoriza al Ministerio de Hacienda a reconocer a éstas por el pago de intereses de los bonos de la deuda pública. una tasa de interés máxima igual a la suma de porcentaje de inflación, más uno punto veinticinco por ciento (1.25%).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34454 del 07 de abril de 2008).
 (Reformado por el artículo 1° de la Ley N° 8637 del 22 de mayo del 2008).
+(Reformado por el artículo 1° de la Ley N° 8659 del 07 de agosto del 2008).
