@@ -1,0 +1,3 @@
+Artículo 13.—Se prohíbe la utilización del uniforme de modo incompleto, así como la colocación descuidada de las prendas y accesorios que lo componen. La debida presentación personal será indispensable en el Oficial de Seguridad Municipal.
+a) Sobre el uniforme solo podrán, portar la placa de identificación, la placa policial, la insignia del Servicio de Seguridad y Vigilancia, los distintivos específicos, armamento y demás equipo autorizado por las autoridades superiores.
+b) Dicho uniforme será suministrado por la Administración en forma discrecional, atendiendo las necesidades de cada oficial de seguridad.

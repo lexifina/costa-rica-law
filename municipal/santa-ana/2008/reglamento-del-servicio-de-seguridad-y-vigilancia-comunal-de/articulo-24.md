@@ -1,0 +1,1 @@
+Artículo 24.—Los miembros del Servicio de Seguridad y Vigilancia Comunal estarán obligados a prestarse mutuo apoyo, así como a los miembros de otros cuerpos policiales, en toda ocasión que sean requeridos.
