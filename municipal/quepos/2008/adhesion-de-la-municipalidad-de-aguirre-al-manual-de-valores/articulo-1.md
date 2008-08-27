@@ -1,0 +1,3 @@
+MUNICIPALIDAD DEL CANTÓN DE AGUIRRE
+La Municipalidad de Aguirre, en sesión ordinaria Nº 213 celebrada el 29 de julio del 2008 en el artículo segundo, asuntos de tramitación urgente acuerdo Nº 02, conoce y acuerda la Municipalidad de Aguirre se adhiera a la publicación del Manual de Valores Base Unitarios por Tipología Contractiva para ser utilizados en los procesos de declaración y valoración de Bienes Inmueble que se proponga, mismos que fue publicado en el Diario Oficial La Gaceta Nº 78 del miércoles 23 de abril del 2008, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda.
+Concejo Municipal.
