@@ -1,0 +1,1 @@
+Artículo 4º—Los entes públicos a los que se refiere el artículo 1 de esta directriz deberán realizar las gestiones internas y externas, tecnológicas, presupuestarias y administrativas necesarias, a fin de contar con los recursos para el cumplimiento de este lineamiento presidencial y concretar el establecimiento de la ventanilla única.

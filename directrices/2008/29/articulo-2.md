@@ -1,0 +1,1 @@
+Artículo 2º—La coordinación de la implementación de la ventanilla única a la que se refiere el artículo anterior quedará a cargo del Ministerio de Cultura con el apoyo del Ministerio de Comercio Exterior (COMEX) y de la Promotora del Comercio Exterior de Costa Rica (PROCOMER).
