@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense del Deporte y la Recreación, el gasto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2008-08-27 | Decreto Ejecutivo 34774 (2008-08-27) |

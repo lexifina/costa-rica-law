@@ -13,4 +13,4 @@ Considerando:
 8º—Que la señora Ministra Rectora del Sector Cultural, mediante el oficio Nº DM 1052-07 de 6 de setiembre de 2007, avala la solicitud planteada por el Instituto.
 9º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Instituto Costarricense del Deporte y la Recreación para el año 2008. Por tanto;
 DECRETAN:
-Artículo 1º—Modificase para el Instituto Costarricense del Deporte y la Recreación, el gasto presupuestario máximo del 2008, establecido en el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 de 22 de marzo de 2007 y sus reformas, quedando el límite de gasto presupuestario en la suma de ¢2.370.600.000,00 (dos mil trescientos setenta millones seiscientos mil colones exactos) para ese período.
+Artículo 1º—Modificase para el Instituto Costarricense del Deporte y la Recreación, el gasto presupuestario máximo del 2008, establecido en el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 de 22 de marzo de 2007 y sus reformas, quedando el límite de gasto presupuestario en la suma de ¢ 2.614.100.000,00 (dos mil seiscientos catorce millones cien mil colones sin céntimos) para ese período.
