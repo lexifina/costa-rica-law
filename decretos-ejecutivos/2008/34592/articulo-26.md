@@ -1,0 +1,1 @@
+26.—La resolución a que se refiere el numeral 25 deberá ser notificada por escrito al exportador o productor del bien, la cual incluirá las conclusiones de hecho y el fundamento jurídico en que se basa la determinación de origen.

@@ -1,0 +1,1 @@
+41.—Cuando la solicitud de un criterio anticipado verse sobre el cumplimiento de un requisito de valor de contenido regional, según el artículo 6-10 (2) (b) del Tratado, deberá indicarse si la solicitud se basa en el uso del método de valor de transacción o en el método de costo neto, en los términos del artículo 5-04 (1) del Tratado.

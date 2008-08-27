@@ -1,0 +1,1 @@
+22.—La autoridad competente de la Parte importadora podrá modificar la información contenida en la notificación a que se refiere el numeral 21 de la presente Reglamentación, en cuyo caso deberá ajustarse a lo dispuesto en el artículo 6-07 (8) del Tratado.

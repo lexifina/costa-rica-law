@@ -1,0 +1,1 @@
+10.—En los términos de lo dispuesto en el artículo 6-03 (2) del Tratado, cuando el importador no cumpla con cualesquiera de los requisitos establecidos en el numeral 8 de esta Reglamentación, se negará trato arancelario preferencial al bien importado de territorio de la otra Parte para el cual se hubiere solicitado la preferencia.

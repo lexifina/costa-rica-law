@@ -1,0 +1,1 @@
+11.—De conformidad con lo dispuesto en el artículo 6-03 (3) del Tratado, cuando se hayan importado bienes originarios y no se hubiere solicitado trato arancelario preferencial conforme al Tratado, el importador podrá solicitar la devolución de los aranceles aduaneros pagados en exceso, dentro del plazo y en los términos que establezca la legislación de cada Parte.

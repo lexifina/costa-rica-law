@@ -1,0 +1,1 @@
+45.—De conformidad con lo dispuesto en el artículo 6-10 (3) (c) del Tratado, el criterio anticipado deberá emitirse en un periodo no mayor a 120 días, a partir de la fecha en que se haya recibido toda la información necesaria de la persona que lo solicita.

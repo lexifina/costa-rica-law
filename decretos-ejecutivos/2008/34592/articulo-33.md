@@ -1,0 +1,1 @@
+33.—Para los efectos de lo dispuesto en el numeral 32 de la presente Reglamentación, una persona tiene derecho a apoyarse en un criterio anticipado emitido de conformidad con el artículo 6-10 del Tratado, y demás disposiciones aplicables, según lo determine la legislación nacional de cada Parte.
