@@ -67,3 +67,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 52 | 2008-08-18 | Decreto Ejecutivo 34722 (2008-08-18) |
 | 53 | 2008-08-18 | Decreto Ejecutivo 34712 (2008-08-18) |
 | 54 | 2008-08-25 | Decreto Ejecutivo 34743 (2008-08-25) |
+| 55 | 2008-08-27 | Decreto Ejecutivo 34774 (2008-08-27) |
