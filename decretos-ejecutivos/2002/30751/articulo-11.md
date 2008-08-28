@@ -1,7 +1,11 @@
 CAPÍTULO III
 Procedimiento de RTV
 Artículo 11.—Forma de cumplir con la RTV. Los vehículos nuevos podrán cumplir con la respectiva RTV de la manera siguiente:
-A. Para la revisión en las estaciones de RTV.
-La empresa de RTV elegirá aleatoriamente una muestra de acuerdo a la lista de vehículos remitida por el Distribuidor Autorizado que tengan idéntico Código de familia de vehículo, cada vez que éstos sean importados. A ese efecto la Empresa de RTV elegirá el tamaño de la muestra igual a un vehículo por cada lote de 1 a 20 unidades importadas del mismo Código de familia de vehículo.
-B. Para la revisión de los aspectos descritos en los Apartados 18, 19, 20, 21, 22, 23, 24, 25, 26, 27; los subapartados 32.4, 32.5 y 32.6 del Manual de Procedimientos de RTV.
-Se procederá a la revisión de estos aspectos fuera de las estaciones de la empresa de RTV si y sólo sí la muestra de vehículos seleccionada e inspeccionada aprueba la revisión sin un solo defecto. Estos aspectos se verificarán en cada uno de los vehículos del lote importado en las instalaciones del Distribuidor Autorizado, de las Aduanas o bien de los Almacenes fiscales, según como de mutuo acuerdo lo convengan el Distribuidor Autorizado y la Empresa de RTV.
+1. La muestra:
+- El distribuidor autorizado presentará a la empresa encargada de la RTV un vehículo muestra por cada código de familia.
+- La muestra deberá presentarse para la revisión técnica en las instalaciones de RTV, donde se le realizará la inspección de todos los elementos indicados en el Manual de Procedimientos para la Revisión Técnica vigente.
+- La muestra será representativa de todos los vehículos que correspondan al mismo código de familia.
+2. Se verificará la existencia, en cada uno de los vehículos importados del primer nivel de comercialización, los elementos del vehículo contemplados en el Manual de Procedimientos para la Revisión Técnica , misma que se realizará en las instalaciones señaladas de conformidad con el artículo 3 del presente reglamento.
+3. Una vez que la muestra seleccionada aprueba la revisión técnica, se procederá a la entrega de los documentos de RTV correspondientes para el resto de vehículos después de aprobar la inspección de acuerdo al punto dos indicado.
+Se procederá a la revisión técnica fuera de las estaciones de la empresa de RTV si y sólo si la muestra de vehículos seleccionada e inspeccionada aprueba la revisión técnica.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34750 de 28 de agosto de 2008).

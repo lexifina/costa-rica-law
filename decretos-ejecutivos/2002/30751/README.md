@@ -14,3 +14,4 @@ Reglamento para el cumplimiento de la Revisión Técnica Vehicular de los Vehíc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-04 | la propia norma |
+| 2 | 2008-08-28 | Decreto Ejecutivo 34750 (2008-08-28) |

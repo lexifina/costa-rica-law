@@ -18,7 +18,9 @@ Artículo 1°—Definiciones. A los efectos de la aplicación del presente Regla
 1.1. Primer nivel de comercialización: Es la relación directa que se da entre el Fabricante de vehículos y su Distribuidor Autorizado en el país.
 1.2. Distribuidor Autorizado de Vehículos Nuevos: Es la Persona Física o Jurídica que comercializa vehículos nuevos importados, por sí o por terceros, en un primer nivel de comercialización y son los autorizados para emitir la garantía en representación del fabricante.
 1.3. Vehículos nuevos: Son aquellos vehículos con año de modelo igual o inmediatamente superior al año en que se realiza la prueba y que son importados al país directamente desde la empresa que los fabrica o desde alguna de sus plantas (Primer nivel de comercialización), que no han sido inscritos ni utilizados por un usuario final en ningún lugar anteriormente, y que cuentan con la garantía del fabricante y/o de su Distribuidor Autorizado sobre la totalidad de sus elementos.
-1.4. Código de familia de vehículo: Se refiere a la secuencia alfanumérica que asigna el fabricante para describir una serie de vehículos idénticos entre sí; es decir, que todas sus partes y elementos son iguales, no estableciéndose diferencia alguna entre ellos, salvo en color, tapicería y extras.
+1.4.Código de Familia de Vehículo: Se refiere a la frecuencia alfanumérica que asigna el fabricante para describir una serie de vehículos idénticos entre sí, es decir que todas sus partes y elementos son iguales.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34750 de 28 de agosto de 2008).
 1.5. RTV: Siglas que identifican a la "Revisión Técnica Vehicular".
-1.6. Empresa de RTV: Se trata del "Consorcio Riteve-SyC".
+1.6. Empresa de RTV: Se trata de la empresa(as) autorizada(as) para brindar el servicio.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34750 de 28 de agosto de 2008).
 1.7. Ficha Técnica reducida del vehículo: Documento emitido por el Fabricante o su Distribuidor Autorizado en el país acerca de las características de diseño y fabricación del vehículo, cuyo contenido lo establecerá la Empresa de RTV para el mejor cumplimiento de sus obligaciones contractuales. Su contenido será comunicado al MOPT.
