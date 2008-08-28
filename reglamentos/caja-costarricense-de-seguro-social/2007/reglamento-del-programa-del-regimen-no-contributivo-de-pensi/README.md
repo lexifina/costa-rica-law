@@ -15,3 +15,4 @@ Reglamento del Programa del Régimen no Contributivo de Pensiones
 | --- | --- | --- |
 | 1 | 2007-05-29 | la propia norma |
 | 2 | 2007-07-10 | Reglamento 8167 (2007-07-10) |
+| 3 | 2008-08-28 | Reglamento 8278 (2008-08-28) |

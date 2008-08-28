@@ -1,4 +1,6 @@
+(Derogado)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
+(Este Reglamento fue dejado sin efecto mediante sesión N° 8278 del 28 de agosto de 2008)
 JUNTA DIRECTIVA
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 10º de la sesión Nº 8151, celebrada el 17 de mayo del año 2007, aprobó el siguiente Reglamento del Programa del Régimen no Contributivo de Pensiones:
 REGLAMENTO DEL PROGRAMA DEL RÉGIMEN
