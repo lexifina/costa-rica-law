@@ -1,0 +1,1 @@
+Artículo 5º—Otros organismos. El Concejo Municipal de Distrito de Colorado de Abangares podrá aprovechar las facilidades que el Gobierno de la República, otros gobiernos, organismos internacionales o la empresa privada ofrezcan para la formación de su personal.

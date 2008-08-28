@@ -1,0 +1,1 @@
+Artículo 12.—En caso de ser cancelada la beca, el beneficiario deberá indemnizar a la Municipalidad todo lo que ésta ha pagado al momento de eliminar el beneficio. El cual se le analizara en mutuo acuerdo la condición de pago por mes.

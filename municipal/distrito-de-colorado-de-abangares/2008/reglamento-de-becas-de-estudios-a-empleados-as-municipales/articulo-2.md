@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las becas a que se refiere este reglamento serán otorgadas a los empleados del Concejo Municipal de Distrito de Colorado sin distinción de que se tenga nombramiento en propiedad y que hayan laborado para la institución 6 meses como mínimo y su número estará sujeto al presupuesto asignado para este fin.

@@ -1,0 +1,1 @@
+Artículo 20.—Comprobada la provisión de fondos, dichos Departamentos recomendarán a la Comisión de Becas la aprobación de la beca en la Sesión próxima sea ordinaria o extraordinaria siguiente al día en que se recibió la solicitud.
