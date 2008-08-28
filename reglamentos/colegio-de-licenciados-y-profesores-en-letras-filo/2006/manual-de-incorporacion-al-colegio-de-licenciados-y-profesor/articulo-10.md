@@ -1,3 +1,0 @@
-Artículo 10.—De las resoluciones de incorporación. La Junta Directiva resolverá la solicitud de incorporación de acuerdo con lo establecido en artículo 15 de este Manual.
-Si la resolución es afirmativa, la Oficina de Incorporación asignará una fecha y lugar para que la persona interesada preste juramento ante el presidente de la Junta Directiva o su representante.
-b) El lugar, fecha y hora del Acto de Incorporación serán asignados por la Oficina de Incorporación, de acuerdo con el cronograma a que se refiere el inciso i) del artículo 20 de este Manual. Esa fecha se asignará dentro de un plazo no menor de ocho días hábiles posteriores a la fecha en que la Junta Directiva acuerde en firme la colegiación.

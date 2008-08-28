@@ -1,1 +1,0 @@
-Artículo 27.—De la notificación del retiro. El Colegio le comunicará al interesado, en su dirección señalada para notificaciones, el acuerdo firme tomado por la Junta Directiva sobre su solicitud de retiro temporal o indefinido. Este acto se hará por medio de la Oficina de Incorporación.
