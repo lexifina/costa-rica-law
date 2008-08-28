@@ -14,3 +14,4 @@ Reglamento para la Contratación Especial de Auditorías Técnicas para los Proy
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-03 | la propia norma |
+| 2 | 2008-08-28 | Reglamento 606 (2008-08-28) |

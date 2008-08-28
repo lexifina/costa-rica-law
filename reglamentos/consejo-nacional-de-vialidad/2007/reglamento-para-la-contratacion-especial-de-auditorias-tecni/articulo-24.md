@@ -12,5 +12,7 @@ g) Cuando se determine que la organización ha incurrido en prácticas de compet
 h) Cuando en la ejecución del contrato, la organización haya violado alguna normativa interna o relacionada con el pago de impuestos.
 i) Cuando la organización haya alcanzado el monto límite por multas, procediendo la resolución del contrato.
 j) Cuando por la evaluación del desempeño sea no aceptable.
-k) Cuando se compruebe que se ha llevado a cabo alguna actividad que haya puesto en peligro la confianza en la independencia de juicio e integridad de la organización, en relación con las actividades de auditoria que realiza.
-l) Por el vencimiento o expiración del plazo de inscripción –seis mesesy no haya interés por parte del proveedor de renovar su oferta en el registro de elegibles.
+k) Cuando se compruebe que se ha llevado a cabo alguna actividad que haya puesto en peligro la confianza en la independencia de juicio e integridad de la organización, en relación con las actividades de auditoría que realiza.
+l) Por el vencimiento o expiración del plazo de inscripción -seis meses- y no haya interés por parte del proveedor de renovar su oferta en el registro de elegibles.
+m) Cuando al cabo de los 12 meses de vigencia no se haya suministrado evidencia de capacitación adicional de los auditores en gestión de calidad y/o auditorías técnicas por un total de 50 horas. Exceptuando de auditores técnicos con capacitación de 300 horas o más, sea porque así consta en el registro de elegibles en el momento de la inscripción, o porque con capacitación adicional durante la ejecución se completaron y se suministre la documentación que lo comprueba.
+(Así reformado mediante sesión N° 606 del 28 de agosto del 2008)

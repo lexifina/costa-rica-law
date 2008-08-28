@@ -1,1 +1,2 @@
-Artículo 44.—Del plazo de ejecución. El plazo de ejecución de las contrataciones que se generen amparadas en este Reglamento será de un año y medio prorrogable por un período anual adicional, a criterio de la Administración.
+Artículo 44.—Del plazo de ejecución. La Contraloría General de la República mediante oficio Nº 08299 (DCA-2439) del 13 de agosto del 2008, estableció la vigencia de este sistema especial de contratación en 24 meses, contados a partir de la notificación de ese oficio; de modo que el plazo de ejecución de las contrataciones que se generen amparadas en este Reglamento será de un año, pudiendo prorrogarse a criterio de la Administración .
+(Así reformado mediante sesión N° 606 del 28 de agosto de 2008)
