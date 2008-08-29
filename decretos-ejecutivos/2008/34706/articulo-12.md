@@ -1,0 +1,1 @@
+Artículo 12.—Recursos. Contra las resoluciones emitidas por la Comisión el afectado podrá interponer, en forma y tiempo, los recursos ordinarios y extraordinarios previstos en la Ley General de la Administración Pública (LGAP).
