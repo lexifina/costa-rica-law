@@ -1,0 +1,1 @@
+Artículo 11.—Conforme al artículo 22 inciso b) de la Ley General de Control Interno Ley Nº 8292, corresponderá a la unidad de Auditoría Interna, verificar el cumplimiento, la validez y la suficiencia del sistema de control interno, informar de ello y proponer las medidas correctivas que sean pertinentes al Jerarca.

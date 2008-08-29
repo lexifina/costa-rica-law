@@ -1,0 +1,1 @@
+Artículo 6º—La periodicidad y medios con la autoridad superior administrativa, informe al jerarca sobre las aprobaciones o improbaciones de modificaciones se realizara al final de cada mes, mediante un informe escrito en el que se comunicará al Jerarca todo lo pertinente a las modificaciones presupuestarias aprobadas o improbadas a la fecha.
