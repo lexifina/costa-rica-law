@@ -14,3 +14,4 @@ Reglamento del Régimen de Perfeccionamiento Activo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-24 | la propia norma |
+| 2 | 2008-08-29 | Decreto Ejecutivo 34738 (2008-08-29) |
