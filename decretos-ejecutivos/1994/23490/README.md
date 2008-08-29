@@ -20,3 +20,4 @@ Reglamento de la Organización Administrativa de las Direcciones Provinciales de
 | 5 | 2007-05-29 | Decreto Ejecutivo 33835 (2007-05-29) |
 | 6 | 2007-05-29 | Decreto Ejecutivo 33836 (2007-05-29) |
 | 7 | 2008-06-23 | Decreto Ejecutivo 34625 (2008-06-23) |
+| 8 | 2008-08-29 | Decreto Ejecutivo 34737 (2008-08-29) |
