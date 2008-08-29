@@ -1,1 +1,0 @@
-Artículo 54.—Control de Devolución. La Aduana de Control establecerá las medidas necesarias para garantizar que la devolución que corresponda al amparo de este régimen, se efectúe por una única vez, por cada declaración aduanera de importación definitiva, sin perjuicio de los reembolsos parciales.

@@ -1,2 +1,0 @@
-Artículo 53.—Escogencia del Procedimiento de Devolución. El beneficiario en su solicitud de autorización deberá manifestar expresamente, cual procedimiento de los previstos al efecto, escogerá para que la Aduana de Control le acredite la devolución de los tributos que correspondan.
-Cuando el beneficiario requiera modificar el procedimiento de devolución o el agente aduanero a cuya cuenta comente se le acreditan los reintegros, deberá solicitarlo a la Dirección, quien lo autorizará y comunicará a la Aduana de Control para los efectos pertinentes.

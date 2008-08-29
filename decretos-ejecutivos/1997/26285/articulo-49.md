@@ -1,2 +1,0 @@
-Artículo 49.—Procedimiento de Autorización. Presentada la solicitud, la Dirección verificará el cumplimiento de los requisitos exigidos en este Reglamento y emitirá el acto de autorización o de rechazo, según corresponda, dentro del plazo de un mes contado a partir de la recepción de la solicitud.
-En caso que la petición haya sido presentada en forma defectuosa, en los términos de los artículos 264 y 287 de la Ley General de la Administración Pública, se otorgará un plazo de diez días hábiles para su subsanación.

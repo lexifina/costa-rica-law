@@ -1,4 +1,0 @@
-Artículo 45.—Objeto del Régimen. De conformidad con el artículo 190 de la Ley, la Aduana de Control autorizará la devolución de los tributos efectivamente pagados por la importación definitiva de envases, embalajes e insumes incorporados a productos de exportación, siempre que estos no hayan sido objeto de transformación, elaboración, mezcla o cualquier otro proceso regulado por el artículo 179 de la Ley, que modifique su naturaleza, o cuando se utilizan para el transporte comercial de mercancías, en los términos del artículo 166 inciso d) de la Ley.
-No se consideran objeto de este régimen la maquinaria y equipo , aunque se utilice para el envasado y embalaje de los productos de exportación.
-Las sumas canceladas por concepto de multas e intereses originadas en la importación definitiva no se consideran objeto del régimen.
-El plazo máximo para solicitar la devolución será de doce meses, contados a partir de la- aceptación de la declaración de importación respectiva.

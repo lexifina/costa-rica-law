@@ -1,2 +1,0 @@
-Transitorio III.—Los beneficiarios contarán con un plazo de tres meses, para que su representante legal presente declaración jurada ante la aduana de control, el inventario de mercancías, debidamente certificado por un contador público autorizado, que hayan ingresado bajo el régimen de admisión temporal. Dicha declaración debe contener los respectivos números de prenda aduanera.
-(Así Reformado por el artículo 1° del Decreto Ejecutivo N° 27329 del 26 de Agosto de 1998)
