@@ -1,0 +1,1 @@
+Artículo 2º—Del Certamen. Créase el Certamen denominado “Salvemos Nuestro Patrimonio Histórico Arquitectónico”, que tiene como fin identificar, investigar, divulgar y restaurar nuestro patrimonio histórico-arquitectónico.

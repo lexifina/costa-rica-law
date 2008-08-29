@@ -1,0 +1,1 @@
+Artículo 5º—De los participantes. Los participantes, ya sea individualmente o en forma grupal, sólo podrán concursar con un proyecto, salvo que sean subcontratados por otro concursante, en cuyo caso no podrán participar en la dirección de la obra, si esa propuesta es declarada ganadora del Certamen.

@@ -1,0 +1,1 @@
+Artículo 24.—De la prohibición para participar en el certamen. No podrán participar en el Certamen los funcionarios del Centro ni del Ministerio, o sus cónyuges, compañeros o compañeras o algunos de sus parientes por consanguinidad o afinidad hasta el tercer grado inclusive; o que de alguna forma puedan tener injerencia en la decisión del jurado.

@@ -1,0 +1,1 @@
+Artículo 10.—Del traslado de los anteproyectos al Jurado. Una vez concluido el plazo establecido por el Centro para la recepción de anteproyectos, éste los trasladará dentro de tres días hábiles, al jurado para su análisis y selección.

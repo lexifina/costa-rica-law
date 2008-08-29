@@ -1,0 +1,1 @@
+Artículo 21.—De la contratación de la empresa que ejecutará los trabajos. El Ministerio-Centro, será el encargado de contratar a la persona física o jurídica que ha de llevar a cabo el desarrollo del proyecto ganador, de conformidad con las especificaciones técnicas, presupuesto presentado y siguiendo los lineamientos de la Ley de Contratación Administrativa y su Reglamento.

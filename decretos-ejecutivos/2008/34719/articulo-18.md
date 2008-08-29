@@ -1,0 +1,1 @@
+Artículo 18.—De la formalización del pago del premio. El premio deberá ser cobrado después de que se hayan cumplido con todos los requerimientos solicitados por el Centro en el artículo 14 del presente reglamento, quien ordenará su pago, de conformidad con el proceso de pago establecido para la Administración y lo dispuesto en el presente Reglamento.

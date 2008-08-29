@@ -1,0 +1,1 @@
+Artículo 15.—Del premio. El Ministerio brindará un único premio para la propuesta ganadora del Certamen y consistirá en una dotación económica en colones, equivalente a 27.5 salarios mínimos de un profesional del Servicio Civil 2, además del compromiso del Ministerio de ejecutar la propuesta ganadora.

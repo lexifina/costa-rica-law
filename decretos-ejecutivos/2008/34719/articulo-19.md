@@ -1,0 +1,1 @@
+Artículo 19.—Cuando un ganador decline el premio. En la eventualidad que el ganador indique por escrito que declina la recepción del premio, el Ministerio-Centro podrá llevar a cabo la ejecución del proyecto contratando al profesional que se encargue de la dirección e inspección, sin que aquel pueda realizar reclamo, o solicitar indemnización alguna.
