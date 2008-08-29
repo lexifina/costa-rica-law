@@ -1,0 +1,1 @@
+Artículo 25.—Funcionarios destacados en otras instituciones. El pago de tiempo extraordinario autorizado a los servidores que prestan servicio en otras instituciones, se realizará con cargo a la partida presupuestaria correspondiente en aquella institución.

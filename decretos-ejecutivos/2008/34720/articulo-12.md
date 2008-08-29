@@ -1,0 +1,1 @@
+Artículo 12.—Autorización. Recibida la recomendación a la que se refiere el artículo anterior, la Oficialía Mayor, decidirá lo que corresponda. De no estar de acuerdo con la recomendación de Recursos Humanos, podrá establecer los cambios que considere pertinentes.

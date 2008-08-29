@@ -1,0 +1,1 @@
+Artículo 28.—Disponibilidad. No se reconocerá pago en dinero por concepto de jornada extraordinaria, a los servidores que perciban un porcentaje de su salario por disponibilidad, por lo que Recursos Humanos denegará cualquier solicitud sobre el particular.

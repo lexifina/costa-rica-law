@@ -1,0 +1,1 @@
+Artículo 22.—Aprobación. Recibida la solicitud, Recursos Humanos la analizará y de cumplir con todos los supuestos, la elevará a la Oficialía Mayor, para su aprobación definitiva. En caso de no cumplirse con los supuestos para su reconocimiento, Recursos Humanos o la Oficialía Mayor denegarán el reconocimiento.
