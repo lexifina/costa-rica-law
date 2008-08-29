@@ -1,0 +1,1 @@
+Artículo 2º—Este decreto resulta de aplicación para todas aquellas personas jurídicas, sean de derecho público o privado, que sean susceptibles de que se les asigne un número de cédula jurídica, conforme los artículos siguientes.

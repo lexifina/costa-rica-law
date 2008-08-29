@@ -1,0 +1,1 @@
+Artículo 11.—Deróguense los Decretos Ejecutivos Nº 12158-J de 15 de diciembre de 1980, Nº 12247-J del 24 de enero de 1981, Nº 18504-J de 17 de octubre de 1988 y Nº 18662-J del 09 de diciembre de 1988.

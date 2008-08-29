@@ -1,0 +1,1 @@
+Artículo 9º—Conforme la Ley de Aranceles del Registro Público, a las indicadas solicitudes deberá agregarse el pago de dos mil colones en derechos del Registro Nacional, monto que queda sujeto a las modificaciones futuras de dicha ley.

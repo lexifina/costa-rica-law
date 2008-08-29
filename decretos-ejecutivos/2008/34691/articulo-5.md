@@ -1,0 +1,1 @@
+Artículo 5º—Lo estipulado en el artículo anterior no será aplicable a los gobiernos extranjeros y sus dependencias, agencias o entidades pertenecientes a ellos, a los organismos internacionales y sus instituciones representantes de esa naturaleza.
