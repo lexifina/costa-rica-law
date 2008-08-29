@@ -1,0 +1,2 @@
+Artículo 82 ter.—El superior jerárquico que habiendo sido puesto en conocimiento por quien se considere acosado u hostigado laboralmente, no realice esfuerzos para impedir la continuación de tales actos, incurrirá en incumplimiento de las obligaciones señaladas en los literales g), k) y n) del artículo 19 de este Reglamento..
+( Así adicionado por el artículo 1° del decreto ejecutivo N° 34866 del 29 de agosto del 2008)
