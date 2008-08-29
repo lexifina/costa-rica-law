@@ -1,0 +1,1 @@
+Artículo 25.—Asesoría. Es obligación de la Asesora Legal, brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera; obligación que es extensiva a las demás divisiones, gerencias de área, unidades y demás órganos de la municipalidad.
