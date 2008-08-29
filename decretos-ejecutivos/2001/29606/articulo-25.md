@@ -1,2 +1,0 @@
-Artículo 25.—Tratándose de solicitudes de empresas que pretendan instalarse fuera de parque, al recibir la recomendación final de Procomer, o antes si lo considerare pertinente, el Ministro de Comercio Exterior remitirá la consulta de rigor al Ministerio de Hacienda, en los términos del inciso ch) del artículo 18 de la ley 7210 y sus reformas.
-El dictamen del Ministerio de Hacienda se referirá a la viabilidad de ejercer los controles fiscales y aduaneros pertinentes, así como a cualquier otro aspecto que el Ministerio de Hacienda estime conveniente plantear.

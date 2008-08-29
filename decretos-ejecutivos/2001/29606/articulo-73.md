@@ -1,3 +1,0 @@
-SECCIÓN IV
-Internamientos temporales
-Artículo 73.—Los beneficiarios pueden internar temporalmente al territorio aduanero nacional maquinaria, vehículos y equipo provenientes de las zonas francas cuando esto se haga con el objeto de transformar, reparar, reconstruir, montar, ensamblar o para la incorporación a conjuntos, en caso de ferias, entrenamientos de personal, presentaciones de las compañías o demostraciones, siempre y cuando la actividad no represente la elaboración de parte del proceso productivo de la empresa instalada en la zona franca. Lo anterior previo cumplimiento de lo establecido en el párrafo tercero del artículo 24 de la Ley 7210 y sus reformas.

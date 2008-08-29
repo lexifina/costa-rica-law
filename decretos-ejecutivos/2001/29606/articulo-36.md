@@ -1,2 +1,0 @@
-Artículo 36.—Las dependencias correspondientes del Ministerio de Hacienda, establecerán los procedimientos de control y los procedimientos aduaneros que deberán ser acatados por las empresas beneficiarias del régimen y las autoridades aduaneras, para ello la Dirección General de Aduanas coordinará con PROCOMER los aspectos pertinentes.
-(Así reformado por artículo 1° del Decreto Ejecutivo N° 31715 de 2 de marzo de 2004).

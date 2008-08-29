@@ -1,4 +1,0 @@
-Artículo 51.—Para efectos de la confección de la declaración jurada del impuesto sobre las ventas (formulario D-104), el proveedor nacional reportará las ventas realizadas a empresas beneficiarias del régimen de zonas francas en la casilla número 20 “Ventas por exportaciones” de manera que las mismas no formarán parte de la base imponible.
-(Así reformado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 33291 del 20 de junio del 2006).
-El proveedor nacional deberá agregar a sus respectivos registros especiales de ventas, requeridos en la legislación del Impuesto General sobre las Ventas, la información sobre número de orden de compra o documento equivalente emitido por la empresa de zona franca y su fecha; cuando sus clientes sean empresas acogidas al régimen de zonas francas.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 29962 de 22 de setiembre del 2001)

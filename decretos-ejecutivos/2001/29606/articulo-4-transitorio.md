@@ -1,2 +1,0 @@
-Transitorio IV.—Hasta tanto la Promotora del Comercio Exterior realice los ajustes pertinentes con respecto a la transmisión del informe de compras locales y de servicios requeridos a las empresas de zona franca, éstas deberán utilizar el procedimiento vigente. En todo caso estos ajustes deberán realizarse dentro del plazo máximo de dos meses a partir de la entrada en vigencia de este decreto.
-(Así reformado por el artículo 4 del decreto ejecutivo N° 29962 de 22 de setiembre del 2001)

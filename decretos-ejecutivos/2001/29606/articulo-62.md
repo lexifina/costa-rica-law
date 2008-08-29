@@ -1,2 +1,0 @@
-Artículo 62.—La subcontratación no requiere de la constitución de garantías, salvo lo dispuesto en el internamiento de moldes, troqueles y matrices para la subcontratación con las PYME. Sin perjuicio del privilegio de prenda aduanera establecido en artículo 71 de la Ley General de Aduanas y sus reformas. Además, la subcontratación queda sujeta al control y fiscalización aduaneros establecidos en la Ley General de Aduanas y su Reglamento.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°33204 del 06 de junio del 2006).

@@ -1,1 +1,0 @@
-Artículo 90.— La Dirección General de Aduanas deberá informar al Ministerio de Comercio Exterior y a Procomer de las sanciones firmes que esta adopte contra empresas acogidas al régimen de zonas francas.

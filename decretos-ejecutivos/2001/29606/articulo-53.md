@@ -1,3 +1,0 @@
-Artículo 53.—Para respaldar la venta a un beneficiario del régimen el proveedor nacional de servicios, materias y mercancías necesitará la orden de compra o el documento equivalente, según se regula en el artículo 50 del presente reglamento. El proveedor deberá conservar en debido orden la copia de las facturas con el recibido conforme de las empresas de zonas francas.
-La factura de venta del proveedor nacional deberá indicar además de los datos usuales la referencia al número y fecha de la orden de compra del beneficiario o de su documento equivalente.
-(Así reformado por el artículo 3 del Decreto Ejecutivo N° 29962 de 22 de setiembre del 2001)

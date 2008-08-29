@@ -1,1 +1,0 @@
-Artículo 54.—El uso indebido de las materias, mercancías o servicios exentos, será causa suficiente para que el Ministerio de Hacienda proceda a la liquidación de tributos dejados de pagar y ejerza las acciones que la legislación vigente establezca.

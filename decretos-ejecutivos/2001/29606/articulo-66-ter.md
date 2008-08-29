@@ -1,2 +1,0 @@
-Artículo 66 ter.—Las empresas beneficiarias que hayan ingresado vehículos al amparo del régimen, los cuales cumplan con las condiciones técnicas y de seguridad indicadas en la Ley General de Aduanas y su reglamento, en materia de tránsito aduanero, podrán declarar y realizar con dichos vehículos el tránsito aduanero interno y traslados de materias, mercancías, maquinaria y equipo, relacionados con la actividad de la empresa beneficiaria.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 34166 del 04 de diciembre del 2007)
