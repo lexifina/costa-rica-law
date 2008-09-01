@@ -1,0 +1,1 @@
+Artículo 2º—La inspección de las obras que se realice en la jurisdicción de San Rafael, corresponde al Departamento de Desarrollo y Control Urbano, mediante los inspectores designados y calificados para tal efecto, también queda facultado cualquier otro funcionario que se designe, debidamente autorizado, por la Administración Municipal.

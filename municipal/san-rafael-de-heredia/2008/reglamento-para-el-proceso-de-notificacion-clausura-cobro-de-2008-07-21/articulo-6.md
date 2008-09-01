@@ -1,0 +1,1 @@
+Artículo 6º—El Acta de Notificación contendrá como mínimo toda información que se considere relevante para una posible toma de decisiones. En la medida de lo posible, la documentación se debe ampliar con las fotografías respectivas.

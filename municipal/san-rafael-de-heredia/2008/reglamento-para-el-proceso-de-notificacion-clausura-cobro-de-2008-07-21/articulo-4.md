@@ -1,0 +1,1 @@
+Artículo 4º—En el Acta de Notificación se deberá apercibir al interesado de que cuenta con plazo improrrogable de tres días hábiles para presentarse a la Municipalidad de San Rafael para solicitar los documentos que se requieren para poner su situación a derecho o para someterse al proceso que se le indique, de acuerdo al artículo 93 de la Ley de Construcciones Nº 833.

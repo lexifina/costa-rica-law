@@ -1,0 +1,1 @@
+Artículo 8º—Cuando por algún motivo no puedan ser colocados los sellos de clausura respectivos, debe quedar claramente expresado en el acta respectiva, los motivos aclaratorios y la firma del encargado de la obra o testigos, como prueba del acto ejecutado y conformidad con la situación presentada.

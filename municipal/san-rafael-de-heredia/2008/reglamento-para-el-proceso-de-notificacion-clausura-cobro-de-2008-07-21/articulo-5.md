@@ -1,0 +1,1 @@
+Artículo 5º—Una vez vencido el plazo otorgado para la presentación de los documentos solicitados, el funcionario encargado deberá proceder con la clausura de la obra mediante la confección de una segunda acta.

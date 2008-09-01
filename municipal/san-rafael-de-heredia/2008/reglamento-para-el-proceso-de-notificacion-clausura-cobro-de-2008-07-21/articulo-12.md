@@ -1,0 +1,1 @@
+Artículo 12.—Si el propietario cancela la multa y el importe del Impuesto de Construcción, luego de un proceso abreviado por una obra ejecutada, no genera ninguna responsabilidad de parte de la Municipalidad sobre la base estructural de la misma.
