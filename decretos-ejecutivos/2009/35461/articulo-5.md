@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de Educación Pública autorizará a funcionarios administrativos y docentes de los centros educativos para que participen en la organización, ejecución y supervisión de las labores de enumeración de los censos nacionales de población y vivienda del año 2011, en coordinación con el INEC.

@@ -1,0 +1,1 @@
+Artículo 3º—El Gobierno de la República financiará la preparación, ejecución y publicación de los censos nacionales de población y vivienda del año 2011 en conformidad con las disposiciones contenidas en el artículo 33 de la Ley del Sistema de Estadística Nacional.

@@ -1,0 +1,1 @@
+Artículo 6º—La enumeración y la publicación de los resultados de los censos nacionales de población y vivienda del año 2011 se basarán en la División Territorial Administrativa del país vigente un año antes de la fecha que se defina para el empadronamiento censal. Modificaciones posteriores no se tomarán en cuenta.
