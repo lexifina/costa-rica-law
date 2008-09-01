@@ -1,0 +1,1 @@
+Artículo 3º—La presente convocatoria será para el período comprendido entre las cero horas del primero de setiembre de dos mil ocho, hasta las veinticuatro horas del treinta y uno de diciembre del dos mil ocho.
