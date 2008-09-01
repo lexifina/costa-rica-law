@@ -1,0 +1,1 @@
+Artículo 14.—El permiso para realizar ventas ambulantes dentro de locales comerciales privados debidamente establecidos , quedará a criterio del dueño o responsable de la administración del negocio. Igualmente en entidades públicas, correrá a cargo del jerarca de la institución.

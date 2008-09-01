@@ -1,0 +1,1 @@
+Artículo 3º—La respectiva patente y licencia deberá ser solicitada por la persona interesada en forma escrita ante el Concejo Municipal, el documento deberá incluir todos los requisitos que indica el artículo 22, de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.—Para el mejor cumplimiento de este capítulo, la Municipalidad coordinará; tanto con el Instituto Costarricense de Electricidad, como con Acueductos y Alcantarillados lo correspondiente a la prestación de dichos servicios públicos.

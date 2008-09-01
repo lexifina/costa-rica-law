@@ -1,0 +1,1 @@
+Artículo17.—Los puestos estacionarios que se otorguen con carácter de especiales, serán coordinados con el Instituto Costarricense de Turismo, cuando por sus características, el Concejo lo considere necesario. Sus dimensiones serán determinadas técnicamente por el departamento de Ingeniería Municipal.

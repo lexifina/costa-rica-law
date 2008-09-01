@@ -1,0 +1,2 @@
+Artículo 30.—La Municipalidad se reserva el derecho de reubicar los puestos estacionarios por causas de reordenamiento vial, acontecimientos especiales o cuando las condiciones del tránsito o la densidad o aglomeración de peatones así lo amerite.
+Igualmente, se reserva a favor de la Municipalidad la facultad de la suspensión temporal de las patentes estacionarias por motivos de fuerza mayor, caso fortuito, obras de infraestructura, incumplimientos de directrices municipales o en defensa del bien público.

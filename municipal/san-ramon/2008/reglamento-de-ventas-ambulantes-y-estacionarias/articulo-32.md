@@ -1,0 +1,1 @@
+Artículo 32.—De conformidad con la ley y para los fines pertinentes, la Municipalidad estará enviando cada seis meses al Departamento de Personal del Ministerio de Trabajo y Seguridad Social, el listado actualizado con el nombre de los beneficiarios de patentes o licencias de vendedor estacionario o ambulante.

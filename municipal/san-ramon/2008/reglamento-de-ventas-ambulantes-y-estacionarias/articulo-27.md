@@ -1,0 +1,1 @@
+Artículo 27.—En caso de renuncia o caducidad de una patente o licencia por parte del beneficiario, el Concejo Municipal podrá -de considerarlo oportuno y necesario- adjudicarla mediante un sorteo público entre los solicitantes pendientes de resolución, por falta de espacios comerciales de este tipo, siempre y cuando cumplan con los requisitos establecidos.

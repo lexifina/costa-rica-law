@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con la Ley Nº 6587 del 22 de diciembre de 1981 y sus reformas, ninguna persona física podrá ejercer el comercio en forma ambulante ni estacionaria en las vías públicas, sin contar de previo con una patente o la respectiva licencia otorgada por acuerdo del Concejo Municipal.

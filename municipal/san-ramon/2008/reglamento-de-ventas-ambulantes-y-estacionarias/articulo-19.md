@@ -1,0 +1,1 @@
+Artículo 19.—En todos los puestos de este tipo donde se expendan productos o alimentos de consumo humano directo, se exigirá la presentación y exhibición del certificado de funcionamiento sanitario expedido por el Ministerio de Salud. Los vendedores por su parte, deberán cumplir estrictamente con todas las reglamentaciones sanitarias aplicables al caso.

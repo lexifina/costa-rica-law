@@ -1,0 +1,1 @@
+Artículo 21.—Los vendedores ambulantes autorizados para realizar la actividad comercial temporal por actividades especiales, sólo podrán ofrecer al público productos alimenticios debidamente empacados, envasados o embotellados, según las normas del Ministerio de Salud. Además deberán portar en forma visible el carné que los autoriza como tales.

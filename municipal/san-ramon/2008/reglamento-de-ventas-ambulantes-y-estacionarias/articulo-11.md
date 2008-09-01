@@ -1,0 +1,1 @@
+Artículo 11.—De conformidad con un estudio técnico que determine las condiciones y características de cada una de las calles y avenidas de la ciudad de San Ramón, la Municipalidad asignará los puestos estacionarios por cada kilómetro lineal. En ningún caso podrá asignarse más de un puesto estacionario por cada 100 metros lineales.
