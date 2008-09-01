@@ -1,0 +1,6 @@
+ARTÍCULO 2.- Refórmase el artículo 143 del Código de Familia. El texto dirá:
+“Artículo 143.- Autoridad parental y representación. Derechos y deberes
+La autoridad parental confiere los derechos e impone los deberes de orientar, educar, cuidar, vigilar y disciplinar a los hijos y las hijas; esto no autoriza, en ningún caso, el uso del castigo corporal ni ninguna otra forma de trato humillante contra las personas menores de edad.
+Asimismo, faculta para pedir al tribunal que autorice la adopción de medidas necesarias para coadyuvar a la orientación del menor, las cuales pueden incluir su internamiento en un establecimiento adecuado, por un tiempo prudencial. Igual disposición se aplicará a los menores de edad en estado de abandono o riesgo social, o bien, a los que no estén sujetos a la patria potestad; en este último caso, podrá hacer la solicitud el Patronato Nacional de la Infancia. El internamiento se prolongará hasta que el tribunal decida lo contrario, previa realización de los estudios periciales que se requieran para esos efectos; esos estudios deberán ser rendidos en un plazo contado a partir del internamiento.”
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, el primer día del mes de agosto del dos mil ocho.
