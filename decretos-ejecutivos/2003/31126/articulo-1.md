@@ -18,8 +18,7 @@ c. Carlos Cordero Morales, representante del Ministro de Agricultura y Ganaderí
 (*) (Prorrogado su nombramiento como miembro propietario representante de la Ministra de Salud, por el artículo 1° del decreto ejecutivo N° 34437 del 13 de marzo de 2008)
 e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004 y posteriormente se volvió a reformar el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
-f) Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32993 del 6 de febrero del 2006)
+f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura.
@@ -41,8 +40,7 @@ d) Jorge Mena Arce, Representante de la Ministra de Salud.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
-f) Enrique Fallas Segura, representante de la Asociación Mesa Nacional Campesina.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34194 del 07 de noviembre del 2007).
+f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
@@ -55,3 +53,8 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
 (Así reformados el punto 1, incisos c) y j) y punto 2, inciso j) por Artículo 1° del Decreto Ejecutivo N° 32803 del 4 de noviembre del 2005)
 (Así reformados el punto 1, inciso h) y punto 2, inciso h) por Artículo 1° del Decreto Ejecutivo N° 32819 del 22 de noviembre del 2005)
+(NOTA. El artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, establece lo siguiente: "....Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad , a los siguientes representantes de la Asociación Mesa Nacional Campesina:
+1. Miembro propietario:
+Yamileth Solís Lezcano.
+2. Miembro suplente:
+Rafael Salazar Murillo.")
