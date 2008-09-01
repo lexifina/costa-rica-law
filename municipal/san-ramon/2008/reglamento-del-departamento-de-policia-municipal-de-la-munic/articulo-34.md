@@ -1,0 +1,1 @@
+Artículo 34.—Los miembros de la Policía Municipal tendrán derecho a la jubilación de acuerdo a lo establecido con la legislación vigente y asimismo, gozarán de los derechos pasivos que les pudieran corresponder.
