@@ -1,0 +1,1 @@
+Artículo 21.—Recursos. Los participantes en el concurso podrán interponer recursos contra la integración de la terna o nómina realizada por la junta directiva, de conformidad con lo dispuesto en el capítulo relativo a los recursos previsto en este Reglamento.

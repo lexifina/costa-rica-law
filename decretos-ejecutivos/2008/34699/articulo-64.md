@@ -1,0 +1,1 @@
+Artículo 64.—Interposición y resolución de los recursos. Los recursos deberán ser interpuestos y resueltos de conformidad con los términos, plazos y requisitos pertinentes previstos en los capítulos primero y segundo del Título Octavo, Libro Segundo, de la Ley General de la Administración Pública.

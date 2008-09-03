@@ -1,0 +1,1 @@
+Artículo 58.—Plan de trabajo. El plan de trabajo anual lo elabora la junta directiva, presentándolo conjuntamente con el presupuesto a la Asamblea Ordinaria, con especificación del desarrollo de las actividades técnicas, profesionales, sociales, culturales y de capacitación.

@@ -1,0 +1,1 @@
+Artículo 36.—Obligaciones de otros profesionales. El nombramiento de un Regente no exime a los demás profesionales del Colegio que laboren para el establecimiento, del cumplimiento de las responsabilidades técnicas que se deriven de su particular ejercicio profesional.

@@ -1,0 +1,1 @@
+Artículo 33.—Conflicto de intereses en la función pública. Sin perjuicio de lo dispuesto en el artículo anterior, los profesionales que laboren para las instituciones públicas donde pueda haber conflicto de intereses con la ejecución de una Regencia no podrán ejercer dicha función.

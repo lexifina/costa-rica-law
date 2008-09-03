@@ -1,0 +1,1 @@
+Artículo 52.—Inasistencia injustificada. La inasistencia injustificada a las Asambleas será sancionada con un recargo en la cuota de colegiatura correspondiente a ese mes, a título de multa, cuyo monto fijará la Asamblea a propuesta de la junta directiva.

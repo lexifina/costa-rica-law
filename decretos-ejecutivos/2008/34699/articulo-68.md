@@ -1,0 +1,1 @@
+Artículo 68.—Agotamiento de la Vía Administrativa. En todos los casos cabrá recurso en única instancia de alzada, y la resolución que dicte el organismo superior en relación jerárquica, agotará la vía administrativa.

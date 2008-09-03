@@ -1,0 +1,2 @@
+Artículo 59.—De los atrasos en la aprobación del presupuesto. En caso de que la Asamblea no aprobara el proyecto de presupuesto en la convocatoria ordinaria, será de nuevo conocido en una próxima convocatoria.
+Si el nuevo período se inicia sin que haya podido ser aprobado el presupuesto, regirá temporalmente un presupuesto igual al del período inmediato anterior, hasta tanto no se apruebe el nuevo.

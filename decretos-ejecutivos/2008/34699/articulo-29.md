@@ -1,0 +1,1 @@
+Artículo 29.—Horas de Regencia. El número mínimo de horas contratadas para cada Regencia en el Establecimiento se fijará de acuerdo al nivel de complejidad de la actividad de la empresa que se refleje en el nivel de responsabilidad asumido por el Regente.

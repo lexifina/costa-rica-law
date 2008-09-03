@@ -1,0 +1,4 @@
+Artículo 10.—Comunicación. La separación de cualquier miembro decretada por la junta directiva, se hará efectiva a partir de que le sea comunicada por escrito y mantendrá su vigencia por el tiempo acordado por la junta directiva.
+En caso de separación por motivo de incumplimiento en el pago de las cuotas o contribuciones al Colegio, previamente se conferirá por escrito un plazo de un mes al miembro moroso para que ponga al día sus obligaciones de pago.
+Pasado este período, si no se ha honrado la deuda se procederá a decretar la suspensión.
+Una vez comunicada la suspensión al miembro respectivo, el Colegio hará la comunicación correspondiente al empleador o contratante y se publicará por una vez en el Diario Oficial, dentro de los quince días siguientes a la fecha en que se adopte el acuerdo de suspensión.

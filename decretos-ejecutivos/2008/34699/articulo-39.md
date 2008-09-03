@@ -1,0 +1,1 @@
+Artículo 39.—Autorización para trámites. Cuando un profesional en química vaya a realizar trámites para una empresa que tenga un Regente que sea miembro activo de este Colegio, deberá presentar una autorización por escrito emitida por el Regente para la realización de estos trámites.

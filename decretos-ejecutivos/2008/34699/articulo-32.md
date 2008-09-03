@@ -1,0 +1,1 @@
+Artículo 32.—Conflicto de intereses entre establecimientos. El profesional que ejerza más de una Regencia, será responsable de que no haya conflicto de intereses entre ellas, así como de no transgredir lo dispuesto en la Ley en contra de la Corrupción y el Enriquecimiento Ilícito en la Función Pública y en el Código de Ética Profesional del Colegio.

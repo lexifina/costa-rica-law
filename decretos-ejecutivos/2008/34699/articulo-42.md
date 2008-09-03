@@ -1,0 +1,5 @@
+Artículo 42.—Apertura y cierre del Cuaderno. En la primera página del Cuaderno de Bitácora debe consignarse su apertura, la que correrá a cargo del Colegio e incluirá el objeto del Cuaderno, el nombre, firma, sello y número de inscripción del colegiado que fungirá como Regente, así como la razón social y el número de inscripción de la empresa a la cual se brindará el servicio.
+También se consignará el sello del Colegio y firma del funcionario autorizado.
+Cuando termine la relación contractual, el Regente deberá realizar una anotación de cierre y tendrá treinta días hábiles para entregar al Colegio el original de la bitácora.
+En el caso de que se agote la bitácora y continúe la relación contractual, se deberá hacer la entrega al Colegio en los ocho días hábiles siguientes, en cuyo caso el Colegio procederá a entregar una nueva bitácora previo pago del costo respectivo.
+La no devolución de la bitácora conforme a lo estipulado en el párrafo anterior impedirá al profesional la obtención de nuevos Cuadernos de Bitácora.

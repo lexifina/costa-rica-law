@@ -1,0 +1,1 @@
+Artículo 7º—Juramentación. Toda persona que solicite su incorporación al Colegio en cualquiera de las categorías de sus miembros, y haya cumplido con los requisitos previos para su ingreso, deberá juramentarse ante la junta directiva como requisito final de incorporación.

@@ -1,0 +1,3 @@
+Artículo 5º—Revisión y aprobación de la solicitud de incorporación. La Dirección Ejecutiva recibirá las solicitudes de incorporación y las trasladará a la Fiscalía para que esta verifique el cumplimiento de los requisitos establecidos en el Título II de la Ley Nº 8412 Titulo II, “Normativa del Colegio de Químicos de Costa Rica”, y en este Reglamento.
+Una vez hecha la verificación correspondiente, la Fiscalía remitirá un informe de evaluación y recomendación a la Dirección Ejecutiva, para que sea elevado ante la junta directiva.
+Corresponderá a la junta directiva resolver acerca de las solicitudes y fijar la fecha del acto de incorporación.

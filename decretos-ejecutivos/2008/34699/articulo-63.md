@@ -1,0 +1,1 @@
+Artículo 63.—Notificación de las resoluciones. Cuando deba notificarse una resolución o acto, se indicará en la misma los recursos que tengan, el órgano competente para resolver y el plazo para concurrir.

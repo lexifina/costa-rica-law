@@ -1,0 +1,1 @@
+Artículo 26.—Remuneración por los servicios de Regencia Interna. El profesional percibirá por sus servicios como Regente Interno la remuneración que pacte en particular con el Establecimiento, la cual no podrá ser inferior al salario mínimo vigente en el país.

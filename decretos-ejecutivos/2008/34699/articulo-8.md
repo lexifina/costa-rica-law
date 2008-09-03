@@ -1,0 +1,2 @@
+Artículo 8º—Registro de los miembros. La Dirección Ejecutiva del Colegio llevará un registro de los distintos miembros del Colegio, con indicación de su respectiva categoría.
+Sus asientos o las certificaciones que con vista del mismo expida el Director Ejecutivo, se tendrán como prueba fidedigna de la condición de miembro en la categoría que se indique, salvo error o falsedad debidamente demostrados.
