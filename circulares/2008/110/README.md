@@ -13,3 +13,4 @@ Remisión de los testimonios de sentencia al Instituto Nacional de Criminología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-25 | la propia norma |
+| 2 | 2008-09-03 | Circular 127 (2008-09-03) |
