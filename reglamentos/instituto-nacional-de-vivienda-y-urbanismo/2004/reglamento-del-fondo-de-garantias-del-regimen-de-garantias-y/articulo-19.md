@@ -14,7 +14,7 @@ d) Recibir, tramitar, contestar y archivar la correspondencia.
 e) Elaborar y mantener actualizado el archivo del Fondo.
 Funciones del tesorero:
 a) Firmar con el presidente u otro representante designado al efecto, los cheques y otros valores.
-b) Coordinar el Comité de Crédito e Inversiones que designará la Junta Administradora, al amparo de lo establecido en los artículos 20, 21, 23 y 27 de este Reglamento.
+b) Coordinar el Comité de Crédito e Inversiones que designará la Junta Administradora , al amparo de lo establecido en los artículos 20, 21, 23 y 27 de este Reglamento.
 c) Recibir los depósitos o dineros tanto del Instituto como los de los a.liados.
 d) Ejercer control sobre el movimiento económico.
 e) Presentar un informe en la asamblea general ordinaria del movimiento económico del periodo.

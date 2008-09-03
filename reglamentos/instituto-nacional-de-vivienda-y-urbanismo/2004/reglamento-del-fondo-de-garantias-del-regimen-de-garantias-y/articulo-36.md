@@ -1,1 +1,0 @@
-Artículo 36.—La contabilidad y las inversiones de la mutualidad estarán bajo la responsabilidad de la Junta Administradora, debiendo llevarse por separado estos registros para conocer la situación del sistema en los períodos de evaluación indicados en este Reglamento.

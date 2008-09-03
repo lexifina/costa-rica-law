@@ -1,4 +1,6 @@
+Reglamento del Fondo de Garantías del Régimen de Garantías y Jubilaciones del Instituto Nacional de Vivienda y Urbanismo
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+(NOTA DE SINALEVI: El Instituto Nacional de Vivienda y Urbanismo, mediante sesión N° 5692 del 3 de setiembre de 2008, publicado en La Gaceta N° 182 del 22 de setiembre de 2008, derogó en su totalidad los capítulos IX y X del presente reglamento y realiza reformas varias, el texto que se presenta esta actualizado)
 RÉGIMEN DE GARANTÍAS
 Y JUBILACIONES FONDO DE GARANTÍAS
 Y FONDO DE JUBILACIÓN
