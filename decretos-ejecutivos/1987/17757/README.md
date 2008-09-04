@@ -18,3 +18,4 @@ Reglamento a la Ley sobre la Venta de Licores
 | 3 | 1997-10-08 | SINALEVI (sin norma nombrada) |
 | 4 | 2003-02-26 | Ley 8 |
 | 5 | 2007-11-16 | Decreto Ejecutivo 34400 (2007-11-16) |
+| 6 | 2008-09-04 | Decreto Ejecutivo 34772 (2008-09-04) |
