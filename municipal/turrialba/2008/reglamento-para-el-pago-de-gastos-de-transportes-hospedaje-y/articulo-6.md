@@ -1,0 +1,1 @@
+Artículo 6º—Se pagarán únicamente gastos de hospedaje a los Regidores(as) Síndicos(as), que residan verdaderamente muy lejos de la sede municipal y que obligadamente deban quedarse a dormir en el centro de Turrialba, por haberse extendido la sesión municipal y siempre que no sea posible transportarse en taxi en cuyo caso se reconocerá este gasto.

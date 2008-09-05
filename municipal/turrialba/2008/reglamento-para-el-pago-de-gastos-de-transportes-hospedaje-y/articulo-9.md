@@ -1,0 +1,1 @@
+Artículo 9º—Si por decisión del Concejo municipal o de la Alcaldía Municipal se brindará el transporte requerido para que los Regidores (as) y Síndicos (as), puedan asistir sin problemas a las sesiones del Concejo Municipal, éstos en ningún caso podrán solicitar el subsidio correspondiente.

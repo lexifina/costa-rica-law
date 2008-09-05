@@ -1,0 +1,1 @@
+Artículo 3º—Los Regidores(as) y Síndicos(as), que podrán hacer uso de estos beneficios, son aquellos que habiten cuya residencia este a una distancia igual o mayor a diez kilómetros (en viceversa) del Palacio Municipal o del lugar donde se realicen las sesiones municipales.

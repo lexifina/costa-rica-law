@@ -1,0 +1,1 @@
+Artículo 5º—Los pagos a efectuarse se regirán de acuerdo a lo que establece el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido y aprobado por la Contraloría General de la República y/o la tarifa de autobuses que tenga aprobada la Autoridad Reguladora de los Servicios Públicos, para las diferentes rutas, especialmente en el cantón de Turrialba.

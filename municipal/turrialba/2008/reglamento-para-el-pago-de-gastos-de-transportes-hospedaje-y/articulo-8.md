@@ -1,0 +1,1 @@
+Artículo 8º—Si al término de una sesión del Concejo Municipal, se dispone conceder algún refrigerio, los Regidores(as) y Síndicos(as), no podrán solicitar ninguno de los subsidios y que señalan en los incisos a, b y c del artículo 7º de este Reglamento, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 11.—Cualquier Regidor(a) o Síndico(a), puede si es su voluntad renunciar a los beneficios que le concede el presente Reglamento, para la cual deberán emitir una nota firmada a la Presidencia Municipal.
