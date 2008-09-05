@@ -1,0 +1,1 @@
+Artículo 44.-Los funcionarios de la Auditoría Interna, deberán mantener y perfeccionar sus cualidades y competencias profesionales mediante la participación en programas de educación y capacitación profesional continua, que deberá acreditar ante el colegio profesional cuando se requiera.

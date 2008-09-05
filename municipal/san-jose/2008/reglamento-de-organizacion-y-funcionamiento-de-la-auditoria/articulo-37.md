@@ -1,0 +1,1 @@
+Artículo 37.-Los funcionarios de la Auditoría Interna, deben tener conocimientos para identificar los indicadores de fraude y corrupción, para actuar según corresponda, pero no es de esperar que tengan conocimientos similares a los de aquellas personas cuya responsabilidad principal, es la detección e investigación del fraude y la corrupción.

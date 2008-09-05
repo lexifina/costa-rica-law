@@ -1,0 +1,1 @@
+Artículo 21.-La jornada laboral del Auditor Interno y del Subauditor será de tiempo completo, conforme a lo regulado en el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San José, publicado en el Diario Oficial La Gaceta N° 232, de 2 de diciembre de 1997.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización de la Auditoría Interna
+Artículo 5°-La Auditoría Interna, se regula en lo fundamental, por lo dispuesto en la Constitución Política, el Código Municipal, la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, la Ley General de la Administración Pública, el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, así como las normas, circulares, políticas y procedimientos aplicables.

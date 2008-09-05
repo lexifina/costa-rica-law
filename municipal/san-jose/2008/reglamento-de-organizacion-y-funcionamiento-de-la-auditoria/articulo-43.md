@@ -1,0 +1,1 @@
+Artículo 43.-Los funcionarios de la Auditoría Interna, deberán estar alerta a los riesgos que pudieran afectar los objetivos, las operaciones o los recursos. Sin embargo, los procedimientos de Auditoría por si solos, incluso cuando se llevan a cabo con el debido cuidado profesional, no garantizan que todos los riesgos posibles sean identificados.

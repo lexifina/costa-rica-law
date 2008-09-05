@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la comunicación de resultados
+Artículo 55.-Los informes sobre los servicios de auditoría, versarán sobre diversos asuntos de su competencia y aquellos de los que puedan derivarse posibles responsabilidades. Los primeros denominados de control interno, que contienen hallazgos con sus correspondientes conclusiones y recomendaciones. Los segundos llamados relaciones de hechos, con la recomendación sobre la apertura de un procedimiento administrativo o sobre la denuncia al Ministerio Público, así como, las que se remiten directamente al Ministerio Público y a la Contraloria, según corresponda.

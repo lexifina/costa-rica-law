@@ -1,0 +1,1 @@
+Artículo 12.-EI Auditor Interno establecerá los mecanismos de coordinación necesarios con el Jefe de Control de Presupuesto de la Municipalidad, para que se mantenga un registro separado del monto asignado y aprobado, detallado por objeto del gasto, con el fin de controlar la ejecución y las modificaciones de los recursos presupuestados a la Auditoría Interna.

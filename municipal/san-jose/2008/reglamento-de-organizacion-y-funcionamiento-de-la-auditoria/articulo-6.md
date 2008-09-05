@@ -1,0 +1,1 @@
+Artículo 6°-La Auditoría Interna es un componente orgánico de la Municipalidad, con dependencia orgánica del Concejo e independencia funcional y de criterio, su fin es validar y mejorar las operaciones municipales, brindar los servicios de asesoría y advertencia a la Administración, contribuyendo a que se alcancen los objetivos de la Municipalidad.

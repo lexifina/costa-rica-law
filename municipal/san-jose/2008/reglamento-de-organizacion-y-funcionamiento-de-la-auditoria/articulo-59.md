@@ -1,0 +1,1 @@
+Artículo 59.-La comunicación de resultados parciales, se podrá hacer por escrito durante el desarrollo de la Auditoría o estudio especial de auditoría. mediante memorando u oficio o informe parcial y al finalizar la labor de campo por medio del informe final cuando el caso lo amerite.

@@ -1,0 +1,1 @@
+Artículo 3°-El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de la Administración, en lo que legal y razonablemente les sea aplicable.
