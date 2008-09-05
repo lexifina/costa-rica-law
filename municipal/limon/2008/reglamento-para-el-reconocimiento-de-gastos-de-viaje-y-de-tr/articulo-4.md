@@ -1,0 +1,1 @@
+Artículo 4º—El Concejo Municipal deberá regular la materia referente a las Comisiones Permanente y Especiales de conformidad con el artículo N° 50 del Código Municipal, así como realizar el nombramiento de su Junta Directiva, sin embargo la falta de normativa no es motivo para el no reconocimiento de las gastos aquí reconocidos.
