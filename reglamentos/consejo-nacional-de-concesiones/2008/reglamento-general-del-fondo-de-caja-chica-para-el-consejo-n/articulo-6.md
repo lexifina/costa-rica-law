@@ -1,0 +1,1 @@
+Artículo 6º—El Secretario Técnico del CNC comunicará a la Tesorería Nacional mediante nota, el nombre y número de cédula de la persona designada como responsable directa por la custodia y operación del Fondo de Caja Chica.

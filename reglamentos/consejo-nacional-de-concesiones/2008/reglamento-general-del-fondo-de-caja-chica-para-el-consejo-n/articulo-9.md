@@ -1,0 +1,1 @@
+Artículo 9º—El custodio del Fondo de Caja Chica deberá mantener, un registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y desembolsos.

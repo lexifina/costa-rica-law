@@ -1,0 +1,1 @@
+Artículo 25.—Como medio para verificar que el bien o servicio adquirido se recibió a satisfacción, el Director solicitante del bien y servicio anotará su nombre, firma, número de cédula y sello de oficina en la parte posterior de la factura comercial.
