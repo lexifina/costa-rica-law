@@ -22,3 +22,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 7 | 2007-09-24 | Reglamento 674 (2007-09-24) |
 | 8 | 2008-05-30 | Reglamento 720 (2008-05-30) |
 | 9 | 2008-05-30 | Reglamento 720 (2008-05-30) |
+| 10 | 2008-09-05 | Reglamento 740 (2008-09-05) |

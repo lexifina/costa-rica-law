@@ -1,16 +1,16 @@
-Transitorio VI.—A partir del 1º de julio del 2008, el requerimiento patrimonial por riesgo operacional a que se refiere el artículo 25 de este Reglamento será introducido gradualmente, a razón de 1.25 puntos porcentuales por mes, acumulativo durante 12 meses, según se muestra en la siguiente tabla:
-Mes de corte | Requerimiento Riesgo Operacional
-30-Jun-08 | -
-01-Jul-08 | 1,25%
-01-Ago-08 | 2,50%
-01-Sep-08 | 3,75%
-01-Oct-08 | 5,00%
-01-Nov-08 | 6,25%
-01-Dic-08 | 7,50%
-01-Ene-09 | 8,75%
-01-Feb-09 | 10,00%
-01-Mar-09 | 11,25%
-01-Abr-09 | 12,50%
-01-May-09 | 13,75%
-01-Jun-09 | 15,00%
+Transitorio VI. Se pospone del primero de julio 2008 al primero de enero de 2009 la entrada en vigencia del requerimiento patrimonial por riesgo operacional a que se refiere el artículo 24 de este Reglamento, según la siguiente gradualidad:
+Mes de corte | Requerimiento por riesgo operacional
+31-Ene-09 | 1.25%
+28-Feb-09 | 2.50%
+31-Mar-09 | 3,75%
+30-Abr-09 | 5,00%
+31-May-09 | 6,25%
+30-Jun-09 | 7,50%
+31-Jul-09 | 8,75%
+31-Ago-09 | 10,00%
+30-Set-09 | 11,25%
+31-Oct-09 | 12,50%
+30-Nov-09 | 13,75%
+31-Dic-09 | 15,00%
 (Así adicionado en sesión N° 720 del 30 de mayo de 2008)
+(Así reformado en sesión N° 740 del 5 de setiembre de 2008)
