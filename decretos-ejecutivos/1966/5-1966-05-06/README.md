@@ -15,3 +15,4 @@ Reglamento del Estatuto Nacional de Servicios Médicos
 | 1 | 1966-05-11 | la propia norma |
 | 2 | 1966-05-11 | SINALEVI (sin norma nombrada) |
 | 3 | 2005-07-15 | Decreto Ejecutivo 32670 (2005-07-15) |
+| 4 | 2008-09-08 | Decreto Ejecutivo 34744 (2008-09-08) |
