@@ -23,3 +23,4 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por el artículo 1° del decreto ejecutivo N° 34565 del 21 de mayo de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34630 del 25 de junio de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34684 del 02 de junio de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34713 del 25 de julio de 2008)
