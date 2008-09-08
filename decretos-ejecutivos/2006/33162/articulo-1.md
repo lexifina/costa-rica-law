@@ -10,7 +10,7 @@ DECRETAN:
 Artículo 1º—Modifíquese el artículo 1, punto 1, incisos g) y k) y punto 2, incisos b) y g) del Decreto Nº 31126-MINAE, publicado en el Alcance Nº 23 a La Gaceta Nº 83, del dos de mayo del 2003, para que en su defecto se lea:
 1) Miembros propietarios:
 g. Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
-k. Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+k. (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre de 2008).
 2) Miembros suplentes:
 b. Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
 g. Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
