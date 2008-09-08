@@ -1,0 +1,1 @@
+Artículo 5º—Los Jueces, el Ministerio Público y las dependencias del Organismo de Investigación Judicial remitirán a ese Programa la información antes indicada, que recaben en el ejercicio de sus funciones, al igual que la tendiente a su actualización.

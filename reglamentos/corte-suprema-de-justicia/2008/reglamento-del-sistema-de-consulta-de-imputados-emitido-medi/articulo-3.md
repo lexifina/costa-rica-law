@@ -1,0 +1,1 @@
+Artículo 3º—En dicho programa se almacenará la información sobre las personas encausadas que sirva para ubicarlos e identificarlos así como la derivada de los procesos penales que tienen pendientes en su contra, como pueden ser el número de sumaria, nombre del ofendido, tipo de delito, fecha de los hechos, entre otros.

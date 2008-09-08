@@ -1,0 +1,1 @@
+Artículo 8º—A esos efectos, el Programa elaborará un manual en el cual las categorías de información aparecerán enunciadas por código, el cual deberán usar los funcionarios al plantear su solicitud. Al evacuarla, se brindará la información solamente en los aspectos requeridos.

@@ -1,0 +1,1 @@
+Artículo 13.—Salvo por las necesidades de actualización, mantenimiento y mejoramiento del sistema, también queda prohibido a quienes trabajen en el mencionado Programa acceder a la información sin que medie solicitud de un funcionario autorizado, o revelar el resultado de las búsquedas de información a otros sujetos distintos del petente.

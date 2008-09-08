@@ -1,0 +1,1 @@
+Artículo 2º—Esos datos o información deberán estar centralizados en el Programa de Consulta de Imputados, el cual será para uso exclusivo del Poder Judicial y será una dependencia de su Dirección Administrativa. Este programa funcionará de manera continua las veinticuatro horas del día.

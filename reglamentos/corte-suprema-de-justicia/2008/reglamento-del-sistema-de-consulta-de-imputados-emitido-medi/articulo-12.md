@@ -1,0 +1,1 @@
+Artículo 12.—Queda prohibido a los funcionarios autorizados pedir información contenida en el Programa de imputados que no estén bajo su investigación o, emplear la solicitada para fines o actos diferentes a los de las investigaciones bajo su conocimiento, o permitir que otras personas tengan acceso a la misma.

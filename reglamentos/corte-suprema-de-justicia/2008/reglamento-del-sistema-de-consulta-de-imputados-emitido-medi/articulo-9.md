@@ -1,0 +1,1 @@
+Artículo 9º—A esos efectos, esos funcionarios deberán dirigir una nota por vía postal, facsímil o electrónica al administrador del Programa, en la cual de manera motivada acrediten el interés para la causa bajo su conocimiento y que deberá estar debidamente suscrita por el petente.
