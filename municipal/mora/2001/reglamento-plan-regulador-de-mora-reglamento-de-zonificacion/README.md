@@ -14,3 +14,4 @@ Reglamento Plan regulador de Mora: Reglamento de Zonificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-10 | la propia norma |
+| 2 | 2008-09-08 | Reglamento municipal 19 (2008-09-08) |
