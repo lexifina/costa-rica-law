@@ -27,8 +27,8 @@ i. Nancy Zamora Cervantes, representante de la Unión Costarricense de Cámaras 
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
 j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
-k) Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
+k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre del dos mil ocho).
+(NOTA DE SINALEVI: mediante el artículo 1° del Decreto Ejecutivo N° 34769 de 8 de setiembre de dos mil ocho se nombra como miembro propietario de esta Comisión, representante de la Federación Costarricense para la Conservación del Ambiente al señor Eduardo Aguilar Espinoza).
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
