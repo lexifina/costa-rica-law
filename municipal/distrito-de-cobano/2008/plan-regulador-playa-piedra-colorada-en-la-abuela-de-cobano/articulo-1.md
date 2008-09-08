@@ -1,0 +1,2 @@
+CONCEJO MUNICIPAL DE DISTRITO DE CÓBANO
+El Concejo Municipal del Distrito de Cóbano, comunica que en sesión ordinaria Nº 15-08, artículo II, inciso d), del día cinco de mayo del dos mil ocho, acordó: “Adoptar y aprobar la puesta en ejecución del Plan Regulador Playa Piedra Colorada en La Abuela de Cóbano de Puntarenas, comprendido entre los mojones 501 al 519 y entre las coordenadas Lamberd aproximadas de la hoja cartográfica Río Arío 3145, 186000 N, 186250N, 425200E y 425925E, una vez cumplidos todos los requisitos establecidos en la Ley Nº 6043 y su reglamento”.
