@@ -1,0 +1,1 @@
+Artículo 7º—Competencia. Corresponde a la Dirección Administrativa Financiera solicitar en forma escrita y fundamentada, a la Junta Directiva la creación y cierre de otros fondos de cajas chicas o bien de cajas auxiliares.

@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidades. Será responsabilidad de la Jefatura que firma el adelanto de caja chica, constatar el ingreso o la recepción de los bienes y que los servicios prestados hayan sido recibidos a satisfacción.
