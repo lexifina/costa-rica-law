@@ -1,3 +1,2 @@
-CAPITULO XIX
-Disposiciones finales
-Articulo 48.— Los profesionales no podrán acogerse simultáneamente a más de un beneficio entre dedicación exclusiva, prohibición profesional y disponibilidad. 1.a Municipalidad de Vázquez de Coronado deberá reservar en el presupuesto ordinario anual o por medio de la modificación presupuestaria, las partidas necesarias a fin de dar contenido económico a los anteriores beneficios.
+Artículo 48.—Cuando varíen las circunstancias que originaron la concesión de la disponibilidad y ésta se suspenda o modifique, el funcionario no podrá alegar derechos adquiridos, en virtud de que el pago se acuerda con base en motivos y circunstancias particulares y excepcionales de tiempo y lugar que pueden variar.
+(Así adicionado en sesión N°124 de 8 de setiembre de 2008).

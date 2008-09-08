@@ -1,1 +1,1 @@
-Articulo 27. —Los profesionales que estén acogidos a la prohibición y hayan disfrutado de un permiso sin goce de salario, al regresar pueden seguir devengando el pago de dicho concepto.
+Articulo 27. —(Eliminado en sesión N° 124 de 8 de setiembre de 2008).

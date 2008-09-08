@@ -14,3 +14,4 @@ Reglamento Dedicación Exclusiva Prohibición Profesional y Disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-07 | la propia norma |
+| 2 | 2008-09-08 | Reglamento municipal 124 (2008-09-08) |

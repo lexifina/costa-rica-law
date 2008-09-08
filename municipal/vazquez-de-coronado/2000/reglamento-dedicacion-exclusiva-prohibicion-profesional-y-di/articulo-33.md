@@ -1,1 +1,2 @@
-Articulo 33. —Dicha compensación económica equivale a un veinticinco por ciento (25%) adicional sobre el salario base de cada trabajador que califique y que desee acogerse a la disponibilidad.
+Articulo 33. —Dicha compensación económica equivale a un veinticinco por ciento (25%) adicional sobre el salario base de cada trabajador que de conformidad con el criterio del Alcalde sea susceptible de la disponibilidad en razón de la naturaleza de su cargo. La disponibilidad puede ser por tiempo indefinido o temporalmente para asistir en trabajos especiales a juicio de las partes.
+(Así ampliado en sesión N° 124 de 8 de setiembre de 2008).

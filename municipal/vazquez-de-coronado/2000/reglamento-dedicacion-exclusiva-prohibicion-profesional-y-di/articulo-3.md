@@ -3,7 +3,8 @@ De los requisitos exigidos para acogerse a la Dedicación Exclusiva
 Articulo 3°—Para poder optar por la Dedicación exclusiva, aquellos profesionales que tengan el grado de Bachiller Universitario, Licenciatura, Maestría, o Doctorado. En aquellos casos en que el profesional ostente un titulo académico de una Universidad Extranjera, debe aportar una certificación donde conste que el título fue reconocido y equiparado con el de una universidad nacional. Además, para los casos que lo requieran el profesional debe estar inscrito en el Colegio de Profesionales de su especialidad.
 La presentación del titulo debe de hacerse en original y fotocopia.
 Para solicitar acogerse a la dedicación exclusiva debe cumplirse con los siguientes requisitos:
-a) Laborar para la Municipalidad de Vázquez de Coronado en jornada completa en un puesto en propiedad por un espacio no menor a tres meses y que tal nombramiento no haya sido interrumpido.
+a) Laborar para la Municipalidad de Vázquez de Coronado en jornada completa.
+(Así reformado el inciso anterior, en sesión N° 124 de 8 de setiembre de 2008).
 b) Que para la naturaleza del puesto que desempeñen los servidores, sea requisito tener alguno de los grados académicos que se han mencionado.
 c) Tener el titulo requerido y estar incorporado al Colegio Profesional cuando exista y sea requisito para el ejercicio de su cargo.
 d) Que no estén recibiendo compensación por concepto de prohibición del ejercicio profesional por ley expresa o que tendrán otros beneficios salariales otorgados por leyes especiales o algún y incentivo de similar naturaleza a juicio de la Municipalidad de Vázquez de Coronado.

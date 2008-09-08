@@ -1,3 +1,3 @@
 CAPÍTULO XI
 De la licencia de la prohibición profesional
-Artículo 25.—Al encontrarse en vacaciones, incapacidad o permiso con goce de salario, el servidor acogido a la prohibición profesional, mantiene las restricciones y obligaciones que establece el presente Reglamento.
+Artículo 25.—(Eliminado en sesión N° 124 de 8 de setiembre de 2008).
