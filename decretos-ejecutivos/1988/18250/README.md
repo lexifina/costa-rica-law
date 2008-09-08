@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y Servicio del Ministerio de Obras Públic
 | 3 | 1997-04-21 | Decreto Ejecutivo 26145 (1997-04-21) |
 | 4 | 1997-08-29 | Decreto Ejecutivo 26500 (1997-08-29) |
 | 5 | 2001-09-17 | Decreto Ejecutivo 29832 (2001-09-17) |
+| 6 | 2008-09-08 | Decreto Ejecutivo 34748 (2008-09-08) |
