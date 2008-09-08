@@ -1,1 +1,0 @@
-Artículo 6°—La omisión de cualquiera de los requisitos anteriores impedirá a la Municipalidad conocer de la solicitud. Su tramitación se mantendrá en suspenso hasta que el interesado complete la información.

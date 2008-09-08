@@ -1,1 +1,0 @@
-Artículo 2°—Este reglamento rige en todo el Cantón de Mora por lo tanto no podrá ser construido ampliado, remodelado, reparado o demolido ningún edificio o construcción si no se han llenado los tramites y cumplido las disposiciones contenidas en el mismo.

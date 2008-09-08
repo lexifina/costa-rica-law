@@ -1,1 +1,0 @@
-Artículo 15.—En ningún caso podrá ser traspasada la línea de construcción indicada por la Oficina del Inspector de Construcciones y Rentas, el cual velara porque la anterior disposición se cumpla. En caso de carretera nacional la línea de construcción lo dará el Ministerio de Obras Públicas y Transportes.
