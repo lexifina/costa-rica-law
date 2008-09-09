@@ -14,3 +14,4 @@ Reglamento Especial para Otorgamiento de Condición de Miembro Ausente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-09-27 | la propia norma |
+| 2 | 2008-09-09 | Reglamento 47 (2008-09-09) |
