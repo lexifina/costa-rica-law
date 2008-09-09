@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SARAPIQUÍ
+Acuerdo tomado por el Concejo Municipal del cantón de Sarapiquí, en su sesión ordinaria Nº 32-2008, artículo 4, celebrada el lunes 11 de agosto del 2008, que a la letra dispone: El Concejo Municipal de Sarapiquí acuerda en firme y por unanimidad, adherirse a la publicación del documento Manual de Valores Base Unitarios por Tipología Constructiva, publicado en las páginas de la 29 a la 60 en el Diario Oficial La Gaceta Nº 78 del miércoles 23 de abril del 2008, por el Órgano de Normalización Técnica del Ministerio de Hacienda.
