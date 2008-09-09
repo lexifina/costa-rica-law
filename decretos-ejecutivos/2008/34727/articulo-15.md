@@ -1,0 +1,1 @@
+Artículo 15.—Ubicación. Su ubicación dentro de la estructura institucional corresponde a la de un órgano de más alto nivel en la DGAC, con dependencia orgánica del Consejo Técnico de Aviación Civil, al cual responderá directamente por su gestión.
