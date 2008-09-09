@@ -16,3 +16,4 @@ Reglamento Especial de Incorporación al Colegio Federado de Ingenieros y Arquit
 | 1 | 1982-12-21 | la propia norma |
 | 2 | 1999-03-12 | SINALEVI (sin norma nombrada) |
 | 3 | 2005-01-13 | Reglamento 9 (2005-01-13) |
+| 4 | 2008-09-09 | Reglamento 47 (2008-09-09) |
