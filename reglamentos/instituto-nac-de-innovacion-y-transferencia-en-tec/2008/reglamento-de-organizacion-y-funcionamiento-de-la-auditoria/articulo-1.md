@@ -1,0 +1,38 @@
+INSTITUTO NACIONAL DE INNOVACIÓN
+Y TRANSFERENCIA EN TECNOLOGÍA AGROPECUARIA
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL INSTITUTO NACIONAL
+DE INNOVACIÓN Y TRANSFERENCIA EN TECNOLOGÍA
+AGROPECUARIA, INTA
+La Junta Directiva del INTA, con fundamento en el Acuerdo N° 5, Artículo N° 5, de la sesión N° 160, celebrada el día 08 de julio del 2008, aprobó el Reglamento de Organización y Funciones de la Auditoría Interna del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+Considerando:
+I.—Que el marco legal que rige la actividad de la Auditoría Interna ha tenido cambios significativos fundamentalmente con la promulgación de la Ley General de Control Interno (Ley Nº 8292 del 31 de julio de 2002), el Manual de Normas Generales de Control Interno emitido por la Contraloría General, publicado en La Gaceta Nº 107 del S de junio de 2002, los lineamientos para la descripción de las funciones y requisitos de los Cargos de Auditor y Subauditor, publicados en La Gaceta Nº 205 del 24 de octubre de 2003, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Ley Nº 8422 de 6 de octubre de 2004), el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, publicado en La Gaceta Nº 246 del 16 de diciembre de 2004, el Manual de Normas Generales de Auditoría para el Sector Público, publicado en La Gaceta Nº 236 del 08 de diciembre de 2006 y las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público, publicadas en La Gaceta Nº 236 del 08 de diciembre del 2006.
+II.—Que acorde con este nuevo marco legal, la Contraloría General de la República emitió el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, publicado en el Diario Oficial La Gaceta N° 246 del 16 de diciembre del 2004.
+III.—Que el inciso h) del artículo 22 de la N° 8292, Ley General de Control Interno, establece literalmente como parte de las competencias de la Auditoría Interna el “Mantener debidamente actualizado el Reglamento de organización y funcionamiento de la Auditoría Interna”.
+IV.—Que la Auditoría Interna es parte fundamental del sistema de control interno institucional y del sistema de control y fiscalización superiores de la hacienda pública, y su acción requiere ser reforzada conforme con el marco legal y técnico que regula su gestión, en defensa del interés público, por lo que es necesario que: se disponga de un reglamento de organización y funcionamiento actualizado, acorde con la normativa que rige su actividad.
+V.—Que de conformidad con las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público (D-2-2006-CO-DFOE-DAGJ) emitidas por la Contraloría General de la República mediante Resolución R-CO-93-2006 de fecha 8 de diciembre del 2006, se establece que las Auditorías Internas que, a la fecha de entrada en vigencia de estas directrices cuenten con un reglamento de organización y funcionamiento, deberán verificar el cumplimiento de lo regulado en ese cuerpo normativo y que si determinan que el mismo no cumple cabalmente los requisitos mínimos aquí establecidos, deberán realizar los ajustes pertinentes y someter el reglamento modificado a la aprobación del jerarca y luego de la Contraloría General de la República, observando el trámite señalado en las citadas Directrices.
+VI.—Que de la revisión que se efectuó al actual Reglamento de Organización y Funcionamiento de la Auditoría Interna del MAG se determinó la necesidad de realizar ajustes conforme a la nueva normativa que regula la materia,
+VII.—Que de acuerdo con el artículo 23 de la Ley N° 8292, Ley General de Control Interno, dicho Reglamento deberá ser aprobado por la Contraloría General de la República, publicarse en el Diario Oficial y divulgarse en el ámbito institucional.
+VIII.—Que la Contraloría General de la República, mediante oficio N° DAGJ-1014-2008 de fecha 29 de julio de 2008, otorgó su aprobación al presente Reglamento. Por tanto,
+Se acuerda emitir el siguiente:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL INSTITUTO NACIONAL
+DE INNOVACIÓN Y TRANSFERENCIA EN TECNOLOGÍA
+AGROPECUARIA, INTA
+PRESENTACIÓN
+El presente Reglamento se formula en cumplimiento con las “Directrices generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público”, Resolución Nº R-CO-93-2006, publicada en La Gaceta N° 236 del 8 de diciembre del 2006, cuyo marco básico viene a regular la obligación de cada auditoría interna de contar con un reglamento de organización y funcionamiento, de acuerdo con la normativa que rige su actividad y según lo establecido en el artículo 23 de la Ley General de Control Interno, N° 8292; el documento contiene seis capítulos ordenados de la siguiente manera:
+Capítulo I Disposiciones Generales
+Capítulo II De la Organización de la Auditoría Interna
+Capítulo III De la Ubicación y estructura
+Capítulo IV Del Auditor y Subauditor Internos
+Capítulo V Del Funcionamiento de la Auditoría Interna,
+Capítulo VI Disposiciones Finales
+El Capítulo I se refiere a disposiciones generales, considerando el marco jurídico y técnico que regula las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna, cuya finalidad es de orientar su accionar, en procura de garantizar la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza; determina los sujetos a quienes alcanza el Reglamento.
+El Capítulo II contiene los aspectos relativos a la organización de la auditoría interna, considerando el concepto funcional, la obligación de mantener actualizados su visión, misión, políticas y procedimientos, así como las medidas atinentes a la ética profesional, objetividad de su personal e independencia funcional.
+El Capítulo III de la ubicación y estructura establece su posición dentro de la estructura institucional, la dependencia orgánica y la obligación de disponer de una estructura organizativa acorde con la razón de ser y la normativa que regula al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+El Capítulo IV comprende los aspectos relativos a las funciones que ejerce la auditoría interna, la jornada laboral, así como la materia relacionada con el nombramiento de auditor y subauditor interno, plazo de nombramiento, el ámbito de acción y las relaciones y coordinaciones.
+El Capítulo V del Funcionamiento de la auditoría interna, contiene las competencias de la auditoría interna contenidas en la normativa legal, reglamentaria y técnica aplicable; así como sus deberes y potestades.
+El Capítulo VI se refiere a disposiciones finales de la reglamentación, en cuanto a la derogatoria del Reglamento actual y la vigencia del presente.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo. El presente Reglamento, en conjunto con las disposiciones contenidas en la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el órgano contralor, regula las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria, INTA, con la finalidad de orientar su accionar, de manera que la misma se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza.
