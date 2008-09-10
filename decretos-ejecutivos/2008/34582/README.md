@@ -14,3 +14,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-01 | la propia norma |
+| 2 | 2008-09-10 | Decreto Ejecutivo 34741 (2008-09-10) |

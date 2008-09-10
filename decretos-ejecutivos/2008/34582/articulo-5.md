@@ -1,5 +1,6 @@
 Artículo 5º—Ministros Rectores. Corresponderá a los Ministros Rectores, dirigir y coordinar la realización de las estrategias y las políticas públicas sectoriales de la administración tanto central como descentralizada. Para ello se establecen las siguientes rectorías:
-a) El Sector Social y de Lucha Contra la Pobreza estará bajo la rectoría del Ministro de Vivienda y Asentamientos Humanos;
+a) El Sector Social y de Lucha Contra la Pobreza estará bajo la rectoría del Ministro de Salud;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34741 del 10 de setiembre de 2008).
 b) El Sector Productivo estará bajo la rectoría de los Ministros de Agricultura y Ganadería y de Economía, Industria y Comercio;
 c) El Sector Educativo estará bajo la rectoría del Ministro de Educación Pública;
 d) El Sector Salud estará bajo la rectoría del Ministro de Salud;
