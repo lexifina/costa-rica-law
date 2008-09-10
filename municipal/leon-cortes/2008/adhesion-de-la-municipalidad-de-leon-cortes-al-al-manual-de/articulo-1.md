@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LEÓN CORTÉS
+El Concejo Municipal de León Cortés, en sesión ordinaria Nº 115, celebrada el día 29 de julio 2008, artículo 04, inciso a), acuerda acogerse a la publicación del Manual de Valores Base Unitaria por Tipología Constructiva 2007, realizada por el Órgano de Normalización Técnica en el Diario Oficial La Gaceta Nº 78, del 23 de junio del 2008. Publíquese en el Diario Oficial La Gaceta, definitivamente aprobado.
