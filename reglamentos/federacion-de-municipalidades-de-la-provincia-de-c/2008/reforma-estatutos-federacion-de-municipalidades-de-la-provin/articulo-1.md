@@ -1,0 +1,11 @@
+FEDERACIÓN DE MUNICIPALIDADES
+DE LA PROVINCIA DE CARTAGO
+ESTATUTOS
+Reforma del artículo 25
+FEDERACIÓN DE MUNICIPALIDADES DE CARTAGO
+Artículo 25.—De las aportaciones de las Municipalidades federadas y usuarios. Los pagos ordinarios, extraordinarios o que por prestación de servicios que hayan de efectuar los miembros federados y los demás usuarios, de conformidad con lo previsto en estos. Estatutos, se abonarán a la Federación de Municipalidades, respecto de la cual se entenderá contraída la respectiva obligación de pago, y correlativamente, el derecho de la Federación de Municipalidades a exigirla. Para ello, las municipalidades federadas se obligan a incluir en sus respectivos presupuestos las cantidades necesarias.
+Las Municipalidades signatarias del presente Estatuto, de conformidad con el artículo diez del Código Municipal habrá una cuota porcentual ordinaria anual de los presupuestos Ordinarios de las municipalidades signatarias equivalente a un tres por mil. Esa cuota se pagará en el primer trimestre del año calendario. No obstante, dicha cuota se podrá ajustar a las posibilidades reales de cada municipalidad sin que ello afecte los derechos y deberes de la misma ante la Federación.
+Podrán fijarse cuotas extraordinarias a cargo de la totalidad de las municipalidades federadas para ser aplicadas a gastos ordinarios o extraordinarios de la Federación siempre que aquellas aprueben esas cuotas. Asimismo, todas o algunas municipalidades federadas podrán acordar por iniciativa propia cuotas extraordinarias que se comprometan apagar en forma individual y obligatoria para compra de equipo y/o el desarrollo y ejecución de programas específicos.
+Asimismo, en caso de gestionarse por parte de esta Federación el cobro de impuestos y tasas, acordarán la autorización de compensación a favor la Federación, siendo detraídas las aportaciones de los ingresos habidos para el Cantón por los diferentes conceptos.
+Aquellos cantones que siendo requeridos por parte de la Federación de Municipalidades no hagan efectivo el pago de sus obligaciones, podrán ser suspendidos de la percepción de los servicios que ésta les preste.
+Artículo 25 reformado en el artículo 2 de la sesión Nº 109 de la Federación de Municipalidades de Cartago, celebrada el sábado 26 de julio del 2008 a las 2:00 p.m. en el Salón de Sesiones de la Municipalidad de Alvarado.
