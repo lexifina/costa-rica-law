@@ -55,12 +55,15 @@ CONSTANCIAS | $3 por constancia | $3 por constancia
 CONSTANCIAS PARA EFECTOS DE TRÁMITE DE VISA DE INGRESO A LOS ESTADOS UNIDOS DE AMÉRICA Y OTROS PAÍSES | $5 | $5
 (**)PRODUCTO: “AHORRO OBLIGATORIO”, para ahorros obligatorios constituidos antes de la vigencia de la Ley de Protección al Trabajador
 CONCEPTO | MONTO EN COLONES
-(***)CUENTAS INACTIVAS (Cuentas Consistentes) | $2 mensuales. Sin movimiento a partir de 6 meses y con saldos menores a los $10 o su equivalente en colones.
-(***)CUENTAS INACTIVAS (Cuentas Inconsistentes) | $2 mensuales. Con saldos menores a los $10 o su equivalente en colones.
+CUENTAS INACTIVAS (Cuentas Consistentes) | $2 mensuales. Sin movimiento a partir de 6 meses y con saldos menores a los $10 o su equivalente en colones.
+CUENTAS INACTIVAS (Cuentas Inconsistentes) | $2 mensuales. Con saldos menores a los $10 o su equivalente en colones.
 COSTOS ADMINISTRATIVOS Y TECNOLÓGICOS (Cuentas Consistentes y Cuentas Inconsistentes) | $0,10 mensuales. Revisable anualmente en el mes de enero de cada año.
 (**) (Así adicionado este apartado en sesiones 4601 y 4602 de 21 y 25 de agosto de 2008).
-(***) (NOTA DE SINALEVI: El rubro “Cuentas Inactivas (Cuentas inconsistentes) rige veinte días hábiles después de su publicación en el diario oficial).
-.
+(*) PRODUCTO: “TRANSFERENCIAS INTERNAS Y EXTERNAS “
+CONCEPTO | MONTO DÓLARES | MONTO COLONES
+ü TRANSFERENCIAS INTERBANCARIAS (Débitos y Créditos Directos) ü TRANSFERENCIAS SALIENTES A TERCEROS ü DÉBITOS EN TIEMPO REAL A TRAVÉS DE S.I.N.P.E ü AUTORIZACIÓN DÉBITO AUTÓMATICO A TRAVÉS DE S.I.N.P.E | Comisión establecida con base a la tabla del Reglamento del Sistema de Pagos del BCCR. El Banco de conformidad a las necesidades de negocio a las condiciones del mercado o para incentivar algún servicio, podrá establecer las tarifas, manteniendo como cobro mínimo lo contemplado en dicho reglamento y nunca más alta que la menor tarifa que cobre algunos de los Bancos Estatales. | Comisión establecida con base a la tabla del Reglamento del Sistema de Pagos del BCCR. El Banco de conformidad a las necesidades de negocio a las condiciones del mercado o para incentivar algún servicio, podrá establecer las tarifas, manteniendo como cobro mínimo lo contemplado en dicho reglamento y nunca más alta que la menor tarifa que cobre algunos de los Bancos Estatales.
+TRANSFERENCIAS NACIONALES (CUENTAS INTERNAS) | | De ¢0 a ¢10,000.0: ¢350.00. De ¢10,001 a ¢50,000: ¢350 + (monto- 10,000)*1%. De ¢50,001 a ¢200,000: ¢350.00 + 40,000*1% + (monto-50,000) * 0.75%. De ¢200,001 o más: ¢350+ (monto- 200,000) *0.25 %+ 150,000* 0.75 % + 40,000 * 1%
+(*)(Así adicionado el apartado anterior mediante sesión N° 4607 del 11 de setiembre de 2008)
 El Gerente General Corporativo o el Subgerente de Negocios, respetando el principio de igualdad y por acto motivado e indelegable, podrán
 exonerar hasta el 100% de las tarifas antes indicadas, a personas o grupos de ellas cuando medien motivos tales como el interés social, las condiciones del
 mercado financiero y bancario o la celebración de negocios colaterales como saldos medios en cuentas a la vista o a plazo, inversiones en el Puesto de Bolsa
