@@ -1,0 +1,1 @@
+Artículo 7º—A cada zona de estacionamiento para vehículos se le demarcará claramente, con demarcación vertical y horizontal de pintura blanca en cordón de caño y rótulos de “Estacionamiento con boleta”, el área dentro de la cual deberá estacionarse los vehículos, ninguna zona podrá ser menor de 5 metros ni mayor de 7 metros por 2 metros de ancho.

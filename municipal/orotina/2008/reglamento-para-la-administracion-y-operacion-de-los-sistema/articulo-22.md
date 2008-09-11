@@ -1,0 +1,1 @@
+Artículo 22.—Para el mejor cumplimiento de la Ley 3580, de Instalación de Estacionómetros, la Municipalidad y la Dirección de Tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración.

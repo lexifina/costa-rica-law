@@ -1,0 +1,1 @@
+Artículo 38.—Toda nueva solicitud para estacionamiento fijo deberá ser estudiada por el Jefe de la Unidad, el informe correspondiente se remitirá a la dependencia de Obras y Servicios y posteriormente al Concejo Municipal, a efecto de que dé su aprobación o rechazo definitivo con base en los criterios externados.

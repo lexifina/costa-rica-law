@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad determinará, de común acuerdo con el Ministerio de Obras Públicas y Transportes, los espacios necesarios para zonas de vehículos dedicados al transporte remunerado de personas.

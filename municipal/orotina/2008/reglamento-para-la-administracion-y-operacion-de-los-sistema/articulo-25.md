@@ -1,0 +1,1 @@
+Artículo 25.—La municipalidad por medio de la Unidad de Estacionómetros demarcará ángulos no menores de 10 metros para el estacionamiento de motocicletas y bicicletas sin cobro alguno. Así mismo todos aquellos obstáculos que sean ubicados en esta área, serán despojados en coordinación con la autoridad respectiva.

@@ -1,0 +1,2 @@
+Artículo 20.—El gravamen a que se refiere el artículo anterior se anotará en el Registro Público, mediante oficio que enviará la Unidad de Estacionómetros.
+La cancelación de dicha multa será requisito para retirar los derechos de circulación anual de cada vehículo y la municipalidad enviará oficio de cancelación de gravamen al Registro Público cuando la Tesorería Municipal verifique el pago de lo debido. El cobro se hará por medio del Instituto Nacional de Seguros.
