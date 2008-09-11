@@ -1,1 +1,1 @@
-Artículo 18.—La remuneración por Disponibilidad deberá ser eliminada si el trabajador que la está disfrutando es trasladado a otra área o puesto donde no se requiera disponibilidad.
+Artículo 18.—El pago por concepto de disponibilidad se eliminará cuando se desafecte el puesto adherido a dicho régimen, en virtud de haber desaparecido las condiciones objetivas que motivaron su sujeción a éste, según criterio razonado de la Administración.

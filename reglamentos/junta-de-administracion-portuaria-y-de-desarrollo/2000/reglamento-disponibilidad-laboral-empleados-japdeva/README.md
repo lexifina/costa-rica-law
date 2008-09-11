@@ -14,3 +14,4 @@ Reglamento Disponibilidad Laboral Empleados Japdeva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-15 | la propia norma |
+| 2 | 2008-09-11 | Reglamento 32 (2008-09-11) |
