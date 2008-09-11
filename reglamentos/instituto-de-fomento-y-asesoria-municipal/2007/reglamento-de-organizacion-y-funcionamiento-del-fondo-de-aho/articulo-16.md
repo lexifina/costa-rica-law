@@ -1,5 +1,5 @@
 CAPÍTULO IV
-Del crédito en General
+Del crédito en general
 SECCIÓN PRIMERA
 Artículo 16.—Se establecen las siguientes líneas de crédito, para:
 a) Construcción de vivienda.

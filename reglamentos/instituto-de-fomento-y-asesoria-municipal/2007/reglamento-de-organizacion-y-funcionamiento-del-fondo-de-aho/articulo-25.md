@@ -8,7 +8,7 @@ d) Presentar certificación extendida por el Registro Civil referido a su estado
 e) Presentar constancias de salarios e ingresos del petente y demás miembros del núcleo familiar, en el caso de que el ingreso del afiliado sea insuficiente.
 f) Certificación extendida por el Registro Público de la Propiedad Inmueble, que indique las anotaciones, gravámenes y limitaciones que poseen sobre la propiedad.
 g) Que el valor del terreno como el de la construcción cubran el monto del crédito solicitado, para lo cual el ingeniero-inspector del FODEAP realizará el avalúo correspondiente.
-h) Que el petente presente los planos de construcción y el presupuesto de la obra.
+h) Que el petente presente los planos de construcción y el presupuesto de la obra y los permisos de construcción municipal.
 i) Que el vendedor del terreno o vivienda no sea cónyuge o hijo del afiliado.
 j) Que el inmueble a comprar no tenga gravámenes ni anotaciones, salvo aquellos que deban ser cancelados como parte de la operación o limitaciones y servidumbres razonables, por lo que el petente debe presentar certificación de los gravámenes y anotaciones que pesen sobre la propiedad.
 k) Que presente certificación literal del inmueble extendida por el Registro Público de la Propiedad, así como el plano catastrado, todo referido al crédito que se solicita.

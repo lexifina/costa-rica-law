@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-23 | la propia norma |
+| 2 | 2008-09-11 | Reglamento 3788 (2008-09-11) |

@@ -1,6 +1,6 @@
 Artículo 8º—Son funciones de la Comisión:
 a) Dictaminar los créditos ante la Junta Directiva para vivienda y personales, positiva o negativamente, dando las razones que privaron.
-b) Llevar un libro de actas debidamente foliado y sellado por la Auditoría Interna, donde se debe consignar como mínimo las deliberaciones y acuerdos.
+b) Llevar un libro de actas debidamente foliado y sellado por la Auditoria Interna, donde se debe consignar como mínimo las deliberaciones y acuerdos.
 c) Proponer a la Junta Directiva, cuando las condiciones del mercado financiero así lo requieran, las tasas de interés, plazo y topes de los créditos que regirán.
 d) Proponer a la Junta Directiva los montos máximos para cada línea de crédito.
 e) Conocer las cesiones del grado de hipoteca, de acuerdo con lo estipulado en este Reglamento y elevarlo, previa recomendación, a la Junta Directiva.
