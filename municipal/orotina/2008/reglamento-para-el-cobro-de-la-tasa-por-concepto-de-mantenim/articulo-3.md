@@ -1,0 +1,1 @@
+Artículo 3º—Es sujeto pasivo de esta tasa todo aquel que sea propietario de un inmueble ubicado en los distritos en los que se preste el servicio al que se refiere este Reglamento, aunque el propietario no demuestre interés en el servicio.
