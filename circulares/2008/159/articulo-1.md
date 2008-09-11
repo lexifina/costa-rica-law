@@ -1,0 +1,11 @@
+CIRCULAR Nº 159-08
+ASUNTO: Fijación del monto de gastos ordinarios o extraordinarios por concepto de educación (Salario Escolar en materia de pensiones alimentarias)
+A LAS AUTORIDADES JUDICIALES EN MATERIA DE PENSIONES
+ALIMENTARIAS
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión Nº 59-08 de 12 de agosto del 2008, artículo XLIII, dispuso hacer de conocimiento de los despachos judiciales que conocen la materia de pensiones alimentarias, que la Comisión de la Jurisdicción de Familia recomienda:
+“a) Conocer en sentencia, con la debida fundamentación, sobre la fijación de un monto por concepto de gastos previsibles por inicio del curso lectivo, a favor de beneficiarios menores de edad y/o mayores de edad que estén cursando estudios. Incluso, valorar en cada caso, la fijación provisional de los mismos mediante resolución motivada. Es decir, para conocer sobre gastos previsibles por concepto de educación no es necesario sustanciar el trámite en legajo aparte sino que es posible su tramitación conjuntamente con la pretensión principal aún si éste no cuenta con sentencia todavía. De esta forma se evita la tramitación de “liquidaciones de gastos” que con frecuencia son presentadas y que mantienen a las partes constantemente enfrentadas en los procesos alimentarios.
+b) En aquellos casos en que lo reclamado sean egresos por concepto de educación pero que exceden el monto fijado como gasto ordinario y por consiguiente, sean gastos extraordinarios, es necesario sustanciar el trámite en legajo separado, pero de igual forma es posible conocer de su fijación en forma provisional mediante resolución fundada.
+c) En los procesos que ya cuentan con sentencia y que no contemplan un rubro por concepto de gastos previsibles de educación, es importante que en la primera oportunidad que exista, se resuelva sobre el punto no sólo para una liquidación específica sino para el futuro. Lo anterior, advirtiendo a las partes desde el inicio que en el fondo se emitirá pronunciamiento en ese sentido.
+d) En todo caso, sea para la fijación de gastos ordinarios o gastos extraordinarios por concepto de educación, su pago no depende de que quien sea obligado (a) a alimentos reciba o no un ingreso adicional, puesto que no existe norma que reserve ese pago únicamente para obligados (as) que tengan un ingreso extra.”
+San José, 11 de setiembre de 2008
