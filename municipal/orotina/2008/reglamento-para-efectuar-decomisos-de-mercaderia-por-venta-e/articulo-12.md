@@ -1,0 +1,1 @@
+Artículo 12.—Denuncias ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en los artículos 9º y 10 de este Reglamento.

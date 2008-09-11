@@ -1,0 +1,1 @@
+Artículo 14.—Recursos. Los actos que emanen del decomiso de mercadería, suspensión y cancelación de patentes contra lo resuelto por la oficina de Patentes, procederán los recursos ordinarios ante el Alcalde y el Concejo Municipal de acuerdo a lo previsto en el artículo 161 y 162 del Código Municipal.
