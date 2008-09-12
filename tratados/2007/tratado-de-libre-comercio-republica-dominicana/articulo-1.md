@@ -1365,6 +1365,10 @@ Folios: 1601-2121
 Lista de Guatemala al Anexo 3.3
 Notas generales
 Lista de desgravación (archivo pdf)
+(*)(NOTA: mediante el artículo 3° de la Ley 8664 de 3 de setiembre de 2008, se nemienda la lista de Guatemala del Anexo 3.3, en lo que se refiere a la fracción arancelaria 22030000 (cerveza) de la siguiente manera:
+1. En la columna “Arancel Base”, se elimina “ 40” y se sustituye por “ 20” .
+2. En la columna “Categoría de Desgravación”, se elimina “A” y se sustituye por “D”.1
+1 Para mayor certeza, las partes entienden que la tasa arancelaria que Guatemala aplicará en la fecha en que esta enmienda entre en vigencia será la tasa que hubiera estado vigente en esa fecha si el trato arancelario a aplicarse según esta enmienda hubiera estado vigente en el año 2006 cuando el Tratado entró en vigencia, y que los bienes clasificados en la fracción arancelaria 22030000 (cerveza) estarán libres de aranceles a partir del 1 de enero de 2020.
 Lista de Honduras al Anexo 3.3
 Notas generales
 Lista de desgravación (archivo pdf)
