@@ -1,2 +1,11 @@
-Artículo 45. De los libros de actas
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 45.—Capital Primario. El capital primario se estima con las siguientes partidas:
+Partidas que suman:
+a) Capital pagado ordinario neto de acciones en Tesorería.
+b) Capital mínimo de funcionamiento.
+c) Capital preferente con dividendo no acumulativo neto de acciones en Tesorería.
+d) Capital donado.
+e) Capital pagado adicional.
+f) Reserva Legal.
+Partidas que restan:
+a) El valor en libros de las acciones de la misma entidad dadas en garantía de operaciones crediticias.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

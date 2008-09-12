@@ -1,2 +1,4 @@
-Artículo 53. Custodia de los valores
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 53.—Elementos de evaluación cualitativa. El Superintendente establecerá, por disposición general, el procedimiento, calendario y los instrumentos para la evaluación cualitativa de la entidad autorizada.
+El instrumento de evaluación considerará las siguientes áreas: gestión del riesgo operativo, cumplimiento de disposiciones normativas y la calidad de la tecnología de información. Las evaluaciones presentadas a la Superintendencia deben ser comunicadas a la Auditoría Interna y al encargado del cumplimiento normativo.
+Las modificaciones al procedimiento o instrumento de evaluación regirán para la evaluación que se realice seis meses después de comunicado en firme a las entidades autorizadas el nuevo instrumento. Todo cambio en los instrumentos de evaluación debe ser comunicado, de previo a su entrada en vigencia, al CONASSIF por parte de la Superintendencia.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

@@ -1,4 +1,6 @@
-Sección II
-De la inversión en títulos o valores de emisores nacionales
-Artículo 47. De las características de los valores.
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 47.—Deducciones. A la suma que resulta del capital primario y capital secundario, debe deducirse las siguientes partidas, netas de sus respectivas estimaciones por deterioro o incobrabilidad, de amortizaciones y depreciación acumulada:
+a) Inversiones en empresas relacionadas.
+b) 10% de las cuentas y comisiones por cobrar excepto las cuentas y productos por cobrar asociados a inversiones en instrumentos financieros o depósitos.
+c) 10% de los activos intangibles, diferidos y restringidos.
+d) 10% de bienes inmuebles, mobiliario y equipo.
+(Asi reformado mediante sesión N° 743 del 12 de setiembre de 2008)

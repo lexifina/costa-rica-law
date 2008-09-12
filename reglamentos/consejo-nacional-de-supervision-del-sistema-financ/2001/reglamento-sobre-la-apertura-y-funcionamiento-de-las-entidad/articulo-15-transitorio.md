@@ -1,3 +1,2 @@
-Transitorio.—Licitación del fondo de registros erróneos.
-La Superintendencia organizará, dentro de un plazo no mayor a un año, a partir de la publicación en el Diario Oficial La Gaceta de la reforma del artículo 4 de este reglamento, la licitación y traslado de recursos señalada en el segundo párrafo del citado artículo.
-(Así adicionado mediante sesión N° 709 del 28 de marzo de 2008)
+Transitorio XV.—Primer control de la Suficiencia Patrimonial. El primer control de la suficiencia patrimonial de acuerdo con lo establecido en el Capítulo VII de este Reglamento será para el 31 de diciembre del 2008, con la información disponible a esa fecha para la medición del capital base y de cada uno de los requerimientos por riesgo.
+(Así adicionado mediante sesión N° 743 del 12 de setiembre de 2008)

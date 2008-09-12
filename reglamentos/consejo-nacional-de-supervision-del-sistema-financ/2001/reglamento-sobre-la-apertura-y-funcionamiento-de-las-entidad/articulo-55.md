@@ -1,2 +1,3 @@
-Artículo 55. Límites de inversión por emisor
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 55.—Determinación de la calificación. Cada entidad autorizada responderá la evaluación cualitativa, de acuerdo con los lineamientos que para este fin acuerde el Superintendente. La evaluación reportada por la entidad autorizada será revisada por la Superintendencia. La Superintendencia validará, mediante el proceso de supervisión los resultados de los instrumentos aplicados.
+La entidad autorizada dispondrá de cinco días hábiles, a partir de la fecha de comunicación del resultado de la evaluación cualitativa, para efectuar las observaciones y objeciones que estime pertinente. La Superintendencia analizará el planteamiento de la entidad y emitirá la resolución definitiva con la calificación cualitativa que corresponda.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

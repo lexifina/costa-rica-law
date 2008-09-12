@@ -1,4 +1,6 @@
-Sección III
-De la Inversión en títulos o valores de emisores extranjeros y uso de derivados
-Artículo 54. Inversión en valores de emisores extranjeros
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 54.—Calificación de los aspectos cualitativos. El instrumento de evaluación debe permitir obtener una calificación para cada área evaluada. La calificación cualitativa total será el promedio de las calificaciones individuales ponderado de la siguiente forma:
+ÁREA DE EVALUACIÓN | PONDERACIÓN DEL ÁREA
+Evaluación de la gestión del riesgo operacional | 40%
+Evaluación de las disposiciones normativas | 40%
+Evaluación de tecnología de la información | 20%
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

@@ -1,9 +1,4 @@
-CAPITULO VIl
-Inversiones
-SECCIÓN I
-Comité de Inversiones
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
-Articulo 44.—De la constitución y funcionamiento. Las entidades autorizadas deberán constituir un comité de inversión que será responsable de las políticas de inversión de los recursos de los fondos administrados.
-El comité será un órgano colegiado integrado por personas con experiencia en materia de inversiones, de conformidad con los requisitos que fije el Superintendente, de los miembros al menos uno deberá ser independiente de la sociedad administradora y de su grupo financiero y otro deberá ser el gerente de la entidad supervisada o el administrador de la asociación solidarista cuando corresponda.
-Las entidades autorizadas deberán informar a la Superintendencia los nombres y calidades de los miembros que conforman dicho comité. Cuando se haga el nombramiento o se produzcan cambios en su integración, éstos deberán ser reportados a la Superintendencia en un plazo no mayor de diez días hábiles.
-El fiscal de la Junta Directiva de la entidad autorizada asistirá con voz pero sin voto a las sesiones del comité.
+SECCIÓN II
+Cálculo del capital base
+Artículo 44.—Capital Base. El capital base corresponde a la suma del capital primario y el capital secundario, neto de deducciones, según se definen estos componentes en los artículos 45, 46 y 47 de este Reglamento. Para efectos del cálculo del capital base se considerará el capital secundario hasta en un 100% del capital primario.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

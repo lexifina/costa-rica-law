@@ -6,6 +6,6 @@ b. El aporte de los patronos del uno coma cinco por ciento (1,5%) mensual sobre 
 c. Los aportes de uno coma cinco por ciento (1,5%) mensual sobre los sueldos y salarios pagados provenientes del Fondo de Capitalización Laboral ingresarán una vez al año, el primer día hábil del mes de junio.
 Las entidades autorizadas para administrar fondos de capitalización laboral deberán trasladar los recursos indicados en el párrafo anterior directamente a las entidades autorizadas en las que los trabajadores se encuentran afiliados.
 d. El 50% de las utilidades de las operadoras constituidas como sociedades anónimas de capital público serán distribuidas a más tardar cuarenta y cinco días hábiles después del cierre contable del 31 de diciembre de cada año. Cada operadora deberá distribuir el monto recibido en proporción al total acumulado en la cuenta individual de cada uno de sus afiliados.
-Para el cálculo de las utilidades por distribuir a que se hace referencia en el literal d) de este artículo no se computarán los ingresos provenientes de las inversiones correspondientes realizadas con recursos del capital de funcionamiento de las operadoras de capital público.
+(Así reformado el inciso anterior mediante sesión N° 743 del 12 de setiembre de 2008)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 288-2002, celebrada el 11 de marzo de 2003, publicada en La Gaceta N° 57 de 21 de marzo de 2002.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 319-2002, celebrada el 20 de agosto de 2002, publicada en La Gaceta N° 166 de 30 de agosto de 2002.)

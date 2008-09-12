@@ -1,2 +1,2 @@
-Artículo 56. Condiciones de custodia, liquidación y compensación
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 56.—Periodicidad de la evaluación. Es obligación de las entidades reportar los resultados de la evaluación cualitativa según el calendario definido por la Superintendencia. El Superintendente podrá requerir la evaluación en un plazo menor al plazo ordinario establecido, cuando mediante el proceso de supervisión se tenga evidencia de un deterioro en la calificación del riesgo cualitativo, así como en el caso de entidades que mantuvieran calificaciones menores a 90%.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

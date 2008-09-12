@@ -1,2 +1,3 @@
-Articulo 50.—De la inversión mínima.
-DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
+Artículo 50.—Cálculo del Riesgo de Mercado. Las entidades autorizadas deberán calcular el Riesgo de Mercado de la cartera de inversiones propias con periodicidad diaria. El requerimiento por riesgo de mercado de la entidad autorizada será igual al máximo valor observado del Valor en Riesgo (VaR) de la cartera de inversiones propias de la entidad durante los últimos 60 días naturales a la fecha de cálculo, incluido el último día del mes.
+El método de cálculo del VaR será histórico, considera un nivel de confianza del 95%, 500 observaciones y un horizonte temporal de 21 días. La metodología para el cálculo del VaR se establecerá mediante acuerdo general por el Superintendente.
+(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)

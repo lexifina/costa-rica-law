@@ -1,3 +1,2 @@
-Transitorio.—Libre transferencia.
-La aplicación del artículo 102 de este Reglamento regirá seis meses después de su publicación en el Diario Oficial La Gaceta.
-(Así adicionado mediante sesión N° 709 del 28 de marzo de 2008)
+Transitorio XVI.—Primera evaluación cualitativa del Riesgo Operativo. La Superintendencia de Pensiones deberá aplicar la primera evaluación de riesgo operativo según lo dispuesto en el Capítulo VI de este Reglamento con corte al 31 de octubre del 2008.
+(Así adicionado mediante sesión N° 743 del 12 de setiembre de 2008)
