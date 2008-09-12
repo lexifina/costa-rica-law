@@ -1,0 +1,7 @@
+Artículo 31.—Requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría Interna:
+m) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron tales hechos y el nombre del sujeto que presuntamente los realizó.
+n) Se deberá señalar la posible situación irregular que afecta la Hacienda Pública por ser investigada.
+o) El denunciante deberá indicar cuál es su pretensión en relación con el hecho denunciado.
+p) Información adicional: El denunciante también debe brindar información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.
+q) Solicitud de Aclaración: En caso de determinar la Auditoría que existe imprecisión de los hechos se otorgará a la parte un plazo no menor de 10 días hábiles para que el denunciante complete su información o de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.
+r) Admisión de denuncias anónimas: Las denuncias anónimas serán atendidas en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.
