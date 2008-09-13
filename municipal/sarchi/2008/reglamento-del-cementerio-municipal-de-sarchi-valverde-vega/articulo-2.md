@@ -1,0 +1,1 @@
+Artículo 2°—Las materias tratadas en ese Reglamento están sujetas al previo cumplimiento de todo lo dispuesto en el Reglamento General de Cementerios publicado en La Gaceta N° 244 el 19 de siembre del 2005.

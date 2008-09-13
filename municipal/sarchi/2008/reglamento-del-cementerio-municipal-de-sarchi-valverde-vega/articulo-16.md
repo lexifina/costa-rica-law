@@ -1,0 +1,1 @@
+Artículo 16.—El acta para traslado de restos deberá contener la autorización de los arrendatarios de ambas bóvedas, en caso de traslado u otro cementerio en cuestión, donde se indique que se ha reservado el espacio para tal fin

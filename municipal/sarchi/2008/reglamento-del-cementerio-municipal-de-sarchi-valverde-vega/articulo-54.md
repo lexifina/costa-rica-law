@@ -1,0 +1,1 @@
+Artículo 54.—La bóveda será declarada en ruina y abandono por la comisión administrativa del cementerio o en su defecto por la administración Municipal, cuando hayan trascurrido tres años sin renovar la pintura y sin hacer reparaciones necesarias.

@@ -1,0 +1,1 @@
+Artículo 61.—El encargado llevara todos los registros en orden y al día, y estará obligado a facilitar información a otras autoridades administrativas y sanitarias cuando estas lo requieran dentro del ámbito de su competencia.

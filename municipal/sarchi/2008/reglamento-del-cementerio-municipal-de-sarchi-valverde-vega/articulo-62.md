@@ -1,0 +1,1 @@
+Artículo 62.—La administración inspeccionara la colocación de lapidas, cruces, bóvedas, así como los colores a usarse que serán blanco y gris, a fin de que mantengan uniformidad en la estética del Cementerio
