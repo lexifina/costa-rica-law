@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Este reglamento será de aplicación obligatoria para el Instituto de Fomento y Asesoría Municipal (IFAM) de conformidad con la aplicación de las directrices emitidas en materia presupuestaria por la Contraloría General de la República.

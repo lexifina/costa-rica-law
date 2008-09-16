@@ -1,0 +1,1 @@
+Artículo 2º—Del objeto. El presente Reglamento regula la inclusión de datos de carácter presupuestario disponible para el debido control y fiscalización por parte de la Contraloría General de la República, de manera que se agilice la disponibilidad de esta información para la tramitación de documentos ante el órgano contralor.
