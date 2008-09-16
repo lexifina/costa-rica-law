@@ -1,0 +1,1 @@
+Artículo 32.—Las Comisiones se reunirán en sitio público. El día y la hora de la reunión serán la que determinen por mayoría simple los miembros de la Comisión. La Secretaría Municipal deberá mantener en sitio visible la fecha, hora, lugar y temas que traten las Comisiones Municipales.

@@ -1,0 +1,1 @@
+Artículo 41.—Toda Comisión debe llevar un libro de actas debidamente foliado en donde consten la fecha de cada sesión, los miembros presentes, los miembros ausentes, los temas tratados, las deliberaciones importantes que así lo requieran y el resultado de los votaciones internas.

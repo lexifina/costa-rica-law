@@ -1,0 +1,1 @@
+Artículo 12.—Es potestad de la Presidencia Municipal el otorgar o no la palabra a cualquier ciudadano que desee participar de la deliberaciones propias del Concejo, no obstante debe limitarse esa participación a un tiempo máximo de 5 minutos. Únicamente puede referirse al tema en discusión manifestando su interés legítimo para opinar.

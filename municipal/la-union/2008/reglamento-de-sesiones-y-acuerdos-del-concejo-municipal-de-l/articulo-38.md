@@ -1,0 +1,1 @@
+Artículo 38.—Las Comisiones tomarán sus acuerdos por simple mayoría de los presentes, consignándose dicha votación en los dictámenes del Concejo. El o los miembros que estén en contra del acuerdo específico de la Comisión, pueden rendir un dictamen de minoría. Ambos dictámenes deben entregarse juntos a la Secretaría Municipal.
