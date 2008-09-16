@@ -1,0 +1,1 @@
+Artículo 10.—Aprobación interna de las modificaciones presupuestarias y presupuestos extraordinarios. La aprobación interna de las modificaciones presupuestarias y presupuestos extraordinarios corresponderá a la Junta Directiva de IFAM, mediante acuerdo tomado y remitido a la Sección de Contabilidad y Finanzas para su aplicación, previa solicitud justificada.

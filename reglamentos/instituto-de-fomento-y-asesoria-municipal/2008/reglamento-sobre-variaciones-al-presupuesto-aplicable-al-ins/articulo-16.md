@@ -1,0 +1,3 @@
+Artículo 16.—Disposiciones finales. Toda solicitud de variación al presupuesto deberá apegarse en todo momento a la aplicación de los clasificadores de ingresos y clasificadores por objeto del gasto que rige al sector público costarricense, así como a las normas técnicas básicas que regulen la administración financiera y el Reglamento sobre variaciones al presupuesto de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados (R-1-2006-CO-DFOE) emitidas la Contraloría General de la República y demás regulaciones internas que la Institución crea necesario para la correcta aplicación del presente Reglamento.
+Rige a partir de su publicación en el diario oficial La Gaceta.
+Moravia, 19 de agosto del 2008

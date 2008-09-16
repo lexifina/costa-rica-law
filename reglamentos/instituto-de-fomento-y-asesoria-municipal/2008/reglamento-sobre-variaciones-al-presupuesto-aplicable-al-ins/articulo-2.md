@@ -1,0 +1,1 @@
+Artículo 2º—Del objeto. El presente Reglamento regula las variaciones al presupuesto del Instituto de Fomento y Asesoría Municipal, necesarias para el cumplimiento de los objetivos y metas dentro del ámbito interno y externo que puedan ocurrir durante el desarrollo del proceso presupuestario.

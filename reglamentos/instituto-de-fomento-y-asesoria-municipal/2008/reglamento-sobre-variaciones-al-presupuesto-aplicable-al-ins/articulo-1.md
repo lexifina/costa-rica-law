@@ -1,0 +1,7 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo tercero, artículo cuatro de la sesión ordinaria Nº 3768, celebrada a las 12:10 horas del día 26 del mes de junio del 2008, acordó, promulgar el “Reglamento Sobre Variaciones al Presupuesto Aplicable al Instituto de Fomento y Asesoría Municipal-IFAM-” cuyo texto es el siguiente
+“REGLAMENTO SOBRE VARIACIONES AL PRESUPUESTO
+APLICABLE AL INSTITUTO DE FOMENTO Y ASESORÍA
+MUNICIPAL-IFAM-”
+Artículo 1º—Consideraciones generales. El artículo 53 de la Ley Administración Financiera de la República y Presupuestos Públicos Nº 8131 del 16 de noviembre del 2001, dispone que los presupuestos de los entes y de los órganos sujetos a aprobación de la Contraloría General de la República deberán prepararse atendiendo las normas técnicas dictadas por ese Órgano Contralor.
+Asimismo en La Gaceta número 170 del 05 de setiembre del 2006, la Contraloría General de la República, mediante Resolución R-CO-67-2006, promulgó el Reglamento Sobre Variaciones al Presupuesto de los Entes y Órganos Públicos, Municipalidades y Entidades de Carácter Municipal, Fideicomisos y Sujetos Privados, en el cual establece la potestad, para que por medio de un reglamento interno, instrumentalice las normas generales dadas por ese Reglamento y que constituyen un marco de referencia de carácter general, a partir del cual debe emitirse la normativa especifica por parte de la Administración.

@@ -1,0 +1,1 @@
+Artículo 14.—Registro de los documentos en el sistema presupuestario. Una vez remitidos a la Sección de Contabilidad y Finanzas los oficios de aprobación de los documentos presupuestarios, se realizará el registro en el sistema presupuestario con fecha de la aprobación, ya sea interna o externa, según corresponda, para su debida aplicación.

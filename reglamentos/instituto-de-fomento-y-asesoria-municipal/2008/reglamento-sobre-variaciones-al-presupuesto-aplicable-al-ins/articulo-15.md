@@ -1,0 +1,1 @@
+Artículo 15.—Sistema presupuestario. El titular de la Dirección Ejecutiva, girará las instrucciones pertinentes al área de Informática, para mantener el sistema de información de presupuesto acorde con los requerimientos, el cual debe permitir la integración con la contabilidad y la identificación y registro de la información relevante y oportuna.
