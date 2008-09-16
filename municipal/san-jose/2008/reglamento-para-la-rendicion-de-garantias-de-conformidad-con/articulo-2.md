@@ -1,0 +1,1 @@
+Artículo 2º—Objeto: El presente Reglamento regula la garantía que debe rendir todo encargado de custodiar o administrar fondos, bienes y valores en la Municipalidad de San José del Cantón Central de San José.

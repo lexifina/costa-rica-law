@@ -1,0 +1,4 @@
+Transitorio único: Los funcionarios obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha de rige de este Reglamentó, tendrán quince días naturales después de publicado el mismo, para suscribir la póliza de fidelidad y de presentar la respectiva fotocopia certificada a la Dirección de Recursos Humanos. El mismo plazo tendrán los colaboradores que deban de rendir garantía, una vez que se les comunique a través de la resolución administrativa, su obligatoriedad de suscribir la póliza.
+Dado en la ciudad de San José, al ser las dieciséis horas del día veintidós de mayo del dos mil ocho.
+Acuerdo firme: 31, artículo V, de la sesión ordinaria 112, celebrada por la Corporación Municipal del cantón Central de San José, el 17 de junio de 2008
+San José, 2 de setiembre de 2008.

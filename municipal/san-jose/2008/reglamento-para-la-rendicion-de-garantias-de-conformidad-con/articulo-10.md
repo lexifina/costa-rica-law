@@ -1,0 +1,1 @@
+Artículo 10.—Si el funcionario hace omiso de está directriz, aún después de haberse sancionado de acuerdo al artículo anterior, será causal de despido sin responsabilidad patronal, previo debido proceso, de conformidad con lo dispuesto en el artículo 120, de la Ley de la Admi nistración Financiera de la República y Presupuestos Públicos.
