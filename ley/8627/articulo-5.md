@@ -3,3 +3,4 @@ Articulo 5°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 34440 del 28 de marzo de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34532 del 15 de mayo de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34657 del 15 de julio de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34749 del 16 de setiembre de 2008)
