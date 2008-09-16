@@ -1,0 +1,1 @@
+Artículo 10.—En el mismo acto de designación del operador, el Consejo, establecerá las condiciones dentro de las que deberá operarse la ruta, así como el plazo por el cual se otorga y este se comunicará al operador designado con la indicación de la fecha de inicio de operación.
