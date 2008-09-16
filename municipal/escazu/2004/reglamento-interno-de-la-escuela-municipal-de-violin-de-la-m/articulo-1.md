@@ -1,7 +1,8 @@
 MUNICIPALIDAD DE ESCAZÚ
 El Concejo Municipal de Escazú en sesión ordinaria 93, acta 132 del 10 de febrero, 2004, acuerda:
 Acuerdo 57-04: “Aprobar con dispensa de trámite de comisión, el Reglamento Interno de la Escuela Municipal de Violín de la Municipalidad de Escazú.
-DIRECCIÓN DE CULTURA
+(*)PROCESO DE CULTURA
+(*)(Modificada su denominación mediante sesión N° 125 del 16 de setiembre de 2008)
 REGLAMENTO INTERNO DE LA ESCUELA
 MUNICIPAL DE VIOLÍN
 Considerando:
@@ -14,7 +15,9 @@ Considerando:
 7º—Que para la Administración y el Concejo Municipal resulta necesario contar con un reglamento que norme las actividades y funciones de la Escuela de Violín Municipal. Por tanto, Hemos convenido en crear y aprobar el presente Reglamento de la Escuela Municipal de Violín de Escazú que se regirá por las siguientes cláusulas:
 CAPÍTULO I
 De las condiciones de la Escuela Municipal de Violín
-1.—La Escuela Municipal de Violín es un servicio comunitario regido, financiado y administrado por la Municipalidad de Escazú, a través de la Dirección de Cultura Municipal.
+1.—La Escuela Municipal de Violín es un servicio comunitario regido, financiado y administrado por la Municipalidad de Escazú, a través del (*) Proceso de Cultura Municipal.
+(*)(Modificada su denominación mediante sesión N° 125 del 16 de setiembre de 2008)
 2.—Los cursos de la Escuela de Violín son dirigidos a niños y niñas con talento musical, quienes por circunstancias económicas se les dificulta o imposibilita el recibir una educación formal en el área musical. Por tanto, estos cursos son de carácter gratuitos.
 3.—El Centro Cultural Escazuceño representa el eje central de la política cultural de la Municipalidad de Escazú; por tanto, la sede de la Escuela Municipal de Violín se encuentra en el Centro Cultural Escazuceño. Todo tipo de comunicación con la Escuela, debe coordinarse a través de este centro.
-4.—El vocero oficial de las actividades de la Escuela de Violín Municipal es la Municipalidad de Escazú, ya sea a través de la Alcaldía o la Dirección de Cultura Municipal. Para tal efecto, la Alcaldía y/o la Dirección de Cultura podrán solicitar al Coordinador de la Escuela de Violín su apoyo correspondiente para informar y dar a conocer los planes y acciones de la Escuela.
+4.—El vocero oficial de las actividades de la Escuela de Violín Municipal es la Municipalidad de Escazú, ya sea a través de la Alcaldía o (*) Proceso de Cultura Municipal. Para tal efecto, la Alcaldía y/o (*) Proceso de Cultura podrán solicitar al Coordinador de la Escuela de Violín su apoyo correspondiente para informar y dar a conocer los planes y acciones de la Escuela.
+(*)(Modificada su denominación mediante sesión N° 125 del 16 de setiembre de 2008)

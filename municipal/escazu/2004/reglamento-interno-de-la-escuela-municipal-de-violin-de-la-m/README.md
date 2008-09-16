@@ -14,3 +14,4 @@ Reglamento Interno de la Escuela Municipal de Violín de la Muncipalidad de Esca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-16 | la propia norma |
+| 2 | 2008-09-16 | Reglamento municipal 125 (2008-09-16) |
