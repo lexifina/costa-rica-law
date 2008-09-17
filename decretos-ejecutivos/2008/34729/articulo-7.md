@@ -1,0 +1,1 @@
+Artículo 7º—Las instituciones del Poder Ejecutivo contarán con Unidades para la Equidad de Género -UPEG-, o en instancia similar, tal como gestiona el MEP el enfoque de género, que coadyuvarán en la transversalización del enfoque de género en el quehacer institucional y del seguimiento de la Política Nacional de Igualdad y Equidad de Género en su respectiva institución.

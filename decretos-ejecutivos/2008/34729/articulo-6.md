@@ -1,0 +1,1 @@
+Artículo 6º—E Poder Ejecutivo y sus instituciones incluirán, en sus planes operativos anuales, las acciones contempladas en los planes de acción de la política de igualdad y equidad de género y, en lo inmediato, aquellas establecidas en el Primer Plan de Acción 2008-2012.

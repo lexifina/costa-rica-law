@@ -1,0 +1,1 @@
+Artículo 11.—Se nombra como Secretaría Técnica al Instituto Nacional de las Mujeres INAMU, quien constituirá un equipo de trabajo cuyo función principal es generar y brindar insumos técnicos a las diferentes instancias de coordinación política y técnica, para facilitar el monitoreo y seguimiento de la política nacional de igualdad y equidad de género.
