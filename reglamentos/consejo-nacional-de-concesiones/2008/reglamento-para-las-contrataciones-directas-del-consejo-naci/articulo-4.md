@@ -1,0 +1,1 @@
+Artículo 4º—Otras materias excluidas de los procedimientos ordinarios de contratación. Las demás materias excluidas de los procedimientos ordinarios de contratación están fuera del alcance de este Reglamento.

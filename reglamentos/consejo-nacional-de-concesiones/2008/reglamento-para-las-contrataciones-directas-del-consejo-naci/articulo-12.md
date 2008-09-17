@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la selección y adjudicación de ofertas
+Artículo 12.—Formalidades del acto de adjudicación. Cuando se haya demostrado que la persona física o jurídica a la cual se adjudicará el concurso ha cumplido satisfactoriamente con las exigencias técnicas, legales y financieras establecidas en el respectivo cartel, se procederá al acto de adjudicación del concurso mediante formal acto de adjudicación el cual estará debidamente motivado Asimismo el acto que declare desierto el concurso deberá consignarse por escrito, deberá ser razonado y firmado por el Secretario Técnico o el funcionario u órgano competente, según la delegación de competencias dispuestas por el Consejo.

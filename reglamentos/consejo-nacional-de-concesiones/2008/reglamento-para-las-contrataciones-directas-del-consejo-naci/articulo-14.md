@@ -1,0 +1,2 @@
+Artículo 14.—Comunicación del acto de adjudicación. La Proveeduría Institucional será la encargada de comunicar a los oferentes los actos de adjudicación debidamente motivados en garantía y respeto a los principios de la contratación administrativa, principalmente el de publicidad y legalidad.
+Esta comunicación deberá realizarse por los mismos medios utilizados para invitar, de lo cual deberá dejarse constancia en el expediente.

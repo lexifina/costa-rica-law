@@ -1,0 +1,1 @@
+Artículo 8º—Precio como factor fundamental. En los procesos de escasa cuantía o de volumen limitado se adjudicará la oferta de menor precio, sin perjuicio de que se valoren otros factores relevantes, todo lo que deberá definirse en la invitación.
