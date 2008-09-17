@@ -1,4 +1,4 @@
-Artículo 22.—Oposición al registro. Sin perjuicio de los requisitos comunes establecidos en el artículo 3 de este Reglamento, el escrito de oposición podrá contener lo siguiente:
+Artículo 22.-Oposición al registro. Sin perjuicio de los requisitos comunes establecidos en el artículo 3 de este Reglamento, el escrito de oposición podrá contener lo siguiente:
 a) Indicación de la marca y el número de expediente de la solicitud contra la cual se formula la oposición;
 b) Los argumentos de hecho y de derecho y las pruebas en que se funda la oposición; aportando copia de las mismas para el solicitante;
 c) Si la oposición se basa en un derecho derivado de una marca registrada o solicitada con anterioridad, una reproducción de la misma y la indicación de los productos o servicios para los cuales se hubiese solicitado o registrado y los productos o servicios respecto de los cuales se plantea la oposición;
@@ -6,3 +6,5 @@ d) Si la oposición se basa en un derecho derivado de una marca notoriamente con
 e) Si la oposición se basa en un derecho derivado de un nombre comercial o emblema, debe adjuntarse la descripción de las actividades que constituyen el giro o actividad mercantil de la empresa o establecimiento que identifica;
 f) Si la oposición se basa en un derecho de autor o en un derecho sobre un diseño industrial, debe acompañarse la representación gráfica del elemento protegido, cuando proceda; y
 g) Adjuntar una copia de la solicitud inicial de registro de la marca, en el caso que la oposición se base en el uso anterior de esa marca; dicha copia podrá asimismo acompañarse dentro del plazo de los quince días siguientes a la fecha de presentación de la oposición.
+A los efectos de los artículos 8, inciso c) y 75, inciso e) de la Ley , se entenderá que el uso anterior de una marca, indicación geográfica o denominación de origen por parte de un tercero, le otorga un mejor derecho de obtener su registro, siempre que se cumpla con lo dispuesto en el artículo 17 de la Ley.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34760 del 17 de setiembre de 2008)
