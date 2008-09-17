@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Unidad de Transportes
+Artículo 20.—Unidad de Transportes. En el caso de la Unidad de Transportes, el trabajo del tiempo extraordinario estará respaldado por la “solicitud de servicio de transporte para gira”, que será firmada al finalizar la gira por el usuario a quien se le brindó el servicio. Una vez autorizadas las giras, la Jefatura de esta unidad o el funcionario designado, establecerá un rol semanal de la gira, donde constará el operador designado por gira, el nombre del diputado o responsable de la gira, los días que comprende, la proyección de horas extra por laborar y el número de consecutivo de boleta de solicitud de transporte.

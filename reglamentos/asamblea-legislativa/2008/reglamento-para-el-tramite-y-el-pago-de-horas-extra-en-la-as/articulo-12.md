@@ -1,0 +1,1 @@
+Artículo 12.—Jornada finalizadas después de las 22:30. Todas las jornadas que finalicen después de las 22:30 horas serán consideradas jornadas nocturnas, y se reconocerán en la siguiente forma: seis horas ordinarias con el salario que corresponda a ocho horas diurnas y las horas restantes como tiempo extraordinario nocturno.

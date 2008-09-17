@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Tiempo Extraordinario en días no hábiles
+en los cuales no se realice la sesión
+Artículo 15.—En virtud del trabajo parlamentario y de acuerdo con los criterios emitidos por la Asesoría Legal de la Institución, se establece lo siguiente: en cuanto al pago de tiempo extraordinario de los funcionarios que sean convocados a laborar en días no hábiles y no se realice la sesión plenaria:
+a) Si la sesión del Plenario legislativo es convocada para las 9:00 a.m. o las 3:00 p.m. de un día no hábil y no se realiza por falta de quórum, se le reconocerá al servidor el equivalente a media jornada laboral regular (a tiempo sencillo H1).
+b) Si el Plenario legislativo convoca para doble sesión, o sea, para las 9:00 a.m. y las 3:00 p.m. y en la primera de ellas no hay sesión, pero sí en la segunda, al funcionario se le reconocerán media jornada laboral en aquella en que no hubo sesión y las horas de servicio prestadas durante la segunda jornada, al valor correspondiente, sea a tiempo doble, de conformidad con lo indicado en el artículo 152 del Código de Trabajo que dispone que el tiempo laborado durante la jornada de descanso será remunerado con el doble del salario ordinario H3.
+c) Cuando el Plenario programe doble sesión y en ninguna de las dos convocatorias haya quórum, lo correcto será reconocerle al servidor el equivalente a una jornada laboral regular.
+d) Cuando la sesión sea convocada únicamente para la aprobación del acta, o bien, sea interrumpida, poco después de iniciada, a causa de la ruptura del quórum, al servidor se le reconocerá el supuesto que más lo beneficie a criterio suyo, ya sea la mitad de una jornada ordinaria regular, o bien, el total del tiempo laborado reconocido a tiempo doble.

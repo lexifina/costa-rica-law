@@ -1,0 +1,1 @@
+Artículo 27.—Presentación extemporánea. Todo reconocimiento de tiempo extra presentado para el pago fuera del tiempo reglamentado en el artículo anterior, deberá contar con un acuerdo tomado por el Directorio legislativo, y deberá ser sustentado y respaldado con motivos de fuerza mayor, ajenos al funcionario que solicitó y laboró tiempo extra.

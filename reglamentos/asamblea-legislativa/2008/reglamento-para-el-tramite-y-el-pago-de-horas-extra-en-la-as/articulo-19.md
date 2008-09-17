@@ -1,0 +1,1 @@
+Artículo 19.—Archivo y control. Sobre la compensación referida en el artículo anterior, se ejercerá el debido control y de conformidad con las disposiciones del artículo 28 de este Reglamento, se archivará la solicitud de compensación de tiempo extraordinario.
