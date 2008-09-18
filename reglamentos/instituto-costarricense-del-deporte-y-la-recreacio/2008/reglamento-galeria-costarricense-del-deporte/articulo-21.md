@@ -1,0 +1,1 @@
+ARTICULO 21: Entre las proposiciones presentadas y mediante la verificación de aquellas candidaturas que cumplen con los requisitos exigidos en este reglamento, la Comisión escogerá los candidatos que conformarán la terna, mediante votación secreta, excepto que exista consenso.

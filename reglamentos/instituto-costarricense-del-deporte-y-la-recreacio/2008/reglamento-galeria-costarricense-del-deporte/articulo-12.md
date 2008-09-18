@@ -1,0 +1,1 @@
+ARTICULO 12: El quórum mínimo para poder sesionar es de tres miembros y los acuerdos se tomarán por mayoría simple. En aquellos casos en que se diera un empate, funcionará el doble voto del Presidente de la Comisión.

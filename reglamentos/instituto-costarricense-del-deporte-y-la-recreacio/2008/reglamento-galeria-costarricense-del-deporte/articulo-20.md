@@ -1,0 +1,1 @@
+ARTICULO 20: Una vez cerrado el periodo de recepción, la Comisión dispone de un tiempo máximo de hasta 30 días naturales para estudiar las postulaciones recibidas y deberá aplicar una tabla de valoración aprobada por el Consejo Nacional del Deporte y la Recreación, anexa a este reglamento, así como otros criterios que defina la Comisión.

@@ -1,0 +1,1 @@
+ARTICULO 3: Los integrantes de la Galería Costarricense del Deporte serán ejemplo para todas las generaciones de costarricenses, y sus proezas han de servir como punto de partida y objetivo en la superación y el desarrollo del deporte nacional.

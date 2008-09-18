@@ -1,0 +1,1 @@
+ARTICULO 6: Cada entidad tendrá derecho a postular un solo candidato por cada período. Así mismo, la postulación deberá esta referida a una persona, sea viva o fallecida; no así a equipos deportivos o a grupos de atletas.

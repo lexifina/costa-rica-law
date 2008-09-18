@@ -1,0 +1,1 @@
+ARTICULO 15: El director asignará por la unidad competente, los servicios logísticos para el funcionamiento de la Comisión y a la vez este será el ente encargado de la coordinación interna y externa de todos los asuntos relacionados con la Comisión y con la Galería Costarricense del Deporte.
