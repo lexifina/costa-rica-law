@@ -1,22 +1,3 @@
-Artículo 25.-Inicio de la explotación industrial. Cuando los
-titulares de la patente fueren dos o mas personas, cualquiera de ellos
-podrá explotar la invención en el país sin que sea necesario el
-consentimiento previo de los demás, salvo acuerdo en contrario entre los
-titulares.
-2. La declaración jurada que se presente al Registro comunicando el
-inicio de la explotación industrial de la invención, contendrá:
-a) El nombre, domicilio y dirección del titular de la patente.
-b) El número de la patente.
-c) La fecha de concesión de la patente.
-ch) El título de la invención.
-d) La fecha de inicio de la explotación industrial de patente.
-e) El nombre y dirección de la persona o empresa que estuviere
-efectuando directamente la explotación industrial.
-f) La dirección o ubicación precisa del lugar en que se estuviere
-efectuando dicha explotación industrial.
-g) Especificaciones técnicas de los productos fabricados bajo la
-patente.
-h) Capacidad instalada de producción.
-i) Volumen físico de producción y ventas mensuales.
-j) Mercado nacional cubierto.
-k) Precios unitarios de venta.
+Artículo 25.-Inicio de la explotación industrial. Cuando los titulares de la patente fueren dos o mas personas, cualquiera de ellos podrá explotar la invención en el país sin que sea necesario el consentimiento previo de los demás, salvo acuerdo en contrario entre los titulares.
+2) En el caso de patentes que abarquen productos farmacéuticos que aún no cuenten con un registro sanitario en el país emitido por la autoridad competente, y en el caso de patentes que abarquen productos agroquímicos que aún no cuenten con un registro en el país emitido por la autoridad competente, el hecho de que estos productos no se hayan comercializado en el país no se considerará como una falta de explotación industrial, para los efectos del artículo 18 de la Ley. En estos casos, los plazos referidos en el párrafo primero del artículo 18 de la Ley se empezarán a computar para productos farmacéuticos a partir de la fecha de emisión del registro sanitario para el producto farmacéutico cubierto por la patente, y para productos agroquímicos a partir de la fecha de emisión del registro del producto agroquímico cubierto por la patente.
+(Así reformado el párrafo anterior mediante el artículo 2° del decreto ejecutivo N° 34758 del 18 de setiembre de 2008)
