@@ -14,3 +14,4 @@ Reforma Reglamento para el Funcionamiento de Fondo de Cajas Chicas de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-07 | la propia norma |
+| 2 | 2008-09-18 | Acuerdo municipal 27 (2008-09-18) |
