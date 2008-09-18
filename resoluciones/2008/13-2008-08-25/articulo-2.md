@@ -1,0 +1,1 @@
+Artículo 2º—Vigencia. Rige, en los impuestos de período mensual, para el ejercicio fiscal de setiembre de 2008 en adelante; para los impuestos anuales, a partir del período fiscal 2008 en adelante y en los impuestos y pagos trimestrales, a partir de las obligaciones que vencen en setiembre 2008. Publíquese
