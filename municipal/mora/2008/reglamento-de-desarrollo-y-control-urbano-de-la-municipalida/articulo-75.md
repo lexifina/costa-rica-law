@@ -1,0 +1,1 @@
+Artículo 75.—La Municipalidad podrá celebrar Convenios y Acuerdos con el Gobierno, así como con el sector social, privado y académico para el mejor desempeño de sus funciones inherentes al presente reglamento.

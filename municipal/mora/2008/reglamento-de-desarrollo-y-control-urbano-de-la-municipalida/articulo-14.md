@@ -1,0 +1,1 @@
+Artículo 14.—Para autorizar el visado de planos de catastro, es necesario la presentación de los mismos elaborados por profesional en topografía a escala y acotado, consignando toda la información registral, áreas, frente, linderos, colindantes, afectaciones, vía de accesos y otros datos requeridos legal o técnicamente.

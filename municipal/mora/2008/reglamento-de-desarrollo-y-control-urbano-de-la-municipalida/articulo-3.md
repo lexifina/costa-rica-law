@@ -1,0 +1,1 @@
+Artículo 3º—Para el trámite de patentes comerciales se exigirá la presentación del Visado Urbano, con indicación del Uso del Suelo correspondiente, de conformidad con el artículo 29 de la Ley de Planificación Urbana y demás normativa vigente.

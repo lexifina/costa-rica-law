@@ -1,0 +1,1 @@
+Artículo 66.—Rótulos existentes. La presente regulación sobre publicidad exterior correspondientes a las licencias nuevas entrará en vigencia con la publicación del presente reglamento. Los rótulos existentes, deberán ponerse a derecho y ajustarse al Reglamento en un plazo de seis menos, contados a partir de la entrada en vigencia.

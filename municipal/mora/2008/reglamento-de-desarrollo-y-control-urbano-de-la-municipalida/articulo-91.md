@@ -1,0 +1,1 @@
+Artículo 91.—En los centros comerciales planificados, que incluya locales de uso comercial y para oficinas, públicas y particulares, se considerará un estacionamiento por cada cincuenta metros cuadrados (50m2), de área bruta de construcción.

@@ -1,0 +1,1 @@
+Artículo 100.—Licencias de funcionamiento. Para el ejercicio de toda actividad comercial, industrial o recreativa es indispensable que previamente se haya solicitado la respectiva Licencia municipal, la cual extenderá la Administración Tributaria.

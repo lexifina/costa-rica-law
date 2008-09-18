@@ -1,0 +1,6 @@
+Artículo 4º—Estudios de impacto ambiental. Los proyectos que se desarrollen en el cantón de Mora deberán contar con la aprobación de la SETENA, de requerirse por esta, de acuerdo con lo estipulado en el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), según el Decreto Ejecutivo No. 31849MINAE- S-MOPT-MAG-MEIC (La Gaceta, Nº 125 del 28/06/04).
+Además, deben tomarse en cuenta los siguientes criterios:
+1. Todos los proyectos que se ubiquen en áreas definidas como de recarga acuífera requerirán de evaluación de impacto ambiental y cumplir con lo que establece la Ley Forestal, la Ley de Aguas y el Reglamento de Procedimientos de la SETENA.
+2. Cualquier proyecto que se realice dentro de un área silvestre protegida en la jurisdicción del cantón requerirá de estudio de impacto ambiental completo que evalúe las posibles afectaciones a la biodiversidad, además de todos los otros aspectos que se evalúan normalmente en esta clase de estudio.
+3. Los entubados y puentes requerirán de estudio hidráulico e hidrológico.
+En todo caso, deberán tomarse en cuenta los Índices de Fragilidad Ambiental existentes para el cantón de Mora, sin embargo, cuando se trate de zonas en las cuales no existan los índices mencionados, y de ser necesario a criterio de la CTA, el interesado deberá realizarlos por su cuenta.

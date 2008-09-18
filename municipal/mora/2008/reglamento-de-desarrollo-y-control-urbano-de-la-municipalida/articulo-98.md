@@ -1,0 +1,1 @@
+Artículo 98.—Los plazos establecidos en el presente reglamento en cuanto a permisos municipales de construcción, iniciarán su cómputo a partir de que se reciba la documentación completa por parte del interesado.

@@ -1,0 +1,2 @@
+Artículo 16.—Todos los lotes resultantes de un fraccionamiento deberán tener las dimensiones de área, frente y fondo mínimos establecidos en el Reglamento de Zonificación del Cantón de Mora, publicado en La Gaceta 173 del 10 de setiembre del 2001 y Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones conforme a la Ley de Planificación Urbana, Ley Nº 4240 del 15 de noviembre de 1968.
+(Corregido mediante Fe de Erratas, publicada en La Gaceta N ° 33 del 17 de febrero de 2009).

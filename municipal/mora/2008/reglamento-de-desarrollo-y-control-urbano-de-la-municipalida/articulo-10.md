@@ -1,0 +1,2 @@
+Artículo 10.—Fraccionamientos. Toda finca, deberá contar previamente a su segregación con el visado urbano. Las segregaciones que resulten de su subdivisión posterior deberán ajustarse al alineamiento, uso del suelo, retiro, cobertura, altura de edificación y densidad indicada por el DDCU. Estas afectaciones constarán en el plano y escritura respectiva.
+(Corregido mediante Fe de Erratas, publicada en La Gaceta N ° 33 del 17 de febrero de 2009).

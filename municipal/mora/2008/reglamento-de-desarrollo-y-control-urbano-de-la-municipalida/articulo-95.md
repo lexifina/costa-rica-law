@@ -1,0 +1,1 @@
+Artículo 95.—Plazos de resolución. Los proyectos especiales o que implican un estudio técnico tendrán un plazo de resolución de dos meses según lo dispuesto en la Ley General de la Administración Pública, Nº 6227.

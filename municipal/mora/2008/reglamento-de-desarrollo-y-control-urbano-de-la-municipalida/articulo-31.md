@@ -1,0 +1,1 @@
+Artículo 31.—No se tramitarán permisos municipales si el interesado tiene gestiones o asuntos pendientes con la Municipalidad, sea cual sea su naturaleza, tales como: traspaso de bienes pendientes a esta, desarrollo de obras de urbanizaciones, tributos municipales, patentes, otros permisos de construcción, asuntos ambientales, compromisos adquiridos en sede judicial, entre otros.

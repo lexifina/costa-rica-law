@@ -1,0 +1,1 @@
+Artículo 78.—Se prohíbe establecer o erigir cualquier construcción permanente o provisional, cuando con ello se demerite la apariencia tradicional del lugar, se obstaculice el tránsito adecuado de personas o vehículos, o se dañe o deterioren sitios, monumentos, edificaciones o el equipamiento urbano.

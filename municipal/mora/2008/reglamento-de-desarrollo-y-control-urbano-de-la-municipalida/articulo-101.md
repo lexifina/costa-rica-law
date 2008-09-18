@@ -1,0 +1,1 @@
+Artículo 101.—Ventas estacionarias. A partir de la vigencia del presente Reglamento, podrán funcionar las actividades estacionarias de temporada en los lugares y según las condiciones que previamente determine la Municipalidad.

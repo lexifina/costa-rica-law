@@ -1,0 +1,2 @@
+Artículo 74.—Queda prohibido a cualquier particular o entidad pública, intervenir, derribar o modificar cualquiera de los edificios incluidos en el Catalogo, los que solo podrán ser objeto de intervención bajo los criterios técnicos que La Comisión determine.
+Toda obra que sea objeto de intervención deberá estar de acuerdo con el respeto al propio conjunto y a los estilos y caracteres arquitectónicos del sector urbano correspondiente, con base en las directrices y especificaciones contenidas en el Reglamento y estipulado en las licencias correspondientes que se otorguen.

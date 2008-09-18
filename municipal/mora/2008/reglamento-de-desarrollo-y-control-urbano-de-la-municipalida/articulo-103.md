@@ -1,0 +1,11 @@
+Artículo 103.—Complementariamente a lo dispuesto por las leyes y Reglamentos citados en el artículo anterior, la contravención de las normas del presente reglamento se sancionará de la siguiente manera:
+a) La instalación de actividades en edificios ya existentes que implican un uso que no concuerda con la zonificación indicada, se sancionará con la clausura del local, sin perjuicio de la responsabilidad penal en que se incurra.
+b) La Municipalidad, la Dirección de Urbanismo del INVU y el Ministerio de Salud, por si o en conjunto, llevarán a cabo la suspensión de toda obra, que se ejecute en contravención a la zonificación establecida por el Reglamento de Zonificación del Cantón, pudiendo disponer para ello de la fuerza pública o municipal.
+c) Se aplicarán todas las sanciones civiles y penales contempladas en las leyes correspondientes. Serán acreedores a dichas sanciones, tanto los infractores corno los funcionarios responsables del cumplimiento de este reglamento que consientan la violación de este.
+d) Se suspenderá la obra que no cuente en el sitio con los documentos que la acrediten o autoricen la concesión del permiso de construcción municipal; un juego completo de planos aprobados, original del formulario de permiso de construcción con los sellos y firmas registradas y la hoja de vistas del inspector municipal.
+e) Se suspenderá toda obra que en el transcurso de la ejecución que deje escombros en la vía pública, obstruya el libre tránsito sin tener la autorización del DDCU.
+f) De acuerdo con los artículos 93 y siguientes de la Ley de Construcciones, se ordenará la destrucción de las obras realizadas sin el permiso de construcción correspondiente, asimismo, podrá ordenarse su desocupación y clausura.
+CAPÍTULO X
+Recursos
+Artículo 103.—Toda resolución administrativa firme que dicte la Municipalidad por medio de las correspondientes dependencias, en lo relativo a la aprobación de permisos de demolición, construcción, ampliación o remodelación, así como en lo pertinente a la expedición de licencias de funcionamiento y certificados de usos del suelo, tendrán los recursos que regula el Código Municipal y sus reformas, Nº 7794.
+(En la publicación de este reglamento municipal se consignó dos veces el artículo N° 103)

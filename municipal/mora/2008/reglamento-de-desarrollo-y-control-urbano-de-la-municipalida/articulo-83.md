@@ -1,0 +1,4 @@
+Artículo 83.—En todo permiso de construcción, reparación, ampliación o remodelación se reservará el área, según el derecho de vía correspondiente para la construcción de entubado pluvial, acera, cordón y caño.
+Los planos constructivos que se presenten al DDCU deberán consignar la ubicación de la construcción dentro del lote, con la indicación del alineamiento y los retiros y la ubicación y características de las aceras que debe construir el propietario de la obra.
+Para el otorgamiento de permisos de construcción en fincas filiales pertenecientes a un condominio, será necesario que la acera colindante con la vía pública esté totalmente concluida y recibida en el DDCU.
+Las características de las aceras, así como cualquier otra regulación referida a las mismas, se regirán por el Reglamento para el cobro de tarifas por las Omisiones a los deberes de los Propietario de Inmuebles Localizados en el Cantón de Mora y los lineamientos emitidos por el DDCU.

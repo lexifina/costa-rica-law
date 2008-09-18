@@ -1,0 +1,8 @@
+CAPÍTULO VII
+Vigencia de las solicitudes
+Artículo 92.—Vigencia de los permisos y visados. Los permisos y visados de uso del suelo, anteproyecto, descarga de aguas pluviales y alineamiento, otorgados por el DDCU, tendrán una vigencia de un año natural desde el momento de su concesión.
+Si en el año de vigencia no se ha iniciado las obras, el interesado debe renovar el permiso para iniciar. Si la obra se inicia en el transcurso de ese año, el permiso tiene una validez de un año. Después de esto, caducará y el interesado deberá realizar de nuevo el trámite correspondiente.
+Si una vez aprobado el permiso y vencida su vigencia, el interesado no ha ejecutado las obras, deberá proceder a solicitar la renovación de la autorización, adjuntando nuevamente los requisitos que correspondan según cada caso.
+La prórroga de plazo del permiso podrá concederse por hasta otro período igual al anteriormente otorgado y podrá condicionarse o denegarse conforme a la normativa vigente a la fecha de solicitud de prórroga.
+Si el interesado ha cancelado el importe económico de impuestos por permisos de construcción y no retira los documentos correspondientes, el DDCU hará retiros de oficio al término de siete (7) días hábiles después de cancelado el impuesto, luego de lo cual se iniciará la vigencia del permiso.
+Si el contribuyente lo canceló y si se le vence el plazo del mismo la Municipalidad se lo podrá rehabilitar haciéndole un nuevo cálculo, según la tabla que rija en ese momento y rebajándole el monto cancelado anteriormente, sin embargo, deberá presentar nuevas certificaciones de estar al día en sus pagos municipales y territoriales, así como presentar la solicitud por escrito con los respectivos timbres fiscales y municipales.

@@ -1,0 +1,1 @@
+Artículo 8º—Alineamiento: Conforme al derecho de vía de la calle y el límite de propiedad indicado en el plano de catastro respectivo, la Administración mediante inspección establecerá la distancia de proximidad máxima de emplazamiento de la construcción con respecto a la vía pública. En los casos de carreteras nacionales el MOPT o el CONAVI, dispondrán sobre dicho límite.

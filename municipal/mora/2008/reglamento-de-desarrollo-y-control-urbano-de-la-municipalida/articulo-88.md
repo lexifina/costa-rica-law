@@ -1,0 +1,1 @@
+Artículo 88.—Diseño de estacionamientos en vías primarias. En estacionamientos múltiples habrá una entrada y una salida al parqueo, ambas diferenciadas y rotuladas; en la zona de antejardín se podrán ubicar parqueos con topes de protección para los peatones que utilizan la acera inmediata.

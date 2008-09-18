@@ -1,0 +1,1 @@
+Artículo 105.—La CTA es la instancia encargada para el trámite y dictamen técnico de todo proyecto de urbanización, condominio (residencial y comercial), comercio, servicio o industria de impacto urbano en el cantón de Mora.

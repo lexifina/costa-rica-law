@@ -1,0 +1,1 @@
+Artículo 107.—Procedimientos: La CTA mediante evaluación de cada proyecto elaborará y rendirá un dictamen y recomendaciones que deberá ser puesto en conocimiento de la instancia administrativa correspondiente.

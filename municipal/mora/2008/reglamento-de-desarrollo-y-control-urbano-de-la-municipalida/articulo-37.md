@@ -1,0 +1,2 @@
+Artículo 37.—Las demoliciones cumplirán lo estipulado en la Ley de Construcciones y lo dispuesto en el Capítulo V, artículos, 2, 4, 5 y 6. 28 del Reglamento de Construcciones y sus reformas.
+En aquellas solicitudes para demolición de edificaciones que presenten antecedentes históricos de interés cantonal o por razones de protección del entorno histórico arquitectónico se podrá disponer mediante dictamen técnico, su rechazo.
