@@ -1,0 +1,2 @@
+Artículo 83.—Para la emisión del carné, los entes administradores deberán considerar la estacionalidad y ciclo de los cultivos. Cuando se trate de productos de ciclo largo, el carné se otorgará con una vigencia no mayor de 6 meses, pudiendo renovarse por un período similar.
+Para extender un carné o proceder a su renovación, el Ente Emisor procederá a realizar nuevamente la inspección en la finca del interesado, o en el lugar o medio de desarrollo de la actividad que fuere.

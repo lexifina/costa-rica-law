@@ -1,0 +1,1 @@
+Artículo 80.—Se aplicará supletoriamente al presente Capítulo los principios de Derecho Registral, la Ley General de la Administración Pública y la Ley N° 7932 Ley de Centros Agrícolas Cantonales en cuanto se refiere a la inscripción y registro.

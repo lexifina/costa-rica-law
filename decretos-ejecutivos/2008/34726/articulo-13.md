@@ -1,0 +1,1 @@
+Artículo 13.—Los Participantes serán los productores agrícolas, pecuarios, pesqueros, acuicultores, forestales, avícolas, agroindustriales y artesanos, autorizados a comercializar sus productos en las ferias, ya sea como organizaciones legalmente constituidas o en forma individual.

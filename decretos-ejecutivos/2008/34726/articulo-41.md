@@ -1,0 +1,1 @@
+Artículo 41.—En caso de ausencia temporal simultánea del Presidente y del Vicepresidente, la Junta Directiva nombrará un Presidente interino. En caso de ausencia definitiva, se hará la designación que corresponda, tomando también en cuenta para tal efecto a los miembros suplentes.

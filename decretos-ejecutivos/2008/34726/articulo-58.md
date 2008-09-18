@@ -1,0 +1,1 @@
+Artículo 58.—Los Comités Regionales de conformidad con lo dispuesto en la Ley, celebrarán una Asamblea Ordinaria al año en el mes de Febrero. Podrán celebrar las Asambleas Extraordinarias que fueran requeridas para su adecuado funcionamiento.

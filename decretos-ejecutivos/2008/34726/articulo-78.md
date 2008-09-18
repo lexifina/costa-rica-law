@@ -1,0 +1,1 @@
+Artículo 78.—Una vez constituido e inscrito el Comité Regional en el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social, toda modificación de estatutos y cambio y/o renovación de su Junta Directiva y Fiscal, deberán ser debidamente acreditados con las formalidades establecidas.

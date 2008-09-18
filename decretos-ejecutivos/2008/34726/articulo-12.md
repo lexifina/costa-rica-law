@@ -1,0 +1,1 @@
+Artículo 12.—Las Organizaciones de Consumidores que serán aquellas Asociaciones que velan por la defensa de los consumidores y que podrán solicitar formar parte de los Comités Regionales en su respectiva localidad.

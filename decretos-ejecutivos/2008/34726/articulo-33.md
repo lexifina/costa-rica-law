@@ -1,0 +1,1 @@
+Artículo 33.—La Junta Nacional de Ferias del Agricultor se reunirá ordinariamente al menos dos veces por mes y de manera extraordinaria cuando lo requieran las circunstancias y a través de las instancias facultadas para ello, convocatoria que deberá realizarse con al menos cinco días de anticipación y por escrito.

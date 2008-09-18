@@ -1,0 +1,1 @@
+Artículo 2º—Únicamente se permitirá la venta en las ferias, a los productores y organizaciones que comercialicen productos de origen Nacional y que cumplan con los requisitos mencionados en el presente Reglamento, prohibiéndose la participación de intermediarios.

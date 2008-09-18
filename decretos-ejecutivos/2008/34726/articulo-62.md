@@ -1,0 +1,1 @@
+Artículo 62.—Una vez electos los miembros de la Junta Directiva, estos se reunirán en sesión aparte para la designación de sus puestos en un plazo no mayor de ocho días naturales posterior a la celebración de la Asamblea. La misma deberá quedar integrada por un Presidente, Vicepresidente, Secretario, Tesorero y Vocales.

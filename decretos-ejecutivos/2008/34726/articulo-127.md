@@ -1,0 +1,1 @@
+Artículo 127.—Queda terminantemente prohibida la venta de cualquier artículo o producto de orden artesanal o agroindustrial, que no se encuentre expresamente autorizado en el presente Reglamento de conformidad con lo indicado en el artículo anterior.

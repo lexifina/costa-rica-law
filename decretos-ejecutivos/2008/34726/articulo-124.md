@@ -1,0 +1,1 @@
+Artículo 124.—Cada pequeño artesano o agroindustrial tendrá derecho a carnés auxiliares, únicamente si la producción lo amerita y exclusivamente en favor de familiares en primer grado de consanguinidad y afinidad.

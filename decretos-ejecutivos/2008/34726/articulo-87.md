@@ -1,0 +1,1 @@
+Artículo 87.—Para obtener el carné, toda Organización de Productores o Productor Individual, deberá llenar una solicitud ante el Ente Emisor adscrito a la localidad donde se encuentra la producción. Los carnés de identificación para cada participante serán entregados previa inspección y pago de la cuota respectiva por concepto de dicha inspección.

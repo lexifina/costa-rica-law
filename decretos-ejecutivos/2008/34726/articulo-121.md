@@ -1,0 +1,1 @@
+Artículo 121.—En los casos de venta de huevos, estos deberán de venderse secos y limpios, respetando las normativas del Ministerio de Salud y contar con un recipiente con tapa para desechar los que se quiebran. Estará prohibida la venta de huevos dedicados a la reproducción.

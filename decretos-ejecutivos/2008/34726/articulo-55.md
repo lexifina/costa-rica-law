@@ -1,0 +1,1 @@
+Artículo 55.—Una vez efectuada la Asamblea constitutiva, se levantará un acta que se remitirá para efectos de inscripción al Registro de Organizaciones Sociales, del Ministerio de Trabajo y Seguridad Social.

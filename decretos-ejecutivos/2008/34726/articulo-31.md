@@ -1,0 +1,1 @@
+Artículo 31.—Constituida la Junta Nacional de Ferias del Agricultor, se procederá a inscribirla en el Departamento de Organizaciones Sociales, del Ministerio de Trabajo y Seguridad Social y formará parte del Registro de Organizaciones Sociales de dicho Ministerio.

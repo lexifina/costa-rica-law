@@ -1,0 +1,1 @@
+Artículo 114.—EL Comité Regional y el Instituto Costarricense de Pesca y Acuicultura, estarán facultados para realizar visitas cuando lo consideren necesario, a los criadores o pescadores registrados a fin de corroborar la información por ellos suministrada ante el Ente Emisor.

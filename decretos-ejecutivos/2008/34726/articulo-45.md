@@ -1,0 +1,1 @@
+Artículo 45.—La Junta Nacional de Ferias del Agricultor queda facultada para asistir a las sesiones de los Comités Regionales cuando así lo considere conveniente, en su condición de rector y fiscalizador del Programa, teniendo derecho a voz, pero no a voto, para lo cual la Junta designará a un representante debidamente acreditado de manera escrita.

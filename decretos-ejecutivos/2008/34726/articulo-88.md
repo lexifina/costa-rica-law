@@ -1,0 +1,1 @@
+Artículo 88.—El Ente Emisor de Carné contará con un plazo máximo de un mes para la inspección y emisión del carné. Dicho plazo correrá a partir de la solicitud y una vez que hayan sido cumplidos los requisitos establecidos para ello.

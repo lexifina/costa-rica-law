@@ -1,0 +1,2 @@
+Artículo 16.—Cada local de venta deberá disponer de infraestructura de exhibición adecuada para los productos, como: tarimas, mesas, vitrinas u otros materiales que permitan mantener los productos alejados del suelo, así mismo debe estar protegido por infraestructuras que eviten el daño de los productos por exposición al sol o lluvia (toldos o techos individuales).
+El techo debe ser alto y con estructuras metálicas o de otro material que sea el idóneo de acuerdo con las condiciones de la zona, con el fin de ofrecer mejores condiciones operativas y proteger los productos.

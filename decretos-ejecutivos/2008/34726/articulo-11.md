@@ -1,0 +1,1 @@
+Artículo 11.—Los Entes Emisores de Carnés serán las organizaciones encargadas de la emisión de los carnés para la participación en las ferias del Agricultor, los cuáles deberán estar legalmente constituidos como tales y autorizados para ejecutar tal función por parte del Comité Regional de Ferias del Agricultor respectivo.

@@ -1,0 +1,1 @@
+Artículo 28.—A efecto de definir políticas de carácter general, también podrán participar en estas reuniones, representantes de los diferentes Ministerios y Municipalidades involucrados en el Programa con derecho a voz pero no a voto.

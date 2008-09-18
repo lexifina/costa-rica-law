@@ -1,0 +1,1 @@
+Artículo 102.—Los Entes Emisores de carnés estarán obligados a comunicar al Comité Regional, la lista de las Organizaciones de Productores que han sido autorizadas para participar en las Ferias del Agricultor.

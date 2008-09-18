@@ -1,0 +1,1 @@
+Artículo 10.—Los Entes Administradores serán las organizaciones encargadas de administrar la o las ferias del agricultor asignadas a su cargo y deberán estar legalmente constituidos y autorizados por el Comité Regional respectivo para dicha función.

@@ -1,0 +1,1 @@
+Artículo 32.—La Junta Nacional de Ferias del Agricultor, deberá tramitar en el Registro todos los cambios sujetos a inscripción que se susciten, cumpliendo las mismas formalidades de su inscripción original.

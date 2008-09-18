@@ -1,0 +1,1 @@
+Artículo 122.—De conformidad con lo que establece el Decreto Ejecutivo Nº 26980-S, publicado en La Gaceta Nº 98 del día 22 de mayo de 1998, se prohibe la reutilización de separadores de huevos de material de cartón. En el caso de separadores plásticos podrán ser reutilizados previo lavado y desinfección.

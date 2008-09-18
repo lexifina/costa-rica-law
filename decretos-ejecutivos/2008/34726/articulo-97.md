@@ -1,0 +1,1 @@
+Artículo 97.—Las cuotas recaudadas por los Entes Emisores de Carnés y Entes Administradores de Ferias del Agricultor; podrán ser verificadas por el Comité Regional y de encontrarse alguna anomalía, se realizará el debido proceso para el descargo de los involucrados, valorándose la procedencia o no de la imposición de sanciones según la prueba recopilada al efecto.

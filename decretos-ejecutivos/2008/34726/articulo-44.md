@@ -1,0 +1,1 @@
+Artículo 44.—La Junta Nacional de Ferias del Agricultor podrá, otorgando de previo el debido proceso, acordar la suspensión de la ejecución de los actos contrarios a las directrices que hayan sido emitidas de su parte, en los ámbitos propios de su competencia.

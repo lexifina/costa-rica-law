@@ -1,0 +1,1 @@
+Artículo 30.—Los miembros de la Junta Directiva de la Junta Nacional de Ferias del Agricultor serán nombrados por un plazo de dos años y podrán ser reelectos por una única vez en forma sucesiva. La representación judicial y extrajudicial corresponderá a su Presidente.

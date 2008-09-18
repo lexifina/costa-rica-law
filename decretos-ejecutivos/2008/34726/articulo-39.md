@@ -1,0 +1,1 @@
+Artículo 39.—En las Asambleas únicamente podrán participar las organizaciones que se encuentren al día en el pago de sus obligaciones con el Programa, de acuerdo con lo que establece la Ley y el presente Reglamento.

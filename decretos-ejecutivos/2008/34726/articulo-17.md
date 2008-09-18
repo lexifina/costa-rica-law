@@ -1,0 +1,1 @@
+Artículo 17.—Se debe disponer de abastecimiento suficiente de agua potable, con instalaciones apropiadas para su almacenamiento y distribución de modo que puedan ser utilizadas en las áreas donde se requiera, con el fin de asegurarse la inocuidad de los productos alimenticios vendidos en la Feria.

@@ -1,0 +1,1 @@
+Artículo 82.—Los espacios del carné deberán ser escritos a máquina y contendrán la firma del funcionario autorizado para ello y el sello del Emisor correspondiente. No se aceptan si tienen tachaduras o borrones que limiten o cuestionen su autenticidad.

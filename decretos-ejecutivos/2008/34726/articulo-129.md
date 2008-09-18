@@ -1,0 +1,1 @@
+Artículo 129.—En caso de que se estableciera que El Ente Emisor de Carnés se encuentra especulando en el cobro de Inspección en Finca o Emisión de Carnés, el Comité Regional quedará facultado para realizar la investigación correspondiente y de ser necesario a la aplicación de la sanción que se considere procedente en atención a la falta en que se haya incurrido.

@@ -1,0 +1,1 @@
+Artículo 7º—El Ministerio de Trabajo y Seguridad Social a través del Departamento de Organizaciones Sociales será la Institución encargada de registrar como personas jurídicas a la Junta Nacional de Ferias y a los Comités Regionales.

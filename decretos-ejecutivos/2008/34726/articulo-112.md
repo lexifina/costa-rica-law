@@ -1,0 +1,1 @@
+Artículo 112.—Las Organizaciones de Pescadores que deseen participar en las ferias, deberán ajustarse a lo establecido en Capítulo X Sección II del presente Reglamento. Los carnés emitidos en favor de Organizaciones de Pescadores sólo podrán ser utilizados por asociados de la Organización.

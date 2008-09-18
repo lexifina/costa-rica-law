@@ -1,0 +1,1 @@
+Artículo 50.—Corresponderá a cada Comité Regional mediante Asamblea, la elección de una Junta Directiva cuyos integrantes deberán contar con su respectivo suplente, su nombramiento será por un período de dos años y podrán ser reelegidos.

@@ -1,0 +1,1 @@
+Artículo 120.—El Comité Regional en coordinación con el Ente Emisor, quedan facultados para realizar las investigaciones, inspecciones o solicitar la información que respalde el otorgamiento de los carnés.

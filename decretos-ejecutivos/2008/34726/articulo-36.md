@@ -1,0 +1,1 @@
+Artículo 36.—La Junta Nacional de Ferias de conformidad con lo dispuesto en el artículo 16 inciso k) de la Ley, celebrará dos Asambleas Ordinarias anuales en los meses de marzo y setiembre y los Comités Regionales una Asamblea ordinaria al año en el mes de Febrero. Podrán celebrar las Asambleas Extraordinarias que fueran necesarias para su adecuado funcionamiento.

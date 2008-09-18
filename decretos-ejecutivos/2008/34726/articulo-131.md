@@ -1,0 +1,1 @@
+Artículo 131.—Al funcionario del Comité Regional, que valiéndose de sus facultades otorgue algún beneficio de manera irregular, previa comprobación del hecho e instauración del debido proceso; se hará acreedor a las sanciones laborales pertinentes de conformidad con la gravedad del hecho ocurrido, lo cual podría inclusive llegar a catalogarse como “falta grave”.

@@ -1,0 +1,1 @@
+Artículo 9º—Los Comités Regionales serán las Organizaciones que velarán por la aplicación adecuada de la Ley de Ferias del Agricultor y el presente Reglamento en la región o jurisdicción de acuerdo a su ámbito de acción.

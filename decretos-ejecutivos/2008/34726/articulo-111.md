@@ -1,0 +1,1 @@
+Artículo 111.—Si la producción lo amerita, podrán extenderse un total de hasta dos carnés de vendedor auxiliar de conformidad con lo dispuesto en el artículo 33 de la Ley Nº 8533 del 18 de julio de 2006, Ley de la Regulación de las Ferias del Agricultor.

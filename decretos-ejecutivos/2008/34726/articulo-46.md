@@ -1,0 +1,18 @@
+Artículo 46.—Serán funciones de la Junta Nacional de Ferias del Agricultor:
+1) Evaluar la gestión de todas las partes integrantes del Programa Nacional.
+2) Velar por el cumplimiento de la Ley Nº8533 y el presente Reglamento.
+3) Resolver cuestionamientos, planteamientos, incumplimientos presentados con relación a la aplicación de la Ley y el presente Reglamento y las apelaciones que le sean elevadas por los Comités Regionales en atención a asuntos propios de su competencia.
+4) Solicitar al Consejo Nacional de Producción el asesoramiento técnico respectivo en atención a lo estipulado en la Ley de Ferias del Agricultor y el presente Reglamento.
+5) Solicitar a los Comités Regionales cualquier información referida a la actividad que se desarrolla en su área de influencia.
+6) Verificar que los acuerdos emitidos por los Comités Regionales se ajusten a las políticas emitidas de su parte.
+7) Elaborar los formatos de carnés de participación para las Ferias del Agricultor, con su respectivo sello y firma, además efectuar su cobro y distribución a través de los Comités Regionales.
+8) Oficializar los carnés de autorización de ventas en las ferias del agricultor por medio de la firma del Presidente o quién ésta designe para tal efecto y el sello respectivo. Se entenderá no válido el carné que no cuente con estos requisitos.
+9) Atender las denuncias que le sean presentadas con respecto a anomalías detectadas en la ejecución del Programa de Ferias del Agricultor, canalizándolas ante las instancias correspondientes o resolviendo lo que pueda ser de su competencia.
+10) Llevar a cabo las acciones correctivas correspondientes, en caso de que algún Comité Regional no cumpla con las disposiciones establecidas en la Ley y el presente Reglamento.
+11) Intervenir un Comité Regional cuando existan denuncias por anomalías o irregularidades en el ejercicio de las funciones de este y cuando la situación así lo amerite. En caso de intervención de un Comité Regional, la Junta coordinará con el Comité Regional más cercano a su jurisdicción, con la finalidad de que asuma temporalmente las funciones que le competen al primero, mientras se resuelve la intervención.
+12) Realizar las auditorias que considere necesarias a los Comités Regionales, Entes Administradores de Ferias y Entes Emisores de Carnés, así como solicitar toda la información que sea requerida para tal propósito.
+13) Otorgar el aval a los proyectos de inversión que los entes involucrados en el Programa Nacional de Ferias del Agricultor pretendan presentar a entidades financieras en general, cuyo objetivo sea el mejoramiento de este Programa.
+14) Asistir a las sesiones de las Juntas Directivas de las organizaciones integrantes del Programa Nacional de Ferias del Agricultor, cuando se traten asuntos relacionados con este Programa.
+15) Realizar al menos una vez al año un censo en el campo ferial de cada una de las Ferias del Agricultor a nivel nacional, para verificar cantidad de espacios, supervisión administrativa, transformación del campo Ferial, entre otros.
+16) Convocar y aportar la agenda para la realización de al menos una Asamblea anual, con la participación de todos los miembros de la Junta Directiva de cada uno de los Comités Regionales, donde se revisarán las políticas a seguir para determinar su aplicabilidad y forma de evaluación; así como los planes, proyectos y otros aspectos relevantes en las actividades desarrolladas en el Programa Nacional de Ferias del Agricultor.
+17) Preparar un plan de capacitación y su correspondiente implementación a los entes involucrados en el Programa Nacional de Ferias del Agricultor, de acuerdo a los planes de los Comités Regionales.

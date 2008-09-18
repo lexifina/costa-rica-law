@@ -1,0 +1,1 @@
+Artículo 57.—Las convocatorias a Asambleas Ordinarias se realizarán al menos con quince días naturales de anticipación y serán dirigidas a todos los involucrados en el proceso a través de invitación personal debidamente notificada.

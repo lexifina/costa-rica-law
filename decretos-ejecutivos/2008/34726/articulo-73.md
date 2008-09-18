@@ -1,0 +1,2 @@
+Artículo 73.—El Registro será público y certificará los datos que aparezcan en la inscripción correspondiente a quien lo solicite. Una vez inscrita la Junta Nacional de Ferias del Agricultor, deberá tramitarse en este mismo Registro, todos los cambios sujetos a inscripción que se susciten cumpliendo las mismas formalidades de su inscripción original.
+Cuando existieren defectos de fondo en los documentos presentados, el registrador lo comunicará a los interesados para que sean subsanados y los defectos de forma serán corregidos de oficio por el registrador.
