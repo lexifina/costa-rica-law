@@ -1,0 +1,2 @@
+Artículo 3º—El INFOCOOP emitirá la clasificación oficial de las cooperativas y organismos cooperativos de segundo grado, de conformidad con lo establecido en el artículo 139, incisos b) y f) de la Ley de Asociaciones Cooperativas y creación del INFOCOOP.
+El INFOCOOP incluirá en este padrón únicamente a las cooperativas y organismos cooperativos de segundo grado cuyo funcionamiento se encuentre ajustado a las disposiciones de la Ley de Asociaciones Cooperativas y creación del INFOCOOP, de conformidad con los criterios de verificación que para tal efecto definirá el INFOCOOP.

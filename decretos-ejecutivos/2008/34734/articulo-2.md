@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Trabajo y Seguridad Social, de previo a la inscripción y autorización de la personería jurídica de una cooperativa u organismo cooperativo de segundo grado, deberá solicitar el criterio técnico mencionado en el artículo anterior a quien corresponda (INFOCOOP o Comisión Permanente de Cooperativas de Autogestión).

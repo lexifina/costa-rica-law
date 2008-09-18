@@ -1,0 +1,1 @@
+Artículo 4º—En la clasificación oficial de cooperativas y organismo de segundo grado indicada en el artículo anterior, el INFOCOOP realizará una verificación del Estatuto Social de cada entidad cooperativa con el fin de ubicarla en el modelo o clase que más se ajuste al referido Estatuto, independientemente de la denominación con que se encuentre inscrito.
