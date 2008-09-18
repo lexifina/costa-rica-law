@@ -13,3 +13,4 @@ Remisión de asuntos al Centro de Conciliación del Poder Judicial y sus sedes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-27 | la propia norma |
+| 2 | 2008-09-18 | Circular 167 (2008-09-18) |
