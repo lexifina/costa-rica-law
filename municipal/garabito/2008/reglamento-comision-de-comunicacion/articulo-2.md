@@ -1,0 +1,1 @@
+Artículo 2º—Funciones. Dicha Comisión conocerá todos los asuntos relacionados con la comunicación y la imagen de la Municipalidad de Garabito, las políticas de información, vocería y crisis del Municipio, así como las respuestas oficiales tanto del Concejo Municipal como de la Alcaldía.

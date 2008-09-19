@@ -1,0 +1,1 @@
+Artículo 4º—Asistentes no miembros. Los demás miembros del Concejo Municipal podrán asistir a las reuniones de esta Comisión y solicitarle al Presidente la palabra, para expresar su posición con respecto a un asunto. En esos casos, los asistentes no miembros no tendrán voto.
