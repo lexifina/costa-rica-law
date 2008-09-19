@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de la Auditoría Interna. Este Reglamento aplica a todas las dependencias de la Municipalidad de Hojancha, así como otras organizaciones públicas o privadas, en el tanto manejen por cualquier título fondos públicos que les sean transferidos por dicho Municipio.
