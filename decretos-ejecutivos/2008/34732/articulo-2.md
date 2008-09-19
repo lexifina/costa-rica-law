@@ -1,0 +1,1 @@
+Artículo 2º—El ICT y el INCOP serán los encargados de coordinar el proceso de financiamiento, planeamiento y construcción del balneario y sus instalaciones turísticas complementarias, con los recursos provenientes del Fideicomiso ICT-INCOP-BNCR.
