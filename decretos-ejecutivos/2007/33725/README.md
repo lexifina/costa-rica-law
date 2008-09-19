@@ -16,3 +16,4 @@ Pone en vigencia Resolución Nº 188-2006 (COMIECO XL): Reglamento Técnico Cent
 | 1 | 2007-11-29 | la propia norma |
 | 2 | 2007-11-29 | Decreto Ejecutivo 34505 (2007-11-26) |
 | 3 | 2008-06-06 | Decreto Ejecutivo 34898 (2008-06-06) |
+| 4 | 2008-09-19 | Decreto Ejecutivo 35024 (2008-09-19) |

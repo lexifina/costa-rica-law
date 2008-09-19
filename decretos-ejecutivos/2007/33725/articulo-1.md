@@ -1,4 +1,4 @@
-(Nota: Mediante el artículo 1° del decreto ejecutivo N° 34898 de 6 de junio de 2008, se publica la resolución N° 228-2008 (COMIECO), la cual prorroga por tres (3) meses el inicio de la vigencia de la Resolución N ° 188-2006 (COMIECO-XL) que se aprueba en este decreto, de tal forma que comenzará a regir a partir del 16 de agosto de 2008).
+(Nota: Mediante el artículo 1° del decreto ejecutivo N° 35024 de 19 de setiembre de 2008, se publica la resolución N° 235-2008 (COMIECO-LI), la cual prorroga por quince (15) meses improrrogables el inicio de la vigencia de la Resolución N ° 188-2006 (COMIECO-XL) que se aprueba en este decreto. De conformidad con lo anterior y de acuerdo con el artículo 2 del referido decreto esta resolución entrará en vigencia a partir del 16 de noviembre del 2009)
 Nº 33725
 EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE COMERCIO EXTERIOR
 LA MINISTRA DE SALUD, Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
