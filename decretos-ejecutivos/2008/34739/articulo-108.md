@@ -1,0 +1,2 @@
+Artículo 108.- Medidas preventivas.
+En cualquiera de los supuestos previstos por el artículo 105 el presente Reglamento y previo al inicio del procedimiento señalado en el artículo 106 de este Reglamento, la Aduana de Control podrá proceder, como medida preventiva, a la retención y aprehensión de la mercancía y su traslado a un recinto bajo control de la aduana o cualquier otra medida razonable que garantice su salvaguarda y custodia.

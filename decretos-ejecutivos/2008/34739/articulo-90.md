@@ -1,0 +1,2 @@
+Artículo 90.- Informe de subcontratación
+La empresa subcontratante deberá presentar en el Informe Anual, un detalle de los resultados generados a esa fecha por la subcontratación, en el formato diseñado al efecto por PROCOMER que incluya una declaración jurada rendida por el representante legal que indique que las materias y mercancías fueron devueltas a la empresa subcontratante dentro del plazo establecido de seis meses.

@@ -1,0 +1,2 @@
+Artículo 96.- Tránsito aduanero y traslados
+Las empresas beneficiarias que hayan ingresado vehículos y unidades de transporte al amparo del Régimen, los cuales cumplan con las condiciones técnicas y de seguridad indicadas en la Ley General de Aduanas y su reglamento, en materia de tránsito aduanero, podrán declarar y realizar con dichos vehículos el tránsito aduanero interno y traslados de materias, mercancías, maquinaria y equipo, relacionados con la actividad de la empresa beneficiaria.

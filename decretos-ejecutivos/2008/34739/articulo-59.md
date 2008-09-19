@@ -1,0 +1,3 @@
+Artículo 59.- Ingreso efectivo del vehículo y unidad de transporte al Régimen
+Para hacer efectivo el ingreso del vehículo y/o unidad de transporte al Régimen, una vez que la exoneración haya sido otorgada por el Ministerio de Hacienda, el beneficiario deberá confeccionar una Declaración Aduanera de Zona Franca a la cual le deberá adjuntar la exoneración aprobada.
+Una vez cumplido el trámite antes indicado y para efectos de obtener las placas de registro especial “ZFE”, el beneficiario debe solicitar a PROCOMER una constancia dirigida al Registro Nacional, en la cual se solicita la inscripción del vehículo exonerado y el otorgamiento de la citada placa.

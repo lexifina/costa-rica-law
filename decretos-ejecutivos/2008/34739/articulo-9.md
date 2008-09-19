@@ -1,0 +1,3 @@
+Artículo 9.- Inversión nueva inicial para empresas asociadas
+Las pequeñas empresas procesadoras para la exportación, entendidas como aquellas que empleen a un máximo de veinte trabajadores, pueden asociarse, según lo dispuesto en el párrafo tercero del artículo 1 de la Ley N° 7210 y sus reformas, para efectos de cumplir con el monto mínimo de inversión nueva inicial en activos fijos. En lo demás, es de aplicación a estos casos las normas contenidas en este capítulo.
+La posibilidad a que se refiere este artículo, procede únicamente respecto a empresas que vayan a instalarse en un mismo Parque de Zona Franca.

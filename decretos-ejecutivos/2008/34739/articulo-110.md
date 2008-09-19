@@ -1,0 +1,3 @@
+Artículo 110. - Envases, empaques y embalajes
+En cualquier momento los beneficiarios del Régimen podrán deshacerse libremente de los envases, empaques y embalajes que han sido utilizados en el transporte de las materias primas, mercancías, maquinaria y equipo adquiridos al amparo del Régimen, ya sea reexportándolos, destruyéndolos, donándolos, reciclándolos o nacionalizándolos, para lo cual deberá ajustarse a las regulaciones legales y reglamentarias que resulten aplicables.
+Para ello el beneficiario deberá dejar constancia de dichas operaciones en sus registros, de manera tal que la autoridad aduanera pueda verificar en cualquier momento el destino de tales envases, empaques y embalajes.

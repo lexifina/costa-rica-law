@@ -1,0 +1,2 @@
+Artículo 117.- Efectos de la fusión sin previo aviso
+Cuando dos o más empresas beneficiarias del Régimen se fusionen sin cumplir el trámite previsto en el artículo anterior, la nueva empresa o la que prevalezca, deberá cumplir con el nivel de empleo e inversión de todas las beneficiarias. El acuerdo de otorgamiento que autoriza la fusión deberá contemplar la suma de dichos niveles de inversión y empleo. Para efectos de calcular el plazo de los incentivos del Régimen se tomará el contemplado por el acuerdo de otorgamiento de la que presente el ingreso más antiguo al Régimen.

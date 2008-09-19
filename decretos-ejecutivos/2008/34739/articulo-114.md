@@ -1,0 +1,3 @@
+Artículo 114.- Desechos de bienes bajo regulaciones especiales
+Cuando se trate de bienes internados al amparo del Régimen que requieran un proceso especial para ser destruidos, desechados, o reciclados, por el riesgo que representan para el ambiente, la beneficiaria deberá contratar tal proceso con una empresa técnicamente capacitada para ese fin; ello cuando no pueda hacerlo por si misma, o bien, cuando la Municipalidad no cuente con los recursos o métodos adecuados para disponer de dicho material adecuadamente.
+La comunicación y participación de la autoridad aduanera se efectuará de conformidad con las regulaciones establecidas en el artículo 111.

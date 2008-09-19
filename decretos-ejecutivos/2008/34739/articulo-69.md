@@ -1,0 +1,6 @@
+CAPÍTULO XI
+Disposiciones especiales sobre los incentivos
+Artículo 69.- Empresas o proyectos de inversión ya beneficiados con los incentivos
+No se otorgará el Régimen para el desarrollo u operación de empresas o proyectos de inversión ya beneficiados con los incentivos del Régimen, aún cuando lo haya sido al amparo de una persona física o jurídica distinta, salvo que se demuestre que es un proyecto nuevo o, en casos excepcionales, cuando la naturaleza o la magnitud de las inversiones adicionales lo justifiquen a juicio de COMEX.
+Para la apreciación de los supuestos establecidos en este artículo, dicho Ministerio podrá utilizar todo tipo de elementos de juicio que le permitan determinar si las empresas o proyectos que solicitan su ingreso al Régimen ya fueron beneficiados con los incentivos del Régimen, o bien para concluir que se trata de proyectos nuevos o excepcionales que por su naturaleza o la magnitud de la inversión que proponen sí pueden ser admitidos.
+Para determinar que se trata de un proyecto nuevo, se tomará en cuenta la ubicación, el proceso productivo, los bienes o servicios producidos y otros elementos similares. Además, tanto tratándose de inversiones adicionales como de proyectos nuevos, deberá cumplirse al menos 78 con los requisitos mínimos de inversión nueva inicial establecidos en el Capítulo II de este Reglamento.

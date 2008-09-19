@@ -1,0 +1,2 @@
+Artículo 45.- Verificación de las obligaciones tributarias y/o aduaneras de la empresa beneficiaria
+Para verificar que la empresa beneficiaria no tenga procedimientos administrativos ni obligaciones tributarias y/o aduaneras pendientes, derivadas del Régimen, PROCOMER solicitará las certificaciones correspondientes a la Dirección, a la Dirección General de Tributación y a la Dirección General de Hacienda.

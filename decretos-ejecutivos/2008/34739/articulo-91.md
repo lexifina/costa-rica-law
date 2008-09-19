@@ -1,0 +1,3 @@
+Artículo 91.-Efectos de la no presentación del informe de subcontratación
+Si la empresa beneficiaria subcontratante no presenta el informe al que hace referencia el artículo anterior o no ha cumplido con los términos en que fue autorizada la subcontratación, PROCOMER podrá revocar la autorización y deberá informar a COMEX para el inicio del procedimiento correspondiente.
+A efectos de que la autoridad aduanera ejerza los controles pertinentes sobre las mercancías objeto de subcontratación, PROCOMER deberá comunicar de inmediato a la Aduana de Control sobre el incumplimiento de la empresa beneficiaria.

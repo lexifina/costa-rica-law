@@ -1,0 +1,2 @@
+Artículo 61.- Uso de vehículos o unidades de transporte en actividades no autorizadas
+El uso del vehículo y/o unidades de transporte en actividades no autorizadas o por personas distintas de las autorizadas por el beneficiario, será causal de pérdida del beneficio otorgado de conformidad con el artículo 20 inciso b) de la Ley de Régimen de Zonas Francas y dará lugar a la detención del automotor por las autoridades competentes para ello.

@@ -1,0 +1,4 @@
+Artículo 39. Modalidades de deshabilitación
+Una vez recibida por parte de la Dirección la documentación con los resultados de la inspección, ésta tramitará la solicitud de deshabilitación del área, conforme a los parámetros siguientes:
+a) Cierre de una de las ubicaciones de la empresa: La solicitud de cierre de una de las ubicaciones procederá cuando la empresa pretenda deshabilitar una de sus ubicaciones y seguir operando al amparo del Régimen en las restantes. En este caso, la Dirección, siguiendo el procedimiento establecido en el presente Capítulo procederá a inhabilitar el código de ubicación.
+b) Reducción del área de la empresa: La solicitud de reducción de área procederá cuando la empresa pretenda disminuir el tamaño de una de sus ubicaciones. En este caso debe mantenerse el código otorgado para la ubicación cuya área se verá disminuida.

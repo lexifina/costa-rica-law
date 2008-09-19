@@ -1,0 +1,3 @@
+Artículo 77.-Declaración jurada del Impuesto General sobre las ventas
+Para efectos de la confección de la Declaración jurada del Impuesto General sobre las ventas (formulario D-104), el proveedor nacional reportará las ventas realizadas a empresas beneficiarias del Régimen en la casilla correspondiente a ventas por exportaciones, de manera que las mismas no formarán parte de la base imponible.
+El proveedor nacional deberá agregar a sus respectivos registros especiales de ventas, requeridos en la legislación del Impuesto General sobre las Ventas, la información sobre número de orden de compra o documento equivalente emitido por la empresa de zona franca y su fecha; cuando sus clientes sean empresas acogidas al Régimen.

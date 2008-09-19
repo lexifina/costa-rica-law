@@ -1,0 +1,4 @@
+Artículo 22.- Asociación de empresas procesadoras
+Tratándose de pequeñas empresas que vayan a asociarse para realizar actividades procesadoras para la exportación, las empresas que se asocien deben constituir una persona jurídica única, o bien designar contractualmente a una de las empresas que será la solicitante.
+En este último caso, deberá presentarse con la solicitud copia del acuerdo consorcial respectivo, en el que se delimiten claramente las obligaciones y responsabilidades de cada empresa asociada. Sin excepción, las empresas asociadas deberán instalarse en un mismo Parque de Zona Franca.
+En los casos en que se designe a una empresa como solicitante, todas las empresas asociadas se considerarán como beneficiarias del Régimen, para efectos del cumplimiento de las obligaciones y la aplicación de las sanciones contempladas en la Ley Nº 7210 y sus reformas, demás leyes y reglamentos aplicables.

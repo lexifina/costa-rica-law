@@ -1,0 +1,2 @@
+Artículo 47.- Destino de los bienes ingresados al amparo del Régimen
+En un plazo máximo de quince días hábiles contados a partir del momento en que se notifique el Acuerdo Ejecutivo que autoriza la sustitución, la empresa sustituida deberá proceder a reexportar, importar definitivamente y/o traspasar a la empresa sustituta los bienes ingresados al amparo del Régimen. Caso contrario, se procederá con la aplicación de las disposiciones contempladas en el artículo 56 de la Ley General de Aduanas.

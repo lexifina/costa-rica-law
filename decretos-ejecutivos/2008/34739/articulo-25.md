@@ -1,0 +1,3 @@
+Artículo 25.-Infraestructura mínima de parque de empresas procesadoras o mixto
+Se considera como infraestructura mínima para que un Parque de Zona Franca pueda ser autorizado, aquel que tiene capacidad para que se puedan instalar al menos doce empresas acogidas al Régimen, ya sea exclusivamente empresas procesadoras para la exportación o junto con empresas de otras categorías previstas en el artículo 17 de la Ley 7210 y sus reformas. Lo anterior, debidamente comprobado a satisfacción de PROCOMER.
+En los casos a que se refiere el artículo 22 de este Reglamento, se tomará en cuenta, para efectos del párrafo anterior, a las empresas asociadas como una sola.

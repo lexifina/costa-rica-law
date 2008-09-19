@@ -1,0 +1,2 @@
+Artículo 99.-Formularios de Declaración Aduanera de Zona Franca
+PROCOMER proveerá los formularios de Declaración Aduanera de Zona Franca, los cuales deben ser numerados consecutivamente. PROCOMER llevará un registro de fórmulas suplidas, utilizadas y nulas, si las hubiera, por beneficiario. Lo anterior sin perjuicio de los medios electrónicos que puedan ser implementados para la tramitación de las declaraciones aduaneras.

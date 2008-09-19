@@ -1,0 +1,2 @@
+Artículo 26.- Infraestructura mínima de parque de empresas proveedoras de servicios o comercializadoras
+Se considera como infraestructura mínima para que un parque destinado exclusivamente a empresas proveedoras de servicios y/o comercializadoras pueda ser autorizado como zona 35 franca, que el parque propuesto tenga un área total disponible de construcción de al menos cuatro mil metros cuadrados, destinados a la instalación de empresas acogidas al Régimen. Lo anterior debidamente comprobado, a satisfacción de PROCOMER.

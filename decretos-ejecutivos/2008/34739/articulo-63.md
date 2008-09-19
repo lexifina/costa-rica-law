@@ -1,0 +1,17 @@
+Artículo 63.- Obligaciones adicionales para las empresas Administradoras de Parque
+Adicionalmente, son obligaciones de las empresas Administradoras de Parque, las siguientes:
+a. Notificar a la Aduana de Control y a PROCOMER de la existencia de cualquier cambio de local, alquiler de nuevas bodegas o cualquier movimiento anormal de las empresas instaladas en el parque.
+b. Mantener un registro actualizado de las empresas instaladas en el Parque.
+c. En caso de suspensión de beneficios o de suspensión como auxiliar de la función pública aduanera a empresas beneficiarias instaladas en el Parque, deberá impedir la salida de mercancías sin previa autorización de COMEX o de la Aduana de Control, según corresponda. En ambos casos dichos órganos deberán informar a la empresa administradora de la suspensión decretada.
+d. Aplicar las circulares que emita la Dirección en lo que le compete como Auxiliar de la Función Pública Aduanera.
+e. Ante el cese de actividades de una empresa instalada en el parque, notificar de inmediato al puesto de aduanas, a la Dirección y PROCOMER.
+f. Dotar al puesto de aduanas de las líneas telefónicas requeridas para su comunicación.
+g. Dotar al puesto de aduanas del equipo, mobiliario y servicios necesarios para su normal funcionamiento.
+h. Dotar al Parque de un cuerpo de vigilancia que garantice la seguridad de bienes y personas dentro de ella y que vele porque se cumplan las disposiciones sobre ingreso, permanencia y salida de personas, vehículos y mercancías, y velar por su correcto funcionamiento.
+i. Contar desde el inicio de operaciones con un reglamento general sobre el funcionamiento del Parque que contemple las disposiciones relacionadas con las obligaciones de la empresa administradora del Parque, las obligaciones de las empresas ubicadas en él, procedimientos aplicables en el control de ingreso y salida de materias y mercancías, personas, vehículos y unidades de transporte, control de los servicios prestados por el Parque y demás regulaciones que deban ser observadas por él, de conformidad con la legislación vigente. Este Reglamento debe comunicarse a los usuarios y colocarse en un lugar visible en el Parque; además deberá tenerse a disposición de PROCOMER, la Dirección y la Aduana de Control, cuando sea requerido. La empresa administradora de Parque debe realizar actividades de capacitación dirigidas a las empresas beneficiarias instaladas en él y a los vigilantes, sobre los alcances de dicho reglamento y velar por el correcto cumplimiento de las disposiciones establecidas en él.
+j. Mantener en condiciones adecuadas el acceso al Parque y sus vías.
+k. Ejecutar el proyecto con estricto apego a los términos del acuerdo de otorgamiento.
+l. Prestar los servicios en forma eficiente a los beneficiarios instalados en el Parque. Para tales efectos, deberá efectuar anualmente un estudio de satisfacción de los servicios prestados a las empresas beneficiarias que se ubican en el parque y presentarlo junto con el informe anual a PROCOMER.
+m. Velar por la correcta aplicación de las leyes y reglamentos relativos a la administración y el funcionamiento del parque.
+n. Destinar un local para que los trabajadores reciban capacitación, celebren reuniones y asambleas, el cual se deberá mantener en buenas condiciones.
+ñ. Acatar las demás disposiciones legales y reglamentarias aplicables, así como las que permita PROCOMER y la Dirección en las áreas de su competencia.

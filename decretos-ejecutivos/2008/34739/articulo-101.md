@@ -1,0 +1,2 @@
+Artículo 101.- Transmisión de la declaración aduanera de zona franca
+En estos casos, igualmente el beneficiario debe transmitir a la Aduana de Control la correspondiente Declaración Aduanera de Zona Franca y someter la mercancía a la revisión que disponga el sistema selectivo y aleatorio. En la Declaración Aduanera se consignará el plazo requerido para la permanencia de las materias y mercancías internadas temporalmente al territorio aduanero nacional.

@@ -1,0 +1,3 @@
+Artículo 79.-Respaldo de la venta de servicios, materias y mercancías
+Para respaldar la venta a un beneficiario del Régimen, el proveedor nacional de servicios, materias y mercancías necesitará la orden de compra o el documento equivalente, según se regula en el artículo 76 del presente Reglamento. El proveedor deberá conservar en debido orden la copia de las facturas con el recibido conforme de las empresas de zonas francas.
+La factura de venta del proveedor nacional deberá indicar además de los datos usuales la referencia al número y fecha de la orden de compra del beneficiario o de su documento equivalente.

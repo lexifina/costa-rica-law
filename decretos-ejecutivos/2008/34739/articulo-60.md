@@ -1,0 +1,8 @@
+Artículo 60.-Condiciones para el uso de vehículos y unidades de transporte
+Las empresas beneficiarias deberán cumplir con las siguientes condiciones de uso de los vehículos y unidades de transporte exonerados:
+a. Mantener inscritos ante la Dirección, los vehículos y unidades de transporte que serán utilizados dentro del Régimen.
+b. Utilizar los vehículos y las unidades de transporte, única y exclusivamente en las labores directamente relacionadas con la actividad de la empresa beneficiaria.
+c. Rotular los vehículos y unidades de transporte con un distintivo permanente, visible en ambas puertas delanteras cuando corresponda o en otro lugar visible, el cual indicará el emblema o logotipo y el nombre de la empresa beneficiaria así como la leyenda “Uso exclusivo de zona franca”. Dicho distintivo deberá contar como mínimo con las siguientes dimensiones: treinta centímetros de largo por veinte centímetros de ancho, con letras de dos centímetros de altura como mínimo. Los colores del distintivo deberán contrastar con el color del vehículo y unidades de transporte, de forma que resulten observables a simple vista.
+d. Portar las placas de registro especial, otorgadas por el Registro Nacional.
+e. Ser conducidos por las personas autorizadas por la empresa beneficiaria debidamente inscritas ante la Dirección, en labores directa y estrictamente relacionadas con su operación, administración, producción y transporte. En tales casos, el conductor deberá portar en el vehículo o unidad de transporte la correspondiente autorización de uso emitida por el representante legal del beneficiario.
+f. Llevar un registro actualizado de las personas autorizadas por la Dirección, para conducir los vehículos y las unidades de transporte de la empresa beneficiaria.
