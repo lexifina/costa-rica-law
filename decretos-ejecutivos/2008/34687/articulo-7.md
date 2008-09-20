@@ -1,0 +1,1 @@
+Artículo 7º—El sistema de muestreo, interpretación de resultados y metodología a ser empleada para determinar el cumplimiento de los parámetros establecidos en este Decreto se publicará en el Diario Oficial La Gaceta, mediante directriz administrativa emitida por la Dirección General del SENASA y que obligatoriamente se hará constar en la página digital de dicho organismo.

@@ -1,0 +1,1 @@
+Artículo 2º—Es obligación de todo procesador de alimentos mantener los controles de proceso para reducir los riesgos sobre la salud de las personas. Este decreto no exime al procesador de alimentos de establecer y ejecutar un programa propio de monitoreo de residuos y agentes microbiológicos.
