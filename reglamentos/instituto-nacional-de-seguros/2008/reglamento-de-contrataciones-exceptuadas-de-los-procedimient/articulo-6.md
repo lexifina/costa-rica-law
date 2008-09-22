@@ -1,0 +1,1 @@
+Artículo 6º—Competencia. Las Unidades Usuarias tramitarán únicamente las contrataciones propias de su competencia, salvo cuando por una situación justificada la Gerencia o Presidencia Ejecutiva dispongan otra cosa.

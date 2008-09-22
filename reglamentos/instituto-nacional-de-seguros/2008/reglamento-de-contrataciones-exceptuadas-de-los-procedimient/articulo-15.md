@@ -1,0 +1,1 @@
+Artículo 15.—Contratos de fideicomiso de cualquier índole cuando funja tanto como fideicomitente, fiduciario o fideicomisario. Este tipo de contrataciones independientemente de la cuantía requerirá revisión previa de la Dirección Jurídica, su tramitación se realizará conforme al procedimiento expuesto en este Reglamento.
