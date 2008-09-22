@@ -1,0 +1,3 @@
+CAPÍTULO III
+Sistema de Consultas
+Artículo 10.—Consulta a organizaciones. La Dirección General con el apoyo de la Dirección Administrativa, la Comisión de Salud Ocupacional, la Unidad de Desarrollo Estratégico Institucional y las diferentes Direcciones del Registro Nacional, coordinará la consulta con las organizaciones de personas con discapacidad y de adultas mayores y las entidades rectoras en materia de discapacidad y atención a la persona adulta mayor, a efecto de que sus organizaciones legalmente constituidas, nos informen sobre los requerimientos técnicos para promover un mayor bienestar de sus representados.

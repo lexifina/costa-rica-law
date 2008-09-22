@@ -1,0 +1,1 @@
+Artículo 9º—Evaluación de servicios. La Contraloría de Servicios, del Registro Nacional, será encargada de velar y supervisar y evaluar la efectiva prestación de los servicios, a favor de todos los usuarios internos y externos, incluyendo las personas con discapacidad, estado de gravidez y personas adultas mayores.

@@ -1,0 +1,2 @@
+Artículo 11.—Plazos para evaluar la política: La Dirección General evaluará durante la primera semana de los meses de enero y julio de cada año, en coordinación con la Comisión de Salud Ocupacional, el cumplimiento de la Política Institucional y del presente Reglamento, de manera que se ejerza un control permanente sobre el cumplimiento por parte de los funcionarios relacionados con el cumplimiento de lineamientos acerca de la atención de usuarios con discapacidad, estado de gravidez y adultos mayores.
+San José, 3 de julio de 2008
