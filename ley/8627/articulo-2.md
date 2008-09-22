@@ -105,3 +105,4 @@ INDICADORES DE RESULTADOS:
 (Reformado por los artiículos 2° y 3° de la Ley 8659 del 07 de agosto de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34721 del 19 de agosto de 2008).
 (Modificado por los artículos 1° y 2° del decreto ejecutivo N° 34749 del 16 de setiembre de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34787 de 22 de setiembre de 2008).
