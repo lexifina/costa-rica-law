@@ -1,1 +1,0 @@
-Artículo 83.—De la verificación, supervisión e información. Los concesionarios estarán obligados a permitir el acceso a sus instalaciones a los inspectores de Control Nacional de Radio, así como a otorgarles la información y facilidades para que realicen sus funciones en términos de ley.

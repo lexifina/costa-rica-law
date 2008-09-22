@@ -1,1 +1,0 @@
-Artículo 103.—Del ámbito de aplicación. Las disposiciones del presente capítulo no se aplican a empresas de televisión cuando sean únicamente retransmisoras de anuncios comerciales pautados en el extranjero, y los reciban directamente del satélite como parte de señales.

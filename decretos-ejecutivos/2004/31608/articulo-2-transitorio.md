@@ -1,2 +1,0 @@
-Transitorio II.—Control Nacional de Radio deberá levantar un listado de los concesionarios de frecuencias que de conformidad con el artículo *28 del presente Reglamento deban suscribir un contrato de concesión con el Estado. Identificados los concesionarios se les citará para adecuar la concesión respectiva. Los plazos para la explotación de los servicios corren a partir de la vigencia del presente Reglamento.
-*(Así reformado por el artículo 4° del decreto ejecutivo N° 32168 del 22 de octubre del 2004)

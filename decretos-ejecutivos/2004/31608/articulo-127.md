@@ -1,1 +1,0 @@
-Artículo 127.—De los indicativos para concurso. Para efectos de concursos y certámenes de radioaficionados, Control Nacional de Radio podrá asignar indicativos especiales a los radioaficionados de categoría superior que así lo soliciten. El indicativo se asignará por el tiempo que dure el evento, utilizando prefijo "TI o TE" seguido del dígito 1 y una o dos letras.

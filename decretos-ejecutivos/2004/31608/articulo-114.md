@@ -1,4 +1,0 @@
-Artículo 114.—De la preparación de los aspirantes para examen. Control Nacional de Radio podrá delegar la preparación para los exámenes de los aspirantes a radioaficionados a las Asociaciones de Aficionados o Radio Clubes debidamente acreditados.
-Asimismo Control Nacional de Radio autorizará a personas con licencia de categoría superior, para que los aspirantes a radioaficionados puedan efectuar entrenamientos de operación, el cual deberá en todo momento estar bajo la supervisión y control del titular de la licencia, quién deberá estar presente.
-Para efecto del párrafo anterior, el interesado en la preparación de los aspirantes deberá solicitar la autorización por escrito, indicando que asume la responsabilidad de la operación. Estos permisos se otorgarán por un período de sesenta días improrrogables.
-En todo caso Control Nacional de Radio definirá e implementará la metodología a propósito en esta materia.

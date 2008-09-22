@@ -1,1 +1,0 @@
-Artículo 9º—Uso racional del espectro. Los servicios de radiocomunicación serán para una zona de cobertura determinada, pudiendo ser ésta regional o para todo el territorio nacional, de tal manera que garantice la utilización racional del espectro radioeléctrico.

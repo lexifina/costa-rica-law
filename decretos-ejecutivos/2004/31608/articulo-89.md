@@ -1,1 +1,0 @@
-Artículo 89.—Restricciones al servicio de audio por suscripción. El servicio de audio restringido no podrá incluir publicidad y únicamente podrá transmitir música, con excepción de lo dispuesto en el presente reglamento. La recepción de señales por los suscriptores sólo podrá efectuarse en aparatos fijos.

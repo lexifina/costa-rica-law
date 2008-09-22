@@ -1,1 +1,0 @@
-Artículo 12.—De la actualización tecnológica. En aras de un mejor aprovechamiento del espectro radioeléctrico, el Estado velará para que se apliquen las nuevas tecnologías que operen en el mercado y conlleven a un mejor aprovechamiento de las frecuencias, para lo cual dictará las normas que sean necesarias para el desarrollo de las nuevas tecnologías.

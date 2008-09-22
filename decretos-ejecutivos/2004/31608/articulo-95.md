@@ -1,1 +1,0 @@
-Artículo 95.—Otras autorizaciones. Los proyectos de ubicación y altura de la estructura que constituya o soporte al sistema de transmisión o recepción, observarán lo previsto en los reglamentos y disposiciones administrativas relativas a la protección de la navegación aérea y demás disposiciones aplicables y, de ser necesario, deberán obtener las autorizaciones que se trate.

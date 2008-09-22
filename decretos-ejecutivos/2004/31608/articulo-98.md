@@ -1,1 +1,0 @@
-Artículo 98.—Programación con restricción. Los concesionarios estarán en la obligación de tener a disposición de sus suscriptores la información necesaria para, de acuerdo con la tecnología disponible, bloquear discrecionalmente la señal. Asimismo brindarán la asistencia necesaria para la instalación e implementación de estos sistemas a los suscriptores que los adquieran.

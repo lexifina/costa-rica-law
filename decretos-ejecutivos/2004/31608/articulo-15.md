@@ -1,1 +1,0 @@
-Artículo 15.—Objetivos. Control Nacional de Radio tendrá como objetivos primarios la adecuada administración, planificación, registro, control del uso del espectro radioeléctrico. Se encargará de recomendar al Poder Ejecutivo la aprobación de las normas técnicas para la operación de los equipos e instalaciones en todo el territorio nacional.

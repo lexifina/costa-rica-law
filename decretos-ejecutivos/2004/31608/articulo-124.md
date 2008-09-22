@@ -1,1 +1,0 @@
-Artículo 124.—De la Isla del Coco. El prefijo TI9 pertenece a la Isla del Coco, podrá ser autorizado por Control Nacional de Radio para operar desde ese lugar único y exclusivamente a radioaficionados con licencia clase superior. Las operaciones desde la Isla del Coco sólo se autorizarán en los meses de febrero y julio y por un tiempo no mayor de siete días naturales.

@@ -1,1 +1,0 @@
-Artículo 54.—Prestación del servicio. Los servicios de radiodifusión se prestarán de acuerdo con las normas técnicas internacionales sobre dicha materia, la Ley de Radio, el Reglamento al Plan Nacional de Atribución de Frecuencias y el presente Reglamento.

@@ -1,2 +1,0 @@
-Artículo 115.—De los aspirantes. Al aspirante se le otorgará un permiso provisional para prácticas por un plazo máximo de 90 días e improrrogables antes del examen el cual sólo podrá utilizarlo en los equipos autorizados.
-Como forma de identificación se le otorgará el prefijo "TI" seguido de un dígito que indicará la zona y cuatro letras donde la primera de ellas será "P" identificándolos como practicantes, podrá operar en las mismas bandas y frecuencias atribuidas a la categoría de NOVICIO.

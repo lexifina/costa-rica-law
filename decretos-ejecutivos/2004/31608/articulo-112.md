@@ -1,9 +1,0 @@
-CAPÍTULO III
-De las estaciones de radioaficionados
-Artículo 112.—De las licencias. Podrán obtener licencia de radioaficionado todos los costarricenses mayores de doce años, los extranjeros mayores de dieciocho años con el estatus de residentes en Costa Rica, para cuyo efecto deben demostrar aptitud para operar e instalar estaciones radioeléctricas de aficionados, siempre y cuando se sujeten a lo establecido en la Ley de Radio y en el presente Reglamento.
-El costarricense mayor de doce años y menor de dieciocho que desee obtener licencia de radioaficionado, deberá presentar la debida autorización escrita de sus padres o tutores.
-Se otorgará licencia de reciprocidad a los extranjeros con el estatus de residente en Costa Rica, sin rendir los exámenes correspondientes, siempre que presenten la licencia de radioaficionado vigente de su país de origen y que este beneficio se conceda recíprocamente a los ciudadanos costarricenses.
-En casos excepcionales, el Poder Ejecutivo podrá otorgar licencias de radioaficionado de cortesía a miembros de Misiones Diplomáticas debidamente acreditadas.
-Se podrá otorgar permisos a las personas que comprueben su condición de radioaficionado en otros países y que se encuentren en tránsito por un breve período en el territorio nacional, aún en los casos en que no existan acuerdos de reciprocidad con el país de origen del solicitante.
-Las personas mencionadas en el párrafo anterior, deberán presentar su documentación en orden con la visa vigente, cuya validez determinará el período máximo del permiso de operación y licencia de radioaficionado vigente del país respectivo.
-Una vez obtenido el permiso, el aficionado, deberá identificar su estación con el prefijo "TI" correspondiente a Costa Rica y el número de zona donde opere y el indicativo del país de origen, ejemplo "TI2/ K1ZZ".

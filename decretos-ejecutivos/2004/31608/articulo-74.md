@@ -1,3 +1,0 @@
-Artículo 74.—Características de las señales de vídeo y audio. La formación de la señal de vídeo, las cámaras, controles de cámara, generadores de pulsos de sincronismo, equipo de reproducción de tipo magnético, óptico o de película, efectos de vídeo y en general todo el equipo empleado en la estación, deberán ajustarse en forma tal, que en conjunto, cumplan con las normas que a continuación se citan:
-1. Para la señal monocroma debe emplearse el sistema denominado "M", de acuerdo a la clasificación que establece la Unión Internacional de Telecomunicaciones, del CCIR, Ginebra, Suiza de 1974.
-2. Para señal de color, debe emplearse el sistema denominado "M/ NTSC", de acuerdo con las recomendaciones del CCIR, Ginebra, Suiza de 1974.

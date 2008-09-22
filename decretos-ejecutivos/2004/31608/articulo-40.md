@@ -1,1 +1,0 @@
-Artículo 40.—Señalización de torres. Las torres de las estaciones de telecomunicación, deberán cumplir con las señales preventivas y demás requisitos para la navegación aérea, según establece la Organización de Aviación Civil Internacional O.A.C.I.

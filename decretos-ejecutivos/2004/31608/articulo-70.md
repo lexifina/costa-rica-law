@@ -1,1 +1,0 @@
-Artículo 70.—Restricción del uso de una frecuencia o canal de televisión. Queda absolutamente prohibido el uso de una frecuencia para el servicio de radiodifusión sonora o un canal de televisión en la misma banda como repetidora de cualquier canal dentro de la misma zona de cobertura, salvo los casos en que se enlacen para transmitir un programa en específico.

@@ -1,5 +1,0 @@
-Artículo 77.—Señales de telemetría y alerta. Se puede emplear el multiplaje de la portadora de audio para transmitir señales de telemetría y de alerta desde la ubicación de un transmisor móvil remoto al punto de control de una estación de radiodifusión, debiéndose sujetar a las siguientes condiciones:
-1. No deben ocasionarse degradaciones a las señales de vídeo y audio.
-2. El uso del multiplaje no debe producir emisiones fuera del canal de televisión autorizado.
-3. El multiplaje se limita al uso de una subportadora única. 4. La modulación máxima de la portadora de audio producida por la subportadora no debe exceder al 10% del máximo grado de modulación.
-5. El multiplaje de la portadora de audio no ocasionará que los niveles de ruido a la salida del sistema de transmisión excedan a los especificados en la parte correspondiente a normas de emisión, nivel de ruido para modulación en frecuencia y modulación en amplitud. 6. La frecuencia instantánea de la subportadora utilizada para modular la portadora de audio, estará comprendida dentro de la gamma de 20 a 50 KHz.

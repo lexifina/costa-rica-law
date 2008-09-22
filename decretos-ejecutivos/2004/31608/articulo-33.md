@@ -1,2 +1,0 @@
-Artículo 33.—Traspaso de la concesión. Se permitirá el traspaso de los derechos de la concesión de derecho de uso de frecuencias, únicamente cuando ésta tenga como mínimo tres años de haberse otorgado y demuestre que la frecuencia ha estado en uso. Los interesados deberán someter al Departamento de Control Nacional de Radio la documentación que le sea requerida.
-El cesionario explotará los derechos cedidos en los mismos términos que fue otorgada la concesión originalmente.

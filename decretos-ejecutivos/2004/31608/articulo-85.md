@@ -1,1 +1,0 @@
-Artículo 85.—Ampliación de cobertura. El concesionario que preste servicios de televisión inalámbrica informará a Control Nacional de Radio sobre las ampliaciones a la cobertura, cuando se encuentre al corriente en el programa previsto en su título de concesión.

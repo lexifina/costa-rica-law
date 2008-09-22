@@ -1,1 +1,0 @@
-Artículo 105.—De las sanciones. La inobservancia de cualquier obligación de las contenidas en este Título, facultará a Control Nacional de Radio para iniciar proceso administrativo para el cobro de la multa establecida en artículo 11, inciso h) de la Ley Nº 1758, el cual será cobrado por cada vez que se incumpla la disposición.

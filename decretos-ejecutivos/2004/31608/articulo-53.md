@@ -1,1 +1,0 @@
-Artículo 53.—Tiempo mínimo de transmisión. Las estaciones al servicio de radiodifusión sonora y televisiva deberán cumplir con un mínimo de transmisión de doce horas diarias, debiendo notificar a Control Nacional de Radio su horario.

@@ -1,2 +1,0 @@
-Artículo 67.—Parámetros de operación de las repetidoras. La asignación de frecuencia para las estaciones repetidoras en la zona de sombra donde no tenga cobertura la emisora matriz, lo hará El Poder Ejecutivo de acuerdo a los estudios que efectúe Control Nacional de Radio, en cada caso particular.
-Los equipos no deberán radiar señales de ninguna otra estación que no sea la autorizada, ni se asignará señal de identificación individual a cada equipo, sirviendo la transmisión principal de identificación.

@@ -1,3 +1,0 @@
-CAPÍTULO II
-Operación e instalación de la red
-Artículo 92.—De la instalación de la red. Las disposiciones de este capítulo son aplicables al servicio de televisión y audio por suscripción en el segmento que utilice el espectro radioeléctrico a que se refiere la concesión otorgada por el Poder Ejecutivo, sin perjuicio de las obligaciones que correspondan al concesionario, de conformidad con las disposiciones aplicables, por la prestación de otros servicios de telecomunicaciones que se proporcionen a través de la misma red, para los cuales deberá obtener la concesión o permiso respectivo según las disposiciones vigentes en materia de telecomunicaciones.

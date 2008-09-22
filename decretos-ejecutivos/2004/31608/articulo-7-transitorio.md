@@ -1,1 +1,0 @@
-Transitorio VII.—A partir de la vigencia del presente Reglamento y en el plazo de un año, los concesionarios actuales deberán suscribir el contrato de concesión correspondiente. Si el concesionario se negare a la firma del contrato, se iniciarán las diligencias para la revocatoria de la concesión.

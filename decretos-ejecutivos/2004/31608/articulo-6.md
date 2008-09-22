@@ -1,1 +1,0 @@
-Artículo 6º—De los términos técnicos. Los términos técnicos referidos en el presente Reglamento son los reconocidos por la Unión Internacional de Radiocomunicaciones (UIT) en su Reglamento de Radiocomunicaciones.
