@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE MORA
+La Corporación Municipal del Cantón de Mora en sesión ordinaria Nº 19-2008-2010, celebrada el 08 de setiembre del 2008, artículo 7, acordó aprobar moción presentada por el Alcalde Municipal que dice:
+1º—En vista de que se cuenta con la aprobación por parte del Instituto Nacional de Vivienda y Urbanismo del proyecto de modificación al artículo 10 del Reglamento de Zonificación del Plan Regulador del Cantón de Mora, que en fecha 21 de julio de los corrientes se realizó la audiencia pública requerida y que se respondieron las observaciones y solicitudes de los vecinos interesados, el Concejo Municipal apruebe la adopción formal de la mencionada modificación.
