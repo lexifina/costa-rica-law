@@ -1,1 +1,0 @@
-Artículo 31.—No podrán hacer uso del fondo de caja chica las personas que se encuentren en calidad de interinas o no presten servicio regular en la Municipalidad, mediante planillas.
