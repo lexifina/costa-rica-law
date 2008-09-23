@@ -1,0 +1,17 @@
+MINISTERIO DE AGRICULTURA Y GANADERÍA
+Nº 027-2008-MAG.—Poder Ejecutivo, a las quince horas del 8 de agosto del dos mil ocho.
+Resolución para la asignación de cuotas de acarreo de atún a las empresas industrializadoras nacionales.
+Resultando:
+1º—Que el Instituto Costarricense de Pesca y Acuicultura, mediante oficio PESJ-507-07-2008 del 15 de julio del 2008, comunicó al Ministerio de Agricultura y Ganadería, el resultado del estudio técnico para determinar el porcentaje de asignación de la cuota de acarreo de atún a las empresas industrializadoras nacionales, de acuerdo con su capacidad de procesamiento y los volúmenes de atún procesados por cada empresa durante los últimos doce meses, al amparo de lo dispuesto en el Decreto Ejecutivo N° 29269-MAG del 8 de noviembre del 2000, publicado en La Gaceta N° 27 del 7 de febrero del 2001, “Reglamento para la asignación de la cuota de acarreo de atún establecida para Costa Rica en el seno de la Comisión Interamericana del Atún Tropical”.
+2º—Que de conformidad con el informe técnico citado, sobre la base del 81% de las 8.500 TM que como cuota de acarreo de atún tiene el país, se determina para las empresas nacionales industrializadoras de este producto, establecidas y en operación, las siguientes cuotas de acarreo: Sardimar S.A. 6885 TM.
+3º—Que el Instituto Costarricense de Pesca y Acuicultura, ha solicitado formalmente al Ministerio de Agricultura y Ganadería, la oficialización de la cuota de acarreo de atún para el periodo del 1 de agosto del 2008 al 31 de julio del 2009, a las empresas industrializadoras nacionales.
+Considerando:
+I.—Que el Decreto Ejecutivo N° 29269-MAG del 08 de noviembre del 2000, publicado en La Gaceta N° 27 del 7 de febrero del 2001, “Reglamento para la asignación de la cuota de acarreo de atún establecida para Costa Rica en el seno de la Comisión Interamericana del Atún Tropical”, en su artículo 5 dispone que la asignación de dicha cuota, a las empresas industrializadoras nacionales, será mediante resolución administrativa.
+II.—Que de conformidad con lo dispuesto en el informe técnico elaborado por el INCOPESCA, y el volumen de la cuota correspondiente a las empresas industrializadoras, se procede a realizar la asignación de la cuota de acarreo de atún correspondiente al periodo que abarca del 1 de agosto del 2008 al 31 de julio del 2009. Por tanto,
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+RESUELVEN:
+1º—Asignar la cuota de acarreo de atún para el periodo que abarca del 01 de agosto del 2008 al 31 de junio del 2009, correspondiente a las empresas industrializadoras nacionales, según lo dispuesto en el Decreto Ejecutivo N° 29269-MAG, con base en el informe técnico PESJ-507-07-2008 del 15 de julio del 2008, elaborado por el Instituto Costarricense de Pesca y Acuicultura, de la siguiente manera:
+SARDIMAR S. A. 6885TM
+2º—La empresa industrializadora deberá, para efecto del mantenimiento de la cuota cumplir con lo dispuesto en el artículo 6 del Decreto Ejecutivo N° 29269-MAG del 08 de noviembre del 2000. La cuota asignada a dicha empresa no constituye derecho adquirido alguno y estará sujeta a revisión anual por parte del Poder Ejecutivo, en atención a la cuota global a que tenga derecho el país y el número de empresas industrializadoras que puedan optar por este derecho.
+3º—Notifíquese mediante remisión de copia certificada de la presente resolución a la empresa Sardimar S. A. y al Instituto Costarricense de Pesca y Acuicultura.
