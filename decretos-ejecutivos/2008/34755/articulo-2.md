@@ -1,0 +1,1 @@
+Artículo 2º—Disposiciones aplicables. Al llevar a cabo una investigación y realizar una resolución respecto a la aplicación de una medida de salvaguardia, la Autoridad Nacional deberá seguir los procedimientos y requisitos establecidos en la Sección A y del Anexo 8.3 del Capítulo Ocho del Acuerdo.

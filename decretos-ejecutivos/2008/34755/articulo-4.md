@@ -1,0 +1,1 @@
+Artículo 4º—Revisión Judicial. Las resoluciones de la Autoridad Nacional respecto a la aplicación de una medida de salvaguardia, estarán sujetas a revisión de conformidad con las disposiciones del Código Procesal Contencioso Administrativo, Ley Nº 8508 del 28 de abril de 2006.
