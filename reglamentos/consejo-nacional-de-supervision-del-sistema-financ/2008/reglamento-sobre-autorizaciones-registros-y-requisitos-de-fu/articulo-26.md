@@ -1,0 +1,1 @@
+Artículo 26.—Requisitos para el cambio de nombre de una entidad supervisada. Para la autorización del cambio de nombre de una entidad aseguradora o una sociedad corredora de seguros, el representante legal debe suministrar a la Superintendencia la información detallada en el anexo 8 de este Reglamento.

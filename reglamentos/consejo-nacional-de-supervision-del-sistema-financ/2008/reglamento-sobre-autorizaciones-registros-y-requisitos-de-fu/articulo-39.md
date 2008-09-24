@@ -1,0 +1,6 @@
+Artículo 39.—Criterios para valorar la acreditación de intermediarios y emisión de licencia para personas físicas. Los criterios para valorar el otorgamiento de la licencia de personas físicas son los siguientes:
+a) Requisitos formales: La persona cuya acreditación se solicita es mayor de edad y cuenta como mínimo con el Bachillerato de enseñanza media.
+b) Formación: La entidad que acredita a la persona certifica la capacidad técnica para el desempeño de sus funciones en los ramos acreditados.
+c) Límite de actuación: Se especifica si el agente actuará en nombre y cuenta de la entidad aseguradora o solo por su cuenta.
+d) Solvencia moral: Antecedentes judiciales y disciplinarios. Cuando se presente en el plazo indicado cualquiera de los actos detallados en la Sección IV “Antecedentes disciplinarios y judiciales” del anexo 13 de este Reglamento, será causal de rechazo de la acreditación de la persona como agente o corredor de seguros. De igual manera si el agente hubiere sido sancionado con la cancelación de la licencia en los últimos cinco años.
+e) Acreditación: La persona es acreditada e inscrita como intermediario de su red de comercialización por una entidad de seguros autorizada.

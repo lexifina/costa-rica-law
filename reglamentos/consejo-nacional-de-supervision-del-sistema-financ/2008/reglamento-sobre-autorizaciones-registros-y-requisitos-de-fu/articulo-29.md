@@ -1,0 +1,1 @@
+Artículo 29.—Requisitos para la autorización de cambios en los estatutos. Para la autorización de cambios en los estatutos de una entidad aseguradora el solicitante debe cumplir la información que se detalla en el anexo 10 de este Reglamento.

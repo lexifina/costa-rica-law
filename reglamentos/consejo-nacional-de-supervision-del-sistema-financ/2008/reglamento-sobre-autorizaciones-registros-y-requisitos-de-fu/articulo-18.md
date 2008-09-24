@@ -1,0 +1,13 @@
+CAPÍTULO II
+Autorizaciones para entidades supervisadas
+Artículo 18.—Actos sujetos a autorización y requisitos. Los siguientes actos están sujetos a autorización:
+a) La constitución de una entidad de seguros. (Anexo 2).
+b) La constitución de una sociedad corredora de seguros. (Anexo 3).
+c) La constitución y acreditación de una sociedad agencia de seguros. (Anexo 4).
+d) La acreditación de agentes de seguros y corredores de seguros. (Anexo 5).
+e) La fusión de entidades supervisadas. (Anexo 6).
+f) La transferencia total o parcial de cartera entre entidades de seguros. (Anexo 7).
+g) El cambio de nombre de una entidad supervisada. (Anexo 8).
+h) El cese voluntario de la actividad por parte de una entidad supervisada. (Anexo 9).
+i) Los cambios en los estatutos de las entidades de seguros. (Anexo 10).
+Los actos de autorización referentes a la autorización de Oferta Pública de Valores en el caso de entidades de capital abierto se regirán por lo dispuesto en la Ley Reguladora del Mercado de Valores.

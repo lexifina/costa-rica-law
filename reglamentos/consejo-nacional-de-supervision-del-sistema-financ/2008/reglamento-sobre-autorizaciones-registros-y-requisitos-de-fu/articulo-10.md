@@ -1,0 +1,2 @@
+Artículo 10.—Vigencia de los documentos. La fecha de emisión de los documentos que acompañan la solicitud no puede ser superior a tres meses. El plazo se considerará a partir de la fecha de presentación de la solicitud. La información financiera auditada tendrá una vigencia de un año a partir de su fecha de corte.
+Asimismo, en la solicitud debe declararse que lo consignado en los documentos no ha sufrido modificaciones desde su fecha de expedición y hasta su fecha de presentación.

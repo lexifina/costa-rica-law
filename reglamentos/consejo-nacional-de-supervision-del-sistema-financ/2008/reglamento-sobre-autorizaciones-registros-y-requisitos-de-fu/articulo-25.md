@@ -1,0 +1,1 @@
+Artículo 25.—Requisitos de autorización para la transferencia total o parcial de cartera. Para la autorización de la transferencia total o parcial de cartera el solicitante debe suministrar a la Superintendencia la información que se detalla en el anexo 7 de este Reglamento.

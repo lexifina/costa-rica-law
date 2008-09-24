@@ -1,0 +1,5 @@
+Artículo 37.—Criterios para valorar el cese de actividades de seguros. En el caso de solicitudes de autorización para el cese de actividades, el Plan de Cese a que se refiere el anexo 9 de este Reglamento, deberá garantizar el cumplimiento de por lo menos los siguientes compromisos sucesorios:
+a) Uso de términos reservados: Las acciones propuestas garantizan el cumplimiento de las disposiciones legales sobre el uso de palabras y expresiones reservadas por ley a entidades supervisadas.
+b) Obligaciones: El mecanismo propuesto garantiza el cumplimiento de las obligaciones con empleados, asegurados y otros acreedores en las condiciones originales. Este mecanismo debe establecerse mediante un Contrato de Administración de Obligaciones con algún intermediario financiero costarricense supervisado por la SUGEF.
+c) Obligaciones con asegurados y beneficiarios: El mecanismo propuesto garantiza el cumplimiento de las obligaciones o el traslado de los contratos a otra entidad autorizada.
+d) El Plan de Transferencia de Cartera: El plan requerido es adecuado.

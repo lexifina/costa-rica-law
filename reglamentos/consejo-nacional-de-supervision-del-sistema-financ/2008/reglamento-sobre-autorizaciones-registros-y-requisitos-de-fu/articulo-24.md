@@ -1,0 +1,1 @@
+Artículo 24.—Requisitos de autorización para la fusión de entidades supervisadas. Para la autorización de la fusión de una entidad con otra persona jurídica el solicitante debe suministrar a la Superintendencia la información que se detalla en el anexo 6 de este Reglamento.

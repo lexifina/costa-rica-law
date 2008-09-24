@@ -1,0 +1,1 @@
+Transitorio II.—Las entidades de seguros deberán acreditar, según los extremos de este reglamento, los agentes de seguros y las sociedades agencia de su canal de distribución en un plazo máximo de tres meses.
