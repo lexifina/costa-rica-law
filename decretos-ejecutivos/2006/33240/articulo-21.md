@@ -1,2 +1,0 @@
-Artículo 21.—Verificación de la Implementación de los Planes. El Ministerio procederá a la verificación de los planes señalados en el artículo 19. Si el profesional responsable tuviera observaciones justificadas, estas serán señaladas en el momento de la inspección, a efecto de que se tomen las medidas correctivas pertinentes
-(Así reformado mediante el artículo 4º del decreto ejecutivo Nº 33410 del 23 de octubre del 2006)
