@@ -1,0 +1,5 @@
+Artículo 35.—Procedimiento de verificación de origen. La autoridad aduanera podrá iniciar investigaciones tendentes a verificar si se cumplen las reglas de origen para mercancías importadas y declaradas como originarias, de conformidad con lo que establece el artículo 4.20 del Tratado, el presente Reglamento y demás normativa aplicable. A tales efectos, se podrá recurrir a cualquiera de los siguientes medios:
+a) Solicitudes escritas de información al importador, exportador o productor.
+b) Cuestionarios escritos dirigidos al importador, exportador o productor.
+c) Visitas a las instalaciones de un exportador o productor en el territorio de la otra Parte, con el propósito de examinar los registros a los que se refiere el artículo 4.19 del Tratado u observar las instalaciones utilizadas en la producción de la mercancía, de acuerdo con las disposiciones que desarrollen las Partes de conformidad con el artículo 4.21.2 del Tratado.
+d) Otros procedimientos que Costa Rica y la Parte exportadora puedan acordar.

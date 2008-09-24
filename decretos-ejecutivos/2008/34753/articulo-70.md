@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones Finales
+Artículo 70.—De los plazos. Conforme con lo establecido en el Tratado, la referencia a días comprende días calendario; sin embargo, cuando el último día para entregar documentos a la autoridad competente en Costa Rica, sea inhábil, o si sus oficinas están cerradas por disposición legal, gubernamental o por fuerza mayor, el documento podrá ser entregado en el día hábil inmediato siguiente. Igualmente si las autoridades nacionales deben cumplir con una diligencia o trámite dentro de un plazo dentro del cual sus oficinas estén cerradas por disposición legal, gubernamental o por causa de fuerza mayor, el plazo correspondiente correrá a partir del día hábil inmediato siguiente.

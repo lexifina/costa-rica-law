@@ -1,0 +1,9 @@
+Artículo 22.—Certificación de origen. De conformidad con el inciso a) del artículo 19 de este Reglamento, la certificación de origen es el documento que se debe utilizar para certificar que una mercancía es originaria y, en consecuencia, es elegible para el tratamiento arancelario preferencial establecido en la Lista Arancelaria de Costa Rica contenida en el Anexo 3.3 o de conformidad con el Anexo 3.3.6 del Tratado. Dicha certificación podrá ser emitida por el importador, exportador o productor y no requiere estar elaborada conforme un formato preestablecido. De conformidad con el artículo 4.16.2 del Tratado, deberá contener los elementos citados a continuación:
+a) El nombre de la persona certificadora, incluyendo, cuando sea necesario, información de contactos u otra información de identificación,
+b) Clasificación arancelaria bajo el Sistema Armonizado y una descripción de la mercancía,
+c) Información que demuestre que la mercancía es originaria,
+d) La fecha de la certificación; y
+e) En el caso de una certificación general emitida conforme al artículo 4.16.4(b) del Tratado, el período que cubre la certificación,
+La certificación deberá contener la información de conformidad con los lineamientos establecidos en el Anexo A de este Reglamento.
+Si en la certificación de origen la información requerida de conformidad con el Anexo A es omisa o está incompleta, de manera que no es realizada de conformidad con el Capítulo Cuatro del Tratado la autoridad aduanera podrá, a efectos de la aplicación del trato arancelario preferencial, solicitar al importador que complete dicha información, sin que ello se considere una verificación de origen, o efectuar el inicio de una verificación de origen.
+En caso de que la certificación de origen esté en idioma inglés, se deberá anexar una traducción en español de la misma.

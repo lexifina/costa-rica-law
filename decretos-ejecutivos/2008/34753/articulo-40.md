@@ -1,0 +1,1 @@
+Artículo 40.—Solicitud de prórroga. Durante el plazo de respuesta indicado en el artículo anterior, el importador, exportador o productor podrá solicitar por escrito a la Dirección General de Aduanas, una prórroga. Esta prórroga no podrá ser mayor de treinta (30) días calendario.

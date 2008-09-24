@@ -1,0 +1,1 @@
+Artículo 66.—Publicidad de las resoluciones anticipadas. Las autoridades competentes, sujetas a cualquier requisito de confidencialidad de la legislación nacional, pondrán a disposición del público sus resoluciones anticipadas.

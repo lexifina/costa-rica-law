@@ -1,0 +1,2 @@
+Artículo 57.—Procedimiento de verificación de origen para mercancías textiles y del vestido. La autoridad aduanera podrá iniciar investigaciones tendientes a verificar si se cumplen las reglas de origen para mercancías textiles y del vestido, de conformidad con lo que establece el
+artículo 3.24 del Tratado, el Anexo 4.1 del Tratado, el presente Reglamento y demás normativa aplicable. A tales efectos, se podrá recurrir a solicitudes de información a las autoridades competentes del país exportador, a visitas realizadas en el marco del artículo 3.24 del Tratado o ambas.

@@ -1,0 +1,1 @@
+Artículo 49.—Conclusión de la verificación. El procedimiento para verificar el origen se tendrá por concluido con la finalización de los trámites, diligencias y gestiones que requieren los medios de verificación, sea que se haya utilizado uno o más de ellos y/o se hayan empleado alternativamente o en forma repetida.

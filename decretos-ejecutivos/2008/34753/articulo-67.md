@@ -1,0 +1,1 @@
+Artículo 67.—Confidencialidad. La autoridad competente mantendrá, de conformidad con lo establecido en la legislación nacional, la confidencialidad de la información obtenida conforme a este Reglamento y solo podrá darse a conocer a las autoridades responsables de la administración y aplicación de las resoluciones de determinación de origen.

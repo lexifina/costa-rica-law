@@ -1,0 +1,1 @@
+Artículo 32.—Denegación del trato arancelario preferencial por incumplimiento de obligaciones del importador. De conformidad con el artículo 4.15.2 del Tratado, se denegará el trato arancelario preferencial cuando el importador haya incumplido con cualquiera de los requisitos del Capítulo Cuatro del Tratado.

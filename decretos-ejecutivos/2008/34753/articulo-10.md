@@ -1,0 +1,1 @@
+Artículo 10.—Incumplimiento de las condiciones. Si no se ha cumplido cualquiera de las condiciones enunciadas en el artículo 9 del presente Reglamento, la autoridad aduanera podrá aplicar el arancel aduanero y cualquier otro cargo que se adeudaría normalmente por la mercancía más cualquier otro cargo o sanción establecido conforme a la legislación nacional.

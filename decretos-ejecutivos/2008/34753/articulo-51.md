@@ -1,0 +1,1 @@
+Artículo 51.—Plazo para la conclusión del procedimiento de verificación. El procedimiento para verificar el origen, no podrá exceder de un año. No obstante la autoridad competente, en casos debidamente fundamentados y por una sola vez, podrá prorrogar dicho plazo hasta por treinta (30) días calendario. Dicha prórroga deberá ser notificada a las partes involucradas.
