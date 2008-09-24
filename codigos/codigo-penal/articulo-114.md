@@ -1,2 +1,2 @@
 Tentativa de suicidio
-ARTÍCULO 114.- Al que intente suicidarse se le impondrá una medida de seguridad consistente en un adecuado tratamiento psiquiátrico.
+Artículo 114.- (Anulado este artículo mediante resolución de la Sala Constitucional N° 14192-2008 del 24 de setiembre de 2008.)
