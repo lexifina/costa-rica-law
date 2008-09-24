@@ -1,0 +1,4 @@
+Artículo 10.—Inadmisibilidad de las Comunicaciones. La comunicación será declarada inadmisible en los siguientes casos:
+a) Si la comunicación no cumple con los requisitos de admisibilidad establecidos en el presente Reglamento, una vez que ha transcurrido el plazo otorgado para corregir la deficiencia.
+b) Cuando la comunicación no se refiere a asuntos relacionados con el Capítulo 17 del Tratado de Libre Comercio República Dominicana-Centroamérica- Estados Unidos.
+c) Si la comunicación fuere similar o idéntica a una comunicación anterior presentada a MINAET o su sucesor o ante alguno de los órganos, instituciones o entidades del Estado, por la misma persona sin que se adjunte nueva información, o documentos adicionales o las justificaciones o las razones que motivan una nueva consideración.

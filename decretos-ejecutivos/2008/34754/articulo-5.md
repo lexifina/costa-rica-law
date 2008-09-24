@@ -1,0 +1,1 @@
+Artículo 5º—Integración de Acciones. El Comité podrá celebrar reuniones con representantes de otras instituciones gubernamentales o de la sociedad civil, cuya actividad se relacione con el comercio y el ambiente; y que el Comité, basado en una consulta, haya determinado que son capaces de contribuir a un mejor desempeño del Comité.
