@@ -14,3 +14,4 @@ Reforma al artículo 2 del decreto ejecutivo N° 34644 (Establece el precio mín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-05 | la propia norma |
+| 2 | 2008-09-24 | Decreto Ejecutivo 34773 (2008-09-24) |

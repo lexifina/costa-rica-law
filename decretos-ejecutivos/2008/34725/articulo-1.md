@@ -24,14 +24,21 @@ REFORMA AL ARTÍCULO 2 DEL DECRETO EJECUTIVO
 N° 34644-MEIC, DE FECHA 8 DE JULIO DEL 2008,
 PUBLICADO EN EL DIARIO OFICIAL LA GACETA
 N" 142, DEL MIÉRCOLES 23 DE JULIO DEL 2008
-Artículo 1° Refórmase el artículo segundo del Decreto Ejecutivo N° 34644, de fecha 08 de julio del 2008, publicado en el Diario Oficial La Gaceta N° 142 del miércoles 23 de julio del 2008, para que en lo sucesivo se lea de la siguiente manera:
-"Artículo 2°-Considerando el precio del saco de arroz granza, estipulado en el artículo 1° del Decreto Ejecutivo N° 34644, de fecha 8 de julio del 2008, publicado en el Diario Oficial La Gaceta N° 142 del miércoles 23 de julio del 2008, se establecen los siguientes precios máximos de venta para el arroz pilada en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos en los costos de industrialización y comercialización, tanto al mayoreo como al detalle, y el cargo adicional de ¢17,50 por kilogramo que corresponde a la recuperación del Sector Industrial Arrocero, por el adelanto del diferencial a cubrir para la importación del arroz faltante, y son los siguientes:
-Arroz pilado sacos de 46 kg | De industrial a mayorista colones I saco | De mayorista a detallista colones I saco | De detallista a consumidor colones I kg
-Máximo de 40% grano quebrado | 23.395,00 | 24.072,00 | 574,00
-Máximo de 30% grano quebrado | 24.857,00 | 25.578,00 | 610,00
-Máximo de 20% grano quebrado | 26.319,00 | 27.084,00 | 646,00
-Arroz empacado en bultos de 12 bolsas de 2 kg | De industrial a mayorista colones I 24 kg | De mayorista a detallista colones I 24 kg | De detallista a consumidor colones I 2 kg
-De 31% a 40% grano quebrado | 12.488,00 | 12.850,00 | 1.174,00
-De 26% a 30% grano quebrado | 13.268,00 | 13.654,00 | 1.248,00
-De 21% a 25% grano quebrado | 13.659,00 | 14.056,00 | 1.285,00
-De 11% a 20% grano quebrado | 14.049,00 | 14.458,00 | 1.322,00
+Artículo 1º—Considerando el precio del saco de arroz granza, estipulado en el artículo 3º del presente Decreto Ejecutivo, se establecen los siguientes precios máximos de venta, para todas las calidades de arroz pilado, en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos a los costos de industrialización y comercialización, tanto al mayoreo como al detalle, y son los siguientes:
+Arroz pilado sacos de 46 kg | De industrial a mayorista Saco/colones | De mayorista a detallista Saco/colones | De detallista a consumidor colones/kg
+De 60% a menos de 70% grano entero | 23.395,00 | 24.072,00 | 574,00
+De 70% a menos de 75% grano entero | 24.857,00 | 25.578,00 | 610,00
+De 75% a menos de 80% grano entero | 25.588,00 | 26.331,00 | 628,00
+De 80% a menos de 85% grano entero | 26.319,00 | 27.084,00 | 646,00
+De 85% a menos de 90% grano entero | 27.050,00 | 27.837,00 | 664,00
+De 90% a menos de 95% gano entero | 27.781,00 | 28.590,00 | 682,00
+De 95% a 100% grano entero | 28.512,00 | 29.343,00 | 700,00
+Arroz empacado en distintas presentaciones, equivalente a kg | De industrial a mayorista Colones/kg | De mayorista a detallista Colones/kg | De detallista a consumidor colones/kg
+De 60% a menos de 70% grano entero | 520,33 | 535,41 | 587,00
+De 70% a menos de 75% grano entero | 552,85 | 568,91 | 624,00
+De 75% a menos de 80% grano entero | 569,11 | 585,66 | 642,00
+De 80% a menos de 85% grano entero | 585,37 | 602,40 | 661,00
+De 85% a menos de 90% grano entero | 601,63 | 619,16 | 679,00
+De 90% a menos de 95% gano entero | 617,89 | 635,90 | 698,00
+De 95% a 100% grano entero | 634,15 | 652,65 | 716,00”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34773 de 24 de setiembre de 2008).
