@@ -1,6 +1,8 @@
+(Derogado)
 Nº 34644-MEIC
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+(Este decreto fue derogado por el artículo 4° del Decreto Ejecutivo N° 34773 de 24 de setiembre de 2008).
 En el ejercicio de las facultades que les confiere los artículos 140, inciso 3) y 18) y el 146 de la Constitución Política del 7 de noviembre de 1949; el artículo 28.2 b) de la Ley General de la Administración Pública, Ley Nº 6227 del 28 de abril de 1978; el artículo 5º de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor Nº 7472 del 20 de diciembre de 1994 y sus reformas, y su Reglamento, Decreto Ejecutivo Nº 25234-MEIC del 25 de enero de 1996; y, el artículo 7º de la Ley de Creación de la Corporación Arrocera Nacional, Ley Nº 8285 del 30 de mayo del 2002, publicada en el Diario Oficial La Gaceta Nº 114 del 14 de junio del 2002.
 Considerando:
 1º—Que el inciso e) del artículo 33 de la Ley 7472 de cita, publicada en el Diario Oficial La Gaceta Nº 14 del 19 de enero de 1995, indica que es función del Estado establecer una canasta básica que satisfaga al menos las necesidades de las familias costarricenses de menores recursos, lo cual se establece mediante el Decreto Ejecutivo Nº 24852 – MEIC del 13 de diciembre de 1995, publicado en el Diario Oficial La Gaceta Nº 15 del 22 de enero de 1996, que Establece la Canasta Básica Moderna, dentro de la cual se incluye el arroz.
