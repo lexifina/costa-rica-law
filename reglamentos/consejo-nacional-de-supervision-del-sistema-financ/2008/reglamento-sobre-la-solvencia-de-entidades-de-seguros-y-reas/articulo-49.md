@@ -1,0 +1,1 @@
+Artículo 49.—Requerimientos de información y remisión de reportes. La Superintendencia puede solicitar, por disposición general, la forma, medios y plazos de la información requerida para una efectiva supervisión de las actividades de cobertura con derivados financieros.

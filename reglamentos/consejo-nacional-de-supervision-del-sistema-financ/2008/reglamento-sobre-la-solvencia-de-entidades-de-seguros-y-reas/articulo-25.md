@@ -1,0 +1,2 @@
+Artículo 25.—Adecuación del nivel de las provisiones técnicas. A solicitud de la Superintendencia la entidad deberá demostrar la adecuación del nivel de sus provisiones técnicas, la aplicabilidad y pertinencia de los métodos empleados y la idoneidad de los datos estadísticos de base utilizados.
+En el evento de que el cálculo de las provisiones técnicas de la entidad no cumpla con las disposiciones para su cálculo la Superintendencia exigirá el ajuste. Lo anterior sin perjuicio de las sanciones administrativas que corresponda.

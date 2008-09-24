@@ -1,0 +1,2 @@
+Artículo 13.—Periodicidad del cálculo y comunicación. Las entidades de seguros y de reaseguros calcularán el cumplimiento del régimen de solvencia mensualmente. Dicho cálculo se realizará con la información al último día del mes, salvo para las variables en donde se indique, expresamente en este Reglamento, otra periodicidad de cómputo o fecha de corte.
+Las entidades de seguros y de reaseguros remitirán a la Superintendencia el cálculo del requerimiento de capital y capital base dentro de los primeros días hábiles de cada mes.

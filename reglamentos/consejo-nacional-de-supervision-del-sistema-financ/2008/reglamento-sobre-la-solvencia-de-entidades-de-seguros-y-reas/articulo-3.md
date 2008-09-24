@@ -1,0 +1,19 @@
+Artículo 3º—Definiciones. Para la aplicación de estas disposiciones se entiende como:
+a) Categorías de seguros: Se dividen en seguros generales y seguros de personas.
+Los ramos y líneas de seguros, así como el tratamiento de riesgos accesorios, se definen en el Anexo 1 del Acuerdo SUGESE 01-08.
+b) CONASSIF: Consejo Nacional de Supervisión del Sistema Financiero creado por la Ley Reguladora del Mercado de Valores, Ley 7732.
+c) Cuentas de requerimiento de margen (“margin accounts”): Cuenta de corretaje, en la cual se permite al intermediario bursátil o custodio, financiar a sus clientes utilizando los activos en administración como colateral.
+d) Custodia: Servicio prestado por instituciones especializadas que incluye la guarda física, la correcta asignación de instrumentos u operaciones de inversión, la verificación de la liquidación, el cobro de los beneficios, la valorización de los referidos instrumentos u operaciones en custodia, pago de impuestos y otros vinculados con estos servicios.
+e) Entrega contra pago (“Delivery versus payment”): Mecanismo para la liquidación de una transacción, en donde la entrega del efectivo es hecha cuando los respectivos valores son entregados y aceptados, según los términos pactados en la transacción.
+f) Entidad o entidades: Entidades aseguradoras y entidades reaseguradoras.
+g) Fondos de cobertura o de gestión alternativa (“hedge funds”): Son fondos de inversión cuyo objetivo es maximizar la rentabilidad, sea cual sea la tendencia del mercado, empleando estrategias e instrumentos como ventas en descubierto, apalancamiento, derivados financieros u otros, algunos de los cuales incorporan un alto nivel de riesgo.
+h) Gerente: Cualquier persona física que por disposición de ley, o que por sus funciones, cargo o posición, ejerza o represente la máxima autoridad administrativa en una persona jurídica.
+i) Ley 8653: Ley Reguladora del Mercado de Seguros, Ley 8653 del 7 de agosto del 2008.
+j) Mecanismos centralizados de negociación: Mecanismos de negociación que reúnen o interconectan simultáneamente a varios compradores y vendedores con el objeto de negociar instrumentos u operaciones de inversión, que se encuentran regulados y supervisados por las autoridades reguladoras de los mercados de valores.
+k) Mercados OTC (“Over the counter”): Mercados libres que no están oficialmente regulados ni poseen una ubicación física concreta. En ellos, se negocian valores financieros en forma directa entre los participantes, normalmente por teléfono o electrónicamente. En estos mercados, aun cuando pueden existir acuerdos de procedimientos, no existe un órgano de compensación y liquidación que intermedie entre las partes y garantice el cumplimiento de las obligaciones convenidas por las mismas.
+l) Mercados locales: Son aquellos en que participan compradores y vendedores para la adquisición o venta de valores emitidos por entidades costarricenses o extranjeras, en el entendido que esas transacciones se realizan en el territorio nacional.
+m) Mercados extranjeros: Son aquellos en que participan compradores y vendedores para la adquisición o venta de valores emitidos por entidades costarricenses o extranjeras, cuya negociación se realiza fuera del territorio nacional.
+n) Órgano de Dirección: Corresponde a la máxima jerarquía dentro de la entidad regulada con funciones de revisión y crítica determinativa; sea Junta Directiva, Junta Administrativa, Consejo Superior u otro equivalente.
+o) Superintendencia: Superintendencia General de Seguros.
+p) Superintendente: Superintendente General de Seguros.
+q) Unidad de Desarrollo (UD): Unidad de cuenta, definida de conformidad con la Ley de Desarrollo de un mercado secundario de hipotecas con el fin de aumentar las posibilidades de las familias costarricenses de acceder a una vivienda propia, y fortalecimiento del crédito indexado a la inflación, Ley 8507, del 28 de abril del 2006.

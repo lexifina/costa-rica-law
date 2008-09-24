@@ -1,0 +1,1 @@
+Artículo 31.—Diversificación de inversiones. Las entidades aseguradoras y reaseguradoras deberán mantener una diversificación adecuada de activos, a fin de evitar una dependencia excesiva de un único activo, emisor o grupo de empresas, o una determinada zona geográfica, así como un exceso de acumulación de riesgos en la cartera en su conjunto.

@@ -1,0 +1,5 @@
+Artículo 20.—Criterios mínimos para la mejor estimación. Las entidades aseguradoras y reaseguradoras realizarán la mejor estimación respetando los siguientes criterios:
+a) El cálculo de la mejor estimación se basará en información actual y fiable, hipótesis con respaldo técnico y se realizará con arreglo a métodos actuariales y técnicas estadísticas explícitos.
+b) La proyección de flujos de caja utilizada en el cálculo de la mejor estimación considerará la totalidad de los flujos de caja (entradas y salidas) necesarias para liquidar las obligaciones de seguro y reaseguro durante el período de vigencia del contrato. Los flujos serán ponderados por la probabilidad de su ocurrencia.
+c) La mejor estimación se calculará en términos brutos, sin deducir los importes recuperables procedentes de los contratos de reaseguro. Dichos importes se calcularán por separado.
+d) Los flujos de caja deben descontarse a una tasa de descuento consistente con el mercado en función del período de maduración del dato. La metodología específica será definida por la entidad sin perjuicio de los lineamientos que al efecto pueda definir la Superintendencia.

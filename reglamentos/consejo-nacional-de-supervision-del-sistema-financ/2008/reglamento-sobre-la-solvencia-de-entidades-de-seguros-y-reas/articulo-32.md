@@ -1,0 +1,1 @@
+Artículo 32.—Información de inversiones. La información referente a la cartera de inversión deberá estar a disposición de la Superintendencia. Para efectos de control la Superintendencia tendrá acceso irrestricto a la información de las cuentas de custodia en las cuales se mantienen las inversiones.

@@ -1,0 +1,1 @@
+Artículo 21.—Segmentación. Para el cálculo de provisiones técnicas las entidades de seguros y de reaseguros segmentarán sus obligaciones en grupos de riesgo homogéneos y como mínimo por ramos de actividad.

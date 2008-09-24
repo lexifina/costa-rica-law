@@ -1,0 +1,1 @@
+Artículo 9º—Capital mínimo obligatorio. El capital base de la entidad no podrá ser inferior al capital exigido en el artículo 11 de la Ley 8653. Para efectos de cálculo del capital mínimo (CM) se considerará el valor de la Unidad de Desarrollo del último día de cada mes.

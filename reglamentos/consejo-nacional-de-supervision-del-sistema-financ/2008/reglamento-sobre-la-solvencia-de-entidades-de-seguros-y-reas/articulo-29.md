@@ -1,0 +1,2 @@
+Artículo 29.—Criterios de cumplimiento. El régimen de inversión de los activos que respaldan las reservas técnicas se sujetará a lo dispuesto en la Ley 8653 y las presentes disposiciones.
+La entidad deberá mantener la titularidad y la libre disposición sobre los bienes y derechos en que se materialice la inversión de las provisiones técnicas. Sólo invertirá en activos e instrumentos cuyos riesgos puedan vigilar, gestionar y controlar debidamente. Los activos se invertirán considerando la seguridad, liquidez y rentabilidad del conjunto de la cartera.

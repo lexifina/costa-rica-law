@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este Reglamento es aplicable a las entidades de seguros autorizadas según lo establecido en el artículo 7 de la Ley Reguladora del Mercado de Seguros, Ley 8653 de 7 de agosto del 2008.
