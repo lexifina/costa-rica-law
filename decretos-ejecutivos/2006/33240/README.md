@@ -19,3 +19,4 @@ Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento
 | 4 | 2007-02-02 | Decreto Ejecutivo 33602 (2007-02-02) |
 | 5 | 2007-04-26 | Decreto Ejecutivo 33917 (2007-04-26) |
 | 6 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
+| 7 | 2008-09-24 | SINALEVI (sin norma nombrada) |
