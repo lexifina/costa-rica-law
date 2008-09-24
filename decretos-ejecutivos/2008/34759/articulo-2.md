@@ -1,0 +1,2 @@
+Artículo 2º—El presente Decreto Ejecutivo rige a partir de la entrada en vigencia del “Protocolo por el que se adicionan disposiciones en materia de acumulación textil al Tratado de Libre Comercio entre los Estados Unidos Mexicanos y la República de Costa Rica, suscrito en la Ciudad de México, el cinco de abril de mil novecientos noventa y cuatro”, aprobado mediante la Ley Nº 8664 del 3 de setiembre del 2008.
+Dado en la Presidencia de la República, el día dieciséis del mes de setiembre del año dos mil ocho.
