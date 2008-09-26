@@ -1,1 +1,2 @@
-Artículo 40.—Financiamiento del presupuesto anual. El financiamiento del presupuesto anual se realizará de conformidad con el artículo treinta y dos de la ley por medio de transferencia del Ministerio de Hacienda contenida en el presupuesto del Ministerio de Economía, Industria y Comercio.
+Artículo 40.—Financiamiento del presupuesto anual. El financiamiento del presupuesto anual se realizará de conformidad con lo dispuesto en el artículo 32 de ía Ley N° 7839 de 15 de octubre de 1998, por medio de transferencia del Ministerio de Hacienda contenida en el presupuesto del Ministerio de Planificación Nacional y Política Económica.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34880 del 26 de setiembre de 2008)

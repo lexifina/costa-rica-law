@@ -16,3 +16,4 @@ Reglamento a la Ley del Sistema de Estadística Nacional.
 | 1 | 2000-08-24 | la propia norma |
 | 2 | 2000-10-30 | Ley 7 |
 | 3 | 2001-04-27 | Decreto Ejecutivo 29535 (2001-04-27) |
+| 4 | 2008-09-26 | Decreto Ejecutivo 34880 (2008-09-26) |
