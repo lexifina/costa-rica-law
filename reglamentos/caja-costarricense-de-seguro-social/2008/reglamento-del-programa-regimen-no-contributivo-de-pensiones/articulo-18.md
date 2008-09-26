@@ -1,0 +1,2 @@
+Artículo 18.—Cancelación de la pensión por causa de muerte del beneficiario. La pensión se cancelará automáticamente, cuando se constate la muerte del beneficiario, por medio de la información que remita el Registro Civil u otras pruebas documentales de la misma naturaleza de que disponga la Caja.
+Para tales efectos, no se requerirá procedimiento administrativo previo. Bastará con dejar documentado en el expediente administrativo, los documentos probatorios.

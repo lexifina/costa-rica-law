@@ -1,0 +1,1 @@
+Artículo 10.—De las variaciones al monto de las pensiones. La Junta Directiva de la Caja, de acuerdo con los estudios técnicos respectivos, podrá acordar en cualquier momento la variación de las cuantías que se otorgan en el Programa Régimen no Contributivo.

@@ -1,0 +1,1 @@
+Artículo 20.—De las causas de anulación de la pensión. El acto de otorgamiento de la pensión que se dictare en contra del bloque de legalidad será susceptible de ser anulado en los términos y condiciones establecidos por la Ley General de la Administración Pública.
