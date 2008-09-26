@@ -1,0 +1,1 @@
+Artículo 19.—Toda solicitud de licencia para estas actividades deberá tramitarse a través del departamento de Captación e Ingresos, quien comprobará la presentación de todos los requisitos exigidos y efectuará la remisión ante el Concejo Municipal para su estudio y aprobación.
