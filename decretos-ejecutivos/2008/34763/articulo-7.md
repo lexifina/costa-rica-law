@@ -1,0 +1,2 @@
+Artículo 7º—Se modifica el transitorio II, que se leerá de la siguiente manera:
+Transitorio II.—La exigencia de la georeferenciación se aplicará paulatinamente a criterio de la autoridad Registral competente. Mientras no se cuente con la información necesaria para realizar el enlace de los levantamientos de agrimensura de aplicación catastral a la Red Oficial de Coordenadas Nacionales, el área se obtendrá con los datos del levantamiento topográfico convencional del inmueble, reducidos al horizonte.

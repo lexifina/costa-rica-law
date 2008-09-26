@@ -1,0 +1,2 @@
+Artículo 8º—Se adiciona una nueva norma transitoria que se leerá de la siguiente manera:
+Transitorio III.—Las remisiones que se realicen en el presente reglamento a nuevas estructuras administrativas aún no establecidas, se entenderán pospuestas hasta su implementación, sin embargo, en uso de las potestades de autoorganización la administración del Registro Nacional podrá designar y delimitar competencias hasta que se efectúen tales modificaciones administrativas.
