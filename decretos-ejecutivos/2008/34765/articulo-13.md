@@ -1,0 +1,1 @@
+Artículo 13.—Caracterización de los servicios. Los equipos utilizados operarán en las bandas de frecuencias definidas en las políticas del Plan Nacional de Telecomunicaciones y según las características técnicas definidas en el Plan Nacional de Atribuciones.

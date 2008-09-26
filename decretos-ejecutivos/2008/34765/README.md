@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 34765
+
+Reglamento a la Ley General de Telecomunicaciones
+
+- Tipo: Decreto Ejecutivo
+- Número: 34765
+- Fecha: 2008-09-22
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 186 del 2008-09-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64029&param2=74027&param3=1 (ficha 64029)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-09-26 | la propia norma |

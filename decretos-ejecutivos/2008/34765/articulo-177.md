@@ -1,0 +1,1 @@
+Artículo 177.—Prescripción. La prescripción de la responsabilidad administrativa derivada de las infracciones contenidas en la Ley 8642 se regirá por las reglas descritas en el numeral 71 de dicha Ley.

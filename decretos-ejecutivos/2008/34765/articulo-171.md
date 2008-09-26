@@ -1,0 +1,1 @@
+Artículo 171.—Entrega de los documentos sometidos a consulta. Los estudios y la documentación que sustenta los asuntos sometidos a consulta y opinión de los interesados, estarán a disposición del público, a partir de la fecha de la publicación de la convocatoria, en la sede a la SUTEL y en la página Web a la SUTEL.

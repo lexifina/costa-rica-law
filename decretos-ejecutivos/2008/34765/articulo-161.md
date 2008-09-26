@@ -1,0 +1,1 @@
+Artículo 161.—Publicación de avisos y convocatorias. La Imprenta Nacional estará en el deber de publicar dentro de los cinco días hábiles siguientes a su recepción, los avisos y convocatorias que le remita la SUTEL.

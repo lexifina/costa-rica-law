@@ -1,0 +1,12 @@
+Artículo 75.—Obligaciones generales de los operadores o proveedores importantes. La SUTEL podrá imponer las siguientes obligaciones a los operadores y proveedores importantes:
+a. Hacer pública la información que la SUTEL solicite la cual deberá ser suficiente, clara, completa y precisa.
+b. Mantener contabilidades de costos separadas para cada servicio, de acuerdo a los reglamentos.
+c. Abstenerse de realizar las prácticas monopolísticas señaladas en el régimen sectorial de competencia correspondiente o en la Ley Nº 7472. Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor.
+d. Someterse al régimen tarifario correspondiente.
+e. Dar libre acceso a sus redes y a los servicios que por ellas presten, en forma oportuna y en condiciones razonables y no discriminatorias a los prestadores y usuarios de servicios de telecomunicaciones, a los generadores y receptores de información y a los proveedores y usuarios de servicios de información.
+f. Proporcionar a otros operadores y proveedores servicios e información de la misma calidad y en las mismas condiciones que la que proporciona a sus filiales o asociados y a sus propios servicios.
+g. Facilitar el acceso oportuno a sus instalaciones esenciales y poner a disposición de los operadores y proveedores información técnica relevante en relación con estas instalaciones, así como cumplir con las obligaciones propias del régimen de acceso e interconexión.
+h. Abstenerse de divulgar o utilizar indebidamente la información de competidores adquiridas al proveer interconexión, arrendamiento o acceso a sus instalaciones esenciales.
+i. Ofrecer acceso a los elementos de red de manera desagregada y en términos, condiciones y a tarifas orientadas a costos, que sean razonables, no discriminatorias y transparentes, para el suministro de servicios de telecomunicaciones disponibles al público.
+j. Suministrar una Oferta de Interconexión por Referencia (OIR), suficientemente desglosada, que contenga los puntos de acceso e interconexión y demás condiciones técnicas, económicas y jurídicas, que sirvan como marco de referencia para el establecimiento de acuerdos de interconexión o resoluciones de la SUTEL. La OIR deberá ser aprobada por la SUTEL, la cual podrá efectuar modificaciones, enmiendas o aclaraciones para el cumplimiento de los principios y objetivos de este Reglamento.
+En circunstancias debidamente justificadas la SUTEL podrá imponer estas obligaciones a otros operadores de redes públicas y proveedores de servicios de telecomunicaciones disponibles al público.

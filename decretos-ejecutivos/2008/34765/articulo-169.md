@@ -1,0 +1,1 @@
+Artículo 169.—Informe del Director de la audiencia. El Director deberá rendir un informe de la audiencia sobre el desarrollo de ésta. El informe bajo ninguna circunstancia sustituye el acta que sobre la audiencia deberá levantarse. Dicho informe deberá incorporarse al expediente.

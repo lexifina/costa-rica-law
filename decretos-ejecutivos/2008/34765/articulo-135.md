@@ -1,0 +1,1 @@
+Artículo 135.—De la verificación, supervisión e información. Los concesionarios estarán obligados a permitir el acceso a sus instalaciones a los funcionarios de la SUTEL, así como a otorgarles la información y facilidades para que realicen sus funciones en términos de ley.

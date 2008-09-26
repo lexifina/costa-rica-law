@@ -1,0 +1,2 @@
+Artículo 36.—Extinción, caducidad y revocación de las concesiones. Son causales de revocación y extinción de los contratos de concesión, las señaladas en el artículo 22 de la Ley General de Telecomunicaciones.
+El procedimiento para la extinción, caducidad y revocación de las concesiones será el procedimiento ordinario establecido en el Libro II de la Ley General de Administración Pública, Nº 6227, del 2 de mayo de 1978, y sus reformas.

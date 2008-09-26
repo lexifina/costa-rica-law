@@ -1,0 +1,2 @@
+Artículo 86.—Señalización de torres. Los proyectos de ubicación y altura de la estructura que constituya o soporte al sistema de transmisión o recepción, observarán lo previsto en los reglamentos y disposiciones administrativas necesarias y demás disposiciones aplicables y, de ser necesario, deberán obtener las autorizaciones que se trate.
+Las torres de las estaciones de telecomunicación, deberán cumplir con las señales preventivas y demás requisitos para la navegación aérea, según establece la Organización de Aviación Civil Internacional O.A.C.I.

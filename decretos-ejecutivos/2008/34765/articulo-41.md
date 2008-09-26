@@ -1,0 +1,5 @@
+Artículo 41.—Resolución de las autorizaciones. De no presentarse ninguna objeción dentro del plazo otorgado, la SUTEL deberá resolver acerca de la solicitud en un plazo no mayor de sesenta (60) días naturales a partir del día que venció el plazo para presentar dichas objeciones.
+Dentro de los sesenta días, contados a partir de la fecha en que se presenten las objeciones, la SUTEL deberá emitir el acto final que atienda la solicitud de autorización y las objeciones presentadas.
+Mediante resolución razonada, la SUTEL aprobará o rechazará la solicitud de autorización.
+Cuando la SUTEL apruebe la solicitud, en la resolución correspondiente fijará al solicitante las condiciones de la autorización. Esta resolución fijará el dimensionamiento de su vigencia.
+En caso que se deniegue la solicitud, la SUTEL indicará el fundamento y deberá considerar si se ajusta o no a los objetivos de la Ley General de Telecomunicaciones y a las metas definidas en el Plan Nacional de Desarrollo de las Telecomunicaciones.

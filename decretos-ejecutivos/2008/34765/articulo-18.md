@@ -1,0 +1,2 @@
+Artículo 18.—Registro del domicilio social o lugar de residencia. Todo solicitante, al momento de presentar su solicitud, deberá indicar su domicilio o lugar donde recibir notificaciones, obligación que se mantendrá durante la vigencia del título habilitante.
+En el caso de personas jurídicas, se deberán incluir los nombres y cambios que se sucedan de sus representantes. Igual obligación recaerá sobre aquellas personas que a la fecha de entrada en vigencia de este reglamento, dispongan de una concesión vigente.

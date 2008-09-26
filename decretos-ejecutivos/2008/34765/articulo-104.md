@@ -1,0 +1,1 @@
+Artículo 104.—Carga resistiva para prueba. La carga artificial que se utiliza para pruebas de comportamiento del equipo, y para ajustes, debe contar con una instalación de tipo permanente y el intercambio de líneas a carga artificial debe realizarse mediante interruptores, desconectadores o relevadores que no causen pérdidas o desajustes en el equipo.

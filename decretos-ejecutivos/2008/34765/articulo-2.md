@@ -1,0 +1,1 @@
+Artículo 2º—Del ámbito de aplicación. Están sometidas al presente reglamento las personas físicas o jurídicas, públicas o privadas, nacionales o extranjeras, que operen redes o presten servicios de telecomunicaciones que se originen, terminen o transiten por el territorio nacional.

@@ -1,0 +1,1 @@
+Artículo 40.—Traslado de las objeciones. Los objeciones deberán sustentarse en criterios técnicos que demuestren la incompatibilidad de la autorización solicitada con los requisitos y las normas técnicas establecidas por la SUTEL. La SUTEL dará traslado por el plazo de cinco (5) días hábiles al solicitante, para que se refiera a las observaciones u objeciones presentadas.

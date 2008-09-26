@@ -1,0 +1,2 @@
+Artículo 27.—Presentación de ofertas. Las ofertas se presentarán ante la SUTEL, conforme a los términos establecidos en el cartel. La presentación de la oferta implica el sometimiento pleno del oferente, tanto al ordenamiento jurídico costarricense como a las reglas generales y particulares del concurso.
+Las ofertas serán reguladas por lo establecido al respecto en la Ley de Contratación Administrativa y el Capítulo VI del reglamento a dicha ley en lo que corresponda.

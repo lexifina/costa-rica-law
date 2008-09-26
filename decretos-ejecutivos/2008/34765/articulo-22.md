@@ -1,0 +1,2 @@
+Artículo 22.—Estudios previos al inicio del procedimiento concursal. El Poder Ejecutivo, previo a emitir la decisión de inicio del procedimiento concursal, deberá solicitar a la SUTEL la realización de los estudios necesarios y la factibilidad del otorgamiento de las concesiones.
+La SUTEL contará con el plazo de treinta (30) días naturales para llevar a cabo esos estudios, contados a partir del ingreso de dicha solicitud.

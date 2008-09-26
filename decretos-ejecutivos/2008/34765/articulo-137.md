@@ -1,0 +1,1 @@
+Artículo 137.—Ampliación de cobertura. Los titulares de la concesión que preste servicios de televisión inalámbrica informarán a la SUTEL sobre las ampliaciones de cobertura, cuando se encuentre al corriente en el programa previsto en su título de concesión.

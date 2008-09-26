@@ -1,0 +1,1 @@
+Artículo 178.—Cobro judicial. Los débitos constituidos en razón de las sanciones establecidas en el marco de la Ley 8642, que no sean cancelados en sede administrativa, se cobrarán judicialmente, conforme al artículo 72 de la Ley indicada.

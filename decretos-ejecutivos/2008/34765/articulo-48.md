@@ -1,0 +1,2 @@
+Artículo 48.—Extinción, caducidad y revocación de los permisos. Son causales de revocación y extinción de los permisos, las señaladas en el artículo 22 y 25 de la Ley General de Telecomunicaciones, en lo que sean aplicables.
+El procedimiento para la extinción, caducidad y revocación de los permisos será el procedimiento ordinario establecido en el Libro II de la Ley General de Administración Pública, Nº 6227, del 2 de mayo de 1978, y sus reformas.

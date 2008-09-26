@@ -1,0 +1,1 @@
+Artículo 16.—Soporte de Redes Públicas. Cuando las frecuencias de uso libre sean utilizadas como soporte de redes públicas o constituyan una red pública de telecomunicaciones estarán sometidos en lo que corresponda a la Ley General de Telecomunicaciones.

@@ -1,0 +1,2 @@
+Artículo 44.—Extinción, caducidad y revocación de las autorizaciones. Son causales de revocación y extinción de las autorizaciones, las señaladas en el artículo 25 y 22 de la Ley General de Telecomunicaciones, en lo que sean aplicables.
+El procedimiento para la extinción, caducidad y revocación de las autorizaciones será el procedimiento ordinario establecido en el Libro II de la Ley General de Administración Pública, Nº 6227, del 2 de mayo de 1978, y sus reformas.

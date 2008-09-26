@@ -1,0 +1,4 @@
+Artículo 14.—Consideraciones Generales.
+i. La operación de estos servicios está condicionada a no causar interferencia perjudicial a otros servicios autorizados a la fecha de entrada en vigor del presente Reglamento. Así mismo debe tolerar la interferencia perjudicial proveniente de otros sistemas autorizados, contra la cual no estará protegido, en el entendido que los servicios de radiocomunicación que funcionen en estas bandas tendrán prioridad.
+ii. Ante una denuncia de interferencia causada por estos servicios y debidamente comprobada, deberá de suspender toda operación y no podrá reanudarse hasta que se haya subsanado la interferencia y sea debidamente comprobado la eliminación de ésta por la SUTEL.
+iii. En caso de incidirse con una interferencia, la SUTEL podrá decomisar o aplicar las medidas cautelares necesarias mediante solicitud a la autoridad competente.

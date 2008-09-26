@@ -1,0 +1,4 @@
+Artículo 35.—Cesión. Las concesiones pueden ser cedidas siempre que lo autorice el Poder Ejecutivo.
+La solicitud de cesión se presentará ante el Poder Ejecutivo, quien dentro de los cinco (5) días naturales siguientes, solicitará criterio técnico a la SUTEL, la cual dentro de los treinta (30) días naturales contados a partir de la fecha de la recepción de la solicitud de criterio técnico, revisará la solicitud y notificará al Poder Ejecutivo su recomendación técnica.
+La SUTEL podrá solicitar al concesionario la documentación o información necesaria para verificar el cumplimiento de los requisitos establecidos en el artículo 20 de la Ley General de Telecomunicaciones y la justa causa de la cesión.
+Autorizada la cesión, el Poder Ejecutivo deberá elaborar y suscribir el respectivo contrato con el nuevo concesionario y el cedente.

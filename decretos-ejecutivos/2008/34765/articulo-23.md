@@ -1,0 +1,6 @@
+Artículo 23.—Decisión inicial. Una vez emitido el criterio técnico de los estudios previos por parte de la SUTEL y comprobada la necesidad y factibilidad de la concesión, el Poder Ejecutivo emitirá la decisión de inicio del procedimiento concursal respectivo, que trasladará a la SUTEL para que lo instruya.
+La decisión administrativa que da inicio al procedimiento de contratación será emitida por el Poder Ejecutivo. Esta decisión se adoptará una vez que se haya acreditado al menos, lo siguiente:
+a) Una justificación de la procedencia del concurso público, con indicación expresa de la necesidad a satisfacer, considerando para ello los planes de largo y mediano plazo, el Plan Nacional de Desarrollo de las Telecomunicaciones y las políticas sectoriales.
+b) Las especificaciones técnicas y características de la frecuencia del espectro radioeléctrico a concesionar.
+c) Deberá acreditarse la existencia de estudios necesarios y la factibilidad del otorgamiento de la concesión.
+La SUTEL valorará el cumplimiento de los anteriores requisitos, previo inicio del procedimiento y dispondrá la confección de un cronograma con tareas y responsables de su ejecución y velará por el debido cumplimiento del procedimiento.

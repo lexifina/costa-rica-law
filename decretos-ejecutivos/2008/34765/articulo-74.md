@@ -1,0 +1,14 @@
+Artículo 74.—Obligaciones Generales del Titular del Título Habilitante. Sin perjuicio de cualesquiera otras obligaciones impuestas bajo la Ley General de Telecomunicaciones o cualesquiera otras disposiciones legales o reglamentarias, u otras obligaciones contraídas de manera particular en el respectivo título habilitante, su titular estará obligado a:
+a. Prestar los servicios autorizados, de manera continua, de acuerdo a los términos, condiciones y plazos establecidos en la ley, este Reglamento, el respectivo título habilitante y las resoluciones que al efecto dicte la SUTEL;
+b. Cumplir con los requisitos económicos, técnicos y jurídicos mínimos que hayan sido requeridos por la SUTEL y en virtud de los cuales se le haya otorgado el título habilitante, así como cumplir con cualesquiera otros requisitos establecidos por la SUTEL;
+c. Cumplir los planes técnicos fundamentales, reglamentos y las normas técnicas establecidas por el Ministerio de Ambiente, Energía y Telecomunicaciones y por la SUTEL;
+d. Cumplir con el plan mínimo de expansión de los servicios previstos en su título habilitante, en los plazos establecidos, pudiendo la empresa justificar su incumplimiento por causa justificada y solicitar una revisión del mismo a la SUTEL, que evaluará la existencia de causa justificada y determinará la procedencia de esta solicitud;
+e. Permitir el acceso e interconexión a sus redes de todos los equipos, interfaces y aparatos de telecomunicación, de acuerdo a los procedimientos establecidos en la ley y su reglamentación, y permitir el libre acceso a los servicios que mediante ellas se presten, en condiciones transparentes y no discriminatorias;
+f. Adoptar las medidas necesarias para garantizar la privacidad de las telecomunicaciones.
+g. Pagar oportunamente los cánones, tasas y demás obligaciones establecidos en la ley o en su respectivo título habilitante;
+h. Cooperar con la SUTEL en el uso eficiente de los recursos escasos;
+i. Admitir como cliente o usuario final, de manera no discriminatoria, a todas las personas que lo deseen y respetar los derechos de los usuarios finales;
+j. Suministrar a la SUTEL, en el plazo requerido, las informaciones y datos fidedignos que ésta les solicite, concernientes a la actividad que presta;
+k. Proteger los derechos de los usuarios asegurando eficiencia, igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, y más y mejores alternativas en la prestación de los servicios.
+l. Las redes públicas deberán ser diseñadas de conformidad con condiciones técnicas, jurídicas y económicas que permitan su acceso e interconexión.
+m. Presentar a la SUTEL los informes y documentación que ésta requiera con las condiciones y la periodicidad que ésta indique y que sea indispensable para el cumplimiento de las atribuciones y obligaciones que se establecen en la ley.

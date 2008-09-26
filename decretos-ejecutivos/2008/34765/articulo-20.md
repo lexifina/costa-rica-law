@@ -1,0 +1,3 @@
+Artículo 20.—Cambio de información. El titular de un título habilitante tendrá la obligación continua de registrar ante la SUTEL, cualquier cambio material a la información que haya presentado, que no requiera de la aprobación previa de la SUTEL, pero que pueda afectar las condiciones de otorgamiento del título habilitante, dentro de los treinta (30) días naturales siguientes a la fecha efectiva del cambio.
+La falta de cumplimiento de esta obligación constituirá una falta muy grave y será sancionada de conformidad con el artículo 67 inciso a.8) de la Ley General de Telecomunicaciones.
+Si la información fuere necesaria para la solución de un proceso o controversia, la SUTEL podrá requerir la abreviación del plazo.

@@ -1,0 +1,1 @@
+Artículo 164.—Copias. A los escritos y pruebas documentales presentadas, deberán acompañarse tres copias fieles, salvo cuando se trate de cuadros, fotografías, radiografías, cintas cinematográficas, discos, disquetes para computadora, grabaciones magnetofónicas, y objetos muebles de similar naturaleza, de los que se presentará sólo un original o una copia fiel.

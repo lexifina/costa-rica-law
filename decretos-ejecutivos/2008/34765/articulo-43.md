@@ -1,0 +1,2 @@
+Artículo 43.—Plazo y prórroga. Las autorizaciones se otorgarán por un período máximo de diez años, prorrogable a solicitud de parte, por períodos de cinco años, hasta un máximo de tres prórrogas.
+La solicitud de prórroga deberá ser presentada por lo menos seis meses antes de su expiración ante la SUTEL, acompañada de los requisitos que ésta Superintendencia determine y le será aplicable el procedimiento señalado en este apartado.
