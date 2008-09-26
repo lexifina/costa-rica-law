@@ -1,0 +1,2 @@
+Artículo 104.—Presentación de solicitudes de retiro voluntario. Los(as) funcionarios(as) que laboren en la dependencia en que se producirá la reestructuración, podrán presentar ante la jefatura correspondiente, su solicitud de acogerse al programa de retiro voluntario.
+Quedará a criterio de la jefatura correspondiente, aceptar o denegar, mediante acto motivado, la solicitud del(de la) funcionario(a).

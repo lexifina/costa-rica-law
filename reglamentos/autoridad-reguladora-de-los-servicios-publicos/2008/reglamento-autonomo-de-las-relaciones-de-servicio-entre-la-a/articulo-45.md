@@ -1,0 +1,2 @@
+Artículo 45.—Realización de estudios de puestos. Los estudios de puestos parciales o integrales, según sea el caso, se realizarán cuando operen cambios sustanciales y permanentes en las labores que ejecutan los(as) funcionarios(as) o en la estructura organizativa de la Institución.
+Además, podrán efectuarse análisis para casos concretos, cuando las circunstancias así lo ameriten, sin perjuicio de la política que dicte la Junta Directiva en la materia.

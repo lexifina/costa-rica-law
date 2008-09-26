@@ -1,0 +1,1 @@
+Artículo 46.—Contenido del estudio de puestos. El estudio de clasificación y valoración de puestos que se implemente en la Institución, incluirá al menos la redacción o actualización del manual descriptivo de clases y del manual descriptivo de cargos.

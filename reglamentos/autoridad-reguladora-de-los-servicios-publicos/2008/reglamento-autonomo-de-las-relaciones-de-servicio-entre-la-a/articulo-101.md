@@ -1,0 +1,2 @@
+Artículo 101.—Criterio de Recursos Humanos. Corresponderá a Recursos Humanos, en coordinación con el superior jerárquico del(de la) funcionario(a), emitir el criterio técnico sobre los estudios de reestructuración organizacional de recursos humanos que efectúen las dependencias de la Institución.
+El criterio de Recursos Humanos será elevado a conocimiento de la Junta Directiva, la que podrá objetarlo, total o parcialmente, ordenar que sea aclarado, corregido o reelaborado en lo que considere pertinente.

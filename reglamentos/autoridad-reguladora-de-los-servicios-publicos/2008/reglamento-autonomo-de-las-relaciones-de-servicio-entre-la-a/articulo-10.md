@@ -1,0 +1,2 @@
+Artículo 10.—Carácter de la información suministrada por los oferentes. La información suministrada por los(las) oferentes se considerará dada bajo la fe de juramento, por lo que cualquier inexactitud o falsedad comprobada, provocará la inmediata exclusión del candidato del proceso de reclutamiento.
+Si la comprobación de la inexactitud o falsedad en la información, se realiza en forma posterior a la contratación del(de la) candidato(a), se aplicará la sanción prevista en este reglamento y la Institución hará la denuncia correspondiente ante el Ministerio Público.

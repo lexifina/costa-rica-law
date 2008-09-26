@@ -1,0 +1,1 @@
+Artículo 91.—Administración del sistema de evaluación del desempeño. Corresponde a Recursos Humanos administrar el sistema de evaluación del desempeño, que comprende la incorporación al expediente personal del(de la) funcionario(a), del formulario de la evaluación del desempeño, la impugnación del resultado de esa evaluación y, los actos que resuelven las impugnaciones.

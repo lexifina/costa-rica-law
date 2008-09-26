@@ -1,0 +1,1 @@
+Artículo 30.—Concurso para llenar plazas vacantes. Recursos Humanos realizará un concurso abierto para llenar las plazas vacantes. Para ello empleará la lista de elegibles, las fuentes de reclutamiento externas y las bases de datos de los(as) funcionarios(as) de la Institución.

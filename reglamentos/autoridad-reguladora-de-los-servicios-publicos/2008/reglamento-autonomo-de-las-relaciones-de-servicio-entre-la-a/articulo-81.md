@@ -1,0 +1,1 @@
+Artículo 81.—Salud ocupacional. De conformidad con el Código de trabajo, es deber de la Institución procurar el bienestar físico, mental y social de los(as) funcionarios(as) y en general velará por todo lo relativo a la salud ocupacional.

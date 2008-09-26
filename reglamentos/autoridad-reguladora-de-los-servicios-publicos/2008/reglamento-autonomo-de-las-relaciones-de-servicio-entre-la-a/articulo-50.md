@@ -1,0 +1,1 @@
+Artículo 50.—Objetivo de la metodología de clasificación y valoración de puestos. La metodología de clasificación y valoración de puestos es el instrumento que permite, sobre la base del estudio de la naturaleza, alcance y responsabilidades de las funciones asignadas a cada puesto, determinar la clasificación y valoración que corresponderá a cada uno.

@@ -1,0 +1,17 @@
+Artículo 112.—Despido sin responsabilidad patronal. Se sancionará con el despido sin responsabilidad patronal las siguientes faltas:
+a) La reincidencia por tercera vez en las faltas sancionadas conforme el artículo 110 de este Reglamento.
+b) La reincidencia por segunda vez a lo señalado en los incisos b) y c) del artículo 111 de este Reglamento.
+c) Falta grave a las obligaciones establecidas en los artículos 87 y 88 de este Reglamento.
+d) La comisión grave de alguna de las prohibiciones del artículo 89 de este Reglamento.
+e) El abandono agravado e injustificado de labores, cuando los efectos negativos sean graves.
+f) Cuando el(la) funcionario(a) se conduzca durante sus labores en forma abiertamente inmoral, o acuda a la injuria, a la calumnia o a las vías de hecho contra la Institución;
+g) Cuando el(la) funcionario(a) cometa alguno de los actos enumerados en el inciso anterior contra algún compañero, durante el tiempo que se ejecutan los trabajos, siempre que como consecuencia de ello se altere gravemente la disciplina y se interrumpan las labores;
+h) Cuando el(la) funcionario(a), fuera del lugar donde se ejecutan las faenas y en horas que no sean de trabajo, acuda a la injuria, a la calumnia o a las vías de hecho contra sus superiores en la dirección de las labores, siempre que dichos actos no hayan sido provocados y que como consecuencia de ellos se haga imposible la convivencia y armonía para la realización del trabajo;
+i) Cuando el(la) funcionario(a) cometa algún delito o falta contra la propiedad en perjuicio directo de la institución o cuando cause intencionalmente un daño material en las máquinas, herramientas, materias primas, productos y demás objetos relacionados en forma inmediata e indudable con el trabajo;
+j) Cuando el(la) funcionario(a) revele los secretos técnicos, de los cuales tenga conocimiento por razón del trabajo que ejecuta; así como de los asuntos administrativos reservados, cuya divulgación pueda causar perjuicios a la institución.
+k) Cuando el(la) funcionario(a) comprometa con su imprudencia o descuido absolutamente inexcusable, la seguridad del lugar donde se realizan las labores o la de las personas que allí se encuentren;
+l) Cuando el(la) funcionario(a) deje de asistir al trabajo sin permiso de su jefe, sin causa justificada durante dos días consecutivos o durante más de dos días alternos dentro del mismo mes- calendario.
+m) Cuando el(la) funcionario(a) se niegue de manera manifiesta y reiterada a adoptar las medidas preventivas o a seguir los procedimientos indicados para evitar accidentes o enfermedades; o cuando el(la) funcionario(a) se niegue en igual forma a acatar, en perjuicio de la institución , las normas que éste o su representantes en la dirección de los trabajos le indique con claridad para obtener la mayor eficacia y rendimiento en las labores que se están ejecutando;
+n) Cuando el(la) funcionario(a) al presentar su oferta de servicios, haya inducido a error a la institución, pretendiendo tener cualidades, condiciones o conocimientos que evidentemente no posee, o presentándole referencias o atestados personales cuya falsedad éste luego compruebe, o ejecutando su trabajo en forma que demuestre claramente su incapacidad en la realización de las labores para las cuales ha sido contratado;
+o) Cuando el(la) funcionario(a) sufra prisión por sentencia ejecutoria.
+p) Las establecidas en el artículo 34 y 35 del Reglamento del Procedimiento para el trámite de las denuncias sobre Hostigamiento o Acoso Sexual de la Autoridad Reguladora.

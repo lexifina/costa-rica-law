@@ -1,0 +1,5 @@
+CAPÍTULO X
+Del sistema de evaluación del desempeño
+Artículo 90.—Sistema de evaluación del desempeño. La Institución contará con un sistema de evaluación del desempeño, que genere información verdadera sobre la productividad del recurso humano, individualmente o por dependencia, que fomente los valores morales, que permita mejorar el desempeño y que ayude en la identificación de las debilidades y fortalezas del personal, para una adecuada toma de decisiones.
+El sistema de evaluación del desempeño estará estrechamente ligado con los objetivos y metas definidos en el Plan anual operativo de la Institución, por lo que, luego de aprobado ese plan, la jefatura inmediata del(de la) funcionario(a), le informará a todos(as) y cada uno de sus colaboradores(as), de las obligaciones y responsabilidades que asumirá respecto del referido plan y sobre las cuales será evaluado(a).
+Dicho sistema servirá para determinar la idoneidad de cada funcionario(a) de la Institución y como base para el otorgamiento de incentivos.

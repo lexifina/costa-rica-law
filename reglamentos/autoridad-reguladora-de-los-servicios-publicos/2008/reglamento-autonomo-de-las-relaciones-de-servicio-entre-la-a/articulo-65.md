@@ -1,0 +1,2 @@
+Artículo 65.—Sustitución temporal de funcionarios(as). La sustitución temporal por períodos mayores o iguales a seis meses, en puestos de igual o de superior categoría se efectuará mediante el proceso de selección interna o externa.
+La sustitución podrá darse para puestos en dependencias distintas a la que pertenece el(la) candidato(a), para lo cual se tomará en consideración el criterio de la jefatura superior del área donde se hará la sustitución.

@@ -1,0 +1,1 @@
+Artículo 22.—Control de asistencia. El control de la asistencia, será responsabilidad de Recursos Humanos, área que deberá informar a las respectivas jefaturas acerca de las inconsistencias, con el fin de que adopten las medidas que correspondan. Esta función podrá ser avocada por la jefatura superior.

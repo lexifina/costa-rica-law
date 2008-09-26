@@ -1,0 +1,16 @@
+# Reglamento (2008-08-20)
+
+Reglamento autónomo de las relaciones de servicio entre la Autoridad Regulador de los Servicios Públicos, su órgano desconcentrado y las personas funcionarias
+
+- Tipo: Reglamento
+- Número: 51
+- Fecha: 2008-08-20
+- Ente emisor: Autoridad Reguladora de los Servicios Públicos
+- Publicación: La Gaceta N° 186 del 2008-09-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64030&param2=74036&param3=1 (ficha 64030)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-09-26 | la propia norma |

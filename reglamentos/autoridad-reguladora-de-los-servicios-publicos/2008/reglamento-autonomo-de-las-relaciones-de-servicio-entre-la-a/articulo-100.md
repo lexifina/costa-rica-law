@@ -1,0 +1,4 @@
+Artículo 100.—Procedimiento para la supresión de plazas y reasignación de puestos. Si como resultado de la implementación de la reestructuración debidamente aprobada, se requiera suprimir plazas, o bien, reasignar al titular del puesto en una plaza de otra categoría, se seguirá el siguiente procedimiento:
+a) Se procurará reubicar al(a la) funcionario(a) afectado(a) con la supresión de su plaza, en otra de igual o mayor categoría, siempre que cumpla los requisitos mínimos de la plaza en la que se le reubica. De lo contrario, habría que reubicarlo(a) en una de menor categoría.
+b) Si no hubiera plaza de menor categoría, se procurará reubicar al(a la) funcionario(a) en una nueva categoría.
+c) Si no fuera posible hacer las reubicaciones indicadas en los incisos a) y b) de este artículo, el(la) funcionario(a) será despedido(a), con responsabilidad patronal.

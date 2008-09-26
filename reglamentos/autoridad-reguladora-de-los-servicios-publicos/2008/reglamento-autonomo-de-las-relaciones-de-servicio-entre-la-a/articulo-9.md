@@ -1,0 +1,1 @@
+Artículo 9º—Adquisición del carácter de elegible. Cumplidos a satisfacción los requisitos para optar por una plaza vacante, el(la) solicitante adquirirá el carácter de elegible y deberá ser tomado(a) en cuenta cada vez se integre una nómina para ocupar una plaza vacante para la cual califique.

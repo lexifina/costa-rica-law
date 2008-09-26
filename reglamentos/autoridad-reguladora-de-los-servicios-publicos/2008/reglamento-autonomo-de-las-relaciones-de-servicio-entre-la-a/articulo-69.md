@@ -1,0 +1,1 @@
+Artículo 69.—Participación en concursos. La Institución velará para que los(as) funcionarios(as) sean considerados en los concursos para ocupar puestos vacantes, sobre la base de la idoneidad y la excelencia demostrada.

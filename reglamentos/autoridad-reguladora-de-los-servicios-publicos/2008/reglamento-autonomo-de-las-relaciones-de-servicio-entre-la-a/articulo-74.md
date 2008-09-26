@@ -1,0 +1,1 @@
+Artículo 74.—Traslado por razones de riesgo. La institución adoptará las medidas necesarias para trasladar al(a la) funcionario(a) a otro puesto más adecuado; cuando la permanencia en el que tiene, no es aconsejable por razones médicas, debido a la exposición a riesgos.

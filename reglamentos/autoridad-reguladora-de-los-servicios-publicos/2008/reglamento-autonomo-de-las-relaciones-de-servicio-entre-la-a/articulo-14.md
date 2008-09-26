@@ -1,0 +1,7 @@
+SECCIÓN II
+Del nombramiento y del período de prueba
+Artículo 14.—Clases de nombramiento. Los nombramientos se realizarán por tiempo indefinido para el cumplimiento de las funciones propias de la Institución y por plazo determinado para laborar temporalmente en la Institución cuando ello proceda o, por razones de eventualidad y excepción.
+Las plazas de Gerente General, Directores Generales, Directores y Jefes de departamento serán nombradas por un plazo determinado de 6 años.
+En caso de que un(a) funcionario(a) nombrado(a) a tiempo indefinido, sea ascendido(a) a una plaza por tiempo determinado, una vez terminado el periodo de su nombramiento, será reinstalado en el cargo que ocupaba antes de su designación.
+En los casos en que un(a) funcionario(a) nombrado(a) a tiempo indefinido, sea ascendido(a) a una plaza con características similares de temporalidad, gozará respecto de la plaza que ocupaba anteriormente, de un permiso sin goce de salario por el tiempo que dure el periodo de prueba.
+El nombramiento de los(as) funcionarios(as) de confianza será discrecional del Jerarca Superior Administrativo correspondiente y por un tiempo máximo igual al que fueron designados dichos jerarcas. Tal discrecionalidad aplica también para efectos de remoción de esos funcionarios(as), que además podrán ser funcionarios(as) de la institución o bien provenir de fuera de la institución. En cuanto a los funcionarios(as) que desempeñen esa clase de funciones, una vez terminadas estas, serán reinstalados(as) en el cargo que ocupaban antes de su designación.
