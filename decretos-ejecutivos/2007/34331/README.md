@@ -15,3 +15,4 @@ Reglamento a la Ley de Catastro Nacional
 | --- | --- | --- |
 | 1 | 2008-09-27 | la propia norma |
 | 2 | 2008-09-27 | Decreto Ejecutivo 34429 (2008-03-25) |
+| 3 | 2008-09-27 | Decreto Ejecutivo 34600 (2008-06-25) |
