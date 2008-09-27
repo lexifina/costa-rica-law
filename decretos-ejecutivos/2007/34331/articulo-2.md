@@ -14,8 +14,10 @@ l. Identificador único de inmueble: El número de inmueble está formado por va
 m. Inmueble: Es la unidad física inscrita o no en el Registro Inmobiliario.
 n. Junta: Se entenderá por Junta a la Junta Administrativa del Registro Nacional.
 o. Ministerio: Se entenderá por Ministerio al Ministerio de Justicia.
-p. Plano catastrado: Es el plano de agrimensura que ha sido inscrito en el Catastro Nacional y sus efectos serán definidos en este Reglamento.
-q. Plano de agrimensura: Es el que representa en forma gráfica y matemática un inmueble, que cumple con las normas que establece el presente Reglamento.
+p. Plano catastrado:Es el plano de agrimensura, físico o en formato electrónico, que ha sido inscrito en el Catastro Nacional y sus efectos serán definidos en este Reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
+q. Plano de agrimensura: Es el plano, físico o en formato electrónico, que representa en forma gráfica y matemática un inmueble, que cumple con las normas que establece el presente Reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
 r. Poseedor: Es la persona física o jurídica que carece de título inscrito o inscribible en el Registro de la Propiedad Inmueble y cuya posesión es a título de dueño.
 s. Propietario: Es la persona física o jurídica que tenga debidamente inscrito su derecho sobre un inmueble, en el Registro de la Propiedad.
 t. Protocolo del agrimensor: Es el conjunto de documentos donde se consignan los levantamientos de agrimensura y topografía, efectuados por el profesional autorizado por ley.
