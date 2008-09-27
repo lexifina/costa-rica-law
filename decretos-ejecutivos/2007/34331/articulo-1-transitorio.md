@@ -1,0 +1,1 @@
+Transitorio I.—Todos aquellos planos de agrimensura, que se encuentren en proceso de inscripción o apelación a la fecha de vigencia del presente decreto, podrán continuar esa tramitación de conformidad con este Reglamento, en el tanto le resulte más beneficioso.

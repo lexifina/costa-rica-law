@@ -1,0 +1,2 @@
+Artículo 56.—Principio de Publicidad Catastral. La información del catastro es pública. A la Dirección le corresponde determinar el modo en que esta información puede ser consultada, sin riesgo de adulteración, pérdida o deterioro de la misma.
+El Registro Nacional queda autorizado para brindar la publicidad formal de su información por los medios técnicos y tecnológicos de que disponga, valiéndose para ello de la microfilmación, digitalización de imágenes y cualesquiera otra técnica o tecnología utilizada.

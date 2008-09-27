@@ -1,0 +1,1 @@
+Artículo 39.—Formalidades. El Catastro no aceptará borrones, tachaduras, o enmiendas hechas sobre el plano, cuando se presente en forma material y rechazará los que contengan firmas copiadas por medio de máquinas o facsímile. Tampoco aceptará leyendas o rótulos que tengan carácter de propaganda.

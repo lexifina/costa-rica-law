@@ -1,0 +1,1 @@
+Artículo 37.—Entero. Se deberá dejar un espacio suficiente, para adherir un entero o para indicar el número de entero, de pago de aranceles y demás impuestos correspondientes. Cuando se cuente con los medios técnicos o tecnológicos respectivos, los pagos requeridos podrán verificarse por medios digitales o electrónicos.

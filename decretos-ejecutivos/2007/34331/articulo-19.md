@@ -1,0 +1,2 @@
+Artículo 19.—Fe pública del agrimensor. Los datos contenidos en el plano de agrimensura son insertados en él bajo la fe pública y responsabilidad que tienen los profesionales de la agrimensura.
+Para estos efectos, el Catastro y sus registradores, no pueden cuestionar el alcance de esta fe pública, solicitando otros requisitos o información que no sea la establecida en este Reglamento u otras normas reglamentarias o legales afines.

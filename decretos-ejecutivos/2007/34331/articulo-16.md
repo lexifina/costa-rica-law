@@ -1,0 +1,1 @@
+Artículo 16.—Ejecutorias. En caso de que los tribunales declararan con lugar las acciones a que se refiere el artículo precedente, se harán en dichos documentos las rectificaciones y cambios dispuestos en las ejecutorias respectivas.

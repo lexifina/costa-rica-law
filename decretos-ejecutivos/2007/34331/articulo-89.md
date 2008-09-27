@@ -1,0 +1,1 @@
+Artículo 89.—Plazo para resolver. El plazo para resolver es de diez días hábiles a partir del día siguiente de su presentación, salvo que situaciones especiales lo impidan, para lo cual se emitirá la respectiva resolución.

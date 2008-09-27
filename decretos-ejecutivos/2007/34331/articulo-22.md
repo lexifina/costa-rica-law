@@ -1,0 +1,8 @@
+Artículo 22.—Legitimación para solicitar el levantamiento. Procederá la solicitud para el levantamiento de un plano de agrimensura, siempre que sea hecha por el titular registral, el poseedor, concesionario, solicitante de una concesión o sus representantes legales, en la que expresa su conformidad con los datos catastrales referentes a su inmueble. La tenencia por cualquier título que no sea de las indicadas, no otorga legitimación para solicitar el levantamiento. El albacea de la sucesión del titular inscrito, tendrá legitimación para solicitar el levantamiento de plano de agrimensura.
+El Estado, sus instituciones y las municipalidades tendrán legitimación para solicitar levantamientos de planos de agrimensura.
+Para realizar un levantamiento de agrimensura sobre bienes que se encuentren inscritos en copropiedad, se seguirán las siguientes reglas:
+a. Si la finca pertenece a dos o más copropietarios, el plano deberá ser solicitado por todos estos.
+b. Si uno de los copropietarios, solicita el levantamiento de su derecho materializado en el terreno, se procederá conforme lo establecido en la Ley de Inscripción de Derechos Indivisos, Nº 2755 y sus reformas.
+c. Si el dominio de un inmueble está divido en nuda propiedad y usufructo, procederá la solicitud de levantamiento, siempre que sea solicitado por todos los nudatarios y usufructuarios en forma conjunta.
+d. No procede la solicitud de levantamiento hecha por el titular de un derecho de uso o de habitación sobre el inmueble.
+e. El Poseedor de un inmueble podrá solicitar el levantamiento de agrimensura, siempre que cumpla con las características establecidas en el inciso r) del artículo 2 de este Reglamento.

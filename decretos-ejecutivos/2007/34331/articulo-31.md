@@ -1,0 +1,1 @@
+Artículo 31.—Orden de tramitación. Los planos que se presenten en el Catastro Nacional, serán tramitados por su orden de presentación y serán devueltos al interesado dentro de un plazo no mayor de ocho días hábiles posteriores. En casos excepcionales, previa valoración y justificación, la Junta Administrativa del Registro Nacional, podrá ampliar el plazo indicado.

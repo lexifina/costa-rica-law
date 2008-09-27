@@ -1,0 +1,1 @@
+Artículo 70.—Planos de agrimensura sobre inmuebles inscritos. Siempre que se levante un plano de agrimensura sobre una propiedad inscrita en el registro respectivo, el catastro nacional inscribirá dicho plano, mientras no conste en el registro de la propiedad la invalidez de dicha inscripción.

@@ -1,0 +1,3 @@
+Artículo 92.—Simbología. Con el objeto de uniformar la representación de las características culturales y naturales, para un mejor aprovechamiento de los datos incluidos en el plano, el Catastro Nacional editará la simbología y especificaciones para representarlas.
+Las instituciones públicas quedarán obligadas a adoptar la simbología y especificaciones a que se refiere este capítulo, a efecto de facilitar la integración de toda la cartografía catastral en un banco de datos del país.
+Hasta tanto no se publique la simbología y especificaciones de este capítulo, el Catastro Nacional aceptará la que ese uso o costumbre determinen.

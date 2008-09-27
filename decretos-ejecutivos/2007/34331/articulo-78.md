@@ -1,0 +1,3 @@
+Artículo 78.—Levantamiento en Zona Marítimo Terrestre. Para efectos de concesiones en la Zona Marítimo Terrestre, el Catastro Nacional comprobará la delimitación de la zona pública, cuando disponga de esa información debidamente oficializada, para proceder a la inscripción del plano.
+En los casos en que el Catastro Nacional no disponga de esta información, se requerirá del visado del Instituto Geográfico Nacional en lo referente a la delimitación de la zona pública.
+Cuando se trate de la inscripción de un plano para efectos de información posesoria en que el inmueble colinda con la Zona Marítimo Terrestre, deberá indicarse en dicho plano la franja de la Zona Marítimo Terrestre a favor del Estado.

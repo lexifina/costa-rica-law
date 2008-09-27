@@ -1,0 +1,1 @@
+Artículo 25.—Incumplimiento de deberes por parte del agrimensor. El profesional que levante un plano de agrimensura sin cumplir con los requisitos legales y reglamentarios correspondientes, tendrá responsabilidad disciplinaria, civil y penal, según sea el caso y de acuerdo con la legislación respectiva vigente.
