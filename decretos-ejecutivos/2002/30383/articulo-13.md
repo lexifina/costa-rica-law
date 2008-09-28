@@ -1,2 +1,0 @@
-Artículo 13.—Organizaciones de colaboración. Cuando en una comunidad, empresa, institución pública, centro de trabajo y organizaciones de parecida naturaleza exista una organización de voluntarios con características y objetivos similares a una estación de bomberos, en caso de situaciones de emergencia deberá coordinar en lo conducente con el Cuerpo de Bomberos y someterse a su autoridad.
-El Instituto Nacional de Seguros podrá colaborar con estas organizaciones de voluntarios con equipo y mediante cursos de capacitación.

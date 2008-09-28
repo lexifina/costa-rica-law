@@ -1,4 +1,0 @@
-Artículo 28.—El Estado, sus instituciones y órganos, encargados de labores de socorro, salvamento y seguridad deberán recuperar de quien o quienes resulten responsables, los gastos por la atención de una situación específica de emergencia, causada por una actuación dolosa, negligente o con culpa grave.
-Al igual que se establece en la norma precedente, deberá mediar la garantía del debido proceso a tenor de la Ley General de la Administración Pública.
-Si se tratara de actuaciones del Cuerpo de Bomberos, el Instituto Nacional de Seguros, siguiendo el procedimiento dispuesto en la norma precedente hará la determinación de la responsabilidad y de la suma a pagar, hasta la recuperación del adeudo.
-En los demás casos, la titularidad de la recuperación corresponderá a la Procuraduría General de la República según sea el caso o al propio órgano o entidad afectados.
