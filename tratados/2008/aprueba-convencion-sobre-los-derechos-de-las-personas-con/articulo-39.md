@@ -1,0 +1,3 @@
+Artículo 39
+Informe del Comité
+El Comité informará cada dos años a la Asamblea General y al Consejo Económico y Social sobre sus actividades y podrá hacer sugerencias y recomendaciones de carácter general basadas en el examen de los informes y datos recibidos de los Estados Partes en la Convención. Esas sugerencias y recomendaciones de carácter general se incluirán en el informe del Comité, junto con los comentarios, si los hubiera, de los Estados Partes.

@@ -1,0 +1,4 @@
+Artículo 37
+Cooperación entre los Estados Partes y el Comité
+1. Los Estados Partes cooperarán con el Comité y ayudarán a sus miembros a cumplir su mandato.
+2. En su relación con los Estados Partes, el Comité tomará debidamente en consideración medios y arbitrios para mejorar la capacidad nacional de aplicación de la presente Convención, incluso mediante la cooperación internacional.
