@@ -14,3 +14,4 @@ Nombra Directores Propietarios y Suplentes del Consejo Nacional de Salarios para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-04 | la propia norma |
+| 2 | 2008-09-29 | Decreto Ejecutivo 34819 (2008-09-29) |
