@@ -1,0 +1,2 @@
+Artículo 3
+Sin perjuicio de lo dispuesto en el artículo 2 del presente Protocolo, el Comité pondrá en conocimiento del Estado Parte, de forma confidencial, toda comunicación que reciba con arreglo al presente Protocolo. En un plazo de seis meses, ese Estado Parte presentará al Comité por escrito explicaciones o declaraciones en las que se aclare la cuestión y se indiquen las medidas correctivas que hubiere adoptado el Estado Parte, de haberlas.

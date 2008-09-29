@@ -1,0 +1,6 @@
+Artículo 6
+1. Si el Comité recibe información fidedigna que revele violaciones graves o sistemáticas por un Estado Parte de los derechos recogidos en la Convención, el Comité invitará a ese Estado Parte a colaborar en el examen de la información y, a esos efectos, a presentar observaciones sobre dicha información.
+2. Tomando en consideración las observaciones que haya presentado el Estado Parte interesado, así como toda información fidedigna que esté a su disposición, el Comité podrá encargar a uno o más de sus miembros que lleven a cabo una investigación y presenten, con carácter urgente, un informe al Comité. Cuando se justifique y con el consentimiento del Estado Parte, la investigación podrá incluir una visita a su territorio.
+3. Tras examinar las conclusiones de la investigación, el Comité las transmitirá al Estado Parte interesado, junto con las observaciones y recomendaciones que estime oportunas.
+4. En un plazo de seis meses después de recibir las conclusiones de la investigación y las observaciones y recomendaciones que le transmita el Comité, el Estado Parte interesado presentará sus propias observaciones al Comité.
+5. La investigación será de carácter confidencial y en todas sus etapas se solicitará la colaboración del Estado Parte.
