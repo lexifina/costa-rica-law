@@ -1,0 +1,1 @@
+Artículo 18.—Ejecución Municipal de las Obras. La Municipalidad en caso de que el Comité de Caminos no asuma la responsabilidad de ejecutar las actividades, contratará cuadrillas de las mismas Comunidades para que realicen el Mantenimiento Manual según corresponda.

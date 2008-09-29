@@ -1,0 +1,1 @@
+Artículo 4º—Prohibición de Depósito de Desechos. Los desechos de cunetas, alcantarillas, canales de salida, chapea y descuaje no podrán ser depositados en la vía pública, sino en un lugar totalmente ajeno al camino, o al interior del inmueble del propietario, con el fin de que no obstaculicen el paso fluido del agua o de la circulación vehicular.

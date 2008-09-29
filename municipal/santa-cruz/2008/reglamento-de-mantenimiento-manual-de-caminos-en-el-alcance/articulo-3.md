@@ -1,0 +1,20 @@
+Artículo 3º—Definiciones:
+3.1 Definición de Mantenimiento Manual. Se entiende por Mantenimiento Manual de caminos a las obras, que por su tamaño y estructura, sólo pueden realizarse manualmente y con herramientas accesibles a los vecinos y fáciles de manipular como por ejemplo: palas, carretillos, zachos, machetes, motosierras y otros.
+3.2 Actividades relacionadas con el Mantenimiento Manual. Considérese actividades de Mantenimiento Manual de caminos, el descuaje, el desmonte y chapea de rondas de calle, la limpieza de cunetas y contracunetas, la limpieza de alcantarillas, la limpieza de Cabezales, la limpieza de canales de salida, la confección de canales transversales o sangrías, así como los desagües y el Bacheo Manual en lastre.
+Para los efectos de este artículo se entenderá por:
+3.2.1. Descuaje. Se denomina descuaje al trabajo de cortar las ramas de los árboles, que por su crecimiento, dan sombra al camino manteniéndolo húmedo y deben ser cortadas en su base. Estas ramas a su vez, impiden a los conductores tener un panorama despejado de la vía, pues en muchos casos ocultan partes malas del camino, lo cual es peligroso por falta de visibilidad. Lo cortado debe ser picado y colocado al lado adentro de la cerca del dueño de la Propiedad.
+3.2.2. Desmonte. Es la actividad que permite eliminar toda la maleza que se encuentra en el derecho de vía, principalmente en cunetas que sobrepase los 5 cm de altura. Esta labor se podrá realizar de manera manual o química mientras no genere daños o perjuicios a ningún ser humano, ni a la naturaleza.
+3.2.3 Chapea Manual. Es la actividad en donde se cortan los arbustos y zacate que están en el derecho de vía, sobretodo aquellos que crecen en los taludes y que a corto plazo, pueden ocasionar deslizamiento de tierra por el sobrepeso y poca capacidad de amarre de sus raíces. Una vez cortada la maleza, los restos deben ser apilados en un sitio apropiado para su compostaje o quema, de acuerdo con la legislación vigente.
+3.2.4 Limpieza de cunetas y contracunetas. La limpieza de cunetas y contracunetas consiste en eliminar todo tipo de maleza que este obstruyendo la evacuación de las aguas de lluvia, así como cualquier otro material arrastrado y acumulado. El tránsito de vehículos, la lluvia y las personas son las principales causantes de estos depósitos. Por lo general, algunos de estos materiales son:
+i. Tierra (Sedimentos)
+ii. Piedras
+iii. Troncos
+iv. Vegetación (de descuajes y chapeas)
+v. Basura (plásticos, electrodomésticos y latas)
+3.2.5 Canales Transversales o Sangrías. Son pequeños canales que se realizan sobre la superficie de ruedo (del centro hacia las cunetas) que permitan cortar el agua superficial, aunque lo más recomendable es hacer bombeo y salidas de agua laterales muy seguidas hacia las cunetas, para evitar la erosión longitudinal y cangilones en tramos donde la pendiente es muy fuerte.
+3.2.6 Limpieza de Alcantarillas. La limpieza de alcantarillas consiste en quitar las rocas, la tierra, hierbas, troncos u otros materiales que obstruyan la entrada, el interior y la salida de la alcantarilla.
+3.2.7 Limpieza y Mantenimiento de Cabezales. La limpieza de los Cabezales está muy ligada a limpieza de alcantarillas y son trabajos que se pueden ejecutar en forma paralela; consiste en eliminar la vegetación de los alrededores y la que nace en el propio Cabezal o en el mejor de los casos poder pintarlo nuevamente.
+3.2.8 Limpieza de Canales de Entrada y Salida. Los canales de entrada y salida son caños que toman el agua de las cunetas y de las alcantarillas, para llevarlas a un canal de desagüe, una quebrada o un río.
+3.2.9 Bacheo Manual en Lastre. Consiste en distribuir el material adecuado en las secciones de la superficie de ruedo donde se presentan huecos o baches que dificultan el libre tránsito.
+3.3. Propietario. Se define como poseedor o propietario de un inmueble colindante con la vía pública, entiéndase ésta como caminos vecinales.
+3.4 Organizaciones comunales, entiéndase a los Consejos de distrito, Asociaciones de Desarrollo y Comités de caminos u otras organizaciones no gubernamentales (ONG).

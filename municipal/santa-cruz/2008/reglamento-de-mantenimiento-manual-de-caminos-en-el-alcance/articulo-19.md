@@ -1,0 +1,1 @@
+Artículo 19.—Ejecución de Obras por ONGs. Las ONGs autorizadas podrán ejecutar cualquier actividad de Mantenimiento Manual cuando obedezca al incumplimiento de los vecinos, previa nota escrita por el encargado de la Unidad Técnica de Gestión Vial Municipal y el Alcalde Municipal.
