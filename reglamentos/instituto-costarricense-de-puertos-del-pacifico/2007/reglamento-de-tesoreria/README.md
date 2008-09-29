@@ -16,3 +16,4 @@ Reglamento de Tesorería
 | 1 | 2007-02-21 | la propia norma |
 | 2 | 2007-04-03 | Reglamento 3412 (2007-04-03) |
 | 3 | 2008-05-06 | Reglamento 3489 (2008-05-06) |
+| 4 | 2008-09-29 | Reglamento 3517 (2008-09-29) |
