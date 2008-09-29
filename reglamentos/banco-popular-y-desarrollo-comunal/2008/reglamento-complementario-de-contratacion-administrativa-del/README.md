@@ -1,0 +1,16 @@
+# Reglamento (2008-08-25)
+
+Reglamento Complementario de Contratación Administrativa del Conglomerado Banco Popular y de Desarrollo Comunal
+
+- Tipo: Reglamento
+- Número: 4602
+- Fecha: 2008-08-25
+- Ente emisor: Banco Popular y Desarrollo Comunal
+- Publicación: La Gaceta N° 187 del 2008-09-29
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64037&param2=74054&param3=1 (ficha 64037)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2008-09-29 | la propia norma |

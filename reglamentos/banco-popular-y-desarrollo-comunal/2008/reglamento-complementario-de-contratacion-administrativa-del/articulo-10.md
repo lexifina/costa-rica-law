@@ -1,0 +1,2 @@
+Artículo 10.—Plazo de las contrataciones. Ninguna contratación de objeto continuo, sucesivo o periódico podrá exceder el plazo de cuatro años.
+Se exceptúan de la regla anterior los arrendamientos de bienes inmuebles que contraten el Banco y las Sociedades Anónimas, en los que por su naturaleza de permanencia no tendrán límite de plazo sino que su término será definido de conformidad con la conveniencia institucional.
