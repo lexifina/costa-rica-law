@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el párrafo primero del artículo 14 del Decreto Ejecutivo Nº 21608-C del 18 de setiembre de 1992, Reglamento a la Ley de Creación de la Comisión Nacional de Nomenclatura, para que en adelante se lea de la siguiente manera:
+“Artículo 14.—Los interesados en bautizar con determinado nombre una Institución, Edificio, Red Vial, Parajes, y Obras todas ellas Públicas, así como Accidentes Geográficos, lo comunicarán a la Comisión, observando las disposiciones de este Reglamento”.
