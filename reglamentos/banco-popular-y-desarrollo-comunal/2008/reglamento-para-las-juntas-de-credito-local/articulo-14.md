@@ -1,0 +1,1 @@
+Artículo 14.—Asistencia a sesiones del Gerente de la Sucursal. El Gerente de la Sucursal respectiva deberá asistir a las sesiones de la Junta de Crédito Local con derecho a voz, de conformidad con lo dispuesto en el artículo 54.2 de la Ley General de la Administración Pública.

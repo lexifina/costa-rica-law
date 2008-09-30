@@ -1,0 +1,1 @@
+Artículo 6º—Juramentación. La Junta Directiva Nacional nombrará a los miembros de la Junta de Crédito Local y sus suplentes dentro de los quince días naturales anteriores al inicio del siguiente período, personas que serán juramentadas por la Presidencia de la Junta Directiva Nacional o su delegado.
