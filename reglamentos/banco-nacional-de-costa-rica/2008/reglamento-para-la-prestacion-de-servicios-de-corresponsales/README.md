@@ -14,3 +14,4 @@ Reglamento para la Prestación de Servicios de Corresponsales BN Servicios del B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-28 | la propia norma |
+| 2 | 2008-09-30 | Reglamento 11501 (2008-09-30) |
