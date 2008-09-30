@@ -1,0 +1,1 @@
+Artículo 19.—En cualquier momento, la Municipalidad de San José, a través de sus diversas áreas, podrá requerir a las pequeñas y medianas empresas a las que haya concedido una subvención los libros contables o la práctica de cualquier tipo de inspecciones con el fin de fiscalizar que los fondos transferidos se apliquen a los fines propuestos.

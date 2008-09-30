@@ -1,0 +1,1 @@
+Artículo 12.—Es obligación del beneficiario de esta clase de ayudas emplear los recursos para el fin que le fueron concedidos, caso contrario, se aplicará lo dispuesto en el artículo 10, in fine anterior.

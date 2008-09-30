@@ -1,0 +1,1 @@
+Artículo 17.—Al finalizar la etapa anterior, el encargado de la dependencia responsable de la gestión administrativo financiera verificará la disponibilidad presupuestaria y, si existen los recursos suficientes, informará al Concejo Municipal la aprobación de la subvención para que éste ordene la transferencia correspondiente.

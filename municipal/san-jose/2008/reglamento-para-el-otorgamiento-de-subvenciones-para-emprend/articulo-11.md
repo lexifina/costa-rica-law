@@ -1,0 +1,1 @@
+Artículo 11.—Las subvenciones que concederá la Municipalidad de San José, podrán ser en dinero en efectivo, en materiales o insumos, según la recomendación que, de acuerdo con lo establecido en el artículo quinto y noveno anterior, realizará la Sección de Trabajo Social.

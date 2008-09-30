@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de este Reglamento, se define la falta de liquidez como aquel acontecimiento económico que amenaza gravemente la sostenibilidad de la actividad cooperativa y por ende, repercute en una reducción sostenida de los ingresos de sus asociados.

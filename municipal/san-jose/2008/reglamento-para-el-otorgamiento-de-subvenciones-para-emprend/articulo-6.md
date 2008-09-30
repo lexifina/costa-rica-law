@@ -1,0 +1,1 @@
+Artículo 6º—Las subvenciones que brinde la Municipalidad serán destinadas única y exclusivamente a inyectar recursos para el resurgimiento de la actividad central desarrollada por la asociación cooperativa beneficiaria, nunca podrá ser utilizada para pago de deudas por préstamos o servicios.

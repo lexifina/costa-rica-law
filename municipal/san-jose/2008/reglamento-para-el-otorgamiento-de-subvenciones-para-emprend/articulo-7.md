@@ -1,0 +1,1 @@
+Artículo 7º—Estas ayudas serán autorizadas por el Concejo Municipal, hasta por un monto máximo de quince millones de colones, previa investigación de su parte y con la recomendación de un estudio socioeconómico, elaborado por el Departamento de Servicios Sociales y Económicos de la Municipalidad.

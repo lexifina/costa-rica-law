@@ -1,0 +1,1 @@
+Artículo 2º—Para otorgar esta clase de beneficios, la Municipalidad de San José creará una subpartida presupuestaria de la que dispondrá anualmente para tal fin y que se denominará: “subvenciones para emprendimientos productivos”.

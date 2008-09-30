@@ -1,0 +1,1 @@
+Artículo 18.—El monto de la subvención que la municipalidad otorgue a esta clase de empresas, quedará a discreción del Concejo Municipal, quien bajo su propia responsabilidad determinará la cantidad respectiva, debiendo considerar para ello la disponibilidad presupuestaria correspondiente.
