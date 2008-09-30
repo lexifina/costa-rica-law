@@ -8,3 +8,4 @@ Pago de intereses de bonos de la deuda pública. En el marco de la renegociació
 (Modificado por el artículo 1° del decreto ejecutivo N° 34454 del 07 de abril de 2008).
 (Reformado por el artículo 1° de la Ley N° 8637 del 22 de mayo del 2008).
 (Reformado por el artículo 1° de la Ley N° 8659 del 07 de agosto del 2008).
+(Reformado por el artículo 1° de la Ley N° 8669 del 30 de setiembre de 2008).
