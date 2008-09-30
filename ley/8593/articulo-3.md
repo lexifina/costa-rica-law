@@ -2,3 +2,4 @@ Artículo 3°.- Modificanse los artículos 2° y 5 de la Ley N° 8562, “Ley de
 (Por el tipo de formato, ver Alcance N° 24 a La Gaceta N° 164 del 28 de agosto del 2007).
 (Modificado por el artículo 2° del decreto ejecutivo N° 34064 del 08 de octubre de 2007)
 (Modificado por el artículo 2° del decreto ejecutivo N° 34084 del 26 de octubre de 2007)
+(Reformado por el artículo 4° de la Ley N° 8669 del 30 de setiembre de 2008)
