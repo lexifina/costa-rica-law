@@ -1,0 +1,2 @@
+ARTÍCULO 20.- Aplicación irrestricta
+Los procedimientos para cobrar el impuesto de patentes establecidos en esta Ley, no excluyen las actividades sujetas a la licencia que, por características especiales, sean objeto de gravámenes impositivos creados por leyes de alcance nacional.
