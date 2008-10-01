@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Registro y documento de patente
+La Municipalidad de Acosta, por medio de su departamento correspondiente, mantendrá un registro de los patentados con todos sus datos: nombre, número de patentado, número de cédula, ubicación del establecimiento donde desarrolla la actividad, números de teléfono y fax, los datos de su representante legal y cualquier otro que sea necesario. Además, el patentado deberá señalar un domicilio, dentro de los límites del cantón, para efectos de notificaciones.

@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Requisitos para obtener la licencia municipal
+En toda solicitud de otorgamiento, será requisito indispensable que los interesados estén al día en el pago de los tributos y de otras obligaciones en favor de la Municipalidad; asimismo, que presenten, a criterio del Concejo Municipal, el permiso de funcionamiento emitido por el Ministerio de Salud. Los interesados deberán llenar un formulario, en el que indiquen el nombre, el número de cédula y la ubicación del local donde se realiza la actividad. Además, deberán cumplir los requisitos señalados en la presente Ley.

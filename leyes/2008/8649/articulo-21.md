@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Impuesto para sociedades diversas
+Si en un mismo establecimiento dedicado a actividades lucrativas ejercen, conjuntamente, varias sociedades o personas físicas, el monto del impuesto se determinará sobre la base de la suma total del ingreso que corresponda a cada uno, individualmente.
