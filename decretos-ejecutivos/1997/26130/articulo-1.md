@@ -18,7 +18,10 @@ Año Límite máximo (%m/m)
 2003-2004 0,45
 2005-2006 0,40
 2007 0,35
-2008 0,05
+2008 0,20(*)
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
+15 de enero del 2009 0,05(*)
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
 Para el caso del diesel utilizado para la generación térmica, se mantiene en 1% de contenido de azufre como límite máximo.
 Cetano: a partir de la publicación de este Decreto se fija el índice de cetano en 45 como mínimo.
 Inflamación: a partir de la publicación de este Decreto, el punto de inflamación deberá ser como mínimo de 52° C
