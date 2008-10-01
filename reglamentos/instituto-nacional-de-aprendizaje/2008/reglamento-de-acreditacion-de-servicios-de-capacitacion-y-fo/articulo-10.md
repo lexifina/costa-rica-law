@@ -1,0 +1,1 @@
+Artículo 10.—De la convocatoria. La convocatoria ordinaria deberá hacerse por escrito, con al menos tres días hábiles de anticipación a la celebración de la sesión, con agenda de trabajo y actas de reunión anterior y las extraordinarias con al menos un día hábil.

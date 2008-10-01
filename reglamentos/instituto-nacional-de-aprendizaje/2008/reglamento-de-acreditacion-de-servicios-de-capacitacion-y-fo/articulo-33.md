@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Del uso de instrumentos institucionales
+Artículo 33.—Del uso del logo institucional de acreditación. La entidad podrá hacer uso del logo que se designe como oficial para los servicios acreditados, previa autorización del INA en cuyo caso, se deberá sujetar a los respectivos lineamientos que regulen la forma en que esos permisos son otorgados, indicando claramente lo que esas entidades pueden o no realizar con dichos instrumentos. Así mismo se arroga la potestad de retirar su utilización cuando se determine que fue utilizado indebidamente.

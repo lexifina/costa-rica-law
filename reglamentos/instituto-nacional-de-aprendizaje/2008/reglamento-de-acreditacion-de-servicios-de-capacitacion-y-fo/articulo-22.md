@@ -1,0 +1,1 @@
+Artículo 22.—Admisibilidad. Una vez que el interesado presenta la documentación solicitada, la Unidad de Acreditación procederá a comprobar que la información suministrada por la persona física o jurídica cumpla con todos los requisitos establecidos para la presentación de la solicitud.

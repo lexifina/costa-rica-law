@@ -1,0 +1,1 @@
+Artículo 12.—De los asuntos no incluidos en el orden del día. Los asuntos que previamente no se encuentran en el Orden del Día serán incluidos por acuerdo afirmativo de la mayoría simple de las personas presentes.

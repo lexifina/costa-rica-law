@@ -1,0 +1,1 @@
+Artículo 28.—Archivo de los expedientes. Se dispondrá de un archivo de todos los trámites de acreditación realizados, en el cual se seguirá un orden lógico y se conservará por todo el tiempo necesario de acuerdo con las disposiciones legales.

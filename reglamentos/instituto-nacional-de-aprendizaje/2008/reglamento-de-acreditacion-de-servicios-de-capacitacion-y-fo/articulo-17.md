@@ -1,0 +1,1 @@
+Artículo 17.—De las actas. De cada sesión del Consejo de Acreditación, se elabora un acta donde se hace constar las personas asistentes, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos analizados, el resultado de la votación y el contenido de los acuerdos.

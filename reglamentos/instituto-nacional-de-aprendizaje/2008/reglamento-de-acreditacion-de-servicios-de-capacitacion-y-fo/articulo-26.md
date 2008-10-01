@@ -1,0 +1,2 @@
+Artículo 26.—Plazo y vigencia de los contratos. Los contratos que este servicio derive, tendrán plazo de 1 a 3 años, según el período que indique el Consejo de Acreditación y su vigencia será a partir de la firma por las partes.
+Así mismo en casos específicos el Consejo de Acreditación puede prorrogar los plazos de los servicios de formación y capacitación acreditados, fundamentado este acto mientras se designan técnicos especialistas internos o externos requeridos para la renovación y en los resultados que se deriven de los estudios de fiscalización.

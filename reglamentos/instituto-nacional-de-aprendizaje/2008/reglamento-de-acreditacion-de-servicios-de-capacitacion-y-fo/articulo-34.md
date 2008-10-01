@@ -1,0 +1,1 @@
+Artículo 34.—Del uso de los diseños curriculares. La entidad podrá hacer uso de los diseños curriculares, previa autorización del INA en cuyo caso, se deberá sujetar a los respectivos lineamientos que regulen la forma en que esos permisos son otorgados, indicando claramente lo que esas entidades pueden o no realizar con dichos instrumentos.

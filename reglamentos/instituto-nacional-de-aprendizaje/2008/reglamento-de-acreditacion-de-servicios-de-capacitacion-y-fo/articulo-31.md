@@ -1,0 +1,1 @@
+Artículo 31.—Efectos. Una vez revocado el beneficio de la acreditación podrá la parte interesada formular una nueva solicitud que será valorada por el Consejo de Acreditación, el cual admitirá o rechazará dicha renovación, siendo ésta una potestad exclusiva del INA.
