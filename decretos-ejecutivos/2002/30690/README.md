@@ -14,3 +14,4 @@ Reforma al decreto que determina las regulaciones para Producción de Diesel de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-17 | la propia norma |
+| 2 | 2008-10-01 | Decreto Ejecutivo 34879 (2008-10-01) |
