@@ -1,0 +1,1 @@
+Artículo 10.—Los integrantes del COLOSEVI-Coronado deberán mantener en todo momento una conducta intachable y de acuerdo a lo que establece la Ley de Administración Pública y otras leyes vigentes en el territorio nacional. En caso contrario, los integrantes del Consejo procederán a informar de la situación al Concejo Municipal.

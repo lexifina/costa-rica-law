@@ -1,0 +1,1 @@
+Artículo 4º—El COLOSEVI-Coronado definirá el uso que se le dará a los recursos que se le asignen por parte de la Municipalidad, previo a un diagnóstico y a la priorización de necesidades en el cantón.

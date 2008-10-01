@@ -1,0 +1,1 @@
+Artículo 11.—Los miembros del COLOSEVI-Coronado, elaborarán trimestralmente un informe de sus labores, para información y seguimiento de lo actuado, el cual enviarán al Concejo durante los primeros quince días del mes de abril de cada año.

@@ -1,0 +1,1 @@
+Artículo 3º—La administración de la Municipalidad remitirá trimestralmente un informe financiero contable de los recursos que por Ley le corresponda invertir en seguridad vial cantonal y cuando lo solicite el COLOSEVI-Coronado.

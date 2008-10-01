@@ -1,0 +1,2 @@
+Artículo 12.—Los integrantes del COLOSEVI-Coronado, llevarán un registro de las actas de la asistencia a cada una de las reuniones. El secretario será la persona encargada de llevar las actas. En caso de no presentarse el titular de algunas de las organizaciones representadas en más de tres sesiones consecutivamente o cinco alternas, el presidente o quien en su defecto ejerza la presidencia informará al Concejo Municipal. Acuerdo. Cuenta con siete votos afirmativos. Acuerdo definitivamente aprobado.
+Coronado, 11 de setiembre del 2008.—
