@@ -14,3 +14,4 @@ Reglamento de Variaciones al Presupuesto de la Municipalidad de Puriscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-26 | la propia norma |
+| 2 | 2008-10-01 | Reglamento municipal 215 (2008-10-01) |

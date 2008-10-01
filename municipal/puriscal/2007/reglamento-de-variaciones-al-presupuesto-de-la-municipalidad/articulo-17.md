@@ -1,5 +1,6 @@
 Artículo 17.—Se establecen los siguientes mecanismos y regulaciones para la formulación, aprobación de modificaciones presupuestarias en la Municipalidad:
-a) Se realizarán un máximo de diez modificaciones presupuestarias durante el año, entre el 01 de enero y el 10 de diciembre.
+a) Se realizará un máximo de 13 modificaciones presupuestarias durante el año, entre el 01 de enero y el 10 de diciembre
+(Así reformado el inciso anterior mediante sesión N° 215 del 1° de octubre de 2008)
 b) El nivel de detalle en las variaciones presupuestarias será el máximo según los clasificadores oficiales. Se adjuntará un anexo para efectos del SIPP, otro para justificaciones de la Variación Presupuestaria y otro para el efecto de la variación en el plan anual operativo de la institución.
 c) Serán elaboradas por la Alcaldía Municipal, en colaboración con los diferentes departamentos de la institución y serán aprobadas por el Concejo.
 d) Previo a su conocimiento por parte del Concejo deberán llevar la firma del Tesorero, Contador y Alcalde, como respaldo de que la información existente en el documento es cierta y de que la existencia de los saldos disponibles en las subcuentas es real. Luego de la aprobación por parte del Concejo serán firmadas por el presidente y secretaria(o) municipal.
