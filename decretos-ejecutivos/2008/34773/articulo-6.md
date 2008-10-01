@@ -1,0 +1,1 @@
+Artículo 6º—La ampliación de la regulación de precios a los arroces pilados de calidades superiores será revisada en un plazo no mayor a seis meses, contados a partir de la entrada en vigencia del presente Decreto Ejecutivo.

@@ -1,0 +1,37 @@
+N° 34773-MEIC
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En el ejercicio de las facultades que les confiere los artículos 140 incisos 3) y 18) y artículo 146 de la Constitución Política, del 7 de noviembre de 1949; el artículo 28.2 b) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; el artículo 5 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994 y sus reformas, y su Reglamento, Decreto Ejecutivo Nº 25234-MEIC, del 25 de enero de 1996; y el artículo 7 de la Ley de Creación de la Corporación Arrocera Nacional, Ley Nº 8285 del 30 de mayo del 2002.
+Considerando:
+I.—Que conforme lo establece el inciso e) del artículo 33 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472 del 20 de diciembre de 1994 y sus reformas, publicada en el Diario Oficial La Gaceta Nº 14 del 19 de enero de 1995, es función del Estado establecer una canasta básica que satisfaga las necesidades de las familias costarricenses de menos recursos; lo cual, se plasma en el Decreto Ejecutivo Nº 24852–MEIC, del 13 de diciembre de 1995, publicado en el Diario Oficial La Gaceta Nº 15 del 22 de enero de 1996, al establecer la Canasta Básica Moderna, dentro de la cual se incluye el arroz.
+II.—Que con ocasión de atender una inquietud del Sector Comercial Minorista del país; quién manifestó su preocupación entorno a la aparente restricción en el suministro de arroz pilado en calidades 80/20 (80% grano entero y 20% grano quebrado) e inferiores, es decir, los arroces con los precios regulados; este Ministerio consideró necesario y procedente muestrear las ventas e inventarios de arroz existentes, en las más importantes plantas procesadoras de arroz. De forma paralela, se muestrearon los inventarios de los principales supermercados y sus bodegas o centros de distribución. Es decir; se tomaron datos del mercado arrocero, con corte transversal en el tiempo, en las instalaciones de todos los agentes económicos involucrados. Dicha muestra se llevó a cabo del 31 de julio al 04 de agosto del 2008.
+III.—Que del análisis de los resultados de dicho monitoreo se elaboró el Estudio Económico, número EE-036-2008, en el cual se determinó que se estaba presentando una reducción de la oferta de los arroces con los precios regulados, que son los de mayor consumo de la población, lo que hizo suponer una situación de riesgo de desabasto, en el futuro próximo. Sin embargo, se concluye que dicho problema no podía ser atribuido al Sector Comercial Minorista, pues se detecta, en ese momento, que la cantidad de arroces con los precios regulados, en poder de los comercios, es sumamente limitada. Los resultados del examen realizado al Sector Industrial Arrocero, hacen presumir que el potencial problema de desabasto podría tener su origen en las restricciones deliberadas de la oferta de dichos arroces, por parte de este.
+IV.—Que para efectos de tomar las decisiones más acertadas, se considera prudente, tener más criterios fácticos, por lo que se decide efectuar un segundo monitoreo de todas las ventas e inventarios de los distintos arroces, en la totalidad de las industrias del país, con exclusión del Sector Comercial. Por tal, se censaron las ventas de arroz pilado del mes de agosto y todos los inventarios de arroz existentes, en las industrias arroceras del país, al 03 de setiembre del año en curso.
+V.—Que producto de este segundo monitoreo, y como continuación del primero, se elaboró el Estudio Económico, número EE-037-2008, que determinó, entre otras cosas, que efectivamente, en este momento, existe una tendencia, fuerte y creciente, a reducir la oferta de los arroces con los precios regulados. Tal situación presupone la llegada, en el corto plazo, de una condición de desabasto, sobre todo si se analiza a la luz de los inventarios de la industria arrocera, que, por analogía, es el plan de ventas futuras.
+VI.—Que contando con mayores criterios fácticos del comportamiento de los oferentes del mercado arrocero, y contrastando los datos de ambos estudios, sobre inventarios y ventas, se puede colegir que el Sector Industrial Arrocero, en este momento, está orientando su estrategia de mercado, no solo a eludir parcialmente la regulación de precios, sino a eximirse totalmente de ella, pues en tan solo unos pocos meses ha logrado revertir la estructura de consumo promedio del año arrocero 2007/2008. Incluso algunas de las industrias han dejado por completo de producir arroces con los precios regulados. Además, aún cuando se les advirtió sobre la observancia que tendría el MEIC sobre dicho comportamiento, realizando futuros monitoreos de ventas e inventarios, en todas las industrias, se encontró que dicho Sector persiste en tales prácticas inadecuadas.
+VII.—Que la Ley 7472, Promoción de la Competencia y Defensa Efectiva al Consumidor, en su artículo 5, y el inciso a) del artículo 12 de su Reglamento, facultan a la Administración Pública, a regular los precios de aquellos bienes y servicios, cuyos mercados presenten condiciones anormales, incluyendo, entre esas circunstancias, fuerza mayor, desabastecimiento o abuso comprobado en los márgenes de comercialización. Por tal, con base en dicho mandato se recomienda la ampliación de la regulación de precios a todas las calidades de arroz pilado. Por tanto,
+Decretan:
+REFORMA AL ARTÍCULO 1º DEL DECRETO EJECUTIVO
+Nº 34725-MEIC, DEL 14 DE AGOSTO DEL 2008,
+PUBLICADO EN EL ALCANCE 32-A, DEL
+DIARIO OFICIAL LA GACETA Nº 172,
+DEL 05 DE SETIEMBRE DEL 2008
+Artículo 1º—Reformase el artículo primero del Decreto Ejecutivo Nº 34725-MEIC, del 14 de agosto del 2008, publicado en el Alcance 32-A, del Diario Oficial La Gaceta Nº 172, del 05 de setiembre del 2008, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 1º—Considerando el precio del saco de arroz granza, estipulado en el artículo 3º del presente Decreto Ejecutivo, se establecen los siguientes precios máximos de venta, para todas las calidades de arroz pilado, en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos a los costos de industrialización y comercialización, tanto al mayoreo como al detalle, y son los siguientes:
+Arroz pilado sacos de 46 kg | De industrial a mayorista Saco/colones | De mayorista a detallista Saco/colones | De detallista a consumidor colones/kg
+De 60% a menos de 70% grano entero | 23.395,00 | 24.072,00 | 574,00
+De 70% a menos de 75% grano entero | 24.857,00 | 25.578,00 | 610,00
+De 75% a menos de 80% grano entero | 25.588,00 | 26.331,00 | 628,00
+De 80% a menos de 85% grano entero | 26.319,00 | 27.084,00 | 646,00
+De 85% a menos de 90% grano entero | 27.050,00 | 27.837,00 | 664,00
+De 90% a menos de 95% gano entero | 27.781,00 | 28.590,00 | 682,00
+De 95% a 100% grano entero | 28.512,00 | 29.343,00 | 700,00
+Arroz empacado en distintas presentaciones, equivalente a kg | De industrial a mayorista Colones/kg | De mayorista a detallista Colones/kg | De detallista a consumidor colones/kg
+De 60% a menos de 70% grano entero | 520,33 | 535,41 | 587,00
+De 70% a menos de 75% grano entero | 552,85 | 568,91 | 624,00
+De 75% a menos de 80% grano entero | 569,11 | 585,66 | 642,00
+De 80% a menos de 85% grano entero | 585,37 | 602,40 | 661,00
+De 85% a menos de 90% grano entero | 601,63 | 619,16 | 679,00
+De 90% a menos de 95% gano entero | 617,89 | 635,90 | 698,00
+De 95% a 100% grano entero | 634,15 | 652,65 | 716,00”

@@ -1,0 +1,1 @@
+Artículo 5º—Los precios estipulados en el artículo 1º del presente Decreto Ejecutivo serán revisados, en un plazo aproximado de 90 días, contados a partir de la publicación del Decreto Ejecutivo Nº 34725-MEIC, del 14 de agosto del 2008, publicado en el Alcance 32-A, del Diario Oficial La Gaceta N º 172, del 05 de setiembre del 2008.
