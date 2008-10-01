@@ -1,0 +1,4 @@
+Artículo 11.—Del traslado de la denuncia: Una vez que transcurran los tres días hábiles establecidos en el Artículo anterior, el Órgano Director, hará traslado de la denuncia a la persona denunciada, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca la prueba de descargo, en relación con los mismos.
+En caso de que el o la denunciante no ejerza su derecho de defensa, el proceso continuara hasta concluirse definitivamente con la emanación del informe final.
+En el plazo de diez días hábiles después de la comparecencia y evacuación de la prueba, el Órgano Director, informara por escrito al Alcalde Municipal, sobre las conclusiones a que llegó en el proceso administrativo, emitiendo las recomendaciones disciplinarias, en caso de que se consideren aplicables.
+El alcalde tendrá cinco días hábiles para resolver en definitiva el caso.

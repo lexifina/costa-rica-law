@@ -1,0 +1,1 @@
+Artículo 2º—Competencia subjetiva: El presente reglamento regirá para todos los servidores municipales, interinos o en propiedad, así como para el Alcalde(sa), vicealcaldes, los munícipes y apoderados municipales, o los funcionarios que no devenguen sueldos sino dietas. Todo esto en relación con la Municipalidad Valverde Vega.
