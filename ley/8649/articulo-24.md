@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Requisitos para los arrendantes de locales
+Todo patentado que arriende un edificio o local para explotar una patente municipal, al solicitar la licencia respectiva, deberá presentar el contrato de arriendo correspondiente, con una cláusula donde el dueño del inmueble se hace responsable por las posibles deudas del inquilino derivadas de sus patentes municipales; esto por cuanto el bien inmueble donde se explota la patente responderá por cualquier deuda a la Municipalidad.

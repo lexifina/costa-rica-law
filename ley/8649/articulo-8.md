@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Impuesto determinado de oficio y casos especiales
+Si el patentado no presenta la declaración jurada en el término indicado en el artículo 7 de esta Ley, la Municipalidad le aplicará la calificación del año anterior, más un veinte por ciento (20%) del impuesto pagado el año anterior. Esta recalificación deberá realizarse dentro de los treinta días (30) naturales posteriores al vencimiento del plazo para la entrega de la declaración jurada; vencido dicho plazo, se cobrará lo mismo que el año anterior.
