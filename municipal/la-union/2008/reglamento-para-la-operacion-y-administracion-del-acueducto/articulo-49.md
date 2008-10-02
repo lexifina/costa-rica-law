@@ -1,0 +1,1 @@
+Artículo 49.—De la vigencia y derogación. El presente Reglamento entrará en vigencia al día siguiente de su publicación definitiva y deroga cualquier reglamento anterior, sus addéndum y cualquier disposición reglamentaria municipal que se le oponga.

@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+Del servicio en general
+Artículo 4º—Del servicio. La Municipalidad prestará el servicio de agua potable, tomando las medidas necesarias para asegurar la operación, mantenimiento, la adecuada calidad del agua potable, mejoras, desarrollo, inversiones y servicio de la deuda. Está obligada a prestar el servicio de agua a todos los propietarios y poseedores de inmuebles construidos, dedicados al trabajo (no industrial) o residencia de personas, ubicados dentro de la jurisdicción del Cantón de La Unión cuando las redes del sistema pasen frente a las propiedades y los inmuebles cumplan con todos los requisitos de la leyes nacionales y reglamentos municipales.
+En lo que respecta a la CALIDAD DEL AGUA, la Municipalidad seguirá las disposiciones contenidas en el Reglamento para la Calidad del Agua, Nº 25991-S, publicado en La Gaceta Nº 100 del 27 de mayo de 1997, que es parte integrante del presente Reglamento.
