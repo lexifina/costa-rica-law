@@ -1,0 +1,1 @@
+Artículo 20.—La inobservancia de los derechos, obligaciones, o la violación de las prohibiciones, por parte de los funcionarios en el desempeño de sus funciones debidamente establecidas en este reglamento, Códigos Municipal y Trabajo, se sancionarán de acuerdo con la gravedad de la falta cometida y siguiendo el debido proceso.

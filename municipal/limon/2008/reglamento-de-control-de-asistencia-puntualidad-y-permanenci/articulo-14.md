@@ -1,0 +1,1 @@
+Artículo 14.—Los jefes de Departamentos deben de informar a la Dirección del Departamento de Personal, con copia a la Dirección General, las ausencias de cualquier causa de los empleados en los prontuarios (licencias, ausencias justificadas o injustificadas, vacaciones).
