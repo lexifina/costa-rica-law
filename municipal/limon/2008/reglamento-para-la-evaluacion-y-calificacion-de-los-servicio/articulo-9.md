@@ -1,0 +1,1 @@
+Artículo 9º—La resolución del Alcalde Municipal sobre el desacuerdo entre el Jefe inmediato y el subalterno respecto al resultado de la evaluación y calificación de servicios, agotará la vía administrativa.

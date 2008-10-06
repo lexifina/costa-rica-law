@@ -1,0 +1,1 @@
+Artículo 7º—El desacuerdo entre el jefe inmediato y el subalterno respeto al resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde Municipal, previa audiencia hasta por el plazo de tres días hábiles a todas las partes interesadas.
