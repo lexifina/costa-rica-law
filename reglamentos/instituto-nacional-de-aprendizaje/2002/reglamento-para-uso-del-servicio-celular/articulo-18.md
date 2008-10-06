@@ -1,3 +1,4 @@
 CAPÍTULO V
 Disposiciones finales
-Artículo 18.—Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en lo concerniente al cuido y control de bienes, serán resueltos por la Comisión de Bienes del INA. En relación con aspectos de orden administrativo, estos serán resueltos por la Subgerencia Administrativa.
+Artículo 18.—Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en materia de cuido y control de bienes, serán resueltos por la Comisión de Bienes del INA. En relación los demás aspectos serán resueltos en primera instancia por la USIT y en segunda instancia por la Subgerencia Administrativa.
+(Así reformado mediante acuerdo N°172-2008-JD-V2 tomado en la sesión N° 4360 de 06 de octubre de 2008)
