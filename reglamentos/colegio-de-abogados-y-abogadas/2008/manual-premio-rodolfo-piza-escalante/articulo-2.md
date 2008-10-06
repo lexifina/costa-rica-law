@@ -1,0 +1,1 @@
+Artículo 2º—El Premio consistirá en una medalla de oro y un pergamino que le entregará el Colegio de Abogados de Costa Rica en ceremonia especial en fecha que determinará la Junta Directiva y se otorgará cada tres años.

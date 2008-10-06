@@ -1,0 +1,2 @@
+Artículo 4º—La decisión que tome el Jurado para conceder el Premio, será por mayoría calificada que deberá contener el voto favorable de por lo menos cuatro de sus miembros y será comunicada a la Junta Directiva como recomendación para que ésta disponga en definitiva.
+El Jurado podrá declarar desierto la designación del Premio si no existieren, a su juicio, personas idóneas para su otorgamiento.

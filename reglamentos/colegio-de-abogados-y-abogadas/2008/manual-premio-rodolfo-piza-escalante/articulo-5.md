@@ -1,0 +1,2 @@
+Artículo 5º—La Junta Directiva del Colegio de Abogados dará la suficiente publicidad para promover la participación de interesados. En el mes de enero del año correspondiente a su otorgamiento, se hará la invitación para hacer proposiciones y la recepción vencerá el último día hábil del mes de abril. Sólo los abogados(a) que estén al día en el pago de sus pueden hacer postulaciones.
+No es permitida el auto presentación.
