@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la Resolución Nº 25-06 de las ocho horas del día veintisiete de octubre del 2006, dictada por la Dirección General y publicada en el Diario Oficial La Gaceta Nº 219 de 15 de noviembre del 2006.
