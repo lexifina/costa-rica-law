@@ -17,3 +17,4 @@ Reglamento de Uso de Vehículos
 | 2 | 1995-01-17 | Decreto TSE 1 (1995-01-17) |
 | 3 | 1996-07-23 | Decreto TSE 2 (1996-07-23) |
 | 4 | 2007-06-06 | Decreto TSE 10 (2007-06-06) |
+| 5 | 2008-10-07 | Decreto TSE 5 (2008-10-07) |
