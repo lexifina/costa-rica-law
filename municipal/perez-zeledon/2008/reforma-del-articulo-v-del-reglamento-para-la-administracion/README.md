@@ -14,3 +14,4 @@ Reforma del artículo V del Reglamento para la Administración y Organización d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-23 | la propia norma |
+| 2 | 2008-10-07 | Reglamento municipal 128 (2008-10-07) |

@@ -1,3 +1,4 @@
+( Derogado mediante sesión N° 128-08 del 07 de octubre del 2008)
 MUNICIPALIDAD DE PÉREZ ZELEDÓN
 (NOTA DE SINALEVI: El Consejo Municipal de Pérez Zeledón, en La Gaceta N° 142 de 23 de junio de 2008, comunicó la ratificación y puesta en vigencia de esta reforma).
 El Concejo Municipal de la Municipalidad de Pérez Zeledón, comunica la entrada en vigencia y su ratificación a la Reforma al artículo V del Reglamento para la Administración y Organización del Funcionamiento del Campo de Exposiciones Municipal, publicado en La Gaceta Nº 119, del 20 de junio del 2008, conforme a lo establecido en el artículo 43 del Código Municipal.
