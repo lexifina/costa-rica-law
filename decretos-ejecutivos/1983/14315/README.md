@@ -19,3 +19,4 @@ Reglamento de Zonaje para los Servidores del Poder Judicial
 | 4 | 1990-12-10 | Decreto Ejecutivo 20124 (1990-12-10) |
 | 5 | 1992-01-27 | Decreto Ejecutivo 21029 (1992-01-27) |
 | 6 | 1993-12-06 | Decreto Ejecutivo 22768 (1993-12-06) |
+| 7 | 2008-10-07 | Circular 176 (2008-10-07) |
