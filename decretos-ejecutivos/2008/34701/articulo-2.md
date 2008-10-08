@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria y para los efectos de los artículos 34 y 19 inciso b) de la Ley Forestal Nº 7575 del 13 de febrero de 1996, la empresa desarrolladora del Proyecto “Cacique-Costa Rica” deberá gestionar las autorizaciones correspondientes de la Oficina del Área de Conservación, del Sistema Nacional de Áreas de Conservación, que sea competente.

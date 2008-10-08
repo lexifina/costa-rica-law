@@ -1,0 +1,1 @@
+Artículo 4º—Las distintas instancias del MINAE, del Estado y los gobiernos locales, tornarán en cuenta esta declaratoria en las diferentes solicitudes, trámites y autorizaciones que gestione la empresa desarrolladora responsable del proyecto, en concurso con sus contratistas, para el adecuado desarrollo del mismo.
