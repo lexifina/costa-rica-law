@@ -1,0 +1,1 @@
+Artículo 27.—Una vez autorizada la gira el arrendante realizará la misma, de acuerdo con las rutas indicadas en el formulario de Autorización de Pago de kilometraje a funcionarios de la DIGEPYME del MEIC.

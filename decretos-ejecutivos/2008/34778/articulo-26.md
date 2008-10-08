@@ -1,0 +1,1 @@
+Artículo 26.—Para realizar la gira el arrendante deberá presentar como mínimo un día hábil antes de realizar la gira al jefe inmediato o Director de la DIGEPYME la programación de la misma, de acuerdo con el formulario “Autorización al Servicio de Pago de Kilometraje a Funcionarios de la DIGEPYME del MEIC”, para su aprobación.
