@@ -14,4 +14,5 @@ Considerando:
 9º—Que el ministro rector del Sector Productivo avaló la solicitud planteada por la ONS mediante el oficio Nº M 319 de 14 de marzo de 2008.
 10.—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado a la ONS para el 2008. Por tanto,
 DECRETAN:
-Artículo 1º—Modificase para la Oficina Nacional de Semillas, el gasto presupuestario máximo fijado para el año 2008, establecido según lo dispuesto en el artículo 1º del Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 de 22 de marzo de 2007 y sus reformas, de manera que este no podrá exceder la suma ¢269.982.447,00 (doscientos sesenta y nueve millones novecientos ochenta y dos mil cuatrocientos cuarenta y siete colones exactos) para ese período.
+Artículo 1º—Modificase para la Oficina Nacional de Semillas, el gasto presupuestario máximo para el año 2008, establecido en el Decreto Ejecutivo Nº 34566-H, publicado en el Alcance Nº 24 a La Gaceta N º 119 del 20 de junio de 2008, quedando el límite de gasto presupuestario en la suma ¢.304.282.447,00 (trescientos cuatro millones doscientos ochenta y dos mil cuatrocientos cuarenta y siete colones exactos) para ese período.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 34810 de 09 de octubre del 2008).

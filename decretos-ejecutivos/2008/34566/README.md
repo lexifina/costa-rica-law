@@ -14,3 +14,4 @@ Modifica para la Oficina Nacional de Semillas el gasto presupuestario máximo pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-20 | la propia norma |
+| 2 | 2008-10-09 | Decreto Ejecutivo 34810 (2008-10-09) |
