@@ -14,3 +14,4 @@ Modifica para el Instituto de Fomento y Asesoría Municipal (IFAM), el gasto pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-21 | la propia norma |
+| 2 | 2008-10-09 | Decreto Ejecutivo 34811 (2008-10-09) |
