@@ -23,4 +23,5 @@ Compra de maquinaria y equipo industrial. (¢2.800.000.000.00)
 6º—Que con el oficio DM-694-2008, el señor Ministro rector del Sector Agricultura y Ganadería avala la solicitud planteada por el Consejo Nacional de Producción.
 7º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Consejo Nacional de Producción para el año 2008. Por tanto;
 DECRETAN:
-Artículo 1º—Modifícase para el Consejo Nacional de Producción el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34542-H, quedando el límite de gasto presupuestario en la suma de ¢16.691.900.000,00 (dieciséis mil seiscientos noventa y un millones novecientos mil colones exactos) en ese período.
+Artículo 1º—Modifícase para el Consejo Nacional de Producción el gasto presupuestario máximo fijado para el año 2008, establecido en el Decreto Ejecutivo Nº 34542-H, quedando el límite de gasto presupuestario en la suma de ¢17.580.200.000,00 (diecisiete mil quinientos ochenta millones doscientos mil colones exactos) en ese periodo.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34851 del 9 de octubre de 2008)

@@ -14,3 +14,4 @@ Modifica para el Consejo Nacional de Producción el gasto presupuestario máximo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-11 | la propia norma |
+| 2 | 2008-10-09 | Decreto Ejecutivo 34851 (2008-10-09) |
