@@ -1,0 +1,1 @@
+Artículo 4º—De la certificación de colegiación. Sólo podrá certificarse la condición de colegiado al profesional que haya cumplido con lo establecido en el artículo 3 de este Manual de Incorporación. En el Acto de Incorporación se le entregará al profesional juramentado la certificación de membresía correspondiente.

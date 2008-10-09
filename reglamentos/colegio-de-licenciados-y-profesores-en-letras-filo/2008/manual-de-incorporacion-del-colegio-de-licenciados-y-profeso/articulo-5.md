@@ -1,0 +1,2 @@
+Artículo 5º—Profesionales extranjeros. La Junta Directiva incorporará a los profesionales extranjeros sólo cuando éstos ostenten un estatus migratorio que los autorice a laborar en el campo de su especialidad y cumplan con los requisitos de ingreso establecidos en el artículo 7 de la Ley Orgánica y el artículo 8 de este Manual, además de tener actualizado el documento de identidad.
+Quedan a salvo los casos de profesores extraordinarios o invitados contratados por las instituciones de educación superior.

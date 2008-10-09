@@ -1,0 +1,1 @@
+Artículo 10.—De las resoluciones de incorporación. La Junta Directiva resolverá la solicitud de incorporación de acuerdo con lo establecido en los artículos 11º y 15º de este Manual, a través de una resolución que deberá contener una justificación sucinta de lo acordado y la fecha a partir de la cual dicho acuerdo entrará en vigencia.
