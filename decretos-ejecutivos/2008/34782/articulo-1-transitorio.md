@@ -1,0 +1,2 @@
+Transitorio único: las personas físicas o jurídicas que fabriquen, formulen, comercialicen, y manipulen materia prima o producto formulado que contenga endosulfán, tendrán un plazo improrrogable de seis meses, contado a partir de la publicación de este decreto, para cumplir con lo establecido en los artículos 2, 3 y 4.
+Dado en la Presidencia de la República.—San José, a las nueve horas del día veinte de junio del dos mil ocho.
