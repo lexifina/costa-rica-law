@@ -16,3 +16,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 1 | 2008-03-19 | la propia norma |
 | 2 | 2008-04-07 | Decreto Ejecutivo 34471 (2008-04-07) |
 | 3 | 2008-08-06 | Decreto Ejecutivo 34714 (2008-08-06) |
+| 4 | 2008-10-09 | Decreto Ejecutivo 34891 (2008-10-09) |
