@@ -1,0 +1,3 @@
+Artículo 40º.- Cambio de permisionario:
+En aquellos casos donde el establecimiento o actividad al cual le fue otorgado el P.S.F. cambie el permisionario, el propietario del inmueble o su representante legal, cuando proceda, deberá presentar ante el Ministerio una carta en la que indique el cambio realizado para su corrección en los archivos del Ministerio y la elaboración en un nuevo certificado de P.S.F., para lo cual deberá adjuntar el certificado original. Dicho documento debe ser autenticado por abogado o en su defecto firmado en presencia de la autoridad sanitaria.
+Para la elaboración del nuevo certificado de PSF, la persona interesada debe cumplir con los requisitos contenidos en el artículo 9 del presente reglamento.

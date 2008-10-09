@@ -1,0 +1,2 @@
+Artículo 49°.- Cierre técnico:
+Si como resultado del seguimiento efectuado por la Autoridad de Salud a un establecimiento se emite el acta de declaratoria de cierre técnico, el permisionario o el representante legal, iniciará el procedimiento correspondiente tomándose en cuenta el plazo otorgado por la Autoridad de Salud para la ubicación de usuarios, o productos de interés sanitario, o la realización de las obras necesarias para decretar el cierre definitivo, el cual deberá ser aprobado por la Autoridad de Salud.

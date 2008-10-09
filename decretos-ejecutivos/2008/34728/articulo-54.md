@@ -1,0 +1,2 @@
+Artículo 54°-. Contralorías de Servicios de Salud:
+Los establecimientos de salud tipo A deberán contar con una contraloría de servicios de salud, según Ley No. 8239, en tanto que los establecimientos tipo B y C quedan exceptuados de esa disposición. En esos casos, las denuncias de las personas interesadas pueden presentarse directamente en la Auditoría General de Servicios de Salud del Ministerio de Salud.

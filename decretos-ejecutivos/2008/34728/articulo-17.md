@@ -1,0 +1,3 @@
+Artículo 17º.- Establecimientos con varias actividades:
+En el caso de establecimientos pertenecientes a una misma persona física o jurídica, con una misma edificación, donde se llevan a cabo varias actividades, el Ministerio otorgará un único certificado de P.S.F., el cual tendrá la vigencia que señale la actividad principal, sea la de mayor riesgo sanitario o ambiental, a excepción de las actividades o establecimientos señalados en el Transitorio I del presente Reglamento.
+Cuando una actividad principal regulada por el Ministerio se convierta en actividad accesoria, la vigencia del permiso será la que señale la actividad principal y le corresponderá al Ministerio aplicar la norma específica correspondiente, otorgándose un único certificado de PSF.

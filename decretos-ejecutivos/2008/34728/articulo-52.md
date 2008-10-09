@@ -1,0 +1,2 @@
+Artículo 52°.- Datos estadísticos de producción, de vigilancia de la salud y estados financiero-contables anuales:
+Todos los establecimientos de salud y afines, independientemente del grupo en que sean clasificados, deberán suministrar los datos estadísticos de producción, de vigilancia de la salud y estados financiero-contables anuales de acuerdo con los productos definidos por el Ministerio de Salud en el marco de las cuentas satélites de salud o cuando lo establezca el reglamento específico.

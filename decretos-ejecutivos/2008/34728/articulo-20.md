@@ -1,0 +1,3 @@
+Artículo 20.-Verificación de la Implementación de los Planes.
+Durante la inspección que se realizará al establecimiento, la autoridad de salud procederá a verificar que cuenta con los planes señalados en el artículo 19 del presente Reglamento, y que se encuentren debidamente implementados. El resultado de esa evaluación será notificado en el informe técnico correspondiente, además se verificará en visita posterior.
+La inspección será realizada por personal técnico o profesional del A.R.S. la cual solicitará el apoyo técnico de la R.R.S y de una unidad organizativa del nivel central del Ministerio, en caso necesario.

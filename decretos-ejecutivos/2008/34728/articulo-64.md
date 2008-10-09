@@ -1,0 +1,4 @@
+Artículo 64º.- Reforma al Reglamento Permiso Sanitario Sintetizadoras, Reenvasadoras de Agroquímicos, Formuladoras, Reempacadoras.
+Refórmense los artículos 6 y 7 y deróguense los artículos 8 y 10 del Decreto Ejecutivo No. 24874-S del 19 de diciembre de 1995, publicado en La Gaceta No.25 del 5 de febrero de 1996, “Reglamento Permiso Sanitario Sintetizadoras, Reenvasadoras de Agroquímicos, Formuladoras, Reempacadoras” para que en lo sucesivo se lean así
+“Artículo 6 - El permiso sanitario de funcionamiento se tramitará en el Área Rectora de Salud correspondiente y aplicará lo que establece el “Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud.”
+“Artículo 7- El permiso sanitario de funcionamiento tendrá una vigencia de cinco años y su renovación se solicitará conforme a lo que establece el “Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud.”

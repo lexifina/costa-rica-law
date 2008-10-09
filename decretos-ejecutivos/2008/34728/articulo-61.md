@@ -1,0 +1,3 @@
+Artículo 61º. - Características del certificado:
+El P.S.F. debe emitirse bajo los términos que establece la Resolución y debe ser firmado únicamente por el Director o encargado del ARS, como autoridad de salud. Se ajustará a las características que se establecen en el Anexo N° 6 del presente reglamento. Dicho documento contemplará únicamente la información que se establece, quedando prohibida cualquier otra acotación de carácter legal, técnico o administrativo, que se le suscriba, a excepción a lo indicado en caso de duplicado por pérdida del certificado.
+El PSF deberá colocarse en un lugar visible dentro del establecimiento.

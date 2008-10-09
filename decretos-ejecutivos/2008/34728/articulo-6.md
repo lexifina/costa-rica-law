@@ -1,0 +1,3 @@
+Artículo 6º.- Tabla de Clasificación:
+Para efectos del artículo anterior, el Ministerio de Salud establece en el Anexo N°. 1 del presente Reglamento, la Tabla de Clasificación de Actividades o establecimientos según riesgo sanitario, la cual utiliza como referencia el Código CIIU, e incluye la clasificación por nivel de riesgo sanitario y ambiental teniendo como objetivo fortalecer los procesos de ejecución, desarrollo, evaluación y control de las actividades que requieren P.S.F.; y garantizar el cumplimiento de la legislación vigente.
+Adicionalmente se establece la clasificación de los establecimientos de salud y afines derivadas de la aplicación de los criterios del Anexo N° 2, la cual se enlista en el Anexo N° 3.

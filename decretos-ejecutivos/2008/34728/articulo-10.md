@@ -1,0 +1,2 @@
+Artículo 10º. – Actividades de alta tecnología:
+En el caso de los establecimientos en los que se desarrollarán actividades nuevas catalogadas como “innovaciones tecnológicas” que no se encuentren dentro de la clasificación Código CIIU o en la Lista del Anexo N° 3, deberán aportar la información que corresponda, según el caso, de los aspectos indicados en el artículo 4° para realizar la clasificación correspondiente y otorgar el PSF.
