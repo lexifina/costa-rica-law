@@ -1,0 +1,1 @@
+Artículo 57.—Impedimentos para el nombramiento del Director de Bomberos. No podrá ser nombrado Director General del Cuerpo de Bomberos quien haya sido miembro del Consejo Directivo durante los doce meses inmediatamente anteriores; tampoco, quien esté ligado, por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive, con cualquier miembro del Consejo Directivo.

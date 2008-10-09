@@ -1,0 +1,1 @@
+Artículo 16.—Ejecución del presupuesto. Para la ejecución del presupuesto, se utilizarán los dineros provenientes del Fondo; por lo tanto, según se establezca en el reglamento de inversión respectivo, deberá mantenerse un flujo de caja que permita la debida y oportuna operación de la organización.

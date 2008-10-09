@@ -1,0 +1,3 @@
+Artículo 35.—De las decisiones del Tribunal Electoral. Las decisiones que tome el Tribunal Electoral dentro de su seno, se aprobarán por mayoría simple. En razón de lo anterior, no se podrá sesionar sin que estén presentes al menos tres miembros del Tribunal Electoral.
+Los acuerdos que tome el Tribunal Electoral quedarán en firme en la sesión siguiente, salvo aquellos en los que se declare acuerdo firme, por votación no menor de las dos terceras partes del total de los miembros presentes. Sobre sus decisiones cabrá el recurso de revocatoria, como única instancia ante este mismo tribunal, y éste agota la instancia.
+Una vez resuelto el recurso de revocatoria sus resoluciones o decisiones serán de acatamiento obligatorio por la dependencia a la que van dirigidas.

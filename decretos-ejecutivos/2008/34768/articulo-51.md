@@ -1,0 +1,1 @@
+Artículo 51.—Selección de candidatos a miembros del Consejo Directivo. Todos los candidatos participantes en el proceso de recolección de firmas que hayan obtenido la adhesión del quince por ciento (15 %) o más del padrón y que cumplan lo establecido en el artículo anterior, integrarán una nómina que será sometida a elección ante la Asamblea de Representantes.

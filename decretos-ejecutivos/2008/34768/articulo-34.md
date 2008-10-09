@@ -1,0 +1,1 @@
+Artículo 34.—Independencia de la actividad del Tribunal Electoral. La organización, dirección y vigilancia de los actos relativos a la elección, serán de competencia exclusiva del Tribunal Electoral, quien gozará de independencia funcional y de criterio respecto del Consejo Directivo y del Cuerpo de Bomberos.

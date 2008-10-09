@@ -1,0 +1,2 @@
+Artículo 46.—Sistema de elección de los miembros a la Asamblea de Representantes. La elección se realizará por voto directo de todos los votantes inscritos. Se elegirá por mayoría simple de una papeleta que contendrá la cantidad total de candidatos de la provincia y sección que corresponda.
+En caso de que exista un empate entre los candidatos a representantes para una provincia, el Tribunal Electoral reconocerá como elegido al representante que tenga mayor edad establecida registralmente entre éstos.

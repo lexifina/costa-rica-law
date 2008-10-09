@@ -1,0 +1,2 @@
+Transitorio IX.—Primera juramentación del Consejo Directivo. Una vez declarado formalmente por el Tribunal Electoral el resultado de la elección, la Junta Directiva del Instituto Nacional de Seguros, juramentará a los miembros electos en el Consejo Directivo del Cuerpo de Bomberos en un plazo no mayor a 10 días hábiles, de forma que puedan asumir sus funciones.
+Dado en San José, a los veintiocho días del mes de setiembre del dos mil ocho.

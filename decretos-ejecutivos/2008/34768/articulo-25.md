@@ -1,0 +1,6 @@
+TÍTULO II
+El Consejo Directivo y el Director de Bomberos
+CAPÍTULO I
+Integración del Consejo Directivo
+Artículo 25.—Conformación del Consejo Directivo. El Consejo Directivo estará integrado por cinco miembros, tres de ellos serán designados por la Junta Directiva del Instituto Nacional de Seguros y los dos restantes serán elegidos por los funcionarios del Cuerpo de Bomberos, mediante un proceso electoral interno, de conformidad con el Capítulo III del Título II de este Reglamento, en el cual tendrán participación todos los miembros del Cuerpo de Bomberos debidamente inscritos según lo defina el reglamento interno del Tribunal Electoral. Este proceso electoral se realizará a través de un Tribunal Electoral, el cual será nombrado por el Director General de Bomberos, de conformidad con este Reglamento.
+Los miembros del Consejo Directivo, tomarán posesión de su cargo en un plazo no mayor a 10 días hábiles una vez juramentados por la Junta Directiva del Instituto Nacional de Seguros, y serán nombrados por un plazo de cinco años pudiendo ser reelectos y pudiendo cesar anticipadamente sus funciones de conformidad con lo dispuesto en la Ley Nº 8228. El presidente del Consejo Directivo y el resto de las plazas serán elegidas anualmente por mayoría simple en el seno del Consejo. Entrarán en posesión del cargo al siguiente día de su elección.

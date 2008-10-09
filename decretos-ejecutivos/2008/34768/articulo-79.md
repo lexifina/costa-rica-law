@@ -1,0 +1,2 @@
+Artículo 79.—Medidas de fuerza. En caso de que los propietarios o responsables negaren el acceso a las fuentes de abastecimiento, o posibilidad de uso de los equipos requeridos en los Artículos anteriores, se podrá acceder a éstos, mediante la participación oportuna de la Fuerza Pública, de conformidad con el principio de razonabilidad.
+Posteriormente se harán constar estos hechos en un acta que será levantada al efecto, por parte de estos mismos funcionarios del Cuerpo de Bomberos.

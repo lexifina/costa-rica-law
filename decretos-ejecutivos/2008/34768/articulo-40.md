@@ -1,0 +1,3 @@
+Artículo 40.—Del Proceso Electoral de los miembros del Consejo Directivo. El proceso electoral se realizará mediante la conformación de una Asamblea de Representantes por provincias y secciones, de conformidad con este Reglamento y los reglamentos internos del Tribunal Electoral.
+Estos representantes una vez electos mantendrán su condición de representante, hasta que no exista un nuevo proceso de elección para representante de la Asamblea.
+Los representantes serán convocados por el Tribunal Electoral para constituir la Asamblea de Representantes, la cual en una sesión de trabajo, analizarán los candidatos propuestos y por medio de votación directa y secreta, elegirán a los dos miembros representantes de los funcionarios del Cuerpo de Bomberos en el Consejo Directivo.

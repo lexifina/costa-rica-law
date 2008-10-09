@@ -1,0 +1,1 @@
+Artículo 88.—De la comercialización de logos, lemas y distintivos. Como parte de un servicio especial, el Cuerpo de Bomberos podrá comercializar sus logos, lemas, emblemas, distintivos para ser usados en artículos promocionales, material impreso, audiovisual o vestuario relacionado con el Cuerpo de Bomberos.

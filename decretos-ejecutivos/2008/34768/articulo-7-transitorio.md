@@ -1,0 +1,1 @@
+Transitorio VII.—Organización temporal del Cuerpo de Bomberos. La organización del Cuerpo de Bomberos, se regirá con base en el Manual organizacional del INS, hasta tanto se emita por parte del Consejo Directivo el Manual Organizacional del Cuerpo de Bomberos establecido en el artículo 24.

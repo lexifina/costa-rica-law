@@ -1,0 +1,2 @@
+Artículo 63.—Inclusión en actividades académicas. El Cuerpo de Bomberos podrá establecer programas anuales de capacitación con el fin de lograr que las universidades públicas y privadas, el Instituto Nacional de Aprendizaje y otras instituciones de educación, incluyan en sus actividades académicas, contenidos o prácticas que adiestren, capaciten y formen a los educandos y profesores en la prevención y atención de situaciones de emergencia.
+Para este efecto, podrá suscribir los convenios de colaboración que se estimen necesarios.

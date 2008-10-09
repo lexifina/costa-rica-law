@@ -1,0 +1,2 @@
+Artículo 64.—De la certificación de las Brigadas. Una Brigada se conforma cuando en una comunidad, empresa, institución pública, centro de trabajo u otros de similar naturaleza, exista una organización de voluntarios o asalariados con características y objetivos similares a una Estación de Bomberos.
+La creación y funcionamiento de las brigadas se regirán con base en la normativa que defina para tal fin el Cuerpo de Bomberos, el cual será el ente que certificará las brigadas; para tal efecto, el Consejo Directivo emitirá el reglamento respectivo.

@@ -1,0 +1,1 @@
+Artículo 47.—De la publicación de los resultados de la elección de representes a la Asamblea. Cerrada la votación, el Tribunal Electoral deberá publicar el resultado de las elecciones, por cada sección y provincia en un plazo no mayor a tres (3) días naturales.
