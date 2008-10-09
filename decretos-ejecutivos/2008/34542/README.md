@@ -15,3 +15,4 @@ Modifica al Consejo Nacional de Producción (CNP), el gasto presupuestario máxi
 | --- | --- | --- |
 | 1 | 2008-06-26 | la propia norma |
 | 2 | 2008-06-26 | Decreto Ejecutivo 34645 (2008-06-25) |
+| 3 | 2008-10-09 | Decreto Ejecutivo 34851 (2008-10-09) |
