@@ -12,4 +12,5 @@ Considerando:
 7º—Que la Ministra Rectora del Sector Violencia y Seguridad Ciudadana avaló la solicitud planteada por el Instituto en el oficio 1503-2007 DM del 12 de febrero del 2007.
 8º—Que por lo anterior se requiere de una modificación en el gasto presupuestario máximo autorizado a dicho órgano para el año 2008. Por tanto;
 Decretan:
-Artículo 1º—Modifícase para el Instituto Costarricense sobre Drogas, el gasto presupuestario máximo fijado para el año 2008, establecido según el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 del 22 de marzo de 2007 y sus reformas, de manera que éste no podrá exceder la suma de ¢1.208.687.500 (un mil doscientos ocho millones seiscientos ochenta y siete mil quinientos colones exactos), en ese período.
+Artículo 1º—Modifícase para el Instituto Costarricense sobre Drogas, el gasto presupuestario máximo fijado para el año 2008, establecido según el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 del 22 de marzo de 2007 y sus reformas, de manera que éste no podrá exceder la suma de (*)¢1.409.875.400,00 (mil cuatrocientos nueve millones ochocientos setenta y cinco mil cuatrocientos colones exactos), en ese período.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34808 de 10 de octubre de 2008).

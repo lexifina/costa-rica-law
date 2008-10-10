@@ -14,3 +14,4 @@ Modifica al Costarricense sobre Drogas, el gasto presupuestario máximo fijado p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-14 | la propia norma |
+| 2 | 2008-10-10 | Decreto Ejecutivo 34808 (2008-10-10) |
