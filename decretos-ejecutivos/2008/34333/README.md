@@ -14,3 +14,4 @@ Modifica al Teatro Popular Mélico Salazar, el gasto presupuestario máximo para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-16 | la propia norma |
+| 2 | 2008-10-10 | Decreto Ejecutivo 34814 (2008-10-10) |

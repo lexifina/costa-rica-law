@@ -11,4 +11,5 @@ Considerando:
 6º—Que la señora Ministra Rectora del Sector Cultural, mediante el oficio DM-1624-07 ya citado, avala la solicitud planteada por el Teatro Popular Mélico Salazar.
 7º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado para el Teatro Popular Mélico Salazar para el año 2008, en la suma de ¢142.480.000,00 (ciento cuarenta y dos millones cuatrocientos ochenta mil colones sin céntimos). Por tanto,
 Decretan:
-Artículo 1º—Modifícase para el Teatro Popular Mélico Salazar, el gasto presupuestario máximo para el 2008, establecido en el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 de 22 de marzo de 2007 y sus reformas, quedando el límite de gasto presupuestario en la suma de ¢1.039.880.000,00 (mil treinta y nueve millones ochocientos ochenta mil colones sin céntimos) para ese período.
+Artículo 1º—Modifícase para el Teatro Popular Mélico Salazar, el gasto presupuestario máximo para el 2008, establecido en el Decreto Ejecutivo Nº 33646-H, publicado en La Gaceta Nº 58 de 22 de marzo de 2007 y sus reformas, quedando el límite de gasto presupuestario en la suma de ¢1.219.944.518,03 (mil doscientos diecinueve millones novecientos cuarenta y cuatro mil quinientos dieciocho colones con tres céntimos), para ese período.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34814 de 10 de octubre de 2008).
