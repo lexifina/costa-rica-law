@@ -16,4 +16,5 @@ Considerando:
 11.—Que la señora Ministra del Sector Cultural, mediante el oficio DM-662-08 del 12 de junio de 2008, avala la solicitud planteada por la Junta.
 12.—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado a la Junta Administrativa del Archivo Nacional para el año 2008, incrementándolo en la suma de ¢25.320.000,00 (veinticinco millones trescientos veinte mil colones exactos). Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase para la Junta Administrativa del Archivo Nacional, el gasto presupuestario máximo para el año 2008, establecido en el Decreto Ejecutivo Nº 34521-H, publicado en La Gaceta Nº 102 de 28 de mayo de 2008, quedando el límite de gasto presupuestario en la suma de ¢782.970.000,00 (setecientos ochenta y dos millones novecientos setenta mil colones exactos) para ese período.
+Artículo 1°—Modifícase para la Junta Administrativa del Archivo Nacional, el gasto presupuestario máximo para el año 2008, establecido en el Decreto Ejecutivo Nº 34606-H, publicado en La Gaceta N º 138 de 17 de julio de 2008, quedando el gasto presupuestario máximo en la suma de ¢1.011.390.000,00 (mil once millones trescientos noventa mil colones exactos) para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34816 del 10 de octubre del 2008).
