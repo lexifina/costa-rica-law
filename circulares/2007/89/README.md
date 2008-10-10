@@ -14,3 +14,4 @@ Nuevo Horario de Atención en el Call Center
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-11 | la propia norma |
+| 2 | 2008-10-10 | Circular 140 (2008-10-10) |
