@@ -1,0 +1,1 @@
+Artículo 6º—De los beneficiarios del Programa: La Población Objetivo del Programa son familias con adolescentes y jóvenes de ambos sexos entre los doce y los veinticinco años de edad, que viven en condiciones de pobreza, en riesgo, vulnerabilidad social y exclusión que necesiten apoyo económico para mantenerse en el sistema educativo a nivel de secundaria.

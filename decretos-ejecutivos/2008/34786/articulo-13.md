@@ -1,0 +1,1 @@
+Artículo 13.—Del traslado de recursos: Para la debida ejecución del presente decreto, corresponderá tanto al Ministerio de Educación Pública como al IMAS preparar los documentos y realizar los trámites necesarios que a lo interno de cada institución procedan para que se realicen las transferencias monetarias condicionadas a las familias beneficiarias únicamente desde el IMAS.

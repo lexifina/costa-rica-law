@@ -1,0 +1,1 @@
+Artículo 2º—De los componentes del programa: El programa estará conformado por una Transferencia Monetaria Condicionada, que estará a cargo del IMAS y que se verá apoyada, lógicamente, por la oferta educativa y formativa, que está a cargo del Ministerio de Educación Pública.
