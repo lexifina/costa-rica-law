@@ -14,3 +14,4 @@ Modifica para el Museo Dr. Rafael Ángel Calderón Guardia el gasto presupuestar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-11 | la propia norma |
+| 2 | 2008-10-10 | Decreto Ejecutivo 34812 (2008-10-10) |
