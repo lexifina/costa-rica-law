@@ -14,3 +14,4 @@ Ampliación horarios para asignación de semáforos en régimen de tránsito, vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-22 | la propia norma |
+| 2 | 2008-10-10 | Circular 140 (2008-10-10) |
