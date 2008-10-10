@@ -37,3 +37,4 @@ Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 60 a 
 (Modificado por el artículo 1° del decreto ejecutivo N° 34120 del 15 de noviembre de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34151 del 23 de noviembre de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34158 del 5 de diciembre de 2007)
+(Reformado por el artículo 4° de la Ley N° 8669 del 30 de setiembre de 2008)
