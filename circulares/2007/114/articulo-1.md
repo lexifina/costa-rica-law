@@ -1,3 +1,5 @@
+(Derogado)
+(Esta circular fue derogada por la Circular DGT-140-2008 de 10 de octubre de 2008.)
 DIRECCIÓN GENERAL DE ADUANAS
 San José, 10 de agosto de 2007
 Circular DGT-114-2007

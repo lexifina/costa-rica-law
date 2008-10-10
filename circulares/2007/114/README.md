@@ -14,3 +14,4 @@ Nuevo horario en la Aduana Paso Canoas y Aduana Documental
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-30 | la propia norma |
+| 2 | 2008-10-10 | Circular 140 (2008-10-10) |
