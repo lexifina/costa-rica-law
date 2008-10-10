@@ -71,3 +71,4 @@ Directrices de Política Presupuestaria para las Entidades Públicas, Ministerio
 | 56 | 2008-10-09 | Decreto Ejecutivo 34810 (2008-10-09) |
 | 57 | 2008-10-09 | Decreto Ejecutivo 34811 (2008-10-09) |
 | 58 | 2008-10-09 | Decreto Ejecutivo 34851 (2008-10-09) |
+| 59 | 2008-10-10 | Decreto Ejecutivo 34808 (2008-10-10) |
