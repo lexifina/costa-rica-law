@@ -15,3 +15,4 @@ Modifica al Instituto Costarricense de Investigación y Enseñanza en Nutrición
 | --- | --- | --- |
 | 1 | 2008-04-25 | la propia norma |
 | 2 | 2008-07-10 | Decreto Ejecutivo 34661 (2008-07-10) |
+| 3 | 2008-10-10 | Decreto Ejecutivo 34813 (2008-10-10) |
