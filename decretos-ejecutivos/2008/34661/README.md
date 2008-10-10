@@ -14,3 +14,4 @@ Modifica al Instituto Costarricense de Investigación y Enseñanza en Nutrición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-14 | la propia norma |
+| 2 | 2008-10-10 | Decreto Ejecutivo 34813 (2008-10-10) |
