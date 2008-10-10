@@ -14,3 +14,4 @@ Modifica para el Museo Nacional, el gasto presupuestario máximo fijado para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-22 | la propia norma |
+| 2 | 2008-10-10 | Decreto Ejecutivo 34815 (2008-10-10) |
