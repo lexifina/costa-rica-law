@@ -1,0 +1,1 @@
+Transitorio I.—Los emisores de valores cuentan con un plazo de seis meses contados a partir del 5 de mayo del 2008 para poner a disposición de la Superintendencia y hacer de conocimiento general mediante Comunicado de Hecho Relevante, el procedimiento indicado en el Artículo 1 del presente Acuerdo.

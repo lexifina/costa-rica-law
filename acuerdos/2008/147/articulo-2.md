@@ -1,0 +1,1 @@
+Artículo 2º—Las entidades de custodia deberán informar a los emisores de valores cuando ocurra una negociación onerosa o no onerosa sobre sus valores representados en forma física, para lo cual deberán contar con procedimientos previamente establecidos.
