@@ -14,3 +14,4 @@ Reglamento para la elaboración y aprobación de modificaciones presupuestarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-21 | la propia norma |
+| 2 | 2008-10-13 | Reglamento municipal 41 (2008-10-13) |
