@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense del Deporte y la Recreación, el gasto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-13 | la propia norma |
+| 2 | 2008-10-13 | Decreto Ejecutivo 34847 (2008-10-13) |
