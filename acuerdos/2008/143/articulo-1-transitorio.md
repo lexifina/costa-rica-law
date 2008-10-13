@@ -1,0 +1,1 @@
+Transitorio I.—En un plazo de seis meses posteriores a la entrada en vigencia de este acuerdo, las sociedades administradoras deben actualizar el manual de procedimientos para aquellos procesos identificados como críticos según lo dispuesto en el artículo 3.

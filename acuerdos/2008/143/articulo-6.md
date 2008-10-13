@@ -1,0 +1,9 @@
+CAPÍTULO II
+EXPEDIENTES E INFORMACIÓN DE INVERSIONISTAS
+Artículo 6º—Expedientes de inversionistas. La sociedad administradora debe mantener un registro actualizado de la documentación relativa al ingreso y salida de cada uno de los inversionistas de los fondos abiertos que administre y para los inversionistas que hayan adquirido participaciones de fondos cerrados colocadas por ventanilla o subasta fuera de bolsa.
+La siguiente es la información mínima que la sociedad debe mantener:
+a. Información del cliente, que debe cumplir con todos los aspectos indicados en la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas y la Normativa para el cumplimiento de Ley 8204. Cuando la sociedad administradora contrate entidades comercializadoras, debe incorporar como parte del contrato la responsabilidad de custodiar el expediente del cliente, ya sea que se mantenga físicamente en las oficinas de la entidad comercializadora o en las oficinas de la sociedad administradora. En todo caso, la sociedad administradora debe tener la potestad de verificar que la entidad comercializadora cumpla con los requerimientos exigidos de información del cliente. La contratación de entidades comercializadoras, no exime a la sociedad administradora de la responsabilidad establecida en el artículo 73 de la Ley Reguladora del Mercado de Valores.
+b. Perfil del inversionista, que debe cumplir con todos los aspectos indicados en el Acuerdo SGV-A-141 Instrucciones sobre el perfil del inversionista.
+c. Documentación sobre la recepción del prospecto y aceptación de las condiciones por parte del inversionista.
+d. Documentación sobre firmas autorizadas en las cuentas del inversionista.
+e. Otra información que la junta directiva de la entidad haya determinado como parte de sus políticas de operación.

@@ -1,0 +1,1 @@
+Artículo 5º—Requisitos para la autorización. Para el cumplimiento de los requisitos indicados en los incisos e, f y g del artículo 3 del Reglamento general sobre sociedades administradoras y fondos de inversión, se debe presentar una declaración jurada que considere al menos el contenido definido en el Anexo I a este Acuerdo.
