@@ -4,5 +4,6 @@ b) Recomendar a la Gerencia General de la respectiva entidad a la que pertenece 
 c) Designar a cualquiera de sus integrantes para que recabe información adicional sobre los asuntos sometidos al conocimiento del Comité.
 d) Proponer a la Junta Directiva Nacional del Conglomerado Financiero Banco Popular y a la Junta Directiva de cada Sociedad la implementación de las políticas, procedimientos y normas de operación para cumplir con los lineamientos de la Ley 8204 y su normativa conexa, el Reglamento y el “Manual de Políticas, Procedimientos y Normas de Operación para la Prevención y Control de Legitimación de Capitales”.
 e) Analizar las posibles deficiencias relacionadas con el cumplimiento de los procedimientos y controles implementados, y tomar las medidas y acciones necesarias para su corrección.
-f) Dentro de los primeros veinte días hábiles de enero y julio, presentar a la Junta Directiva correspondiente, un informe de las labores desarrolladas durante el semestre anterior.
-g) Las demás que indique la normativa aplicable.
+f) Las demás que indique la normativa aplicable.
+(Así reformado el inciso anterior mediante sesión N° 4615 del 13 de octubre de 2008)
+g) (Este inciso fue derogado mediante sesión N° 4615 del 13 de octubre de 2008)
