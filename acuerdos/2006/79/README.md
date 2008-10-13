@@ -14,3 +14,4 @@ Será requisito indispensable para comercializar planes con fines provisionales,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-24 | la propia norma |
+| 2 | 2008-10-13 | Acuerdo 122 (2008-10-13) |
