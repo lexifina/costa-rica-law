@@ -1,7 +1,9 @@
 CIRCULAR Nº 25-2008
+(NOTA: La Corte Suprema de Justicia, mediante Circular No. 02 de 30 de enero de 2009, publicada en el Boletín Judicial No. 61 de 27 de marzo de 2009, comunica la nueva lista oficial de peritos).
 (Nota: Mediante circular N° 11 del 24 de marzo de 2008, publicada en el Boletín Judicial N° 68 del 8 de abril de 2008, se comunica la ampliación de esta lista, así como que se e hacen algunas inclusiones, exclusiones, suspensiones y correcciones de números teléfonicos. Dicha circular puede consultarse en el sistema)
 (Nota: Mediante circular N° 25 del 27 de junio de 2008, publicada en el Boletín Judicial N° 142 del 23 de julio de 2008, se comunica la ampliación de esta lista, así como que se hacen algunas inclusiones, exclusiones, suspensiones y correcciones de números teléfonicos. Dicha circular puede consultarse en el sistema)
 (Nota: Mediante circular N° 32 del 01 de agosto de 2008, publicada en el Boletín Judicial N° 153 del 08 de agosto de 2008, se comunica la ampliación de esta lista, así como que se hacen algunas inclusiones, exclusiones, suspensiones y correcciones de números teléfonicos. Dicha circular puede consultarse en el sistema)
+(Nota: Mediante circular N° 40 del 13 de octubre de 2008, publicada en el Boletín Judicial N° 202 del 20 de octubre de 2008, se comunica la ampliación de esta lista, así como que se hacen algunas inclusiones, exclusiones, suspensiones y correcciones de números teléfonicos. Dicha circular puede consultarse en el sistema)
 DE: Lic. Alfredo Jones León, Director Ejecutivo.
 PARA: Todas las oficinas judiciales del país y peritos designados.
 ASUNTO: Lista Oficial de Peritos.
