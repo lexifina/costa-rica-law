@@ -1,7 +1,10 @@
 CAPITULO X
 Obligaciones
-Artículo 47: OBLIGACIONES Son obligaciones de los becarios:
-a. Firmar un contrato con el INA, en el cual se estipulará sus derechos, obligaciones y otras condiciones de la beca, y rendir la garantía correspondiente. Se exceptúa de esta obligación aquellas acciones que se realicen en el territorio nacional y no superen las 100 horas curso.
+Artículo 47.—Obligaciones. Son obligaciones de las personas becarias:
+(Así reformado mediante sesión N° 4362 del 13 de octubre del 2008)
+a- Firmar un contrato con el INA, en el cual se estipulará sus derechos, obligaciones y otras condiciones de la beca, y rendir la garantía correspondiente.
+Se exceptúa de esta obligación aquellas acciones que se realicen en el territorio nacional y no superen las 100 horas curso, salvo aquellas que la Comisión de Capacitación considere necesaria la firma del contrato.
+(Así reformado el inciso anterior mediante sesión N° 4362 del 13 de octubre del 2008)
 b. Aprobar las materias y obtener el título o certificado en el plazo estipulado, salvo que estuviere impedido por justa causa ajuicio de la Comisión.
 c. Avisar a la Comisión con un mes de anticipación si no pudiere continuar los estudios a fin de que se tomen las medidas administrativas correspondientes.
 d. No interrumpir sus estudios e informar periódicamente a la (*) Unidad de Recursos Humanos, en la forma que este determine acerca de horarios, asistencia a los cursos, calificaciones obtenidas y avances logrados.
