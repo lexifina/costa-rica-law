@@ -3,3 +3,4 @@ Artículo 4°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 34532 del 15 de mayo de 2008).
 (Modificado por el artículo 1° del decreto ejecutivo N° 34657 del 15 de julio de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34749 del 16 de setiembre de 2008)
+(Reformado por el artículo 2° de la Ley N° 8669 del 30 de setiembre de 2008).
