@@ -13,3 +13,4 @@ Procedimiento a seguir por los despachos judiciales, en el trámite de comisione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-04 | la propia norma |
+| 2 | 2008-10-14 | Circular 180 (2008-10-14) |
