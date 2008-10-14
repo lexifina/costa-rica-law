@@ -41,8 +41,7 @@ d) Jorge Mena Arce, Representante de la Ministra de Salud.
 e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
-g) Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
+g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008).
 h) Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuicultura.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
@@ -58,3 +57,6 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 Yamileth Solís Lezcano.
 2. Miembro suplente:
 Rafael Salazar Murillo.")
+(NOTA. El artículo 1° del decreto ejecutivo N° 34895 de 14 de octubre del dos mil ocho, establece lo siguiente: "....Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad , al siguiente representante de la Asociación Mesa Nacional Indígena:
+1. Miembro suplente:
+Hugo Lázaro Estrada.)
