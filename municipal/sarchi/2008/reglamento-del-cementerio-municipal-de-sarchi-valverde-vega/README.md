@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal de Sarchí (Valverde Vega)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-13 | la propia norma |
+| 2 | 2008-10-14 | Reglamento municipal 122 (2008-10-14) |
