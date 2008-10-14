@@ -1,0 +1,1 @@
+Artículo 4º—Obligatoriedad de aplicación de esta norma técnica. Esta norma técnica será de acatamiento obligatorio para todos los prestadores del servicio de acueducto regulados por la Autoridad Reguladora. Los prestadores no podrán reinstalar hidrómetros, sin antes verificar que cumple con esta norma técnica, salvo los que se retiren de operación por corte del servicio.

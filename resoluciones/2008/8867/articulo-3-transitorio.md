@@ -1,0 +1,1 @@
+Transitorio III.—Implementación del catastro de hidrómetros. Se establece un plazo de dos años a partir de la publicación de esta norma técnica en La Gaceta, para que los operadores implementen el catastro de hidrómetros.

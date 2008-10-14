@@ -1,0 +1,3 @@
+Artículo 61.—Prueba simplificada para la determinación de la curva de error en función del caudal. Consiste en realizar la prueba de determinación de la curva de error en función del caudal, efectuando ensayos con un mínimo de tres (3) caudales diferentes que serán los siguientes: caudal mínimo, caudal de transición y caudal nominal, qmin, qt, y qn respectivamente.
+El error de la medición se calculará con base en la fórmula establecida en el artículo 60.
+Como criterio de aceptación técnica, un hidrómetro cumple con esta prueba si el error, para los caudales de la zona inferior de medición (desde qmin hasta antes de qt) se ubica dentro del rango +/-5% y para los caudales de la zona superior de medición (desde qt hasta qs), se ubica dentro del rango +/-2%.

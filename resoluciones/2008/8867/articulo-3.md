@@ -1,0 +1,1 @@
+Artículo 3º—Campo de aplicación. Esta norma técnica establece las condiciones generales bajo las cuales se evaluará la calidad de la micromedición y las obligaciones de los prestadores del servicio, regulados por la Autoridad Reguladora, en relación con esta actividad.

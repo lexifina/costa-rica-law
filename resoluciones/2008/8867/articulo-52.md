@@ -1,0 +1,2 @@
+Artículo 52.—Exactitud de la medición del hidrómetro de referencia. El error de registro de un hidrómetro de referencia no debe superar el 1% a caudal mínimo, a caudal de transición y a caudal nominal (1% a qmin, 1% a qt, y 1% a qn) y su lectura acumulada no debe superar 500 m³.
+Cada vez que el hidrómetro de referencia vaya a ser utilizado debe haberse comprobado que su error de registro cumpla las condiciones anteriores y el certificado correspondiente, no podrá tener una fecha de emisión superior a tres (3) meses con respecto a la ejecución de la prueba.

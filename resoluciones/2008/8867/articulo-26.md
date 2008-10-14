@@ -1,0 +1,1 @@
+Artículo 26.—Certificación de la exactitud y confiabilidad. Los hidrómetros por instalarse, deben contar con una certificación que asegure que se cumple con la exactitud y confiabilidad exigida en esta norma técnica. Un laboratorio acreditado deberá emitir dicha certificación. Se exceptúan los hidrómetros nuevos que vienen certificados por el fabricante.

@@ -1,0 +1,2 @@
+Artículo 56.—Prueba o ensayo para determinar la exactitud de hidrómetros en operación. Para verificar la exactitud de hidrómetros en operación, por solicitud del abonado o por cumplimiento de programas de mantenimiento o investigación, se podrá realizar la prueba simplificada para la determinación de la curva de error, en laboratorio, como se describe en el artículo 61 o en sitio, siguiendo el procedimiento descrito en el capítulo XIII.
+De no cumplirse los criterios de aceptación técnica establecidos en el artículo 63, el medidor deberá ser reemplazado.

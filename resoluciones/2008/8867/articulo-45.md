@@ -1,0 +1,1 @@
+Artículo 45.—Competencia para brindar servicios. Únicamente los laboratorios acreditados por el Ente Costarricense de Acreditación, ECA, de acuerdo con las normas establecidas en la Ley del Sistema Nacional de Calidad, 8279, pueden brindar los servicios que establece esta norma técnica.

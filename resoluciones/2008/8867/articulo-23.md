@@ -1,0 +1,1 @@
+Artículo 23.—Especificaciones técnicas. Las especificaciones que preparen los prestadores para la adquisición de hidrómetros, indistintamente de la norma con que sean fabricados, deberán cumplir con las características mínimas establecidas en esta norma técnica.

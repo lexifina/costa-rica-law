@@ -1,0 +1,1 @@
+Artículo 58.—Prueba hidrostática o de estanqueidad. Esta prueba consiste en someter cada hidrómetro a una presión igual a mil quinientos kilopascales (1500 kPa), durante un período de dos minutos (2 min). El requisito de aprobación, es que el 100% de los hidrómetros soporten esta prueba sin fugas o filtraciones a través de las paredes, tuercas y juntas; y sin daño alguno.

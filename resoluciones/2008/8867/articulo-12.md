@@ -1,0 +1,1 @@
+Artículo 12.—Propiedad del sistema de medición. En los casos en que el titular del servicio y el prestador sean dos entidades diferentes, el sistema de medición es propiedad del titular del servicio; su operación y mantenimiento es obligación del prestador.

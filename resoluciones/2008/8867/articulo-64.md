@@ -1,0 +1,1 @@
+Artículo 64.—Procedimiento formal. Durante la realización de las pruebas para verificar los consumos de hidrómetros en servicio, el operador debe levantar un acta, donde consigne todos los detalles del proceso, así como los resultados. El operador debe notificar al usuario o los interesados la fecha y hora de la realización de la verificación.

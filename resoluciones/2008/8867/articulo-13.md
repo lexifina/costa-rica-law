@@ -1,0 +1,1 @@
+Artículo 13.—Obligatoriedad de buen funcionamiento del sistema de medición. Los prestadores del servicio están obligados a mantener en buen estado de funcionamiento todos los componentes del sistema de medición, garantizando en forma permanente la exactitud, continuidad del registro y seguridad de la instalación.

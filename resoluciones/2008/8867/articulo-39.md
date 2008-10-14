@@ -1,0 +1,1 @@
+Artículo 39.—Remisión de programa de mantenimiento. En el cuarto trimestre de cada año, los operadores del servicio deben remitir a la Autoridad Reguladora, el programa de mantenimiento preventivo y correctivo de su sistema de medición del año siguiente; y en el primer trimestre del siguiente, los resultados del programa ejecutado el año anterior.

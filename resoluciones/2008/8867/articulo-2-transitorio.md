@@ -1,0 +1,1 @@
+Transitorio II.—Certificación de hidrómetros. A partir de la fecha antes indicada y en concordancia con el artículo 15 de esta norma, todo prestador deberá instalar hidrómetros certificados por un laboratorio acreditado.

@@ -1,0 +1,3 @@
+Artículo 68.—Vigencia. Esta norma técnica rige a partir de su publicación completa y correcta en La Gaceta.
+En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, se indica que contra la anterior resolución caben los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión. El de revocatoria podrá interponerse ante el Regulador General, a quien corresponde resolverlo; los de apelación y revisión podrán interponerse ante la Juntas Directiva, a la que corresponde resolverlos.
+Los recursos de revocatoria y apelación deberán interponerse en el plazo de tres días contados a partir del siguiente a la notificación; el de revisión dentro de los plazos señalados en el artículo 356 de la citada ley.

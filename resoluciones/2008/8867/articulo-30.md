@@ -1,0 +1,2 @@
+Artículo 30.—Ubicación del hidrómetro respecto al límite de propiedad. El hidrómetro debe instalarse en el límite o hacia afuera del límite de la propiedad del inmueble que demanda el servicio, en la acera, pared o en instalación construida expresamente para ese efecto.
+Únicamente se aceptará excepciones a esta disposición, en los casos en que exista, entre el prestador y el abonado, convenio para ubicar el hidrómetro del límite de propiedad hacia adentro, siempre y cuando, la ubicación cumpla con las condiciones establecidas en el artículo 29 de esta norma.
