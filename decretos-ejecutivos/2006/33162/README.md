@@ -15,3 +15,4 @@ Reforma la Comisión Nacional para la Gestión de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2006-05-17 | la propia norma |
 | 2 | 2008-09-08 | Decreto Ejecutivo 34769 (2008-09-08) |
+| 3 | 2008-10-14 | Decreto Ejecutivo 34895 (2008-10-14) |

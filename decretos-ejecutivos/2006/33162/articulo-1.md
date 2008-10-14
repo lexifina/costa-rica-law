@@ -13,4 +13,4 @@ g. Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 k. (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre de 2008).
 2) Miembros suplentes:
 b. Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
-g. Geyner Blanco Acosta, representante de la Asociación Mesa Nacional Indígena.
+g. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre de 2008).
