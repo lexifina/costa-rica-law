@@ -1,0 +1,18 @@
+Nº 34783-MG
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE GOBERNACIÓN Y POLICÍA
+Con fundamento en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, el artículo 28, inciso 2), acápite b) de la Ley General de la Administración Pública, el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131.
+Considerando:
+1º—Que el objetivo general de control interno es proteger y conservar el patrimonio institucional, teniendo la responsabilidad legal la Administración, en especial del Jerarca en cooperación con los titulares subordinados, de implementar y ejecutar medidas efectivas para administrar adecuadamente el nivel de riesgo existente al custodiar y administrar fondos y valores públicos, con acciones que garanticen su cumplimiento, previniendo así el desvío de objetivos y metas propuestas. Así, un mecanismo idóneo para proteger el patrimonio-estatal lo es la rendición de garantías por parte de quienes tienen responsabilidad de administrar y custodiar esos fondos y valores públicos.
+2º—Que el artículo 13 de la Ley de Administración Financiera de la República Presupuestos Públicos Nº 8131, exige a todo encargado de recaudar, custodiar o administrar fondos y valores públicos de rendir garantía con cargo a su propio peculio a favor de la Hacienda Pública o la entidad respectiva, o siendo que por medio del reglamento se deben de determinar los montos y las clases de las garantías, así como establecer los procedimientos aplicables.
+3º—Que el artículo 10 de la Ley General de Control Interno Nº 8292 establece que será responsabilidad del Jerarca y de los Titulares Subordinados, establecer, mantener, perfeccionar, y evaluar el sistema de Control Interno Institucional y que el artículo 15, inciso b), numeral ii) estipula como parte de los deberes de tales funcionarios “Documentar, mantener actualizados y divulgar internamente tanto las políticas como los procedimientos que definan claramente, entre otros asuntos, los siguientes:.. La protección y conservación de todos los activos institucionales”.
+4º—Que mediante pronunciamiento Nº 7200-98 (PI/ES-187) del 07 de julio de 1998, la Contraloría General de la República se analizan los términos: Administración, recaudación y custodia en un sentido relacionado con Los Fondos Públicos. Por tanto,
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE GOBERNACIÓN Y POLICÍA
+Decretan:
+Reglamento para la Rendición de Garantías de los
+Funcionarios del Ministerio de Gobernación y
+Policía. De Conformidad con el Artículo 13 de
+la Ley de la Administración Financiera
+de la República y Presupuestos Públicos
+Artículo 1º—Objeto. El presente Reglamento tiene por objetivo regular lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, que dispone que sin perjuicio de las previsiones que deba tomar la Administración, todo funcionario encargado de recaudar, custodiar, administrar fondos y valores públicos, deberá rendir garantía con cargo a su propio peculio, a favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de los deberes y las obligaciones de los funcionarios.
