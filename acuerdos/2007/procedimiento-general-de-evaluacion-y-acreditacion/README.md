@@ -14,3 +14,4 @@ Procedimiento General de Evaluación y Acreditación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-18 | la propia norma |
+| 2 | 2008-10-15 | Acuerdo 0 (2008-10-15) |

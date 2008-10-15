@@ -97,7 +97,8 @@ Norma INTE-ISO/IEC 17024 | Evaluación de la conformidad - Requisitos generales 
 Nota 1: El OEC que solicite visita preliminar debe entregar, en la medida de lo posible, los anexos que se requieren en la solicitud.
 Nota 2: El OEC, ubicado en Honduras, que solicite acreditación ante el ECA previamente debe cumplir lo establecido en ECA-MC-P09-I03 Instructivo para acreditación de OEC hondureño.
 7.2 El OEC que solicite visita preliminar debe pagar la cotización realizada por la Dirección Administrativo Financiera conforme a las tarifas establecidas por la Junta Directiva del ECA. [OEC] [DAF]
-7.3 La visita preliminar es de carácter general, la realiza en lo posible un funcionario del ECA o el equipo evaluador que ECA designe. Los evaluadores que participan en una visita preliminar no deben participar en la evaluación al mismo solicitante.
+7.3 La visita preliminar es de carácter general, la realiza en lo posible un funcionario del ECA o el equipo evaluador que ECA designe. Los evaluadores que participan en una visita preliminar no deben participar en la evaluación al mismo solicitante, excepción de evaluadores que son personal de planta del ECA o representante de instituciones reguladoras como se establece en la nota 2 del apartado 8.2.4 de este procedimiento…”
+(Así reformado el inciso anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 7.4 Los resultados de la visita preliminar no comprometen el resultado final de la evaluación.
 7.5 Las visitas preliminares NO son de carácter obligatorio.
 7.6 Para asegurar la independencia entre las actividades de visita preliminar y el proceso de evaluación y acreditación, el ECA mantiene la información y resultados de la visita preliminar en una carpeta independiente al expediente del OEC que se inicia cuando se presenta la solicitud formal de acreditación lleva esta información en carpetas separadas. [SA]
@@ -108,6 +109,8 @@ Nota 2: Para el caso de solicitudes de ampliación al alcance acreditado, la Sec
 8.1 Solicitud de acreditación o ampliación del alcance.
 8.1.1 El OEC presenta a la Secretaria de Acreditación la solicitud de acreditación firmada por el representante legal de la organización, con la información requerida, los anexos y comprobante de pago inicial conforme a las tarifas establecidas por la Junta Directiva del ECA. [OEC]
 Nota: Un OEC que presente solicitud de acreditación ante el ECA y no se comunique con la Secretaría de Acreditación durante un periodo máximo de 120 días hábiles, la Secretaría considera la solicitud inactiva y por tanto procede a su archivo definitivo. En caso de que este OEC retome su interés en la acreditación debe presentar una nueva solicitud. [OEC] [SA]
+(*)Nota 2: Cuando un OEC solicite una inclusión de normas en el alcance de su acreditación debe presentar a la SA respectiva la normativa para la cual esta solicitando la inclusión así como el alcance corregido, para que ésta documentación sea analizada por el equipo evaluador en la próxima evaluación al OEC solicitante.
+(*)(Así adicionada la nota anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 8.1.2 La Secretaría de Acreditación revisa la solicitud con base en la lista de verificación de cada área de acreditación y crea el expediente para cada solicitud asignándole un número de acuerdo con el orden de presentación, enumera sus folios en forma consecutiva y registra la solicitud en la bitácora, para lo cual dispone de un tiempo máximo de cinco días hábiles.
 8.1.3 Si la Secretaría de Acreditación determina que la solicitud NO está completa, solicita, en los siguientes tres días hábiles, por única vez al OEC subsanar las deficiencias en un plazo máximo de diez días hábiles, mediante formulario ECA-MC-P09-F09 Solicitud para subsanar deficiencias a la solicitud de acreditación. [SA]
 8.1.4 El OEC debe subsanar las deficiencias dentro de los siguientes diez días hábiles y presentar a la Secretaría de Acreditación. (Vuelve al punto 8.1.2). [OEC]
@@ -127,16 +130,20 @@ e. Existir o haber existido en los dos años anteriores a su asignación, proces
 f. Haber brindado consultoría, haber sido empleado o socio del OEC en los últimos dos años.
 8.2.4 Si el OEC NO acepta el equipo evaluador o parte de éste, envía carta informando su objeción acompañada de la prueba correspondiente. Para lo cual dispone de tres días hábiles desde el momento de la notificación. Si el OEC acepta el equipo evaluador procede según el punto 8.3.1. [OEC]
 Nota: En caso de que el OEC no informe a la Secretaría de Acreditación su aceptación o rechazo dentro del periodo establecido, la Secretaría de Acreditación da por aceptado el equipo propuesto y continúa el proceso.
+(*) Nota 2: Si dentro del equipo evaluador se incorporan evaluadores que son personal de planta del ECA o representantes de instituciones reguladoras el OEC no puede objetar su participación.
+(*)(Así adicionada la nota anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 8.2.5 La Secretaría de Acreditación recibe nota de objeción y analiza las pruebas presentadas por el OEC. [SA]
 8.2.6 Si la objeción procede vuelve al punto 8.2.1.
 8.2.7 Si la objeción NO procede la Secretaría de Acreditación informa, en un plazo de tres días hábiles, por escrito al OEC. [SA]
 Nota: El OEC puede objetar el nombramiento del equipo evaluador únicamente en dos oportunidades, agotadas las cuales la designación realizada quedará en firme. [OEC]
-8.2.8 Aceptada la totalidad del equipo evaluador por parte del OEC, la Secretaría de Acreditación confirma con cada miembro del equipo su participación, los miembros del equipo deben informar a la Secretaría de Acreditación su respuesta en los siguientes cinco días hábiles, caso contrario la Secretaría procede al nombramiento de otra persona para que conforme el equipo. Si alguno de los miembros del equipo evaluador presenta conflicto de interés, debe notificar a la Secretaría de Acreditación para que el proceso de repita a partir de 8.2.2. [OEC] [SA] [EE]
+8.2.8: Aceptada la totalidad del equipo evaluador por parte del OEC, la Secretaría de Acreditación confirma con cada miembro del equipo su participación, los miembros del equipo deben informar a la secretaría de Acreditación su respuesta en los siguientes cinco días hábiles por medio del ECA-MC-P09-F20 “Aceptación o rechazo de participación para miembros del equipo evaluador”; caso contrario la Secretaría procede al nombramiento de otra persona para que conforme el equipo. Si alguno de los miembros del equipo evaluador presenta conflicto de interés; debe notificar a la Secretaría de Acreditación para que el proceso se repita a partir de 8.2.2.
+(Así reformado el punto anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 8.3 Evaluación
 Incluye evaluación documental y evaluación in situ:
 8.3.1 La Secretaría de Acreditación confirma el nombramiento del equipo evaluador por parte del OEC y de los miembros del equipo. [SAL] [OEC] [EE]
 8.3.2 La Secretaría de Acreditación dispone de dos días hábiles para preparar, entregar al Evaluador Líder, la documentación necesaria para realizar la evaluación. [SA] [EL]
-8.3.3 El Evaluador Líder debe realizar la evaluación documental, siguiendo el procedimiento ECA-MC-P13 Ejecución de la evaluación, con su equipo evaluador y presenta a la Secretaría de Acreditación original firmado y copia digital del ECA-MC-P13-F06 Informe de evaluación documental y del ECA-MC-P13-F01 Plan de evaluación, para lo cual dispone de diez días hábiles. Los miembros del equipo evaluador son responsables del manejo y la custodia de la documentación y de su confidencialidad. [EE]
+8.3.3 El Evaluador Líder debe realizar la evaluación documental, siguiendo el procedimiento ECA-MC-P13 Ejecución de la evaluación, con su equipo evaluador y presenta a la Secretaría de Acreditación original firmado y copia digital del ECA-MC-P13-F06 Informe de evaluación documental y del ECA-MC-P13-F01 Plan de evaluación, el plazo para la entrega es de 5 días previos a la evaluación in situ. Los miembros del equipo evaluador son responsables del manejo y la custodia de la documentación y de su confidencialidad. [EE]
+(Así reformado el punto anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 Nota 1: La fecha de evaluación in situ que establezca el equipo evaluador en el Plan de evaluación debe estar dentro de los veinte días hábiles posteriores a la presentación de dicho Plan ante la Secretaría de Acreditación. [EE]
 Nota 2: En caso necesario, el OEC debe proporcionar la información adicional requerida por el equipo evaluador. [OEC] [EE]
 8.3.4 La Secretaría de Acreditación revisa los documentos presentados por el Evaluador líder y los envía al OEC junto con el formulario ECA-MC-P09-F11 Entrega del plan de evaluación e informa al OEC sobre la confirmación de la evaluación in situ o la imposibilidad para continuar con el procedimiento, para lo cual dispone de cinco días hábiles. [SA]
@@ -166,7 +173,7 @@ Nota: El OEC puede solicitar que se realice la visita de verificación de implem
 8.3.16 El Evaluador Líder con el equipo evaluador realiza la visita de verificación en un plazo no mayor a diez días hábiles y presenta original firmado y copia digital de ECA-MC-P13-F07 Informe de verificación de acciones correctivas a la Secretaría de Acreditación en los siguientes cinco días hábiles. [EE]
 Nota 1: En caso de requerirlo, la Secretaría de Acreditación puede solicitar enmiendas al informe presentado por el Evaluador líder antes de enviarlo al OEC. [SA] [EL]
 Nota 2: El OEC debe cancelar el pago correspondiente a la visita de verificación de acciones correctivas conforme a las tarifas establecidas por la Junta Directiva del ECA.
-Nota 3: Siempre que una no conformidad sea cerrada con una acción correctiva que incluya un compromiso documental, se realiza una visita de verificación dentro de los sesenta y seis días hábiles siguientes, la cual debe ser pagada con anticipación por el OEC conforme a las tarifas establecidas por la Junta Directiva del ECA. [EE] [OEC] [DAF]
+Nota 3: (Derogada esta nota y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 8.3.17 La Secretaría de Acreditación envía, en los siguientes tres días hábiles, al OEC el ECA-MC-P13-F07 Informe de verificación de acciones correctivas. [SA]
 8.3.18 La Secretaría de Acreditación, convoca al Comité Asesor y le presenta los expedientes del OEC con la información que éste requiera. [SA] [CAT]
 Nota: En caso de que no se detecten no conformidades, no se presenta informe de verificación de acciones correctivas.
@@ -193,16 +200,30 @@ Nota: En caso de que NO se otorgue la acreditación, el OEC puede presentar por 
 9.4 Si la Comisión de Acreditación acepta la opinión divergente informa a la Secretaría de Acreditación para que esta comunique al OEC la resolución tomada. [CA] [SA]
 9.5 En caso de que la Comisión de Acreditación rechace la opinión divergente, informa a la Secretaría de Acreditación para que esta comunique al OEC y se procede a partir de 8.3.9. [CA] [SA]
 Nota: La Comisión de Acreditación puede solicitar información adicional al OEC o al Equipo Evaluador para tomar la decisión en cuanto a la opinión divergente. [CA] [OEC] [EE]
-10. OEC CON SEDES CRÍTICAS
-Nota: Las sedes críticas de un Organismo de Evaluación de la Conformidad son aquellas en las que se realizan actividades claves, las cuales involucran: formulación de políticas, desarrollo de procesos y procedimientos, y según corresponda, la revisión de contratos, la planificación de evaluaciones de la conformidad, la revisión, la aprobación y toma de decisión de los resultados de las evaluaciones de la conformidad.
-10.1 El OEC con sedes críticas debe demostrar documentalmente la estructura de su organización, así mismo, el responsable de calidad (o como se le designe), el director técnico y el superior jerárquico deben aportar declaración jurada – debidamente autenticada – constatando que todas las instalaciones incluidas en el alcance cuentan con el mismo responsable de calidad y con el mismo director técnico.
-Nota: En la estructura de la organización deben quedar claramente establecidas las líneas jerárquicas desde el director técnico hacia los responsables técnicos de cada instalación.
-10.2 Además el OEC con sedes críticas debe de asegurar que: [OEC]
-a. La actividad de evaluación de la conformidad se realiza en todas las instalaciones fijas con los mismos métodos y procedimientos.
-b. El sistema de gestión es administrado de manera centralizada, considerando como mínimo: la documentación del sistema, gestión de quejas, control de registros, definición de requisitos de competencia técnica, evaluación y supervisión del personal.
-c. Todas las instalaciones fijas son sujeto de revisión por la dirección y del programa de auditorías internas.
-d. Los certificados de inspección, certificación, calibración o informes de ensayo deben ser emitidos bajo la responsabilidad y en nombre del OEC, indicando la instalación donde se realizó la actividad de evaluación de la conformidad.
-e. Evidenciar que cuando se identifica alguna no conformidad en cualquier instalación incluida dentro del alcance, las demás instalaciones no han sido afectadas por la desviación y/o establecer una acción correctiva de carácter general.
+10. “OEC MULTISITIOS CON SEDES CRÍTICAS
+10.1 Un OEC multisitios es aquel que dispone de varias instalaciones fijas. Puede ser posible que no todas las instalaciones fijas sean sedes críticas.
+10.2 Las sedes críticas de un Organismo de Evaluación de la Conformidad son aquellas en las que se realizan actividades claves, las cuales involucran: formulación de políticas, desarrollo de procesos y procedimientos, y según corresponda, la revisión de contratos, la planificación o ejecución de evaluaciones de la conformidad, la revisión, la aprobación y toma de decisión de los resultados de las evaluaciones de la conformidad.
+10.3 El OEC con sedes críticas debe demostrar documentalmente que poseen para todas las sedes críticas:
+- Un mismo responsable de la calidad o cualquiera que sea su denominación, para las diferentes instalaciones, debe demostrar indubitablemente el OEC, a través de documentos idóneos que evidencien la estructura de la organización, así mismo aportar declaración jurada -debidamente autenticada- sobre dicha situación tanto del director de calidad como del superior jerárquico de la institución o empresa.
+-Un mismo responsable para la dirección técnica, para las diferentes instalaciones, debe demostrar indubitablemente el OEC a través de documentos idóneos que evidencien la estructura de la organización, así mismo aportar declaración jurada -debidamente autenticada- sobre dicha situación tanto del director técnico como del superior jerárquico de la institución o empresa.
+10.4 El OEC con sedes críticas debe demostrar que:
+- La actividad de evaluación de la conformidad debe realizarse en todas las sedes críticas con los mismos métodos y procedimientos.
+- El Sistema de Gestión debe ser administrado de manera centralizada y sujeto a revisión por la dirección.
+- Todas las sedes críticas deben estar sujetas al programa de auditorías internas y deben haber sido auditadas antes de que ECA realice la evaluación inicial.
+- Los certificados de inspección, certificación, calibración o informes de ensayo deben ser emitidos bajo la responsabilidad y en nombre del OEC, pero haciendo mención a la instalación donde se realizó la actividad de evaluación de la conformidad.
+10.5 El OEC con sedes críticas debe disponer del adecuado control del sistema y debe realizar de forma centralizada como mínimo las siguientes actividades:
+- Documentación del Sistema y cambios del sistema.
+- Revisiones por la Dirección.
+- Gestión de Quejas.
+- Auditorías internas, planificación y seguimiento.
+- Supervisión del personal y evaluación del mismo.
+- Control de registros.
+- Definición de requisitos de competencia técnica del personal.
+10.6 El OEC con sedes críticas debe definir la organización general tanto desde el punto de vista técnico como administrativo y los requisitos organizativos mínimos de las instalaciones. Así mismo debe identificar a las personas que, dentro de cada instalación, tienen la responsabilidad de la supervisión de los trabajos realizados. Deben quedar claramente establecidas las líneas jerárquicas desde el Director técnico a los responsables técnicos de cada una de las diferentes instalaciones.
+10.7 Si durante el proceso de evaluación de un OEC con sedes críticas, se identifica alguna no conformidad en cualquier instalación, el OEC debe evidenciar si las otras instalaciones incluidas en el alcance de la acreditación no han sido afectadas por la desviación y establecer una acción correctiva de carácter general y aportar evidencias de que el problema ha sido tratado en todas las instalaciones afectadas. Si la no conformidad pone en duda el control del OEC, la acreditación podrá ser cuestionada a toda la organización hasta que no se cierre dicha no conformidad. El ECA exigirá evidencias de que las acciones correctivas se han implementado y que han sido eficaces, además podrá incrementar el nivel de muestreo hasta que se demuestre que el control se ha reestablecido.
+10.8 Para las evaluaciones iniciales, además de la visita a la oficina principal se deben visitar todas las sedes críticas del OEC.
+10.9 Durante las visitas de seguimiento de un OEC con sedes críticas, el ECA debe evaluar todas las instalaciones declaradas en el alcance de acreditación, de forma tal que durante el período de vigencia de la acreditación, todas las instalaciones hayan sido evaluadas. Se puede seguir la guía de muestreo que se indica en ECA-MC-P13-I01 Instructivo de muestreo.
+(Así reformado este punto y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 11. DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS
 11.1 El OEC que solicite acreditación ante el ECA debe conocer la Ley Nº 8279 Ley del Sistema Nacional para la Calidad, el Decreto Ejecutivo Nº 33963 Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación; y los procedimientos, criterios y políticas emitidos por el ECA, los cuales se incluyen dentro del paquete informativo que se brinda a los OEC solicitantes y que se encuentra disponible en www.eca.or.cr. [OEC]
 11.2 Los derechos y obligaciones del OEC acreditado están definidas, según corresponda, en ECA-MC-P14-F03 Compromiso de Acreditación o en ECA-MC-P14-F09 Compromiso de acreditación para instituciones públicas, documento que el OEC firma en el momento en que recibe el certificado de acreditación.
@@ -228,7 +249,8 @@ Nota: en caso de que el OEC no presente la solicitud de renovación en el plazo 
 13.2 El plazo máximo establecido para la implementación de acciones correctivas de no conformidades detectadas en los procesos de reevaluación no puede ser superior a sesenta días y seis hábiles. [OEC]
 14. AMPLIACIÓN Y REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN
 14.1 El OEC acreditado puede solicitar la ampliación del alcance de su acreditación, por medio del formulario de solicitud correspondiente. [OEC]
-Nota: solicitar la ampliación del alcance de acreditación en lo posible, tres meses antes de la visita de seguimiento programada.
+Nota: Si el OEC desea realizar una ampliación de alcance y que la evaluación correspondiente se realice de manera conjunta con la evaluación de seguimiento programada, debe presentar la solicitud de ampliación 3 meses antes de esta visita de seguimiento.
+(Así reformada la nota anterior y publicado en La Gaceta N° 211 del 31 de octubre de 2008)
 14.2 El OEC debe definir claramente el alcance de acreditación para el cual solicita la ampliación en el formulario de solicitud. [OEC]
 14.3 El proceso de evaluación y acreditación se lleva a cabo de igual forma como una evaluación inicial conforme al apartado 8 de este procedimiento.
 Nota 1: El ECA firma un addéndum del certificado y alcance de acreditación (anexo técnico).
