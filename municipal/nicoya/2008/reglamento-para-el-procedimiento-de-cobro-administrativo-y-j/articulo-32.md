@@ -1,0 +1,1 @@
+Artículo 32.—La sumatoria de los montos atrasados más las nuevas deudas, dividido entre el plazo otorgado, constituirá la cuota a pagar por contribuyente. En caso de que el contribuyente moroso incumpliere el compromiso y la modalidad de pago adquirido, de tal manera que se acumulen dos o más trimestres, la Municipalidad procederá de inmediato pasar esta cuenta a cobro judicial.
