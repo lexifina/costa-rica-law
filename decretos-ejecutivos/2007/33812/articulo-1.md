@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: El artículo 1°, punto 2 del Reglamento Técnico: RTCR 413:2008 Helados y Mezclas para Helados, decreto ejecutivo N° 35405 del 21 de abril de 2009, así como el artículo 1°, punto 2 del Reglamento Técnico: RTCR 412:2008 Crema (Nata) y Crema Ácida y Fermentada (Natilla), decreto ejecutivo N° 35406 del 21 de abril de 2009, establecen que su reglamento técnico se complementa con la presente normativa)
 Nº 33812
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -23,7 +24,8 @@ Costa Rica.2000. Decreto Ejecutivo N° 28515-MAG, La Gaceta N° 55 del 17 de mar
 Costa Rica.2002. Decreto Ejecutivo N° 30256-MEIC-S, La Gaceta N° 71 del 15 de abril de 2002, y sus reformas. RTCR 135:2002 Etiquetado Nutricional de los Alimentos Preenvasados. San José, Costa Rica, Imprenta Nacional.
 Costa Rica.2006. Decreto Ejecutivo N° 33288 MEIC-MAG-S, La Gaceta N° 164 del 28 de agosto de 2006. RTCR: 395-2006. Para el Uso de Términos Lecheros. San José, Costa Rica, Imprenta Nacional.
 3. DEFINICIONES
-3.1 leche: Es la secreción mamaria normal de animales bovinos sanos, obtenido mediante el ordeño, sin ningún tipo de adición o extracción, destinado al consumo en forma de leche líquida o a elaboración ulterior, debiéndose establecer su origen si se trata de otra especie animal.
+3.1 leche: Es la secreción mamaria normales de animales lecheros sanos obtenida mediante uno o más ordeños sin ningún tipo de adición o extracción, destinada al consumo en forma de leche liquida o a elaboración ulterior.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 34823 del 15 de octubre de 2008)
 3.2 ordeño: Es la extracción higiénica, ininterrumpida y completa, una o varias veces al día de la leche, de su fuente natural, por medios manuales o mecánicos.
 3.3 leche cruda: Es la leche que no ha sufrido ningún proceso de higienización, con las características fisicoquímicas y sensoriales, propias del producto.
 3.4 leche íntegra o entera: Es aquella leche cruda o higienizada, no diluida, a la que no se le ha extraído, agregado o separado alguno de sus componentes desde el ordeño hasta que se le entregue al consumidor o a la planta procesadora.
@@ -311,12 +313,28 @@ La leche fluida para consumo humano directo no debe contener:
 11.9 Cualquier otro agente que constituya un peligro científicamente demostrado para la salud humana.
 12. TOMA DE MUESTRAS
 Para la toma de muestras se utilizará el procedimiento descrito en los artículos 90 y 90 bis del Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor Decreto Ejecutivo N° 25234-MEIC.
-13. MÉTODOS
-Los métodos utilizados para la verificación del presente reglamento serán los oficializados por los Ministerio de Agricultura y Ganadería y Ministerio de Salud.
+(*)13. MÉTODOS DE ANÁLISIS Y MUESTREO
+13.1 Para la toma de muestras de contenido neto, etiquetado, análisis fisicoquímicos y de residuos se utilizará lo establecido en el Reglamento Técnico Nº 25234-MEIC Reglamento a la Ley Promoción Competencia y Defensa Efectiva Consumidor, publicado en La Gaceta N º 124 del 1º de julio de 1996 y sus reformas y lo establecido en la Norma Codex Stan 234-1999 y sus últimas versiones.
+13.2 Los métodos de análisis microbiológicos y de residuos de medicamentos veterinarios, metales pesados y plaguicidas utilizados para la verificación del presente Reglamento serán los oficializados mediante la resolución administrativa debidamente publicada en el Diario Oficial La Gaceta por el SENASA del Ministerio de Agricultura y Ganadería.
+13.3 Los métodos utilizados para los análisis nutricionales del Ministerio de Salud se emplearán los métodos establecidos en sus últimas versiones por AOAC.
+13.3.1 Determinación de materia grasa
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 905.02
+13.3.2 Determinación de proteína
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 991.22
+13.3.3 Determinación de ácidos grasos saturados
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 969.33
+13.3.4 Determinación de hierro
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 985.35
+13.3.5 Determinación de ácido fólico
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 960.46
+13.3.6 Determinación de vitamina A
+Se debe realizar de acuerdo con lo establecido en la norma AOAC 992.04
+(*)(Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 34823 del 15 de octubre de 2008)
 14. ENVASE Y ETIQUETADO
 14.1 Envase: los envases para leche tratada térmicamente serán de material y forma tales que den al producto una adecuada protección durante el almacenamiento y transporte, y con cierre hermético que impida la contaminación. Los envases para todo tipo estarán limpios, asépticos, exentos de desperfectos y se ajustarán a las disposiciones sanitarias para el producto.
 14.2 Envase hermético: Es el envase diseñado con el propósito de ser seguro contra la entrada de microorganismos y de esa manera, mantener la esterilidad comercial del producto.
-14.3 Etiquetado: Para los efectos de este Reglamento los serán de cualquier material que pueda ser adherido a los envases, o bien, de impresión permanente sobre los mismos. Deben cumplir además con lo establecido en el Reglamento Técnico de Etiquetado de los Alimentos Preenvasados, Decreto Ejecutivo N° 26012-MEIC del 15 de abril de 1997.
+14.3 Etiquetado:Para los efectos de este Reglamento las etiquetas serán de cualquier materialque pueda ser adherido a los envases, o bien, de impresión permanente sobre losmismos. Deben cumplir además con lo establecido en el Reglamento Técnico deEtiquetado de los Alimentos Preenvasados, Decreto Ejecutivo Nº 26012-MEIC del15 de abril de 1997 y cuando corresponda con el Reglamento Técnico deEtiquetado Nutricional de los Alimentos Preenvasados, Decreto Nº 30256-MEIC-Sdel 15 de enero del 2002 y sus reformas.
+(Asíreformada la definición anterior por el artículo 1° del decreto ejecutivo N°34823 del 15 de octubre de 2008)
 15. ACONDICIONAMIENTO
 La leche fresca que se expende a granel, permanecerá desde el ordeño hasta el momento de su expendio, en recipientes limpios y asépticos, libres de - desperfectos y con cierre hermético que impida su contaminación. Después del ordeño, la leche fresca deberá enfriarse a una temperatura no mayor de 5°C y al momento del expendio, su temperatura no debe ser superior a los 10°C. Las condiciones de almacenamiento y transporte, cumplirán con los reglamentos sanitarios vigentes.
 16. ENSAYOS FISICOQUÍMICOS
@@ -329,7 +347,9 @@ La leche fresca que se expende a granel, permanecerá desde el ordeño hasta el 
 16.7 Índice crioscópico
 16.8 Densidad
 16.9 Ocasionales
-17. VERIFICACIÓN
-17.1 El Ministerio de Economía, Industria y Comercio verificará lo establecido en el apartado 5 de Características, el apartado 11 de Prohibiciones (el 11.9) y el apartado 14 de Envase y Etiquetado.
-17.2 El Ministerio de Agricultura y Ganadería verificará lo establecido en los apartados 6 de Límites Máximos de Residuos de Plaguicidas y apartado 7 de Límites Máximos de Residuos de Medicamentos de Uso Veterinario.
-17.3 El Ministerio de Salud verificará lo establecido en el apartado 8 de Límites Máximos de Residuos de Metales Pesados, el apartado 9 Límites Máximos de Residuos de Otras Sustancias, el apartado 10 de Parámetros Microbiológicos, el inciso 11.9 de prohibiciones que afecten la salud, y el apartado 15 de Acondicionamiento.
+(*)17. VERIFICACIÓN
+17.1 El Ministerio de Economía, Industria y Comercio verificará lo establecido en el apartado 14 de Envase y Etiquetado.
+17.2 El Servicio Nacional de Salud Animal del Ministerio de Agricultura y Ganadería, verificará lo establecido en los apartados 5 de Características, 6 de Límites Máximos de Residuos de Plaguicidas, 7 de Límites Máximos de Residuos de Medicamentos de Uso Veterinario, 8 de Límites Máximos de Residuos de Metales Pesados, 9 Límites Máximos de Residuos de Otras Sustancias, 10 de Parámetros Microbiológicos, 11 de Prohibiciones y el apartado 15 de Acondicionamiento.
+17.3 El Ministerio de Salud verificará lo establecido en el apartado 14.3 sobre el Etiquetado Nutricional de los Alimentos Preenvasados.
+Lo anterior sin detrimento de las competencias concurrentes en esta materia establecidas en beneficio de la salud humana conferidas al Ministerio de Salud.
+(*)(Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 34823 del 15 de octubre de 2008)
