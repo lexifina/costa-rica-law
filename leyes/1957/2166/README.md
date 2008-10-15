@@ -1,6 +1,6 @@
 # Ley de Salarios de la Administración Pública
 
-Ley N° 2166 del 1957-10-09. SINALEVI, ficha 3672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3672&param2=69458&param3=1>.
+Ley N° 2166 del 1957-10-09. SINALEVI, ficha 3672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3672&param2=76481&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 13 | 1985-07-24 | Ley 3145 | 1963-08-06 |
 | 4 de 13 | 2001-10-16 | Ley 8131 | 2001-09-18 |
 | 5 de 13 | 2007-10-09 | Ley 8605 | 2007-09-17 |
+| 6 de 13 | 2008-10-15 | Sala Constitucional, resolución 15460 (2008-10-15) | 2008-10-15 |
