@@ -1,3 +1,4 @@
 CAPÍTULO II
 VIOLENCIA PSICOLÓGICA
-ARTÍCULO 25.- Violencia emocional. Será sancionada con pena de prisión de seis meses a dos años, la persona que, reiteradamente y de manera pública o privada, insulte, desvalorice, ridiculice, avergüence o atemorice a una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no.
+ARTÍCULO 25.- Anulado
+(Anulado mediante resolución de la Sala Constitucional N° 15447 del 15 de octubre de 2008, adicionada mediante resolución de la Sala Constitucional N° 7398 del 6 de mayo de 2009).
