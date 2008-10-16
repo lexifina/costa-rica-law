@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Autorízase a la Municipalidad de Esparza para que done el lote segregado en el artículo 1 de esta Ley, a la Junta de Educación de la Escuela de la Riviera, cédula de persona jurídica número tres-cero cero ocho-tres tres tres siete ocho nueve (N.º 3-008-333789).

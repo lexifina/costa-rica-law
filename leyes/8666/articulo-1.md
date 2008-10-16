@@ -1,0 +1,8 @@
+Nº 8666
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE ESPARZA PARA
+QUE SEGREGUE UN TERRENO DE SU PROPIEDAD Y
+LO DONE A LA JUNTA DE EDUCACIÓN DE
+LA ESCUELA DE LA RIVIERA
+ARTÍCULO 1.- Autorízase a la Municipalidad de Esparza, cédula de persona jurídica número tres-cero uno cuatro-cero cuatro dos uno uno cinco (N.º 3-014-042115) para que, del inmueble de su propiedad inscrito bajo el Sistema de Folio Real matrícula número seis-uno dos siete cero uno cuatro-cero cero cero (N.º 6-127014-000), el cual es terreno para construir ubicado en el distrito 1º, Espíritu Santo, cantón II, Esparza, provincia de Puntarenas, linda al norte en parte con río Barranca, calle pública, Dionisio Carvajal Gatgens y Mayela Portugués Ghiselline, al sur, en parte con Ruth Quirós Vargas, Urbanizadora La Riviera S.A., Dionisio Carvajal Gatgens, Mayela Portugués Ghiselline, Urbanizadora La Riviera S.A. y calle pública, y al oeste, con Urbanizadora La Riviera S.A. y calle pública y mide diecisiete mil ciento diez metros con cuarenta y cuatro decímetros cuadrados, segregue un lote y lo done a la Junta de Educación de la Escuela de la Riviera, cédula de persona jurídica número tres-cero cero ocho-tres tres tres siete ocho nueve (N.º 3-008-333789), el cual se describe así: terreno para construir, ubicado en el distrito 1º, Espíritu Santo; cantón II, Esparza, provincia de Puntarenas; mide seis mil quinientos dieciséis metros con ochenta decímetros cuadrados; linda al norte con las Temporalidades de la Iglesia Católica; al sur y el este con calle pública, y al oeste, con terrenos de la Municipalidad de Esparza, según el plano catastrado número P-uno cero siete dos cuatro nueve tres-dos cero cero seis (N.º P-1072493-2006).
