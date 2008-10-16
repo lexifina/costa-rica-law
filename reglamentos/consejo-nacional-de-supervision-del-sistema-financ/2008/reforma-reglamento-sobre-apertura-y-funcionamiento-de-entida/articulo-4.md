@@ -1,0 +1,1 @@
+IV.—Eliminar el último párrafo del inciso d) del artículo 86 del “Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario Previstos en la Ley de Protección al Trabajador”.

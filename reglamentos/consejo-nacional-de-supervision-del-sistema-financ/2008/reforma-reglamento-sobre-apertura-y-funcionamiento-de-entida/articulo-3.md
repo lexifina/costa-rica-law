@@ -1,0 +1,1 @@
+III.—Derogar el artículo 17 del “Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario Previstos en la Ley de Protección al Trabajador” y los artículos 47, 48 y 51 del “Reglamento de Inversiones de las Entidades Autorizadas”.
