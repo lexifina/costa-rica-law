@@ -698,9 +698,10 @@ Leyes y decretos de creación y modificaciones:
 -Ley 4020 de 14 de enero de 1967 (creación y límites del distrito Rosario 7 de este cantón).
 -Acuerdo 247 de 4 de noviembre de 1987 (modificación de límites entre los distritos 1 y 6 de este cantón).
 Distritos:
-206 01 NARANJO: Ciudad: 10°05'55" LAT.N./ 84°22'50" LONG.O. ALTITUD: 1 043 m.
+(*)206 01 NARANJO: Ciudad: 10°05'55" LAT.N./ 84°22'50" LONG.O. ALTITUD: 1 043 m.
 Barrios: Bajo Pilas, Belén, Caña Dura, Gradas, María Auxiliadora, Muro, Pueblo Nuevo, Sacramento, San Lucas, San Rafael.
-Poblados: Alto Murillo, Alto Palmas, Candelaria, Cantarrana, Cinco Esquinas, Ciprés, Común, Concepción, Dulce Nombre, Palmitos, Roquillo, San Roque.
+Poblados: Candelaria, Cantarrana(parte), Cinco Esquinas (parte), Ciprés, Común, Dulce Nombre.
+(*)(Así reformado por el decreto ejecutivo N° 34848 de 16 de octubre de 2008).
 206 02 SAN MIGUEL: Villa: 10°04'35" LAT.N./ 84°23'52" LONG.O. ALTITUD: 1 040 m.
 Barrio: Planes.
 Poblados: Bajo Seevers, Bajos, Palmas, Quesera, San Francisco, San Miguel Oeste.
@@ -716,6 +717,9 @@ Poblados: Bajo Murciélago, Cueva, Guarumal, Rincón Elizondo, San Antonio, Yose
 206 07 ROSARIO: Villa: 10°02'42" LAT.N./ 84°22'48" LONG.O. ALTITUD: 835 m.
 Barrio: Pérez
 Poblados: Hornos, Llano, Santa Margarita.
+206 08 PALMITOS
+Poblados: Alto Murillo, Alto Palmas, Cantarrana (parte), Cinco Esquinas (parte), Concepción, Roquillo y San Roque.
+(*)(Así creado por el decreto ejecutivo N° 34848 de 16 de octubre de 2008).
 Hojas del mapa básico, 1:50 000(IGN): Naranjo, Quesada.
 Hojas del mapa 1:10 000 (IGN): Cañuela, Cirrí, Colorado, Eulalia, Hornos, Oratorio, Palmares.
 CANTÓN 207: PALMARES
