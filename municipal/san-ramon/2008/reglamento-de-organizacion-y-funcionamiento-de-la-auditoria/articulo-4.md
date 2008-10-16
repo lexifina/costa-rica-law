@@ -1,0 +1,1 @@
+Artículo 4º—Visión, Misión y Políticas de la Auditoría Interna. El Auditor Interno deberá establecer la visión, misión y las políticas que orientarán el accionar de la Auditoría Interna, a fin de coadyuvar en el logro de los objetivos institucionales.

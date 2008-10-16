@@ -1,0 +1,1 @@
+Artículo 16.—Deberes. El Auditor Interno y el personal de Auditoría, para el desempeño de sus competencias, tendrán los deberes que se establecen en el artículo 32 de la Ley General de Control Interno.

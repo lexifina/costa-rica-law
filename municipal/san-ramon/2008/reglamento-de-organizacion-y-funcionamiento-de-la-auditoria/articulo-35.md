@@ -1,0 +1,1 @@
+Artículo 35.—Definición de las herramientas de Auditoría. Le corresponde a la Auditor Interno desarrollar las herramientas de Auditoría, como son las políticas, metodologías, procedimientos, guías escritas, etc., tendientes a definir cómo deben llevarse a cabo y documentarse los procesos o actividades que generan los servicios de Auditoría.

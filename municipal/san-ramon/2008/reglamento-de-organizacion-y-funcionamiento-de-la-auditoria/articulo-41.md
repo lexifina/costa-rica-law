@@ -1,0 +1,1 @@
+Artículo 41.—Confidencialidad del denunciante. La identidad del denunciante, la información, documentación, y otras evidencias de la investigación que se efectúe serán confidenciales, de conformidad con el artículo 6 de la Ley General de Control Interno y numeral 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

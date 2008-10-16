@@ -1,0 +1,1 @@
+Artículo 17.—Potestades. El Auditor Interno y el personal de Auditoría, para el desempeño de sus competencias, tendrán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.

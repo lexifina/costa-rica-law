@@ -1,0 +1,1 @@
+Artículo 28.—Administración de los recursos. El Auditor Interno deberá administrar los recursos humanos, materiales, tecnológicos y de otra naturaleza, de tal manera que garantice la utilización de dichos recursos en forma económica, eficiente, eficaz, legal y transparente, para la consecución de los objetivos y metas de la Auditoría Interna.

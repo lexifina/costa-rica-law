@@ -1,0 +1,1 @@
+Artículo 8º—Independencia funcional y de criterio. La Auditoría Interna es un órgano asesor, con independencia funcional y de criterio, respecto del Jerarca y de la Administración Activa, de conformidad con el artículo 25 de la Ley General de Control Interno.

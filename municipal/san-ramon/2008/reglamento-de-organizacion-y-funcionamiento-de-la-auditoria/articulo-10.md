@@ -1,0 +1,2 @@
+Artículo 10.—Dependencia y ubicación orgánica. La Auditoría Interna se ubica como un órgano asesor de alto nivel dentro de la estructura institucional, con dependencia orgánica del Concejo Municipal y estará organizada en una sola unidad funcional, la cual estará a cargo del Auditor Interno.
+Durante las ausencias temporales del Auditor Interno, será sustituido por el Subauditor, en ausencia de éste, por el funcionario que designe el Auditor.

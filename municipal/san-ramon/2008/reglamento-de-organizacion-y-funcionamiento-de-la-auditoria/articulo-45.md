@@ -1,0 +1,1 @@
+Artículo 45.—Comunicación al denunciante. El Auditor Interno deberá comunicar al denunciante sobre el trámite que se le ha dado a su denuncia, siempre y cuando haya especificado el lugar de notificaciones.

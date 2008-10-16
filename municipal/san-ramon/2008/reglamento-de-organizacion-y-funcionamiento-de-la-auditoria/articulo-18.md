@@ -1,0 +1,1 @@
+Artículo 18.—Prohibiciones del cargo. El Auditor Interno y el personal de Auditoría, en el ejercicio de sus cargos, tendrán las prohibiciones que se establecen en el artículo 34 de la Ley General de Control Interno.

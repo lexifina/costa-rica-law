@@ -1,0 +1,5 @@
+Artículo 42.—Requisitos que deben reunir las denuncias. Los requisitos que deben reunir las denuncias para ser tramitada por la Auditoría Interna son:
+a) Los hechos denunciados deben ser expuestos por escrito, en forma clara, precisa y circunstanciada, con el detalle suficiente que permita realizar la investigación, el momento y lugar en que ocurrieron los hechos y el presunto responsable de los hechos denunciados. Además, se debe indicar en qué afecta los hechos a los fondos públicos o a la Hacienda Pública.
+b) El denunciante deberá indicar cuál es la pretensión en relación con el hecho denunciado.
+c) Se deberá señalar la posible situación irregular y la estimación del perjuicio económico producido a los fondos públicos o a la Hacienda Municipal.
+d) Las denuncias anónimas serán atendidas si las mismas aportan elementos de prueba suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación y se indique los presuntos responsables, de lo contrario se archivará la denuncia.
