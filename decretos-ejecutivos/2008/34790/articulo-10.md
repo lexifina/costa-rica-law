@@ -1,0 +1,1 @@
+Artículo 10.—De la elaboración de manuales: El Consejo Rector podrá emitir directrices, lineamientos y elaborar manuales que orienten el funcionamiento del Sistema de Banca para el Desarrollo, siempre y cuando no se contrapongan a lo establecido en la Ley 8634 “Sistema de Banca para el Desarrollo ”, y el reglamento respectivo.

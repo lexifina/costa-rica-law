@@ -1,0 +1,1 @@
+Artículo 3º—Del quórum. El Consejo Rector podrá sesionar, siempre y cuando, como mínimo se encuentren tres de sus miembros, y al menos uno de ellos, represente a los ministros o ministras elegidos (as) por el Consejo de Gobierno, y otro represente a la UCCAEP.
