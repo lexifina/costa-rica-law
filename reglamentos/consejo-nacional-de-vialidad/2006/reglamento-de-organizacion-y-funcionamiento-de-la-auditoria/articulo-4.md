@@ -1,1 +1,0 @@
-Artículo 4º—Responsabilidad de la Administración con respecto al Control Interno. Es responsabilidad de la Administración Activa del CONAVI, establecer, mantener, perfeccionar y evaluar el Sistema de Control Interno, siendo responsable del mismo el Consejo de Administración y ante él, los titulares subordinados de cada una de las dependencias que conforman el CONAVI.

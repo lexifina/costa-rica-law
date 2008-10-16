@@ -1,1 +1,0 @@
-Artículo 25.—Confidencialidad ante terceros sobre la información de auditorías en proceso. La Auditoría Interna no anticipará criterios ante terceros sobre información de auditorías que estén en proceso, considerando que no existe un informe oficial sobre el tema.

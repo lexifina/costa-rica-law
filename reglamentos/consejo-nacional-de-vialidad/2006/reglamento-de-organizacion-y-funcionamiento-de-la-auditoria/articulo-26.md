@@ -1,1 +1,0 @@
-Artículo 26.—Valor Agregado de la Auditoria Interna. El valor agregado de la Auditoría Interna estará relacionado con la emisión de informes que contengan las recomendaciones, observaciones y advertencias dirigidas a la Administración, que permitan el mejoramiento continuo de la Institución.

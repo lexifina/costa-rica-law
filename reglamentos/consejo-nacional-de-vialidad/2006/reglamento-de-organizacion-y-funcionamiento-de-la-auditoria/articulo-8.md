@@ -1,1 +1,0 @@
-Artículo 8º—Misión. La Auditoría Interna orienta esfuerzos para un mejoramiento continuo, eficiente y de cumplimiento del sistema de control, gestión de riesgos, dirección, así como el fortalecimiento de las relaciones inherentes a la rendición de cuentas.

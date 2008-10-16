@@ -1,1 +1,0 @@
-Artículo 7º—Objetivo. El objetivo de la Auditoría Interna es contribuir con el CONAVI en el cumplimiento de sus objetivos, mediante asesorías y evaluaciones apegadas al marco legal, técnico y sanas prácticas.

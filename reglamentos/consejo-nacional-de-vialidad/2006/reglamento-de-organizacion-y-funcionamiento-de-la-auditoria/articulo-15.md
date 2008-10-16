@@ -1,1 +1,0 @@
-Artículo 15.—Dependencia orgánica de la Auditoría Interna del CONAVI. La Auditoría Interna depende orgánicamente del Consejo de Administración del CONAVI, con quien coordinará los asuntos de interés institucional que correspondan.

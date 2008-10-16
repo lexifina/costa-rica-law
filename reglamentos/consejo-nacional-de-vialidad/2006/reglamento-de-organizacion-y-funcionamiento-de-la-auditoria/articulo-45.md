@@ -1,1 +1,0 @@
-Artículo 45.—El Consejo de Administración aprobará cualquier modificación a este Reglamento, considerando de previo el criterio del Auditor Interno. Además, el presente Reglamento y sus modificaciones deberán contar con la autorización de la Contraloría General de la República, publicarse en el diario oficial y divulgarse en el Consejo Nacional de Vialidad.
