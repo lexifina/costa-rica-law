@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria, la empresa desarrolladora, previa autorización de la oficina correspondiente del Sistema Nacional de Áreas de Conservación, podrá proceder a la corta de árboles (inclusive de las especies que estén vedadas) y al desarrollo de las obras de infraestructura en áreas de protección, según se indica en el proyecto.

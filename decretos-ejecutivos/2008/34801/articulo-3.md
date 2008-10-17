@@ -1,0 +1,1 @@
+Artículo 3º—La empresa desarrolladora deberá cumplir con cada una de las medidas de compensación previstas en el Considerando IX. Para el seguimiento y control de lo anterior, la misma rendirá un informe a la oficina correspondiente del Sistema Nacional de Áreas de conservación, la que por su parte certificará el cumplimiento.
