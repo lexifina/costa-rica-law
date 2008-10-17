@@ -14,3 +14,4 @@ Adición y modificación de la Circular Nº DRPI-001-2007, de fecha 15 de febrer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-17 | la propia norma |
+| 2 | 2008-10-17 | Circular 11 (2008-07-18) |
