@@ -1,0 +1,1 @@
+Artículo 39.—Participación de la Contraloría General de la República y el Ministerio de Ambiente, Energía y Telecomunicaciones. La Contraloría General de la República y el Ministro de Ambiente, Energía y Telecomunicaciones podrán solicitar los informes adicionales que sean necesarios para garantizar la transparencia y el uso eficiente de los recursos del FONATEL.
