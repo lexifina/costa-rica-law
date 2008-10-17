@@ -1,10 +1,3 @@
-ARTÍCULO 12.- Prohibiciones
-Quienes hayan sido miembros del Consejo Nacional de Concesiones así
-como el Secretario Técnico, durante los tres años siguientes a la
-conclusión del contrato de trabajo por cualquier causa, no podrán ser
-designados miembros de la Junta de Intervención referida en el artículo 61
-de esta ley. Tampoco podrán ser contratados por las empresas oferentes
-para trabajar asesorando en el procedimiento de una licitación de
-concesión, en cuyos actos preparatorios hayan participado. El
-incumplimiento de esta prohibición implicará para el oferente su exclusión
-inmediata del concurso.
+Artículo 12.- Prohibiciones
+Quienes hayan sido integrantes del Consejo Nacional de Concesiones, así como la secretaria técnica o el secretario técnico, durante los tres años siguientes a la conclusión, por cualquier causa, del contrato de trabajo, no podrán ser designados integrantes de la Junta de Intervención referida en el artículo 61 de esta Ley. Tampoco podrán ser contratados por las empresas oferentes para trabajar asesorando el procedimiento de licitación de una concesión, en cuyos actos preparatorios hayan participado. Para el oferente, el incumplimiento de esta prohibición implicará su exclusión inmediata del concurso.
+(Así reformado por el artículo 1° aparte a) punto 9) de la Ley N° 86 43 de 30 de junio de 2008).

@@ -1,8 +1,3 @@
-ARTÍCULO 32.- Procedimiento en caso de incumplimiento
-El incumplimiento de la obligación de suscribir el contrato o
-constituir la sociedad anónima dejará sin efecto la adjudicación de la
-concesión. En tal supuesto, la Administración concedente llamará a los
-demás oferentes que se presentaron a la licitación realizada, para que
-mantengan o mejoren sus ofertas en un plazo de quince días naturales y
-adjudicarla a la mejor oferta. El procedimiento que la Administración
-concedente seguirá para tal efecto, será regulado en el reglamento de esta
+Artículo 32.- Procedimiento en caso de incumplimiento
+El incumplimiento de los requisitos y de la obligación de suscribir el contrato, o de la obligación de obtener el financiamiento en las condiciones establecidas en el contrato, dejará sin efecto la adjudicación de la concesión y operará, además, como una resolución de pleno derecho del contrato. En tal supuesto, la administración concedente llamará, en un plazo de quince días a partir de haber dejado sin efecto la adjudicación, al oferente que, legitimado para resultar adjudicado, haya quedado en segundo lugar, con el propósito de que rinda la garantía de construcción y suscriba el contrato; para tales efectos, se dará un plazo de noventa días naturales. Si no llega a un acuerdo o no se presenta en el plazo establecido, la administración podrá llamar al resto de los concursantes legitimados para que resulten adjudicatarios, en el orden que hayan ocupado al evaluar las ofertas, aplicando los mismos plazos.
+(Así reformado por el artículo 1° aparte a) punto 20) de la Ley N° 8643 del 30 de junio de 2008).

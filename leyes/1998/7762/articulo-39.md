@@ -1,6 +1,5 @@
-ARTÍCULO 39.- Cláusula arbitral
-En el contrato podrán fijarse cláusulas de resolución alterna de
-conflictos para resolver controversias o diferencias producidas con motivo
-de la interpretación o aplicación del contrato de concesión o surgidas de
-su ejecución. Esta cláusula se regirá por la legislación vigente sobre la
-materia.
+Artículo 39.- Resolución alterna de conflictos
+En el contrato podrán fijarse cláusulas de resolución alterna de conflictos para resolver las controversias o diferencias producidas con motivo de la interpretación o aplicación del contrato de concesión o surgidas de su ejecución. Estas cláusulas se regirán por la Ley N.° 7727, de 9 de diciembre de 1997, y sus reformas, y en ellas podrán definirse las reglas que se seguirán en los procedimientos de resolución alterna de conflictos, o bien, podrá remitirse al instrumento en el que dichas reglas se encuentran, siempre y cuando se respete lo dispuesto en la legislación costarricense vigente en esta materia. El establecimiento de la cláusula compromisoria en el contrato, obliga a la administración y al concesionario a someter sus controversias a los procedimientos de resolución alterna de disputas, establecidos en la Ley N.º 7727.
+No podrá someterse al procedimiento de resolución alterna de disputas, el ejercicio de las potestades de imperio ni el ejercicio de los deberes públicos por parte de la administración, de conformidad con el artículo 66 de la Ley general de la Administración Pública; sin embargo, sí procederá en cuanto al derecho y el monto de la indemnización al que pueda tener derecho el concesionario, como consecuencia de su ejercicio por parte de la administración.
+Podrán ser sometidas a arbitraje las disputas referidas al reajuste del equilibrio financiero del contrato, siempre y cuando dicho equilibrio no se encuentre sujeto a eventuales ajustes tarifarios, que formen parte de la potestad de imperio, caso en el cual no procedería. El arbitraje será necesariamente de derecho y, salvo las excepciones señaladas en esta Ley, solo se podrá hacer exigible la cláusula compromisoria, sin que se requiera agotar la vía administrativa.
+(Así reformado por el artículo 1 aparte a) punto 25) de la Ley N° 8643 del 30 de junio de 2008).

@@ -1,13 +1,9 @@
-ARTÍCULO 7.- Personalidad jurídica instrumental
-1.- El Consejo tendrá personalidad jurídica instrumental para los
-efectos de administrar el Fondo de Concesiones, así como para concertar
-los convenios y contratos necesarios para cumplir sus funciones. En las
-contrataciones se aplicarán los principios enunciados en la Ley de la
-Contratación Administrativa, pero no sus procedimientos, los cuales se
-establecerán en el reglamento de esta ley.
-2.- En las contrataciones que realice el Consejo Nacional de
-Concesiones se aplicará el régimen de prohibiciones, previsto en el
-capítulo V de la Ley de Contratación Administrativa.
-3.- La adquisición de los recursos materiales necesarios para el
-cumplimiento de las funciones de la Secretaría, se regirá por los
-procedimientos estatuidos en la Ley de la Contratación Administrativa.
+Artículo 7.- Personalidad jurídica instrumental
+1) El Consejo tendrá personalidad jurídica instrumental para los efectos de administrar el Fondo Nacional de Concesiones, así como para concertar los convenios y contratos necesarios para cumplir sus funciones.
+2) Corresponderá a la Presidencia del Consejo ejercer la representación judicial y extrajudicial; tendrá las funciones establecidas en esta Ley y su respectivo Reglamento, así como las que le asigne el Consejo Nacional de Concesiones. El Consejo podrá autorizar a la Presidencia para que delegue esta representación, parcial o temporalmente, en la Secretaría Técnica, sin que pierda por ello sus facultades de representación.
+3) El Consejo estará dotado del personal técnico y profesional necesario para su buen funcionamiento. Este personal será nombrado por su experiencia y conocimientos en las áreas propias y afines a la competencia de este órgano y la idoneidad para el cargo, de conformidad con el Estatuto de Servicio Civil, dentro de las categorías especiales que creará la Dirección General de Servicio Civil, tomando en consideración la naturaleza de las atribuciones de esta dependencia.
+4) El Consejo podrá recurrir también a la contratación a plazo fijo de los recursos profesionales y técnicos que estime necesarios, conforme a los objetivos del proyecto de concesión, mediante la creación de plazas excluidas del Régimen de Servicio Civil y reguladas por la Autoridad Presupuestaria, teniendo como referencia las categorías de los puestos incluidos en este Régimen, referidos en el párrafo anterior, tanto para la acreditación de los requisitos como para su remuneración.
+5) En igual forma, podrá contratar las consultorías y los estudios que se requieran para el cumplimiento de las competencias asignadas por ley, cuando por inopia se compruebe que tanto el Consejo como la administración concedente, titular de las obras y los servicios objeto de la concesión, carecen de los recursos profesionales y técnicos para suplir estas necesidades.
+6) La adquisición de los recursos materiales necesarios para el cumplimiento de las funciones de la Secretaría y del Consejo, se regirá por los procedimientos estatuidos en la Ley de contratación administrativa.
+7) Toda la actividad contractual administrativa citada en este artículo, estará sujeta al régimen de prohibiciones previsto en la Ley de contratación administrativa.
+(Así reformado por el artículo 1° aparte a) punto 4) de la Ley N° 8643 de 30 de junio de 2008).

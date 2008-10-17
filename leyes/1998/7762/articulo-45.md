@@ -1,10 +1,5 @@
-ARTÍCULO 45.- Tratamiento tributario de las inversiones
-Las inversiones que el concesionario lleve a cabo efectivamente, para
-trabajos de construcción de obra nueva o de rehabilitación, ampliación,
-mejoramiento, restauración de obras preexistentes o nuevas, podrán ser
-contabilizadas para efectos tributarios, mediante la aplicación de una
-depreciación lineal, durante el término del contrato de concesión o por
-depreciación acelerada, que podrá efectuarse en un tercio del plazo de
-explotación. Asimismo, el concesionario podrá reevaluar anualmente estos
-activos. Para tales efectos, deberá utilizar los índices de precios
-elaborados por la Cámara Costarricense de la Construcción.
+Artículo 45.- Tratamiento tributario de las erogaciones del concesionario
+1) Las erogaciones que el concesionario realice efectivamente, para trabajos de construcción de obra nueva o de rehabilitación, ampliación, mejoramiento, restauración de obras preexistentes o nuevas, y que tengan una vida útil superior a un año, deberán capitalizarse para efectos tributarios y podrán depreciarse o amortizarse, durante el término restante del contrato. Estas erogaciones incluirán las indemnizaciones por pagar, por concepto de expropiaciones.
+2) El concesionario podrá amortizar o depreciar dichas erogaciones desde el momento de su realización hasta el término del contrato; para ello utilizará los métodos fiscales aceptados.
+3) La amortización o depreciación por realizar sobre las erogaciones, podrá hacerse siguiendo los métodos aceptados por las Normas Internacionales de Contabilidad y por el plazo comprendido desde el momento en que se realicen efectivamente dichas erogaciones hasta el término de la concesión. Asimismo, podrá optarse por una depreciación acelerada, hasta por un tercio del plazo del resto de la concesión. No obstante, una vez que el concesionario haya optado por un método de depreciación para una erogación determinada, este no podrá modificarse hasta el término de la concesión. El concesionario podrá reevaluar anualmente estos activos. Para tales efectos, deberá utilizar los métodos contablemente aceptables.
+(Así reformado por el artículo 1° aparte a) punto 28) de la Ley N° 8643 del 30 de junio de 2008).
