@@ -1,0 +1,1 @@
+Artículo 16.—Conformación del fondo de caja chica. La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: dinero en efectivo, gastos liquidados, adelantos pendientes de liquidación. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de la Caja Chica.

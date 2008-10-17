@@ -1,0 +1,17 @@
+Artículo 6º—Definiciones. Cuando en este reglamento se empleen los términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+a) Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige la Caja Chica. Es la constatación de que los documentos que dan soporte a los egresos, concuerda con los montos autorizados para cada uno de los fondos, así como el proceso de verificación de las sumas en custodia.
+b) Caja Chica: Fondo autorizado por el Concejo Municipal, para la adquisición de bienes y/o servicios catalogados como gastos menores e indispensables o urgentes.
+c) Fondo de Caja Chica: Este fondo será utilizado para la compra y contratación de bienes y/o servicios.
+d) Caso fortuito: Se entiende por caso fortuito aquella acción del ser humano que no puede preverse, ni puede resistirse.
+e) Fuerza mayor: Es aquel evento de la naturaleza, que pudiendo preverse no puede resistirse.
+f) Funcionario interesado: Se denomina como tal a todo funcionario municipal que, debidamente autorizado por su superior jerárquico, realice trámites de caja chica. Para efecto de reconocimiento de gastos de transporte y alimentación, se incluyen en esta definición los miembros del Concejo Municipal, siempre y cuando hayan sido designados para realizar funciones fuera del cantón mediante acuerdo municipal.
+g) Funcionario que autoriza: Funcionario que ejerce la coordinación del proceso en donde labora el funcionario interesado: Presidente del Concejo, Coordinador del Proceso de Hacienda, Coordinador del Proceso de Desarrollo Urbano y Servicios, y cada uno de los Coordinadores de Proceso a Nivel de Asesoría. En el caso de que el gasto a realizar se cargue a los recursos presupuestarios de la Alcaldía, será el mismo Alcalde o funcionario que este disponga, quien autorice y apruebe el gasto.
+h) Funcionario delegado: Funcionario que, en ausencia del Coordinador de Proceso y debidamente facultado por éste mediante acto razonado y comunicado a la Tesorería Municipal, mediante oficio, puede autorizar la realización de gastos de caja chica. En forma concurrente no podrá existir más de un funcionario delegado por proceso.
+i) Funcionario que aprueba: El Alcalde Municipal o aquel funcionario que éste designe, de manera formal y razonada y por escrito, por medio de un oficio dirigido a la Tesorería.
+j) Encargado de Caja Chica: Es el Tesorero Municipal o cualquier otro que de manera formal y razonada, se designe en el futuro, con la finalidad de que vele por el fiel cumplimiento de este Reglamento.
+k) Liquidación: Rendición de cuentas que efectúa el funcionario responsable del adelanto de caja chica, mediante presentación de los comprobantes originales que sustentan los bienes y/o servicios adquiridos.
+l) Municipalidad: La Municipalidad Pérez Zeledón.
+m) Tesorero Municipal: El Jefe de la actividad de Tesorería.
+n) Reintegro de Fondos: Solicitud de reintegro de dinero al respectivo fondo, el mismo lo realiza la Tesorería Municipal, ante la Alcaldía, por los gastos efectuados.
+o) Régimen Simplificado: Este régimen considera a todos aquellos comerciantes (personas físicas y jurídicas), que cuenten con alguna de las actividades que detallan más adelante, cuyas compras anuales no excedan de los límites y condiciones establecidos por la Dirección General de Tributación.
+p) Adelanto de Caja Chica: Retiro de dineros del fondo de caja chica para el pago de bienes, servicios o viáticos que luego habrán de ser liquidados de acuerdo con el procedimiento para ello establecido.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando se presuma que este mecanismo se está utilizando para obviar los procesos de contratación, la Tesorería podrá requerir el criterio del Proveedor Municipal, quien definirá en última instancia, sí se autoriza la compra o contratación a través de este fondo.

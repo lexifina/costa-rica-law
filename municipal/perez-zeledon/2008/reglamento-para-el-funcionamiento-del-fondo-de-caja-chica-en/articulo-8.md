@@ -1,0 +1,1 @@
+Artículo 8º—Custodia del fondo. El fondo de caja chica estará bajo la custodia y administración del Tesorero Municipal o el funcionario que en el futuro se designe, por medio de resolución razonada. En ningún caso podrá designarse a un funcionario perteneciente a una unidad administrativa distinta a la Tesorería.

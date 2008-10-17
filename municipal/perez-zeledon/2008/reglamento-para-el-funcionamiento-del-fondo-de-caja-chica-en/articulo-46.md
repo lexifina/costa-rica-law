@@ -1,0 +1,1 @@
+Artículo 46.—Impedimento de liquidar algunos gastos por concepto de viáticos. No podrán incluirse en liquidaciones por viáticos gastos tales como: lavado de vehículo, cambios de aceite, arreglos de llantas y otros, mismos que deberán liquidarse por medio del trámite de gastos por caja chica.

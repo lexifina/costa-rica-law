@@ -1,0 +1,1 @@
+Artículo 14.—Limitaciones en el uso de caja chica. Por su condición de inventariables no se podrán adquirir por medio del mecanismo de caja chica artículos pertenecientes al grupo de maquinaria y equipo o bienes duraderos.
