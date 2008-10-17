@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO.- Control político
+Quince días después de publicada esta Ley, el Consejo Nacional de Concesiones deberá remitir a la Asamblea Legislativa, para que sea conocido por la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos, un detalle de las contrataciones de consultorías que contenga: el nombre del consultor, el alcance de la consultaría, el informe de los consultores y los pagos por planilla o bajo cualquier otra modalidad por servicios personales efectuados durante los últimos cinco años.
