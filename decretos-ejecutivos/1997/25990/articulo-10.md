@@ -1,1 +1,0 @@
-Artículo 10.—El Estado y sus Instituciones, así como Municipalidades y demás Empresas Públicas y Privadas, podrán brindar dentro de la medida de sus posibilidades toda la ayuda y facilidades necesarias para la realización de los Festivales Nacionales e Internacionales y Eventos Escénicos Cívicos Provinciales.

@@ -1,1 +1,0 @@
-Artículo 8°—El Festival de las Artes contará además con un Consejo Asesor que estará constituido por el Director General del Festival, un representante del Teatro Popular Mélico Salazar y un representante de cada una de las siguientes áreas: danza, teatro, música, cine, nombrados por el Ministro de Cultura, Juventud y Deportes.

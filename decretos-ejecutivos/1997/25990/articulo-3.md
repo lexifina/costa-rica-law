@@ -1,1 +1,0 @@
-Artículo 3°—El Programa Festival de las Artes producirá además los Eventos Escénicos Cívicos Provinciales que procuran promover la reflexión y el conocimiento de nuestro pasado histórico, rescatar y preservar aquellos acontecimientos históricos y las hazañas de nuestros héroes más importantes, en las diferentes provincias, según las fechas de efemérides patrias más importantes.

@@ -1,1 +1,0 @@
-Artículo 2°—El Festival de las Artes un año se dedicará exclusivamente al ámbito de las artes nacionales ("Festival Nacional del Artes") y al año siguiente a las artes internacionales, ("Festival Internacional de las Artes"), manteniendo esa alternabilidad.

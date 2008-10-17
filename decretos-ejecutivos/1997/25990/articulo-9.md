@@ -1,1 +1,0 @@
-Artículo 9°—Corresponderá a dicho Consejo asesorar, recomendar y propiciar las acciones necesarias para la organización, promoción y exitosa ejecución de cada uno de los Eventos Artísticos que se programen.
