@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio primero.—Los costos ambientales y sociales causados por el vertimiento de sustancias contaminantes a los cuerpos de agua, a los que hace mención el inciso b del artículo 8, serán considerados parte del monto del canon ambiental por vertidos, cuando el MINAE establezca el procedimiento que se empleará para su cálculo, el cual se incorporará al monto de canon una vez cumplido el período de seis años al que hace referencia el artículo 20.

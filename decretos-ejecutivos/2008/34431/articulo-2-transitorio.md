@@ -1,0 +1,2 @@
+Transitorio segundo.—Las audiencias públicas para la fijación de metas de reducción de cargas contaminantes por zona de aplicación, se realizarán al finalizar el primer año de aplicación del presente Decreto. Como consecuencia de la ausencia de meta de reducción en este período, se mantendrá fijo el monto del canon correspondiente al primer año durante el segundo año de aplicación.
+Dado en la Presidencia de la República, a los cuatro días del mes de marzo del año dos mil ocho.

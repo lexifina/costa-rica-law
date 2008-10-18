@@ -1,0 +1,1 @@
+Artículo 33.—Recursos. Contra los actos de trámite emitidos en los procedimientos administrativos en este Reglamento, podrá interponerse los recursos contemplados en los artículos 342 y siguientes de la Ley General de la Administración Pública.

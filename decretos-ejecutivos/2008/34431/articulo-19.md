@@ -1,0 +1,1 @@
+Artículo 19.—Trámite del permiso de vertidos, actualización de declaración de vertidos y exoneración de la solicitud de permiso de vertidos. Estos trámites deberá hacerlos el interesado ante el MINAE, siguiendo para ello las disposiciones que se establezcan mediante resolución administrativa. Dichos trámites serán resueltos por el MINAE en un plazo máximo de 2 meses.

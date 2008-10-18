@@ -1,0 +1,1 @@
+Artículo 26.—De la gestión de cobro. La facturación y cobro del monto se hará trimestralmente y en colones. Para la gestión de cobro, el MINAE podrá contratar los servicios de entidades o empresas especializadas en este tipo de labores. El MINAE será responsable de velar por la correcta recaudación y destino de los fondos.

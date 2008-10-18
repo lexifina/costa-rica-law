@@ -1,0 +1,1 @@
+Artículo 34.—Derogatorias. Se deroga el decreto de Creación de Canon Ambiental por Vertidos, promulgado mediante Decreto Ejecutivo Nº 31176-MINAE, del 22 de abril del 2003, y el Decreto Ejecutivo 31858-MINAE de Reforma al Reglamento de Creación de Canon Ambiental por Vertidos, promulgado el 2 de junio del 2004.
