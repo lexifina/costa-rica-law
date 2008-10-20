@@ -1,0 +1,1 @@
+Artículo 8º—El equipo técnico de la Comisión Nacional del Programa Bandera Azul Ecológica, analizará el informe anual del Comité Local participante y luego realizará una auditoria en el sitio para verificar la veracidad de lo indicado en el mismo.

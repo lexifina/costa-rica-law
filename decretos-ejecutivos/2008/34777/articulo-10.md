@@ -1,0 +1,1 @@
+Artículo 10.—El ICE, la CNFL, al igual que las otras entidades participantes en la Comisión Nacional del Programa Bandera Azul Ecológica, deberán incluir en sus planes de trabajo el Programa Bandera Azul Ecológica y de igual forma designar los recursos para dar contenido a su efectiva ejecución.

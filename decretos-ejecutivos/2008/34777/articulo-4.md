@@ -1,0 +1,1 @@
+Artículo 4º—Dichas instituciones facilitarán los funcionarios necesarios para apoyar la labor del equipo técnico de trabajo, en donde el Grupo ICE tenga proyectos hidroeléctricos en funcionamiento o proyectados y cuente con personal de cuenca, señalado en el Decreto Ejecutivo Nº 31610-S-MINAE-TUR.

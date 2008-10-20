@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión Nacional del Programa Bandera Azul Ecológica, seleccionará a los galardonados a más tardar la primera semana de diciembre del año evaluado y organizará un acto de premiación en la tercera semana del mes de febrero del año siguiente, donde se entregará el galardón.

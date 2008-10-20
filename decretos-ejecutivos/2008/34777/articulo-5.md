@@ -1,0 +1,1 @@
+Artículo 5º—La población civil deberá crear un comité local pro microcuenca hidrológica con la participación de representantes institucionales, ONG´s, municipios, MINAE y líderes de la sociedad civil interesados en participar del Programa Bandera Azul Ecológica. Dicho comité deberá inscribirse a más tardar el 31 de marzo de cada año.
