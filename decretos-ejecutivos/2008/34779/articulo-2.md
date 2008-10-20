@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la celebración del Simposio “De Insuficiencia Cardiaca a Prevención y Rehabilitación Cardiovascular”, y a solicitud de la Asociación Costarricense de Cardiología, se declara el 27 de setiembre del 2008 “Día Mundial del Corazón”.
