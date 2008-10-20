@@ -1,0 +1,1 @@
+Transitorio I.—Una vez nombrada la primera Comisión que ha de regirse por el presente Reglamento, contará con 22 días naturales para el diseño de las fórmulas mediante las cuales se documentarán los aportes indirectos y en especie. Cumplido este plazo deberá someterlos a aprobación del ECI quien debe pronunciarse sobre los mismos en un término no mayor de 10 días naturales.

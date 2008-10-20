@@ -1,0 +1,1 @@
+Artículo 19.—De los criterios de evaluación de las diferentes categorías a desarrollarse en las distintas actividades del Festival. La Comisión Organizadora aprobará un instrumento de calificación para cada categoría participante en el Festival. Al ser aceptada cada solicitud de participación en el Festival, la Organización entregará una copia del respectivo instrumento.
