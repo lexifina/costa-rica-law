@@ -14,3 +14,4 @@ Deroga artículos del 1 al 6 de resoluc. que otorga hasta un cinco por ciento de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-18 | la propia norma |
+| 2 | 2008-10-20 | Resolución 17 (2008-10-20) |
