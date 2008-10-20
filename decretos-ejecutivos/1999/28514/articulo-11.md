@@ -1,1 +1,0 @@
-Artículo 11.—La Cepa de la vacuna a importar será la que la Dirección de Salud Animal autorice considerando, las necesidades del país así como normas, directrices, recomendaciones y criterios técnicos de organismos asesores internacionales de reconocimiento mundial.

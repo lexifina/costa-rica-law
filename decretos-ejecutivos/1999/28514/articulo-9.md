@@ -1,3 +1,0 @@
-Artículo 9º—La vacuna podrá ser importada por la Dirección de Salud Animal del Ministerio de Agricultura y Ganadería así como por Droguerías Veterinarias debidamente inscritas en la Dirección de Salud Animal, agrupaciones de ganaderos, cooperativas, centros agrícolas y otros en cuyo caso deberán:
-a) Hacer una solicitud previa a la Dirección de Salud Animal en donde indique tipo de vacuna, número de dosis, área geográfica donde se aplicará y el responsable de la aplicación.
-b) Cumplir con la legislación vigente que en la materia tenga establecida la Dirección de Salud Animal por medio el Departamento de Inscripción, Constatación de Calidad y Fiscalización de Medicamentos Veterinarios.

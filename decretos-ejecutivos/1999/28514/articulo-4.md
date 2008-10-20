@@ -1,1 +1,0 @@
-Artículo 4º—La edad de los animales a vacunar será determinada por la Dirección de Salud Animal considerando incidencia, prevalencia, área geográfica, población a riesgo y la recomendación técnica de organismos asesores al respecto. Esto deberá ser notificado oportunamente a los interesados.

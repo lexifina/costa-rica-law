@@ -1,1 +1,0 @@
-Artículo 10.—La Dirección autorizará la importación únicamente de vacunas vivas para la prevención de la Brucelosis, que sean de libre venta en el país de origen y que no tengan ningún impedimento técnico para su libre comercialización.

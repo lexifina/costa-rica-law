@@ -1,1 +1,0 @@
-Artículo 21.—La Dirección de Salud Animal apoyará, facilitara, estimulará la declaratoria de hato, área y región libre de Brucelosis como una directriz hacia la erradicación de la enfermedad. Esto bajo normativa técnica establecida.

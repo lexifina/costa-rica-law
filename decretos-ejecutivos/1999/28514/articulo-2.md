@@ -1,1 +1,0 @@
-Artículo 2º—Para efectos de declaratoria del país, región, área o finca libre, así como importación, exportación de bovinos, semen, embriones y cualquier otra actividad no contemplada, se regirá por el Código Zoosanitario Internacional vigente de la OIE (Organización Internacional de Epizootias).
