@@ -15,3 +15,4 @@ Reglamento para la Administración y Operación de los Sistemas de Estacionamien
 | --- | --- | --- |
 | 1 | 1999-02-23 | la propia norma |
 | 2 | 2008-03-31 | Reglamento municipal 100 (2008-03-31) |
+| 3 | 2008-10-20 | Reglamento municipal 129 (2008-10-20) |
