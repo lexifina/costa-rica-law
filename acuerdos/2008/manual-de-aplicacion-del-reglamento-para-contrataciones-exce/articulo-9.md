@@ -1,0 +1,3 @@
+Artículo 9º—Representación. El oferente podrá concurrir por sí mismo o a través de un representante de casas extranjeras, en cuyo caso, deberá hacer indicación expresa de tal circunstancia en la propuesta. Se presume que quien presenta la oferta cuenta con la capacidad legal para ello. La acreditación se podrá reservar para el adjudicatario en una etapa posterior.
+Los oferentes pueden participar con ofertas en consorcio.
+El cartel establecerá los requisitos que deberá aportar el adjudicatario para establecer la certeza en cuanto a la existencia y representación. En caso de que en el plazo conferido a esos efectos el adjudicatario no acredite su representación, el acto de adjudicación se declarará insubsistente y de ser posible, se readjudicará a la segunda mejor opción.

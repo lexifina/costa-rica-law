@@ -1,0 +1,2 @@
+Artículo 6º—Plazos. Los plazos estipulados tanto en el Reglamento como en este manual se entenderán como plazos máximos, pudiendo la Unidad Usuaria reducirlos siempre que se mantenga su razonabilidad y congruencia con lo que se deba actuar. También podrán ampliarse con la debida justificación siempre que sea necesario para proteger los intereses del INS.
+La referencia a días se entenderá hecha a días hábiles.

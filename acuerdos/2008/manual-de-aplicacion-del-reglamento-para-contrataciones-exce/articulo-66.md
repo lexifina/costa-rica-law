@@ -1,0 +1,1 @@
+Artículo 66.—Otras formas de contratación. La Administración podrá utilizar cualquier otra forma de contratación de las establecidas en la Ley de Contratación Administrativa y su Reglamento cuando resulten aplicables.

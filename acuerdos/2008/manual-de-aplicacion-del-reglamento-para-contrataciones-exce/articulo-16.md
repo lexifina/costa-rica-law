@@ -1,0 +1,3 @@
+SECCIÓN II
+Cartel y garantías
+Artículo 16.—Cartel. El cartel, constituye el reglamento específico de la contratación que se promueve y se entienden incorporadas a su clausulado todas las normas jurídicas y principios constitucionales aplicables al respectivo procedimiento. Deberá constituir un cuerpo de especificaciones técnicas, claras, suficientes, concretas, objetivas y amplias en cuanto a la oportunidad de participar. Para su confección, la Unidad Usuaria podrá contratar asesoría de personas físicas o jurídicas, especializadas en la materia de que se trate siempre que no tengan ningún interés particular directo ni indirecto en el negocio, cuando no tuviere en su organización los recursos técnicos necesarios para ello.
