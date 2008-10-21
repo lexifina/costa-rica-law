@@ -1,0 +1,4 @@
+Artículo 48.—El Archivo Central de la Municipalidad está en la obligación de denunciar ante el Ministerio Público a aquellas personas que incurran en el tipo penal que establece el artículo 36 de la Ley 7202.
+Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Una vez conocido y analizado el presente acuerdo el cual hace referencia al Reglamento Interno de Funcionamiento y Organización del Archivo Central, este Concejo Municipal, acuerda aprobarlo de manera definitiva por medio de los votos de los Regidores Propietarios Alba Cerdas Aguilar, Sonia Segura Matamoros, Jessica Hernández Sanarrusia, Daisy Anchía Angulo y Marvin Antonio Loría Murillo. Por tanto publíquese en el Diario Oficial La Gaceta, para su puesta en vigencia. Comuníquese.
+Ciudad Cortés, 13 de octubre del 2008.
