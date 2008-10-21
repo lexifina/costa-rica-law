@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón de Corredores de la provinc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-21 | la propia norma |
+| 2 | 2008-10-21 | Decreto Ejecutivo 34835 (2008-09-26) |

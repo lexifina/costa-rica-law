@@ -1,2 +1,2 @@
-Artículo cuarto.—Rige el día 21 de octubre del 2008.
-Dado en la Presidencia de la República, San José a las diez horas del dieciocho de julio del dos mil ocho.
+Artículo cuarto: En relación con los funcionarios del Instituto Nacional de Seguros, será el jerarca de esa institución el que determine con base en el artículo 6º, inciso c) de la Ley 12 del 30 de octubre de 1924, reformada por la Ley N ° 8653, Ley Reguladora del Mercado de Seguros y mediante circular interna, si el día señalado, se les otorgará como asueto a los funcionarios de esa entidad que laboren en ese cantón.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34835 del 26 de setiembre de 2008)
