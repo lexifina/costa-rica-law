@@ -1,0 +1,1 @@
+Artículo 17.—Independencia de las funciones. Los funcionarios de la Auditoría Interna tienen independencia funcional y de criterio respecto de la Junta Directiva y las demás dependencias de la Administración Activa.

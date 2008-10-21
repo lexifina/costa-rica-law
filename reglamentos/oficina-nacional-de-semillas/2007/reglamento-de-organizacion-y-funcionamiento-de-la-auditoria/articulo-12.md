@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del objeto, competencias, deberes, potestades y prohibiciones
+Artículo 12.—Objeto de la Auditoría Interna. La Auditoría Interna tiene como objetivo prestar un servicio de asesoría constructiva y de protección a la Administración para que alcance los objetivos institucionales de forma eficiente, eficaz y económica; validando y proponiendo mejoras a las operaciones, mediante una fiscalización independiente, objetiva y con enfoque preventivo de la legalidad y eficiencia del sistema de control interno y del manejo de los recursos, todo esto como fundamento para brindar una garantía razonable a la ciudadanía de la actuación de la Junta Directiva y del resto del personal de la ONS.

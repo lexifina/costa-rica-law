@@ -1,0 +1,1 @@
+Artículo 18.—Protección del personal. Ante un conflicto legal en el que el personal de la Auditoría Interna sea objeto de una demanda, producto del cumplimiento de sus funciones, la ONS debe brindar el respaldo legal y técnico, además de cubrir los costos del proceso hasta la resolución final.

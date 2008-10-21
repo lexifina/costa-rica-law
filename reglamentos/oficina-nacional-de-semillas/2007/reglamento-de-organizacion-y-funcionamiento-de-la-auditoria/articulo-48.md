@@ -1,0 +1,1 @@
+Artículo 48.—Presupuesto. La Administración debe asignar a la Auditoría Interna los recursos humanos, materiales, tecnológicos, de transporte y otros, necesarios y suficientes para el desempeño de su gestión. El Auditor Interno velará porque los requerimientos presupuestarios guarden proporcionalidad con el crecimiento económico de la ONS y con el universo auditable.

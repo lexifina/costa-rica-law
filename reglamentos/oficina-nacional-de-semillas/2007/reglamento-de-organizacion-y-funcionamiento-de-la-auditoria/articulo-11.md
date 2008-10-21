@@ -1,0 +1,1 @@
+Artículo 11.—Requisitos para la creación u ocupación de plazas. Los requisitos para la creación u ocupación de plazas deben responder a las necesidades reales y no podrán ser aplicados en perjuicio del funcionamiento del sistema de control interno.

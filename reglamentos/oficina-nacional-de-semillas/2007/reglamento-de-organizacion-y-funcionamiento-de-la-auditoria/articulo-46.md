@@ -1,0 +1,1 @@
+Artículo 46.—Protección de los fondos y recursos públicos. Los funcionarios de la Auditoría Interna deben resguardar, proteger, tutelar los fondos y recursos públicos. Todo acto contrario a tal imperativo, debe ser denunciado de inmediato ante las instancias correspondientes.

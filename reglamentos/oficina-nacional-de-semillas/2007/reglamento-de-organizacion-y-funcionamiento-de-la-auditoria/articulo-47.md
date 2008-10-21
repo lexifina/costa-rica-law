@@ -1,0 +1,3 @@
+CAPÍTULO X
+Administración de la oficina
+Artículo 47.—Asignación de funciones administrativas. El Auditor Interno asignará las funciones relacionadas con el Plan Operativo Institucional de la ONS, específicamente las que corresponden a la elaboración, ejecución y liquidación presupuestaria. Asimismo, asignará las funciones relacionadas con la dotación de productos y servicios para el adecuado desempeño de la Oficina, en lo que se refiere a la requisición, autorización, control de existencias e identificación de las necesidades de la Oficina. Las funciones relativas a la administración del recurso humano las ejecuta el Auditor Interno, según la reglamentación vigente en la ONS y con la autorización, en lo que compete, de la Junta Directiva.
