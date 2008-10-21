@@ -7,6 +7,7 @@ articulo-6.md
 articulo-7.md
 articulo-8.md
 articulo-9.md
+articulo-9-bis.md
 articulo-10.md
 articulo-11.md
 articulo-12.md
@@ -110,6 +111,7 @@ articulo-109.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
+articulo-112-bis.md
 articulo-113.md
 articulo-114.md
 articulo-115.md
