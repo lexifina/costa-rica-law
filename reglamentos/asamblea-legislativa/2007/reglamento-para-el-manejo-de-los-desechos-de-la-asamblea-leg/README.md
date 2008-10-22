@@ -16,3 +16,4 @@ Reglamento para el Manejo de los Desechos de la Asamblea Legislativa
 | 1 | 2007-07-26 | la propia norma |
 | 2 | 2007-11-21 | Acuerdo 52 (2007-11-21) |
 | 3 | 2008-03-26 | Acuerdo 66 (2008-03-26) |
+| 4 | 2008-10-22 | Acuerdo 61 (2008-10-22) |
