@@ -1,5 +1,6 @@
 Artículo 3º—De incumplirse la limitación estipulada en el artículo anterior, de disolverse la Federación indicada o de transformarse en una persona jurídica con fines de lucro, la propiedad del inmueble donado se revertirá a favor del Consejo Nacional de Producción.
-Para los efectos de lo dispuesto en este artículo, se considerará incumplimiento el hecho de que no estén finalizadas las obras del complejo deportivo en un plazo de cinco años.
+Para los efectos de lo dispuesto en este artículo, se considerará incumplimiento el hecho de que las obras del complejo deportivo no estén finalizadas al día 31 de diciembre de 2013, con las condiciones establecidas en esta Ley.
+(Así reformado el párrafo anterior por el artículo único de la Ley N° 8673 de 16 de octubre de 2008).
 Dichas obras deberán ser las siguientes:
 a) Canchas de fútbol con césped natural y artificial.
 b) Canchas para la práctica del fútbol playa.
