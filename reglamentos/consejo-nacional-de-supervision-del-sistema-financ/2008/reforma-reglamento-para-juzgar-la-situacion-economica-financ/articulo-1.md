@@ -1,0 +1,21 @@
+BANCO CENTRAL DE COSTA RICA
+CONSEJO NACIONAL DE SUPERVISIÓN
+DEL SISTEMA FINACIERO
+El Consejo Nacional de Supervisión del Sistema Financiero en el literal A, artículo 17 del acta de la sesión 751-2008, celebrada el 17 de octubre del 2008,
+considerando que:
+1. ante la coyuntura actual, caracterizada por niveles de inflación superiores a los esperados y desaceleración económica, es prudente fortalecer, de manera transitoria, los niveles de liquidez de las entidades supervisadas y mantener los parámetros regulatorios relacionados con el cálculo de la suficiencia patrimonial con la finalidad de no disminuir su solidez;
+2. mayores niveles de liquidez pueden resultar en una reducción del activo productivo de intermediación financiera y en una menor generación de rentabilidad, por lo que es congruente flexibilizar de manera temporal, los parámetros de los indicadores de canalización de recursos, rentabilidad sobre el activo productivo, rentabilidad sobre el patrimonio y gastos de administración entre utilidad operacional bruta; así como incrementar el parámetro de normalidad del indicador de calce de plazos a un mes;
+3. como consecuencia de una devaluación del colón, las entidades con activos en moneda extranjera pueden ver reducida su suficiencia patrimonial. Sin embargo puede obtenerse una cobertura de la suficiencia patrimonial ante variaciones en el tipo de cambio, cuando el porcentaje de dolarización del patrimonio es igual al porcentaje de dolarización de los activos. Dados los actuales niveles de dolarización y la variabilidad reciente observada en el tipo de cambio, se considera razonable incrementar de manera temporal el parámetro de normalidad del indicador de riesgo cambiario;
+4. las estrategias de negocio y de gestión de riesgos que desarrollan las entidades financieras, justifica la separación del calce de tasas de interés en dos indicadores, uno en moneda nacional y otro en moneda extranjera;
+5. los cambios propuestos a los parámetros de los indicadores de canalización de recursos, rentabilidad sobre el activo productivo, rentabilidad sobre el patrimonio, gastos de administración entre utilidad operacional bruta y riesgo cambiario; no afectan negativamente a las entidades financieras, por lo que se puede prescindir del trámite de consulta a que se refiere el párrafo 2 del artículo 361 de la Ley General de la Administración Pública. Sin embargo, si procede el envío en consulta de los cambios propuestos para los indicadores de calce de plazos a un mes y riesgo de tasas de interés.
+dispuso, en firme:
+Aprobar la adición a los Acuerdos SUGEF 24-00 "Reglamento para juzgar la situación económica-financiera de las entidades fiscalizadas" y ;UGEF 27-00 "Reglamento para juzgar la situación económica-financiera de las asociaciones mutualistas de ahorro y préstamo para la vivienda", de la siguiente disposición transitoria:
+"Transitorio
+A partir del cálculo correspondiente al mes de octubre del 2008 y hasta el del mes de marzo del 2009, los indicadores "Activo Productivo de intermediación financiera/Pasivo con costo", "Gastos de Administración/Utilidad Operacional Bruta", "Rentabilidad sobre Patrimonio", "Rentabilidad sobre activo productivo de intermediación financiera" y "Sensibilidad a riesgo cambiario", se calificarán según los siguientes parámetros:
+| Nivel normal | Nivel 1 | Nivel 2 | Nivel 3
+Activo productivo de intermediación/Pasivo con costo | Mayor o igual a 0,90 veces | Mayor o igual a 0,85 veces pero menor a 0,90 veces | Mayor o igual a 0,75 veces pero menor a 0,85 veces | Menor a 0,75 veces
+Gastos Administración/UOB | Menor o igual a 78,97% | Mayor que 78.97% pero menor o igual que 100% | Mayor que 100% pero menor o igual que 109.74% | Mayor que 109.74%
+Rentabilidad sobre patrimonio | Superior o igual a 10,65% | Inferior a 10,65% | Inferior a 0% pero mayor o igual a 10,65% | Inferior a -10,65%
+Rentabilidad sobre API | Mayor o igual a 1,33% | Inferior a 1,33% pero mayor o igual a 0% | Menor a 0% pero mayor que -1,33% | Inferior a -133%
+Sensibilidad a riesgo cambiario | Menor o igual a 6.5% | Mayor a 6.5% pero igual o menor a 20% | Mayor a 20% pero igual o menor a 35% | Mayor a 35%
+Rige a partir de su publicación en el diario oficial La Gaceta.
