@@ -6,3 +6,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 34657 del 15 de julio de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34721 del 19 de agosto de 2008).
 (Reformado por el artículo 2° de la Ley N° 8669 del 30 de setiembre de 2008).
+(Modificado por el articulo 1° del Decreto Ejecutivo N° 34827 de 23 de octubre de 2008).
