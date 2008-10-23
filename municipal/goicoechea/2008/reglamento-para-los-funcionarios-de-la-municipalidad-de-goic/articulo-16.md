@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 16.—Caución mínima. El monto mínimo de la garantía a favor de la Municipalidad será de quinientos mil colones (¢500.000,00). Anualmente, la Dirección Administrativa Financiera, actualizará para cada nivel el monto por caucionar, tomando como parámetro el salario base establecido en la Ley Nº 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial de cada inicio de año. Dicha actualización será comunicada por escrito tanto a los funcionarios caucionantes como al Departamento de Personal. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, dispondrán para ello de un máximo de veinte días hábiles contados a partir de dicha comunicación.

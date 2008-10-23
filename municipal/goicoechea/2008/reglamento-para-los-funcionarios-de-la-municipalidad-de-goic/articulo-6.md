@@ -1,0 +1,1 @@
+Artículo 6º—De los funcionarios que deberán rendir garantía en el Nivel Gerencial. En este nivel deben rendir garantía para el ejercicio de sus cargos el Alcalde o Alcaldesa, Alcaldes Suplentes o Alcaldesas Suplentes y los Directores de Área.

@@ -1,0 +1,1 @@
+Artículo 7º—De los funcionarios que deberán rendir garantía en el Nivel de Jefaturas. En este nivel deben rendir garantía para el ejercicio de sus cargos, quienes ocupen los puestos de Jefe de Departamento y Jefe de Sección.

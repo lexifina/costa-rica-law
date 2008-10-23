@@ -1,0 +1,1 @@
+Artículo 11.—Ajuste de caución. El caucionante que por algún motivo sea trasladado de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad debe ajustar la caución conforme la nueva situación, lo cual debe realizar en un plazo de veinte días hábiles contados a partir de la fecha de su designación.

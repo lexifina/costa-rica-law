@@ -1,0 +1,1 @@
+Artículo 3º—Forma y momento de rendir la caución. La caución a favor de la Municipalidad solo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad. La caución debe ser rendida, una vez conocido por la persona la designación en el puesto afecto a ésta y antes de asumir el cargo.

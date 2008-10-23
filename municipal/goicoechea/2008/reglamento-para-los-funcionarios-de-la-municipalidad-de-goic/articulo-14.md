@@ -1,0 +1,1 @@
+Artículo 14.—De los funcionarios interinos. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en los artículos 6º, 7º y 8º, deben rendir garantía si su nombramiento es mayor a tres meses.
