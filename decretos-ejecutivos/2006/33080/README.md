@@ -14,3 +14,4 @@ Reglamento a la Ley N° 7302 Ley de Creación del Régimen General de Pensiones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-23 | la propia norma |
+| 2 | 2008-10-23 | Decreto Ejecutivo 34869 (2008-10-23) |
