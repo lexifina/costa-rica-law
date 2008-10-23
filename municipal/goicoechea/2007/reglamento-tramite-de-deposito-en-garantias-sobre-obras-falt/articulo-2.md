@@ -1,0 +1,4 @@
+Artículo 2°-Del propósito. El presente Reglamento se emite con
+la finalidad de regular el procedimiento de depósito de garantías por obras faltantes de urbanización, cuyo monto estima el Director de Ingeniería al momento de que se reciban obras por parte del Concejo de un proyecto urbanístico, sea urbanización o condominio, o en los permisos de construcción que se amerite, dada la magnitud de la obra y así lo resuelva razonadamente el Director de Ingeniería,
+En los casos que se reciban las obras de urbanización de un proyecto urbanístico por el Concejo en el acuerdo debe quedar expresamente el monto que se autoriza como depósito de garantía sobre obras faltantes y el detalle de las obras que garantiza, todo amparado a informe técnico del Director de Ingeniería.
+En todos los demás casos la autorización del monto de la garantía de obra faltante, previo infonne del Director de Ingeniería, lo otorga el Alcalde.

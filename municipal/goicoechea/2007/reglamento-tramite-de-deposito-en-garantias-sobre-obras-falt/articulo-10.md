@@ -1,0 +1,2 @@
+Artículo 10.-Disposiciones generales. El contribuyente al entregar la garantía y recibir el comprobante de depósito por parte del Tesorero (a) acepta lo estipulado en este Reglamento.
+Este Reglamento deja sin efecto el Reglamento que en esta materia se aprobó en sesión extraordinaria N° 4-74, artículo 1° inciso 1) del día 18 de julio de 1974 y cualquier otra norma que sobre el particular se hubiese emitido a la fecha.
