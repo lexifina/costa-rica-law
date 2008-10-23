@@ -1,0 +1,1 @@
+Artículo 4°-Las certificaciones de las Bases de Datos del Registro Nacional podrán ser emitidas por éste, y por los funcionarios a los que este Decreto se refiere, a través de medios tecnológicos que garanticen la certeza y seguridad de la información en igualo mejor forma que los medios escritos que actualmente se utilizan.

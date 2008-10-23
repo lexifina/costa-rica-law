@@ -1,0 +1,1 @@
+Artículo 5-Se derogan en su totalidad los Decretos Ejecutivos números 21037-J, de fecha veintinueve de enero de mil novecientos noventa y nueve, 26515-J de fecha veintiocho de octubre de mil novecientos noventa y siete, y 28940-J de fecha veintiocho de setiembre del dos mil dos.
