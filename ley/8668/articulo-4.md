@@ -1,0 +1,2 @@
+ARTÍCULO 4.-Elaboración de un mapeo cantonal de posibles tajos, canteras y cauces de dominio público
+Las municipalidades realizarán un mapeo cantonal de posibles tajos, canteras y cauces de dominio público que puedan ser utilizados para los fines dispuestos en esta Ley. Estos datos deberán ser actualizados, periódicamente, con el fin de agilizar los procedimientos respectivos. La periodicidad adecuada será definida en el Reglamento de esta Ley.
