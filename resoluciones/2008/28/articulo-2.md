@@ -1,0 +1,1 @@
+2º—Cuando se trate de piensos medicados para ser registrados en la Dirección de Alimentos para Animales, los principios activos o sus mezclas, deben estar registrados y autorizados por la Dirección de Medicamentos Veterinarios.
