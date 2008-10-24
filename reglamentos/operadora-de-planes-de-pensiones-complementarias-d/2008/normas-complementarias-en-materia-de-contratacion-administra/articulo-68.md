@@ -1,0 +1,1 @@
+Artículo 68.—Debido proceso. Recibida la solicitud, la Sección Administrativa tendrá un plazo de tres días hábiles para otorgar la audiencia respectiva al contratista, de conformidad con los procedimientos que correspondan según la Ley de Contratación Administrativa y su Reglamento.

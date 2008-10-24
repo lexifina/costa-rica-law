@@ -1,0 +1,1 @@
+Artículo 57.—Recurso de revocatoria y/o apelación. En los concursos cuyos procedimientos proceda la interposición del recurso de revocatoria y/o apelación, el recurrente deberá presentarse ante la Sección Administrativa dentro de los plazos establecidos por ley.

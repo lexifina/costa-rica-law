@@ -1,0 +1,1 @@
+Artículo 71.—Impugnaciones. La interposición de recursos en contra de la resolución final emitida por el Comité de Licitaciones no suspenderá la aplicación de la sanción, salvo cuando esta considere que pueda causar perjuicios graves de imposible o difícil reparación.

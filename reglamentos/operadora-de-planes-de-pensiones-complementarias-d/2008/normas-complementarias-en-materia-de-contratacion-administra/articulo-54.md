@@ -1,0 +1,1 @@
+Artículo 54.—Recurso de objeción procedente. Si el recurso es declarado con lugar, la Sección Administrativa, en coordinación con la unidad usuaria, se encargará de efectuar las modificaciones al cartel y comunicarlas o publicarlas por los mismos medios utilizados para invitar.
