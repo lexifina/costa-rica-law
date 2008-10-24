@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón de Guatuso de la provincia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-24 | la propia norma |
+| 2 | 2008-10-24 | Decreto Ejecutivo 34881 (2008-10-16) |
