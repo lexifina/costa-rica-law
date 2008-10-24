@@ -1,3 +1,5 @@
+(Derogado)
+(Este Tratado se dejó sin efecto por el artículo 5 del Protocolo Bilateral entre la República de Costa Rica y la República de Panamá al Tratado de Libre Comercio entre Centroamérica y Panamá, aprobado por ley N° 8675 del 16 de octubre de 2008)
 Artículo 1º.- Apruébase en todas y cada una de sus partes el Tratado
 de Libre Comercio y de Intercambio Preferencial entre las Repúblicas de
 Costa Rica y Panamá, suscrito en Panamá, República de Panamá, el 8 de
