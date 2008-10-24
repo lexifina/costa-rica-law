@@ -1,0 +1,3 @@
+Artículo 3º—Apoyo institucional a las Contralorías. Todas las dependencias y funcionarios del Instituto deberán prestar su colaboración o asesoramiento y las facilidades que demande el ejercicio de la Contraloría de Servicios, cuando ésta lo requiera trabajar en coordinación con los diferentes procesos y/o áreas como parte de las responsabilidades derivadas de su relación laboral.
+Podrá solicitar a los funcionarios o empleados de la institución, los informes, datos y documentos necesarios para el cabal cumplimiento de sus funciones. De toda inconformidad tramitada en cualquier Proceso o área se dará cuenta a la contraloría de servicio institucional.
+Por todo lo demás se regirá en lo dispuesto en este reglamento y de acuerdo con la legislación vigente.
