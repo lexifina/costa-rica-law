@@ -13,4 +13,6 @@ Artículo 1°-Además de las actividades señaladas en el Artículo 56 de la Ley
 a) Administrar fideicomisos testamentarios de valores, cuyo único propósito es otorgar la administración de los valores a un puesto de bolsa y autorizarlo para disponer de los valores fideicometidos de la forma prevista por el fideicomitente, en caso de su muerte.
 b) Administrar fideicomisos de administración de valores, cuyo único propósito es autorizar al puesto de bolsa a administrar como patrimonio separado los valores objeto del fideicomiso.
 c) Administrar fideicomisos de garantía, siempre que la garantía la constituyan valores cuya administración haya sido confiada al puesto de bolsa.
+d) Realizar operaciones cambiarias por cuenta y riesgo propio o por encargo de terceros siempre y cuando sean debidamente autorizados por el Banco Central de Costa Rica (BCCR) para ello y sean necesarias para el ejercicio de la intermediación bursátil, para lo cual éstas deberán ajustarse al “Reglamento para las Operaciones Cambiarias de Contado” emitido por la Junta Directiva del BCCR.
+(Así adicionado el inciso anterior mediante sesión N° 752 del 24 de octubre de 2008)
 Las bolsas de valores podrán establecer contratos-marco para dichas actividades.
