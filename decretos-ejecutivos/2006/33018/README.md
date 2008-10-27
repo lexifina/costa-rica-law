@@ -14,3 +14,4 @@ Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-21 | la propia norma |
+| 2 | 2008-10-27 | Decreto Ejecutivo 34890 (2008-10-27) |
