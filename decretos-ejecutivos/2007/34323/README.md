@@ -14,3 +14,4 @@ Manual para la Atención de los Informes de la Contraloría General de la Repúb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-22 | la propia norma |
+| 2 | 2008-10-27 | Decreto Ejecutivo 34872 (2008-10-27) |
