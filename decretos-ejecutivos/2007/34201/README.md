@@ -14,3 +14,4 @@ Modifica para el Centro Nacional de la Música, el gasto presupuestario máximo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-24 | la propia norma |
+| 2 | 2008-10-27 | Decreto Ejecutivo 34873 (2008-10-27) |
