@@ -1,6 +1,6 @@
 # Aprobación del Protocolo de Montreal, relativo a las Sustancias Agotadoras de la Capa de Ozono
 
-Ley N° 7223 del 1991-04-08. SINALEVI, ficha 55361: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=55361&param2=60655&param3=1>.
+Ley N° 7223 del 1991-04-08. SINALEVI, ficha 55361: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=55361&param2=74364&param3=1>.
 
 Publicada en La Gaceta N° 86 del 1991-05-08.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 6 | 1991-05-08 | Ley 7223 | 1991-04-08 |
 | 2 de 6 | 1998-07-21 | Ley 7808 | 1998-06-11 |
 | 3 de 6 | 2005-06-03 | Tratados Internacionales 8443 (2005-05-03) | 2005-05-03 |
+| 4 de 6 | 2008-10-28 | Tratados Internacionales 8670 (2008-10-09) | 2008-10-09 |

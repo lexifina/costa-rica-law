@@ -1,5 +1,6 @@
 Anexo C
 Sustancias controladas
+(Nota de Sinalevi: Sobre este tema ver el Reglamento para implementar un mecanismo de cuotas de importación para la eliminación gradual del uso de HCFC limitados en el grupo I del Anexo C del protocolo de Montreal , aprobado mediante decreto ejecutivo N° 37614 del 9 de noviembre del 2012)
 Grupo | Sustancias | Número de isómeros | Potencial de agotamiento del ozono*
 Grupo I | | |
 CHFCI2 | (HCFC-21)** | 1 | 0.04
@@ -77,7 +78,10 @@ C3H4F3BR | | 12 | 0.07 – 0.8
 C3H5FBR2 | | 9 | 0.04 – 0.4
 C3H5F2BR | | 9 | 0.07 – 0.8
 C3H6FBR | | 5 | 0.02 – 0.7
+(***)Grupo III | | |
+CH2BrCI | Bromoclorometano | 1 | 0,12
 * Cuando se Índica una gama de PAO, a los efectos del Protocolo se utilizará el valor más alto de dicha gama. Los PAO enumerados como un valor único se determinaron a partir de cálculos basados en mediciones de laboratorio. Los enumerados como una gama se basan en estimaciones y, por consiguiente, tienen un grado mucho mayor de incertidumbre: un factor de dos para los HCFC y un factor de tres para los HBFC. La gama comprende un grupo isomérico. El valor superior es la estimación del PAO del isómero con el PAO más elevado, y el valor inferior es la estimación del PAO del isómero con el PAO más bajo.
 ** Identifica las sustancias más viables comercialmente. Los valores de PAO que las acompañan se utilizarán a los efectos del Protocolo.
 (Así adicionado por el artículo 1° punto Y de la Ley N° 7808 del 11 de junio de 1998)
 (Así reformado por el artículo 2° del anexo III punto EE, de la Ley N° 7808 del 11 de junio de 1998)
+(***)(Así adicionado el Grupo III, por el artículo 1° punto R de la Ley N° 8670 de 9 de octubre de 2008).
