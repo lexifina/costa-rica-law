@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 6° del decreto ejecutivo N° 34871 del 28 de octubre de 2008)
 N° 34109
 LA PRIMERA VICEPRESIDENTA EN EJERCICIO
 DE LA PRESIDENCIA DE LA REPÚBLICA
