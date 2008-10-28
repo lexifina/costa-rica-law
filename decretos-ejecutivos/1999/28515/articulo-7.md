@@ -1,1 +1,0 @@
-Artículo 7º—Los Médicos Veterinarios acreditados o no que en el ejercicio privado de su profesión tuvieren conocimiento de animales sospechosos de padecer tuberculosis, o que encontraran en necropsias practicadas lesiones compatibles con la tuberculosis, tendrán la obligación de informarlo inmediatamente a la Dirección de Salud Animal para su respectivo seguimiento.

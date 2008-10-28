@@ -1,1 +1,0 @@
-Artículo 11.—Le compete exclusivamente a la Dirección Nacional de Salud Animal a través de la dependencia que designe controlar el registro, la calidad y eficacia de la tuberculina, así como los métodos de diagnóstico utilizados.

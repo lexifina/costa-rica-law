@@ -1,1 +1,0 @@
-Artículo 4º—Se podrán establecer Hatos Libres con validez de un año, en cualquier región del país, previa solicitud del ganadero interesado a la Dirección de Salud Animal y bajo los criterios técnicos establecidos para tal fin. Esta actividad podrá ser ejecutada por los Médicos Veterinarios Particulares acreditados por la Dirección de Salud Animal.

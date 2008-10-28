@@ -1,1 +1,0 @@
-Artículo 10.—La Tuberculina o cualquier otro producto biológico que se utilice para diagnosticar la tuberculosis en los animales domésticos podrá ser importada por la Dirección de Salud Animal o por quien esta autorice en cuyo caso deberá ajustarse a la legislación vigente.
