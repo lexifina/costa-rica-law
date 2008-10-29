@@ -1,2 +1,3 @@
-Artículo 2º—Vigencia. La presente resolución rige a partir de su publicación y se aplicará al suministro de los datos referidos al período fiscal 2008 (01 de octubre del 2007 al 30 de setiembre del 2008) y siguientes.
+Artículo 2º—Vigencia. A partir del período fiscal 2009.
 Publíquese.
+(Así reformado el rige por el artículo 2° de la resolución N° 18 de 29 de octubre de 2008).

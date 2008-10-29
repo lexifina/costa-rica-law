@@ -14,3 +14,4 @@ Reforma resolución que establece modelos de formularios: D.150 Declaración Anu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-01 | la propia norma |
+| 2 | 2008-10-29 | Resolución 18 (2008-10-29) |
