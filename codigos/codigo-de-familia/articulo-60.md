@@ -1,5 +1,4 @@
-ARTICULO 60.-
-La separación por mutuo consentimiento no podrá pedirse sino después de dos años de verificado el matrimonio. Los esposos que la pidan deben presentar al Tribunal un convenio en escritura pública sobre los siguientes puntos:
+ARTICULO 60.-La separación por mutuo consentimiento no podrá pedirse sino después de dos años de verificado el matrimonio. Los esposos que la pidan deben presentar al Tribunal un convenio en escritura pública sobre los siguientes puntos:
 1) A quién corresponde la guarda, crianza y educación de los hijos menores;
 2) ¿Cuál de los dos cónyuges asume la obligación de alimentar a dichos hijos o la proporción en que se obligan ambos?;
 3) Monto de la pensión que debe pagar un cónyuge al otro, si en ello convinieren;
