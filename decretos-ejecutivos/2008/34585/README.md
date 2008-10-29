@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón Central de la provincia de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-29 | la propia norma |
+| 2 | 2008-10-29 | Decreto Ejecutivo 34882 (2008-09-26) |
