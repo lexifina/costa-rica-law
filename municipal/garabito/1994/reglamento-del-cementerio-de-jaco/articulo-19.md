@@ -1,2 +1,2 @@
-Artículo 19.—Todo propietario de derechos se compromete en el acto mismo de la adquisición, al pago de una cuota anual de mantenimiento, dicha cuota será fijada y revisada en el mes de Julio de cada año por el Concejo Municipal, la cual deberá ser publicada en el diario oficial según lo establece la legislación vigente en esta materia.
-El incumplimiento de esta cláusula por la parte del propietario, durante un año, autorizará a la Municipalidad a dar por disuelto el contrato.
+Artículo 19.—Fijar el precio por mantenimiento del derecho del cementerio en el monto equivalente a un 15% anual del valor de ese derecho. Cuya cifra será cobrada a partir del mes de enero 2009, a toda persona o familia que tenga parcela en el cementerio de Jacó.
+(Así reformado mediante sesión N° 130 del 29 de octubre de 2008)

@@ -14,3 +14,4 @@ Reglamento del Cementerio de Jacó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-23 | la propia norma |
+| 2 | 2008-10-29 | Reglamento municipal 130 (2008-10-29) |
