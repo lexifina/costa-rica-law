@@ -16,3 +16,4 @@ Establece modelos de formularios: D.150 "Declaración Anual Resumen Retenciones"
 | 1 | 1997-09-04 | la propia norma |
 | 2 | 2002-03-18 | Resolución 16 (2002-03-18) |
 | 3 | 2008-09-05 | Resolución 14 (2008-09-05) |
+| 4 | 2008-10-29 | Resolución 18 (2008-10-29) |
