@@ -1,0 +1,1 @@
+Artículo 3º—Prohibición: La prohibición consiste en la inhibitoria establecida por Ley específica, para el ejercicio liberal de una profesión, requisito para el puesto en que haya sido nombrado el servidor Municipal. Por tratarse de una disposición legal es obligatoria e inherente al puesto.
