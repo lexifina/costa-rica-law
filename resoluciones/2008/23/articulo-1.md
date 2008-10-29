@@ -1,0 +1,13 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+ASESORÍA JURÍDICA
+Nº 023-SC.—San José, 15 de octubre del 2008.—Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-637-08.-. Modifica el Sistema de Evaluación del Desempeño para las instituciones cubiertas por el Régimen de Servicio Civil.
+DG-645-08.- Revalora las clases de puestos docentes
+DG-647-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la Carrera de Administración de Empresas con énfasis en Gerencia General; Banca y Finanzas; Gestión Pública y Seguros, en el apartado Atinencia Académica de las especialidades: Administración subespecialidad Generalista
+DG-648-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir Maestría Regional en estudios de la Mujer, en el apartado Atinencia Académica de la especialidad Defensa de los Derechos de la Mujer.
+DG-649-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la carrera de Ingeniería en Ciencias Forestales con énfasis en Desarrollo Forestal en las especialidades: Forestal y Protección ambiental y Manejo de Áreas de Conservación.
+DG-650-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la carrera de Maestría Tecnológica, Medidas Sanitarias y Fitosanitarias del Colegio de Postgraduados de México, en el apartado Atinencia Académica de la especialidad Ciencias Agropecuarias subespecialidad Fitotecnia, siempre y cuando se cumpla con lo establecido en el artículo 2 de la Resolución DG-120-2005.
+DG-651-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la Maestría en Administración de Empresas con énfasis en Comercio Internacional, en el apartado Atinencia Académica de la especialidad Administración subespecialidad Generalista, siempre y cuando se cumpla con lo estipulado en el artículo 2 de la Resolución DG-120-2005.
+DG-652-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la Licenciatura en Gerencia de Recursos Humanos, en el apartado Atinencia Académica de la especialidad Administración subespecialidad Generalista.
+DG-653-08.- Modifica el Manual descriptivo de Especialidades del Régimen de Servicio Civil con el fin de incluir la Carrera de Maestría en Gestión y Finanzas Públicas, en el apartado Atinencia Académica de las especialidades: Auditoría y Administración subespecialidad Generalista, siempre y cuando se cumpla con lo estipulado en el artículo 2 de la Resolución DG-120-2005.
+Publíquese.
