@@ -1,0 +1,1 @@
+Artículo 20.—En las esquinas de cuadra, deberá construirse las rampas para discapacitados, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos exigidos por la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley Nº 7600 del 2 de mayo de 1996.
