@@ -1,0 +1,1 @@
+Artículo 5º—Los restantes apartados del Decreto Ejecutivo Nº 33812-MEIC-MAG-S. Leche Cruda y Leche Higienizada del 6 de febrero del 2007 publicado en La Gaceta Nº 112 del 12 de junio del 2007, quedan incólumes.
