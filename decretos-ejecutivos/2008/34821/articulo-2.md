@@ -1,0 +1,1 @@
+Artículo 2º—Las tarifas que se expresan en dólares moneda de los Estados Unidos de América, podrán ser cancelados en colones al tipo de cambio que establezca el Banco Central de Costa Rica. En caso de que algunos de los aeródromos contenidos en el presente Decreto sea concesionado, se regirá en materia tarifaria al modelo que estipulen las partes de común acuerdo.
