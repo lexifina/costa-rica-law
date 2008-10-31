@@ -1,0 +1,2 @@
+2. Modifíquese en el “Punto 8. “Proceso general de evaluación y acreditación” el “Apartado 8.1. / Solicitud de Acreditación”, de forma tal que se adicione a este la “Nota 2” que literalmente reza:
+“Nota 2: Cuando un OEC solicite una inclusión de normas en el alcance de su acreditación debe presentar a la SA respectiva la normativa para la cual esta solicitando la inclusión así como el alcance corregido, para que ésta documentación sea analizada por el equipo evaluador en la próxima evaluación al OEC solicitante.”
