@@ -1,0 +1,1 @@
+Artículo 11.—De la designación. Recibida la recomendación de la Comisión Especial, el Concejo Municipal tomará el acuerdo correspondiente, el cual deberá ser por unanimidad de los regidores propietarios.

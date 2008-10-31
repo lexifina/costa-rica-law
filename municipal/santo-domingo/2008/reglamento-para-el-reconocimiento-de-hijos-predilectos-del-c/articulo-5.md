@@ -1,0 +1,1 @@
+Artículo 5º—De los candidatos. El nombre del eventual designado será conocido por el Concejo Municipal, a propuesta de cualquiera de sus integrantes, de una organización del cantón o bien de un grupo de vecinos.

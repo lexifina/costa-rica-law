@@ -1,0 +1,1 @@
+Artículo 12.—De la designación desierta. Si a criterio justificado unánime del Concejo Municipal, la persona propuesta no reúne las condiciones requeridas para ser declarado como Hijo Predilecto, tendrá la facultad de declarar desierta la designación de ese año.

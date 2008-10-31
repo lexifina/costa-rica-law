@@ -1,0 +1,1 @@
+Artículo 6º—De la postulación. La propuesta del candidato a la declaratoria de Hijo Predilecto, deberá ser presentada por su promotor ante la Secretaría del Concejo Municipal, por escrito, la última semana del mes de abril del año que corresponda la designación.

@@ -1,0 +1,1 @@
+Artículo 9º—Del nombramiento de la Comisión. El Concejo Municipal nombrará la Comisión Especial en la primera sesión ordinaria del mes de mayo del año que corresponda, y en el mismo acto le hará entrega de toda la documentación acerca de la persona propuesta para su evaluación.

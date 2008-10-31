@@ -1,0 +1,1 @@
+Artículo 10.—Del plazo. La Comisión Especial tendrá como plazo máximo para la entrega de su recomendación al Concejo Municipal hasta la primera sesión ordinaria del Concejo del mes de julio del año que corresponda.
