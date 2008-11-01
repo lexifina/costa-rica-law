@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la Resolución Nº 25-07 de las trece horas del día dos de noviembre del 2007, dictada por la Dirección General y publicada en el Diario Oficial La Gaceta Nº 229 de 28 de noviembre del 2007.
