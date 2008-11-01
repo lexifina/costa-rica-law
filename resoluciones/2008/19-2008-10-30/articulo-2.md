@@ -1,0 +1,2 @@
+Artículo 2º—Disponibilidad de los nuevos formularios. Los formularios citados en esta resolución, estarán disponibles en el portal de servicios electrónicos de Tributación Digital, en la página Web del Ministerio de Hacienda.
+El formato e instrucciones de estos formularios pueden ser modificados por la Administración Tributaria, según sus necesidades, sin requerir al efecto una resolución que los implemente, con la sola publicación de estas modificaciones en el Sitio Web de la Dirección General de Tributación.
