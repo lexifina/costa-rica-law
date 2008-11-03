@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+AVISO
+Resolución Nº DGT-17-2008.—San José, a las catorce horas del veinte de octubre de dos mil ocho.
+Considerando:
+1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 del 03 de mayo de 1971 y sus reformas, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2º—Que el artículo 122 del citado Código, faculta a la Administración Tributaria para disponer, mediante resolución general, el empleo de medios electrónicos para que los sujetos pasivos puedan efectuar la determinación de la obligación tributaria. Asimismo, está facultada para otorgar a su discreción, incentivos dentro de una escala de porcentajes de descuentos sobre el tributo a pagar, a quienes utilicen dichos medios electrónicos.
+3º—Que mediante resolución Nº 13-08 de las nueve horas del veinticinco de agosto de dos mil ocho, publicada en La Gaceta Nº 180 del 18 de setiembre del 2008, se derogaron los artículos 1 al 6 inclusive, de la Resolución Nº 44-01, emitida por esta Dirección General, a las diez horas con treinta minutos del treinta y uno de octubre de dos mil uno, así como sus adiciones e interpretaciones.
+4º—Que el fundamento para tal derogatoria fue un estudio realizado para medir el impacto que representa sobre la recaudación mantener la aplicación de un descuento, para incentivar el pago en forma electrónica de los impuestos por parte de los contribuyentes, llegándose a la conclusión de que no se justifica ni técnica ni económicamente dicha medida, y que, por el contrario, si se llegara a establecer con la obligatoriedad del pago electrónico la eliminación del descuento, la recaudación aumentaría significativamente, no solo por ese hecho sino por la disminución que conlleva en el pago de comisiones a los Agentes Recaudadores.
+( Corregido mediante Fe de Erratas y publicado en La Gaceta N° 237 del 8 de diciembre del 2008)
+5º—Que el artículo 2 de esa misma resolución establece un rige para la eliminación del descuento supra citado para cada uno de los impuestos, de la siguiente manera:
+“(...) en los impuestos de período mensual, para el ejercicio fiscal de setiembre de 2008 en adelante; para los impuestos anuales, a partir del período fiscal 2008 en adelante y en los impuestos y pagos trimestrales, a partir de las obligaciones que vencen en setiembre 2008.”
+6º—Que en dicha resolución no se hizo mención al rige de la eliminación del descuento en los impuestos y pagos diarios, por lo que en atención al Principio de Seguridad Jurídica es preciso aclarar que para estos impuestos, su rige es a partir de la vigencia de la presente resolución.
+RESUELVE:
+Artículo único.—Adiciónese un artículo 2º bis a la resolución de esta Dirección, Nº 13-08 de las nueve horas del veinticinco de agosto de dos mil ocho, publicada en La Gaceta Nº 180 del 18 de setiembre del 2008 que diga:
+“Artículo 2 bis.—En los impuestos y pagos diarios, la eliminación del descuento rige a partir de la publicación de la presente adición.”
