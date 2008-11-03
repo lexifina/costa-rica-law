@@ -1,4 +1,0 @@
-CAPÍTULO III
-De los procedimientos para efectuar la solicitud
-Artículo 9º—De la solicitud de préstamo o servicio: Los
-interesados en recibir en calidad de préstamo teléfonos celulares o líneas de comunicación propiedad de ICD u obtener el servicio de pago de mensualidades correspondientes al uso de telefonía celular, deberán presentar una solicitud debidamente fundada y justificada conforme a los objetivos establecidos en la ley 8204, así como respecto de la necesidad, según el puesto y las funciones que desempeña el responsable directo. En los casos de teléfonos celulares y líneas de comunicación que se encuentren en estado de decomiso, se deberá seguir el procedimiento consignado en el Reglamento de Procedimientos para la Administración de Bienes Decomisados y Comisados.

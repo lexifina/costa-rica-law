@@ -1,1 +1,0 @@
-Artículo 17.—De los criterios desfavorables: Todos los criterios desfavorables emitidos por la Unidad Administrativa Financiera deberán ser remitidos al Consejo Directivo para su valoración. En caso de que el Consejo Directivo se aparte del criterio desfavorable, deberá emitir una resolución fundada en donde se indiquen los motivos de su decisión.

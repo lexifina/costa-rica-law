@@ -1,1 +1,0 @@
-Artículo 30.—Del excedente para funcionarios del ICD: Los funcionarios del ICD regidos por el artículo 28 de este Reglamento autorizarán que el excedente sobre la tarifa básica se cancele vía deducción automática de la planilla. Dicha situación será establecida en el respectivo convenio.

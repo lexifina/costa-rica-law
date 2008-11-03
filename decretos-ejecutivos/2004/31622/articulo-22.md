@@ -1,1 +1,0 @@
-Artículo 22.—De la firma del Convenio: Confeccionado el convenio, será firmado por el Presidente del Consejo Directivo del ICD, el jerarca de la institución solicitante y el responsable directo del bien. En el caso del préstamo a funcionarios del ICD, la suscripción la realizará el Presidente del Consejo Directivo del ICD, el Director General y el funcionario beneficiado.

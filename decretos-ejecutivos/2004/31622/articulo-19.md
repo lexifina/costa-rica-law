@@ -1,1 +1,0 @@
-Artículo 19.—Del acuerdo del Consejo Directivo: Tanto en los casos en los que el Consejo Directivo impruebe o apruebe las respectivas solicitudes, la Dirección General deberá comunicar el acuerdo adoptado a la institución solicitante o al funcionario del Instituto, dentro de los diez días hábiles siguientes a la comunicación del acuerdo tomado en firme.
