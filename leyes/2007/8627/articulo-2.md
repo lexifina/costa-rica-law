@@ -108,3 +108,4 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 34787 de 22 de setiembre de 2008).
 (Reformado por los artículos 2° y 3° de la Ley N° 8669 del 30 de setiembre de 2008).
 (Modificado por el artículo 1° y 2° del Decreto Ejecutivo N° 34800 de 2 de octubre de 2008).
+(Modificado por el articulo 1° del Decreto Ejecutivo N° 34827 de 23 de octubre de 2008).
