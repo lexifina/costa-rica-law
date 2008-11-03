@@ -14,7 +14,6 @@ i) Nancy Zamora Cervantes, representante de la Unión Costarricense de Cámaras 
 2) Miembros suplentes:
 a. Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
-c. Nevio Bonilla Morales, representante del Ministro de Agricultura y Ganadería.
-(Así reformados el inciso anterior por el artículo 2° del Decreto Ejecutivo N° 32803 del 4 de Noviembre del 2005)
+c. (Derogado este inciso por el artículo 3°, punto 2° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)

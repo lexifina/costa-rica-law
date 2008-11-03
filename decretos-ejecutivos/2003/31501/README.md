@@ -17,3 +17,4 @@ Reforma la Comisión Nacional para la Gestión de la Biodiversidad
 | 2 | 2005-11-04 | Decreto Ejecutivo 32803 (2005-11-04) |
 | 3 | 2006-06-01 | Decreto Ejecutivo 33434 (2006-06-01) |
 | 4 | 2006-07-03 | Decreto Ejecutivo 33246 (2006-07-03) |
+| 5 | 2008-11-03 | Decreto Ejecutivo 34944 (2008-11-03) |
