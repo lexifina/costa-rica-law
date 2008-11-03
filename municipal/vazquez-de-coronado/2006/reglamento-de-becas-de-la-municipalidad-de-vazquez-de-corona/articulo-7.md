@@ -1,2 +1,2 @@
-Artículo 7º—Los formularios se entregarán del 1º al 30 de noviembre de cada año, y la recepción de los mismos, se hará en la Secretaria del Concejo del 1º de diciembre al primer día hábil de enero del siguiente año. Estos serán enviados al Concejo Municipal y trasladados mediante acuerdo a la Comisión de Educación y Cultura para que emita criterio al respecto, en conjunto con los Concejos de Distrito.
-(Así reformado por acuerdo N° 28 tomado en sesión N° 079 del 29 de octubre de 2007)
+Artículo 7º—Los formularios se entregarán del 1 al 30 de noviembre de cada año y la recepción será en la Secretaría del Concejo Municipal del 01 de diciembre hasta el 5to día hábil de enero del año siguiente. Estos serán enviados al Concejo Municipal y trasladados mediante acuerdo a la Comisión de Educación y Cultura para que emita criterio.
+(Así reformado por acuerdo N° 019 tomado en sesión N° 132 del 3 de noviembre de 2008).
