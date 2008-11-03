@@ -1,1 +1,0 @@
-Artículo 6°—El plazo de otorgamiento del permiso será de hasta dos años. En el mismo acto en el que se autorice un permiso, el Consejo ordenará el inicio del proceso de licitación pública del servicio que se pretende conceder.

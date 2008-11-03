@@ -1,1 +1,0 @@
-Artículo 12.—El Consejo ejercerá la vigilancia y supervisión constante de los permisos otorgados, con el objeto de garantizar que estos se desarrollen de forma eficiente, oportuna y con respeto para los usuarios, apegándose a las condiciones autorizadas.

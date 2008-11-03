@@ -1,3 +1,0 @@
-CAPÍTULO SEGUNDO
-Condiciones previas necesarias para el otorgamiento de permisos
-Artículo 3º—Los permisos de operación que regule el presente reglamento, serán siempre por su naturaleza temporales, a título precario y podrán ser revocados por razones de oportunidad o conveniencia sin responsabilidad para el Consejo, otorgando siempre el debido proceso y evitando hacerlo de forma intempestiva o arbitraria. En todos los casos deberá darse un plazo prudencial para el cumplimiento del acto de revocación, todo lo anterior de conformidad con lo preceptuado por el numeral 154 de la Ley General de la Administración Pública.
