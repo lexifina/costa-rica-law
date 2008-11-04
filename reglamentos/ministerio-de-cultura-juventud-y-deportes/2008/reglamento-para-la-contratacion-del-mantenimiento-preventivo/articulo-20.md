@@ -1,0 +1,1 @@
+Artículo 20.—Selección de proveedores a participar. Las invitaciones a participar en los diferentes procesos se harán respetando el orden consecutivo establecido en el Registro de Elegibles dentro de cada tipo de actividad a contratar, con el fin de garantizar una participación igualitaria y equitativa, en los procesos de contratación.

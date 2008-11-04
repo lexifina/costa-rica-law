@@ -1,0 +1,1 @@
+Artículo 18.—Expediente. Tomada la decisión de iniciar el procedimiento, la Proveeduría procederá a formar el expediente de la Contratación Directa Autorizada. Estos expedientes se identificarán con las siglas CDA y llevarán una numeración que designa el Sistema Integrado Administración Financiera (SIGAF).

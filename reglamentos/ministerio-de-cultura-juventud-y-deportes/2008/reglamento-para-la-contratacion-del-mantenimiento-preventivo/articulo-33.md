@@ -1,0 +1,1 @@
+Artículo 33.—Prórroga de vigencia. En caso de que el Ministerio de Cultura y Juventud lo requiera, podrá solicitar a los interesados, la prórroga de vigencia de las ofertas, por una única vez y hasta por 10 días hábiles, a fin de que la institución pueda adjudicar.

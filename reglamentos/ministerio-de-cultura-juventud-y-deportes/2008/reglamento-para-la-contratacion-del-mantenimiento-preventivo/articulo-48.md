@@ -1,0 +1,1 @@
+Artículo 48.—Aprobación por Contraloría. Este Reglamento fue sometido a aprobación de la Contraloría General de la República, la cual lo aprobó, mediante oficio Nº 08687 (DCA-2578) de fecha 25 de agosto del 2008, notificado el 27 de agosto del 2008.

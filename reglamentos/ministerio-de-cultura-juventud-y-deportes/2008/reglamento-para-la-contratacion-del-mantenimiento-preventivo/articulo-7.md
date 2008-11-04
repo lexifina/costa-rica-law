@@ -1,0 +1,1 @@
+Artículo 7º—Convocatoria. La Proveeduría invitará a los proveedores o interesados en formar parte del Registro de Elegibles, a través de una publicación que se realizará dentro de los primeros treinta días naturales de cada año, en dos diarios de circulación nacional, así como en el Diario Oficial La Gaceta.

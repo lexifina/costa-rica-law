@@ -1,0 +1,3 @@
+Artículo 17.—Inicio del procedimiento de contratación. La decisión de iniciar un trámite para reparación, deberá ser dictada por la Dirección de cada programa presupuestario, al menos cinco días hábiles de haber surgido la necesidad.
+La Dirección de cada Programa Presupuestario del Ministerio de Cultura y Juventud, debe hacer la solicitud de pedido y justificación, la cual debe contener un detalle de las especificaciones técnicas de la reparación a realizarse y el contenido presupuestario.
+La información recabada, debe ser enviada a la Proveeduría Institucional para el desarrollo del procedimiento de contratación.

@@ -1,0 +1,1 @@
+Artículo 12.—Comunicación de aprobación o rechazo de solicitudes. Diez días hábiles después de vencido el plazo para recibir solicitudes, la Proveeduría comunicará a los interesados el resultado de su solicitud y las actividades en las que quedó inscrito, por medio de nota dirigida al fax o correo electrónico o por algún otro medio de notificación indicado.

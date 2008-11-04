@@ -1,0 +1,1 @@
+Artículo 35.—Adjudicaciones parciales o rechazo. El Ministerio de Cultura y Juventud se reserva el derecho de rechazar las ofertas presentadas o hacer adjudicaciones parciales, de acuerdo con la conveniencia de los precios y a las necesidades de la institución. Para adjudicaciones parciales lo dejará constando en la invitación. (Art. 27 R.L.C.A).

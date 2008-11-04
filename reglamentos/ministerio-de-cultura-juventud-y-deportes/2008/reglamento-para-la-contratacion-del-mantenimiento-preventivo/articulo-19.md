@@ -1,0 +1,1 @@
+Artículo 19.—Participantes. El Ministerio de Cultura y Juventud únicamente podrá contratar los servicios propios del mantenimiento preventivo y correctivo de vehículos bajo el amparo de este Reglamento, únicamente con las personas físicas o jurídicas que formen parte del Registro de Elegibles.

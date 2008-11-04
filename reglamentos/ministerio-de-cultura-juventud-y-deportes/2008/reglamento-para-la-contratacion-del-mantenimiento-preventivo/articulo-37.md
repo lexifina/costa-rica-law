@@ -1,0 +1,1 @@
+Artículo 37.—Recurso de revocatoria. La resolución de adjudicación será comunicada a todos los oferentes, por el mismo medio por el cual se cursó la invitación, contra ella cabrá, el recurso de revocatoria, el cual se regirá según lo establecido en el artículo 136 del Reglamento a la Ley de Contratación Administrativa.
