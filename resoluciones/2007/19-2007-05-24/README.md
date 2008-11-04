@@ -14,3 +14,4 @@ Procedimiento para el Reconocimiento de Laboratorios Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-15 | la propia norma |
+| 2 | 2008-11-04 | Resolución 110 (2008-11-04) |
