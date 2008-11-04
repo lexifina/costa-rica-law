@@ -1,2 +1,2 @@
-Artículo 177°—Cuando se trate de puestos excluidos del Régimen de Servicio Civil procederá el despido sin responsabilidad patronal cuando se incurra en las causales que determina el Código de Trabajo, el presente Reglamento, la Ley General de Policía y el Reglamento General de la Policía Penitenciaria y demás normativa que corresponda.
-Sólo en casos muy calificados debidamente razonados y a juicio del Ministro se podrá con base en el artículo 85 inciso d) del Código de Trabajo proceder al despido con responsabilidad patronal por la propia voluntad del patrono.
+Artículo 177°—Los recursos serán ordinarios y extraordinarios. Se consideran ordinarios el de Revocatoria, de Reposición cuando el acto impugnado sea emitido por el máximo jerarca y de Apelación; y Extraordinario el de revisión.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 164 al 177 actual).

@@ -1,1 +1,3 @@
-Artículo 149°—El resultado de la investigación, se vertirá mediante resolución motivada, clara, precisa y sustanciada.
+Artículo 149°—La Dirección Jurídica procederá a la apertura del expediente administrativo, asignándole un número el cual deberá tramitarse debidamente foliado, asimismo mediante el respectivo traslado de cargos deberá poner en conocimiento al involucrado de los hechos denunciados.
+En el proceso por acoso u hostigamiento sexual el Órgano Director deberá tomar las medidas necesarias para proteger a el o la denunciante. garantizando la confidencialidad del proceso.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 136 al 149 actual).

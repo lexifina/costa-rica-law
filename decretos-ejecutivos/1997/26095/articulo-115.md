@@ -1,8 +1,3 @@
-CAPITULO XXI
-Del régimen disciplinario y su procedimiento de aplicación
-Artículo 115°—Las faltas en que incurran los servidores, serán sancionadas con las medidas disciplinarias que a continuación se indican:
-1 Amonestación verbal.
-2 Amonestación escrita.
-3 Suspensión del servidor sin goce de salario hasta por quince días, término dentro del cual está vedado al servidor ejercer sus funciones.
-4 Despido sin responsabilidad patronal.
-Estas sanciones se aplicarán en cada caso, según su gravedad, no necesariamente en el orden establecido.
+Artículo 115.—Valoración de la prueba. Para la valoración de las pruebas, se tomarán en consideración todos los elementos indiciarios aportados, dentro de lo que se incluirán todos aquellos que se refieren a las alteraciones provocadas por los hechos que denuncian el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
+El Órgano Director no podrá emitir valoración alguna sobre la vida personal del o la denunciante.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)

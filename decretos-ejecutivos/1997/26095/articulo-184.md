@@ -1,0 +1,2 @@
+Artículo 184°—Si existiere algún vicio de forma de los que originan nulidad conforme se indica en la Ley General de la Administración Pública, se ordenará retrotraer el expediente al momento en que el vicio fue cometido salvo posibilidad de saneamiento o convalidación.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 171 al 184 actual).

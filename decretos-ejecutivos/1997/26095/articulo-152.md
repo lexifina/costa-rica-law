@@ -1,2 +1,2 @@
-Artículo 152°—Una vez emitida la recomendación, se enviara al Superior Jerárquico correspondiente, quien dictará el acto final y comunicara a la Dirección de Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
-La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Jerarca de la Institución, para los efectos correspondientes y se informará a la Defensoría de los Habitantes el resultado del proceso.
+Artículo 152°—Si el involucrado no ejerce su defensa en el término establecido, se continuará con el procedimiento hasta su conclusión, debiendo notificársele la resolución final en forma personal en su domicilio o lugar de trabajo.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 139 al 152 actual).

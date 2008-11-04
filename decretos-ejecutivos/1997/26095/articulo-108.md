@@ -1,1 +1,6 @@
-Artículo 108°—De conformidad con el artículo 288 del Código de Trabajo se establecerá una Comisión Institucional de Salud Ocupacional, la cual dictará todas las directrices en materia de salud ocupacional.
+Artículo 108.—Prevención del hostigamiento. Sin perjuicio de otros mecanismos que se implementen en el futuro, la prevención de las conductas constitutivas de hostigamiento moral y psicológico, estará a cargo de la Dirección de Recursos Humanos, la cual mediante charlas y reuniones con el personal de los diferentes departamentos y dependencias administrativas de la Institución, suministrará la información necesaria y canalizará las inquietudes que se propongan.
+Los mecanismos de divulgación tendientes a prevenir, desalentar, evitar y, eventualmente sancionar, las conductas constitutivas de hostigamiento moral y psicológico serán:
+a. Colocación en lugares visibles de oficinas o centros de trabajo, de un ejemplar de los instrumentos normativos correspondientes;
+b. Incorporación de charlas relacionadas con la política interna de prevención, investigación y eventual sanción;
+c. Cualquier otro que se considere pertinente.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)

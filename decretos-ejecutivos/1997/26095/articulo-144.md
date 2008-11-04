@@ -1,1 +1,3 @@
-Artículo 144°—La citación deberá ir firmada por el Órgano Director con indicación del nombre y apellidos del respectivo servidor público.
+Artículo 144°—Los despidos de los funcionarios amparados al Régimen de Servicio Civil, se tramitaran conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
+Los despidos de los servidores excluidos del Régimen de Servicio Civil, se regirán por lo que al efecto dispone la Ley General de Policía, el Reglamento General de Policía Penitenciaria, el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 131 al 144 actual).

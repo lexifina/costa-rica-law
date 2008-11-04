@@ -1,1 +1,2 @@
-Artículo 154°—Los investigadores del Órgano Director procederán a recopilar las pruebas ofrecidas y las que se consideren necesarias, con el fin de determinar la verdad real de los hechos.
+Artículo 154°—La citación a los involucrados y testigos deberá hacerse con cinco días hábiles de anticipación, salvo disposición en contrario o caso de urgencia en el cual podrá prescindirse del plazo y hacerse venir al citado en el momento mismo.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 141 al 154 actual).

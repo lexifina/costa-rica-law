@@ -1,2 +1,2 @@
-Artículo 157°—El Órgano Director tendrá un plazo máximo de dos meses a partir de la apertura del expediente administrativo para emitir la recomendación final. No obstante si por alguna razón el Órgano Director no ha podido realizar los actos o actuaciones previstos dentro del plazo señalado o por suspensión del plazo por fuerza mayor, se podrá prorrogar el mismo por un término igual o menor. De lo anterior se pondrá en conocimiento al Superior y a las partes del Superior Jerárquico que la ordena.
-En el proceso por acoso u hostigamiento sexual se tendrá un plazo improrrogable de tres meses.
+Artículo 157°—La citación deberá ir firmada por el Órgano Director con indicación del nombre y apellidos del respectivo servidor público.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 144 al 157 actual).

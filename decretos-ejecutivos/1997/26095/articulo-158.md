@@ -1,1 +1,2 @@
-Artículo 158°—En lo no previsto por el presente reglamento, se aplicará supletoriamente lo estipulado por la Ley General de Administración Pública.
+Artículo 158°—Las diligencias de evacuación de pruebas, deberán tener lugar normalmente en la sede del Órgano Director, pero si hubiere que hacer un reconocimiento o se requiriere prueba pericial se podrá efectuar en el lugar de los hechos.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 145 al 158 actual).

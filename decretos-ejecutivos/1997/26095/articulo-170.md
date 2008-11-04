@@ -1,1 +1,3 @@
-Artículo 170°—El Recurso de Apelación deberá resolverse dentro de los quince días naturales posteriores al recibo del expediente. De ser admisible, se confirmará, modificará o revocará el acto impugnado.
+Artículo 170°—El Órgano Director tendrá un plazo máximo de dos meses a partir de la apertura del expediente administrativo para emitir la recomendación final. No obstante si por alguna razón el Órgano Director no ha podido realizar los actos o actuaciones previstos dentro del plazo señalado o por suspensión del plazo por fuerza mayor, se podrá prorrogar el mismo por un término igual o menor. De lo anterior se pondrá en conocimiento al Superior y a las partes del Superior Jerárquico que la ordena.
+En el proceso por acoso u hostigamiento sexual se tendrá un plazo improrrogable de tres meses.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 157 al 170 actual).

@@ -1,0 +1,2 @@
+Artículo 192°—Este reglamento deberá hacerse del conocimiento de los servidores, mediante exhibición impresa en caracteres fácilmente legibles, en forma permanente, en por lo menos dos de los lugares más visibles de cada centro de trabajo por un período de quince días naturales previo a su entrada en vigencia.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 179 al 192 actual).

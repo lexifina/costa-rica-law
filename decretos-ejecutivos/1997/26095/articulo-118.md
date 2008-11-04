@@ -1,3 +1,2 @@
-Artículo 118°—La amonestación verbal se aplicara en los siguientes casos:
-1 Cuando el servidor cometa alguna falta leve contra las obligaciones que le impone su relación de servicio.
-2 En los casos expresamente previstos por este Reglamento.
+Artículo 118.—Sanciones. El acoso psicológico y moral en el trabajo se considerará falta grave y todo funcionario a quien se le compruebe haber incurrido en ésta, podrá ser despedido sin responsabilidad patronal.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)

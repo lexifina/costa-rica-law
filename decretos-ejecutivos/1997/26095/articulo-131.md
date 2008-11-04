@@ -1,2 +1,4 @@
-Artículo 131°—Los despidos de los funcionarios amparados al Régimen de Servicio Civil, se tramitaran conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
-Los despidos de los servidores excluidos del Régimen de Servicio Civil, se regirán por lo que al efecto dispone la Ley General de Policía, el Reglamento General de Policía Penitenciaria, el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.
+Artículo 131°—La amonestación verbal se aplicara en los siguientes casos:
+1 Cuando el servidor cometa alguna falta leve contra las obligaciones que le impone su relación de servicio.
+2 En los casos expresamente previstos por este Reglamento.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 118 al 131 actual).

@@ -1,1 +1,3 @@
-Artículo 176°—Los servidores amparados al régimen de Servicio Civil sólo podrán ser removidos de sus puestos si incurren en las causales de despido que determine el Código de Trabajo, el Estatuto de Servicio Civil y su Reglamento, la Ley de la Contratación Administrativa, Ley Orgánica de la Contraloría General de la República, la Ley General de la Administración Pública y demás normativa que corresponda.
+De los recursos
+Artículo 176°—Los servidores podrán recurrir contra todas aquellas resoluciones o disposiciones que les causen perjuicio.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 163 al 176 actual).

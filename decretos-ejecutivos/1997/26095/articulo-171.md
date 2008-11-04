@@ -1,1 +1,2 @@
-Artículo 171°—Si existiere algún vicio de forma de los que originan nulidad conforme se indica en la Ley General de la Administración Pública, se ordenará retrotraer el expediente al momento en que el vicio fue cometido salvo posibilidad de saneamiento o convalidación.
+Artículo 171°—En lo no previsto por el presente reglamento, se aplicará supletoriamente lo estipulado por la Ley General de Administración Pública.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 158 al 171 actual).

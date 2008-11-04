@@ -1,1 +1,2 @@
-Artículo 146°—Podrán también llevarse a cabo en otra sede, por economía de gastos o cualesquiera otras ventajas administrativas evidentes, si ello es posible sin pérdida de tiempo ni perjuicio grave de las partes.
+Artículo 146°—La Dirección Jurídica del Ministerio de Justicia. será el Órgano Director del Procedimiento y se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor, a excepción de aquellas faltas en materia de asistencia que se regirá por lo ya establecido en el presente reglamento.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 133 al 146 actual).

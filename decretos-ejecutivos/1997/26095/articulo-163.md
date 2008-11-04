@@ -1,2 +1,2 @@
-De los recursos
-Artículo 163°—Los servidores podrán recurrir contra todas aquellas resoluciones o disposiciones que les causen perjuicio.
+Artículo 163°—La resolución contendrá: especificación del lugar, hora y fecha en que se emite, un Resultando, donde especificará los elementos relevantes de los hechos denunciados, la legalidad del procedimiento y la defensa de los involucrados: un Considerando donde se consignarán los hechos probados y los no probados: sobre el fondo, donde se expondrán las razones de hecho y de derecho en las que se fundamente el resultando de la investigación: y un Por Tanto donde se indicara la parte resolutiva de la decisión final.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 150 al 163 actual).

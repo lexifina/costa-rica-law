@@ -1,1 +1,3 @@
-Artículo 165°—El Recurso de Revocatoria deberá interponerse ante el Órgano que dictó el acto en un plazo de cinco días hábiles contados a partir del momento en que tuvo conocimiento de la disposición o resolución.
+Artículo 165°—Una vez emitida la recomendación, se enviara al Superior Jerárquico correspondiente, quien dictará el acto final y comunicara a la Dirección de Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
+La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Jerarca de la Institución, para los efectos correspondientes y se informará a la Defensoría de los Habitantes el resultado del proceso.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 152 al 165 actual).

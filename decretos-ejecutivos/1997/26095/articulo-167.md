@@ -1,1 +1,2 @@
-Artículo 167°—El Recurso de Reposición contra el acto final del Jerarca se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción Contencioso- Administrativa y Ley General de la Administración Pública.
+Artículo 167°—Los investigadores del Órgano Director procederán a recopilar las pruebas ofrecidas y las que se consideren necesarias, con el fin de determinar la verdad real de los hechos.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 154 al 167 actual).

@@ -1,3 +1,2 @@
-CAPITULO XXIII
-De la terminación de las relaciones de servicio
-Artículo 175°—El Ministerio podrá en aquellos nombramientos que se efectúen en puestos amparados al Régimen de Servicio Civil con carácter interino poner fin a la relación de servicio cuando: Regrese el titular al puesto, resolución de tema o nómina de elegibles de servicio civil, renuncia del interino o despido por causa justificada.
+Artículo 175°—Una vez dictada la resolución por parte del Jerarca de la Institución, ella deberá remitirse a las instancias externas del Ministerio para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 162 al 175 actual).

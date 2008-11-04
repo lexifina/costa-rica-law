@@ -1,1 +1,2 @@
-Artículo 179°—Este reglamento deberá hacerse del conocimiento de los servidores, mediante exhibición impresa en caracteres fácilmente legibles, en forma permanente, en por lo menos dos de los lugares más visibles de cada centro de trabajo por un período de quince días naturales previo a su entrada en vigencia.
+Artículo 179°—El Recurso de Apelación procede ante el Superior Jerárquico del Órgano que dictó el acto objeto de impugnación, el cual deberá interponerse en un plazo de tres días hábiles a partir del momento en que tuvo conocimiento de éste.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 166 al 179 actual).

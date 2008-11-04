@@ -1,1 +1,2 @@
-Artículo 153°—Todas las instancias y Dependencias del Ministerio deberán facilitar al Órgano Director, la información y documentos que requiera en el ejercicio de sus funciones.
+Artículo 153°—El Órgano Director deberá averiguar la verdad real de los hechos y ordenará y practicará todas las diligencias de pruebas necesarias para ello, de oficio o a petición de parte. El ofrecimiento y admisión de pruebas de la parte se hará con las limitaciones que señala la Ley. Las pruebas que no fuese posible recibir por culpa de la parte se declararan inevacuables.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 140 al 153 actual).

@@ -1,1 +1,2 @@
-Artículo 169°—El Órgano que dictó el acto, deberá resolver el Recurso de Revocatoria o Reposición dentro de los quince días posteriores a la presentación.
+Artículo 169°—Únicamente la parte y su abogado o representante tendrán acceso al expediente de investigación, cuando éste se encuentre en trámite. El Órgano Director mediante resolución motivada. podrá declarar confidencial aquellas piezas del expediente que confieran un privilegio indebido a alguna de las partes, o pueda dañar a la contraparte. a terceros, a la Administración o a la información.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008, que lo traspasó del anterior artículo 156 al 169 actual).

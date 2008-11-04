@@ -1,2 +1,2 @@
-Artículo 117°—Las amonestaciones verbales o escritas por faltas leves, las emitirá el jefe inmediato del amonestado dentro del término establecido, sin más tramite que concederle audiencia. La escrita deberá contener un relato suscinto de los hechos que motivaron la infracción y fundamento que justifican la sanción disciplinaria.
-Lo anterior salvo que para la determinación del hecho sea necesario llevar a cabo una investigación, en tal caso deberá iniciarse el procedimiento administrativo y el término para aplicar la sanción se regirá por lo establecido en el artículo 125 de este Reglamento.
+Artículo 117.—Recursos. La resolución final tendrá recurso de revocatoria ante el Viceministro (a) y apelación ante el Ministro (a) de Justicia, que deberá ser interpuesto en un plazo de tres días hábiles siguientes a la notificación de ésta.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)
