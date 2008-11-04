@@ -1,6 +1,6 @@
 # Autoriza Concesión del Servicio de Fotocopiado para Discapacitados
 
-Ley N° 7814 del 1998-08-05. SINALEVI, ficha 44723: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44723&param2=47164&param3=1>.
+Ley N° 7814 del 1998-08-05. SINALEVI, ficha 44723: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44723&param2=74429&param3=1>.
 
 Publicada en La Gaceta N° 174 del 1998-09-07.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1998-09-07 | Ley 7814 | 1998-08-05 |
 | 2 de 3 | 1998-09-07 | SINALEVI | 1998-08-05 |
+| 3 de 3 | 2008-11-04 | Ley 8672 | 2008-10-16 |
