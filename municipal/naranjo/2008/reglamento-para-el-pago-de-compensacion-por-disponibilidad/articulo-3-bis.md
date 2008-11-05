@@ -1,0 +1,3 @@
+Artículo 3 Bis: Se podrá pagar compensación por disponibilidad a aquellos empleados que lo soliciten y se desempeñen en Departamentos Municipales que tengan a su cargo la prestación de servicios, que por su naturaleza no se puedan interrumpir sin que se cause un perjuicio a la Colectividad. Siempre y cuando las situaciones que deban atenderse, fuera de la jornada regular obedezcan a eventos naturales o imposibles de prever.
+De acuerdo a lo anterior el pago de disponibilidad procede en caso de que los solicitantes sean de los departamentos mencionados, que deban personalmente efectuar obras de manera impostergable.
+(Así adicionado mediante publicación efectuada en La Gaceta N° 226 del 21 de noviembre de 2008)
