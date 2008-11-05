@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoria Interna del Banco C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-11 | la propia norma |
+| 2 | 2008-11-05 | Reglamento 5401 (2008-11-05) |
