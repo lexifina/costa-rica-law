@@ -1,0 +1,1 @@
+Artículo 17.—Podrá revocarse un permiso siempre que se logre comprobar la falsedad en alguno de los requisitos de la solicitud, así como en aquellos casos en que con posterioridad al otorgamiento de la patente surjan hechos que hagan invalida la causa de su otorgamiento.

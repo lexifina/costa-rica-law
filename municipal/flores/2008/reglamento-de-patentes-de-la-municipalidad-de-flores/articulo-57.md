@@ -1,0 +1,2 @@
+Artículo 57.—Disposiciones derogatorias. El presente Reglamento deroga el Reglamento de Impuestos de Patentes Municipales del Cantón de Flores de Heredia, así como cualquier otro acuerdo municipal que se le oponga; así como disposición de igual rango o inferior que se le oponga.
+II.—Conforme ordena el artículo 43 del Código Municipal enviarlo a audiencia pública por un plazo de diez días hábiles; plazo mediante el cual si no se han realizado modificaciones se procederá a emitir la aprobación final.

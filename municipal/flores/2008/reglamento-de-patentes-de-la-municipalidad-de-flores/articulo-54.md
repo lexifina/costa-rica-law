@@ -1,0 +1,1 @@
+Artículo 54.—Tasado de oficio. De acuerdo a lo adoptado en la Ley y este Reglamento, para los negocios nuevos y los que no presenten declaración por Renta o presentando dicha declaración los datos brindados no sean satisfactorios para la Municipalidad, se podrán realizar por medio del tasado de oficio.

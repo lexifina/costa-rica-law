@@ -1,0 +1,1 @@
+Artículo 56.—Acatamiento obligatorio. De no acatar dicha normativa en relación con los horarios establecidos de funcionamiento, se le aplicará lo que indica el artículo 81 del Código Municipal y este Reglamento.

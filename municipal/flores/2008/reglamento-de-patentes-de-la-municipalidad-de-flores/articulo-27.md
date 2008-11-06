@@ -1,0 +1,1 @@
+Artículo 27.—Las resoluciones administrativas del Departamento de Rentas y Cobranzas relacionadas con solicitudes de licencias, traslados, traspasos, y renuncias, recalificaciones, suspensiones, cancelaciones y exclusiones, tendrán los recursos de revocatoria y apelación para ante la Alcaldía Municipal.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la inspección
+Artículo 26.—A partir de la entrada en vigencia de este Reglamento corresponde al Departamento de Rentas y Cobranzas, la tramitación y resolución de todo lo relacionado con la Ley de Impuestos y Patentes del Cantón de Flores y su Reglamento. Para estos efectos el Departamento de Rentas y Cobranzas dictará en los plazos reglamentarios establecidos, resoluciones administrativas debidamente motivadas resolviendo las solicitudes de licencias, traslados, traspasos, y renuncias, así como las recalificaciones, suspensiones, cancelaciones y exclusiones. La omisión de esta responsabilidad por parte de los funcionarios competentes que impliquen riesgos para los intereses públicos o la hacienda pública municipales será considerada falta grave.

@@ -1,0 +1,1 @@
+Artículo 51.—Período del impuesto y forma de pago. El período del impuesto de patentes es anual y está comprendido entre el 01 de enero y el 31 de diciembre de cada año. Dicho impuesto se pagará por trimestre adelantado. Todo pago deberá hacerse en las cajas de la Tesorería Municipal, o por los medios que la propia Municipalidad autorice en el futuro.

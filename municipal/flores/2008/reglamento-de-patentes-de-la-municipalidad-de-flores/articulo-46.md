@@ -1,0 +1,1 @@
+Artículo 46.—Órgano encargado de revisar las solicitudes. Corresponderá a la Secretaria del Concejo recibir la solicitud y será su deber comprobar que todos los requisitos fueron presentados debidamente. Caso contrario, esa dependencia no recibirá la solicitud y la devolverá al interesado para que subsane los requisitos incumplidos.

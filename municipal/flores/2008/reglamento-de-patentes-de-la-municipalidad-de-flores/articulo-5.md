@@ -1,0 +1,1 @@
+Artículo 5º—El impuesto de patente se pagará durante todo el tiempo que se haya tenido el establecimiento abierto y durante el tiempo en que se haya poseído licencia, aunque la actividad lucrativa autorizada no se hubiere realizado.

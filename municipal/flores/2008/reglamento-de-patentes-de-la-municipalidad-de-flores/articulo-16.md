@@ -1,0 +1,1 @@
+Artículo 16.—La licencia que otorgue la Municipalidad quedará condicionada a la vigencia de los requisitos y plazos que establezcan los permisos Sanitarios de Funcionamiento, y demás permisos necesarios para el desarrollo de la actividad autorizada.
