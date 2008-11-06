@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+El Concejo Municipal de Pérez Zeledón, comunica que mediante el acuerdo de la sesión ordinaria Nº 128-08, artículo 6), inciso 17), del 07 de octubre del 2008, aprobó derogar el acuerdo tomado por el Concejo Municipal en la sesión ordinaria Nº 108-08, artículo 6, inciso 27), celebrada el día 20 de mayo del 2008, a través del cual se otorga personería jurídica a la Junta Administradora del Campo de Exposiciones de Pérez Zeledón, a partir de la reforma del artículo V del Reglamento que regula a esta junta. Dejando de esta forma sin efecto la publicación realizada en La Gaceta Nº 142 del día miércoles 23 de julio del 2008.
+San Isidro de El General, 24 de octubre del 2008
