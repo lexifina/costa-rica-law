@@ -1,1 +1,0 @@
-Artículo 9º—La Municipalidad otorgará las ayudas con base en lo dispuesto en los artículos anteriores, solamente una vez por persona o por familia cada tres años, para lo cual se establecerá un registro de adjudicatarios.
