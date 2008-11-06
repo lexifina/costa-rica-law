@@ -1,0 +1,1 @@
+Artículo 12.—Para ser dueño de un derecho de arrendamientos se requiere ser vecino del cantón central de Limón y mayor de edad, no ser adjudicado de otro derecho de arrendamiento a excepción casos muy calificados, la Junta Administrativa por medio de la administración llevará un registro de cada uno de los arrendatarios en el libro registro es donde se indicara el domicilio.

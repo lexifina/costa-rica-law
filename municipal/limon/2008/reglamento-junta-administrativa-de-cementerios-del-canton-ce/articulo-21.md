@@ -1,0 +1,1 @@
+Artículo 21.—La Junta previniendo las campañas de salud públicas no permite la colocación de floreros, jarrones, maceteras y otros recipientes para la colocación de flores o plantas que no dispongan de agujeros.
