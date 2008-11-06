@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones. El incumplimiento de las disposiciones de este reglamento podrá hacer incurrir en responsabilidad administrativa, civil o penal al funcionario o funcionaria al que se le asigna el servicio de telefonía celular propiedad del CNP.

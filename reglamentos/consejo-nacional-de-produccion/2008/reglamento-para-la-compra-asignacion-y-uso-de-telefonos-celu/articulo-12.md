@@ -1,0 +1,1 @@
+Artículo 12.—Sobre el trámite de pago de los recibos telefónicos. El trámite de pago y verificación del gasto, lo realizará el Área de Servicios Institucionales de la Dirección Administrativa Financiera o el Departamento Administrativo de FANAL. Estas dependencias mantendrán en sus archivos el historial de gastos del servicio celular en el CNP para efectos de control.

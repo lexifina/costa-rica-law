@@ -1,0 +1,1 @@
+Artículo 16.—Compra de teléfonos celulares. La compra de los teléfonos celulares y sus accesorios es responsabilidad del Área de Servicios Institucionales y del Departamento Administrativo de FANAL según corresponda, y se regirá por lo establecido en la Ley de la Contratación Administrativa y su reglamento.

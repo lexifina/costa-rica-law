@@ -1,0 +1,1 @@
+Artículo 14.—Responsabilidad de la Administración Activa. Corresponderá al Área de Servicios Institucionales de la Dirección Administrativa Financiera o al Departamento Administrativo de FANAL, velar por el cumplimiento de las normas contenidas en el presente reglamento y cualesquiera otras que supletoriamente le sean aplicables en esta materia.

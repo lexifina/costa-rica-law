@@ -1,0 +1,3 @@
+Transitorio II.—Dentro del plazo de treinta días naturales, contados a partir de la publicación del presente reglamento, el Área de Servicios Institucionales de la Dirección Administrativa Financiera del CNP y el Departamento Administrativo de FANAL, formalizarán en forma individual el respectivo Convenio con los usuarios del servicio de telefonía celular del CNP.
+Este Reglamento fue aprobado por la Junta Directiva del CNP por medio de acuerdo Nº 37506, tomado en el artículo 12, sesión ordinaria Nº 2726 del 01-10-2008.
+Para mayor información comunicarse al teléfono 2257-9355 con las extensiones 233 y 236.
