@@ -1,0 +1,1 @@
+Artículo 4°-Los restantes apartados del Decreto Ejecutivo N° 34487-MEIC-MAG-S RTCR 406:2007 Arroz en Granza. Especificaciones y Métodos de Análisis para la Comercialización e Industrialización del 04 de febrero del 2008 publicado en el Diario Oficial La Gaceta N° 87 el 07 de mayo del 2008, quedan incólumes.
