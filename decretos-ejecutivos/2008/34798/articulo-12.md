@@ -1,0 +1,1 @@
+Artículo 12.—Los órganos y entes representados en la Conamaj procurarán hacer las previsiones presupuestarias necesarias para el funcionamiento de la Comisión, en coordinación con las asignaciones que para tal sentido fije independientemente la Corte Suprema de Justicia. Asimismo, podrán destinar recursos y funcionarios para las actividades de la Comisión.

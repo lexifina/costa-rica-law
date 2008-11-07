@@ -1,0 +1,1 @@
+Artículo 9º—El Presidente o Presidenta de la Comisión será el Magistrado o Magistrada propietario de la Corte Suprema de Justicia. El Magistrado o Magistrada Suplente asumirá esta función en el caso de ausencias del propietario.
