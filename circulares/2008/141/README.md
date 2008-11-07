@@ -13,3 +13,4 @@ Fijación de honorarios de los curadores procesales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-18 | la propia norma |
+| 2 | 2008-11-07 | Circular 172 (2008-11-07) |
