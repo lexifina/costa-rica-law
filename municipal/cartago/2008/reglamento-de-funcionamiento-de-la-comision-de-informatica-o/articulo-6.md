@@ -1,0 +1,1 @@
+Artículo 6º—Sesiones de la comisión. Sesionará en forma ordinaria y privada una vez por semana. Podrá sesionar en forma extraordinaria cuando así se requiera, previa convocatoria al efecto. Cada sesión se llevará a cabo siguiendo el orden del día y se levantará el acta respectiva.
