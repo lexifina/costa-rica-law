@@ -1,0 +1,1 @@
+Artículo 13.—Se autoriza a los Delegados de la Policía de Proximidad, para que hagan cumplir las disposiciones del presente Reglamento y de las Leyes; lo mismo que a cualquier otra autoridad pública existente, o que el futuro pueda crearse.

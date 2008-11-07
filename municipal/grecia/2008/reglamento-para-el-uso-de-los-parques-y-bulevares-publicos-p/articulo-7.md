@@ -1,0 +1,1 @@
+Artículo 7º—Se prohíbe el uso en el parque, de patinetas, bicicletas (cuando se usen para transitar por los pasillos del parque) u otro tipo de objetos que puedan deteriorar las instalaciones del parque y causar accidentes a los usuarios del mismo.
