@@ -1,0 +1,2 @@
+Artículo 2: Relación con la Enmienda de 1997
+Ningún Estado u organización de integración económica regional podrá depositar un instrumento de ratificación, aceptación o aprobación de esta Enmienda, o de adhesión a ella, a menos que haya depositado previa o simultáneamente un instrumento de ese tipo en relación con la Enmienda adoptada en la Novena Reunión de las Partes celebrada en Montreal, el 17 de septiembre de 1997.
