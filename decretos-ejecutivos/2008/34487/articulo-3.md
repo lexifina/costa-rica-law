@@ -1,0 +1,1 @@
+Artículo 3º—El costo de los servicios que genere la aplicación del presente Reglamento, de conformidad con lo dispuesto en Ley General de Salud Art. 112, artículo 206 y en la Ley de Protección Fitosanitaria artículos: 8º, inciso c), 14, 15 y 82, los deberá cubrir el interesado.

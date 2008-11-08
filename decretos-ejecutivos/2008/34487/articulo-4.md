@@ -1,0 +1,1 @@
+Artículo 4º—Este Reglamento Técnico será revisado y actualizado cada cinco años a partir de su entrada en vigencia, salvo que a solicitud debidamente justificada se requiera la revisión y actualización antes del periodo señalado.
