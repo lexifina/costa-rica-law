@@ -133,12 +133,15 @@ Según Muestra: Se clasifica como “según muestra” al lote que no reúna los
 7.3.1 Muestra de 1000g ± 0,1g, para determinar infestación (insectos dañinos al grano). A partir de la muestra de laboratorio se obtiene, por homogeneización y división, una muestra de ensayo de 1000g ± 0,1g para determinar infestación.
 7.3.2 Muestra de 1500g ± 0,1g, para determinar el porcentaje de impureza y muestra de 1500g ± 0,1g de respaldo. Los 3000g de la muestra de laboratorio restante, se homogeneizan y dividen, para obtener dos muestras de ensayo de 1500g ± 0,1g, cada una. Una de estas muestras se utiliza para determinar el porcentaje de impurezas y la otra es la muestra de respaldo (testigo).
 7.3.3 Muestra de ensayo limpia para determinar porcentaje de humedad. De la muestra limpia resultante, del punto 7.3.2, se obtiene, por homogeneización y división, la muestra de ensayo (porción) requerida para la determinación del porcentaje de humedad. El peso de esta porción depende del equipo que se utilice para realizar esta medición.
-(*)7.3.4 Muestra de 1000g ± 0,1g limpia y seca(3), para determinar rendimiento de pilada, rendimiento de semolina, rendimiento de entero, rendimiento de quebrado, rendimiento de quebrado grueso, rendimiento de puntilla y rendimiento de arroz comercial. De la muestra del punto 7.3.2, se debe obtener una muestra de ensayo, limpia y seca de 1000g ± 0,1g, la cual, se somete al proceso de descascarado y pilado, para determinar el rendimiento de pilada, rendimiento de semolina, rendimiento de entero, rendimiento de quebrado, rendimiento de quebrado grueso, rendimiento de puntilla y rendimiento de arroz comercial.
-(3)Si la muestra está húmeda, se debe secar siguiendo los requisitos del Apéndice C.
+7.3.4 Muestra de 1000g# 0,1 g limpia y seca1 , para determinar rendimiento de pilada y el rendimiento de semolina.
+(1) Si la muestra está húmeda, se debe secar siguiendo los requisitos del Apéndice C, del Decreto Ejecutivo N° 34487 Arroz en Granza Especificaciones y Métodos de Análisis para la Comercialización e Industrialización.
+De la muestra del punto 7.3.2, se debe obtener una muestra de ensayo, limpia y seca de 1000g # 0, 1g, la cual, se somete al proceso de descascarado y pilado, para determinar el rendimiento de pilada y rendimiento de semolina.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34802).
 7.3.5 Muestra de arroz pilado de 500g ± 0,1g, con puntilla, para determinar el número semillas objetables y granos dañados por calor (temperatura). La muestra de arroz pilado que se obtiene en el punto 7.3.4, se homogeniza y divide hasta obtener una muestra de ensayo de 500g ± 0,1g, con puntilla. A esta muestra se le separa la puntilla, para realizar la determinación del número de semillas objetables y granos dañados por calor.
 7.3.6 Muestra de arroz pilado de 25g ± 0,1g sin puntilla, para determinar los porcentajes de grano manchado, yesoso, rojo y dañado. La muestra obtenida del punto 7.3.5, sin puntilla, semillas objetables y grano dañado por calor, se homogeneiza y divide, hasta obtener una muestra de ensayo de 25g ± 0,1g, para determinar los porcentajes de grano manchado, yesoso, rojo y dañado.
-(*)7.3.7 Muestra de arroz pilado de 40g ± 0,1g, con puntilla, para determinar los porcentajes de puntilla, grano quebrado grueso, grano quebrado y grano entero. La muestra de arroz pilado con puntilla, remanente del punto 7.3.4, se homogeneiza y divide, hasta obtener una muestra de ensayo de 40g ± 0,1g. Con esta muestra se determinan los porcentajes de puntilla, grano quebrado grueso, grano quebrado y grano entero.
-(*)(NOTA DE SINALEVI: el artículo 1° del decreto ejecutivo N° 34802, reformará este inciso. Dicha reforma será incluida a partir del 7 de noviembre de 2008, fecha en que empieza a regir dicho decreto).
+7.3.7 Muestra de arroz pilado de 40g# 0, 1 g , con puntilla, para determinar el rendimiento de entero, rendimiento de quebrado, rendimiento de quebrado grueso, rendimiento de puntilla y los porcentajes de puntilla, grano quebrado grueso, grano quebrado y grano entero.
+La muestra de arroz pilado con puntilla, remanente del punto 7.3.4, se homogeneiza y divide, hasta obtener una muestra de ensayo de 40g # 0, 1g. Con esta muestra se determinan el rendimiento de entero, rendimiento de quebrado, rendimiento de quebrado grueso, rendimiento de puntilla y los porcentajes de puntilla, grano quebrado grueso , grano quebrado y grano entero.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34802).
 8 Procedimientos de análisis.
 8.1 Temperatura y olor:
 8.1.1 La temperatura y el olor se determinan en la muestra de laboratorio utilizando un termómetro y el sentido del olfato, respectivamente.
@@ -154,14 +157,15 @@ Según Muestra: Se clasifica como “según muestra” al lote que no reúna los
 8.3.3 Si se encuentran granos de arroz en granza bien formados, en la bandeja de fondo, se deben reintegrar a la muestra limpia.
 8.3.4 Si fuera necesario, pasar la muestra cribada por el aspirador tipo Bates, para remover otras impurezas livianas. Si se encuentran granos bien formados que hayan sido separados por el aire, se deben reintegrar a la muestra limpia.
 8.3.5 Se completa manualmente la limpieza de la muestra, obtenida en el punto anterior. Finalmente, las impurezas recolectadas se revisan, y de encontrarse arroz en granza maduro y bien formado, se reintegra a la muestra limpia.
-(*)8.3.6 Pesar la muestra limpia y calcular el contenido de impurezas, de acuerdo con la siguiente fórmula:
-Porcentaje de impurezas = (Ma MaL) x 100
+8.3.6 Pesar la muestra limpia y calcular el contenido de impurezas, de acuerdo con la siguiente fórmula:
+Porcentaje de impurezas = (Ma - MaL) x 100
 Ma
 en donde:
-Ma es la masa de la muestra de ensayo de 1500g ± 0,1g, del punto 7.3.2.
+Ma es la masa de la muestra de ensayo de 1500g # 0, 1g, del punto 7.3.2.
 MaL es la masa de la muestra de ensayo limpia en g
 El contenido de impurezas se expresa en porcentaje, en números enteros y un decimal.
 Para arroz seco, el contenido de impurezas se puede determinar aplicando el concepto básico de su definición y combinando la separación de impurezas grandes, pequeñas y livianas por medio de equipos mecánicos que integren la separación de impurezas por aire y por cribas.
+(Así reformado el inciso anterior por el articulo 1° del decreto ejecutivo N° 34802).
 8.4 Humedad:
 8.4.1 Determinar la humedad en la muestra del punto 7.3.3, utilizando un determinador de humedad. La muestra de ensayo (porción) utilizada para determinar la humedad debe ser reintegrada a la muestra limpia.
 8.4.2 La humedad se expresa en porcentaje, en números enteros y un decimal.
@@ -216,34 +220,36 @@ Ma es la masa de la muestra de ensayo de arroz pilado sin puntilla de 25g ± 0,1
 8.8.1 Puntilla:
 8.8.1.1 Pasar la muestra de ensayo de arroz pilado de 40g ± 0,1g con puntilla, del punto 7.3.7, por dos cribas de alvéolos circulares de 2,38 mm (6/64”), colocadas sobre la mesa separadora de grano quebrado; para extraer la puntilla.
 8.8.1.2 Recolectar en un recipiente el grano entero y quebrado grueso (muestra resultante de grano entero y quebrado grueso).
-(*)8.8.1.3 Pesar la puntilla y calcular el porcentaje y rendimiento de puntilla, de acuerdo con las siguientes fórmulas:
+8.8.1.3 Pesar la puntilla y calcular el porcentaje y rendimiento de puntilla, de acuerdo con las siguientes fórmulas:
 Porcentaje de puntilla (PP) = P x 100
 Ma
 en donde:
 P es la masa de la puntilla en g
 Ma es la masa de la muestra de ensayo de arroz pilado de 40g ± 0,1g, del punto 7.3.7
-Rendimiento de puntilla (Rpu) = P x Rp
+Rendimiento de puntilla (Rpu)= Px Rp
 Ma
 en donde:
 P es la masa de la puntilla en g
-Ma es la masa de la muestra de ensayo de arroz en granza limpia y seca de 1000g ± 0,1g, del punto 7.3.4
+Ma es la masa de la muestra de ensayo de arroz pilado de # 0, 1g. del punto 7.3.7
 Rp es el rendimiento de pilada obtenida en el punto 8.5
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34802).
 8.8.2 Quebrado grueso y entero:
 8.8.2.1 Pasar la muestra resultante de grano entero y quebrado grueso, obtenida en 8.8.1, por una criba de 3,97 mm (10/64”) y una criba de 4,76 mm (12/64”), colocadas sobre la mesa separadora de grano quebrado; para extraer el quebrado grueso.
 8.8.2.2 Recolectar en un recipiente el grano entero. Utilizar una lámpara con lupa para separar, con pinzas, el grano quebrado grueso de la porción de grano entero y viceversa, para integrarlos, en la porción que corresponda.
-(*)8.8.2.3 Pesar el grano quebrado grueso y calcular el porcentaje y rendimiento de grano quebrado grueso, de acuerdo con las siguientes fórmulas:
+8.8.2.3 Pesar el grano quebrado grueso y calcular el porcentaje y rendimiento de grano quebrado grueso, de acuerdo con las siguientes fórmulas:
 Porcentaje de grano quebrado grueso (PQG) = QG x 100
 Ma
 en donde:
 QG es la masa del grano quebrado grueso
 Ma es la masa de la muestra de ensayo de arroz pilado de 40g ± 0,1g, del punto 7.3.7.
-Rendimiento de grano quebrado grueso (Rqg) = QG x Rp
+Rendimiento de grano quebrado grueso (Rqg)= OG x Rp
 Ma
 en donde:
 QG es la masa del grano quebrado grueso en g
-Ma es la masa de la muestra de ensayo de arroz en granza limpia y seca de 1000g ± 0,1g, del punto 7.3.4
+Ma es la masa de la muestra de ensayo de arroz pilado de 40g # 0, 1g. del punto 7.3.7
 Rp es el rendimiento de pilada obtenida en el punto 8.5
-(*)8.8.2.4 Pesar el grano entero y calcular el porcentaje y rendimiento de grano entero, de acuerdo con las siguientes fórmulas:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34802).
+8.8.2.4 Pesar el grano entero y calcular el porcentaje y rendimiento de grano entero, de acuerdo con las siguientes fórmulas:
 Porcentaje de grano entero = E x 100
 Ma
 en donde:
@@ -253,8 +259,9 @@ Rendimiento de grano entero = E x Rp
 Ma
 en donde:
 E es la masa del grano entero en g
-Ma es la masa de la muestra de ensayo de arroz en granza limpia y seca de 1000g ± 0,1g, del punto 7.3.4
+Ma es la masa de la muestra de ensayo de arroz pilado de 40g # 0, 1g. del punto 7.3.7
 Rp es el rendimiento de pilada obtenida en el punto 8.5
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34802).
 8.8.2.5 Los porcentajes y rendimientos de puntilla, grano quebrado grueso y grano entero se expresan en porcentaje, en números enteros y un decimal.
 8.9 Grano quebrado
 8.9.1 Determinar el porcentaje y rendimiento de grano quebrado de acuerdo con las siguientes fórmulas:

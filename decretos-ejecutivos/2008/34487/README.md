@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 406:2007. Arroz en Granaa. Especificaciones y Métodos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-08 | la propia norma |
+| 2 | 2008-11-08 | Decreto Ejecutivo 34802 (2008-07-07) |
