@@ -14,3 +14,4 @@ Reglamento Interno de Sesiones y Comisiones Concejo Municipal de Distrito de Mon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-04 | la propia norma |
+| 2 | 2008-11-10 | Reglamento municipal 483 (2008-11-10) |
