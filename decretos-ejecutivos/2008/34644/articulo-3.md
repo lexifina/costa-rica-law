@@ -1,1 +1,0 @@
-Artículo 3º—Deróguese el Decreto Ejecutivo Nº 34111-MEIC, de fecha 16 de noviembre del 2007, publicado en el Diario Oficial La Gaceta Nº 231 del viernes 30 de noviembre del 2007 y el Decreto Ejecutivo Nº 34525, de fecha 8 de mayo del 2008, publicado en el Diario Oficial La Gaceta Nº 101 del martes 27 de mayo del 2008.
