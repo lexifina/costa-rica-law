@@ -14,3 +14,4 @@ Modifiquese para el Instituto de Fomento y Asesoría Municipal el gasto presupue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-10 | la propia norma |
+| 2 | 2008-11-10 | Decreto Ejecutivo 34892 (2008-11-10) |

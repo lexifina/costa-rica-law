@@ -11,4 +11,5 @@ Considerando:
 6º—Que el señor Ministro Rector del Sector Social y de Lucha contra la Pobreza, mediante el oficio DM-0633-2008 de 7 de agosto del 2008, avala la solicitud planteada por el IFAM.
 7º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Instituto de Fomento y Asesoría Municipal para el año 2008, incrementándolo en la suma de ¢650.000.000,00 (seiscientos cincuenta millones de colones exactos). Por tanto,
 Decretan:
-Artículo 1º—Modifícase para el Instituto de Fomento y Asesoría Municipal, el gasto presupuestario máximo para el año 2008, establecido en el Decreto Ejecutivo Nº 34662-H, publicado en La Gaceta Nº 161 de 21 de agosto de 2008, quedando el límite de gasto presupuestario en la suma de ¢3.102.500.000,00 (tres mil ciento dos millones quinientos mil colones exactos), para ese período.
+Artículo 1º—Modifícase para el Instituto de Fomento y Asesoría Municipal, el gasto presupuestario máximo para el año 2008, establecido en el Decreto Ejecutivo Nº 34662-H, publicado en La Gaceta Nº 161 de 21 de agosto de 2008, quedando el límite de gasto presupuestario en la suma de ¢3.602.500.000,00 (tres mil seiscientos dos millones quinientos mil colones exactos), para ese período.
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 34892 del 10 de noviembre de 2008)
