@@ -1,0 +1,5 @@
+UNIVERSIDAD DE COSTA RICA
+Se adjunta texto de los artículos 90 y 103 del Estatuto Orgánico los cuales fueron modificados en la Asamblea Colegiada Representativa Nº 129, celebrada el 6 de octubre del 2008:
+Artículo 90.—La elección de Decano o Decana la hará la Asamblea de Facultad respectiva, por un período de cuatro años. Podrá ser candidato o candidata a reelección una sola vez consecutiva. Se entenderá que hay reelección cuando el candidato o la candidata hubiere desempeñado el cargo en propiedad en los seis meses anteriores a la elección.
+Artículo 103.—La elección de Director o Directora la hará la Asamblea de la Escuela respectiva, por un período de cuatro años. Podrá ser candidato o candidata a reelección una sola vez consecutiva. Para ser Director o Directora de Escuela es preciso reunir los requisitos exigidos para ser Decano o Decana. Se podrán levantar los requisitos, de conformidad con lo dispuesto en el artículo 91 de este Estatuto. Se entenderá que hay reelección cuando el candidato o la candidata hubiere desempeñado el cargo en propiedad en los seis meses anteriores a la elección.
+San José, 21 de octubre del 2008.—
