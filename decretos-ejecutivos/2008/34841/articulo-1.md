@@ -1,0 +1,69 @@
+Nº 34841-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Con fundamento en el artículo 140, incisos 3), 8), 12) y 20), y el artículo 146 de la Constitución Política.
+Por cuanto:
+En la ciudad de Brasilia, Brasil el treinta de julio de dos mil ocho, se suscribió el Acuerdo Complementario al Acuerdo de Cooperación Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federativa del Brasil, para la implementación del proyecto “Fortalecimiento Institucional de las Asesorías Internacionales de los Ministerios de la Salud Costa Rica y de Brasil”, firmando por la República de Costa Rica el señor Bruno Stagno Ugarte, Ministro de Relaciones Exteriores y Culto.
+Considerando:
+1º—Que el párrafo primero del artículo II del Convenio de Cooperación Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federativa del Brasil, suscrito el 22 de setiembre de 1997 y aprobado por la Asamblea Legislativa mediante Ley Nº 7921 del 25 de octubre de 1999 establece que “La ejecución de la cooperación Técnica desarrollada en el ámbito de este Acuerdo, mediante planes de trabajo bianuales elaborados por las Partes Contratantes, será definida por Acuerdos Complementarios estableciendo programas, proyectos y acciones específicas así como fuentes de recursos financieros y mecanismos operacionales”.
+2º—Que el presente Acuerdo complementario tiene como finalidad la promoción del intercambio de informaciones, con vista a desarrollar nuevas maneras de planificación y de acciones conjuntas, según el artículo I del mencionado Convenio de Cooperación Técnica. Por tanto,
+En uso de las facultades conferidas por el artículo 140, incisos 10) y 12) de la Constitución Política.
+Decretan:
+Artículo 1º—Promulgar teniendo como vigente para los efectos internos y externos, el Acuerdo Complementario al Acuerdo de Cooperación Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federativa del Brasil, para la implementación del proyecto “Fortalecimiento Institucional de las Asesorías Internacionales de los Ministerios de la Salud Costa Rica y de Brasil”, suscrito en la ciudad de Brasilia, Brasil el treinta de julio de dos mil ocho, cuyo texto literal es el siguiente:
+ACUERDO COMPLEMENTARIO AL ACUERDO DE COOPERACIÓN TÉCNICA ENTRE
+EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA Y EL GOBIERNO DE LA
+REPÚBLICA FEDERATIVA DEL BRASIL PARA LA IMPLEMENTACIÓN
+DEL PROYECTO “FORTALECIMIENTO INSTITUCIONAL DE LAS
+ASESORÍAS INTERNACIONALES DE LOS MINISTERIOS
+DE LA SALUD COSTA RICA Y DE BRASIL”
+El Gobierno de la República de, Costa Rica
+y
+El Gobierno de la República Federativa del Brasil
+(en adelante denominados las “Partes”),
+Considerando que las relaciones de cooperación técnica han sido fortalecidas y amparadas por el Acuerdo de Cooperación Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federativa del Brasil, firmado en Brasília, el 22 de setiembre de 1997;
+Considerando el deseo común de promover la cooperación para el desarrollo; y
+Considerando que la cooperación técnica en el área de salud, reviste especial interés para las Partes,
+Acuerdan lo siguiente:
+Artículo I
+1. El presente Acuerdo Complementario tiene como objetivo la implementación del proyecto “Fortalecimiento Institucional de las Asesorías Internacionales de los Ministerios de la Salud de Costa Rica y Brasil” (en adelante denominado “Proyecto”), cuya finalidad es contribuir para el fortalecimiento de las Asesorías de Cooperación Internacional de los Ministerios de la Salud de Costa Rica y Brasil, promoviendo el intercambio de informaciones, con vistas a desarrollar nuevas maneras de planificación y de acciones conjuntas.
+2. El proyecto contemplará los objetivos, las actividades y los resultados logrados en ámbito del presente Acuerdo Complementario.
+3. El proyecto será aprobado y firmado por las instituciones coordinadoras y ejecutoras.
+Artículo II
+1. El Gobierno de la República Federativa del Brasil designa:
+a) a la Agencia Brasileña de Cooperación del Ministerio de las Relaciones Exteriores (ABC/MRE) como institución responsable de la coordinación, seguimiento y evaluación de las actividades resultantes del presente Acuerdo Complementario, y
+b) a la División de Proyectos de la Asesoría de Temas Internacionales del Ministerio de la Salud de Brasil como institución responsable de la ejecución de las actividades resultantes del presente Acuerdo Complementario.
+2. El Gobierno de la República de Costa Rica designa:
+a) a la Dirección de Cooperación Internacional del Ministerio de Relaciones Exteriores como institución responsable de la coordinación, seguimiento y evaluación de las actividades resultantes del presente Acuerdo Complementario, y
+b) al Ministerio de Salud, por medio de la Unidad de Temas Internacionales en Salud, como institución responsable de la ejecución de las actividades resultantes del presente Acuerdo Complementario.
+Artículo III
+1. Corresponde al Gobierno de la República Federativa del Brasil:
+a) designar y enviar técnicos para desarrollar, en Costa Rica, las actividades y cooperación técnica previstas en el Proyecto;
+b) poner a disposición instalaciones e infraestructuras adecuadas para la ejecución de las actividades previstas en el Proyecto;
+c) prestar apoyo operacional a los técnicos enviados por el gobierno costarricense mediante la provisión de todas las informaciones necesarias a la ejecución del Proyecto; y
+d) acompañar y evaluar el desarrollo del Proyecto.
+2. Corresponde al Gobierno de la República de Costa Rica:
+a) designar técnicos para desarrollar, en Brasil, las actividades de cooperación técnica previstas en el Proyecto;
+b) poner a disposición instalaciones e infraestructura adecuadas para la ejecución de las actividades previstas en el Proyecto;
+c) prestar apoyo operacional a los técnicos enviados por el Gobierno brasileño, mediante la provisión de todas las informaciones necesarias a la ejecución del Proyecto; y
+d) acompañar y evaluar el desarrollo del Proyecto.
+3. El presente Acuerdo no implica ningún compromiso de transferencia de recursos financieros de las Partes o cualquier otra actividad gravosa a sus patrimonios nacionales.
+Artículo IV
+En la ejecución de las actividades previstas en el Proyecto, las Partes podrán utilizar recursos de instituciones públicas y privadas, de organizaciones no gubernamentales, de organismos internacionales, de agencias de cooperación técnica, de fondos y de programas regionales e internacionales, que deberán estar contemplados en otros instrumentos legales y no en el presente Acuerdo.
+Artículo V
+1. Todas las actividades mencionadas en este Acuerdo Complementario estarán sujetas a las leyes y a los reglamentos vigentes en la República de Costa Rica y en la República Federativa del Brasil.
+2. Este Acuerdo Complementario no crea derechos y obligaciones en el plan del _ derecho internacional.
+Artículo VI
+1. Las instituciones ejecutoras mencionadas en el Artículo II elaborarán, informes sobre los resultados alcanzados en este Acuerdo Complementario, los cuales serán presentados a las instituciones coordinadoras.
+2. Los documentos resultantes de las actividades desarrolladas en el contexto del Proyecto serán de propiedad conjunta de las Partes. En caso de publicación de los referidos documentos, las Partes deberán ser previa y formalmente consultadas y mencionadas en el documento objeto de la publicación.
+Artículo VII
+El presente Acuerdo Complementario entrará en vigor en la fecha en que ambas Partes se comuniquen el cumplimiento de sus requisitos internos y tendrá una vigencia de dos (2) años, siendo renovado automáticamente, hasta el cumplimiento de su objetivo, excepto si una de las Partes manifiesta lo contrario, por vía diplomática.
+Artículo VIII
+Cualquier controversia relativa a la interpretación o a la aplicación del presente Acuerdo Complementario será resuelta por las Partes, por vía diplomática.
+Artículo IX
+Cualquiera de las Partes podrá notificar, en cualquier momento, por vía diplomática, su decisión de denunciar el presente Acuerdo Complementario. La denuncia surtirá efecto tres (3) meses después de la fecha de notificación. Las Partes decidirán, de común acuerdo, sobre la continuidad de las actividades que se encuentren en ejecución.
+Artículo X
+Este Acuerdo Complementario podrá ser enmendado por mutuo consentimiento entre las Partes, a través del canje de Notas Diplomáticas. La enmienda entrará en vigor en la fecha de recepción de la última nota.
+Artículo XI
+Con respecto a las cuestiones no previstas en este Acuerdo Complementario, se aplicarán las disposiciones del Acuerdo de Cooperación Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federativa del Brasil, firmado en Brasília, el 22 de setiembre de 1997.
+Firmado en Brasília, el 30 de julio de 2008, en dos ejemplares originales, en español y portugués, siendo ambos textos igualmente auténticos.
+[imagen]
