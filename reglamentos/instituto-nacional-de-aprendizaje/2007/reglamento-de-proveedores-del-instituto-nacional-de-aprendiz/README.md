@@ -14,3 +14,4 @@ Reglamento de Proveedores del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-24 | la propia norma |
+| 2 | 2008-11-11 | Reglamento 4366 (2008-11-11) |
