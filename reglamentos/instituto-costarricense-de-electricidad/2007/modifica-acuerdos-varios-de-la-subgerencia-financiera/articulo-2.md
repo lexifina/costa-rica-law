@@ -1,6 +1,1 @@
-2º—Modificar en su totalidad el acuerdo emitido en el artículo 8 de la sesión 5806 del 11 de setiembre del 2007, para que se lea de la siguiente manera:
-1. Modificar el artículo 1º del Reglamento de la Junta de Adquisiciones para que se amplíen las competencias de la Junta de Adquisiciones agregando un segundo párrafo que establezca:
-“Asimismo tendrá la competencia para aprobar cartas de crédito, líneas de crédito de corto plazo (menores de 360 días), seguros y coberturas.”
-2. Encargar a la Subgerencia de Finanzas para que proceda a hacer la publicación en el Diario Oficial La Gaceta de esta reforma, así como divulgarla a nivel Institucional.
-3. Derogar los acuerdos emitidos por el Consejo Directivo en sesiones 5696, artículo 10 del 11 de octubre del 2005 y 5759, artículo 5 inciso 2, del 26 de setiembre del 2006 y en su lugar acordar lo siguiente:
-“Autorizar a la Junta Administrativa del Fondo de Garantías y Ahorro de la Institución, para que emita criterio técnico sobre Normas, Procedimientos, Reglamentos y demás, cuando por razones procedimentales los diferentes órganos fiscalizadores soliciten opinión de este instituto, debiendo dicho criterio ser posteriormente informado al Consejo Directivo”. Acuerdo firme.
+2º— (Derogado este inciso por el Reglamento de las Juntas de Adquisiciones mediante sesión N° 5817 del 18 de diciembre del 2007).

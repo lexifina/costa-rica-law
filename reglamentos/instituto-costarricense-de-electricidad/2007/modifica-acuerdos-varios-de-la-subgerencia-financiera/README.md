@@ -14,3 +14,4 @@ Modifica acuerdos varios de la Subgerencia Financiera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-25 | la propia norma |
+| 2 | 2008-11-11 | Reglamento 5851 (2008-11-11) |
