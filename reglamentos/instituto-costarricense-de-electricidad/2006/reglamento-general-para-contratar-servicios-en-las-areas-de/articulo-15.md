@@ -1,8 +1,0 @@
-CAPÍTULO IV
-Fiscalización de la ejecución contractual
-Artículo 15.—De la responsabilidad en la fiscalización del contrato.
-15.1) El administrador del contrato deberá fiscalizar su ejecución y será el responsable de velar por que el adjudicatario cumpla íntegramente con todas las obligaciones pactadas y llevar a buen término el objeto contractual.
-15.2) Cualquier incumplimiento de los términos contractuales por parte del Contratista, faculta a la Administración a tomar cualquier acción necesaria dentro del marco de la legislación aplicable, para protección y satisfacción del servicio requerido, así como el interés público.
-15.3) Corresponde al administrador del contrato verificar el cumplimiento de las obligaciones laborales y de seguridad social del Contratista, para con sus trabajadores. Dicha labor la realizará de conformidad con lo dispuesto en el punto 12.7 del presente Reglamento.
-15.4) El Administrador del contrato deberá velar porque la garantía de cumplimiento se encuentre vigente durante todo el plazo del contrato. Una vez adjudicado en firme, el contratista rendirá, a solicitud de la Proveeduría, la garantía de cumplimiento por un monto del 5% del valor de la contratación, en un plazo máximo de 10 días, para garantizar el cumplimiento del contrato, según los términos indicados en la Ley de Contratación Administrativa y su Reglamento.
-15.5) Una vez finalizada cada contratación, el administrador del contrato confeccionará el finiquito respectivo, el cual será notificado al contratista para que éste en un plazo no mayor a 5 días posteriores a la comunicación se presente a firmarlo y así dar por terminada la relación contractual. Una vez firmado el finiquito se procederá a devolver la garantía de cumplimiento al contratista.
