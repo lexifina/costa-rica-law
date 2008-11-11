@@ -1,2 +1,0 @@
-Artículo 33.—En la página número uno de cada Libro de actas se anotará una razón de apertura, otorgada por la Auditoria Interna del Banco en la cual se indicará la fecha, el número del Libro respectivo, la cantidad de folios de que consta, su estado físico y cualquier otro detalle o información que se estime pertinente.
-En la última página del Libro de actas, se anotará una razón de cierre otorgada por la Auditoria Interna del Banco.

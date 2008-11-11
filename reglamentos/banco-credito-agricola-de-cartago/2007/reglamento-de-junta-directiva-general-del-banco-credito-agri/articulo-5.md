@@ -1,3 +1,0 @@
-Artículo 5º—Todas las sesiones de junta directiva darán inicio puntualmente, a la hora y en la fecha convocada.
-Si por falta de quórum una sesión no se pudiese iniciar a la hora convenida, podrá darse un tiempo de espera hasta de treinta minutos, con el propósito de completar el quórum de Ley para efectuar la sesión. Si transcurrido ese tiempo no se llegare a completar el quórum legalmente establecido, se levantará un acta que firmarán los presentes, en la cual se dejará consignada esta circunstancia.
-Salvo disposición expresa en contrario para una convocatoria, las sesiones ordinarias y extraordinarias de la junta directiva se efectuarán en el Salón de Sesiones de la junta directiva en las Oficinas Centrales de “Bancrédito” en la ciudad de Cartago.

@@ -1,1 +1,0 @@
-Artículo 25.—En la sesión que se conozca el acta, se hará, si procede, las enmiendas, adiciones y correcciones que la junta directiva autorice y cumplido este trámite, quedará convertida automáticamente en el acta oficial aprobada.

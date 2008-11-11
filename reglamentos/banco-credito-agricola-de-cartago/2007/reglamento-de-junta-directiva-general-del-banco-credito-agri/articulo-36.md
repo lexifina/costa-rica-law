@@ -1,1 +1,0 @@
-Artículo 36.—Cuando por alguna circunstancia imprevisible, una página del Libro de actas deba ser sustituida por deterioro o extravío, tal asunto será puesto en conocimiento de la junta directiva. La Oficina de Secretaría solicitará simultáneamente la sustitución de la página a la Auditoría Interna del Banco, conforme a los trámites establecidos para estos casos.
