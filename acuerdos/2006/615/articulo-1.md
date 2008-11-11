@@ -4,6 +4,7 @@ JUNTA DIRECTIVA
 DELIMITACIÓN DE ZONA DE PROTECCIÓN
 DEL CANTÓN 03 SANTO DOMINGO DE
 LA PROVINCIA DE HEREDIA
+(NOTA DE SINALEVI: El Instituto Costarricense de Acueductos y Alcantarillados mediante Acuerdo N° 512 del 11 de noviembre del 2008 dispuso modificar la Tabla Dictaminada en este Acuerdo. No obstante, por el tipo de formato no es posible incluir la reforma en este texto por lo que se recomienda consultar el Acuerdo N° 512 del 11 de noviembre del 2008 en el sistema)
 Resultando:
 1º—La Ley de Aguas Nº 276, en relación al área de protección que debe respetarse, como dominio a favor de la nación indica, en sus artículos 31 y 32:
 “Artículo 31.—Se declaran como reserva de dominio a favor de la nación:

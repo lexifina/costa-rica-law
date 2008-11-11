@@ -14,3 +14,4 @@ Delimitación de Zona de Protección del cantón 03 Santo Domingo de la Provinci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-24 | la propia norma |
+| 2 | 2008-11-11 | Acuerdo 512 (2008-11-11) |
