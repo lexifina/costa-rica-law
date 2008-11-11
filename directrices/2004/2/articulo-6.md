@@ -1,1 +1,0 @@
-Artículo 6º—Documentación y Registro de la Auto evaluación. Cada unidad deberá documentar adecuadamente las actividades de auto evaluación. Se debe instaurar un sistema de registro de información que facilite acumular resultados de las auto evaluaciones y dar seguimiento a las medidas que se inicien de acuerdo con los planes anuales para mejorar los controles.
