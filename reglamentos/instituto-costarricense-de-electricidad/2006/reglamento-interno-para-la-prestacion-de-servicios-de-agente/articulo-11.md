@@ -1,3 +1,0 @@
-Selección de agentes recaudadores
-Artículo 11.—De previo a emitir la recomendación para contratar al agente recaudador, el área responsable de la contratación, según el Manual de Recaudadores, deberá realizar una inspección a las instalaciones del solicitante para evaluar que el agente recaudador cumple efectivamente con los requisitos citados en el artículo 9º.
-Para dicha evaluación se tomará en cuenta que el interesado cumpla con los requisitos indicados en este Reglamento y el Manual de Recaudadores, además, criterios de oportunidad, conveniencia y necesidad que establezca el ICE, cuya concurrencia deberá ser debidamente motivada.

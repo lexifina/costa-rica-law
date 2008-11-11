@@ -1,1 +1,0 @@
-Artículo 31.—Durante todo el plazo de la ejecución del contrato, será de acatamiento obligatorio para el agente recaudador todas y cada una de las disposiciones contenidas en este Reglamento, el Manual de Recaudadores y el contrato suscrito con este Instituto.

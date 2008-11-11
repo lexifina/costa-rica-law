@@ -1,1 +1,0 @@
-Artículo 21.—Las dependencias responsables o la Dirección de Proveeduría, según corresponda, serán los encargados de la recepción, ajustes, prórrogas, vigencia y devolución de las garantías respectivas. Lo anterior en coordinación con el Administrador del Contrato responsable.

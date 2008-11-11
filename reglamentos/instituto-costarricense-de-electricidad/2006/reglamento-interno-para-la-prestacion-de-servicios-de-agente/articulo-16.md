@@ -1,1 +1,0 @@
-Artículo 16.—Una vez formalizado y aprobado el contrato, el Administrador del Contrato remitirá el expediente con la documentación original a la Dirección de Proveeduría y una copia a las partes interesadas, según corresponda.

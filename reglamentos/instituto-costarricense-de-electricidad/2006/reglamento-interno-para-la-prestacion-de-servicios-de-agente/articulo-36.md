@@ -1,6 +1,0 @@
-Artículo 36.—Los Administradores de Contratos aplicarán los siguientes controles:
-a) Visitar periódicamente por medio de personal debidamente identificado, las instalaciones de los agentes recaudadores para verificar el correcto funcionamiento del servicio de recaudación, medidas de seguridad con que opera y trato que se le brinda a los clientes y abonados del ICE.
-b) Verificar la correcta cancelación de los recibos para lo cual deberá revisar la documentación soporte de la gestión de cobro del agente recaudador (talones de recibos, colillas de depósitos bancarios, cierres diarios automáticos, registro auxiliar de cheques, entre otros), establecidos en este Reglamento y el Manual de Recaudadores.
-c) Llevar un registro de los contratos de los agentes recaudadores para anticipar su fecha de vencimiento y planificar sus prórrogas o finiquito, lo cual deberá ser tramitado con un mes de anticipación al vencimiento del contrato en ejecución.
-d) Llevar un registro de los vencimientos de las garantías en los contratos de recaudación y de ser necesario gestionar ante el área responsable su renovación con un mes de anticipación a dicho vencimiento.
-e) Todos los demás que se establezcan en el Manual de Recaudadores.

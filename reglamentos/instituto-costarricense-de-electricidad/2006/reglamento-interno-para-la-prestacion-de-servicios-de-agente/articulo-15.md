@@ -1,2 +1,0 @@
-Artículo 15.—Una vez que el órgano autorizado apruebe las recomendaciones, solicitará al área responsable, la confección del contrato de recaudación, la formalización de la garantía de cumplimiento y la garantía colateral, de acuerdo a las condiciones señaladas en el apartado de garantías de este Reglamento, y el pago de las especies fiscales correspondientes.
-Además de la certificación de la Dirección Administrativa de Finanzas, que demuestre que se cuenta con los recursos presupuestarios suficientes para enfrentar la erogación respectiva.

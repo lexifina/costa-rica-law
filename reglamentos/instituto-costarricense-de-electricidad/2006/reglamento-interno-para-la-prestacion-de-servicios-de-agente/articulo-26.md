@@ -1,1 +1,0 @@
-Artículo 26.—En caso de extravío o sustracción del monto de la recaudación, el agente recaudador deberá reponer la totalidad del monto al Instituto, siguiendo los parámetros establecidos en el Manual de Recaudadores.

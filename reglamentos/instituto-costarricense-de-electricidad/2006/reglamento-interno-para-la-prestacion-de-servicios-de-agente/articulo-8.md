@@ -1,1 +1,0 @@
-Artículo 8º—El ICE deberá proceder a elaborar el Manual de Recaudadores, requerido para normar la aplicación del presente Reglamento. Las disposiciones de este manual podrán ser incorporadas según corresponda, en cada uno de los contratos que deban ser suscritos con los diferentes agentes recaudadores de ambos sectores.
