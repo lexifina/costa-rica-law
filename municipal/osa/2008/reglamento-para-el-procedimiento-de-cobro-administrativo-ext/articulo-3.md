@@ -1,0 +1,13 @@
+Artículo 3º—Definiciones. Para los efectos del presente Reglamento, se entiende por:
+a. Reglamento: El Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Osa.
+b. Municipalidad: La Municipalidad de Osa.
+c. Oficina de Cobro: Corresponde a la Oficina de Gestión de Cobro encargada de la función de recaudación de la Municipalidad.
+d. Obligaciones vencidas: Las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor de la Municipalidad. Obligaciones que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de: cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+e. Obligaciones Tributarias Municipales: Corresponderán a todas aquellas prestaciones en dinero por los contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos municipales, o de administración municipal, tasas o contribuciones especiales, licencias, etc.
+f. Sujeto Pasivo: La persona obligada al cumplimiento de la obligación vencida, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+g. Abogados Externos: Los Licenciados en Derecho que habiendo cumplido con los requisitos que la Municipalidad exige, y concursado para ofrecer sus servicios profesionales a la Institución, bajo la normativa de este Reglamento, realicen la gestión de cobro extrajudicial y judicial respectiva, para la recuperación de las obligaciones vencidas de esta Municipalidad.
+h. Abogados internos: Licenciados en Derecho que ocupan una plaza fija en la Municipalidad y que por circunstancias especiales, el Alcalde Municipal decida asignarles la gestión de cobros extrajudiciales y judiciales, sin pago de honorarios.
+i. Cobro Administrativo: Las acciones que se realizan administrativamente por parte de la oficina de Gestión de Cobro, para que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+j. Cobro Extrajudicial: Las acciones realizadas extrajudicialmente por los abogados externos o internos en casos calificados, para la cancelación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+k. Cobro Judicial: Las acciones que se realicen por parte de los abogados externos o internos, en vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro.
+l. Arreglo de pago: Es el compromiso que adquiere el sujeto pasivo con la Oficina de Gestión de Cobro de la Municipalidad, de pagar dentro del tiempo convenido por ambos, que no podrá exceder de seis meses, la obligación vencida adeudada a la Municipalidad.

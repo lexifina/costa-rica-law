@@ -1,0 +1,1 @@
+Artículo 16.—Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la suma de ¢ 40.000 colones para personas físicas y de ¢100.000 colones para personas físicas.

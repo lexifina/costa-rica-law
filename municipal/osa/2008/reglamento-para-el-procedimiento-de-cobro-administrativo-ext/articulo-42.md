@@ -1,0 +1,5 @@
+Artículo 42.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Publicaciones en el Diario Oficial.
+Concejo Municipal. Ojo de Agua Cuidad Cortés de Puntarenas.
+Una vez conocido y analizado el presente Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial, el Concejo Municipal de Osa, acuerda aprobarlo de manera definitiva por medio de los votos de los Regidores Propietarios Alba Cerdas Aguilar, Yanina Chaverri Rosales, Jessica Hernández Sanarrusia, Daisy Anchia Angulo y Marvin Antonio Loria Murillo. No se omite manifestar que este Reglamento deroga cualquier otra disposición administrativa, o reglamentaria que se contraponga a lo aquí regulado, publíquese en el Diario Oficial La Gaceta, para su puesta vigencia. Cabe indicar que los Regidores Propietarios Anchia Angulo y Loria Murillo, avalan este acuerdo, siempre y cuando, el mismo no viole lo que establece la Ley de Cobros Judiciales que entro a regir en mayo del año en curso.
+Ciudad Cortés, 20 de octubre del 2008.—
