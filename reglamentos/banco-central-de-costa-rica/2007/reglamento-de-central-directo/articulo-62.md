@@ -1,1 +1,0 @@
-Artículo 62.—Las comisiones a cargo del inversionista se cobrarán contra su CCI en el momento en que confirma el envío del movimiento de fondos, de conformidad con la forma de cobro establecida en el Reglamento del Sistema de Pagos.

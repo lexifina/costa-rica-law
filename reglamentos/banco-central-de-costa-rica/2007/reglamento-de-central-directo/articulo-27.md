@@ -1,1 +1,0 @@
-Artículo 27.—En caso de bloqueo de las claves de seguridad, el inversionista deberá solicitar su desbloqueo al Centro de Atención al Cliente, conforme con los procedimientos operativos que el BCCR disponga para esos efectos, los cuales estarán a disposición del inversionista en Central Directo.

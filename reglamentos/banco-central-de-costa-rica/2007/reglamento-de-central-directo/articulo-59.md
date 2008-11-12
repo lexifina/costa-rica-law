@@ -1,1 +1,0 @@
-Artículo 59.—Además de los movimientos que realice desde Central Directo para trasladar fondos de la CCI a su CC, el inversionista podrá ordenar desde su entidad financiera movimientos de fondos utilizando los servicios DTR y CDD, disponibles en todas las entidades asociadas al SINPE.

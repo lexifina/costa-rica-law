@@ -1,6 +1,0 @@
-Artículo 9º—El inversionista, para verificar la autenticidad del sitio, antes de iniciar una sesión de trabajo en Central Directo debe realizar las siguientes validaciones:
-a) Que durante el intento de acceso al sitio su navegador no le informe de alguna advertencia con respecto a la autenticidad del sitio.
-b) Que en la línea de la dirección electrónica de su navegador, se visualice literalmente el nombre “www.centraldirecto.fi.cr” y que éste se encuentre precedido de los caracteres “https://”.
-c) Abrir el candado (con doble clic) que aparece en la parte inferior de su navegador y verificar que la dirección registrada en el certificado digital corresponda con la dirección “www.centraldirecto.fi.cr”.
-Ante cualquier inconsistencia que ponga en duda la autenticidad del sitio, el inversionista deberá abstenerse de digitar su código de usuario y la clave de acceso, y comunicar la situación de inmediato al Centro de Atención al Cliente en el BCCR, para que sea esa oficina la que le instruya sobre la forma de proceder.
-El inversionista es responsable por las consecuencias que se puedan derivar si decide registrar sus claves de seguridad omitiendo la verificación previa de la autenticidad del sitio.

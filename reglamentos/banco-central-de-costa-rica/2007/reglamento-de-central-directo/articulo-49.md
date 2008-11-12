@@ -1,1 +1,0 @@
-Artículo 49.—Cuando por cualquier motivo un cliente pierda su condición de inversionista, el registro de sus CC será automáticamente inhabilitado para realizar movimientos de fondos desde Central Directo.

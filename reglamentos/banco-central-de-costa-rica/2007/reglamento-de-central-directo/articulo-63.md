@@ -1,1 +1,0 @@
-Artículo 63.—El trámite de cualquier movimiento de fondos a través de los servicios DTR y TFT, queda sujeto a que el inversionista disponga en la CCI de los fondos suficientes para cubrir el pago de la comisión cobrada por la entidad destino.

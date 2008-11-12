@@ -1,1 +1,0 @@
-Artículo 54.—Los débitos que ordene el inversionista desde Central Directo serán tramitados bajo la condición “sin cobro revertido”, por lo que no podrán revocarse ni procederá su reclamación por parte del inversionista luego de que hayan sido ordenados.

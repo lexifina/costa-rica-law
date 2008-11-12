@@ -1,1 +1,0 @@
-Artículo 41.—Los registros electrónicos administrados por Central Directo, así como por sus sistemas de soporte tecnológico a nivel de registro y control financiero contable, constituyen respaldo pleno de las operaciones que realicen el BCCR y los inversionistas, en virtud de su condición de participantes en Central Directo.

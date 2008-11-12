@@ -1,2 +1,0 @@
-Artículo 17.—Al suscribirse a Central Directo, el inversionista debe aportar la información personal necesaria para identificarlo en el servicio, así como la información requerida para mantener un canal directo de comunicación que facilite el envío de notificaciones.
-Las personas jurídicas deberán registrar la información personal de su representante para el servicio y las personas físicas podrán designar beneficiarios.

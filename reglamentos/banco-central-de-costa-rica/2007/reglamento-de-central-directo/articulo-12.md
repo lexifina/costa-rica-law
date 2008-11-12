@@ -1,1 +1,0 @@
-Artículo 12.—Cualquier inconveniente presentado por información no recibida, debido a errores en el registro de la dirección de correo electrónico o a la imposibilidad tecnológica del correo para recibir los mensajes enviados por Central Directo, será responsabilidad del inversionista.

@@ -1,1 +1,0 @@
-Artículo 4º—La aplicación y cumplimiento de estas disposiciones son de carácter obligatorio, por lo que el acto de suscripción a Central Directo se entiende como una declaración del inversionista de que las acepta y se compromete a cumplirlas.

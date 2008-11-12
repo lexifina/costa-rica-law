@@ -1,1 +1,0 @@
-Artículo 5º—Para las situaciones no reguladas por el presente reglamento, rigen complementariamente las disposiciones contenidas en el Reglamento del Sistema de Pagos, así como la demás legislación que resulte aplicable.

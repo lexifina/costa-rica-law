@@ -1,1 +1,0 @@
-Artículo 35.—La clave de acceso tiene un período máximo de vigencia de ciento veinte días naturales, manteniendo el inversionista la potestad de cambiarla dentro de ese periodo cada vez que así lo determine, siempre que cumpla con la vigencia mínima de dos días establecida para la clave.

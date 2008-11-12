@@ -1,1 +1,0 @@
-Artículo 11.—Los mensajes particulares correspondientes a la participación del inversionista y sus operaciones, serán remitidos por el BCCR a su dirección de correo electrónico registrada en Central Directo.
