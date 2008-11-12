@@ -1,0 +1,3 @@
+III.—Modificar el literal A del numeral 4 del Título IV de las Regulaciones de Política Monetaria del Banco Central de Costa Rica, para que se lea de la siguiente forma:
+“El Banco Central de Costa Rica podrá participar en los mercados interbancarios y bursátiles mediante la figura de reporto y otras similares, con las entidades supervisadas por la Superintendencia General de Entidades Financieras, Superintendencia General de Valores, Superintendencia de Pensiones y la Superintendencia General de Seguros. Para ello únicamente podrá utilizar valores emitidos por el Banco Central de Costa Rica o por el Gobierno que estén en circulación y que provengan del mercado secundario.”
+Rige a partir del 4 de noviembre del 2008.
