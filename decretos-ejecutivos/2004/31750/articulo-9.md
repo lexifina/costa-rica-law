@@ -1,1 +1,1 @@
-Artículo 9º—Derogatorias: Se deroga el párrafo segundo del artículo 11 del Decreto Nº 25721-MINAE.
+Artículo 9º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.).

@@ -1,4 +1,1 @@
-Artículo 4º—Cuando el proyecto ecoturístico implique la corta y el aprovechamiento del recurso forestal en las áreas de bosque de la zona marítimo terrestre, será necesario para autorizar estas actividades cumplir con la presente normativa y con los siguientes requisitos:
-1. Concesión otorgada por la Municipalidad competente debidamente inscrita.
-2. Plan de manejo del bosque conforme el Decreto Ejecutivo Nº 30763-MINAE, Principios Criterios Indicadores para el Manejo de Bosques Naturales y su Certificación en Costa Rica y el Decreto Ejecutivo Nº 25721, Reglamento a la Ley Forestal y el presente decreto.
-3. Viabilidad ambiental otorgada por la Secretaría Técnica Nacional Ambiental, la cual deberá incorporar en sus valoraciones una consulta previa y vinculante al Área de Conservación respectiva, competentes por Ley en materia Forestal.
+Artículo 4º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.)..

@@ -14,3 +14,4 @@ Reglamenta la aplicación del término ecoturismo, previsto en el artículo 18 d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-14 | la propia norma |
+| 2 | 2008-11-12 | SINALEVI (sin norma nombrada) |

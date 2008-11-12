@@ -1,2 +1,1 @@
-Artículo 10.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los veintidós días del mes de abril del año dos mil cuatro.
+Artículo 10.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.).

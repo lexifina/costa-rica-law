@@ -1,1 +1,1 @@
-Artículo 6º—Cuando las labores de ecoturismo no impliquen corta de árboles, han de regirse en cuanto a sus requisitos por lo establecido en el artículo 11 del Decreto Nº 25721-MINAE, reglamento a la Ley Forestal que regula los permisos de uso en la zona marítimo terrestre.
+Artículo 6º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.).

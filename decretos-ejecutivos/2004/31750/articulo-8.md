@@ -1,2 +1,1 @@
-Artículo 8º—Modifíquese el artículo 2 del Decreto Ejecutivo Nº 25721 en su concepto de ecoturismo el cual de ahora en adelante será definido como:
-Ecoturismo: es aquella actividad que contribuye activamente a la conservación del patrimonio natural y cultural, incluye a las comunidades locales e indígenas en su planificación, desarrollo y explotación y contribuye a su bienestar. Interpreta el patrimonio natural y cultural del destino para los visitantes y se presta mejor a los viajeros independientes, así como a los circuitos organizados para grupos de tamaño reducido.
+Artículo 8º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.).

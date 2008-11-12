@@ -1,1 +1,1 @@
-Artículo 5º—En los requisitos mínimos contemplados en el artículo tercero de este reglamento no se podrá considerar el área demarcada como zona de protección que haya sido establecida en el respectivo Plan Regulador, de conformidad con lo dispuesto en el artículo 33 de la Ley Forestal, Ley de Aguas No. 276 de 27 de agosto de 1942, así como el Decreto Ejecutivo Nº 31045-MOPT.
+Artículo 5º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16975-08, del 12 de noviembre del 2008.).
