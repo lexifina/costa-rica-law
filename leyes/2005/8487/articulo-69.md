@@ -1,1 +1,1 @@
-Artículo 69.— La unión de hecho no produce efecto jurídico migratorio alguno, por tanto, no podrá alegarse con fines de eludir la ejecución de la orden de deportación ni para pretender autorización de permanencia legal como residente.
+Artículo 69.— Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 16978-08 del 12 de noviembre del 2008.)
