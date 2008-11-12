@@ -1,4 +1,3 @@
-CAPÍTULO II
-De los participantes
-Artículo 198.—Participantes del servicio. En el servicio MONEX participa el BCCR, las entidades supervisadas por la SUGEF, las casas de cambio, los puestos de bolsa y cualquier otro que sea autorizado por la Junta Directiva del BCCR.
-Las instituciones públicas asociadas al SINPE podrán liquidar sus operaciones directamente con el BCCR.
+Artículo 198.—Participantes del mercado. La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden participar en el Monex, además de las entidades autorizadas que lo hacen a través del SINPE.
+Las personas que no estén autorizadas por el BCCR para realizar actividades de intermediación cambiaria, podrán acceder al Monex únicamente para realizar operaciones destinadas a satisfacer sus necesidades propias de transacción de divisas.
+(Así reformado mediante sesión N ° 5402 del 12 de noviembre de 2008).

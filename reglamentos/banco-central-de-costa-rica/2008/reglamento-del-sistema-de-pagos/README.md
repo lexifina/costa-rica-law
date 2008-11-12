@@ -14,3 +14,4 @@ Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-14 | la propia norma |
+| 2 | 2008-11-12 | Reglamento 5402 (2008-11-12) |

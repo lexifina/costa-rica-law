@@ -1,1 +1,4 @@
-Artículo 197.—Calce de ofertas. Las ofertas de compra o venta que realicen las entidades participantes a precios distintos de los tipos de cambio de intervención del BCCR, estarán sujetas a calce automático bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse el calce parcial de ofertas.
+CAPÍTULO IV
+DEL MERCADO DE MONEDAS EXTRANJERAS
+Artículo 197.—Definición del mercado. Se define el Mercado de Monedas Extranjeras (Monex) como el mercado organizado por el BCCR para la negociación de operaciones de compra y de venta de divisas en el territorio nacional.
+(Así reformado mediante sesión N ° 5402 del 12 de noviembre de 2008).

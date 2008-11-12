@@ -1,3 +1,5 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 201.—Suministro de información al BCCR. Las entidades participantes deben suministrar diariamente al BCCR la información con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en las normas complementarias del servicio.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 201.—Registro contable de las operaciones. Las entidades autorizadas a participar en el mercado cambiario deben mantener registros contables separados que permitan identificar las operaciones que realicen en el Monex, así como bases de datos centralizadas con el detalle de todas las operaciones cambiarias realizadas con el público en todas sus oficinas, agencias y sucursales, incluidas las negociadas por medios electrónicos como Internet banca telefónica o similares.
+Las entidades autorizadas también deberán suministrar diariamente al BCCR la información de su actividad cambiaria, con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en el Reglamento de Operaciones Cambiarias de Contado y las normas complementarias del servicio.
+(Así reformado mediante sesión N ° 5402 del 12 de noviembre de 2008).

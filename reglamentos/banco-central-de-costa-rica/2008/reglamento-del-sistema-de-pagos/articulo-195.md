@@ -1,1 +1,5 @@
-Artículo 195.—Ofertas de venta. Las ofertas de venta de moneda extranjera que realicen las entidades participantes, estarán sujetas a calce por parte del BCCR a la hora de cierre del servicio, si el precio ofrecido es igual al tipo de cambio de intervención de compra y siempre que no exista alguna oferta de compra publicada por otra entidad participante que ofrezca el mismo o mejor precio que el BCCR. Si este fuera el caso, se calzará automáticamente con la oferta de compra publicada por la entidad participante.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 195.—Participantes del servicio. En el servicio Monex-SINPE participan el BCCR, las entidades supervisadas por la SUGEF , las casas de cambio, los puestos de bolsa y cualquier otro que autorice la Junta Directiva del BCCR para actuar como intermediario cambiario.
+Las instituciones públicas asociadas al SINPE podrán liquidar sus operaciones directamente con el BCCR.
+(Así reformado mediante sesión N ° 5402 del 12 de noviembre de 2008).
