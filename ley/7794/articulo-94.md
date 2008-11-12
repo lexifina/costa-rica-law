@@ -1,2 +1,2 @@
-Artículo 94. — En la primera semana de julio, los Concejos de Distrito deberán presentar una lista de sus programas, requerimientos de financiamiento y prioridades, basados en el Plan de desarrollo municipal.
-De conformidad con las necesidades municipales, el Concejo, incluirá los gastos correspondientes en el presupuesto municipal.
+Artículo 94. — En la primera semana de julio, los concejos de distrito deberán presentar una lista de sus programas, requerimientos de financiamiento y prioridades, basados en el Plan de Desarrollo Municipal y considerando las necesidades diferenciadas de hombres y mujeres. De conformidad con las necesidades de la población, el concejo incluirá en el presupuesto municipal, los gastos correspondientes, siguiendo el principio de igualdad y equidad entre los géneros.
+(Así reformado por el aparte g) del artículo único de la Ley N ° 8679 del 12 de noviembre de 2008).
