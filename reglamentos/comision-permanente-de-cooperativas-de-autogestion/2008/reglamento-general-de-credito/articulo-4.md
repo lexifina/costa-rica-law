@@ -1,0 +1,2 @@
+Artículo 4º—De la Comisión. Corresponde a la Comisión dé Crédito adscrita a Comisión Permanente de Cooperativas de Autogestión las decisiones relacionadas con el otorgamiento de créditos Fondo Nacional de Autogestión previo el dictamen técnico de la Dirección Ejecutiva de la Comisión.
+En caso de disconformidad de parte de la Cooperativa solicitante con la resolución de la Comisión de Crédito la misma podrá ser apelada ante el Directorio de la Comisión Permanente de Cooperativas de Autogestión quien deberá resolver en última instancia mediante voto razonado de sus miembros.

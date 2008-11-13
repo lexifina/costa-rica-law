@@ -1,0 +1,1 @@
+Artículo 18.—Recursos externos. Si se reciben fondos de fuentes externas que tengan condiciones limitantes sobre la tasa de interés que se puede cobrar sobre el uso de esos fondos u otras condiciones, la Comisión permanente de Cooperativas de Autogestión lo reglamentará en cada caso.

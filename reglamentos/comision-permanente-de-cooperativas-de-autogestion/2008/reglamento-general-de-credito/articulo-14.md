@@ -1,0 +1,1 @@
+Artículo 14.—Plazo de los créditos. El plazo al cual se otorguen los créditos, se fijará, teniendo en cuenta las posibilidades del proyecto, de acuerdo a los estudios y proyecciones que se practiquen en cada oportunidad y la relación con la vida útil del mismo y las garantías ofrecidas.

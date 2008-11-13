@@ -1,0 +1,1 @@
+Artículo 8º—Garantías. Todos los créditos deberán otorgarse con la correspondiente garantía, pudiendo ser estas: hipotecas y cédulas hipotecarias, prendarias, avales, letras de cambio, pagarés, títulos valores, u otros documentos negociables o cualquiera otra que sea aceptable ajuicio de la Comisión de Crédito del Fondo Nacional de Autogestión.

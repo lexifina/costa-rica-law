@@ -1,0 +1,1 @@
+Artículo 21.—Interés moratorio. En el caso de morosidad en el servicio de la deuda, tanto en intereses como en amortizaciones se cobrará un interés moratorio el cual se definirá por la Comisión de Crédito en forma general y su cálculo se realizará sobre el saldo adeudado desde el día de su vencimiento hasta la fecha de su cancelación.
