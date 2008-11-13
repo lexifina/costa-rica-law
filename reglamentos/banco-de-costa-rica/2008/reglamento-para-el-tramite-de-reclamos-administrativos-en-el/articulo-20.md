@@ -1,0 +1,1 @@
+Artículo 20.—Si por el contrario, esta valoración previa no llevare a la determinación de la existencia de causas o razones para adoptar mecanismos alternativos de resolución, se comunicará a la Contraloría de Servicios para que continúe el procedimiento.

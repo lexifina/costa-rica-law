@@ -1,0 +1,1 @@
+Artículo 36.—Si el interesado presenta únicamente el recurso de apelación, el expediente deberá ser elevado de inmediato a la Gerencia General o al gerente de cada subsidiaria para que conozca y resuelva en segunda instancia para lo que gozará de un plazo no mayor de quince días hábiles.

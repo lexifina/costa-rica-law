@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la resolución del reclamo
+Artículo 29.—Una vez listo el expediente para la emisión del acto final se remitirá al director de división, gerente de división o gerente regional del área donde ocurrieron los hechos según corresponda de conformidad con la naturaleza y cuantía de la reclamación, quién contará con un plazo máximo de cinco días hábiles para resolver y notificar.
+Los reclamos inferiores a $5.000,00; planteados contra el Banco o sus servidores; deben ser atendidos por el gerente regional; y aquellos iguales o superiores a esta cifra deberán ser atendidos por el gerente de División con el Director Comercial. Para el caso de subsidiarias, los reclamos deberán ser atendidos sin importar la cuantía por los siguientes funcionarios: en el caso de la Operadora por el Gerente Comercial, los casos propios del Puesto de Bolsa por el Gerente de Negocios y los de la Sociedad Administradora de Fondos de Inversión por el Gerente de Negocios.

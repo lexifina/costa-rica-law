@@ -1,0 +1,1 @@
+Artículo 56.—Este reglamento sustituye y deja sin efecto las Disposiciones administrativas para el trámite de reclamos administrativos aprobado por el Comité Operaciones en sesión C.OP. 08-03, artículo XI, del 19 de noviembre del 2003.

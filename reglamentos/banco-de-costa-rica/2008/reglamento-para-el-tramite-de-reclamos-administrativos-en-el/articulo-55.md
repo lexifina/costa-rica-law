@@ -1,0 +1,1 @@
+Artículo 55.—Para el cumplimiento de sus funciones la Alta Administración de la entidad suministrará a la Contraloría de Servicios los recursos necesarios para el cumplimiento de las funciones que por ley le competen.

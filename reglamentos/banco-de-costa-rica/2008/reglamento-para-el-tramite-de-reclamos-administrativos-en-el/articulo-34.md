@@ -1,0 +1,1 @@
+Artículo 34.—Una vez que se comunique por escrito la decisión al reclamante, el interesado tendrá la facultad de interponer en un plazo máximo de tres días hábiles contados a partir del día siguiente de la notificación, los recursos de reconsideración o revocatoria, apelación, o ambos.

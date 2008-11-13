@@ -1,0 +1,1 @@
+Artículo 32.—La decisión deberá estar debidamente fundada con indicación de las consideraciones que se han tenido en cuenta para resolver de una u otra forma, y deberá indicarse al reclamante en forma expresa que contra lo ahí resuelto caben los recursos de revocatoria y apelación conforme se dispone en los artículos 345.1 y 346.1 de la Ley General de la Administración Pública.

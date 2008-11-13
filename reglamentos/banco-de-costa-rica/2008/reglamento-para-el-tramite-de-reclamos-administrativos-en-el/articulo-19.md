@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de que la decisión anterior tenga la virtud de poner fin al reclamo, deberá documentarse la voluntad de ambas partes de dejar resuelta toda diferencia presente y futura fundada en los mismos hechos, y la renuncia a interponer cualquier otra acción motivada en la misma causa.

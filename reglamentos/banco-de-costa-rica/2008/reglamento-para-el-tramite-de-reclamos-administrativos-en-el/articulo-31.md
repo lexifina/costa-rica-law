@@ -1,0 +1,1 @@
+Artículo 31.—La emisión del acto final sin excepción, estará a cargo del director de división, gerente de división o gerente regional del área u oficina donde ocurrieron los hechos. Para las subsidiarias el responsable será el gerente respectivo.

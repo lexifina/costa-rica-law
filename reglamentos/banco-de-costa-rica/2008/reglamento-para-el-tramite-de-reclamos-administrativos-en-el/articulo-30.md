@@ -1,0 +1,1 @@
+Artículo 30.—El expediente debe contener los requisitos respectivos además de incluir el informe de investigaciones (cuando éste se considere indispensable), los elementos y documentos que justifiquen los fundamentos en que se basa la decisión, y cualquier consulta jurídica que haya sido solicitada.

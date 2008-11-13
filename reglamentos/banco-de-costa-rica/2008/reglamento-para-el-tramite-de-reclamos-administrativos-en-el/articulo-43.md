@@ -1,0 +1,1 @@
+Artículo 43.—Nunca se pagarán intereses de oficio, sino sólo a requerimiento del interesado. Para el caso de daños provocados en la acreditación de fondos o demora de servicios que generan tasas concretas, se debe cancelar los intereses con el tipo de interés estipulado para ese servicio.
