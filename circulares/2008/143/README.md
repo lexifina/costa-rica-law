@@ -14,3 +14,4 @@ Improcedencia de “Poder Especial” para rendir declaración jurada en Declara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2008-11-13 | Resolución 4 (2008-11-10) |
