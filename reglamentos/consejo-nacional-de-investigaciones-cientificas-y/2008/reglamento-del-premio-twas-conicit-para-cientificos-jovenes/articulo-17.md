@@ -1,0 +1,2 @@
+Artículo 17.—La declaratoria del Premio la hará el Consejo Director del CONICIT, conjuntamente con el Comité de Nominaciones, a partir del mes de octubre. La entrega del Premio se llevará a cabo en una ceremonia debidamente convocada.
+Contra esta resolución cabe el recurso ordinario de revocatoria, el cual deberá interponerse dentro del tercer día, después de haberse publicado la decisión. El Consejo Director tendrá quince días hábiles para resolver la impugnación presentada.

@@ -1,0 +1,1 @@
+Artículo 2º—Los trabajos que se avaluarán, deberán entregarse en copia fiel del original, en forma impresa y digital, acompañados de un resumen de los mismos en idioma español, cuya extensión no debe superar las dos páginas.

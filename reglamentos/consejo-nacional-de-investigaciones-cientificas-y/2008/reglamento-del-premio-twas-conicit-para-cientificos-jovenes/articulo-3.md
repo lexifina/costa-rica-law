@@ -1,0 +1,1 @@
+Artículo 3º—El Premio consiste en un certificado de distinción más una dotación en efectivo (tres mil dólares). Lo otorgarán conjuntamente “The Academy of Sciences for the Developing World”, llamado en lo sucesivo la Academia para el Mundo en Desarrollo y el Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT).

@@ -1,0 +1,1 @@
+Artículo 16.—El Comité de Nominaciones estudiará y evaluará el dictamen de la Comisión de Especialistas y lo acogerá o denegará por mayoría simple. Su decisión será comunicada al Consejo Director del CONICIT, para los fines pertinentes.

@@ -1,0 +1,7 @@
+CONSEJO NACIONAL PARA INVESTIGACIONES
+CIENTÍFICAS Y TECNOLÓGICAS
+REGLAMENTO DEL PREMIO TWAS/CONICIT
+PARA CIENTÍFICOS JÓVENES
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Créase el Premio TWAS/CONICIT para científicos jóvenes costarricenses y/o extranjeros con naturalización, con la finalidad de estimular y destacar el esfuerzo de personas físicas que hayan hecho contribuciones relevantes en la investigación, en los campos de la biología, la química, la física y la matemática.

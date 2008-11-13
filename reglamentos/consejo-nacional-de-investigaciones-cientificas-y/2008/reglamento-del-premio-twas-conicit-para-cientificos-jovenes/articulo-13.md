@@ -1,0 +1,1 @@
+Artículo 13.—Los trabajos de los postulantes se entregarán en la Sede del CONICIT en formato escrito y digital. Las postulaciones deberán sustentarse con los documentos pertinentes que permitan a la Comisión hacer una evaluación apropiada.

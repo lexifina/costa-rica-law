@@ -1,0 +1,1 @@
+Artículo 4º—El monto en efectivo será aportado por el CONICIT y la Academia de Ciencias para el Mundo en Desarrollo. El CONICIT proporcionará el apoyo logístico para la organización y entrega del Premio.

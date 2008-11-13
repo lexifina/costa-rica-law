@@ -1,0 +1,2 @@
+Artículo 20.—El Consejo Director del CONICIT tendrá la potestad de no otorgar el premio en el año correspondiente, por razones de interés público, así como declarar desierta la nominación a solicitud del Comité de Nominaciones y su entrega estaría sujeta a la disponibilidad de los recursos por parte de los patrocinadores.
+Este Reglamento fue modificado por el Comité de Nominación en setiembre del 2008, aprobado por el Consejo Director en sesión Nº 1891 celebrada el 06 de octubre del 2008.

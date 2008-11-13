@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros del Comité, serán nombrados por el Consejo Director del CONICIT por períodos de tres (3) años y podrán ser reelectos. El quórum será conformado por tres miembros. El presidente será el representante del CONICIT y el secretario se elegirá entre los demás representantes. Las decisiones del Comité son firmes e inapelables.

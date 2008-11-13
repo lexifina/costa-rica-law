@@ -1,0 +1,1 @@
+Artículo 19.—De existir una relación laboral o conflicto de interés, entre uno o varios miembros del Comité de Nominaciones o de la Comisión de Especialistas, con alguno de los postulantes al premio, se debe dejar constancia de la situación; y en tal caso se excusarán de emitir criterio.
