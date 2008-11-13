@@ -1,0 +1,2 @@
+Artículo 8º—Solicitud de reposición o renovación. La solicitud de reposición o renovación de las tarjetas deberá gestionarse ante el Director del Programa, que decidirá si solicita al Departamento Financiero Contable que tramite lo que corresponda ante el Banco de Costa Rica.
+Una vez recibidas las tarjetas por parte del Banco de Costa Rica, el Departamento Financiero Contable las entregará a los tarjetahabientes, quienes deberán dejar constancia del recibido conforme.
