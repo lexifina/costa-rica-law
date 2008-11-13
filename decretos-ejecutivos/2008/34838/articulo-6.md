@@ -1,0 +1,3 @@
+Artículo VI
+1. Las instituciones ejecutoras mencionadas en e1 Artículo II elaborarán informes sobre los resultados alcanzados en este Acuerdo Complementario, los cuales serán presentados a las instituciones coordinadoras.
+2. Los documentos resultantes de las actividades desarrolladas en el contexto del Proyecto serán de propiedad conjunta de las Partes. En caso de publicación de los referidos documentos, las Partes deberán ser previa y formalmente consultadas y mencionadas en el documento objeto de la publicación.
