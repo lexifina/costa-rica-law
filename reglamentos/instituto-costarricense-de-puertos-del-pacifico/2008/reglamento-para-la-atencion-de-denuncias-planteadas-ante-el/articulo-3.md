@@ -1,0 +1,1 @@
+Artículo 3º—Plazo: La oficina u órgano encargado de tramitar la denuncia tendrá un plazo de diez días hábiles desde la fecha en que fue presentada la solicitud en la oficina administrativa, para informar al denunciante de las acciones tomadas. Así mismo, el plazo para atender la denuncia será razonable según la complejidad del asunto.

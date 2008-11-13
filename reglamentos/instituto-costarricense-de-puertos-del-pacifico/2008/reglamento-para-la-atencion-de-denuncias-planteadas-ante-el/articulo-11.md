@@ -1,0 +1,1 @@
+Artículo 11.—Direccionamiento de las denuncias: El INCOP atenderá las denuncias remitidas ya sea por la Contraloría General de la República, o por cualquier ciudadano de conformidad con lo establecido en la Legislación vigente.

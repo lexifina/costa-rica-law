@@ -1,0 +1,4 @@
+Artículo 15.—Comunicación al denunciante en caso de denuncias suscritas: Al denunciante se le deberá comunicar cualquiera de las siguientes resoluciones que se adopte de su gestión:
+1) La decisión de desestimar la denuncia y de archivarla.
+2) Se giraron las recomendaciones que procedían (cuando lo realizado fue un estudio de control interno). En caso de que tales resultados puedan originar la apertura de procedimiento administrativo o la interposición de un proceso judicial, se le comunicará que se realizó el estudio correspondiente y de su remisión a la autoridad competente, sin aportar información, documentación u otras evidencias inherentes a la investigación.
+Las anteriores comunicaciones se realizarán en el tanto haya especificado en dicho documento su nombre, calidades y lugar de notificación.

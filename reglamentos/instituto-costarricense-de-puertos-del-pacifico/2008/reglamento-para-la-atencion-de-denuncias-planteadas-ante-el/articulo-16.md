@@ -1,0 +1,2 @@
+Artículo 16.—Procedimientos internos: El funcionario responsable según corresponda remitirá a la Unidad de Administración del Capital Humano, los casos que tengan referencia con asuntos de índole disciplinario, con su respectiva relación de hechos.
+Cuando se trate de asuntos de índole patrimonial, penal o civil, estos serán remitidos a la Dirección de Asesoría Jurídica, con su respectiva relación de hechos para los trámites correspondientes.
