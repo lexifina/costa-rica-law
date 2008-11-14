@@ -1,0 +1,3 @@
+Artículo 15.—Aprobación de las actas: Las actas de las sesiones del Concejo deberán aprobarse en la sesión ordinaria, inmediata posterior, salvo que lo impida razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.
+Los regidores que se hayan ausentado de determinada sesión deberán abstenerse de la votación del acta de la misma, y serán sustituidas por el regidor suplente que los haya sustituido en esa sesión.
+Las actas deberán estar listas para ser entregadas a las señoras y señores regidores para su estudio en un plazo no menor de un día hábil, antes de la sesión ordinaria en que deban ser aprobadas.

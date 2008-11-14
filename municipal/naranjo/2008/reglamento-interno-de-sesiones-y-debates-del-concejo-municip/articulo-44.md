@@ -1,0 +1,1 @@
+Artículo 44.—Comunicación de la audiencia: La comunicación a los interesados, de las audiencias acordadas por Concejo Municipal, las realizará de manera oportuna y bajo su propia responsabilidad la Secretaría del Concejo Municipal.

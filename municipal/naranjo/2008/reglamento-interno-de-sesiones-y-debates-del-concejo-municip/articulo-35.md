@@ -1,0 +1,2 @@
+Artículo 35.—De las formalidades: Al inicio de la discusión de todos los asuntos, quien ostente la Presidencia iniciará su intervención con las siguientes palabras: Señoras y Señores Regidores y Síndicos, para cualquier intervención de los presentes es requisito indispensable solicitar la palabra a la presidencia.
+También será potestad de la Presidencia llamar al orden a los miembros del Concejo (Secretaría, Síndicos, Alcalde y Regidores), ordenarles que guarden el decoro y el respeto y retirarlos de la sesión si su comportamiento alterara el orden de la sesión.

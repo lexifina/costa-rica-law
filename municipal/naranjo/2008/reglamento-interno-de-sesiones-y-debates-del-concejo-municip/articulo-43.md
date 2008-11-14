@@ -1,0 +1,1 @@
+Artículo 43.—Tramitación: Las solicitudes de Audiencia serán puestas en conocimiento del Concejo Municipal en el orden en que fueron presentadas, el Concejo tomando en cuenta el interés municipal, la oportunidad, razones de humanidad y legalidad y cualquier otro aspecto que se considere pertinente, aceptará o rechazará la solicitud.

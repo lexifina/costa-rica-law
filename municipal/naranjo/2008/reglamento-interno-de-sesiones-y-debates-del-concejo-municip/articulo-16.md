@@ -1,0 +1,1 @@
+Artículo 16.—Del recurso de revisión: Antes de la aprobación del acta, aquellos acuerdos que no hayan sido definitivamente aprobados en firme, podrán, a solicitud de alguno de los regidores, ser sometidos a revisión. Para acordar la revisión se requerirá la misma mayoría que para tomar el acuerdo.

@@ -1,0 +1,2 @@
+Artículo 11.—De las sustituciones parciales: Antes de transcurridos los 15 minutos desde la hora de inicio de la sesión, si se presentare una votación y hubiere propietarios ausentes, serán temporalmente sustituidos por los suplentes, una vez que llegue el propietario, si lo hace dentro de los 15 minutos de gracia, asumirá su rol como propietario.
+Si en cualquier momento de la sesión, un regidor o síndico debiera retirarse temporalmente, con permiso de la presidencia del Concejo Municipal, será sustituido temporalmente por el suplente que corresponda.

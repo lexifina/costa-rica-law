@@ -1,0 +1,3 @@
+Artículo 6º—Del quórum: El quórum se conformará con la mitad más uno o fracción, de la totalidad de los Regidores con derecho a voto, que conformen el Concejo Municipal.
+Entiéndase que en el caso de que la mitad sea un número fraccionado ejemplo 2,5, se sumará la fracción necesaria para alcanzar el número entero siguiente. Si la totalidad es cinco, el quórum se conformará con la mitad más fracción, es decir el quórum lo harán tres personas.
+Al inicio de cada sesión deberá verificarse el quórum, tomando en cuenta a los regidores que se encuentren dentro de la sala de sesiones y ocupando sus respectivos lugares. También deberá verificarse el quórum antes de cada votación, siguiendo lo señalado anteriormente.

@@ -1,0 +1,3 @@
+Artículo 13.—Publicidad: De acuerdo a lo señalado por el Código Municipal y este reglamento, todas las sesiones del Concejo Municipal serán Públicas. De la misma manera tanto las actas, como las grabaciones son públicas.
+Cualquier ciudadano podrá asistir a las sesiones del Concejo Municipal, siempre que guarde el respeto debido. También podrá cualquiera grabar las sesiones.
+La intervención del público se permitirá, previa cita solicitada al Concejo Municipal, o por autorización, mediante acuerdo unánime de los Regidores con derecho a voto que se encuentren presentes en la sesión en la que solicita la intervención.

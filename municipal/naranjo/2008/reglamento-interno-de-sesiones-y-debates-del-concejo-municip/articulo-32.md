@@ -1,0 +1,1 @@
+Artículo 32.—De la toma de acuerdos: Salvo cuando se indique lo contrario, todos los acuerdos se tomaran por mayoría absoluta. En caso de empate se votará de nuevo en la misma sesión o en la sesión inmediata siguiente, y de empatar de nuevo el acuerdo se tendrá por desechado.

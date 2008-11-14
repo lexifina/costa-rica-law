@@ -1,0 +1,2 @@
+Artículo 7º—Del inicio de las sesiones: Cada sesión municipal deberá iniciar a la hora señalada (6:00, u otra previamente acordada) pudiendo, en caso necesario, iniciarse dentro de los 15 minutos siguientes a la hora señalada, conforme al reloj, del local donde se lleve a cabo la sesión.
+Si transcurridos los 15 minutos no hubiere quórum, se dejará constancia en Libro de Actas, y se tomará la nomina de los miembros presentes, a fin de acreditarles su asistencia para efecto del pago de dietas.

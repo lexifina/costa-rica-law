@@ -1,0 +1,2 @@
+Artículo 33.—Sobre las votaciones. Una vez que este suficientemente discutido un asunto la Presidencia del Concejo lo someterá a votación, una vez corroborado el quórum y cuando todos los regidores se encuentren en sus curules.
+El voto deberá ser necesariamente afirmativo o negativo y podrá razonarse el voto; esa intervención no podrá exceder los 5 minutos y deberá circunscribirse al tema objeto de la votación.

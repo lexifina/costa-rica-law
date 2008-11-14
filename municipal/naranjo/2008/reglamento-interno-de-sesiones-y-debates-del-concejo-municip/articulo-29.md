@@ -1,0 +1,1 @@
+Artículo 29.—Recurso extraordinario de revisión: Por motivos que acareen la nulidad absoluta de un acuerdo municipal y mientras el acto siga surtiendo efectos, podrá en el plazo de 10 años a partir de la firmeza del acuerdo municipal, interponerse recurso extraordinario de revisión siempre que se sujete a lo señalado por el artículo 157 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 19.—Tramitación de los dictámenes: Los dictámenes de las Comisiones serán incluidos en el orden del día, siguiendo el orden en que fueron presentados a la Secretaría, para ese efecto la Secretaría al recibir los dictámenes deberá consignar al pie de ellos la hora y fecha de presentación.

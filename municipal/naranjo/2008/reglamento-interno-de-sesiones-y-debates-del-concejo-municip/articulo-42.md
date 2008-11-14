@@ -1,0 +1,2 @@
+Artículo 42.—Solicitud de audiencia: La solicitud de audiencia deberá realizarse por escrito, ante la Secretaría del Concejo Municipal, con un mínimo de 8 días de antelación, en el escrito deberán exponerse con claridad los motivos que fundamentan su petición. Al recibirlas la secretaría anotará al margen la hora y fecha en que fueron presentadas.
+Cuando el escrito revele que el asunto por el que se pide la audiencia es competencia del Acalde, la Presidencia remitirá el asunto a la Alcaldía, a través de la Secretaría del Concejo, quien se lo comunicará a los interesados.

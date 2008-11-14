@@ -1,0 +1,1 @@
+Artículo 30.—El veto. El Alcalde podrá vetar los acuerdos del Concejo Municipal, por motivos de legalidad u oportunidad, dentro del quinto día después de aprobado definitivamente el acuerdo y sujetándose a lo señalado por los artículos 158, 159 y 160 del Código Municipal.

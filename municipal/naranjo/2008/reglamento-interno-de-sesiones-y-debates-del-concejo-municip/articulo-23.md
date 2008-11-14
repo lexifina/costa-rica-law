@@ -1,0 +1,1 @@
+Artículo 23.—Improcedencia: El presidente no dará trámite y declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente tiendan a obstaculizar o dilatar el curso normal del debate o la resolución de un asunto.
