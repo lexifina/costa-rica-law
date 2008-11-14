@@ -1,1 +1,1 @@
-Artículo 63.—De la Escala de Calificación. La calificación de la conducta se realizará usando la escala de 1 a 100.
+Artículo 63.— (Suprimido este artículo por el artículo 2° del decreto ejecutivo N° 34886 del 14 de noviembre de 2008)
