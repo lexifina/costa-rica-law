@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo quinto del Decreto Ejecutivo Nº 34773-MEIC, del 24 de setiembre del año 2008 y publicado en La Gaceta Nº 189, del 01 de octubre del año 2008, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 5º—Los precios estipulados en el artículo 1º del presente Decreto Ejecutivo serán revisados, en un plazo aproximado de 180 días, contados a partir de la publicación del Decreto Ejecutivo Nº 34725-MEIC, del 14 de agosto del 2008, publicado en el Alcance 32-A, del Diario Oficial La Gaceta Nº 172, del 05 de setiembre del 2008.
