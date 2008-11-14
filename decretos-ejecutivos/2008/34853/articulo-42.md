@@ -1,0 +1,1 @@
+Artículo 42.—Requisitos de las Entidades Proponentes. Con el fin de asegurar el cumplimiento de los objetivos y estrategias de la política pública de apoyo a PYME, el MEIC como ente rector, firmará un convenio con las entidades proponentes, en el que se establezcan los programas o proyectos a disposición de las PYME.
