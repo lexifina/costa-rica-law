@@ -1,0 +1,1 @@
+Artículo 9º—Licitación pública: El uso de terreno o instalaciones que se ubiquen dentro de un Aeropuerto o Aeródromo nacional que no se encuentre comprendido en los artículos 5º y 8º, se asignará mediante el trámite de licitación pública según los procedimientos de la Ley de Contratación Administrativa de la República.

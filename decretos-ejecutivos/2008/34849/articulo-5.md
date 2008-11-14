@@ -1,0 +1,2 @@
+Artículo 5º—Permiso de uso: El permiso de uso de dominio público se otorgará a aquellas personas físicas o jurídicas que posean un certificado de explotación, un certificado de operador aéreo y a los propietarios de aeronaves de uso privado.
+El permiso de uso no otorgará derecho alguno al administrado sobre el dominio del Estado, más que la posibilidad de utilizar el espacio concedido para el ejercicio de una actividad aeronáutica, por la que deberá pagar un canon.
