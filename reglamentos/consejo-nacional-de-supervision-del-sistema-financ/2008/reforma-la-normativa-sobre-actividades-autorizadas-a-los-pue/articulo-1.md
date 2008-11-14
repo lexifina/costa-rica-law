@@ -1,0 +1,15 @@
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 12 del acta de la sesión 752-2008, celebrada el 24 de octubre del 2008,
+considerando que:
+I.—el artículo 56 de la Ley Reguladora del Mercado de Valores delimitó las actividades autorizadas a los puestos de bolsa sin hacer mención a la realización de operaciones en el mercado cambiario,
+II.—además de las actividades establecidas por ley, los puestos de bolsa pueden realizar las demás actividades que autorice la Superintendencia, mediante reglamento según lo dispuesto en el inciso f), del artículo 56, de la Ley Reguladora del Mercado de Valores,
+III.—mediante artículo 8 del acta de la sesión 123-99, del 9 de noviembre de 1999, el Consejo Nacional de Supervisión del Sistema Financiero aprobó la “Normativa sobre actividades autorizadas a los puestos de bolsa” (publicada en La Gaceta 246 del 20 de diciembre de 1999), en la cual no se incluyó la autorización para que los puestos de bolsa realizaran operaciones cambiarias,
+IV.—vista la reforma al “Reglamento para las Operaciones Cambiarias de Contado” propuesta por el Banco Central de Costa Rica, en la cual se señala que la ejecución de operaciones cambiarias por cuenta y riesgo propio, por parte de los puestos de bolsa facilitaría la gestión de las necesidades de intercambio de divisas que pueden presentarse en el desarrollo de las actividades de intermediación bursátil y favorecería la participación en el MONEX de más entidades, con capacidad para asumir posiciones de “trading”, que promuevan la liquidez y profundidad del mercado,
+V.—la Superintendencia General de Valores ya había presentado una propuesta de reforma a la “Normativa sobre actividades autorizadas a los puestos de bolsa”, con la intención de que se autorizara expresamente a los puestos de bolsa a participar en el mercado cambiario, lo cual redundaría en una mayor transparencia respecto de las actividades autorizadas a dichos intermediarios bursátiles, brindando al mercado y a sus participantes una mayor claridad y transparencia, al uniformar las reglamentaciones y regulaciones existentes y que, en su momento, el Banco Central de Costa Rica fue consultado y manifestó su conformidad con ésta,
+VI.—este Consejo estima conveniente autorizar a los puestos de bolsa a realizar operaciones cambiarias, siempre y cuando se den en el marco de la intermediación bursátil,
+VII.—se omite el envío en consulta por tratarse de una disposición que amplía las actividades autorizadas a los puestos de bolsa,
+resolvió, en firme:
+adicionar un inciso d) al artículo 1 de “Normativa sobre Actividades Autorizadas a los Puestos de Bolsa”, el cual se leerá así:
+“Artículo 1.-
+…
+d) Realizar operaciones cambiarias por cuenta y riesgo propio o por encargo de terceros siempre y cuando sean debidamente autorizados por el Banco Central de Costa Rica (BCCR) para ello y sean necesarias para el ejercicio de la intermediación bursátil, para lo cual éstas deberán ajustarse al “Reglamento para las Operaciones Cambiarias de Contado” emitido por la Junta Directiva del BCCR.”
+La anterior adición rige a partir de su publicación en el diario oficial La Gaceta.
