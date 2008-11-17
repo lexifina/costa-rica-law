@@ -1,0 +1,1 @@
+Artículo 10.—De la educación permanente. El personal de la Auditoría Interna debe mantener un compromiso interno de autoevaluarse, retroalimentarse y participar en actividades que le permitan mejorar sus conocimientos y afianzar sus destrezas. Para ello se procurará mantener dentro del presupuesto una partida para cubrir el rubro de capacitación al personal.

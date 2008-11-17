@@ -1,0 +1,1 @@
+Artículo 13.—De las gratificaciones, regalos o favores. Queda absolutamente prohibido al personal de la Auditoría Interna recibir o solicitar gratificaciones, regalos o favores, de cualquier naturaleza que sean, por razón de servicios prestados como servidores públicos. Lo anterior sin menoscabo a lo establecido en la normativa vigente.

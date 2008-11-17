@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Las normas contenidas en el presente Código son de acatamiento obligatorio para el personal que labora en la Auditoría Interna de la Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas (JUDESUR).

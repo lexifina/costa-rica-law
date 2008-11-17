@@ -1,0 +1,1 @@
+Artículo 11.—Confidencialidad. Es obligación del personal de la Auditoría Interna, bajo el principio de confidencialidad, no divulgar, con las excepciones previstas en la normativa vigente, ningún tipo de información que les sea dada como confidencial.

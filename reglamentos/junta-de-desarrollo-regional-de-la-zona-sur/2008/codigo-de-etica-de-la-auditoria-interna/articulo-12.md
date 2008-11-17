@@ -1,0 +1,1 @@
+Artículo 12.—Sobre la Información surgida en el proceso. Durante los diferentes procesos, el personal de la Auditoría Interna no podrá utilizar la información obtenida para ningún propósito ajeno al Institucional, ya sea directa o indirectamente, con las excepciones previstas en la normativa vigente.

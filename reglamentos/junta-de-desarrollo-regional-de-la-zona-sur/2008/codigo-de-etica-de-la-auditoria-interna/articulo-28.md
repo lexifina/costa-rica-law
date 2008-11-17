@@ -1,0 +1,3 @@
+Artículo 28.—Desarrollo profesional. El personal de la Auditoría Interna debe ejercer la profesionalidad debida en la realización y supervisión de la auditoría y en la preparación de los informes correspondientes.
+Los auditores y las auditoras deben emplear métodos y prácticas de la máxima calidad posible en sus auditorías. En la realización de la auditoría y la emisión de informes, los auditores y las auditoras tienen la obligación de ajustarse a los postulados básicos y a las normas de auditoría generalmente aceptadas.
+Los auditores y las auditoras tienen la obligación continua de actualizar y mejorar las capacidades requeridas para el desempeño de sus responsabilidades profesionales.

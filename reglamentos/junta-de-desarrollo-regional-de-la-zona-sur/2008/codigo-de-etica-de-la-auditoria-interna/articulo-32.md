@@ -1,0 +1,1 @@
+Artículo 32.—Expediente Personal. En caso de que un(a) funcionario(a), después de seguirse el debido proceso, se determine que incurrió en alguna falta, deberá remitirse fotocopia de la sanción al expediente de personal del (de la) funcionario(a) que lleva la Unidad de Recursos Humanos de JUDESUR.
