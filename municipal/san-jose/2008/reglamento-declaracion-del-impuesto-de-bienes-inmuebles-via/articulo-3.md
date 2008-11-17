@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad por el uso del código de acceso y palabra clave. El sujeto pasivo o su representante legal, a quien se haya entregado el código de acceso y palabra clave para ingresar al sitio www.msj.go.cr, para realizar la declaración electrónica, es el único responsable por el uso que se haga de dicho código de acceso y palabra clave.
