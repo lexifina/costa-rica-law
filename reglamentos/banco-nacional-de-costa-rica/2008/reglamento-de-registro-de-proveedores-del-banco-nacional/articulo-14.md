@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Régimen recurso por exclusión del Registro de Proveedores
+Artículo 14.—Supuestos: En los casos en que se pretenda excluir a un proveedor del Registro, la Proveeduría otorgará de previo una audiencia de cinco días hábiles al interesado para que se manifieste sobre el particular. Vencido el plazo, se resolverá conforme en derecho corresponda. Contra lo resuelto cabrá recurso de revocatoria dentro del tercero día, el cual será de conocimiento de la Proveeduría, salvo que el recurrente solicite que su gestión sea conocida por la Junta Directiva General, en cuyo caso se trasladará a la Gerencia General con un informe para que sea resuelto por el Jerarca. Solamente existirá una única instancia.

@@ -1,0 +1,1 @@
+Artículo 15.—Fundamentación: El recurso deberá indicar exactamente los alegatos por los cuales no está conforme con exclusión del registro de proveedores. El apelante deberá aportar la prueba en que apoya su argumento.
