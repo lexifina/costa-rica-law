@@ -1,0 +1,1 @@
+Artículo13.—En beneficio de la colocación de Bonos, cuando la fecha de amortización ocurra en días no hábiles, se les concederá continuidad en su inversión, a todos aquellos inversionistas que renueven los Bonos amortizados el primer día hábil siguiente a la fecha efectiva del vencimiento, siempre que sea por el mismo monto.

@@ -1,0 +1,1 @@
+Artículo 15.—En caso de la cancelación únicamente se le pagarán los intereses correspondientes a su título base, a pesar de que el beneficiario los presente a cobrar días posteriores a su vencimiento.

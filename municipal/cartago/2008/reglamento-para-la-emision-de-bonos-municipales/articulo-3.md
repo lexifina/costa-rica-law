@@ -1,0 +1,1 @@
+Artículo 3º—En cada acuerdo firme de emisión de bonos se especificará la garantía otorgada a los títulos, para lo cual la Municipalidad podrá recurrir a sus bienes, siempre que no estén destinados a un uso público y de interés general e incluso comprometer sus ingresos según la aprobación presupuestaria de la Contraloría.

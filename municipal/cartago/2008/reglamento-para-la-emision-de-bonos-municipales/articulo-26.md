@@ -1,0 +1,2 @@
+Artículo 26.—Por lo determinante del acto de destrucción, y respondiendo a necesidades de control, el proceso de destrucción realizado por la Tesorería de la Municipalidad, estará sujeto a la inspección física de los títulos a destruir por parte de la Auditoría Interna de la Municipalidad u otra dependencia que el Despacho del Alcalde Municipal designe.
+Para tal fin se levantará un acta notarial que dé fe de la destrucción de los documentos aquí señalados, remitiéndose copia de la misma a la Superintendencia General de Valores.

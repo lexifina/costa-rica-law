@@ -1,0 +1,1 @@
+Artículo 23.—De conformidad con el artículo 90 del Código Municipal, la Contraloría General de la República no aprobará los presupuestos ordinarios y sus modificaciones a la Municipalidad, si estos no incluyen la totalidad de las partidas requeridas para el servicio de la deuda proveniente de la emisión de Bonos.

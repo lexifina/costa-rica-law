@@ -1,0 +1,1 @@
+Artículo 25.—Los Bonos amortizados en cartera y sus cupones se destruirán máximo un mes después de celebrado el sorteo. Aquellos Bonos amortizados en cartera que estén en custodia del agente financiero serán trasladados a la Tesorería de la Municipalidad, máximo dos días después del sorteo, el cual los destruirá junto con los que estén en su poder.

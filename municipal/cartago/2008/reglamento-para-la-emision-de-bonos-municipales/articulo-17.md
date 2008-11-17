@@ -1,0 +1,1 @@
+Artículo 17.—En los casos que la tasa sea variable, el Concejo Municipal podrá adoptar procedimientos para fijarlas, con referencia a parámetros representativos del mercado financiero más un margen que podrá ser determinado por la Tesorería Municipal o mediante los mecanismos de subasta existentes en las Bolsas de Valores.

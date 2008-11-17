@@ -1,0 +1,1 @@
+Artículo 4º—El producto de tales emisiones se destinará a financiar exclusivamente los programas indicados en la emisión y autorizados por la Contraloría, que por ley corresponde desarrollar a la Municipalidad.

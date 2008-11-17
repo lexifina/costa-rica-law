@@ -1,0 +1,1 @@
+Artículo 12.—La colocación de Bonos Municipales podrá realizarla la Municipalidad a través de sus oficinas o utilizando los servicios de agentes colocadores autorizados o bien, de un fiduciario, con los cuales firmará un contrato en el cual se definirán los términos convenidos en cuanto a publicidad y promoción, colocación y atención del servicio de deuda bonificada.

@@ -1,0 +1,1 @@
+Artículo 30.—En lo no dispuesto en este Reglamento aplicará supletoriamente la legislación vigente, así como las demás disposiciones reglamentarias establecidas por la Contraloría General de la República, los pronunciamiento vinculante de la Procuraduría General de la República y demás entidades competentes.
