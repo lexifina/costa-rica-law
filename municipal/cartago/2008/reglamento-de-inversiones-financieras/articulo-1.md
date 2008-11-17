@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE CARTAGO
+Se avisa que el Concejo Municipal, en sesión ordinaria el día cuatro de noviembre del dos mil ocho, acta Nº 194-08, artículo número 40, acordó: “Aprobar por el fondo los proyectos de Reglamento para la emisión de bonos municipales y proyecto de Reglamento de inversiones financieras. Publíquese esta aprobación en el Diario Oficial La Gaceta, indicándose expresamente que no se recibieron oposiciones a los proyectos y que su texto íntegro consta en el Diario Oficial La Gaceta Nº 137 del 16 de julio del 2008. Con dispensa de trámites de comisión”. Acuerdo definitivamente aprobado
+(NOTA DE SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en La Gaceta N° 137 del 16 de julio de 2008)
+REGLAMENTO DE INVERSIONES FINANCIERAS
+MUNICIPALIDAD DE CARTAGO
+Que en aras de establecer una sana práctica administrativa, se hace necesario que la Administración disponga de un instrumento que defina las políticas que en materia de Inversiones Financieras, oriente y regule la colocación de los recursos financieros temporalmente ociosos de la Institución.
+Que la administración del efectivo de la Municipalidad debe realizarse bajo un marco de control, que permita colocar y negociar los excedentes financieros temporales, de tal manera que se logre maximizar el rendimiento de los dineros invertidos, atenuando los niveles de riesgos que puedan presentarse en el mercado bursátil y bancario.
+Que el contenido del documento se fundamenta en las normas de Control Interno, establecidas por la Contraloría General de la República, mediante oficios números: Informe SEP-8-82, Informe SEP-150-84, Informe 107-90, Informe 80-88, Informe 2-91, Informe 125-95, Informe 152-95, Informe 3-96, Informe 44-96, Oficio 10160-97 (DAJ-1496), Oficio DAJ-2471-96 y Oficio DAJ-2310-96, los cuales precisan los alcances y regulaciones establecidas en esta materia.
+Que el reglamento definirá claramente las funciones y responsabilidades que debe ejecutar cada uno de los actores involucrados en el proceso que se realiza para llevar a cabo la colocación, autorización y registro de los recursos invertidos.
+Por lo que el Concejo Municipal acordó en sesión extraordinaria celebrada el 5 de junio del 2008, en el Acta Nº 163-08, artículo 2, autorizar a la Administración, a emitir e implementar el Reglamento de Inversiones Financieras, que se leerá como sigue:
+MUNICIPALIDAD DE CARTAGO
+REGLAMENTO DE INVERSIONES FINANCIERAS
+CAPÍTULO PRIMERO
+Disposiciones generales
+Artículo 1º—Alcance de la normativa
+a) El presente Reglamento norma la inversión de los recursos financieros que administra la Municipalidad de Cartago y que percibe por concepto tributos y transferencias corrientes y de capital. Precisa los alcances y regulaciones establecidas en la Ley de Control Interno Nº 8292 y las emitidas por la Contraloría General de la República, en el tema de Inversiones Financieras. Define y da cumplimiento a las políticas que determine la Municipalidad para la colocación y negociación de sus excedentes financieros temporales.
+b) De la legislación vigente. Las disposiciones de este Reglamento se regirán por las normas establecidas en la Ley Reguladora del Mercado de Valores y sus reformas, Ley Financiera de la República, Ley General de Administración Pública, y el Código Municipal. Supletoriamente a estas leyes se aplicarán las resoluciones y disposiciones que en la materia emita la Contraloría General de la República, y la Autoridad Presupuestaria.

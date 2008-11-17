@@ -1,0 +1,1 @@
+Artículo 12.—Las sanciones que correspondan, según lo indicado en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través del Área de Recursos Humanos, conforme lo establece la Convención Colectiva, el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicios de esta Municipalidad.

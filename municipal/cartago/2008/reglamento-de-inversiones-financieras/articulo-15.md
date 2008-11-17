@@ -1,0 +1,2 @@
+Artículo 15.—Disposiciones finales. De conformidad con el artículo 43 del Código Municipal se somete a consulta pública no vinculante por un plazo mínimo de diez días hábiles. Los interesados en hacer oposiciones al mismo, deberán dirigir sus planteamientos por escrito, en memorial razonado, ante el Despacho del Alcalde Municipal, ubicado en el Edificio Central en la ciudad de Cartago.
+Ordénese por el despacho del Alcalde Municipal la publicación de este Reglamento en el Diario Oficial La Gaceta.
