@@ -1,0 +1,1 @@
+Artículo 23.—Controles y registros. Los sistemas que soportan los servicios electrónicos dispondrán de controles, registros y bitácoras que permitan verificar los actos de los sujetos que intervienen en el sistema transaccional.

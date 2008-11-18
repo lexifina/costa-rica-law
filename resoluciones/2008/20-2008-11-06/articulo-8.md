@@ -1,0 +1,6 @@
+Artículo 8º—Responsabilidad por el uso de la clave de acceso de usuario.
+1. El uso de la clave es responsabilidad exclusiva del usuario
+2. A partir del momento en que el usuario haya leído y esté enterado de las condiciones establecidas en la presente resolución, podrá hacer uso de los servicios utilizando para ello la clave de acceso.
+3. El usuario acepta y reconoce que al ser la clave de acceso un medio de identificación personal; los trámites y/o servicios que gestione, así como los datos que transmita con su clave, surten los mismos efectos legales y tributarios que las leyes otorgan a los documentos firmados por su puño y letra.
+4. En ningún caso los eventuales daños en su sistema informático, la pérdida u olvido de la clave de acceso confidencial o la modificación de ésta, por parte del usuario, constituirán causales de justificación de la extemporaneidad en el cumplimiento de sus obligaciones y deberes o en la presentación de sus trámites y peticiones en general.
+5. El usuario deberá actuar con la debida diligencia y tomar las medidas de seguridad necesarias para mantener su clave bajo estricto control y evitar toda utilización no autorizada. En caso de riesgo sobre la confidencialidad de la clave deberá proceder inmediatamente, bajo su responsabilidad, al cambio de la misma conforme al artículo 7º de la presente Resolución.

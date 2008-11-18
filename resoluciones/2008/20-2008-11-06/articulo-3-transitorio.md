@@ -1,0 +1,1 @@
+Transitorio III.—Mientras la Administración Tributaria no pueda consultar el Registro Mercantil, a fin de verificar los poderes por medios electrónicos; los usuarios están obligados a presentar los poderes en formato impreso.

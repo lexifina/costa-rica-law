@@ -1,0 +1,1 @@
+Artículo 24.—Alcances y limitaciones. Los servicios electrónicos brindados por medio del sitio Web de Tributación Digital, tendrán los alcances y las limitaciones según el trámite particular de que se trate y se regirán por los procedimientos y los plazos que las leyes establezcan.
