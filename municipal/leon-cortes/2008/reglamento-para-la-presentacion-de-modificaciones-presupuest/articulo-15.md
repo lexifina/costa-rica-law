@@ -1,0 +1,1 @@
+Artículo 15.—Cada Modificación Presupuestaria deberá contener un número consecutivo en cada documento, y un expediente, cuya custodia estará a cargo del Departamento de Contabilidad de la Municipalidad.

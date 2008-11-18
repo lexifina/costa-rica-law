@@ -1,0 +1,1 @@
+Artículo 18.—Los funcionarios designados por el Jerarca institucional para el manejo y operación del Sistema Integrado de Presupuestos Públicos (SIPP), deberán comunicar al ente contralor por medio este, sobre la modificación presupuestaria, como máximo dentro del período comprendido por cinco días hábiles posteriores a la aprobación.
