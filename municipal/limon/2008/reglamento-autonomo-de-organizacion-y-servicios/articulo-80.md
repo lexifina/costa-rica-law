@@ -1,0 +1,15 @@
+CAPÍTULO XV
+De las licencias
+Artículo 80.—Siendo un derecho del funcionario(a) de la Municipalidad, podrá solicitar licencia ocasional o de excepción en los siguientes casos:
+Las licencias por regla general, serán sin goce de sueldo, no obstante tratándose de casos especiales contemplados en el Código Municipal, podrán concederse con el disfrute de la retribución correspondiente.
+a) Situaciones familiares del servidor(a): Licencia por seis días hábiles en caso de matrimonio del funcionario(a) fallecimiento de cualquiera de sus padres, hijos (as), hermanos (as), cónyuge o compañero(a), legalmente reconocido seis días hábiles.
+Al padre en caso del nacimiento de su hijo(a): dos días hábiles adopción de un (una) menor; dos días hábiles. En estos casos, el funcionario(a) deberá presentar la boleta de la concesión de la licencia y el día de su regreso deberá presentar los documentos probatorios pertinentes, remitiéndose para su archivo al expediente personal a la oficina de Recursos Humanos.
+Otros previstos en el artículo 34 de la Convención Colectiva de Trabajo vigente.
+Los documentos probatorios serán cuando menos los siguientes: según el caso, certificado o constancia de matrimonio, certificado de defunción, acta de nacimiento o de adopción.
+b) Actividades sindicales: La Municipalidad podrá otorgar licencias, que no podrán exceder de los términos, ni violentar las formas, previstos en la Convención Colectiva de Trabajo vigente, a los (las) afiliados (as) y dirigentes del sindicato que cuente con mayoría de afiliados (as) en la Municipalidad, para asistir a seminarios, cursos de capacitación o de documentos probatorios que se consideren pertinentes.
+Otras actividades del servidor(a)
+1. El Alcalde(sa) podrá otorgar licencias que no excedan de tres meses, para que los funcionarios (as) acojan las invitaciones de gobiernos o de organismos internacionales, para viajes de representación o participación en seminarios, congresos o actividades similares.
+2. Hasta por quince días al servidor(a) que haya sido designado para representar al país, tanto en el interior con en el extranjero, en actividades culturales, académicas o deportivas; siempre y cuando se adopte certificación del Ministerio de Cultura, Juventud y Deportes de la oficialidad del evento y de la escogencia del funcionario para dicho evento.
+c) En los demás casos de licencias
+1. Serán tramitados por él (la) responsable de la Dependencia, quien dependiendo del tipo de licencia solicitada por el servidor (a) procederá a trasladar la petición a la Oficina de Recursos Humanos, para que determine si corresponde otorgarla sin goce de sueldo, con goce de sueldo o se deducirá de su período de vacaciones. En este último caso el número de días de la licencia no podrá exceder del número de días de vacaciones con que cuenta el funcionario(a) en el momento de otorgarse el permiso.
+El servidor(a) deberá presentar los documentos probatorios pertinentes, los cuales el coordinador(a) de la dependencia enviará junto con la boleta de solicitud de la licencia a la Oficina de Recursos Humanos para trámite y archivo en el expediente personal.
