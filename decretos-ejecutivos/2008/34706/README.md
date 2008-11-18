@@ -14,3 +14,4 @@ Reglamento al artículo cinco de la Ley Nº 7293 denominada “Ley Reguladora de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-29 | la propia norma |
+| 2 | 2008-11-18 | Decreto Ejecutivo 35242 (2008-11-18) |
