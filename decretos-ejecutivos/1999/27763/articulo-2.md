@@ -17,7 +17,7 @@ f) Viveros y bancos de yemas |
 g) Compañías de insumos agrícolas y equipos de aplicación |
 h) Reempaque y reenvase |
 3. Inscripción de insumos agrícolas y equipos de aplicación | 16.500,00
-4) Acreditación de Agencias Certificadora | 154.150,00
+4) Acreditación de Agencias Certificadoras y de Sistemas de Certificación Participativa o Sistemas de Garantía Participativa (Así reformado el inciso anterior por el artículo 62° del decreto ejecutivo N° 35242 del 18 de noviembre del 2008) | 154.150,00
 5) Por autorización de desalmacenaje de insumos |
 agrícolas o equipos de aplicación repuestos | 2.750,00
 6) Por Inspección de: |
