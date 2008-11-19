@@ -1,6 +1,6 @@
 # Ley Reguladora de la Jurisdicción Contencioso Administrativa
 
-Ley N° 3667 del 1966-03-12. SINALEVI, ficha 7331: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7331&param2=70607&param3=1>.
+Ley N° 3667 del 1966-03-12. SINALEVI, ficha 7331: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7331&param2=75210&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2003-05-02 | Sala Constitucional, resolución 3481 (2003-05-02) | 2003-05-02 |
 | 4 de 6 | 2004-10-29 | Ley 8422 | 2004-10-06 |
 | 5 de 6 | 2008-01-01 | Ley 8508 | 2006-04-28 |
+| 6 de 6 | 2008-11-19 | Sala Constitucional, resolución 17306 (2008-11-19) | 2008-11-19 |

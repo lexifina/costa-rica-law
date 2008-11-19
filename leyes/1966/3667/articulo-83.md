@@ -7,6 +7,6 @@ Artículo 83.-
 6. Los plazos de formalización de la demanda y contestación, serán de quince días.
 7. Las defensas previas deberán invocarse en el escrito de contestación.
 8. El plazo para evacuar la prueba pertinente, que habrá de ofrecerse en los escritos de demanda y contestación, será de diez días.
-9. En ningún caso se accederá a la suspensión de la ejecución del acto o disposición impugnados
+9. (Anulado este inciso mediante resolución de la Sala Constitucional N° 17306 del 19 de noviembre de 2008. Indica la Sala que “…de conformidad con lo dispuesto en el artículo 93 de la Ley de la Jurisdicción Constitucional , el efecto retroactivo de la anulación no se aplica respecto de aquellas relaciones o situaciones jurídicas que se hubieren consolidado por prescripción o caducidad, en virtud de sentencia pasada [sic] en autoridad de cosa juzgada material o por consumación en los hechos, cuando éstos fueren material o técnicamente irreversibles, o cuando su reversión afecte seriamente derechos adquiridos de buena fe”. )
 10. Contra lo que resolviere en definitiva el Tribunal, se dará recurso de casación, según la cuantía.
 11. Cuando la resolución final fuere favorable total o parcialmente al contribuyente y éste se hubiere visto obligado a pagar, la Administración demandada vendrá obligada a reconocer intereses sobre la suma respectiva, desde el momento del depósito al día de su devolución.
