@@ -20,3 +20,4 @@ División Territorial Administrativa
 | 5 | 2004-04-14 | Decreto Ejecutivo 31772 (2004-04-14) |
 | 6 | 2004-05-24 | Decreto Ejecutivo 31871 (2004-05-24) |
 | 7 | 2008-10-16 | Decreto Ejecutivo 34848 (2008-10-16) |
+| 8 | 2008-11-19 | Decreto Ejecutivo 34913 (2008-11-19) |

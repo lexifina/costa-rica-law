@@ -925,10 +925,14 @@ Leyes y decretos de creación y modificaciones:
 Distritos:
 215 01 SAN RAFAEL: Ciudad: 10°40'31" LAT.N./ 84°49'23" LONG. O. ALTITUD: 50 m.
 Poblados: Betania, Buenos Aires, Curirre, Edén (parte), El Sol, Flor, Garita, Guayabo, Maquencal, Margarita, Muerte, Palmera, Pataste, Pataste Abajo, Puerto Nuevo, Samén Arriba, San Luis, Santa Fé, Tonjibe, Treminio, Triunfo, Viento Fresco.
-215 02 BUENAVISTA: Villa: 10°44'40" LAT.N./ 84°50'02" LONG. O. ALTITUD: 42 m.
-Poblados: Ceibas, Charco, Colonia Naranjeña, Costa Ana, Guayabito, Katira, La Paz, Letras, Llano Bonito, Mónico, Palmera, Río Celeste, Samén Abajo, San José, San Miguel, Tiales, Tujankir 1, Tujankir 2, Unión, Valle.
+(*)215 02 BUENAVISTA: Villa: 10°44'40" LAT.N./ 84°50'02" LONG. O. ALTITUD: 42 m.
+Poblados: Ceibas, Charco, Costa Ana, Guayabito, Mónico, Samén Abajo, San José, San Miguel, Tiales.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34913 de 19 de noviembre de 2008).
 215 03 COTE: Cabanga. Villa: 10°36'42" LAT.N./ 84°51'04" LONG. O. ALTITUD: 310 m.
 Poblados: Altagracia, Alto Sahíno, Bajo Cartagos, Pato, Pejibaye, Pimiento, Quebradón.
+(**)215 04 KATIRA : Villa Katira (cabecera)
+Poblados: Cabaña (parte), Colonia Naranjeña, El Valle, Florida, Las Letras, La Paz , La Unión , Llano Bonito 1, Llano Bonito 2, Palmera, Río Celeste, Tujankir 1, y Tujankir 2.
+(**)(Creado por el artículo 1° del decreto ejecutivo N° 34913 de 19 de noviembre de 2008).
 Hojas del mapa básico, 1:50 000(IGN): Arenal, Guatuso, Miravalles, Monterrey, San Jorge, Tierras Morenas, Zapote.
 PROVINCIA DE CARTAGO
 CANTÓN 301: CARTAGO
