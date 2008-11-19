@@ -1,0 +1,4 @@
+Artículo 3º—Asistencia a las sesiones del Comité. La asistencia a las sesiones del CGTI serán obligatorias para los titulares que lo integran, quienes sólo podrán excusarse por justa causa, previa designación del sustituto, lo que se hará ante el Coordinador, sin que la sustitución pueda ser permanente. La eventual excusa no implicará que no se asuma la responsabilidad por las decisiones que se toman.
+En ausencia temporal de alguno de sus miembros, estos serán sustituidos por quien haya sido designado con anterioridad.
+Eventualmente, se podrá convocar a otros representantes de las unidades, que por la naturaleza de los asuntos a tratar, se requiera de su experticia. Éstos, tendrán voz pero no voto en la toma de decisiones.
+Además, en el momento que el CGTI lo requiera podrá solicitar la colaboración de la Auditoría General y la Asesoría Legal, dentro del ámbito de su competencia.

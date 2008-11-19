@@ -1,0 +1,1 @@
+Artículo 10.—Del quórum y los acuerdos. El Comité Gerencial de Tecnologías de Información podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos serán aprobados por simple mayoría de los presentes.
