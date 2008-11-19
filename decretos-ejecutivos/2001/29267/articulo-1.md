@@ -1340,8 +1340,12 @@ Leyes y decretos de creación y modificaciones:
 -Ley 4574 de 4 de mayo de 1970 (la villa San Pablo adquiere el título de ciudad, artículo 3 Código Municipal).
 -Ley 7894 de 8 de julio de 1999 (límite con el cantón San Isidro).
 Distritos:
-409 01 SAN PABLO: Ciudad. 09°59'53" LAT. N./ 84°05'54" LONG. O. ALTITUD: 1 200 m.
-Barrios: Cruces, Estrella, Irma, María Auxiliadora (parte), Miraflores, Nueva Jerusalém, Pastoras, Puebla, Rincón de Ricardo, Uriche.
+(*)409 01 SAN PABLO: Ciudad. 09°59'53" LAT. N./ 84°05'54" LONG. O. ALTITUD: 1 200 m.
+Barrios: Cruces, Irma, María Auxiliadora (parte), Nueva Jerusalém, Pastoras, Puebla, Uriche.
+(*) (Reformado mediante el artículo 1° del decreto ejecutivo N° 34914 de 19 de noviembre de 2008)
+(**)409 02 RINCON DE SABANILLA: Villa Miraflores (Cabecera)
+Poblados: Corobicí, Estrella, Rincón de Ricardo y Santa Fe.
+(**) (Creado mediante el artículo 1° del decreto ejecutivo N° 34914 de 19 de noviembre de 2008)
 Hojas del mapa básico 1:50 000(IGN): Abra, Barva.
 Hojas del mapa 1:10 000(IGN): Burío, Cubujuquí, La Hoja, Turales, Uriche.
 CANTÓN 410: SARAPIQUÍ
