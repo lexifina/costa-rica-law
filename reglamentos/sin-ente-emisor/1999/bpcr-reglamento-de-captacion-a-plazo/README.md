@@ -13,3 +13,4 @@ BPCR: Reglamento de Captación a Plazo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-29 | la propia norma |
+| 2 | 2008-11-19 | Ley 7 |
