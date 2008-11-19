@@ -14,3 +14,4 @@ Estudios hidrogeológicos para el trámite de perforación de pozos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-01 | la propia norma |
+| 2 | 2008-11-19 | Acuerdo 3672 (2008-12-02) |

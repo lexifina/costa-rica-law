@@ -9,30 +9,13 @@ Que la Contraloría General de la República en el informe FOE-PGA-42/2007 de la
 f) En atención del principio precautorio, denegar las solicitudes de nuevos permisos de perforación de pozos y concesiones de agua que no estén respaldadas con información técnica suficiente y confiable, que garantice la disponibilidad del recurso para el consumo humano actual y futuro.
 Que el Dept. de Aguas del MINAE por medio de nota IMN-DA-0407-08, le indica a la gerencia del SENARA, que se debe proceder a aplicar los principios que la Contraloría General de la República menciona en el informe FOE-PGA-49/02/2007.
 Estudios Hidrogeológicos para el trámite de perforación de pozos
-Geología local a escala 1:50.000 con sus respectivos
-perfiles geológicos. si
-Información existente de pozos, manantiales y captaciones superficiales
-en base de datos institucionales MINAE, AyA, SENARA y otras). si
-Levantamiento de pozos en el campo: medición de
-niveles estáticos o dinámicos, diseño de pozos, profundidad, tipo, si
-uso del agua. Los pozos se tienen que georeferenciar con
-algún sistema de posicionamiento global(GPS). si
-Determinación in situ de las siguientes características hidráulicas
-del acuífero: conductividad hidráulica, porosidad, evidencias de
-niveles freático sub-superficiales. (para cada caso el geólogo
-evaluador definirá la cantidad a realizar). ACG
-Determinación de las características hidráulicas del acuífero
-en función de la información existente. ACG
-Realizar un modelo hidrogeológico conceptual que incluya:
-Tipo de acuíferos, espesor de los acuíferos, parámetros
-hidráulicos de los acuíferos, nivel freático o piezométrico,
-curvas equipotenciales del agua subterránea, dirección del
-flujo del agua subterránea, cálculo del gradiente hidráulico y
-perfiles hidrogeológicos. si
-Determinación de la demanda agua del proyecto a ejecutar. si
-Determinación de la oferta y demanda en el sistema hídrico. ACG
-Estudios específicos para determinar el efecto en el sistema
-(Interferencia de pozos ) En caso de pozos en zonas costeras,
-determinación el efecto de intrusión salina. si
-Declaración jurada de los estudios entregados si
-ACG = A criterio del Geólogo del SENARA
+a) Descripción de la geología y mapa geológico a escala 1:50.000 con sus respectivos perfiles geológicos que contenga la ubicación de la propiedad y sitio propuesto del pozo a perforar. Las coordenadas del sitio a perforar deben ser tomadas en campo con GPS o por levantamiento topográfico.
+b) Información técnica existente de pozos y manantiales registrados en la base de datos del Archivo Nacional de Pozos de SENARA, del A y A y del Departamento de Aguas del MINAET. En el caso de los pozos la información técnica que se debe presentar es: transmisividad in situ, coordenadas en proyección Lambert Norte, profundidad del pozo, columna litológica, ubicación de niveles freáticos o piezométricos, caudal otorgado, uso, propietario, coordenadas, fecha de perforación. En el caso de los manantiales la información técnica que se debe presentar es: ubicación, propietario, altitud, caudal, uso).
+c) Presentar un modelo hidrogeológico conceptual, con base en la información recabada. Entiéndase como modelo hidrogeológico conceptual, la presentación de los acuíferos que existen en la zona donde se pretende perforar, definir cuál acuífero se captará y el tipo de acuífero (si es libre, confinado o semiconfinado) y el estado del mismo. La presentación del modelo hidrogeológico conceptual puede realizarse con base en mapas y perfiles hidrogeológicos que contengan las ubicaciones de los niveles de aguas y direcciones de flujo del acuífero a captar.
+d) Aportar los parámetros hidráulicos a partir de pruebas de bombeo existentes en los registros de pozos o realizar una prueba de bombeo en pozos cercanos al sitio de nueva perforación, según el modelo hidrogeológico, con el fin de contar con los parámetros hidráulicos. En el caso de que los particulares no den permiso para realizar la prueba, o no existan pozos cercanos, así debe indicarse.
+e) Determinación de la demanda de agua (caudal pretendido explotar) y el uso que se le dará.
+f) En caso que se trate de pozos que se vayan a ubicar a menos de 1000 metros de distancia de la costa, se debe incluir un estudio de evaluación del riesgo de intrusión salina.
+g) En caso de que existan pozos registrados, ríos o nacientes a menos de 100 metros del sitio propuesto para la perforación, debe incluirse estudio de interferencia entre pozos, río o naciente.
+h) El geólogo responsable debe informar sobre posibles fuentes de contaminación cercanas al sito propuesto de la perforación, como son tanques sépticos, plantas de tratamiento, gasolineras, plantaciones de cultivos en donde se use agroquímico, recintos de almacenaje de químicos o agroquímicos, así como indicar las medidas propuestas para evitar posible contaminación.
+i) Declaración Jurada autenticada por abogado, suscrita por el interesado o representante legal, por el representante legal de la empresa perforadora y por el geólogo responsable de la perforación, que indique si en el sitio propuesto para la perforación se encuentra a menor distancia de cuarenta metros de edificios ajenos, de un ferrocarril o carretera, ni a menos de cien metros de otro alumbramiento o fuente, río, canal, acequia o abrevadero público (artículo 8 de la Ley de Aguas Nº 276)
+(Así reformados los requisitos anteriores para la perforación de pozos mediante acuerdo N° 3672 del 2 de diciembre de 2008)
