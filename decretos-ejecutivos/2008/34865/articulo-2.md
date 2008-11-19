@@ -1,0 +1,6 @@
+Artículo 2º—Refórmese el encabezado y el inciso a) del artículo 6º del Decreto Ejecutivo Nº 22851-MOPT y sus reformas, para que en adelante se lea de la siguiente manera:
+“Artículo 6º—Para la obtención de las licencias Tipo B, las pruebas deberán realizarse únicamente con vehículos de transmisión manual cuyas características se detallan a continuación:
+a) Licencia Tipo B-1; vehículo con placa particular o de carga liviana (CL), cuya carga útil se encuentre comprendida entre 0 kg y 1.500 kg.
+b) …
+c) …
+d) ….”
