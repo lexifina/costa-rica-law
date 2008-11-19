@@ -1,0 +1,1 @@
+Artículo 2º—Para el óptimo desarrollo de este evento, se insta a todas las dependencias del Gobierno, Ministerios e Instituciones afines, para que brinden toda la ayuda y colaboración necesaria, dentro del marco de sus posibilidades materiales y el ámbito de sus respectivas competencias.
