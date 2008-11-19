@@ -1,4 +1,5 @@
-Parámetros para la gestión del Tramo Permanente
+(*)Parámetros para la gestión de los Tramos Intermedio y Permanente
+(*)(Así reformado el título anterior mediante sesión N° 5403 del 19 de noviembre de 2008)
 Artículo 19.—Características de los instrumentos. Los pasivos con costo que se emitan como parte del Tramo Permanente tendrán las siguientes características:
 a) Estarán denominados en colones ó en unidades de desarrollo.
 b) Se podrán emitir los siguientes tipos de instrumentos:
@@ -9,3 +10,5 @@ b) Se podrán emitir los siguientes tipos de instrumentos:
 c) En todos los casos se emitirán instrumentos tipo bullet, es decir cuya cancelación se realiza en un solo pago al vencimiento.
 d) No se emitirán pasivos en moneda extranjera, salvo que sea expresamente autorizado por la Junta Directiva del Banco Central.
 e) Las nuevas emisiones a un año plazo o más se efectuarán en los meses de enero, abril, julio y octubre. Dependiendo del plazo de las emisiones, se podrán seleccionar todas o algunas de esas fechas focales. Las nuevas emisiones a 6 meses plazo se efectuarán bimensualmente.
+Los pasivos con costo que se emitan como parte del Tramo Intermedio estarán denominados en colones, en instrumentos con plazo al vencimiento de un año o menos.
+(Así adicionado el párrafo anterior mediante sesión N° 5403 del 19 de noviembre de 2008)

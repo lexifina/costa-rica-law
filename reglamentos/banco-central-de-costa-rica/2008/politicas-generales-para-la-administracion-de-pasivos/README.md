@@ -14,3 +14,4 @@ Políticas Generales para la Administración de Pasivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-15 | la propia norma |
+| 2 | 2008-11-19 | Reglamento 5403 (2008-11-19) |
