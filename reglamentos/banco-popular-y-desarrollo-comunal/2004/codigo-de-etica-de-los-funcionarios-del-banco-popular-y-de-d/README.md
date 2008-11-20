@@ -14,3 +14,4 @@ Código de Etica de los Funcionarios del Banco Popular y de Desarrollo Comunal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-09 | la propia norma |
+| 2 | 2008-11-20 | Reglamento 4626 (2008-11-20) |

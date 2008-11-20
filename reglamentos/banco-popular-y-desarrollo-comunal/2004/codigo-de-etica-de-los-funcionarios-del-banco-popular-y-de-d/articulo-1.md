@@ -1,4 +1,6 @@
+(Derogado)
 BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Este Reglamento fue derogado por el artículo 16 del Código de Ética del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, aprobado mediante sesión N° 4626 del 20 de noviembre del 2008)
 La Junta Directiva Nacional en sesión ordinaria Nº 4252, celebrada el 19 de octubre del 2004, acordó por unanimidad:
 Ratificar la aprobación del Código de Ética de los Funcionarios del Banco Popular y de Desarrollo Comunal, tomando en cuenta las modificaciones de los cuatro artículos mencionados.
 El texto del Código de Ética es el siguiente:
