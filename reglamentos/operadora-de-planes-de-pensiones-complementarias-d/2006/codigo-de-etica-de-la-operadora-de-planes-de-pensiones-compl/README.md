@@ -14,3 +14,4 @@ Código de Ética de la Operadora de Planes de Pensiones Complementarias del Ban
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-25 | la propia norma |
+| 2 | 2008-11-20 | Reglamento 4626 (2008-11-20) |

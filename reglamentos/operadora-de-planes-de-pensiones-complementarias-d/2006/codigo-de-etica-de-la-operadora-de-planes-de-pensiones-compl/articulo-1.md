@@ -1,5 +1,7 @@
+(Derogado)
 OPERADORA DE PLANES DE PENSIONES
 COMPLEMENTARIAS POPULAR PENSIONES
+(Este Reglamento fue derogado por el artículo 16 del Código de Ética del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, aprobado mediante sesión N° 4626 del 20 de noviembre del 2008)
 La Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima, en sesión ordinaria Nº 216, acuerdo Nº 053, celebrada el miércoles 15 de marzo del 2006, acordó por unanimidad:
 Aprobar el Código de Ética de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima, en los términos que se indican a continuación:
 CÓDIGO DE ÉTICA OPERADORA DE PLANES DE PENSIONES
