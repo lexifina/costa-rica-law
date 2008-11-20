@@ -14,3 +14,4 @@ Reglamento de Otorgamiento de Becas de Estudio de la Municipalidad del Cantón d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-26 | la propia norma |
+| 2 | 2008-11-20 | Reglamento municipal 69 (2008-11-20) |
