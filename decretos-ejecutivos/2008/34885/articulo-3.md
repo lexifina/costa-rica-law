@@ -1,0 +1,1 @@
+Artículo 3º—Se concederá como incentivo por concepto de desarraigo familiar, el 40% sobre el salario base que devenga el funcionario, siempre que se cumplan las condiciones establecidas para gozar de dicho incentivo.

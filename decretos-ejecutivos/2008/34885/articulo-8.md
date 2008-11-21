@@ -1,0 +1,1 @@
+Artículo 8º—Será competencia de la Comisión fiscalizar e implementar los mecanismos idóneos de control, a fin de determinar la procedencia del beneficio otorgado y el cumplimiento de la normativa establecida. Para tal fin realizará las acciones tendientes a aplicar las medidas administrativas, penales y civiles que correspondan.

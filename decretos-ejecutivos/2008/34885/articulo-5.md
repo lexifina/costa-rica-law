@@ -1,0 +1,1 @@
+Artículo 5º—Créase la Comisión de Desarraigo Familiar, la cual estará conformada por él, o la Coordinadora de la Gestión de Recursos Humanos del SINAC quien la presidirá; un representante del Departamento Financiero Contable del SINAC, y un Asesor Legal del SINAC designado por la Dirección Ejecutiva del Sistema.
