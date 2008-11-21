@@ -1,2 +1,2 @@
-ARTÍCULO 108.- Cuando se trate de una obra artística y única, tal como un cuadro o un busto, un retrato, una pintura, un dibujo u otra obra plástica, el depósito se hará entregando una relación de sus características, acompañando fotografías de frente y de perfil, según el caso.
-Para inscribir planos, croquis, mapas, fotografías y fonogramas, se depositará una copia o ejemplar en el Registro Nacional de Derechos de Autor y Conexos.
+Artículo 108.- Cuando se trate de una obra artística y única, tal como un cuadro o un busto, un retrato, una pintura, un dibujo u otra obra plástica, el depósito se hará entregando una relación de sus características, acompañado de fotografías de frente y de perfil, según el caso. Para inscribir planos, croquis, mapas, fotografías y fonogramas, se depositará una copia o ejemplar ante un depositario, conforme al reglamento.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)
