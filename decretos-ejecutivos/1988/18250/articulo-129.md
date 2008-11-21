@@ -1,2 +1,2 @@
-Artículo 129.-De conformidad con lo dispuesto por el artículo 25 de la Ley Nº 7476, según la gravedad de la falta se impondrán las siguientes sanciones: La falta leve será sancionada con amonestación por escrito, la falta grave con la suspensión sin goce de salario de tres a quince días o el despido sin responsabilidad patronal.
+Artículo 129.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

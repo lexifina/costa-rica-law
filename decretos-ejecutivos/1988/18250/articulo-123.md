@@ -1,2 +1,2 @@
-Artículo 123.-El órgano director deberá conducir el procedimiento bajo los principios de celeridad, eficiencia y absoluta confidencialidad y pedir el apoyo de cualquier personal calificado que estime necesario para su asesoría. El plazo del procedimiento no podrá exceder de tres meses contados a partir de la interposición de la denuncia por hostigamiento. El incumplimiento a las disposiciones anteriores será considerado como falta grave y sancionado según lo estipulado en el artículo 77 del Reglamento de Organización y Servicio del MOPT.
+Artículo 123.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

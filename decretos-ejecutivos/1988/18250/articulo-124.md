@@ -1,2 +1,2 @@
-Artículo 124.-En caso de que se den motivos de abstención o recusación se procederá conforme a las disposiciones del Título Segundo del libro segundo de la Ley General de la Administración Pública.
+Artículo 124.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

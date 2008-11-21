@@ -1,2 +1,2 @@
-Artículo 121.-La persona ofendida podrá agregar a su denuncia la solicitud para su reubicación temporal en la Institución, teniendo la posibilidad de plantearla en cualquier estado del proceso; así como solicitar ayuda de profesionales médicos de la institución, si considera que su salud mental y física ha sido afectada.
+Artículo 121.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

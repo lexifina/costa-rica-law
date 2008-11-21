@@ -1,6 +1,2 @@
-Artículo 119.- En cumplimiento de las disposiciones de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia el Ministro con el apoyo de los órganos competentes de la Institución dispondrá y ejecutará una política interna para prevenir, desalentar, evitar y sancionar las conductas de hostigamiento sexual tal y como las define dicha ley especial en sus artículos 3º y 4º.
-Dentro de los mecanismos de prevención deberán ejecutarse acciones de divulgación y capacitación de los alcances de la ley que estará a cargo de las siguientes dependencias:
-a)Dirección General de Recursos Humanos: quien velará por incorporar dentro de sus programas de inducción a funcionarios nuevos los aspectos concernientes al hostigamiento sexual.
-b)Dirección General de Capacitación: la cual empleará todos los medios usuales de capacitación como charlas, métodos informativos, seminarios etc., para que todos los funcionarios estén informados de sus deberes y derechos derivados de la Ley Nº 7476.
-El incumplimiento de estas funciones hará incurrir a los funcionarios indicados en responsabilidad, que será considerada falta grave conforme a lo que estipula el artículo 77 del Reglamento Autónomo de Organización y Servicio del Ministerio de Obras Públicas y Transportes en relación con el artículo 38 inciso a) e i) del mismo.
+Artículo 119.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

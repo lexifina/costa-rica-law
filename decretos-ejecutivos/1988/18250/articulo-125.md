@@ -1,2 +1,2 @@
-Artículo 125.-El órgano director debidamente constituido dará traslado de la denuncia a el (la) funcionario (a) denunciado (a), notificándole la apertura del procedimiento y otorgándole un plazo de cinco días hábiles contados a partir del día siguiente de la notificación para que se refiera a los hechos denunciados, ofrezca la prueba de descargo pertinente. Igualmente se le pondrá únicamente, a su disposición y a la de su abogado, si lo considera necesario, el expediente de trámite (el que deberá estar completamente foliado) indicándole el lugar donde podrá consultarlo.
+Artículo 125.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

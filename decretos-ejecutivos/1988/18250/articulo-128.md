@@ -1,2 +1,2 @@
-Artículo 128.-La resolución final deberá notificarse a las partes, otorgándoles el derecho a recurrirla dentro de los tres días hábiles posteriores al día siguiente de efectuada la notificación. Una vez firme y en caso de que proceda la aplicación de sanciones disciplinarias el Ministro pasará el expediente administrativo a la Dirección de Recursos Humanos para el trámite de aplicación de las sanciones.
+Artículo 128.- (Derogado por el artículo 25 del decreto ejecutivo N° 34968 del 21 de noviembre de 2008)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).
