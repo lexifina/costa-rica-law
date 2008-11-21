@@ -15,3 +15,4 @@ Normativa sobre Actividades Autorizadas a los Puestos de Bolsa
 | --- | --- | --- |
 | 1 | 1999-12-20 | la propia norma |
 | 2 | 2008-10-24 | Reglamento 752 (2008-10-24) |
+| 3 | 2008-11-21 | Reglamento 757 (2008-11-21) |
