@@ -1,0 +1,1 @@
+Artículo 2º—Los anteriores contingentes arancelarios, serán administrados bajo la modalidad de primer llegado primer servido. La aplicación de la preferencia se hará al momento del despacho de las mercancías y los volúmenes estarán disponibles hasta que se agoten.

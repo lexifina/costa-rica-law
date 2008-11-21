@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Comercio Exterior, publicará en la primer semana del mes de enero de cada año, un aviso en el Diario Oficial La Gaceta y en un medio de circulación nacional, indicado los volúmenes disponibles.
