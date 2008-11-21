@@ -1,0 +1,1 @@
+Artículo 28.—Asesoría General. Es obligación de la Asesoría Jurídica y de las unidades técnicas brindar asesoría a la Auditoría Interna en forma efectiva y oportuna cuando así lo requiera a fin de establecer adecuadamente su ámbito de acción y atender las necesidades de orden jurídico y técnico conforme al artículo 33, inciso c), de la “Ley General de Control Interno”.

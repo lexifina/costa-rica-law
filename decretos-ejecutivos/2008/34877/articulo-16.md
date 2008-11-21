@@ -1,0 +1,4 @@
+Artículo 16.—Jerarquía.
+a) La Auditoría Interna estará bajo la responsabilidad y dirección del Auditor Interno, quien deberá, entre otros, poseer los conocimientos sobre las disciplinas esenciales y la experiencia requerida para el efectivo ejercicio de sus responsabilidades, cumplir con las normas profesionales de conducta, conocer las disposiciones legales que rigen en general a la Administración Pública, las emitidas por la Contraloría General de la República y el Consejo Nacional de Vialidad.
+b) El Auditor Interno es el responsable directo de disponer de una estructura organizativa de acuerdo a la razón de ser y la normativa que regula la institución, para garantizar una administración eficaz, eficiente y económica de los recursos asignados, de igual forma el cumplimiento de las obligaciones legales y técnicas.
+c) La Auditoría Interna se organizará y funcionará según sus requerimientos, acorde con la normativa que rige su actividad.

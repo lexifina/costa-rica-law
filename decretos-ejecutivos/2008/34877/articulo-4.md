@@ -1,0 +1,5 @@
+CAPÍTULO 2
+Organización de la Auditoría Interna
+Conceptos de la Auditoría Interna
+Artículo 4º—Concepto funcional. La Auditoría Interna es la actividad independiente, objetiva y asesora, que tiene como propósito fundamental proporcionar seguridad en la validez y mejoramiento de las operaciones del CONAVI, mediante la práctica de un enfoque sistemático y profesional que le permite fiscalizar, mejorar el cumplimiento y la efectividad de los procesos de gestión de riesgo, del control y dirección. La Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación de la Administración Activa se realiza con apego a sanas prácticas y al marco jurídico y técnico aplicable. Lo anterior de conformidad con lo que establece el artículo 21 de la Ley Nº 8292.
+La Auditoría Interna es un elemento orgánico del Sistema de Control Interno del CONAVI, por lo tanto le compete evaluar la suficiencia y la validez de dicho Sistema, conforme lo dispuesto en el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público.

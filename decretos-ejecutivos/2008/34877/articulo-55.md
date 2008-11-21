@@ -1,0 +1,1 @@
+Artículo 55.—Sobre la calidad e implantación de las recomendaciones. El papel de la Auditoría estará evaluado principalmente por su aporte en la implantación de las recomendaciones y el valor agregado de la misma, por lo tanto el seguimiento de las recomendaciones es fundamental en su función de asesora y fiscalizadora.

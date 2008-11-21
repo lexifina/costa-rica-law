@@ -1,0 +1,1 @@
+Artículo 10.—Visión. Ser una unidad fiscalizadora, asesora integrada por profesionales comprometidos con una gestión efectiva que genere servicios de calidad, para colaborar con el CONAVI en el cumplimiento de sus objetivos.

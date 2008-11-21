@@ -1,0 +1,1 @@
+Artículo 9º—Misión. Fiscalizar, asesorar y controlar las actividades de la Administración Activa con independencia y objetividad, mediante un enfoque sistemático y de mejora continua, evaluando los sistemas de control interno, valoración de riesgos y dirección del CONAVI en el cumplimiento de sus objetivos.

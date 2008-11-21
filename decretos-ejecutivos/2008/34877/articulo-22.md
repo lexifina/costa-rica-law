@@ -1,0 +1,1 @@
+Artículo 22.—Compensaciones. Debido a las prohibiciones referidas al artículo anterior de este Reglamento, se le pagará al Auditor Interno y al Personal de Auditoría un sesenta y cinco por ciento (65%) sobre el salario base, aplicando los pronunciamientos legales emitidos en este aspecto.

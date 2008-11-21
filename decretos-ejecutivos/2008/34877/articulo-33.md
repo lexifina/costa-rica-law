@@ -1,0 +1,2 @@
+De los servicios de Auditoría
+Artículo 33.—Servicios de la auditoría interna. Los servicios de fiscalización de la actividad de la Auditoría Interna conforme a sus competencias se clasifican en: servicios de auditoría y servicios preventivos. La investigación preliminar para el desarrollo de esos servicios, así como toda aquella información que se recopile debe ser tratada con el mayor cuidado ya que la misma puede contener documentos de carácter privado confidencial y empresarial, los cuales serán analizados por el funcionario encargado del trabajo.

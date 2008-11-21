@@ -1,0 +1,7 @@
+Personal de la Auditoría
+Artículo 20.—Del personal de la Auditoría Interna. La potestad del Auditor Interno en cuanto al personal de la Auditoría Interna contempla:
+a) Las vacantes que por cualquier razón, tengan lugar en los puestos de la auditoría interna, deberán llenarse en el plazo establecido según la “Ley General de Control Interno” en su artículo 28; para lo cual el Auditor Interno ejecutará las acciones que le corresponden oportunamente.
+b) La disminución de plazas por movilidad laboral u otros movimientos en la auditoría interna, deberá ser autorizada por el Auditor Interno.
+c) Los requisitos para la creación y ocupación de plazas de la auditoría interna, deberán considerar sus necesidades reales y no podrán ser aplicados en perjuicio del funcionamiento del Sistema de Control Interno del CONAVI.
+d) En conformidad al artículo 24 de la “Ley General de Control Interno”, el nombramiento, traslado, la suspensión, remoción, concesión de licencias y demás movimientos del personal de la Auditoría Interna debe contar con la autorización del Auditor Interno.
+e) Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan con el ejercicio de sus competencias, con la normativa técnica y jurídica pertinente así como las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la Auditoría Interna) que les sean aplicables.
