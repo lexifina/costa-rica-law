@@ -1,0 +1,2 @@
+Transitorio único.—Los funcionarios que a la fecha de entrada en vigencia de este Reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una copia a la Dirección Administrativa del Tribunal Registral Administrativo.
+Dado en la Presidencia de la República.—San José, a los veinticinco días del mes de agosto del dos mil ocho.

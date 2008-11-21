@@ -1,0 +1,17 @@
+Nº 34864-J
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+En uso de las facultades que les conceden los incisos 3º y 18 del artículo 140 de la Constitución Política; el artículo 28 punto 2, inciso b) de la Ley General de la Administración Pública, y el artículo 74 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual.
+Considerando:
+I.—Que el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8131 de 18 de setiembre de 2001, publicado en La Gaceta Nº 198 de 16 de octubre de 2001, dispone que “Sin perjuicio de las previsiones que deba tomar la Administración, todo encargado de recaudar custodiar o administrar fondos y valores públicos deberá rendir garantía con cargo a su propio peculio, en favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de los deberes y obligaciones de los funcionarios. Las leyes y los reglamentos determinarán las clases y los montos de las garantías, así como los procedimientos aplicables a este particular, tomando en consideración los niveles de responsabilidad, el monto administrado y el salario del funcionario”.
+II.—Que el artículo 110, inciso 1), de esa misma Ley establece como hecho generador de responsabilidad administrativa “El nombramiento de un servidor con facultades de uso y disposiciones de recursos públicos, que no reúna las condiciones exigidas por el ordenamiento jurídico o los manuales y las reglamentaciones internas, o darle al servidor posesión del cargo sin rendir previamente la caución que ordena esta ley”.
+III.—Que el artículo 10 de la Ley General de Control Interno Nº 8292 establece que será responsabilidad del jerarca y de los titulares subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional y el artículo 15, inciso b) numeral ii estipula como parte de los deberes de tales funcionario el de documentar, mantener actualizados y divulgar internamente tanto las políticas como los procedimientos que definan claramente, entre otros asuntos “la protección y conservación de todos los activos institucionales”.
+IV.—Que el Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, en la norma 4.20 establece la responsabilidad de la administración de reglamentar a los interno las clases y los montos de las garantías, así como los procedimientos aplicables sobre el particular.
+V.—Que en atención a las directrices emitidas por la Contraloría General de la República en resolución Nº R-CO-10-2207 de las 13:00 horas del 19 de marzo de 2007, publicada en La Gaceta Nº 64 del 30 de mazo del mismo año, para el caso del Tribunal Registral Administrativo, como órgano integrante de la Hacienda Pública, debe dictarse un reglamento interno en materia de cauciones. Por tanto,
+Decretan:
+El siguiente,
+Reglamento Sobre la Rendición de Cauciones a favor
+del Tribunal Registral Administrativo
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de aplicación. Las disposiciones contenidas en este Reglamento son aplicables a todos aquellos funcionarios del Tribunal Registral Administrativo que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades definidas en el Manual de Puestos de la Institución deben caucionar.

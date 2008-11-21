@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución en favor del Tribunal Registral Administrativo se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas que llegaren a constituirle.
