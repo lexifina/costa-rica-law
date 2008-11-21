@@ -19,3 +19,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 4 | 2008-10-09 | Decreto Ejecutivo 34891 (2008-10-09) |
 | 5 | 2008-10-09 | Decreto Ejecutivo 34893 (2008-10-09) |
 | 6 | 2008-11-12 | Decreto Ejecutivo 34935 (2008-11-12) |
+| 7 | 2008-11-21 | Decreto Ejecutivo 34934 (2008-11-21) |
