@@ -1,0 +1,14 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+ASESORÍA JURÍDICA
+Nº 025-SC.—San José, 11 de noviembre del 2008
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-664-08. Prorrogar la delegación otorgada al funcionario Fernando Bogantes Cruz Director de la Dirección de Recursos Humanos del Ministerio de Educación Pública.
+DG-666-08. Ajuste al nivel salarial con el que se paga el aumento anual a los funcionarios sustantivos de la Procuraduría General de la República, sean quienes ocupan clases de Procurador A y B, Procurador Director y Procurador General Adjunto.
+DG-667-08. Modifica la Resolución DG-55-97 en cuanto a la “Naturaleza del Trabajo” de las clases de puesto Director de Enseñanza Preescolar 1, 2, 3, y los rangos de matrícula de cada una de ellas.
+DG-668-08. Establece los términos de la Negociación Salarial de los Docentes con el Ministerio de Educación en cuanto a aplicar los porcentajes que se dieron para las clases Profesionales y Gerenciales del Título I del Estatuto de Servicio Civil.
+DG-669-08. Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con el fin de incluir la carrera de Licenciatura en Administración de Negocios con énfasis en Contaduría Pública, en el apartado Atinencia Académica de la especialidad Auditoría, así como corrige un error material respectivamente.
+DG-670-08. Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con el fin de incluir la carrera de Licenciatura en Silvicultura Tropical, en el apartado Atinencia Académica de las especialidades Forestal y Protección Ambiental y Manejo de Áreas de Conservación.
+DG-671-08. Modifica el Manual de Clases Anchas, a efecto de que en el apartado de Requisitos de las clases Asistente de Cocina, Cocinero y Encargado de Cocina en lo concerniente al Curso de Manipulación de Alimentos impartido por el Instituto Nacional de Aprendizaje, se elimine la leyenda “Impartido por el Instituto Nacional de Aprendizaje” para que se lea: Curso de Manipulación de Alimentos.
+DG-672-08. Derogar la Resolución DG-115-2002 de las ocho horas cincuenta minutos del día once de junio del dos mil dos. Además modifica el artículo primero de la Resolución DG-027-98.
+DG-675-08. Modifica la Especialidad Educación No Formal, subespecialidad Planeamiento y evaluación de actividades de educación no formal, con el fin de adicionarle atinencia académica.
+Además se informa que se han emitido las resoluciones DG-678-08, DG-679-08, DG-680-08, DG-681-08, DG-682-08, DG-683-08, DG-684-08, DG-685-08 y DG-686-08 con las cuales se prorroga la delegación de firma a los Jefes de Recursos Humanos de las instituciones cubiertas por el Régimen de Servicio Civil, según detalle adjunto: Eddy Fallas, Sandra Amador, Rolando Sánchez, Carmen García, David Solano, Cristhian Méndez, Rocío González, Marta Porras, Miriam Valerio, respectivamente. Publíquese
