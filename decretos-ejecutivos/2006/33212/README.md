@@ -14,3 +14,4 @@ Reglamento Interno del Comité Nacional del Codex y los Subcomités Nacionales d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-17 | la propia norma |
+| 2 | 2008-11-21 | Decreto Ejecutivo 35025 (2008-11-21) |
