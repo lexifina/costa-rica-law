@@ -1,0 +1,2 @@
+Artículo 2. Contenido.
+Establecer un Programa de Trabajo entre las partes, que les permita de manera coordinada, promover y apoyar el desarrollo, crecimiento, estabilidad y competitividad global del sector agropecuario y medio rural, pudiendo contar para su ejecución con la colaboración del sector privado, organismos e instituciones públicas y privadas, con el fin de alcanzar el objetivo señalado en el Artículo 1.
