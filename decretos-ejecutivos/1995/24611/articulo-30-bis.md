@@ -1,0 +1,2 @@
+Artículo 30 BIS.—Se aplicará lo dispuesto en el artículo 52 sobre “Comunicación o puesta a disposición del público de fonogramas, ejecuciones e interpretaciones o emisiones, sin autorización” contenido en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, Ley N° 8039 del 12 de octubre de 2000, a la comunicación al público de interpretaciones o ejecuciones sin autorización del titular o el representante del derecho.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 34904 del 21 de noviembre de 2008)
