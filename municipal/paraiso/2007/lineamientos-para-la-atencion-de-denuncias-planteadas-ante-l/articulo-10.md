@@ -1,0 +1,1 @@
+Artículo 10.—Direccionamiento de las denuncias: La Municipalidad procurará que se atiendan las denuncias que les sean remitidas con sus competencias específicas, de conformidad con lo establecido en la Ley General de Control Interno y demás normativa vigente.

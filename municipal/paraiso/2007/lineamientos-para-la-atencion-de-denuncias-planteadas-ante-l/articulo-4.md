@@ -1,0 +1,1 @@
+Artículo 4º—Presentación de denuncias: Se establecen dos vías para la presentación de denuncias, a saber; al alcalde municipal o al concejo municipal, quienes definirán la admisibilidad de las denuncias presentadas ante la institución, conforme a lo establecido en estos lineamientos.

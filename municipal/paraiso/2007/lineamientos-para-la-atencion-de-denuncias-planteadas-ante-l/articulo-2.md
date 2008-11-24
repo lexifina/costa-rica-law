@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Competencia: La Municipalidad de Paraíso, dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos, todo ello que sea competencia municipal.

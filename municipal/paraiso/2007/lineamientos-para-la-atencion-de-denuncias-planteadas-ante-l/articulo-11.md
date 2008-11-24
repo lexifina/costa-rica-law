@@ -1,0 +1,1 @@
+Artículo 11.—Seguimiento: La Municipalidad determinará los casos en que dará el seguimiento de las denuncias que remita a los diferentes actores, con el fin de que cumplan su obligación de atenderlas.
