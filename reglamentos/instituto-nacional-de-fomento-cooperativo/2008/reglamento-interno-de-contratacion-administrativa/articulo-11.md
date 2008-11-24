@@ -1,0 +1,1 @@
+Artículo 11.—Expediente Administrativo: La solicitud de contratación como sus anexos, darán inicio al expediente administrativo de la respectiva contratación, cuya conformación, actualización, custodia, y numeración consecutiva será responsabilidad de la Proveeduría, según los lineamientos definidos en el artículo 11 del RLCA.

@@ -1,0 +1,3 @@
+Artículo 46.—Modificaciones a los contratos: INFOCOOP podrá aumentar o disminuir, hasta un cincuenta por ciento (50%) del monto del contrato original, incluyendo reajustes o revisiones de precio, según corresponda, en las condiciones señaladas en el artículo 12 de la LCA y 200 de su respectivo Reglamento.
+En toda modificación a un contrato, la suma de la contratación original, incluyendo reajustes o revisiones de precio, el incremento adicional no debe superar el límite previsto para el tipo de procedimiento tramitado
+Para su eficacia, cuando corresponda, la modificación deberá estar debidamente refrendada.

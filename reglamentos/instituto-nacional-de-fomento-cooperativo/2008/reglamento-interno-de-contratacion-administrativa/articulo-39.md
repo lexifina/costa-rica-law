@@ -1,0 +1,2 @@
+Artículo 39.—Cesión de pago o derechos de cobro: INFOCOOP aceptará en cualquier momento la cesión de pago que el contratista haga a favor de un tercero, siempre y cuando se le informe oportunamente dicha cesión al Proceso de Administración y Finanzas. El cesionario asume el riesgo del no pago de la obligación por parte del INFOCOOP, cuando se determinen multas o cláusulas penales para resarcir los incumplimientos del contratista.
+(Artículo del RLCA relacionado: 36)

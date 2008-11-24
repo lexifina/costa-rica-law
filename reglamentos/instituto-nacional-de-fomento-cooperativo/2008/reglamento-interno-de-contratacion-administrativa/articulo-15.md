@@ -1,0 +1,5 @@
+Artículo 15.—Invitación a participar, plazo para recepción de ofertas y visita al sitio: La Proveeduría, dará divulgación al cartel de acuerdo con lo establecido en los artículos 93 y 98 del RLCA, según el procedimiento ordinario que se trate.
+El plazo mínimo para recepción de ofertas para las licitaciones públicas será de veinticinco (25) días hábiles, y para las licitaciones abreviadas, quince (15) días hábiles.
+En caso que se hayan previsto en el cartel visitas al sitio, la fecha se determinará con al menos dos (2) días hábiles de antelación al vencimiento del plazo para efectuar aclaraciones y objeciones al cartel.
+El funcionario designado como fiscalizador de la contratación, preparará el acta por cada visita, en la que los posibles oferentes podrán manifestar los comentarios que consideren convenientes, los cuales serán valorados por INFOCOOP; su respuesta será canalizada a través de la Proveeduría, Dicha acta deberá ser firmada por los representantes de cada empresa asistente y los técnicos de INFOCOOP involucrados en el proyecto, y será remitida al expediente administrativo.
+(Artículos del RLCA relacionados: 59, 93, 94, 98 y 99)

@@ -1,0 +1,1 @@
+Artículo 47.—Contrato Adicional: Una vez ejecutado un contrato, si la administración requiere suministros o servicios adicionales de igual naturaleza, podrá obtenerlos del mismo contratista de conformidad con lo establecido en el artículo 12 bis de la LCA y 201 de su Reglamento.
