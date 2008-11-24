@@ -1,0 +1,1 @@
+Artículo 101.—Análisis y evaluación. Las funcionarias y los funcionarios de la Auditoría Interna deberán basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en el adecuado análisis y evaluaciones.

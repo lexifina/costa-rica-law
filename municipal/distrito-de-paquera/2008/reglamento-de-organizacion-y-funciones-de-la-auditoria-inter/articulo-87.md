@@ -1,0 +1,1 @@
+Artículo 87.—Valoración del riesgo. La actividad de la Auditoría Interna, de acuerdo con sus competencias, deberá proponer las mejoras en la valoración del riesgo y agregar la valoración del riesgo en caso de hacer falta en los procesos de dirección, de las operaciones de los sistemas de información.

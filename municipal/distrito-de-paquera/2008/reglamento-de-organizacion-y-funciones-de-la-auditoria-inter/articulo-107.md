@@ -1,0 +1,1 @@
+Artículo 107.—Comunicación a partes fuera del Municipio. Cuando se envíen resultados de un trabajo a partes ajenas a la organización, la comunicación deberá estar sustentada con las regulaciones atinentes.

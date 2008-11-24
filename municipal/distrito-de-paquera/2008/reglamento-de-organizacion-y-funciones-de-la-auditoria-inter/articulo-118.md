@@ -1,0 +1,1 @@
+Artículo 118.—Resultado seguimiento de recomendaciones. Con base en el sistema indicado en el artículo anterior, la Auditoría Interna emitirá el informe según lo señalado en el artículo 35 de la Ley de control interno. El informe contendrá una evaluación sobre el grado general de cumplimiento por parte de la Administración sobre el alcance determinado.

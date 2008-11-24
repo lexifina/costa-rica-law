@@ -1,0 +1,1 @@
+Artículo 28.—Dependencia del Subauditor o Subauditora. Al subauditor o subauditora le corresponderá apoyar al Auditor o Auditora Interna en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él o ella por su gestión.

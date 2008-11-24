@@ -1,0 +1,1 @@
+Artículo 33.—Capacitaciones. En el caso de capacitaciones, seminarios o congresos a que deba asistir el Auditor o Auditora Interna, éstos deberán ser informados al Concejo Municipal; y en caso de que las capacitaciones, seminarios o congresos que se reciban en el exterior deben ser autorizados por el máximo jerarca de la Institución.

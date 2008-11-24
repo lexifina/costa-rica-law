@@ -1,0 +1,11 @@
+CAPÍTULO 11
+Potestades y prohibiciones de la Auditoría Interna
+SUBCAPÍTULO 1
+Potestades y prohibiciones
+Artículo 45.—Potestades. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, tendrán las siguientes potestades en ejercicio de acuerdo con el artículo 33 de la Ley General de Control Interno:
+1) Libre acceso, en cualquier momento, a todos los libros, los archivos, los valores, las cuentas bancarias y demás documentos de los entes y órganos de su competencia institucional, así como de los sujetos privados que administren o custodien fondos o bienes públicos de los entes y órganos de su competencia Institucional, tendrán libre acceso a otras fuentes de información relacionadas con su actividad.
+2) El Auditor o Auditora Interna podrá acceder, para los fines conferidos en este Reglamento y en la Normativa vinculante, en cualquier momento, a las transacciones electrónicas que consten en los archivos y sistema electrónicos de las transacciones que realice el Concejo Municipal de Paquera con los bancos y otras instituciones, para lo cual la Administración deberá facilitarle los recursos que se requieran.
+3) Solicitar, a cualquier funcionario o funcionaria y sujeto privado que administre o custodie fondos públicos del Concejo Municipal de Paquera, en la forma, las condiciones y el plazo razonable, la remisión de los informes, datos y documentos para el cabal cumplimiento de sus competencias.
+En el caso de sujetos privados, la solicitud será en lo que respecta a la administración o custodia de fondos públicos de los entes y órganos de su competencia institucional.
+4) Solicitar a los funcionarios o funcionarias de cualquier nivel jerárquico la colaboración, el asesoramiento, y las facilidades que demande el ejercicio de la Auditoría Interna.
+5) Cualesquiera otras potestades necesarias para el cumplimiento de su competencia de acuerdo con la Normativa y aspectos técnicos aplicables.
