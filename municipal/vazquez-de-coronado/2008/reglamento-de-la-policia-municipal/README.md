@@ -14,3 +14,4 @@ Reglamento de la Policía Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-30 | la propia norma |
+| 2 | 2008-11-24 | Reglamento municipal 135 (2008-11-24) |
