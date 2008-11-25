@@ -14,3 +14,4 @@ Reglamento General de Contratación Administrativa del INCOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-24 | la propia norma |
+| 2 | 2008-11-25 | Reglamento 3530 (2008-11-25) |
