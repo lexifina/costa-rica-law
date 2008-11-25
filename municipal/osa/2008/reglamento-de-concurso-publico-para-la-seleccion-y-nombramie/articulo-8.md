@@ -1,0 +1,2 @@
+Artículo 8°—Sobre las condiciones de la evaluación: De previo a la realización del concurso, la Comisión Ad-hoc elaborará una propuesta que contendrá las descripciones con los cuales se evaluarán las ofertas que se reciban y sus ponderaciones, así como un cronograma de actividades. Esta propuesta será aprobada por el Concejo Municipal de Osa.
+En caso de que se requiera, se podrá coordinar con otras instituciones o en su efecto contratar, la colaboración en materiales y asesoría en el diseño y confección de parámetros de evaluación específicos.

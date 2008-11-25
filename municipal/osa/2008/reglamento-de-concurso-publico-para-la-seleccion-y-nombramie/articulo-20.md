@@ -1,0 +1,1 @@
+Artículo 20.—De la comunicación del nombramiento a la Contraloría General: De conformidad con el artículo 31 de la Ley N° 8292, se comunica a la Contraloría General el nombramiento resultante a más tardar el primer día hábil de inicio de funciones en el respectivo cargo.

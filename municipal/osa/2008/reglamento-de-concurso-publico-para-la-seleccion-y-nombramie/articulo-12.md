@@ -1,0 +1,1 @@
+Artículo 12.—Sobre las ofertas incompletas: Cuando una oferta presentada esté incompleta, se recibirá haciéndose la indicación al oferente las implicaciones que pueden surgir en la evaluación de su oferta.

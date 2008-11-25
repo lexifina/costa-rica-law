@@ -1,0 +1,1 @@
+Artículo 19.—Del periodo de prueba: una vez nombrado el Auditor será sujeto a un periodo de prueba de tres meses, pasado este plazo, el Concejo Municipal de Osa procederá a comunicar a la Contraloría General de su conformidad o disconformidad del desempeño del funcionario nombrado.

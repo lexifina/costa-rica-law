@@ -1,0 +1,3 @@
+Artículo 21.—De la vigencia: Este Reglamento rige a partir de la fecha de su publicación.
+Una vez conocido y analizado el presente reglamento de concurso público para la selección y nombramiento del auditor interno de la municipalidad de Osa, se acuerda por medio de los votos de los Regidores Propietarios Eugenio Nájera Santamaría, Alba Cerdas Aguilar, Yanina Chaverri Rosales, Jessica Hernández Sanarrusia y Daisy Anchía Angulo. Se inicie formalmente y se publique donde corresponda (gaceta o diario de circulación Nacional)el reglamento del concurso público y cumplir con el artículo 31 de la Ley General de Control Interno al igual que los lineamientos emitidos por la Contraloría General de la República.
+Ciudad Cortes, 10 de noviembre del 2008
