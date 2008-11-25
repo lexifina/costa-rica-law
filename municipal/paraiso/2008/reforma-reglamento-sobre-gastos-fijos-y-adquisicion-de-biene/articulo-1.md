@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PARAÍSO
+Por este medio la suscrita secretaría del concejo Municipal de Paraíso, hace de conocimiento público que en la sesión Nº 197 del 7/10/2008, artículo 04, inciso 06), tomó el acuerdo de publicar lo siguiente: modificación al artículo del reglamento sobre gastos fijos y adquisición de bienes y servicios de competencia del Alcalde Municipal publicado en La Gaceta Nº 33 del 15 del 02 del 2007. Autorícese al Alcalde Municipal, girar sin que medie acuerdo del Concejo Municipal, todos los gastos fijos de la Municipalidad y adquisición de bienes y servicios hasta por un monto de ¢1,000.000.00. La presente modificación al presente reglamento rige a partir de su modificación en el Diario Oficial La Gaceta.
+Paraíso, 29 de octubre del 2008.
