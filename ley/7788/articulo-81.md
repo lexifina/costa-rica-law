@@ -1,2 +1,4 @@
-ARTÍCULO 81.-
-Licencias Los particulares beneficiarios de protección de la propiedad intelectual o industrial en materia de biodiversidad cederán, en favor del Estado, una licencia legal obligatoria que le permitirá en casos de emergencia nacional declarada, usar tales derechos en beneficio de la colectividad, con el único fin de resolver la emergencia, sin necesidad del pago de regalías o indemnización.
+Artículo 81.- Licencias
+En casos de emergencia nacional declarada, el Estado podrá emitir una licencia obligatoria de una patente que involucre elementos de la biodiversidad nacional, en beneficio de la colectividad, con el fin de resolver la emergencia, de conformidad con las disposiciones establecidas en la Ley N º 6867, de 25 de abril de 1983.
+Como parte de la distribución justa y equitativa de beneficios derivados del acceso a los elementos y recursos de la biodiversidad nacional en favor de la colectividad, cada permiso, convenio o concesión para el acceso o uso de dichos elementos y recursos de la biodiversidad, deberá establecer que dichas licencias no estarán sujetas a ninguna remuneración o regalía para el titular del derecho.
+(Así reformado por el artículo 11 de la Ley N° 8686 del 21 de noviembre de 2008)

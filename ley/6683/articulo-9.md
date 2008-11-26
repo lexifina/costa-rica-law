@@ -1,1 +1,2 @@
-ARTÍCULO 9º.- Los derechos de autor, relativos a la colección de coplas y cantos populares, corresponden al colector, cuando sea producto y resultado de sus investigaciones y obedezca a un plan literario especial.
+Artículo 9°.- Los derechos de autor en compilaciones de obras pertenecen a su compilador.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)
