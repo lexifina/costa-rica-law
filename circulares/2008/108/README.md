@@ -13,3 +13,4 @@ Sobre las funciones de la oficina de recepción de documentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-23 | la propia norma |
+| 2 | 2008-11-26 | Circular 196 (2008-11-26) |
