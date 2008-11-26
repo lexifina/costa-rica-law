@@ -1,3 +1,2 @@
-Artículo 14.—Los contribuyentes inscritos en el Régimen estarán obligadas a mantener, en un lugar visible de su establecimiento tanto la constancia de inscripción como el afiche (en el cual está integrada una calcomanía con los datos personales del respectivo contribuyente) que les entregará la Administración Tributaria. Además de identificarlos como inscritos en el sistema, tales distintivos deben mencionar el hecho de que el negocio no está obligado a extender facturas autorizadas por la Tributación Directa.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 26199 del 20 de junio de 1997)
-(Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)
+Artículo 14.—Los contribuyentes inscritos en el Régimen estarán obligados a mantener en su establecimiento, la constancia de inscripción y en un lugar visible, el distintivo con los datos identificativos del contribuyente, que les entregará la Administración Tributaria y que los identificará como inscritos en dicho régimen.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 34921 del 26 de noviembre de 2008)

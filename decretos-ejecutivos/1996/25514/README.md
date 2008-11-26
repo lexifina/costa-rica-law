@@ -22,3 +22,4 @@ Régimen de Tributación Simplificada para Comerciantes Minoristas y Bares.
 | 7 | 2003-01-17 | Decreto Ejecutivo 31031 (2003-01-17) |
 | 8 | 2003-02-14 | Decreto Ejecutivo 31100 (2003-02-14) |
 | 9 | 2005-04-25 | Decreto Ejecutivo 32436 (2005-04-25) |
+| 10 | 2008-11-26 | Decreto Ejecutivo 34921 (2008-11-26) |
