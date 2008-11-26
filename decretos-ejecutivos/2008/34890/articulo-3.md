@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense el inciso 7) del artículo 12 y el Anexo Único, Lineamientos técnicos del Decreto Ejecutivo N° 33018-MICIT, de 20 de marzo del 2006, que es el Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos.
