@@ -1,0 +1,2 @@
+Artículo 21° bis.- Las disposiciones de esta Ley relativas al contrato de edición, aplicarán supletoriamente a lo establecido en forma expresa contractualmente. En caso de incompatibilidad entre una disposición del contrato de edición acordado entre las partes y una disposición de esta Ley, prevalecerá la disposición del contrato.
+(Así adicionado por el artículo 2° de la ley N° 8686 del 21 de noviembre de 2008)

@@ -1,1 +1,2 @@
-ARTÍCULO 155.- Se tendrá como autor de la obra protegida, salvo prueba en contrario, al individuo cuyo nombre o seudónimo conocido esté indicado en ella, en la forma habitual.
+Artículo 155°.-Se tendrá como autor de la obra, interpretación o ejecución, o fonograma protegidos, salvo prueba en contrario, al individuo cuyo nombre o seudónimo conocido está indicado en ella, en la forma habitual. Se presumirá, en ausencia de prueba en contrario, que el derecho de autor o derecho conexo subsiste en cualquiera de las formas o manifestaciones arriba citadas.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)

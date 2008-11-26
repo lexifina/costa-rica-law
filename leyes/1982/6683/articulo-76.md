@@ -1,1 +1,2 @@
-ARTÍCULO 76.- La publicación del retrato es libre, cuando se relaciona con fines científicos, didácticos o culturales en general, o con hechos o acontecimientos de interés público, o que se hubieran desarrollado en público.
+Artículo 76°.-Con ocasión de reportar las informaciones relativas a acontecimientos de actualidad por medio de la fotografía o de la cinematografía, o por radiodifusión o transmisión por hilo al público, pueden ser reproducidas y hechas accesibles al público, en la medida justificada por el fin de la información, las obras que hayan de ser vistas u oídas en el curso del acontecimiento.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)

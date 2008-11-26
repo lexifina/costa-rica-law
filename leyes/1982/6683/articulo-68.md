@@ -1,1 +1,2 @@
-ARTÍCULO 68.- Los artículos de actualidad, publicados en revistas o periódicos, pueden ser reproducidos, si ello no ha sido expresamente prohibido, debiendo -en todo caso- citarse la fuente de origen.
+Artículo 68°.- Es lícita la reproducción por la prensa o la radiodifusión o la transmisión por hilo al público de los artículos de actualidad de discusión económica, política o religiosa, publicados en periódicos o colecciones periódicas, u obras radiodifundidas que tengan el mismo carácter, en los casos en que la reproducción, la radiodifusión o dicha transmisión no se hayan reservado expresamente. Sin embargo, habrá que indicar siempre claramente la fuente.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)

@@ -1,1 +1,2 @@
-ARTÍCULO 70.- Es permitido citar a un autor, transcribiendo los pasajes pertinentes, siempre que éstos no sean tantos y seguidos, que puedan considerarse como una reproducción simulada y sustancial, que redunde en perjuicio del autor de la obra original.
+Artículo 70°.- Es permitido citar a un autor, transcribiendo los pasajes pertinentes de una obra que lícitamente haya sido puesta a disposición del público, siempre que estos no sean tantos y seguidos, que puedan considerarse como una reproducción simulada y sustancial, que redunde en un perjuicio del autor de la obra original, y su extensión no exceda la medida justificada por el fin que se persiga.
+(Así reformado por el artículo 1° de la ley N° 8686 del 21 de noviembre de 2008)

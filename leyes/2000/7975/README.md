@@ -1,6 +1,6 @@
 # Ley de Información No Divulgada
 
-Ley N° 7975 del 2000-01-04. SINALEVI, ficha 41810: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41810&param2=44068&param3=1>.
+Ley N° 7975 del 2000-01-04. SINALEVI, ficha 41810: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41810&param2=74709&param3=1>.
 
 Publicada en La Gaceta N° 12 del 2000-01-18.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2000-01-18 | Ley 7975 | 2000-01-04 |
 | 2 de 3 | 2000-01-18 | SINALEVI | 2000-01-04 |
+| 3 de 3 | 2008-11-26 | Ley 8686 | 2008-11-21 |

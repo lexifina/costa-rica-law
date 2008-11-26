@@ -1,2 +1,1 @@
-ARTÍCULO 61.- La obra cinematográfica gozará de protección por setenta años, contados desde la primera exhibición pública.
-(Así reformado por Ley N° 7979 del 6 de enero del 2000)
+Artículo 61°.- (Derogado por el artículo 3° de la ley N° 8686 del 21 de noviembre de 2008)
