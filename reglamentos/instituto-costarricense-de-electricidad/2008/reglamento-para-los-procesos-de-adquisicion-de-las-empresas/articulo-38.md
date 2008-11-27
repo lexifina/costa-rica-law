@@ -1,0 +1,1 @@
+Artículo 38.—Notificación. Los solicitantes deben señalar lugar, fax o medio electrónico donde atender notificaciones, caso contrario se tendrán por notificados de las futuras resoluciones transcurridas, veinticuatro horas después de haberse dictado.

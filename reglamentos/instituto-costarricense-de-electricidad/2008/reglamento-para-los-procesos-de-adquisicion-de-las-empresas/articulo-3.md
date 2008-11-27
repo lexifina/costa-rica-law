@@ -1,0 +1,1 @@
+Artículo 3º—Principios. La actividad de adquisición se regirá, entre otros, por los siguientes principios: eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe, neutralidad tecnológica, sostenibilidad ambiental, legalidad y seguridad jurídica.
