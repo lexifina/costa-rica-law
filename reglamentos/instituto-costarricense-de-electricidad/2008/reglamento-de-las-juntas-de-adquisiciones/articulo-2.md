@@ -1,0 +1,4 @@
+Artículo 2º—Estará integrada por 6 miembros titulares: El Gerente General, los Subgerentes de Electricidad, Telecomunicaciones, Financiero y Administración Institucional, así como el Proveedor Institucional. En caso de que algún miembro de la Junta no pueda asistir de forma justificada a las sesiones, podrá ser sustituido por quien asume su cargo. El Gerente General actuará como presidente de la Junta.
+Los asuntos relacionados con las áreas adscritas a la Presidencia Ejecutiva u otras áreas no contempladas en las Subgerencias antes mencionadas, serán presentados por la Gerencia General.
+La Junta de Adquisiciones podrá convocar a sus sesiones o pedir informes o peritajes a cualquier funcionario del ICE, cuando lo requiera.
+Como asesor del Órgano Colegiado fungirá la jefatura de la Dirección de Contratación Administrativa, o quien ésta designe en su ausencia, quien tendrá voz pero no voto.

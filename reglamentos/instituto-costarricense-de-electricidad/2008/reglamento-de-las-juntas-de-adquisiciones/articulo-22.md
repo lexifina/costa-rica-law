@@ -1,0 +1,1 @@
+Artículo 22.—Los miembros de las Juntas podrán hacer constar en la respectiva acta, su voto contrario al acuerdo emitido, y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

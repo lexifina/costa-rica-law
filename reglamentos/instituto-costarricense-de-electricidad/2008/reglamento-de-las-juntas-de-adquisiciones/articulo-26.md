@@ -1,0 +1,2 @@
+Artículo 26.—De conformidad con el artículo 91 de la Ley General de la Administración Pública, el Consejo Directivo mantendrá la obligación de vigilar la gestión de la Junta de Adquisiciones, lo cual lo hará mediante un sistema de control interno.
+De igual forma, las Juntas Directivas de las empresas deberán vigilar la correcta ejecución de las adquisiciones aprobadas por sus respectivas Juntas de Adquisiciones.

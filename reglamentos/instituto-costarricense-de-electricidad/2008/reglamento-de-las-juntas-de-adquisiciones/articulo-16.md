@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones, tanto ordinarias como extraordinarias, se realizarán en forma privada, salvo que por mayoría de las Juntas, se acuerde permitir el acceso del público en general, o algún grupo o personas específicas, a los cuales les podrá conceder el derecho a participar en las deliberaciones con voz pero sin voto.

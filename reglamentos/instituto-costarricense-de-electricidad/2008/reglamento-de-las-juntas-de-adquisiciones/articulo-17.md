@@ -1,0 +1,3 @@
+SECCIÓN II
+Del acta
+Artículo 17.—El Secretario Ejecutivo levantará un borrador de acta de cada sesión, el cual contendrá el nombre de las personas asistentes, el lugar, fecha y hora de inicio y finalización, los puntos principales de discusión, la forma y resultado de las votaciones y el contenido de los acuerdos. Cuando algún miembro de las Juntas quiera razonar su voto o hacer algún comentario y así lo quiera hacer constar en el acta respectiva, señalará al Secretario en el momento de su intervención, que así lo consigne, debiendo éste transcribir literalmente de la grabación que se esté realizando.

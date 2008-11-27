@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros de la Junta de Adquisiciones Corporativa tendrán los mismos deberes y atribuciones establecidos en los artículos cuatro y cinco de este Reglamento para los miembros de la Junta de Adquisiciones del ICE.

@@ -1,0 +1,1 @@
+Artículo 25.—Contra los actos y resoluciones de la Junta de Adquisiciones del ICE procederán los recursos que se establecen en la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones.
