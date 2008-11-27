@@ -23,3 +23,4 @@ Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos
 | 8 | 2005-01-10 | Decreto Ejecutivo 32294 (2005-01-10) |
 | 9 | 2006-03-24 | Decreto Ejecutivo 33076 (2006-03-24) |
 | 10 | 2006-10-30 | Decreto Ejecutivo 33575 (2006-10-30) |
+| 11 | 2008-11-27 | Decreto Ejecutivo 34925 (2008-11-27) |

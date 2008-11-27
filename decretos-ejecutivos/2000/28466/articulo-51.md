@@ -1,1 +1,3 @@
-Artículo 51.—Rige a partir de su publicación.
+Artículo 51.—En caso de demostrarse el incumplimiento en alguna de las normas correspondientes o la falsedad de lo declarado en el registro de medicamentos, se aplicarán las medidas sanitarias especiales y sanciones establecidas en la Ley General de Salud.
+Dependiendo de la gravedad de la falta se procederá a cancelar el registro del producto e impedir toda importación del mismo. Además de remitir el proceso para la aplicación de las sanciones establecidas en la Ley 7472 de Promoción de la Competencia y Defensa Efectiva del Consumidor. Esto sin perjuicio de los procesos legales en la vía civil o administrativa que se puedan aplicar.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34925 que lo traspaso del antiguo artículo 49 al 51 actual)
