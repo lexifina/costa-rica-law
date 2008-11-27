@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Verificación, control y vigilancia
+Artículo 33.—Inspecciones de control y vigilancia. Salvo lo establecido para los establecimiento definidos como de riesgo alto o de riesgo sin evaluar, el SENASA efectuará inspecciones de monitoreo, que serán al azar a los establecimientos que se les ha otorgado un CVO, indistintamente del grupo al que pertenezcan. En caso de encontrarse una no conformidad, estos establecimientos se someterán a vigilancia mediante inspecciones dirigidas. Una vez que se implementen y verifiquen las medidas correctivas, el establecimiento en particular volverá a pasar al plan de monitoreo.
+Para otorgar el CVO no será necesario realizar una inspección in situ previa. No obstante lo anterior, la Autoridad Sanitaria que otorgue el correspondiente CVO, emitirá una valoración provisional clasificando el establecimiento como de bajo, moderado o alto riesgo.

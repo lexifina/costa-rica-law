@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los requisitos sanitarios y de operación
+Artículo 18.—Requisitos sanitarios. Para ciertos establecimientos, que por su volumen o condiciones especiales de producción de modo especial, puedan impactar la salud pública, la salud animal y el medio ambiente se establecerán requisitos especiales de carácter sanitario y ambientales tales como medidas de bioseguridad, capacitaciones, retiros u obras, necesarias para el otorgamiento del CVO, las cuales serán emitidas mediante resolución administrativa que dictará la Dirección General del SENASA y que serán publicadas en el Diario Oficial La Gaceta.

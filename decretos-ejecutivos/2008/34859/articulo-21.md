@@ -1,0 +1,1 @@
+Artículo 21.—Reconocimiento de realidades sanitarias. El CVO Precario bajo ninguna circunstancia implicará la resolución de conflictos, reconocimiento de derechos, ni titularidad alguna sobre bienes inmuebles y tendrá como único objetivo reconocer realidades sanitarias existentes y que constituyen riesgo a la salud pública y el ambiente.

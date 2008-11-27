@@ -1,0 +1,1 @@
+Artículo 5º—Reglamentación específica. Adicionalmente a las condiciones y requisitos establecidos en el presente Reglamento, los establecimientos que cuenten con regulación específica deberán cumplir con los requisitos sanitarios y ambientales específicos allí señalados.

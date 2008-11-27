@@ -1,0 +1,1 @@
+Transitorio III.—El SENASA en un plazo no mayor a tres meses a partir de la publicación del presente Reglamento, mediante resolución administrativa que dictará al efecto establecerá los mecanismos y procedimientos administrativos para la implementación del Registro de CVO y CVO Precarios.

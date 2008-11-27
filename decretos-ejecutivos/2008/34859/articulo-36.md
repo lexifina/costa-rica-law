@@ -1,0 +1,1 @@
+Artículo 36.—Solicitudes de otras instituciones. Cuando una entidad considere que se requiere un estudio adicional, la cancelación o suspensión de un CVO u otra acción, deberá dirigirse al SENASA con las motivaciones del caso. El SENASA actuará en consecuencia.

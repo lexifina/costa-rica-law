@@ -1,0 +1,2 @@
+Artículo 14.—Modificación de condiciones del CVO. Sin excepción, todos los establecimientos, independientemente del tamaño o grupo de riesgo al que su establecimiento pertenezca, que cambien la actividad para la cual fue otorgado el CVO o incorporen otra actividad, deberán solicitar un nuevo CVO.
+En el caso que un establecimiento requiera ampliar, variar o cambiar las condiciones originales bajo las cuales se otorgó el CVO, y que traen implícito un cambio de grupo de riesgo, deberá reportar por escrito al SENASA las variaciones o cambios.

@@ -1,0 +1,1 @@
+Artículo 30.—Publicación de los establecimientos autorizados y registrados. En marzo de cada año, el SENASA dará aviso en el Diario Oficial La Gaceta de la actualización realizada en su portal electrónico de los establecimientos, sus actividades, ubicación y nivel de riesgo, sujetos a su control, de conformidad con el artículo 56 de la Ley SENASA.

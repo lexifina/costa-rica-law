@@ -1,0 +1,1 @@
+Artículo 22.—Constancia expresa. Para los efectos anteriores y valoración del SENASA deberá hacerse constar expresamente en el expediente que se levante al efecto la inconformidad civil o administrativa que impide al establecimiento ser sujeto de CVO.

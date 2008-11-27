@@ -1,0 +1,1 @@
+Artículo 11.—Reconocimiento al esfuerzo. Los establecimientos que voluntariamente logren disminuir su riesgo sanitario y ambiental, a través de acciones más allá de las exigidas por SENASA, serán merecedores de un reconocimiento público, que evidencie el esfuerzo por proteger la salud humana, animal y el medio ambiente.
