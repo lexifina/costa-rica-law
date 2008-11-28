@@ -17,3 +17,4 @@ Reglamento a la Ley de Contratación Administrativa
 | 2 | 2007-05-02 | Decreto Ejecutivo 33758 (2007-05-02) |
 | 3 | 2007-05-29 | Decreto Ejecutivo 33860 (2007-05-29) |
 | 4 | 2007-09-17 | Decreto Ejecutivo 34049 (2007-09-17) |
+| 5 | 2008-11-28 | Decreto Ejecutivo 34974 (2008-11-28) |
