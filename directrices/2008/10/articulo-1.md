@@ -1,0 +1,10 @@
+REGISTRO PÚBLICO DE LA PROPIEDAD MUEBLE
+DIRECTRIZ CIRBM-010-2008
+DE: Dirección de Bienes Muebles
+PARA: Área Registral
+ASUNTO: Modificación del Enunciado II de la
+Directriz CIRBM-023-2004
+FECHA: 7 de noviembre del 2008
+En observancia a la Ley 6106 y su Reglamento, se procede a realizar la aclaración de la directriz CIRBM-023-2004 por cuanto el artículo 1 inciso e) de la Ley 6106 y el 3 del Reglamento a esta ley, disponen que a la Dirección General de Administración de Bienes y Contratación Administrativa, anteriormente llamada Proveeduría Nacional le corresponde canalizar la donación de bienes declarados en desuso por las instituciones autónomas o semiautónomas (el mobiliario, equipo de oficina y otros objetos), y los artículos 1 y 2 del Reglamento supracitado establece que le corresponde al Instituto Mixto de Ayuda Social tramitar las donaciones de mercancías declaradas en abandono por las aduanas y bienes caídos en comiso. Por tal razón el enunciado segundo de la directriz CIRBM-023-2004 se modifica para que en adelante se lea de la siguiente manera:
+II.—Las donaciones que se hagan por parte de la Dirección General de Aduanas (por mercancías caídas en abandono), la Dirección General de Tránsito (para los vehículos respecto de los cuales feneció la causa y no fueron retirados por el interesado en el plazo fijado por la ley) y la Proveeduría Judicial de la Corte Suprema de Justicia (para los vehículos decretados en confiscación o comiso por sentencia judicial), se seguirán rigiendo por la Ley Nº 6106 de 07 de noviembre de 1977, “Decomisos y Donaciones” y su Reglamento vigente, Decreto Ejecutivo Nº 26132-H publicado en La Gaceta del 9 de julio de 1997. Dicho Reglamento en su artículo 15 dispone que corresponde al Organismo de Investigación Judicial y a la Dirección General de Tránsito canalizar las respectivas donaciones a través de la Comisión de Donaciones del Instituto Mixto de Ayuda Social, ente a quien corresponde emitir el acta pertinente para efectos de inscripción en el Registro de la Propiedad Mueble.
+Publíquese de conformidad con lo dispuesto en el artículo 4 de la Ley Nº 8220 del 4 de marzo del 2002.
