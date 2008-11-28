@@ -1,0 +1,1 @@
+Artículo 2º—La modificación arancelaria del artículo anterior solamente aplicará para una cantidad de mil toneladas métricas (1.000 T.M.) de papa de uso industrial y dicha cantidad deberá ingresar al país a más tardar el 31 de enero del 2009.
