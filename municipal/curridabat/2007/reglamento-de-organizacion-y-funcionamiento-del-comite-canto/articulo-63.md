@@ -1,0 +1,1 @@
+Artículo 63.—Al finalizar la etapa nacional de los Juegos Deportivos Nacionales, cada subcomisión específica deberá presentar a la Comisión de Juegos Deportivos Comunales y Nacionales, un informe escrito de las actividades realizadas, los logros alcanzados, los problemas surgidos y su solución.

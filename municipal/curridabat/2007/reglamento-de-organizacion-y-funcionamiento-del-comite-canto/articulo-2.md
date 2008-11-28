@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal tendrá su domicilio legal en el Distrito Central, en el Estadio Lito Monge; pudiendo variarse la sede en forma temporal y para la realización de actividades especiales, siempre dentro de la jurisdicción del cantón de Curridabat.

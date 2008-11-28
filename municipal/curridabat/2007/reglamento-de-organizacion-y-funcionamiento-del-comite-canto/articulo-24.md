@@ -1,0 +1,7 @@
+Artículo 24.—Son funciones del Vicepresidente:
+a) Sustituir al Presidente, en su ausencia, con sus deberes y atribuciones.
+b) Encargarse de las relaciones públicas.
+c) Coordinar y agilizar el nombramiento de las comisiones dentro de la Junta Directiva del Comité Cantonal.
+d) Realizar una función propia del Presidente, cuando este así se lo solicite.
+e) Firmar junto con el Presidente las órdenes de pago y los cheques contra los fondos económicos del Comité Cantonal.
+f) Cualquier otra atinente al cargo.

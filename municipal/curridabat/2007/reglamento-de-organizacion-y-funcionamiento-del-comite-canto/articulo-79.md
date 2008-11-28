@@ -1,0 +1,1 @@
+Artículo 79.—Los subcomités dependerán de los comités comunales. La Junta Directiva del Comité Cantonal supervisar directamente a aquellos subcomités ubicados en distritos en los que no haya comité comunal.

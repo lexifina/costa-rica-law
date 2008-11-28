@@ -1,0 +1,1 @@
+Artículo 61.—Cada subcomisión elaborará un plan anual de actividades durante sus primeras tres sesiones. Lo entregará por escrito lo más detallado posible a la Comisión de Juegos Deportivos Comunales y Nacionales, para que esta lo presente a las Comisiones de Programación y Evaluación y a la de Finanzas.

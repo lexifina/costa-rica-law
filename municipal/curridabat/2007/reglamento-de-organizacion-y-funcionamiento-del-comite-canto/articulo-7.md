@@ -1,0 +1,1 @@
+Artículo 7º—El Comité Cantonal en el ejercicio de sus funciones y para el desempeño de las gestiones que deba efectuar, actuará de conformidad con las facultades y obligaciones, que la ley y este Reglamento le señalen.

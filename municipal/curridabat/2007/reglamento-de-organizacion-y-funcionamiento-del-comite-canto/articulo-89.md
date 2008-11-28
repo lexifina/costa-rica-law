@@ -1,0 +1,1 @@
+Artículo 89.—Dos veces al año, la Junta Directiva del Comité Cantonal convocar a los comités comunales y a sus subcomités para que envíen a dos representantes a una reunión conjunta. En esta oportunidad, todos los comités presentarán un breve informe escrito de las actividades realizadas, de las no efectuadas y por que, con copia a la comisión de programación y evaluación.
