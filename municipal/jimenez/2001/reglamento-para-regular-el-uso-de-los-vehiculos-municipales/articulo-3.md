@@ -1,1 +1,0 @@
-Artículo 3º—Todos los vehículos de la Municipalidad deben quedar guardados cada día en el plantel municipal, salvo casos fortuitos, lo cual será informado posteriormente al Concejo.

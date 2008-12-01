@@ -1,1 +1,0 @@
-Artículo 19.—Las sanciones por incumplimiento de este reglamento serán aplicadas de acuerdo a lo que dicta el Código Municipal, el Código de Trabajo y cualquier otra legislación aplicable en estos casos.
