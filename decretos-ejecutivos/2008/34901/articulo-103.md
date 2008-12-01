@@ -1,0 +1,1 @@
+Artículo 103.—Del cambio del banco administrador del Fondo de Crédito para el Desarrollo. El Consejo Rector asignara la administración del Fondo de Crédito para el Desarrollo por periodos de entre tres a cinco años. Si durante el periodo de administración establecido es necesario cambiar al banco administrador, el Consejo Rector podrá hacerlo con un preaviso de hasta 6 meses.

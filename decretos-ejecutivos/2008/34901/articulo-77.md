@@ -1,0 +1,1 @@
+Artículo 77.—De la metodología para asignación de los recursos del fondo de avales y garantías: El acceso a los recursos del fondo de garantía y avales se hará mediante autorización a los diferentes operadores financieros al menos una vez al año.

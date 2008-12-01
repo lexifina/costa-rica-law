@@ -1,0 +1,2 @@
+Artículo 85.—De los mecanismos de reafiazamiento o de seguros: El fiduciario del FINADE, previa autorización del Consejo Rector del SBD, podrá contratar mecanismos de reafianzamiento de seguros, con instituciones públicas o privadas, nacionales o extranjeras, con respecto a las garantías presentes o futuras que otorgue, y pagar las comisiones o primas en las condiciones que se le indiquen, con cargo al patrimonio del FINADE.
+También podrá participar de iniciativas regionales o internacionales orientadas a ampliar la cobertura del fondo de garantías.

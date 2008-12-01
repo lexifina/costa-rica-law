@@ -1,0 +1,1 @@
+Artículo 69.—De la suspensión de entidades por niveles de riesgo: El fiduciario del FINADE podrá suspender a una entidad financiera la canalización de recursos del FINADE si esta supera los niveles de riesgo establecidos de acuerdo a lo previsto en el artículo 36 del presente reglamento, informando de esta situación al Consejo Rector.

@@ -1,0 +1,6 @@
+Artículo 25.—De las funciones de la Comisión: Serán funciones de la Comisión Técnica Interinstitucional de Servicios no Financieros y de Desarrollo Empresarial, las siguientes:
+1- Generar a nivel de instituciones públicas, las acciones de coordinación necesarias para llevar a cabo las directrices y políticas dictadas por el Consejo Rector en materia de servicios no financieros y desarrollo empresarial, para que acompañe a los sujetos beneficiarios del SBD en las diferentes etapas de desarrollo de los proyectos productivos.
+2- Crear el elemento conductor para la prestación efectiva de estos servicios y generando estrategias que incentiven, principalmente, a las actividades productivas claves en el desarrollo socio-económico del país.
+3- Organizar las instituciones del Sector Público, las empresas privadas y las instituciones internacionales acreditadas por el Consejo Rector para la prestación de estos servicios.
+4- Fungir a solicitud del Consejo Rector, como mecanismo de consulta, retroalimentación y apoyo para la implementación, en las funciones que por ley le corresponde ejecutar en servicios no financieros y de desarrollo empresarial.
+5- Rendir informes semestrales al Consejo Rector sobre las acciones de la Comisión, o cuando así lo solicite el Consejo Rector.

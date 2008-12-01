@@ -1,0 +1,4 @@
+Artículo 113.—Del patrimonio de los Fondos de Financiamiento para el Desarrollo: El patrimonio de los fondos de financiamiento para el desarrollo se constituirá con los siguientes recursos:
+1- Los bancos públicos señalados en el artículo anterior destinarán, anualmente, al menos un cinco por ciento (5%) de sus utilidades netas después del impuesto sobre la renta, para la creación y el fortalecimiento patrimonial de sus propios fondos de desarrollo. Sin perjuicio de lo anterior, la Junta Directiva de cada banco público podrá realizar, mediante votación calificada, aportes anuales adicionales al porcentaje estipulado en este inciso.
+2- Las donaciones y los legados de personas o instituciones públicas o privadas, nacionales o internacionales.
+3- Los resultados obtenidos por las operaciones realizadas con estos Fondos.

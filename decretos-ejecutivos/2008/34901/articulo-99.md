@@ -1,0 +1,2 @@
+Artículo 99.—De la firma de convenios para acceder recursos de capital de riesgo: Para la inversión de estos recursos, el Consejo Rector firmará convenios con organizaciones públicas o privadas, nacionales o extranjeras, que presenten metodologías para la selección, aceptación y seguimiento de los proyectos.
+En los respectivos convenios se establecerán las condiciones bajo la que participarán cada una de las partes, así como los mecanismos de canalización de los recursos del FINADE a los diferentes proyectos.

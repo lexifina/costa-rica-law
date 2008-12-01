@@ -1,0 +1,1 @@
+Artículo 11.—De la elaboración de manuales: El Consejo Rector deberá emitir directrices, lineamientos y elaborar manuales que orienten el funcionamiento del SBD, siempre y cuando no se contrapongan a lo establecido en la Ley Nº 8634 y el presente Reglamento.

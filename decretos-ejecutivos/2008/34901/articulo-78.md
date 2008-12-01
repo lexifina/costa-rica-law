@@ -1,0 +1,1 @@
+Artículo 78.—De las comisiones para uso de recursos del fondo de avales y garantías: El fiduciario propondrá al Consejo Rector un sistema de comisiones, para el uso de estos recursos, considerando la sostenibilidad del FINADE.

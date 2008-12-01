@@ -1,0 +1,1 @@
+Artículo 98.—De los beneficiarios de recursos del fondo de capital de riesgo: Podrán tener acceso a fondos de capital de riesgo los proyectos viables y factibles de beneficiarios del SBD que presenten necesidades de capital para el adecuado desarrollo de sus proyectos productivos.

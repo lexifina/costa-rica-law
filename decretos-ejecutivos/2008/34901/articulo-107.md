@@ -1,0 +1,1 @@
+Artículo 107.—De la metodología de valoración de los recursos del Fondo de Crédito para el Desarrollo: El administrador de los recursos del Fondo de Crédito para el Desarrollo, remitirá al Consejo Rector para su aprobación, la metodología de valoración del riesgo de las entidades financieras que tienen programas aprobados por este Consejo.

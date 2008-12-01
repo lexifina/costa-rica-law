@@ -1,0 +1,1 @@
+Artículo 133.—Derogatoria. Deróguese el Decreto Ejecutivo Nº 34790-MAG-MEIC, “Reglamento de Funcionamiento del Consejo Rector del Sistema de Banca para el Desarrollo”, publicado en La Gaceta Nº 200 del 16 de octubre del 2008.

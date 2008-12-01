@@ -1,0 +1,1 @@
+Artículo 112.—De la información que deberá remitir cada banco público sobre la información de su fondo de financiamiento para el desarrollo: Cada banco deberá informar semestralmente y, adicionalmente, cuando así lo solicite el Consejo Rector, del estado y los hechos relevantes acontecidos en la gestión de cada fondo.

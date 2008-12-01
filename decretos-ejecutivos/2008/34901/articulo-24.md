@@ -1,0 +1,1 @@
+Artículo 24.—Del coordinador general de la Comisión: La Comisión Técnica Interinstitucional de Servicios no Financieros y de Desarrollo Empresarial nombrará, de su seno, a una persona coordinadora general, por un plazo de dos años, pudiendo ser reelegido en su cargo. La Institución que represente este Coordinador, colaborará con el apoyo logístico y secretarial a la Comisión.

@@ -1,0 +1,1 @@
+Artículo 60.—De los requerimientos para acceder a estos fondos: El acceso a cada uno de estos fondos tiene sus requerimientos específicos, los cuales se incluyen en el presente Reglamento para cada uno de ellos, así como en el proceso de acreditación ante el Consejo Rector que deben cumplir las instituciones para poder canalizar los mismos.

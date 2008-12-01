@@ -1,0 +1,1 @@
+Artículo 88.—Del sistema de verificación de requisitos por parte del Fiduciario del FINADE: Corresponde al Fiduciario del FINADE verificar que los avales que se otorguen con el Fondo de Avales y Garantías cumplan con los requisitos que se hayan pactado entre el operador financiero y el fiduciario del FINADE vía contrato, y lo establecido en la Ley Nº 8634 y su Reglamento.

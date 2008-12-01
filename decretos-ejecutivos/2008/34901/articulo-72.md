@@ -1,0 +1,1 @@
+Artículo 72.—De la colocación de recursos según propuesta del Fiduciario del FINADE: El fiduciario propondrá al Consejo Rector las condiciones para la colocación de estos recursos considerando los diferentes tipos de proyectos productivos y la sostenibilidad del FINADE.
