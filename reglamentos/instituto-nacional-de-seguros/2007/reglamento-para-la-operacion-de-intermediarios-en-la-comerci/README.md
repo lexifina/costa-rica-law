@@ -14,3 +14,4 @@ Reglamento para la Operación de Intermediarios en la Comercialización de Produ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-04 | la propia norma |
+| 2 | 2008-12-01 | Reglamento 8923 (2008-12-01) |
