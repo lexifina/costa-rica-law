@@ -1,1 +1,0 @@
-Artículo 2º—En el presente Reglamento se establecen las disposiciones, a las que deberán someterse los funcionarios de Popular, Sociedad de Fondos de Inversión, S. A., para efectuar gastos de representación en el desempeño de sus funciones.

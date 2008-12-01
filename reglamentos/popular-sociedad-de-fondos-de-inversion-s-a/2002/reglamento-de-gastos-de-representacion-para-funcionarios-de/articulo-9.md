@@ -1,1 +1,0 @@
-Artículo 9º—El incumplimiento de los requisitos aquí señalados, obligará al funcionario a cubrir las sumas incurridas por concepto de gastos de representación, y en caso de que se haya girado alguna suma, por concepto de adelanto, deberá realizar el reintegro correspondiente.
