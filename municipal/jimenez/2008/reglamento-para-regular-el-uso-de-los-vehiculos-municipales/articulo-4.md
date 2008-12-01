@@ -1,0 +1,1 @@
+Artículo 4º—Todos los vehículos municipales deberán estar rotulados con la siguiente leyenda: “Municipalidad de Jiménez”, al de la Oficina de Catastro agregarle: Catastro Municipal y al de la Junta Vial Cantonal agregarle: Junta Vial Cantonal, y todos deben portar la placa oficial.

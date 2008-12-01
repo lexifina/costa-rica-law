@@ -1,0 +1,1 @@
+Artículo 5º—La aplicación y acato obligatorio de este reglamento, es responsabilidad exclusiva del Alcalde (sa) Municipal; y en el caso del vehículo adquirido con recursos de la ley 8114, será responsabilidad del Director de la Unidad Técnica de Gestión y Conservación Vial o en su defecto de la Junta Vial Cantonal.

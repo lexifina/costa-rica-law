@@ -1,0 +1,1 @@
+Artículo 13.—El Alcalde (sa) y la Junta Vial Cantonal, según sea el caso, autorizarán las cuotas de combustibles y lubricantes necesarias para el funcionamiento de los vehículos, de acuerdo con los programas de trabajo aprobados en el presupuesto ordinario de cada año o en presupuestos extraordinarios.

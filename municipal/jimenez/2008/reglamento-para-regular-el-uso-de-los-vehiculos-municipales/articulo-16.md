@@ -1,0 +1,1 @@
+Artículo 16.—La Oficina de Contabilidad y la Unidad Técnica de Gestión Vial Municipal- en el caso del vehículo de la Junta Vial, llevarán los sistemas de registro necesarios para determinar el costo real de transporte por vehículo.

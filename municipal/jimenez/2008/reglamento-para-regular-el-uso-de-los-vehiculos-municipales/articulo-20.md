@@ -1,0 +1,1 @@
+Artículo 20.—Las disposiciones contenidas en el presente Reglamento son aplicables a todos los funcionarios municipales, incluyendo al Alcalde (sa) Municipal, a los funcionarios de la Unidad Técnica de Gestión y Conservación Vial, a la Junta Vial Cantonal y a los miembros del Concejo.

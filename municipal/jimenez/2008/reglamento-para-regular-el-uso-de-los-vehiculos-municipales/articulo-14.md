@@ -1,0 +1,1 @@
+Artículo 14.—El Alcalde (sa) Municipal y el Director de la Unidad Técnica de Gestión Vial, según sea el caso, debe velar porque el trabajo a ejecutar quede previsto el día anterior, con el fin de que los vehículos de servicio puedan salir a la hora señalada por el reglamento.
