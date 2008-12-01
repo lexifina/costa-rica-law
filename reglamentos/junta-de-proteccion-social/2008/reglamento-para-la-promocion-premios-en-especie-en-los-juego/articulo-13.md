@@ -1,0 +1,2 @@
+Artículo 13.—Realización del sorteo:
+1) Los días sábados durante el programa de la Rueda de la Fortuna, se realizará el sorteo ante los fiscalizadores de la Junta y el funcionario judicial, quienes se encargarán de seleccionar de los comprobantes de las diferentes llamadas al “call center” a dos personas ganadoras del Premio en Especie. Excepcionalmente se podrá utilizar una tómbola electrónica, en vez de los comprobantes de las diferentes llamadas al “call center”.

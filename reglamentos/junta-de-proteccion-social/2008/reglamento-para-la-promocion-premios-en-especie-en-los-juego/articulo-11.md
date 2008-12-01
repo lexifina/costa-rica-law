@@ -1,0 +1,3 @@
+Artículo 11.—Mecánica del sorteo de los premios en especie:
+La Junta pone a disposición del público, la modalidad del “premio en especie”, el cual consiste en que la persona poseedora de un boleto o varios boletos sin premio alguno del Juego E-7 de Lotería Instantánea, lo activen y de esta forma obtienen la posibilidad de ganar una computadora portátil. La Junta se reserva para casos excepcionales, por motivos de oportunidad y conveniencia, la potestad de entregar su equivalente en efectivo por ¢500.000.
+El sorteo se realizará en el programa de La Rueda de la Fortuna, que se lleva a cabo los días sábados. Se iniciará con la salida al mercado del juego E-7 por un período aproximado de 6 meses y con un presupuesto estimado de ¢30 millones para toda la promoción.

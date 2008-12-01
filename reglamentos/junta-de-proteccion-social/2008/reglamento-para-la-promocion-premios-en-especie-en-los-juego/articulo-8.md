@@ -1,0 +1,2 @@
+Artículo 8º—Publicidad:
+La Junta se reserva el derecho de divulgar por los medios publicitarios que elija, la entrega de los premios en especie, sin que ello represente erogación a favor del ganador por derechos de imagen.

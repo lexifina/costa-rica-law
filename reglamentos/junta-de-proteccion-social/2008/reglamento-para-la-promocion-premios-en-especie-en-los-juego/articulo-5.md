@@ -1,0 +1,3 @@
+Artículo 5º—De la forma de pago del premio:
+a) Para efectos del pago del premio en especie al proveedor, el ganador debe autorizar a la Junta, mediante su rúbrica, para que emita una orden incondicional de pago por el monto exacto del bien. El o los pagos que correspondan, serán honrados mediante la emisión de un cheque o transferencia electrónica a la casa proveedora que corresponda.
+b) La Junta no reconocerá ningún tipo de interés sobre los recursos del premio durante el período que transcurra entre el recibo del comprobante ganador por parte de la Junta y la entrega final de la computadora por parte de la empresa elegida por el ganador.
