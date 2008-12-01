@@ -1,0 +1,1 @@
+Artículo 13.—Plan Operativo Institucional. Es responsabilidad de cada jefatura o titular subordinado, incluir en el Plan Operativo Institucional al menos una meta relacionada con mejoras o revisión del sistema de control interno de acuerdo con los resultados obtenidos en el proceso de auto evaluación.

@@ -1,0 +1,1 @@
+Artículo 2º—Del Presidente (a) de la Comisión Institucional de Control Interno. La Comisión Institucional de Control Interno, será presidida por un Presidente (a), que será el (la) Coordinador (a) de la Unidad de Planificación del Ministerio de Economía, Industria y Comercio.

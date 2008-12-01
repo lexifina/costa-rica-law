@@ -1,0 +1,1 @@
+Artículo 14.—Sobre el incumplimiento de esta Directriz. El incumplimiento de esta Directriz dará lugar a la implementación de las sanciones establecidas en la normativa jurídica vigente que rige la materia.
