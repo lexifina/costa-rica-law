@@ -1,0 +1,1 @@
+Artículo 15.—La Municipalidad por medio del Encargado de Cementerio, fiscalizará los trabajos que dentro del Cementerio se lleven a cabo para la construcción, reparación o refacción de sepulturas o mausoleos. Igualmente fiscalizará los materiales que se usen para esos trabajos.

@@ -1,0 +1,1 @@
+Artículo 33.—No se permitirá hacer ampliaciones ni reparaciones, etc., en los nichos a que se refiere el artículo anterior, las reformas a disminuir el número de nichos pueden ser permitidas o no a juicio de la Municipalidad.

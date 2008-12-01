@@ -1,0 +1,1 @@
+Artículo 19.—Los derechos de arrendamiento sobre lotes, tumbas o mausoleos privados no pueden ser traspasados a terceras personas, cuando no hayan sido usadas o cuando, habiéndolo sido, se hubieran exhumado todos los restos que contenían; se deberá hacer una solicitud nueva ante la Municipalidad.

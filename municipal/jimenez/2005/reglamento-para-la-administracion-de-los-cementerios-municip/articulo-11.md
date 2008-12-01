@@ -1,0 +1,1 @@
+Artículo 11.—Para el arrendamiento de cada lote se firmará un contrato entre la Municipalidad y los interesados, en dicho contrato se estipularán las condiciones en que se otorga el arrendamiento. Los lotes se clasificarán según la cantidad de metros solicitados en donde el mínimo será de un metro de ancho por dos de largo.

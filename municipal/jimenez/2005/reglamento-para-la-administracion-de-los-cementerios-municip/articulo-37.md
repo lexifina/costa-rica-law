@@ -1,0 +1,1 @@
+Artículo 37.—El panteonero llevará un registro de mausoleos, nichos y sepulturas, indicándoles por el número de parcelas y cuadros a que pertenece; cada uno tendrá una página aparte encabezada por los números distintivos del lugar que ocupa y por el nombre del propietario.
