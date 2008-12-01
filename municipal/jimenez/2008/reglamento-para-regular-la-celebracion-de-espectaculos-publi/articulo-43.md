@@ -1,0 +1,1 @@
+Artículo 43.—Los funcionarios responsables de la efectiva recaudación del impuesto coordinaran con la Policía Administrativa, a fin de obtener la colaboración de estos en la aplicación de este reglamento.

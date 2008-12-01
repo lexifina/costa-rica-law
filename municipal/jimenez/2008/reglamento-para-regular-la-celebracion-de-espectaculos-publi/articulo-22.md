@@ -1,0 +1,1 @@
+Artículo 22.—Los propietarios de los locales autorizados para presentar espectáculos públicos quedan obligados a presentar ante la Secretaría Municipal la programación de sus eventos con 30 días hábiles de anticipación a la realización del evento.

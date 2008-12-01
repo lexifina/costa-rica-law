@@ -1,0 +1,1 @@
+Artículo 29.—Todos los locales donde se autoricen espectáculos públicos deberán instalar rótulos visibles indicando la no-permanencia de menores de edad a los eventos donde expendan bebidas alcohólicas.

@@ -1,0 +1,1 @@
+Artículo 20.—Los propietarios de los locales autorizados para realizar espectáculos públicos serán directamente responsables del pago de dicho impuesto cuando el organizador del evento no pague lo correspondiente al impuesto.

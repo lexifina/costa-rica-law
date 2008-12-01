@@ -1,0 +1,1 @@
+Artículo 13.—Todas las solicitudes de patentes temporales de licores, deberán ser conocidas y dirigidas al Concejo Municipal para su aprobación o rechazo, quien deberá enviar copia del acuerdo a las autoridades de policía correspondientes.

@@ -1,0 +1,1 @@
+Artículo 33.—Todo buzón recolector, en caso de ser dañado en forma tal que no garantice seguridad, deberá ser repuesto en un plazo máximo de 24 horas por el propietario del establecimiento. La responsabilidad del buen estado del buzón será el propietario del establecimiento.

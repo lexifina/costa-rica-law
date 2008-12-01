@@ -1,0 +1,1 @@
+Artículo 21.—Quedan exentos del pago del impuesto todos los espectáculos públicos y actividades a que se refiera al artículo 2 de este reglamento, cuando el producto integro se destine a fines escolares, beneficencia, religiosos, sociales y deportivos, previa solicitud presentada ante el Concejo Municipal

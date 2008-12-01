@@ -1,0 +1,1 @@
+Artículo 45.—La Municipalidad podrá establecer otro sistema diferente de recaudación, para lo cual si lo considera daría audiencia a los interesados para que conforme a sus recomendaciones se defina otro sistema de recaudación.

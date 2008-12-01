@@ -1,0 +1,1 @@
+Artículo 14.—No se autoriza bajo ninguna circunstancia la explotación de una patente temporal de licores frente a las instalaciones físicas de iglesias, centros educativos e instalaciones deportivas (aplíquese el reglamento a la ley de Licores).

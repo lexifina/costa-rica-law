@@ -1,0 +1,3 @@
+CAPÍTULO III
+El impuesto
+Artículo 17.—La Municipalidad del Cantón de Jiménez, cobrará un impuesto del 6% sobre el valor de cada boleto, tiquete o entrada, en todo espectáculo público y de diversión no gratuito que se realice en todos los lugares debidamente autorizados, así como también en todo espectáculo que se realice con ocasión de festejos cívicos y patronales, veladas, turnos, ferias y novilladas. Cuando además de la entrada se cobre consumo mínimo el impuesto se calculará sobre la cantidad que resulte de la suma de ambos conceptos y cuando se cobre solo el consumo mínimo, sobre esto se cobrará el impuesto.

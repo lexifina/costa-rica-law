@@ -1,0 +1,1 @@
+Artículo 7º—Los interesados deberán cancelar en la Tesorería Municipal antes del inicio de la actividad, la suma diaria que el Departamento de Contabilidad establezca por concepto de recolección de basura, producto de la operación en el local y la cantidad de diez mil por concepto de gastos administrativos.

@@ -1,0 +1,1 @@
+Artículo 24.—Todo evento deberá contar con seguridad privada, quedará a criterio del organizador la contratación de personal de primeros auxilios, el número de efectivos queda a criterio del organizador, quien en todo caso será el responsable directo.

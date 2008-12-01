@@ -1,0 +1,1 @@
+Artículo 39.—Los inspectores y los miembros de la Comisión de Espectáculos Públicos contarán con su respectiva identificación otorgada por el Alcalde Municipal, la cual deberá contener fotografía reciente y el sello correspondiente del despacho del Alcalde Municipal.

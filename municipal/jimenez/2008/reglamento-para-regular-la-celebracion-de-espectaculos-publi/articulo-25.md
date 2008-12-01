@@ -1,0 +1,1 @@
+Artículo 25.—Todo evento en el que se presuma una asistencia masiva de personas el organizador deberá contar con los servicios de una ambulancia, médicos, además de lo indicado en el punto anterior. Eso durante el evento, por lo que será directamente responsable.

@@ -1,0 +1,1 @@
+Artículo 47.—No se podrá autorizar una patente para salón de baile si el local se encuentra ubicado a menos de 400 metros de iglesias, centros educativos, centros culturales, hospitales, clínicas o parques infantiles.

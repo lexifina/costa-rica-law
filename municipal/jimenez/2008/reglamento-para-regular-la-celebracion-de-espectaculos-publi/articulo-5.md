@@ -1,0 +1,1 @@
+Artículo 5º—Previo a iniciar cualquier actividad, los solicitantes deberán contar obligatoriamente con el permiso de Funcionamiento Sanitario emitido por el Ministerio de Salud, así como la aprobación de un plan de confinamiento de ruido, extendido por el susodicho ministerio, en caso contrario no podrá funcionar dicha actividad.

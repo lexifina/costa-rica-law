@@ -1,0 +1,1 @@
+Artículo 16.—En el caso de que un patentado de licores preste o arriende a una agrupación su patente de licores para realizar las actividades mencionadas anteriormente deberá ser aprobado por el Concejo Municipal. El patentado deberá cerrar su negocio por los días que dure la actividad.

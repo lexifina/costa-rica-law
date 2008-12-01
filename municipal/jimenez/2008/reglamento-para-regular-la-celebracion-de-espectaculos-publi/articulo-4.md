@@ -1,0 +1,1 @@
+Artículo 4º—Todas las solicitudes para realizar las actividades mencionadas en el artículo segundo anterior deberán ser dirigidas por escrito con al menos treinta días naturales de anticipación ante la Alcaldía Municipal y aprobadas por el Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 28.—El número de asistentes a cada evento será de acuerdo a la capacidad del local, por lo que deberá presentar ante la Secretaría de la Municipalidad, documento autenticado por un ingeniero civil indicando la capacidad del local. Así como también el área de parqueo disponible y el número de salidas de emergencia.
+Cualquier dueño de local que irrespete la capacidad del local o la capacidad del parqueo será directamente responsable en el momento de una catástrofe o tragedia.

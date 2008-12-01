@@ -1,0 +1,1 @@
+Artículo 31.—Quedan obligados los propietarios de los lugares autorizados para espectáculos públicos a mantener hasta las 18:00 horas una capacidad sonora permitida de 65 decibeles y después de las 18:00 horas 40 decibeles.

@@ -1,0 +1,1 @@
+Artículo 8º—Tanto los inspectores municipales como los miembros de la comisión de Espectáculos Públicos y el señor Alcalde Municipal, tendrán derecho al libre acceso a las instalaciones donde se realizarán las actividades, con el fin de fiscalizar las mismas.
