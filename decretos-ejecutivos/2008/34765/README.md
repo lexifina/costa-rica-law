@@ -14,3 +14,4 @@ Reglamento a la Ley General de Telecomunicaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-26 | la propia norma |
+| 2 | 2008-12-01 | Decreto Ejecutivo 34916 (2008-12-01) |
