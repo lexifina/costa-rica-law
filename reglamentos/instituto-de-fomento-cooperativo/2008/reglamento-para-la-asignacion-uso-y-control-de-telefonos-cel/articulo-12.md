@@ -1,0 +1,1 @@
+Artículo 12.—Uso del teléfono celular en vacaciones o incapacidad: Queda prohibido el uso del teléfono propiedad del INFOCOOP, cuando el funcionario se encuentre de vacaciones o incapacitado por más de un mes calendario. Para este efecto se pondrá el aparato y accesorios bajo custodia de la Proveeduría Institucional.
