@@ -1,17 +1,21 @@
-Artículo 16.—Bajo ningún motivo podrá excederse la capacidad de la Sala, la cual es de 1091 (un mil noventa y un) asientos. Para todas las funciones y espectáculos públicos, serán reservados los boletos de cortesía de las siguientes localidades:
-a. Palco Presidencial con 12 asientos para el Presidente de la República.
-b. Palco izquierdo Número 5 con seis asientos para el (la) Ministro (a) de Cultura Juventud y Deportes.
-c. Palco Derecho Número 5 con seis asientos para el (la) viceministro (a) de Cultura Juventud y Deportes.
-d. Dos lugares en los balcones del segundo piso para cada uno de los siguientes funcionarios:
-1. Miembros de la Junta Directiva del Teatro Popular Melico Salazar.
-2. Viceministro (a) de Juventud.
-3. Director Ejecutivo del Teatro.
-4. Director General de Cultura.
-5. Administrador (a) del Teatro.
-6. Director Taller Nacional de Danza.
-7. Director Taller Nacional de Teatro.
-8. Director del Festival de las Artes.
-e. Quince lugares para Relaciones Públicas del Teatro.
-f. Cuarenta y seis espacios sin número para los funcionarios del Teatro.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 27738 de 15 de febrero de 1999, publicado en La Gaceta N° 65 de 06 de abril de 1999.)
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31398 de 10 de setiembre de 2003, publicado en La Gaceta N° 200 de 17 de octubre de 2003.)
+Artículo 16.—La capacidad total de la Sala principal del Teatro, es de 1089 (mil ochenta y nueve) asientos. Bajo ninguna circunstancia podrá excederse la capacidad del Teatro.
+Para todos los eventos y espectáculos públicos que se presenten en el Teatro, serán reservados los boletos de cortesía de las siguientes localidades:
+1. Palco Presidencial con doce asientos para el Presidente de la República.
+2. Palco izquierdo Nº 5 (segundo piso) con seis asientos para el (la) Ministro (a) de Cultura y Juventud.
+3. Palco derecho Nº 5 (segundo piso) con seis asientos para el (la) Viceministro (a) de Cultura.
+4. Dos asientos en los balcones del segundo piso para cada uno de los siguientes miembros de la Junta Directiva del Teatro:
+Director (a) General del Centro Costarricense de Producción Cinematográfica.
+Director (a) General y Artístico (a) de la Compañía Lírica Nacional.
+Director (a) General y Artístico (a) de la Compañía Nacional de Danza.
+Director (a) General y Artístico (a) de la Compañía Nacional de Teatro.
+Director (a) Artístico (a) de la Orquesta Sinfónica Nacional (actualmente Director (a) General del Centro Nacional de la Música ).
+Director (a) del Programa Juvenil de la Orquesta Sinfónica Nacional (actualmente Director (a) del Instituto Nacional de la Música ).
+5. Dos asientos en los balcones del segundo piso para cada uno de los siguientes funcionarios:
+a. Viceministro (a) de Juventud.
+b. Director (a) Ejecutivo (a) del Teatro.
+c. Director (a) del Programa Nacional para el Desarrollo de las Artes Escénicas.
+d. Director (a) del Taller Nacional de Danza.
+e. Director (a) del Taller Nacional de Teatro.
+6. Quince asientos para Relaciones Públicas del Teatro, administrados por la Dirección Ejecutiva.
+7. Treinta y seis espacios sin número para los funcionarios del Teatro, que serán asignados por la Dirección Ejecutiva , de manera equitativa y razonable.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35078 de 3 de diciembre de 2008).
