@@ -1,0 +1,1 @@
+Artículo 13.—De las tarjetas o registros de control: Todo vehículo municipal contara con dos tarjetas o registros, una denominada “Control de kilometraje y combustible” y otra denominada “Control de mantenimiento”.

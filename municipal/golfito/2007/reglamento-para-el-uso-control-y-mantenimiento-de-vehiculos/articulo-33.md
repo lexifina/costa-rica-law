@@ -1,0 +1,1 @@
+Artículo 33.—Reforma parcial o total: Para la reforma parcial o total de este Reglamento se requerirá el voto de las dos terceras partes del total de los Regidores Propietarios del Concejo Municipal de Golfito.

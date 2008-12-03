@@ -1,0 +1,1 @@
+Artículo 19.—Prohibición de estacionamiento: Los vehículos de la municipalidad no deberán ser estacionados por sus conductores frente a cantinas, tabernas o similares ni frente a locales cuya fama riña con la moral y las buenas costumbres, salvo solo por cuestiones laborales.

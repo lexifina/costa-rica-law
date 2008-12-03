@@ -1,0 +1,1 @@
+Artículo 31.—Sanciones: Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el estatuto Autónomo de Servicios de la Municipalidad, el Código de Trabajo y este reglamento.

@@ -1,0 +1,3 @@
+CAPITULO IV
+De la autorización y del control
+Artículo 12.—Una vez que se ha presentado una boleta de solicitud y autorización de usos de vehículos, el director del Área respectiva, luego de comprobar disponibilidad del automotor procederá a autorizarla con su firma. En caso de ausencia del director la boleta la firmara el funcionario que expresamente haya sido designado para tal efecto por aquel. Para el uso de vehículos fuera de horario normal se utilizara la misma boleta, sin embargo la misma solo deberá ser autorizada por el director o por el alcalde. Además en esos casos se deberá indicar expresamente en la boleta que se autoriza el uso del vehículo fuera de horario normal.
