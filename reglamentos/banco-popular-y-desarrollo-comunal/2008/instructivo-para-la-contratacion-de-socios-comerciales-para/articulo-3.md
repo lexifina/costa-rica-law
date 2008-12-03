@@ -1,0 +1,1 @@
+3. Vigencia de este instructivo. El plazo de vigencia de este instructivo será por dos años a partir de la fecha del oficio de autorización emitido por la Contraloría General de la República, es decir a partir del día 3 de diciembre del 2008, el cual podrá ser prorrogado por períodos iguales previa autorización para esos fines por parte de dicho órgano contralor.
