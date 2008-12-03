@@ -14,3 +14,4 @@ Reglamento de las Juntas de Adquisiciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-27 | la propia norma |
+| 2 | 2008-12-03 | Reglamento 5853 (2008-12-03) |
