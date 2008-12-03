@@ -6,4 +6,5 @@ d. Informar: Dar noticia por escrito de una cosa.
 e. Operadora: Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, S. A.
 f. Vehículo: Todo vehículo propiedad de la Operadora, o que sea utilizado por ésta en virtud de un convenio con su propietario, siempre que éste no sea funcionario o empleado de la Operadora.
 g. Vehículo de uso administrativo: Los destinos para los servicios regulares de transporte en el desarrollo normal de las actividades de la Operadora.
-h. Vehículo de uso discrecional: El asignado al Gerente de la Operadora en funciones propias de su cargo.
+h. Vehículos de Uso Discrecional: Los asignados al Gerente General y Auditor Interno de Popular Pensiones en funciones propias de sus cargos.
+(Así reformado el inciso anterior mediante sesión N° 294 del 3 de diciembre de 2008)

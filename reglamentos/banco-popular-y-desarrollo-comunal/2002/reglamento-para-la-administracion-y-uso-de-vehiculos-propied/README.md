@@ -14,3 +14,4 @@ Reglamento para la administración y uso de vehículos propiedad de la Operadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-01 | la propia norma |
+| 2 | 2008-12-03 | Reglamento 294 (2008-12-03) |
