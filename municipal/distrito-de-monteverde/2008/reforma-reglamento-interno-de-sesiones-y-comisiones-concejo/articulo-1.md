@@ -1,0 +1,5 @@
+CONCEJO MUNICIPAL DE DISTRITO DE MONTEVERDE
+Acuerdo Nº 4 tomado por el Concejo Municipal de Distrito de Monteverde en la sesión ordinaria Nº 483 del 10 de noviembre del 2008 en el capítulo VIII, artículo 8º, inciso d), que dice:
+Acuerdo Nº 4:
+“Modificar el Reglamento de Sesiones del Concejo Municipal de Distrito de Monteverde, para que el artículo 4º se lea como sigue: “El quórum para sesionar válidamente será de tres miembros del Concejo. Para efectos de conformar el quórum, en caso de ausencia de concejales propietarios, procederá la sustitución con concejales suplentes, en los términos señalados por el Código Municipal. Los Concejales podrán ausentarse para representar al Concejo Municipal de Distrito y se les otorgará licencia con goce de dieta según el caso. Dicha licencia será facultativa del Presidente del Concejo Municipal o de quien ocupe la Presidencia. Publíquese en Diario Oficial La Gaceta. Acuerdo en firme. Dispénsese todo trámite de comisión.
+Monteverde, 13 de noviembre del 2008
