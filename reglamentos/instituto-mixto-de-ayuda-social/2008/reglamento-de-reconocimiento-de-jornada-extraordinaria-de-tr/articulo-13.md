@@ -1,0 +1,1 @@
+Artículo 13.—Del reconocimiento mínimo. Solamente se autoriza el pago de tiempo extraordinario a aquellos funcionarios que laboren más de una hora extra antes o después de su jornada ordinaria, y estará sujeto a la disponibilidad presupuestaria.

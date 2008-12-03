@@ -1,0 +1,1 @@
+Artículo 36.—De los operadores de equipo móvil durante giras. En el caso de los operadores de Equipo móvil, el trabajo del tiempo extraordinario estará respaldado por el “Formulario para Solicitud de Servicios de Transporte”.

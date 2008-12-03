@@ -1,0 +1,1 @@
+Artículo 18.—Registros. Todo funcionario a quien se le autorice laborar tiempo extraordinario, deberá efectuar los registros respectivos de entrada y salida de su jornada en los instrumentos que establezca Recursos Humanos, donde se demuestre el tiempo laborado.

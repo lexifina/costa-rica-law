@@ -1,0 +1,2 @@
+Artículo 22.—Ausencia de autorización. Recursos Humanos no tramitará ningún reporte de horas extras que no haya sido autorizado previamente por el superior jerárquico de la unidad administrativa correspondiente o la Gerencia General.
+Se exceptúan de lo anterior las situaciones indispensables para la atención de emergencias debidamente declaradas como tales, por los entes u órganos correspondientes, en cuyo caso la autorización podrá ser posterior a la ocurrencia de la emergencia.

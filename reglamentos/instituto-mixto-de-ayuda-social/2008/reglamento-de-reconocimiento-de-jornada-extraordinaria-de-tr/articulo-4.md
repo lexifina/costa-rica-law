@@ -1,0 +1,1 @@
+Artículo 4º—Exclusión. Se excluyen del reconocimiento de tiempo extraordinario que establece este reglamento, los puestos de Presidente Ejecutivo, Gerente General, Subgerentes, a los empleados de confianza y al Auditor y Subauditor Internos.

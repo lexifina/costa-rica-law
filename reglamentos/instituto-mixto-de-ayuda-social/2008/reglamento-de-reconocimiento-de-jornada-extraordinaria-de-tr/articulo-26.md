@@ -1,0 +1,3 @@
+Artículo 26.—Plazo para presentación del reporte.
+a) El reporte para el pago de horas extras debe presentarse en Recursos Humanos, dentro de los cinco días hábiles posteriores al mes en que se trabajó el tiempo extraordinario. Después de ese plazo, no se tramitará ninguna retribución por horas extras a excepción de lo establecido en el artículo siguiente.
+b) Quedan a salvo las situaciones en las cuales a criterio de Recursos Humanos o la Gerencia General se requiere de una ampliación a la autorización dada por el superior inmediato, o el cumplimiento de requisitos de forma necesarios para hacer efectivo el pago.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+De las responsabilidades, limitaciones y del pago
+Artículo 29.—De las responsabilidades del servidor que labora en tiempo extraordinario. Son responsabilidades del funcionario al que se le autoriza laborar tiempo extraordinario:
+a) Cumplir con la normativa y los procedimientos establecidos.
+b) Efectuar los registros respectivos en los medios establecidos para el registro de marcas, donde se demuestre el tiempo efectivamente laborado. Salvo casos excepcionales, se permitirá el control en forma manual u otros que determine Recursos Humanos, el cual debe ser refrendado por el superior inmediato, dando fe del tiempo extraordinario reportado por el funcionario. No se permitirá como registro de puntualidad y asistencia la bitácora de los Agentes de Seguridad y Vigilancia.
+c) Informar ante su jefe inmediato cualquier daño o desperfecto encontrado en el sistema de registro de marcas, con el fin de que el tiempo extraordinario se registre en los medios que Recursos Humanos determine.
+d) Confeccionar y entregar a su jefe inmediato la certificación del tiempo laborado en forma extraordinaria, indicando todos los datos que en el documento se solicitan, haciéndose responsable por cualquier omisión o alteración que se diera antes de ser entregada a su jefatura. Esta además deberá ser presentada en forma ordenada, sin tachaduras ni borrones, tomando en cuenta las indicaciones expuestas en el artículo 24 de este reglamento, de lo contrario no se tramitará.

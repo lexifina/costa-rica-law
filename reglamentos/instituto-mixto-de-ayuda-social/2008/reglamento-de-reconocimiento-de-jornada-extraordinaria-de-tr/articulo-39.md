@@ -1,0 +1,1 @@
+Artículo 39.—Rige: El presente reglamento fue aprobado por parte del Consejo Directivo mediante acuerdo CD 022-08, Acta Nº 003-08 de fecha 14 de enero de 2008, entrará en vigencia y será de aplicación obligatoria a partir de su publicación en el Diario Oficial.

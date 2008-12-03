@@ -1,0 +1,3 @@
+Artículo 31.—Del Área Financiera. En el ámbito de aplicación de este Reglamento, son responsabilidades del Área Financiera:
+a) Conciliar mensualmente las cifras que se generan en Recursos Humanos respecto del pago de la planilla por tiempo extraordinario, determinar las causas de eventuales diferencias y, de ser necesario, solicitar el adoptar las medidas correctivas para establecer el dato real sobre el gasto por ese concepto.
+b) Ejercer un adecuado control del gasto y el monto presupuestado y presentar informes periódicos de las tendencias entre el gasto y las cifras presupuestadas, proponiendo oportunamente, a la Gerencia General, las medidas de solución que se estimen pertinentes.

@@ -1,0 +1,1 @@
+Artículo 11.—De los principios para la autorización. La autorización del reconocimiento de horas extras por parte del jefe de cada unidad administrativa, deberá realizarse con estricto apego a los principios de necesidad, razonabilidad y racionalización del gasto público.

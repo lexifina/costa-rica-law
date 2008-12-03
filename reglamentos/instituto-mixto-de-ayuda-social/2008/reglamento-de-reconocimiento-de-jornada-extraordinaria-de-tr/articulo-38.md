@@ -1,0 +1,1 @@
+Artículo 38.—Del régimen disciplinario. Las faltas en que incurran los funcionarios en la aplicación de este reglamento, serán sancionadas según lo establecido en capítulo décimo sétimo del Reglamento Autónomo de Servicios del IMAS u otra normativa aplicable y concordante.
