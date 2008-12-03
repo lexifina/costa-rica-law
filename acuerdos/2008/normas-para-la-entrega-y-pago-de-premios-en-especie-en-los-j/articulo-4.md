@@ -1,0 +1,2 @@
+IV.—Mecánica del Sorteo. Durante el programa La Rueda de La Fortuna se realiza el sorteo correspondiente y se escogen dos personas favorecidas, de lo cual se levanta el acta respectiva.
+La escogencia de los dos ganadores se realizará mediante el sorteo entre todos los participantes que activaron un boleto del Juego E-7, para cada semana. La escogencia de los ganadores se hará ya sea mediante una tómbola electrónica o a través de la impresión física de dos comprobantes de las diferentes llamadas activadas al call center.
