@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento se emite al amparo de lo dispuesto por el artículo 2º, inciso h), de la Ley de Contratación Administrativa, el artículo 110, inciso 3) del Reglamento a la Ley de Contratación Administrativa, además los oficios Nos. 01703 y 00377 del 19 de febrero del 2002 y 6 de enero del 2006, respectivamente, ambos de la Contraloría General de la República.

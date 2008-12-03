@@ -1,0 +1,1 @@
+Artículo 30.—El Agente Recaudador deberá guardar la confidencialidad y exclusividad de la información y material del que sea titular o que posea del ICE, y a la cual tenga acceso en virtud de la contratación existente entre las partes, así como asegurar el respeto de este carácter de confidencialidad de la información por parte del Agente Recaudador.

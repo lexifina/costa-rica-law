@@ -1,0 +1,1 @@
+Artículo 25.—Le corresponde al Agente Recaudador velar por la seguridad del dinero que recaude y deberá depositarlo conforme lo establecido en el Manual de Recaudadores y en el contrato que suscriba con el ICE, en cualquiera de las cuentas corrientes que el Instituto le indique.
