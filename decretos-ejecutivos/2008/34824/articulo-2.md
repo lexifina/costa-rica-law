@@ -1,0 +1,1 @@
+Artículo 2º—Conforme a la autorización otorgada, la Asociación indicada, deberá dictar los reglamentos respectivos que regulen en forma clara e idónea, los procedimientos generales de inscripción, desinscripción, recursos administrativos, así como definirá las tarifas de cobro por los servicios de registro.

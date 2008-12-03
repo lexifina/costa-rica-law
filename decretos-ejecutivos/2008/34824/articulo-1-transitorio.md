@@ -1,0 +1,2 @@
+Transitorio I.—En un término perentorio no mayor de noventa días hábiles, contados a partir de la publicación del presente decreto la Asociación deberá haber promulgado los reglamentos necesarios que contemplen la inscripción, desinscripción, recursos administrativos entre otros aspectos y haber definido las tarifas de cobro por los servicios de registro.
+Dado en la Presidencia de la República.—San José, a los doce días del mes de agosto del dos mil ocho.
