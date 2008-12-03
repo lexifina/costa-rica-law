@@ -1,0 +1,1 @@
+Artículo 2º—BANCRÉDITO funcionará bajo la dirección inmediata de una Junta Directiva General, en adelante denominada Junta Directiva, integrada por siete miembros, los cuales son nombrados por el Consejo de Gobierno en los términos que la ley indica por períodos de ocho años, pudiendo ser reelectos.

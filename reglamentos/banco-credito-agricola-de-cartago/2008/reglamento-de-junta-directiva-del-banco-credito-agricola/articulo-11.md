@@ -1,0 +1,2 @@
+Artículo 11.—La convocatoria a sesión extraordinaria, deberá hacerse al menos con veinticuatro horas de antelación a la fecha prevista para su realización y deberá indicarse en forma expresa los temas, el lugar y hora de la reunión.
+La sesión extraordinaria, también puede ser convocada para conocer temas de extrema urgencia, cuando cinco de los miembros de la Junta Directiva lo soliciten. En estos casos, la reunión puede realizarse en forma inmediata.

@@ -1,0 +1,1 @@
+Artículo 45.—Cuando la capacidad del Libro de Actas se encuentre agotada, el tomo correspondiente deberá ser debidamente encuadernado, empastado, rotulado y guardado en un lugar apropiado, que asegure al máximo su buen estado y conservación.

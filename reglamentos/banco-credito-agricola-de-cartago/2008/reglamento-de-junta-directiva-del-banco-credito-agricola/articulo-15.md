@@ -1,0 +1,1 @@
+Artículo 15.—Salvo disposición expresa en contrario, las sesiones ordinarias y extraordinarias de la Junta Directiva, se efectuarán en el salón de sesiones de la Junta Directiva en las Oficinas Centrales de BANCRÉDITO en la ciudad de Cartago.

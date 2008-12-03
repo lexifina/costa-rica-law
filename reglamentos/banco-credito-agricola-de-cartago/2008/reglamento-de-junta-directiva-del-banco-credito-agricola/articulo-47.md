@@ -1,0 +1,1 @@
+Artículo 47.—Cuando por alguna circunstancia imprevisible, una página del Libro de Actas deba ser sustituida por deterioro o extravío, tal asunto será puesto en conocimiento de la Junta Directiva. La Oficina de Secretaría solicitará simultáneamente la sustitución de la página a la Auditoría Interna del Banco, conforme a los trámites establecidos para estos casos.

@@ -1,0 +1,1 @@
+Artículo 32.—La Agenda deberá distribuirse entre los Directores, Gerente, Subgerentes, Auditor y Asesor Legal de la Junta Directiva, al menos veinticuatro horas antes de iniciarse la sesión respectiva.

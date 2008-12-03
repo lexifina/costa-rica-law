@@ -1,0 +1,1 @@
+Artículo 14.—Si por falta de quórum, una sesión no pudiese iniciar a la hora convenida, se dará un tiempo de espera hasta de treinta minutos para completar el quórum de ley para efectuar la sesión. Si transcurrido ese tiempo no llegare a completarse el quórum, se levantará un acta que firmarán los presentes, en la cual se dejará consignada esta circunstancia.

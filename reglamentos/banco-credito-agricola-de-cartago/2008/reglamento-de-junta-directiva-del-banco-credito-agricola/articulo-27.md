@@ -1,0 +1,1 @@
+Artículo 27.—La Comisión deberá estar integrada por no menos de dos miembros de la Junta Directiva y podrán formar parte de ella, funcionarios de la Administración y en caso de que se requiera la participación de funcionarios de la Auditoría, ésta será con carácter de asesoría en asuntos de su competencia.

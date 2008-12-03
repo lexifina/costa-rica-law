@@ -1,0 +1,1 @@
+Artículo 35.—Cuando un Director desee que su opinión o su voto conste literalmente en el acta, lo solicitará así expresamente a la Oficina de Secretaría en la misma sesión, para que ésta lo reproduzca en el acta correspondiente.

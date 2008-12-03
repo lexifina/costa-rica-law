@@ -1,0 +1,1 @@
+Artículo 9º—Cuando en alguna sesión, por cualquier motivo, causa, razón o circunstancia, el Presidente o Vicepresidente de la Junta Directiva estuvieren ausentes o impedidos del ejercicio de su cargo, los restantes miembros de la Junta Directiva nombrarán dentro de ellos un Director como Presidente Ad Hoc.

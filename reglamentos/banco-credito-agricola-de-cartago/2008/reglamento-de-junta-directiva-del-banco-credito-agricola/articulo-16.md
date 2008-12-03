@@ -1,0 +1,1 @@
+Artículo 16.—Es obligación de los miembros de la Junta Directiva, y de los funcionarios obligados a asistir, permanecer durante el desarrollo de toda la sesión. Si alguno tiene que retirarse, por un motivo plenamente justificado, debe solicitar el permiso a la Presidencia, y se hará constar en actas el período de ausencia correspondiente.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la asistencia y participación en sesiones de Junta Directiva
+Artículo 22.—El Gerente, los Subgerentes y el Asesor Legal, asistirán obligatoriamente a las sesiones de la Junta Directiva, en las cuales tendrán voz pero no voto. Podrán sin embargo, cuando lo consideren necesario, hacer constar en las actas respectivas sus opiniones sobre los asuntos que se debatan. A las sesiones de Junta Directiva, podrán asistir en calidad de invitados, otro personal del Banco y personas ajenas a la Institución, invitadas especialmente, de manera personal o virtual, utilizando las tecnologías de comunicación disponibles, como video conferencia y tele conferencia, entre otros. Esta posibilidad aplicará también para el Gerente, los Subgerentes y el Asesor Legal, en situaciones que se ameriten.
+La asistencia del Auditor, será de conformidad con lo establecido en el Reglamento de Organización y Funcionamiento de la Auditoría Interna.

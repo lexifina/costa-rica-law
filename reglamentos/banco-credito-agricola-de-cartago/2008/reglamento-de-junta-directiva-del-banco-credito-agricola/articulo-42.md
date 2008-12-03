@@ -1,0 +1,1 @@
+Artículo 42.—Todas las dependencias del Banco, deberán dar atención inmediata a los acuerdos que adopte la Junta Directiva. La Gerencia indicará a cuál o cuáles de ellas corresponden ejecutar la resolución tomada. Ese Despacho deberá llevar además, un registro especial de cada acuerdo y verificar de tiempo en tiempo, su fiel cumplimiento.
