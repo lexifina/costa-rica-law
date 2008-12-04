@@ -1,0 +1,2 @@
+ARTÍCULO 4.-
+Autorízase a todas las municipalidades del país para que establezcan normas de excepción urbana, salvo en lo referido a la legislación ambiental vigente, que permitan emprender programas para el desarrollo integral de las propiedades donde se ubiquen los asentamientos en precario ya existentes. Esta autorización también aplica para los concejos municipales de distrito de todo el territorio nacional.

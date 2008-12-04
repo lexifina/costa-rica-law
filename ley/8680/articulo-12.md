@@ -1,0 +1,2 @@
+ARTÍCULO 12.-
+Ningún núcleo familiar podrá ser beneficiario, más de una vez, de la titulación dispuesta en esta Ley; tampoco aquellos donde al menos uno de sus miembros tenga otros bienes inmuebles inscritos en el Registro Nacional. Los beneficiarios individuales estarán sujetos a la misma prohibición. En ambos casos, la propiedad estará sujeta a las limitaciones sobre uso y disfrute contenidas en las disposiciones del Sistema Financiero Nacional para la Vivienda.

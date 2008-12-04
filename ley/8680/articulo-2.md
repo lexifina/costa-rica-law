@@ -1,0 +1,6 @@
+CAPÍTULO II
+AUTORIZACIONES
+ARTÍCULO 2.-
+Autorízase a las instituciones de Derecho público, empresas públicas y municipalidades para que donen e inscriban a nombre del Banco Hipotecario de la Vivienda, en adelante Banhvi, los inmuebles de su propiedad que a la fecha de entrada en vigencia de esta Ley, se encuentren con asentamientos en precarios y/o tugurios. Dichos inmuebles integrarán el Fondo de Subsidios para la Vivienda (Fosuvi), de conformidad con el artículo 46 de la Ley Nº 7052, de 13 de noviembre de 1986, y sus reformas.
+Las disposiciones de esta Ley no serán aplicables a los bienes inmuebles sujetos al servicio o dominio públicos que la Asamblea Legislativa aún no haya desafectado mediante los trámites correspondientes, en cuyo caso el plazo establecido en el artículo 15 de esta Ley comenzará a correr a partir de la desafectación.
+No estarán sujetos a las disposiciones de esta Ley los terrenos ubicados en áreas silvestres protegidas, cualquiera que sea su categoría de manejo, áreas de protección del recurso hídrico, patrimonio natural del Estado, de conformidad con la legislación vigente, las zonas de uso público, los territorios indígenas reconocidos por la ley o por decreto ejecutivo ni aquellos terrenos que se encuentren en zonas de riesgo, así declaradas por la Comisión Nacional para la Prevención de Riesgos y Atención de Emergencias.
