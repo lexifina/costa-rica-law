@@ -1,0 +1,1 @@
+Artículo 11.—Los mensajes particulares de los participantes de Central Directo y sus operaciones, serán remitidos por el BCCR a las direcciones de correo electrónico registradas por ellos en Central Directo.

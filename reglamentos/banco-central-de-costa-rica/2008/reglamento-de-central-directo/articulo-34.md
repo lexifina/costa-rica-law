@@ -1,0 +1,1 @@
+Artículo 34.—La clave de acceso tiene un período máximo de vigencia de ciento veinte días naturales, manteniendo el participante la potestad de cambiarla dentro de ese periodo cada vez que así lo determine y siempre que cumpla con la vigencia mínima de dos días establecida para la clave.

@@ -1,0 +1,2 @@
+Artículo 36.—El participante es quien decide la composición de su clave auxiliar, ya sea durante el trámite de suscripción, cada vez que desee modificarla, o cuando deba cambiarla por olvido. En este último caso, debe sujetarse a los procedimientos operativos establecidos por el BCCR para su reposición, los cuales pueden ser consultados en el portal de Central Directo.
+El participante no podrá realizar un nuevo cambio de clave durante los dos días naturales siguientes a la modificación de la clave.

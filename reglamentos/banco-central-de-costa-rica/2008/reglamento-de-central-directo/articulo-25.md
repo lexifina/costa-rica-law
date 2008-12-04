@@ -1,0 +1,1 @@
+Artículo 25.—Toda operación realizada con un acceso válido a Central Directo, se tendrá por imputada a la persona titular del código de usuario y de la clave de seguridad utilizados para el acceso, con todos los efectos de eficacia y validez jurídica aplicables.

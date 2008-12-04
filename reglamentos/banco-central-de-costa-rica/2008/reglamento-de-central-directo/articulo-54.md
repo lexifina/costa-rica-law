@@ -1,0 +1,1 @@
+Artículo 54.—El participante puede ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios TFT y CCD disponibles en todas las entidades asociadas al SINPE. Estos movimientos los podrá realizar en adición a los que ordene desde Central Directo para trasladar fondos de su CC a la CCI.

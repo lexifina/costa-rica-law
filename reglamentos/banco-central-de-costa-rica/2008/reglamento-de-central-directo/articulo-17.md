@@ -1,0 +1,2 @@
+Artículo 17.—El participante para suscribirse a Central Directo debe aportar la información personal necesaria para identificarse en el portal, así como la información requerida para mantener un canal directo de comunicación que facilite el envío de notificaciones. Como parte del trámite de suscripción, Central Directo envía al solicitante una notificación confirmando el resultado final de su trámite.
+Las personas jurídicas deberán registrar la información personal de su representante para el portal y las personas físicas podrán designar beneficiarios.
