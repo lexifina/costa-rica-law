@@ -14,3 +14,4 @@ Reglamento de Central Directo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-04 | la propia norma |
+| 2 | 2008-12-04 | Reglamento 5403 (2008-11-19) |
