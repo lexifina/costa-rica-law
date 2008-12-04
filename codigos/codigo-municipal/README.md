@@ -1,6 +1,6 @@
 # Código Municipal
 
-Ley N° 7794 del 1998-04-30. SINALEVI, ficha 40197: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40197&param2=74802&param3=1>.
+Ley N° 7794 del 1998-04-30. SINALEVI, ficha 40197: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40197&param2=74852&param3=1>.
 
 Publicada en La Gaceta N° 94 del 1998-05-18.
 
@@ -19,3 +19,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 70 | 2008-01-01 | Ley 8611 | 2007-11-12 |
 | 10 de 70 | 2008-02-25 | Resolución 405 (2008-02-08) | 2008-02-08 |
 | 11 de 70 | 2008-12-02 | Ley 8679 | 2008-11-12 |
+| 12 de 70 | 2008-12-04 | Ley 8678 | 2008-11-18 |
