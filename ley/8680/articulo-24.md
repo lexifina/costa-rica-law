@@ -1,0 +1,2 @@
+ARTÍCULO 24.-
+En cualquier tiempo en que, no habiendo transcurrido todavía los tres años a que se refiere el artículo anterior, se demuestre que el título posesorio se ha levantado contra las leyes vigentes, el Banhvi podrá decretar, en el expediente original, la nulidad absoluta del título y de su respectiva inscripción en el Registro y librará la ejecutoria correspondiente, para que esa oficina cancele el asiento. Transcurrido el término de tres años de la inscripción del título, toda acción deberá decidirse en juicio declarativo.
