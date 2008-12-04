@@ -1,0 +1,2 @@
+ARTÍCULO 7.-
+El Ministerio de Vivienda y Asentamientos Humanos podrá suscribir convenios interinstitucionales con otras instituciones del Estado, para que, en coordinación con las entidades autorizadas por el Sistema Financiero Nacional para la Vivienda, procedan a la identificación de los asentamientos en precario, la ubicación de propiedades que deben titularse y la individualización de sus beneficiarios.
