@@ -1,0 +1,6 @@
+Uso de altoparlante en vehículos (perifoneo)
+Artículo 2º—Toda persona física o jurídica que quiera optar por una patente o permiso provisional para ejercer dicha actividad perifoneo comercial y otros, deberá cumplir con los siguientes requisitos y disposiciones:
+a) Permisos del Ministerio de Salud donde se indique los decibeles permitidos como la altura y colocación de los parlantes, esto de conformidad con la Ley General de Salud, (artículo 20 “límite de niveles de sólido “del reglamento para el control de la contaminación por ruido), así como todos los seguros del (INS), y estar inscrito en un registro Municipal el cual le asignará un marchamo.
+b) Todo vehículo que transite en la vía pública con equipos amplificadores, deberá contar con la tarjeta de circulación y revisión técnica al día.
+c) Todo interesado deberá presentar ante el departamento de Rentas y Cobranzas, solicitud de la actividad. El texto del perifoneo deberá estar de acuerdo con las buenas costumbres y la moral de la comunidad. En caso de no acatar esta disposición se cancelará la patente.
+d) Todo solicitante debe adjuntar certificación emitida por este municipio, que haga constar que está al día en el pago de los impuestos, tasas y Servicios.

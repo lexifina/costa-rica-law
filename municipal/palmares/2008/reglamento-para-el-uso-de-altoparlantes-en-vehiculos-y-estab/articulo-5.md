@@ -1,0 +1,1 @@
+Artículo 5º—Con lo que dispone el artículo 102 de la Ley 7331, Ley de Tránsito por Vías Públicas Terrestres, todo vehículo con altoparlante deberá contar con permiso de la Dirección General de Transporte Público.

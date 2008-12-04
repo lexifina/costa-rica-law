@@ -1,0 +1,1 @@
+Artículo 3º—El horario de funcionamiento de los altoparlantes será de lunes a viernes de 9:00 a.m. a 5:00 p.m., sábados de 9:00 a.m. a 3:00 p.m., domingos y días feriados no se permitirá el funcionamiento de esta actividad. Es totalmente prohibido el funcionamiento de altoparlantes fuera de este horario salvo situaciones de interés público.

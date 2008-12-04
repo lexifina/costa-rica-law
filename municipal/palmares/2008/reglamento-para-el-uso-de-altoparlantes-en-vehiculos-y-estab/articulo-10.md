@@ -1,0 +1,1 @@
+Artículo 10.—En vista que el artículo 102 de la Ley 7331, Ley de Tránsito por Vías Públicas Terrestres señala, la prohibición de aparatos amplificadores 100 metros antes y 100 después de clínicas de hospitales, centros de enseñanzas e Iglesias por lo tanto no se extenderán permisos en las cercanías de estas instituciones cuando en estos lugares se estén desarrollando actividades.

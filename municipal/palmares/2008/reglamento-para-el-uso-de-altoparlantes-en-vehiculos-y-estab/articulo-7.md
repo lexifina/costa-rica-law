@@ -1,0 +1,1 @@
+Artículo 7º—Todo interesado deberá presentar ante el departamento de Rentas y Cobranzas de la Municipalidad de Palmares, solicitud de la actividad a desarrollar; deberá anotar en el mismo, el texto de la publicidad que desarrollará de su establecimiento hacia la vía pública.
