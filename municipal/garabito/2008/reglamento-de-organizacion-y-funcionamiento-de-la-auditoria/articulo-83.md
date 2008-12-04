@@ -1,0 +1,1 @@
+Artículo 83.—Programa de trabajo. Los funcionarios y las funcionarias de la Auditoría Interna deberán preparar el programa de trabajo que cumplan con los objetivos del mismo. Estos programas deberán estar por escrito.

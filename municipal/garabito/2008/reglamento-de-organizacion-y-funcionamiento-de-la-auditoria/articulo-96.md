@@ -1,0 +1,1 @@
+Artículo 96.—Incorporación del conocimiento sobre controles. Los funcionarios y las funcionaras de la Auditoría Interna coadyuvarán con el SERVI mediante la incorporación de los conocimientos de los controles obtenidos en los estudios, mediante los productos de los servicios de Auditoría.

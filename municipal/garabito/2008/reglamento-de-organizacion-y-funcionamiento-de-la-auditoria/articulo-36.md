@@ -1,0 +1,3 @@
+Artículo 36.—Recursos humanos. Para el desarrollo de las actividades, la Municipalidad de Garabito deberá dotar a la Auditoria Interna de los recursos humanos necesarios, para el cumplimiento de los trabajos en las distintas áreas de especialización.
+De ser necesarios la incorporación de profesionales o técnicos de diferentes disciplinas, la Auditoría Interna podrá solicitar la asignación temporal de esos recursos.
+En ocasiones en que la Auditoría Interna no disponga de algún recurso especializado, ni pueda ser suplido temporalmente por la Administración, se podrá contratar en forma externa o solicitar la colaboración de otras auditorias internas del sector público.

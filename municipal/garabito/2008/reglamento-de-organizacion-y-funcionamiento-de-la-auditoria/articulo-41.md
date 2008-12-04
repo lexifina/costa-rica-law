@@ -1,0 +1,3 @@
+CAPÍTULO 9
+Relaciones y coordinaciones
+Artículo 41.—Coordinaciones internas y externas. El Auditor o Auditora interna deberá coordinar a lo interno de la institución la realización de los servicios de la actividad de la Auditoría Interna así como, a solicitud de la Contraloría General de la República, los auditores externos y la colaboración de auditores o auditoras internas del sector público para la realización de auditorias especificas, compartir información; coordinar otras actividades con los órganos judiciales, para minimizar la duplicación de esfuerzos. Podrá la Auditoria Interna incorporar profesionales o técnicos de diferentes disciplinas funcionarios o no de la Institución para que lleven a cabo labores de su especialidad en apoyo a los estudios de auditoría.

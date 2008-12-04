@@ -1,0 +1,1 @@
+Artículo 12.—Participación en comisiones o sesiones del Concejo. La Auditora o Auditor Interno u otros funcionarios y funcionarias de la Auditoría Interna podrán participar en reuniones o en las sesiones del Concejo Municipal, pero esto no constituirá la regla sino la excepción y queda a criterio del Auditor Interno el participar en dichas reuniones.
