@@ -10,3 +10,4 @@ Artículo 6°: Apruébanse los siguientes Eqresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 34800 de 2 de octubre de 2008).
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 34857 de 6 de noviembre de 2008).
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 34884 de 11 de noviembre de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34917 del 26 de noviembre de 2008)
