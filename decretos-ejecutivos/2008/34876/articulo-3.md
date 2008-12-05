@@ -1,0 +1,1 @@
+Artículo 3º—De la Dirección del Consejo. El Consejo, nombrará dentro de su seno un Presidente, un Vicepresidente y un Secretario su integración se publicará en el Diario Oficial La Gaceta, sus representantes no percibirán dieta ni salario alguno por este cargo, serán nombrados por períodos de dos años, pudiendo ser reelectos.
