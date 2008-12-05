@@ -1,0 +1,10 @@
+Nº 35099-MICIT
+EL PRESIDENTE DE LA REPÚBLICA EN EJERCICIO
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 146 de la Constitución Política; y los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978.
+Considerando:
+1º—Que la ciencia y la tecnología crean nuevo conocimiento y levantan la curiosidad del ser humano y, por todo ello, tienen el potencial de cambiar la sociedad. Su fomento cultiva individuos con un sentido de la historia de la civilización que son capaces de pensar estratégicamente para avanzar hacia una sociedad más equitativa, justa e incluyente para el desarrollo humano sostenible.
+2º—Que para lograr estos objetivos se requiere motivar la vocación y el deseo de ser investigador, creativo, y emprendedor; promover el reconocimiento social del científico, del tecnólogo, del innovador y el establecimiento de programas de divulgación científica y tecnológica consistentes y continuos hacia el ciudadano común. Además, es necesario fomentar que la ciencia y tecnología ocupen un lugar importante en la conciencia y la cultura de los ciudadanos, gobernantes, estudiantes y empresarios.
+3º—Que el benemérito de la patria, don Jorge Manuel Dengo Obregón, con su profunda sensibilidad y vocación de servicio, profesionalismo y rigurosidad, liderazgo y creatividad, han causado un profundo impacto en la sociedad costarricense y su herencia de realizaciones son un ejemplo que anhelamos seguir.
+4º—Que la Asociación de Estrategia Siglo XXI, creó el Premio Estrategia Siglo XXI: Jorge Manuel Dengo Obregón, como el máximo reconocimiento que otorga esa Asociación con la finalidad reconocer el aporte de individuos e instituciones al desarrollo del conocimiento y la innovación en procura del desarrollo nacional. Por tanto,
+Artículo 1º—Se declara de interés público el Premio Estrategia Siglo XXI: Jorge Manuel Dengo Obregón.
