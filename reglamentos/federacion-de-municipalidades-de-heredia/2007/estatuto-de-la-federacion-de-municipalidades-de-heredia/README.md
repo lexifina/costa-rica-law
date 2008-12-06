@@ -14,3 +14,4 @@ Estatuto de la Federación de Municipalidades de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-11 | la propia norma |
+| 2 | 2008-12-06 | Reglamento 0 (2008-12-06) |

@@ -1,6 +1,7 @@
 CAPÍTULO III
 De los funcionarios del Director Ejecutivo
-Artículo 29.—La Dirección Ejecutiva de la Federación estará a cargo de un(a) Director(a) Ejecutivo(a), nombrado(a) por el Consejo Directivo, por mayoría simple, por contrato por servicios profesionales, contratado a plazo fijo. Es un funcionario de confianza y en ese sentido la revocación de su contrato se da por pérdida de confianza. Al vencimiento de dicho plazo, el Consejo Directivo podrá reelegir al Director Ejecutivo por igual período.
+Artículo 29.— La Dirección Ejecutiva es el órgano superior en materia administrativa de la Federación de Municipalidades de Heredia. El Director Ejecutivo es un puesto a tiempo completo y de confianza, desempeñará su cargo por un período de dos años, pudiendo ser reelecto. Pasado el período correspondiente, el Director Ejecutivo se mantendrá en forma interina hasta tanto el nuevo Concejo Directivo lo reelija o nombre a su sustituto.
+(Así reformado el párrafo anterior en Asamblea General Extraordinaria del 6 de diciembre de 2008)
 El cargo de Director Ejecutivo tendrá los siguientes requisitos:
 a) Pertenecer y conocer el régimen municipal.
 b) Ser costarricense por nacimiento.
