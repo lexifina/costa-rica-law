@@ -1,0 +1,1 @@
+Articulo 7º—La liquidación de gastos de transporte y alimentación deberá hacerse detalladamente en los formularios que deban consignar como mínimo, los siguientes datos: fecha, número de cédula de identidad, puesto ocupado por el regidor o síndico, nombre completo, lugar de residencia, distrito al que pertenece y hora de llegada y salida a la sesión municipal.

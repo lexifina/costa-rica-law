@@ -1,0 +1,1 @@
+Articulo 3º—Las sumas a pagar por este concepto a los regidores y síndicos a que se refiere este Reglamento, es la asignación que determine la tabla de gastos de viaje y alimentación que establece la Contraloría General de la Republica por sesión asistida, así como las tarifas debidamente autorizadas por la ARESEP, para cada de las comunidades en que estos residan.

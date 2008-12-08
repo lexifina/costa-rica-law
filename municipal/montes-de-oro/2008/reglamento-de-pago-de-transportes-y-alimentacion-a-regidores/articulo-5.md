@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá al Alcalde de la Municipalidad de Montes de Oro, autorizar el pago de transporte y alimentación de los regidores y síndicos por sesión asistida, de conformidad con lo estipulado en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º—Tendrán derecho al pago por concepto de alimentación y transporte, los regidores y síndicos que habiten en el distrito de la Unión, así como los que residan en las comunidades de Zagala, Cabuyal y Zapotal. Los regidores y síndicos del distrito de San Isidro, tendrán derecho únicamente al reconocimiento del concepto de transporte.

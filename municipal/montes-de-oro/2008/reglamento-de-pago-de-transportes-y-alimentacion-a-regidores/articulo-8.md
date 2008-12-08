@@ -1,0 +1,1 @@
+Artículo 8º—Los formularios deben ser llenados al final de la sesión municipal y entregados a la Secretaria del Concejo Municipal, quien será la responsable de tramitar la firma del señor Alcalde Municipal, así como; de realizar el trámite mensual del pago respectivo.

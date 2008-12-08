@@ -1,0 +1,1 @@
+Artículo 6º—Cuando el regidor o síndico le asista el derecho al reconocimiento de gastos de transporte y alimentación por asistir a una sesión, deberá presentar la liquidación de viáticos en el formulario correspondiente por cada sesión asistida y su pago se hará efectivo al final de mes con las dietas respectivas.
