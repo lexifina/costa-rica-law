@@ -5,5 +5,7 @@ c. Recibir obsequios o dádivas cuando lo comprometa en el cumplimiento de sus d
 d. Incurrir en ilícitos penales o actos contrarios a la moral pública.
 e. En caso de ausencia deberá comunicar al INFOCOOP sobre las causas que la originaron, para que la Junta Directiva decida si justifica la ausencia.
 f. Para el representante con perfil técnico se incorporan aquellas prohibiciones que se indiquen en el contrato entre este representante y el organismo cooperativo.
-g. Representar al Organismo Cooperativo en el plenario del CONACOOP, o en algún otro organismo de integración cooperativa.
-h. No estar afectado por alguna de las incompatibilidades que señala la Ley Contra Corrupción
+g. Para el representante de la Junta Directiva que haya sido contratado bajo la modalidad de servicios profesionales, se incorporan aquellas prohibiciones que se indiquen en el contrato.
+h. Representar al Organismo Cooperativo en el plenario del CONACOOP, o en algún otro organismo de integración cooperativa.
+i. No estar afectado por alguna de las incompatibilidades que señala la Ley Contra Corrupción
+( Así reformado mediante sesión N° 3727 del 8 de diciembre del 2008 )

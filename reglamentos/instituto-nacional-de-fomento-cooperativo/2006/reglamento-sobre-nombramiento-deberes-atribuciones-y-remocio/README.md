@@ -14,3 +14,4 @@ Reglamento sobre Nombramiento, Deberes, Atribuciones y Remoción de Representant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-17 | la propia norma |
+| 2 | 2008-12-08 | Reglamento 3727 (2008-12-08) |
