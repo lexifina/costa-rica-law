@@ -1,0 +1,3 @@
+ARTÍCULO 5.-
+La posibilidad de optar por el salario escolar establecido en esta Ley, se tendrá por incorporada a todo contrato de trabajo, individual o colectivo, verbal o escrito, en el entendido de que el trabajador, voluntariamente, decida acogerse a él.
+Si el trabajador opta por el salario escolar y el patrono retiene el monto correspondiente y no lo deposita en la cuenta respectiva, para todos los efectos legales se tendrá como una retención indebida del salario, prevista en el artículo 223 del Código Penal y constituirá falta grave del patrono a las obligaciones que a él se le imponen. Dicha falta grave será sancionada con base en lo dispuesto en el inciso c) del artículo 614 del Código de Trabajo.
