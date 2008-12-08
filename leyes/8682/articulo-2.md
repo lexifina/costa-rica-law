@@ -1,0 +1,4 @@
+ARTÍCULO 2.-
+El salario escolar es un ahorro del trabajador y consiste en un porcentaje calculado sobre el salario bruto de cada servidor. El trabajador podrá optar por este derecho y para el cálculo correspondiente se aplicará el porcentaje que la persona trabajadora escoja, entre un cuatro coma dieciséis por ciento (4,16%) y un ocho coma treinta y tres por ciento (8,33%) del salario de cada mes.
+El patrono depositará el monto mensual establecido por el trabajador, en la cuenta correspondiente; este monto será acumulativo y se aplicará sobre todas las sumas que legalmente se tengan como salario.
+Por haberse aplicado sobre el salario bruto las deducciones del impuesto sobre la renta, en los casos no exentos, así como las cargas sociales respectivas, el salario escolar no estará afecto a dichas deducciones. Asimismo, el salario escolar será inembargable e inalienable, salvo por las disposiciones del artículo 11 de esta Ley.

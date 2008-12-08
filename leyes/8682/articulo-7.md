@@ -1,0 +1,4 @@
+ARTÍCULO 7.-
+A efecto de generar los rendimientos adecuados y garantizar los recursos de los trabajadores, las asociaciones solidaristas, las organizaciones cooperativas o las entidades financieras que administren los fondos del salario escolar, crearán cuentas especiales, por medio de las cuales se administrarán colectivamente los recursos.
+Las entidades que administren el salario escolar gestionarán los recursos financieramente y de manera adecuada, en forma tal que en dicha gestión se garantice eficiencia, seguridad y transparencia.
+Estas entidades procurarán desarrollar mecanismos administrativos óptimos, para agilizar la aplicación de las deducciones de la mejor manera posible, con el fin de reducir al mínimo el costo administrativo por realizar el depósito, por parte de los patronos.

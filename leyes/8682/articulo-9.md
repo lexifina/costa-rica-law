@@ -1,0 +1,2 @@
+ARTÍCULO 9.-
+Los trabajadores tendrán derecho a información oportuna y veraz en relación con las opciones que el Sistema Financiero Nacional otorgue para administrar los recursos del salario escolar. Corresponderá al Ministerio de Trabajo, en coordinación con el Ministerio de Economía, Industria y Comercio y la Superintendencia General de Entidades Financieras, asesorar a los trabajadores que lo soliciten.
