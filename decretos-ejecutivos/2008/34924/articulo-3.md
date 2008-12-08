@@ -1,0 +1,1 @@
+Artículo 3º—La garantía estatal no será aplicada para otorgar al INS una ventaja competitiva sobre los proveedores privados de servicios de seguros que sea inconsistente con las obligaciones de Costa Rica contenidas en los tratados internacionales.

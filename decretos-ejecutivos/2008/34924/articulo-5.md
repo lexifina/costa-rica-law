@@ -1,0 +1,1 @@
+Artículo 5º—Cualquier incumplimiento del INS en relación con las disposiciones del presente Decreto Ejecutivo, estará sujeto a las sanciones aplicables de conformidad con la Ley Nº 8653 del 22 de julio de 2008.

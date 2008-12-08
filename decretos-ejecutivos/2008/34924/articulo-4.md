@@ -1,0 +1,1 @@
+Artículo 4º—El INS no hará referencia a la garantía estatal en sus materiales impresos o publicidad de manera que sea inconsistente con la Ley Nº 8653 o con las obligaciones de Costa Rica contenidas en los tratados internacionales. La Superintendencia General de Seguros velará por el cumplimiento de esta disposición.
