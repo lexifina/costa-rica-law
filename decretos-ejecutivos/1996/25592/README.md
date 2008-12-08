@@ -15,3 +15,4 @@ Manual General de Clasificación de Clases
 | --- | --- | --- |
 | 1 | 1996-11-15 | la propia norma |
 | 2 | 2007-03-20 | Decreto Ejecutivo 33729 (2007-03-20) |
+| 3 | 2008-12-08 | Decreto Ejecutivo 34970 (2008-12-08) |
