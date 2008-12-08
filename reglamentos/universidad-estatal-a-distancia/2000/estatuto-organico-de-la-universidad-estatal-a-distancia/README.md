@@ -14,3 +14,4 @@ Estatuto Orgánico de la Universidad Estatal a Distancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-20 | la propia norma |
+| 2 | 2008-12-08 | Reglamento 0 (2008-12-08) |
