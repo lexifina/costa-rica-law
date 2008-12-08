@@ -14,3 +14,4 @@ Reglamento para Regular la Administración, el funcionamiento y el uso de la inf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-09 | la propia norma |
+| 2 | 2008-12-08 | Reglamento 0 (2008-12-08) |
