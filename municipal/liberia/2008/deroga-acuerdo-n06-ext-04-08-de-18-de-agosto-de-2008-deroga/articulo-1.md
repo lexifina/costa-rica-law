@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE LIBERIA
+El Concejo Municipal de Liberia según, artículo tercero, capítulo tercero, inciso 4, acuerdo 7 de la sesión ordinaria Nº 46-2008, celebrada el 17 de noviembre del 2008, aprobó:
+Acuerdo Nº 7.—El Concejo Municipal de Liberia, acuerda: derogar el acuerdo Nº 06-EXT-04-08 del informe del acta extraordinaria número 04-2008 de la Comisión de Gobierno y Administración, presentado en el artículo segundo, capítulo segundo, inciso 3, acuerdo 6, de la sesión ordinaria Nº 33-2008 del Concejo Municipal de Liberia del día 18 de agosto del 2008; el cual dice lo siguiente: Inciso 3: informe de la Comisión de Gobierno y Administración. DRAM-0884-2008: Remite oficio ALDE-CM-1310-2008, suscrito por el Alcalde Sr. Carlos Marín Muñoz, en el que se solicita: a) se derogue el acuerdo del Concejo Municipal en que se aprobó el Reglamento sobre actividades comerciales en inmueble municipal por período de dos meses en el cantón de Liberia, tomado en la sesión 39-2008, artículo 2º, Capítulo 3º, Inciso 2º, del 26 de setiembre de 2005, b) se autorice la publicación en el Diario Oficial La Gaceta del acuerdo solicitado y c) se autorice a la Administración a que se destine para uso de parqueo público municipal el lote ubicado al costado sur del Palacio Municipal.
+Una vez analizado y discutido el asunto se acuerda:
+Acuerdo: Nº 06-Ext-04-08: Se acuerda recomendar al Concejo Municipal que derogue el acuerdo de ese Concejo en que se aprobó el Reglamento sobre actividades comerciales en inmueble municipal por período de dos meses en el cantón de Liberia, tomado en la sesión 39-2005, artículo 2°, Capítulo 3°, Inciso 2°, del 26 de setiembre del 2005 y se autorice la publicación en el Diario Oficial La Gaceta del acuerdo solicitado.
+Aprobado por unanimidad.
+Acuerdo: Nº 07-Ext-04-08: Se acuerda recomendar al Concejo Municipal que se autorice a la Administración a que se destine para uso de parqueo público municipal el lote ubicado al costado sur del Palacio Municipal, haciendo las mejoras que se requieran y cumpliendo con todos los requisitos de ley.
+Aprobado por unanimidad.
+Acuerdo Nº 6. El Concejo Municipal de Liberia acuerda: aprobar informe de la Comisión de Gobierno y Administración.
+Aprobado por 7 votos positivos.
+Aprobado por 4 votos positivos de los regidores Carlos Leiva, Hernán Rivas, Darling Vargas y Veralicia Gutiérrez y 2 votos negativos de los regidores Jorge A. Loáiciga y Damaris Rodríguez.
+Liberia, 26 de noviembre del 2008
