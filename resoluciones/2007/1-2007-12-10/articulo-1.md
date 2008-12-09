@@ -13,24 +13,52 @@ RESUELVE:
 SECCIÓN Nº 1
 Principios Activos Contenidos en Medicamentos Multiorigen que Deben Demostrar su Bioequivalencia por medio de Estudios IN VIVO en Seres Humanos, Complementados con Perfiles de Disolución Comparativos IN VITRO con el Producto de Referencia:
 Nº | Principio activo (Denominación Común Internacional)
-1 | Nelfinavir
-2 | Carbamazepina
-3 | Ciclosporina
-4 | Verapamilo
-5 | Valproato semisódico
+1 | Carbamazepina
+2 | Ciclosporina
+3 | Nelfinavir mesilato
+4 | Ácido Valproíco (sales de Valproato)
+5 | Verapamilo clorhidrato
+6 | Anastrozol
+7 | Didanosina
+8 | Digoxina
+9 | Fenitoína
+10 | Lamotrigina
+11 | Levodopa + carbidopa
+12 | Levotiroxina
+13 | Tamoxifeno
+14 | Warfarina
+15 | Zidovudina
+16 | Abacavir
+17 | Azatioprina
+18 | Capecitabina
+19 | Carvedilol
+20 | Clopidogrel
+21 | Efavirenz
+22 | Estavudina
+23 | Indinavir
+24 | Isotretinoína
+25 | Lamivudina
+26 | Lopinavir
+27 | Ácido micofenólico
+28 | Nevirapina
+29 | Ritonavir
+30 | Saquinavir
+31 | Tacrolimus
+(Así actualizado el listado anterior mediante Resolución N° 555 del 9 de diciembre de 2008)
 SECCIÓN Nº 2
 Principios Activos Contenidos en Medicamentos Multiorigen a los que se les Exige la Presentación de Perfiles de Disolución Comparativos IN VITRO con el Producto de Referencia:
 Nº | Principio activo (Denominación Común Internacional)
-1 | Didanosina
-2 | Lamotrigina
-3 | Levodopa +carbidopa
-4 | Anastrozol
-5 | Tamoxifeno
-6 | Zidovudina
-7 | Fenitoína
-8 | Digoxina
-9 | Levotiroxina sódica
-10 | Warfarina
+1 | Amiodarona
+2 | Atenolol
+3 | Bicalutamida
+4 | Bromocriptina
+5 | Clozapina
+6 | Fluoxetina
+7 | Haloperidol
+8 | Irbersartán
+9 | Leflunomida
+10 | Primidona
+(Así actualizado el listado anterior mediante Resolución N° 555 del 9 de diciembre de 2008)
 2º—Los productos de referencia que se mencionan en los artículos 14 y 15 del Decreto Ejecutivo Nº 32470-S del 04 de febrero del 2005, “Reglamento para el Registro Sanitario de los Medicamentos que requieren Demostrar Equivalencia Terapéutica”, publicado en La Gaceta Nº 149 del 04 de agosto del 2005, serán certificados por la autoridad correspondiente del Ministerio de Salud.
 3º—El presente listado sustituye y deja sin efecto la lista de principios activos de medicamentos multiorigen detallada en la resolución de las 8:00 horas del 20 de mayo del 2002, publicada en La Gaceta Nº 107 del 5 de junio del 2002.
 Publíquese.

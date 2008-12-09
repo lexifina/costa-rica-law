@@ -14,3 +14,4 @@ Lista de Principios Activos de Medicamentos Multiorigen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-09 | la propia norma |
+| 2 | 2008-12-09 | Resolución 555 (2008-12-09) |
