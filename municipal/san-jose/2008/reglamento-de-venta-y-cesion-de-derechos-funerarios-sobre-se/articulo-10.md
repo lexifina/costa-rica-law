@@ -1,0 +1,1 @@
+Artículo 10.—El oferente favorecido deberá presentarse ante la Oficina de Cementerios de la Municipalidad de San José, a fin de formalizar el correspondiente contrato de cesión de derechos en el transcurso de los ocho días hábiles siguientes a la fecha de la adjudicación en firme.
