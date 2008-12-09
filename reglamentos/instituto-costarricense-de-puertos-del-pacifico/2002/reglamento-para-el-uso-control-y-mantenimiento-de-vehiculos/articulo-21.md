@@ -1,1 +1,0 @@
-Artículo 21.—Del uso de herramientas o tiempo de trabajo: Es terminantemente prohibido utilizar las herramientas, accesorios o tiempo de trabajo de los empleados, en servicios particulares. Estos deben limitarse a funciones propias de su misión.

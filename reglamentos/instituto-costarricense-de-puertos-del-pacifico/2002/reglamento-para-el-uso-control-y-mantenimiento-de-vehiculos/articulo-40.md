@@ -1,1 +1,0 @@
-Artículo 40.—De la prohibición de arreglos extrajudiciales: Ningún chofer del INCOP está autorizado para efectuar arreglos extrajudiciales. En caso de accidentes con vehículos del Instituto, debe recurrir a la Autoridad de Tránsito para que confeccione el parte que corresponda.
