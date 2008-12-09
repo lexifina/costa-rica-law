@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con las disposiciones del Decreto Ejecutivo Nº 34713-COMEX del 25 de julio de 2008, Modificación del arancel de importación aplicado a los frijoles rojos, publicado en el Diario Oficial La Gaceta Nº 173 del 08 de septiembre de 2008, aplicar un arancel de 1% al inciso 0713.33.40, hasta el 31 de diciembre de 2008.
