@@ -1,0 +1,2 @@
+Artículo 3º—Los lotes se podrán adquirir mediante la forma siguiente de pago: A través de financiamiento, -al crédito- con una prima mínima de ¢100.000,00 (cien mil colones) y a un plazo máximo de cinco años, con abonos de acuerdo con lo que corresponda, más los intereses del 1% (uno por ciento), sobre saldos.
+Sin embargo, el oferente podrá mejorar las condiciones de pago antes establecidas, para calificar descubriéndolas en su oferta si desea cancelar en un plazo menor.
