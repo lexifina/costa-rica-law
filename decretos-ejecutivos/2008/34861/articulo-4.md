@@ -1,0 +1,1 @@
+Artículo 4º—Los productores deberán permitir el acceso a sus plantaciones, a los funcionarios del Servicio Fitosanitario del Estado y a los especialistas del Ministerio de Agricultura y Ganadería, debidamente identificados, con el fin de que realicen las inspecciones requeridas.

@@ -1,0 +1,1 @@
+Artículo 6º—El Servicio Fitosanitario del Estado podrá aplicar las sanciones pertinentes y establecidas en la Ley de Protección Fitosanitaria Nº 7664, a toda persona física y jurídica, propietaria de las plantaciones que incumpla con las medidas contempladas dentro del Plan de Manejo de Moscas Blancas y Áfidos en las áreas definidas.

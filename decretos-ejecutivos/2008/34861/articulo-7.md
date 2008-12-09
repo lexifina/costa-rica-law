@@ -1,0 +1,1 @@
+Artículo 7º—En cumplimiento con lo establecido en el artículo 20 de la Ley de Protección Fitosanitaria Nº 7664, todo propietario u ocupante a cualquier título estará obligado a tratar, procesar o destruir los rastrojos de aquellos cultivos u hospederos de moscas blancas y áfidos.
