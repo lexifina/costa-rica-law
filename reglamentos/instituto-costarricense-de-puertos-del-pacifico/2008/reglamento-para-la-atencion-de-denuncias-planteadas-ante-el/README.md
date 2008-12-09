@@ -14,3 +14,4 @@ Reglamento para la atención de denuncias planteadas ante el Instituto Costarric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2008-12-09 | Reglamento 3534 (2008-12-09) |
