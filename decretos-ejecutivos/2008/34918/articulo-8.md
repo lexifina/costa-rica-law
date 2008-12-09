@@ -1,0 +1,1 @@
+Artículo 8º—Divulgación: La Contabilidad Nacional será la responsable de iniciar un período de divulgación de esta nueva normativa en las diferentes instituciones del Sector Público Costarricense, mediante la expedición de boletines informativos a estas instituciones a partir del mes de enero del 2009.

@@ -1,0 +1,1 @@
+Artículo 10.—Derogatoria: Se deroga el Decreto Ejecutivo Nº 34029-H, publicado en La Gaceta Nº 196 del 11 de octubre de 2007, denominado “Adopción e Implementación de las Normas Internacionales de Contabilidad para el Sector Público (NICSP), en el Ámbito Costarricense”.
