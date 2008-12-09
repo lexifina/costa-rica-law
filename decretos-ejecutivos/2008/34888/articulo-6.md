@@ -1,0 +1,1 @@
+Artículo 6º—Se autoriza a la Fundación Parque Marino del Pacífico a habilitar sistemas de cobro electrónico de entradas, usando intermediarios, sea de tarjetas de crédito o de débito. Se autoriza a negociar los contratos con el respectivo cargo por comisión.

@@ -1,0 +1,1 @@
+Artículo 7º—Se autoriza a la Fundación del Parque Marino del Pacífico a realizar dentro de los programas de turismo y de educación ambiental, proyectos especiales dirigidos a escuelas y colegios públicos del Cantón Central de Puntarenas, que posibiliten la exoneración de la tarifa de ingreso para visita y enseñanza en asuntos marinos y costeros.
