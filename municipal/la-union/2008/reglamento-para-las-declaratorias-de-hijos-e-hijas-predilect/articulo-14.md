@@ -1,0 +1,1 @@
+Artículo 14.—Los reconocimientos que se detallan en el artículo 11, deberán entregarse en sesión de Concejo Municipal y consistirán en la entrega de un pergamino y un recuerdo alusivo, en donde se hará constar al ciudadano o grupo, la declaratoria y las razones por las que ha (n) sido designado (s).

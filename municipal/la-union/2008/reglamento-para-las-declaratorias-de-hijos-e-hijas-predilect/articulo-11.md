@@ -1,0 +1,3 @@
+Artículo 11.—En el Salón de Sesiones Municipales, colgarán los retratos de todas las personas que sean distinguidas con la Declaratoria de Hijo (a) Predilecto (a) o que con anterioridad al presente Reglamento, hayan tenido una declaratoria equivalente.
+La Municipalidad velará por la uniformidad en las molduras de cada retrato, a efectos de lograr el mayor y mejor aprovechamiento del espacio físico disponible de manera que se cree un ambiente agradable desde el punto de vista estético.
+Las molduras de los retratos a que hace referencia el artículo anterior deberán ser confeccionados en madera. El tamaño de los retratos será de 8 por 10 pulgadas.
