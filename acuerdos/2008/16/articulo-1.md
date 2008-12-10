@@ -152,7 +152,7 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2008/2009
 - Auxiliar de Servicios Generales 2 puesto 43927 de la Unidad Administrativa Regional Zona Sur.
 - Auxiliar de Servicios Generales 1 puestos 006508 y 006509 de la Unidad Administrativa Regional Zona Sur.
 - Auxiliar Administrativo 1 puestos 047320 y 006321 en funciones de Auxiliares de Comunicaciones en la Central Telefónica de la Unidad Administrativa Regional Zona Sur.
-- Auxiliar Supernumerario 2, de Sección de Asesoría Legal puesto 15820 que desempeña funciones de Encargada Archivo Regional.
+- (*) (Nota: Mediante Circular N° 204 del 10 de diciembre del 2008, se determinó que se excluya la plaza N° 15820 de Auxiliar Supernumerario 2, de la Sección de Asesoría Legal de la Dirección Ejecutiva , de las plazas que excepcionalmente pueden ser sustituidas por períodos iguales o mayores a cuatro días hábiles)
 - Profesionales responsables de los programas de Abuso Sexual y Penal juvenil en las Oficinas de: San Carlos, San Ramón, Santa Cruz- Nicoya, Liberia, Puntarenas, Grecia, Quepos, Corredores- Golfito, Guápiles, Pérez Zeledón, Cartago y Limón. (Sesión 18-07 del 08-03-07 art. LXIX).
 - Auxiliar de Contraloría de Servicios, sede San Carlos, Puntarenas, y Pérez Zeledón específicamente en los puestos 350052, 103094, 103079.
 8.8 La clasificación de “clases anchas” no modifica esta lista de puestos, por lo que para los efectos, debe entenderse que sólo se autorizan los puestos contemplados en los puntos 8.6 y 8.7.

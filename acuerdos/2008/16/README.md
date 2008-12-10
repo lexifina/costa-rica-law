@@ -13,3 +13,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2008-2009
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-27 | la propia norma |
+| 2 | 2008-12-10 | Circular 204 (2008-12-10) |
