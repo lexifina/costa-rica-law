@@ -18,3 +18,4 @@ Reglamento del Fondo de Retiro de los Empleados de la Caja Costarricense de Segu
 | 3 | 2007-11-15 | Reglamento 8202 (2007-11-15) |
 | 4 | 2008-03-13 | Reglamento 8234 (2008-03-13) |
 | 5 | 2008-06-12 | Reglamento 8257 (2008-06-12) |
+| 6 | 2008-12-11 | Reglamento 8306 (2008-12-11) |
