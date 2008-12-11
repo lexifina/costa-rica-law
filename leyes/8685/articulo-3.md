@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Exoneraciones
+La formalización de las operaciones necesarias para la ejecución del Programa, así como la inscripción de los documentos en los registros correspondientes, no estarán sujetas al pago de impuestos, tasas, contribuciones ni derechos. Asimismo, se exonera al Senara del pago de impuestos, tasas, sobretasas, contribuciones o derechos en la adquisición de los bienes y servicios necesarios para ejecutar e implementar el Programa. Dicha exención no cubre a los terceros con los que el Senara contrate en la ejecución e implementación del Programa.
