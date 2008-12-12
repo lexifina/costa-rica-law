@@ -14,3 +14,4 @@ Declara estado de emergencia en todos los cantones de la provincia de Limón, el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-20 | la propia norma |
+| 2 | 2008-12-12 | Decreto Ejecutivo 34973 (2008-12-12) |

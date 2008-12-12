@@ -12,3 +12,4 @@ Considerando:
 7°—Que en razón de lo expuesto, se hace necesaria la promulgación de un marco jurídico para tomar las medidas de excepción, que señala la Constitución Política y la Ley Nacional de Emergencias y Prevención del Riesgo, para hacerle frente a los efectos ocasionados por este fenómeno hidrometeorológico y mitigar las consecuencias que ocasionó su impacto en las diferentes zonas del país. Por tanto,
 Decretan:
 Artículo 1°—Ante la situación provocada por el fenómeno descrito en el considerando uno y dos y de este decreto, se declara estado de emergencia en todos los cantones de la provincia de Limón, el cantón de Sarapiquí de la provincia de Heredia, los cantones de Moravia y Coronado de la provincia de San José.
+NOTA: Mediante decreto ejecutivo N° 34973 del 12 de diciembre de 2008, se incluye el cantón de Turrialba dentro de la declaratoria de emergencia establecida en este decreto.
