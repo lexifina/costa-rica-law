@@ -1,0 +1,1 @@
+Artículo 18.—De lo regulado en el Decreto. En lo no regulado por el presente Decreto en materia de órganos colegiados, rige supletoriamente lo dispuesto por la Ley General de la Administración Pública.

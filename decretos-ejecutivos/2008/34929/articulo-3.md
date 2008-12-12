@@ -1,0 +1,1 @@
+Artículo 3º—De los órganos consultivos. La Comisión podrá convocar a organizaciones y técnicos especializados para que actúen como órganos consultivos, quiénes podrán participar en las sesiones como invitados especiales, con voz pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 16.—De la revisión de los acuerdos. Cualquier miembro de la Comisión podrá solicitar revisión de los acuerdos adoptados en la sesión anterior, dicha solicitud deberá hacerse efectiva al momento de lectura y discusión del acta de la sesión anterior.
