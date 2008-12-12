@@ -1,2 +1,0 @@
-Artículo II.—Dentro del plazo indicado, se deberá realizar consulta a la Procuraduría General de la República, sobre la correspondencia de la técnica de cortes longitudinales parciales en la zona muscular adyacente a la aleta del tiburón, ordenado por la Autoridad Sanitaria competente, como adherencia natural en el contexto del artículo 40 de la Ley 8436, con el objetivo de facilitar el desangrado necesario para garantía de inocuidad del producto. Acuerdo firme.
-Dr. Carlos Villalobos, Presidente Ejecutivo.—Yahaira Chambers, Secretaria Junta Directiva.—1 vez.—(44406).
