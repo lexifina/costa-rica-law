@@ -1,0 +1,2 @@
+Sobre Retiro Definitivo (recesión de contrato)
+6º—En el caso que un cliente decida prescindir del servicio de energía y solicite la devolución de su depósito, se deben calcular los intereses de ese depósito hasta el día en que solicitó su retiro. Igualmente se debe generar una Nota de Crédito que será utilizada para tramitar la devolución respectiva o se utilizará para saldar cuentas pendientes del cliente.

@@ -1,0 +1,15 @@
+Sobre el Cálculo de Intereses
+4º—La ESPH S. A. reconocerá al abonado sobre el monto del depósito de garantía y sobre sus ajustes un interés no menor al 4% anual. Cuando el Sistema Bancario Nacional aplique una tasa mayor del 4% anual sobre los depósitos a la vista en cuentas de ahorro, la ESPH S. A. pagará los intereses sobre los depósitos a sus abonados al mismo tipo que paguen dichos bancos. (según inciso 6.6 de la Norma de prestación de Servicios Eléctricos, denominado “Pago de intereses”).
+Se debe efectuar y registrar el cálculo de intereses en depósitos en garantía de cada contrato y acreditarlos a la facturación una vez al año luego del quinto año de servicio, bajo los siguientes criterios:
+Þ Debe mantenerse el control e historial de cada depósito en garantía de forma independiente por contrato.
+Þ Debe registrar asociado al depósito en garantía, además de los reajustes, los intereses calculados.
+Þ Se debe contar con una tasa anual parametrizable para el cálculo de los intereses.
+Þ Debe permitir que la configuración de la tasa pueda ser definida “n” veces con base en su variación en diferentes períodos o vigencias.
+Þ Debe llevarse un control por período de los intereses ganados y cancelados, aportes o ajustes al depósito, además de cambios en la tasa de interés.
+Þ Con cada cierre mensual debe generarse un registro con los intereses calculados por pagar, considerando los siguientes casos:
+a) Caso A.- Deben generarse notas de crédito que se aplicarán en la facturación que se esté emitiendo. Para todos aquellos clientes que tengan servicios con vigencia de más de cinco años. La revisión y generación de los créditos se realizará cada 30 de junio. Esta fecha es oficial de cierre para este proceso, por lo que año a año se deben hacer los cortes a esta fecha.
+Axis aplicará este pago vía facturación teniendo hasta 60 días naturales para hacerlo.
+El abonado podrá recibir los intereses si cumple por lo menos cinco años de haber cancelado su depósito en garantía. Se generará una nota de crédito que se aplicará contra la facturación vigente al momento del corte. (Según inciso 6.6 de la Norma de prestación de Servicios Eléctricos, denominado (Pago de intereses”).
+A partir del quinto año, se deben generar notas de crédito año a año con fecha de cierre 30 de Junio contra periodos cerrados, de tal forma que el cliente pueda recibir los intereses generados año a año por su depósito.
+b) Caso B.- Debe permitir el cálculo de los intereses ganados a una fecha dada. Para cada cliente el cálculo se realiza a partir de la última fecha de cálculo. Se requiere que Axis lleve un registro de los siguientes datos: cálculo de intereses a fecha dada, intereses acumulados, depósito inicial, y detalles de ajustes a fin de generar la nota de crédito correspondiente.
+Axis deberá permitir la generación de la nota de crédito a una fecha dada con base en los registros de intereses acumulados, esto para los casos de retiros definitivos de abonados (considerar en una etapa del flujo de Retiro Definitivo).
