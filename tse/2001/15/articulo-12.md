@@ -1,2 +1,0 @@
-Artículo 12.—De las jefaturas regionales. El Tribunal nombrará un Delegado Jefe Regional para cada una de las regiones del país, quien estará directamente subordinado al Jefe Nacional del Cuerpo de Delegados, sin perjuicio de los informes que el Tribunal le solicite rendir, así como de las instrucciones que éste llegare a girarle directamente.
-Del Delegado Jefe Regional dependerán el Subjefe Regional y los Delegados coordinadores de zona que el Tribunal llegare a nombrar y que se encargarán del enlace entre la zona y la Jefatura Regional.
