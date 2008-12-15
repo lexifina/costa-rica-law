@@ -1,0 +1,1 @@
+Artículo 5º—Dirección FOSUVI. Informa a la Unidad de Tesorería e Inversiones sobre la disponibilidad y necesidad de recursos de esa fuente de fondos, a fin de que programe las inversiones según los montos y plazos consignados.
