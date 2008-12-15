@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento será de aplicación a todas las Unidades de Verificación Metrológica que soliciten el reconocimiento ante el Laboratorio Costarricense de Metrología (LACOMET), órgano de máxima desconcentración, adscrito al Ministerio de Economía, Industria y Comercio.
