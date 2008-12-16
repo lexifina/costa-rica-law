@@ -1,2 +1,2 @@
-Artículo 106.—La Gerencia del PIMA designará al coordinador de dicho comité.
+Artículo 106.—(DEROGADO y publicado en La Gaceta N° 243 del 16 de diciembre del 2008)
 (Así adicionado por el Consejo Directvo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)

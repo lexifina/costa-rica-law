@@ -1,2 +1,2 @@
-Artículo 133.—Una vez realizada la actividad los usuarios concesionarios devolverán los espacios en las mismas condiciones en las que le fueron otorgadas, para lo cual deberán rendir una garantía, la cual será establecida por la administración de acuerdo a la actividad por realizar de cada puesto.
+Artículo 133.—(DEROGADO y publicado en La Gaceta N° 243 del 16 de diciembre del 2008)
 (Así adicionado por el Consejo Directivo del PIMA y publicado en La Gaceta N° 22 del 31 de enero de 2007)
