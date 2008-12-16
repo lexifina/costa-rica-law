@@ -1,0 +1,17 @@
+SECCIÓN II
+Presupuestos extraordinarios
+Artículo 4º—Formulación y aprobación de los Presupuestos Extraordinarios y su remisión a la Contraloría General.
+I. Aspectos generales:
+El Departamento de Presupuesto será el responsable de:
+a. Verificar que se cumpla con la aplicación de los aspectos técnicos de aprobación en materia presupuestaria vigentes, para lo cual procederá a anexar dentro de la documentación que respalda el movimiento presupuestario, la constancia de verificación del cumplimiento del bloque de legalidad.
+b. Elevar a aprobación ante la Junta Directiva según los requerimientos internos establecidos, bajo el mismo nivel de detalle con que fue formulado el presupuesto original.
+c. Remitir a la Contraloría General de la República, para su correspondiente revisión y aprobación, el Presupuesto Extraordinario aprobado por la Junta Directiva, en el plazo de tres días hábiles inmediatos siguientes al acto, en un tanto original y una copia, según el detalle establecido en el clasificador de ingresos y egresos vigente.
+d. Incluir en el documento presupuestario las justificaciones de los movimientos propuestos, de su incidencia en el cumplimiento de los objetivos y metas del Plan Operativo Institucional (POI) y el detalle de Origen y Aplicación de Recursos.
+Para ello los Gestores Presupuestarios obligatoriamente deberán presentar sus solicitudes con la correspondiente justificación e incidencia en el cumplimiento de los objetivos y metas del POI, por su parte necesariamente todo ajuste deberá solicitarse en partida doble, de manera tal que se mantenga la condición de “Presupuesto Equilibrado”.
+e. Es responsabilidad del Departamento de Presupuesto verificar que en la nota de remisión del documento presupuestario a la Contraloría General de la República, se incorporen los adjuntos que respaldan el mismo: Trascripción literal del Acuerdo de Junta Directiva, o su correspondiente copia, cuadros con las correspondientes variaciones presupuestarias, Estado de Origen y Aplicación de Recursos y cualquier otra documentación que sirva de respaldo del documento presentado a probación.
+f. Velar para que dichos documentos sean presentados en el plazo establecido, o sea desde el primer día hábil del mes de enero al último día hábil del mes de setiembre, debiendo presentar en este mes sólo un documento, salvo casos excepcionales debidamente autorizados por el Ente Contralor.
+II. Aspectos Específicos:
+1. En relación con los ingresos:
+En caso de presentarse la necesidad de incorporar al presupuesto cuentas nuevas de ingresos, la dependencia gestionante deberá solicitar por nota formal a la Dirección Financiera, la siguiente información: el fundamento legal cuando así proceda, las estimaciones, la metodología utilizada para determinar los montos propuestos, un análisis general de la situación de todos los ingresos y su comportamiento en relación con las estimaciones.
+2. En relación con los egresos:
+El Departamento de Presupuesto velará para que los egresos sean reclasificados de acuerdo con el Clasificador por objeto del gasto vigente, estar acorde con el bloque de legalidad y justificarse debidamente. Para esto último será requisito que los Gestores Presupuestarios suministren la información detallada de los egresos según los requerimientos internos estipulados y/o solicitados por el Departamento de Presupuesto en aquellos casos específicos que así se requiera.
