@@ -1,0 +1,1 @@
+Artículo 11.—El encargado del Área de Finanzas del 9-1-1 deberá revisar en primera instancia el inventario enviado, el cual debe ser consolidado a nivel de organismo o institución adscrita. De existir algún faltante o diferencia, se la comunicará al Despacho respectivo y al funcionario del 9-1-1 responsable del activo, para que se realicen los trámites necesarios.

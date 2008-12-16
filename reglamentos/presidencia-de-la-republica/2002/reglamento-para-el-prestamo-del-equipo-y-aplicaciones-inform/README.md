@@ -14,3 +14,4 @@ Reglamento para el préstamo del equipo y aplicaciones informáticas necesarias 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-15 | la propia norma |
+| 2 | 2008-12-16 | Reglamento 0 (2008-12-16) |

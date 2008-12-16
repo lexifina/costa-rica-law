@@ -1,0 +1,1 @@
+Artículo 12.—En cuanto a lo dispuesto por este reglamento, los encargados de los Procesos involucrados deberán informar y coordinar, si es del caso, con el representante de la institución adscrita al 9-1-1 respectivo.

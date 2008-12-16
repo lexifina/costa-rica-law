@@ -1,1 +1,2 @@
-Artículo 10.—Rige a partir de su publicación.
+Artículo 10.—Será responsabilidad de los encargados de los despachos de los organismos e instituciones adscritas al 9-1-1, realizar inventarios, cada cuatro meses, de los equipos y aplicaciones informáticas ubicados en el despacho y suministradas por parte del 9-1-1. Dichos inventarios, debidamente respaldados por la firma del funcionario encargado, serán remitidos al encargado del área de finanzas del 9-1-1.
+En el caso de equipos que no estén ubicados en los despachos será igualmente responsabilidad de los despachos de los organismos e instituciones adscritas al 9-1-1 inventariarlos, con la periodicidad señalada en el párrafo anterior.
