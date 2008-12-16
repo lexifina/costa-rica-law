@@ -1,1 +1,0 @@
-Artículo 5º—Es responsabilidad de la Proveeduría, como órgano técnico especializado, asesorar a los entes facultados en este Reglamento, así como de monitorear el fiel cumplimiento de estas disposiciones.
