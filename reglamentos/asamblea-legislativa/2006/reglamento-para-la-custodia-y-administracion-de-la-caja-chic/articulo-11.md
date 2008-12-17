@@ -1,2 +1,0 @@
-Artículo 11.—Monto fijo y monto máximo de compra autorizados. El Directorio Legislativo, por medio de acuerdo, establecerá la suma de dinero autorizada en la cuenta corriente de la caja chica, así como la suma máxima de compra por esta modalidad, sin que esta última pueda exceder el límite determinado a principio del año vía directriz de la Tesorería Nacional.
-Para las compras de bienes y servicios por montos superiores al límite de gasto establecido, deberá existir autorización previa por parte del Directorio Legislativo.

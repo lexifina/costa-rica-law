@@ -1,2 +1,0 @@
-Artículo 35.—Cambio de encargado. Toda persona que asuma la responsabilidad de operar la caja chica, ya sea en forma permanente o transitoria, lo hará según las disposiciones descritas en este Reglamento y en el Manual de procedimientos respectivo.
-La persona responsable recibirá la caja chica, previo arqueo y en presencia de la persona que hace entrega del efectivo y los documentos comprobantes a la fecha. Este procedimiento constará en un acta firmada en original por quien entrega y quien recibe la caja chica, así como el superior inmediato de ambos.

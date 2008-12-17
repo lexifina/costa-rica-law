@@ -1,1 +1,0 @@
-Artículo 44.—Manual de procedimientos. La Dirección Financiera, en coordinación con el Departamento de Organización y Métodos, formulará el respectivo Manual de procedimientos relativo a las actividades que implica el proceso de la administración de la caja chica.

@@ -1,1 +1,0 @@
-Artículo 39.—Otros mecanismos de control. El director del Departamento Financiero podrá implementar otros mecanismos de control y establecer directrices tendientes a obtener una mejor fiscalización y operación de la caja chica. Cuando proceda, se permitirá la participación de las dependencias que corresponda.

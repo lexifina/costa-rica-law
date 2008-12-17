@@ -1,1 +1,0 @@
-Artículo 25.—Liquidez del fondo de efectivo. El encargado del fondo en efectivo de caja chica será el responsable de tramitar semanalmente los reembolsos necesarios con el propósito de mantener la liquidez del fondo.

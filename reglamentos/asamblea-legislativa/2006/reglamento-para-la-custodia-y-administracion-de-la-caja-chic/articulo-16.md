@@ -1,1 +1,0 @@
-Artículo 16.—Fraccionamiento de operaciones. Se deberá cumplir con lo dispuesto en el artículo 37 de la Ley Nº 7494, Ley de Contratación Administrativa, de manera que no se permita el fraccionamiento en la contratación de bienes y servicios bajo la modalidad de caja chica.

@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Responsabilidades y deberes
-Artículo 30.—Responsabilidad. El director del Departamento Financiero, o quien lo sustituya, será el responsable del recibo, la administración y la custodia de los fondos destinados para la caja chica, del registro de los documentos, del correcto pago, de la solicitud de reintegro, del control interno, del archivo de los documentos de respaldo y del cumplimiento de las demás disposiciones establecidas en este Reglamento.
-Además, a este funcionario le compete designar al personal idóneo para que realice un programa de revisiones de los fondos de la caja chica, en todo lo relacionado con conciliaciones bancarias y arqueos periódicos, e informe el resultado de tales verificaciones al superior inmediato. Estos funcionarios no podrán pertenecer a las áreas de Custodia y Entrega de Valores y de Contabilidad.

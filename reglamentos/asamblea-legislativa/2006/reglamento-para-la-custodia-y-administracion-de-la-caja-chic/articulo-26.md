@@ -1,1 +1,0 @@
-Artículo 26.—Reintegros al fondo de la caja chica central. El reintegro al fondo de caja chica se efectuará cada treinta días o antes, cuando el disponible llegue al veinte por ciento (20%) del fondo fijo autorizado. El reintegro se realizará con el fin de disponer, permanentemente, de recursos suficientes para atender los desembolsos.
