@@ -1,0 +1,3 @@
+Artículo 46 bis.- Autorízase al CNP para que constituya, en cualquier banco comercial del Estado, fideicomisos o cualquier otro mecanismo financiero, para la captación, el manejo y la ejecución de los fondos destinados a los diferentes programas que atiende y, en particular, para el Programa de Abastecimiento Institucional (PAI), con el propósito de reservar los recursos necesarios para su operación.
+Para tal efecto, el CNP queda autorizado para que destine recursos provenientes de la venta de sus activos y de transferencias que efectúe el Poder Ejecutivo, para que sirvan como capital de trabajo en esos programas.
+(Así adicionado por el artículo 2° inciso c) de la ley N° 8700 del 17 de diciembre de 2008)
