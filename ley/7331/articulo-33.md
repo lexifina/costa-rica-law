@@ -1,27 +1,5 @@
-ARTÍCULO 33.- Los vehículos automotores, a fin de ser autorizados
-para circular por el territorio nacional, deberán cumplir con los límites
-de emisión de gases, humos y partículas fijados en los artículos 34, 35 y
-36 de esta Ley. Además, para los vehículos automotores que hayan ingresado
-al país a partir del 1º de enero de 1995, es obligatorio contar con un
-sistema de control de emisiones de circulación cerrada en perfecto
-funcionamiento. Como parte de este sistema, los vehículos con motores de
-gasolina o combustibles similares deberán contar con un convertidor
-catalítico de tres vías. Se admitirá cualquier otro sistema para controlar
-emisiones, siempre que permita una reducción mayor de las emisiones
-producidas por el vehículo.
-Mediante el Reglamento de esta Ley, el Poder Ejecutivo regulará las
-especificaciones del sistema de control de emisiones de los vehículos y
-podrá modificar los límites para la emisión de gases, humos y partículas,
-siempre que los nuevos límites sean más estrictos que los estipulados en
-los artículos 34, 35 y 36 de esta Ley, para disminuir, cada vez más
-eficientemente, la emisión de contaminantes ambientales.
-Las regulaciones del control de emisiones contaminantes no serán
-obligatorias para los tractores de oruga, los vehículos de competencia de
-velocidad, los de interés histórico ni los catalogados como equipo
-especial, excepto los vehículos grúa. Para autorizar la importación de los
-tractores de llanta, no deberá presentarse a las autoridades competentes
-el certificado de cumplimiento.
-Los límites de control de emisiones establecidos en los artículos
-subsiguientes de esta ley incorporan el factor de corrección por altura.
-(Así reformado por el artículo 1º, inciso 2), de la ley No.7721 de 9
-de diciembre de 1997)
+ARTÍCULO 33.- Para el uso de señales rotativas luminosas, los vehículos deben tener un permiso del órgano competente del MOPT.
+Las señales rotativas amarillas las usarán los vehículos de equipo especial, los que transporten materiales peligrosos y otros que autorice el órgano competente del MOPT.
+Las rojas y azules únicamente podrán ser utilizadas por los vehículos de emergencia y los de seguridad pública de los Poderes de la República , debidamente identificados.
+(Así reformado por el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° en relación con el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 32 al 33)

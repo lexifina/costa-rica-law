@@ -1,4 +1,13 @@
-Artículo 175.—Contra las sentencias y los autos que tengan el carácter de sentencia, únicamente cabrá recurso de apelación, siempre y cuando sea interpuesto dentro del plazo de los tres días hábiles siguientes al de su notificación.
-La apelación se interpondrá por medio de escrito o por acta debidamente fundamentada ante el mismo juez, quien emplazará a las partes para que, en el plazo de tres días, contesten el recurso y, en su caso, ofrezcan prueba.
-Si durante el emplazamiento se producen adiciones, correrá el traslado a las otras partes en el mismo plazo para que contesten la adición y, sin más trámite, el expediente se le remitirá al juzgado de alzada especializado para que resuelva.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 175.— La sentencia podrá dictarse en forma de auto, el cual deberá ser razonado, bajo pena de nulidad absoluta. De oficio, el auto contendrá pronunciamiento sobre:
+a) La responsabilidad de los imputados y su absolutoria o condenatoria. En este último caso, se fijarán la pena o las penas que correspondan.
+b) Si se ordena o no la suspensión de la licencia de conducir, así como la indicación del tipo y del plazo por el cual se aplicará la sanción, de conformidad con lo dispuesto en esta Ley.
+c) Si se inhabilita o no al imputado para la conducción de vehículos automotores y el plazo de la sanción.
+d) El monto de la multa por las infracciones contra las disposiciones de la presente Ley que lleguen a demostrarse en el proceso y los cargos adicionales a favor de otras instituciones y organizaciones.
+e) La devolución o el mantenimiento en custodia de los vehículos o de sus placas.
+f) Los gravámenes que se decreten sobre los vehículos o sobre las licencias de conducir y su levantamiento.
+g) La condenatoria en abstracto por los daños y perjuicios ocasionados a la infraestructura vial, los cuales se cobrarán por la vía judicial correspondiente.
+h) La condenatoria en abstracto por los daños y perjuicios ocasionados a las personas, los bienes públicos o privados.
+i) La condenatoria en abstracto de las costas personales y procesales.
+En los casos de los incisos h) e i) de este artículo, se acudirá a la ejecución de sentencia en la vía civil.
+(Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 174 al 175).

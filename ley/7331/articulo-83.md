@@ -1,10 +1,12 @@
-ARTÍCULO 83.- Para comprobar la velocidad que lleva un vehículo, las
-autoridades de tránsito podrán utilizar, indistintamente, el radar
-pistola, el radar con cámara incorporada, el cronómetro, el sistema de
-vigilancia automática o cualquier otro sistema que establezca la
-Dirección General de Policía de Tránsito. En el caso del sistema de
-vigilancia automática, deben cumplirse los requisitos establecidos en el
-artículo 149 de esta Ley.
-El interesado tiene derecho a que, de inmediato, se le muestre el
-aparato con la medición de la velocidad, si éste se ha utilizado, y a
-impugnar esa medición por cualquier medio de prueba.
+CAPÍTULO I
+LOS CONDUCTORES DE VEHICULOS
+ARTÍCULO 83.- Los límites de velocidad para la circulación de los vehículos serán fijados por la Dirección General de Ingeniería de Tránsito, previo estudio técnico, de acuerdo con el tipo de la vía y sus condiciones. Esos límites, tanto en el mínimo como en el máximo, rigen desde la colocación de los rótulos o las demarcaciones que indiquen esas velocidades, los cuales deben estar instalados, convenientemente, en las carreteras. En cuanto a la velocidad, rigen las siguientes disposiciones:
+a) Se prohíbe circular a una velocidad superior al límite máximo o inferior a la mínima establecida, de acuerdo con los límites fijados por la Dirección General de Ingeniería de Tránsito; para ello, el conductor deberá tomar en cuenta las condiciones de la vía y deberá hacerlo bajo las reglas indicadas en los incisos sucesivos.
+b) La velocidad máxima permitida en las vías en donde no existe regulación expresa, es de sesenta (60) kilómetros por hora.
+c) En las zonas urbanas, la velocidad máxima permitida será de cuarenta (40) kilómetros por hora. No obstante, se autoriza una velocidad de conducción en esos tramos, que no podrá superar los sesenta (60) kilómetros por hora, si las condiciones de la vía, el flujo vehicular imperante y el nivel bajo de riesgo involucrado lo permiten. En zonas no urbanas, el límite máximo que se encuentre establecido en el tramo, solamente podrá ser superado en diez (10) kilómetros por hora, únicamente si se observan las condiciones antes indicadas.
+ch) Al pasar frente a la entrada y salida de los planteles educativos, los hospitales, las clínicas y los lugares donde se lleven a cabo actividades o espectáculos deportivos, religiosos, sociales, culturales u otros de interés público, se prohíbe circular a una velocidad superior a veinticinco (25) kilómetros por hora, cuando se estén desarrollando actividades en esos lugares.
+d) Se prohíbe circular en cualquier tramo de carretera a menos de la velocidad mínima establecida, de manera que limite o retrase la libre circulación del resto de automotores; salvo en las ocasiones en que, por razones naturales o artificiales, se dificulte la conducción, o en el caso de cortejos fúnebres.
+e) En las autopistas, la velocidad mínima se establece en cuarenta (40) kilómetros por hora y, la velocidad máxima, en cien (100) kilómetros por hora.
+f) En las zonas designadas como de paso frecuente de ciclistas, debidamente señalizadas, la velocidad máxima permitida será de cuarenta (40) kilómetros por hora. Las autopistas no podrán ser designadas como zona de paso frecuente de ciclistas.
+(Así reformado por el inciso j) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 82 al 83).

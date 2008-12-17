@@ -1,49 +1,10 @@
-ARTÍCULO 91.- Al aproximarse a cualquier rotonda, los conductores
-deben proceder según las siguientes disposiciones:
-a) El vehículo que viaje dentro de una rotonda tiene prioridad de
-paso sobre el que se dispone a entrar.
-b) Dentro de una rotonda, la velocidad máxima permitida es de
-treinta kilómetros por hora.
-c) El vehículo que va a ingresar a la rotonda debe ceder el paso al
-que circula dentro; por lo cual respetará la señal de "ceda", se
-detendrá completamente, si es necesario, en la línea de parada
-correspondiente a su carril. Asimismo, a la rotonda se ingresará
-sólo cuando la separación entre los vehículos que circulen dentro
-de ella, permita una maniobra segura.
-ch) Para ingresar a la rotonda, cada vehículo se ubicará en el
-respectivo carril de acceso, lo que dependerá de la localización
-de la salida a la cual se dirija, según se indica a continuación:
-1.- Si se va a abandonar la rotonda por la primera salida, el
-vehículo se debe ubicar en el carril externo (derecho) del
-acceso. Para realizar la maniobra de abandono, se debe
-encender la luz direccional derecha y utilizar el carril
-derecho de la salida.
-2.- Si se va a abandonar la rotonda por la segunda salida, el
-vehículo se puede ubicar en cualquiera de los dos carriles
-derechos de acceso. Mientras se circule dentro de la rotonda,
-el vehículo debe mantenerse en el carril elegido y conservar
-la luz direccional izquierda encendida. Para realizar la
-maniobra de abandono, se debe encender la luz direccional
-derecha y usar el carril de salida correspondiente al
-utilizado para circular dentro la rotonda.
-3.- Si se va a abandonar la rotonda por la tercera salida o por
-otra salida posterior, el vehículo se debe ubicar en el
-carril interno (izquierdo) de acceso. Mientras se esté dentro
-de la rotonda, se circulará por su carril interno, con la luz
-direccional izquierda encendida. Para realizar la maniobra de
-abandono, se debe encender la luz direccional derecha y
-utilizar el carril izquierdo de salida.
-d) Para la ubicación de los vehículos en los carriles de acceso, el
-señalamiento vertical establecido por la Dirección General de
-Ingeniería de Tránsito prevalece sobre estas reglas.
-La señal que rige es de fondo verde con dibujos en blanco y en su
-parte inferior, en recuadro amarillo, se indica la ubicación que
-se debe respetar.
-e) No se permite cambiar de carril dentro de la rotonda, excepto en
-las maniobras de entrada y de salida.
-f) No se permite rebasar a otro vehículo dentro de la rotonda.
-g) Aun en los casos en que el diseño geométrico de la rotonda
-facilite maniobrar, de forma expedita, hacia la primera salida,
-es obligatorio para los vehículos que deseen ingresar a la
-rotonda, respetar la señal de "ceda" y dar el paso prioritario a
-los vehículos que circulen dentro.
+ARTÍCULO 91.- Tienen prioridad de paso con respecto a los demás vehículos:
+a) Los vehículos que circulan sobre rieles.
+b) Los vehículos de emergencia autorizados, los cuales gozarán de preferencia en la vía, siempre que se identifiquen por medio de señales visuales y sonoras características y cumplan con las limitaciones reglamentarias. En tal caso, los demás vehículos deben detener su marcha y estacionarse en lugar apropiado, para reanudarla una vez que haya pasado el vehículo de emergencia.
+c) Los vehículos que circulen sobre una carretera primaria, en relación con los que lo hagan sobre una carretera secundaria, y los que circulen sobre una carretera secundaria, en relación con los que lo hagan sobre una carretera terciaria.
+ch) Cuando dos conductores se acerquen, por caminos distintos, a un cruce de carreteras por caminos distintos y no exista ninguna señal que le dé prioridad a ninguno de los dos y las dos vías sean del mismo tipo, el conductor que llegue por la izquierda debe ceder el paso al vehículo que se encuentra a su derecha.
+d) En las intersecciones reguladas, simultáneamente, con semáforo y señal de alto, los semáforos tienen prioridad sobre las señales de alto; pero estas deben ser acatadas cuando el semáforo esté fuera de operación por cualquier causa.
+e) Los vehículos regulados por una señal de “ceda”, en relación con los regulados por una señal de “alto”.
+f) En las intersecciones con dos accesos controlados con una señal fija de “alto”, los vehículos que giren a la izquierda desde la vía principal, tienen prioridad sobre los vehículos, que se encuentren en los dos accesos secundarios. Los vehículos que continúen directo, por los accesos secundarios, tienen prioridad sobre los que giren a la izquierda, desde esos mismos accesos.
+g) La regulación del tránsito mediante inspector tiene prioridad sobre las señales de “alto” y aun sobre el semáforo en funcionamiento.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 90 al 91).

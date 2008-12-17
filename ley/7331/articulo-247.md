@@ -1,3 +1,2 @@
-ARTÍCULO 247.- Modifícase el artículo 6 de la Ley de Administración
-Vial No. 6324 del 24 de mayo de 1979 y sus reformas, el cual dirá:
-... ... ...
+ARTÍCULO 247.- La autorización para que los vehículos de uso administrativo general circulen en horas y días fuera del horario normal, debe hacerla la autoridad superior y, solamente, en casos especiales en que se amerite, por fuerza mayor, para desarrollar una función específica del ministerio o de la institución.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 232 al 247).

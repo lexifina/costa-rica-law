@@ -1,5 +1,2 @@
-ARTÍCULO 41.- Las personas físicas o jurídicas que se dediquen a la
-venta de vehículos automotores, nuevos o usados, deben suscribir una
-póliza global, que cubra los mismos extremos que la póliza individual. El
-Instituto Nacional de Seguros establecerá el monto de las primas según
-los términos del artículo 43.
+ARTÍCULO 41.- Los propietarios de los vehículos deberán mantener vigente el seguro obligatorio, por medio del pago de la prima que fije el Instituto Nacional de Seguros, según los términos del artículo 43 de esta Ley.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 40 al 41)

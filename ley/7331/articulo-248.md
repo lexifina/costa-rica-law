@@ -1,3 +1,2 @@
-ARTÍCULO 248.- Modifícase el inciso d) del artículo 10 de la Ley No.
-6324 del 24 de mayo de 1979 y sus reformas, el que dirá:
-... ... ...
+ARTÍCULO 248.- La Dirección General de Tránsito, mediante sus oficiales, velará por el cumplimiento de esta Ley y sentará las sanciones del caso cuando se incumpla.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 233 al 248).

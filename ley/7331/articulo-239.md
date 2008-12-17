@@ -1,10 +1,7 @@
-ARTÍCULO 239.- Obligación de la sección de transportes: La sección
-de transportes o la oficina encargada analizará todo accidente de
-tránsito en que participe un vehículo a su cargo, del cual rendirá un
-informe con la recomendación respectiva, a la dirección administrativa o
-a la oficina de personal. Si esa recomendación no es compartida por el
-conductor, este tendrá derecho a ser oído, dentro del tercer día hábil,
-ante el jerarca de la institución para hacer valer sus derechos y
-presentar las pruebas que estime convenientes.
-Una vez concluido el procedimiento, se tomará la resolución
-correspondiente.
+CAPÍTULO II
+CLASIFICACION DE VEHICULOS
+ARTÍCULO 239.- Los vehículos oficiales están clasificados por su uso de la siguiente manera:
+a) Uso discrecional.
+b) Uso administrativo general.
+c) Uso de la Fuerza Pública y de los servicios de seguridad.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 224 al 239).

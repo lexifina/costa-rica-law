@@ -1,7 +1,2 @@
-ARTÍCULO 55.- Los servicios médico sanitarios derivados del seguro
-obligatorio de los vehículos, no podrán renunciarse, transarse, cederse,
-compensarse, gravarse ni embargarse, excepto las prestaciones en dinero,
-que podrán embargarse hasta por un cincuenta por ciento (50%). La cesión
-es factible sólo para favorecer los derechos de otra víctima del mismo
-accidente, sin que el monto de cobertura para esta última, sea superior
-al límite establecido en el artículo 50 de esta Ley.
+ARTÍCULO 55.- Se dará preferencia al pago de las prestaciones en dinero y de los servicios médicos contratados con terceros, excepto los suministrados por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros, hasta los límites de cobertura establecidos. No obstante, si queda algún remanente, se le cancelará a la Caja Costarricense de Seguro Social el costo de los servicios suministrados, cuando así corresponda, hasta agotar el monto máximo de cobertura por persona. Los servicios médicos, hospitalarios y farmacéuticos que no pueda otorgar el Instituto Nacional de Seguros, en vista de haberse agotado el monto disponible por persona, serán suministrados por la Caja Costarricense de Seguro Social, prestataria de esos servicios, independientemente de que se trate de accidentados asegurados o no asegurados en el Régimen de Enfermedad y Maternidad.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 54 al 55).

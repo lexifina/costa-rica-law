@@ -1,2 +1,4 @@
-ARTÍCULO 114.- Se prohíbe a los conductores llevar entre sus brazos
-a alguna persona u objeto que dificulte la conducción.
+ARTÍCULO 114.- Prohíbese conducir un vehículo automotor que tenga puesto, en el parabrisas delantero o trasero, algún rótulo, cartel, calcomanía u otro material opaco, que obstruya al conductor la visibilidad de la vía y sus alrededores. De esta situación se exceptúa el hecho de portar el marchamo y la calcomanía de revisión técnica. En el caso de las ventanillas laterales, podrá utilizarse un material opaco o polarizado que permita la visibilidad hacia adentro o hacia afuera de no menos de un setenta (70%) por ciento.
+Todo lo anterior sin perjuicio de lo dispuesto por el Consejo de Transporte Público, en relación con la rotulación e información al usuario que deberán portar las unidades de transporte remunerado de personas y de transporte de estudiantes.
+(Así reformado por el inciso ñ) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 113 al 114).

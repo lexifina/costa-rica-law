@@ -1,7 +1,7 @@
-CAPÍTULO V
-DE LOS ACCIDENTES DE TRANSITO EN QUE INTERVIENEN
-LOS VEHICULOS DEL ESTADO
-ARTÍCULO 236.- Obligación del conductor en casos de accidente: Los
-conductores de vehículos oficiales, que se vean involucrados en un
-accidente de tránsito, deben seguir las instrucciones impartidas por la
-respectiva sección de transporte.
+TÍTULO VII
+REGULACION DEL USO DE LOS VEHICULOS
+DEL ESTADO COSTARRICENSE
+CAPÍTULO I
+DISPOSICIONES GENERALES
+ARTÍCULO 236.- La presente Ley regula el uso de los vehículos oficiales de los Poderes del Estado, como bienes públicos que cumplen un fin de interés público.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 221 al 236).

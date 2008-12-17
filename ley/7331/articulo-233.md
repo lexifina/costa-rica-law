@@ -1,3 +1,2 @@
-ARTÍCULO 233.- La Dirección General de Tránsito, mediante sus
-oficiales, velará por el cumplimiento de esta Ley y sentará las sanciones
-del caso cuando se incumpla.
+ARTÍCULO 233.- El Ministerio de Obras Públicas y Transportes, por medio de la Dirección General de Educación Vial y mediante el procedimiento de concesión puede autorizar a los centros educativos públicos y privados para impartir el Curso Básico de Educación Vial y el Curso para Infractores, pero la Dirección General de Educación Vial se reserva la aplicación de la prueba teórico práctica.
+(Así corrida su numeración por los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 219 al 233).

@@ -1,3 +1,12 @@
-ARTÍCULO 66.- Al usar ese permiso para practicar, el aprendiz debe
-estar acompañado por un instructor que posea una licencia de conductor
-del mismo tipo o superior a la que aspira el aprendiz.
+SECCION I
+El permiso de aprendizaje
+ARTÍCULO 66.- Con la finalidad de obtener el permiso temporal de aprendiz de conductor, el aspirante deberá:
+a) Saber leer y escribir. Sin embargo, si el solicitante es analfabeto, podrá obtener el permiso con la previa aprobación de los cursos especiales que establezca la Dirección General de Educación Vial.
+b) Ser mayor de edad. Podrá igualmente extenderse el permiso a los mayores de diecisiete (17) años cumplidos, que hayan aprobado el curso de seguridad vial, restringido este permiso solamente para las licencias A-3, B-1 y D-1. Al efecto, deberá presentarse una solicitud, por escrito, de alguno de los padres, o del representante legal o administrativo. En la solicitud deberá indicarse un mínimo de dos (2) personas, para que al menos una (1) de ellas acompañe a la persona menor de edad, durante el proceso de conducción. Estas últimas personas deberán poseer una licencia de conducir del mismo tipo o superior a la que aspira el aprendiz, que se encuentre vigente y que haya sido expedida, por primera vez, al menos diez (10) años antes.
+(Así reformado el inciso anterior por el artículo 1° inciso g) de la ley N° 8696 de 17 de diciembre de 2008).
+c) Aprobar el Curso Básico de Educación Vial, cuyos requisitos se establecerán mediante reglamento. En ese curso será obligatorio el estudio de la presente Ley y de otras leyes afines a la materia.
+ch) Presentar un examen médico en el que se detallen las pruebas de idoneidad física y psicológica para conducción, el cual debe ser realizado por un profesional colegiado e incluir la calificación de la idoneidad en capacidad visual y habilidad de coordinación motora, necesarias para la conducción. Para tales efectos, el profesional en Medicina debe dictaminar acerca de la idoneidad en agudeza visual, campo, capacidad de respuesta al contraste, al deslumbramiento y al movimiento de objetos. Dicho examen tendrá una vigencia de seis (6) meses, como máximo. El dictamen respectivo deberá llevar agregado un timbre de doscientos colones (¢200,00) a favor de la Cruz Roja Costarricense.
+(Así reformado el inciso anterior por el artículo 1° inciso g) de la ley N° 8696 de 17 de diciembre de 2008)
+d) Suscribir una póliza de seguro, que incluya las siguientes coberturas: por lesiones o muerte, un mínimo de veinte millones de colones (¢20.000.000,00) por persona; por accidente, un mínimo de cuarenta millones de colones (¢40.000.000,00) y por daños a terceros, un mínimo de veinte millones de colones (¢20.000.000,00) por accidente.
+(Así adicionado el inciso anterior por el inciso d) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 65 al 66).

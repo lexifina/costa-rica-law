@@ -1,3 +1,2 @@
-ARTÍCULO 250.- Refórmase, en lo conducente, la Ley No. 6122 del 17
-de noviembre de 1977, Ley para garantizar al país mayor seguridad y orden
-y se deroga su Capítulo II.
+ARTÍCULO 250.- Las infracciones de esta Ley serán sancionadas por lo dispuesto en la presente Ley y en su Reglamento, en la Ley General de la Administración Pública , en el Estatuto del Servicio Civil, en el Código de Trabajo y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 235 al 250).
