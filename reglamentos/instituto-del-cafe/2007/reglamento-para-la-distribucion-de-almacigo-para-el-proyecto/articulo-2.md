@@ -9,7 +9,8 @@ e) Gerencia técnica: Área administrativa del ICAFE que agrupa las unidades té
 f) ICAFE: Instituto de Café de Costa Rica.
 g) Oficinas regionales: Unidades técnicas descentralizadas del Instituto del Café de Costa Rica cuya función principal es la representación del Instituto del Café de Costa Rica a nivel de la región de influencia, así como ejercer las funciones de investigación, transferencia de tecnología y prestación de servicios al sector cafetalero regional.
 h) Productor de café: Todo aquella persona física como jurídica, que posea con derecho a explotar por cualquier título legítimo, una plantación de café.
-i) Proyecto de renovación de plantaciones de café: Es una iniciativa del ICAFE, para contribuir con la caficultura nacional, para renovación de plantaciones agotadas, resiembras y sustitución de ciertas variedades a criterio del ICAFE.
+i) Proyecto de renovación de plantaciones de café: Es una iniciativa del ICAFE, para contribuir con la caficultura nacional, para renovación de plantaciones agotadas, la sustitución de variedades no autorizadas o la siembra de nuevas áreas de café.
+(Así reformado el inciso anterior mediante acuerdo N° 6 tomado en sesión N° 1768 del 17 de diciembre de 2008)
 j) Solicitud: Documento suministrado por el ICAFE por medio del cual el productor solicita almácigo.
 k) Unidad financiera: Unidad administrativa encargada de ejecutar el proceso contable y presupuestario, además debe velar por la gestión de cobro y pago administrativo y por el correcto uso de los fondos.
 l) Técnicos: Ingenieros agrónomos y técnicos medios en agronomía.

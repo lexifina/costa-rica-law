@@ -14,3 +14,4 @@ Reglamento para la Distribución de Almácigo para el Proyecto de Renovación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-27 | la propia norma |
+| 2 | 2008-12-17 | Reglamento 1768 (2008-12-17) |

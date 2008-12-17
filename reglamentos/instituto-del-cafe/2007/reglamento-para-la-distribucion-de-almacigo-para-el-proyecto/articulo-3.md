@@ -1,4 +1,5 @@
-Artículo 3º—El ICAFE vendará los almácigos para renovación, resiembra y sustitución a los productores de café que cumplan con los requisitos que se indican en este Reglamento. Entiéndase las siguientes definiciones:
+Artículo 3º—El ICAFE venderá los almácigos para renovación, sustitución y siembras nuevas, a los productores de café que cumplan con los requisitos que se indican en este Reglamento. Entiéndase las siguientes definiciones:
 Renovación: Cambiar áreas agotadas.
-Resiembra: Pérdida de plantas por poda o enfermedad.
-Sustitución: Cambio de materiales no deseados.
+Sustitución: Cambio de variedades no autorizadas.
+Siembra nueva: Ampliación áreas de café.
+(Así reformado mediante acuerdo N° 6 tomado en sesión N° 1768 del 17 de diciembre de 2008)
