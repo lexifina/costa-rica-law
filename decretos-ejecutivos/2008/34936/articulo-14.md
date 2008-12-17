@@ -1,0 +1,1 @@
+Artículo 14.—Apoyo logístico y técnico: Los recursos humanos, técnicos y de apoyo logístico requeridos por la Secretaría Técnica, deberán ser aportados por las Instituciones representadas en el Consejo Nacional de Intermediación de Empleo.

@@ -1,0 +1,1 @@
+Artículo 3º—Conformación del Sistema Nacional de Intermediación de Empleo: El Sistema Nacional de Intermediación, orientación e información de Empleo, es una red integrada por los servicios intermediación de empleo de aquellas instituciones y organizaciones representadas en el Consejo Nacional de Intermediación.

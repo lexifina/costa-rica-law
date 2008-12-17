@@ -1,0 +1,1 @@
+Artículo 18.—Sesiones: La Secretaría Técnica celebrará una sesión ordinaria por mes y sesionará extraordinariamente cuando así lo acuerden sus miembros o lo convoque el Director Nacional de Empleo o quien lo represente. El orden del día deberá ser conocido un día antes de la sesión. Los acuerdos de la Secretaría Técnica se tomarán por mayoría simple.

@@ -1,0 +1,1 @@
+Artículo 7º—Principios generales: El Consejo Nacional de Intermediación de Empleo constituye el órgano rector de la política nacional de intermediación, orientación e información de empleo; y velará por su aplicación, a efecto de incidir en la dinámica del mercado de trabajo.
