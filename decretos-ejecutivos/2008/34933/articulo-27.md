@@ -1,0 +1,1 @@
+Artículo 27.—Todo adelanto de recursos del Fondo de Caja Chica deberá ser liquidado, mediante el formulario que para tal efecto se dispondrá en Unidad Financiera del Servicio y será firmado por los funcionarios indicados en el artículo 4 de este Reglamento.

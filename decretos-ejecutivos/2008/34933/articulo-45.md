@@ -1,0 +1,1 @@
+Artículo 45.—Los aspectos no contemplados en este Reglamento se regirán por la Ley de la Administración Financiera de la República, la Ley de la Administración Pública, el Reglamento de la Contratación Administrativa, el Reglamento General de Cajas Chicas y otras leyes conexas.

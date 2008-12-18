@@ -1,0 +1,1 @@
+Artículo 34.—Las operaciones y trámites de reintegro de fondos se realizarán mediante transferencias electrónicas de fondos por medio de la Tesorería Nacional, de la cuenta domiciliada en la Caja Única a nombre de Servicio Nacional de Guardacostas a la cuenta autorizada para ese fin.

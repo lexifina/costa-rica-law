@@ -1,0 +1,3 @@
+CAPÍTULO II
+Control del Fondo de Caja Chica
+Artículo 11.—La administración del Fondo de Caja Chica del Servicio Nacional de Guardacostas estará asignada a un funcionario de la Unidad Financiera y las Cajas Chicas Auxiliares estarán asignadas a funcionarios subordinados a los Oficiales Directores de las Estaciones de Guardacostas, pero en lo que corresponde a su operación administrativa, gozarán de independencia funcional y estarán subordinados a las directrices de este reglamento y a las disposiciones técnicas que instruya el encargado del Fondo y/o el Jefe de la Unidad Financiera del Servicio, quienes serán los responsables de la correcta operación de esos fondos, ante la Dirección General del Servicio.

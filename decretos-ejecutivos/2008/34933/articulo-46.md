@@ -1,0 +1,1 @@
+Artículo 46.—Toda infracción a las disposiciones contenidas en este Reglamento, podrá ser motivo suficiente para la suspensión temporal de la caja chica auxiliar, sin perjuicio de lo que se dispone respecto a la responsabilidad de los servidores en la Ley de Administración Financiera de la República y Presupuestos Públicos.

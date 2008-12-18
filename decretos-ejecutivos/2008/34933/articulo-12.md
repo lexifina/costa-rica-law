@@ -1,0 +1,1 @@
+Artículo 12.—El Responsable del Fondo de Caja Chica del Servicio Nacional de Guardacostas, que en lo sucesivo en este Reglamento se le denominará como “El Responsable”, será el Jefe de la Sección Financiera del Departamento Administrativo del Servicio.

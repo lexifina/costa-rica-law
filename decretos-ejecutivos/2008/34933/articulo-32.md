@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Reembolsos al fondo
+Artículo 32.—Los reembolsos deberán ser tramitados de acuerdo con el volumen de gastos y garantizando que no se agoten los fondos. El reintegro debe solicitarse como máximo cuando se haya agotado el 70% del fondo.

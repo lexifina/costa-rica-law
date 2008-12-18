@@ -1,0 +1,1 @@
+Artículo 40.—Los intereses ganados por saldos en la cuenta corriente del Fondo Fijo Caja Chica deben depositarse una vez reflejados en el estado de cuenta emitido por la entidad bancaria en el Fondo General del Gobierno, según el mecanismo que establezca la Tesorería Nacional.

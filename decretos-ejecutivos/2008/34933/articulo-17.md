@@ -1,0 +1,1 @@
+Artículo 17.—Cualquier faltante que se produzca al momento de practicarse un arqueo, deberá ser cubierto de inmediato por el responsable del manejo del fondo. En caso de sobrante, deberá confeccionarse el recibo correspondiente y depositarse el dinero en la cuenta bancaria del Fondo Especial del Servicio Nacional de Guardacostas.

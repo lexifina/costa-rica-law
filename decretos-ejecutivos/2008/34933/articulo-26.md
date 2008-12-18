@@ -1,0 +1,1 @@
+Artículo 26.—Ningún funcionario o Área podrá solicitar más de un vale por adelanto de caja chica en forma simultánea. No se tramitarán adelantos de caja chica de aquellos funcionarios que tengan liquidaciones pendientes.

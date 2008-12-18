@@ -1,0 +1,1 @@
+Artículo 10.—Se podrán utilizar recursos del Fondo de Caja Chica del Fondo Especial del Servicio Nacional de Guardacostas para cubrir servicios y gastos de viaje únicamente cuando estos se realicen dentro del territorio o las aguas jurisdiccionales del país.

@@ -1,0 +1,2 @@
+Artículo 19.—Sin previo aviso, la Auditoría General del Ministerio de Seguridad Pública, podrá efectuar arqueos de la caja chica, y de las cajas auxiliares e informar de los resultados al Ministro, al Director Financiero del Ministerio de Seguridad Pública, al Director General y al Jefe Administrativo del Servicio.
+Una vez realizado el arqueo se debe dejar constancia del mismo mediante el instrumento que se diseñe para dicho fin, el cual debe incluir las firmas de todos los participantes en el proceso.

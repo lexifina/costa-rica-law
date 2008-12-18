@@ -1,0 +1,10 @@
+Artículo 21.—Es obligación del responsable del Fondo de Caja Chica, que se cumplan las siguientes normas:
+a) Registrar permanente y detalladamente la información sobre los movimientos de ingresos, egresos y adelantos tramitados por el Fondo de Caja Chica. Los registros deben ser indelebles, no deben observar borrones o tachaduras, y deben contener información suficiente para facilitar y promover un adecuado control contable, financiero y administrativo.
+b) Realizar una conciliación mensual e implementar al menos un arqueo bimensual aleatorio a cada Caja Auxiliar del Fondo. El encargado del Fondo de Caja Chica deberá diseñar un programa anual de arqueos a las Cajas Auxiliares del Fondo y presentar sus resultados regularmente ante el Director General en sesión ampliada con el Consejo Asesor del Servicio Nacional de Guardacostas durante las sesiones regulares que se realicen dentro de las dos semanas siguientes a cada intervención.
+c) Autorizar los movimientos de las Cajas Auxiliares del Fondo.
+d) Revisar, aprobar o improbar las facturas recibidas por concepto de liquidación de adelantos del Fondo y sus Cajas Auxiliares.
+e) Verificar que el gasto incurrido corresponda a la justificación del adelanto de efectivo otorgado y comunicar inmediatamente al Jefe Administrativo cualquier inconsistencia.
+f) Comunicar formalmente al Jefe Administrativo y al Jefe del Área involucrada cuando no se cumpla con las disposiciones de liquidación de adelantos de efectivo o cuando se presente alguna inconsistencia en los documentos de respaldo.
+g) Realizar las liquidaciones revolutivas del Fondo y sus Cajas Auxiliares ante el Jefe de Unidad Financiera del Servicio Nacional de Guardacostas.
+h) Cumplir, hacer cumplir y comunicar permanentemente sobre cambios en la normativa que regula el funcionamiento de los Fondos de Caja Chica.
+i) Los encargados de las Cajas Chicas Auxiliares deberán cumplir en lo que corresponde, con todas las disposiciones aquí indicadas para el Encargado del Fondo de Caja Chica.

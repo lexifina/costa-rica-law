@@ -1,0 +1,1 @@
+Artículo 13.—El Responsable del Servicio Nacional de Guardacostas comunicará a la Tesorería Nacional, mediante oficio, el nombre y número de cédula de la o el funcionario designado como responsable directo de la custodia y operación del Fondo de Caja Chica.

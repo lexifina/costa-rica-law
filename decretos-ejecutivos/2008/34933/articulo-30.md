@@ -1,0 +1,1 @@
+Artículo 30.—Dicha solicitud deberá contar con la autorización del Jefe de Área o de la persona que este haya designado para tal efecto. Cuando el monto solicitado sobrepase el límite de gasto autorizado, requerirá adicionalmente la autorización del Jefe del Departamento Administrativo y del Director General.
