@@ -1,0 +1,8 @@
+El Consejo Nacional de Supervisión, del Sistema Financiero en el artículo 8 del acta de la sesión 731-2008, celebrada el 25 de julio del 2008,
+considerando que:
+A. en el artículo 8 del acta de la sesión 720-2008, celebrada el 30 de mayo del 2008, el Consejo Nacional aprobó el Acuerdo SUGEF 8-08, “Reglamento sobre Autorizaciones de Entidades Supervisadas por la SUGEF, y sobre Autorizaciones y Funcionamiento de Grupos y Conglomerados Financieros”, publicado en el diario oficial La Gaceta 117 del 18 de junio del 2008,
+B. por un error material en el primer párrafo del artículo 2 de dicho Reglamento se omitió incluir a los Grupos Financieros fiscalizados por la Superintendencia General de Entidades Financieras,
+dispuso:
+1. modificar el primer párrafo del artículo 2 del Acuerdo SUGEF 8-08 “Reglamento sobre Autorizaciones de Entidades Supervisadas por la SUGEF, y sobre Autorizaciones y Funcionamiento de Grupos y Conglomerados Financieros”, para que se lea como se copia a continuación:
+“Artículo 2. Alcance
+Este Reglamento es aplicable a las entidades financieras y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF) y a los grupos financieros supervisados por la Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN) y la SUGEF. Asimismo, es de aplicación para las solicitudes para realizar actividades de intermediación financiera en Costa Rica, para la constitución de grupos financieros costarricenses y para la detección y regularización de grupos financieros de hecho, así como para la autorización de organizaciones cooperativas.”
