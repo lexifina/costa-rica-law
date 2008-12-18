@@ -1,1 +1,0 @@
-Artículo 5º—Cuando se realice la captura de las especies de picudos por pescadores deportivos y turísticos o incidentalmente por parte de pescadores comerciales no turísticos y el pez esté aún con vida, este será liberado cortando el reinal o la línea lo más cercano del anzuelo, sin sacar del agua el espécimen capturado.

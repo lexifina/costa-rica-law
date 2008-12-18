@@ -1,1 +1,0 @@
-Artículo 6º—En aquellas áreas en donde la pesca deportiva, turística y comercial no turística, coincidan en sus faenas de pesca, le estará permitido a la pesca comercial no turística el uso de cuerdas y palangre reglamentario sin mediar el uso de carnada viva, mientras que a la pesca tanto deportiva como turística le estará permitido el uso de cañas, carretes, curricán (troleo).

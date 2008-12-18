@@ -1,1 +1,0 @@
-Artículo 9º—Cuando se detecten valores que excedan el porcentaje de captura de Pez Vela permitido como pesca incidental, el INCOPESCA procederá al decomiso del producto y dispondrá del mismo según lo establecido en el ordenamiento jurídico pesquero.

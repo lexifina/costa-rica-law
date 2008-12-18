@@ -1,1 +1,0 @@
-Artículo 11.—Para la descarga de las capturas incidentales de Pez Vela, las embarcaciones estarán obligadas a solicitar la respectiva inspección por parte del INCOPESCA. Siguiendo para esto los procedimientos establecidos por el INCOPESCA.
