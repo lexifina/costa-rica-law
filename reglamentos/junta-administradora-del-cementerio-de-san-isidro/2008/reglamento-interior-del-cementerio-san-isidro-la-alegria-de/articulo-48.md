@@ -1,0 +1,2 @@
+Artículo 48.—No es permitido el traslado de los restos entre bóvedas de propiedad particular, si entre el fallecido y los propietarios de una y otra bóveda no existen vínculos familiares.
+En los casos especiales en que existan vínculos afectivos, la Junta previo estudio y comprobación de dichos vínculos, podrán autorizar por acuerdo el traslado, siempre que no implique la desocupación total de la bóveda donde se encuentran dichos restos.

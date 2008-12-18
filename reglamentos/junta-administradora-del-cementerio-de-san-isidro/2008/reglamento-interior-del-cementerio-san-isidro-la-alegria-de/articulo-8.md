@@ -1,0 +1,1 @@
+Artículo 8º—Las ausencias del presidente serán suplidas por el vocal en orden específico de su nombramiento. Dejará de ser miembro de la Junta el que faltaré a tres sesiones consecutivas, sin causa justificada, decisión que tomará la Junta Administrativa del Cementerio.

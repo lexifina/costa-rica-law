@@ -1,0 +1,1 @@
+Artículo 21.—Los jarrones que se coloquen deben estar acondicionados de manera tal que permitan salir el agua que se le coloque a las flores, de manera que dejen fluir el agua y la misma no se estanque, de lo contrario la Junta podrá hacerlo por si misma con el costo que esto representa para el arrendatario.

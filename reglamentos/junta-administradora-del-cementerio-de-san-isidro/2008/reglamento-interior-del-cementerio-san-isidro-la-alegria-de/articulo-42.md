@@ -1,0 +1,1 @@
+Artículo 42.—Para todos los efectos de exhumación, se consideran como interesados en derecho ante la Junta, los parientes, pero en caso de conflicto con el propietario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.

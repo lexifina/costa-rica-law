@@ -1,0 +1,1 @@
+Artículo 44.—No podrán autorizarse las exhumaciones de los fallecidos por viruela, escarlatina, tifo exantemático, difteria, cólera y peste bubónica, sino con permiso del Ministerio de Salud de la localidad.

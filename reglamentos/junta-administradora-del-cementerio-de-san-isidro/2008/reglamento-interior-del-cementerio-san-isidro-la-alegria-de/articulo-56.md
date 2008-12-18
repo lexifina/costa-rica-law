@@ -1,0 +1,1 @@
+Artículo 56.—La Junta, miembros y funcionarios no incurrirán en responsabilidad si mediante la actuación dolosa de un particular se efectué traspaso, inhumación, exhumación o traslado de restos, contrario a lo dispuesto en este reglamento o por las leyes que regulen la materia, siempre que tal actuación no haya sido de su conocimiento.

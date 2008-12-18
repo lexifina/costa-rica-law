@@ -1,0 +1,1 @@
+Artículo 49.—A partir del momento en que los restos de una persona hayan salido del cementerio, la Junta salva su responsabilidad, la cual será asumida por el solicitante y por el propietario de la bóveda que firman el acta correspondiente.

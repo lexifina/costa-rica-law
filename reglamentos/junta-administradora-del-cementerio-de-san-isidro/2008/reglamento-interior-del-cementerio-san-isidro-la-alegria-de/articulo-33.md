@@ -1,0 +1,1 @@
+Artículo 33.—Si la inhumación se fuera a realizar en una bóveda particular, deberá mediar la autorización de la persona propietaria del derecho o alguno de quienes aquella hubiere designado en el contrato.

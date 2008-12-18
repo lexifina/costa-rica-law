@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las exhumaciones
+Artículo 40.—La exhumaciones se distinguen en ordinarias y extraordinarias. Las primeras tienen lugar cuando, cumplidos cinco años de haber sido hecha la inhumación y destruidas las partes blandas del cadáver, o expirado el plazo de arrendamiento si se tratare de sepultura privada, se excave de nuevo las fosas para dar lugar a nuevas inhumaciones. Las segundas, cuando los cadáveres sean desenterrados por orden de la autoridad judicial para investigaciones de interés de la justicia o con el permiso del Jefe de Sanidad y del Ministerio de Salud, para ser trasladados a otra sepultura o para ser incinerados.

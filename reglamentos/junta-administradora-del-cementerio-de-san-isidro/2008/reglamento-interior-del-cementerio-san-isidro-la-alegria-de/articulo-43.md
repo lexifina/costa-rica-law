@@ -1,0 +1,1 @@
+Artículo 43.—Las exhumaciones se harán siempre en presencia del encargado del cementerio y de dos testigos; de la operación se levantará un acta en duplicado, una copia de la cual se enviará a la Junta Administradora del Cementerio y esta la conservará el encargado del cementerio.

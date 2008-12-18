@@ -1,0 +1,1 @@
+Artículo 54.—No obstante en lo dispuesto en el artículo anterior cuando un número mayor de cinco propietarios desee presentar un asunto de relevante importancia para el cementerio, la Junta fijará hora y fecha de común acuerdo con los interesados, para que estos expongan sus inquietudes.

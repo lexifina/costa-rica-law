@@ -1,0 +1,1 @@
+Artículo 34.—La presentación de la orden de inhumación deberá hacerse por lo menos con ocho horas de anticipación de la misma, con el fin de determinar el sitio exacto y la ausencia de restos con más de 5 años.

@@ -1,0 +1,1 @@
+Artículo 25.—Toda solicitud que se realice a la Junta para permisos de construcción, demolición y reparación deberá ir firmado por el arrendatario, sus autorizados, o herederos expresando todos los motivos en los que se funda su petición.

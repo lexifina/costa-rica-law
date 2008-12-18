@@ -1,0 +1,1 @@
+Artículo 38.—Las fosas para las inhumaciones se excavarán hasta 2 metros del plano superficial del cementerio y medirán 1.80 metros de largo y 0.80 metros de ancho. Las fosas para niños menores de 7 años tendrán la misma profundidad, pero medirán 1.50 metros de largo y 0.50 metros de ancho. Entre dos fosas continuas se dejará una distancia de por lo menos 1.15 metros.
