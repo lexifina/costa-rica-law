@@ -14,3 +14,4 @@ Reglamento de Casinos de Juego
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-27 | la propia norma |
+| 2 | 2008-12-18 | Decreto Ejecutivo 34983 (2008-12-18) |
