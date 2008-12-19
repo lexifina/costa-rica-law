@@ -1,1 +1,0 @@
-Artículo 56.—Coeficientes mínimos de liquidez para fondos abiertos. Las políticas de administración y control de la liquidez del fondo deben estar establecidas en el prospecto, en todo caso deben respetar los lineamientos generales dispuestos en el Reglamento de gestión integral de riesgos.

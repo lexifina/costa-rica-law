@@ -1,1 +1,0 @@
-V.—Las sociedades administradoras cuentan con un plazo de seis meses, posteriores a la entrada en vigencia del Reglamento de gestión integral de riesgos, para la implantación de la unidad de gestión integral de riesgos o la contratación de una unidad de riesgos externa.

@@ -1,2 +1,0 @@
-Artículo 11.—Límites a la inversión de los recursos propios.
-Las sociedades administradoras deben mantener sus recursos propios disponibles en efectivo, en valores de oferta pública de emisores nacionales o extranjeros, y en activos fijos, estos últimos en el porcentaje definido en el Artículo 9 inciso b. ii. de este Reglamento. Las inversiones de dichos recursos deben respetar sanos principios de diversificación, adecuada gestión de riesgo, y ser valoradas de conformidad con las Normas de Contabilidad aprobadas por el Consejo Nacional de Supervisión del Sistema Financiero.

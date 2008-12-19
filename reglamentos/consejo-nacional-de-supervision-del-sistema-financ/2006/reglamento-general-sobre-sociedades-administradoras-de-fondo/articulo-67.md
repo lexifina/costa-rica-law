@@ -1,4 +1,0 @@
-Artículo 67.—Plazos para el reembolso en el caso de megafondos.
-En el caso de megafondos abiertos, el plazo mínimo de redención es de t + 5 y el máximo de t + 15. No obstante, aplican las mismas excepciones establecidas en el artículo 34 en relación con la posibilidad de que se establezcan en el prospecto plazos mayores para el reembolso en caso de solicitudes de reembolso provenientes de un mismo inversionista superior al 10% y de solicitudes provenientes de diferentes inversionistas que en su conjunto sean superiores al 25%.
-(Así reformado mediante sesión N° 698 del 28 de enero de 2008).
-.

@@ -1,1 +1,0 @@
-Artículo 70.—Normativa aplicable. Los valores que formen parte de los activos de un fondo inmobiliario se rigen por la normativa aplicable a los fondos de inversión financieros dispuesta en este Reglamento.

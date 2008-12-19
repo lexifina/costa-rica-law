@@ -1,3 +1,0 @@
-Artículo 73.—Activos autorizados. Los fondos inmobiliarios solo pueden invertir en bienes inmuebles construidos, ya sea dentro o fuera del territorio nacional, los cuales deben poseerse en concepto de propiedad y libres de derechos de usufructo, uso y habitación.
-De conformidad con el Artículo 18 de este Reglamento los prospectos de fondos inmobiliarios que inviertan en el exterior deben revelar los riesgos inherentes en los mercados en donde se van a ubicar los activos; y los riesgos específicos de las adquisiciones realizadas en cada país según lo establecido en la guía del prospecto.
-Así mismo pueden invertir en valores financieros autorizados de conformidad con lo establecido en este Reglamento.

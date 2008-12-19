@@ -1,3 +1,0 @@
-Artículo 38.—Suspensión de nuevas suscripciones y redenciones.
-En caso de iliquidez u otras situaciones extraordinarias del mercado, con la finalidad de proteger a los inversionistas, el Superintendente de oficio o a petición de la sociedad administradora puede suspender en forma temporal la suscripción o el reembolso de las participaciones.
-El plazo máximo de suspensión es de dos meses contados a partir de la notificación de la autorización para la suspensión.

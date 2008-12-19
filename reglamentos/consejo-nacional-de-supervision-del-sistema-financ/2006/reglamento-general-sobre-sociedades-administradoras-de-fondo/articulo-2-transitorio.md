@@ -1,1 +1,0 @@
-II.—En un plazo de seis meses las sociedades administradoras deben haber aprobado e implantado el reglamento del comité de inversiones y las políticas sobre conflictos de interés, según lo establecido en los Artículos 24 y 25 respectivamente

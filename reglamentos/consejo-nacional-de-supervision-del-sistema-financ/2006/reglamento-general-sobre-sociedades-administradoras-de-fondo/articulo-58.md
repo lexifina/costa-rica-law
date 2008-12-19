@@ -1,1 +1,0 @@
-Artículo 58.—Límites a la concentración en una misma emisión o valor. En los prospectos de los fondos de inversión, se debe indicar la política sobre los porcentajes máximos de participación en una sola emisión o valor como porcentaje de la emisión en circulación.

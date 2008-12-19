@@ -1,3 +1,0 @@
-Artículo 92.—Informe de avance y de cierre del proyecto. Sin prejuicio de lo que se disponga en el prospecto o acordara la asamblea de inversionistas, con una periodicidad trimestral, se debe realizar y remitir a la Superintendencia un informe del avance de cada proyecto por parte de un profesional o fiscalizador independiente. Los inversionistas tendrán acceso a estos informes de avance.
-El Superintendente puede establecer el contenido mínimo de los informes, así como los medios y plazos para que la sociedad administradora comunique a los inversionistas la disponibilidad de dichos avances.
-El último informe de avance corresponderá al informe de cierre del proyecto, con el fin de cumplir adecuadamente con el proceso de desarrollo de la obra.

@@ -1,3 +1,0 @@
-Artículo 63.—Garantía. Las garantías únicamente pueden ser otorgadas por una entidad bancaria o aseguradora nacional, o una entidad bancaria extranjera que cuenten con una calificación de riesgo de grado de inversión, otorgada por una calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos.
-Las garantías que se otorguen deben regir durante la vigencia del fondo de inversión. La garantía debe ser de tipo irrevocable no negociable. Si se establecen excepciones en el contrato de garantía, se debe revelar dicha situación en el prospecto.
-El costo de la contratación de la garantía otorgada se hace con cargo al fondo de inversión.

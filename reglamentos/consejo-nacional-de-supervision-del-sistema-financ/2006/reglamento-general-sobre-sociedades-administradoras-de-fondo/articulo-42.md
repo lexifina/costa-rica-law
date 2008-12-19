@@ -1,1 +1,0 @@
-Artículo 42.—Premios. Las sociedades administradoras pueden establecer premios en los prospectos de los fondos. Estos premios únicamente se otorgan por el plazo de permanencia o el volumen de recursos invertidos. Deben aplicarse en igualdad de condiciones a todos los participantes del fondo y corren siempre a cargo de la sociedad administradora.

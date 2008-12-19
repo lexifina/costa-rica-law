@@ -1,1 +1,0 @@
-Artículo 21.—Actualización de la información. La sociedad administradora está obligada a mantener el prospecto de los fondos que administra actualizado. Esta actualización puede hacerse mediante un anexo siempre y cuando no dificulte la comprensión de su contenido, todo ello de conformidad con las instrucciones que emita el Superintendente.
