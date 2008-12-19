@@ -1,0 +1,2 @@
+Artículo Segundo.—El Ministerio de Cultura y Juventud deberá cumplir con el trámite estipulado en los artículos 14 y siguientes del Decreto Nº 30720-H que es el “Reglamento para el Registro y Control de Bienes de la Administración Central” a fin de dar de alta en sus inventarios la propiedad que mediante este decreto se asigna a dicho órgano.
+La Proveeduría Institucional del Ministerio de Hacienda realizará todos los trámites para dar de baja en los Inventarios del Ministerio, el bien inmueble que por este medio se asigna al Ministerio de Cultura y Juventud.
