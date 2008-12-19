@@ -14,3 +14,4 @@ Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
+| 2 | 2008-12-19 | Reglamento 731 (2008-07-25) |
