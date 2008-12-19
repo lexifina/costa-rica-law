@@ -1,0 +1,1 @@
+Artículo 6º—Improcedencia de investigación previa y conciliación. En el proceso que al efecto se realice no resulta procedente la investigación previa, debiendo iniciarse el procedimiento administrativo ante la interposición de la denuncia, conforme las disposiciones contenidas en este capítulo. Asimismo, queda prohibido acudir a las vías de la conciliación.

@@ -1,0 +1,1 @@
+Artículo 23.—Violación a la confidencialidad. Cualquier infidencia de quien sea integrante del órgano director o de los testigos, y que violare la confidencialidad y el secreto del proceso, se considerará como falta grave.

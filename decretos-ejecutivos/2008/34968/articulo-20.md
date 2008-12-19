@@ -1,0 +1,1 @@
+Artículo 20.—De la prescripción de la potestad sancionadora. Conforme lo dispuesto en el artículo 29 de la Ley Nº 7476, tanto el cómputo, como la suspensión, la interrupción y los demás extremos relativos a la prescripción de la potestad sancionadora, se regirán por lo dispuesto en el Título X del Código de Trabajo.

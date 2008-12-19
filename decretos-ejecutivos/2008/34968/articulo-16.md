@@ -1,0 +1,1 @@
+Artículo 16.—Plazo para emitir informe final. En el plazo de quince días naturales siguientes a la comparecencia, el órgano director emitirá el informe de instrucción debidamente razonado, el que contendrá las respectivas recomendaciones al Ministro\a.
