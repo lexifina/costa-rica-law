@@ -1,0 +1,14 @@
+Artículo 2º—Procedimiento para la separación de patente de licores.
+1. Presentada la solicitud a la Alcaldía Municipal, certificará el día y la hora de su presentación. Si esta solicitud no cumpliere con los requisitos correspondientes, se le prevendrá para dentro del plazo de ocho días, que el interesado subsane los defectos u omisiones, o que complete los antecedentes que en tal caso le indicará, para lo cual por una sola vez, le concederá un plazo de hasta diez días, de conformidad con el artículo 264 de la Ley General de la Administración Pública, transcurrido el plazo sin que el interesado cumpla con lo ordenado, la solicitud se tendrá por no presentada y se archivarán los antecedentes.
+2. Debido a que no hay una diferenciación al origen del licor, lo más conveniente, por ser dos autorizaciones distintas, es que se numere de la siguiente forma genérica:
+- El número de licencia de licores que le corresponde en la actualidad, si es nacional, asignarle la letra A.
+- El número de licencia de licores que le corresponde en la actualidad, si es extranjera, asignarle la letra B.
+3. La activación de una nueva patente, se dará de conformidad con el mismo orden de solicitud planteada.
+4. De previo a resolver debe verificarse que se han cancelado los impuestos de la patente de licores de manera separada y que se encuentra al día.
+5. Verificar si la patente que quedará activa, se ubica en el mismo local para el que fue otorgada.
+6. La patente disponible quedará inactiva y para su activación y traslado debe cumplir con lo establecido en el artículo 11 de la “Ley de Licores” y en el artículo 9 del “Reglamento a la Ley de Licores” (Decreto Ejecuto 17757-G) respecto a las distancias, y demás requisitos establecidos al efecto. Su activación se dará de conformidad con el mismo orden de solicitud planteada.
+7. Para la activación de una patente esta Municipalidad se basará única y exclusivamente en el dato de censo poblacional más actualizado que registre el Instituto Nacional de Estadística y Censo (INEC), para el cantón de Orotina, no siendo válidas proyecciones de población. Lo anterior por cuanto mediante Ley Nº 7839 del 5 de noviembre de 1998, se tiene que es ese ente legalmente facultado para emitir los datos poblacionales oficiales en la República.
+8. Una vez se haya cumplido con todos los requisitos la dependencia administrativa correspondiente, mediante estudio razonado y motivado remitirá el expediente al Concejo Municipal con el dictamen correspondiente, donde se demuestre que se cumple con las condiciones necesarias para la separación, el funcionamiento o activación de la patente, para que tome el acuerdo respectivo .
+9. El Concejo Municipal tomará el acuerdo al respecto, y una vez que esté firme, se le comunicará al patentado, con indicación que procederán los recursos ordinarios de revocatoria y apelación, de conformidad con el artículo 156 del Código Municipal.
+Publíquese.
+Rige a partir de su publicación
