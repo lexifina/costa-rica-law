@@ -1,0 +1,1 @@
+Artículo 43.—Procedimiento de cierre del Fondo Fijo de Caja Chica por parte de la Institución. En caso de que el Responsable del Fondo Fijo de Caja Chica, considere pertinente el cierre, procederá de acuerdo con los lineamientos que establezca la Dirección Administrativa Financiera, aprobados de la Dirección General del SENASA e informará a la Tesorería Nacional al respecto.

@@ -1,0 +1,2 @@
+Artículo 37.—Faltantes y sobrantes en las operaciones ordinarias del Fondo Fijo Caja Chica. Los faltantes que resulten de las operaciones ordinarias de la Caja Chica y sean debidamente comprobados luego de efectuado el debido proceso deberán ser cubiertos por el responsable del Fondo, una vez establecida su responsabilidad.
+En caso que se determine un sobrante, éste lo deberá depositar a más tardar dos días hábiles después de efectuado el arqueo a la cuenta del Fondo General de Gobierno, caso contrario se procederá con el debido proceso a fin de establecer responsabilidades.

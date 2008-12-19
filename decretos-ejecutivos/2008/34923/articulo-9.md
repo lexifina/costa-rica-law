@@ -1,0 +1,3 @@
+CAPÍTULO II
+Asignación de recursos
+Artículo 9º—Asignación del monto de Caja Chica. El monto inicial del Fondo de Caja Chica del SENASA, será del 1% de la programación de gasto que se establezca en el Presupuesto de la Cuenta Especial, autorizado por la Contraloría General de la República, para el ejercicio económico que corresponda, para las partidas incluidas en el Clasificador por Objeto del Gasto del Sector Público para Compras por Fondo Fijo Caja Chica, previo a la autorización del Director General del SENASA deberá contar con el visto bueno de la Tesorería Nacional según lo establecido en el Artículo 10 del Decreto Nº 32874-H Reglamento General del Fondo Cajas Chicas.
