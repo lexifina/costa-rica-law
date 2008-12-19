@@ -1,0 +1,1 @@
+Artículo 21.—Requisitos para constitución de un nuevo intermediario financiero. Para la autorización de la constitución de un nuevo intermediario financiero, el solicitante debe suministrar a la SUGEF la información que se detalla en el artículo 22 y en los anexos 1 y 2 de este Reglamento.

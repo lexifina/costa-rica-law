@@ -1,0 +1,6 @@
+Artículo 77.—Criterios para determinar vinculación funcional. Existe vinculación funcional cuando se determine la existencia de cualquiera de las siguientes situaciones:
+a) Denominación común: El uso de denominaciones, marcas o símbolos iguales o semejantes a las usadas por otras entidades financieras costarricenses. En el caso de entidades extranjeras, cuando no se encuentre claramente identificado el domicilio legal de la empresa que ofrece el servicio.
+b) Actuación conjunta: El uso compartido de establecimientos físicos, recursos materiales, tecnológicos, humanos, servicios de información, sistemas de procesamiento de datos, servicios de contabilidad entre otros.
+c) Servicios complementarios: La prestación de servicios complementarios para los clientes, tales como los indicados en el artículo 64 de este Reglamento.
+d) Presentarse en forma conjunta: Mediante la publicidad, la información en sitios de Internet, el uso de signos externos iguales o semejantes a los usados por otras empresas y otros elementos creadores de imagen.
+e) Cuando el 50% o más del valor de los activos propios y administrados de una sociedad propietaria o administradora de bienes muebles o inmuebles, se encuentran al servicio de por lo menos una entidad financiera supervisada costarricense o de su grupo o conglomerado financiero.

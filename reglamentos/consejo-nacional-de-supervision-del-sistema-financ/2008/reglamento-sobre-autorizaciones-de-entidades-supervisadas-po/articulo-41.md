@@ -1,0 +1,1 @@
+Artículo 41.—Requisitos para la fusión de dos o más empresas de un mismo grupo o conglomerado financiero. Para la autorización de la fusión de dos o más empresas de un mismo grupo o conglomerado financiero, el representante legal debe suministrar al supervisor del grupo o conglomerado financiero la información detallada en el anexo 9 de este Reglamento.

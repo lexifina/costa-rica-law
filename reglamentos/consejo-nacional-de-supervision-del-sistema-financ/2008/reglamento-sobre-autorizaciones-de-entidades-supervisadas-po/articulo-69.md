@@ -1,0 +1,1 @@
+Artículo 69.—Financiamiento de la sociedad controladora del grupo financiero. La sociedad controladora organizada como sociedad anónima debe financiarse únicamente mediante la emisión de acciones comunes o preferentes, y no podrá emitir garantías solidarias.

@@ -1,0 +1,1 @@
+Artículo 61.—Resolución de conflictos de competencia. El CONASSIF será el encargado de resolver los conflictos de competencia que se susciten en la aplicación de este Reglamento, o en la supervisión de los grupos y conglomerados financieros costarricenses.

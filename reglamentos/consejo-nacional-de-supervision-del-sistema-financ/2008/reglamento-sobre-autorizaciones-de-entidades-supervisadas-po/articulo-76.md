@@ -1,0 +1,6 @@
+Artículo 76.—Excepciones para la incorporación de empresas a un grupo financiero costarricense. Previa aprobación del supervisor del grupo financiero costarricense, con base en una evaluación de los hechos y circunstancias, podrá eximirse a una empresa de la incorporación a un grupo costarricense, cuando algún socio de la empresa, a lo largo de la estructura de propiedad, presente cualquiera de las siguientes condiciones:
+a) Cuando el socio persona jurídica sea una institución gubernamental.
+b) Cuando el socio persona jurídica sea un organismo internacional o multilateral para el desarrollo.
+c) Cuando el socio persona jurídica sea una empresa cuyas acciones se coticen en un mercado organizado y su patrimonio sea superior a mil millones de dólares.
+Asimismo, previa aprobación del supervisor del grupo financiero costarricense, podrá eximirse de la incorporación al grupo a una empresa financiera integrante de un grupo financiero regional sujeto a supervisión consolidada.
+No obstante lo indicado en el inciso c) anterior, el supervisor del grupo financiero costarricense podrá requerir la incorporación de una empresa al grupo financiero, cuando con base en una evaluación de los hechos y circunstancias, las actividades de esa empresa pongan en riesgo la estabilidad y solvencia del grupo o del intermediario financiero costarricense.

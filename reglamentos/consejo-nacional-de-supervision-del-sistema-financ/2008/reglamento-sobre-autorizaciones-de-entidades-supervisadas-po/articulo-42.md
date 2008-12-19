@@ -1,0 +1,1 @@
+Artículo 42.—Requisitos para la separación de una empresa del grupo o conglomerado financiero. Para la autorización de la separación de una empresa del grupo o conglomerado financiero, el representante legal de la controladora deberá adjuntar los requisitos que se indican en el anexo 11 de este Reglamento.

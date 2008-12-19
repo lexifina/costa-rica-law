@@ -1,0 +1,2 @@
+Artículo 35.—Requisitos para constitución de un nuevo grupo financiero. Para la autorización de la constitución de un nuevo grupo financiero, el solicitante debe suministrar al supervisor responsable la información que se detalla en el artículo 36 de este Reglamento y en el anexo 8 de este Reglamento.
+Los bancos e intermediarios financieros domiciliados en el exterior integrantes de un nuevo grupo o conglomerado financiero, deben estar domiciliados únicamente en una plaza aceptada por el CONASSIF.
