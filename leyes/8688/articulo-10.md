@@ -1,0 +1,4 @@
+ARTÍCULO 10.- Conformación de la Comisión de Seguimiento
+La Comisión de Seguimiento estará integrada por una persona representante de cada una de las instituciones, órganos e instancias estipuladas en el artículo 4 de esta Ley; quienes serán nombradas por la persona jerarca de cada institución, órgano o instancia, de acuerdo con sus funciones, experiencia y conocimiento sobre la materia específica de esta Ley. El Poder Judicial nombrará a una persona representante de sus órganos judiciales y administrativos relacionados con la materia.
+Las organizaciones privadas y no gubernamentales podrán nombrar a una persona representante ante esta Comisión, si cumplen los requisitos de cobertura nacional y un mínimo de tres años de experiencia en prevención o atención de la violencia intrafamiliar y de género.
+Las funciones de la Comisión de Seguimiento se definirán en el Reglamento de esta Ley.

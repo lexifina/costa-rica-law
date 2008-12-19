@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Contraloría de Servicios
+La Contraloría de Servicios en Violencia estará a cargo de la Red Nacional de Contralores de Servicios Públicos del Mideplán; su objetivo será fiscalizar la eficiencia, efectividad, calidad técnica y humana de los servicios estatales, cuando estos tengan entre sus destinatarios a las personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.

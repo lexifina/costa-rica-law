@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Conformación de las redes locales
+Las redes locales de atención y prevención de la violencia contra las mujeres y la violencia intrafamiliar estarán conformadas, de manera obligatoria, por representantes de las instituciones gubernamentales que tengan presencia local y, de manera voluntaria, por representantes de las organizaciones no gubernamentales y actores civiles que deseen integrarse.
