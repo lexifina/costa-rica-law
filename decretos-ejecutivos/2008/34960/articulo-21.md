@@ -1,0 +1,4 @@
+Artículo 21.—Obligaciones respecto a las exportaciones. Para efectos del párrafo 2) del Artículo 5.04 (Obligaciones respecto a las exportaciones) del Tratado:
+1) “sin demora” significa antes del inicio de una fiscalización, verificación o investigación de origen realizada por la autoridad competente;
+2) ninguna Parte podrá imponer sanciones a un exportador o productor de una mercancía en su territorio, cuando el exportador o productor efectúe sin demora la notificación escrita a que se refiere dicho Artículo; y
+3) cuando la autoridad competente de una Parte proporcione a un exportador o productor de una mercancía una resolución de conformidad con el párrafo 13) del Artículo 5.08 (Procedimientos para verificar el origen) del Tratado que determina que la mercancía no es originaria, el exportador o el productor deberá notificar dicha resolución a todas las personas a las que entregó el certificado o declaración de origen correspondiente a esa mercancía.

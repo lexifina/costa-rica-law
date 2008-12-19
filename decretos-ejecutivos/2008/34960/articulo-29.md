@@ -1,0 +1,1 @@
+Artículo 29.—Vigencia. Estas Reglamentaciones Uniformes entrarán en vigencia entre Panamá y cada país centroamericano considerado individualmente, al momento de la entrada en vigencia del Tratado y el Protocolo Bilateral entre Panamá y ese país centroamericano.

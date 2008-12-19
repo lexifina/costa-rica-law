@@ -1,0 +1,6 @@
+ANEXO VII
+Normas comunes para la elaboración de cuestionarios escritos
+1. Para efectos del párrafo 8) del Artículo 24 de estas Reglamentaciones Uniformes, las Partes procurarán acordar o modificar preguntas uniformes que han de incorporarse en un cuestionario general.
+2. Sujeto a lo dispuesto en el párrafo 3), cuando la autoridad competente de una Parte efectúe una verificación de origen de conformidad con el literal a) del párrafo 2) del Artículo 5.08 (Procedimientos para verificar el origen) del Tratado, deberá enviar el cuestionario general a que se refiere el párrafo 1) de este Anexo.
+3. Para efectos del literal a) del párrafo 2) del Artículo 5.08 (Procedimientos para verificar el origen) del Tratado, cuando la autoridad competente de una Parte requiera información específica que no esté mencionada en el cuestionario general, podrá enviar un cuestionario más específico, de acuerdo a la información que requiera para determinar si la mercancía objeto de verificación es originaria.
+4. Nada de lo dispuesto en este Anexo, será interpretado en el sentido de restringir la facultad de la autoridad competente de una Parte de solicitar información adicional conforme a lo dispuesto en el literal a) del párrafo 2) del Artículo 5.08 (Procedimientos para verificar el origen) del Tratado y estas Reglamentaciones Uniformes.

@@ -1,0 +1,10 @@
+Artículo 18.—Certificado de origen
+1) El certificado de origen a que se refiere el Artículo 5.02 (Certificación y declaración de origen) del Tratado es el documento que debe utilizarse para certificar que una mercancía que se exporta del territorio de una Parte a territorio de la otra Parte, califica como originaria y, en consecuencia, puede importarse gozando del trato arancelario preferencial establecido de conformidad con el Artículo 3.04 (Programa de desgravación arancelaria) del Tratado, cumpliendo los demás requisitos establecidos en el Tratado y en estas Reglamentaciones Uniformes.
+2) El certificado de origen a que se refiere el párrafo 1) deberá:
+a) ser emitido conforme al formato establecido en el Anexo III, el cual será de libre reproducción;
+b) estar en el formato referido en el literal a), impreso o en otro medio o forma que sea aprobado por la autoridad competente de la Parte a cuyo territorio se importe la mercancía; y
+c) ser llenado por el exportador de acuerdo con estas Reglamentaciones Uniformes, y cumpliendo las instrucciones de llenado del certificado de origen establecidas en el Anexo III.
+3) Para efectos del literal a) del párrafo 5) del Artículo 5.02 (Certificación y declaración de origen) del Tratado, un certificado de origen único podrá utilizarse para:
+a) un solo embarque de mercancías que se importen al territorio de una de las Partes, al amparo de una declaración de importación; o
+b) más de un embarque de mercancías que se importen al territorio de una de las Partes, al amparo de una declaración de importación.
+4) Para efectos del párrafo 2) del Artículo 5.02 (Certificación y declaración de origen) del Tratado, la vigencia de hasta un año del certificado de origen a partir de la fecha de su firma, significa el plazo durante el cual se puede efectuar la importación de las mercancías descritas en el certificado, al amparo del mismo, salvo lo dispuesto por el literal b) del párrafo 5) del Artículo 5.02 (Certificación y declaración de origen) del Tratado, en cuyo caso las importaciones al territorio de la otra Parte deberán realizarse en el período señalado en el certificado.

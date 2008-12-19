@@ -1,0 +1,1 @@
+Artículo 22.—Excepciones. Para efectos del Artículo 5.05 (Excepciones) del Tratado, se considerará que una importación forma parte de dos o más importaciones cuando se efectúen o se pretendan efectuar con el propósito de evadir el cumplimiento de los requisitos de certificación, de conformidad con lo dispuesto en el Anexo VI.
