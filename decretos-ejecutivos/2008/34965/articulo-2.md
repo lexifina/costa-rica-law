@@ -1,0 +1,1 @@
+Artículo 2º—Función. La Comisión se encargará de trabajar en la organización y coordinación de las actividades conmemorativas del Bicentenario de las Independencias. La Comisión deberá procurar que dichas celebraciones resalten los valores y la cultura y sensibilicen acerca de la importancia de estas conmemoraciones para la sociedad.
