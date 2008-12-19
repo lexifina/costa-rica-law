@@ -13,7 +13,8 @@ Calce de plazos a un mes ajustado por la volatilidad de cuentas corrientes y aho
 Flujo de efectivo proyectado a dos meses | Sumatoria de las cuentas de ingresos (se incluye las disponibilidades al inicio del periodo) del flujo de efectivo proyectado a dos meses | Sumatoria de las cuentas de egresos del flujo de efectivo proyectado a dos meses
 Calce de plazos a tres meses ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista. Anexo 2.1 | Acumulado recuperación de activos moneda nacional más inversiones con vencimiento mayor a tres meses según inciso a) del punto 1 contenido en el Anexo 2.1. | Acumulado vencimiento de pasivos hasta tres meses ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista
 Riesgo cambiario. Anexo 2.2 | Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranjera, multiplicado por la variación máxima esperada en el tipo de cambio en un año. | Capital Base calculado con base en el Acuerdo SUGEF 3-06 [18]
-Riesgo de tasas de interés. Anexo 2.3 | Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas) ] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva
+(*)Riesgo de tasas de interés. Anexo 2.3 (*)(Así reformado mediante sesión N° 762 del 19 de diciembre del 2008) | Valor absoluto de [Duración de activos en colones sensibles a tasas menos (duración de pasivos en colones sensibles a tasas * Pasivos en colones sensibles a tasas / activos en colones sensibles a tasas)] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva.
+Riesgo de tasas de interés. Anexo 2.3 (*)(Así reformado mediante sesión N° 762 del 19 de diciembre del 2008) | Valor absoluto de [Duración de activos en moneda extranjera sensibles a tasas menos (duración de pasivos en moneda extranjera sensibles a tasas * Pasivos en moneda extranjera sensibles a tasas / activos en moneda extranjera sensibles a tasas)] / (1 + tasa LIBOR a tres meses) * Cambio máximo esperado en un año en la tasa LIBOR a tres meses.)
 NOTAS:
 1/ La nomenclatura C corresponde a cuentas contables
 2/ La nomenclatura D corresponde a los datos adicionales que se encuentran detallados en el sitio SICVECA “Tablas utilizadas en la Documentación de Datos de Envío (Formato XML) Primera Parte, Catálogo SUGEF, Datos Adicionales”.
@@ -109,12 +110,14 @@ a. Se calculan los crecimientos interanuales del tipo de cambio de compra para l
 b. Se calcula la variancia de los crecimientos interanuales. Al valor obtenido se le calcula la raíz cuadrada.
 c. Al resultado del punto anterior se le aplica un nivel de confianza de 99% por lo cual es multiplicado por 2.33 veces.
 d. La variación absoluta esperada en el tipo de cambio es el producto del coeficiente obtenido en el punto anterior multiplicado por el tipo de cambio de compra del último día del mes.
-ANEXO 2.3
-DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO POR TASAS DE INTERÉS
+(*)ANEXO 2.3
+DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO POR
+TASAS DE INTERÉS
 El indicador de riesgo por tasas de interés se calcula con la siguiente fórmula:
-Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas)] Lo anterior debe ser dividido por (1 + tasa básica pasiva a 6 meses plazo) El resultado obtenido se debe de multiplicar por Cambio máximo esperado en un año en la tasa básica pasiva
+Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas)]. Lo anterior debe ser dividido por (1 + tasa de referencia) El resultado obtenido se debe de multiplicar por Cambio máximo esperado en un año en la tasa de referencia
+La tasa de referencia corresponde a la tasa básica pasiva o la tasa LIBOR a tres meses según corresponda a “Riesgo por tasa de interés en colones” o “Riesgo por tasa de interés en moneda extranjera” respectivamente.
 a. Las duraciones se calculan a partir del ‘Reporte de activos y pasivos sensibles a tasas’. Este reporte se encontrará en el manual de información. Para efectos de facilitar la comprensión del cálculo del indicador se desarrolla un ejemplo:
-Rubro \ Plazo | 0 - 30 días | 31-90 | 91-180 | 181-360 | 361-720 | Más de 720 | Total
+Rubro / Plazo | 0 - 30 días | 31-90 | 91-180 | 181-360 | 361-720 | Más de 720 | Total
 Activos Sensibles a tasas | 1,200 | 2,500 | 4,700 | 5,100 | 4,000 | 600 | 18,100
 Pasivos Sensibles a tasas | 1,900 | 2,800 | 4,000 | 4,100 | 3,000 | 100 | 15,900
 Donde:
@@ -125,16 +128,16 @@ Plazo en días | Conversión a Meses
 181-360 días | 12 meses
 361-720 días | 24 meses
 Más de 720 días | 48 meses
-b. Con el fin de ajustar los datos, los diferentes plazos deben ser traídos a valor presente. Para lo anterior, se utiliza la fórmula [Dato/ (1+i/12)n], donde i es la tasa básica pasiva y n son los meses según la banda de tiempo utilizada. Para efectos del ejemplo se utilizará una tasa del 20% anual.
-Rubro \ Plazo | 1 mes | 3 meses | 6 meses | 12 meses | 24 meses | 48 meses | Total
+b. Con el fin de ajustar los datos, los diferentes plazos deben ser traídos a valor presente. Para lo anterior, se utiliza la fórmula [Dato/ (1+i/12)n], donde i es la tasa de referencia y n son los meses según la banda de tiempo utilizada. Para efectos del ejemplo se utilizará una tasa del 20% anual.
+Rubro / Plazo | 1 mes | 3 meses | 6 meses | 12 meses | 24 meses | 48 meses | Total
 Activos | 1,180 | 2,379 | 4,256 | 4,183 | 2,691 | 271 | 14,961
 Pasivos | 1,869 | 2,665 | 3,622 | 3,363 | 2,018 | 45 | 13,582
-c. Se calcula el peso relativo que tienen los valores obtenidos en la tabla anterior con respecto al total de dichos valores y se expresa en años, a saber: activo o pasivos sensible a tasas por banda / activo o pasivo total sensible a tasas de todas las bandas * plazo en meses / 12. Lo anterior permite determinar la duración promedio por banda de tiempo para los activos y pasivos.
-Rubro \ Plazo | 1 mes | 3 meses | 6 meses | 12 meses | 24 meses | 48 meses | Total
+c. Se calcula el peso relativo que tienen los valores obtenidos en la tabla anterior con respecto al total de dichos valores y se expresa en años, a saber: activos o pasivos sensibles a tasas por banda / activo o pasivo total sensible a tasas de todas las bandas * plazo en meses / 12. Lo anterior permite determinar la duración promedio por banda de tiempo para los activos y pasivos.
+Rubro / Plazo | 1 mes | 3 meses | 6 meses | 12 meses | 24 meses | 48 meses | Total
 Activos | 0.006575 | 0.039756 | 0.142254 | 0.279584 | 0.359685 | 0.072582 | 0.900440
 Pasivos | 0.011467 | 0.049047 | 0.133359 | 0.247583 | 0.297153 | 0.013325 | 0.751930
 d. Una vez obtenido el valor absoluto de la duración, que es la mostrada en la columna de total del cuadro anterior, se aplica la siguiente fórmula: Duración activos - (duración pasivos) * (pasivos descontados / activos descontados). En el ejemplo el resultado es 0.21781.
-e. También se necesita obtener la variación esperada en la tasa de interés de referencia (Tasa Básica Pasiva). Para lo anterior se requiere obtener la volatilidad de la tasa básica para los últimos 12 meses, según la misma metodología explicada para el elemento de Liquidez. Dicha volatilidad que representa Variación Máxima para el período de tiempo dado, debe de multiplicarse por la tasa básica a la fecha corte, lo que da como resultado el efecto esperado en la tasa y el riesgo que ello deriva para el supervisado. Para mayor detalle se adjunta el siguiente ejemplo:
+e. También se necesita obtener la variación esperada en la tasa de interés de referencia. Para lo anterior se requiere obtener la volatilidad de la tasa de referencia para los últimos 12 meses, según la misma metodología explicada para el elemento de Liquidez. Dicha volatilidad que representa Variación Máxima para el período de tiempo dado, debe multiplicarse por la tasa de referencia a la fecha corte, lo que da como resultado el efecto esperado en la tasa y el riesgo que ello deriva para el supervisado. Para mayor detalle se adjunta el siguiente ejemplo:
 Mes | Tasa | Logaritmo natural
 1 | 17.10 |
 2 | 17.30 | 0.011628038
@@ -154,5 +157,6 @@ Desviación estándar | | 0.140885241
 Volatilidad con nivel de confianza de 99% | Z=2.33 | 0.328262612
 Variación esperada | | 6.57
 f. Se calcula el índice de riesgo por tasas de mercado. Con los datos del ejemplo el resultado es:
-0.21781 / (1 + 0.20) * 6.57 = 1.19%
+0.21781 / (1 + 0.20) * 6.57 = 1.19%”
+(*)(Así reformado el anexo 2.3 anterior mediante sesión N° 762 del 19 de diciembre del 2008)
 (Así reformado mediante sesión N° 690 del 10 de diciembre de 2007)
