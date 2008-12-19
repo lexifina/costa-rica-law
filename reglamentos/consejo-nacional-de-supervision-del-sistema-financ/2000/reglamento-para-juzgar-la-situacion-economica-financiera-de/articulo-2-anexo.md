@@ -12,7 +12,8 @@ Rentabilidad sobre el activo productivo de intermediación promedio | Saldo acum
 Calce de plazos a un mes ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista. Anexo 2.1 | Acumulado recuperación de activos hasta un mes tomado del calce de plazos, más inversiones con vencimiento mayor a un mes según inciso a) del punto 1 contenido en el Anexo 2.1. | Acumulado vencimiento de pasivos hasta un mes tomado del calce de plazos, ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista
 Calce de plazos a tres meses ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista. Anexo 2.1 | Acumulado recuperación de activos moneda nacional más moneda extranjera a tres meses plazo, más inversiones con vencimiento mayor a tres meses según inciso a) del punto 1 contenido en el Anexo 2.1. | Acumulado vencimiento de pasivos hasta tres meses ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista
 Riesgo cambiario. Anexo 2.2 | Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranjera, multiplicado por la variación máxima esperada en el tipo de cambio en un año. | Capital Base calculado con base en el Acuerdo SUGEF 3-06 [20]
-Riesgo de tasas de interés. Anexo 2.3 | Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas) ] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva
+(*)Riesgo de tasas de interés. Anexo 2.3 (*) (Así reformado mediante sesión N° 762 del 19 de diciembre del 2008) | Valor absoluto de [Duración de activos en colones sensibles a tasas menos (duración de pasivos en colones sensibles a tasas * Pasivos en colones sensibles a tasas / activos en colones sensibles a tasas)] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva.
+(*)Riesgo de tasas de interés. Anexo 2.3 (*) (Así reformado mediante sesión N° 762 del 19 de diciembre del 2008) | Valor absoluto de [Duración de activos en moneda extranjera sensibles a tasas menos (duración de pasivos en moneda extranjera sensibles a tasas * Pasivos en moneda extranjera sensibles a tasas / activos en moneda extranjera sensibles a tasas)] / (1 + tasa LIBOR a tres meses) * Cambio máximo esperado en un año en la tasa LIBOR a tres meses.
 NOTAS:
 1/ La nomenclatura C corresponde a cuentas contables.
 2/ La nomenclatura D corresponde a los datos adicionales que se encuentran detallados en el sitio SICVECA “Tablas utilizadas en la Documentación de Datos de Envío (Formato XML) Primera Parte, Catálogo SUGEF, Datos Adicionales”.
@@ -108,9 +109,8 @@ a. Se calculan los crecimientos interanuales del tipo de cambio de compra para l
 b. Se calcula la variancia de los crecimientos interanuales. Al valor obtenido se le calcula la raíz cuadrada.
 c. Al resultado del punto anterior se le aplica un nivel de confianza de 99% por lo cual es multiplicado por 2.33 veces.
 d. La variación absoluta esperada en el tipo de cambio es el producto del coeficiente obtenido en el punto anterior multiplicado por el tipo de cambio de compra del último día del mes.
-ANEXO 2.3
-DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO POR TASAS DE INTERÉS PARA LO ESTABLECIDO
-EN EL ARTÍCULO 7 DEL PRESENTE REGLAMENTO
+(*)ANEXO 2.3
+DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO POR TASAS DE INTERÉS
 El indicador de riesgo por tasas de interés se calcula con la siguiente fórmula
 Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas) ] Lo anterior debe ser dividido por (1 + tasa básica pasiva a 6 meses plazo) El resultado obtenido se debe de multiplicar por Cambio máximo esperado en un año en la tasa básica pasiva
 a. Las duraciones se calculan a partir del ‘Reporte de activos y pasivos sensibles a tasas’. Este reporte se encontrará en el manual de información. Para efectos de facilitar la comprensión del cálculo del indicador se desarrolla un ejemplo:
@@ -155,6 +155,7 @@ Volatilidad con nivel de confianza de 99% | Z=2.33 | 0.328262612
 Variación esperada | | 6.57
 f. Se calcula el índice de riesgo por tasas de mercado. Con los datos del ejemplo el resultado es:
 0.21781 / (1 + 0.20) * 6.57 = 1.19%
+(*)(Así reformado el anexo 2.3 anterior mediante sesión N° 762 del 19 de diciembre del 2008)
 TRANSITORIO [23]
 Cuando el cálculo de los indicadores financieros requiera información contable de meses anteriores a enero del 2003, ésta se tomará de los Estados Financieros remitidos por la entidad para esos meses con base en el Plan de Cuentas que rigió hasta diciembre del 2002.
 (Asi reformado mediante sesión N° 690 del 10 de diciembre de 2007)

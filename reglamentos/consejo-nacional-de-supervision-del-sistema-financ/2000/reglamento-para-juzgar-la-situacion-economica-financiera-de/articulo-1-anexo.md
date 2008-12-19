@@ -76,20 +76,7 @@ Calce de plazos a tres meses ajustado por la volatilidad
 0.70 V
 0.50 V
 1.00
-SENSIBILIDAD A RIESGOS DE MERCADO
-Riesgo por tasas de interés
-50.0%
-5.00%
-20.00%
-35.00%
-Riesgo cambiario
-50.0%
-5.00%
-20.00%
-35.00%
-1.00
-1/ Los porcentajes de ponderación se aplican sobre la categoría de riesgo asignada a cada indicador.
-2/ Los parámetros están en función de la inflación y la tasa básica pasiva, conforme los artículos 4 y 5 del reglamento.
+(**) SENSIBILIDAD A RIESGOS DE MERCADO
 Calificación cuantitativa obtenida por la entidad
 1.00
 Rangos mínimos y máximos
@@ -116,3 +103,9 @@ Nivel Normal
 Nivel Normal
 *(NOTA: mediante tomado en sesión N° 345 de 10 de diciembre de2002, se dispuso: " 8. Modificar el apartado "MANEJO" del anexo 1 de los acuerdos SUGEF 24-00 ... de manera que ... el elemento sea evaluado solo con los indicadores de (Activo Productivo de Intermediación / Pasivo con costo) y (Gastos de administración / Utilidad operacional bruta) y cada uno de ellos represente el 50% de la calificación del elemento, según el texto siguiente:
 (Consultar cuadro en Gaceta N° 15 de 22 de enero de 2003)
+(**)(NOTA DE SINALEVI: Mediante sesión N° 762 de 19 de diciembre de 2008, en el aparte c) se dispuso: "Modificar el detalle de los indicadores del elemento “sensibilidad a riesgos de mercado” de la siguiente manera:
+Código | Nombre de indicador | Ponderación I/ | Categoría de riesgo | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3 | Calificación
+SENSIBILIDAD A RIESGOS DE MERCADO | | | | | | | | | |
+Riesgo por tasa de interés en colones | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
+Riesgo por tasa de interés en moneda extranjera | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
+Riesgo cambiario | 50.0% | | | 5.00% | | 20.00% | | 35.00% | | 1.00 )
