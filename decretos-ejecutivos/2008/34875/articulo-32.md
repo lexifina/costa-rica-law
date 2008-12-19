@@ -1,0 +1,1 @@
+Artículo 32.—Obligación de asesorar a la auditoría. La Asesoría Legal del INCIENSA, estará en la obligación de atender de manera oportuna y efectiva, las necesidades de orden jurídico de la auditoría interna, que le permitan cumplir sus competencias.

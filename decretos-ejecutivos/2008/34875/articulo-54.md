@@ -1,0 +1,1 @@
+Artículo 54.—Plazo para remitir información adicional a la conferencia final de resultados. La auditoría interna, si lo considera necesario, otorgará un plazo máximo de 10 días hábiles, para que luego de realizada la conferencia final de resultados, la Administración remita información adicional de previo a emitir el informe oficial.

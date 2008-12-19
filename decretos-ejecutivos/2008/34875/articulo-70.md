@@ -1,0 +1,1 @@
+Artículo 70.—Plan Anual de trabajo. La auditoría interna confeccionará y presentará al Consejo Técnico, de conformidad con los lineamientos emitidos por la Contraloría General, un plan anual de trabajo que entrará en vigor a partir del primer mes del año a que corresponde.

@@ -1,0 +1,3 @@
+SECCIÓN III
+De la ejecución de las auditorías
+Artículo 45.—Recopilación de evidencia en papeles de trabajo. La recopilación de evidencia de los estudios de auditoría recabada por parte de los funcionarios y equipos de trabajo de la auditoría interna, se realizará por medio de papeles de trabajo que se codificarán y ordenarán en cédulas técnicamente elaboradas. Asimismo, los resultados obtenidos se sustentarán con evidencia suficiente y competente, que facilite la toma de decisiones al Consejo Técnico o los titulares subordinados, respecto del trámite de las recomendaciones contenidas en el respectivo informe.

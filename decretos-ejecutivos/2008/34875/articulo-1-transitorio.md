@@ -1,0 +1,1 @@
+Transitorio único.—La auditoría interna deberá contar, en un plazo de 6 meses a partir de la entrada en vigencia del presente reglamento, con el programa de aseguramiento de calidad, y el plan estratégico que se mencionan en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 67.—Seguimiento de los servicios de advertencia. La auditoría interna verificará lo actuado por la Administración respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno o de responsabilidades, u otros pertinentes.

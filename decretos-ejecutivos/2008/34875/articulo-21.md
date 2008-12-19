@@ -1,0 +1,1 @@
+Artículo 21.—Gestión de plazas vacantes. El Auditor General, gestionará oportunamente lo relativo a las plazas vacantes de la dependencia a su cargo y será obligación del Departamento de Recursos Humanos atender las vacantes en la auditoría con la prioridad requerida para cumplir con el plazo estipulado en el artículo 28 de la Ley General de Control Interno.

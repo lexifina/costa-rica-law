@@ -1,0 +1,1 @@
+Artículo 35.—Dependencia de profesionales asesores. Los profesionales en disciplinas distintas a las contables, financieras y administrativas que, en virtud de lo indicado en el artículo anterior, participen en estudios de auditoría estarán bajo la autoridad de la auditoría interna y los informes que rindan deben ser dirigidos al Auditor General.

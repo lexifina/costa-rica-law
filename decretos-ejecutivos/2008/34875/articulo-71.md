@@ -1,0 +1,1 @@
+Artículo 71.—Programas de trabajo específicos. El programa específico de trabajo de cada estudio de auditoría, será diseñado contemplando aquellos aspectos que se consideren de mayor interés para la auditoría interna. Este programa deberá ser elaborado por el Auditor General.

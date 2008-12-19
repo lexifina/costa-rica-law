@@ -1,0 +1,4 @@
+SECCIÓN SÉTIMA
+De las relaciones y coordinaciones
+Artículo 24.—Relaciones y coordinación. La auditoría interna mantendrá relaciones y coordinaciones con el Consejo Técnico, la Dirección General, la Dirección Administrativa, la Dirección del Área de no Transmisibles, la Dirección del Área de Transmisibles, con los titulares subordinados del INCIENSA y otras instancias internas y externas, fundamentalmente con la Contraloría General de la República, Instituciones de Control y Fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General, denunciantes y otras pertinentes.
+Corresponderá al Auditor General administrar esas relaciones y regular las de los demás funcionarios de la auditoría interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.
