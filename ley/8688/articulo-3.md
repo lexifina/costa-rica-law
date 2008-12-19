@@ -1,0 +1,10 @@
+ARTÍCULO 3.- Funciones
+Las funciones del Sistema Nacional para la Atención y la Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar son las siguientes:
+a) Velar por una adecuada asignación de los recursos para que el Estado actúe con la debida eficiencia y eficacia en garantizar la integridad y protección de las personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.
+b) Promover la creación y el fortalecimiento de servicios estatales, privados o mixtos, especializados para atender a personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.
+c) Promover el desarrollo de programas que amplíen, fomenten y fortalezcan las acciones de autonomía personal y económica de las personas afectadas, con proyectos de vivienda, capacitación técnica, créditos, acceso a la tierra, educación formal y trabajo remunerado de las personas mayores de quince (15) años, bajo los principios de eficacia, confidencialidad, respeto y protección de los derechos fundamentales.
+d) Promover la creación y consolidación de redes interinstitucionales y comunitarias para el impulso de políticas locales y sectoriales para la prevención, atención, sanción y erradicación de la violencia contra las mujeres y la violencia intrafamiliar.
+e) Elaborar y gestionar propuestas jurídicas para mejorar el cumplimiento de las políticas, nacionales e internacionales, de protección de los derechos de las personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.
+f) Gestionar y promover, con la cooperación internacional, el intercambio de experiencias y la colaboración en la ejecución de programas dirigidos a proteger los derechos de las personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.
+g) Promover un adecuado uso de los medios de comunicación que permita contribuir a erradicar la violencia contra las mujeres y la violencia intrafamiliar.
+h) Cualesquiera otras que se consideren necesarias para el cumplimiento de los objetivos generales del Sistema.

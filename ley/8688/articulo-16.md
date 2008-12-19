@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Recursos destinados por las instituciones pertenecientes al Sistema
+Todas las instituciones integrantes del Sistema podrán incluir, en sus respectivos planes anuales operativos, las acciones necesarias para dar cumplimiento a las obligaciones que les sean definidas por esta Ley y demás leyes específicas en la materia. Para este fin, las instituciones podrán contemplar los recursos necesarios en sus presupuestos ordinarios anuales y extraordinarios.

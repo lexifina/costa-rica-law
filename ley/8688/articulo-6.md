@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Sanciones por incumplimiento
+Los órganos, las instituciones y las instancias enumeradas del inciso a) al p) del artículo 4 de la presente Ley, tienen el deber de participar activamente en el Sistema y de cumplir las funciones enunciadas en el artículo 3 de esta Ley; anterior, sin perjuicio de las eventuales responsabilidades administrativas que les puedan corresponder a los funcionarios públicos en virtud del ordenamiento jurídico vigente.

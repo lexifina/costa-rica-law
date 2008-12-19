@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Organizaciones privadas y no gubernamentales
+Podrán acreditarse ante el Sistema Nacional para la Atención y la Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar, las organizaciones sociales privadas sin fines de lucro, que desarrollen programas y servicios para la atención y prevención de la violencia intrafamiliar y contra las mujeres. El registro de las organizaciones privadas y no gubernamentales que conforman el Sistema Nacional, está a cargo de la Secretaría Técnica de la Comisión de Seguimiento.
