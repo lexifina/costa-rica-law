@@ -1,0 +1,1 @@
+Artículo 35.—El Ministerio del Ambiente, Energía y Telecomunicaciones (MINAET) través del Sistema Nacional de Áreas de Conservación (SINAC) y éste por medio del Área de Conservación La Amistad Caribe será el encargado de vigilar que se cumpla con la correcta aplicación del Plan de Manejo del RNVS-GM y de este Reglamento.
