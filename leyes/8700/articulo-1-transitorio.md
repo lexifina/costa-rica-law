@@ -1,0 +1,2 @@
+TRANSITORIO I.-Autorízase al IDA para que, al entrar en vigencia esta Ley, y por una sola vez, traslade de su superávit libre, al CNP, la suma de tres mil millones de colones (¢ 3.000.000.000,00).
+Dicho traslado deberá utilizarse para cubrir el déficit presupuestario acumulado del CNP, en el momento de aprobarse esta Ley, y deberá destinar trescientos millones de colones exactos (¢ 300.000.000,00) a cubrir el pago pendiente de proveedores del Programa de Abastecimiento Institucional (PAI).
