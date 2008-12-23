@@ -1,18 +1,14 @@
 CAPITULO III
 De la Junta Directiva y de la Presidencia Ejecutiva
-Artículo 15.- El Consejo Nacional de Producción tendrá una Junta Directiva integrada en la siguiente forma:
-1) El Ministro de Agricultura y Ganadería, como jerarca del sector agropecuario, o su Viceministro, quien la presidirá.
-2) El Presidente Ejecutivo del Consejo quien deberá ser de reconocida experiencia, poseer conocimientos en el campo de las actividades de la Institución y ser designado por el Consejo de Gobierno. La gestión se regirá por las siguientes normas:
-a) Será el encargado en materia de gobierno y le corresponderá, fundamentalmente, velar porque las decisiones tomadas por la Junta se ejecuten, así como coordinar la acción de la entidad con la de otras instituciones estatales. Asimismo, asumirá las funciones que le asigne la Junta.
-b) Será un funcionario de tiempo completo y dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público ni ejercer profesiones liberales.
-c) Podrá ser removido libremente por el Consejo de Gobierno; en este caso, tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo. Para determinar esta indemnización, se seguirán las reglas fijadas en los artículos 28 y 29 del Código de Trabajo.
-3) El Presidente Ejecutivo del Instituto de Desarrollo Agrario.
-4) El Gerente del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento.
-5) El Gerente del Programa integral de mercadeo agropecuario.
-6) Un representante de las cámaras del sector agropecuario, nombrado por la Cámara de Agricultura y Agroindustria.
-7) Un representante de la Unión Nacional de Pequeños y Medianos Productores Agropecuarios, escogido por la misma organización.
-8) Un representante de los centros agrícolas cantonales, nombrado en una asamblea de estas organizaciones, según se estipulará en el reglamento de esta ley.
-9) Un representante de las organizaciones de pequeños productores agropecuarios legalmente constituidas. Será nombrado por el Ministro de Agricultura de ternas presentadas por las organizaciones.
-10) Un representante de las cooperativas agropecuarias, nombrado por el sector agroindustrial del Consejo Nacional de Cooperativas.
-Los representantes citados en los incisos 6), 7), 8), 9) y 10) serán nombrados por dos años y podrán ser reelegidos por una sola vez; así se procurará la alternabilidad geográfica.
-(Así reformado por el artículo 2° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
+Artículo 15-El CNP tendrá una Junta Directiva, integrada en la siguiente forma:
+1) El ministro de Agricultura y Ganadería o su representante, quien será el presidente.
+2) El presidente ejecutivo del CNP, quien deberá poseer reconocida experiencia y conocimientos en el campo de las actividades de la Institución; además, deberá ser designado por el Consejo de Gobierno. Su gestión se regirá por las siguientes normas:
+a) Será el encargado en materia de gobierno y le corresponderá, fundamentalmente, velar por que se ejecuten las decisiones tomadas por la Junta, así como coordinar la acción de la entidad con la de otras instituciones estatales y asumir las funciones que la Junta Directiva le asigne.
+b) Será un funcionario a tiempo completo y con dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público ni ejercer profesiones liberales.
+c) Podrá ser removido libremente por el Consejo de Gobierno. En este caso, tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo. Para determinar esta indemnización, se seguirán las reglas fijadas en los artículos 28 y 29 del Código de Trabajo.
+3) El presidente ejecutivo del Instituto de Desarrollo Agrario (IDA).
+4) Un representante de la Unión Nacional de Pequeños y Medianos Productores Agropecuarios (Upanacional), escogido por esta organización.
+5)Un representante de las organizaciones de pequeños productores agropecuarios legalmente constituidas, entre estas se incluyen los centros agrícolas cantonales. Este representante será elegido directamente por dichas organizaciones en asamblea general, que para tal efecto convocará, públicamente, el ministro de Agricultura y Ganadería, y con el mecanismo de elección que para tal asamblea se estipulará en el Reglamento de esta Ley.
+6) Un representante de las cooperativas agropecuarias, nombrado por el Consejo Nacional de Cooperativas.
+Los representantes citados en los incisos 4), 5) y 6) anteriores, serán nombrados por dos años y podrán ser reelegidos por una sola vez, en forma consecutiva."
+(Así reformado por el artículo 1° inciso b) de la ley N° 8700 del 17 de diciembre de 2008)
