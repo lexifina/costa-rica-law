@@ -1,6 +1,2 @@
-ARTÍCULO 70.- El período de vigencia de la licencia es de dos años,
-cuando se solicite por primera vez. Posteriormente se renovará cada cinco
-años, previo el examen médico de aptitudes físicas y síquicas.
-En los casos de los conductores de sesenta y cinco o más años de
-edad, la licencia para el servicio público o para el equipo especial se
-renovará cada dos años.
+ARTÍCULO 70.- El examen práctico al que se refiere el artículo 67 inciso ch) de esta Ley, debe realizarse en los vehículos que presenten las características propias del tipo de licencia a la que el conductor aspira, con la advertencia de que cuando se trate de vehículos articulados, la realización de ese examen requerirá el manejo del vehículo completo (cabezal y remolque)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 69 al 70).

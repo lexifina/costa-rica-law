@@ -1,2 +1,1 @@
-Artículo 34.- Esta ley es de orden público, deroga o modifica toda
-disposición legal que se le oponga y rige a partir de su publicación.
+Artículo 34.-(La derogación practicada a este numeral por el inciso c) del artículo 6° de la Ley N° 8696 de 17 de diciembre de 2008, posteriormente fue derogada por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

@@ -1,12 +1,9 @@
-ARTÍCULO 107.- Se establecen los siguientes límites para determinar
-el estado de quienes conducen bajo los efectos del alcohol:
-a) Si la concentración de alcohol en la sangre es menor a cincuenta
-miligramos por cada cien mililitros de sangre (0,05%), se está en
-estado de sobriedad.
-b) Si la concentración de alcohol en la sangre es igual o mayor a
-cincuenta miligramos por cada cien mililitros de sangre (0,05%),
-pero menor que cien miligramos de alcohol por cada cien
-mililitros de sangre (0,10%), se está en estado de preebriedad.
-c) Si la concentración de alcohol en la sangre es igual o mayor a
-cien miligramos por cada cien mililitros de sangre (0,10%), se
-está en estado de ebriedad.
+CAPÍTULO V
+CONDUCCION TEMERARIA
+ARTÍCULO 107.- Se considera conductor temerario de categoría A, la persona que conduzca un vehículo en cualquiera de las condiciones siguientes:
+a)Bajo la influencia de bebidas alcohólicas, cuando la concentración de alcohol en la sangre sea igual o superior a cero coma cinco (0,5) gramos por cada litro de sangre.
+b)Bajo la influencia de drogas tóxicas, estupefacientes, sustancias psicotrópicas u otras sustancias que produzcan estados de alteración y efectos enervantes o depresivos análogos, de acuerdo con las definiciones, los alcances y las características que haya establecido al respecto el Ministerio de Salud.
+c) Circule en cualquier vía pública a una velocidad superior a los ciento veinte (120) kilómetros por hora, siempre que no se trate de competencias de velocidad ilegales denominadas piques.
+d)En carreteras de dos (2) carriles con sentidos de vía contraria, al conductor que rebase a otro vehículo en curva horizontal o vertical, salvo que el señalamiento vial lo permita expresamente.
+(Así reformado por el inciso n) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 106 al 107)

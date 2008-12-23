@@ -1,12 +1,2 @@
-ARTÍCULO 194.- El tribunal que conozca de la causa penal ordenará,
-de oficio o a solicitud de parte interesada, levantar el gravamen y
-cancelar las garantías que se hubieran dado, si, pasados seis meses a
-contar de la firmeza de la sentencia, el tribunal respectivo que conozca
-de la ejecución de sentencia no le hubiera comunicado la solicitud para
-que ponga el gravamen a su orden.
-Ni el gravamen ni las garantías se cancelarán si la multa no ha sido
-pagada, excepto que transcurra el plazo de prescripción.
-Recibida la solicitud expresada en el párrafo primero de este
-artículo la autoridad penal dejará, a la orden del tribunal respectivo,
-los gravámenes y otras garantías que se hayan rendido, lo que comunicará
-al Registro de la Propiedad de Vehículos Automotores.
+ARTÍCULO 194.- En cualquier momento en que conste en el proceso que las indemnizaciones civiles han sido pagadas o renunciadas de forma legal, o sustituida la garantía a satisfacción del tribunal que conoce la causa, se levantará el gravamen sobre el vehículo y se cancelará la garantía que se haya rendido.
+(Así corrida su numeración por el inciso a) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 193 al 194)

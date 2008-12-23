@@ -1,7 +1,4 @@
-ARTÍCULO 181.- La prescripción de la acción penal se interrumpe por
-el señalamiento para audiencia oral y pública o por la concurrencia de
-cualquiera de las causales previstas en el Código Penal.
-También, se suspende si se interpone un recurso de
-inconstitucionalidad, si es necesario realizar los trámites de
-levantamiento de inmunidad o en los demás casos previstos en el Código
-Penal.
+SECCION III
+Disposiciones generales
+ARTÍCULO 181.- La acción penal prescribe en dos años, contados a partir de la comisión de la infracción. La pena de multa prescribe en dos años, contados a partir de la firmeza de la sentencia, salvo lo dispuesto en el artículo siguiente.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 180 al 181)

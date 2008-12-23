@@ -1,2 +1,3 @@
-Artículo 151.—El supuesto infractor podrá recurrir, ante la Dirección General de Tránsito, por medio de la Unidad de Control, ante los funcionarios acreditados de esta Unidad, en las delegaciones que corresponda, de acuerdo con la competencia territorial, dentro del plazo improrrogable de diez días hábiles, contados a partir del día siguiente a la fecha de la confección de la boleta.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 151.- La boleta de citación, debidamente levantada, será trasladada al Cosevi para su anotación provisional en el asiento de la licencia de conducir del infractor. Dicha anotación se consignará, de manera definitiva, cuando el supuesto infractor no haya interpuesto recurso alguno dentro del plazo establecido por el artículo 152 de esta Ley, o este haya sido desestimado en la vía administrativa.
+(Así reformado por el inciso t) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 150 al 151).

@@ -1,6 +1,5 @@
-TÍTULO V
-PROCEDIMIENTOS
-Artículo 146.—Salvo las infracciones a que se refiere la sección siguiente, corresponderá a los juzgados de tránsito el conocimiento de las infracciones establecidas en esta Ley.
-En los lugares donde no exista juzgado de tránsito, el conocimiento de esas infracciones corresponderá al juzgado contravencional.
-Contra lo resuelto en esta materia por los juzgados de tránsito o los contravencionales, cabrá recurso de apelación para ante el juez penal de la jurisdicción. Corresponde a la Corte Suprema de Justicia fijar la competencia territorial de los juzgados de tránsito y su ubicación.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 146.- En el caso de la inmovilización, la autoridad de tránsito se limitará a retirar las placas de matrícula, las que solo serán devueltas por orden judicial.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 145 al 146).
+(Nota de Sinalevi: De acuerdo con el transitorio III de la ley N° 8696 del 17 de diciembre de 2008, “.. .Durante un plazo de nueve (9) meses, la competencia para las gestiones de devolución de vehículos, placas o licencias, permanecerá en los juzgados que conozcan la materia de tránsito.
+Por un lapso máximo de tres (3) meses, un equipo de jueces de tránsito, designados por el Consejo Superior del Poder Judicial, asesorará a los integrantes de la Unida d de Impugnación de Boletas de Citación del Consejo de Seguridad Vial, en el conocimiento y la resolución de las impugnaciones de multa fija, antes de la entrada en operaciones de dicha Unidad.”)
+(No obstante lo anterior, y de conformidad con lo establecido en la ley No.8779 de 17 de setiembre de 2009, estas disposiciones comenzarán a regir a partir del 1 de marzo de 2010)

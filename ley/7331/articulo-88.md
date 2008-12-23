@@ -1,17 +1,5 @@
-ARTÍCULO 88.- Para la utilización de las luces, deben acatarse las
-siguientes normas:
-a) Desde media hora antes de la hora natural del anochecer y hasta
-media hora después de la hora natural del amanecer, se prohíbe la
-circulación de los vehículos sin las luces reglamentarias
-encendidas. Esta disposición se aplicará, igualmente, a cualquier
-hora del día, en las ocasiones en que, por razones naturales o
-artificiales, se dificulte la visibilidad, especialmente en los
-túneles.
-b) La luz alta del vehículo se utilizará en las carreteras, siempre
-y cuando no vengan vehículos en el sentido contrario de
-circulación.
-c) La luz baja del vehículo se utilizará en las zonas urbanas y en
-las carreteras, cuando vengan vehículos en el sentido contrario
-de circulación o cuando se transite detrás de otro vehículo.
-ch) Las luces para la neblina se utilizarán, únicamente, cuando las
-condiciones climatológicas así lo exijan.
+ARTÍCULO 88.- Todo conductor que reduzca la velocidad, intente detenerse, cambiar de carril o cambiar de dirección, debe cerciorarse, antes de iniciar la maniobra, de que puede ejecutarla con seguridad.
+Además, está obligado a dar aviso en la siguiente forma:
+a) Para detenerse o reducir la velocidad, debe utilizar la luz de freno.
+b) Tanto el cambio de carril como el cambio de dirección del vehículo debe indicarse previamente por medio de la utilización de la luz direccional correspondiente.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 87 al 88).

@@ -1,11 +1,7 @@
-ARTÍCULO 129.- Se impondrá una multa de veinte mil colones, sin perjuicio de las sanciones conexas, excepto lo dispuesto en el inciso g) del presente artículo: (Así reformado su encabezado por el artículo 1º, inciso a), de la ley No.7883 de 9 de junio de 1999)
-a) Al que conduzca sin haber obtenido la licencia de conducir o el permiso temporal de aprendizaje.
-b) ANULADO.
-(Por resolución de la Sala Constitucional Nº 5747-93 de las 14:27 del 9 de noviembre de 1993, se anuló este inciso).
-c) Al conductor que altere, pretenda alterar, no utilice o no porte el taxímetro exigido a los vehículos de modalidad taxi, en el numeral 5, inciso q) del artículo 31 de esta Ley.
-ch) Al conductor que se dedique a prestar el servicio de transporte público, en cualquiera de sus modalidades, sin contar con las respectivas autorizaciones, en violación de lo dispuesto en el inciso a), numeral 1 o en el inciso b), numeral 1 ambos del artículo 97 y del artículo 112 de esta ley.
-(Por resolución de la Sala Constitucional No. 4888 de las 9:13 hrs. de 8 de junio del 2001 se aclara la sentencia No. 2992 de las 15:27 horas del 12 de abril del 2000, en el sentido de que por virtud de ese fallo se mantiene la vigencia de este inciso).
-d) A los conductores de los vehículos de transporte de materiales peligrosos que violen las disposiciones del artículo 101 de lapresente Ley.
-e) Al que conduzca en forma temeraria, de conformidad con las conductas tipificadas en el artículo 106 de esta Ley. En el caso de reincidencia, cuyo registro estará a cargo del Consejo de Seguridad Vial, en relación con la conducta tipificada en el inciso e) del artículo 106, concursos de velocidad o "piques" la multa será de cincuenta mil colones.
-f) Al que conduzca con la licencia suspendida por las causales señaladas en los artículos 133 y 134 de esta Ley.
-g) A quien incurra en las conductas indicadas en el inciso a) del artículo 208 de esta ley, se le impondrá una multa cuyo monto oscilará entre cinco mil colones y veinte mil colones. Cuando se incurra en la conducta tipificada en el inciso a) delartículo citado utilizando un vehículo de carga, la multa será decien mil colones. (Así adicionado este inciso por el artículo 1º, inciso b), de la ley No.7883 de 9 de junio de 1999)
+CAPÍTULO II
+LAS SANCIONES
+SECCION I
+Las multas
+ARTÍCULO 129.- La autoridad judicial respectiva podrá aumentar las multas establecidas en esta Ley, según las circunstancias, hasta en un ciento por ciento del monto correspondiente.
+La agravación de la pena solo se aplicará cuando el resultado más grave esté relacionado con la conducta culpable del sujeto activo, y siempre que ese resultado más grave, por sí solo, no sea constitutivo de otra conducta punible.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 128 al 129)

@@ -1,4 +1,3 @@
-ARTÍCULO 142.- Ni la Dirección General de Policía de Tránsito ni
-ninguna otra autoridad podrá hacer uso de los vehículos detenidos. Esas
-autoridades serán responsables de los daños que se les produzcan a los
-vehículos mientras se encuentren en su poder.
+ARTÍCULO 142.- Cuando un vehículo ingrese en depósito al lugar oficial, por motivo de accidente o por cualquiera otra causa legal, al dueño deberá extendérsele un recibo en que consten las condiciones en que se recibe el vehículo, en donde se indicarán los accesorios y extras de éste.
+El derecho para reclamar los daños sufridos por el vehículo, desde su acarreo hasta su ingreso y permanencia en la Dirección General de la Policía de Tránsito caduca en un mes a partir de su devolución. En ese mismo plazo caduca el derecho para reclamar su valor, en el caso de que el vehículo no pueda ser devuelto; término que comienza a correr a partir del momento en que su propietario tenga conocimiento de esa circunstancia.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 141 al 142)

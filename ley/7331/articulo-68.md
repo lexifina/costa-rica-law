@@ -1,89 +1,12 @@
-ARTÍCULO 68.- Además de lo establecido en el artículo anterior de
-esta Ley, los solicitantes de la licencia de conductor deben cumplir,
-previamente a su emisión, con los siguientes requisitos, ante la
-Dirección General de Educación Vial y de acuerdo con el tipo de licencia
-solicitada:
-Licencias de conducir de clase A:
-TIPO A-1: Autoriza para conducir bicimotos de 50 a 90 cc.
-Requisitos del conductor: tener trece años cumplidos.
-TIPO A-2: Autoriza para conducir motocicletas de 91 a 125 cc.
-Requisitos del conductor: tener quince años cumplidos.
-TIPO A-3: Autoriza para conducir motocicletas de 126 a 500 cc.
-No requiere de condiciones adicionales.
-TIPO A-4: Autoriza para conducir motocicletas de 501 cc. o más.
-No requiere de condiciones adicionales.
-Para otorgar las licencias de los tipos A-1 y A-2 a personas menores
-de edad debe contarse con la autorización escrita de alguno de los padres
-o de su representante legal, además, debe suscribirse una póliza de
-seguro con el Instituto Nacional de Seguros, por lesiones, muerte y daños
-a terceros, por un mínimo de dos millones de colones, por cobertura.
-Licencias de conducir de clase B:
-TIPO B-1: Autoriza para conducir solo vehículos livianos de un cuarto a
-una y media tonelada.
-No requiere de condiciones adicionales.
-TIPO B-2: Autoriza para conducir vehículos de todo peso hasta de cinco
-toneladas.
-TIPO B-3: Autoriza para conducir vehículos de todo peso, incluso los
-mayores de cinco toneladas, excepto los vehículos pesados
-articulados.
-TIPO B-4: Autoriza para conducir vehículos de todo peso, incluso los
-articulados.
-En los casos relativos a las licencias de conducir de clase B-2, B-3
-y B-4, en el Reglamento se establecerán los requisitos de idoneidad, en
-resguardo de la libertad de trabajo y de los principios de razonabilidad.
-"LICENCIA DE CONDUCIR CLASE C:
-TIPO C-1: Autoriza para conducir solo los vehículos modalidad taxi:
-Requisitos del conductor: Estar capacitado para el manejo de vehículos de
-servicio público, de acuerdo con el reglamento de la presente ley; aportar
-el bono de garantía para el servicio válido por el período vigente de la
-licencia, por la suma que se fije en el reglamento de la presente ley y
-haber obtenido el certificado del curso básico de Educación Vial para el
-transporte público, que incluirá, entre otros temas, las normas de
-urbanidad y relaciones humanas. Si la persona solicitante de una licencia
-de tipo C-1 ya posee la licencia tipo B-1, será innecesario que realice
-nuevamente el examen práctico.
-(Así reformado por Ley N° 7969 del 22 de diciembre de 1999)
-TIPO C-2: Autoriza para conducir solo los vehículos de transporte de
-personas de la modalidad autobús.
-Requisitos del conductor: tener cinco años de experiencia en el
-manejo de los vehículos que autoriza conducir la licencia tipo
-B-1, aportar el bono de garantía para el servicio válido para
-el período vigente de la licencia, por la suma que se determine
-en el Reglamento de la presente Ley y haber obtenido el
-certificado del Curso Básico de Educación Vial para transporte
-público, que incluirá, entre otros temas, normas de urbanidad y
-relaciones humanas.
-Licencias de conducir de clase D:
-TIPO D-1: Autoriza para conducir solamente tractores de llantas.
-Requisitos del conductor: tener dieciséis años cumplidos. Haber
-obtenido el certificado del Curso Básico de Educación Vial para
-conducir tractores de llantas.
-Para otorgar este tipo de licencia a una persona menor de edad,
-debe contarse con la autorización escrita de alguno de los
-padres o de su representante legal. Además, debe suscribir una
-póliza de seguro con el Instituto Nacional de Seguros, por
-lesiones, muerte y daños a terceros, por un mínimo de dos
-millones de colones (¢2,000.000), por cobertura.
-TIPO D-2: Autoriza para conducir sólo tractores de oruga.
-Requisitos del conductor: haber obtenido el certificado del
-Curso Básico de Educación Vial para conducir tractores de
-oruga.
-TIPO D-3: Permite conducir otros tipos de maquinaria.
-Requisitos del conductor: haber obtenido el certificado del
-Curso Básico de Educación Vial para equipo especial.
-Licencias de conducir de clase E:
-TIPO E-1: Autoriza para conducir los vehículos comprendidos dentro de las
-clases de dos, tres, cuatro o más ejes; excepto los destinados
-al transporte público.
-Requisitos del conductor: tener un año de experiencia, como
-mínimo, en el manejo de los vehículos que autorizan conducir
-las licencias tipos A-4 y B-4. Haber obtenido el certificado
-del Curso Básico de Educación Vial para equipo especial.
-TIPO E-2: Faculta para manejar tractores de llanta, de oruga y toda clase
-de vehículos de dos, tres, cuatro o más ejes, así como la
-maquinaria que se autoriza mediante la licencia tipo D-3.
-Requisitos del conductor: haber obtenido el certificado del
-Curso Básico de Educación Vial para conducir tractores de
-llanta y de oruga, así como el de equipo especial y tener un
-año de experiencia en el manejo de los vehículos que autorizan
-a conducir las licencias tipos A-4 y B-4.
+SECCION II
+La licencia de conducir
+ARTÍCULO 68.- Para obtener, por primera vez, la licencia de conducir, el solicitante debe cumplir con los siguientes requisitos:
+a) Saber leer y escribir. Sin embargo, si el solicitante es analfabeto, podrá obtener su licencia con la previa aprobación de los cursos especiales que establezca la Dirección General de Educación Vial.
+b) Aprobar el Curso Básico de Educación Vial, cuyos requisitos se establecerán mediante reglamento, en el cual será obligatorio el estudio de la presente Ley y de otras leyes afines a la materia.
+c) Presentar un examen médico en el que se detallen las pruebas de idoneidad física y psicológica para conducción, el cual debe ser realizado por un profesional colegiado e incluir la calificación de la idoneidad en capacidad visual y habilidad de coordinación motora, necesarias para la conducción.
+Para tales efectos, el profesional en Medicina debe dictaminar acerca de la idoneidad en agudeza visual, campo, capacidad de respuesta al contraste, al deslumbramiento y al movimiento de objetos, y la función motora, midiendo los reflejos tendinosos profundos y cutáneos superficiales. Este documento tendrá una vigencia de seis (6) meses como máximo.
+(Así reformado el inciso anterior por el artículo 1° inciso h) de la ley N° 8696 de 17 de diciembre de 2008).
+ch) Rendir satisfactoriamente un examen práctico para el tipo de licencia a la que se aspira, de conformidad con las disposiciones que para ese efecto establezca la Dirección General de Educación Vial.
+d) No haber cometido ninguna de las infracciones definidas en el artículo 129 de esta Ley, durante los doce meses anteriores a la fecha en la que solicita la licencia por primera vez.
+e) Ser mayor de edad, salvo en los casos dispuestos en el artículo 68, para las licencias de clase A, tipos A-1 y A-2.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 67 al 68).

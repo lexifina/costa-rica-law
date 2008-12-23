@@ -1,12 +1,13 @@
-ARTÍCULO 141.- Cuando un vehículo ingrese en depósito al lugar
-oficial, por motivo de accidente o por cualquiera otra causa legal, al
-dueño deberá extendérsele un recibo en que consten las condiciones en que
-se recibe el vehículo, en donde se indicarán los accesorios y extras de
-éste.
-El derecho para reclamar los daños sufridos por el vehículo, desde
-su acarreo hasta su ingreso y permanencia en la Dirección General de la
-Policía de Tránsito caduca en un mes a partir de su devolución. En ese
-mismo plazo caduca el derecho para reclamar su valor, en el caso de que
-el vehículo no pueda ser devuelto; término que comienza a correr a partir
-del momento en que su propietario tenga conocimiento de esa
-circunstancia.
+ARTÍCULO 141.- El retiro de circulación de un vehículo o de sus placas, se efectuará en los siguientes casos:
+a) Cuando el conductor incurra en alguna de las conductas tipificadas en los artículos 117, 128 y 254 bis del Código Penal o en conducción temeraria, según lo establecido en los incisos a) y b) del artículo 107 de esta Ley.
+b) Cuando los vehículos sean conducidos, por las vías públicas, sin estar inscritos en el Registro Nacional, salvo las excepciones establecidas por esta Ley o por algún reglamento que lo faculte.
+c) Cuando no se hayan pagado los correspondientes derechos de circulación o el seguro obligatorio de vehículos automotores, en contravención de lo dispuesto en los artículos 41 y 43 de esta Ley.
+d) Cuando los vehículos sean conducidos por quien tenga su licencia vencida o suspendida, cualquiera que sea el tipo, o por quien no haya obtenido su licencia de conducir. Para tales efectos, deberá considerarse lo establecido en el artículo 138 de esta Ley. Sin embargo, los oficiales podrán entregar el vehículo a una persona que posea licencia vigente para el tipo y la clase de que se trate el vehículo, y lo harán constar en la respectiva boleta de citación, levantada al efecto.
+e) Cuando los vehículos obstruyan las vías públicas, el tránsito de los vehículos y las personas, las aceras o permanezcan estacionados frente a paradas de servicio público, rampas para personas con discapacidad, hidrantes, salidas o entradas de emergencia, entradas a garajes y estacionamientos públicos y privados, u ocupen espacios destinados a personas con discapacidad, sin tener la respectiva identificación. Sin perjuicio de lo que se establece en el artículo 145 de la presente Ley, el retiro de la circulación de los vehículos, ante las anteriores circunstancias, procederá solo si el conductor no está presente o cuando este se niegue a movilizarlo.
+f) Cuando el conductor esté físicamente incapacitado para conducir o cuando concurra alguna otra circunstancia razonable, que le impida al conductor llevarlo hasta el lugar de detención.
+g) Cuando las condiciones mecánicas del vehículo le impidan circular, salvo que el conductor o el propietario de este contrate los servicios privados de acarreo, en forma inmediata.
+h) Cuando el conductor incurra en la conducta sancionada por el inciso i) del artículo 131 de la presente Ley.
+i) Cuando el conductor incurra en la conducta sancionada en el inciso f) del artículo 130, por violación a lo dispuesto en el artículo 102 de la presente Ley.
+j) Cuando el conductor incurra en la conducta sancionada en el inciso f) del artículo 133, por violación a lo dispuesto en el artículo 101 de la presente Ley.
+(Así reformado este artículo por el inciso r) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 140 al 141)

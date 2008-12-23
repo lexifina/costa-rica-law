@@ -1,9 +1,9 @@
-ARTÍCULO 198.- Durante la investigación de hechos de tránsito y para
-hacer cumplir con lo estipulado en esta Ley, las autoridades de tránsito,
-debidamente identificadas, tienen la potestad para ingresar a los
-establecimientos públicos o privados de uso público y para ingresar en
-calles privadas a petición de algún dueño o inquilino. La potestad aquí
-establecida de ejercer actos de autoridad en los recintos dichos, es
-excepcional y únicamente para proteger a las personas y propiedades; y
-debe ejercerse guardando los límites generales de razonabilidad,
-proporcionalidad y normalidad.
+ARTÍCULO 198.- Para el mejor desempeño de sus labores, la Dirección General de la Policía de Tránsito podrá contar con un cuerpo de inspectores ad honórem, cuyos miembros deberán cumplir con los siguientes requisitos mínimos:
+a) Ser costarricense mayor de veinticinco años.
+b) Contar preferiblemente con título académico profesional o, como mínimo, haber aprobado la enseñanza secundaria.
+c) Aprobar el curso de capacitación que llevan los inspectores regulares.
+ch) No haber sido condenado penalmente por ningún delito doloso.
+d) Aprobar el examen psicométrico, que realice ante un funcionario del Consejo de Seguridad Vial, especializado en Psicología.
+e) Presentar el juramento constitucional.
+Los integrantes del cuerpo ad honórem no podrán ostentar grados militares.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 197 al 198).

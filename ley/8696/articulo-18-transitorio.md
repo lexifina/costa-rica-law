@@ -1,0 +1,2 @@
+TRANSITORIO XVIII.-
+Otórgase el plazo de un (1) año, a partir de la entrada en vigencia de la presente Ley, al órgano competente del MOPT para que instale las estaciones de pesaje necesarias en las vías públicas terrestres, de conformidad con lo dispuesto en el inciso 5) subinciso h) del artículo 32 de la Ley de tránsito por vías públicas terrestres, Nº 7331, reformado por el inciso f) del artículo 1 de la presente Ley.

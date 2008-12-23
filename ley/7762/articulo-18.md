@@ -1,13 +1,21 @@
-ARTÍCULO 18.- Obligaciones generales
+Artículo 18.- Obligaciones generales
 Son obligaciones generales del concesionario:
 a) Cuidar, reparar y mantener la obra y todos los bienes de la concesión, así como prestar el servicio público, conforme a esta ley, su reglamento y el contrato de concesión. En caso de incumplimiento, se impondrán las sanciones y multas determinadas en el cartel de licitación.
 b) Permitir y facilitar, a la Administración Pública, la prestación de los servicios públicos que brinde directamente.
 c) Adquirir los bienes inmuebles o los derechos que, según el cartel, se necesiten para cumplir el objeto de la concesión. Cuando sea imposible por razones no imputables al concesionario, la Administración concedente procederá al trámite de expropiación, por el procedimiento estatuido en la Ley de Expropiaciones, No. 7495. El pago de las indemnizaciones que correspondan deberá ser depositado, en favor de la Administración concedente, cuando se le requiera al concesionario. El incumplimiento del depósito se considerará falta grave.
-d) Acatar las disposiciones de la Administración concedente, sin perjuicio de las indemnizaciones que procedan a su favor.
-e) Indemnizar por los daños y perjuicios que se ocasionen a terceros como consecuencia de la ejecución de la concesión.
-f) Mantener los registros contables de conformidad con las normas estipuladas en el contrato de concesión, en la estructura tarifaria o en su defecto, de conformidad con las normas internacionales de contabilidad.
+d) En toda obra objeto de concesión, que involucre la realización de infraestructuras viales, se deberá considerar e incorporar el componente de seguridad vial, que contiene, entre otros elementos, los siguientes: el paso seguro de peatones, incluidos aquellos a nivel y a desnivel, la protección para el tránsito seguro de peatones longitudinal a la vía, las bahías para las paradas de transporte público, las ciclorutas, en los casos que corresponda, y la adecuada visibilidad de las vías, incluida la eliminación de obstáculos en ellas y en el derecho de vía de estas.
+Asimismo, para salvaguardar la seguridad vial, deberá tomarse en consideración el entorno urbano que atraviesen las vías, los planes reguladores, las directrices del Ministerio de la Vivienda, del Instituto Nacional de Vivienda y Urbanismo y la Ley N.º 7600, las condiciones para vías con accesos restringidos o no restringidos, así como todos los otros elementos, las especificaciones técnicas, las normas y los procedimientos que garanticen la mejor seguridad vial de los peatones y los conductores.
+(Así adicionado el inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”)
+e) Acatar las disposiciones de la Administración concedente, sin perjuicio de las indemnizaciones que procedan a su favor.
+(Así corrida la numeración del inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”, que lo traspaso del inciso d) al e))
+f) Indemnizar por los daños y perjuicios que se ocasionen a terceros como consecuencia de la ejecución de la concesión.
+(Así corrida la numeración del inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”, que lo traspaso del inciso e) al f))
+g) Mantener los registros contables de conformidad con las normas estipuladas en el contrato de concesión, en la estructura tarifaria o en su defecto, de conformidad con las normas internacionales de contabilidad.
 (Así adicionado el inciso anterior por el artículo 1° aparte b) punto 7) de la Ley N° 8643 de 30 de junio de 2008).
-g) Cumplir los compromisos financieros contraídos con la Administración concedente y derivados del otorgamiento de la concesión.
+(Así corrida la numeración del inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”, que lo traspaso del inciso f) al g))
+h) Cumplir los compromisos financieros contraídos con la Administración concedente y derivados del otorgamiento de la concesión.
 (Así corrida la numeración del inciso anterior por el artículo 1° aparte b) punto 7) de la Ley N° 8643 de 30 de junio de 2008, que lo traspaso del inciso f) al g)).
-h) Las demás obligaciones determinadas en esta ley o derivadas del contrato de concesión.
+(Así corrida la numeración del inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”, que lo traspaso del inciso g) al h))
+i) Las demás obligaciones determinadas en esta ley o derivadas del contrato de concesión.
 (Así corrida la numeración del inciso anterior por el artículo 1° aparte b) punto 7) de la Ley N° 8643 de 30 de junio de 2008, que lo traspaso del inciso g) al h)).
+(Así corrida la numeración del inciso anterior por el artículo 8° de la ley N° 8696 del 17 de diciembre de 2008, “Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993”, que lo traspaso del inciso h) al i))

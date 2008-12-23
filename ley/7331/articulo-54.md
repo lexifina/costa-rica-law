@@ -1,13 +1,3 @@
-ARTÍCULO 54.- Se dará preferencia al pago de las prestaciones en
-dinero y de los servicios médicos contratados con terceros, excepto los
-suministrados por la Caja Costarricense de Seguro Social o por el
-Instituto Nacional de Seguros, hasta los límites de cobertura
-establecidos. No obstante, si queda algún remanente, se le cancelará a la
-Caja Costarricense de Seguro Social el costo de los servicios
-suministrados, cuando así corresponda, hasta agotar el monto máximo de
-cobertura por persona. Los servicios médicos, hospitalarios y
-farmacéuticos que no pueda otorgar el Instituto Nacional de Seguros, en
-vista de haberse agotado el monto disponible por persona, serán
-suministrados por la Caja Costarricense de Seguro Social, prestataria de
-esos servicios, independientemente de que se trate de accidentados
-asegurados o no asegurados en el Régimen de Enfermedad y Maternidad.
+ARTÍCULO 54.- En el caso de que se causen lesiones o la muerte a personas, con un vehículo automotor para el cual no esté vigente el seguro obligatorio de los vehículos, de conformidad con lo estipulado en este capítulo, la víctima o los beneficiarios tendrán derecho a exigir solidariamente, al conductor y al propietario del vehículo causante, la prestación inmediata de los servicios médicos y las garantías económicas previstos en este capítulo, con las limitaciones en cuanto al monto máximo de cobertura vigente, sin perjuicio de los derechos que le puedan corresponder si existiere responsabilidad del causante del accidente.
+Sin embargo, en estos casos el Instituto Nacional de Seguros suministrará las prestaciones económicas y los servicios médicos, para lo cual considerará el monto máximo por accidentado. En tal caso, el Instituto Nacional de Seguros se subrogará, de pleno derecho, el monto pagado y podrá cobrar, por la vía ejecutiva, las sumas erogadas solidariamente al conductor y al propietario del vehículo causante del accidente. Para tales efectos, será título ejecutivo la certificación que expida el Instituto Nacional de Seguros de la suma pagada.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 53 al 54).

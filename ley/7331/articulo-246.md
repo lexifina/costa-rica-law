@@ -1,3 +1,2 @@
-ARTÍCULO 246.- Modifícase el artículo 5 de la Ley de Administración
-Vial Nº 6324 del 24 de mayo de 1979 y sus reformas, el cual dirá:
-... ... ...
+ARTÍCULO 246.- En esas solicitudes se incluirán controles sobre el personal que utiliza los vehículos, el kilometraje, los combustibles, los lubricantes y las reparaciones.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 231 al 246).

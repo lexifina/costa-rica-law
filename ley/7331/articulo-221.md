@@ -1,8 +1,4 @@
-TÍTULO VII
-REGULACION DEL USO DE LOS VEHICULOS
-DEL ESTADO COSTARRICENSE
-CAPÍTULO I
-DISPOSICIONES GENERALES
-ARTÍCULO 221.- La presente Ley regula el uso de los vehículos
-oficiales de los Poderes del Estado, como bienes públicos que cumplen un
-fin de interés público.
+ARTÍCULO 221.— Todo propietario o interesado deberá cancelar todas las obligaciones pendientes que, a la fecha, aparezcan a su nombre, como multas, gravámenes o anotaciones, establecidas en esta Ley, además de impuestos, seguro obligatorio de vehículos y derechos, para realizar las siguientes gestiones: inscripciones, reinscripciones, desinscripciones, inscripción de gravámenes, prendarios, cambio de las características básicas de los vehículos, extensión de permisos y concesiones, obtención del permiso temporal de aprendizaje, de licencias de conductor o renovación o duplicado de estas, pago de impuestos, derechos, tasas, multas y cánones que procedan de acuerdo con lo dispuesto en esta Ley y en su Reglamento, pago Reglamento, pago de placas, renovación o duplicado de estas, solicitud de devolución de licencias de conducir o de placas o vehículos detenidos por las autoridades de tránsito o por otras autoridades.
+Quedan igualmente obligados a tal cancelación, los propietarios de vehículos destinados al transporte público, cuando se trate de gestiones referentes a concesiones, permisos, exoneración de impuestos, trámites ante la Comisión Técnica de Transportes y otros.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+(Así corrida su numeración los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 207 al 221).
