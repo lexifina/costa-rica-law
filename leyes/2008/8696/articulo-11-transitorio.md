@@ -1,0 +1,2 @@
+TRANSITORIO XI.-
+Por un período de seis (6) meses, contado a partir de la entrada en vigencia de esta Ley, los propietarios de los vehículos que no hayan presentado sus escrituras de venta ante el Registro Público de la Propiedad Mueble, confeccionadas con fecha anterior a esa fecha, pueden presentarlas ante el Registro, sin el pago del impuesto a la transferencia de vehículos; solo pagarán los timbres respectivos y los derechos correspondientes, sin multa ni intereses.

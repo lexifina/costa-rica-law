@@ -1,6 +1,2 @@
-Artículo 3º.- La Administración Vial estará constituida por las siguientes dependencias de la División de Transportes del Ministerio de Obras Públicas y Transportes:
-a) El Consejo de Seguridad Vial;
-b) La Comisión Técnica de Transportes;
-c) La Dirección de Ingeniería de Tránsito;
-ch) La Dirección de la Policía de Tránsito; y
-d) La Dirección General de Transporte Público.
+Artículo 3.- La administración vial estará constituida por los órganos que determine el Ministerio de Obras Públicas y Transportes, con el apoyo del Cosevi.
+(Así reformado por el inciso a) del artículo 6° de la Ley 8696 de 17 de diciembre de 2008)

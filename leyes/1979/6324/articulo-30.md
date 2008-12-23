@@ -1,7 +1,1 @@
-Artículo 30.- El órgano que conozca de la apelación, de acuerdo con
-esta ley, contará con treinta días naturales para resolver. Si vence el
-plazo sin haberse dictado la resolución, excepto para la revisión
-tarifaria, se tendrá por rechazado el recurso y por agotada la vía
-administrativa.
-( Así reformado por el artículo 65 de la Ley Nº 7593 de 9 de agosto
-de 1996).
+Artículo 30.(La derogación practicada a este numeral por el inciso c) del artículo 6° de la Ley N° 8696 de 17 de diciembre de 2008, posteriormente fue derogada por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)
