@@ -1,0 +1,1 @@
+Artículo 14.—Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos al Director General Administrativo Financiero, quien estará facultado para tomar las acciones que en estos se evidencien como necesarias para el mejoramiento del servicio.

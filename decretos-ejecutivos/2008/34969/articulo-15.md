@@ -1,0 +1,1 @@
+Artículo 15.—Asesoría. El Contralor de Servicios podrá requerir la asesoría de los funcionarios internos o externos que estime necesarios para su desempeño. En el caso de la asesoría legal, ésta le será brindada por la Jefatura de la Asesoría Jurídica.
