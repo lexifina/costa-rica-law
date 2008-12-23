@@ -1,0 +1,3 @@
+FEDERACIÓN DE MUNICIPALIDADES DE HEREDIA
+La Federación de Municipalidades de Heredia en asamblea general extraordinaria, de fecha 6 de diciembre del 2008, acuerda reformar el artículo 29 de sus estatutos, de la siguiente manera:
+Artículo 29.—La Dirección Ejecutiva es el órgano superior en materia administrativa de la Federación de Municipalidades de Heredia. El Director Ejecutivo es un puesto a tiempo completo y de confianza, desempeñará su cargo por un período de dos años, pudiendo ser reelecto. Pasado el período correspondiente, el Director Ejecutivo se mantendrá en forma interina hasta tanto el nuevo Concejo Directivo lo reelija o nombre a su sustituto. El resto del artículo permanece igual.
