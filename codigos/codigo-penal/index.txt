@@ -267,6 +267,7 @@ articulo-251.md
 articulo-252.md
 articulo-253.md
 articulo-254.md
+articulo-254-bis.md
 articulo-255.md
 articulo-256.md
 articulo-256-bis.md
