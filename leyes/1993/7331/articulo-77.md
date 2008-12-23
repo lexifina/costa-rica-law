@@ -1,2 +1,2 @@
-ARTÍCULO 77.- Toda licencia llevará impreso el tipo sanguíneo y el
-RH de su poseedor.
+ARTÍCULO 77.- Los permisos temporales de aprendizaje o de licencias de conducir pueden ser cancelados, temporal o definitivamente, de conformidad con las leyes, por las autoridades competentes, en cuyo caso lo comunicarán a la Dirección General de Educación Vial para que ésta realice la correspondiente anotación en el Registro de Conductores.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 76 al 77).

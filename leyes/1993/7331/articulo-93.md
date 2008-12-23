@@ -1,28 +1,9 @@
-ARTÍCULO 93.- Para realizar la maniobra de adelantamiento de un
-vehículo, todo conductor debe:
-a) Cerciorarse, antes de iniciar la maniobra, de que ningún
-conductor que venga detrás también la haya iniciado; para tal
-efecto, mirará por los espejos retrovisores. Además, debe voltear
-su cabeza para verificar el ángulo muerto del espejo.
-b) Cerciorarse de que el lado izquierdo de la carretera es
-claramente visible y de que si hay circulación en el sentido
-contrario, esté a una distancia suficiente para poder adelantar
-sin obstruir ni poner en peligro a los demás vehículos.
-c) Anunciar su intención mediante la luz direccional, pasar luego
-por la izquierda al vehículo que marcha adelante, a una distancia
-segura y anunciar, con las luces direccionales reglamentarias su
-intención de volver al carril de la derecha cuando alcance una
-distancia razonable, sin obstruir la marcha del vehículo
-adelantado.
-ch) No adelantar a otro vehículo que se haya detenido frente a una
-zona de paso para peatones.
-d) Se prohíbe adelantar a otro u otros vehículos que circulen a la
-velocidad máxima permitida. En general, se prohíbe adelantar en
-curvas, intersecciones, cruces de ferrocarril, puentes, túneles,
-pasos a desnivel, en otros lugares debidamente demarcados y en
-todas aquellas circunstancias que puedan poner en peligro la
-seguridad de las demás personas y de otros vehículos.
-El conductor de un vehículo que vaya a ser adelantado por la
-izquierda, debe tomar su extrema derecha en favor del vehículo
-que lo adelanta y no debe aumentar la velocidad sino hasta que
-haya sido completamente adelantado.
+ARTÍCULO 93.- El uso del carril central de giro a la izquierda, se efectuará según las siguientes disposiciones:
+a) Este carril se utiliza en la franja central de las carreteras urbanas, con cuatro o más carriles. Es una zona de refugio, que les permite a los conductores realizar maniobras de giro izquierdo, desde una vía secundaria o hacia una vía secundaria, sin interrumpir el libre flujo del tránsito.
+b) Este carril no puede ser utilizado para la circulación ni tampoco para rebasar.
+c) Los vehículos que circulen en cualquier sentido de la vía y necesiten realizar un giro izquierdo, deben ubicarse en el carril izquierdo de su sentido de circulación, por lo menos cien metros antes del punto donde realizarán la maniobra. Asimismo, deben accionar la luz direccional izquierda cincuenta metros antes y disminuir la velocidad, verificando que no se presentan conflictos con otros vehículos, antes de ingresar al carril central y detenerse completamente en el lugar seleccionado, manteniendo la luz direccional izquierda. Para completar la maniobra, deben esperar un espacio adecuado entre los vehículos de la corriente de sentido contrario, de manera que no exista posibilidad de colisión.
+ch) Para ingresar al carril central de giro a la izquierda, desde una vía lateral o desde una propiedad privada, se debe accionar la luz direccional izquierda, esperar un espacio adecuado entre los vehículos de la vía arterial, cruzar la calzada y refugiarse en el carril central, siempre que esta maniobra pueda ser realizada con seguridad. Para ingresar luego a los carriles de circulación normal, se debe verificar que no se presentan conflictos con los vehículos de la vía arterial y del carril central.
+Preferiblemente, se debe ingresar al carril derecho por ser el de tránsito de menor velocidad.
+d) Un vehículo detenido en este carril no debe obstaculizar el paso de los que circulen por los carriles adyacentes.
+e) El carril central de giro a la izquierda, está marcado con líneas externas continuas y líneas internas discontinuas, ambas de color amarillo . Esta demarcación no permite los giros en “U”.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 92 al 93)

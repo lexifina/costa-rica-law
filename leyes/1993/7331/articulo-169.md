@@ -1,2 +1,3 @@
-Artículo 169.—Si alguno de los testigos no puede comparecer el día y a la hora señalados para la audiencia, por motivos de fuerza mayor o caso fortuito, el juzgado señalará nueva hora y fecha para la recepción de ese testimonio, si, a su juicio, es imprescindible para resolver.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 169.— En caso de que alguna persona haya sufrido lesiones como consecuencia del accidente, esta deberá someterse a un examen que practicará el Departamento de Medicina Legal del Organismo de Investigación Judicial, el cual determinará la magnitud de la lesión. Si la persona se rehúsa a que se le practique dicho peritaje, el juzgado prescindirá de esa prueba.
+(Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 168 al 169).

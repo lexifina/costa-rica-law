@@ -1,14 +1,6 @@
-ARTÍCULO 80.- Los conductores de los vehículos destinados al
-transporte público quedan autorizados para impedir el ingreso al vehículo
-a quienes se encuentren en manifiesto estado de ebriedad, bajo los
-efectos de drogas o de quienes sea notorio que padecen enfermedades que
-puedan producir contagio a los demás pasajeros, así como a aquellas
-personas que, dadas las circunstancias, puedan ocasionar molestias a los
-demás pasajeros.
-En tales vehículos no se permite el transporte de objetos
-voluminosos, de materiales explosivos ni de animales.
-Los pasajeros deben acatar las disposiciones del conductor y guardar
-durante el viaje la compostura y el orden debidos. Los inspectores de
-tránsito y demás autoridades, así como el conductor del vehículo, quedan
-facultados para bajar al pasajero que, con sus palabras o comportamiento,
-falte el respeto a los demás.
+ARTÍCULO 80.- Los usuarios de las vías públicas deberán conducirse de manera que no obstruyan la circulación ni pongan en peligro la seguridad de los vehículos o de las demás personas. Asimismo, los conductores deberán evitar las situaciones que impidan la libre circulación del tránsito, por lo cual aplicarán el manejo defensivo y mantendrán una constante precaución y consideración mutua hacia los peatones y los demás conductores.
+Los conductores deberán velar por la integridad física y la seguridad de su persona y la de los pasajeros como responsables del vehículo; por ello, deberán utilizar el cinturón de seguridad y exigir que lo usen todos los pasajeros del vehículo. El conductor que no utilice el cinturón de seguridad o conduzca un vehículo en el cual alguno de los pasajeros no lo use, será sancionado conforme lo señala esta Ley.
+Los conductores de vehículos automotores que deban transportar a personas menores de doce (12) años, estarán obligados a utilizar un dispositivo de seguridad, acorde con el peso y la edad de la persona menor de edad, quienes deberán viajar en el asiento trasero del vehículo.
+En ambos casos, el dispositivo de seguridad respectivo deberá estar sujeto al asiento trasero por medio de los cinturones de seguridad y cumplir todas las especificaciones técnicas definidas reglamentariamente.
+(Así reformado por el inciso j) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 79 al 80).

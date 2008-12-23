@@ -1,11 +1,17 @@
-ARTÍCULO 135.- La resolución que imponga la suspensión le será
-notificada al interesado, en el lugar que señaló como su domicilio ante
-la Dirección General de Educación Vial y el afectado la puede apelar,
-ante la alcaldía de tránsito competente, dentro del plazo de los cinco
-días hábiles posteriores a su notificación. En tal caso, los efectos del
-acto se suspenden en espera de la resolución judicial, que puede
-confirmar, modificar o revocar la resolución administrativa.
-En caso de que no haya disconformidad, el conductor debe apersonarse
-y entregar la licencia a la Dirección de Policía de Tránsito, en un plazo
-de ocho días hábiles, a partir de su notificación. De no proceder así, la
-licencia le será decomisada por la autoridad de tránsito.
+ARTÍCULO 135.- Se suspenderá la licencia de conducir, por tres meses, a los conductores que reincidan, en un lapso de dos años, en las siguientes faltas:
+a) Que conduzcan en estado de preebriedad, de conformidad con lo establecido en el inciso b) del artículo 107 y el inciso k) del artículo 130 de esta Ley.
+(*) (Nota de Sinalevi: el artículo 107, inciso b), a que se hace referencia trataba originalmente del nivel de concentración de alcohol en la sangre del conductor. De acuerdo con las modificaciones de la ley No.8696 de 17 de diciembre de 2008, dicho tema está regulado en el artículo 107, inciso a)
+b) Que irrespeten la señal de alto de la luz roja de un semáforo, de conformidad con el inciso a) del artículo 130 de esta Ley.
+c) Que rebasen por el lado derecho, de conformidad con lo estipulado en el inciso b) del artículo 130 de esta Ley.
+d) Que violen las regulaciones para el transporte de materiales peligrosos, de conformidad con el artículo 101 y el inciso d) del artículo 129 de esta Ley.
+e) Que irrespeten la prioridad de los peatones, en los casos previstos en el inciso l) del artículo 132 de esta Ley.
+El registro de reincidencia estará a cargo del Consejo de Seguridad Vial.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 134 al 135).
+(NOTA DE SINALEVI: mediante el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, se reformará este artículo. De conformidad con lo establecido en el Transitorio I de la ley indicada, dicha reforma entrará en vigencia nueve meses después de la publicación de la misma, es decir el 23 de setiembre de 2009, por lo que a partir de esa fecha el texto del numeral será el siguiente:
+“Artículo 135.- Se impondrá una multa de un veinte por ciento (20%) de un salario base mensual, correspondiente al “Auxiliar administrativo 1” que aparece en la relación de puestos del Poder Judicial, de conformidad con la Ley del presupuesto ordinario de la República , aprobada en el mes de noviembre anterior a la fecha en que se cometa la infracción de tránsito, sin perjuicio de las sanciones conexas:
+a) A quien conduzca un vehículo sin portar la respectiva licencia de conducir, cuando esté inscrito como conductor para el tipo y la clase de que se trate.
+b) A quien maneje un vehículo automotor sin portar los documentos referidos en el artículo 4 de esta Ley, así como a quien desacate la prohibición del artículo 111 de esta Ley. Se exceptúa de la aplicación de esta norma el incumplimiento del inciso c) del artículo 4 de la presente Ley.
+c) Al conductor, al ayudante o al cobrador de los vehículos de transporte público, que maltrate de palabra o de hecho a los usuarios.
+ch) Al peatón que transite o cruce las vías en contravención de lo dispuesto en el artículo 106 de esta Ley.”)
+(NOTA DE SINALEVI: con respecto al salario base para el cálculo de la multa aquí establecida ver OBSERVACIONES a la Ley )
+(Nota de Sinalevi: De acuerdo con el transitorio I de la ley N° 8696 del 17 de diciembre de 2008, “.. La aplicación de las reformas efectuadas al sistema de multas, léase el nuevo contenido y ubicación de las conductas objeto de sanción descritas en los artículos 130,131, 132, 133, 134, 135 y 136 de la Ley N º 7331, así como el incremento en las multas y el sistema de puntos entrarán en vigencia en el plazo de (9) nueve meses después de la publicación de esta Ley. Durante dicho lapso, seguirá rigiendo el contenido actual de la sección I, capítulo II, título IV de la Ley de tránsito por vías públicas terrestres. Durante este plazo, el Cosevi deberá desarrollar campañas de información y divulgación, con el fin de que las personas conductoras se conciencen de los alcances y fines que dicta esta Ley.”)

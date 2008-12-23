@@ -1,17 +1,18 @@
-ARTÍCULO 134.- Se suspenderá la licencia de conducir, por tres
-meses, a los conductores que reincidan, en un lapso de dos años, en las
-siguientes faltas:
-a) Que conduzcan en estado de preebriedad, de conformidad con lo
-establecido en el inciso b) del artículo 107 y el inciso k) del
-artículo 130 de esta Ley.
-b) Que irrespeten la señal de alto de la luz roja de un semáforo, de
-conformidad con el inciso a) del artículo 130 de esta Ley.
-c) Que rebasen por el lado derecho, de conformidad con lo estipulado
-en el inciso b) del artículo 130 de esta Ley.
-d) Que violen las regulaciones para el transporte de materiales
-peligrosos, de conformidad con el artículo 101 y el inciso d) del
-artículo 129 de esta Ley.
-e) Que irrespeten la prioridad de los peatones, en los casos
-previstos en el inciso l) del artículo 132 de esta Ley.
-El registro de reincidencia estará a cargo del Consejo de Seguridad
-Vial.
+ARTÍCULO 134.- Se suspenderá la licencia de conducir, por seis meses, a los conductores que incurran en las siguientes faltas:
+a) Que conduzcan temerariamente, de conformidad con lo establecido en el artículo 106 y en el inciso e) del artículo 129 de la presente Ley.
+b) Que evada el pago de las tasas de peaje, de conformidad con el artículo 214 y el inciso ñ) del artículo 130 de esta Ley.
+La suspensión será por un año, para los conductores que reincidan en cualquiera de las faltas anteriores en un lapso de dos años.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 133 al 134).
+(NOTA DE SINALEVI: mediante el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, se reformará este artículo. De conformidad con lo establecido en el Transitorio I de la ley indicada, dicha reforma entrará en vigencia nueve meses después de la publicación de la misma, es decir el 23 de setiembre de 2009, por lo que a partir de esa fecha el texto del numeral será el siguiente:
+“Artículo 134.- Se impondrá una multa de un treinta por ciento (30%) de un salario base mensual, correspondiente al “Auxiliar administrativo 1” que aparece en la relación de puestos del Poder Judicial, de conformidad con la Ley del presupuesto ordinario de la República , aprobada en el mes de noviembre anterior a la fecha en que se cometa la infracción de tránsito, sin perjuicio de las sanciones conexas:
+a) Al conductor que no cumpla las disposiciones que se establecen en el artículo 86 de esta Ley, sobre la distancia que debe guardar respecto del vehículo que va adelante.
+b) Al conductor que circule en retroceso, sin cumplir lo dispuesto en el artículo 95 de esta Ley.
+c) Al conductor de un automóvil que incumpla cualquiera de las disposiciones, generales y especiales, que le sean aplicables, establecidas en el artículo 32 de esta Ley, siempre que dicho incumplimiento no haya sido sancionado en otra norma de la presente Ley.
+ch) Al conductor de un vehículo de transporte público, de cualquier modalidad, que preste servicio sin que reúna alguna de las condiciones establecidas en el artículo 109 y en el inciso 1), apartados a), b), g), j), k), n), p) y q), así como en el inciso 6), apartados d) e i) del artículo 32 de esta Ley.
+d) A quien conduzca un vehículo con la licencia de conducir vencida, según lo establecido en el artículo 71 de esta Ley.
+e) A quien circule con un vehículo que haya sufrido modificaciones en sus características básicas registradas, sin haber informado previamente sobre ellas, de conformidad con lo dispuesto en el artículo 13 de esta Ley.
+f) A quien con licencia extranjera circule por más de tres (3) meses sin obtener la licencia nacional, en contravención del artículo 75 de la presente Ley.
+g) A quien conduzca un vehículo que circule sin las placas reglamentarias debidamente colocadas en los sitios dispuestos para tal efecto.
+h)Al conductor, al pasajero de un vehículo o al peatón que al transitar por los lugares a los que se refiere el artículo 1 de esta Ley, cause, en forma culposa, daños en los bienes, siempre que, por la materia de la que se trate o por su gravedad, no le sea aplicable otra legislación.”)
+(NOTA DE SINALEVI: con respecto al salario base para el cálculo de la multa aquí establecida ver OBSERVACIONES a la Ley )
+(Nota de Sinalevi: De acuerdo con el transitorio I de la ley N° 8696 del 17 de diciembre de 2008, “.. La aplicación de las reformas efectuadas al sistema de multas, léase el nuevo contenido y ubicación de las conductas objeto de sanción descritas en los artículos 130,131, 132, 133, 134, 135 y 136 de la Ley N º 7331, así como el incremento en las multas y el sistema de puntos entrarán en vigencia en el plazo de (9) nueve meses después de la publicación de esta Ley. Durante dicho lapso, seguirá rigiendo el contenido actual de la sección I, capítulo II, título IV de la Ley de tránsito por vías públicas terrestres. Durante este plazo, el Cosevi deberá desarrollar campañas de información y divulgación, con el fin de que las personas conductoras se conciencen de los alcances y fines que dicta esta Ley.”)

@@ -1,5 +1,4 @@
-CAPÍTULO III
-ACCIONES DE CONTROL
-ARTÍCULO 228.- La responsabilidad del buen uso de los vehículos
-oficiales es de la autoridad superior de cada ministerio o de la
-institución respectiva.
+ARTÍCULO 228.- Los vehículos oficiales de uso policial, las ambulancias y los del Cuerpo de Bomberos, debidamente identificados, están exentos del pago de las tasas que se cobran en las estaciones de peaje situadas en las carreteras del territorio nacional y de presentar, a las autoridades, cualquier comprobante que tenga relación con esos peajes. Todos los demás conductores están obligados a pagar las tasas de peaje.
+A los vehículos extranjeros que se encuentran en tránsito por el territorio nacional, se les entregará un marchamo en frontera, y el cobro final por concepto de peaje se hará en la frontera de salida; lo anterior, en caso de que exista un control de peaje automático.
+(Así reformado por el inciso w) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 214 al 228)

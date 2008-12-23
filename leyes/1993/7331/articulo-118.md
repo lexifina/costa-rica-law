@@ -1,3 +1,3 @@
-ARTÍCULO 118.- Se prohíbe virar en "U", en aquellos lugares en donde
-el señalamiento vertical así lo indique y en el carril central de giro a
-la izquierda, según la mención que se hace en el artículo 92 de esta Ley.
+ARTÍCULO 118.- Se prohíbe la siembra de árboles, la instalación de avisos o rótulos que, por semejanza, forma o colocación, puedan entorpecer la lectura de las señales de tránsito, la circulación de los vehículos o la visibilidad de las vías, de acuerdo con lo que al efecto se establece en el Reglamento de esta Ley.
+Las autoridades de tránsito pueden remover los obstáculos, cortar los árboles o tomar cualquier otra medida para garantizar la visibilidad de las señales de tránsito, la circulación de los vehículos y la visibilidad de las vías públicas.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 117 al 118)

@@ -1,2 +1,3 @@
-Artículo 173.—Si el imputado no comparece dentro del plazo señalado o si rechaza los cargos, pero no ofrece prueba de descargo, o si los acepta, el juzgado resolverá con los elementos de juicio que consten en el expediente, sin perjuicio de su facultad de ordenar la recepción de la prueba que considere necesaria para mejor resolver.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 173.— Evacuada la prueba, el juzgado concederá a las partes un término prudencial para que emitan conclusiones. Inmediatamente, dará por terminada la audiencia, fijará la hora para la lectura integral de la sentencia, dentro de las veinticuatro horas siguientes, y se retirará a deliberar, salvo que ordene prueba para mejor resolver, la cual deberá evacuarse dentro de los ocho días posteriores a la celebración del debate.
+(Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 172 al 173).

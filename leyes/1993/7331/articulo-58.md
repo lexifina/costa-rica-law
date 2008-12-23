@@ -1,10 +1,5 @@
-ARTÍCULO 58.- Para la indemnización por incapacidad permanente, se
-seguirán las disposiciones y las bases del cálculo que establece el
-Código de Trabajo en materia de riesgos laborales; excepto que el derecho
-de indemnización se adquiere cuando la incapacidad permanente sea igual o
-superior a un cinco por ciento (5%) de la capacidad general. El cálculo
-del salario anual se efectuará de conformidad con lo establecido en el
-Reglamento, en relación con este capítulo.
-El pago de las indemnizaciones se hará en un solo tracto y se
-aplicarán las tablas de conmutación y procedimiento vigentes para los
-casos de riesgos del trabajo.
+ARTÍCULO 58.- Para el cálculo del subsidio por incapacidad temporal e indemnización por incapacidad permanente, se tendrán como ingresos de la víctima, en su orden:
+a) Los salarios reportados en las planillas presentadas a la Caja Costarricense de Seguro Social.
+b) Los salarios reportados en las planillas del Seguro de Riesgos del Trabajo presentadas al Instituto Nacional de Seguros o en su defecto, en la declaración personal para el impuesto sobre la renta presentada al Ministerio de Hacienda. En todo caso, cualquier documento de los antes señalados debe haberse entregado a la institución correspondiente antes de la fecha del accidente.
+Si el accidentado no puede demostrar sus ingresos por los medios expuestos, por tratarse de una persona que trabaja en actividades propias, por lo cual no está asegurada en ninguno de los regímenes apuntados y no es declarante de la renta ni de cualquier otro caso de excepción, el cálculo del subsidio por incapacidad temporal o indemnización por incapacidad permanente, se hará tomando como base el salario mínimo legal devengado en la actividad en la cual se desempeñaba la víctima, después de haber comprobado, fehacientemente, su oficio, a satisfacción del Instituto Nacional de Seguros.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 57 al 58).

@@ -1,21 +1,5 @@
-ARTÍCULO 51.- Dentro de los montos límites a los que se refiere el
-artículo anterior, los lesionados o sus derechohabientes, que resulten
-como consecuencia de un accidente cubierto por este seguro, tendrán
-derecho a los siguientes servicios:
-a) Asistencia médica quirúrgica, hospitalaria, farmacéutica y de
-rehabilitación.
-b) Prótesis y aparatos médicos que se requieran para corregir las
-deficiencias funcionales.
-c) Prestaciones en dinero, que correspondan a la indemnización por
-incapacidad, temporal o permanente, o por la muerte, según se
-detalla en esta Ley.
-ch) Gastos de traslado, en los términos y en las condiciones
-establecidas en el Reglamento de esta Ley.
-d) Pagos del hospedaje y de la alimentación, cuando el lesionado,
-con motivo del suministro de las prestaciones médico sanitarias o
-de rehabilitación, deba trasladarse a un lugar distinto al de su
-residencia habitual y el Instituto Nacional de Seguros no pueda
-suministrarle ese servicio. El monto por este concepto será
-fijado en el Reglamento de esta Ley.
-e) Costos incurridos por el funeral y el traslado del cuerpo, según
-los términos que se establecerán en el Reglamento de esta Ley.
+ARTÍCULO 51.- El monto por persona, de la cobertura del seguro obligatorio de los vehículos, será el límite máximo que se fije en el Reglamento de esta Ley.
+El límite del monto por accidente se establecerá al multiplicar la capacidad de pasajeros autorizados del vehículo, por el límite por persona indicado en el Reglamento y se mantendrá, para cada persona afectada, el límite máximo señalado en el Reglamento.
+En el caso de los lesionados menores de trece años o mayores de esta edad, que no sean asegurados del Régimen de Enfermedad y Maternidad de la Caja Costarricense de Seguro Social, el monto por accidentado podrá incrementarse, previo estudio socioeconómico elaborado por profesionales del Instituto Nacional de Seguros, al doble del monto de coberturas por persona, vigente a la fecha del suceso. Ese monto adicional solo podrá ser utilizado para satisfacer las necesidades de prestaciones médico sanitarias, suministradas por el Instituto Nacional de Seguros.
+En el caso de muerte o de incapacidad permanente, superior al sesenta y siete por ciento (67%) de la capacidad general, el monto de la cobertura será el estipulado en el Reglamento de esta Ley.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 50 al 51).

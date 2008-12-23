@@ -1,10 +1,2 @@
-ARTÍCULO 7.- Los títulos sujetos a inscripción, que no estén
-inscritos en el Registro Público de la Propiedad de Vehículos
-Automotores, no perjudican a terceros sino, desde la fecha de su
-presentación en el Registro, de conformidad con lo dispuesto en el
-artículo 455 del Código Civil.
-En los casos de accidentes de tránsito, será responsable civil, la
-persona que aparezca como propietaria del vehículo en el Registro, o
-aquella cuyo documento de traspaso tuviera la última fecha cierta o la
-fecha de otorgamiento de la escritura anterior al suceso, sin perjuicio
-de lo dispuesto en el artículo 187 de esta Ley.
+ARTÍCULO 7.- En todo hecho de tránsito, en el cual se encuentre involucrado un vehículo, el propietario registral será el responsable civil objetivo de las consecuencias que se deriven del uso, la manipulación, la posesión o la tenencia del vehículo, aun cuando él no haya sido el conductor del vehículo y el responsable del hecho no sea identificado en un proceso de tránsito; salvo que dicho propietario registral demuestre haber vendido el automotor, por medio de escritura pública con fecha anterior al hecho que se investiga. De oponerse la salvedad indicada o cualquier otra legítimamente válida, la autoridad procederá, en el primer caso, a realizar todos los trámites necesarios para la notificación y puesta en conocimiento de los hechos al nuevo propietario documental, a fin de continuar contra este el proceso correspondiente. Para determinar la responsabilidad civil solidaria del propietario, la gestión se realizará, de conformidad con lo dispuesto en el artículo 187 y siguientes de esta Ley.
+(Así reformado por el inciso d) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).

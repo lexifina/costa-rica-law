@@ -1,15 +1,4 @@
-ARTÍCULO 197.- Para el mejor desempeño de sus labores, la Dirección
-General de la Policía de Tránsito podrá contar con un cuerpo de
-inspectores ad honórem, cuyos miembros deberán cumplir con los siguientes
-requisitos mínimos:
-a) Ser costarricense mayor de veinticinco años.
-b) Contar preferiblemente con título académico profesional o, como
-mínimo, haber aprobado la enseñanza secundaria.
-c) Aprobar el curso de capacitación que llevan los inspectores
-regulares.
-ch) No haber sido condenado penalmente por ningún delito doloso.
-d) Aprobar el examen psicométrico, que realice ante un funcionario
-del Consejo de Seguridad Vial, especializado en Psicología.
-e) Presentar el juramento constitucional.
-Los integrantes del cuerpo ad honórem no podrán ostentar grados
-militares.
+ARTÍCULO 197.- Los inspectores de tránsito gozarán de los mismos derechos y facultades que ostentan los miembros de la Fuerza Pública en la actualidad o que ostenten en el futuro, para un mejor logro en el cumplimiento de las responsabilidades establecidas en esta Ley y en su Reglamento.
+En lo que respecta al transporte de madera en trozas o productos forestales, los inspectores de tránsito deben velar porque se cumpla lo estipulado en la Ley Forestal No. 4465 del 25 de noviembre de 1969 y sus reformas.
+(Nota de Sinalevi: la Ley Forestal vigente es la No.7575 de 13 de febrero de 1996)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 196 al 197).

@@ -1,9 +1,2 @@
-ARTÍCULO 87.- Todo conductor que reduzca la velocidad, intente
-detenerse, cambiar de carril o cambiar de dirección, debe cerciorarse,
-antes de iniciar la maniobra, de que puede ejecutarla con seguridad.
-Además, está obligado a dar aviso en la siguiente forma:
-a) Para detenerse o reducir la velocidad, debe utilizar la luz de
-freno.
-b) Tanto el cambio de carril como el cambio de dirección del
-vehículo debe indicarse previamente por medio de la utilización
-de la luz direccional correspondiente.
+ARTÍCULO 87.- Toda modificación en las velocidades, en la dirección o en la situación de un vehículo en marcha o estacionado, debe señalarse con la debida anticipación y en forma reglamentaria; pero la señal no otorga derecho a ejecutar la maniobra si con ella se pone en peligro la seguridad de otros vehículos o peatones.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 86 al 87).

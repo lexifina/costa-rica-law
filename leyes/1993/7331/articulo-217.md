@@ -1,23 +1,9 @@
-ARTÍCULO 217.- De las sumas recaudadas por el concepto de multas por
-infracciones, que señala el inciso d) del artículo 10 de la Ley No. 6324,
-el Consejo de Seguridad Vial realizará, semestralmente, las siguientes
-transferencias:
-a) Un diez por ciento (10%) al Poder Judicial, con el fin de
-financiar la creación y el funcionamiento de las alcaldías de
-tránsito y la nueva sección del Organismo de Investigación
-Judicial, que se crea en esta Ley.
-b) Un diez por ciento (10%) a las municipalidades de toda la
-República, el cual se distribuirá tomando en consideración, en
-igual porcentaje, su población y su área geográfica. Estas sumas
-se destinarán, exclusivamente, para financiar proyectos de
-seguridad vial, en coordinación con la Dirección General de
-Ingeniería de Tránsito.
-c) Un quince por ciento (15%) para la Asociación Cruz Roja
-Costarricense, suma que será distribuida, equitativamente, entre
-los diferentes comités auxiliares del país y solo será utilizada
-para la compra y la mejora de sus equipos fijos o rodantes, así
-como para la adquisición de combustibles para sus unidades.
-Los entes y asociaciones que reciban las anteriores transferencias,
-anualmente presentarán un informe de liquidación presupuestaria de esos
-fondos, ante la Contraloría General de la República, ente que fiscalizará
-su correcto uso, de acuerdo con la presente Ley.
+ARTÍCULO 217.- Las funciones del Sistema serán las siguientes:
+a) Llevar un registro estadístico permanente, actualizado e informatizado de los accidentes de tránsito, organizado a partir de los distintos factores o variables que intervienen en estos.
+b) Llevar un registro permanente, actualizado e informatizado de los conductores y los infractores de esta Ley, el cual deberá incluir a los conductores inhabilitados para el manejo, así como el puntaje actualizado de todos los conductores.
+c) Disponer de un registro actualizado del parque vehicular, con el detalle de los tipos y las características de vehículos automotores que circulan en el país.
+d) Establecer, de manera clara y fidedigna, los lugares de mayor incidencia en accidentes de tránsito, con el fin de que se adopten, por parte de los responsables de la ejecución de esta Ley, acciones efectivas para prevenir esos hechos, y los encargados del diseño ingenieril de las vías incorporen en él, el elemento de seguridad.
+e) Realizar investigaciones en los diversos campos asociados al sistema de tránsito, así como en el seguimiento de los accidentes, con el objetivo de orientar las decisiones de las distintas autoridades, en las esferas de su competencia.
+f) Llevar un registro propio o compartido con otras instituciones o entes de la Administración Pública , acerca de las zonas donde se provocan constantes inundaciones temporales durante el año, por distintas causas (acumulación de basura, escombros, presas por deslizamientos, lluvias), las cuales afecten el tránsito seguro de los vehículos, con el fin de diseñar las medidas adecuadas para la conservación de la infraestructura y la seguridad vial.
+g) Divulgar dicha información a las autoridades públicas y privadas relacionadas con la materia de su competencia y brindar, además, un informe semestral al ministro del ramo, con el fin de orientar la política pública sobre seguridad vial.
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).

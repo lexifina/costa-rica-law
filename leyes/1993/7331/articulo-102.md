@@ -1,14 +1,7 @@
-ARTÍCULO 102.- Los vehículos con altoparlantes deben acatar las
-siguientes regulaciones:
-a) Deben contar con un permiso dado por la Dirección General de
-Transporte Público, en el cual se les autorice a llevar
-instalados los altoparlantes y ponerlos en funcionamiento.
-b) Se les prohíbe poner en funcionamiento los altoparlantes de las
-dieciocho horas del día a las siete horas del siguiente; salvo
-permiso dado por la Dirección General de Transporte Público, el
-cual deberá estar fundamentado en razones de interés público.
-c) Se prohíbe poner a funcionar los altoparlantes cien metros antes
-y cien metros después de las clínicas y de los hospitales, así
-como de los centros de enseñanza e iglesias, cuando en estos
-lugares se estén desarrollando actividades.
-ch) Cumplir con todas las disposiciones del Reglamento de esta Ley.
+ARTÍCULO 102.- Los vehículos automotores, remolques y semirremolques que transporten materiales peligrosos o explosivos deberán cumplir las normas siguientes:
+1)Contar con el documento aprobado que acredite la revisión técnica semestral, a la cual están obligados para circular por las carreteras.
+2) Portar un permiso dado por el órgano competente del MOPT.
+3) Someterse a los horarios, las rutas y demás regulaciones que dicte el órgano competente del MOPT.
+4) Cumplir las disposiciones del Reglamento de esta Ley.
+(Así reformado por el inciso m) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 101 al 102).

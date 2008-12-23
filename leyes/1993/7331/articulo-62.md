@@ -1,3 +1,2 @@
-ARTÍCULO 62.- Lo relativo a las prestaciones médicas, quirúrgicas,
-hospitalarias y de rehabilitación se rige por lo dispuesto en el Código
-de Trabajo.
+ARTÍCULO 62.- Si el monto de la indemnización por lesión o muerte es superior al monto que cubre la póliza, la víctima o sus derechohabientes tienen la facultad de recurrir a los tribunales respectivos para demandar al responsable del accidente, el pago de la diferencia o complemento que les corresponda, de acuerdo con las leyes de orden común. Las sumas cubiertas por el seguro obligatorio de automóviles son deducibles del total que estén obligados legalmente a pagar el conductor o el propietario del vehículo.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 61 al 62).

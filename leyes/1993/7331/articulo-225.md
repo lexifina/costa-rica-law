@@ -1,13 +1,3 @@
-ARTÍCULO 225.- Uso discrecional. Estos vehículos son los asignados
-al Presidente de la República, Presidente de la Asamblea Legislativa,
-Vicepresidentes de la República, Ministros de Gobierno, Viceministros,
-Magistrados de la Corte Suprema de Justicia y del Tribunal Supremo de
-Elecciones, Contralor General de la República, Subcontralor General de la
-República, Procurador General de la República, Procurador Adjunto,
-presidentes ejecutivos, gerentes, subgerentes, auditores y subauditores
-de las instituciones autónomas.
-Estos vehículos no cuentan con restricciones en cuanto a
-combustible, horario de operación ni recorrido, características que
-asumirá, bajo su estricto criterio, el funcionario responsable de la
-unidad. Estos vehículos pueden portar placas particulares y no tienen
-marcas visibles que los distinguen como vehículos oficiales.
+ARTÍCULO 225.- El MOPT y las municipalidades estarán obligados a proteger el derecho de vía de las rutas, de acuerdo con sus respectivas competencias, removiendo cualesquiera obstáculos, construcciones, rótulos, vallas publicitarias, señales o anuncios, instalados ilegalmente y procurará que, en las vías terrestres del país, no existan barreras arquitectónicas que impidan el libre tránsito de las personas de la tercera edad o de aquellas con limitaciones funcionales.
+(Así reformado por el inciso v) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 211 al 225).

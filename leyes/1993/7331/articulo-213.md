@@ -1,5 +1,2 @@
-ARTÍCULO 213.- Se autoriza al Poder Ejecutivo para que, mediante
-decreto y previamente a los estudios técnicos realizados por el Consejo
-de Seguridad Vial, fije las tarifas por pagar por concepto de derechos de
-licencias de conducir, matrícula de cursos de educación vial, exámenes
-prácticos y otros servicios que preste ese ente.
+ARTÍCULO 213.- A cualquier prueba de conocimientos o destrezas, directamente relacionada con la habilitación o rehabilitación de conductores, se le aplicarán los principios de razonabilidad, continuidad, publicidad, imparcialidad e igualdad; para ello, como mínimo, los contenidos serán públicos, aplicados por parte independiente y para su aplicación estarán disponibles horarios accesibles, incluso para los administrados trabajadores.
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008)

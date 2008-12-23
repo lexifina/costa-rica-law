@@ -1,35 +1,13 @@
 SECCION II
 Tarjeta de derechos de circulación
-ARTÍCULO 19.- La tarjeta de derechos de circulación sólo se
-extenderá a los vehículos que reúnan las condiciones mecánicas, las de
-seguridad, las de emisiones contaminantes y los demás requisitos que
-determinen esta Ley y su Reglamento. El Ministerio de Obras Públicas y
-Transportes comprobará estos requisitos mediante la revisión técnica de
-vehículos, parcial o total.
-Se entenderá por revisión técnica de vehículos la verificación
-mecánica del estado del vehículo y de sus emisiones contaminantes, según
-lo establece la presente Ley. Ambas verificaciones podrán efectuarse a la
-vez o en forma separada y por lo menos con la siguiente periodicidad:
-a) Cada seis meses para los vehículos automotores dedicados al
-transporte público de personas.
-b) Una vez al año para los vehículos automotores, cuyo año de
-fabricación sea superior a cinco años, excepto los mencionados en el
-inciso a).
-c) Una vez cada dos años para los vehículos automotores, cuyo año de
-fabricación sea igual o inferior a cinco años, salvo los mencionados en el
-inciso a).
-Sin perjuicio de lo anterior, en cualquier momento y vía pública del
-territorio nacional, podrá verificarse el cumplimiento de las
-disposiciones de los artículos 31, 33, 34, 35, 36 y 37 de la presente Ley.
-Para este efecto, las revisiones totales o parciales se realizarán en
-los lugares que el Ministerio de Obras Públicas y Transportes determine y
-autorice, mediante concurso público, conforme a los parámetros objetivos
-y generales que establezca el Reglamento, el cual deberá promover la
-incorporación del mayor número posible de oferentes, sin detrimento de las
-revisiones que deben ejecutarse en las vías públicas.
-En coordinación con el Ministerio de Educación Pública, el Ministerio
-de Obras Públicas y Transportes deberá promover y apoyar la incorporación
-de los colegios técnicos profesionales al programa de revisión de
-vehículos referido en este artículo.
-(Así reformado por el artículo 1º, inciso 1), de la ley No.7721 de 9
-de diciembre de 1997)
+ARTÍCULO 19.- Solo se autorizará la circulación de los vehículos que reúnan las condiciones mecánicas, las de seguridad y las de emisiones contaminantes, así como los demás requisitos que determinen esta Ley y su Reglamento. El MOPT comprobará estos requisitos, mediante la revisión técnica de vehículos, que estará bajo la supervisión del Cosevi. La comprobación se realizará, de conformidad con los incisos a), b) y c) del presente artículo.
+Se entenderá por revisión técnica de vehículos, la verificación mecánica del estado del vehículo y de sus emisiones contaminantes, según la presente Ley. Ambas verificaciones se efectuarán a la vez y por lo menos con la siguiente periodicidad:
+a) Cada seis (6) meses para los vehículos automotores dedicados al servicio público de transporte remunerado de personas; para los vehículos de carga pesada, con un peso máximo autorizado (PMA) de diez toneladas o más, así como para los vehículos remolques y semirremolques que transporten materiales peligrosos o explosivos. Ningún vehículo automotor dedicado al transporte público de personas; remolque y semirremolque así como los vehículos remolques y semirremolques que transporten materiales peligrosos o explosivos podrán circular, si no aprueban la revisión técnica, hasta que cumplan dicho requisito.
+b) Una vez al año, para los demás vehículos automotores, cuyo año de fabricación sea superior a cinco (5) años, excepto los mencionados en el inciso a) de este artículo.
+c) Una vez cada dos (2) años para los vehículos automotores cuyo año de fabricación sea igual o inferior a cinco (5) años, salvo los mencionados en el inciso a) de este artículo.
+Sin perjuicio de lo anterior, en cualquier momento y vía pública del territorio nacional, las autoridades podrán verificar el cumplimiento de las disposiciones de los artículos 32, 34, 35, 36, 37 y 38 de la presente Ley.
+Para este efecto, las revisiones se realizarán en los centros de servicio de revisión técnica integral de vehículos de las empresas que el MOPT adjudique por medio del Cosevi, mediante concurso público, de conformidad con la Ley de contratación administrativa. Se promoverá el mayor número posible de prestadores del servicio a los propietarios de vehículos obligados a la revisión técnica, sin detrimento del cumplimiento, por parte de los adjudicados, de las normas de calidad técnica y de servicio.
+Las tarifas por cobrar por el servicio de inspección vehicular integral, serán establecidas por la Autoridad Reguladora de los Servicios Públicos (Aresep), de acuerdo con los parámetros legalmente establecidos. En la estructura tarifaria deberá incorporarse un canon para la fiscalización del servicio y para crear un fondo de investigación y de apoyo a los colegios técnicos profesionales que imparten mecánica ligada al campo automotriz y a la investigación universitaria, en los campos de mecánica automotriz, contaminación ambiental y seguridad vial.
+En coordinación con el Ministerio de Educación Pública (MEP), el MOPT deberá promover y apoyar la incorporación de los colegios técnicos profesionales al programa de revisión de vehículos referidos en este artículo.
+(Así reformado por el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Nota de Sinalevi: De acuerdo con el transitorio X de la ley N° 8696 del 17 de diciembre de 2008, “…El Cosevi asumirá la supervisión de la revisión técnica vehicular en un período máximo de doce (12) meses, contado a partir de la entrada en vigencia de esta Ley. Podrá realizar convenios con el Consejo de Transporte Público, a fin de atender la supervisión del proceso de revisión técnica para la revisión de la flotilla del transporte público)

@@ -1,3 +1,2 @@
-ARTÍCULO 252.- Derógase la Ley de Tránsito No.5930 del 13 de
-setiembre de 1976 y toda otra disposición legal, en materia de tránsito y
-administración vial, que se le oponga.
+ARTÍCULO 252.- Prohibiciones de arreglo extrajudicial: Se prohíbe al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos oficiales; en estos casos deben indicar al particular que se apersone o comunique con la sección de transporte, para efectuar las gestiones correspondientes.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 237 al 252).

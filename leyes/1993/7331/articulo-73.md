@@ -1,8 +1,6 @@
-ARTÍCULO 73.- Toda persona que adquiera, renueve o solicite el
-duplicado de la licencia de conducir, debe llenar un formulario en el que
-manifieste su consentimiento u oposición para donar todos sus órganos y
-tejidos o parte de ellos cuando ocurra su muerte. La Dirección General de
-Educación Vial tomará las medidas administrativas necesarias para que, en
-el documento de la licencia, conste la decisión de cada conductor.
-El contenido del formulario será propuesto por la Caja Costarricense
-del Seguro Social y emitido mediante decreto ejecutivo.
+ARTÍCULO 73.- Toda persona que solicite la emisión de una licencia de conducir por primera vez o su renovación, debe suministrar su domicilio.
+Los conductores deben comunicar, por escrito, todo cambio de domicilio a la Dirección General de Educación Vial, dentro de los treinta días naturales siguientes; para lo cual pueden usar el correo certificado o cualquier otro medio de comunicación que permita comprobar el envío.
+Esa dirección se tendrá como domicilio para oír notificaciones, las que también se practicarán por correo certificado.
+En el caso de que la dirección no conste o sea incorrecta, de modo que la notificación no pueda practicarse, se hará mediante su publicación en el Diario Oficial, por tres veces, a costa del infractor.
+No se renovará ninguna licencia mientras el conductor no cancele los costos de publicación, los que se anotarán, también, como gravamen sobre el vehículo de mayor valor inscrito a nombre del poseedor de la licencia.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 72 al 73).

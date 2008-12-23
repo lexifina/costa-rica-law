@@ -1,8 +1,13 @@
-ARTÍCULO 60.- La conmutación de rentas sólo procederá por vía de
-excepción, cuando se trate de menores de edad y de las sumas por concepto
-de incapacidad permanente o de fallecimiento y, esa conmutación sea
-recomendada por el Instituto Nacional de Seguros. En este caso, todos los
-antecedentes se pondrán en conocimiento del órgano jurisdiccional
-correspondiente para su resolución. Ese despacho solicitará el criterio
-del Patronato Nacional de la Infancia sobre su utilidad y su necesidad.
-Este criterio deberá rendirse en un plazo no mayor de ocho días hábiles.
+ARTÍCULO 60.- Cuando en un accidente, con un vehículo amparado por el seguro obligatorio de vehículos, se produzca la muerte de una persona tendrán derecho al pago por concepto de indemnización las personas que se detallan adelante, según el orden de cita prioritaria, excepto los incisos a), b) y c), que no son excluyentes.
+a) Los menores de dieciocho años que dependían económicamente del fallecido. No será necesario probar la dependencia económica cuando los menores sean hijos del occiso.
+En todos los demás casos, se debe probar, fehacientemente, la dependencia económica.
+b) Los hijos mayores de dieciocho años pero menores de veinticinco, que realicen estudios universitarios y que no dispongan de los recursos propios para su manutención. Asimismo, los hijos mayores de dieciocho años que, por su condición de invalidez, no puedan procurarse sus propios ingresos.
+c) El cónyuge supérstite que convivía con el accidentado; el divorciado o el separado judicialmente por causas imputables al occiso, siempre y cuando se compruebe que dependía económicamente del fallecido o, en su defecto, la compañera con quien haya o no haya procreado hijos, siempre y cuando haya convivido con él, de forma ininterrumpida, durante los últimos dos años y dependiera económicamente de él. En este caso, debe aportar las pruebas necesarias de su condición al Instituto Nacional de Seguros.
+ch) La madre legítima o la madre de crianza.
+(La Sala Constitucional mediante resolución N° 4812 del 06 de julio de 1998, declaró que el inciso anterior resulta inconstitucional “…ya que señala un trato desigual e injustificado, valga decir, ilegítimo, pues la norma crea categorías diferenciadas, sin que existan razones que ameriten esa decisión: al discriminar en forma irracional al padre con relación a la madre…”. En este sentido, mediante resolución N° 7808 del 15 de junio del 2011, la misma Sala indicó que: “debe entenderse incluido al padre de crianza como beneficiario.”)
+d) El padre, cuando haya velado, en su oportunidad, por la manutención del fallecido.
+(Texto así modificado por Resolución de la Sala Constitucional Nº 4812-98 de las 11:30 horas del 6 de julio de 1998 ).
+(La Sala Constitucional mediante resolución N° 4812 del 06 de julio de 1998 , declaró que el inciso anterior resulta inconstitucional “…ya que señala un trato desigual e injustificado, valga decir, ilegítimo, pues la norma crea categorías diferenciadas, sin que existan razones que ameriten esa decisión: al discriminar en forma irracional al padre con relación a la madre…”)
+e) Los ascendientes o los descendientes hasta tercer grado de consanguinidad o de afinidad, los sexagenarios o los incapacitados para trabajar, que vivían bajo la dependencia económica del fallecido.
+El monto que le corresponderá a cada beneficiario, será igual al saldo de la suma por lesionado, dividido entre el número de derechohabientes.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 59 al 60)

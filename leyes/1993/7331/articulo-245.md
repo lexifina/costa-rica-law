@@ -1,4 +1,2 @@
-ARTÍCULO 245.- Adiciónase un artículo a la Ley del Organismo de
-Investigación Judicial Nº 5524 del 7 de mayo de 1974 y córrase la
-numeración, que dirá:
-... ... ...
+ARTÍCULO 245.- Para la utilización de los vehículos, se deben hacer las solicitudes respectivas a la unidad de transportes de cada ministerio o institución, de acuerdo con los planes de trabajo preestablecidos, salvo en las situaciones de emergencia, en las que el uso de los vehículos será autorizado por las autoridades superiores.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 230 al 245).

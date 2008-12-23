@@ -1,8 +1,2 @@
-ARTÍCULO 61.- Si el monto de la indemnización por lesión o muerte es
-superior al monto que cubre la póliza, la víctima o sus derechohabientes
-tienen la facultad de recurrir a los tribunales respectivos para demandar
-al responsable del accidente, el pago de la diferencia o complemento que
-les corresponda, de acuerdo con las leyes de orden común. Las sumas
-cubiertas por el seguro obligatorio de automóviles son deducibles del
-total que estén obligados legalmente a pagar el conductor o el
-propietario del vehículo.
+ARTÍCULO 61.- La conmutación de rentas sólo procederá por vía de excepción, cuando se trate de menores de edad y de las sumas por concepto de incapacidad permanente o de fallecimiento y, esa conmutación sea recomendada por el Instituto Nacional de Seguros. En este caso, todos los antecedentes se pondrán en conocimiento del órgano jurisdiccional correspondiente para su resolución. Ese despacho solicitará el criterio del Patronato Nacional de la Infancia sobre su utilidad y su necesidad. Este criterio deberá rendirse en un plazo no mayor de ocho días hábiles.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 60 al 61).

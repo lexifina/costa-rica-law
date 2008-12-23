@@ -1,6 +1,3 @@
-ARTÍCULO 190.- Para resolver sobre la responsabilidad de los
-terceros, en los términos de la presente ley, el perjudicado o interesado
-deberá acudir al proceso abreviado civil.
-(Así reformado por el artículo 1º de la ley No.7833 de 29 de
-setiembre de 1998 y modificado posteriormente su texto por Resolución de la Sala
-Constitucional No. 438 de las 14:32 horas del 17 de enero de 2001, que anuló la última frase).
+ARTÍCULO 190.- La acción para el resarcimiento de los daños y perjuicios que se ocasionen con el accidente y el cobro de las costas, deben ser establecidos por el perjudicado o su representante, ante el tribunal civil competente.
+(Así reformado por el artículo 1º de la ley No.7833 de 29 de setiembre de 1998)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 189 al 190).

@@ -1,5 +1,2 @@
-ARTÍCULO 218.- El Consejo de Seguridad Vial está exonerado del pago
-de toda clase de tributos, directos o indirectos, para la adquisición de
-los vehículos para patrullaje. También están exentos de esos tributos, el
-material y el equipo necesarios para la confección de las licencias y los
-permisos para conducir, las placas y el señalamiento vial.
+ARTÍCULO 218.- Con el objetivo de hacer efectivas las funciones que debe desarrollar el Sistema de Estadísticas en Accidentes de Tránsito y de Investigación en Materia de Seguridad Vial, sus responsables tendrán libre acceso a las estadísticas que se lleven sobre los diversos factores asociados a los accidentes de tránsito en instancias tales como el INS, la Caja Costarricense de Seguro Social, la Cruz Roja Costarricense y el Poder Judicial.
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).

@@ -1,7 +1,11 @@
-ARTÍCULO 249.- Modifícase el Capítulo V de la Ley Nº 6324, para que
-en lo sucesivo, la Dirección de Transporte Automotor se denomine
-Dirección General de Transporte Público. Mantendrá las mismas funciones
-que se indican en el artículo 24 de esta Ley, excepto el inciso ch). La
-expedición y regulación de lo relativo a las licencias para la conducción
-de los vehículos pasa a ser función de la Dirección General de Educación
-Vial.
+CAPÍTULO IV
+PROHIBICIONES Y SANCIONES
+ARTÍCULO 249.- Se prohíbe:
+a) Utilizar los vehículos de uso administrativo general en otras actividades que no sean las normales de la institución o del ministerio, salvo en los casos de emergencia como se menciona en el artículo 239 de la presente Ley.
+b) Asignar vehículos, tanto de uso discrecional o de uso administrativo general, a familiares cercanos de los funcionarios.
+c) Utilizar los vehículos en actividades políticas.
+ch) Conducir bajo los efectos del licor o de cualquier otra droga que disminuya la capacidad física o mental del conductor.
+d) Conducir a velocidades que superen las establecidas en esta Ley.
+e) Transportar a particulares, salvo en los casos que, por aspectos de trabajo o emergencia, se justifique.
+f) Utilizar la bandera como placa o distintivo especial en vehículos distintos de los que, por disposición legal, pueden portarlas.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 234 al 249)

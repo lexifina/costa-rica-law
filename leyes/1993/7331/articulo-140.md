@@ -1,20 +1,8 @@
-ARTÍCULO 140.- El retiro de circulación de un vehículo procederá
-exclusivamente en los siguientes casos:
-a) Cuando obstruya vías y aceras, se estacione frente a paradas de
-servicio público, rampas de minusválidos, hidrantes, salidas de
-emergencia, entradas a garajes y estacionamientos, siempre y
-cuando no esté presente su conductor.
-b) Cuando las condiciones mecánicas le impidan circular y en
-cualquiera de las situaciones del inciso anterior, cuando el
-conductor se niegue a trasladarlo o si se encuentra físicamente
-incapacitado para conducir incluso en los estados a los que hace
-referencia el artículo 106, incisos a) y b) de la presente Ley o,
-cuando concurra alguna otra circunstancia razonable que le impida
-al conductor llevarlo hasta el lugar de detención.
-La multa respectiva deberá ser cancelada como requisito previo para
-la devolución del vehículo, sin perjuicio de la cancelación previa de
-otras cargas judiciales pendientes.
-El Estado queda facultado para contratar los servicios de acarreo de
-vehículos, los cuales serán cubiertos con los fondos provenientes de las
-multas establecidas en el artículo 131, y el remanente pasará a formar
-parte del fondo que se establece en esta Ley.
+ARTÍCULO 140.- Cuando proceda el retiro de la circulación de un vehículo, este será llevado a los lugares destinados para tales efectos.
+Los vehículos retirados de la circulación, así como las placas decomisadas, solo serán devueltos por el Cosevi, cuando se hayan pagado los conceptos siguientes:
+a) Las multas de tránsito aplicadas en el momento del retiro del automotor y las que se encuentren pendientes de pago, según los asientos de las licencias del conductor infractor y del propietario del vehículo.
+b) Los costos por el acarreo y la custodia del vehículo en el depósito; salvo que haya mediado apelación y los cargos hayan sido desvirtuados, caso en el cual, de inmediato, el MOPT y el Cosevi quedan facultados para contratar, acorde con lo dispuesto en la Ley de contratación administrativa, los servicios de acarreo de vehículos y de inmuebles, para el depósito y la custodia de los vehículos detenidos.
+Antes de la devolución del vehículo, su propietario o el interesado que acredite su legitimación deberá pagar a nombre del Cosevi, por cada día que permanezca el vehículo en el depósito respectivo, una tasa diaria igual a la fijada para los estacionamientos públicos del área central de San José, más el costo del acarreo por fijar por kilómetro recorrido, más un cincuenta (50%) por ciento de recargo, según las tarifas autorizadas por el Consejo de Transporte Público, para los servicios de grúa.
+Si la recaudación de los montos mencionados produce excedentes, estos serán empleados en el acondicionamiento, las mejoras y la adquisición de equipos e inmuebles destinados al depósito y la custodia de los vehículos detenidos.
+(Así reformado por el inciso r) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 139 al 140)

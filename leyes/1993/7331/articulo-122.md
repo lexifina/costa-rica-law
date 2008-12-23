@@ -1,13 +1,16 @@
-ARTÍCULO 122.- Se prohíbe el uso de la bocina y de otros
-dispositivos sonoros, en las siguientes circunstancias:
-a) Para apresurar al conductor del vehículo precedente, en las
-intersecciones reguladas por semáforos, por señales fijas o por
-un inspector de tránsito.
-b) Para llamar la atención de los pasajeros o de las personas, salvo
-en alguna situación de peligro inminente.
-c) Para avisar la llegada a un lugar determinado.
-ch) A una distancia menor de cien metros, frente a hospitales,
-clínicas, iglesias y centros de enseñanza, siempre que en estos
-últimos lugares se estén desarrollando actividades.
-Igualmente se prohíbe abusar de otras señales sonoras sin causa
-justificada.
+ARTÍCULO 122.- Prohíbese que los vehículos automotores, cualquiera que sea su tipo o tamaño, provoquen ruido, gases y humo que excedan de los límites establecidos en los siguientes incisos:
+a) Los equipados con motor diesel no deben expeler humo, cuya opacidad exceda de los límites máximos estipulados en los incisos a), b), c) y d) del artículo 36 de esta Ley.
+b) Los provistos de motor de ignición por chispa, que utilicen gasolina, gasohol, alcohol u otros combustibles similares, no deberán expeler contaminantes ambientales que excedan de los límites máximos estipulados en los incisos a), b) y c) del artículo 35 de esta Ley.
+c) Los niveles máximos admisibles de ruido emitido por el escape de los vehículos en condición estática, serán los siguientes:
+1) Para los automóviles, los vehículos rústicos, los taxis y los vehículos cuyo peso bruto sea hasta de tres coma cinco (3,5) toneladas métricas es de 96 dB (A).
+2) Para las bicimotos, las motocicletas, los microbuses y los vehículos cuyo peso bruto sea entre tres coma cinco (3,5) toneladas métricas y ocho (8) toneladas métricas, es de 98 dB (A).
+3) Para los autobuses, las busetas y los vehículos cuyo peso bruto sea mayor de ocho (8) toneladas métricas, es de 100 dB (A).
+ch) Los niveles de ruido permitidos para los dispositivos sonoros de los vehículos automotores, son los siguientes:
+1) Para las motobicicletas y motocicletas de cualquier tipo, el nivel máximo de ruido permitido es de 105 dB (A).
+2) Para los automóviles, los vehículos rústicos, los vehículos de carga liviana o pesada y los vehículos de transporte público, el nivel máximo de ruido permitido es de 118 dB (A).
+3) Para los vehículos de emergencia, el nivel máximo de ruido permitido no debe ser superior a los 120 dB (A).
+En todas las mediciones anteriores, se estará a lo dispuesto por el Reglamento de esta Ley, en el entendido de que los valores intermedios se establecerán, según las características básicas del vehículo.
+d) Queda prohibido el uso de roncadores, muflas alteradas o muflas disfrazadas de escape libre. La revisión técnica de vehículos incluirá la revisión y medición del ruido de las muflas y del freno del motor. En caso de sobrepasar los límites de contaminación sónica establecidos por esta Ley, no se otorgará el respectivo certificado de revisión técnica.
+Los vehículos de los infractores de las disposiciones anteriores, serán inmovilizados mediante el retiro de sus placas, las cuales no se entregarán hasta que se verifique que ha desaparecido la causal de inmovilización, por medio del examen del vehículo realizado por las autoridades de tránsito.
+(Así reformado por el inciso o) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 121 al 122)

@@ -1,35 +1,12 @@
-ARTÍCULO 100.- Los vehículos de carga liviana y de carga pesada
-deben acatar las siguientes regulaciones:
-a) La carga debe estar bien sujeta y acondicionada, para seguridad
-de los peatones y de los vehículos que transiten a su lado.
-b) La carga no debe obstruir la visibilidad del conductor ni
-dificultar, de ninguna manera, la conducción del vehículo.
-c) La carga debe transportarse de forma que no provoque polvo u
-otros inconvenientes, para lo cual se utilizarán manteados,
-cadenas y otros accesorios.
-ch) La carga no debe ocultar las luces del vehículo ni el número de
-la placa.
-d) Todos los accesorios, como cables, cadenas, lonas y otros, que
-sirvan para acondicionar o proteger la carga, deben reunir las
-condiciones de seguridad respectivas; sujetar bien la carga y
-estar sólidamente fijos.
-e) Cualquier carga que sobresalga de la parte trasera, delantera o
-lateral del vehículo, debe ser señalada con banderas rojas y con
-dispositivos proyectores de luz, durante la noche. En ningún
-caso, la carga debe hacer contacto con la vía.
-f) Se prohíbe la circulación, por las vías públicas, de los
-vehículos con exceso de la carga permitida por la respectiva
-reglamentación. Los conductores de vehículos que infrinjan esta
-disposición están obligados a descargar el exceso.
-g) Se prohíbe la circulación de los vehículos de más de dos y media
-toneladas, en las zonas urbanas y suburbanas -según determinación
-que se hará en el Reglamento-, por las rutas de paso definidas
-por la Dirección General de Ingeniería de Tránsito.
-h) Unicamente podrán cargar y descargar, de conformidad con los
-horarios y lugares acordados, por la Dirección General de
-Tránsito.
-i) Los vehículos de carga liviana y pesada deben someterse al
-pesaje, en las casetas destinadas para tal efecto en las
-carreteras del territorio nacional.
-j) Deben portar el permiso extendido por el Departamento de Pesos y
-Dimensiones de la Dirección General de Transporte Público.
+ARTÍCULO 100.- Para los vehículos que presten el transporte o acarreo de vehículos mediante la modalidad grúa, rigen las siguientes disposiciones especiales:
+a) Deben cumplir las mismas indicaciones dadas en los numerales 2, 3 y 6 del inciso b) del artículo 98 de esta Ley, aplicables para esta modalidad de servicio.
+b) El órgano competente del MOPT emitirá los permisos para la prestación de este servicio, de acuerdo con el respectivo reglamento.
+La autorización y regulación de tarifas será competencia del MOPT, el que las otorgará con base en estudios técnicos, según el kilometraje requerido para remolcar el vehículo y demás datos que juzgue convenientes.
+Asimismo, las grúas deberán someterse a las paradas establecidas por el órgano competente del MOPT, donde serán llamadas por los interesados, a fin de prestarles el servicio; por lo tanto, se les prohíbe hacer el recorrido en busca de vehículos para remolcar.
+c) Los vehículos que se dediquen a esta actividad, deben estar registrados y portar el libro de registro, numerado y sellado por el Consejo de Transporte Público. En este libro, cuyas hojas deben estar en duplicado que permitan utilizar papel carbón, se indicarán, en todos los casos en que se remolque algún vehículo, las características de este, el nombre y la firma del chofer del taxi grúa y del conductor del vehículo remolcado; también deben indicarse el estado físico del vehículo, la hora, el lugar de origen y el destino, con indicación de las señas exactas en ambos puntos, el monto cobrado y demás datos que sean de interés. El conductor de la grúa deberá entregarle al conductor del vehículo remolcado, el duplicado firmado en el que consten todos los datos que ahí se estipulan; este documento hará plena prueba contra el conductor y propietario de la grúa, en caso de violación de las presentes disposiciones.
+El libro de registro puede ser exigido, en cualquier momento, por las autoridades de tránsito. El no portarlo traerá, como efecto, la cancelación de la autorización dada, sin perjuicio de la multa que establece el inciso i) del artículo 131 de esta Ley. Cuando el libro esté lleno, se entregará y archivará en el Consejo de Transporte Público, para poder retirar el siguiente.
+ch) Deben portar las luces y los accesorios estipulados en esta Ley y en su Reglamento; además, una torre giratoria a trescientos sesenta (360) grados, con luz de color ámbar que cubra una distancia de ciento cincuenta (150) metros y dos (2) faros buscadores, los cuales se utilizarán cuando el vehículo esté parado y puedan orientarse de manera que el haz de luz no afecte a otros conductores en circulación. Estos accesorios solo se podrán utilizar cuando se realice el servicio de grúa.
+d) En caso de accidentes de tránsito, no podrán mover los vehículos sin la autorización previa de la autoridad competente.
+Cuando estén en el cumplimiento de su actividad, deben acatar las normas y reglamentaciones que, para todos los vehículos, se establecen en esta Ley y en su Reglamento.
+(Así reformado por el inciso m) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 99 al 100).

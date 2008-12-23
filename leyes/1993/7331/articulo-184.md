@@ -1,3 +1,4 @@
-Artículo 184.—Los bancos y las dependencias públicas o privadas estarán obligados a enviar una copia del comprobante de pago al Consejo de Seguridad Vial, el cual, por los medios electrónicos disponibles, remitirá la información al Registro Público de la Propiedad Mueble y a la Dirección General de Educación Vial.
-Una vez recibida la comunicación correspondiente, sin más trámite, el Registro Público o la Dirección General de Educación Vial procederán a dar el trámite conforme a derecho. Para tal efecto, deberán realizarse los enlaces informáticos de rigor.
+ARTÍCULO 184.— Las multas por las infracciones de la presente Ley y sus recargos, deberán cancelarse dentro de los ocho días hábiles siguientes a su firmeza.
+Si la multa y los demás cargos no son pagados dentro del plazo indicado, devengarán intereses moratorios equivalentes al tres por ciento (3%) mensual sobre el monto original, hasta un máximo del treinta y seis por ciento (36%), lo cual deberá ser advertido en la boleta de citación.
 (Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 183 al 184).

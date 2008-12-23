@@ -1,7 +1,16 @@
-ARTÍCULO 101.- Los vehículos que transporten materiales peligrosos o
-explosivos deben cumplir con las normas siguientes:
-a) Portar un permiso dado por la Dirección General de Transporte
-Público.
-b) Someterse a los horarios, las rutas y demás regulaciones que
-dicte el Ministerio de Obras Públicas y Transportes.
-c) Cumplir con lo que se establezca en el Reglamento de esta Ley.
+ARTÍCULO 101.- Los conductores de vehículos de carga liviana y de carga pesada deben acatar las siguientes regulaciones:
+a) La carga debe estar bien sujeta y acondicionada, para seguridad de los peatones y de los vehículos que transiten a su lado.
+b) La carga no debe obstruir la visibilidad del conductor ni dificultar, de ninguna manera, la conducción del vehículo.
+c) La carga debe transportarse en forma tal que no provoque polvo u otros inconvenientes; para ello, se utilizarán manteados, cadenas y otros accesorios.
+ch) La carga no debe ocultar las luces del vehículo ni el número de la placa.
+d) Todos los accesorios, como cables, cadenas, lonas y otros, que sirvan para acondicionar o proteger la carga, deben reunir las condiciones de seguridad respectivas, sujetar bien la carga y estar sólidamente fijos.
+e) Cualquier carga que sobresalga de la parte trasera, delantera o lateral del vehículo, debe estar señalada con banderas rojas y con dispositivos proyectores de luz, durante la noche. En ningún caso, la carga debe hacer contacto con la vía.
+f) Se prohíbe la circulación, por las vías públicas, de los vehículos con exceso de la carga permitida por la respectiva reglamentación. Los conductores de vehículos que infrinjan esta disposición, están obligados a descargar el exceso; pero cuando hayan recibido la carga cerrada con dispositivos de seguridad, la obligación de descargar el exceso corresponderá a los dueños o a los responsables de la carga en el país, de conformidad con el conocimiento de embarque.
+g) Se prohíbe la circulación de los vehículos de más de dos y media toneladas, en las zonas urbanas y suburbanas, según determinación que se hará en el Reglamento, por las rutas de paso definidas por el órgano competente del MOPT.
+h) Únicamente podrán cargar y descargar, de conformidad con los horarios y lugares acordados por el órgano competente del MOPT.
+i) Los vehículos de carga liviana y pesada deben someterse al pesaje, en las casetas destinadas para tal efecto, en las carreteras del territorio nacional.
+j) Los vehículos de carga liviana y pesada deberán portar la Tarjeta de pesos y dimensiones, extendida por el órgano competente del MOPT, conforme se establezca reglamentariamente.
+k) Todos los vehículos de carga liviana y pesada deberán contar con un dispositivo inviolable y de fácil lectura, que permita a la autoridad competente conocer la velocidad, la distancia, el tiempo y otras variables sobre su comportamiento, y permita su control en cualquier lugar del país, donde se halle el vehículo.
+(Así reformado por el inciso m) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Nota de Sinalevi: De acuerdo con el transitorio VI de la ley N° 8696 del 17 de diciembre de 2008, “…El MOPT en un plazo de dieciocho (18) meses, contado a partir de la promulgación de esta Ley, reglamentará el uso del dispositivo de control para los vehículos de carga liviana y pesada, establecido en el inciso k) del artículo 101 de la Ley de tránsito por vías públicas terrestres, Nº 7331, reformado por el inciso m) del artículo 1 de la presente Ley”).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 100 al 101).

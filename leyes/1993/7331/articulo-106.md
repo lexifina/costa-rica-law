@@ -1,31 +1,15 @@
-CAPÍTULO V
-CONDUCCION TEMERARIA
-ARTÍCULO 106.- Se considera conductor temerario a la persona que
-conduzca un vehículo en cualquiera de las condiciones siguientes:
-a) En estado de ebriedad, de conformidad con lo establecido en el
-inciso c) del artículo 107 de esta Ley.
-b) Bajo los efectos de drogas o de sustancias enervantes o
-depresoras del sistema nervioso central, de acuerdo con las
-definiciones que al respecto haya establecido el Ministerio de
-Salud.
-c) En carreteras de dos carriles con sentidos de vía contraria, al
-conductor que rebase a otro vehículo en curva horizontal, excepto
-en el caso que el señalamiento vial lo permita expresamente.
-ch) Al conductor que circule en cualquier vía pública, a una
-velocidad superior a los ciento veinte kilómetros por hora o que
-circule con cuarenta kilómetros por hora o más de exceso sobre el
-límite de velocidad, para las vías en que el límite de velocidad
-establecido sea igual o superior a los cuarenta kilómetros por
-hora.
-d) Al conductor que circule a setenta kilómetros por hora o más, en
-vías cuyo límite de velocidad establecido sea inferior a cuarenta
-kilómetros por hora.
-e) Al conductor que, en la vía pública, participe en concursos de
-velocidad o "piques", ya sea contra otro vehículo, contra reloj u
-otra modalidad de medir el tiempo. Esta disposición no alcanza
-los casos en que la actividad es con un tiempo preestablecido, en
-una ruta de más de diez kilómetros y que los vehículos no excedan
-los límites de velocidad oficialmente establecidos en cada tramo.
-En ese caso, se debe contar con la autorización escrita de la
-Dirección General de Ingeniería de Tránsito. Lo mismo se aplicará
-en el caso de competencias ciclísticas.
+CAPÍTULO IV
+LOS PEATONES
+ARTÍCULO 106.- Todo peatón deberá comportarse en forma tal que no obstaculice, perjudique ni ponga en riesgo a las demás personas; deberá conocer y cumplir las normas y señales de tránsito que le sean aplicables y obedecer las indicaciones que le den las autoridades de tránsito.
+Los peatones están obligados a acatar las siguientes indicaciones:
+a) El tránsito peatonal por las vías públicas se hará por fuera de las zonas destinadas al tránsito de vehículos.
+b) Cuando un peatón requiera cruzar una vía vehicular, lo hará respetando las señales de tránsito y cerciorándose de que no existe peligro para hacerlo.
+c) En las zonas urbanas, los peatones deberán transitar solo por las aceras y cruzar las calles en las esquinas o por las zonas de paso marcadas.
+d) En los lugares en que haya pasos peatonales a desnivel, los peatones deberán transitar por estos.
+e) Cuando, por no existir aceras o espacio disponible, los peatones deban transitar por las calzadas de las carreteras, lo harán por el lado izquierdo, según la dirección de su marcha.
+f) Los peatones no podrán transitar por las carreteras de acceso restringido ni sobre las vías del ferrocarril.
+g) Los peatones no podrán llevar, sin las debidas precauciones, elementos que puedan obstaculizar o afectar el tránsito.
+h) Los peatones no podrán colocarse delante ni detrás de un vehículo que tenga el motor encendido.
+i) Los peatones no podrán hacerse remolcar por vehículos en movimiento.
+(Así reformado por el inciso n) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 105 al 106).

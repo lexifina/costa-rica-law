@@ -1,14 +1,9 @@
-ARTÍCULO 208.- Todos los habitantes de la República están obligados
-a respetar las siguientes disposiciones:
-a) Se prohíbe arrojar, en cualquier vía pública, botellas de vidrio,
-clavos, tachuelas, alambres, recipientes de metal, papeles,
-cigarrillos o cualquier otro objeto que ponga en peligro la
-seguridad vial o altere el uso u ornamento de las vías públicas y
-sus alrededores.
-b) La basura, la maleza, los escombros u otros objetos que estén en
-una vía pública, frente a una casa de habitación o edificio, en
-las zonas urbanas o semiurbanas, deben ser retirados por el
-propietario.
-c) Los propietarios de fincas y edificios tienen la responsabilidad
-de mantener limpio de maleza, escombros, basura y otros, el
-derecho de vía de las carreteras frente a su propiedad.
+ARTÍCULO 208.- Son atribuciones de la Unidad de Asuntos Internos de la Policía de Tránsito las siguientes:
+a) Realizar acciones concretas, tendientes a que el oficial de tránsito cumpla fielmente y con estricto apego al ordenamiento jurídico, las directrices y las instrucciones de carácter operacional dictadas por los responsables de la Dirección General de la Policía de Tránsito, así como cualquier otra disposición emitida por los órganos competentes del Ministerio.
+b) Realizar las inspecciones y los operativos de cualquier naturaleza, en cualquier momento, en el ámbito de sus competencias, con la finalidad de comprobar el uso adecuado, proporcional, racional, eficaz y eficiente de los recursos asignados a los oficiales de tránsito, así como el cumplimiento regular de su función.
+c) Analizar problemas de tipo técnico-operativo y tramitar, con la aprobación del ministro o la ministra, las respectivas disposiciones a las instancias pertinentes del Ministerio.
+d) Brindar informes e incluso recabar pruebas para el órgano competente, con el fin de facilitar la labor de investigación e instrucción de posibles irregularidades laborales, que impliquen la apertura de causas administrativas.
+e) Realizar investigaciones especiales en el interior del cuerpo policial, para prevenir, detectar y erradicar la ocurrencia de focos de corrupción, incrementando la ética y la transparencia en el cumplimiento de la función policial.
+f) Plantear directamente las denuncias correspondientes, ante los órganos jurisdiccionales, cuando medien hechos que se tipifiquen como ilícitos penales.
+g) Todas las otras atribuciones que tiendan a mejorar y fortalecer el servicio que brinda la Policía de Tránsito, que le sean encargadas por el ministro o la ministra.
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).

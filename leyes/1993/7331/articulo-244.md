@@ -1,5 +1,2 @@
-TÍTULO VIII
-REFORMAS Y DEROGATORIAS
-ARTÍCULO 244.- El artículo 93 de la Ley Orgánica del Poder Judicial
-dirá así:
-... ... ...
+ARTÍCULO 244.- Para realizar el control, la máxima autoridad se apoyará en una unidad interna de transportes que dependerá de la Dirección Administrativa de cada ministerio o institución.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 229 al 244).

@@ -1,17 +1,9 @@
-ARTÍCULO 206.- Cualquier persona física o jurídica, pública o
-privada, que pretenda realizar trabajos en las vías públicas, debe:
-a) Contar con la autorización de la Dirección General de Ingeniería
-de Tránsito.
-b) Poner señales (que deben permanecer durante el día y la noche),
-tales como rótulos con pintura reflectora y dispositivos
-proyectores de luz fija o intermitente a distancias adecuadas
-para evitar accidentes, según se dispondrá en el Reglamento de
-esta Ley.
-c) Colocar los materiales de construcción dentro de lotes vacíos u
-otros sitios adecuados. Se prohíbe colocarlos en las vías
-públicas.
-En caso de incumplimiento de lo dispuesto en el inciso b) de este
-artículo, la Dirección General de Ingeniería de Tránsito puede adquirir
-las señales respectivas y colocarlas por cuenta de la persona que realice
-los trabajos en la vía. El cobro respectivo lo hará el Ministerio de
-Obras Públicas y Transportes por la vía ejecutiva.
+ARTÍCULO 206.- Creáse la Unidad Policial de Apoyo Legal de la Dirección General de la Policía de Tránsito del MOPT. Dicha Unidad tendrá las siguientes funciones:
+a) Brindarles apoyo y asesoramiento legal a la Dirección General de la Policía de Tránsito y a las unidades que componen dicha Dirección.
+b) Emitir criterios técnico-jurídicos relativos a las actuaciones policiales, cuando sean requeridos o las circunstancias lo ameriten.
+c) Brindar apoyo legal en los operativos de rutina.
+d) Emitir dictámenes vinculantes, opiniones consultivas, resoluciones y cualquier otro criterio legal aplicable a la materia competencia de la Dirección General de la Policía de Tránsito.
+e) Otorgar apoyo legal, en las causas judiciales incoadas contra los funcionarios policiales y darle seguimiento a la culminación del proceso legal respectivo.
+f) Brindar la capacitación legal, necesaria y requerida por los oficiales de tránsito.
+Los funcionarios de la Unidad de Apoyo Legal tendrán derecho al pago del sesenta y cinco por ciento (65%) a la base, por concepto de prohibición. Asimismo, tendrán derecho al pago de riesgo policial, disponibilidad, carrera profesional y anualidades, conforme a los parámetros vigentes para los funcionarios del MOPT.
+(Así adicionado por el inciso p) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).

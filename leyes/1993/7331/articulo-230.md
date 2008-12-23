@@ -1,5 +1,2 @@
-ARTÍCULO 230.- Para la utilización de los vehículos, se deben hacer
-las solicitudes respectivas a la unidad de transportes de cada ministerio
-o institución, de acuerdo con los planes de trabajo preestablecidos,
-salvo en las situaciones de emergencia, en las que el uso de los
-vehículos será autorizado por las autoridades superiores.
+ARTÍCULO 230.- Las personas que desarmen vehículos automotores deben cumplir estrictamente con todas las regulaciones contenidas en la Ley No. 6122 del 17 de noviembre de 1977 y con las que se incluyan en el Reglamento de esta Ley.
+(Así corrida su numeración por los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 216 al 230).

@@ -1,5 +1,2 @@
-ARTÍCULO 193.- En cualquier momento en que conste en el proceso que
-las indemnizaciones civiles han sido pagadas o renunciadas de forma
-legal, o sustituida la garantía a satisfacción del tribunal que conoce la
-causa, se levantará el gravamen sobre el vehículo y se cancelará la
-garantía que se haya rendido.
+ARTÍCULO 193.- El gravamen al que se refiere el artículo 188 de esta Ley procederá, aunque el conductor no sea el dueño, o no aparezca como tal en el Registro Público de la Propiedad de Vehículos Automotores.
+(Así corrida su numeración por el inciso a) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 192 al 193)

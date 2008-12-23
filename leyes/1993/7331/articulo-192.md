@@ -1,3 +1,2 @@
-ARTÍCULO 192.- El gravamen al que se refiere el artículo 188 de esta
-Ley procederá, aunque el conductor no sea el dueño, o no aparezca como
-tal en el Registro Público de la Propiedad de Vehículos Automotores.
+ARTÍCULO 192.- De toda sentencia condenatoria debe emitirse mandamiento al Registro Público de la Propiedad de Vehículos Automotores y anotarse de inmediato en el asiento de inscripción de los vehículos y en el asiento de inscripción de la licencia de conductor; en este último caso, a juicio del juzgador, de acuerdo con la naturaleza de la falta.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 191 al 192).

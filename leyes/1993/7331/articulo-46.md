@@ -1,6 +1,2 @@
-ARTÍCULO 46.- El Registro Público de Vehículos Automotores y la
-Dirección General de Transporte Público no tramitarán las solicitudes de
-inscripción o traspaso ni emitirán la tarjeta de circulación, ni
-extenderán ningún tipo de permiso especial, sin que el propietario del
-vehículo demuestre haber suscrito la póliza, en los términos que fija
-este capítulo.
+ARTÍCULO 46.- En caso de mora en el pago de la póliza, el Instituto Nacional de Seguros aplicará un recargo del tres por ciento mensual (3%) sobre el monto original, hasta un máximo del treinta y seis por ciento (36%).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 45 al 46)

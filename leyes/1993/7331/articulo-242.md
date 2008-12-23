@@ -1,2 +1,2 @@
-ARTÍCULO 242.- En caso de pérdida total, por accidente o robo, los
-costos corresponden al beneficiario.
+ARTÍCULO 242.- Vehículos de uso de la Fuerza Pública y de los servicios de seguridad. Comprende los vehículos usados por los Ministerios de Seguridad Pública, de Gobernación y Policía, de Justicia y Gracia, de Obras Públicas y Transportes y de Hacienda, así como cualquier otra institución que efectúe labores de policía o seguridad. Para el uso de estos, debe existir una regulación especial elaborada por el Poder Ejecutivo.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 227 al 242).

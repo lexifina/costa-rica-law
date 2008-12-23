@@ -1,21 +1,16 @@
-ARTÍCULO 96.- Los vehículos de tránsito lento están sujetos a las
-siguientes regulaciones:
-a) Se prohíbe transitar a una velocidad tan baja que entorpezca la
-libre circulación del tránsito, excepto en el caso de los
-vehículos funerarios, de los vehículos que participen en los
-desfiles autorizados o en aquellos casos en que lo exijan las
-condiciones de las vías, del tránsito o de la visibilidad.
-b) Deben ceder el paso a los vehículos más rápidos.
-c) Cuando varios vehículos de tránsito lento circulen uno detrás del
-otro, deben mantener suficiente espacio entre ellos. En ningún
-caso, esa distancia puede ser menor de cincuenta metros, para
-permitir a otros vehículos que circulen a mayor velocidad y para
-realizar la maniobra de rebase con seguridad y sin contratiempos.
-ch) En carreteras de dos carriles para ambos sentidos, en las cuales
-rebasar es inseguro debido al tránsito en la dirección opuesta o
-por otras condiciones, un vehículo lento, de carga o de
-pasajeros, detrás del cual se forme una cola de tres o más
-vehículos, debe salirse del camino en los lugares designados como
-apartaderos, mediante el señalamiento vertical, para permitir el
-paso sin contratiempos a los vehículos que se encuentren en la
-fila.
+ARTÍCULO 96.- Para estacionar un vehículo, los conductores deben cumplir con las siguientes indicaciones:
+(Así reformado el párrafo anterior por el artículo 2°, inciso f) de la ley N° 8696 de 17 de diciembre de 2008).
+a) En zonas urbanas, las llantas del vehículo deben quedar a una distancia máxima de 0,30 metros del borde de la acera.
+b) Se prohíbe estacionarlo en las calzadas o en las aceras y, en general, ubicarlo de forma que impida el libre tránsito, afecte la visibilidad o ponga en peligro la seguridad del tránsito, salvo lo dispuesto en el inciso ch) de este artículo.
+c) Si el vehículo ha de quedar estacionado, debe aplicarse el freno de emergencia o de estacionamiento. Los vehículos de más de dos toneladas deben calzarse con las cuñas reglamentarias.
+ch) Si por razones especiales, el vehículo debe ser estacionado en una carretera, debe colocarse fuera de la calzada y señalar su presencia mediante las luces de estacionamiento y los avisos luminosos o reflectantes, de conformidad con esta Ley y con su Reglamento. Si no existe espaldón, se procurará estacionarlo en un lugar apropiado, que constituya la menor peligrosidad para el tránsito.
+d) No se puede estacionar ningún vehículo en los lugares marcados con señales fijas que así lo indiquen o demarcados con una franja amarilla, excepto que las señales limiten la prohibición a cierto horario.
+Se prohíbe estacionar a una distancia menor de cinco metros anteriores y posteriores a un hidrante o a zonas de paso para peatones; a menos de diez metros de una intersección de las vías urbanas y a menos de veinticinco metros de una intersección de las vías no urbanas.
+e) Se prohíbe estacionar en la parte superior de una pendiente, en curva o en carriles de carreteras.
+f) Se prohíbe estacionar al frente de cualquier entrada o salida de planteles educativos, hospitales, clínicas, estaciones de bomberos, estacionamientos privados o públicos, garajes, locales o edificios donde se lleven a cabo espectáculos o actividades deportivos [sic], religiosos, sociales u otros de interés público.
+g) A los camiones, autobuses u otros vehículos que tengan un peso bruto mayor de dos toneladas, se les prohíbe el estacionamiento en las vías públicas, salvo que estén en las paradas autorizadas para tal efecto.
+h) A los vehículos de transporte público de personas (taxis, autobuses, busetas y microbuses), se les prohíbe bajar o recoger pasajeros, sin que estén estacionados en los sitios previstos para este efecto o sin que el vehículo esté estacionado, a una distancia aproximada de treinta centímetros del cordón del caño o borde de la acera o mientras no se tenga la seguridad de que los pasajeros pueden bajar y subir sin riesgos.
+El incumplimiento de las anteriores disposiciones, faculta a la autoridad de tránsito para el retiro del vehículo mal estacionado, cuando no esté el conductor o a obligar a éste a retirarlo, sin perjuicio de la multa respectiva cuando así proceda.
+i) Se prohíbe a los conductores de vehículos automotores que no cumplan los requisitos establecidos en el artículo 43 de la Ley N º 7600, Igualdad de oportunidades para las personas con discapacidad, y su Reglamento, estacionar en los espacios destinados para los vehículos de las personas con discapacidad. Dichos espacios reservados para las personas con discapacidad, deberán estar debidamente rotulados y deberán indicar la ley y las sanciones establecidas para los conductores que utilicen los espacios sin tener la identificación y autorización para el transporte y el estacionamiento, expedida por la autoridad correspondiente. Los gerentes o administradores de establecimientos públicos o privados, serán responsables del cumplimiento de estas disposiciones.
+(Así adicionado el inciso anterior por el artículo 2°, inciso f) de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 95 al 96).

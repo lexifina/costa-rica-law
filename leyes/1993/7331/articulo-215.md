@@ -1,3 +1,2 @@
-ARTÍCULO 215.- Las escuelas particulares de enseñanza del manejo de
-vehículos, están sujetas a las regulaciones que dicte la Dirección
-General de Educación Vial.
+ARTÍCULO 215.- El INA será el encargado de impartirles los cursos para la obtención de la licencia a los choferes de vehículos de carga, el equipo especial y el equipo de servicio público de transporte; para desarrollar dicha tarea, podrán realizar convenios con otros centros de enseñanza o universitarios estatales.
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).

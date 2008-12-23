@@ -1,7 +1,2 @@
-ARTÍCULO 227.- Vehículos de uso de la Fuerza Pública y de los
-servicios de seguridad. Comprende los vehículos usados por los
-Ministerios de Seguridad Pública, de Gobernación y Policía, de Justicia y
-Gracia, de Obras Públicas y Transportes y de Hacienda, así como cualquier
-otra institución que efectúe labores de policía o seguridad. Para el uso
-de estos, debe existir una regulación especial elaborada por el Poder
-Ejecutivo.
+ARTÍCULO 227.- Se autoriza al Poder Ejecutivo para que, mediante decreto y previamente a los estudios técnicos realizados por el Consejo de Seguridad Vial, fije las tarifas por pagar por concepto de derechos de licencias de conducir, matrícula de cursos de educación vial, exámenes prácticos y otros servicios que preste ese ente.
+(Así corrida su numeración por los incisos a) y q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 213 al 227)

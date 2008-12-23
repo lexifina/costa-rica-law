@@ -1,53 +1,24 @@
-ARTÍCULO 130.- Se impondrá una multa de diez mil colones, sin
-perjuicio de la imposición de sanciones conexas:
-a) Al conductor que irrespete la señal de alto de la luz roja de un
-semáforo, excepto cuando vire a la derecha, según lo estipulado
-en el inciso a) del artículo 89 de esta Ley.
-b) Al conductor que rebase por el lado derecho, en carreteras de dos
-carriles con sentidos de vía contraria, sin que medie una razón
-de fuerza mayor para ejecutar la maniobra.
-c) A quien conduzca un vehículo, sin estar al día en el pago de los
-derechos de circulación o del Seguro Obligatorio de Vehículos.
-ch) Al conductor que facilite o use una placa diferente en los casos
-no autorizados por ésta o por otras leyes.
-d) Al conductor de taxi que se le compruebe haber cometido abusos en
-el cobro de la tarifa reglamentaria.
-e) A los conductores de transporte público que no devuelvan el
-pasaje completo a los usuarios, cuando no se complete la ruta o
-el camino convenido.
-f) Al propietario de un vehículo que desatienda la orden de revisión
-técnica, cuando se requiera para ello, según lo dispuesto en el
-artículo 21 de esta Ley.
-g) Al conductor que circule en un vehículo sin los dispositivos
-reflectantes posteriores, indicados en el inciso n) del artículo
-31 de esta Ley.
-h) Al propietario de un vehículo de transporte público, de cualquier
-modalidad, que lo ponga a prestar el servicio sin que reúna
-alguna de las condiciones exigidas en el artículo 124 y en los
-incisos c), q) numeral 1, v) y w) del artículo 31 de esta Ley.
-i) Al conductor de taxi grúa que viole las disposiciones del
-artículo 99 de esta Ley. En caso de reincidencia en un plazo de
-dos años, en lo que al cobro excesivo de tarifa se refiere, la
-multa será diez veces superior al monto del exceso cobrado y no
-podrá ser menor de diez mil colones.
-j) A los conductores de los vehículos de carga que violen las
-disposiciones del artículo 100 de esta Ley.
-k) A quien conduzca un vehículo en estado de preebriedad, de acuerdo
-con los parámetros establecidos en el inciso b) del artículo 107
-de esta Ley.
-l) Al conductor que circule con vehículos para competencia de
-velocidad, en contravención de lo dispuesto en el artículo 109 de
-esta Ley.
-ll) Al conductor que infrinja lo estipulado en el artículo 114 de
-esta Ley.
-m) Al conductor que circule un vehículo en una playa, en
-contravención de lo dispuesto en el artículo 127 de esta Ley.
-n) A la persona que viole las disposiciones sobre rótulos, con fines
-publicitarios, que señala el artículo 205 de esta Ley.
-ñ) Al conductor que evada el pago de las tasas de peaje en las
-respectivas estaciones, en contravención del artículo 214 de esta
-Ley o al conductor que no presente el comprobante de pago, cuando
-la autoridad de tránsito se lo solicite, en la carretera en la
-que se encuentra la estación de peaje. La presentación del
-comprobante de pago se realizará en el tanto no exista un control
-de pago de peaje automático o éste no esté funcionando.
+ARTÍCULO 130.- Se impondrá una multa de veinte mil colones, sin perjuicio de las sanciones conexas, excepto lo dispuesto en el inciso g) del presente artículo:
+(Así reformado su encabezado por el artículo 1º, inciso a), de la ley No.7883 de 9 de junio de 1999)
+a) Al que conduzca sin haber obtenido la licencia de conducir o el permiso temporal de aprendizaje.
+b) (ANULADO, por resolución de la Sala Constitucional Nº 5747-93 de las 14:27 del 9 de noviembre de 1993).
+c) Al conductor que altere, pretenda alterar, no utilice o no porte el taxímetro exigido a los vehículos de modalidad taxi, en el numeral 5, inciso q) del artículo 31 de esta Ley.
+ch) Al conductor que se dedique a prestar el servicio de transporte público, en cualquiera de sus modalidades, sin contar con las respectivas autorizaciones, en violación de lo dispuesto en el inciso a), numeral 1 o en el inciso b), numeral 1 ambos del artículo 97 y del artículo 112 de esta ley.
+(Por resolución de la Sala Constitucional No. 4888 de 8 de junio del 2001 se aclara la sentencia No. 2992 de 12 de abril del 2000, en el sentido de que, según allí se ordena, se mantiene la vigencia de este inciso).
+d) A los conductores de los vehículos de transporte de materiales peligrosos que violen las disposiciones del artículo 101 de la presente Ley.
+e) Al que conduzca en forma temeraria, de conformidad con las conductas tipificadas en el artículo 106 de esta Ley. En el caso de reincidencia, cuyo registro estará a cargo del Consejo de Seguridad Vial, en relación con la conducta tipificada en el inciso e) del artículo 106, concursos de velocidad o "piques" la multa será de cincuenta mil colones.
+f) Al que conduzca con la licencia suspendida por las causales señaladas en los artículos 133 y 134 de esta Ley.
+g) A quien incurra en las conductas indicadas en el inciso a) del artículo 208 de esta ley, se le impondrá una multa cuyo monto oscilará entre cinco mil colones y veinte mil colones. Cuando se incurra en la conducta tipificada en el inciso a) del artículo citado utilizando un vehículo de carga, la multa será de cien mil colones.
+(Así adicionado este inciso por el artículo 1º, inciso b), de la ley No.7883 de 9 de junio de 1999)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 129 al 130).
+(NOTA DE SINALEVI: mediante el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, se reformará este artículo. De conformidad con lo establecido en el Transitorio I de la ley indicada, dicha reforma entrará en vigencia nueve meses después de la publicación de la misma, es decir el 23 de setiembre de 2009, por lo que a partir de esa fecha el texto del numeral será el siguiente:
+“Artículo 130.- Se impondrá una multa de un salario base mensual correspondiente al “Auxiliar administrativo 1” que aparece en la relación de puestos del Poder Judicial, de conformidad con la Ley del presupuesto ordinario de la República , aprobada en el mes de noviembre anterior a la fecha en que se cometa la infracción de tránsito, sin perjuicio de las sanciones conexas:
+a) A quien conduzca en forma temeraria, de conformidad con las conductas tipificadas en el artículo 107 de esta Ley.
+b) A quien conduzca sin haber obtenido la licencia de conducir o el permiso temporal de aprendizaje, o al aprendiz de conductor que, portando el permiso temporal, no se haga acompañar de alguna de las personas autorizadas de conformidad con el inciso b) del artículo 66 de la presente Ley.
+c) Al conductor que se dedique a prestar el servicio de transporte público, en cualquiera de sus modalidades, sin contar con las respectivas autorizaciones, en violación de lo dispuesto en el inciso a), numeral 1, o en el inciso b), numeral 1, ambos del artículo 98, y en el artículo 113 de esta Ley, lo anterior únicamente en cuanto a no contar con la respectiva autorización.
+ch) A quien conduzca con la licencia suspendida por las causales señaladas en esta Ley.
+d) Al conductor de todo vehículo que contravenga lo establecido en los párrafos tercero y cuarto del artículo 80 de esta Ley, que se refiere al uso de dispositivos de seguridad para personas menores de edad.
+e) Al conductor de motocicleta, motobicicleta, bicimoto, triciclo y cuadraciclo, que permita que pasajeros menores de edad no utilicen el casco de seguridad respectivo, en contravención de lo señalado por el inciso a) del artículo 104 de la presente Ley.
+f) Al conductor de un vehículo de transporte de materiales peligrosos, que viole las disposiciones del artículo 102 de la presente Ley.”)
+(NOTA DE SINALEVI: con respecto al salario base para el cálculo de la multa aquí establecida ver OBSERVACIONES a la Ley )
+(Nota de Sinalevi: De acuerdo con el transitorio I de la ley N° 8696 del 17 de diciembre de 2008, “.. La aplicación de las reformas efectuadas al sistema de multas, léase el nuevo contenido y ubicación de las conductas objeto de sanción descritas en los artículos 130,131, 132, 133, 134, 135 y 136 de la Ley N º 7331, así como el incremento en las multas y el sistema de puntos entrarán en vigencia en el plazo de (9) nueve meses después de la publicación de esta Ley. Durante dicho lapso, seguirá rigiendo el contenido actual de la sección I, capítulo II, título IV de la Ley de tránsito por vías públicas terrestres. Durante este plazo, el Cosevi deberá desarrollar campañas de información y divulgación, con el fin de que las personas conductoras se conciencen de los alcances y fines que dicta esta Ley.”)
