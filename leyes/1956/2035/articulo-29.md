@@ -1,5 +1,5 @@
 Artículo 29.- La Junta Directiva tendrá las siguientes atribuciones:
-a) Fijar los precios, en coordinación con el Ministerio de Economía, Industria y Comercio, y autorizar la forma de venta de los artículos que adquiera el Consejo Nacional de Producción.
+a) (Derogado por el artículo 3° de la ley N° 8700 del 17 de diciembre de 2008).
 b) Autorizar la adquisición, la hipoteca, el gravamen o la enajenación de bienes, de conformidad con esta ley. Será actividad ordinaria la enajenación de las cosechas.
 c) Contratar empréstitos conforme a los artículos 47 y 49.
 d) Acordar, reformar e interpretar los reglamentos internos del Consejo y regular los servicios de organización y administración. Para surtir efectos, los reglamentos deberán ser publicados en La Gaceta.
