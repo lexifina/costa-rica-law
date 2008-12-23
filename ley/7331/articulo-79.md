@@ -1,4 +1,7 @@
-Artículo 79.—Los usuarios de las vías públicas deberán conducirse de manera que no obstruyan la circulación ni pongan en peligro la seguridad de los vehículos o de las demás personas. Asimismo, los conductores deberán evitar las situaciones que impidan la libre circulación del tránsito, por lo cual aplicarán el manejo defensivo y mantendrán una constante precaución y consideración hacia los peatones y los demás conductores.
-Los conductores deberán velar por la integridad física y la seguridad de su persona y la de los pasajeros, por lo que deberán utilizar el cinturón de seguridad y exigir que lo usen los pasajeros del vehículo que conducen.
-El conductor que sin causa de justificación valedera no utilice el cinturón de seguridad o conduzca un vehículo en el cual alguno de los pasajeros no lo use también sin dicha causa para ambos, será sancionado con una multa de un cinco por ciento (5%) del salario base, de conformidad con el párrafo tercero, del artículo 2º de la Ley N° 7337.
-(Así reformado por el artículo 1° de la Ley N° 8413 de 29 de abril de 2004).
+TÍTULO III
+REGLAS PARA LA CONDUCCION DE VEHICULOS
+ARTÍCULO 79.- Al usar las vías públicas, los conductores, los pasajeros de los vehículos y los peatones deben:
+a) Acatar de inmediato las indicaciones verbales o escritas de las autoridades de tránsito y detenerse cuando les indiquen la señal de parada, la cual puede realizarse con la mano o por medio de señales acústicas o luminosas.
+b) Respetar las instrucciones de cualquier dispositivo oficial de control de tránsito, que haya sido instalado y funcione de acuerdo con las respectivas disposiciones legales reglamentarias.
+c) Observar y cumplir con las señales verticales y con las demarcaciones en las vías públicas.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 78 al 79).

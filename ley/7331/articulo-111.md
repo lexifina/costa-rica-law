@@ -1,4 +1,2 @@
-ARTÍCULO 111.- Se prohíbe señalar las paradas o los estacionamientos
-en las curvas, cerca de puentes o en los sitios que afecten la seguridad
-de los usuarios de las vías públicas. Asimismo, en los lugares que
-designe el Reglamento de esta Ley.
+ARTÍCULO 111.- Se prohíbe la circulación en las vías públicas, de patinetas y de otros artefactos no autopropulsados, que no estén explícitamente autorizados en esta Ley o en su Reglamento.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 110 al 111).

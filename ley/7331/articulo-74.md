@@ -1,8 +1,3 @@
-ARTÍCULO 74.- Las personas con licencia para conducir los vehículos
-automotores, expedida en el extranjero, quedan autorizadas para conducir,
-en el territorio nacional, por un período máximo de tres meses, el mismo
-tipo de vehículos que les autoriza esa licencia. La licencia debe estar
-al día y el conductor debe portarla junto con su pasaporte.
-Sin embargo, podrán obtener la licencia de conducir con la sola
-presentación de la licencia del otro país y el examen médico, de
-conformidad con lo que establece esta Ley.
+ARTÍCULO 74.- Toda persona que adquiera, renueve o solicite el duplicado de la licencia de conducir, debe llenar un formulario en el que manifieste su consentimiento u oposición para donar todos sus órganos y tejidos o parte de ellos cuando ocurra su muerte. La Dirección General de Educación Vial tomará las medidas administrativas necesarias para que, en el documento de la licencia, conste la decisión de cada conductor.
+El contenido del formulario será propuesto por la Caja Costarricense del Seguro Social y emitido mediante decreto ejecutivo.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 73 al 74).

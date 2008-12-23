@@ -1,5 +1,2 @@
-ARTÍCULO 237.- Prohibiciones de arreglo extrajudicial: Se prohíbe al
-conductor efectuar arreglos extrajudiciales en caso de accidentes con
-vehículos oficiales; en estos casos deben indicar al particular que se
-apersone o comunique con la sección de transporte, para efectuar las
-gestiones correspondientes.
+ARTÍCULO 237.- Los vehículos oficiales deben llevar una placa especial que los identifique con el Ministerio o Institución a la que pertenecen.
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 222 al 237).

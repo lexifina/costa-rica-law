@@ -13,7 +13,8 @@ j) El ejercicio de actividades públicas o privadas, incompatibles con el desemp
 k) La falta manifiesta de colaboración con el Organismo de Investigación Judicial o las otras fuerzas de policía.
 l) La embriaguez habitual o el uso de drogas no autorizadas durante el servicio.
 m) La portación de un arma antirreglamentaria.
-n) La aceptación o el recibo de cualquier promesa de beneficio o el beneficio susceptible de apreciación pecuniaria diferentes de los que, legal y reglamentariamente, les correspondan por parte del Estado, provenientes de personas físicas o jurídicas, nacionales o extranjeras, oficiales o privadas.
+n) Solicitar, aceptar o recibir cualquier beneficio indebido, o aceptar la promesa de una retribución de esa naturaleza, a cambio de hacer u omitir actos, sean o no propios de sus funciones.
+(Así reformado el inciso anterior por el artículo 7 aparte b) de la ley Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993, N° 8696 del 17 de diciembre de 2008)
 ñ) Cualquier otra conducta sancionada con despido en el Código de Trabajo.
 (Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 65 al 68 actual)
 (Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 68 al 75 actual)

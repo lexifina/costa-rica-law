@@ -1,73 +1,37 @@
-ARTÍCULO 131.- Se impondrá una multa de cinco mil colones, sin
-perjuicio de la imposición de sanciones conexas:
-a) Al conductor de taxi, taxi grúa y taxi carga que no preste el
-servicio que le solicite un usuario.
-b) Al comprador que incumpla su obligación de presentar la escritura
-de compraventa, en el plazo establecido en el artículo 8 de esta
-Ley.
-c) DEROGADO.-
-(Derogado por el artículo 190, inciso c), del Código Notarial
-No.7764 de 17 de abril de 1998)
-ch) Al propietario del vehículo y a los dueños de los talleres
-mecánicos, de enderezado y pintura, que incumplan su obligación
-de informar sobre las modificaciones realizadas en los vehículos,
-de conformidad con lo dispuesto en el artículo 13 de esta Ley.
-d) Al propietario que ponga un vehículo de transporte público de
-cualquier modalidad, a prestar el servicio, sin que reúna alguna
-de las condiciones establecidas en el artículo 30 y en los
-incisos ch), h), i), j), ll), p), q) numeral 2, t) y u) del
-artículo 31 de esta Ley.
-e) A quien utilice sirenas o señales rotativas luminosas sin cumplir
-con lo dispuesto en el artículo 32 de esta Ley.
-f) Al propietario de un vehículo que, por cualquier medio, altere o
-modifique el motor, los sistemas de inyección o carburación o el
-sistema de control de emisiones que disminuye la contaminación
-ambiental, o al que viole lo dispuesto en el inciso x) del
-artículo 31, los incisos a), b) y c) del artículo 34, los
-incisos a), b), c) y d) del artículo 35 y el artículo 121 de la
-presente Ley.
-(Así reformado por el artículo 1º, inciso 4), de la ley No.7721 de 9
-de diciembre de 1997)
-g) A quien irrespete las señales de tránsito fijas, incluyendo los
-límites de velocidad o las indicaciones de la autoridad de
-tránsito, en contravención de los artículos 78, 82 y 115 de esta
-Ley. Se exceptúan los casos considerados en el artículo 106 de
-esta Ley.
-h) A quien conduzca en contravención de lo que establece el artículo
-84 de esta Ley.
-i) Al conductor que incumpla las disposiciones establecidas en los
-artículos 86, 87 y 88 de esta Ley, en relación con las luces del
-vehículo.
-j) A quien viole la preferencia de paso, de conformidad con lo
-dispuesto en los artículos 89, 90, 91 y 92 de esta Ley.
-k) Al propietario o conductor que se estacione en contra de lo
-dispuesto en el artículo 95 de esta Ley.
-l) Al conductor que use una vía para otros fines o al que utilice el
-vehículo con otro objeto que no sea el autorizado. Al conductor
-cuyo vehículo lleve un exceso de pasajeros, en contravención de
-las disposiciones del numeral 2, inciso a) del artículo 97 y del
-artículo 123 de esta Ley.
-ll) Al conductor que circule un vehículo sin parabrisas o con la
-visibilidad obstruida, de acuerdo con el artículo 113 de esta
-Ley.
-m) Al conductor que incurra en las prohibiciones contenidas en el
-artículo 122 de esta Ley.
-n) A la persona que cierre una vía o le dé los usos indebidos que
-señala el artículo 125 de esta Ley.
-ñ) A la persona, física o jurídica, que realice trabajos en las vías
-públicas, en contravención de lo dispuesto en el artículo 206 de
-esta Ley.
-o) Al conductor de vehículos de transporte exclusivo de estudiantes,
-excepto de estudiantes universitarios, en las modalidades de microbús,
-buseta y autobús que lleve a un menor de edad de pie.
-(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
-p) Los conductores de automóviles y vehículos de transporte exclusivo de estudiantes,
-excepto de estudiantes universitarios, que no lleven a los menores de edad con
-cinturón de seguridad.
-(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
-q) Los conductores de transporte exclusivo de estudiantes que no tengan correctamente instalados los cinturones de seguridad.
-(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
-(NOTA: De conformidad con lo dispuesto en el transitorio único de la Ley 8167 de 27 de noviembre del 2001,
-los vehículos de transporte de estudiantes, (buses, busetas y microbuses) con exepción de los estudiantes universitarios
-deberán estar provistos de cinturón de seguridad para todos los ocupantes en un período de un año, contado a partir de
-la fecha de entrada en vigencia de dicha ley, es decir a partir del 18 de diciembre del 2001).
+ARTÍCULO 131.- Se impondrá una multa de diez mil colones, sin perjuicio de la imposición de sanciones conexas:
+a) Al conductor que irrespete la señal de alto de la luz roja de un semáforo, excepto cuando vire a la derecha, según lo estipulado en el inciso a) del artículo 89 de esta Ley.
+b) Al conductor que rebase por el lado derecho, en carreteras de dos carriles con sentidos de vía contraria, sin que medie una razón de fuerza mayor para ejecutar la maniobra.
+c) A quien conduzca un vehículo, sin estar al día en el pago de los derechos de circulación o del Seguro Obligatorio de Vehículos.
+ch) Al conductor que facilite o use una placa diferente en los casos no autorizados por ésta o por otras leyes.
+d) Al conductor de taxi que se le compruebe haber cometido abusos en el cobro de la tarifa reglamentaria.
+e) A los conductores de transporte público que no devuelvan el pasaje completo a los usuarios, cuando no se complete la ruta o el camino convenido.
+f) Al propietario de un vehículo que desatienda la orden de revisión técnica, cuando se requiera para ello, según lo dispuesto en el artículo 21 de esta Ley.
+g) Al conductor que circule en un vehículo sin los dispositivos reflectantes posteriores, indicados en el inciso n) del artículo 31 de esta Ley.
+h) Al propietario de un vehículo de transporte público, de cualquier modalidad, que lo ponga a prestar el servicio sin que reúna alguna de las condiciones exigidas en el artículo 124 y en los incisos c), q) numeral 1, v) y w) del artículo 31 de esta Ley.
+i) Al conductor de taxi grúa que viole las disposiciones del artículo 99 de esta Ley. En caso de reincidencia en un plazo de dos años, en lo que al cobro excesivo de tarifa se refiere, la multa será diez veces superior al monto del exceso cobrado y no podrá ser menor de diez mil colones.
+j) A los conductores de los vehículos de carga que violen las disposiciones del artículo 100 de esta Ley.
+k) A quien conduzca un vehículo en estado de preebriedad, de acuerdo con los parámetros establecidos en el inciso b) del artículo 107 de esta Ley.
+(Nota de Sinalevi: el artículo 107, inciso b), a que se hace referencia trataba originalmente del nivel de concentración de alcohol en la sangre en un conductor. De acuerdo con las modificaciones de la ley No.8696 de 17 de diciembre de 2008, dicho tema está regulado en el artículo 107, inciso a)
+l) Al conductor que circule con vehículos para competencia de velocidad, en contravención de lo dispuesto en el artículo 109 de esta Ley.
+ll) Al conductor que infrinja lo estipulado en el artículo 114 de esta Ley.
+m) Al conductor que circule un vehículo en una playa, en contravención de lo dispuesto en el artículo 127 de esta Ley.
+n) A la persona que viole las disposiciones sobre rótulos, con fines publicitarios, que señala el artículo 205 de esta Ley.
+ñ) Al conductor que evada el pago de las tasas de peaje en las respectivas estaciones, en contravención del artículo 214 de esta Ley o al conductor que no presente el comprobante de pago, cuando la autoridad de tránsito se lo solicite, en la carretera en la que se encuentra la estación de peaje. La presentación del comprobante de pago se realizará en el tanto no exista un control de pago de peaje automático o éste no esté funcionando.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 130 al 131).
+(NOTA DE SINALEVI: mediante el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, se reformará este artículo. De conformidad con lo establecido en el Transitorio I de la ley indicada, dicha reforma entrará en vigencia nueve meses después de la publicación de la misma, es decir el 23 de setiembre de 2009, por lo que a partir de esa fecha el texto del numeral será el siguiente:
+“Artículo 131.- Se impondrá una multa de un setenta y cinco por ciento (75%) de un salario base mensual correspondiente al “Auxiliar administrativo 1” , que aparece en la relación de puestos del Poder Judicial, de conformidad con la Ley del presupuesto ordinario de la República , aprobada en el mes de noviembre anterior a la fecha en que se cometa la infracción de tránsito, sin perjuicio de las sanciones conexas:
+a) A quien conduzca en forma temeraria, de conformidad con las conductas tipificadas en el artículo 108 de esta Ley.
+b) A quien irrespete las señales de tránsito fijas, incluso los límites de velocidad o las indicaciones de la autoridad de tránsito, en contravención de los artículos 79, 83 y 116 de esta Ley, normas que establecen los deberes de acatar las indicaciones verbales o escritas de las autoridades de tránsito, el señalamiento vertical y horizontal, incluso el que comprende los límites de velocidad; la prohibición de pasar sobre las islas canalizadoras o de adelantar por el carril izquierdo de la carretera demarcada con línea continua en el centro. Se exceptúan los casos considerados en el artículo 107 y en los incisos ch) y d) del artículo 83 de esta Ley, que se resolverán de acuerdo con lo que determinan dichos numerales.
+c) Al conductor que vire en ‘U’, en contravención de lo dispuesto en el artículo 119 de esta Ley.
+ch) Al conductor que irrespete la señal de alto de la luz roja de un semáforo, excepto cuando vire a la derecha, según lo estipulado en el inciso a) del artículo 90 de esta Ley.
+d) Al conductor de un vehículo que, al virar en una intersección de las vías públicas, no ceda el paso a los peatones que se encuentren en la calzada, como se dispone en los incisos b) y ch) del artículo 90 de esta Ley.
+e) Al conductor que infrinja lo estipulado en el artículo 115 de esta Ley.
+f) Al conductor de servicio de transporte público que les permita a los pasajeros subir o bajar en lugares no autorizados, o que no utilice las bahías destinadas a tal fin, en aquellos lugares en que existan, siempre que con ello provoque atraso en el fluido vehicular o genere riesgo para los transportados.
+g) A quien conduzca un vehículo que no esté al día en el pago de los derechos de circulación o del seguro obligatorio de vehículos.
+h) A la persona que realice trabajos en las vías públicas, en contravención de lo dispuesto en el artículo 220 de esta Ley.
+i) Al conductor de vehículos tipo grúa que viole las disposiciones del artículo 100 de esta Ley.
+j) Al conductor que opere un automotor con placas que no le corresponden.
+k) Al conductor de todo vehículo que en contravención de lo establecido en el artículo 80 de esta Ley, no use el cinturón de seguridad o cuando permita que los pasajeros mayores de edad no lo utilicen o lo empleen incorrectamente, salvo que exista algún motivo justificante vinculado con la salud. Si la omisión involucra personas menores de edad, se aplicará lo dispuesto en el inciso d) del artículo 130 de esta Ley.
+l) Al conductor de bicicleta, motobicicleta, bicimoto, triciclo, cuadraciclo o motocicleta que viole las disposiciones, en cuanto al uso del casco de seguridad, contenidas en el inciso 3) apartado b) del artículo 32, el inciso a) del artículo 104 y el inciso j) del artículo 105 de la presente Ley.”)
+(NOTA DE SINALEVI: con respecto al salario base para el cálculo de la multa aquí establecida ver OBSERVACIONES a la Ley )
+(Nota de Sinalevi: De acuerdo con el transitorio I de la ley N° 8696 del 17 de diciembre de 2008, “.. La aplicación de las reformas efectuadas al sistema de multas, léase el nuevo contenido y ubicación de las conductas objeto de sanción descritas en los artículos 130,131, 132, 133, 134, 135 y 136 de la Ley N º 7331, así como el incremento en las multas y el sistema de puntos entrarán en vigencia en el plazo de (9) nueve meses después de la publicación de esta Ley. Durante dicho lapso, seguirá rigiendo el contenido actual de la sección I, capítulo II, título IV de la Ley de tránsito por vías públicas terrestres. Durante este plazo, el Cosevi deberá desarrollar campañas de información y divulgación, con el fin de que las personas conductoras se conciencen de los alcances y fines que dicta esta Ley.”)

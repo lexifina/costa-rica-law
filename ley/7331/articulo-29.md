@@ -1,7 +1,4 @@
-ARTÍCULO 29.- La Dirección General de Transporte Público podrá
-expedir permisos especiales, para el transporte de trabajadores en
-actividades agropecuarias, bajo la responsabilidad exclusiva del
-solicitante, previo cumplimiento de los requisitos reglamentarios.
-El interesado deberá tomar una póliza especial extendida por el
-Instituto Nacional de Seguros, cuya modalidad y monto definirá éste,
-previos estudios técnicos correspondientes.
+SECCION IV
+Permisos especiales de circulación
+ARTÍCULO 29.- Los permisos especiales de circulación se regirán por lo que al efecto establece esta Ley y el Reglamento de importación temporal de vehículos automotores.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 28 al 29).

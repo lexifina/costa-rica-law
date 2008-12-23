@@ -1,21 +1,4 @@
-CAPÍTULO VI
-APLICACION
-ARTÍCULO 240.- Aplicación: La aplicación y verificación del
-cumplimiento de las anteriores disposiciones están a cargo de la
-Contraloría General de la República, de los órganos institucionales
-correspondientes, de la Dirección General de la Policía de Tránsito y de
-las demás autoridades que deban velar porque los vehículos oficiales
-cumplan con lo establecido.
-En caso de que el vehículo circule fuera de horas laborales, sin la
-autorización expresa o a horas no estipuladas en el permiso, según las
-circunstancias, las autoridades retirarán las placas e informarán de
-inmediato, por el canal administrativo más oportuno, al ministerio o
-dependencia al que pertenece el vehículo y a la Contraloría General de la
-República, con el señalamiento de hechos completos.
-En cualquier momento en que se observe que el conductor o los
-acompañantes estén bajo los efectos del alcohol o muestren una conducta
-anormal o rebeldía para someterse a una inspección de rutina, la
-autoridad procederá, de inmediato, a inspeccionar el vehículo y formulará
-el informe correspondiente para que se transmita al ministerio o
-dependencia a que pertenezca y a la Contraloría General de la República.
-En casos graves, impedirá la continuación del viaje.
+ARTÍCULO 240.- Uso discrecional
+Los vehículos de uso discrecional son los asignados al presidente de la República , el presidente de la Asamblea Legislativa , los vicepresidentes de la República , los ministros de Gobierno, los viceministros, los magistrados de la Corte Suprema de Justicia y del Tribunal Supremo de Elecciones, el contralor general de la República , el subcontralor general de la República , el defensor de los habitantes y el defensor adjunto, el procurador general de la República , el procurador adjunto, los presidentes ejecutivos, los gerentes, los subgerentes, los auditores y los subauditores, de las instituciones autónomas, el presidente y el director ejecutivo de la Comisión de Prevención de Riesgos y Atención de Emergencias. Estos vehículos no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la unidad. Estos vehículos pueden portar placas particulares y no tienen marcas visibles, que los distingan como vehículos oficiales.
+(Así reformado por el inciso x) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 225 al 240).

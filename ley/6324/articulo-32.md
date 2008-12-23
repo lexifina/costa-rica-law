@@ -1,3 +1,1 @@
-Artículo 32.- El personal de las distintas dependencias que por esta
-ley fuere trasladado o reubicado, conservará todos los derechos y
-beneficios derivados de su relación laboral.
+Artículo 32.-(La derogación practicada a este numeral por el inciso c) del artículo 6° de la Ley N° 8696 de 17 de diciembre de 2008, posteriormente fue derogada por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

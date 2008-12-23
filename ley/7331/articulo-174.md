@@ -1,12 +1,3 @@
-Artículo 174.—La sentencia podrá dictarse en forma de auto, el cual deberá ser razonado, bajo pena de nulidad absoluta. De oficio, el auto contendrá pronunciamiento sobre:
-a) La responsabilidad de los imputados y su absolutoria o condenatoria. En este último caso, se fijarán la pena o las penas que correspondan.
-b) Si se ordena o no la suspensión de la licencia de conducir, así como la indicación del tipo y del plazo por el cual se aplicará la sanción, de conformidad con lo dispuesto en esta Ley.
-c) Si se inhabilita o no al imputado para la conducción de vehículos automotores y el plazo de la sanción.
-d) El monto de la multa por las infracciones contra las disposiciones de la presente Ley que lleguen a demostrarse en el proceso y los cargos adicionales a favor de otras instituciones y organizaciones.
-e) La devolución o el mantenimiento en custodia de los vehículos o de sus placas.
-f) Los gravámenes que se decreten sobre los vehículos o sobre las licencias de conducir y su levantamiento.
-g) La condenatoria en abstracto por los daños y perjuicios ocasionados a la infraestructura vial, los cuales se cobrarán por la vía judicial correspondiente.
-h) La condenatoria en abstracto por los daños y perjuicios ocasionados a las personas, los bienes públicos o privados.
-i) La condenatoria en abstracto de las costas personales y procesales.
-En los casos de los incisos h) e i) de este artículo, se acudirá a la ejecución de sentencia en la vía civil.
-(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
+ARTÍCULO 174.— Si el imputado no comparece dentro del plazo señalado o si rechaza los cargos, pero no ofrece prueba de descargo, o si los acepta, el juzgado resolverá con los elementos de juicio que consten en el expediente, sin perjuicio de su facultad de ordenar la recepción de la prueba que considere necesaria para mejor resolver.
+(Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 173 al 174).

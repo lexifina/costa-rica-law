@@ -1,8 +1,5 @@
-SECCION III
-Las placas
-ARTÍCULO 23.- Cada vehículo debe portar, en el sitio reglamentario y
-de manera totalmente visible, una o dos placas de la matrícula, según lo
-fije el Ministerio de Obras Públicas y Transportes y, los demás
-documentos de identificación y de pago que señale la Dirección General de
-Transporte Público; éstos son intransferibles a otros vehículos sin la
-autorización formal de esa Dirección.
+ARTÍCULO 23.-El permiso de circulación se cancelará, automáticamente, al transcurrir dos (2) años sin que se hayan cancelado los derechos de circulación. Si una vez cancelados se solicita un nuevo permiso de circulación, el propietario del vehículo quedará obligado a pagar todos los derechos de circulación atrasados, según las disposiciones de los artículos 184 y 221 de esta Ley.
+De esta norma se exceptúan los casos en los cuales las placas respectivas se dejen en depósito en el Registro Nacional, con los documentos que indiquen las razones por las que se renuncia a ellas y el sitio donde el vehículo permanecerá depositado.
+En esos casos, se eximirá del pago de los derechos de circulación. El Registro Nacional comunicará el depósito de las placas al Ministerio de Hacienda, para los efectos anteriores.
+(Así reformado por el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° en relación con el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 22 al 23).

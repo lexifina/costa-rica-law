@@ -1,3 +1,7 @@
-ARTÍCULO 71.- Cuando se presente una solicitud de renovación o de
-duplicado de licencia de conducir, se debe comprobar que la licencia no
-está suspendida.
+ARTÍCULO 71.- La licencia de conducir se extenderá por un período de vigencia de tres (3) años, cuando se solicite por primera vez. Posteriormente, se renovará cada seis (6) años. En ambos casos, deberá haberse cumplido, satisfactoriamente, el examen médico de aptitudes físicas y sicológicas señalado en el inciso c) del artículo 68 de la presente Ley.
+Quienes soliciten por primera vez la licencia y no hayan alcanzado los veinticinco (25) años de edad, al tiempo de plantear su solicitud, se les otorgará la licencia con carácter provisional, una vez cumplidos los requisitos para el tipo de licencia involucrada.
+En los casos en que por razones médicas o clínicas, la conducción pueda ser riesgosa para los demás usuarios de la vía, podrá otorgarse una licencia de conductor por un período de dos (2) años como máximo. Esta situación deberá ser debidamente determinada y comprobada mediante el dictamen médico correspondiente. En caso de que el postulante no esté de acuerdo con el resultado del dictamen, deberá apelar ante el Colegio de Médicos y Cirujanos el resultado vertido, el cual determinará, por medio del órgano correspondiente, el resultado final sobre el tema en cuestión. Dicho resultado será inapelable.
+En los casos de los conductores de setenta y cinco (75) años de edad o más, la licencia de conducir se renovará cada tres (3) años. Para el transporte de servicio público y para el equipo especial, la licencia de conducir se renovará cada dos (2) años, independientemente de la edad del conductor.
+El Poder Ejecutivo determinará, en el Reglamento de esta Ley, cuáles deficiencias físicas y mentales imposibilitan la conducción de un vehículo.
+(Así reformado por el inciso i) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 70 al 71)

@@ -1,0 +1,2 @@
+TRANSITORIO XVII.-
+Las estructuras publicitarias que, a la fecha de la promulgación de la presente Ley, tengan al menos treinta (30) días hábiles de haber sido decomisadas por infracción a la normativa vigente, sin que se haya apersonado su propietario para su retiro, pasarán a ser propiedad del MOPT, el cual queda autorizado para su reutilización, donación o destrucción, según corresponda. Para la disponibilidad de las otras estructuras que tengan menos tiempo de haber sido decomisadas, deberá esperarse a que transcurra el plazo a que se refiere esta norma.

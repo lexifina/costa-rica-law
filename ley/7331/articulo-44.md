@@ -1,4 +1,5 @@
-ARTÍCULO 44.- La póliza a la que se refiere este capítulo, tendrá
-una vigencia de un año, a partir del día de su expedición. Se exceptúa el
-caso de las pólizas para los vehículos indicados en el artículo 42 de
-esta Ley.
+ARTÍCULO 44.- Facúltase al INS para que clasifique los vehículos, según el tipo de riesgo, y para que establezca las primas diferenciales para cada uno de ellos. Para ese efecto, utilizará las bases técnicas, reales y actuariales; además, se fundamentará en su propia experiencia, en forma tal que se garanticen el costo de la administración y también el otorgamiento de las prestaciones en dinero, médico-sanitarias y de rehabilitación, el pago de las reparaciones de bienes y daños a terceros, así como la solidez financiera del régimen.
+El INS llevará contabilidades separadas para las coberturas de lesión o muerte de personas y las de daños y perjuicios a la propiedad de terceros.
+El monto de las primas puede ser revisado anualmente por el INS; pero este monto debe ser aprobado por la Contraloría General de la República , la cual velará por que su importe no origine excedentes para el Instituto. No obstante, si a pesar de la revisión contralora se producen excedentes, se constituirá una reserva acumulativa para hacerles frente a las futuras pérdidas del régimen hasta de un veinticinco por ciento (25%) de las primas percibidas en el año. Si el excedente supera ese porcentaje, la cantidad en que se supere se aplicará al ajuste hacia abajo de las primas, para el siguiente período.
+(Así reformado por el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así corrida su numeración por el inciso a) del artículo 2° en relación con el inciso f) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 43 al 44)

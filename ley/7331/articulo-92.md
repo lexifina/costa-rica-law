@@ -1,36 +1,14 @@
-ARTÍCULO 92.- El uso del carril central de giro a la izquierda, se
-efectuará según las siguientes disposiciones:
-a) Este carril se utiliza en la franja central de las carreteras
-urbanas, con cuatro o más carriles. Es una zona de refugio, que
-les permite a los conductores realizar maniobras de giro
-izquierdo, desde una vía secundaria o hacia una vía secundaria,
-sin interrumpir el libre flujo del tránsito.
-b) Este carril no puede ser utilizado para la circulación ni tampoco
-para rebasar.
-c) Los vehículos que circulen en cualquier sentido de la vía y
-necesiten realizar un giro izquierdo, deben ubicarse en el carril
-izquierdo de su sentido de circulación, por lo menos cien metros
-antes del punto donde realizarán la maniobra. Asimismo, deben
-accionar la luz direccional izquierda cincuenta metros antes y
-disminuir la velocidad, verificando que no se presentan
-conflictos con otros vehículos, antes de ingresar al carril
-central y detenerse completamente en el lugar seleccionado,
-manteniendo la luz direccional izquierda. Para completar la
-maniobra, deben esperar un espacio adecuado entre los vehículos
-de la corriente de sentido contrario, de manera que no exista
-posibilidad de colisión.
-ch) Para ingresar al carril central de giro a la izquierda, desde una
-vía lateral o desde una propiedad privada, se debe accionar la
-luz direccional izquierda, esperar un espacio adecuado entre los
-vehículos de la vía arterial, cruzar la calzada y refugiarse en
-el carril central, siempre que esta maniobra pueda ser realizada
-con seguridad. Para ingresar luego a los carriles de circulación
-normal, se debe verificar que no se presentan conflictos con los
-vehículos de la vía arterial y del carril central.
-Preferiblemente, se debe ingresar al carril derecho por ser el de
-tránsito de menor velocidad.
-d) Un vehículo detenido en este carril no debe obstaculizar el paso
-de los que circulen por los carriles adyacentes.
-e) El carril central de giro a la izquierda, está marcado con líneas
-externas continuas y líneas internas discontinuas, ambas de color
-amarillo. Esta demarcación no permite los giros en "U".
+ARTÍCULO 92.- Al aproximarse a cualquier rotonda, los conductores deben proceder según las siguientes disposiciones:
+a) El vehículo que viaje dentro de una rotonda tiene prioridad de paso sobre el que se dispone a entrar.
+b) Dentro de una rotonda, la velocidad máxima permitida es de treinta kilómetros por hora.
+c) El vehículo que va a ingresar a la rotonda debe ceder el paso al que circula dentro; por lo cual respetará la señal de “ceda”, se detendrá completamente, si es necesario, en la línea de parada correspondiente a su carril. Asimismo, a la rotonda se ingresará sólo cuando la separación entre los vehículos que circulen dentro de ella, permita una maniobra segura.
+ch) Para ingresar a la rotonda, cada vehículo se ubicará en el respectivo carril de acceso, lo que dependerá de la localización de la salida a la cual se dirija, según se indica a continuación:
+1.- Si se va a abandonar la rotonda por la primera salida, el vehículo se debe ubicar en el carril externo (derecho) del acceso. Para realizar la maniobra de abandono, se debe encender la luz direccional derecha y utilizar el carril derecho de la salida.
+2.- Si se va a abandonar la rotonda por la segunda salida, el vehículo se puede ubicar en cualquiera de los dos carriles derechos de acceso. Mientras se circule dentro de la rotonda, el vehículo debe mantenerse en el carril elegido y conservar la luz direccional izquierda encendida. Para realizar la maniobra de abandono, se debe encender la luz direccional derecha y usar el carril de salida correspondiente al utilizado para circular dentro la rotonda.
+3.- Si se va a abandonar la rotonda por la tercera salida o por otra salida posterior, el vehículo se debe ubicar en el carril interno (izquierdo) de acceso. Mientras se esté dentro de la rotonda, se circulará por su carril interno, con la luz direccional izquierda encendida. Para realizar la maniobra de abandono, se debe encender la luz direccional derecha y utilizar el carril izquierdo de salida.
+d) Para la ubicación de los vehículos en los carriles de acceso, el señalamiento vertical establecido por la Dirección General de Ingeniería de Tránsito prevalece sobre estas reglas.
+La señal que rige es de fondo verde con dibujos en blanco y en su parte inferior, en recuadro amarillo , se indica la ubicación que se debe respetar.
+e) No se permite cambiar de carril dentro de la rotonda, excepto en las maniobras de entrada y de salida.
+f) No se permite rebasar a otro vehículo dentro de la rotonda.
+g) Aun en los casos en que el diseño geométrico de la rotonda facilite maniobrar, de forma expedita, hacia la primera salida, es obligatorio para los vehículos que deseen ingresar a la rotonda, respetar la señal de “ceda” y dar el paso prioritario a los vehículos que circulen dentro.
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 91 al 92).
