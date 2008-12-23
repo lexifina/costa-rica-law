@@ -114,3 +114,4 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 34917 del 26 de noviembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34962 del 9 de diciembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34966 del 9 de diciembre de 2008)
+(Reformado por el artículo 2° de la Ley N° 8703 del 19 de diciembre de 2008)
