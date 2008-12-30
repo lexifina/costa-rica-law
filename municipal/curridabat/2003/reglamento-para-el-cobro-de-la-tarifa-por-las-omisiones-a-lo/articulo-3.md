@@ -1,7 +1,9 @@
 Artículo 3º—Se entenderá por omisiones a los deberes de los propietarios de bienes inmuebles lo siguiente:
 a) Cuando el propietario de un bien inmueble no limpie la vegetación a orillas de las vías públicas y cuando no recorte la que perjudique o dificulte el libre paso de las personas.
-b) Cuando el propietario de un bien inmueble no construya las cercas ni limpie los lotes sin construir.
-c) Cuando el propietario no remueva de las aceras y vías públicas ubicadas frente a sus propiedades, los objetos que él haya abandonado.
+b) Cuando el propietario de un bien inmueble no construya las cercas, ni limpie los lotes sin construir. Obligatorio cercar el lote para evitar su uso indebido como basurero o refugio de delicuentres e indigentes. El lote baldío debe chapearse cada mes. La maleza o zacate no debe exceder de los diez centímetros de altura. La maleza no debe tratarse con herbicida dado el riesgo de incendio que implica en estado seco.
+(Así reformado el inciso anterior mediante acuerdo N° 6 tomado en sesión del 30 de diciembre de 2008)
+c) Cuando el propietario no remueva de las aceras y vías públicas ubicadas frente a sus propiedades, los objetos que él haya abandonado. Si el lote ya tiene residuos sólidos húmedos, desechos sólidos secos o reciclables, desechos de jardines, desechos voluminosos o no tradicionales llámesen bolsas, muebles abandonados, material ferroso, escombros de construcción y otros, el propietario o el poseedor del inmueble deberá coordinar su respectiva recolección con el director de la Dirección Ambiental de la Municipalidad, previo a sacarlos al área pública.
+(Así reformado el inciso anterior mediante acuerdo N° 6 tomado en sesión del 30 de diciembre de 2008)
 d) Cuando el propietario no construya la acera frente a su inmueble o cuando no se le dé mantenimiento a la misma.
 e) Cuando el propietario no instale bajantes o canoas para recoger las aguas pluviales de las edificaciones ubicadas en su inmueble cuyas paredes externas colinden inmediatamente con la vía pública.
 f) Cuando el propietario no garantice adecuadamente la seguridad, la limpieza y el mantenimiento de sus propiedades cuando estas afecten las vías y propiedades públicas o a terceros en relación con ellas.
