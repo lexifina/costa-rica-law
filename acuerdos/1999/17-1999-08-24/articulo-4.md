@@ -1,1 +1,0 @@
-Artículo 4°—Cantidad de libros. Las Sociedades Administradoras podrán presentar libros de actas separados para cada fondo de inversión que administran o incluir todas las actas en un único libro. En ese último caso, en los acuerdos de inversión que se tomen deberá indicarse con claridad a cuáles fondos de inversión afecta la decisión tomada.
