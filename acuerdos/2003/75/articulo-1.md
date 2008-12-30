@@ -21,7 +21,11 @@ Dispone el presente acuerdo:
 SGV-A-75. ACUERDO SOBRE EL SUMINISTRO DE INFORMACIÓN PERIÓDICA (1)
 (1) Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 (NOTA DE SINALEVI: El siguiente texto corresponde a la reforma integral realizada por el Acuerdo SGV-A-140 del 21 de diciembre de 2007, publicado en La Gaceta N° 66 de 4 de abril de 2008)
-Artículo 1º—Alcance. El presente acuerdo detalla las obligaciones de suministro de información periódica a que están sujetos los emisores de valores objeto de oferta pública y los sujetos fiscalizados por la Superintendencia General de Valores, de conformidad con lo establecido en el Reglamento sobre el suministro de información periódica, hechos relevantes y otras obligaciones de información. Se exceptúa de los requisitos de información establecidos en este Acuerdo a las siguientes entidades:
+Artículo 1º—Alcance. El presente Acuerdo detalla las obligaciones de suministro de información periódica a que están sujetos los emisores de valores objeto de oferta pública y los sujetos fiscalizados por la Superintendencia General de Valores, de conformidad con lo establecido en el Reglamento sobre el suministro de información periódica, hechos relevantes y otras obligaciones de información.
+Se exceptúa de los requisitos de información establecidos en este Acuerdo a las siguientes entidades:
 a) Ministerio de Hacienda, Banco Central de Costa Rica, y los emisores públicos no bancarios que cuenten con la garantía solidaria del estado costarricense.
 b) Emisores de valores de deuda inscritos en el Registro Nacional de Valores e Intermediarios, cuando no tengan obligaciones relativas a este tipo de emisiones pendientes con el público.
 c) Empresas emisoras que se encuentren en proceso de administración por intervención judicial, así como otros fiscalizados que se encuentren intervenidos por la Superintendencia General de Valores (SUGEVAL) o la Superintendencia General de Entidades Financieras (SUGEF).
+d) Organismos internacionales con participación del Estado Costarricense autorizados para realizar oferta pública de valores.
+Las entidades del inciso d), una vez autorizadas deben realizar un comunicado de hecho relevante mediante el cual informen al público inversionista sobre el sitio web o lugar en donde pueden tener acceso a su información financiera.
+(Así reformado mediante acuerdo SGV-A-151 de 30 de diciembre de 2008)
