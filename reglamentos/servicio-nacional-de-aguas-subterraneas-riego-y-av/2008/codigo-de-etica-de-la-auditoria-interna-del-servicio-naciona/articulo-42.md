@@ -1,0 +1,1 @@
+Artículo 42.—El personal de auditoría debe proteger su independencia y evitar cualquier posible conflicto de intereses, rechazando regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia y su integridad, sin perjuicio del deber de denunciar antes las instancias competentes.

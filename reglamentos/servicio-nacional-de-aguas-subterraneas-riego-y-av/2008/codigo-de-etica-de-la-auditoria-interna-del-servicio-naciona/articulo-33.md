@@ -1,0 +1,1 @@
+Artículo 33.—Seguridad en sí mismo. El personal de auditoría debe creer en su propia capacidad para lograr de una manera eficaz y efectiva las tareas asignadas, actuando acorde a las propias decisiones, opiniones y valores y con una clara conciencia del deber cumplido, el esfuerzo empleado y de la rectitud de la intención para hacer o realizar su función.

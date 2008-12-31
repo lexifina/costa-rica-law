@@ -1,0 +1,1 @@
+Artículo 43.—El personal de auditoría no deberá utilizar su cargo oficial con propósitos privados y deberá evitar relaciones que impliquen un riesgo de corrupción o que puedan generar dudas acerca de su objetividad e independencia.

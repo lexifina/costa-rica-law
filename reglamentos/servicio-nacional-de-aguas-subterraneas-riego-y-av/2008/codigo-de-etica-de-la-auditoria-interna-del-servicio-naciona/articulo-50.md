@@ -1,0 +1,1 @@
+Artículo 50.—La revelación sobre las auditorías o estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno, está absolutamente prohibida para el personal de auditoría.

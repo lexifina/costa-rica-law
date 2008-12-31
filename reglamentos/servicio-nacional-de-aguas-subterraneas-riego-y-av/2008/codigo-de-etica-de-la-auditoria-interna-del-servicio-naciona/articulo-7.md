@@ -1,0 +1,1 @@
+Artículo 7º—Integridad. El personal de auditoría debe ajustarse tanto a la forma como al espíritu de las normas de auditoría y de ética, tomar decisiones acordes con el interés público, alejarse de actos que busquen beneficios en lo personal, familiar o para amigos y aplicar un criterio de honradez absoluta en la realización de su trabajo y el empleo de los recursos.

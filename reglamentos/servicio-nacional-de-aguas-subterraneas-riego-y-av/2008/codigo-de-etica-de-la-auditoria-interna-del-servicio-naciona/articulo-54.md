@@ -1,0 +1,1 @@
+Artículo 54.—Las conductas de acoso y hostigamiento de cualquier tipo, tanto a lo interno de la Unidad de Auditoría como con personas externas a esta unidad están prohibidas para el personal de auditoría.

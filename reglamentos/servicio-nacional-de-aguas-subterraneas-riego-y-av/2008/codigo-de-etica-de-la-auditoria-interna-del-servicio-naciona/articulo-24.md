@@ -1,0 +1,1 @@
+Artículo 24.—Mejora personal continua. El personal de la auditoría debe buscar por sí mismo la autoestima, reconociendo su valor como seres humanos y procurando la superación personal y profesional que le permitan incrementar sus conocimientos, experiencia y solidez moral, así como mantener su competencia profesional.

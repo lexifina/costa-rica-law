@@ -1,0 +1,1 @@
+Artículo 12.—Honradez. El personal de auditoría debe declarar públicamente cualquier interés privado relacionado con sus deberes públicos y tomar las medidas necesarias para resolver cualquier conflicto de interés en una forma adecuada para proteger el interés público.
