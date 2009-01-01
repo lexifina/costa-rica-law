@@ -1,0 +1,6 @@
+Artículo 9º—Solicitantes con requisito de desempeño. COMEX distribuirá y asignará el volumen total anual del contingente de importación entre los solicitantes que hayan participado en la compra de cosecha nacional en el año arrocero inmediato anterior a la convocatoria, conforme con la información suministrada por CONARROZ. Si el volumen total solicitado por los solicitantes es menor o igual al 100%, COMEX asignará a cada solicitante el volumen solicitado. Si el volumen total solicitado es mayor al disponible se utilizará la siguiente fórmula para determinar el porcentaje del volumen que le será asignado a cada uno de estos solicitantes:
+[imagen]
+Donde:
+Ci: es el porcentaje del volumen total del contingente de importación asignado al solicitante i.
+xi: volumen total de compras de arroz en granza de producción nacional hecho por la agroindustria arrocera i, en el período arrocero inmediato anterior y que haya sido autorizado para tal efecto por CONARROZ, según sus registros históricos; y
+xj: suma del volumen del total de compras de arroz en granza de producción nacional hecho por todas las agroindustrias en el período arrocero inmediato anterior y que hayan sido autorizadas por parte de CONARROZ, según sus registros históricos.
