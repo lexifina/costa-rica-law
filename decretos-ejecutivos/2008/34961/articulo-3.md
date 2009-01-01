@@ -1,0 +1,1 @@
+Artículo 3º—Los profesionales contratados o de cada entidad autorizada que realicen los estudios a las personas adultas mayores deberán aplicar los instrumentos diseñados por el Consejo Nacional de la Persona Adulta Mayor (CONAPAM).

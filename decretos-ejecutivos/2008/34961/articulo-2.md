@@ -1,0 +1,1 @@
+Artículo 2º—Cada entidad autorizada será responsable de contratar los profesionales que realizarán los estudios a las Personas Adultas Mayores Solas que solicitan el Bono de Vivienda, así como hacer las debidas coordinaciones con el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) para la emisión de la respectiva calificación.

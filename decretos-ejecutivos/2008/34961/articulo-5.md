@@ -1,0 +1,1 @@
+Artículo 5º—En lo que competa al BANVHI, por medio de la Dirección FOSUVI (Fondo de Subsidio para la Vivienda) y las entidades autorizadas del Sistema Financiero Nacional para la Vivienda se deberá apoyar la implementación inmediata del presente Decreto.
