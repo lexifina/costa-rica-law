@@ -1,0 +1,5 @@
+Artículo 3º—Adiciónese al Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos, Decreto Ejecutivo N° 28466-S del 8 de febrero de 2000, publicado en el Diario Oficial La Gaceta N° 42 del 29 de febrero de 2000, un Capítulo después del artículo 47 y córrase la numeración de los artículos y capítulos siguientes, cuyo texto será:
+“CAPÍTULO IX
+De la importación paralela y las licencias obligatorias
+Artículo 48.—El Ministerio de Salud permitirá la importación paralela de productos farmacéuticos patentados con el propósito de mejorar la accesibilidad. El producto farmacéutico importado bajo esta modalidad debe ser el mismo en cuanto a procedencia, fórmula cualicuantitativa, laboratorio fabricante, presentación, material de empaque primario y etiquetado del producto farmacéutico ya registrado en el Ministerio.
+Artículo 49.- El Ministerio de Salud podrá implementar licencias obligatorias, con fines de salud pública, según lo establecido en el artículo 20 de la Ley de Patentes de Invención, Dibujos, Modelos Industriales y Modelos de Utilidad, Ley N° 6867 del 25 de abril de 1983.”

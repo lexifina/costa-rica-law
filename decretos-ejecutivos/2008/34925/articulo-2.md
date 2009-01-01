@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el artículo 28 del Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos, Decreto Ejecutivo N° 28466-S del 8 de febrero de 2000, publicado en el Diario Oficial La Gaceta N° 42 del 29 de febrero de 2000.
