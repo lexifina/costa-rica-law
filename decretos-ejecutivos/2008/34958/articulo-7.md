@@ -1,0 +1,4 @@
+Artículo 7º—Cumplimiento sobreviniente de los requisitos de acceso. El solicitante deberá comunicar y comprobar a la Oficina Técnica el cumplimiento de los requisitos de acceso prescritos en la resolución de la Oficina Técnica, para lo cual deberá aportar los documentos necesarios que acrediten el cumplimiento.
+La Oficina Técnica recibirá la información y verificará el cumplimiento por parte del solicitante. Una vez verificado el cumplimiento, se suspenderá el cobro de las multas correspondientes.
+En caso que se hayan realizado cobros posteriores a la fecha de cumplimiento por parte del solicitante, la Oficina Técnica deberá emitir una resolución ordenando el reembolso de dichos cobros.
+Todo lo anterior se entiende sin prejuicio de los dispuesto en el artículo 112 de la Ley de Biodiversidad, el cual será aplicable en los casos no cubiertos por el presente Reglamento.
