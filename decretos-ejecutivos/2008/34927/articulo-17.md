@@ -1,0 +1,1 @@
+Artículo 17.—Otras disposiciones aplicables. La Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994, será aplicable sin perjuicio de la protección a la información no divulgada establecida en este Reglamento.

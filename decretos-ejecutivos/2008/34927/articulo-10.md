@@ -1,0 +1,4 @@
+Artículo 10.—Deber de confidencialidad en las relaciones laborales.
+1. El trabajador que tenga acceso a un secreto empresarial deberá guardar confidencialidad sobre la información transmitida, aun después de extinguida la relación laboral.
+2. El trabajador no podrá comunicar a terceros ni utilizar por sí mismo los secretos empresariales a los que hubiera tenido acceso durante su relación laboral.
+3. En caso de que por actos del trabajador el secreto empresarial sea accesible al público sin la debida autorización y sin perjuicio de la responsabilidad contractual pertinente, el titular legítimo del secreto empresarial podrá beneficiarse del plazo de gracia para el registro de una eventual patente previsto en el artículo 2.3 de la Ley de Patentes de Invención, Dibujos y Modelos Industriales y Modelos de Utilidad, Ley Nº 6867 del 25 de abril de 1983.
