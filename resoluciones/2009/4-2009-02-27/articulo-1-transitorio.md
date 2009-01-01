@@ -1,0 +1,1 @@
+Transitorio I.—Los contribuyentes o declarantes que hubieren adquirido activos nuevos, durante el año 2009, antes de la publicación de la presente resolución, podrán acogerse a la misma siempre que cumplan con los requisitos aquí señalados.

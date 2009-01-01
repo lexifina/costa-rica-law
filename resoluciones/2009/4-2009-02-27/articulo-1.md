@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº DGT-04-2009.—San José, a las ocho horas del veintisiete de febrero de dos mil nueve.
+Considerando:
+1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 de 3 de mayo de 1971 y sus reformas, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+2º—Que en virtud de la crisis económica que experimenta la economía internacional, el Gobierno de la República ha desarrollado el “Plan Escudo”, cuya finalidad es implementar una serie de medidas, ante la crisis mundial que está afectando al país en el presente año.
+3º—Que en este marco, el Gobierno está realizando esfuerzos para dar prioridad a la protección de los recursos productivos, introduciendo medidas urgentes de regulación para seguir impulsando la producción.
+4º—Que la depreciación acelerada es una respuesta positiva al débil nivel de crecimiento económico y a la necesidad de fortalecerlo a través del aumento de la inversión privada, ya que permite a las empresas una mayor deducción por concepto de depreciación, constituyendo así un instrumento para incentivar las inversiones y fortalecer el desarrollo económico de nuestro país.
+5º—Que de conformidad con el artículo 8 inciso f) de la Ley del Impuesto sobre la Renta, la Administración Tributaria, a solicitud del contribuyente, está facultada para aceptar métodos especiales de depreciación técnicamente aceptables, en aquellos casos en que se justifique debidamente; asimismo, vía resolución general, está facultada para autorizar con carácter general, métodos de depreciación acelerada.
+6º—Que los contribuyentes, en virtud de la referida crisis económica que les afecta, mediante sus organismos representativos, han demandado soluciones ante el Gobierno de la República, quien ha resuelto tomar acciones preventivas para fortalecer el crecimiento económico de la inversión privada.
+7º—Que la aplicación del método de depreciación acelerada que se emite en la presente resolución es optativo y de ningún modo varía los años de vida útil de los activos, enlistados en el Anexo Nº 2 del Reglamento de la Ley del Impuesto sobre la Renta. Por tanto:
+RESUELVE:
+Artículo 1º—Se autoriza a todos los contribuyentes o declarantes, sin que medie solicitud ante la Administración Tributaria, para que puedan utilizar un método de depreciación acelerada, sobre todos los bienes tangibles nuevos productores de rentas gravadas.

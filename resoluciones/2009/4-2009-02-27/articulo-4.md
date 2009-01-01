@@ -1,0 +1,1 @@
+Artículo 4º—No obstante que la aplicación de la presente resolución es optativa para los contribuyentes o declarantes, una vez que se acojan a la misma deberán ser consistentes en su tratamiento hasta agotar el saldo del activo.
