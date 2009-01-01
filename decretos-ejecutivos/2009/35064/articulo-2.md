@@ -1,0 +1,1 @@
+Artículo 2º—Es responsabilidad de la Cuenta Especial del Servicio Nacional de Salud Animal del Ministerio de Agricultura y Ganadería, el cumplimiento del Decreto Ejecutivo Nº 32452-H, publicado a La Gaceta Nº 130 de 6 de julio del 2005 y sus reformas, así como lo dispuesto en el artículo 6 de la Ley Nº 8131 y sus reformas, publicada a La Gaceta Nº 198 de 16 de octubre del 2001.
