@@ -1,0 +1,2 @@
+Artículo 2º—Autoridad competente. El Ministerio de Comercio Exterior o su sucesor (en adelante “COMEX”) será el órgano responsable de distribuir, asignar y administrar los contingentes de importación de conformidad con las disposiciones de este Reglamento.
+Únicamente se otorgará la preferencia arancelaria que otorga la cuota, a aquellos importadores que cuenten con volumen de contingente de importación asignado, de conformidad con los artículos 5 y 13 de este Reglamento.
