@@ -1,0 +1,1 @@
+Artículo 43.—Está prohibido a los servidores tomar adelantados días o períodos de vacaciones; pero podrán, con permiso patronal, disfrutar de días proporcionales al tiempo laborado a razón de un día por cada mes trabajado.

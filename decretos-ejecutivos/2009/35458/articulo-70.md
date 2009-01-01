@@ -1,0 +1,1 @@
+Artículo 70.—Son causas de sanción: La violación a los motivos de abstención o de prohibición contenidos en la Ley de la Contratación Administrativa (Nº 7494 del 2 de mayo de 1995 y sus reformas), en su Reglamento y en otras leyes aplicables, así como los contenidos en este Estatuto.

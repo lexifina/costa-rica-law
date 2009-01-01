@@ -1,0 +1,1 @@
+Artículo 41.—El lapso de incapacidad por enfermedad o riesgo de trabajo, y los casos de licencias por maternidad, no se tomarán en cuenta para deducirlo del período de vacaciones que le corresponde a los servidores.

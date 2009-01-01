@@ -1,0 +1,1 @@
+Artículo 21.—El (la) Viceministro(a) podrá modificar transitoriamente los horarios de trabajo y de descanso establecidos en este Estatuto, siempre que circunstancias especiales así lo justifiquen. El cambio deberá ser comunicado a los funcionarios oportunamente.

@@ -1,0 +1,2 @@
+Artículo 78.—La reincidencia para efectos de aplicar las sanciones se computará en un período de tres meses contada a partir del mes en que se le impuso una sanción por la misma causa. En este caso, el servidor responsable se hará acreedor de la sanción inmediata superior, respecto de la que se le había impuesto.
+Las sanciones por una misma causa que se presenten en un mismo mes calendario serán acumulativas.

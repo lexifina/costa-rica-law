@@ -1,0 +1,1 @@
+Artículo 22.—El trabajo remunerado por realizar fuera de la jornada ordinaria solo podrá ser autorizado por el (la) Viceministro(a) o por el funcionario en el que expresa y formalmente se delegue tal facultad. Toda autorización para ejecutar labores extraordinarias remuneradas deberá obedecer a situaciones excepcionales.

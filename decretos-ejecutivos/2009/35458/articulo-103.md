@@ -1,0 +1,1 @@
+Artículo 103.—De conformidad con el artículo 288 del Código de Trabajo se establecerá la Comisión de Salud Ocupacional, constituida por representantes designados por el Viceministerio y otros por el personal, cuyos fines sean investigar las causas de los riesgos profesionales y proponer medidas al Viceministro(a) con el fin de prevenirlos y vigilar que las mismas se cumplan.

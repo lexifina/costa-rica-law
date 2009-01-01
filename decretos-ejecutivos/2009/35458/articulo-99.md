@@ -1,0 +1,1 @@
+Artículo 99.—En el plazo irrevocable de tres días hábiles siguientes a la presentación de la denuncia, el (la) Viceministro(a), procederá a integrar el Órgano Director, que tendrá bajo su responsabilidad el procedimiento ordinario administrativo.

@@ -1,0 +1,7 @@
+Artículo 68.—Se cumplirá el trámite común para resolver, bajo el siguiente procedimiento:
+a) El superior u órgano llamado a resolver la excusa o la recusación evacuará la prueba ofrecida que resulte pertinente y podrá recabar los informes y ordenar las otras pruebas que considere oportunas dentro del plazo máximo de tres días.
+b) Toda resolución en la que se decida sobre la abstención solicitada por el propio funcionario o por alguna de las partes deberá ser dictada por los funcionarios competentes dentro del tercer día luego de recibida la prueba correspondiente.
+c) Las resoluciones en las que se admita o rechace cualquier abstención (excusa o recusación), tendrá los recursos de revocatoria ante el mismo órgano o funcionario que la dictó y de apelación ante el superior jerárquico. Dichos recursos deberán presentarse por escrito dentro del tercer día contado a partir de la fecha de la notificación respectiva.
+d) Firme la resolución en la que se declare sin lugar cualquier abstención se ordenará que el funcionario continúe conociendo del caso.
+e) Si la abstención fuere declarada procedente, en la misma resolución se dispondrá la sustitución del funcionario inhibido, quien deberá cumplir con todos los requisitos exigidos al recusado.
+f) Tratándose de órganos colegiados, si la abstención se declarara con lugar, conocerá del asunto el mismo órgano, integrado con suplentes designados ad-hoc por el órgano de nombramiento.

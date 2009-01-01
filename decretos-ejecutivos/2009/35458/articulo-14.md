@@ -1,0 +1,1 @@
+Artículo 14.—De la remuneración total deben hacerse las deducciones obligadas por la ley y cualesquiera otras permitidas por esta y autorizadas por el funcionario, según la disponibilidad del sistema de pagos vigente en la Institución.

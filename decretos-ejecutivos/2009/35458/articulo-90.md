@@ -1,0 +1,1 @@
+Artículo 90.—El (la) Viceministro(a) decidirá la integración del órgano director del procedimiento cuando éste sea ordinario. En los demás casos, el procedimiento será sumario y será llevado a cabo por el Director respectivo.

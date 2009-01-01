@@ -1,0 +1,1 @@
+Artículo 100.—El procedimiento ordinario administrativo se sustanciará de conformidad con lo preceptuado en el capítulo XIV de este Estatuto, y supletoriamente con lo dispuesto en la Ley General de la Administración Pública.

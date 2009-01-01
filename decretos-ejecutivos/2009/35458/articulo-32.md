@@ -1,0 +1,1 @@
+Artículo 32.—Se considera llegada tardía la presentación al sitio de trabajo donde el servidor desempeña sus funciones, después de cinco minutos de la hora señalada para el comienzo de las labores por la mañana, o el tomar más tiempo del máximo estipulado para descanso a la hora del almuerzo, lo cual se tipifica como abandono de labores.

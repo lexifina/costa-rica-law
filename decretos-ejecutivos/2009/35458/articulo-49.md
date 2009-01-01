@@ -1,0 +1,1 @@
+Artículo 49.—El (la) Viceministro(a) en situaciones especiales, previo informe del superior respectivo, podrá conceder licencias sin goce de salario por plazos diferentes a los indicados y sin sujeción a la antigüedad prevista en el artículo precedente.

@@ -1,0 +1,1 @@
+Artículo 24.—No se reconocerá como jornada extraordinaria y consecuentemente no será retribuida aquella que no hubiere sido autorizada por el respectivo Director conforme al artículo precedente, ni el tiempo que ocupe el servidor para subsanar sus propios errores.

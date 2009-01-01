@@ -1,0 +1,1 @@
+Artículo 27.—Los servidores que no estuvieren obligados a registrar su asistencia y puntualidad deben respetar los horarios establecidos. El superior jerárquico de cada dependencia será responsable de imponer al personal bajo su cargo, las sanciones que correspondan según este Estatuto a aquellos servidores que en tal condición estuvieren incurriendo en faltas en esta materia.

@@ -1,0 +1,1 @@
+Artículo 73.—Las amonestaciones verbales y escritas que surjan como producto del control de asistencia y puntualidad serán aplicadas por el Director del respectivo servidor, previo seguimiento del debido proceso.

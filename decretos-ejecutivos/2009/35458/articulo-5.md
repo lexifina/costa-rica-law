@@ -1,0 +1,1 @@
+Artículo 5º—La responsabilidad por la gestión del recurso humano es en primera instancia del nivel gerencial en estricto orden jerárquico. El (la) Viceministro(a) resolverá en instancia administrativa final.

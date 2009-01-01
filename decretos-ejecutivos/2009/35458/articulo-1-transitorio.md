@@ -1,0 +1,4 @@
+CAPÍTULO XIX
+Disposiciones transitorias
+Transitorio I.—Los funcionarios que de acuerdo con el inciso d) del artículo 8º que sean designados por primera vez a partir de la vigencia de este Estatuto para ocupar los cargos de Directores serán nombrados mediante concurso público a plazo fijo por un período que vencerá el 30 abril de 2011.
+En cuanto a los primeros nombramientos de Gerentes y Jefes, por única vez serán excepcionalmente efectuados por el (la) Viceministro(a), mediante un proceso simplificado, respetando siempre que cumpla con la condición de idoneidad el respectivo candidato, lo anterior dada la urgencia del Viceministerio por contar con el personal que atenderá funciones durante los primeros tiempos de su funcionamiento, nombramiento que regirá por un período que vencerá el 30 de abril de 2012.

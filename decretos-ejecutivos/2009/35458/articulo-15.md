@@ -1,0 +1,1 @@
+Artículo 15.—El pago de gastos de alimentación, viaje y transporte, cuando proceda, se cancelará de conformidad con el Reglamento de Gastos de Viaje y de Transporte para los Funcionarios Públicos, emitido por la Contraloría General de la República. Estos pagos no se consideran parte del salario y estarán sujetos a autorización previa y justificación documental posterior.

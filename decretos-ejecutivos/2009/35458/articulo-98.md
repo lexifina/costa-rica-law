@@ -1,0 +1,1 @@
+Artículo 98.—La persona ofendida podrá poner en consideración del Viceministro(a) su reubicación temporal en cualquier momento del proceso. El (la) Viceministro(a) resolverá en única instancia la procedencia de la reubicación temporal solicitada.
