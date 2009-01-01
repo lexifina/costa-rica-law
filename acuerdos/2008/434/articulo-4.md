@@ -1,0 +1,1 @@
+Artículo 4º—Las inspecciones por descarga de tiburón a las embarcaciones pertenecientes a la Flota Pequeña Escala y Mediana Escala, se regirán por lo dispuesto en el Acuerdo Nº A.J.D.I.P./601-2005 del 09 de diciembre del 2005.
