@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Ingenieros Agrónomos
 
-Ley N° 7221 del 1991-04-06. SINALEVI, ficha 4232: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4232&param2=70256&param3=1>.
+Ley N° 7221 del 1991-04-06. SINALEVI, ficha 4232: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4232&param2=75069&param3=1>.
 
 Publicada en La Gaceta N° 76 del 1991-04-23.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1991-04-23 | SINALEVI | 1991-04-06 |
 | 3 de 5 | 2002-02-11 | Ley 8188 | 2001-12-18 |
 | 4 de 5 | 2007-12-03 | Ley 8625 | 2007-11-07 |
+| 5 de 5 | 2009-01-02 | Ley 8677 | 2008-11-18 |
