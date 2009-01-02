@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE SAN CARLOS
+El Concejo Municipal de San Carlos, mediante artículo 14, inciso 18, del acta Nº 41 celebrada el 30 de junio del 2008, acordó la modificación al artículo 45 del Reglamento de Contrataciones de la Municipalidad de San Carlos para que en adelante se lea de la siguiente manera:
+Artículo 45.—Adendas a los Contratos. El Departamento de Proveeduría, deberá someter a la aprobación del Concejo Municipal, todas las adendas a las ampliaciones de los contratos de previo a su ejecución.
+Una vez aprobados estas modificaciones, y antes de proceder con su ejecución, la Proveeduría Municipal, deberá solicitar el Refrendo Interno de la Dirección de Asuntos Jurídicos de la Municipalidad o el Refrendo Externo de la Contraloría General de la República, según corresponda, conforme al Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
+Para proceder con una ampliación de un contrato, se deberá cumplir con los supuestos mencionados en los artículos 200 y 201 del Reglamento a la Ley de Contratación Administrativa.
