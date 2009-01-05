@@ -1,0 +1,1 @@
+Artículo 3º—No se podrá importar, exportar, fabricar, formular, almacenar, distribuir, transportar, re empacar, re envasar, anunciar, manipular, mezclar, vender ni empacar Cianamida de Calcio, para uso agrícola si no está registrado conforme a la Ley Nº 7664 y sus Reglamentos.

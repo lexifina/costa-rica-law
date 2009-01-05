@@ -1,0 +1,1 @@
+Artículo 2º—Toda persona física o jurídica que pretenda registrar, importar, exportar, re empacar y re envasar Cianamida de Calcio, para uso agrícola, deberá inscribirse en el registro que lleva el Servicio Fitosanitario del Estado, del Ministerio de Agricultura y Ganadería.
