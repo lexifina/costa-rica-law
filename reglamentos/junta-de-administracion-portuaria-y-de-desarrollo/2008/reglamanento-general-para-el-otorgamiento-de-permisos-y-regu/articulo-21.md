@@ -1,0 +1,1 @@
+Artículo 21.—Análisis de la solicitud: Una vez que el Depto de Servicios Generales reciba la documentación completa, elabore el expediente foliado y emita la respectiva recomendación, lo trasladará al Departamento Legal para ser dictaminada por esa instancia. Posteriormente se trasladará a la Comisión para su dictamen final.

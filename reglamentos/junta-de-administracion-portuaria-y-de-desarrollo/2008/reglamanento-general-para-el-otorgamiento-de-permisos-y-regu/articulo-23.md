@@ -1,0 +1,1 @@
+Artículo 23.—Resolución de la comisión: La Comisión, mediante resolución motivada, otorgará o negará el respectivo permiso, verificando que se cumpla con los requisitos y disposiciones establecidas en este reglamento y de conformidad con los criterios emitidos por el Depto Legal.

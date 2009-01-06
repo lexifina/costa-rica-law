@@ -1,0 +1,1 @@
+Artículo 24.—Recursos: La denegación motivada de un permiso para la prestación de un servicio por parte de un solicitante tendrá el recurso de revocatoria presentado ante La Comisión y como última instancia el recurso de apelación en subsidio ante la Junta Directiva de Japdeva.
