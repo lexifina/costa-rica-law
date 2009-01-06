@@ -13,9 +13,10 @@ PUNTO 4. | Limpieza de materiales (basura, escombros, etc.) de los predios. | 1 
 PUNTO 5. | Por construir las aceras frente a sus propiedades y darles mantenimiento. | 1 | m² | 7.000,00 | 7.000,00
 PUNTO 6 | Por remover y trasladar objetos (basura, escombros, etc.) que contaminen el ambiente obstaculizando el paso peatonal o vehicular. | 1 | m3 | 4.000,00 | 4.000,00
 *** Los valores consignados en la presente tabla obedecen a los costos dados por la Unidad de Obras Civiles de este Municipio y presupuestos elaborados por este Departamento. Actividad por unidad de construcción del Colegio de Ingenieros y además los valores indicados en el “Manual de Valores Base Unitarios por tipología constructiva” publicado en La Gaceta por el Ministerio de Hacienda el 16 de diciembre del 2005.
-UTILIZACIÓN DE MANO DE OBRA Y EQUIPO
+(*) UTILIZACIÓN DE MANO DE OBRA Y EQUIPO
 | | | Precio | Monto a
 Maquinaria | Tiempo | Unidad | ¢ | cobrar ¢
-1. Limpieza con back hoe | 1 | hora | 1.500,00 | 1.500,00
-2. Transporte con vagoneta | 1 | hora | 1.500,00 | 1.500,00
-| | | |
+1. Limpieza con back hoe | 1 | hora | 20.000,00 | 20.000,00
+2. Transporte con vagoneta | 1 | hora | 25.500,00 | 25.500,00
+3. Transporte con pick up | 1 | hora | 10.000,00 | 10.000,00
+(*) (Así reformado mediante acuerdo N° VI-1 tomado en sesión N° 141 del 6 de enero de 2009)

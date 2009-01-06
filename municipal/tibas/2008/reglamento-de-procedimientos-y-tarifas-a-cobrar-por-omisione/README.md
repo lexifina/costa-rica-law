@@ -14,3 +14,4 @@ Reglamento de procedimientos y tarifas a cobrar por omisiones de los deberes de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-23 | la propia norma |
+| 2 | 2009-01-06 | Reglamento municipal 141 (2009-01-06) |
