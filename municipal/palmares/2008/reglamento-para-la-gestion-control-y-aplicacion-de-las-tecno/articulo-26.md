@@ -1,0 +1,6 @@
+Artículo 26.—Procedimiento para la compra de hardware y software. Para toda solicitud de compra de hardware y software se procederá de la siguiente manera:
+a) Las Jefaturas de la Municipalidad formularán la solicitud al Departamento de Informática, con la justificación detallada de la necesidad de desarrollo y el uso que tendrá el equipo.
+b) El Departamento de Proveeduría le solicitará formalmente al Departamento de Informática, el estudio técnico de factibilidad, y la elaboración de las especificaciones de los equipos que se ajustan a los requerimientos planteados.
+c) Una vez rendido el Informe por parte del Departamento Informática y de resultar procedente, el Departamento de Proveeduría gestionará la compra del equipo mediante los procedimientos establecidos en materia de Contratación Administrativa.
+d) El nuevo hardware o software que adquiera la institución será revisado por el Departamento de Informática, Éste debe encontrarse en óptimas condiciones de funcionamiento y debe cumplir con las estipulaciones exigidas por la Municipalidad, según lo solicitado.
+e) El funcionario del Departamento de Informática que reciba el material deberá indicarle por escrito al Departamento de Proveeduría, que los bienes adquiridos cumplen con las exigencias solicitadas.

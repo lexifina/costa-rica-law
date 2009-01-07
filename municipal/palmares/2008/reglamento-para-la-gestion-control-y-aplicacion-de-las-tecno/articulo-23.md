@@ -1,0 +1,2 @@
+Artículo 23.—Políticas de capacitación del personal. Como parte del enfoque de eficiencia y mejoramiento continuo en TI, la Administración dotará de apoyo presupuestario suficiente para capacitación técnica especializada para el personal del Departamento de Informática.
+Asimismo, dicha departamento se encargará de elaborar planes de acción tendientes a informar y capacitar a los demás funcionarios municipales, en aquellas áreas que a su criterio, contribuyan a un mejor aprovechamiento y utilización de los recursos tecnológicos.
