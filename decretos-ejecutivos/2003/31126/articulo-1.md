@@ -25,10 +25,10 @@ h) Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32819 del 22 de noviembre de 2005)
 i. Nancy Zamora Cervantes, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
-j) Fiorella Donato Calderón, representante del Consejo Nacional de Rectores.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 32803 del 4 de noviembre de 2005)
+j) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil nueve).
 k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre del dos mil ocho).
 (NOTA DE SINALEVI: mediante el artículo 1° del Decreto Ejecutivo N° 34769 de 8 de setiembre de dos mil ocho se nombra como miembro propietario de esta Comisión, representante de la Federación Costarricense para la Conservación del Ambiente al señor Eduardo Aguilar Espinoza).
+(NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil ocho, se nombra como miembro de esta Comisión, representante del Consejo Nacional de Rectores a la señora Fiorella Donato Calderón.)
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
