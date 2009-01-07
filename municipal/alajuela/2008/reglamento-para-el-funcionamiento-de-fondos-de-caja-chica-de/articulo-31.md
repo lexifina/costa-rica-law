@@ -1,0 +1,1 @@
+Artículo 31.—Derogatoria: El presente Reglamento deroga el “Reglamento para el funcionamiento del fondo de caja chica” aprobado por el Concejo Municipal en el artículo 9, capítulo IV, de la sesión ordinaria 17-20034 del 27 de abril de 2004, publicado en La Gaceta Nº 109 del 04 de junio del 2004 y cualquier disposición de la misma naturaleza que se le oponga.
