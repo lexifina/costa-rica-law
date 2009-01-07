@@ -1,0 +1,1 @@
+Artículo 11.—Se evaluará y revisará periódicamente, de manera oportuna y expedita los mecanismos y procedimientos empleados en la formulación y aprobación presupuestaria interna de las modificaciones presupuestarias con el propósito de establecer, mantener y perfeccionar el proceso, dejando evidencia de esto en el expediente respectivo.
