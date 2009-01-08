@@ -17,4 +17,5 @@ de precios del consumidor Factor Resultado ¢
 6º—Que el pago de las dietas está sujeto al presupuesto de cada institución y a la asistencia de las correspondientes sesiones. Por tanto,
 Decretan:
 Modifíquese el último párrafo del artículo 1º del Decreto Ejecutivo Nº 19750-G del 31 de mayo de 1990, para que en lo sucesivo se lea:
-Artículo 1º—(...) Se fija en calidad de dietas que devengarán los miembros del Consejo Nacional de Desarrollo de la Comunidad por cada sesión la suma de diecisiete mil trescientos noventa y nueve colones con nueve céntimos (¢17.399,09). De las sesiones celebradas por cada mes, únicamente se podrán remunerar hasta un máximo de ocho sean éstas, ordinarias o extraordinarias.
+Artículo 1°__(...) Se fija en calidad de dietas que devengarán los miembros del Consejo Nacional de Desarrollo de la Comunidad por cada sesión la suma de treinta y siete mil trescientos setenta y un colones con ochenta y siete céntimos (¢37.371,87) de las sesiones celebradas por mes, únicamente se podrán remunerar hasta un máximo de ocho, sean estas ordinarias o extraordinarias
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35267 del 08 de enero del 2009)

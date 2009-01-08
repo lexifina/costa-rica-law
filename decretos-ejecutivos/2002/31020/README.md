@@ -14,3 +14,4 @@ Reforma Pago de dietas a los miembros Integran el Consejo Nacional Desarrollo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-24 | la propia norma |
+| 2 | 2009-01-08 | Decreto Ejecutivo 35267 (2009-01-08) |
