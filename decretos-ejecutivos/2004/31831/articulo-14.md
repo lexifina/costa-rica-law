@@ -1,2 +1,0 @@
-Artículo 14.—Uso del teléfono celular en vacaciones o incapacidad. Se prohíbe el uso del teléfono celular propiedad del Ministerio, cuando el funcionario se encuentre en vacaciones o incapacitado y se superen los cinco días hábiles. En este caso, se depositará el aparato telefónico y accesorios en el Departamento de Control de Bienes y Servicios para su custodia temporal.
-Durante esos períodos, el MAG no reconocerá el pago a funcionarios que son dueños de la línea y el teléfono.

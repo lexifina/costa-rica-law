@@ -1,2 +1,0 @@
-Disposiciones generales
-Artículo 11.—Retiro del uso del teléfono celular o de la tarifa básica. El uso del teléfono celular propiedad del Ministerio y la asignación de la tarifa básica en los otros casos, no crea derechos, por lo tanto, el Ministerio puede retirar su asignación en cualquier momento, ya sea por la desaparición de la necesidad ministerial, incumplimiento de este Reglamento, limitaciones presupuestarias o cualquier otra razón que el Ministerio discrecionalmente determine.
