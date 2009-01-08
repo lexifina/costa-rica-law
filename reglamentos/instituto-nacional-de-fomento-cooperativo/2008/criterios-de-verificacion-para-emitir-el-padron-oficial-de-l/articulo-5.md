@@ -1,0 +1,1 @@
+Artículo 5º—Cooperativas Escolares y Juveniles. El INFOCOOP antes del 15 de enero del año en que corresponda la realización de las Asambleas Sectoriales del CONACOOP, solicitará al Ministerio de Educación Pública, el envío del padrón de las Cooperativas Escolares y Juveniles, con el fin de incorporarlas al padrón oficial.
