@@ -6,5 +6,7 @@ iii) Dirección de Calidad de Vida
 iv) Dirección de Control de Gestión Administrativa
 v) Dirección de Niñez y Adolescencia
 vi) Dirección de Asuntos Económicos
+vii) Dirección de Asuntos Laborales
+(Así adicionado el numeral anterior, por acuerdo N° 00001429 del 9 de enero del 2009)
 El Defensor (a) de los Habitantes tendrá amplia discrecionalidad para modificar mediante acuerdo dictado al efecto la organización de las Direcciones de Defensa.
 Cada Dirección de Defensa contará con un Director (a) y los (as) profesionales de defensa y demás personal de apoyo que requiera para cumplir eficientemente sus funciones.

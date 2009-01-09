@@ -19,6 +19,8 @@ iii) Dirección de calidad de vida.
 iv) Dirección de control de gestión administrativa.
 v) Dirección de niñez y adolescencia.
 vi) Dirección de asuntos económicos.
+vii) Dirección de Asuntos Laborales.
+(Así adicionado el numeral anterior por acuerdo N° 00001429 del 9 de enero del 2009)
 e) Dirección de promoción y divulgación de derechos.
 f) Dirección de oficinas regionales.
 g) Dirección de asuntos jurídicos.
