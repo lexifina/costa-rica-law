@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE VÁZQUEZ DE CORONADO
+Siguiendo con lo indicado por el Concejo Municipal, se transcribe acuerdo tomado en la sesión, ordinaria 135 del lunes 24 de noviembre del 2008, en la sala de sesiones de la Municipalidad de Vázquez de Coronado: Acuerdo 2008-135-023: Se acoge la propuesta de la Comisión de Seguridad y se aprueba el cambio en el transitorio único del Reglamento de la Policía Municipal para que se lea: Quedando de la siguiente manera: Alcalde Suplente, Director Administrativo, el Jefe o Subjefe de la Policía Municipal, Policía de Proximidad, Jefe o Subjefe, un Regidor, un Síndico y un representante de la Cámara de Comercio.
+Rige a partir de su publicación en el Diario oficial La Gaceta. Acuerdo: cuenta con siete votos afirmativos.
