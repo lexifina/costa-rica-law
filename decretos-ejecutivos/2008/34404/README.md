@@ -23,3 +23,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 8 | 2009-01-06 | Decreto Ejecutivo 35011 (2009-01-06) |
 | 9 | 2009-01-09 | Decreto Ejecutivo 35014 (2009-01-09) |
 | 10 | 2009-01-09 | Decreto Ejecutivo 35012 (2009-01-09) |
+| 11 | 2009-01-09 | Decreto Ejecutivo 35061 (2009-01-09) |
