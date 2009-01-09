@@ -58,16 +58,16 @@ Artículo 1º—Establecer las siguientes tarifas por concepto de bienes y servi
 35 | Embarcación de más de 20,0 metros de eslora | licencia | $ 850,00
 | LICENCIA PARA EMBARCACIÓN DEPORTIVA O TURÍSTICA, NACIONAL O EXTRANJERA, MARINA O CONTINENTAL (por año o por trámite) | |
 | INCLUYENDO LICENCIA Y CARNÉS PARA PESCA DEPORTIVA | |
-36 | Embarcación de menos de 10,0 metros de eslora | licencia | $ 600,00
-37 | Embarcación de 10,01 a 15,0 metros de eslora | licencia | $ 900,00
-38 | Embarcación de 15,01 a 20,0 metros de eslora | licencia | $ 1.300,00
-39 | Embarcación de más de 20,0 metros de eslora | licencia | $ 1.700,00
+36 | (Derogado por acuerdo AJDIP/009-2009 del 9 de enero de 2009) | |
+37 | (Derogado por acuerdo AJDIP/009-2009 del 9 de enero de 2009) | |
+38 | (Derogado por acuerdo AJDIP/009-2009 del 9 de enero de 2009) | |
+39 | (Derogado por acuerdo AJDIP/009-2009 del 9 de enero de 2009) | |
 | LICENCIA PARA EMBARCACIÓN NACIONAL DEDICADA A LA OBSERVACIÓN DE CETÁCEOS | |
 | (por año o por trámite) | |
 40 | Embarcación nacional dedicada a la observación de cetáceos | licencia | $ 250,00
 | LICENCIA PARA EMBARCACIÓN NACIONAL DEDICADA A LA OBSERVACIÓN DE CETÁCEOS (por año o por trámite) | |
 | INCLUYENDO LICENCIA Y CARNÉS PARA OBSERV. DE CETÁCEOS | |
-41 | Embarcación nacional dedicada a la observación de cetáceos | licencia | $ 500,00
+41 | (Derogado por acuerdo AJDIP/009-2009 del 9 de enero de 2009) | |
 | PERMISO PARA PESCA CIENTÍFICA, PESCA DIDÁCTICA, PESCA DE FOMENTO | |
 | (por año o por trámite) | |
 42 | Pesca Artesanal Pequeña Escala | permiso | ¢ 38.000,00

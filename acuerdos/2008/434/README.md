@@ -14,3 +14,4 @@ Establece las Tarifas por Concepto de Bienes y Servicios que brinda el Instituto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-01-09 | Acuerdo 9 (2009-01-09) |
