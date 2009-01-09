@@ -13,3 +13,4 @@ Levantamiento de Custodia Policial para Vigilancia de Personas internadas por cu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-07 | la propia norma |
+| 2 | 2009-01-09 | Circular 187 (2009-01-09) |
