@@ -1,1 +1,0 @@
-Transitorio 2º—La presente resolución no alcanza a las relaciones comerciales entre terceros y las entidades del Estado; hasta tanto éste último cuente con las condiciones tecnológicas que le posibiliten la emisión y recepción de facturas por medios electrónicos.
