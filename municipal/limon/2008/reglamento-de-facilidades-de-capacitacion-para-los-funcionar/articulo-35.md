@@ -1,0 +1,1 @@
+Artículo 35.—Reincorporación a las funciones. Finalizados los estudios, el funcionario deberá reintegrarse a sus labores de forma inmediata, lo cual deberá comunicar previamente a la Oficina de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 26.—Instrucción directa de la Municipalidad. En caso que la acción de capacitación se genere por expresa disposición del Concejo Municipal, éste remitirá la gestión a la Oficina de Recursos Humanos, la cual verificará que exista contenido económico, para luego tramitarla y ejecutarla sin mayor dilación.
