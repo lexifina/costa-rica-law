@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De los plazos
+Artículo 16.—Plazo para resolver. La Junta Directiva del Consejo de Transporte Público gozará de un plazo no mayor de treinta días hábiles para estudiar y resolver sobre las concesiones en el servicio público, trátese de la modalidad autobuses o taxis, puestos en conocimiento mediante el orden del día una vez rendidos los informes técnicos y jurídicos de rigor. En casos excepcionales y previo razonamiento que se consignará en el acta, podrá ampliarse en quince días hábiles dicho término, constituyendo este último un límite infranqueable.
+Los demás asuntos sometidos a su conocimiento mediante el orden del día, deberán resolverse en un plazo no mayor a quince días hábiles, pudiendo ampliarse por un período igual si la situación lo amerita, siempre que se motive dicha ampliación. Cuando se requiera de un análisis técnico y o jurídico adicional, el plazo indicado correrá a partir del ingreso al orden del día de los nuevos informes.
