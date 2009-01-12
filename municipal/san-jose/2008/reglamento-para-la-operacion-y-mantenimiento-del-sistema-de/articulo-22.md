@@ -1,0 +1,1 @@
+Artículo 22.—Proyecto de Auto evaluación. El DMO, preparará un “Plan e instructivo del Proceso de Auto evaluación” cada año, que presentará a la CICI para su aprobación e implementación. Este “Plan” deberá incorporar, el objetivo y el alcance previsto para el año en que se aplica, así como, el cuestionario diseñado para tal efecto.

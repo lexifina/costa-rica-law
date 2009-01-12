@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todos los funcionarios de la Municipalidad de San José, que ejecuten funciones decisorias, ejecutivas, resolutorias, directivas u operativas, como parte de la administración activa.
