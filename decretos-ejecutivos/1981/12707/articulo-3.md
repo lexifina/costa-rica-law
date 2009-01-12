@@ -1,2 +1,0 @@
-Artículo 3°—El Catastro Nacional exigirá un número de cuatro copias del plano que se presente para el trámite de inscripción.
-Una para el archivo, otra para la Tributación Directa y dos para el interesado. Cuando se presenten más de cuatro copias, cada copia adicional llevará además de los respectivos timbres de topografía, un timbre fiscal de un colón y un timbre del Registro Nacional de dos colones.

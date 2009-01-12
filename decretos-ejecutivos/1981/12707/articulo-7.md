@@ -1,1 +1,0 @@
-Articulo 7°—El presente reglamento modifica en su totalidad el acuerdo ejecutivo número 160 de 5 de mayo de 1960, así como las disposiciones del Decreto Ejecutivo N° 9682-J de 19 de marzo de 1979, que se le opongan.

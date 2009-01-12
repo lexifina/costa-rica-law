@@ -1,1 +1,0 @@
-Artículo 4°—Para actualizar el nombre del propietario y las citas de inscripción en el plano, conforme a la información del Registro Público de la Propiedad el cobro de este servicio será del 50% calculado sobre la tabla correspondiente.
