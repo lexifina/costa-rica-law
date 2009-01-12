@@ -14,3 +14,4 @@ Reglamento de Desarrollo y Control Urbano de la Municipalidad de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-18 | la propia norma |
+| 2 | 2009-01-12 | Reglamento municipal 37 (2009-01-12) |
