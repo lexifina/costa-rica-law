@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el párrafo segundo del artículo 114 del Decreto Ejecutivo Nº 34972-J, publicado en el Diario Oficial La Gaceta Nº 7 de 12 de enero del 2009, para que en lugar del plazo de “cinco días hábiles” se lea correctamente “quince días hábiles”.
