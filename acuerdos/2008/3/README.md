@@ -13,3 +13,4 @@ Salario base sobre el cual se definen las penas a aplicar por la comisión de di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2009-01-12 | Acuerdo 3 (2009-01-12) |
