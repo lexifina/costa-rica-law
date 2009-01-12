@@ -1,0 +1,1 @@
+Artículo 7º—Exclusiones: No pertenecerán al Régimen Artístico, ni podrán invocar la aplicación de sus normas, los servidores del Poder Ejecutivo que se beneficien de otro régimen o que, aún siendo artistas acreditados en el Registro, estén ocupando plazas que no estén relacionadas con los artículos 1, 2 y 4 de este Reglamento, ya sea en condición de propiedad o de interino.

@@ -1,0 +1,1 @@
+Artículo 15.—Aplicación y otorgamiento de la carrera artística: La Dirección General determinará el cuerpo de normas para la aplicación y otorgamiento de la carrera artística de la que habla el Título IV del Estatuto de Servicio Civil en su Capítulo III, para lo cual podrá requerir la colaboración del Ministerio de Cultura y Juventud, mediante la Comisión Artística.

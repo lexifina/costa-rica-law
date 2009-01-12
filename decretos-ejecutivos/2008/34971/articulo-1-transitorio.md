@@ -1,0 +1,2 @@
+TRANSITORIOS
+I.—Dentro de los seis meses posteriores a la entrada en vigencia del presente reglamento, se deberán llevar a cabo las acciones necesarias para la entrada en funcionamiento del Registro, la integración de la Comisión respectiva y la promulgación del Manual Descriptivo de Clases de Puestos Artísticos y su correspondiente índice salarial. En el caso del Manual y su índice salarial, el plazo podrá prorrogarse hasta por un año.

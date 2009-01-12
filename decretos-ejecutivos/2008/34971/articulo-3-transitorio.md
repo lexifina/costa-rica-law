@@ -1,0 +1,1 @@
+III.—Los servidores públicos que actualmente desempeñen actividades artísticas, ocuparán la clase de puesto resultante de la nueva clasificación establecida por el Manual Descriptivo de Clases Artísticas a que refiere el Capitulo VI del presente Reglamento.

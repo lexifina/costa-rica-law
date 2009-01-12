@@ -1,0 +1,1 @@
+Artículo 22.—Acuerdos y posibilidad de recursos: Todo acuerdo de la Comisión se tomará por mayoría simple, y tendrá los recursos ordinarios de revocatoria y apelación ante el Ministro o Ministra de Cultura y Juventud. Hasta que el acto emanado de la Comisión no se encuentre firme, no será remitido ante la Dirección General para su ratificación, conforme al presente reglamento.

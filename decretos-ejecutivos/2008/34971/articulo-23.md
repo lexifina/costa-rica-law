@@ -1,0 +1,1 @@
+Artículo 23.—Aplicación Supletoria de Normas: En todo lo que no contemple este Reglamento la Comisión estará sujeta a lo dispuesto por la Ley General de la Administración Pública para el funcionamiento de los Órganos Colegiados.

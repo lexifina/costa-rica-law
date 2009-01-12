@@ -1,0 +1,1 @@
+Artículo 14.—Beneficiarios: Podrán acogerse a los beneficios de la carrera artística aquellos servidores pertenecientes al Régimen Artístico, que no estén disfrutando de otro sistema de beneficios e incentivos económicos vigentes en el Sector Público, salvo que la ley así lo permita.

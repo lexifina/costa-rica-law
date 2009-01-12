@@ -1,0 +1,1 @@
+Artículo 27.—Normativa supletoria: Las situaciones no previstas en el presente Reglamento, relativas a derechos y deberes de los servidores amparados por el presente Régimen, serán resueltos de conformidad con lo que dispone el Estatuto de Servicio Civil, su Reglamento y la normativa vigente sobre Carrera Profesional.

@@ -1,0 +1,1 @@
+Artículo 11.—Imputación de créditos: Los créditos asignados dentro de una disciplina artística no pueden ser considerados para otra disciplina. En caso de tratarse de obras combinadas, el solicitante optará por la disciplina en la cual desea que se le asignen los créditos.

@@ -1,0 +1,29 @@
+Artículo 3º—Glosario de Términos: Para los efectos de la aplicación del Régimen Artístico, se entiende por:
+1. “Comisión”: la Comisión Artística.
+2. “Créditos”: criterio de valoración, en una escala numérica para efectos de reconocer los “grados artísticos.
+3. “Dirección Artística”: la actividad que involucra el planeamiento, organización, coordinación, supervisión y evaluación de la presentación al público de una obra artística o de la actividad que generan los programas, centros o grupos artísticos de las instituciones del Poder Ejecutivo.
+4. “Dirección General”: La Dirección General de Servicio Civil.
+5. “Estatuto”: el Estatuto del Servicio Civil (Ley Nº 1581 de 30 de mayo de 1953 y sus reformas).
+6. “Grado artístico”: el nivel de desarrollo como artista en que se ubica el servidor y que se obtiene por medio de un creditaje asignado.
+7. “Instrucción Artística:”: la actividad llevada a cabo por servidores artísticos que esté directamente relacionada con la formación de futuros artistas en cualquiera de las disciplinas.
+8. “Ley”: la Ley Nº 8555 de Integración del Régimen Artístico al Estatuto del Servicio Civil, que adicionó un Titulo IV a dicho Estatuto.
+9. “Ministerio”: el Ministerio de Cultura y Juventud.
+10. “Obra artística”: toda aquella obra coreográfica, teatral, de ejecución o de composición musical, plástica, audiovisual, literaria, dramaturgia, guión audiovisual, guión de radio teatro, así como la obra combinada que a juicio de la Comisión, sea de interés artístico- cultural.
+11. “Obra audiovisual”: aquella expresión creativa que como mensaje de cualquier índole se plasma en un soporte cinematográfico, videográfico, o digital, realizada con rigor en cuanto a las técnicas de filmación, en cualquiera de sus formatos y géneros.
+12. “Obra combinada”: aquella expresión creativa que integre dos o más expresiones artísticas, de manera tal que no pueda ser ubicada con precisión en un solo género, pero que tenga los mismos requisitos y exigencias que este artículo establece para el tipo de obras que combina.
+13. “Obra coreográfica”: aquella expresión creativa ejecutada por bailarines profesionales en un espacio escénico, por medio de figuras y semejanzas creadas y ordenadas mediante conceptualización de uno o varios coreógrafos, y que se presenta ante un público.
+14. “Obra de composición musical”, aquella expresión creativa de carácter escrito en donde se plasman de manera que coincidan los compases de todas las partes vocales o instrumentales de una composición musical, susceptible de ser ejecutada por músicos o cantantes en un recital, función, ópera, espectáculo lírico, o concierto, y que pueda gozar de amparo legal en cuanto a su autoría intelectual.
+15. “Obra de ejecución musical”: aquella expresión creativa de una composición musical presentada al público como recital, función, ópera, espectáculo lírico, o concierto, con obras completas o fragmentos, en espacios habilitados para ese efecto, o bien grabada en cualquier formato de audio, video o digital.
+16. “Obra dramatúrgica”: aquella expresión creativa plasmada en un texto escrito susceptible de ser puesta en escena como obra teatral, concebida por uno o varios autores, o mediante un proceso de creación colectiva, que pueda gozar de amparo legal en cuanto a su autoría intelectual,
+17. “Obra Guión audiovisual o de radioteatro”: aquella expresión creativa plasmada en un texto escrito susceptible de ser realizado como obra audiovisual o de radioteatro, y que pueda gozar de amparo legal en cuanto a su autoría intelectual, y que a juicio de la Comisión, evidencie poseer cualidades básicas en cuanto al manejo de la teoría y técnica de la escritura de guiones audiovisuales o radiofónicos, en cualquiera de sus géneros.
+18. “Obra literaria”: aquella expresión creativa plasmada en un texto escrito, con fines de expresión e interpretación cultural y dimensión estética, de un sujeto individual o en forma colectiva, en cualquiera de sus géneros, y que pueda gozar de amparo legal en cuanto a su autoría intelectual.
+19. “Obra plástica”: aquella expresión creativa tangible, que se sirve de la manipulación factual y conceptual de materiales de orden plástico-visual, o virtual y que es capaz de situar un discurso sobre elementos diversos mediante códigos relacionados con los diversos campos sensoriales y corporales.
+20. “Obra teatral”: aquella expresión creativa puesta en escena de una obra dramatúrgica de cualquier género o estilo.
+21. “Producción Artística”: la actividad llevada a cabo por servidores artísticos tendiente a resolver todas las necesidades derivadas de la presentación al público de una obra artística y a conjuntar todos los elementos necesarios, humanos, financieros y materiales, para que pueda ser realizada y presentada.
+22. “Promoción artística”: la actividad llevada a cabo por servidores artísticos tendientes a facilitar procesos y experiencias artísticas en comunidades, sectores de población, o grupos de individuos.
+23. “Puntaje de la carrera artística”: valoración y ponderación de los factores que se utilizarán para efectos de incentivos económicos por carrera artística, conforme al artículo 218 de la Ley.
+24. “Puntaje de los grados artísticos”: se entenderá única y exclusivamente referido a los “créditos” que se asignan a los servidores artísticos por cada manifestación, logro o actividad, y de cuya sumatoria depende su correspondiente ”Grado Artístico”.
+25. “Régimen Artístico”: comprende a los servidores del Gobierno Central que desempeñen labores vinculadas a las artes escénicas, audiovisuales, literarias, musicales, plásticas, así como sus combinaciones, nombrados de conformidad con lo establecido por el Estatuto de Servicio Civil y sus reglamentos.
+26. “Registro”: el Registro Artístico.
+27. “Reglamento”: el Reglamento del Estatuto de Servicio Civil.
+28. “Servidor”: el Servidor artístico.
