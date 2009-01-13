@@ -14,3 +14,4 @@ Reglamento de Cementerio de la Municipalidad de Puriscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-05 | la propia norma |
+| 2 | 2009-01-13 | Reglamento municipal 245 (2009-01-13) |
