@@ -21,3 +21,4 @@ PROGRAMASPRESUPUESTARIOS ADMINISTRACION SUPERIOR ADMINISTRACION DE RECURSOS HUMA
 6. Informar costarricense estrategias Cuentas a los Poderes de la República, a la ciudadanía y a la comunidad internacional, sobre los planes y de desarrollo adoptadas por el Gobierno (Rendición de cuentas).
 7. optimizar el soporte técnico y administrativo de las instituciones públicas mediante la implementación del Gobierno Digital en servicios clave.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 34995 del 13 de enero de 2009)
