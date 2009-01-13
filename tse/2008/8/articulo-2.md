@@ -1,0 +1,1 @@
+Artículo 2º—Constitución. El Cuerpo de Delegados estará integrado por ciudadanos que serán nombrados discrecionalmente por el Tribunal Supremo de Elecciones, pudiendo representarle por delegación ante los diferentes actores que participan en los procesos electorales o consultivos con ocasión de las facultades que normativamente le corresponden.
