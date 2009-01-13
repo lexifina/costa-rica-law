@@ -14,3 +14,4 @@ Establece el precio mínimo de salida de la Caja de Banano de Exportación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-22 | la propia norma |
+| 2 | 2009-01-13 | Decreto Ejecutivo 35008 (2009-01-13) |
