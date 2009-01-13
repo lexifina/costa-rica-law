@@ -22,3 +22,4 @@ Reglamento de Evaluación de los Aprendizajes
 | 7 | 2007-01-24 | Decreto Ejecutivo 33546 (2007-01-24) |
 | 8 | 2008-03-13 | Decreto Ejecutivo 34449 (2008-03-13) |
 | 9 | 2008-11-14 | Decreto Ejecutivo 34886 (2008-11-14) |
+| 10 | 2009-01-13 | Decreto Ejecutivo 35055 (2009-01-13) |
