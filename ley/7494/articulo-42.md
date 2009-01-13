@@ -12,4 +12,6 @@ j) La posibilidad de subsanar los defectos de las ofertas en el plazo que indiqu
 k) La motivación del acto de adjudicación, el cual deberá ser dictado de conformidad con lo previsto en el artículo 42 bis de esta Ley.
 l) La posibilidad de recurrir el acto de adjudicación, en los términos señalados en esta Ley.
 m) La obligación de readjudicar o declarar desierto el concurso cuando, por la interposición de recursos, se anule el acto de adjudicación; todo de conformidad con lo previsto en el artículo 42 bis de esta Ley.
+n) La posibilidad de mejorar, dentro del concurso, los precios de las empresas elegibles. La aplicación de esta figura deberá darse dentro de un marco de transparencia e igualdad, según los mecanismos de aplicación objetiva que se regulen en cada cartel. El precio por considerar en el sistema de calificación, será el último que los respectivos oferentes propongan y, para acceder a esta posibilidad, no deben convertir sus precios en ruinosos o no remunerativos. La rebaja de precio, por su naturaleza, es aplicable a todo procedimiento concursal.
+(Así adicionado el inciso anterior por el artículo 2° aparte a) de la ley N° 8701 del 13 de enero de 2009)
 (Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
