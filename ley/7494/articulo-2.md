@@ -9,8 +9,8 @@ d) La actividad de contratación que, por su naturaleza o las circunstancias con
 e) Las compras realizadas con fondos de caja chica, según se dispondrá reglamentariamente, siempre y cuando no excedan de los límites económicos fijados conforme al inciso anterior.
 f) Las contrataciones que se realicen para la construcción, la instalación o la provisión de oficinas o servicios en el exterior.
 g) Las actividades que resulten excluidas, de acuerdo con la ley o los instrumentos internacionales vigentes en Costa Rica.
-h) La actividad que, por su escasa cuantía, no convenga que sea sometida a los procedimientos ordinarios de concurso, de conformidad con los límites establecidos en el artículo 27 de esta Ley. En estos casos, la administración cursará invitación por lo menos a tres potenciales proveedores idóneos, si existen y adjudicará a la oferta de menor precio, sin perjuicio de que se valoren otros factores que se estimen relevantes, lo cual deberá definirse en la invitación. La administración únicamente considerará las ofertas de proveedores a los que haya cursado invitación.
-(Así reformado el inciso anterior mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
+h) La actividad que, por su escasa cuantía, no convenga que sea sometida a los procedimientos ordinarios de concurso, de conformidad con los límites establecidos en el artículo 27 de esta Ley. En estos casos, la administración cursará invitación por lo menos a tres potenciales proveedores idóneos, si existen, y adjudicará a la oferta de menor precio, sin perjuicio de que se valoren otros factores que se estimen relevantes, lo cual deberá definirse en la invitación. La administración estudiará todas las ofertas que se presenten al concurso, independientemente de si provienen de empresas que fueron invitadas o no.
+(Así reformado el inciso anterior por el artículo 1° aparte a) de la ley N° 8701 del 13 de enero de 2009)
 Quedan fuera del alcance de la presente ley las siguientes actividades:
 1.-Las relaciones de empleo.
 2.- Los empréstitos públicos.
