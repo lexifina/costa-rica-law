@@ -1,0 +1,1 @@
+Artículo 6º—Con el propósito de apoyar las actividades en pro de la recuperación y manejo adecuado de los recursos naturales de la cuenca, las instituciones del Estado destinarán los recursos logísticos y humanos en la medida de sus posibilidades, para apoyar el funcionamiento de la Secretaría Ejecutiva de la Comisión PROTÉRRABA.

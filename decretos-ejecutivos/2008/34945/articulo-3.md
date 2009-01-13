@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión PROTÉRRABA nombrará de su seno una Secretaría Ejecutiva, la cual tendrá como función principal llevar las actas y dar seguimiento a los acuerdos tomados conjuntamente con el coordinador de este órgano, así como las demás funciones que se le asignen en el reglamento. Esta Secretaría estará adscrita al Ministerio de Ambiente, Energía y Telecomunicaciones.

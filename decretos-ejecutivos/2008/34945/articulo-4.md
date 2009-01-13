@@ -1,0 +1,2 @@
+Artículo 4º—El objetivo fundamental de la Comisión será:
+Promover un desarrollo integral y sustentable en la cuenca del río Grande de Térraba, mediante la planificación y ejecución de proyectos, programas y acciones en apego a la conservación, protección y aprovechamiento responsable de los recursos naturales, en un marco de participación de los distintos sectores involucrados, de manera que se mejore la calidad de vida de sus habitantes.
