@@ -21,3 +21,4 @@ Fija Precio Mínimo Exportación Banano Fruta Primera Calidad FOB
 | 6 | 2007-07-13 | Decreto Ejecutivo 33970 (2007-07-13) |
 | 7 | 2007-12-06 | Decreto Ejecutivo 34203 (2007-12-06) |
 | 8 | 2008-08-05 | Decreto Ejecutivo 34692 (2008-08-05) |
+| 9 | 2009-01-13 | Decreto Ejecutivo 35008 (2009-01-13) |
