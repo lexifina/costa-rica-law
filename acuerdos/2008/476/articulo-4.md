@@ -1,0 +1,5 @@
+Artículo 4º—Establézcase una zona de prohibición para la pesca y almacenamiento de carnada viva en viveros, según la siguiente demarcación y características:
+a. En el Golfo Dulce a partir de una línea imaginaria comprendida entre Cabo Matapalo y Punta Banco, y de esta línea aguas adentro hasta el final del Golfo Dulce (hacia Rincón de Osa), a embarcaciones que no cuenten con los respectivos permisos de pesca vigentes.
+b. En el Golfo de Nicoya partir de una línea imaginaria comprendida entre Punta Peñón e Isla Negritos, y de esta línea aguas adentro, a aquellas embarcaciones que no cuenten con los respectivos permisos de pesca vigentes.
+c. En el Golfo de Papagayo a partir de una línea imaginaria comprendida entre Cabo Velas a Punta Blanca, y de esta línea aguas adentro, a aquellas embarcaciones que no cuenten con los respectivos permisos de pesca vigentes.
+Toda embarcación que ejerza la pesca dirigida al pez vela, dentro de la zona de exclusión señalada en este artículo que infrinja la prohibición señalada en el artículo 4, se le aplicara lo estableció en la ley ochenta y cuatro treinta y seis ley de Pesca y Acuicultura con respeto al debido proceso.

@@ -1,0 +1,1 @@
+Artículo 7º—A las embarcaciones de pesca turística-deportiva se les prohíbe colocar sobre la borda los ejemplares capturados para efectos fotográficos y el uso de bicheros o ganchos para arrimar los ejemplares de picudos capturados.

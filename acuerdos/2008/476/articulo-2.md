@@ -1,0 +1,1 @@
+Artículo 2º—El presente acuerdo es una disposición o regulación de naturaleza técnica de acatamiento obligatorio según lo establecido en las notas técnicas generales impresas en el anverso de la licencia de pesca. Las infracciones o inobservancias a este acuerdo se sancionarán de conformidad con lo establecido en la Ley de Pesca y Acuicultura.

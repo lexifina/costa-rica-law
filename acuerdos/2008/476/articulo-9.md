@@ -1,0 +1,1 @@
+Artículo 9º—Para los efectos de la aplicación de lo dispuesto en el artículo 7, se considera pesca incidental, aquella en la cual los ejemplares de Pez Vela son capturados utilizando palangre sin mediar el uso de carnada viva, siempre que, no correspondan a más del 15% de la captura total de la embarcación por cada viaje de pesca comercial no turística realizado.
