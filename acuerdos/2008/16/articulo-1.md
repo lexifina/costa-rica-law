@@ -95,7 +95,8 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2008/2009
 22. Encargados de Unidad del Organismo de Investigación Judicial.
 23. Juez; en las oficinas unipersonales, cuando no sea posible asignar las funciones del despacho a otro de igual jurisdicción territorial. (Según modificación aprobada por el Consejo Superior, en sesión Nº 90-2006, celebrada el 28 de noviembre de 2006, artículo II).
 24. En los despachos que tienen más de un juez, se podrán realizar, pero sólo cuando la oficina requiera su presencia para la celebración de votaciones y debates colegiados. Así como para la realización de audiencias señaladas cuando estas no puedan ser realizadas por otros jueces del despacho. (Según modificación aprobada por el Consejo Superior, en sesión Nº 90-2006, celebrada el 28 de noviembre de 2006, artículo II).
-25. Todos los puestos de los Juzgados; Fiscalía y Defensa Pública de Turno Extraordinario.
+25. Todos los puestos de los Juzgados; Fiscalía y Defensa Pública de Turno Extraordinario y Flagrancia
+(Así reformado mediante sesión N° 94-08 del 9 de diciembre de 2008, y publicado en El Boletín Judicial N° 22 del 2 de febrero de 2009, mediante Circular 04-09 del 14 de enero de 2009)
 26. Técnico Criminalístico 2 de las Delegaciones Regionales del Organismo de Investigación Judicial, que cuenten con una sola plaza de esta clase.
 27. Los administradores de bases de datos destacados en los diversos circuitos judiciales.
 28. Puestos de la Sección de Administración Salarial.
