@@ -1,0 +1,5 @@
+CAPÍTULO III
+Ubicación
+Artículo 11.—Ubicación y estructura. La Auditoría Interna en la estructura organizativa se ubica como un órgano asesor de muy alto nivel dentro de la estructura organizacional de la Municipalidad de Tarrazú, dependiente orgánicamente del jerarca institucional.
+La Auditoría Interna se organizará y funcionará conforme lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno, según lo disponga el auditor interno, considerando los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnico-jurídicas y las sanas prácticas correspondientes. Es responsabilidad del auditor interno disponer para su unidad de una estructura organizativa concordante con la razón de ser y la normativa que regula a la Municipalidad de Tarrazú.
+La Auditoría Interna de la Municipalidad de Tarrazú, se encuentra conformada únicamente por el Auditor Interno, razón por la cual, su estructura organizativa estaría en función de una auditoría unipersonal, incluyendo todos los aspectos administrativos y los procesos de auditoría en la figura del auditor interno.
