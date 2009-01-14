@@ -13,3 +13,4 @@ Obligación de cumplir las directrices establecidas por la Dirección de General
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-08 | la propia norma |
+| 2 | 2009-01-14 | Circular 188 (2009-01-14) |
