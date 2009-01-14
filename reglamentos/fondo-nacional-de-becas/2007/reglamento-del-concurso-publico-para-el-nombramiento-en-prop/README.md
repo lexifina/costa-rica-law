@@ -14,3 +14,4 @@ Reglamento del Concurso Público para el Nombramiento en Propiedad del Auditor I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-12 | la propia norma |
+| 2 | 2009-01-14 | Reglamento 0 (2009-01-14) |
