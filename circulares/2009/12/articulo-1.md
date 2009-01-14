@@ -1,0 +1,19 @@
+San José, 14 de enero de 2009
+CIR-DGT-12-2009
+Señores
+Agentes de Aduana, Exportadores,
+Transportistas Aduaneros
+Gerentes de Aduana, Directores,
+Funcionarios Aduaneros
+Servicio Nacional de Aduanas
+Asunto: Confirmación y rectificación de DUAS.
+Estimados señores:
+Como es de su conocimiento, este Ministerio implementó desde julio del año en curso, el nuevo sistema de exportación TICA, que dentro de sus potencialidades permite realizar las operaciones las 24 horas de los 7 días de la semana, eliminación de papeles, acceso vía Internet, software desarrollado y proporcionado por PROCOMER a los exportadores, incentivo a los exportadores para declarar por sí mismos, eliminación de formularios para la declaración, sustitución de la figura de la “declaración provisional” por “datos provisionales”, y cobros de impuestos vía SIMPE.
+A la fecha, el sistema se ha implementado satisfactoriamente en su orden, en las aduanas de Caldera, Peñas Blancas, Paso Canoas y esta semana en la Aduana Central. De esta manera, ahora los exportadores y los agentes aduaneros cuentan con la posibilidad de realizar las declaraciones desde la meseta central, permitiendo a los transportistas llegar a la frontera con todos los trámites listos, constituyéndose la Aduana de frontera en una “mera aduana de paso”. Para apoyar este proyecto, en la aduana de Peñas Blancas se estableció una ventanilla única en la aguja sur con el apoyo de la Dirección General de Migración, permitiendo al usuario finiquitar sus trámites sin necesidad de abandonar el vehículo que transporta las mercancías, con el efecto positivo en los tiempos y costos.
+Paralelamente, se introdujeron cambios significativos en las vías de acceso y salida en la zona primaria de la Aduana de Peñas, sus resultados positivos fueron señalados por el periódico “La Nación” el día lunes 8 de diciembre de 2008.
+Es claro, entonces, la contribución que el Estado ha venido realizando para el fomento del comercio exterior, y de manera especial a las exportaciones en el área centroamericana.
+No obstante, los procedimientos establecidos y negociados para tal fin previeron la necesidad de que los exportadores, por medio de sus agentes aduaneros, garantizaran la efectiva salida de las mercancías declaradas, ello a través de un mensaje final transmitido al TICA denominado “mensaje de confirmación”. Este requisito no lo han cumplido a cabalidad todos los agentes aduaneros, generando que a la fecha un grupo importante de DUAS presentados en las aduanas de Caldera, Peñas Blancas y Paso Canoas permanezcan pendientes de confirmación, con las repercusiones negativas en las estadísticas que al efecto lleva PROCOMER y el Banco Central. Lo anterior, pese a las diferentes excitativas planteadas a los agentes aduaneros.
+Por otro lado, en materia de calidad de la información declarada, la Dirección General de Aduanas cuenta con indicios que suponen la declaración de valores FOB superiores a los reales, aspecto que evidentemente genera otra forma de distorsión a las estadísticas.
+Conscientes de nuestra responsabilidad con el país de garantizar estadísticas oportunas y correctas, reiteramos nuestra invitación a los agentes aduaneros para que al 20 de febrero de 2009 se garantice y verifique que todos los DUAS de exportación se encuentren debidamente confirmados y que los datos declarados correspondan a los reales. En caso de dudas, deberá contactarse a la aduana correspondiente, o de proceder, deberá solicitarse la rectificación correspondiente, en los términos del artículo 90 de la Ley General de Aduanas
+A partir del 20 de febrero de 2009, corresponde a la aduana de control iniciar los procedimientos administrativos sancionatorios que correspondan por incumplimientos de la normativa vigente, con las responsabilidades inherentes.
+Rige a partir de esta fecha. Publíquese en el Diario Oficial.
