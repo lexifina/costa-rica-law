@@ -1,1 +1,2 @@
-Artículo 20.—En un plazo de cinco días de recibida la solicitud de incorporación y verificados los requisitos se deberá comunicar cualquier defecto o incumplimiento, dando un término de tres días para su subsanación, de lo contrario se tendrá desestimada la solicitud.
+Artículo 20.— La Proveeduría tendrá a su cargo la confección y aplicación de un formulario de inscripción de proveedores para el respectivo registro, el cual contendrá la información pertinente para su adecuado control y actualización.
+(Así reformado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

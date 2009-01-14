@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Procedimientos para recepción, solicitud y custodia de Garantías
-Artículo 28.—El PIMA de acuerdo a la complejidad del objeto del negocio y la necesidad de respaldar los daños que pueda causar el incumplimiento del oferente o contratista podrá exigir garantía de participación y cumplimiento según corresponda, con la legislación.
+Artículo 28.—Cuando las circunstancias de mercado como la exclusividad, o la unicidad generen inopia en campos estratégicos para la Administración, o bien se trate de concurso de invitación al público, se admitirá la oferta de empresas invitadas que no estén inscritas en el registro, siempre y cuando aporten la información legal correspondiente y procedan a su correspondiente inscripción.
+(Así adicionado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

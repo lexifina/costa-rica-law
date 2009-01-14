@@ -1,1 +1,4 @@
-Artículo 19.—Los interesados en inscribirse en el Registro de Proveedores deberán llenar y entregar en el proceso de Proveeduría el R05GPV-2006 “Formulario para la inscripción en el Registro de Proveedores”, dicho formulario puede ser retirado sin costo alguno por los interesados directamente en las oficina de Proveeduría de PIMA.
+Artículo 19.—La información del Registro estará compuesta por los datos que aporten los proveedores, dicha información será de uso restringido pero de libre acceso para los procesos de contratación y auditoría de PIMA.
+En este registro se deben anotar las sanciones e inhabilitaciones de los proveedores, para efectos de futuras contrataciones, divulgando apropiadamente dicha información a quien corresponda. Este registro deberá detallar el nombre de los proveedores con los cuales la Administración no podrá contratar bienes y servicios en el plazo de la inhabilitación.
+No se entregará la base de datos completa a ninguna empresa privada, pero el PIMA no obstante lo anterior, podrá celebrar acuerdos de intercambio de información con otras entidades de sector público.
+(Así reformado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

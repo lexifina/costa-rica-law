@@ -14,3 +14,4 @@ Reglamento de Compras del Programa Integral de mercadeo Agropecuario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-19 | la propia norma |
+| 2 | 2009-01-14 | Reglamento 0 (2009-01-14) |

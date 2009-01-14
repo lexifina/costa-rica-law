@@ -1,5 +1,3 @@
-Artículo 23.—Además de lo expuesto en la Ley de Contratación Administrativa y su reglamento será motivo de exclusión del Registro de Proveedores las siguientes causales:
-a. Muerte o extinción.
-b. Manifestación expresa del interesado.
-c. Carencia de interés de la Administración de continuar contratando determinado bien o servicio.
-d. No actualización de la información según el artículo 19 del presente reglamento.
+Artículo 23.—Para la inscripción en el Registro de Proveedores el interesado, también deberá aportar una descripción detallada de los bienes y/o servicios que ofrece. Además el interesado deberá demostrar la afinidad de su giro comercial con el bien o servicio que pretende ofrecer, a través de la aportación de evidencia documental.
+La Administración no asumirá ninguna responsabilidad por la exactitud o veracidad de la información que le sea suministrada, de frente al propio solicitante o terceros, ni con respecto al uso de patentes, marcas, derechos de uso y distribución de bienes o servicios, de modo que se asume que el solicitante cuenta con los requisitos legales en el país o en el extranjero para inscribirse en las categorías correspondientes. Así mismo se reservará el derecho de verificar la calidad de la información suministrada por el oferente, así como constatar los servicios ofrecidos, y aplicar las sanciones procedentes.
+(Así reformado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

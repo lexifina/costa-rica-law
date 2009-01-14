@@ -14,7 +14,19 @@ Fraccionamiento Ilícito: Es la fragmentación de la adquisición de bienes y se
 Oferente: Toda persona física o jurídica que somete una propuesta al PIMA dentro del procedimiento de contratación, en apego a los términos establecidos en el cartel y legislación correspondiente con el objeto de una adjudicación.
 Programa Anual de Compras: Es el plan mediante el cual las unidades estratégicas, proponen las adquisiciones requeridas para cada año.
 Reajuste de Precios: Mecanismo por el cual se mantienen las condiciones o nivel económico pactado originalmente, ajustando a los contratistas según las variaciones que ocurran en la economía y que afecten los costos que conforman los precios del contrato.
-Registro de Proveedores: Sistema de información que constituye el instrumento en el que se inscriben los potenciales proveedores, ya sean personas físicas o jurídicas, el cual se utiliza como herramienta para cumplir con lo que dispone la Ley de Contratación Administrativa.
+Registro de Proveedores: Es un instrumento de consulta obligatoria, en el que se inscribirán las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa que lleve a cabo la el Programa Integral de Mercadeo Agropecuario, en delante denominado PIMA; de manera que se encuentren debidamente acreditados y evaluados en forma integral en cuanto a su historial, sanciones, capacidad técnica, financiera, jurídica y cualquier otra condición que resulte indispensable para una adecuada selección del contratista de cara a la satisfacción del interés público.
+(Así reformada la definición anterior y publicado en La Gaceta N° 9 del 14 de enero de 2009)
+Proveedor Activo: Es aquel cuya inscripción en el registro de proveedores no tiene más de dos años y cuyos datos se mantienen actualizados.
+(Así adicionada la definición anterior y publicado en La Gaceta N° 9 del 14 de enero de 2009)
+Proveedor Inactivo: Es aquel que:
+a. Su inscripción en el registro de proveedores es superior a dos años y no haya sido renovada.
+b. Habiendo sido invitado a participar en procedimientos de contratación administrativa, no lo hiciere en tres ocasiones sin mediar justa causa.
+c. Se negase a actualizar la información del Registro cuando la Administración así lo haya requerido.
+d. Obtenga en la evaluación de desempeño una calificación inferior a 7 en tres ocasiones, dentro de un plazo de un año.
+e. Aquel que haya manifestado y justificado por voluntad propia el ser calificado como inactivo.
+(Así adicionada la definición anterior y publicado en La Gaceta N° 9 del 14 de enero de 2009)
+Proveedor Inhabilitado: Proveedor sancionado por cualquiera de las causales establecidas en el Artículo 100 de la Ley de Contratación Administrativa.
+(Así adicionada la definición anterior y publicado en La Gaceta N° 9 del 14 de enero de 2009)
 Rescisión Contractual: Acción de dejar sin efecto un contrato anticipadamente por acuerdo de ambas partes.
 Resolución Contractual: Acción de la Administración que consiste en ponerle fin a un contrato en forma unilateral, por incumplimiento imputable al contratista o bien cuando exista un interés público que lo amerite.
 Producto: Es el resultado de un proceso. Existen cuatro categorías genéricas de productos: Servicios, Software, Hardware, Materiales Procesados.

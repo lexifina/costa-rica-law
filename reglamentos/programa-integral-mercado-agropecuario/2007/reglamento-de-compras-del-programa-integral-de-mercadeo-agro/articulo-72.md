@@ -1,0 +1,6 @@
+Artículo 72.—Para el trámite de pago de facturas por concepto de reajuste de precios, el supervisor del contrato debe enviar a la Proveeduría los siguientes documentos:
+A. Nota de solicitud de pago suscrita por el contratista y con el visto bueno de el Director correspondiente y dirigida a la Proceso de Proveeduría, solicitando el trámite de pago correspondiente e indicando el número de estimación de reajuste y el número de estimación que se está reajustando, el nombre de la contratación, el número y monto de la factura, número de orden de compra.
+B. Cuadro donde se indique para cada renglón de pago, el monto total facturado o trabajo ejecutado, el índice de reajuste inicial y final para cada componente porcentual, el porcentaje de reajuste y el monto de reajuste. Si los índices de reajuste de precios son compuestos, debe detallarse la composición de los mismos.
+C. Facturas originales del contratista debidamente revisadas por el supervisor de la contratación y firmadas por este, indicando la fecha en la que fueron recibidas para trámite.
+D. Copia de los boletines o documentación que respalde los índices de precios utilizados en el cálculo del reajuste de precios.
+(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 62 al 72 actual).

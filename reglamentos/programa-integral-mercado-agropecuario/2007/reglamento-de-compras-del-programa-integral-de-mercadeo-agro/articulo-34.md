@@ -1,3 +1,4 @@
-CAPÍTULO VII
-De las materias de contratación extraordinaria
-Artículo 34.—Cuando se trate de contrataciones establecidas en el artículo 136 del Reglamento a la Ley de Contratación Administrativa debe contar con un cartel el cual debe ser lacónico y los términos de referencia deben ser concretos y concisos, de acuerdo con la naturaleza de este tipo de contratación.
+CAPÍTULO V
+Etapa inicial de contratación
+Artículo 34.—Las diferentes dependencias del PIMA, darán inicio al proceso de compra o adquisición de recursos mediante la confección de una Solicitud de Recursos en el sistema del SIFPIMA, el sistema informático no autorizará sistemáticamente la solicitud que no cuente con el presupuesto correspondiente.
+(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 24 al 34 actual).

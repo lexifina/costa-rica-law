@@ -1,3 +1,3 @@
-CAPÍTULO VIII
-Licitaciones
-Artículo 39.—Es el medio idóneo para que el PIMA adquiera los recursos que demanda para su normal operación. Acorde con la normativa vigente y según el monto del concurso, las licitaciones se clasifican según un rango económico en Pública y Abreviada. Las licitaciones inician con la aprobación de la solicitud de materiales por parte del proceso de presupuesto, legal y la contraprestación técnica.
+Artículo 39.—La definición del monto o del porcentaje de cualquier tipo de garantía será competencia del Gerente General, o del Consejo Directivo del PIMA según sea el procedimiento de contratación a aplicar.
+En todos los casos en que se exija una garantía el monto o porcentaje de esta se deberá indicar en el requerimiento o invitación de la contratación.
+(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 29 al 39 actual).

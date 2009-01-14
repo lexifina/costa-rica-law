@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Caja chica de la Proveeduría
-Artículo 51.—Únicamente los funcionarios de proveeduría podrán realizar compras por esta caja chica.
+Artículo 51.—Este tipo de contratación requiere la confección de un cartel de licitación en el cual se incorporan todos los requisitos y pormenores del concurso, este cartel deberá ser aprobado por la Consejo Directivo de PIMA o la Gerencia General según el caso, y se aplicará en su confección los principios y normas establecidos por la Ley de Contratación Administrativa para los procesos ordinarios. El proceso de Proveeduría será el departamento responsable de la confección de dicho documento que constituye el pliego de condiciones que regula cada negocio.
+(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 41 al 51 actual).

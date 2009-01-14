@@ -1,2 +1,4 @@
-Artículo 29.—La definición del monto o del porcentaje de cualquier tipo de garantía será competencia del Gerente General, o del Consejo Directivo del PIMA según sea el procedimiento de contratación a aplicar.
-En todos los casos en que se exija una garantía el monto o porcentaje de esta se deberá indicar en el requerimiento o invitación de la contratación.
+Artículo 29.—La inscripción en el Registro, tendrá una vigencia de veinticuatro meses. Serán los mismos proveedores quienes deben velar porque su inscripción se mantenga vigente. Si el Proveedor manifiesta su interés de mantenerse en el Registro e indica que la información registrada se encuentra actualizada, automáticamente se le tendrá como proveedor activo por un período igual, en caso contrario será excluido del registro.
+La proveeduría emitirá un listado de proveedores inactivos que dará a conocer mediante su página Web y que actualizará trimestralmente.
+La consecuencia de ser considerado como inactivo, para un proveedor, es que la Administración no lo tomará en cuenta en el rol respectivo de invitaciones, mientras dure tal condición.
+(Así adicionado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

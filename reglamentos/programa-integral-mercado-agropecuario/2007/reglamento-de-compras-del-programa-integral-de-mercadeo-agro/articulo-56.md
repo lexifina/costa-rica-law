@@ -1,1 +1,2 @@
-Artículo 56.—El monto máximo para las compras de Caja Chica será determinado por el Consejo Directivo del PIMA de conformidad con lo establecido en el decreto ejecutivo Nº 7863-A del 20 de diciembre de 1977 y sus reformas.
+Artículo 56.—Previo a la formulación de la una licitación abreviada o pública, el proceso solicitante deberá elaborar un estudio de mercado que tiene como objetivo suministrar información más clara sobre el precio y las características del recurso a adquirir.
+(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 46 al 56 actual).
