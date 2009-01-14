@@ -1,0 +1,1 @@
+Artículo 14.—Recursos. Los actos que emanen del decomiso de mercadería, suspensión y cancelación de patentes contra lo resuelto por la oficina de Patentes, procederán los recursos de revocatoria y apelación ante el Intendente y el Concejo Municipal.

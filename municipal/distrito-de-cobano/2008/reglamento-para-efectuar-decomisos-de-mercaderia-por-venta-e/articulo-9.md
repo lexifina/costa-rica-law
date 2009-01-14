@@ -1,0 +1,1 @@
+Artículo 9º—Suspensión de la licencia. En el caso de contar con licencia para la actividad ambulante o estacionaria y ser reincidente en la venta en sitios públicos no autorizados o venta de otro producto no permitido; la licencia será suspendida temporalmente, en la segunda reincidencia y en forma definitiva al tercer decomiso.
