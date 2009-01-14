@@ -1,0 +1,3 @@
+Artículo 16.—Los documentos serán transferidos de acuerdo con los siguientes plazos:
+a) Archivos de Gestión: Los documentos permanecerán en las oficinas administrativas productoras durante un promedio de cinco años, de acuerdo con lo establecido en las tablas de plazos de conservación.
+b) Archivo Central: Una vez cumplida la etapa anterior, los documentos con valor administrativo y legal pasarán a los Archivos Centrales de cada entidad, en donde permanecerán alrededor de 15 años. Posteriormente serán transferidos a la Dirección General del Archivo Nacional, aquellos que tengan valor científico –cultural, previa determinación de la Comisión Nacional de Selección y Eliminación de Documentos.
