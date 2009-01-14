@@ -1,0 +1,1 @@
+Artículo 8º—Acta. Las sesiones realizadas por la Junta Administrativa del Fondo serán registradas por medio del acta correspondiente, la cual deberá ser sometida para su aprobación en la sesión inmediata posterior.

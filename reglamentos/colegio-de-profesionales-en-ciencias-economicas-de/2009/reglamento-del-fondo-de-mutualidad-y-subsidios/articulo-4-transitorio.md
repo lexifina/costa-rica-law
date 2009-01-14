@@ -1,0 +1,2 @@
+4º—Dentro del término de dos meses a partir de la publicación de la aprobación de esta reforma, la actual Junta Administrativa del Fondo deberá solicitar a cada uno de los miembros actuales del fondo, que indiquen si desean inscribirse y pertenecer al fondo bajo las nuevas regulaciones. Una vez definida la lista de colegiados inscritos en el Fondo, la misma Junta Administrativa deberá convocar a la primera Asamblea de mutualista dentro de los siguientes quince días naturales.
+San José, 6 de enero del 2009.—

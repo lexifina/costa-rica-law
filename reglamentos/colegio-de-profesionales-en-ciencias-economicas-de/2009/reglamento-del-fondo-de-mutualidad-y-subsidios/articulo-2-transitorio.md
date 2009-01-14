@@ -1,0 +1,1 @@
+2º—La Asamblea de Mutualistas a que se refiere el artículo 5 de este Reglamento, establecerá el monto de la cuota inicial así como la fecha a partir de la cual regirán los beneficios previstos en esta normativa, de acuerdo al estudio actuarial que deberá realizarse para ese efecto.
