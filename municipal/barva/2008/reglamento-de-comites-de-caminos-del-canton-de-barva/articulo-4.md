@@ -1,0 +1,1 @@
+Artículo 4º—Objetivos de los comités de caminos. Los comités de caminos coordinaran con los órganos municipales competentes las labores de planificación y definición de prioridades de inversión, así como la ejecución de las tareas relacionadas con el desarrollo y la conservación vial.
