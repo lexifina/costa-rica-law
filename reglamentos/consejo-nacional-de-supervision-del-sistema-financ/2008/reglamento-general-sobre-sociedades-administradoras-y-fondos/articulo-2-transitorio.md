@@ -1,0 +1,3 @@
+Transitorio II.—En el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, las sociedades administradoras deben cumplir con lo siguiente:
+a) En los fondos inmobiliarios, cumplir con el límite para reparaciones, remodelaciones, mejoras y ampliaciones dispuesto en el artículo 84. Para aquellas reparaciones, remodelaciones, mejoras y ampliaciones que se encuentren en proceso y que superen el límite del 15% se debe cumplir con lo dispuesto en dicho artículo.
+b) En los fondos de desarrollo inmobiliario, realizar la modificación al prospecto para incluir las relevaciones sobre la metodología y supuestos de valoración de proyectos, según lo dispuesto en el inciso f. del artículo 94.

@@ -1,0 +1,1 @@
+Artículo 62.—Límites a la concentración en una misma emisión o valor. En las políticas de inversión de un fondo se pueden establecer límites sobre los porcentajes máximos de participación en una sola emisión o valor como porcentaje de la emisión en circulación.

@@ -1,0 +1,2 @@
+Artículo 45.—Clases o series. Dentro de un mismo fondo de inversión pueden establecerse clases o series, las cuales difieren únicamente en lo referente a las comisiones de entrada, reembolso o administración.
+En el caso de fondos cerrados financieros, se pueden establecer programas de colocación de participaciones, por lo que las series pueden diferir por la fecha de colocación o vencimiento. No obstante, en los programas de colocación de participaciones no pueden tener series que coexistan.

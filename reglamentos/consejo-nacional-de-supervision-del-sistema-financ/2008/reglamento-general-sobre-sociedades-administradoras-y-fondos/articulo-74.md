@@ -1,0 +1,1 @@
+Artículo 74.—Normativa aplicable. Los valores que formen parte de los activos de un fondo inmobiliario se rigen por la normativa aplicable a los fondos de inversión financieros dispuesta en el artículo 55 de este Reglamento. En cuanto a la diversificación, se debe revelar en el prospecto la política definida para el fondo.

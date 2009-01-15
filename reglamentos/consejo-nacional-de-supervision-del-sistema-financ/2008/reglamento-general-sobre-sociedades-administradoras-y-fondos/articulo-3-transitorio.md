@@ -1,0 +1,2 @@
+Transitorio III.—Durante el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, la autorización de nuevos fondos o modificación de prospectos, se realizará con presentación de la información en formato físico y sujeto a la autorización previa, según lo dispuesto en los artículos 16 y 25 respectivamente.
+Posterior a este plazo, la autorización de nuevos fondos y sus respectivas modificaciones, se realizará únicamente por medios electrónicos.

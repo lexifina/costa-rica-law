@@ -1,0 +1,1 @@
+Artículo 88.—Plazo para la valoración de inmuebles. Los bienes inmuebles deben valorarse al menos una vez al año, para lo cual se debe considerar la fecha de compra de cada inmueble. La existencia de una opción de compra en los contratos de arrendamiento no exime la realización de estas valoraciones.

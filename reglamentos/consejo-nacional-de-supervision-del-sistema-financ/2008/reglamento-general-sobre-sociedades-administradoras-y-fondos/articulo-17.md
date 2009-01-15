@@ -1,0 +1,4 @@
+Artículo 17.—Inicio de operaciones. Los fondos de inversión deben iniciar operaciones en un plazo no mayor a nueve meses contados a partir de la fecha de recibido de la carta de cumplimiento de requisitos finales para la inscripción. Se entiende que un fondo ha iniciado operaciones si en el plazo indicado cuenta con el activo neto mínimo y el número mínimo de inversionistas establecido en este Reglamento.
+En el caso de fondos de desarrollo inmobiliario, el plazo para inicio de operaciones es de dieciocho meses.
+Los plazos anteriores se pueden prorrogar de conformidad con lo establecido en el artículo 109.
+En caso de que el fondo no inicie operaciones en el plazo correspondiente, la autorización quedará sin efecto. Si el fondo presenta participaciones en circulación, la sociedad administradora debe cumplir con lo dispuesto en el artículo 27 de este Reglamento, excepto por el acuerdo de la asamblea de inversionistas y el acuerdo de la junta directiva.

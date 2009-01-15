@@ -1,0 +1,1 @@
+Artículo 51.—Prohibiciones para la compra y venta de valores y activos. Los socios, directores y empleados de una sociedad administradora de fondos de inversión y de su grupo de interés económico, no pueden adquirir valores, de los fondos ni venderles valores y activos propios.

@@ -1,0 +1,1 @@
+Artículo 111.—Derogatorias. Se deroga el “Reglamento General sobre Sociedades Administradoras y Fondos de Inversión”, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 28 del acta de la sesión 569-2006, celebrada el 6 de abril del 2006, y publicado en La Gaceta Nº 87 del 8 de mayo del 2006.

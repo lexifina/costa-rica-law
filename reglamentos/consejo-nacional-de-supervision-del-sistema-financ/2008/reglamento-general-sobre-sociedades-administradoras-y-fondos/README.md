@@ -1,0 +1,16 @@
+# Reglamento (2008-12-19)
+
+Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
+
+- Tipo: Reglamento
+- Número: 762
+- Fecha: 2008-12-19
+- Ente emisor: Consejo Nacional de Supervisión del Sistema Financiero
+- Publicación: La Gaceta N° 10 del 2009-01-15
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64702&param2=75181&param3=1 (ficha 64702)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-01-15 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 5º—Inicio de operaciones. Si la sociedad administradora no inicia operaciones en el plazo de un año contado a partir de la fecha de recibido de la carta de cumplimiento de requisitos finales, la autorización quedará sin efecto. Se entiende que una sociedad administradora ha iniciado operaciones cuando haya inscrito al menos un fondo de inversión.

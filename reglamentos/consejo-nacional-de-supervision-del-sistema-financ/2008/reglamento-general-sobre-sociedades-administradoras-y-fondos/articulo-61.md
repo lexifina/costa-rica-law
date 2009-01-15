@@ -1,0 +1,1 @@
+Artículo 61.—Revelación de políticas sobre participaciones significativas. Los fondos de inversión pueden establecer límites máximos de concentración por inversionista sobre el activo neto del fondo. Se debe revelar en el prospecto la política y el mecanismo previsto para su aplicación y control.

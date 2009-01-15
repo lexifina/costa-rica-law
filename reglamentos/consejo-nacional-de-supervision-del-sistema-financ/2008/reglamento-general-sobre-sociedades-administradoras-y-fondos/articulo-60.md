@@ -1,0 +1,1 @@
+Artículo 60.—Coeficientes mínimos de liquidez para fondos abiertos. Las políticas de administración y control de la liquidez del fondo deben estar establecidas en el prospecto. Estas políticas deben ser aprobadas por el comité de inversión de previo a su adopción.

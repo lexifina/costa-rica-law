@@ -1,0 +1,1 @@
+Artículo 92.—Monto mínimo de la participación. El monto mínimo de la participación es de cincuenta mil dólares de los Estados Unidos de América o su equivalente en colones costarricenses al tipo de cambio de referencia de compra del Banco Central de Costa Rica.

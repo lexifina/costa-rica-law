@@ -1,0 +1,1 @@
+Artículo 68.—Límites para la inversión en valores. Ningún fondo de capital garantizado puede invertir en valores emitidos o avalados por un emisor del mismo grupo financiero o económico al que pertenece la sociedad garante.

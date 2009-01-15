@@ -1,0 +1,9 @@
+Artículo 94.—Revelaciones en el prospecto del fondo de desarrollo. En forma adicional a lo establecido en el artículo 19 de este Reglamento, el prospecto debe incluir:
+a) Políticas de diversificación que consideren como mínimo: cantidad de proyectos que se proponen, distribución geográfica y tipo de proyectos deseables para incorporar en el fondo.
+b) Riesgos de los sectores y actividades económicas, en que se propone invertir.
+c) Tipo de activos que pueden formar parte de los proyectos de desarrollo inmobiliarios.
+d) Si el fondo puede participar en negocios conjuntos con otros fondos de inversión o personas físicas o jurídicas.
+e) Si las empresas del mismo grupo financiero al que pertenece la sociedad administradora o sus socios, participarán como inversionistas del fondo o de los proyectos y las condiciones bajo las cuales se regirán.
+f) Descripción de la metodología y supuestos utilizados para la valoración de los proyectos de desarrollo inmobiliario. El detalle de la metodología aplicada a cada proyecto debe incorporarse como parte del adenda.
+g) Indicar que las plusvalías o minusvalías que se determinen en la valoración de los proyectos se consideran para efectos informativos, y no deben ser registradas como ajustes al valor del activo neto del fondo, a menos que se determine que se ha presentado un deterioro en el valor de los activos, según lo dispuesto en la normativa contable aplicable.
+En caso de que se establezcan lineamientos sobre la creación y uso de reservas, deben ser revelados en el prospecto y aprobados por la asamblea de inversionistas, así como considerar lo dispuesto en las normas de contabilidad definidas por el Consejo Nacional de Supervisión del Sistema Financiero. El uso de reservas debe estar relacionado con el mantenimiento y reparación de los activos del fondo y no debe incluir mecanismos que pretendan garantizar al inversionista un rendimiento determinado.

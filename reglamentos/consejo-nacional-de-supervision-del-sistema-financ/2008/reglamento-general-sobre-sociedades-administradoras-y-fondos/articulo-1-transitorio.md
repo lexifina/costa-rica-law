@@ -1,0 +1,1 @@
+Transitorio I.—En el plazo de tres meses a partir de la entrada en vigencia de este Reglamento, las sociedades administradoras deben haber aprobado la actualización de las políticas sobre conflicto de interés, según lo establecido en el artículo 29.
