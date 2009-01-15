@@ -1,0 +1,1 @@
+Artículo 16.—De los procedimientos de Auditoría. La Auditoría Interna utilizará los procedimientos establecidos en el Manual de Auditoría Interna, en el Manual de normas para el ejercicio de la auditoría interna en el sector público, en el Manual de normas generales de auditoría para el sector público y demás normativa aplicable.
