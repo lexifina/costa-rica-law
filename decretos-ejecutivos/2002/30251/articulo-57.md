@@ -1,4 +1,4 @@
 Artículo 57.—De los fondos de inversión. JUDESUR podrá invertir los fondos provenientes de la Ley 7730, durante el período en que no sean requeridos, únicamente en títulos valores del Estado, tales como Bonos, certificados de Depósito a Plazo, etc., para lo cual se establecerá un convenio con cualesquiera de los Bancos del Estado, y velando siempre por la mayor rentabilidad y seguridad de estos recursos.
 Las recuperaciones de intereses pasarán a formar parte del fondo para financiamiento de proyectos de acuerdo con los porcentajes establecidos en el artículo 1, reformas, artículo 11 de la Ley 7730.
 Los proyectos a financiar serán aquellos que cumplan con todos los requisitos establecidos por JUDESUR y de acuerdo con lo establecido por la Junta Directiva para estos efectos.
-(Mediante el artículo 74 del decreto ejecutivo N° 33763 del 30 de abril de 2007 se modifica este artículo. No obstante, no se indica expresamente en que consiste dicha modificación).
+(Nota de Sinalevi: Mediante el artículo 73 del decreto ejecutivo N° 35048 del 16 de enero de 2009 se modifica este artículo. No obstante, no se indica expresamente en que consiste dicha modificación).
