@@ -1,0 +1,3 @@
+ARTÍCULO 18.- Asamblea extraordinaria
+La Asamblea General se reunirá extraordinariamente, cuando sea convocada por iniciativa propia de la Junta Directiva, iniciativa de la Fiscalía o por solicitud escrita de al menos un tercio de las personas miembros activos del Colegio.
+La convocatoria a Asamblea General extraordinaria será suscrita por la Secretaría de la Junta Directiva del Colegio y deberá ser publicada, al menos una vez, en el diario oficial, La Gaceta, así como en un periódico de circulación nacional, con un mínimo de diez días hábiles de antelación a la fecha programada. La publicación deberá contener, como mínimo, los puntos por conocer, el sitio, la fecha y la hora de la primera y la segunda convocatorias.

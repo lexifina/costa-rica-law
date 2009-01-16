@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Funciones de las Vocalías
+Las Vocalías, de acuerdo con su orden de prelación, podrán ejercer las funciones de cualquier otro miembro de la Junta Directiva, en caso de ausencia o impedimento. Además, tendrán comprendidas las funciones que les asignen las leyes y los reglamentos o las que sean dispuestas por los miembros de la Junta Directiva, como apoyo a los otros puestos directivos.

@@ -1,0 +1,7 @@
+CAPÍTULO VI
+JUNTA DIRECTIVA
+ARTÍCULO 23.- Integración
+La Junta Directiva estará compuesta por la Presidencia, la Vicepresidencia, la Secretaría, la Tesorería y tres Vocalías. La Asamblea General designará a una Fiscalía, y quien la ocupe tendrá derecho a voz, pero no a voto, en las reuniones de la Junta Directiva, y velará por el cumplimiento de la Ley y los reglamentos. Tanto los directores como la Fiscalía deberán ser personas miembros activos del Colegio y tener, como mínimo, dos años de estar incorporadas al Colegio.
+La votación para elegir a los directores y a quienes ocupen las fiscalías, se hará de acuerdo con lo establecido en el artículo 22 de esta Ley. De producirse un empate, la votación deberá repetirse entre los dos candidatos que hayan obtenido el mayor número de sufragios y, si el empate persiste tras la segunda votación, quedará electo el candidato de mayor edad.
+La renovación de la Junta Directiva y las fiscalías se efectuará parcialmente cada año, en grupos alternos de Presidencia, Tesorería, Vocalía uno y las Fiscalías uno y tres; luego, la Vicepresidencia, la Secretaría, las Vocalías dos y tres, además de las Fiscalías dos y cuatro. Los miembros electos permanecerán dos años en funciones y podrán ser reelegidos por un período igual.
+Los directores perderán su condición, si incurren en alguna de las causales establecidas en el capítulo VIII de la presente Ley o si quedan totalmente incapacitados.

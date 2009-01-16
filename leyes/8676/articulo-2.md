@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Finalidad
+El Colegio, creado en esta Ley, velará por el cumplimiento estricto de las normas técnicas y de ética profesional de las personas agremiadas que cuenten con un bachillerato universitario, así como por quienes posean títulos obtenidos en el extranjero en Nutrición Humana, Nutrición y Dietética o Dietista reconocidos como equivalentes, de conformidad con las leyes de Costa Rica.
