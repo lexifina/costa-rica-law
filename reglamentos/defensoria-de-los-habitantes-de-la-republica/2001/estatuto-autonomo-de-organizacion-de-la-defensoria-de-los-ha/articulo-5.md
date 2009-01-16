@@ -8,8 +8,12 @@ a) Despacho
 i) Dirección de despacho.
 ii) Departamento de prensa.
 iii) Unidad de asuntos internacionales.
-iv) Auditoría-Interna.
-v) Contraloría de servicios.
+iv) el Mecanismo Nacional de Prevención de la Tortura.
+(Así adicionado el numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009)
+v) Auditoría-Interna.
+(Corrida la numeración del numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009, que adicionó un nuevo numeral iv)
+vi) Contraloría de servicios.
+(Corrida la numeración del numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009, que adicionó un nuevo numeral iv)
 b) Consejo de directores.
 c) Dirección de admisibilidad.
 d) Direcciones de defensa.
