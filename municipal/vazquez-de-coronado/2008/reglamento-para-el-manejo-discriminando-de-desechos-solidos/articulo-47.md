@@ -1,0 +1,1 @@
+Artículo 47.—Durante el proceso de degradación de desechos biodegradables, no se permitirá la generación de malos olores, proliferación de insectos u otras plagas que puedan transmitir enfermedades a la población, producción de líquidos o lixiviados que contaminen el suelo, cursos de agua y nacientes o la inadecuada disposición final de desechos.

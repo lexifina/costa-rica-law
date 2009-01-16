@@ -1,0 +1,2 @@
+Artículo 33.—Las entidades que se dedican a recoger desechos separados o desechos para el reciclaje, deben contar con un permiso municipal. En caso de que el usuario entregue desechos a personas o entidades no autorizadas, ambas partes, generador de desechos y recolector, asumirán en forma solidaria las sanciones que se impongan en este Reglamento.
+La Municipalidad podrá incautar los desechos recolectados por individuos o empresas que no tengan permiso municipal para ejercer esta actividad y dará parte a la autoridad de tránsito.

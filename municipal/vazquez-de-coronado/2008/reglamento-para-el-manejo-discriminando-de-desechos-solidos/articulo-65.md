@@ -1,0 +1,2 @@
+Artículo 65.—La labor educativa que se realizará como parte de la gestión técnica de la recolección de los desechos sólidos, será coordinada por un miembro de la administración, nombrado por el Alcalde para este fin. La Municipalidad deberá proveer los fondos necesarios para realizar esta labor a nivel del cantón y los distritos.
+Estos fondos provendrán necesariamente de las tasas de recolección de desechos y de las multas que se generen por incumplimiento de los munícipes con el presente Reglamento.

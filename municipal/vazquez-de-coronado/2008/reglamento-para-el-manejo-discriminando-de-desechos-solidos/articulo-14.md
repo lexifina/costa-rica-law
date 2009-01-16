@@ -1,0 +1,1 @@
+Artículo 14.—Los desechos de hospitales, clínicas, consultorios y clínicas veterinarias, serán tratados conforme a un plan de manejo de residuos sólidos y líquidos debidamente aprobado por el Ministerio de Salud tal y como lo establecen los artículos 38, 165 y 276 de la Ley General de Salud (5395).

@@ -1,0 +1,1 @@
+Artículo 45.—Los funcionarios municipales, una vez detectado el incumplimiento a este reglamento dentro de una propiedad privada, podrán dar parte a las autoridades competentes para que tomen las medidas correspondientes.

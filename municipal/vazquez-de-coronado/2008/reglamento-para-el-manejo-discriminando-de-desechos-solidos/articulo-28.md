@@ -1,0 +1,2 @@
+Artículo 28.—Los contenedores de basura que no cumplan con lo dispuesto en el artículo 27 del presente reglamento, deberán ser removidos o demolidos y los dueños deberán sustituirlos por un nuevo contenedor que si cumpla las especificaciones del presente reglamento.
+En caso de persistir la anomalía, no se le recogerán los desechos sólidos que se generen en dicha propiedad; según lo establecen los artículos 17 y 18 del Reglamento de Manejo de Salud, decreto 19049.

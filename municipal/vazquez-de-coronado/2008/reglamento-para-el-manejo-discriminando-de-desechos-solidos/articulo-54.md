@@ -1,0 +1,1 @@
+Artículo 54.—Para la instalación de Centros de Acopio, se deberá cumplir con la normativa vigente en cuanto al recursos hídrico superficial y subterráneo. Deberá a portar los planos, contando con el visto bueno del Ministerio de Salud. Deberá además presentar semestralmente los registros de volúmenes acopiados, tratados o procesados, por tipo de residuo y tratamiento realizado

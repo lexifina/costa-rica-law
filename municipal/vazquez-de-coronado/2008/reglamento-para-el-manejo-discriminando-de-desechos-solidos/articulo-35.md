@@ -1,0 +1,2 @@
+Artículo 35.—Para la recolección de desechos sólidos no tradicionales (excluyendo desechos de jardín) se podrá prescindir de la entrega en recipientes o bolsas impermeables.
+Estos desechos se acumularán en forma discriminada en un sitio prefijado e informado por la municipalidad y se recogerán el día que indique la entidad recolectora. Los desechos provenientes de los jardines, deberán entregarse en bolsas plásticas de tamaño prefijado por la Municipalidad.

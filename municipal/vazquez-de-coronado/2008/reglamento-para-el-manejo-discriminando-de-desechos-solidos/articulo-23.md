@@ -1,0 +1,1 @@
+Artículo 23.—Aquellas personas o entidades del cantón, que por su actividad generen una cantidad mayor de desechos, podrán negociar con la Municipalidad una tasa diferenciada, en donde se cobre proporcionalmente.

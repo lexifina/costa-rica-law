@@ -1,0 +1,1 @@
+Artículo 21.—Queda prohibido arrojar desechos sólidos o líquidos en cuerpos de agua, permanentes o intermitentes, nacientes de ríos y quebradas, en las vías pública o áreas públicas y municipales. El incumplimiento de esta disposición acarreará sanciones al causante, conforme a la normativa vigente

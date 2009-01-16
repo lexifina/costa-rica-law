@@ -1,0 +1,1 @@
+Artículo 63.—La persona que se nombre como responsable del manejo discriminado de desechos sólidos de una entidad, deberá haber aprobado un curso de capacitación en Gestión de Residuos Sólidos de al menos 10 horas lectivas impartido por el Instituto Nacional de Aprendizaje u otra institución certificada y reconocida por el Servicio Civil o alguna universidad

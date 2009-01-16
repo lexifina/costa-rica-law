@@ -1,0 +1,1 @@
+Artículo 60.—El cobro de la tasa por recolección de desechos, será realizado por la Municipalidad o por otras entidades autorizadas por ésta, previo establecimiento de un contrato o convenio que los faculte para realizar esas labores.
