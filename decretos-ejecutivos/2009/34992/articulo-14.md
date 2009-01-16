@@ -1,0 +1,1 @@
+Artículo 14.—El Consejo de Transporte Público en el caso de rutas nuevas fijará una tarifa provisional para la operación del permiso, la cual deberá ser autorizada por la Autoridad Reguladora de los Servicios Públicos.

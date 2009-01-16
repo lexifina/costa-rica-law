@@ -1,0 +1,1 @@
+Artículo 12.—El Consejo ejercerá la vigilancia y supervisión constante del funcionamiento de las rutas autorizadas, con el objeto de garantizar que estas se desarrollen de forma eficiente, oportuna y con respeto para los usuarios, apegándose a las condiciones autorizadas.

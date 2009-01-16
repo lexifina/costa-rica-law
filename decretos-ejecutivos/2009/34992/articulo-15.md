@@ -1,0 +1,1 @@
+Artículo 15.—Para el otorgamiento de un permiso de operación, no será necesario el estudio de impacto ambiental, el cual deberá ser preparado y aprobado para el proceso de licitación, salvo los casos de área ya impactadas.

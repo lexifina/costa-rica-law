@@ -1,0 +1,4 @@
+Artículo 5º—Para otorgar un permiso sobre rutas nuevas, el Consejo deberá contar con los estudios técnicos necesarios, que demuestren:
+a) Existencia de la necesidad del servicio.
+b) Urgencia para la implantación del servicio.
+c) Vinculación con las políticas de modernización y sectorización del transporte público remunerado de personas en vehículos en la modalidad autobús.
