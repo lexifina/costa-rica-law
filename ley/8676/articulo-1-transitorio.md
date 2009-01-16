@@ -1,0 +1,4 @@
+CAPÍTULO XI
+DISPOSICIONES FINALES Y TRANSITORIAS
+TRANSITORIO I.-
+La Asamblea General extraordinaria se reunirá dentro de los treinta días siguientes a la promulgación de la presente Ley, con el objeto de designar a las personas miembros de la primera Junta Directiva del Colegio y juramentarlas. Esta Asamblea será convocada por el Ministerio de Salud y presidida por profesionales en Nutrición debidamente acreditados por el ministro, los cuales verificarán las calidades de las personas candidatas a miembros del Colegio y entregarán la credencial respectiva a quienes cumplan lo dispuesto en los artículos 4 y 6 de la presente Ley, para que puedan participar en esta Asamblea General. Además, juramentarán a quienes resulten electos. Se obvia, por esta única vez, la condición de contar con dos años de incorporación.
