@@ -1,0 +1,1 @@
+Artículo 34.—Atención de Denuncias. Todos los aspectos relacionados con la admisibilidad, tratamiento y comunicación de resultados relacionados con las denuncias recibidas en la Auditoría Interna, serán regulados por medio de un Reglamento Interno.

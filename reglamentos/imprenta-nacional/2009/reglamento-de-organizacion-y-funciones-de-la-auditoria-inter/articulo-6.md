@@ -1,0 +1,1 @@
+Artículo 6º—Principales políticas. En el ámbito de su competencia la Auditoría Interna se compromete a verificar y analizar periódicamente la misión, visión y demás políticas administrativas que rigen su actuar, con el fin de mantener actualizados los procedimientos de trabajo.

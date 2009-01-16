@@ -1,0 +1,1 @@
+Artículo 26.—Delegación de Funciones. El Auditor Interno podrá delegar en su personal las funciones asignadas por ley, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 3º—Concepto de la Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y los órganos sujetos a esta ley.
+Ver artículo 21 de la Ley Nº 8292.

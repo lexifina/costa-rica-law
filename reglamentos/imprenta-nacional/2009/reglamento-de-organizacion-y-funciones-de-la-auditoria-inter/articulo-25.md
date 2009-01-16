@@ -1,0 +1,1 @@
+Artículo 25.—Pericia y Debido Cuidado Profesional. El Auditor Interno, Subauditor y demás miembros de la Auditoría Interna deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio y serán vigilantes de que su personal responda de igual manera.

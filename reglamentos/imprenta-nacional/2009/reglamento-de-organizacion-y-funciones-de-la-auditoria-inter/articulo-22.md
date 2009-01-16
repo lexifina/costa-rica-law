@@ -1,0 +1,2 @@
+Artículo 22.—Administración del personal. El Auditor Interno en su condición de Superior Jerárquico es el responsable directo de las actuaciones profesionales de la Auditoría Interna. El personal de la Auditoría Interna estará sujeto a las disposiciones administrativas aplicables al resto del personal de la institución; previa autorización del Auditor Interno, quien debe aprobar todos los movimientos de personal de los funcionarios de la Auditoría Interna.
+Ver artículo 24 de la Ley Nº 8292.
