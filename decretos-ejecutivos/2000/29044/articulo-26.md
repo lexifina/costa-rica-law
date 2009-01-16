@@ -1,1 +1,7 @@
-Artículo 26.—No se podrán completar las horas de trabajo al proyecto, laborando en un proyecto distinto al que se financia, aunque éste se ejecute en la misma localidad.
+Artículo 26.—Cuando por la naturaleza y magnitud de la emergencia, sea imposible ejecutar obras en beneficio de la comunidad sin poner en peligro a los beneficiarios, el Programa Nacional de Empleo podrá otorgar subsidios temporales de empleo, sin contraprestación del beneficiario, siempre que exista disponibilidad presupuestaria, a quienes perdieron su trabajo o fuente de ingresos o estuvieren en condición de desempleados. Para tales efectos la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, rendirá un informe a la Dirección Nacional de Empleo del riesgo que implique la ejecución de obras comunales y levantará un informe que contenga un listado con los nombres, número de cédula y cuenta cliente de los posibles beneficiarios por localidad o sector afectado. La Dirección Financiera del Ministerio de Trabajo y Seguridad Social, realizará los depósitos del subsidio a las cuentas clientes indicadas en el citado listado.
+En este caso, los beneficiarios deberán cumplir con los siguientes requisitos:
+1. Ser costarricense, mayor de 15 años.
+2. Estar desempleado o que producto de la emergencia perdieran su empleo o fuente de ingresos.
+3. Ser jefe de familia o con responsabilidad familiar.
+4. Ser residente de la zona en la que se presentó el desastre.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)

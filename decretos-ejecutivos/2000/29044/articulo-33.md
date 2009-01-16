@@ -1,0 +1,2 @@
+Artículo 33.—El Programa Nacional de Empleo contará con el apoyo técnico de las Oficinas Cantonales, Provinciales, y Regionales que el Ministerio de Trabajo y Seguridad Social tiene a nivel nacional, para efectos de fortalecer los procesos de seguimiento y control de los proyectos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 35028 que lo traspasó del antiguo artículo 27 al 33 actual)

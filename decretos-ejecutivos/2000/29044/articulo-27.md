@@ -1,1 +1,2 @@
-Artículo 27.—El Programa Nacional de Empleo contará con el apoyo técnico de las Oficinas Cantonales, Provinciales, y Regionales que el Ministerio de Trabajo y Seguridad Social tiene a nivel nacional, para efectos de fortalecer los procesos de seguimiento y control de los proyectos.
+Artículo 27.—Una vez verificados los requisitos del artículo 26, podrá otorgarse, el monto del susbsidio temporal de empleo completo, según dispone el artículo 16 de este Decreto.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)

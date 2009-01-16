@@ -1,1 +1,2 @@
-Artículo 28.—Caso de comprobarse anomalías en el manejo de los pagos, se elevará la denuncia respectiva ante los órganos superiores para su resolución definitiva y se suspenderá en forma inmediata el desembolso de los mismos.
+Artículo 28.— La Dirección Nacional de Empleo, determinará el plazo perentorio en el cual otorgará el subsidio temporal de empleo a los beneficiarios, considerando en cada caso, la naturaleza y la magnitud del desastre y las posibilidades de reinserción al mercado laboral de los beneficiarios.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)

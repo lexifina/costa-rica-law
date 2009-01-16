@@ -1,1 +1,2 @@
-Artículo 29.—La Dirección Nacional de Empleo, presentará al Ministro de Trabajo y Seguridad Social, informes trimestrales y anuales de cobertura geográfica, tipos de proyectos, costos de los mismos y beneficiarios.
+Artículo 29.—Será suspendido el subsidio temporal de empleo y requerida la devolución de lo pagado, a quienes se demuestre que cuentan con los recursos suficientes que le permitan superar el periodo de crisis de la emergencia o por otras causas que así lo justifiquen. Para tal efecto, esa instancia administrativa queda autorizada para hacer verificaciones parciales o totales sobre los alcances del programa.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)

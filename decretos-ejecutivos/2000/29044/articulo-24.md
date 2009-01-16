@@ -1,3 +1,5 @@
 CAPÍTULO V
-Disposiciones finales
-Artículo 24.—Podrá desestimarse la designación de un determinado organismo proponente de proyecto si su representante legal, hubiere incurrido anteriormente en faltas graves o irregularidades en el cumplimiento de sus obligaciones respecto de algún proyecto.
+SUBSIDIO TEMPORAL DE EMPLEO EN
+CASOS DE EMERGENCIA NACIONAL
+Artículo 24.—Una vez declarado por decreto ejecutivo el estado de emergencia en cualquier parte del territorio nacional, el Programa Nacional de Empleo podrá otorgar el subsidio temporal de empleo a aquellas personas que como consecuencia del desastre, sufran la pérdida de su empleo o de la fuente habitual de sus ingresos, o estuvieren en condición de desempleados.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35028 de 16 de enero del 2009.)
