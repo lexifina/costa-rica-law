@@ -1,4 +1,5 @@
 Resolución Nº RRG-8969-2008.—San José, a las nueve horas del veinte de octubre del dos mil ocho.
+(Nota de Sinalevi: La Autoridad Reguladora de los Servicios Públicos, aprobó Fija las tarifas para los servicios aeronáuticos que brinda el Aeropuerto Nacional Juan Santamaría, mediante resolución N° 233 del 10 de noviembre de 2010)
 Solicitud de ajuste tarifario planteado por el Consejo Técnico de Aviación Civil (CETAC) para los servicios aeronáuticos del Aeropuerto Internacional Juan Santamaría. Expediente Nº ET-127-2008.
 Resultando:
 I.—Que mediante resolución de la Autoridad Reguladora número RRG-5554-2006 del 30 de marzo 2006, publicada en La Gaceta Nº 82 del 28 de abril del 2006 se fijaron las tarifas para los servicios aeroportuarios del Aeropuerto Internacional Juan Santamaría (AIJS) que ofrece el CETAC.
@@ -184,7 +185,22 @@ III.—Que de conformidad con los resultandos y considerandos que preceden y de 
 Con fundamento en las facultades conferidas en la Ley Nº 7593, el Decreto Ejecutivo 29732-MP, que es el Reglamento a la Ley Nº 7593, y los artículos correspondientes de la Ley General de la Administración Pública.
 EL REGULADOR GENERAL, RESUELVE:
 1º—Fijar para los servicios aeronáuticos que se brindan en le Aeropuerto Internacional Juan Santamaría las tarifas que se detallan a continuación:
-[imagen]
+Resumen de las Tarifas de Servicios Aeronáuticos Valores en US$
+Categoría Tarifaria | Unidad de medida | Periodicidad de cobro | Tarifas $
+1.1 Tarifas de Aterrizaje Aeronaves aviación general y agrícola (vuelos locales) Aeronaves aviación general (vuelos internacionales) Aeronaves comerciales Aeronaves de carga | 1000 Kg 1000 Kg 1000 Kg 1000 Kg | P/ aterrizaje P/ aterrizaje P/ aterrizaje P/ aterrizaje | 0,1329 0,2658 0,2658 0,2658
+1.2 Tarifas de Aproximación Aviación general menos de 12,500 kg | 1000 Kg | P/ aterrizaje | 0,3067
+Aeronaves comerciales o generales internacionales menos de 12,500 Kg Aeronaves comerciales de 12,500 kg . a menos de 60,000 kg . Aeronaves comerciales de 60,000 kg . a menos de 90,000 kg . Aeronaves comerciales de 90,000 kg en adelante. Helicópteros menos de 12,500 kg . Helicópteros de 12,500 kg en | 1000 Kg 1000 Kg 1000 Kg 1000 Kg 1000 Kg 1000 Kg | P/ aterrizaje P/ aterrizaje P/ aterrizaje P/ aterrizaje P/ aterrizaje P/ aterrizaje | 0,3067 0,6083 1,1502 2,2442 0,3067 0,6083
+1.3 Derechos de Iluminación, Puentes de Abordaje y Buses Iluminación Puentes de abordaje Autobuses de abordaje | 1000 Kg 1000 Kg 1000 Kg | P/ aterrizaje P/ aterrizaje P/ aterrizaje | 0,0255 0,6440 0,4864
+1.4 Tarifa de Infraestructura del Campo Aéreo Construcción y mejoras de pista y rampa | 1000 Kg | P/ aterrizaje | 4,2556
+1.5 Tarifas de Estacionamiento de Aeronaves Menos de 90 minutos | 1000 Kg | P/ estacionamiento | libre
+Entre 91 y 180 minutos | 1000 Kg | P/ estacionamiento | 0,5934
+Entre 181 y 360 minutos | 1000 Kg | P/ estacionamiento | 1,1869
+Entre 361 y 480 minutos | 1000Kg | P/ estacionamiento | 2,9672
+Días completos (de 481 minutos en adelante) | 1000 Kg | P/ estacionamiento | 7,4180
+1.6 Tarifa de Carga Uso de la terminal | 1 Kg | Mensual | 0,0033
+1.7 Concesionarias servicios aeronáuticos Tarifa de distribución de combustible | Litro | Mensual | 0,0051
+(Así reformadas las tarifas para los servicios aeronáuticos que se brindan en el Aeropuerto Internacional Juan Santamaría, mediante resolución RRG-9402-2009 del 16 de enero de 2009)
+(NOTA DE SINALEVI: Mediante resolución RRG- 9402-2009 del 16 de enero de 2009, la Autoridad Reguladora de los Servicios Públicos revoca de oficio parcialmente esta resolución. Asimismo en su punto III) establece una serie de recomendaciones técnicas que deberá observar el Consejo Técnico de Aviación Civil (CETAC.)
 2º—Indicar al CETAC que para la próxima propuesta tarifaria debe incluir un análisis de los precios base de los servicios aeronáuticos utilizando la metodología establecida en el Reglamento de Servicios Aeroportuarios denominada “procedimiento anual ordinario por costos”.
 3º—Emplazar al CETAC al análisis de las correspondientes respuestas dadas por el Gestor a lo expuesto por cada operador aéreo en ocasión de las preguntas abiertas del “Cuestionario para la evaluación de la calidad de los servicios aeronáuticos regulado en el AIJS” (Resolución RRG-8268-2008, La Gaceta 88 del día 8 de mayo del 2008), remitiendo a esta Autoridad su correspondiente criterio y tomando las acciones pertinentes a efecto mejorar lo argumentado por los usuarios y, según sea el caso, hasta planteando oportunidades de mejora para los instrumentos de evaluación empleados. Debe el CETAC remitir un informe sobre lo solicitado en este punto a la ARESEP en el plazo de un mes calendario contado a partir de la notificación de la presente resolución.
 4º—Ordenar al CETAC llevar a cabo el examen del diseño, la eficacia y el cumplimiento del Plan de Mejoramiento que el Gestor ha preparado (folio 952) al respecto de lo establecido en el Artículo 40 del Reglamento de Servicios Aeroportuarios (Decreto N° 27380-MOPT del 07 de octubre de 1998), y a solicitud de ARESEP (oficio 674-DITRA-2008, remitido al CETAC el día 17 de julio del 2008, folios 925 a 926), todo lo cual se enmarca dentro del proceso de evaluación de la calidad correspondiente. Esta evaluación debe ser realizada y remitida a la ARESEP en un plazo máximo de un mes contado a partir de la notificación de la presente resolución.

@@ -14,3 +14,4 @@ Ajuste Tarifario Planteado por el Consejo Técnico de Aviación Civil ( CETAC) p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-05 | la propia norma |
+| 2 | 2009-01-16 | Resolución 9402 (2009-01-16) |
