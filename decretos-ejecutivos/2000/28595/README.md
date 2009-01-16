@@ -15,3 +15,4 @@ Reglamento Ley Orgánica del Colegio de Profesionales en Quiropráctica
 | --- | --- | --- |
 | 1 | 2000-05-02 | la propia norma |
 | 2 | 2008-02-26 | Decreto Ejecutivo 34420 (2008-02-26) |
+| 3 | 2009-01-16 | Decreto Ejecutivo 35051 (2009-01-16) |
