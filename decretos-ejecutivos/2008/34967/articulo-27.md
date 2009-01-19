@@ -1,0 +1,1 @@
+Artículo 27.—Se prohíbe la venta, la tenencia temporal o permanente y la exhibición de aves silvestres canoras o de plumaje en las ferias del agricultor y establecimientos comerciales de cualquier índole.
