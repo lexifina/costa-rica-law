@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-26 | la propia norma |
+| 2 | 2009-01-19 | Reglamento municipal 38 (2009-01-19) |

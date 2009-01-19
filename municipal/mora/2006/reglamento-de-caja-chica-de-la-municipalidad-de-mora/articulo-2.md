@@ -1,3 +1,4 @@
 CAPÍTULO II
 De la administración de la caja chica
-Artículo 2º—Se establece en la Administración de la Municipalidad un fondo de caja chica para la compra de bienes y servicios, por la suma de ¢300.000,00 (trescientos mil colones exactos). Este fondo será asignado a la Sección de Tesorería y será administrado por el funcionario titular de esta dependencia, en coordinación con el titular de la Sección de Contabilidad.
+Artículo 2: Se establece en la Administración de la Municipalidad un fondo de Caja Chica para la compra de bienes y servicios, por la suma de seiscientos mil colones netos (600.000,00). Para uso de la Unidad Técnica de Gestión Vial, se establece un fondo de Caja Chica de igual monto, diferenciado del anterior por tratarse de fondos provenientes de la Ley de Simplificación y Eficiencia Tributaria Nº 8114.
+(Así reformado mediante sesión N° 38 del 19 de enero de 2009)
