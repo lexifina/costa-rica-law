@@ -1,0 +1,3 @@
+CAPÍTULO V
+Suspensión y prórrogas de plazos y contratos
+Artículo 10.—Administrador del contrato: Será obligación del Administrador del Contrato, tomar oportunamente las previsiones necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato y demás obligaciones implícitas en éste, así como advertir a su superior, la conveniencia de introducir modificaciones o señalar correcciones en la ejecución, recomendar la ejecución de las garantías o bien la rescisión o resolución del contrato, cuando advierta fundamento para ello. Dar seguimiento a la vigencia y demás requisitos de las garantías de cumplimiento. Todos los eventos citados anteriormente, deben ser tramitados ante la Proveeduría.

@@ -1,0 +1,11 @@
+CAPÍTULO I
+Disposiciones generales
+Artículo 6º—Decisión de iniciar el procedimiento: Para emitir la decisión inicial, el Jefe de la Unidad Administrativa solicitante o el colaborador que éste designe, deberá acreditar ante la Unidad de Proveeduría, lo siguiente:
+a. Una justificación de la procedencia de la contratación, con indicación expresa de la necesidad a satisfacer, considerando para ello las metas estratégicas institucionales, el Plan Operativo Institucional y el presupuesto.
+b. La descripción del objeto, las especificaciones técnicas y características de los bienes, obras o servicios que se requiera contratar, así como la indicación de la posibilidad de adjudicar parcialmente de acuerdo a la naturaleza del objeto.
+c. En casos de tecnologías de información, cuando puedan existir diferentes opciones técnicas para satisfacer la necesidad, acreditar las razones por las cuales se escoge una determinada solución.
+d. Cuando corresponda, por la naturaleza del objeto, los procedimientos de control de calidad que se aplicarán durante la ejecución del contrato y para la recepción de la obra, suministro o servicio.
+e. La estimación actualizada del costo del objeto, acompañada de los estudios realizados (por ejemplo: de mercado, precios en lista, costo de contrato similares anteriores, etc.) que permitieron su establecimiento.
+f. En las licitaciones públicas, salvo que por la naturaleza del objeto no resulte pertinente, deberá acreditarse la existencia de estudios que demuestren que los objetivos del proyecto de contratación serán alcanzados con una eficiencia y seguridad razonables. Para determinar la eficiencia, se valorará el costo beneficio de modo que se dé la aplicación más conveniente de los recursos asignados. La seguridad razonable será determinada una vez considerados los riesgos asociados de la contratación, y éstos sean analizados y evaluados para adoptar las medidas pertinentes de administración de riesgos, según lo dispone la Ley General de Control Interno.
+g. Indicación expresa de los recursos humanos y materiales de que dispone o llegará a disponer, para verificar la correcta ejecución del objeto del contrato.
+h. La designación de un Administrador del Contrato

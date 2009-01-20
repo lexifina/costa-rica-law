@@ -1,0 +1,1 @@
+Artículo 18.—Venta de bienes inmuebles: La venta de bienes inmuebles adquiridos para la ejecución de la actividad ordinaria del Banco, deberá ser autorizada por la Junta Directiva General y estará sometida al procedimiento de Licitación Pública o Remate.
