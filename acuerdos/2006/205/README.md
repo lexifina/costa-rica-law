@@ -14,3 +14,4 @@ Integra Junta Directiva del Fondo de Desarrollo de la Provincia de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-19 | la propia norma |
+| 2 | 2009-01-20 | Acuerdo 4 (2009-01-20) |
