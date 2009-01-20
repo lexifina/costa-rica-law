@@ -17,7 +17,8 @@ l) Respetar las señales de tránsito y las velocidades mínimas y máximas que 
 m) Seguir la ruta lógica establecida entre los puntos de salida y destino de cada servicio.
 n) Cuidar las herramientas, repuestos y otras piezas complementarias de que disponga el vehículo.
 o) Estarán sometidos a control de kilometraje y combustible, y si esto no fuera posible por problemas mecánicos o de otra índole, Control de Equipo adoptará las medidas alternativas de control. El consumo de combustible se limitará a una cuota mensual dependiendo de las necesidades del servicio.
-p) Los vidrios y parabrisas de los vehículos no deben estar polarizados, a menos que el mismo sea de fábrica.
+p) Sólo podrán ser polarizados los vehículos asignados a la Presidencia , Dirección Ejecutiva y Auditoría Interna, conforme a la normativa vigente.
+(Así reformado el inciso anterior mediante sesión N° 03 del 20 de enero del 2009)
 q) Comunicar al superior inmediato y a Control de Equipo cualquier irregularidad que se le presente en el cumplimiento de su función.
 r) Guardar el vehículo al finalizar la jornada laboral en el lugar que el CTP haya asignado para tal fin.
 s) Acatar rigurosamente lo dispuesto en el capítulo VII respecto de los accidentes de tránsito en que intervienen vehículos del CTP.
