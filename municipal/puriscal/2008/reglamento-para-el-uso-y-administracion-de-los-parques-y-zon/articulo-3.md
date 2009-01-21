@@ -1,0 +1,2 @@
+Artículo 3º—Administración de parques. La Municipalidad podrá administrar directamente los parques públicos, o bien, delegar esta en organizaciones constituidas en el ámbito cantonal o distrital, mediante convenios formales.
+El parque “El Agricultor” de la ciudad de Santiago, no podrá ser delegado a ninguna organización para su administración, por tanto sólo la Municipalidad de Puriscal podrá administrarlo.

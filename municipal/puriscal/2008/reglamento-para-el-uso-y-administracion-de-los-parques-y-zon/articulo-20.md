@@ -1,0 +1,1 @@
+Artículo 20.—Distribución, tenencia o consumo de cualquier tipo de drogas o licor dentro del parque. Se prohíbe la distribución, tenencia o consumo de cualquier tipo de drogas o licor dentro del parque. Quedan autorizadas las autoridades de policía a dar cumplimiento a esta prohibición retirando del parque a los infractores.
