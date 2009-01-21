@@ -1,0 +1,2 @@
+Artículo 4º—Para efectos del estudio que señala el artículo anterior, ambas comisiones están facultadas para requerir a la organización solicitante de la subvención, los documentos que estimen necesarios y pertinentes, y que, les permitan valorar el caso.
+Posteriormente, lo trasladarán al Concejo Municipal para lo que corresponda. Si la subvención es procedente, se trasladará el acuerdo municipal al Alcalde, para que ordene las medidas del caso para su ejecución.
