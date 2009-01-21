@@ -14,3 +14,4 @@ Deja sin efecto la Resolución DGA-242-2008 de fecha 18 de junio de 2008 y emite
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-17 | la propia norma |
+| 2 | 2009-01-21 | Resolución 15 (2009-01-21) |
