@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Los siguientes artículos rigen las disposiciones salariales que se aplicarán a los funcionarios del Banco nombrados en propiedad, interinos, suplentes o servicios especiales, que se encuentran remunerados mediante la modalidad de salario único.
