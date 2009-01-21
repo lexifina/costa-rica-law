@@ -1,0 +1,9 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/009-2009.—Puntarenas, a los nueve días del mes de enero del dos mil nueve.
+Considerando:
+1º—Que mediante acuerdo AJDIP/434-2008, publicado en el Alcance Nº 55 a La Gaceta Nº 248 del 23 de diciembre del 2008, se aprueban las tarifas por bienes y servicios que rigen para el período 2009.
+2º—Que en el caso de la Licencia para Embarcación Deportiva o Turística, nacional o extranjera y Licencia para Embarcación Nacional dedicada a la Observación de Cetáceos, incluyendo licencia y carnés, la propuesta original de la Comisión de tarifas establecía montos superiores a los publicados, considerando un paquete o rubros que contemplaba ambos conceptos.
+3º—Que la Contraloría General de la República ha externado posición de aplicación analógica a este Instituto, en el sentido que no pueden establecerse montos diferenciados, por lo tanto, no se considera procedente hacer este tipo de diferenciación para las embarcaciones deportivas o turísticas y embarcaciones nacionales dedicadas a la observación de cetáceos.
+4º—Que la aplicación de las tarifas numeradas 36, 37, 38, 39 y 41 generarían una disminución considerable en los ingresos institucionales, situación que afectaría el incumplimiento de las metas de la Institución. Por tanto,
+ACUERDAN:
+Se derogan las tarifas numeradas 36, 37, 38, 39 del grupo “Licencia para Embarcación Deportiva o Turística, nacional o extranjera, marina o continental (por año o por trámite) incluyendo licencias y carnés para pesca deportiva” y 41 del grupo denominado “Licencias para Embarcación Nacional dedicada a la Observación de Cetáceos (por año o por trámite) incluyendo licencia y carnés para observación de cetáceos”, del acuerdo AJDIP/434-2008, publicado en Alcance Nº 55 a La Gaceta Nº 248 del 23 de diciembre del 2008. Acuerdo firme.
