@@ -2,8 +2,7 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 MISION INSTITUCIONAL
 Dirigir y coordinar las estrategias de desarrollo del país, procurando obtener el mayor bienestar para todos los habitantes; manteniendo la estabilidad política, económica, social y ambiental de la República; así como representar a la Nación en los actos de carácter oficial.
 VISION INSTITUCIONAL:
-Conformar un Estado Costarricense desarrollado dentro de un ambiente de democracia y paz en armonía con la
-naturaleza, donde el modelo de desarrollo socio-económico del país beneficie a sus habitantes y en especial a las personas en condición de pobreza.
+Conformar un Estado Costarricense desarrollado dentro de un ambiente de democracia y paz en armonía con la naturaleza, donde el modelo de desarrollo socio-económico del país beneficie a sus habitantes y en especial a las personas en condición de pobreza.
 PRIORIDADES INSTITUCIONALES:
 1. Fortalecimiento de la Seguridad Social.
 2. Seguimiento y coordinación al accionar de la Comisión Nacional de Emergencias y los planes y programas para la atención y mitigación de emergencias nacionales.
@@ -22,3 +21,4 @@ PROGRAMASPRESUPUESTARIOS ADMINISTRACION SUPERIOR ADMINISTRACION DE RECURSOS HUMA
 7. optimizar el soporte técnico y administrativo de las instituciones públicas mediante la implementación del Gobierno Digital en servicios clave.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34995 del 13 de enero de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35003 del 19 de enero de 2009)
