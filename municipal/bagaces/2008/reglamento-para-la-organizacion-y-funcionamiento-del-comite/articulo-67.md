@@ -1,0 +1,1 @@
+Artículo 67.—Los colores oficiales del deporte en el cantón de Sagaces son el blanco, rojo, pudiendo usar el amarillo sin perjuicio del diseño artístico y estética con los dos colores anteriores, como un complemento, ocupando hasta un 20%.

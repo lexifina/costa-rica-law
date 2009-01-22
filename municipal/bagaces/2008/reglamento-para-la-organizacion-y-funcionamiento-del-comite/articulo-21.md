@@ -1,0 +1,1 @@
+Artículo 21.—El quorum para sesionar estará integrado por la mitad más uno del total de los miembros del Comité Cantonal. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. En caso de empate en una votación, el Presidente tendrá voto calificado.
