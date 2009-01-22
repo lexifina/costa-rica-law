@@ -1,2 +1,2 @@
-Artículo 2º—Rige a partir de su publicación.
-Dado en la Presidencia de la República, a los catorce días del mes de noviembre del dos mil seis.
+Artículo 2º—El Consejo Nacional de Desarrollo de la Comunidad estará constituido y nombrado por los cuatro años del período de Gobierno a partir 29 de noviembre del 2006 hasta el 08 de mayo del 2010.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35233 del 22 de enero de 2009)
