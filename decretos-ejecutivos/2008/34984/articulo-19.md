@@ -1,0 +1,1 @@
+Artículo 19.—Continuidad del fondo.- Una vez que se recuperen los créditos, los recursos provenientes de la recaudación del impuesto establecido por la Ley Nº 5515 destinados al presente Fondo se mantendrán dentro del mismo, bajo las presentes regulaciones, a fin de hacer frente a eventuales situaciones similares que se puedan presentar en el futuro.

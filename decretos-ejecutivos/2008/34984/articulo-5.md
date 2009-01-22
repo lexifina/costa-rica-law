@@ -1,0 +1,1 @@
+Artículo 5º—Sujetos de Crédito. Todos los productores bananeros que lo soliciten podrán obtener financiamiento con este Fondo, siempre y cuando cumplan con los requerimientos del presente reglamento y los requisitos que establezca CORBANA.

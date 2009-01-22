@@ -1,0 +1,16 @@
+Nº 34984-H-MAG
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LOS MINISTROS DE HACIENDA
+Y DE AGRICULTURA Y GANADERÍA
+Con fundamento en los artículos 140, incisos 3), 8), 18) y 20) y 146, de la Constitución Política, la Ley Nº 6227 del 2 de mayo de 1978, Ley Nº 5515 de 19 de abril de 1974 y la Ley Nº 4895 de 16 de noviembre de 1971 y sus reformas.
+Considerando:
+1º—Que la existencia de la actividad bananera y de las empresas productoras nacionales, es materia de sumo interés público, porque dicha actividad es de las más importantes dentro de la estructura productiva costarricense, al ser el banano el primer producto de exportación agrícola y generar en los últimos años alrededor de US$ 650 millones en divisas y constituir una de las ramas productivas que más mano de obra utiliza por hectárea, generando en la actualidad empleo para más de 100.000 personas, de los cuales 40.000 son empleos directos en los que se paga el más alto nivel de salarios agrícolas, además de que se realiza en zonas del país que no han contado por muchos años con otro tipo de actividades productivas que, como la actividad bananera, coadyuven tan determinantemente en su desarrollo.
+2º—Que en la segunda quincena del mes noviembre del 2008, a partir del día 20, el país se vio afectado por un frente frío, un sistema de baja presión, ubicado en Panamá y el Caribe costarricense, y un sistema de alta presión ubicado al norte de Centroamérica, fenómenos que interactuaron para generar y mantener condiciones de vientos de fuerte intensidad variable y fuertes precipitaciones que produjeron el desbordamiento de los ríos y grandes inundaciones en los cantones bananeros de la provincia de Limón y en Sarapiquí, de la provincia de Heredia, produciendo graves daños a las personas y a los bienes, y entre estos a los trabajadores y a las fincas bananeras, situación que fue declarada estado de emergencia nacional por el decreto ejecutivo Nº 34906-MP de 26 de noviembre del dos mil ocho.
+3º—Que en el contexto del estado de emergencia decretado y dentro de lo permitido por el marco jurídico que regula la actividad bananera, el Gobierno considera necesario contribuir a la rehabilitación de las fincas bananeras afectadas, a fin de que puedan seguir operando lo más pronto posible y brindando los mismos índices de empleo anteriores a la catástrofe, pues un cese de operaciones de sólo algunas de la totalidad de las fincas damnificadas produciría un fuerte impacto en el empleo, en la generación de divisas, en los ingresos fiscales y en la balanza de pagos, con graves consecuencias para todo el país.
+4º—Que la Corporación Bananera Nacional es el único ente público especializado en materia bananera, que tiene como misión fundamental el desarrollo bananero nacional. Por tanto,
+DECRETAN:
+El siguiente:
+Reglamento para la Financiación de Crédito
+para la Rehabilitación Bananera ante daños
+causados por fenómenos naturales
+Artículo 1º—Objetivo del presente Reglamento. Las presentes normas regulan los recursos que se disponen para la financiación de crédito para la rehabilitación de las fincas bananeras afectadas por las inundaciones y los fuertes vientos ocurridos en la segunda quincena del mes de noviembre del 2008 y la forma en que se otorgarán los créditos a los sujetos productores.

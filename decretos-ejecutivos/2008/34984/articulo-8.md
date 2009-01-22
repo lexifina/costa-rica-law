@@ -1,0 +1,2 @@
+Artículo 8º—Aprobación. Concluido el análisis de las solicitudes, la Sección de Crédito de CORBANA remitirá cada caso al Comité de Crédito de CORBANA, el cual hará el estudio correspondiente y elevará cada asunto a conocimiento de la Junta Directiva, acompañando un informe con sus recomendaciones técnicas.
+Ese informe deberá contener la información suficiente para la torna de decisión por parte de la Junta Directiva, la cual será en definitiva el órgano que apruebe o no el crédito.
