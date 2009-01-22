@@ -1,0 +1,1 @@
+Artículo 16.—La Secretaría Municipal cada tres meses deberá enviar para conocimiento de la Comisión de Educación el listado de los estudiantes que por bajo rendimiento académico perdieron el derecho a la beca por el resto del año.

@@ -1,0 +1,1 @@
+Artículo 3º—Los estudiantes que soliciten becas municipales deben ser vecinos del cantón de Bagaces, lo que se comprobará mediante una constancia expendida por la Comandancia de plaza de distritos que conforman el cantón u otro requisito que solicite previamente la Comisión de Educación.

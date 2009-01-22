@@ -1,0 +1,1 @@
+Artículo 2º—Las becas adjudicadas serán para realizar estudios en el país y serán exclusivamente para estudiantes de Primaria, Secundaria y Educación Superior Pública, así como instituciones reconocidas por el Ministerio de Educación Pública para impartir cursos libres, bachillerato por madurez y otros que reconozca la Comisión de Educación.

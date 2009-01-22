@@ -1,0 +1,1 @@
+Artículo 12.—Solamente se otorgará una beca por familia, quedando a criterio de la Comisión a otorgar otra beca con base al estudio socioeconómico del respectivo núcleo familiar y recomendación del Departamento de Orientación del Centro Educativo correspondiente.

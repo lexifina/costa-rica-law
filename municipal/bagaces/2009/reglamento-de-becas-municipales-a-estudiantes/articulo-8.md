@@ -1,0 +1,1 @@
+Artículo 8º—No constituye impedimento formal que los hijos o familiares de empleados municipales puedan ser beneficiarios del programa de becas siempre y cuando cumplan con las disposiciones del presente Reglamento.
