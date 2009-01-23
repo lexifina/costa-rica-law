@@ -49,10 +49,11 @@ B031 | Establecimientos de atención con servicios de terapias alternativas y co
 B032 | Establecimientos con servicios transitorios de hospedaje y alimentación con cuidados médicos y de enfermería.
 B033 | Establecimientos donde se ejerzan otras profesiones en ciencias de la salud, sin que medie prescripción medicamentosa y la realización de procedimientos invasivos.
 B034 | Ferias de la salud
+BO35 | Establecimientos de belleza y estética asociados a procedimientos invasivos. (Así adicionado este establecimiento por el artículo 3° del decreto ejecutivo N° 35145 del 23 de enero de 2009)
 Establecimientos del Grupo C:
 Código | Tipo de establecimiento
 C001 | Establecimientos de atención ambulatoria especializada para personas con problemas en el consumo de alcohol y otras drogas.
-C002 | Establecimientos de atención con servicios de estética, cosmetología, peluquería y salas de belleza de moderado y bajo riesgo.
+C002 | (Eliminado este código por el artículo 3° del decreto ejecutivo N° 35145 del 23 de enero de 2009)
 C003 | Establecimientos de atención con servicios de electrodiagnóstico.
 C004 | Ambulancias de Tipo B: Soporte Intermedio.
 C005 | Ambulancias de Tipo C: Soporte Básico.

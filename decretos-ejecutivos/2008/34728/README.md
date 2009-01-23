@@ -14,3 +14,4 @@ Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Minist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-09 | la propia norma |
+| 2 | 2009-01-23 | Decreto Ejecutivo 35145 (2009-01-23) |

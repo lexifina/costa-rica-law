@@ -2,8 +2,9 @@ Anexo Nº 5
 Requerimiento de Planes
 Tipo de establecimiento según riesgo sanitario y ambiental | Cantidad de personas | Plan de Emergencia | Programa de Salud Ocupacional
 Todos los establecimientos o actividades de Grupo A, B y C | 20 a 49 empleados u ocupantes | Debe esta implementado a los 4 meses contados a partir del día siguiente al otorgamiento del PSF por primera vez y tenerlos disponibles en el momento de la inspección. | ………
-Todos los establecimiento o actividades de Grupo A, B y C | 50 o más empleados | Debe esta implementado a los 4 meses contados a partir del día siguiente al otorgamiento del PSF por primera vez y tenerlos disponibles en el momento de la inspección.
-El Plan de Manejo de desechos sólidos y líquidos, actividades de riesgo A, B y C, deberán ser presentados para su aprobación y posterior control de su implementación, por parte de las autoridades de salud, únicamente cuando por la naturaleza de los residuos o la cantidad de éstos no fuere sanitariamente aceptable el uso del sistema público de recolección; o cuando no existe dicho sistema en la localidad donde se ubica el establecimiento o la actividad; así como en aquellos casos donde se generen residuos de carácter infecto-contagiosos, peligrosos o insalubres, o exista normativa específica que así lo ordene.
+Todos los establecimiento o actividades de Grupo A, B y C | 50 o más empleados u ocupantes | Debe estar implementado a los 4 meses contados a partir del día siguiente al otorgamiento del PSF por primera vez y tenerlos disponibles en el momento de la inspección.
+El Plan de Manejo de Desechos de actividades de riesgo A, B y C, deberá ser implementados para su posterior control por parte de las autoridades de salud, únicamente cuando por la naturaleza de los residuos o la cantidad de éstos no fuere sanitariamente aceptable el uso del sistema público de recolección; o cuando no existe dicho sistema en la localidad donde se ubica el establecimiento o la actividad; así como en aquellos casos donde se generen residuos de carácter infecto-contagiosos, peligrosos o insalubres, o exista normativa específica que así lo ordene.
+(Así reformada la Tabla anterior por el artículo 4° del decreto ejecutivo N° 35145 del 23 de enero de 2009)
 Guía para la elaboración
 Plan de Emergencias
 Tal y como lo define la Comisión Nacional de Emergencias, el Plan de Emergencias, es el producto de una serie de análisis, observaciones y evaluaciones planificadas, dirigidas y calendarizadas en un documento, que tiene como fin servir de guía para las fases de prevención, mitigación, preparación, respuesta y rehabilitación, acciones que deben llevarse a cabo frente a situaciones de emergencia, o de inminente desastre, provocadas por la vulnerabilidad que presentan las personas, las edificaciones o los sistemas frente a las amenazas propias de la naturaleza, como pueden ser los sismos, las inundaciones, los huracanes, actividad volcánica, deslizamientos, o bien provocados por actividades realizadas por el hombre como son los incendios, los derrames de productos peligrosos y las explosiones.
@@ -60,10 +61,9 @@ Descripción de los tipos de evaluación que se emplearán para determinar la fu
 Descripción de las acciones que llevarán a cabo para la rehabilitación y reconstrucción de los servicios.
 Calendario de trabajo (donde se anoten las fechas de acondicionamiento y reparaciones que se llevarán a cabo; con el fin de minimizar la vulnerabilidad de las instalaciones, adquisición e instalación de equipos o sistemas necesarios para enfrentar una situación de emergencia y cualquier otra acción o actividad que se origine de la evaluación realizada.
 Fundamento legal: Artículos 1, 25, 303 y 304 de la Ley General de Salud , Artículos 282, 288 y 300 de la Ley de Riesgos del Trabajo, Decreto MTSS-27434 "Reglamento sobre las Oficinas o Departamentos de Salud Ocupacional", Decreto No. 18379-TSS "Reglamento Comisiones de Salud Ocupacional", Ley y Reglamento del Benemérito Cuerpo de Bomberos.
-***********************************************************
-Guía para la elaboración
+(*) Guía para la elaboración
 Plan de Manejo de Desechos
-1) INFORMACIÓN GENERAL
+1) INFORMACIÓN GENERAL:
 a) Nombre del establecimiento
 b) Ubicación
 c) Representante legal
@@ -73,23 +73,26 @@ d) Medios de comunicación
 Ø Apartado
 Ø E- mail
 e) Jornada de Trabajo
-f) Legislación relacionada:
-Ley Orgánica del Ambiente
+f) Legislación conexa:
 Ley General de Salud
-Ley conservación de vida silvestre
-Reglamento para el otorgamiento de permisos de funcionamiento
+Ley Orgánica del Ambiente
+Ley Conservación de Vida Silvestre
+Reglamento para el Otorgamiento de Permisos de Funcionamiento
 Reglamento Manejo de Basuras
-Reglamento sobre rellenos sanitarios (DE-27378-S)
+Reglamento sobre Rellenos Sanitarios (DE-27378-S)
 Reglamento sobre el Manejo de Desechos Peligrosos
 Manejo sobre Características y Listado de Desechos Peligrosos
-Reglamento de Aprobación y Operación de plantas de tratamiento (31545-S-MINAE y 32232-S-MINAE)
-Reglamento de vertidos y reuso de aguas residuales (DE-33601-MINAE-S)
-g) Permiso de funcionamiento: No.
+Reglamento de Aprobación y Operación de Plantas de Tratamiento (31545-S-MINAE y 32232-S-MINAE)
+Reglamento de Vertidos Y reuso de Aguas Residuales (DE-33601-MINAE-S)
+Reglamento sobre Higiene Industrial (DE-11492-S)
+Reglamento sobre Llantas de Desecho (DE-33745-S)
+Reglamento sobre Emisión de Calderas (DE-30222-S-MINAE)
+g) Permiso de funcionamiento: No
 h) Proceso industrial (solo para industrias)
 Ø Descripción del proceso
 Ø Lista de materias primas
 Ø Productos finales
-2) MANEJO DE DESECHOS SÓLIDOS
+2) MANEJO DE DESECHOS SÓLIDOS:
 a) Desechos sólidos esperados (características y cantidades)
 b) Fuentes de generación
 c) Manejo interno de los residuos sólidos generados.
@@ -98,20 +101,29 @@ e) Disposición final: propio o contratado
 f) Transporte
 g) Sistema de tratamiento (describirlo, debe tener los permisos del Ministerio de Salud,
 ubicación, construcción y operación.
-3) MANEJO DE DESECHOS LÍQUIDOS
+3) MANEJO DE DESECHOS LÍQUIDOS:
 a) Desechos líquidos esperados (Características y cantidades)
 b) Fuentes de generación
 c) Manejo interno de los residuos líquidos generados, (Ejemplo disolventes, aguas de lavado).
 d) Almacenamiento
 d. 1 Transporte
-e) Disposición final, (cuerpo receptor, alcantarillado u otro aprobado por el Ministerio)
+e) Disposición final, (cuerpo receptor, alcantarillado u otro aprobado por el Ministerio).
 f) Sistema de tratamiento, (describirlo, debe tener los permisos del Ministerio de Salud: ubicación, construcción y operación).
-a) Reportes operacionales presentados, (Decreto No 26042-S-M1NAE. La Gaceta No 17 del 19 de junio de 1999).
+a) Reportes operacionales presentados, (Decreto No 26042-S-MINAE. La Gaceta No. 17 del 19 de junio de 1999).
 b) Periodicidad.
-4) ESTRATEGIAS DE ORGANIZACIÓN
+4) MANEJO DE EMISIONES ATMOSFÉRICAS:
+a) Emisiones atmosféricas esperadas (Características y cantidades aproximadas).
+b) Fuentes de generación.
+c) Plan de control de las emisiones generadas (equipos utilizados, análisis fisicoquímicos).
+d) Sistemas de tratamiento, (describirlos).
+e) Para calderas
+a. Reportes operacionales presentados, (Decreto No. 30222-S-MINAE).
+b. Periodicidad.
+5) ESTRATEGIAS DE ORGANIZACIÓN:
 - Justificación del Plan
 a) Proceso interno de manejo y control
 b) Responsables
 c) Período de implementación
 d) Cronograma
-e) Consideraciones generales
+e) Consideraciones generales.
+(*) (Así reformada la guía para la elaboración Plan de Manejo de Desechos por el artículo 4° del decreto ejecutivo N° 35145 del 23 de enero de 2009)
