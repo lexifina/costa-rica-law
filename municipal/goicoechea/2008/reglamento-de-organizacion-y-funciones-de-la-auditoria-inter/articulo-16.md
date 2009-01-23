@@ -1,0 +1,1 @@
+Artículo 16.—Actualización del Reglamento de Organización y Funciones de la Unidad de Auditoría Interna. Con base a lo que establece el artículo 22, inciso h) de la Ley General de Control Interno, el Auditor Interno, deberá mantener debidamente actualizado el Reglamento de Organización y Funciones de la Auditoría Interna.

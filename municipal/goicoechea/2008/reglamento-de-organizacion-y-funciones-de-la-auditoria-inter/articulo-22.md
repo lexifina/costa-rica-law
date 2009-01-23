@@ -1,0 +1,2 @@
+Artículo 22.—Pericia y debido cuidado profesional. Los trabajos deben cumplirse con pericia y con el debido cuidado profesional.
+Los funcionarios de la Auditoría Interna, deben reunir los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades individuales. El personal de la Auditoría Interna, colectivamente, debe reunir u obtener los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades.

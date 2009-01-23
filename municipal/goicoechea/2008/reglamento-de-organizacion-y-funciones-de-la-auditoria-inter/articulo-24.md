@@ -1,0 +1,1 @@
+Artículo 24.—Personal de Auditoría Interna. El personal de la Auditoría Interna, mantendrá un rango superior a los demás funcionarios de la Administración Activa, al ejercer funciones de fiscalización.

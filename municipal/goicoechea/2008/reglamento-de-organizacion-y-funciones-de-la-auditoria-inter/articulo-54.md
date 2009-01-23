@@ -1,0 +1,1 @@
+Artículo 54.—Requisitos de custodia para los registros y documentación del trabajo. El Auditor Interno debe establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos de retención deben ser consistentes con las regulaciones pertinentes u otros requerimientos sobre este tema.

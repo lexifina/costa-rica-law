@@ -1,0 +1,1 @@
+Artículo 30.—Desarrollo profesional continuado. Los funcionarios de la Auditoría Interna, deben perfeccionar y actualizar sus conocimientos, aptitudes y otras competencias mediante la capacitación profesional continua.

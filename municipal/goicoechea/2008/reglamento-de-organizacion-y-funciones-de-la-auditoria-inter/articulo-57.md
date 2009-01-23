@@ -1,0 +1,1 @@
+Artículo 57.—Criterios para la comunicación. Las comunicaciones deben incluir los objetivos, el alcance, hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de éste.

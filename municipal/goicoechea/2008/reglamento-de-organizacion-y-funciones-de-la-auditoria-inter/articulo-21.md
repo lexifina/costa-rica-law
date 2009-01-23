@@ -1,0 +1,1 @@
+Artículo 21.—Idoneidad de los funcionarios de Auditoría Interna: Los demás funcionarios de la Auditoría Interna, que ejecuten labores de auditoría, deberán ser profesionales capacitados en materia de auditoría interna, con conocimientos en el ámbito contable y administrativo y en algunos casos en áreas especializadas como son: de informática, ingeniería civil y derecho.

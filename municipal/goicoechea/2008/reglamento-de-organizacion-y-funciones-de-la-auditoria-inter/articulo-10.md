@@ -1,0 +1,1 @@
+Artículo 10.—Jornada laboral del Auditor Interno. La jornada laboral del Auditor Interno, será de tiempo completo; sin embargo, podrá ausentarse de las instalaciones de la Institución, en el cumplimiento de sus funciones y competencias.

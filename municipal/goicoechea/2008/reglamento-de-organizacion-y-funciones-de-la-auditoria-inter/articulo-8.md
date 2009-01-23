@@ -1,0 +1,2 @@
+Artículo 8º—Estructura. En la Municipalidad de Goicoechea existirá una sola Unidad de Auditoría Interna.
+El Concejo Municipal, al ubicar dentro de la estructura organizativa la actividad de Auditoría Interna (Organigrama de la Institución), debe vigilar y ordenar que se dé fiel cumplimiento a la normativa legal y técnica pertinente, debiendo al efecto garantizar que la Auditoría Interna se ubique, mantenga y funcione dentro de la organización, como una de las unidades de mayor rango y con dependencia orgánica del máximo Jerarca (Concejo Municipal).

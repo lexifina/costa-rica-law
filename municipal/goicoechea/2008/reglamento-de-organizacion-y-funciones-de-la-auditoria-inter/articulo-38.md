@@ -1,0 +1,1 @@
+Artículo 38.—Incorporación de profesionales. La Auditoría Interna, podrá incorporar a profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Institución, para que lleven a cabo labores de su especialidad, en apoyo a las auditorías que realice la Auditoría Interna.

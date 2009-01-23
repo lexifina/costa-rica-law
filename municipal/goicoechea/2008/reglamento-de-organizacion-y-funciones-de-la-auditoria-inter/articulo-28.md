@@ -1,0 +1,1 @@
+Artículo 28.—Capacitación El Concejo Municipal, de acuerdo a sus posibilidades, deberán solicitar, coordinar y apoyar al Auditor Interno y demás funcionarios de la Auditoría Interna, en un programa de capacitación y actualización basados en las exigencias de tales funciones y requisitos. Lo anterior sin perjuicio de la obligación de actualización constante que compete a ambos.
