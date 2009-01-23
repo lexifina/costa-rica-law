@@ -4,7 +4,7 @@ Artículo 7º.- (*) Para la aplicación del presente reglamento, la Autoridad Co
 (*) (Así reformado por el artículo 1° del decreto ejecutivo N° 26983 del 22 de abril de 1998)
 a) Emitir las normas y criterios técnicos complementarios a este reglamento, orientados a proteger a las personas y al medio ambiente de eventuales contaminaciones radiactivas y de exposiciones no deseadas a las radiaciones ionizantes.
 b) Corresponde a las Áreas Rectoras de Salud del Ministerio, otorgar el permiso sanitario de funcionamiento para los establecimientos donde operen equipos o fuentes emisoras de radiaciones ionizantes, bajo los lineamientos que señale el nivel central.
-(Así reformado el inciso anterior, por el artículo 65 del Decreto Ejecutivo N° 34728 de 28 de mayo de 2008).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35145 de 23 de enero de 2009).
 c) Autorizar mediante un carne a todo trabajador ocupacionalmente expuesto para trabajar con fuentes o equipos emisores de radiaciones ionizantes.
 d) Autorizar a toda persona física o jurídica, que cumpla los requisitos que se establezcan en este Reglamento y cualesquiera otras normas establecidas por la Autoridad Competente para prestar servicios vinculados con la seguridad radiológica del trabajador expuesto, del público en general, de las instalaciones y del medio ambiente.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 26983 del 22 de abril de 1998)
