@@ -1,1 +1,0 @@
-TRANSITORIO ÚNICO.-Desde la fecha de vigencia, la Administración contará con un año para emprender las medidas que estime necesarias a fin de poner en práctica lo regulado en esta normativa; durante ese periodo la fiscalización se orientará a evaluar la puesta en marcha de tales medidas.
