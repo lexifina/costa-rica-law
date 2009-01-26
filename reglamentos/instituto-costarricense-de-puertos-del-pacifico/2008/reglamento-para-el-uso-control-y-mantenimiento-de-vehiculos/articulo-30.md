@@ -1,0 +1,1 @@
+Artículo 30.—Deberes del funcionario. El funcionario asignado para la conducción de vehículos de uso discrecional deberá cumplir con todos los deberes exigidos a los conductores y usuarios en este Reglamento y en la normativa general.

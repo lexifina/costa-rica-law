@@ -1,0 +1,1 @@
+Artículo 34.—Designación de conductores para vehículos de uso discrecional. Los funcionarios a los que hace referencia el artículo 27 podrán contar con la designación de un conductor, presentando la motivación correspondiente.

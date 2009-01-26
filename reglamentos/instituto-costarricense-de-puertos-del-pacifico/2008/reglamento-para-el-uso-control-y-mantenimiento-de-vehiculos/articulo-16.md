@@ -1,0 +1,1 @@
+Artículo 16.—Del lugar de permanencia de vehículos asignados a los muelles o San José, fuera de la jornada diaria. Los vehículos asignados a los muelles o San José, cuando estén fuera de servicio deberán permanecer en las instalaciones del INCOP o en el lugar que éstas indiquen por escrito el Área de Servicios Generales y que brinden condiciones adecuadas de seguridad.

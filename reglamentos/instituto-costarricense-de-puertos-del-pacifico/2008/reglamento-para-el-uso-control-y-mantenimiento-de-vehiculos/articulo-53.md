@@ -1,0 +1,2 @@
+Artículo 53.—Programación del mantenimiento. El Área de Servicios Generales realizará la programación y definirá las características técnicas del programa para el mantenimiento preventivo de los vehículos del INCOP, señalando su periodicidad y los términos en que se llevará a cabo.
+Realizará un seguimiento y calificación de los servicios prestados por los talleres contratados y emitirá un informe dirigido a al Gerente General, cada seis meses. El Administrador de Muelles y la persona designada en San José desarrollarán la misma labor dentro del ámbito de su competencia.
