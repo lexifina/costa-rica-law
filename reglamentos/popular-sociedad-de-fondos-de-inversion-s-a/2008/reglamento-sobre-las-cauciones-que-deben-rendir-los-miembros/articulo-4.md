@@ -1,0 +1,1 @@
+Artículo 4º—Nombramiento y cese de personal. La Gerencia informará a la Coordinación de Apoyo Administrativo por escrito, el nombramiento, cese o traslado del personal en puestos que requieran presentar caución.
