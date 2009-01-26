@@ -14,3 +14,4 @@ Directrices Generales para el Establecimiento y Funcionamiento del Sistema Espec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-01 | la propia norma |
+| 2 | 2009-01-26 | Resolución 9 (2009-01-26) |
