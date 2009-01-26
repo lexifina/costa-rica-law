@@ -14,3 +14,4 @@ Aprueba documento Normas Técnicas para la Gestión y el Control de las Tecnolog
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-31 | la propia norma |
+| 2 | 2009-01-26 | Resolución 9 (2009-01-26) |
