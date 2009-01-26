@@ -14,3 +14,4 @@ Directrices que deben observar la Contraloría General de la República y las En
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-30 | la propia norma |
+| 2 | 2009-01-26 | Resolución 9 (2009-01-26) |
