@@ -1,28 +1,15 @@
 SECCION I
 De la Junta Directiva
-Artículo 7º.- La Junta Directiva estará constituida por siete
-miembros en la siguiente forma:
-a) Por un Presidente Ejecutivo designado por el Consejo de Gobierno,
-cuya gestión se regirá por las siguientes normas:
-1) Será el funcionario de mayor jerarquía para efectos de gobierno
-de la institución y le corresponderá fundamentalmente velar porque las
-decisiones tomadas por la Junta se ejecuten, así como coordinar la acción
-de la entidad cuya Junta preside, con la de las demás instituciones del
-Estado. Asimismo, asumirá las demás funciones que por ley le están
-reservadas al Presidente de la Junta Directiva, así como las otras que le
-asigne la propia Junta;
-2) Será un funcionario de tiempo completo y de dedicación exclusiva;
-consecuentemente, no podrá desempeñar ningún otro cargo público, ni
-ejercer profesiones liberales;
-3) Podrá ser removido libremente por el Consejo de Gobierno, en
-cuyo caso tendrá derecho a la indemnización laboral que le corresponda
-por el tiempo servido en el cargo, de acuerdo con las disposiciones de
-los artículos 28 y 29 del Código de Trabajo; y
-b) Por seis personas de amplios conocimientos o de reconocida
-experiencia en el campo de actividades de la correspondiente institución,
-o con título profesional reconocido por el Estado, de nombramiento del
-Consejo de Gobierno.
-(Así reformado por el artículo 4º de la Ley Nº 5507 de 19 de abril de
-1974, y complementado por el artículo 3º de la misma ley que lo somete al
-régimen establecido en el artículo 5º de la Ley 4646 del 20 de octubre de
-1970 )
+Artículo 7º.- La Junta Directiva estará constituida por siete (7) miembros en la siguiente forma:
+a) Por un Presidente Ejecutivo designado por el Consejo de Gobierno, cuya gestión se regirá por las siguientes normas:
+1) Será el funcionario de mayor jerarquía para efectos de gobierno de la institución y le corresponderá fundamentalmente velar porque las decisiones tomadas por la Junta se ejecuten, así como coordinar la acción de la entidad cuya Junta preside, con la de las demás instituciones del Estado. Asimismo, asumirá las demás funciones que por ley le están reservadas al Presidente de la Junta Directiva, así como las otras que le asigne la propia Junta;
+2) Será un funcionario de tiempo completo y de dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público, ni ejercer profesiones liberales;
+3) Podrá ser removido libremente por el Consejo de Gobierno, en cuyo caso tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo, de acuerdo con las disposiciones de los artículos 28 y 29 del Código de Trabajo; y
+(*) b) Por seis (6) personas con amplios conocimientos, experiencia y preparación técnica en materia municipal, así como de reconocida probidad, que serán escogidas así: tres (3), como representantes del Poder Ejecutivo, de libre nombramiento del Consejo de Gobierno, quienes no podrán ser ministros de Gobierno, y tres (3), elegidas por las municipalidades del país.
+Los miembros citados en este inciso, se escogerán y designarán conforme a las siguientes reglas:
+1) Serán representantes nombrados por el Consejo de Gobierno, previa selección efectuada por las asambleas de representantes de las municipalidades del país, respetando los principios democráticos de libertad, orden, pureza e imparcialidad y sin que el Poder Ejecutivo pueda desconocer ni impugnar tales designaciones o tener injerencia sobre ellas.
+2) La Junta Directiva del IFAM convocará, durante el trimestre siguiente a la toma de posesión del cargo del presidente de la República , a las corporaciones municipales, para que efectúen el proceso de elección. El Poder Ejecutivo dispondrá, reglamentariamente, los procedimientos por aplicar a los procesos de elección, mediante el sistema de elección por medio de las asambleas de representantes; para tales efectos, cada una de las municipalidades del país contará con dos (2) representantes electos por el concejo municipal.
+3) La asamblea de representantes tomará sus acuerdos por mayoría absoluta de votos. Si la asamblea de representantes no se reúne, no se celebra dentro del plazo fijado reglamentariamente o no elige a los miembros de la Junta Directiva que le compete, el Consejo de Gobierno los nombrará libremente. Si los candidatos a directores en la asamblea de representantes no alcanzan la mayoría absoluta, el Consejo de Gobierno los nombrará de una nómina formada por los cinco (5) candidatos que hayan obtenido la mayor cantidad de votos en la elección. El Consejo de Gobierno no podrá rechazar esta nómina.
+4) Los miembros de la Junta Directiva de la institución que representen a las corporaciones municipales, serán nombrados por períodos de cuatro (4) años y podrán ser reelegidos.
+(*) (Así reformado el inciso anterior por el artículo único de la ley N° 8699 del 5 de enero de 2009)
+(Así reformado por el artículo 4º de la Ley Nº 5507 de 19 de abril de 1974, y complementado por el artículo 3º de la misma ley que lo somete al régimen establecido en el artículo 5º de la Ley 4646 del 20 de octubre de 1970 ).
