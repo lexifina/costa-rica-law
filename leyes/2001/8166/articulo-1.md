@@ -1,5 +1,7 @@
+(Derogado)
 LEYES
 8166
+(Derogada por el artículo 18 de la Ley Creación del Instituto de Desarrollo Profesional Uladislao Gámez Solano N° 8697 del 12 de diciembre de 2008)
 ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA,
 decreta:
