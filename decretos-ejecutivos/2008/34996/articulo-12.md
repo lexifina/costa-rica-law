@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 12.—Registro de firmas. Deberá existir en el Departamento de Exenciones de la Dirección General de Hacienda del Ministerio de Hacienda, un Registro actualizado de las firmas de los Encargados de la administración del contrato de obra del MOPT o del CONAVI, así como de los funcionarios que a su vez sean autorizados expresamente por éstos.
+Corresponderá a los funcionarios autorizados del MOPT o del CONAVI aportar la información pertinente para que dicho registro se mantenga debidamente actualizado por parte del Departamento de Exenciones de la Dirección General de Hacienda del Ministerio de Hacienda. Asimismo, el citado Departamento llevará un registro de las personas físicas que estuvieren autorizadas por las empresas constructoras para que lleven a cabo los trámites pertinentes ante dicha dependencia y las restantes oficinas del Ministerio de Hacienda.
