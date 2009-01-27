@@ -1,0 +1,1 @@
+ARTÍCULO 8.- El proceso de elaboración del plan de trabajo anual, involucra la formulación de estrategias, programas y proyectos que promuevan el trabajo, con miras a atender las necesidades detectadas, tanto por el MEP como por los actores parte del Sistema, así como la evaluación y el seguimiento periódicos de su implementación.
