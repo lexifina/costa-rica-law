@@ -1,1 +1,1 @@
-Artículo 5°—Revalidaciones en el exterior. Cuando se realice una revalidación de un pasaporte diplomático o de servicio en el exterior, por alguno de los jerarcas del Ministerio de Relaciones Exteriores y Culto, el Jefe de Misión de donde se tramitó, deberá comunicarlo por escrito al Departamento de Pasaportes, en un plazo no mayor de ocho días.
+Artículo 5°—(DEROGADO, por el artículo 2° del decreto ejecutivo N° 35086 de 27 de enero de 2009).

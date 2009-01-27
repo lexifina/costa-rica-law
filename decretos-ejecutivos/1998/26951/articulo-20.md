@@ -1,21 +1,18 @@
 CAPITULO IV
 Requisitos para el otorgamiento de pasaportes
 diplomáticos y de servicio
-Artículo 20.—Requisitos de la solicitud de pasaporte diplomático y de servicio. El Departamento de Pasaportes deberá exigir al solicitante de pasaporte diplomático o de servicio, la siguiente documentación sin la cual y sin excepción, no se otorgara el documento:
-a. Nota de solicitud del pasaporte dirigida al Ministro de Relaciones Exteriores y Culto, que incluya los datos personales nombre y dos apellidos, número de cédula, dirección exacta, número de teléfono, tipo de sangre, estado civil y oficio o profesión.
-Para el cumplimiento de este fin. los funcionarios que requieran
-tramitar pasaportes deberán retirar en forma personal o a través de un tercero autorizado, en el Departamento de Pasaportes, el correspondiente formulario y entregarlo con la información requerida, con cuarenta y ocho horas de anticipación. Sólo en casos de urgencia se prescindirá de este requisito y la información será suministrada directamente o vía fax al citado Departamento.
-b. Condición que invoca para recibir el documento solicitado: pasaporte diplomático o de servicio, y la comprobación de la misma con documento idóneo.
-c. Fotocopia de la cédula de identidad.
-d. Tres fotografías tamaño pasaporte, a color y en traje formal, con no más de tres meses de efectuada.
-e. Acuerdo de viaje o nombramiento en el cargo emanado de la Autoridad competente.
-f. En el caso de los menores de edad, la autorización de salida del país del Patronato Nacional de la Infancia.
-g. En caso de ser deudor alimentario, haber cumplido con los requisitos legales sobre pensiones alimenticias. En todo caso se comunicara a las autoridades migratorias, que deberá impedir la salida del país a quien aún portando pasaporte diplomático, tenga deudas alimentarias pendientes de pago, de acuerdo con el sistema computarizado que al efecto se encuentra en las terminales migratorias del país.
-h. En caso de incapacidad física o mental, la misma deberá acreditarse mediante dictamen médico correspondiente que detalle la incapacidad padecida y que la misma le impide atender sus propios intereses.
-i. En caso de extravío, sustracción o pérdida del pasaporte, la copia de la denuncia ante el Órgano Judicial correspondiente del extravío o sustracción del documento migratorio.
-j. Cualquier otro documento que a juicio del titular del Departamento de Pasaportes sea necesario para garantizar la idoneidad del solicitante.
-k) Tratándose de Pasaportes de Servicio a nombre de funcionarios de la Administración Centralizada, la autorización del viaje otorgada por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN); según lo dispuesto en inciso 4) del artículo 2° de la Ley N° 7411. Para dicha autorización, los interesados deberán brindar la información solicitada en el formulario que para tales efectos proporcionara MIDEPLAN.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27335 de 6 de octubre de 1998).
-l. A los miembros del Gobierno Municipal y los Gobernadores de las provincias, el acuerdo correspondiente y la justificación del viaje en ejercicio de sus funciones.
-m. En el caso de los hijos y cónyuges, los documentos expedidos por el Registro Civil que demuestren dicha filiación. En lo que respecta a matrimonio la certificación no podrá tener más de un mes de expedida.
-n. La entrega del pasaporte agotado en el Departamento de Pasaportes para la expedición de uno nuevo conforme al artículo veinticuatro del presente reglamento.
+Artículo 20.—Requisitos de la solicitud de pasaportes:
+a) Oficio de solicitud de pasaporte suscrito por el jerarca de la institución, o por la persona autorizada mediante acuerdo publicado en el Diario Oficial La Gaceta , dirigido al Ministro de Relaciones Exteriores y Culto o a la persona por él designada, de conformidad con el artículo 3 de este Reglamento, que incluya los siguientes datos de la persona que viaja: nombre completo, número de cédula de identidad, vigencia del cargo, justificación y fecha del viaje y el número de acuerdo correspondiente.
+b) Formulario de solicitud de pasaportes, disponible en la página electrónica del Ministerio de Relaciones Exteriores y Culto.
+c) Fotocopia de la cédula de identidad para los costarricenses, y del pasaporte vigente de su país de origen en caso de no nacionales con derecho a pasaporte.
+d) Fotocopia del acuerdo de viaje o nombramiento en el cargo, emanado por la autoridad competente, donde conste la firma del jerarca de la institución. No se aceptará el sello de “original firmado por” o el uso de facsímil.
+e) En el caso de los menores de edad, el acta de nacimiento emanada por el Registro Civil y debidamente certificada. Antes de la salida del país deberá tramitarse el permiso de salida ante la Dirección General de Migración o la autoridad correspondiente.
+f) En caso de ser deudor alimentario, haber cumplido con los requisitos legales sobre pensiones alimenticias, ya que el ser portador de pasaporte diplomático o de servicio no lo exime del pago de dicha obligación.
+g) En caso de personas con discapacidad física o mental mayores de veinticinco años de edad, que no pueden valerse por sí mismas y que son dependientes de sus padres, se deberá acreditar mediante dictamen médico de la Caja Costarricense del Seguro Social, con no más de 30 días de expedido, la discapacidad padecida y que la misma le impide atender sus propios intereses.
+h) En caso de extravío, sustracción o perdida de pasaporte, el original de la denuncia correspondiente ante el órgano judicial competente.
+i) Cualquier otro documento que a juicio del titular del Departamento de Pasaportes sea necesario para garantizar la idoneidad del solicitante.
+j) Tratándose de Pasaportes de Servicio a nombre de funcionarios de la Administración Centralizada , la autorización del viaje otorgada por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN); según lo dispuesto en inciso 4) del artículo 2º de la Ley N º 7411. Para dicha autorización, los interesados deberán brindar la información solicitada en el formulario que para tales efectos proporciona MIDEPLAN.
+k) A los miembros del Gobierno Municipal y los Gobernadores de las provincias, solicitud del pasaporte suscrita por el jerarca o por la persona autorizada mediante decreto publicado en el Diario Oficial, dirigida al Ministro de Relaciones Exteriores y Culto o a la persona por él designada, de conformidad con el artículo 3 de este Reglamento, que incluya los siguientes datos: nombre completo, número de cédula de identidad, vigencia del cargo, justificación y fecha del viaje y el número de acuerdo correspondiente.
+l) En el caso de los hijos y cónyuges, los documentos expedidos por el Registro Civil que demuestren dicha filiación. En lo que respecta a matrimonio la certificación no podrá tener más de 30 días de expedida.
+m) La entrega del pasaporte agotado o vencido, cuando corresponda, al Departamento de Pasaportes, para la expedición de uno nuevo conforme al artículo veinticinco.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35086 de 27 de enero de 2009).

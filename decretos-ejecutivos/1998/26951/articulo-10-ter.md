@@ -1,0 +1,2 @@
+Artículo 10 ter.—Uso de los pasaportes diplomáticos y de servicio. Los documentos de viaje serán utilizados por los usuarios en razón de su cargo o de su vinculo familiar con el beneficiario, y será estrictamente para facilitar los movimientos migratorios derivadas del cargo, condición o misión, sin que puedan ser utilizados para fines comerciales o de cualquier otra naturaleza que desvirtúen su uso oficial.”
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 35086 de 27 de enero de 2009).

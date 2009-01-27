@@ -1,0 +1,2 @@
+Artículo 10 bis.—Los pasaportes diplomáticos no serán retirados por las autoridades migratorias costarricenses al ingreso al país, así como los pasaportes de servicio regulados en el artículo 2 inciso1 de la ley Nº 7411. Los pasaportes de servicio contemplados en el artículo 2 incisos 2, 3 y 4 de la Ley N º 7411 si serán retirados por las autoridades migratorias costarricenses al ingreso al país.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 35086 de 27 de enero de 2009).
