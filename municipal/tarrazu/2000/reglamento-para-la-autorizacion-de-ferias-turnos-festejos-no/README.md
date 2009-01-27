@@ -15,3 +15,4 @@ Reglamento para la autorización de ferias, turnos, festejos, novilladas, activi
 | --- | --- | --- |
 | 1 | 2000-06-29 | la propia norma |
 | 2 | 2004-12-06 | Reglamento municipal 133 (2004-12-06) |
+| 3 | 2009-01-27 | Reglamento municipal 141 (2009-01-27) |
