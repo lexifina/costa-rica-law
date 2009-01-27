@@ -1,1 +1,0 @@
-Artículo 2°—El Instituto tendrá su domicilio legal en la provincia de Heredia; sin embargo, queda autorizado para abrir, en el resto del país, las sedes que considere necesarias, según lo determinen los estudios técnicos que sustenten los acuerdos de la Junta Directiva.
