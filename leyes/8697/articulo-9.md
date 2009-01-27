@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Para que el Instituto de Desarrollo Profesional Uladislao Gámez Solano pueda cumplir las funciones estipuladas en la presente Ley, el MEP lo dotará del personal docente y los recursos necesarios, de conformidad con el artículo 15 de la presente Ley.

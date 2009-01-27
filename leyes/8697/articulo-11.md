@@ -1,0 +1,1 @@
+ARTÍCULO 11.- El Consejo Directivo designará, de acuerdo con el artículo 9 de esta Ley, a un administrador financiero idóneo para que se haga cargo de los fondos asignados y obtenidos por el Instituto, mediante un uso adecuado, racional, eficiente y eficaz de estos.
