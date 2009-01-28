@@ -14,3 +14,4 @@ Aprueba Reglamento sobre operaciones especiales para enfrentar requerimentos ext
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-12 | la propia norma |
+| 2 | 2009-01-28 | Reglamento 5412 (2009-01-28) |
