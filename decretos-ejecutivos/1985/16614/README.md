@@ -17,3 +17,4 @@ Crea Refugio Nacional de Vida Silvestre Gandoca-Manzanillo
 | 2 | 1994-03-21 | Decreto Ejecutivo 23069 (1994-03-21) |
 | 3 | 2005-05-16 | Decreto Ejecutivo 32753 (2005-05-16) |
 | 4 | 2007-09-11 | Decreto Ejecutivo 34043 (2007-09-11) |
+| 5 | 2009-01-28 | SINALEVI (sin norma nombrada) |
