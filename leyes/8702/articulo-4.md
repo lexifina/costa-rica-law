@@ -1,0 +1,1 @@
+ARTÍCULO 4.- La información que presenta el solicitante ante el Registro del Departamento de Insumos Agrícolas del Servicio Fitosanitario del Estado no podrá ser requerida de nuevo por este para el mismo trámite; tampoco podrá solicitar información que una o varias de sus mismas oficinas emitan o posean, excepto la presentación de la documentación para la reválida.
