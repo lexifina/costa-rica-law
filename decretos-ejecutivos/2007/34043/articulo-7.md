@@ -1,1 +1,2 @@
-Artículo 7º—Deróguese el Decreto Nº 32753 del 25 de noviembre de 2005.
+Artículo 7º—Anulado
+(Anulado mediante resolución de la Sala Constitucional N° 1056 del 28 de enero de 2009).
