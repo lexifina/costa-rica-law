@@ -15,3 +15,4 @@ Ratifica vigencia de los artículos 1°, 2°, 3°, 4°, 7° y 8° del decreto ej
 | --- | --- | --- |
 | 1 | 2005-11-25 | la propia norma |
 | 2 | 2007-09-11 | Decreto Ejecutivo 34043 (2007-09-11) |
+| 3 | 2009-01-28 | SINALEVI (sin norma nombrada) |
