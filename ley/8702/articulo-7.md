@@ -1,0 +1,9 @@
+ARTÍCULO 7.- Las solicitudes para el registro de productos formulados, deben presentarse en idioma español, con la descripción del producto y sus características.
+Los interesados deberán aportar un original con dos copias y adjuntar lo siguiente:
+1) Las propiedades físicas y químicas del ingrediente activo.
+2) Las características del producto formulado.
+3) Los métodos analíticos del ingrediente activo.
+Los requisitos 1 y 3 no deben ser presentados cuando se trate de registrar ingredientes activos grado técnico o plaguicidas formulados con ingredientes activos grado técnico que, por haber expirado los plazos de protección de las patentes o de la información referida a los datos de prueba, se consideran genéricos y se encuentran registrados en el país por diez (10) años o más.
+4) Indicar el uso solicitado. Cuando se pretenda registrar usos nuevos, es decir, que no se encuentren autorizados para plaguicidas formulados con ese ingrediente activo, se requerirán pruebas y ensayos de eficacia, los cuales podrán ser realizados y supervisados por el INTA. En caso de que el uso solicitado ya se encuentre registrado, con el mismo tipo de formulación y con una concentración similar, no deberán presentarse pruebas ni ensayos de eficacia o residuos.
+5) Efectos físicos, químicos y biológicos derivados de la aplicación del plaguicida; la información que se aporte podrá ser bibliográfica relacionada con el ingrediente activo grado técnico, siempre y cuando no se encuentre protegida por derechos patentarios, ni constituyan datos de prueba con protección vigente.
+La información que el solicitante presenta ante el Registro del Departamento de Insumos Agrícolas del Servicio Fitosanitario del Estado para el registro de productos formulados, no podrá ser requerida de nuevo por este para el mismo trámite; tampoco podrá solicitar información que una o varias de sus mismas oficinas emitan o posean, excepto la presentación de la documentación para la reválida.
