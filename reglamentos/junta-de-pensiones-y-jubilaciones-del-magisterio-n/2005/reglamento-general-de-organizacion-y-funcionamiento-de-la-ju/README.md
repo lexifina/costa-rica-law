@@ -15,3 +15,4 @@ Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y 
 | --- | --- | --- |
 | 1 | 2005-03-28 | la propia norma |
 | 2 | 2005-10-12 | Reglamento 112 (2005-10-12) |
+| 3 | 2009-01-29 | Reglamento 12 (2009-01-29) |
