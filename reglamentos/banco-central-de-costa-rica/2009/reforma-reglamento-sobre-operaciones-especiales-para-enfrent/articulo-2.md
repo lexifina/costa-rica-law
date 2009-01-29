@@ -1,0 +1,5 @@
+II. Respecto de la autorización concedida a la administración del Banco para que realice subastas de compra de títulos:
+considerando que:
+en el memorando M/G-03/09 del 23 de enero del 2009 la Gerencia del Banco llama la atención sobre el hecho de que el próximo 4 de febrero del 2009, estaría expirando el periodo durante el cual se otorgó autorización a la administración del Banco para llevar a cabo subastas de compra de títulos, motivo por el cual la Gerencia considera conveniente extender por tres meses adicionales la autorización concedida mediante el numeral II del artículo 4 del acta de la sesión 5400-2008, con el fin de complementar los espacios de acción disponibles para la institución ante eventuales problemas temporales de liquidez,
+dispuso en firme:
+extender por tres meses adicionales, contados a partir del 4 de febrero del 2009, el periodo durante el cual se otorgó autorización a la administración del Banco para llevar a cabo subastas de compra de títulos, de conformidad con lo dispuesto en el numeral II del artículo 4 del acta de la sesión 5400-2008, celebrada el 3 de noviembre del 2008.
