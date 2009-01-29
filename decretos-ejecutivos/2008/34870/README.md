@@ -14,3 +14,4 @@ Reforma al artículo 3º y 5º del Decreto Ejecutivo Nº 34773-MEIC (Precio mín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-14 | la propia norma |
+| 2 | 2009-01-29 | Decreto Ejecutivo 35020 (2009-01-29) |
