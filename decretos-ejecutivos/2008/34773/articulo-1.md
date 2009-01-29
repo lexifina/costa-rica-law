@@ -18,20 +18,21 @@ PUBLICADO EN EL ALCANCE 32-A, DEL
 DIARIO OFICIAL LA GACETA Nº 172,
 DEL 05 DE SETIEMBRE DEL 2008
 Artículo 1º—Reformase el artículo primero del Decreto Ejecutivo Nº 34725-MEIC, del 14 de agosto del 2008, publicado en el Alcance 32-A, del Diario Oficial La Gaceta Nº 172, del 05 de setiembre del 2008, para que en lo sucesivo se lea de la siguiente manera:
-“Artículo 1º—Considerando el precio del saco de arroz granza, estipulado en el artículo 3º del presente Decreto Ejecutivo, se establecen los siguientes precios máximos de venta, para todas las calidades de arroz pilado, en todos los niveles de comercialización, los cuales reconocen los aumentos absolutos respectivos a los costos de industrialización y comercialización, tanto al mayoreo como al detalle, y son los siguientes:
-Arroz pilado sacos de 46 kg | De industrial a mayorista Saco/colones | De mayorista a detallista Saco/colones | De detallista a consumidor colones/kg
-De 60% a menos de 70% grano entero | 23.395,00 | 24.072,00 | 574,00
-De 70% a menos de 75% grano entero | 24.857,00 | 25.578,00 | 610,00
-De 75% a menos de 80% grano entero | 25.588,00 | 26.331,00 | 628,00
-De 80% a menos de 85% grano entero | 26.319,00 | 27.084,00 | 646,00
-De 85% a menos de 90% grano entero | 27.050,00 | 27.837,00 | 664,00
-De 90% a menos de 95% gano entero | 27.781,00 | 28.590,00 | 682,00
-De 95% a 100% grano entero | 28.512,00 | 29.343,00 | 700,00
-Arroz empacado en distintas presentaciones, equivalente a kg | De industrial a mayorista Colones/kg | De mayorista a detallista Colones/kg | De detallista a consumidor colones/kg
-De 60% a menos de 70% grano entero | 520,33 | 535,41 | 587,00
-De 70% a menos de 75% grano entero | 552,85 | 568,91 | 624,00
-De 75% a menos de 80% grano entero | 569,11 | 585,66 | 642,00
-De 80% a menos de 85% grano entero | 585,37 | 602,40 | 661,00
-De 85% a menos de 90% grano entero | 601,63 | 619,16 | 679,00
-De 90% a menos de 95% gano entero | 617,89 | 635,90 | 698,00
-De 95% a 100% grano entero | 634,15 | 652,65 | 716,00”
+“Artículo 1º— Considerando el precio del saco de arroz en granza nacional y el precio del saco de arroz en granza importado, se establecen los siguientes precios máximos de venta, para todas las calidades de arroz pilado, en todos los niveles de comercialización, los cuales son producto de la mezcla ponderada de los distintos precios del arroz en granza, según su origen, mismos que reconocen el cargo adicional de ¢17,50 por kilogramo que corresponde a la recuperación del Sector Industrial Arrocero, por el pago del diferencial en el precio del arroz en granza pagado al agricultor nacional:
+Arroz pilado sacos de 46 kg | De industrial a mayorista saco/ colones | De mayorista a detallista saco colones | De detallista a consumidor colones / kg
+De 60% a menos de 70% grano entero | 22.479,09 | 23.129,32 | 551,00
+De 70% a menos de 75% grano entero | 23.884,04 | 24.576,41 | 586,00
+De 75% a menos de 80% grano entero | 24.586,51 | 25.299,95 | 603,00
+De 80% a menos de 85% grano entero | 25.288,98 | 26.023,50 | 620,00
+De 85% a menos de 90% grano entero | 25.991,45 | 26.747,05 | 638,00
+De 90% a menos de 95% gano entero | 26.693,92 | 27.470,59 | 655,00
+De 95% a 100% grano entero | 27.396,40 | 28.194,14 | 672,00
+Arroz empacado en distintas Presentaciones, equivalentes a kg | De industrial a mayorista colones / kg | De mayorista a detallista colones/ kg | De detallista a consumidor colones / kg
+60% a menos de 70% grano entero | 500,57 | 515,06 | 565,00
+De 70% a menos de 75% grano entero | 531,85 | 547,28 | 600,00
+De 75% a menos de 80% grano entero | 547,49 | 563,39 | 618,00
+De 80% a menos de 85% grano entero | 563,14 | 579,50 | 636,00
+De 85% a menos de 90% grano entero | 578,78 | 595,62 | 653,00
+De 90% a menos de 95% grano entero | 594,42 | 611,73 | 671,00
+De 95% a 100% grano entero | 610,06 | 627,84 | 689,00
+(Así reformado por el artículo 1 del decreto ejectutivo N° 35020 del 29 de enero del 2009).

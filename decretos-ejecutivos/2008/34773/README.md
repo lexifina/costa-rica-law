@@ -15,3 +15,4 @@ Reforma decreto N° 34725. Establece precios máximos de venta para todas las ca
 | --- | --- | --- |
 | 1 | 2008-10-01 | la propia norma |
 | 2 | 2008-11-10 | Decreto Ejecutivo 34870 (2008-11-10) |
+| 3 | 2009-01-29 | Decreto Ejecutivo 35020 (2009-01-29) |
