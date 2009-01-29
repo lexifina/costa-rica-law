@@ -1,2 +1,0 @@
-Transitorio único.—Las empresas de turismo de aventura que operen antes de la promulgación del presente decreto, gozarán de un plazo de seis meses a partir de su publicación para cumplir con el requisito referente a contar con la totalidad de guías de turismo con el registro y credencial provisional o definitiva otorgada por el Instituto Costarricense de Turismo.
-(Adicionado por Decreto Ejecutivo No. 31168 artículo 2, publicado en La Gaceta No. 97 de 22 de mayo del 2003)
