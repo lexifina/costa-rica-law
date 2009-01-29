@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones del Poder Ejecutivo coordinarán con el Ministerio de Planificación y Política Económica (MIDEPLAN), con la finalidad de efectuar las modificaciones pertinentes en el Plan Nacional de Desarrollo (PND) vigente, con base en los compromisos adquiridos en el Plan Nacional sobre Drogas.
