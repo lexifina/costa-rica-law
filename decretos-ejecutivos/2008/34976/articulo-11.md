@@ -1,0 +1,1 @@
+Artículo 11.—El encargado de la subasta que recibe los animales deberá llevar una ficha con las señas y características principales (sexo, color, categoría, identificación) de cada animal, además verificará los datos consignados en la guía de transporte de los animales.

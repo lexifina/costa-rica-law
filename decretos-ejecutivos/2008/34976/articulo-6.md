@@ -1,0 +1,1 @@
+Artículo 6º—Los animales una vez recibidos e ingresados a la Subasta, obligatoriamente deberán ser subastados, y solo será procedente su retiro por parte del vendedor por razones de carácter sanitaria debidamente diagnosticadas por el Médico Veterinario Regente de Subasta; el cual hará constar tal circunstancia en el cuaderno de bitácora.

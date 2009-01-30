@@ -1,0 +1,2 @@
+Transitorio II.—Una vez que expire el permiso de funcionamiento actual emitido por el Ministerio de Salud, los establecimientos aquí regulados, deberán solicitar al SENASA la emisión por una única vez del Certificado Veterinario de Operación. En estos casos el SENASA, realizará una inspección de verificación de cumplimientos de requisitos sanitarios.
+Toda solicitud de Certificado Veterinario de Operación para una Subasta nueva deberá ajustarse en un todo a las presentes regulaciones.

@@ -1,0 +1,1 @@
+Artículo 24.—Es obligatorio respetar el orden numérico de llegada de los animales a los corrales de la subasta para su venta en la mesa de subasta. Deberá comunicarse de inmediato a los usuarios, de forma verbal o por medio electrónico, cualquier alteración en la continuidad de la numeración de recibo y subasta.

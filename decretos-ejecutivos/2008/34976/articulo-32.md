@@ -1,0 +1,1 @@
+Artículo 32.—El Ministerio de Economía, Industria y Comercio, a través del Laboratorio Costarricense de Metrología, ejercerá un control sobre los instrumentos de Pesaje de Funcionamiento de las Subastas, de acuerdo con la normativa vigente, Decreto Ejecutivo Nº 24980-MEIC.
