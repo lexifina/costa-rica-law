@@ -1,0 +1,8 @@
+Artículo 3º—Para efectos de este reglamento se definen los siguientes términos:
+Aumento de la productividad: El cambio positivo de la cantidad de producto o servicio, por unidad de tiempo o unidad de insumo, a un mismo nivel de calidad.
+Eficiencia: El cambio positivo entre la relación insumo-producto, a un mismo nivel de calidad, medido en valores monetarios.
+Estándares de producción: La medida estimada que cuantifica la producción o los servicios que se brindan en un marco ambiental y temporal, a partir de las posibilidades que la combinación de recursos humanos y materiales permiten.
+Estímulo social: Bonificación no monetaria que se reconoce al servidor o grupo de trabajadores, consistente en reconocimientos tales como pergaminos y publicaciones honoríficas.
+Estímulo económico: Bonificación monetaria que se reconoce al servidor o grupo de trabajo, que haya logrado superar de manera significativa los estándares de producción.
+Incentivo por productividad: Los estímulos económicos o sociales, que la administración reconoce al servidor por su aporte extraordinario en producción o servicios, que deberán reflejarse en el logro de las metas institucionales. El incentivo se debe otorgar a quien o quienes alcancen los índices de productividad definidos y en las condiciones que estipule el plan.
+Plan de incentivos por productividad: Incluye objetivos, estándares de producción, metas, cobertura, tipo de bonificación, sujetos de los incentivos, costo y fuente de financiamiento, para el logro del aumento de la productividad o de la eficiencia y calidad de los productos o servicios que se produzcan o se presten.

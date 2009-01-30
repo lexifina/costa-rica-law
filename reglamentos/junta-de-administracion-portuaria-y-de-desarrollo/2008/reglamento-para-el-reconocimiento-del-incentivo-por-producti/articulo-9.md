@@ -1,0 +1,1 @@
+Artículo 9º—Origen de los recursos. Los recursos considerados para el pago del incentivo por productividad y eficiencia corresponderán, de acuerdo con lo establecido en la Convención Colectiva de JAPDEVA, al 2,0% de los ingresos corrientes del año evaluado excluyendo los rubros especificados en el Capítulo I, artículo 10 del Plan de Incentivos de este reglamento.

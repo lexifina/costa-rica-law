@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones varias
+Artículo 28.—Disfrute del incentivo por productividad y eficiencia: El reconocimiento del incentivo por productividad y eficiencia esta sujeto a que las unidades formulen el Plan Anual Operativo y que se encuentre alineado al Plan Operativo Institucional, así como a la realización oportuna del correspondiente informe de evaluación, que permita documentar la ejecución física y financiera como el logro de los objetivos y metas al año que corresponde y su remisión oportuna al Departamento de Recursos Humanos para su trámite. La ausencia de lo señalado impide el reconocimiento del incentivo por productividad y eficiencia.

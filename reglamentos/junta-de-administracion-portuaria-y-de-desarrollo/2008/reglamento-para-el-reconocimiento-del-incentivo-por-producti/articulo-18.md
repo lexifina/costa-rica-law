@@ -1,0 +1,1 @@
+Artículo 18.—El Factor de Gestión de Unidad Staff, será determinado mediante la relación de las metas cumplidas en la Matriz de Desempeño Programático Específico (MDPE), dividida por las metas programadas en la matriz respectiva para el año que se evalúa.

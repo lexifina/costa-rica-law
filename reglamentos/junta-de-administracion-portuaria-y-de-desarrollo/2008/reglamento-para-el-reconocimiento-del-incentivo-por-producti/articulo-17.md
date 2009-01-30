@@ -1,0 +1,1 @@
+Artículo 17.—El factor de gestión será determinado mediante la relación de las metas cumplidas en la Matriz de Programación Estratégica del Programa (PEP) dividida por las metas programadas en la matriz respectiva para el año que se evalúa.

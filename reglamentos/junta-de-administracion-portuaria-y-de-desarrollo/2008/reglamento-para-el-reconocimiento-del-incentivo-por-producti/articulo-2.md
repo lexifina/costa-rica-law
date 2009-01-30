@@ -1,0 +1,1 @@
+Artículo 2º—Con el propósito de contribuir con las políticas de fomento a la productividad y de estímulo a la eficiencia de los trabajadores, se hace necesaria y oportuna la creación de este incentivo.

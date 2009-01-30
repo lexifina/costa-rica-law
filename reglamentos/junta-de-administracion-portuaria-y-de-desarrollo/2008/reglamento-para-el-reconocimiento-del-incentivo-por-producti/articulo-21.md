@@ -1,0 +1,2 @@
+Artículo 21.—Factor de Gestión de Inventario (FGI). Será determinado mediante la adición del total sobrantes en el almacén y el total faltantes el resultado será dividido por el inventario inicial. El resultado puede arrojar datos negativos o positivos.
+Las unidades que tienen incluido este factor en la fórmula para obtener el índice de productividad, son todas las que conforman la Dirección Administrativa Financiera.
