@@ -1,6 +1,6 @@
 # Impuestos sobre Cigarrillos y Licores para Plan de Protección Social
 
-Ley N° 7972 del 1999-12-22. SINALEVI, ficha 41967: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41967&param2=74401&param3=1>.
+Ley N° 7972 del 1999-12-22. SINALEVI, ficha 41967: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41967&param2=75371&param3=1>.
 
 Publicada en La Gaceta N° 250 del 1999-12-24.
 
@@ -37,3 +37,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 27 de 108 | 2008-05-01 | Resolución 6 (2008-04-03) | 2008-04-03 |
 | 28 de 108 | 2008-08-01 | Resolución 11 (2008-07-04) | 2008-07-04 |
 | 29 de 108 | 2008-11-01 | Resolución 15 (2008-10-06) | 2008-10-06 |
+| 30 de 108 | 2009-02-01 | Resolución 1 (2009-01-07) | 2009-01-07 |
