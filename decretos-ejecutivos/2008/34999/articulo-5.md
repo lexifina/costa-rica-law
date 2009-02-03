@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá a los Ministerios de Cultura y Juventud, así como al Ministerio de Vivienda y Asentamientos Humanos llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar los inmuebles que les han sido asignados.
