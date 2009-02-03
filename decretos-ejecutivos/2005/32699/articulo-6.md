@@ -1,2 +1,0 @@
-Artículo 6º—Publicidad. Se publicará en el diario oficial La Gaceta y en la página en Internet del Ministerio de Comercio Exterior, tanto la lista de las personas que conforman el registro de árbitros nacionales elegibles, como las listas de los árbitros designados para los diferentes acuerdos comerciales internacionales ratificados por Costa Rica.
-La aplicación e interpretación de las disposiciones del presente reglamento se regirá conforme a los principios de transparencia e igualdad de oportunidades.

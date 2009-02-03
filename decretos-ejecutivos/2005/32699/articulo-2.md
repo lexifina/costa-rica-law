@@ -1,1 +1,0 @@
-Artículo 2º—Comisión Administradora del registro de árbitros elegibles. La administración del registro de árbitros nacionales elegibles para los acuerdos comerciales internacionales vigentes estará a cargo de una comisión conformada por tres funcionarios del Ministerio de Comercio Exterior, designados por el Ministro de Comercio Exterior.
