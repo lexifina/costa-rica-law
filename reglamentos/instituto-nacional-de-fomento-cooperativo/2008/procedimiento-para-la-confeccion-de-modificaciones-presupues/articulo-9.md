@@ -1,0 +1,1 @@
+Artículo 9º—El Proceso de Desarrollo Estratégico será el responsable de custodiar y mantener en sus archivos todas las modificaciones aprobadas por la Junta Directiva anexando también el acuerdo de Junta Directiva correspondiente. Las mismas son material de consulta y revisión por parte de la Auditoria Interna y de la Contraloría General de la República.

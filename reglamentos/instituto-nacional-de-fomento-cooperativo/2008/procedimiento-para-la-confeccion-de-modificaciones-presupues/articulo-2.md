@@ -1,0 +1,1 @@
+Artículo 2º—Las modificaciones presupuestarias serán confeccionadas por el Proceso de Desarrollo Estratégico. Para lo cual comunicará mediante nota formal o correo electrónico a los coordinadores de los Procesos y Macroprocesos para que revisen los presupuestos aprobados, la ejecución presupuestaria, el avance de las metas y el plan de trabajo.

@@ -1,0 +1,1 @@
+Artículo 6º—El Director o Subdirector Ejecutivo, analizará los ajustes presupuestarios solicitados por los coordinadores y dará el visto bueno a los ajustes que procedan, emitiendo oficio y trasladando el mismo al Proceso de Desarrollo Estratégico para que lo contemple en la modificación presupuestaria.

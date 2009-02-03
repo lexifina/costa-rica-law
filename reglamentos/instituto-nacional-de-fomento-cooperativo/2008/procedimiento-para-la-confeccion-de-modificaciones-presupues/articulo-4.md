@@ -1,0 +1,1 @@
+Artículo 4º—Las justificaciones deben estar amparadas al marco de la legalidad vigente. Se deben incluir en la nota las medidas tomadas para evitar la afectación del POI, por la modificación de los montos establecidos inicialmente para el cumplimiento de las metas.

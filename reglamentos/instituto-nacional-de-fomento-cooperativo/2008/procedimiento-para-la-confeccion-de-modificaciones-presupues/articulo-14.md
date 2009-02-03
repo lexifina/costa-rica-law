@@ -1,0 +1,1 @@
+Artículo 14.—Los traslados al igual que las modificaciones a las que se refiere el Capítulo I, en ningún momento alteran el monto global del presupuesto aprobado por la Contraloría General de la República.
