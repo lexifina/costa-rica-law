@@ -1,1 +1,1 @@
-Artículo 10.—Acuerdos del Órgano. Los acuerdos del Órgano serán tomados por mayoría absoluta de los miembros presentes en cada sesión. Dichos acuerdos tienen recurso de revocatoria. Sin embargo, tratándose de actos de adjudicación, dichos acuerdos tendrán los recursos que al efecto señale la Ley de Contratación Administrativa.
+Artículo 10.—Proveedor Institucional. El Jefe Administrativo será quién actué como Proveedor Institucional, a éste le corresponden las funciones de secretario del Comité de Licitaciones, según se indico en el apartado 1 del presente reglamento.

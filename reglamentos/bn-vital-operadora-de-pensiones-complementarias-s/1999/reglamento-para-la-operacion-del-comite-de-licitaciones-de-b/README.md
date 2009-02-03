@@ -14,3 +14,4 @@ Reglamento para la Operación del Comité de Licitaciones de BN Vital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-20 | la propia norma |
+| 2 | 2009-02-03 | Reglamento 198 (2009-02-03) |
