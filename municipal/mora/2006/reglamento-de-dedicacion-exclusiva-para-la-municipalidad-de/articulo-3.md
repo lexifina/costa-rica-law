@@ -1,1 +1,0 @@
-Artículo 3º—En razón de la naturaleza y responsabilidades de los puestos que desempeñan, se retribuirá una suma adicional sobre su salario base por concepto de dedicación exclusiva, a razón de un 55%, a aquellos funcionarios que ostentando el grado académico de licenciatura, ocupen un puesto para el que se requiere como mínimo tal grado académico.

@@ -1,1 +1,0 @@
-Artículo 6º—Los servidores que disfruten de los beneficios del Régimen de Dedicación Exclusiva, pueden renunciar a dicho régimen, comunicándolo por escrito al Alcalde Municipal y a la Auditoría Interna, con un mes de anticipación como mínimo, y no podrán suscribir un nuevo contrato en un período de un año después de haber presentado la renuncia.

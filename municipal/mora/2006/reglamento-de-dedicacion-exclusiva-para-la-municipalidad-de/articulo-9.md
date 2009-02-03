@@ -1,1 +1,0 @@
-Artículo 9º—La Municipalidad de Mora posee el derecho de verificar cuando lo considere necesario y conveniente, de conformidad con los procedimientos que al respecto establece, el fiel cumplimiento de todas las disposiciones de este Reglamento por parte del trabajador.
