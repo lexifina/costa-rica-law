@@ -1,0 +1,1 @@
+Artículo 4º—De la solicitud de fondos. Para acceder a los Fondos del Programa, el Gerente del ente cooperativo deberá presentar a más tardar el 30 de junio de cada año y ante la Dirección Ejecutiva del INFOCOOP el “Formulario de Solicitud de Fondos” y un Acuerdo del Consejo de Administración donde se le autoriza para este trámite. (Ver Anexo Nº 1)

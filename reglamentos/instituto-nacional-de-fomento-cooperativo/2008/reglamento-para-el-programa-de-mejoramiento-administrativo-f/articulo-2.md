@@ -1,0 +1,9 @@
+Artículo 2º—De la definición de términos. Para efectos del presente Reglamento se definen los siguientes términos:
+Programa de mejoramiento administrativo-Financiero del Sector Cooperativo Costarricense: Programa permanente del INFOCOOP que destina recursos no reembolsables para el desarrollo administrativo y financiero del Sector Cooperativo y de reconversión productiva provenientes del Convenio MIDEPLAN-INFOCOOP conocidos como PL-480. Convenio # 69 de Cooperación Inter Institucional. En adelante conocido como el “Programa”
+Ente cooperativo beneficiario del Programa: Ente Cooperativo que formalmente haya sido aprobado por la Junta Directiva para que utilice los Fondos del Programa.
+Solicitud de fondos: “Formulario de solicitud de Fondos no reembolsables” que presenta en Ente Cooperativo ante la Dirección Ejecutiva del INFOCOOP para iniciar la procedencia de acceder a los fondos del Programa. (Ver Anexo Nº 1).
+Unidad Organizacional: Dependencia del INFOCOOP designada por la Dirección Ejecutiva, para que analice, recomiende y controle la transferencia de fondos por parte del ente cooperativo.
+Informe de cumplimiento de requisitos: Informe preparado por la Unidad Organizacional que da cuenta de el cumplimiento de los requisitos establecidos en este Reglamento y de la procedencia de otorgar los Fondos del Programa.
+Plan de inversión: Detalle de partidas de gastos y montos que el ente Cooperativo dará a los fondos aprobados por el INFOCOOP.
+Convenio: Contrato que firma el ente Cooperativa con el representante legal del INFOCOOP en donde se establece los términos y condiciones para la transferencia de los fondos del Programa.
+Expediente: Conjunto de documentos que genera la Unidad Organizacional y que respaldan todo el proceso de solicitud, análisis y control de los Fondos transferidos al ente cooperativo.

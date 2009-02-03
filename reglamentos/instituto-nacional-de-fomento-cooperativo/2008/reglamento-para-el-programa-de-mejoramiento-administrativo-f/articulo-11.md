@@ -1,0 +1,1 @@
+Artículo 11.—De la transferencia de fondos. Corresponde a la Unidad de Administración y Finanzas realizar la transferencia de los fondos aprobados al ente cooperativo. de acuerdo con los Convenios firmados y la solicitud de transferencia de fondos de la Unidad Organizacional.
