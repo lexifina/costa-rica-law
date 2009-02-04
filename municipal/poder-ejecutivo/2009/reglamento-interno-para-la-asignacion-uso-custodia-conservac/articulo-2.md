@@ -1,0 +1,1 @@
+Artículo 2º—Contrato. Para la asignación de teléfonos celulares, será necesario suscribir un Contrato entre el Ministerio y el funcionario al cual se le asigne dicho bien. La asignación del teléfono celular implica la del aparato de telefonía móvil y la línea telefónica necesarios para su normal funcionamiento.

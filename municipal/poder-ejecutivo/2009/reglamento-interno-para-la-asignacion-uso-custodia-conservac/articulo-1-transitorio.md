@@ -1,0 +1,1 @@
+Transitorio único.—Todos aquellos funcionarios que a la fecha de entrada en vigencia del presente Reglamento tengan en su poder un teléfono celular propiedad del Ministerio de Agricultura y Ganadería y no se encuentren contemplados en el artículo 3, tienen un plazo de 5 días naturales para hacer entrega del mencionado bien a la Dirección Administrativa y Financiera.
