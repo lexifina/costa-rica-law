@@ -1,0 +1,1 @@
+Artículo 26.—El Correo podrá rescindir unilateralmente y sin responsabilidad de su parte el contrato de arrendamiento por razones de interés público, conveniencia u oportunidad, notificando su decisión al arrendante con al menos cinco días hábiles de anticipación.

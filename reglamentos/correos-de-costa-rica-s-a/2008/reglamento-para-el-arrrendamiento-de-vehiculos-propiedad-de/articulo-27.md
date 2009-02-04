@@ -1,0 +1,1 @@
+Artículo 27.—En lo no previsto en el presente Reglamento se aplicará en forma supletoria la Ley de Correos, su Reglamento, el Reglamento de Contratación de Correos de Costa Rica S. A., y demás normas jurídicas conexas.

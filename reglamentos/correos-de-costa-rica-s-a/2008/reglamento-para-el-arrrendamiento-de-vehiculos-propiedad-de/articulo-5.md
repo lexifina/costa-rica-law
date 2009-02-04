@@ -1,0 +1,1 @@
+Artículo 5º—Bajo ninguna circunstancia, el pago de kilometraje será considerado como beneficio, mejora salarial, salario en especie o, en alguna forma, parte del contrato de trabajo, ni dará lugar a derechos adquiridos o situaciones jurídicas consolidadas a favor del trabajador (arrendante), lo cual quedará expresamente establecido en el contrato.

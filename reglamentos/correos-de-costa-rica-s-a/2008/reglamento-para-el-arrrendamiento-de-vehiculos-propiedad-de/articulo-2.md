@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura. La aplicación de este Reglamento cubrirá a los trabajadores de Correos de Costa Rica S. A., que en el ejercicio de sus funciones a nivel nacional, sean autorizados a utilizar el vehículo de su propiedad, siempre y cuando cumplan con los requisitos y condiciones establecidos en este Reglamento y el respectivo contrato.

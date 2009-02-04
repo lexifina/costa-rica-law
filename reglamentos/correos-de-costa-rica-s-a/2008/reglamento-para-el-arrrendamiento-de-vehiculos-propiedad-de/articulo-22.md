@@ -1,0 +1,1 @@
+Artículo 22.—Una vez finalizada la gira o servicio brindado el arrendante deberá realizar la Liquidación de Pago de kilometraje en el formulario correspondiente con la información completa y de acuerdo con lo establecido en el presente Reglamento.

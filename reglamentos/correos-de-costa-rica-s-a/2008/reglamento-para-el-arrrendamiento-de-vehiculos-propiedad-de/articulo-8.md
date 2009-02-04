@@ -1,0 +1,1 @@
+Artículo 8º—Cuando las necesidades del servicio lo requieran, el arrendante debe transportar en una misma gira o desplazamiento a otro (s) trabajador (es), siempre y cuando no excedan en número la capacidad de pasajeros autorizado para el vehículo.

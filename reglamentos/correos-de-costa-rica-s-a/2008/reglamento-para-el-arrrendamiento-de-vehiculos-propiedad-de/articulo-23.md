@@ -1,0 +1,1 @@
+Artículo 23.—La gira o desplazamiento efectuado sin la autorización respectiva será por cuenta y riesgo del arrendante; y éste, en ningún caso podrá reclamar el reconocimiento de pago por el kilometraje recorrido.

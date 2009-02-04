@@ -1,0 +1,1 @@
+Artículo 10.—La vigencia del contrato será de un año, pudiendo ser prorrogado en forma automática por periodos iguales, siempre que se cumplan las disposiciones establecidas en el presente Reglamento y en el contrato.

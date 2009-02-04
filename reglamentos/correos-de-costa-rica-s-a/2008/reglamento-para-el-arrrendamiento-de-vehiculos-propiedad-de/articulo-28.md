@@ -1,0 +1,1 @@
+Artículo 28.—El presente Reglamento fue aprobado por la Junta Directiva de Correos mediante acuerdo Nº 4644, tomado en la sesión extraordinaria Nº 926 celebrada el día jueves 11 de diciembre del 2008.
