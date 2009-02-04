@@ -1,0 +1,1 @@
+Artículo 68.—Pérdida de requisitos de inversión. Se incurrirá en pérdida de requisitos de inversión cuando se presente una disminución en la calificación de riesgo de una emisión o emisor, por debajo de los parámetros mínimos establecidos en los artículos 14, 22, 29, 37 y 46 de la presente normativa.

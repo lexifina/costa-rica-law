@@ -1,9 +1,6 @@
-Artículo 12.—Instrumentos elegibles. Los recursos del tramo líquido del portafolio de dólares, podrán ser invertidos en los siguientes instrumentos:
-a. Letras del Tesoro de los Estados Unidos de América.
-b. Notas de descuento e instrumentos de corto plazo emitidos por agencias gubernamentales.
-c. Instrumentos de corto plazo emitidos por entidades supranacionales.
-d. Certificados de depósito (CDs) y depósitos bancarios a la vista y a plazo.
-e. Obligaciones de otros intermediarios financieros.
-f. Fondos federales y depósitos overnight.
-g. Papel comercial.
-h. Recompras con instrumentos del Tesoro o títulos de agencias de los Estados Unidos de América.
+Artículo 12.—Monto. El monto del portafolio de liquidez fluctuará dentro de una banda. Si el monto cae por debajo de la banda inferior, se tomarán recursos del portafolio de apoyo a liquidez para llevar el portafolio líquido al monto promedio de la banda, hasta donde sea posible. Si el monto del portafolio líquido sobrepasa la banda superior, se trasladarán los recursos en exceso sobre el monto promedio de la banda al portafolio de apoyo a liquidez.
+La banda se determinará con base en los siguientes parámetros:
+a) El límite inferior de la banda corresponderá a la máxima caída histórica mensual que han presentado las reservas más una desviación estándar de los cambios en las reservas.
+b) El monto promedio de la banda corresponderá al monto del límite inferior de la banda más dos veces la desviación estándar de los cambios en las reservas.
+c) El límite superior de la banda corresponderá al monto promedio más dos veces la desviación estándar de los cambios en las reservas.
+d) La desviación estándar de los cambios en las reservas se calculará a partir de la metodología que establezca el Comité de Reservas.

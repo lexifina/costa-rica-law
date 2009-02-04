@@ -1,1 +1,1 @@
-Artículo 34.—Duración. La duración efectiva del portafolio deberá mantenerse en un rango de +/- 1 año con respecto a la duración efectiva del índice de referencia N1G1.
+Artículo 34.—Moneda. Estará denominado en dólares de los Estados Unidos de América y se invertirá en activos denominados en esa moneda.

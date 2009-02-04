@@ -1,1 +1,4 @@
-Artículo 39.—Posiciones cortas. Los futuros podrán utilizarse para modificar la duración y la posición por país con respecto al benchmark. No será permitido mantener posiciones cortas en monedas diferentes al dólar de los Estados Unidos.
+Artículo 39.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
+a) Obligaciones emitidas por gobiernos soberanos, agencias gubernamentales y entidades multilaterales: 10 años.
+b) Operaciones de préstamo de títulos: 90 días.
+c) Instrumentos de mercado de dinero: aplicarán los mismos límites especificados en el artículo 16 de estas normas.

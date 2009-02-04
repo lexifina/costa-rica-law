@@ -1,4 +1,5 @@
-Artículo 46.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
-a. Notas de descuento e instrumentos de corto plazo emitidos por gobiernos soberanos, agencias gubernamentales y entidades multilaterales: 360 días.
-b. Certificados de depósito y papel comercial: 180 días.
-c. Depósitos a plazo: 90 días.
+Artículo 46.—Depositarios y emisores. Las inversiones de este portafolio podrán efectuarse en bancos comerciales, gobiernos soberanos incluidos en el índice de referencia N1G1, agencias gubernamentales, entidades multilaterales y emisiones bancarias garantizadas por gobiernos.
+En el caso de bancos comerciales, agencias gubernamentales y entidades multilaterales, la calificación de riesgo de largo plazo en la moneda de la emisión, debe ser igual o superior a A+, A1 o A+, según las agencias calificadoras de riesgo internacional de Standard & Poor´s, Moody´s Investor Services o Fitch Ibca, respectivamente.
+Los bancos comerciales y agencias de gobierno deberán contar con calificación de riesgo soberano de largo plazo del país de residencia y en la moneda de la emisión, igual o superior a AA-, Aa3 o AA-, según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+Las entidades que cumplan con los criterios anteriores, serán consideradas bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus reformas o bien como entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las reservas monetarias internacionales.
+Los emisores deben contar con calificaciones de al menos dos agencias calificadoras.

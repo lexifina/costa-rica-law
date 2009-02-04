@@ -1,2 +1,7 @@
-Artículo 13.—Depositarios y emisores. Los recursos del tramo líquido del portafolio de dólares, podrán invertirse en títulos emitidos por el Gobierno de los Estados Unidos de América. Asimismo, se podrán invertir en entidades multilaterales y supranacionales, agencias gubernamentales y entidades oficiales, grupos financieros y bancos comerciales. Todas las entidades antes mencionadas deberán ser reconocidas, previamente, como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el Artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus reformas o bien como entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las reservas monetarias internacionales.
-Los emisores mencionados y los activos elegibles que ellos emitan deberán contar con una calificación de riesgo de corto plazo igual o superior a A-1, P-1 o F1, según las agencias calificadoras de riesgo internacional de Standard & Poor´s, Moody´s Investor Services o Fitch Ibca, respectivamente.
+Artículo 13.—Instrumentos elegibles. Este portafolio podrá ser invertido en los siguientes instrumentos:
+a) Notas de descuento, instrumentos de corto plazo y bonos emitidos por gobiernos soberanos, agencias gubernamentales, entidades multilaterales, supranacionales y entidades oficiales.
+b) Certificados de depósito (CDs) y depósitos bancarios a la vista y a plazo.
+c) Obligaciones de otros intermediarios financieros.
+d) Fondos federales y depósitos overnight.
+e) Papel comercial.
+f) Recompras con instrumentos del Tesoro o títulos de agencias de los Estados Unidos de América.

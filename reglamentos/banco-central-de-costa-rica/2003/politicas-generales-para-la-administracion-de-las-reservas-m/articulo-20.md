@@ -1,1 +1,1 @@
-Artículo 20.—Parámetro de referencia. El desempeño de este sub portafolio será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G1O2).
+Artículo 20.—Monto. El monto será el necesario para mantener el calce con los pasivos que mantenga el Banco Central de Costa Rica en euros.

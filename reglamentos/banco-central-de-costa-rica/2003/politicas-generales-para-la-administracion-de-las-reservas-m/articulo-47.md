@@ -1,3 +1,4 @@
-CAPÍTULO VI
-Otras disposiciones
-Artículo 47.—Prohibición. No será permitido colocar inversiones en entidades clasificadas como paralelas (“offshore”).
+Artículo 47.—Contrapartes de contratos “forward”. Para el caso de contratos “forward” sobre tipos de cambio, la contraparte deberá contar con calificación de corto plazo igual o superior a A-1, P-1, F-1 por parte de las agencias calificadoras de riesgo internacional Standard & Poor’s, Moody’s Investor Services y Fitch Ibca respectivamente.
+Las contrapartes deben estar domiciliadas en países con calificación soberana igual o superior a A+, A1 o A+ en la moneda del país, según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+Las entidades que cumplan con los criterios anteriores, serán consideradas como reconocidos de oficio como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus reformas.
+Las contrapartes deben contar con calificaciones de al menos dos agencias calificadoras.

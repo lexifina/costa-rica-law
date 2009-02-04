@@ -1,1 +1,3 @@
-Artículo 43.—Composición por moneda. El portafolio en euros se invertirá en activos denominados en esa moneda y se mantendrá calzado con los pasivos que mantenga el Banco Central de Costa Rica en euros.
+CAPÍTULO VI
+Portafolio de bonos soberanos con cobertura cambiaria
+Artículo 43.—Gestión. Este portafolio será gestionado por administradores externos, previamente seleccionados, según las políticas de inversión definidas en este capítulo.

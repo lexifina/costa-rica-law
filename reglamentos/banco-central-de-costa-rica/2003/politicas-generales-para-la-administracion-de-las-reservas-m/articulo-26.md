@@ -1,4 +1,1 @@
-CAPÍTULO IV
-Portafolio de Dólares: Tramo de Inversión - Bonos soberanos
-con cobertura cambiaria
-Artículo 26.—Gestión. Este sub portafolio será gestionado por administradores externos, previamente nombrados por la Junta Directiva del Banco, según las políticas de inversión definidas en este capítulo.
+Artículo 26.—Moneda. Estará denominado en dólares de los Estados Unidos de América y se invertirá en activos denominados en esa moneda.

@@ -1,3 +1,1 @@
-CAPÍTULO V
-Portafolio de Euros: Tramo de Liquidez
-Artículo 42.—Gestión. Este portafolio será gestionado en su totalidad por la División Gestión de Activos y Pasivos, según las políticas de inversión establecidas en este capítulo.
+Artículo 42.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse a través de agentes negociadores de activos en los mercados internacionales. Estos deberán ser reconocidos como primary dealers por: el Banco de la Reserva Federal de Nueva York o la European Primary Dealers Association.

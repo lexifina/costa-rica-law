@@ -1,4 +1,4 @@
-Artículo 21.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
-a. Obligaciones emitidas por gobiernos soberanos, agencias gubernamentales y entidades multilaterales: 10 años.
-b. Operaciones de préstamo de títulos: 90 días.
-c. Instrumentos de mercado de dinero: aplicarán los mismos límites especificados en el Artículo 15 de estas normas.
+Artículo 21.—Instrumentos elegibles. Este portafolio podrá ser invertido en los siguientes instrumentos:
+a) Notas de descuento, instrumentos de corto plazo y bonos emitidos por gobiernos soberanos, agencias gubernamentales, entidades multilaterales, supranacionales y entidades oficiales.
+b) Depósitos bancarios a la vista, overnight y a plazo.
+c) Certificados de depósito (CDs) y papel comercial (CPs).

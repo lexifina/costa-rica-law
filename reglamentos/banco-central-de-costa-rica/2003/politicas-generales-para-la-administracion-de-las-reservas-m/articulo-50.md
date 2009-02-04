@@ -1,1 +1,4 @@
-Artículo 50.—Riesgo soberano. El Comité de Reservas, cuando lo considere necesario, podrá limitar aún más las inversiones en el tramo de liquidez de los portafolios de dólares y euros, para los depositarios y emisores, cuyo país de residencia cuenta con una calificación de riesgo soberano de largo plazo menor a AA-, Aa3 o AA- según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+Artículo 50.—Plazo máximo de inversión. Los plazos máximos al vencimiento por tipo de instrumento serán los que se especifican a continuación:
+a) Instrumentos de corto plazo: 6 meses. En el caso de Depósitos Bancarios: 3 meses.
+b) Instrumentos de largo plazo: 10 años.
+c) Contratos “forward” sobre tipos de cambio: 3 meses.

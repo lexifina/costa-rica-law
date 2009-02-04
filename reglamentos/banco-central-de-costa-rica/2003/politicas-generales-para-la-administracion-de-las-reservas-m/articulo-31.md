@@ -1,1 +1,1 @@
-Artículo 31.—Parámetro de referencia. El desempeño de este sub portafolio será contrastado con el índice de referencia de bonos de gobiernos distintos a los Estados Unidos de América, con cobertura en dólares de los Estados Unidos de América y plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: N1G1).
+Artículo 31.—Plazo máximo de inversión. El plazo máximo de inversión será de un año.

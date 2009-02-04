@@ -1,1 +1,1 @@
-Artículo 38.—Operaciones de recompra. No están permitidas las operaciones de recompra (Repo y reverse repo).
+Artículo 38.—Parámetro de referencia. El desempeño de este portafolio será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G1O2).
