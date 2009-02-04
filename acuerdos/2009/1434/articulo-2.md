@@ -1,0 +1,1 @@
+2º—La unidad denominada Mecanismo Nacional de Prevención de la Tortura estará inicialmente coordinada por la licenciada Patricia Montero Villalobos, considerando su amplia preparación y experiencia en la temática.
