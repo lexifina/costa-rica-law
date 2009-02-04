@@ -1,0 +1,1 @@
+Artículo 10.—Se excluirán del préstamo a domicilio las revistas, las obras de referencia, enciclopedias, diccionarios, anuarios y ediciones únicas. Los materiales solicitados en calidad de préstamo interbibliotecario por la Unidad de Documentación del INAMU a otras dependencias, solo podrá utilizarse dentro de la sala de de estudio de la Unidad de Documentación.
