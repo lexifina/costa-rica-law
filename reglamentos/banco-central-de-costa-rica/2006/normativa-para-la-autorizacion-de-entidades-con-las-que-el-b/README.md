@@ -14,3 +14,4 @@ Normativa para la Autorización de Entidades con las que el Banco Central de Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-15 | la propia norma |
+| 2 | 2009-02-04 | Reglamento 5413 (2009-02-04) |
