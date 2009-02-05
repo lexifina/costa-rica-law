@@ -13,3 +13,4 @@ Iniciativas para favorecer la aplicación de las políticas de acceso a la justi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-16 | la propia norma |
+| 2 | 2009-02-05 | Circular 11 (2009-02-05) |
