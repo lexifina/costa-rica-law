@@ -1,0 +1,1 @@
+Transitorio II.—Aquellas instituciones cuyo presupuesto sea igual o inferior a seiscientas mil unidades de desarrollo y que, a la fecha de promulgación de esta normativa, cuenten con una auditoría interna, deben mantenerla, sin perjuicio de que soliciten a la Contraloría General la exención correspondiente, según dispone el artículo 20 de la Ley General de Control Interno.

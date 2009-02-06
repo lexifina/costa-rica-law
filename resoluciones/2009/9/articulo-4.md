@@ -1,0 +1,6 @@
+Artículo 4º-Derogar la normativa que se indica a continuación:
+El "Manual de normas de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización" (M-1-2002-CO-DDI), publicado en el Diario Oficial La Gaceta Nº 105 del 5 de junio de 2002, y modificado mediante publicación en el Diario Oficial La Gaceta" Nº 248 del 24 de diciembre de 2003.
+El "Complemento Nº 1 del Manual sobre normas técnicas de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización relativas al control de obras públicas", publicado en el Diario Oficial La Gaceta Nº 4 del 7 de enero de 1986.
+El "Manual sobre normas técnicas de control interno relativas al uso, control y mantenimiento de vehículos" de noviembre de 1995, publicado en el Alcance Nº 7 a La Gaceta Nº 24 del 2 de febrero de 1996.
+Las "Directrices para el fortalecimiento del control en la gestión pública" (D-03-2004-CO-DDI), publicada en el Diario Oficial La Gaceta Nº 248 del 20 de diciembre de 2004.
+El "Manual de operaciones para las comisiones de festejos populares" (M-1-2006-CO-DFOE), cuya emisión fue informada mediante publicación en el Diario Oficial La Gaceta Nº 57 del 16 de agosto de 2006.
