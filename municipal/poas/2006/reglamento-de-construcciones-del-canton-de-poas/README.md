@@ -14,3 +14,4 @@ Reglamento de Construcciones del cantón de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-19 | la propia norma |
+| 2 | 2009-02-09 | Reglamento municipal 146 (2009-02-09) |
