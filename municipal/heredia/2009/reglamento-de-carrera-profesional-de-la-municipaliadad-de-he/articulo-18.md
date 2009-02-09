@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Recursos Humanos estudiará la solicitud y si la considerare aceptable determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al Alcalde Municipal, quien será el encargado de aprobar, fundamentadamente la solicitud.

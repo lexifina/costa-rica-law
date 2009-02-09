@@ -1,0 +1,1 @@
+Artículo 23.—El valor de cada punto se establece en ¢1.397.00 (mil trescientos noventa y siete colones) de conformidad con la resolución DG-194-2007, emitida por la Dirección General de Servicio Civil. El valor del punto será revisado y ajustado automáticamente de conformidad a las resoluciones que sobre el incentivo emita la Dirección General de Servicio Civil.

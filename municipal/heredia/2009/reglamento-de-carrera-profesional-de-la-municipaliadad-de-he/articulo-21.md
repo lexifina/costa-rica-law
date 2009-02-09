@@ -1,0 +1,1 @@
+Artículo 21.—Del proceso de apelación. Una vez notificada la resolución al funcionario, si existen razones fundamentadas en impugnar dicha resolución, podrá presentar el correspondiente recurso, tal y como se menciona en el artículo 162 del Código Municipal.

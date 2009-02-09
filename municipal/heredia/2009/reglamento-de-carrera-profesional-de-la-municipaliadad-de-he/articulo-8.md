@@ -1,0 +1,8 @@
+TÍTULO II
+De los requisitos para optar por los factores
+de carrera profesional
+Artículo 8º—De los grados académicos. La interpretación y la aplicación de los factores indicados en el título anterior, se hará de acuerdo con los criterios siguientes:
+a) Relacionados directamente con el puesto que ejerce el servidor.
+b) Conferidos o reconocidos y equiparados por alguna de las universidades facultadas para ello.
+La especialidad se ponderará como tal si fue obtenida con base en la licenciatura. A la especialidad obtenida con base en el bachillerato, se le otorgará el puntaje previsto para la licenciatura.
+Se entenderá por grados y especialidades adicionales aquellos que presente el servidor y que no hayan sido tomados o considerados para la puntuación básica del título anterior, pero que sean estrictamente afines con el puesto que desempeña. Solo se reconocerá un grado o especialidad adicional a cada servidor. Los grados y títulos académicos conferidos por universidades privadas existentes en el país serán aceptados siempre y cuando la respectiva universidad esté debidamente autorizada por el CONESUP.
