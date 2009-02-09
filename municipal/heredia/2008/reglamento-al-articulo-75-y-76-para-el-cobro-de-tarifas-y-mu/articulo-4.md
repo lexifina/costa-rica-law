@@ -1,0 +1,1 @@
+Artículo 4º—Notificación: Previo a la efectiva prestación del servicio o de la realización de la obra correspondiente, la Municipalidad notificará por una única vez al propietario del inmueble omiso de los deberes enunciados en este reglamento para que proceda por su cuenta a cumplir con su obligación legal.
