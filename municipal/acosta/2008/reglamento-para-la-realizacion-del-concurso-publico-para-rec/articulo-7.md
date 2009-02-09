@@ -1,0 +1,1 @@
+Artículo 7º—Sobre los supuestos bajo los cuales se excluye una oferta del proceso: se excluirán del proceso quienes no se presenten a la entrevista convocada en la fecha y lugar informados oportunamente. Asimismo, serán excluidas las de los oferentes a los que se les compruebe falsedad en la información suministrada.

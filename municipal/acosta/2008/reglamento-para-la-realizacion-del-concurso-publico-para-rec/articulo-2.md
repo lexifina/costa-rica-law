@@ -1,0 +1,1 @@
+Artículo 2º—Sobre las condiciones de la evaluación: de previo a la publicación del concurso, la Comisión Especial de Concurso y nombramiento de Auditor Interno elaborará una propuesta que contendrá los preeditores de selección y criterios, ponderaciones, así como un cronograma de actividades.
