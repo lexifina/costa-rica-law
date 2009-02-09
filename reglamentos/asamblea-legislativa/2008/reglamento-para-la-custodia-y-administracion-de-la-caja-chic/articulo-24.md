@@ -1,0 +1,1 @@
+Artículo 24.—Adelantos pendientes de cancelar. Al funcionario o diputado que tenga pendiente una liquidación de un adelanto de dinero, para la adquisición de bienes y servicios o viáticos para viaje, no se le entregará otro anticipo hasta tanto no liquide el que tenga pendiente.

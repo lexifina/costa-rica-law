@@ -1,0 +1,4 @@
+Artículo 42.—Sanciones. Cualquier infracción a las disposiciones de este Reglamento, dará lugar a la aplicación del régimen disciplinario, sin perjuicio de lo dispuesto en la Ley de administración financiera de la República y presupuestos públicos.
+Las erogaciones que efectúen las jefaturas u otros funcionarios con su peculio personal y las que incumplan las estipulaciones de este Reglamento, serán responsabilidad exclusiva del funcionario que las realizó.
+En los casos de actos delictivos en perjuicio de los fondos de la caja chica, se deberá proceder a una investigación administrativa, conforme a la Ley general de la Administración Pública, y plantear las denuncias a las instancias correspondientes. Paralelamente, deberán efectuarse las gestiones de recuperación de los montos sustraídos y tomar las medidas respectivas.
+Entre tanto, la información relacionada con estos actos deberá ser reflejada en los arqueos.

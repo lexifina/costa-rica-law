@@ -1,0 +1,1 @@
+Artículo 25.—Requisitos para el reintegro del fondo general. Para el reintegro del fondo general de caja chica, las facturas y los comprobantes deben tener el sello de cancelado; además, debe constar el número de cheque y la fecha en que fue emitido.

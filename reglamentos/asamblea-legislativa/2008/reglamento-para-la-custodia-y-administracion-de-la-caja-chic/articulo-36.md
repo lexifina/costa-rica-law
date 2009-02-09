@@ -1,0 +1,1 @@
+Artículo 36.—Intereses sobre el saldo de la cuenta corriente. Los intereses ganados mensualmente sobre el saldo de la cuenta corriente de la caja chica, deberán depositarse en el Fondo General del Gobierno, según lo establezca la Tesorería Nacional, en un plazo máximo de ocho días, contado a partir del recibo del estado de cuenta bancario que consigne la acreditación.

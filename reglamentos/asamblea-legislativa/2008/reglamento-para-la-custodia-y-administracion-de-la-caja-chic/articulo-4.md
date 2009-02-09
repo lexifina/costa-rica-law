@@ -1,0 +1,1 @@
+Artículo 4º—Autorización y establecimiento de la caja chica. La autorización de la caja chica se determinará por acuerdo del Directorio legislativo o de la autoridad que este designe, previo estudio de las necesidades institucionales.

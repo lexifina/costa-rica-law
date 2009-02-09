@@ -1,0 +1,1 @@
+Artículo 19.—Aprobación de adelantos en efectivo. Previa consulta del contenido presupuestario y según la disponibilidad de fondos, se podrán tramitar y girar adelantos de dinero en efectivo por caja chica, para gastos de la Institución. Todo adelanto de dinero que se tramite por caja chica, deberá ser solicitado por el jefe del departamento o de la dependencia respectiva.

@@ -1,0 +1,1 @@
+Artículo 21.—Formulario para anticipos. En el caso de adelantos para gastos de viaje dentro del país, se presentarán en la Tesorería del Departamento Financiero, las fórmulas denominadas “Adelantos de viáticos” y “Solicitud de transportes” debidamente autorizadas.

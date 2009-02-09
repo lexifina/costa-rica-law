@@ -1,0 +1,1 @@
+Artículo 5º—Medios de pago. Los desembolsos que se podrán girar para sufragar gastos con fondos de caja chica, se emitirán por medio de cheques o en efectivo contra la cuenta corriente abierta para ese fin, en cualquiera de los bancos públicos nacionales. Tales desembolsos deberán utilizarse única y exclusivamente en las cuentas presupuestarias autorizadas.

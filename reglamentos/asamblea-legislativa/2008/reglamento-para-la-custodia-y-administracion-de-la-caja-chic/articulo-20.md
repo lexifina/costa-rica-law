@@ -1,0 +1,6 @@
+Artículo 20.—Solicitud y autorización de compras por caja chica. Las solicitudes de los departamentos en la adquisición de bienes y servicios por medio de caja chica, deberán cumplir los siguientes requisitos para su autorización en el Departamento Financiero.
+a) Solicitar autorización con la debida justificación de la urgencia e indispensabilidad al Departamento Financiero, excepto cuando se trate de servicios de alimentación para atender actividades de los diputados y las diputadas, los cuales requieren autorización del Director Ejecutivo.
+b) Indicar en la solicitud la no existencia del artículo en el Almacén de la Proveeduría.
+c) El departamento solicitante debe presentar claramente los requerimientos, las especificaciones técnicas, el precio aproximado y, si es posible, la factura proforma al director Financiero.
+d) Después de analizar la solicitud de caja chica y de cumplirse los requisitos establecidos en el Reglamento para la custodia y administración de la caja chica de la Asamblea Legislativa, el Departamento Financiero asignará y autorizará a la dependencia solicitante la adquisición del bien o servicio solicitado.
+e) El Departamento Financiero remitirá la solicitud al departamento solicitante para el procedimiento de compra.

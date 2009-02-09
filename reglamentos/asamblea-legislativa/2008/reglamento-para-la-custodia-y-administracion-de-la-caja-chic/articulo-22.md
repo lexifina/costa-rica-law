@@ -1,0 +1,1 @@
+Artículo 22.—Cálculos de viáticos. En el caso de adelantos de viáticos dentro del país y fuera de él, el Departamento Financiero hará los cálculos, basado en el acuerdo del Directorio legislativo que autoriza el viaje y en el Reglamento de gastos de viajes y transportes para funcionarios públicos de la Contraloría General de República.

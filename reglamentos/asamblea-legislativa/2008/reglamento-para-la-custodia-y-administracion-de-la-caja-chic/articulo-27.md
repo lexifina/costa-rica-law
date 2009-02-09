@@ -1,0 +1,1 @@
+Artículo 27.—Reintegros al fondo de la caja chica central. El reintegro al fondo de caja chica se efectuará cuando el disponible llegue a un veinte por ciento (20%) del fondo fijo autorizado. El reintegro se realizará con el fin de disponer, permanentemente, de recursos suficientes para atender los desembolsos.
