@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Autorización al Banvhi
+Autorízase al Banvhi para que, dentro del plazo de los dieciocho (18) meses siguientes a la entrada en vigencia de la presente Ley, incorpore beneficiarios y ejecute la condonación de las operaciones de crédito hipotecario de los deudores, de los fideicomisos de los que trata esta Ley, siempre que no se encuentren dentro de las operaciones de los listados anexos a los cuales se refiere esta y los deudores cumplan las condiciones establecidas en el artículo 2 de la presente Ley.
