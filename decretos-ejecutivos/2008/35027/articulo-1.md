@@ -1,0 +1,16 @@
+Nº 35027-C
+El PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140, incisos 8) y 18) y 146 de la Constitución Política; 27, inciso 1º de la Ley General de la Administración Pública, Nº 6227 y en la Ley de Creación del Ministerio de Cultura y Juventud, Nº 4788 y,
+Considerando:
+I.—Que de acuerdo con lo que establece nuestra Constitución Política, al Poder Ejecutivo le corresponde vigilar el buen funcionamiento de los servicios y dependencias administrativas, para lo cual resulta necesario determinar, claramente, su organización y funcionamiento interno.
+II.—Que el Poder Ejecutivo considera necesario reglamentar los objetivos, relaciones y funciones administrativas correspondientes al programa central 749 del Ministerio de Cultura y Juventud y su relación con los demás programas y órganos desconcentrados.
+III.—Que el Ministerio de Cultura y Juventud requiere de una estructura técnica y administrativa que permita la correcta ejecución de las políticas institucionales, a la luz del Plan Nacional de Desarrollo, en observancia del adecuado manejo de los recursos presupuestarios, administrativos y financieros.
+IV.—Que es necesario establecer mecanismos de administración ágiles y oportunos que permitan la actuación administrativa de conformidad con los principios de economía, simplicidad, celeridad y eficiencia, dada la magnitud del ámbito de cobertura nacional y la gran dimensión institucional del Ministerio.
+V.—Que la Oficialía Mayor del Ministerio de Cultura colabora, de acuerdo con las directrices del Despacho Ministerial, en la elaboración y desarrollo de las políticas institucionales y en la ejecución de sus programas y coordinación oportuna con las instituciones desconcentradas; sin embargo, para lograr el buen funcionamiento administrativo y financiero del Ministerio es necesario contar con una Dirección Ejecutiva, que formalmente se encuentre legitimada para asumir esas funciones.
+VI.—Que para el cumplimiento de las funciones descritas y, en general, el adecuado manejo de los recursos, la Oficialía Mayor del Ministerio de Cultura y Juventud debe asumir la Dirección Ejecutiva del Ministerio de Cultura y Juventud.
+VII.—Que, una vez realizado el estudio respectivo y mediante el oficio APDI-336-08, del 5 de diciembre del 2008, la unidad de Asesoría de Planificación y Desarrollo Institucional del Ministerio de Cultura y Juventud aprobó la creación de la Oficialía Mayor como Dirección Ejecutiva del Ministerio de Cultura y Juventud. Dicha aprobación fue enviada, por medio del oficio DM-1466-2008, del 10 de diciembre de 2008 al señor Roberto Gallardo, Ministro de Planificación Nacional y Política Económica, de conformidad con lo establecido en los Lineamientos Generales para Reorganizaciones Administrativas, Directriz Nº 021-PLAN, vigente desde el 11 de junio de 2007. Por tanto,
+Decretan:
+Reglamento de Creación de la Dirección Ejecutiva
+del Ministerio de Cultura y Juventud
+Artículo 1º—Créase la Dirección Ejecutiva del Ministerio de Cultura y Juventud como órgano encargado de la coordinación de la actividad administrativa y financiera del Ministerio de Cultura y Juventud, la cual será asumida, formalmente, por la Oficialía Mayor del Ministerio.
