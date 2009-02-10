@@ -11,4 +11,5 @@ Reglamento para el Funcionamiento
 del Registro Genealógico de Caballos Pura Raza Española
 CAPÍTULO I
 Disposiciones generales
-Artículo 1°—La Asociación Criadores de Caballos Pura Raza Española será la responsable del funcionamiento del registro de esa raza equina y del cumplimiento del presente reglamento. Este registro se establece para todos los animales de esa raza, que conforme con lo estipulado en este reglamento y cumpliendo con los requisitos que establezca el Comité de Registro, puedan ser inscritos.
+Artículo 1º—La Asociación de Criadores de Caballos Pura Raza Española será la responsable del funcionamiento del registro de esa raza equina, sus encastes y purificados, y del cumplimiento del presente Reglamento. Este Registro se establece para todos los animales de esa raza, sus encastes y purificados, conforme a lo estipulado en los reglamentos específicos creados por la Asociación y cumpliendo con los requisitos que establezca el Comité de Registro para que puedan ser inscritos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35215 del 10 de febrero de 2009)

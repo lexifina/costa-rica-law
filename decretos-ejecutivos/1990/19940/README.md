@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento del Registro Genealógico de Caballos Pura Raz
 | --- | --- | --- |
 | 1 | 1990-10-16 | la propia norma |
 | 2 | 1991-01-14 | Decreto Ejecutivo 20219 (1991-01-14) |
+| 3 | 2009-02-10 | Decreto Ejecutivo 35215 (2009-02-10) |
