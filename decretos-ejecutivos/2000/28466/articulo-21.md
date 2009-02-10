@@ -1,3 +1,1 @@
-Artículo 21.—Si se interpusieran ambos recursos la apelación se tramitará una vez declarada sin lugar la revocatoria. Para resolver la revocatoria el Consejo cuenta con ocho días hábiles, a partir del día siguiente de su presentación.
-Si la revocatoria no fuera resuelta dentro del plazo señalado se entenderá rechazada, sin perjuicio de la responsabilidad administrativa que pueda corresponderle a los miembros del Consejo por no haber resuelto expresamente el recurso.
-Si la revocatoria ha sido expresamente rechazada, el escrito impugnatorio y sus antecedentes, debidamente ordenados y foliados en el expediente correspondiente, serán enviados inmediatamente al Ministro, quien deberá resolver la apelación dentro de los ocho días posteriores al recibo del expediente.
+Artículo 21.— (Derogado por el artículo 3° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

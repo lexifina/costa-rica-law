@@ -1,1 +1,1 @@
-Artículo 14.—Las actas deberán ser aprobadas en la sesión ordinaria siguiente. Antes de esa aprobación, los acuerdos y resoluciones del Consejo carecerán de firmeza, salvo que los miembros presentes al momento de su adopción, acuerden declararlos firmes por votación unánime.
+Artículo 14.— ( Derogado por el artículo 3° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

@@ -1,1 +1,1 @@
-Artículo 6º—Los miembros del Consejo no podrán ser propietarios o accionistas, o tener relaciones laborales con las droguerías o los laboratorios fabricantes, ni de tipo familiar con sus personeros o accionistas, ya sea por afinidad o consanguinidad hasta tercer grado.
+Artículo 6º—( Derogado por el artículo 3° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

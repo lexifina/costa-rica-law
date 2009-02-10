@@ -1,1 +1,1 @@
-Artículo 22.—El establecimiento de los recursos no suspende la ejecución del acto recurrido, a menos que, en casos muy calificados, en forma razonada, el Ministro de Salud, interlocutoriamente y para evitar un resultado irreparable, ordene la suspensión provisional del acto, lo cual hará en todo caso bajo su responsabilidad.
+Artículo 22.— ( Derogado por el artículo 3° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

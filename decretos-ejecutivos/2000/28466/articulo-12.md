@@ -1,2 +1,1 @@
-Artículo 12.—El Consejo sesionará en la Sede Central del Ministerio ordinariamente una vez por semana y en forma extraordinaria, cuantas veces sea necesario. El día y hora de sus sesiones será fijado por acuerdo del Consejo.
-La asistencia a sesiones será remunerada mediante las dietas que en monto y cantidad fije la Ley de Presupuesto Nacional para los miembros del Consejo. Las sesiones extraordinarias no se remunerarán cuando excedan de cuatro al mes.
+Artículo 12.— ( Derogado por el artículo 3° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

@@ -1,5 +1,6 @@
 CAPITULO III
-De la dirección de registros y controles
+De la (*) Dirección de Atención al Cliente
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)
 Artículo 23.—La Dirección tiene funciones específicas de regulación y vigilancia de la salud en el campo de medicamentos que este reglamento le asigne.
 Sin perjuicio de la colaboración que puedan brindarle todos los funcionarios del Ministerio y otros organismos nacionales o internacionales, las restantes funciones administrativas del Consejo serán atendidas por los funcionarios de la Dirección a la que le corresponderá, para efectos del presente Reglamento, y sin perjuicio de lo que establezcan otras normas jurídicas las siguientes funciones:
 a) Recibir y tramitar las solicitudes de inscripción de medicamentos, droguerías y laboratorios fabricantes. Asimismo, velará porque dichas solicitudes cumplan con la presentación de los requisitos que confiere la Ley y el Reglamento.

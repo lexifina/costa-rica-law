@@ -6,7 +6,8 @@ Certificado de análisis: Certificado en el cual se indican las especificaciones
 Certificado de Buenas Prácticas de Manufactura: Documento expedido por la autoridad sanitaria del país de origen, en el que se certifica que el laboratorio al que se refiere, cumple satisfactoriamente con los requerimientos de las Buenas Prácticas de Manufactura vigentes para la forma farmacéutica a la que pertenece el producto. En el caso de betalactámicos, citotóxicos, hormonales y biológicos, el certificado debe declarar específicamente que el laboratorio fabricante está autorizado para la fabricación de esos productos farmacéuticos.
 Certificado de Libre Venta: Documento expedido por la autoridad reguladora o responsable del registro de productos farmacéuticos del país de origen o de procedencia debidamente consularizado, en el que se certifica que el producto farmacéutico a que se refiere el certificado tiene su registro vigente y está autorizado para la venta o distribución en ese país.
 Certificado de Producto Farmacéutico: El certificado tipo de la Organización Mundial de la Salud (OMS).
-Consejo: Dirección de Registros y Controles, órgano a que se refiere el artículo 113 de la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973.
+Consejo: (*)Dirección de Atención al Cliente, órgano a que se refiere el artículo 113 de la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973.
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)
 Datos de Prueba: Información no divulgada que comprende la información, datos o documentos cuya elaboración suponga un esfuerzo considerable, no hayan sido divulgados al público y sean requeridos por una autoridad con el propósito de evaluar la seguridad y eficacia de un producto farmacéutico con el fin de otorgar el registro sanitario de dicho producto en el país. Constituyen este grupo los siguientes documentos: los reportes finales de los resultados de los estudios preclínicos y clínicos.
 Droguería: Establecimiento farmacéutico dedicado a la importación, depósito, distribución y venta al por mayor de productos farmacéuticos.
 Empaque: Todo material empleado para proteger en su manejo, almacenamiento y transporte al medicamento.
@@ -24,7 +25,8 @@ Fabricación a terceros: Acto de producción nacional o extranjera, realizado de
 Farmacopea: Conjunto o colección de normas sobre principios activos, excipientes, productos farmacéuticos y métodos analíticos recomendados con el objeto de constatar si éstos las cumplen y que ha sido publicado o reconocido por la autoridad sanitaria competente.
 FDA: La Administración de Drogas y Alimentos de los Estados Unidos de América por sus siglas en inglés (U.S. Food and Drug Administration).
 Forma farmacéutica: Forma dosificada en la cual se presenta el producto farmacéutico en su envase primario.
-Formulario: Será el formulario dado por la Dirección de Registros y Controles para la inscripción de medicamentos.
+Formulario: Será el formulario dado por la (*) Dirección de Atención al Cliente para la inscripción de medicamentos.
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)
 Importación paralela de productos farmacéuticos: Es la importación, por parte de un tercero de un producto patentado registrado en Costa Rica sin el consentimiento del titular de la patente y que es comercializado en otro país ya sea por el mismo titular o por una tercera parte autorizada por el titular de la patente en el país exportador.
 Importador: Persona física o jurídica autorizada para la importación de productos farmacéuticos.
 Laboratorios certificados: Son aquellos laboratorios farmacéuticos cuyas Buenas Prácticas de Manufactura son certificadas por el FDA o por las autoridades sanitarias de Costa Rica, u otro organismo reconocido por el Ministerio.
