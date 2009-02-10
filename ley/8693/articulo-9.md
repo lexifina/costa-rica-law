@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Efectividad de la condonación
+Las condonaciones a que se refiere el artículo 2 de la presente Ley, se harán efectivas, siempre y cuando las personas menores de edad de la familia beneficiada se encuentren matriculadas y estudiando en cualquier institución educativa, con excepción de las personas menores de edad con algún tipo de discapacidad que no tengan acceso a un centro educativo.
