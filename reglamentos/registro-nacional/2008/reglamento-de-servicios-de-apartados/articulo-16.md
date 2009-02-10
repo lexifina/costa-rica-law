@@ -1,0 +1,1 @@
+Artículo 16.—Rige a partir de su publicación. Acuerdo Firme adoptado por la Junta Administrativa del Registro Nacional en la sesión ordinaria número 45-2008, celebrada el veinte de noviembre del dos mil ocho.
