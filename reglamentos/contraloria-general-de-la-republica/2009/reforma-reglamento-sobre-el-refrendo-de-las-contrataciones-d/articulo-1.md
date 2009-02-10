@@ -1,0 +1,31 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+R-CO-13-2009.—Contraloría General de la República.—Despacho de la Contralora General.—San José a las ocho horas del cuatro de febrero del dos mil nueve.
+Considerando:
+I.—Que de conformidad con los artículos 182 y 184 de la Constitución Política, están sujetas a refrendo de la Contraloría General de la República las obligaciones derivadas de la actividad contractual pública.
+II.—Que la Sala Constitucional en la resolución 5947 del 19 de agosto de 1998, señaló que el refrendo a que hace referencia el artículo 184 constitucional es de aplicación para la actividad contractual de toda la Administración Pública, sin excepción alguna, al no distinguir la norma constitucional si se trata de una institución de gobierno central, institución autónoma, u órgano desconcentrado.
+III.—Que también la Sala Constitucional, en resolución 9524 del 3 de diciembre de 1999, adicionó la ya citada resolución 5947, en el sentido de que es constitucionalmente posible que en atención a la naturaleza, objeto y cuantía de la contratación de que se trate, la Contraloría General establezca condiciones razonables, proporcionadas y acordes con los principios constitucionales que rigen la contratación administrativa y sus propias competencias, a la facultad que el artículo 184 de la Constitución Política le confiere para refrendar los contratos del Estado, con miras a no crear mecanismos que afecten una expedita gestión administrativa y en atención al interés público.
+IV.—Que en atención a lo anterior, la Contraloría General emitió la Resolución Nº R-CO-44-2007, que desarrolla el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
+V.—Que como parte del proceso de actualización normativa que realiza el órgano contralor, en armonía con las tendencias legislativas que subrayan la relevancia de reforzar el control interno de los entes y órganos públicos, así como de reforzar la responsabilidad directa que de la Administración sobre las obligaciones que suscriben, de manera que el control externo previo se apegue a criterios de cobertura estratégica y eficiencia, se ha estimado necesario profundizar los cambios en materia del trámite de refrendo, específicamente en cuanto a la materia de revisión y reajuste de precios en contratos de suministro, servicios y obra pública.
+VI.—Que con fundamento en los artículos 183 y 184, inciso 1) de la Constitución Política, 20 de la Ley Orgánica de la Contraloría General de la República y 32 de la Ley de Contratación Administrativa, se emite la siguiente:
+MODIFICACIÓN AL REGLAMENTO SOBRE EL REFRENDO
+DE LAS CONTRATACIONES DE LA ADMINISTRACIÓN PÚBLICA
+Se modifica el texto del artículo 10 del Reglamento de cita para que se lea en los siguientes términos:
+“Artículo 10.—Alcance del análisis en el reajuste y la revisión de precios. Cuando las partes hayan establecido un mecanismo de reajuste o revisión de precios, la Contraloría General lo analizará como parte del trámite de refrendo en los términos del inciso 7) del artículo 8 de este Reglamento, en lo conducente, excepto en los casos de contratos de servicios, suministros y obra pública, en los que será de entera responsabilidad de la Administración la legalidad del mecanismo pactado.
+En los casos excluidos del análisis de refrendo según el párrafo anterior, la Administración deberá adoptar las medidas de control interno que le permitan gestionar los riesgos asociados con este aspecto de la contratación administrativa. Para tales efectos, a continuación se enuncian elementos mínimos que se consideran parte de la verificación que debe hacer la propia Administración, de conformidad con el artículo 9 anterior:
+1) En el caso de mecanismos de reajuste del precio en contratos de obra pública:
+a) Debe haber consistencia entre el cartel, la oferta y el contrato en cuanto al mecanismo de reajuste del precio contractual.
+b) El mecanismo de reajuste del precio contractual previsto debe permitir de manera razonable mantener el equilibrio económico del contrato, de conformidad con la naturaleza y características de su objeto y de acuerdo con los otros términos pactados, según corresponda.
+c) En el expediente administrativo deberá constar lo siguiente:
+i) La fórmula de cálculo como expresión algebraica o su método alternativo.
+ii) La tabla de pagos desglosada en actividades constructivas principales, con cantidades por unidades de medida e indicaciones de precios unitarios y totales, así como la estructura porcentual de los elementos que componen el precio, todo de conformidad con el artículo 26 del Reglamento a la Ley de Contratación Administrativa.
+iii) La identificación de los índices de precios a aplicar, con especificación del índice, el nombre de la institución que lo elabora y publica, así como el capítulo, nivel y/o renglón específico que se utilizará.
+iv) El programa de trabajo, el cual debe ser consistente como mínimo con las actividades contenidas en la tabla de pagos. Este programa debe indicar además los porcentajes de ejecución mensual de cada actividad o bien, según lo determinen las partes, un programa de desembolsos mensual por actividad constructiva.
+2) En el caso de mecanismos de revisión del precio en los contratos de servicios y suministros:
+a) Debe haber consistencia entre el cartel, la oferta y el contrato en cuanto al mecanismo de revisión del precio contractual.
+b) El mecanismo de revisión del precio contractual previsto debe permitir de manera razonable mantener el equilibrio económico del contrato, de conformidad con la naturaleza y características de su objeto y de acuerdo con los otros términos pactados, según corresponda.
+c) En el expediente administrativo deberá constar lo siguiente:
+i) La fórmula de cálculo, como expresión algebraica o su método alternativo.
+ii) La estructura porcentual de los elementos que componen el precio, de conformidad con el artículo 26 del Reglamento a la Ley de Contratación Administrativa.
+iii) La identificación de los índices de precios a aplicar, con especificación del índice, el nombre de la institución que lo elabora y publica, así como el capítulo, nivel y/o renglón específico que se utilizará.”
+Rige a partir de su publicación en La Gaceta.
+Publíquese.
