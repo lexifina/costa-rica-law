@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el Decreto Ejecutivo Nº 29044-TSS-COMEX del 30 de octubre de 2000, publicado en el Diario Oficial La Gaceta Nº 215 del 9 noviembre de 2000, de modo que la numeración del Capítulo V denominado “Disposiciones Finales” y su articulado, pase a ser el Capítulo VI y sus artículos inicien a partir del artículo 30.
