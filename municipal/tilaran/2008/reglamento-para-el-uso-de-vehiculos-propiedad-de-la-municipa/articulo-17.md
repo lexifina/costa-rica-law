@@ -1,0 +1,2 @@
+De las sanciones
+Artículo 17.—El servidor que incumpliere las disposiciones de este reglamento, será sancionado de acuerdo a la gravedad de la falta, conforme con la aplicación de lo dispuesto en el Código Municipal, el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Tilarán, Ley General de la Administración Pública, Ley Contra la Corrupción y el Enriquecimiento Ilícito, Ley de Administración Financiera y presupuesto Público, Código Civil, Código Penal y todo aquella normativa aplicable.

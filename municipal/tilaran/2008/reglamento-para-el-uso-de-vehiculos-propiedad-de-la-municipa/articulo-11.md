@@ -1,0 +1,1 @@
+Artículo 11.—De los seguros: La Municipalidad de Tilarán tendrá asegurados todos los vehículos automotores con la cobertura que estime más convenientes por medio de pólizas de seguro con el Instituto Nacional de Seguros o alguna entidad debidamente autorizada.

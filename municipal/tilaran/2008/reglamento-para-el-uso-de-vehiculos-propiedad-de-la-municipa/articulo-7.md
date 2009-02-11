@@ -1,0 +1,1 @@
+Artículo 7º—Identificación: Todo vehículo propiedad de la Municipalidad de Tilarán, deberá estar debidamente rotulado, en lugar visible, con letras de un tamaño tal que se visualice claramente a distancia mínima de 25 metros y al menos la siguiente leyenda deberá estar impresa en cada puerta delantera.
