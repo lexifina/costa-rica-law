@@ -1,0 +1,1 @@
+Artículo 39.—Los estudios especiales de Auditoría estarán encaminados al examen de aspectos específicos de orden presupuestario, legal o reglamentario y serán realizados conforme lo establezca el Auditor Interno, a solicitud de cualquiera de los entes fiscalizadores o por denuncias recibidas.

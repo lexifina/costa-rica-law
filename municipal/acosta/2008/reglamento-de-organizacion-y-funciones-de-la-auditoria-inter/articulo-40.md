@@ -1,0 +1,1 @@
+Artículo 40.—El Auditor Interno velará porque el procesamiento de la información cumpla con lo establecido en el Manual de Procedimientos de Auditoría Interna, en cuanto a las cualidades de la información, análisis y evaluación, registros, accesos, custodia y supervisión del trabajo.

@@ -1,0 +1,4 @@
+Artículo 15.—Al Auditor Interno le corresponderá la dirección superior y administración de la Auditoría Interna:
+a. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias.
+b. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6 de la Ley General de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+c. Mantener actualizado el reglamento de organización y funcionamiento de la Auditoría Interna, cumplir y hacer cumplir el reglamento.

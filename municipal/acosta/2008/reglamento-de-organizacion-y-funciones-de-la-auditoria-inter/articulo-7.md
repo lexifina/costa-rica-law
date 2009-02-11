@@ -1,0 +1,1 @@
+Artículo 7º—Los funcionarios de la Auditoría Interna no auditarán operaciones específicas de las cuales fueron responsables como funcionarios de la Administración, proveedores u otras relaciones, en los doce meses anteriores a su nombramiento en la Auditoría Interna.
