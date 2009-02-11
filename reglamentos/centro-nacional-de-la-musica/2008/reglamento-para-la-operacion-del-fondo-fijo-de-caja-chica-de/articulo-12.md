@@ -1,0 +1,1 @@
+Artículo 12.—Condiciones de custodia. La Dirección Administrativa del Centro proporcionará a los responsables de los fondos fijos de caja chica, los recursos materiales y el espacia físico necesario para garantizar la seguridad y custodia apropiada de los valores de los cuales son depositarios, tanto durante la jornada laboral como fuera de ella.

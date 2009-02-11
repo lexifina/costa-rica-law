@@ -1,0 +1,1 @@
+Artículo 46.—Derecho de verificación. Todo arqueo de los fondos fijos de caja chica, se realizará en presencia de la persona responsable del fondo. Esta, tendrá el derecho a pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

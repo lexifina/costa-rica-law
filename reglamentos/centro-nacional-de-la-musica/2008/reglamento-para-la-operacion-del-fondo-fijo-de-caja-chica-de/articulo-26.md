@@ -1,0 +1,1 @@
+Artículo 26.—Visto bueno. Como medio para verificar que el bien o servicio se recibió a satisfacción, el Director de la Unidad solicitante del bien o servicio, anotará su nombre, firma, número de cédula y sello de oficina, en la parte posterior de la factura comercial o bien en el reverso de una copia de la “Solicitud de Compra por Caja Chica”, si fuera necesario.

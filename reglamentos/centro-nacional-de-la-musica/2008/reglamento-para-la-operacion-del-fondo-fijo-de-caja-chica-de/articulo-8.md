@@ -1,0 +1,1 @@
+Artículo 8º—Prohibición. Bajo ninguna circunstancia podrá encomendarse la administración temporal o permanente de un fondo fijo de caja chica a una persona que no sea funcionario público del Centro Nacional de la Música.

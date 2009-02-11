@@ -1,0 +1,1 @@
+Artículo 28.—Prohibición de girar un nuevo adelanto. No se podrá autorizar el trámite de un anticipo de dinero por el fondo fijo de caja chica, al funcionario que tenga pendiente una liquidación de un anticipo anterior, hasta tanto no lo haya liquidado.

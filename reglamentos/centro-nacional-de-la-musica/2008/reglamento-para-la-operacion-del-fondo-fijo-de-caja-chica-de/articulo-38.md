@@ -1,0 +1,6 @@
+CAPÍTULO V
+Reintegros al fondo fijo de caja chica
+Artículo 38.—Reintegros al Fondo Fijo de Caja Chica. El responsable de la custodia y operación del fondo fijo de caja chica será el encargado de tramitar los reintegros del mismo, con la aprobación del Director General o del Director de cada Unidad.
+Adjunto a la “Solicitud de Reintegro” se presentarán los justificantes respectivos como son: Solicitud de Pedido, copia del Pedido de Compra y la Factura comercial o comprobante de caja. Entre los aspectos a verificar están: veracidad de los datos consignados en los mismos, la relación entre el monto de la factura y el límite del gasto, la liquidación del adelanto en tiempo, la disponibilidad presupuestaria y las autorizaciones correspondientes.
+Los reembolsos a la cuenta del fondo fijo de caja chica se realizarán por cheque, una vez autorizados por la Dirección General del Centro.
+En la “Solicitud de Reintegro” se deberán acompañar los justificantes respectivos, los cuales deben ser sellados con la leyenda “Pagado por cheque número de fecha .” Los documentos en mención deberán permanecer a disposición de los entes fiscalizadores en el archivo de la oficina de contabilidad del Centro, según lo establece la Ley General de Archivos.

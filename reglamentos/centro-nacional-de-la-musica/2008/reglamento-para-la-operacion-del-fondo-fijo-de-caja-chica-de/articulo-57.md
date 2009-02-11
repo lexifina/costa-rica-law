@@ -1,0 +1,1 @@
+Artículo 57.—Derogatorias. Este Reglamento deroga cualquier disposición normativa anterior, promulgación de igual o inferior rango que se le oponga.

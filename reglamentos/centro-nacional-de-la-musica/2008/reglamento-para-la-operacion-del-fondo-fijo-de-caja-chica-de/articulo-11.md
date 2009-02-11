@@ -1,0 +1,1 @@
+Artículo 11.—Manual Institucional de Operación. Es responsabilidad de la Dirección Administrativa del Centro, contar con un manual de operación actualizado, en el cual se detallen de forma clara y precisa las rutinas de trabajo relacionadas con la operación de los fondos fijos de caja chica y el responsable de ejecutarla.
