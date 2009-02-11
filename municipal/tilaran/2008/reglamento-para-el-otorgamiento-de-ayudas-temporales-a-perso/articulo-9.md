@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad otorgará las ayudas con base en lo dispuesto en los artículos anteriores, solamente una vez por persona o núcleo familiar por cada año, exceptuando en casos especiales a criterio de la comisión respectiva, para lo cual se establecerá un registro de adjudicatarios.

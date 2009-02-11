@@ -1,0 +1,3 @@
+Artículo 7º—Del monto de la ayuda: El monto de la ayuda será estipulado por la Comisión de Asuntos Sociales en cada caso específico y aprobado por el Concejo Municipal, según las necesidades del o la solicitante según el criterio de la Comisión, monto que no podrá ser mayor de cien mil colones en efectivo (¢100,000.00).
+En caso de ayuda con materiales y otros quedará a criterio de la Comisión y aprobación de la Municipalidad, la cantidad a asignar.
+Para los desembolsos del dinero respectivo, deberá presentar el adjudicatario la factura proforma proveniente de una de las personas o empresas que se encuentran inscritas en el respectivo Registro de Proveedores de la Municipalidad, de acuerdo a la Ley de Contratación Administrativa y su reglamento.
