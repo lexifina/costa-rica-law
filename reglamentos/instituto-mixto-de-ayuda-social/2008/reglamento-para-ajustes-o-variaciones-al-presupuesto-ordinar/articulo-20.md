@@ -1,0 +1,1 @@
+Artículo 20.—Justificaciones para su elaboración: El Responsable del Programa Presupuestario respectivo que requiera la elaboración de este tipo de modificaciones presupuestarias debe elaborar una justificación, sustentada en criterios técnicos o de oportunidad institucional.

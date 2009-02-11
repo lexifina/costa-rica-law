@@ -1,0 +1,1 @@
+Artículo 26.—Nivel de aprobación: La aprobación de este tipo de modificaciones corresponden exclusivamente al Consejo Directivo, la cual se deberá realizar mediante acuerdo debidamente razonado. El cuadro de origen y aplicación de los recursos deberá ser parte integral de dicho acuerdo.

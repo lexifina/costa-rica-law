@@ -1,0 +1,1 @@
+Artículo 8º—Uso de los clasificadores de ingresos y egresos: Los ajustes o variaciones que se realicen al presupuesto ordinario deben ser formulados atendiendo el nivel de detalle establecido en los clasificadores de ingresos y por objeto de gasto del sector público vigentes y de conformidad con la normativa emitida por la Contraloría General de la República.

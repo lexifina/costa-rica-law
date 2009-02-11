@@ -1,0 +1,1 @@
+Artículo 12.—Plazos sobre la emisión del acuerdo del Consejo Directivo: La Secretaría del Consejo Directivo dispondrá de dos días hábiles para trasladar al Coordinador del Área de Apoyo y Asesoría Financiera, la resolución en firme que adopte el Consejo Directivo en relación con el documento sometido a su consideración.

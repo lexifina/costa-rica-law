@@ -1,0 +1,1 @@
+Artículo 15.—De la remisión de los documentos a los entes externos: La remisión de los documentos a los entes u órganos externos se hará mediante oficios firmados por el Gerente General, los cuales deben llevar anexo el acuerdo del Consejo Directivo, así como cualquier otra información que establezca el ordenamiento jurídico vigente.

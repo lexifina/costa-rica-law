@@ -1,0 +1,1 @@
+Artículo 11.—De la aprobación del Consejo Directivo: El Consejo Directivo deberá conocer y pronunciarse mediante acto razonado sobre la aprobación o improbación del documento presupuestario sometido a su consideración por la Gerencia General.

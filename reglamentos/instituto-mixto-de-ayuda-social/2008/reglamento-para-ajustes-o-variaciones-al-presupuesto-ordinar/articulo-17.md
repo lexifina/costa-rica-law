@@ -1,0 +1,1 @@
+Artículo 17.—Fechas de presentación de presupuestos ante la Contraloría General de la República: La presentación ante la Contraloría General de la República de los proyectos de presupuestos extraordinarios establecidos por ley está comprendida entre el 1º de enero y el último día hábil del mes de setiembre de cada año. En este último mes solo podrá presentarse un documento.

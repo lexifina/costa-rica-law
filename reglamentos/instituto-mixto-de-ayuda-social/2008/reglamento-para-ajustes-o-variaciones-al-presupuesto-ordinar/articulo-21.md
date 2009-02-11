@@ -1,0 +1,1 @@
+Artículo 21.—Nivel de aprobación: La aprobación de estos ajustes, corresponde al Subgerente Administrativo Financiero y al Coordinador del Área de Apoyo y Asesoría Financiera, por medio de su rúbrica en el espacio destinado para tal fin en el formulario preestablecido para elaborar esta modalidad de modificaciones presupuestarias.

@@ -1,0 +1,1 @@
+Artículo 18.—Excepciones al artículo anterior: La Gerencia General podrá, en casos de excepción y debidamente justificados, solicitar a la Contraloría General de la República, autorización para presentar los documentos en fechas posteriores a las establecidas por ley, según el artículo anterior.

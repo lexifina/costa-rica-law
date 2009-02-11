@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO
+Modificaciones presupuestarias con ajustes de alto nivel o superiores
+Artículo 25.—Modificaciones presupuestarias con ajustes de alto nivel o superiores: Son aquellas modificaciones que se realizan para atender necesidades institucionales de cualquier índole, entre los programas presupuestarios, así como para realizar cambios en las programaciones y las metas contenidas en el Plan Operativo Institucional, siempre y cuando estén elaboradas en estricto apego al bloque de legalidad. Además, a través de este tipo de modificaciones se permite la creación o anulación de subprogramas, líneas estratégicas o componentes.

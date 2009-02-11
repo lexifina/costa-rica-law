@@ -1,0 +1,1 @@
+Artículo 47.—Aprobación y vigencia: Este Reglamento fue aprobado por el Consejo Directivo del IMAS, en la sesión Nº 089-08, celebrada el 24 de noviembre del 2008, acuerdo 395-08 y rige a partir de la publicación en el diario oficial La Gaceta.

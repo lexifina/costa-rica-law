@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: Establecer las tareas, actividades y disposiciones generales que regulen el proceso de los Ajustes o Variaciones que se realicen al Presupuesto Ordinario, mediante Modificaciones Presupuestarias y Presupuestos Extraordinarios, todo acorde con la normativa emitida por la Contraloría General de la República y el bloque de legalidad aplicable.

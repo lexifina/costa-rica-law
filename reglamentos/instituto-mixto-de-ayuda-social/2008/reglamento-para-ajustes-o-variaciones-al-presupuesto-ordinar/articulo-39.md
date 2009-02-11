@@ -1,0 +1,1 @@
+Artículo 39.—Responsabilidades de la Unidad de Recursos Humanos: La Unidad de Recursos Humanos deberá elaborar y remitir a la Subgerencia Administrativa Financiera un estudio con los análisis técnicos que justifiquen los ajustes o variaciones que se realicen a la partida de remuneraciones, los cuales deberán contar con la autorización de la Gerencia General.

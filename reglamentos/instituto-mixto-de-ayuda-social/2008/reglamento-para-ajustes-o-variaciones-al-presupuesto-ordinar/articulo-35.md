@@ -1,0 +1,1 @@
+Artículo 35.—De las unidades ejecutoras: Cada vez que las Unidades Ejecutoras, requieran realizar ajustes o variaciones al Presupuesto Ordinario amparados al presente Reglamento, previo a la autorización del responsable del programa deben verificar que los requerimientos presentados cumplen con todas las disposiciones establecidas en el presente Reglamento.

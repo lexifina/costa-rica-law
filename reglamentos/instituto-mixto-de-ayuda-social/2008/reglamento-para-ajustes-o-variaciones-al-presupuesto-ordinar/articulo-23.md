@@ -1,0 +1,1 @@
+Artículo 23.—Cantidad anual permitida y periodicidad de aprobación: Por la dinámica que representa este tipo de ajustes al presupuesto, el límite de documentos mensuales que se pueden elaborar por programa serán de 15 y el tiempo de aprobación no deberá superar los dos días.

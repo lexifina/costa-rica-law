@@ -1,0 +1,1 @@
+Artículo 37.—Responsabilidades de las Unidades Ejecutoras: Las Unidades Ejecutoras que soliciten “Ajustes o Variaciones” al Presupuesto Ordinario tienen la responsabilidad de atender todas las disposiciones contenidas en el presente Reglamento.
