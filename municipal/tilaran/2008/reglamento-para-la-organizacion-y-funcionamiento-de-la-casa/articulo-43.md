@@ -1,0 +1,13 @@
+CAPÍTULO IX
+Del uso de las instalaciones y los salones
+de la Casa de la Cultura de Tilarán
+Artículo 43.—Los Salones culturales están a disposición para los servicios de enseñanza artística que brinda la Casa de la Cultura a la población Tilaranense, rigiéndose de la siguiente manera:
+I. Los salones culturales o cubículos operarán en espacios facilitados en calidad de préstamo a instituciones públicas, privadas, comunitarias, personas físicas o jurídicas. El préstamo se expresará mediante acuerdo escrito previa solicitud, y éstos no podrán ser utilizados en forma permanente.
+II. Las instituciones públicas, privadas, comunitarias, personas físicas o jurídicas podrán solicitar la apertura de salones, la solicitud deberá presentarse por escrito dirigido a la Junta Administrativa de la Casa de la Cultura, quien deberá responder afirmativa o negativamente en un lapso no mayor a quince días hábiles.
+III. Las relaciones entre la Casa de la Cultura y los instructores de los salones culturales se regirá de acuerdo a convenios establecidos entre las partes.
+IV. No podrán autorizarse actos, actividades o eventos que signifique deterioro especial para la Casa sus instalaciones, que empleen sustancias peligrosas o produzcan mal olor para éstas, que sean especialmente ruidosas, que empleen elementos naturales o artificiales que provoquen suciedad o deterioro a la pintura y decoraciones de la misma.
+V. No se hará discriminación alguna por razones étnicas, de género, credo, políticas, económicas o de otra índole que lesionen la dignidad humana.
+VI. Las solicitudes de uso se tramitarán ante la Junta Administrativa de la Casa de la Cultura de Tilarán, que velará porque exista la mayor participación posible entre los diversos usuarios, tanto en exposiciones individuales como colectivas, que por regla de principio no podrán exceder de dos semanas, salvo razones fundadas y aceptadas por la Junta.
+VII. Toda persona, grupo u organización que utilice las instalaciones de la Casa, asumirán la obligación de dejar limpio y en orden el lugar, cubriendo el monto por los daños que se ocasionaren, comprobando los hechos.
+VIII. En el caso de que las personas o grupos de expositores deseen atender a los invitados a la inauguración del evento, cualquier gasto correrá por cuenta de expositores, asimismo, correrán con los gastos de la divulgación para dicha actividad.
+IX. La casa no podrá ser utilizada en ninguno de sus espacios, para que individuos y organizaciones independientes e instituciones, guarden sus instrumentos, equipo técnico, escenografías, vestuarios, u otros; permanentemente.

@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Administrativa de la Casa de la Cultura de Tilarán fungirá en sus funciones por dos años desde el momento de su integración. Los miembros de la Junta Administrativa serán nombrados por dos años y podrán ser reelectos y en caso de renuncia el que lo sustituya lo hará por el resto del período.

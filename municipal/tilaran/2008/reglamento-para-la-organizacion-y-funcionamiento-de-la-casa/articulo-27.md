@@ -1,0 +1,1 @@
+Artículo 27.—Cada delegado tendrá derecho a un voto. Los delegados que representen a dos organizaciones distintas, podrán votar una única vez, por lo que es responsabilidad de las organizaciones, realizar los cambios de delegados para no perder su voto.

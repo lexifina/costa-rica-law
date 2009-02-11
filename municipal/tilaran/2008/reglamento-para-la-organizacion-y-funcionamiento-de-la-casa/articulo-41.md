@@ -1,0 +1,1 @@
+Artículo 41.—Se faculta a todas las municipalidades del País y a las instituciones Autónomas y semiautónomas para contribuir con dinero o en especie, en servicios o en cualquier otra forma que juzguen conveniente, a la conservación y funcionamiento de la Casa de la Cultura de Tilarán.

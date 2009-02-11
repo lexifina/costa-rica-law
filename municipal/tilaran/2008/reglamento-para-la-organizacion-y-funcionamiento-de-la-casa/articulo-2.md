@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento tiene el objetivo de regular la estructura y el funcionamiento de la organización cultural municipal denominada Casa de la Cultura de Tilarán, la cual dependerá de la Dirección del Concejo Municipal de Tilarán, bajo la tutela de la Junta Administrativa de ésta.

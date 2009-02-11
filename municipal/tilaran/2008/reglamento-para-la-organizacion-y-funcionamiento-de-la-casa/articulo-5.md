@@ -1,0 +1,1 @@
+Artículo 5º—La Junta Administrativa es un organismo adscrito a la municipalidad con personería jurídica únicamente para el cumplimiento de los fines con que fue creada para ello la Secretaría Municipal extenderá la personería correspondiente basada en el acuerdo de juramentación y nombramiento por parte del Concejo Municipal.
