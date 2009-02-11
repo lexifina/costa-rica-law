@@ -1,0 +1,1 @@
+Artículo 5º—Cuando con posterioridad al nombramiento se compruebe la existencia de alguno de los impedimentos a los que se refiere el artículo anterior, quedará sin efecto la designación del miembro respectivo.

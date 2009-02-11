@@ -1,0 +1,1 @@
+Artículo 9º—En cualquiera de los casos citados anteriormente corresponderá a la Presidencia Ejecutiva del Incopesca, determinar si procede o no la separación del cargo. De ser así, procederá a nombrar a la persona para llenar la vacante para el resto del período legal.

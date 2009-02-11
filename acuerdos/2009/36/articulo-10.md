@@ -1,0 +1,1 @@
+Artículo 10.—Esta Comisión se reunirá en forma adhonorem, en sesión ordinaria una vez al mes, en el lugar, día y hora que se determine. Asimismo, sesionarán en forma extraordinaria cuando sea absolutamente necesario, por convocatoria del Coordinador mediante comunicación escrita presentada por lo menos con cuarenta y ocho horas de antelación.

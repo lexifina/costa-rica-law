@@ -1,0 +1,1 @@
+Transitorio.—En el tiempo perentorio de ocho días calendario, contados a partir de la entrada en vigencia del presente acuerdo, las Organizaciones Pesqueras deberán remitir a la Presidencia Ejecutiva del Incopesca, las ternas respectivas para su correspondiente designación.
