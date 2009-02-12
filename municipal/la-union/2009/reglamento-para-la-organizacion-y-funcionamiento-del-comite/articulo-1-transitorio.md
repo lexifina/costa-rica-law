@@ -1,0 +1,1 @@
+Transitorio único: Que los actuales miembros del Comité Cantonal de Deportes permanecerán en sus cargos hasta el 30 de noviembre de 2009. El proceso de renovación de dicho Comité se iniciará de acuerdo al procedimiento establecido en este Reglamento, a partir del segundo semestre del año dos mil nueve.
