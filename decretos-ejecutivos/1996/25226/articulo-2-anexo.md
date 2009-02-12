@@ -152,8 +152,9 @@ II- Requisitos Técnicos
 Las empresas que se encuentran en operación y solicitan la declaratoria, deberán:
 1. Presentar una carta donde se autoriza la realización de una inspección por parte del Departamento de Fomento del ICT, con el propósito de realizar una evaluación y clasificación conforme a la guía de inspección publicada en el presente reglamento.
 2. Presentar copia de la patente municipal y del permiso de funcionamiento. Se exceptúa de la presentación de la copia del permiso de funcionamiento a los establecimientos clasificados como categoría "C" que se encuentran exonerados de dicho permiso según el decreto No 27569-S, y sus reformas. "Trámite para Permisos de Funcionamiento ante el Ministerio de Salud".
-3. Obtener en la inspección y calificación una categoría mínima de un tenedor en el caso de restaurantes y de dos copas en el caso de centros de diversión nocturna.
+(*) 3. Obtener en la inspección, evaluación y calificación, una categoría de tres tenedores en el caso de las empresas gastronómicas y de tres copas en el caso de los centros de diversión nocturna.
 (Así adicionado mediante el artículo 3 del decreto ejecutivo N° 29058 del 06 de noviembre del 2000).
+(*) (Así reformado por el artículo 3° del decreto ejecutivo N° 35110 del 12 de febrero del 2009)
 (*)Guía de Requisitos para obtener la declaratoria turística de Actividad Turística Temática:
 I- Requisitos Legales: El interesado deberá presentar:
 1. Solicitud de declaratoria turística, suscrita por el interesado (en caso de personas físicas), o por el representante de la empresa (en caso de personas jurídicas), la firma deberá estar debidamente autenticada. La solicitud deberá indicar la actividad a la que se dedicará la empresa, el lugar específico donde se operará, el nombre comercial a utilizar, la fecha de inicio de operaciones (cuando se trate de un proyecto).
