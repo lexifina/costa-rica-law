@@ -14,3 +14,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-15 | la propia norma |
+| 2 | 2009-02-13 | Reglamento 772 (2009-02-13) |

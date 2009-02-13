@@ -1,2 +1,1 @@
-Artículo 13.—Límites al endeudamiento. Las sociedades administradoras no pueden superar un nivel de endeudamiento de un 20% del total de sus activos.
-El endeudamiento se calcula como la relación entre el total de pasivos y el activo total de la sociedad.
+Artículo 13.— (Derogado por el artículo 25 aparte b) del Reglamento de Gestión de Riesgos, aprobado en sesión N° 772 del 13 de febrero de 2009)
