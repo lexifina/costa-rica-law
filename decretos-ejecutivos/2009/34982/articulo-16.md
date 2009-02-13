@@ -1,0 +1,1 @@
+Artículo 16.—De la firma del contrato: Confeccionado el contrato lo firmará el Director General o el Director del Programa, o en su defecto el funcionario designado por la Administración y el funcionario responsable, de previo a la entrega del aparato y sus accesorios.
