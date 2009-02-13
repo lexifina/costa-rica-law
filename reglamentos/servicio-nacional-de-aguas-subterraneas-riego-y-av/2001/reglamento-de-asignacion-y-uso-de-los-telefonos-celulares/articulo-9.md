@@ -1,1 +1,0 @@
-Artículo 9º—Responsabilidad de la administración activa. Corresponde al Director del Área Administrativa Financiera, a través del Encargado del Proceso de Servicios Administrativos, velar por el cabal cumplimiento de las normas contenidas en el presente Reglamento y cualesquiera otras que le sean aplicables.
