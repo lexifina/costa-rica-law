@@ -1,0 +1,1 @@
+Artículo 29.—Uso exclusivo. El teléfono celular es de uso exclusivo del funcionario al cual se le asigna, para atender y realizar llamadas relativas al cumplimiento de las funciones propias del cargo que ostenta en la Institución.
