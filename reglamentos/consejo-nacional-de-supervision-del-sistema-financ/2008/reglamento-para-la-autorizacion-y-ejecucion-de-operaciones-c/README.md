@@ -14,3 +14,4 @@ Reglamento para la autorización y ejecución de operaciones con derivados cambi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-13 | la propia norma |
+| 2 | 2009-02-13 | Reglamento 772 (2009-02-13) |
