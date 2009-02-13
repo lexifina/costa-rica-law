@@ -1,0 +1,1 @@
+Artículo 5º—Áreas de interés. Se entenderán áreas de interés aquellas que se refieran o aludan directamente a las funciones y tareas previstas en el Reglamento de Tareas y Funciones del Ministerio de Relaciones Exteriores y que tengan directa relación con la labor que desempeña el funcionario en el momento de aplicación de la beca.

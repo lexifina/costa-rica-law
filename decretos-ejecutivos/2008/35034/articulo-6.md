@@ -1,0 +1,1 @@
+Artículo 6º—Principios. El proceso para el otorgamiento de becas, desde su aviso, divulgación, convocatoria y concesión, se regirá por los principios de publicidad, transparencia, libre concurrencia e igualdad.
