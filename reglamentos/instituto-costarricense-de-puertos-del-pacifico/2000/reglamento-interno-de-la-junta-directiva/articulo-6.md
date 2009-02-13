@@ -1,1 +1,0 @@
-Artículo 6°—En caso de que al momento de celebrarse la Sesión el Presidente Ejecutivo esté ausente (por Misión Oficial, enfermedad u otra causal será sustituido por el Vicepresidente, quien tendrá los mismos deberes y atribuciones pero solamente para dirigir la Sesión. Cuando en alguna Sesión estuvieren ausentes ambos, presidirá el Director de mayor edad.

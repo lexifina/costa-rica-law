@@ -1,3 +1,0 @@
-Artículo 13 (bis).—Para el cumplimiento de sus funciones en las sesiones ordinarias y extraordinarias, la Administración podrá brindar a los participantes de las mismas* bocadillos y refrigerios, con estricto apego a principios de razonabilidad y austeridad. Lo anterior, podrá igualmente aplicarse al caso del cumplimiento de comisiones por parte de los miembros de la Junta Directiva, debidamente asignado previamente por ésta, mediante acuerdo respectivo.
-(Adicionado mediante sesión ordinaria N° 3224 de 05 de febrero de 2004.)
-*(Así corregido mediante FE DE ERRATAS publicada en La Gaceta No. 53 de 16 de marzo de 2004).
