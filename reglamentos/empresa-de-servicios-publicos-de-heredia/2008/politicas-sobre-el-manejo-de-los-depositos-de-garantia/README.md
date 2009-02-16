@@ -14,3 +14,4 @@ Políticas sobre el Manejo de los Depósitos de Garantía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-12 | la propia norma |
+| 2 | 2009-02-16 | Reglamento 2980 (2009-02-16) |
