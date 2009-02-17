@@ -14,3 +14,4 @@ Reglamento para funcionarios de Junta de Protección Social que deben rendir gar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-22 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |

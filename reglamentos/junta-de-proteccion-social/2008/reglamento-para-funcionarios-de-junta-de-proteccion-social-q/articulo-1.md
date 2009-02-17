@@ -1,5 +1,6 @@
-JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
-La Junta Directiva de la Junta de Protección Social de San José, de conformidad con las atribuciones conferidas en el artículo 8 inciso m) del Reglamento Orgánico de la Junta de Protección Social de San José y 103 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978 y el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131 del 18 de setiembre del 2001, la Ley General de Control Interno, Ley Nº 8292 del 31 de julio del 2002, y
+(*) JUNTA DE PROTECCIÓN SOCIAL
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
+La Junta Directiva de la (*) Junta de Protección Social, de conformidad con las atribuciones conferidas en el artículo 8 inciso m) del Reglamento Orgánico de la (*) Junta de Protección Social y 103 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978 y el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131 del 18 de setiembre del 2001, la Ley General de Control Interno, Ley Nº 8292 del 31 de julio del 2002, y
 Considerando:
 I.—Que el tema de las actividades del Estado merece especial atención, pues se trata de transacciones de orden público y de interés social, que utilizan recursos económicos confiados por los ciudadanos a los gobernantes, exigiendo el uso eficiente de estos recursos, austeridad en el gasto público, mejor calidad de los bienes y servicios, así como una mayor transparencia en los procesos del Estado; incorporando controles suficientes y convincentes, que faciliten la prevención del fraude y la corrupción.
 II.—Que el objetivo general del control interno es proteger y conservar el patrimonio institucional contra cualquier pérdida, uso indebido, irregularidad o acto ilegal, por lo que la Administración; en especial el jerarca en cooperación con los titulares subordinados; tiene el deber de implementar y ejecutar medidas efectivas para administrar adecuadamente el nivel de riesgo existente en la custodia y administración de los fondos y valores públicos, con acciones que garanticen su cumplimiento, previniendo así el desvío de los objetivos y metas propuestas.
@@ -9,7 +10,7 @@ V.—Que la Contraloría General de la República mediante resolución R-CO-10-2
 APRUEBAN:
 El siguiente:
 REGLAMENTO PARA LOS FUNCIONARIOS
-DE LA JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
+DE LA (*) JUNTA DE PROTECCIÓN SOCIAL
 QUE DEBEN RENDIR GARANTÍA EN CUMPLIMIENTO
 DE LO DISPUESTO EN EL ARTÍCULO 13 DE LA LEY
 DE LA ADMINISTRACIÓN FINANCIERA DE LA REPÚBLICA
@@ -17,4 +18,5 @@ Y PRESUPUESTOS PÚBLICOS, LEY N° 8131
 DEL 18 DE SETIEMBRE DEL 2001
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Ámbito de Aplicación. El presente Reglamento será de aplicación obligatoria, establece y regula las disposiciones y procedimientos aplicables a las garantías o cauciones que deberán rendir, de conformidad con el artículo 13 de la Ley N° 8131 del 18 de setiembre del 2001, aquellos funcionarios de la Junta de Protección Social de San José o cualquier persona destacada o al servicio de la institución, en virtud de un convenio o alguna otra figura jurídica similar, que custodien, recauden o administren fondos y valores públicos propiedad de la Junta de Protección Social de San José o a cargo de ésta.
+Artículo 1º—Ámbito de Aplicación. El presente Reglamento será de aplicación obligatoria, establece y regula las disposiciones y procedimientos aplicables a las garantías o cauciones que deberán rendir, de conformidad con el artículo 13 de la Ley N° 8131 del 18 de setiembre del 2001, aquellos funcionarios de la (*) Junta de Protección Social o cualquier persona destacada o al servicio de la institución, en virtud de un convenio o alguna otra figura jurídica similar, que custodien, recauden o administren fondos y valores públicos propiedad de la (*) Junta de Protección Social o a cargo de ésta.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
