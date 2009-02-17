@@ -17,3 +17,4 @@ Reglamento Autónomo de Organización y Servicio de la Junta de Protección Soci
 | 2 | 1999-12-20 | Reglamento 47 (1999-12-20) |
 | 3 | 2004-08-17 | Reglamento 30 (2004-08-17) |
 | 4 | 2004-08-17 | Reglamento 29 (2004-08-10) |
+| 5 | 2009-02-17 | Ley 8718 |
