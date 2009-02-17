@@ -1,3 +1,5 @@
+(Derogado)
+(Derogado mediante acuerdo N° 2, sesión ordinaria 147, del 17 de febrero de 2009)
 MUNICIPALIDAD DE SAN JOSÉ
 DEPARTAMENTO DESARROLLO CATASTRAL
 EL DOCUMENTO QUE SE PUBLICÓ EL JUEVES 9 DE

@@ -14,3 +14,4 @@ Planos de Valores Base de Terrenos para el Cantón Central de San José.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-14 | la propia norma |
+| 2 | 2009-02-17 | Acuerdo municipal 2 (2009-02-17) |
