@@ -14,3 +14,4 @@ Reglamento para la Comercialización y Venta de Derechos de Arriendo en los Ceme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-01 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
