@@ -1,0 +1,1 @@
+Artículo 85.—El pago de salario del personal municipal se hará en forma quincenal, para el personal administrativo y para el personal de forma semanal (operativos o de campo), los días viernes, mediante depósito en cuenta corriente o de ahorros en cualquiera de los bancos del Sistema Bancario Nacional.

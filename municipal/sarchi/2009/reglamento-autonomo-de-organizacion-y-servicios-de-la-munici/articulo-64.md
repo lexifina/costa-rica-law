@@ -1,0 +1,1 @@
+Artículo 64.—El funcionario becado para participar en una actividad de capacitación en el extranjero, deberá comprometerse a rendir un informe por escrito al Departamento de Recursos Humanos sobre la capacitación recibida por el otorgamiento de la beca y a estar en disposición de trasmitir los conocimientos adquiridos cuando el departamento lo requiera.

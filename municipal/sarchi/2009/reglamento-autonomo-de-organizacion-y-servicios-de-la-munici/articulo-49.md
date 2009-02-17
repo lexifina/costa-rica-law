@@ -1,0 +1,1 @@
+Artículo 49.—Los servidores interinos de la municipalidad y el personal de confianza no están amparados por los derechos y beneficios de la Carrera Administrativa Municipal. Aunque desempeñen puestos comprendidos en ella.

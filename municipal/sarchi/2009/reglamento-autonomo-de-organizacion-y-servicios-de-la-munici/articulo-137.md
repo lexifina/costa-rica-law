@@ -1,0 +1,1 @@
+Artículo 137.—Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias y deberán ser reportadas al superior correspondiente. Este deberá considerar el tiempo del recorrido según el comprobante que presente el empleado.

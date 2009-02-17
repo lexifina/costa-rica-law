@@ -1,0 +1,1 @@
+Artículo 124.—Son días hábiles todos los días del año, excepto los días de descanso semanal, los feriados considerados en el artículo 148 del Código de Trabajo u otorgados por convenio entre partes, y aquellos que el Poder Ejecutivo declare de asueto.

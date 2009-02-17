@@ -1,0 +1,1 @@
+Artículo 88.—La Municipalidad para efectos del pago de la Prohibición, la Dedicación exclusiva y la Carrera Profesional, se regirán con base en el reglamento, reformas y la normativa existente sobre la materia.
