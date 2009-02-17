@@ -14,3 +14,4 @@ Reglamento para el Control y Registro de Bienes de la Junta de Protección Socia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-27 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
