@@ -14,3 +14,4 @@ Reglamento para el uso, custodia y conservación de los teléfonos celulares de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-02 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
