@@ -1,10 +1,11 @@
-JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
-La Junta Directiva de la Junta de Protección Social de San José, en el artículo IV), inciso 3) de la sesión Nº 4 celebrada el 5 de febrero del 2008, conoció y aprobó el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junta de Protección Social de San José.
+(*) JUNTA DE PROTECCIÓN SOCIAL
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
+La Junta Directiva de la (*) Junta de Protección Social, en el artículo IV), inciso 3) de la sesión Nº 4 celebrada el 5 de febrero del 2008, conoció y aprobó el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la (*) Junta de Protección Social.
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
-DE LA AUDITORÍA INTERNA DE LA JUNTA DE
-PROTECCIÓN SOCIAL DE SAN JOSÉ
+DE LA AUDITORÍA INTERNA DE LA (*) JUNTA DE
+PROTECCIÓN SOCIAL
 Disposiciones preliminares
-Artículo 1º—Objeto. El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna de la Junta de Protección Social de San José (JPSSJ), de conformidad con lo que establece el artículo N° 23 de la Ley General de Control Interno; así como también lo contemplado en las Directrices generales relativas al Reglamento de organización y funcionamiento de las Auditorías Internas del sector público, emitidas por la Contraloría General de la República.
+Artículo 1º—Objeto. El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna de la (*) Junta de Protección Social (JPS), de conformidad con lo que establece el artículo N° 23 de la Ley General de Control Interno; así como también lo contemplado en las Directrices generales relativas al Reglamento de organización y funcionamiento de las Auditorías Internas del sector público, emitidas por la Contraloría General de la República.
 Fuentes legales consultadas:
 A. Constitución Política de la República de Costa Rica.
 B. Ley General de la Administración Pública N° 6227.
@@ -18,16 +19,16 @@ I. Directrices generales sobre principios y enunciados éticos a observar por pa
 J. Directrices generales relativas al Reglamento de organización y funcionamiento de las auditorías internas del sector público.
 K. Manual de normas generales de auditoría para el sector público.
 L. Manual de normas para el ejercicio de la auditoría interna en el sector público.
-M. Reglamento Orgánico de la Junta de Protección Social de San José.
+M. Reglamento Orgánico de la (*) Junta de Protección Social.
 N. Otras disposiciones, normas, políticas y directrices emitidas por la Contraloría General de la Republica.
 Definición de términos y abreviaturas:
-a. JPS: Junta de Protección Social de San José.
-b. Auditoría Interna: la Auditoría Interna de la Junta de Protección Social de San José.
+a. JPS: (*) Junta de Protección Social.
+b. Auditoría Interna: la Auditoría Interna de la (*) Junta de Protección Social.
 c. Definición Auditoría: la palabra auditoría viene del latín auditorius y de esta proviene auditor, que tiene la virtud de oír y revisar cuentas, pero debe estar encaminado a un objetivo específico que es el de evaluar la eficiencia y eficacia con que se está operando para que, por medio del señalamiento de cursos alternativos de acción, se tomen decisiones que permitan corregir los errores, en caso de que existan, o bien mejorar la forma de actuación. Algunos autores proporcionan otros conceptos, pero todos coinciden en hacer énfasis en la revisión, evaluación y elaboración de un informe.
 d. Contraloría General: Contraloría General de la República.
 e. Ley de Control Interno: Ley General de Control Interno Nº 8292, publicada en La Gaceta Nº 169 del 4 de setiembre del 2002.
 f. Ley Orgánica de la Contraloría General: Ley Nº 7428, publicada en La Gaceta Nº 210 del 4 noviembre de 1994.
-g. Administración Activa: desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva y operativa de la Junta de Protección Social de San José. Desde el punto de vista orgánico, es el conjunto de unidades administrativas u órganos de la función administrativa, que deciden y ejecutan, incluida la Junta Directiva de la institución.
+g. Administración Activa: desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva y operativa de la (*) Junta de Protección Social. Desde el punto de vista orgánico, es el conjunto de unidades administrativas u órganos de la función administrativa, que deciden y ejecutan, incluida la Junta Directiva de la institución.
 h. Nivel Gerencial: Gerente y Subgerente Administrativo-Financiera y Subgerente de Producción y Ventas.
 i. Titular subordinado: funcionario de la JPS responsable de un proceso, equipo de trabajo o unidad administrativa, con autoridad para ordenar y tomar decisiones.
 j. Informes de Auditoría Interna: versan sobre asuntos de control interno, y de la acreditación de hechos que pueden derivar en posibles responsabilidades. El primero contiene hallazgos, conclusiones y recomendaciones; y el segundo, posibles infracciones, eventuales responsables y la recomendación sobre la apertura de un procedimiento administrativo.
@@ -61,3 +62,4 @@ gg. Refrendar: verificar que cada una de las líneas de las cuentas que integran
 hh. Plan de Trabajo: constituye el medio por el cual el Auditor Interno proyecta en forma sistemática y ordenada la mejor disposición de los recursos que posee la Unidad, para fiscalizar durante un año las áreas en las que, de acuerdo con ciertos criterios y su juicio profesional, él considera importante y provechoso para la institución enfocar su trabajo, dentro de la facultad que posee de ejercer sus funciones con independencia funcional y de criterio.
 ii. Programa de trabajo: constituye el término que hace referencia a las actividades que se desarrollan de manera específica en la ejecución de una auditoría o estudio especial; contiene los procedimientos para identificar, analizar, evaluar y registrar información durante la tarea. El programa de trabajo debe ser aprobado con anterioridad a su ejecución y cualquier ajuste ha de ser aprobado oportunamente por el responsable dentro de la Auditoría Interna.
 jj. Relación de Hechos: es un documento que refiere los hallazgos en una investigación llevada a cabo por la Auditoria Interna, en cumplimiento de su competencia. El documento se confecciona cuando en el curso de un estudio existe la posible comisión de irregularidades y, por ende, da cuenta de una serie de hechos o actuaciones presumiblemente anómalas en perjuicio de la Hacienda Pública, con indicación de las normas infringidas y con mención de los funcionarios o exfuncionarios públicos que pueden figurar como presuntos responsables. Si se trata de una responsabilidad civil o administrativa, la Relación de Hechos, constituye el in sumo básico para determinar el inicio de un procedimiento administrativo, con garantía del debido proceso, tendiente a declarar esas responsabilidades.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).

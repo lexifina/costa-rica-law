@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Junt
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-15 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
