@@ -14,3 +14,4 @@ Reglamenta el artículo 2° de la Ley N° 7395, para regular el "Sistema de Rifa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-21 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
