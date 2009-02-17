@@ -14,3 +14,4 @@ Declara Patrimonio Histórico Cementerio General de San José(Propiedad de la Ju
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-19 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |

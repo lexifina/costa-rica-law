@@ -1,5 +1,3 @@
-PODER EJECUTIVOS
-DECRETOS
 Nº 28769-C
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE CULTURA, JUVENTUD Y DEPORTES
@@ -10,4 +8,5 @@ Considerando:
 3º—Que el Cementerio General de San José acoge en sus predios a personalidades representativas de la sociedad costarricense en lo político, cultural, científico y otras del saber, así como de ciudadanos que contribuyeron con su esfuerzo a la consolidación de la nacionalidad, el Estado y el desarrollo integral del país.
 4º—Que es deber del Estado salvaguardar el patrimonio cultural del país. Por tanto,
 Decretan:
-Artículo 1º—Declarar e incorporar al patrimonio histórico-arquitectónico de Costa Rica, los inmuebles conocidos como el Cementerio General de San José, inscritos en el Registro Nacional Sección Propiedad, Partido de San José, bajo los siguientes números de finca: 36803-000, 32537-000, 25700-000, 25699-000, y las fincas Nº 58959 y Nº 58961, inscritas en el Sistema Tradicional de Tomos al tomo 927, folio 348, asiento 1 y tomo 927, folio 350, asiento 1 respectivamente, ubicadas todas en el distrito noveno del cantón Central de la provincia de San José, y 39171-000, 84493-000, 103640-000 y 103642-000, ubicadas en el distrito tercero del cantón Central de la misma provincia, inmuebles propiedad de la Junta de Protección Social de San José, cédula jurídica Nº 3-0007-045617-06.
+Artículo 1º—Declarar e incorporar al patrimonio histórico-arquitectónico de Costa Rica, los inmuebles conocidos como el Cementerio General de San José, inscritos en el Registro Nacional Sección Propiedad, Partido de San José, bajo los siguientes números de finca: 36803-000, 32537-000, 25700-000, 25699-000, y las fincas Nº 58959 y Nº 58961, inscritas en el Sistema Tradicional de Tomos al tomo 927, folio 348, asiento 1 y tomo 927, folio 350, asiento 1 respectivamente, ubicadas todas en el distrito noveno del cantón Central de la provincia de San José, y 39171-000, 84493-000, 103640-000 y 103642-000, ubicadas en el distrito tercero del cantón Central de la misma provincia, inmuebles propiedad de la (*) Junta de Protección Social, cédula jurídica Nº 3-0007-045617-06.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
