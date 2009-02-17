@@ -14,3 +14,4 @@ Procedimiento Interno Administrativo en caso de Hostigamiento Sexual en la Junta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-23 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
