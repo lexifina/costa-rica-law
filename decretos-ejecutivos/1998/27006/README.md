@@ -14,3 +14,4 @@ Crea Proyecto Servicios Sustitutivos de Cuido Familiar para Personas Adultas con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-26 | la propia norma |
+| 2 | 2009-02-17 | Ley 8718 |
