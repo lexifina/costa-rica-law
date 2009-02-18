@@ -1,2 +1,2 @@
-Artículo 44.- El noventa y cinco por ciento (95%) de la utilidad neta que obtenga la Junta por la lotería electrónica se destinará a financiar las pensiones del Régimen no Contributivo administrado por la Caja Costarricense de Seguro Social; el monto señalado deberá trasladarse en un plazo máximo de tres días posteriores a cada sorteo. El cinco por ciento (5%) restante se destinará al financiamiento de los programas sociales de la Junta.
+Artículo 44.- (Derogado por el artículo 30 de la ley Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales N° 8718 del 17 de febrero de 2009)
 (Así adicionado por el artículo 86 de la Ley N° 7983 del 16 de febrero del 2000)

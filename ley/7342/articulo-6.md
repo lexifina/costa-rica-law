@@ -1,3 +1,1 @@
-ARTICULO 6.- La Junta de Protección Social de San José girará
-directamente a la Cruzada Nacional de Protección al Anciano, el tres
-por ciento (3%) correspondiente a esta Ley.
+ARTICULO 6.- (Derogado por el artículo 30 de la ley Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales N° 8718 del 17 de febrero de 2009).

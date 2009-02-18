@@ -1,6 +1,1 @@
-ARTICULO 5.- La Junta de Protección Social de San José girará a la
-Asociación Pro Hospital Nacional de Geriatría Dr. Raúl Blanco Cervantes,
-el veinte por ciento (20%), correspondiente por ley. Esta Asociación será
-la entidad encargada de administrar esos recursos.
-(Así reformado por el artículo 39 de la Ley Nº 7395 de 3 de mayo de
-1994)
+ARTICULO 5.- (Derogado por el artículo 30 de la ley Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales N° 8718 del 17 de febrero de 2009).
