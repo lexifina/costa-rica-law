@@ -1,0 +1,1 @@
+Artículo 44.—Ejecución de la CTPD y la Triangulación. Si las solicitudes presentadas son aprobadas, el Comité Técnico Nacional de la CTPD y la Triangulación realizarán los arreglos institucionales, administrativos y financieros necesarios para su adecuada ejecución, dentro o fuera del país.

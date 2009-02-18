@@ -1,0 +1,3 @@
+Artículo 43.—Aprobación o rechazo de la solicitud. En caso de aprobación y si las solicitudes provienen del Sistema de Enlaces de Cooperación Internacional, éstas se presentarán oficialmente a los países u organismos internacionales participantes en el Programa de la CTPD y la Triangulación, utilizando para ellos los canales diplomáticos oficiales establecidos.
+Si la solicitud proviene del exterior y es analizada, dictaminada y aprobada por el Comité Bipartito que se reunirá para los efectos, ésta será igualmente canalizada oficialmente por los canales diplomáticos correspondientes.
+En caso de que las solicitudes sean rechazadas, se comunicará formalmente a la instancia que corresponda. Toda decisión debe ser tomada por consenso.

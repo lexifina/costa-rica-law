@@ -1,0 +1,1 @@
+Artículo 20.—Presentación de proyectos. Las instituciones interesadas presentarán sus proyectos al Área de Cooperación Internacional para que sean evaluadas y aprobadas por ese Ministerio en el plazo previamente estipulado.

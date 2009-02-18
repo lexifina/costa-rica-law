@@ -1,0 +1,1 @@
+Artículo 29.—Coordinación de reuniones o Misiones de Seguimiento y Evaluación. Cuando lleguen al país Misiones de Seguimiento y Evaluación de Proyectos de un cooperante internacional, el MRREE coordinará la visita previamente con MIDEPLAN.

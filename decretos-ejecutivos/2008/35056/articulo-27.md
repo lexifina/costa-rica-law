@@ -1,0 +1,1 @@
+Artículo 27.—Celebración de la Comisión Mixta y de las Misiones de Seguimiento y Evaluación. Las Comisiones Mixtas y las Misiones de Seguimiento y Evaluación serán dirigidas por el MRREE, al igual que las reuniones binacionales. En todas estas reuniones participarán MIDEPLAN y los enlaces del Sistema de Enlaces de la Cooperación Internacional que correspondan.
