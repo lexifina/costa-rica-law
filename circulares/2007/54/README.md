@@ -13,3 +13,4 @@ Deber de acatar las disposiciones establecidas en la Ley de Control Interno para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-11 | la propia norma |
+| 2 | 2009-02-18 | Circular 14 (2009-02-18) |
