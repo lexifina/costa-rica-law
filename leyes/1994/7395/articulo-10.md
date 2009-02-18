@@ -1,8 +1,3 @@
-Artículo 10.- La Junta podrá establecer las agencias y los
-canales de distribución necesarios para administrar y distribuir
-sus loterías e incluirá la venta directa al público por medio de
-personas físicas o jurídicas en general, cuando por razones de
-seguridad económica, o para evitar la especulación en precio, lo
-determine; asimismo, procurará también la presencia en todo el
-país de las loterías a los precios oficiales."
-(Así reformado por el artículo 86 de la Ley N° 7983 del 16 de febrero del 2000)
+Artículo 10.-
+La Junta podrá establecer las agencias y los canales de distribución necesarios para administrar y distribuir sus loterías, e incluirá la venta directa al público, por medio de personas físicas o jurídicas en general, cuando por razones de seguridad económica o para evitar la especulación en precio, lo determine; asimismo, también procurará la presencia, en todo el país, de las loterías a los precios oficiales. En el caso de las personas físicas que realicen dicha venta, deberán aportar al Fomuvel, de conformidad con lo indicado en el artículo 26 de esta Ley.
+(Así reformado por el artículo 28 de la ley Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales N° 8718 del 17 de febrero de 2009)

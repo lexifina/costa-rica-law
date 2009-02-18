@@ -1,0 +1,2 @@
+ARTÍCULO 20.- Venta de servicios de imprenta
+La Junta de Protección Social podrá vender servicios de imprenta, ya sea a otras instituciones dentro del territorio nacional o a instituciones de otros países para la producción de loterías, juegos y otros productos de azar, así como otros servicios de imprenta. Los recursos que se obtengan de estos servicios, una vez rebajados los respectivos costos de producción, administración y venta, serán utilizados para programas de desarrollo institucional.

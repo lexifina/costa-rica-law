@@ -1,0 +1,7 @@
+ARTÍCULO 27.- Reforma del artículo 26 de la Ley de loterías
+Refórmase el artículo 26 de la Ley de loterías, N.° 7395, de 3 de mayo de 1994, y sus reformas. El texto dirá:
+“Artículo 26.-
+Créase el Fondo Mutual y de Beneficio Social de Vendedores de Lotería (Fomuvel), que tendrá personería jurídica propia. Este Fondo será financiado por una única vez, con cuarenta millones de colones (¢40.000.000,00) que la Junta girará del producto del superávit institucional, así como con el setenta y cinco por ciento (75%) del uno por ciento (1%) de las ventas de lotería, que cada adjudicatario o vendedor con un contrato de distribución o socio comercial, deberá aportar del porcentaje establecido como descuento sobre la venta de lotería.
+Ese Fondo será administrado por dos representantes de la Junta, uno de las cooperativas, uno de las organizaciones sociales y otro de los vendedores de lotería no agremiados. La Junta deberá reglamentar los beneficios y el funcionamiento del Fondo, así como la elección de estos representantes.
+La administración del Fomuvel rendirá un informe anual ante la Contraloría General de la República y a la Junta de Protección Social, sobre el manejo de esos fondos durante el año fiscal trabajado.
+El veinticinco por ciento (25%) restante del uno por ciento (1%) del porcentaje establecido a los vendedores como descuento sobre la venta de lotería, será destinado a la creación de un fondo de jubilaciones y pensiones para los vendedores de lotería.”

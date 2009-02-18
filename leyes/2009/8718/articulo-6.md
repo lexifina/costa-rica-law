@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Fondo de premios como incentivo para las ventas
+La Junta Directiva de la Junta de Protección Social podrá destinar para un fondo de premios extra, hasta un cinco por ciento (5%) del plan de premios propuesto para cada modalidad de lotería, juegos y otros productos de azar que comercialice. El fondo será destinado a las personas consumidoras finales, mediante el incremento del plan de premios, conforme lo determine la Junta Directiva.

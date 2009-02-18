@@ -1,5 +1,1 @@
-ARTICULO 4.- La Junta de Protección Social de San José será la
-encargada de distribuir los dineros correspondientes, mediante la
-intermediación de la Subcomisión de la Tercera Edad de dicha Junta,
-para las ponderaciones de asignación, en el caso de los hogares,
-asilos, albergues y centros diurnos.
+ARTICULO 4.- (Derogado por el artículo 30 de la ley Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales N° 8718 del 17 de febrero de 2009).

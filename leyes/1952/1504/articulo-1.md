@@ -1,4 +1,2 @@
-Artículo 1º.- Se autoriza a la Junta de Protección Social de San
-José para que establezca un Régimen de Pensiones, y beneficios en caso de
-muerte, que cubra a todos los trabajadores de las dependencias e
-instituciones que dicha Junta tiene a su cargo.
+Artículo 1º.- Se autoriza a la (*) Junta de Protección Social para que establezca un Régimen de Pensiones, y beneficios en caso de muerte, que cubra a todos los trabajadores de las dependencias e instituciones que dicha Junta tiene a su cargo.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
