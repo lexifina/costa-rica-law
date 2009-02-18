@@ -1,0 +1,1 @@
+Artículo 9º—Confusión fondos públicos y privados. Las Fundaciones o Asociaciones que manejen fondos públicos deberán asegurarse que no exista confusión entre éstos y fondos privados. La Auditoría Interna del Ministerio de Cultura verificará que se apliquen las medidas de control para ese fin, de acuerdo con sus competencias legales.

@@ -1,0 +1,1 @@
+Artículo 7º—Utilización de logos. El Ministerio de Cultura y Juventud o el órgano desconcentrado respectivo deberá velar porque cualquier referencia que se haga a actividades que realicen la fundación o asociación en conjunto con el Ministerio de Cultura y Juventud o sus órganos incorpore los logos y nombres de éstos últimos.
