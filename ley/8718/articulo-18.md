@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Pago de los premios
+Los billetes que resulten premiados se le pagarán al portador cuando se presente dentro del plazo de sesenta (60) días naturales, contado a partir del día hábil siguiente a la realización del sorteo, en la Tesorería de la Institución o cualquier otro lugar que sea establecido por la Junta de Protección Social, siempre que no presenten roturas o alteraciones que hagan dudar de su autenticidad o validez.
