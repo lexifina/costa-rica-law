@@ -14,3 +14,4 @@ Reglamento para el traspaso de fondos correspondientes a la cesantía de los tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-27 | la propia norma |
+| 2 | 2009-02-19 | Reglamento 4642 (2009-02-19) |
