@@ -1,0 +1,3 @@
+Artículo 2. Desinscripción del puesto de bolsa como entidad de custodia
+Para que una entidad de custodia bancaria pueda utilizar las cuentas de un puesto de bolsa indicadas en el artículo anterior, el puesto de bolsa debe solicitar previamente a la Superintendencia General de Valores la desinscripción en el Registro Nacional de Valores e Intermediarios como entidad autorizada para prestar los servicios de custodia.
+Además, las entidades de custodia que opten por el esquema propuesto, deberán informar a la Superintendencia General de Valores, previo a la entrada en operación, sobre las condiciones de funcionamiento, tanto desde el punto de vista operativo como de sistemas de información.
