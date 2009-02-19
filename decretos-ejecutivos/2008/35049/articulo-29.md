@@ -1,0 +1,1 @@
+Artículo 29.—Prueba para mejor resolver. La Comisión Nacional del Consumidor podrá ordenar prueba para mejor resolver de forma excepcional cuando lo estime pertinente para el esclarecimiento de los hechos denunciados

@@ -1,0 +1,1 @@
+Artículo 15.—Uso del distintivo. El distintivo deberá utilizarse exactamente en la forma en que se indica en el Anexo Uno de este Reglamento y de acuerdo con las indicaciones que al efecto establezca este decreto. Se prohíbe cualquier alteración o modificación al distintivo.

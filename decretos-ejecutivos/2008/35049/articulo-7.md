@@ -1,0 +1,1 @@
+Artículo 7º—Información o documentación adicional. En la tramitación de la solicitud, la Dirección de Apoyo al Consumidor podrá requerir por una única vez y por escrito, informes y documentación adicional, cuando se trate de aclaraciones o adiciones tendientes a valorar el alcance y contenido de la solicitud y la documentación aportada.

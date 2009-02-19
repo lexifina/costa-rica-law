@@ -1,0 +1,1 @@
+Artículo 3º—Denominación y forma del distintivo. Este distintivo se denominará “Reconocimiento a las buenas prácticas de protección al consumidor”. Su formato es el que figura en el Anexo Uno a este decreto.

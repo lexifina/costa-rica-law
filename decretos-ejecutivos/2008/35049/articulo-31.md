@@ -1,0 +1,2 @@
+Artículo 31.—Recurso. La resolución final de la Comisión tendrá recurso de revocatoria, el cual deberá interponerse dentro del plazo de tres días hábiles contados a partir del día siguiente al de la comunicación del acto. De no interponerse recurso, o bien, resuelta la revocatoria, se tendrá por agotada la vía administrativa.
+Las resoluciones finales emanadas de la Comisión Nacional del Consumidor podrán impugnarse directamente por ilegalidad, ante la Jurisdicción Contencioso Administrativa.

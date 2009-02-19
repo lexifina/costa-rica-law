@@ -1,0 +1,1 @@
+Artículo 32.—Medidas cautelares. Durante la tramitación del proceso, podrá ordenarse cualquier medida cautelar que sea por Ley procedente, incluyendo la suspensión del uso del distintivo. Asimismo, podrá ordenarse por cuenta del comerciante involucrado, la publicación y comunicación públicas de la resolución final que acuerde el retiro del reconocimiento.

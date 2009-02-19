@@ -1,0 +1,5 @@
+ANEXO UNO
+DISTINTIVO DE MANUAL DE BUENAS PRÁCTICAS
+DE PROTECCIÓN AL CONSUMIDOR
+“Se adjunta diseño de distintivo”
+[imagen]

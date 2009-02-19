@@ -1,0 +1,1 @@
+Artículo 25.—Inicio del procedimiento. El procedimiento podrá iniciarse por parte del órgano competente tan pronto éste tenga conocimiento por cualquier medio de la incidencia de la causal de retiro del distintivo.
