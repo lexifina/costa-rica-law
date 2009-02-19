@@ -15,3 +15,4 @@ Reglamento para las Juntas de Crédito Local
 | --- | --- | --- |
 | 1 | 2008-09-30 | la propia norma |
 | 2 | 2008-11-03 | Reglamento 4621 (2008-11-03) |
+| 3 | 2009-02-19 | Reglamento 4642 (2009-02-19) |
