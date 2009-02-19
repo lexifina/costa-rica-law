@@ -14,3 +14,4 @@ Reglamento para los procesos de Adopción Nacional e Internacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-11 | la propia norma |
+| 2 | 2009-02-19 | Reglamento 8 (2009-02-19) |

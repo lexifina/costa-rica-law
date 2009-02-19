@@ -1,1 +1,2 @@
-Artículo 54.—Una vez realizada la revisión técnica de las valoraciones sociales y psicológicas, el profesional en psicología y trabajo social de la Oficina Local, en apego a los criterios establecidos institucionalmente y al interés superior de la persona menor de edad, recomendará la idoneidad o no de las personas solicitantes de adopción.
+Artículo 54.—Una vez realizada la revisión técnica de las valoraciones sociales y psicológicas, el profesional en psicología y trabajo social del Departamento de Adopciones, en apego a los criterios establecidos institucionalmente y al interés superior de la persona menor de edad, recomendará la idoneidad o no de las personas solicitantes de adopción.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

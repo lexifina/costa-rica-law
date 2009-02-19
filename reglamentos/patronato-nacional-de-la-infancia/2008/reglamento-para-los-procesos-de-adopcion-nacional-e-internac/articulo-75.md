@@ -1,4 +1,5 @@
-Artículo 75.—Los solicitantes deberán cumplir con los requisitosestablecidos en los artículos ciento seis y ciento doce del Código de Familiade Costa Rica para adoptar a una persona menor de edad y el presente artículo, para lo cual deberán aportar los siguientes documentos, los cuales no podrán tener más de un mes de haber sido expedidos por la autoridad competente:
+Artículo 75.—Los solicitantes deberán cumplir con los requisitos establecidos en los artículos ciento seis y ciento doce del Código de Familia de Costa Rica para adoptar a una persona menor de edad y el presente artículo, para lo cual deberán aportar los siguientes documentos, los cuales no podrán tener más de seis meses de haber sido expedidos por la autoridad competente.
+(Así reformado el párrafo anterior en sesión N° 008 del 19 de febrero de 2009)
 1. Formulario oficial de Adopción Internacional del Patronato Nacional de la Infancia debidamente completada.
 2. Fotografía tamaño pasaporte.
 3. Certificado de nacimiento.

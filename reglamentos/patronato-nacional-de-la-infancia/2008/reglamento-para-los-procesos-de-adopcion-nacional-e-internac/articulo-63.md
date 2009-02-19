@@ -1,1 +1,2 @@
-Artículo 63.—La Oficina Local una vez recibidos los expedientes indicados en el artículo anterior, procederá en el plazo de tres días naturales, a la verificación de las condiciones psicosociales de aquellas valoraciones que tengan más de seis meses de haber sido realizadas, antes de iniciar la fase de emparentamiento.
+Artículo 63.—El Departamento de Adopciones una vez recibidos los expedientes indicados en el artículo anterior, procederá en el plazo de tres días naturales, a la verificación de las condiciones psicosociales de aquellas valoraciones que tengan más de seis meses de haber sido realizadas, antes de iniciar la fase de emparentamiento.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

@@ -1,1 +1,1 @@
-Transitorio IV.—Los miembros de los Consejos Regionales y del Consejo Nacional de Adopciones ya nombrados a la fecha de entrada en vigencia este Reglamento, continuarán en sus funciones por el resto del período por el que fueron nombrados.
+Transitorio IV.—(Derogado en sesión N° 008 del 19 de febrero de 2009)

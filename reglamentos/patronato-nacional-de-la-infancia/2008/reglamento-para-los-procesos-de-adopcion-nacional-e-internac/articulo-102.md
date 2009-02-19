@@ -1,0 +1,2 @@
+Artículo 102.— Derogaciones: Deróguese en su totalidad el “Reglamento para los procesos de Adopción Nacional e Internacional”, publicado en La Gaceta Nº 9 de fecha 12 de enero del 2007 y sus reformas. Asimismo el Manual para la aplicación del artículo 113 del Código de familia-“Adoptabilidad”, aprobado por la Junta Directiva del Patronato Nacional de la Infancia, en sesión ordinaria 99-0013, celebrada el lunes 15 de febrero de 1999, artículo 002) aparte 01). Rige a partir de su publicación.
+(Así adicionado en sesión N° 008 del 19 de febrero de 2009)

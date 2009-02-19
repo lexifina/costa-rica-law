@@ -26,3 +26,9 @@ Artículo 2º—Para los efectos de este Reglamento se entenderá por:
 25. Organismos o entidades colaboradoras de adopción internacional: Organizaciones legalmente constituidas, que han sido acreditadas en su país de domicilio social y autorizadas por el Consejo Nacional de Adopciones, para realizar todas o algunas de las funciones designadas a las Autoridades Centrales para la adopción internacional, de conformidad con lo dispuesto en el Convenio de La Haya.
 26. Autorización: Habilitación por parte del Consejo Nacional para que una organización o entidad colaboradora acreditada en su país de origen, realice en Costa Rica las funciones que le fueron delegadas por parte de la Autoridad Central de su respectivo país, en materia de adopción internacional.
 27. Profesional privado: Profesional en Psicología, Trabajo Social o Derecho, que ejercen liberalmente su profesión, con el grado académico mínimo de licenciatura, debidamente incorporado a su respectivo Colegio Profesional.
+28.- Emparentamiento: Proceso que informa y prepara a las personas menores de edad y los solicitantes de adopción para integrarse como familia.
+(Así adicionado el numeral anterior en sesión N° 008 del 19 de febrero de 2009)
+29.- Seguimiento post-ubicación: Acompañamiento profesional durante el proceso de ajuste de la convivencia mutua previo a que se apruebe la adopción mediante sentencia judicial en firme.
+(Así adicionado el numeral anterior en sesión N° 008 del 19 de febrero de 2009)
+30.- Seguimiento post-adopción: Acompañamiento profesional psicológico o social que se realiza una vez que la adopción ha sido aprobada mediante sentencia judicial en firme.
+(Así adicionado el numeral anterior en sesión N° 008 del 19 de febrero de 2009)

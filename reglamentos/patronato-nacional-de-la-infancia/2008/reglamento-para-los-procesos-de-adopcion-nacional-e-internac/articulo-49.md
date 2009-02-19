@@ -1,1 +1,2 @@
-Artículo 49.—La persona o personas solicitantes de adopción deberán aportar la documentación que les fuera prevenida en un plazo no mayor de diez días hábiles. Si la documentación no es presentada en el plazo señalado, el o la Apoderada General Judicial y Administrativo de la Oficina Local, procederá sin más trámite al archivo del expediente.
+Artículo 49.—La persona o personas solicitantes de adopción deberán aportar la documentación que les fuera prevenida en un plazo no mayor de diez días hábiles. Si la documentación no es presentada en el plazo señalado, el o la Apoderada General Judicial y Administrativo del Departamento de Adopciones, procederá sin más trámite al archivo del expediente.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

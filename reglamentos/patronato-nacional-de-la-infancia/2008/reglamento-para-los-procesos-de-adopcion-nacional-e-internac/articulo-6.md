@@ -9,4 +9,7 @@ e. Realizar la supervisión pertinente y tomar las medidas que resulten necesari
 f. Recomendar a la Junta Directiva la creación de los Consejos Regionales que sean necesarios para los procesos de adopción nacional.
 g. Elevar a la Junta Directiva las ternas de postulantes a los cargos de miembros propietarios y suplentes de los Consejos cuando corresponda, con un mínimo de un mes de anticipación a la fecha de entrada en vigencia o vencimiento de los nombramientos.
 h. Solicitar cualquier tipo de informes a las dependencias institucionales que estime necesarios, para el cumplimiento de las funciones asignadas en materia de adopción.
-i. Cualquier otra función que en materia de adopción le confieran la Junta Directiva o la Presidencia Ejecutiva.
+i).- Informar cada tres meses a la Junta Directiva la movilización de las personas menores de edad en condición de adoptabilidad.
+(Así reformado el inciso anterior, en sesión N° 008 del 19 de febrero de 2009)
+j).- Cualquier otra función que en materia de adopción le confieran la Junta Directiva o la Presidencia Ejecutiva.
+(Así adicionado el inciso anterior, en sesión N° 008 del 19 de febrero de 2009)

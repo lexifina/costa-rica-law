@@ -1,1 +1,2 @@
-Artículo 48.—En caso de que la o las personas solicitantes de adopción omitieran la presentación de alguno de los documentos requeridos, el o la Apoderada General Judicial y Administrativo de la Oficina Local, deberá prevenirlo mediante acto administrativo formal, dentro del plazo establecido en el artículo cuarenta y seis de este Reglamento.
+Artículo 48.—En caso de que la o las personas solicitantes de adopción omitieran la presentación de alguno de los documentos requeridos, el o la Apoderada General Judicial y Administrativo del Departamento de Adopciones, deberá prevenirlo mediante acto administrativo formal, dentro del plazo establecido en el artículo cuarenta y seis de este Reglamento.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

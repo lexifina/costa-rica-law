@@ -1,3 +1,4 @@
 CAPÍTULO IX
 Disposiciones transitorias
-Transitorio I.—El Departamento de Adopciones, continuará asumiendo las funciones relacionadas con el proceso administrativo de declaratoria de idoneidad de personas solicitantes de adopción nacional, emparentamiento, seguimientos post-adopción, así como procesos judiciales de adopción correspondientes a la Región de San José, por un período comprendido a partir de la entrada en vigencia del presente Reglamento y hasta el día treinta y uno de diciembre del año 2008. Posteriormente dichas funciones serán asumidas por las Oficinas Locales de dicha Región, conforme a lo establecido en este Reglamento.
+Transitorio I.—Las solicitudes de adopción recibidas por las Oficinas Locales, en donde se haya iniciado el proceso de valoración psicosocial, al momento de entrar en vigencia las presentes modificaciones, deberán ser tramitadas hasta su resolución final por dichas oficinas.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

@@ -1,1 +1,2 @@
-Transitorio II.—El Departamento de Adopciones, continuará asumiendo las funciones de emparentamiento del resto de las regiones del país y los talleres de formación y reflexión para los (as) solicitantes de adopción, por un período comprendido a partir de la entrada en vigencia del presente Reglamento y hasta el día treinta y uno de diciembre del año dos mil ocho. Posteriormente, dichas funciones serán asumidas por las Oficinas Locales competentes, conforme lo establecido en este Reglamento.
+Transitorio II.—A la entrada en vigencia las presentes modificaciones, solamente funcionará el Consejo Regional de Adopciones de San José, que tendrá competencia territorial en todo el país.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)

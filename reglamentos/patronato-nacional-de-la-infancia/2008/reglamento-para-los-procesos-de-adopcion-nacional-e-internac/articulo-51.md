@@ -1,1 +1,2 @@
-Artículo 51.—La Oficina Local competente, una vez constado el cumplimiento de requisitos y el aporte de los documentos requeridos, procederá en un plazo no mayor a cuatro meses, a realizar las valoraciones sociales y psicológicas correspondientes, emitiendo su criterio técnico en relación a la idoneidad o no de las personas solicitantes de adopción.
+Artículo 51.—El Departamento de Adopciones, una vez constado el cumplimiento de requisitos y el aporte de los documentos requeridos, procederá en un plazo no mayor a cuatro meses, a realizar las valoraciones sociales y psicológicas correspondientes, emitiendo su criterio técnico en relación a la idoneidad o no de las personas solicitantes de adopción.
+(Así reformado en sesión N° 008 del 19 de febrero de 2009)
