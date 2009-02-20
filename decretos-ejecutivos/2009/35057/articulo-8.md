@@ -1,0 +1,1 @@
+Artículo 8º—Derogatorias. Deróguese el Decreto Ejecutivo Nº 32699-COMEX del 12 de agosto de 2005, denominado “Reglamento del Registro de Elegibles para la Conformación de las Listas de Árbitros de los Acuerdos Comerciales Internacionales Ratificados por Costa Rica”, publicado en el Diario Oficial La Gaceta Nº 202 del 20 de octubre del 2005.
