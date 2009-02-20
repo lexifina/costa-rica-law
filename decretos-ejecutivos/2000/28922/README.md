@@ -17,3 +17,4 @@ Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreac
 | 2 | 2004-02-23 | Decreto Ejecutivo 31738 (2004-02-23) |
 | 3 | 2008-09-04 | Reglamento 610 (2008-09-04) |
 | 4 | 2008-10-23 | Reglamento 618 (2008-10-23) |
+| 5 | 2009-02-20 | Decreto Ejecutivo 35308 (2009-02-20) |

@@ -1,5 +1,4 @@
 CAPÍTULO II
 El Congreso Nacional del Deporte y la Recreación
-Artículo 4°—Para poder acreditar representantes y participar en el Congreso Nacional del Deporte y la Recreación, las Federaciones Deportivas de Representación Nacional deberán estar debidamente inscritas y vigentes en el Registro de Asociaciones Deportivas del Registro Nacional, con sus libros legales al día y deberán estar al día también en la presentación de liquidaciones de los fondos públicos que hayan recibido.
-(El Consejo Nacional del Deporte y la Recreación mediante sesión N° 618-2008 de 23 octubre del 2008 dispuso reformar este artículo de la siguiente manera: “Artículo 4°—* Para acreditar a representantes y participantes en el Congreso Nacional del Deporte y la Recreación, las Federaciones Deportivas de Representación Nacional deberán presentar a la Dirección Nacional del ICODER la propuesta de los nombres que correspondan, indicando el número de acuerdo, número de acta y fecha, firmada por el representante legal de la entidad.)
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 228 de 25 de noviembre de 2008)
+Artículo 4º—Para acreditar a representantes y participantes en el Congreso Nacional del Deporte y la Recreación, las Federaciones Deportivas de Representación Nacional deberán presentar a la Dirección Nacional del ICODER la propuesta de los nombres que correspondan, indicando el número de acuerdo, número de acta y fecha, firmada por el representante legal de la entidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35308 de 20 de febrero de 2009.)
