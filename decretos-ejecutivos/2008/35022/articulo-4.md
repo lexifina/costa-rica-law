@@ -1,0 +1,1 @@
+Artículo cuarto.—En relación con los funcionarios del Instituto Nacional de Seguros, será el jerarca de esa institución, el que determine con base en el artículo 6º, inciso c) de la Ley Reguladora del Mercado de Seguros y mediante circular interna, si el día señalado se les otorgará como asueto a los funcionarios de esa entidad que laboren en ese cantón.
