@@ -1,1 +1,0 @@
-Artículo 33.—La entidad debe, para todas las actividades relacionadas con el procesamiento en el exterior, ajustarse a la normativa vigente en TI de la Superintendencia General de Entidades Financieras y facultarla para su verificación "in situ", cuando lo considere necesario.

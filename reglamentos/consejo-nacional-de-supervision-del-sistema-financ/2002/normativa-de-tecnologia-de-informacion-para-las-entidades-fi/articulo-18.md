@@ -1,1 +1,0 @@
-Artículo 18.—La entidad debe contar con políticas y procedimientos relacionados con la captura, actualización, procesamiento, almacenamiento y salida de los datos, que asegure que los mismos permanezcan completos, precisos y válidos.

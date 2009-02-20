@@ -1,1 +1,0 @@
-Artículo 38.—Las entidades que a la entrada en vigencia de esta normativa, tengan vigentes contratos de procesamiento de datos externo, deberán incluir las condiciones establecidas en el Artículo 11 al renovar los contratos.
