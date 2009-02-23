@@ -1,0 +1,1 @@
+Artículo 8º—El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa. cualquier acto de indiscreción de una persona miembro del órgano será considerado como una falta grave y cesará de su función automáticamente.

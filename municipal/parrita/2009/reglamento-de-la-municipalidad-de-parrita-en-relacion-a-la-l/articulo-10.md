@@ -1,0 +1,4 @@
+Artículo 10.—El órgano tiene la obligación de darle audiencia a la persona denunciante por el término de tres hábiles para que amplié o declare lo expresado en su denuncia.
+Transcurrido el plazo de tres días hábiles dado a la persona denunciante, se dará traslado a la persona denunciada, concediéndole un plazo de ocho días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan, y para que se ofrezca la prueba de descargo que considere conveniente.
+El proceso continuará hasta concluirse definitivamente con el informe final, independientemente de que el denunciado no haya comparecido u ofrecido prueba de descargo alguna.
+Transcurrido el plazo dado al denunciado y en los próximos tres días hábiles, el Órgano hará comparecer físicamente y en forma personal a las partes. En este acto se recibirá toda la prueba ofrecida, sea ésta testimonial o de cualquier otra naturaleza.
