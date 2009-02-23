@@ -1,0 +1,1 @@
+Artículo 5º—De la inspección municipal. La Municipalidad por medio de sus funcionarios y/o habilitadas al efecto, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente Reglamento; conforme lo establece el artículo 198 del Código Procesal Penal y siguientes concordantes.
