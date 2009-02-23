@@ -1,0 +1,1 @@
+Artículo 68.—Origen de los estudios o servicios. Los estudios o servicios de la Auditoría Interna se podrán originar por solicitud de la Contraloría General de la República, del Concejo Municipal, por el Plan Anual Operativo, por criterio del Auditor o Auditora Interna o por medio de una denuncia.

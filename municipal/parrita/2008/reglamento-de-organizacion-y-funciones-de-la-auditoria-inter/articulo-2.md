@@ -1,0 +1,1 @@
+Artículo 2º—Responsabilidad del Reglamento. El Auditor o Auditora Interna tendrá la obligación de elaborar, coordinar, actualizar, divulgar y hacer cumplir el contenido de este Reglamento conforme a los lineamientos que se establecen el artículo 23 de la Ley Nº 8292; Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 89.—Incorporación del conocimiento sobre riesgo. Las funcionarias y los funcionarios de la Auditoría Interna colaborarán con el SERVI mediante la fiscalización, donde se incluirá el conocimiento del riesgo obtenido en los estudios.
