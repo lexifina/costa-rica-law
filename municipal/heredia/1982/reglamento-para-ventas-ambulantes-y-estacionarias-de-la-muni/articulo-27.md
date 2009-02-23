@@ -1,1 +1,0 @@
-Artículo 27.—La Municipalidad fomentará y colaborará en la formación de cooperativas de vendedores; a la vez iniciará los estudios necesarios y coordinará con otras instituciones a fin de lograr soluciones alternas y permanentes en su derecho al trabajo.

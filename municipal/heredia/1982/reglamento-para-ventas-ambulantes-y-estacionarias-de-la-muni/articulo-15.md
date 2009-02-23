@@ -1,1 +1,0 @@
-Artículo 15.—En los puestos que expendan productos alimenticios se exigirá la presentación del certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar carné de salud.
