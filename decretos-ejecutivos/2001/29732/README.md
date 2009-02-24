@@ -14,3 +14,4 @@ Reglamento a la Ley Reguladora de los Servicios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-29 | la propia norma |
+| 2 | 2009-02-24 | Decreto Ejecutivo 35148 (2009-02-24) |
