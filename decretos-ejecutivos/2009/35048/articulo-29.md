@@ -1,0 +1,1 @@
+Artículo 29.—En el caso de que los fondos no sean utilizados por el beneficiario en el Plan de Inversión aprobado por La Junta, el beneficiario deberá reintegrarlos en forma inmediata. En tanto los recursos no utilizados estén generando intereses, estos deberán ser reintegrados en su totalidad a JUDESUR.

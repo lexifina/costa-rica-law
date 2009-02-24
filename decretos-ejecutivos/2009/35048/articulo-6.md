@@ -1,0 +1,2 @@
+Artículo 6º—Las condiciones y requisitos propios de las solicitudes de financiamiento, serán revisados, fijados y aprobados por La Junta, las cuales se estipularán en el contrato de financiamiento, el cual regirá a partir del otorgamiento del refrendo interno.
+Toda modificación a las condiciones de financiamiento se hará mediante addéndum al contrato de financiamiento en donde se estipularán las nuevas condiciones crediticias. Lo anterior, previa aprobación del Comité Especial de Crédito y La Junta. Este addendum regirá a partir del Refrendo Interno.

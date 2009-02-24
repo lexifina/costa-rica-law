@@ -1,0 +1,1 @@
+Artículo 14.—JUDESUR podrá requerir información adicional al beneficiario de la solicitud de financiamiento cuando el estudio técnico y financiero del Departamento de Desarrollo así lo amerite y este sea imprescindible para continuar con el trámite.

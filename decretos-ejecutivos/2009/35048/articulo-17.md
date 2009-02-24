@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del financiamiento reembolsable
+Artículo 17.—El Comité Especial de Crédito, mediante análisis técnico financiero recomendará a La Junta Directiva la tasa de interés aplicable a los diferentes créditos que financie JUDESUR. El financiamiento reembolsable devengará una tasa anual de interés corriente fijada por La Junta, basada en la recomendación del Comité Especial de Crédito, la cual oscilará de manera ascendente hasta 4 puntos y descendente hasta 4 puntos porcentuales ajustable trimestralmente teniendo como indicador de base de referencia la tasa básica pasiva del Banco Central de Costa Rica.

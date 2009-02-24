@@ -1,0 +1,1 @@
+Artículo 21.—El plazo de otorgamiento de los créditos se fijará teniendo en cuenta las posibilidades y características del proyecto, vida útil, proyecciones financieras, capacidad de pago del proyecto, tipo y plan de inversión, de acuerdo a los estudios, seguimiento, proyecciones y recomendaciones que se practiquen en cada oportunidad.

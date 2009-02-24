@@ -1,0 +1,1 @@
+Artículo 16.—El beneficiario debe aceptar todas las recomendaciones técnicas emitidas por JUDESUR, relacionadas con aquellos proyectos que se estén financiando o se hayan financiado con los recursos provenientes de la Ley 7012 y sus reformas.
