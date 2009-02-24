@@ -14,3 +14,4 @@ Reglamento de Facilidades de Capacitación para los Funcionarios del Tribunal Su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-27 | la propia norma |
+| 2 | 2009-02-24 | Decreto TSE 1 (2009-02-24) |
