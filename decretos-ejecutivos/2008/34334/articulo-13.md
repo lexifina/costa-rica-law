@@ -9,4 +9,5 @@ C = cuotas del arriendo que incluye costos de ejecución, gastos legales, comisi
 I = tasa de descuento.
 N = periodos.
 En la tasa de descuento se le debe dar periodicidad igual al de la cuota para efectos de descontar los flujos.
-El tomador podrá contratar al dador en forma directa si concurrieren los supuestos indicados en los artículos 2 y 2 bis de la Ley Nº 7494 del 2 de mayo de 1995 y 131 del Decreto Ejecutivo Nº 33411 del 27 de setiembre del 2006.
+El tomador podrá contratar al dador en forma directa.
+(Así reformado el párrafo anterior por el artículo 205 del decreto ejecutivo N° 35148 del 24 de febrero de 2009)

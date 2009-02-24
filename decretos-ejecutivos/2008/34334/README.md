@@ -14,3 +14,4 @@ Reglamento para Realizar Contratos de Leasing del Grupo ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-28 | la propia norma |
+| 2 | 2009-02-24 | Decreto Ejecutivo 35148 (2009-02-24) |
