@@ -1,0 +1,4 @@
+Artículo 15.- Árbitro Suplente
+Junto con el nombramiento del árbitro titular, las partes procurarán designar un árbitro suplente para el caso de muerte, renuncia, impedimento grave o imposibilidad de hecho o de derecho del árbitro titular de actuar.
+En caso de que no se nombre árbitro suplente, o éste no pueda asumir su cargo, la sustitución del árbitro originalmente designado, por cualquiera de los motivos citados, se regirá por las disposiciones de los artículos 13 o 14, según se trate de un tribunal unipersonal o colegiado.
+En los casos de sustitución de árbitros, se repetirán aquellas audiencias estrictamente necesarias a criterio del Tribunal. Durante el tiempo que tarda en verificarse la sustitución y la repetición de las audiencias que se consideren necesarias, se suspenderá el plazo a que alude el artículo 21, inciso 5 del Reglamento.

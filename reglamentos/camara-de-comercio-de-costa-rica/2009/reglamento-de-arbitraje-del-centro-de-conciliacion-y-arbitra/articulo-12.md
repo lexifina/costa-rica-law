@@ -1,0 +1,4 @@
+Artículo 12.- Conformación del Tribunal
+1. El Tribunal podrá ser unipersonal o colegiado, en este último caso, deberá estar integrado por tres miembros.
+2. De conformidad con el artículo 25 de la Ley, los árbitros deberán ser personas físicas en pleno ejercicio de sus derechos civiles, que no tengan nexo con las partes, sus apoderados y abogados. Adicionalmente, en el caso de arbitraje de derecho, los árbitros deberán ser abogados, con un mínimo de cinco años de haberse incorporado al Colegio de Abogados.
+3. Si las partes no han convenido previamente en el número de árbitros, éstas tendrán tres días a partir de la notificación del requerimiento de arbitraje y la correspondiente resolución de la Dirección, para determinarlo. Vencido ese plazo sin que se llegase a un acuerdo, el número de árbitros quedará fijado automáticamente en tres.

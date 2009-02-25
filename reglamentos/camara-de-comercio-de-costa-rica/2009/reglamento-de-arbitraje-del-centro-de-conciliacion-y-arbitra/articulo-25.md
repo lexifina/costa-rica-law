@@ -1,0 +1,5 @@
+Artículo 25. - Rebeldía
+1. Si dentro del plazo fijado por el Tribunal, el actor no ha presentado su demanda sin invocar causa suficiente, el Tribunal ordenará la conclusión del procedimiento. La finalización del proceso no extingue el derecho del actor, pero los procedimientos se tendrán por no presentados. El acuerdo arbitral se mantiene vigente en todos sus extremos.
+2. Si dentro del plazo fijado por el Tribunal, el demandado no ha presentado su contestación sin invocar causa suficiente, el Tribunal, mediante resolución fundada, ordenará que continúe el procedimiento.
+3. Si una de las partes debidamente convocada con arreglo al presente Reglamento, no comparece al proceso a la audiencia programada sin invocar causa suficiente, el Tribunal estará facultado para proseguir el arbitraje.
+4. Si una de las partes, debidamente requerida para presentar documentos, no lo hace en los plazos fijados sin invocar causa suficiente, el Tribunal podrá dictar el laudo basándose en las pruebas de que disponga.

@@ -1,0 +1,18 @@
+Artículo 26.- Audiencia Preliminar
+En la misma resolución en la que fije el plazo para la contestación de la demanda, el Tribunal podrá convocar a las partes a la Audiencia Preliminar, estableciendo al efecto fecha, hora y lugar. En esta audiencia, el Tribunal deberá resolver los siguientes puntos en caso de que no hubiere resuelto al respecto previamente:
+1. Validez del Acuerdo Arbitral: El Tribunal deberá resolver sobre las objeciones respecto de la existencia o la validez de la cláusula arbitral o del compromiso. Una cláusula arbitral que forme parte de un contrato y que disponga la celebración del arbitraje con arreglo al presente Reglamento, se considerará como un acuerdo independiente de las demás estipulaciones del contrato. La decisión del Tribunal que el contrato es nulo no entrañará necesariamente la
+invalidez de la cláusula arbitral.
+2. Competencia: El Tribunal deberá resolver sobre las objeciones referentes a su propia competencia.
+La excepción de incompetencia del Tribunal deberá ser opuesta a más tardar en la contestación o, con respecto a una reconvención, en la réplica a esa reconvención.
+En general, el Tribunal deberá decidir como cuestión previa, las objeciones relativas a su competencia. Sin embargo, el Tribunal podrá seguir adelante con sus actuaciones si éstas fuesen indispensables, urgentes o convenientes y no resultaren perjudiciales para las partes.
+Sobre lo resuelto por el Tribunal cabrá recurso de revocatoria dentro de los tres días siguientes a la notificación de la resolución, salvo si la resolución ha sido comunicada en la audiencia, para lo cual se estará a lo establecido en el artículo 21 inciso 9 del, presente Reglamento. Además, la parte disconforme podrá interponer directamente ante el Tribunal, dentro de los tres días siguientes a la notificación de la resolución, y en forma fundada, un recurso de apelación que deberá ser resuelto por la Sala Primera de la Corte Suprema de Justicia. En este último caso, se suspenderá el plazo a que alude el artículo 21, inciso 5 de este Reglamento, mientras se resuelve el recurso de apelación por parte de la Sala Primera de la Corte Suprema de Justicia.
+En este caso, el Tribunal decidirá sobre la admisibilidad del recurso y, si fuere admisible, de inmediato remitirá a la Sala copias de las piezas del expediente que considere necesarias para la correcta resolución del recurso, sin perjuicio de que cualquiera de las partes o la Sala pueda solicitar piezas adicionales.
+Recibidas las copias del expediente o las piezas pertinentes, la Sala resolverá el recurso sin trámite adicional alguno. Contra lo resuelto por la Sala respecto de cuestiones de competencia no cabrá recurso alguno. Lo resuelto tampoco podrá ser motivo de recurso de nulidad en contra del laudo.
+3. Resolución de excepciones previas
+4. Enmienda de nulidades o cualquier otra incidencia que afecte los elementos procesales o materiales evidentes.
+5. Resolución sobre los hechos admitidos.
+6. Establecimiento de los hechos en controversia sobre los cuales deberá resolver, los parámetros que guiarán el proceso arbitral, el calendario de las audiencias para evacuación de la prueba, la forma en la cual se evacuará la prueba, y cualquier otro aspecto que considere relevante para la adecuada tramitación del proceso. El Tribunal levantará un acta en la cual queden constando todos estos hechos.
+7. Fijación de la cuantía del proceso.
+8. Fijación de honorarios de los árbitros y del monto del fondo de gastos del proceso, si es que no se han fijado previamente.
+9. Resolver sobre cualquier aspecto de relevancia para la validez y continuidad del proceso.
+El Tribunal podrá invitar a las partes a que lleguen a un acuerdo directo.

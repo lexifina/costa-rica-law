@@ -1,0 +1,10 @@
+SECCION VII
+COSTAS DEL PROCESO ARBITRAL
+Artículo 37.- Costas
+El término "costas" comprende únicamente lo siguiente:
+a) La Tarifa de Admisión establecida en la tabla de aranceles del Centro. Esta tarifa deberá cancelarse con la presentación del requerimiento arbitral. No se tramitará ningún requerimiento que no sea acompañado por el recibo del Centro en el cual conste la cancelación de este concepto;
+b) Los gastos administrativos establecidos en la tabla de aranceles del Centro. Estos gastos deberán cancelarse con la presentación de la demanda. No se pondrá en conocimiento del Tribunal, ninguna demanda que no sea acompañada por el recibo del Centro en el cual conste la cancelación de este concepto;
+c) Los honorarios del Tribunal, que se indicarán por separado para cada árbitro y que fijará el propio Tribunal en la Audiencia Preliminar, sin perjuicio de que puedan ser revisados posteriormente si el caso lo amerita, de conformidad con la tarifa del Centro;
+d) El fondo de gastos del proceso, que comprende los gastos y honorarios en que debe incurrir el Tribunal para la adecuada tramitación del arbitraje. Sin que la enunciación sea taxativa, sino que enunciativa, tales costos están referidos a: Asesoramiento pericial, los gastos de viaje y expensas de los testigos cuando sean aprobados por el Tribunal, transcripciones, traducciones, faxes internacionales, fotocopias, servicios de courier, y cualesquiera otros que sean considerados pertinentes. Este fondo deberá liquidarse al final del proceso, y se devolverá cualquier suma no utilizada durante el transcurso del mismo;
+e) El costo de representación y de asistencia de letrados de la parte vencedora, si se hubiera reclamado dicho costo durante el procedimiento arbitral y sólo en la medida en que el Tribunal decida que el monto de ese costo es razonable;
+El pago de la tarifa de admisión y de los gastos administrativos es percibido definitivamente por la Cámara de Comercio de Costa Rica por lo que no es reembolsable, y se deducirá de las costas correspondientes.
