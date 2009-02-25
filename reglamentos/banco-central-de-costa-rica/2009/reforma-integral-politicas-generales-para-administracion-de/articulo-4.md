@@ -1,0 +1,1 @@
+4.- Los cambios a las “Políticas para la Administración de las Reservas Monetarias Internacionales” y a la “Normativa para la autorización de entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con la gestión de las Reservas Monetarias Internacionales”, rigen a partir de su publicación en el Diario Oficio La Gaceta.
