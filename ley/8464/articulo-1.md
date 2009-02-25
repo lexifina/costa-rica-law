@@ -1,4 +1,5 @@
 (Anulada)
+(Anulada esta Ley mediante resolución de la Sala Constitucional N° 2009-3113 del 25 de febrero del 2009.)
 Nº 8464
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
