@@ -14,3 +14,4 @@ Lineamientos Generales a considerar en la formulación de Planes Operativos Anua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-18 | la propia norma |
+| 2 | 2009-02-26 | Resolución 1 (2009-02-26) |

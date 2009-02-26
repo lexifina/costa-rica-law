@@ -1,3 +1,5 @@
+(Derogado)
+(Derogada por el artículo 4 ° de la resolución "Lineamientos Generales sobre la Planificación del Desarrollo Local, R-SC-1-2009 del 26 de febrero de 2009)
 L-3-2004-CO-DFOE.—Despacho del Contralor General.—San José, a las nueve horas del cinco de mayo del dos mil cuatro.
 Considerando:
 1º—Que el artículo 11 de la Constitución Política señala que la Administración Pública en sentido amplio, estará sometida a un procedimiento de evaluación de resultados y rendición de cuentas, con la consecuente responsabilidad personal para los funcionarios en el cumplimiento de sus deberes.
