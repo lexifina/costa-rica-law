@@ -1,0 +1,1 @@
+Artículo 20.—Requisitos del Auditor Interno. El Auditor Interno deberá tener al menos nivel de licenciatura en un área atinente, ser contador público y cumplir con todos los requisitos que exige la normativa que al efecto emita la Contraloría General de la República. Además deberá conocer las disposiciones legales que rigen la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 41.—Procesamiento de la información. Los funcionarios de la Auditoría Interna deben identificar, analizar, evaluar y registrar suficiente información de manera tal que les permita cumplir con los objetivos del trabajo. Además, basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en adecuados análisis y evaluaciones.

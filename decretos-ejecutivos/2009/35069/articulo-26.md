@@ -1,0 +1,1 @@
+Artículo 26.—Informe de gestión. El Auditor Interno responderá por su gestión ante el Tribunal y ante la Contraloría General de la República en lo que corresponda, presentará al menos un informe anual de su gestión de acuerdo a lo previsto en la Ley General de Control Interno, Nº 8292 y en las fechas que al respecto defina la Contraloría General de la República.

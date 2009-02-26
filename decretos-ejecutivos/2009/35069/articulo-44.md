@@ -1,0 +1,1 @@
+Artículo 44.—Informes de Auditoría. Los informes de Auditoría Interna versarán sobre diversos asuntos de su competencia y se regirán por lo que al respecto establece la Ley General de Control Interno, Nº 8292, el Manual de Normas Generales para el Ejercicio de la Auditoría Interna en el Sector Público y otra normativa emitida por la Contraloría General de la República.

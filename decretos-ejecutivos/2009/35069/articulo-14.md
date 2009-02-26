@@ -1,0 +1,1 @@
+Artículo 14.—Medidas de independencia y objetividad. El Auditor Interno establecerá de manera formal, las medidas necesarias para controlar y administrar eventuales situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda la objetividad e independencia de la Auditoría Interna.
