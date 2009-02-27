@@ -9,3 +9,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 2. Promover el óptimo funcionamiento de la Administración Pública mediante el ejercicio de las acciones de control político que le atribuye la Constitución Política.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34995 del 13 de enero de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35060 del 27 de febrero de 2009)

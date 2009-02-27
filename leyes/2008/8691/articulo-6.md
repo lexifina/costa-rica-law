@@ -41,3 +41,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 18. Promover el acceso por los medios tecnológicos a la información requerida por las y los usuarios internos y externos.
 19.Continuar la creación de subcomisiones de valores en todos los circuitos judiciales.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35060 del 27 de febrero de 2009)
