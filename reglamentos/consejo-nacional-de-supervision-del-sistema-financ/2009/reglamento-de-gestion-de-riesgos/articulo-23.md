@@ -1,0 +1,1 @@
+Artículo 23.—Obligaciones de divulgación en estados financieros. Las entidades deben revelar al público inversionista, a través de notas a sus estados financieros anuales auditados, un resumen de la gestión de riesgo de la entidad, de conformidad con lo establecido en las Normas Internaciones de Información Financiera (NIIF).
