@@ -1,0 +1,1 @@
+Artículo 20.—La persona beneficiada con una beca, tendrá para iniciar su disfrute un plazo no mayor de seis meses contados a partir de la fecha en que su adjudicación adquiere firmeza. Si no lo hace efectivo en ese periodo y de continuar interesado deberá iniciar los trámites de solicitud nuevamente.

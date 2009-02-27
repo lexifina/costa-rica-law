@@ -1,0 +1,9 @@
+Artículo 7º—Las funciones y obligaciones del Comité serán las siguientes:
+a) Conocer y valorar el informe técnico presentado por el Departamento de Recursos Humanos, relativo al estudio de las solicitudes de beca recibidas y en caso de que no concuerde con el mismo, confeccionar uno propio debidamente fundamentado en el que se analice la totalidad de solicitudes presentadas.
+b) Seleccionar de las solicitudes de beca que reúnan las condiciones exigidas, las que por criterio de oportunidad y conveniencia institucional considere procedentes y recomendar a la Junta Administrativa del Registro Nacional su aprobación.
+c) Conocer las solicitudes de cese del beneficio de becas por parte de los becarios, proceder a su valoración, redactar un informe y elevarlo a conocimiento de la Junta Administrativa del Registro Nacional para autorizar o improbar dichas solicitudes.
+d) Conocer acerca de los informes rendidos por el Departamento de Recursos Humanos respecto al incumplimiento de las obligaciones contraídas por los becados que puedan implicar la eliminación de la beca y determinar si es procedente o no dicha eliminación, de lo cual darán traslado a la Junta Administrativa del Registro Nacional.
+e) Aprobar o improbar las recomendaciones emanadas del Departamento de Recursos Humanos, sobre los lineamientos para la calificación de las solicitudes y mejoras en los procedimientos de asignación de becas.
+f) Aprobar o improbar el cambio de universidad solicitado por un becario.
+g) Sesionar ordinariamente cada vez que la convoque su Presidente.
+h) Conocer y valorar en un primer momento, las solicitudes de participación, presentadas por aquellos funcionarios que hayan perdido una beca otorgada por la Administración y cumplan con el plazo establecido en el artículo 25 inciso a) de este reglamento.

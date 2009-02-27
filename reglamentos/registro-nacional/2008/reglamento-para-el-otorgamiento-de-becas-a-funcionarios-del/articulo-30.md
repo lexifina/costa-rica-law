@@ -1,0 +1,1 @@
+Artículo 30.—Rige a partir de su publicación. Acuerdo firme adoptado por la Junta Administrativa del Registro Nacional en la sesión ordinaria Nº 40-2008 celebrada el veintitrés de octubre del dos mil ocho.
