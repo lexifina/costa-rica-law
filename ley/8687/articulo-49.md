@@ -1,0 +1,2 @@
+Artículo 49.- Notificación por oficina centralizada
+Cuando la notificación deba hacerla una oficina centralizada, los despachos judiciales le deberán proveer los documentos y datos necesarios para realizar la comunicación. La oficina centralizada, una vez efectuada la notificación, remitirá al despacho el comprobante del fax respectivo. Cuando la tramitación del proceso tenga respaldo informático, las comunicaciones y constancias se harán en esa misma forma, sin necesidad de conservar las actuaciones por escrito.

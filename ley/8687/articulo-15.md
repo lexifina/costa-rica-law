@@ -1,0 +1,3 @@
+Artículo 15.- Notificación por comisión
+Cuando deba notificarse una resolución a una persona residente fuera del lugar del proceso, se hará por medio de la autoridad competente del lugar de su residencia, a quien se le dirigirá la comisión, con inserción de la respectiva resolución y las copias de ley. El desglose, además, debe indicar el nombre completo de la persona por notificar, así como la dirección exacta.
+Se faculta al tribunal para que remita, por vía electrónica, la comisión a la parte interesada, quien le agregará las copias y la gestionará, a la mayor brevedad, ante la autoridad delegada. La parte será responsable de la autenticidad y veracidad de las copias.

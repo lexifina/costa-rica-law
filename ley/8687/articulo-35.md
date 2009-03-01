@@ -1,0 +1,2 @@
+Artículo 35.- Alcances del medio en recursos y comisiones
+El señalamiento de un correo electrónico o fax, por tener ambos carácter nacional, valdrán para la segunda instancia y casación. En el caso del casillero y estrados, únicamente tendrá ese efecto cuando los tribunales respectivos tengan el asiento en el mismo lugar. Las mismas reglas anteriores se aplicarán para las resoluciones dictadas por la autoridad comisionada, todo lo cual deberá indicarse en la comisión.

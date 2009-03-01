@@ -1,0 +1,2 @@
+Artículo 29.- Notificaciones por notario público. Competencia
+Las notificaciones personales podrán efectuarse por un notario público, quien deberá confeccionar el acta respectiva en papel de seguridad notarial y su actuación será fuera de su protocolo. Al notario público se le aplican los derechos y deberes de todo notificador judicial. Sin embargo, tiene facultades para notificar dentro del territorio nacional y fuera de él, sin necesidad de solicitar autorización expresa al despacho judicial.
