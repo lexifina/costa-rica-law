@@ -1,0 +1,2 @@
+Artículo 44.- Servidor responsable
+En los despachos receptores, se designará un servidor judicial como responsable de revisar el módulo de consulta del sistema de envío electrónico de comunicaciones. Esa función la debe ejercer al menos dos veces por audiencia. Una vez impresos los correos recibidos, deberá distribuirlos y comunicar su ingreso a los funcionarios que atienden el asunto. Además, llevará un registro de las comunicaciones electrónicas recibidas.

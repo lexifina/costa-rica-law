@@ -1,4 +1,3 @@
 CAPITULO V
 Notificaciones
-ARTÍCULO 173.- Deber de notificar.
-Toda resolución judicial se notificará a los que sean parte; y cuando así se mande, también se hará saber a las personas a quienes la resolución se refiera o pueda causarles perjuicio, a juicio del juez, aun cuando se trate de extraños en el proceso. La notificación deberá hacerse dentro de los tres días siguientes a aquél en el que se hubiere dictado la resolución.
+ARTÍCULO 173.- (Derogado por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008)

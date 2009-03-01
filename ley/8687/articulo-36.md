@@ -1,0 +1,2 @@
+Artículo 36.- Medios simultáneos. Limitación
+Autorízase señalar únicamente dos medios distintos de manera simultánea, pero la parte o el interesado deberá indicar, en forma expresa, cuál de ellos se utilizará como principal. En caso de omisión, corresponde al juez la elección. Para aplicar la notificación automática, es indispensable agotar el medio accesorio. Igual regla se aplicará cuando se propongan dos direcciones electrónicas, de fax o de casilleros.

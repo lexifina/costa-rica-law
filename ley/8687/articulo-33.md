@@ -1,0 +1,2 @@
+Artículo 33.- Honorarios
+Los gastos y honorarios del notario público deben ser cubiertos por la parte proponente, quien no podrá cobrar suma alguna por ese concepto a la parte contraria. Si la notificación no se puede realizar, por cualquiera de las circunstancias previstas en la ley, el notario público pondrá la constancia respectiva y devolverá, dentro del mismo plazo del artículo 2 de esta Ley, la cédula y las copias.

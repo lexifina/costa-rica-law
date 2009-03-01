@@ -1,0 +1,2 @@
+Artículo 41.- Notificación
+Una vez autorizada la resolución, se almacena en el directorio que cada despacho determine y se ordena informáticamente la realización de la notificación. En la resolución se debe advertir, a la parte notificada, que las copias de los escritos y documentos presentados por la contraria quedan a su disposición en el despacho. Cualquier imposibilidad con la entrega final a la cuenta es responsabilidad de la parte.

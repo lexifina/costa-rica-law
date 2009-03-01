@@ -1,5 +1,2 @@
-ARTÍCULO 174 bis.- Notificación en el domicilio señalado en el contrato.
-De constatarse en el título que fundamenta la demanda ejecutiva, un domicilio fijado por el deudor para atender sus notificaciones, en caso de incumplimiento, el juzgador, a instancia de la parte promoviente, ordenará la notificación del emplazamiento, personalmente o por medio de cédula, en el lugar señalado.
-Si el domicilio ha dejado de ser el indicado en el contrato o si es impreciso o inexistente, pero no hay constancia escrita de ello en el título referido, el notificador lo comunicará, mediante una constancia que adjuntará al acta de notificación, con los requisitos estipulados en el artículo 177 de este Código. Con base en ella, el juzgador ordenará notificar el emplazamiento al demandado, por medio de un edicto, el cual se publicará por una sola vez, en el boletín judicial y en un periódico de circulación nacional. La notificación se tendrá por hecha tres días después de la última publicación.
+ARTÍCULO 174 bis.- (Derogado por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008)
 (Así adicionado por el artículo 1º de la ley Nº 7481 de 21 de marzo de 1995)
-(Derogado tácitamente por los artículos 2, 4 y 6 de la Ley de Notificaciones No.7637 de 21 de octubre de 1996)

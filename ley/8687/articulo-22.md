@@ -1,0 +1,2 @@
+Artículo 22.- Notificación en el domicilio contractual
+Si en el contrato o en el documento en el cual se sustenta la demanda existe claramente estipulado un domicilio fijado por la parte demandada para atender notificaciones, el despacho, a instancia de parte, ordenará la notificación de las resoluciones previstas en el artículo 19 de esta Ley, en ese lugar. Tal señalamiento deberá referirse solo a la casa de habitación, el domicilio real de la persona física o el domicilio social o real de la jurídica.

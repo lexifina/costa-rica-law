@@ -1,0 +1,2 @@
+Artículo 55.- Notificación en casillero distinto
+Si se deposita una notificación en un casillero que no corresponde, el adjudicatario de ese casillero deberá devolver inmediatamente la cédula a la oficina centralizada. De ser evidente o razonable el error, la oficina hará el depósito en el casillero correcto, para los efectos del artículo anterior. De lo contrario, la decisión debe tomarla el despacho judicial.

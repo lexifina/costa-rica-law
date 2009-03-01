@@ -1,0 +1,2 @@
+Artículo 48.- Comprobante
+La notificación se acredita con el comprobante de transmisión emitido por el fax o con el respaldo informático. El encargado de transmitir no necesariamente debe estar nombrado como notificador. El comprobante no requiere la firma de quien transmite, basta con indicar su nombre para su identificación. De la misma manera se procederá cuando la transmisión se realice por medio de un servidor informático de fax.
