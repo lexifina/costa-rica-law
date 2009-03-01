@@ -1,2 +1,1 @@
-ARTÍCULO 181.- Respuestas y recursos.
-En las notificaciones no se incluirán respuestas ni se formularán recursos, salvo lo que este Código o el juez dispongan para casos concretos.
+ARTÍCULO 181.- (Derogado por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008)

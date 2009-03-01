@@ -931,9 +931,6 @@ articulo-929.md
 articulo-930.md
 articulo-931.md
 articulo-932.md
-articulo-1-transitorio.md
-articulo-2-transitorio.md
-articulo-3-transitorio.md
 articulo-933.md
 articulo-934.md
 articulo-935.md
@@ -957,3 +954,6 @@ articulo-952.md
 articulo-953.md
 articulo-954.md
 articulo-955.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
