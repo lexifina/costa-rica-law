@@ -1,0 +1,2 @@
+Artículo 31.- Nombramiento
+La parte interesada, en forma verbal o por escrito, deberá comunicar el nombre del notario público seleccionado, a quien se le entregará la cédula y las copias sin más trámite. Del nombramiento solo quedará constancia en el expediente, salvo que se rechace por incurrir en alguna causa que impida acoger la propuesta. En este último supuesto, el tribunal dictará la resolución fundada correspondiente. El notario designado no deberá tener interés en el proceso.

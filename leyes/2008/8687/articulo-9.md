@@ -1,0 +1,2 @@
+Artículo 9.- Nulidad de las notificaciones
+Será nula la notificación contraria a lo previsto en esta Ley, salvo lo dispuesto en el artículo siguiente. En todo caso, la nulidad se decretará solo cuando se le haya causado indefensión a la parte notificada. Lo que concierna a la fe pública del notificador, será impugnable por la vía incidental. De acudirse a la vía penal, no se suspenderá el trámite del incidente.

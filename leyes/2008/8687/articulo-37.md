@@ -1,0 +1,2 @@
+Artículo 37.- Señalamiento de un único medio en varios asuntos
+El Estado, las instituciones públicas, las financieras y toda persona física y jurídica, podrán señalar un único correo electrónico, número de fax o casillero, para recibir las notificaciones en todos los asuntos donde intervienen, radicados en un mismo circuito o despacho judicial. Quien coordina la oficina centralizada o el tribunal, llevará el control respectivo.

@@ -1,0 +1,4 @@
+Artículo 6.- Requisitos de la cédula
+Toda notificación contendrá el número único de expediente, el nombre del tribunal, la naturaleza del proceso, los nombres y los apellidos de las partes necesarias para su identificación y la copia de la resolución que se comunica. Además, cuando se trate de notificaciones personales, se consignará el nombre de la persona a quien debe entregársele la cédula y el de quien la recibe, la cual siempre será firmada por el notificador, sin perjuicio de lo dispuesto en el artículo 4 de esta Ley.
+En el caso de acciones de inconstitucionalidad, consultas legislativas o judiciales, resoluciones de la Sala Constitucional, además, se indicarán las leyes, las normas o los actos recurridos.
+Cuando se trate de personas con discapacidad, la cédula de notificación deberá ir acompañada de un documento en un formato accesible de audio, digital, electrónico, Braille o cualquier otro, conforme a los avances tecnológicos.

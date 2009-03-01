@@ -1,0 +1,2 @@
+Artículo 54.- Responsabilidad
+El adjudicatario o la persona autorizada, bajo su responsabilidad, podrá retirar todos los días las resoluciones notificadas por casillero. El retiro se hará dentro del horario aprobado por el Consejo Superior del Poder Judicial para cada circuito judicial. Para ese efecto, tiene un plazo máximo de quince días hábiles; una vez transcurrido, la oficina centralizada recogerá las cédulas no retiradas para su destrucción. De todo ello quedará un registro lacónico.

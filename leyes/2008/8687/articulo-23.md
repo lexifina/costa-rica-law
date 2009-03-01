@@ -1,0 +1,2 @@
+Artículo 23.- Curador procesal
+En caso de los domicilios registral y contractual, si el cambio de domicilio no se comunica y la persona no se localiza en el lugar originalmente señalado, está cerrado en forma definitiva o es incierto, impreciso o inexistente, el notificador así lo hará constar y, sin más trámite, se procederá a nombrar curador procesal. El plazo correrá a partir de la aceptación del cargo. El curador procesal procurará comunicar a su representado la existencia del proceso.

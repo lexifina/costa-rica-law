@@ -1,0 +1,2 @@
+Artículo 2.- Deber de notificar
+Las partes, con las salvedades establecidas en esta Ley, serán notificadas de toda resolución judicial. También se les notificará a terceros cuando lo resuelto les cause perjuicio, según criterio debidamente fundamentado del juzgador. Sin perjuicio de lo dispuesto en normas especiales, la notificación siempre deberá hacerse dentro de los cinco días siguientes al que se dictó la respectiva resolución.
