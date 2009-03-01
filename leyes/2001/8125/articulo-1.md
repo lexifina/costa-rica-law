@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8125
+(Esta ley fue Derogada por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 Decreta:
