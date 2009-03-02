@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Concejo Municipal de Tarrazú, comunica que por acuerdo Nº 4, de la sesión 141-2009, del 27 de enero del 2009, se acordó modificar el artículo 6º, del Reglamento de Ferias, Turnos, Festejos, Novilladas, del cantón de Tarrazú, publicado en La Gaceta Nº 125, del 29 de julio del 2000, con el fin de que en adelante se solicite para actividades taurinas, el certificado veterinario de operación. (C. V. O.) emitido por el Ministerio de Agricultura y Ganadería para este tipo de actividades.
