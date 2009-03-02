@@ -15,3 +15,4 @@ Reglamento de Compras
 | --- | --- | --- |
 | 1 | 2005-08-23 | la propia norma |
 | 2 | 2006-06-19 | Reglamento municipal 13 (2006-06-19) |
+| 3 | 2009-03-02 | Reglamento municipal 258 (2009-03-02) |
