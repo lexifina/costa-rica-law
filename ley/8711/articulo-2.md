@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Procedimientos de contratación administrativa
+En virtud de que los recursos provenientes del contrato de préstamo que se aprueba mediante esta Ley, son de apoyo presupuestario para la atención, rehabilitación y reconstrucción de los daños provocados por desastres naturales, las adquisiciones de bienes y servicios que se realicen con recursos del crédito, por medio de la Comisión Nacional de Emergencias, tendrán el tratamiento de excepción que permita la utilización ágil de los recursos económicos, según la normativa que regula la Comisión.
