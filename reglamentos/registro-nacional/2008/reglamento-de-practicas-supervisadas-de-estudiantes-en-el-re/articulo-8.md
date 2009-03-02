@@ -1,0 +1,1 @@
+Artículo 8º—La relación Registro Nacional y estudiante, así como el subsidio que la Junta Administrativa del Registro Nacional otorga a los estudiantes de prácticas supervisadas no derivará ni generará una relación de orden laboral.
