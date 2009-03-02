@@ -14,3 +14,4 @@ Reglamento de becas a participantes en acciones formativas del INA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-30 | la propia norma |
+| 2 | 2009-03-02 | Reglamento 4377 (2009-03-02) |
