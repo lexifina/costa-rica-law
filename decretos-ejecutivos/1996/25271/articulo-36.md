@@ -1,2 +1,4 @@
 Artículo 36.—El Órgano Director contará con tres días naturales para dictar el auto inicial del procedimiento, en el cual se dará el traslado de denuncia al funcionario(a) acusado(a), concediéndole un plazo de diez días hábiles para que comparezca y se refiera a todos y cada uno de los hechos que se imputan y ofrezca los elementos de prueba de descargo que estime necesarios.
 Si el denunciado(a) no ejerce su defensa se continuará con el procedimiento hasta el informe final de parte del Órgano Director.
+El Órgano Director podrá gestionar ante el Ministro(a) que se ordene, en forma provisional y en cualquier momento, el traslado temporal del denunciado, a otra unidad o departamento a partir de la presentación de la denuncia y hasta tanto no adquiera firmeza la resolución o acto final, o la declaratoria con lugar de las eventuales diligencias de despido.
+(Así adicionado el parrafo anterior por el artículo 1° del decreto ejecutivo N° 35141 del 03 de marzo del 2009)

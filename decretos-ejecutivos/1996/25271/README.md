@@ -24,3 +24,4 @@ Reglamento Autónomo de Servicios del Ministerio de Hacienda
 | 9 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
 | 10 | 2008-04-28 | Decreto Ejecutivo 34550 (2008-04-28) |
 | 11 | 2008-08-04 | Decreto Ejecutivo 34920 (2008-08-04) |
+| 12 | 2009-03-03 | Decreto Ejecutivo 35141 (2009-03-03) |

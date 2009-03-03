@@ -1,1 +1,2 @@
-Artículo 32.—El Ministro(a) podrá ordenar, a solicitud de la persona interesada, su reubicación temporal en el Ministerio.
+Artículo 32.—Cuando exista una relación de subordinación respecto del denunciado o se presuma la continuación de los supuestos hechos, la persona denunciante o sus representantes legales, podrán, en cualquier momento del proceso solicitar la reubicación temporal en otro lugar del trabajo dentro del Ministerio. La solicitud deberá ser hecha ante el Ministro(a), quien decidirá en única instancia
+( Así reformado por el artículo 2° del dereto ejecutivo N° 35141 del 03 de marzo del 2009)

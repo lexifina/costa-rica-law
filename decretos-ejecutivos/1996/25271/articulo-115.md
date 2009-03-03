@@ -20,3 +20,5 @@ Son causas justas las siguientes:
 (Así adicionado por el artículo 13 del decreto ejecutivo N° 25941 de 14 de marzo de 1997)
 18) Cuando el funcionario observe, reproduzca o exhiba imágenes deshonestas u obscenas, o material pornográfico en cualquier lugar de la institución, a través del acceso de Internet, del correo electrónico, o por cualquier medio.
 (Así adicionado por el artículo 1° del decreto ejecutivo N°. 30289 de 9 de abril de 2002)
+19) Cuando el funcionario, sin causa debidamente justificada, entorpezca, obstaculice o no brinde la colaboración requerida durante la investigación de una denuncia por hostigamiento sexual.
+( Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35141 del 03 de marzo del 2009)
