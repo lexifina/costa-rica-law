@@ -1,0 +1,10 @@
+Nº 35230-PLAN
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+En ejercicio de las facultades y regulaciones establecidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25.1 y 27.1 de la Ley General de la Administración Pública (Nº 6227 de 2 mayo de 1978); 1 inciso c) y 2 incisos a) y c) de la Ley de Planificación Nacional (Nº 5525 de 2 de mayo de 1974).
+Considerando:
+I.—En los meses de marzo y abril del año 2009, se celebrarán en ciudad de Heredia, Costa Rica, los siguientes eventos: el seminario y taller “Enfoques, Métodos y Herramientas de la Planificación Nacional y Local”, espacio de reflexión con el propósito de analizar la revalorización de la planificación, sus enfoques y métodos ante los retos planteados por nuestras sociedades; y la cumbre de ministros de planificación o sus equivalentes de Centroamérica, con el objetivo de conformar la “Red Centroamericana de Planificación”. La información sobre ambos eventos consta en el sitio electrónico www.mideplan.go.cr.
+II.—El Ministerio de Planificación Nacional y Política Económica tiene interés en la realización de dichas actividades, por considerar que los temas de discusión que serán abordados revisten gran importancia para la formación de opinión sobre el desarrollo nacional, local y su entorno. Por tanto,
+DECRETAN:
+Artículo 1º—Declarar de interés público: el “Seminario/Taller: Enfoques, Métodos y Herramientas de la Planificación Nacional y Local” que se celebrará en la ciudad de Heredia, Costa Rica, los días 31 de marzo, 1 y 2 de abril de 2009, bajo la coordinación del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), el Instituto Latinoamericano de Planificación Económica y Social (ILPES), el Proyecto de Fortalecimiento Municipal y Descentralización (FOMUDE) y la Universidad Nacional de Costa Rica (UNA); y la cumbre de ministros de planificación o sus equivalentes de Centroamérica, que se celebrará en la ciudad de Heredia, Costa Rica, el I de abril de 2009. bajo la coordinación de MIDEPLAN y la UNA.

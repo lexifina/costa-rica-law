@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a los órganos, entes y empresas de la administración pública institucional -centralizada y descentralizada- y de la administración pública territorial para que proporcionen apoyo del que puedan disponer para la realización de los eventos descritos en el artículo anterior. dentro del marco de sus posibilidades legales.
