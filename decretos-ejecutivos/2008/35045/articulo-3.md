@@ -1,0 +1,1 @@
+Artículo 3º—Las áreas donde se establecerán las siembras de papa comercial, deberán ser ubicadas y delimitadas en forma detallada, por los funcionarios del Servicio Fitosanitario del Estado, con el apoyo de las otras dependencias del Ministerio de Agricultura y Ganadería, así como de las organizaciones locales de productores.
