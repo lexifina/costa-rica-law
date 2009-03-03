@@ -1,0 +1,5 @@
+Artículo 4
+Adopción de decisiones
+1. La Asamblea General adoptará decisiones por consenso. Cuando se considere la adopción de una propuesta en una reunión de la Asamblea General se considerará adoptada por consenso, siempre y cuando ningún Miembro del Centro o de la Junta Directiva haya presentado objeciones formales durante la reunión. La presente disposición será aplicable también, mutatis mutandi, a las decisiones de la Junta Directiva.
+2. Cuando el (o la) Presidente de la Asamblea General o de la Junta Directiva determine que no es posible tomar una decisión por consenso, el (la) Presidente podrá decidir someter el asunto a votación en la Asamblea General. En ese caso, la Asamblea General tomará una decisión por mayoría de cuatro quintos de los Miembros presentes que voten. Cada Miembro tiene derecho a un voto. Durante las reuniones de la Asamblea General, la mayoría simple de los Miembros del Centro constituirá el quórum necesario para proceder a una votación sobre cualquier asunto.
+3. En caso de decisión acerca de enmiendas, se aplicarán los procedimientos previstos en el apartado 1 del artículo 11 del presente Acuerdo.

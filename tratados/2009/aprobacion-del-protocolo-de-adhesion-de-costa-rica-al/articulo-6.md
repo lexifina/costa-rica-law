@@ -1,0 +1,7 @@
+Artículo 6
+Derechos y obligaciones de los Miembros
+1. Cada país Miembro en desarrollo y cada uno de los Miembros con economías en transición que constan en el Anexo II al presente Acuerdo tienen derecho a recurrir a los servicios que ofrece el Centro, de conformidad con el reglamento adoptado por la Asamblea General, y con arreglo a la escala establecida en el Anexo IV. Cada Miembro tiene derecho a solicitar apoyo durante procedimientos de solución de diferencias de la OMC en cualquiera de los tres idiomas oficiales de la OMC.
+2. Los Miembros que hayan adoptado el presente Acuerdo deberán abonar sin demora una contribución única al fondo fiduciario del Centro y/o contribuciones anuales durante los cinco primeros años de funcionamiento, de conformidad con la escala de contribuciones prevista en los Anexos I y II al presente Acuerdo. Los Miembros que se adhieran al presente Acuerdo harán contribuciones de conformidad con las disposiciones de su instrumento de adhesión.
+3. Los Miembros pagarán sin demora los honorarios por servicios prestados por el Centro.
+4. Cuando la Junta Directiva determine que algún Miembro no ha cumplido alguna de las obligaciones suscritas en los apartados 2 o 3 del presente Artículo, podrá decidir privarlo del ejercicio de los derechos que se derivan del apartado 1 del presente Artículo.
+Ninguna parte del presente Acuerdo se interpretará dando a entender que los Miembros asumen más responsabilidad financiera que la que se deriva de los apartados 2 y 3 del presente Artículo.
