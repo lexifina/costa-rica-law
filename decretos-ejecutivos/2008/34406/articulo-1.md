@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34406-H
+(Este decreto fue derogado por el artículo 16 del decreto ejecutivo N° 35113 de 4 de marzo de 2009, Procedimientos para la Aplicación y Seguimiento de las Directrices Generales de Política Presupuestaria para las Entidades Públicas, Ministerios y demás Órganos según corresponda, cubiertos por el Ámbito de la Autoridad Presupuestaria).
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE HACIENDA
 En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), y 27, inciso 1), 28, inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; los artículos 1º, 21, 23, 24, 25 y 57 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001, sus reformas y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero del 2006 y sus reformas.

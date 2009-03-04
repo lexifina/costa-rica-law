@@ -14,3 +14,4 @@ Procedimientos para la Aplicación y Seguimiento de las Directrices Generales de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-19 | la propia norma |
+| 2 | 2009-03-04 | Decreto Ejecutivo 35113 (2009-03-04) |
