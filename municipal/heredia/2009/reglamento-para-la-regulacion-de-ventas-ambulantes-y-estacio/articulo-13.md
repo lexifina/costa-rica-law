@@ -1,0 +1,1 @@
+Artículo 13.—Siguiendo los parámetros de razonabilidad y proporcionalidad, la Comisión de Ventas Ambulantes y Estacionarias podrá solicitar al interesado cualquier otra información adicional necesaria para comprobar su idoneidad en el otorgamiento del permiso.

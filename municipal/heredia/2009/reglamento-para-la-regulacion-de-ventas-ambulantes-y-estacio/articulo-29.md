@@ -1,0 +1,1 @@
+Artículo 29.—Toda solicitud de cambio de línea comercial deberá ser tramitada con las formalidades establecidas en éste Reglamento y deberá previamente ser autorizado mediante acto expreso y motivado del Departamento de Rentas y Cobranzas.

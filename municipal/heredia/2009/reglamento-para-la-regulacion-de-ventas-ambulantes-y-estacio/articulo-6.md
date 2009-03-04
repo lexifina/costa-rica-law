@@ -1,0 +1,1 @@
+Artículo 6º—Conforme a lo establecido en el artículo 4 de la Ley 6587, en el otorgamiento del permiso el Concejo Municipal deberá dar preferencia a personas con alguna discapacidad que ya hubieran ejercido la actividad.

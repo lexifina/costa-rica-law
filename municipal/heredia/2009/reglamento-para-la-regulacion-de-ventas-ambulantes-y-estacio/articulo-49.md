@@ -1,0 +1,1 @@
+Artículo 49.—Se deroga en su totalidad el Reglamento de Ventas Ambulantes y Estacionarias publicado en el Diario Oficial La Gaceta número 183 del 23 de setiembre de 1982 y sus reformas, así como cualquier otra disposición municipal que se le oponga a este Reglamento.

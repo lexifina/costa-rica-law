@@ -1,0 +1,1 @@
+Artículo 46.—Dentro de los seis meses siguientes a la publicación del presente Reglamento, todos los permisos otorgados con anterioridad deberán ajustarse a sus disposiciones. Para tal efecto, el Departamento de Rentas y Cobranzas comunicará el presente Reglamento a todos los patentados y les concederá el plazo citado.

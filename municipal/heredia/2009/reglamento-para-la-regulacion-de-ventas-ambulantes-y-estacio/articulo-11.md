@@ -1,0 +1,1 @@
+Artículo 11.—Recibido el estudio Socioeconómico, el interesado podrá iniciar los trámites tendientes a obtener el permiso, para lo cuya deberá presentar una solicitud escrita en papel simple, dirigida a la Comisión de Ventas Ambulantes y Estacionarias de la Municipalidad, en la que deberá adjuntar doscientos colones de timbres fiscales.

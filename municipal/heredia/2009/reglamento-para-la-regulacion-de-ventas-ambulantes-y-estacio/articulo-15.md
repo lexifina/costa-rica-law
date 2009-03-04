@@ -1,0 +1,1 @@
+Artículo 15.—En caso de que el interesado no presente dentro del plazo concedido los requisitos omitidos, el Concejo Municipal rechazará de plano la solicitud mediante un acto motivado, y ordenará el archivo del expediente.

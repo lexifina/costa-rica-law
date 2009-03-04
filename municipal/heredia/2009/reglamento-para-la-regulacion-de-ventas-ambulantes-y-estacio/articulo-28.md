@@ -1,0 +1,1 @@
+Artículo 28.—Es prohibido para un vendedor ambulante variar la ruta asignada sin la autorización expresa del Municipio, salvo que por las circunstancias especiales y de fuerza mayor se obligara a cambiarla en forma temporal, de lo cual deberá informar al Departamento de Rentas y Cobranzas.

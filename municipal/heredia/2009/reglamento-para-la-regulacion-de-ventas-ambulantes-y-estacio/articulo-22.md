@@ -1,0 +1,1 @@
+Artículo 22.—Además de lo expuesto en el artículo anterior, el Departamento de Rentas y Cobranzas será la oficina encargada de tramitar todo lo referente a cambios en la línea comercial, suspensión y revocación del permiso, imposición de sanciones y cualquier otro trámite atinente.

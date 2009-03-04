@@ -1,0 +1,1 @@
+Artículo 14.—Presentada la solicitud sin los requisitos respectivos, la Comisión prevendrá al interesado para que los presente. Para tal efecto, dará un plazo prudencial que no podrá exceder de diez días hábiles.

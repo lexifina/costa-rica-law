@@ -1,0 +1,1 @@
+Artículo 37.—Los vendedores de loterías y chances debidamente autorizados por la Junta de Proyección Social de San José, deberán solicitar permiso municipal para ejercer la actividad, pero estarán eximidos de la presentación del Estudio Socioeconómico previsto en éste Reglamento. Sin embargo, no podrán hacer uso de ningún tipo de mobiliario en las vías públicas.

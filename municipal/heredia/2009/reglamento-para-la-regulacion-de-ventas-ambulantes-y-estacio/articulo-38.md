@@ -1,0 +1,1 @@
+Artículo 38.—Para ejercer un adecuado control sobre la venta de loterías, el Departamento de Rentas y Cobranzas solicitará a la Junta de Protección Social de San José, una lista de los concesionarios que realizan la actividad dentro de la circunscripción territorial de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 24.—Para el otorgamiento de permisos temporales, el gestionante deberá cumplir con lo establecido en los incisos a) y b) del artículo 13 de este Reglamento. En el caso de personas jurídicas, deberán tener una oficina o filial en el Cantón Central de Heredia.
