@@ -1,6 +1,7 @@
-Artículo 21.—Atribuciones y funciones del Consejo. El Consejo tendrá las siguientes funciones:
-1. Comunicar la apertura de recepción de ofertas para ocupar las plazas vacantes en las escalas que así lo requieran.
-2. Elegir, por mayoría simple de sus miembros, a la persona idónea para ocupar la plaza vacante del grado en promoción.
-3. Emitir el acuerdo de ascenso de la persona seleccionada, para el ulterior desarrollo de los trámites correspondientes.
-4. Resolver lo que proceda con respecto a las solicitudes que presenten los interesados, para equiparación de grados policiales otorgados en el extranjero a funcionarios de este Ministerio por academias o escuelas policiales cuando existan convenios de cooperación suscritos entre estas instituciones y el Ministerio, previa verificación de la existencia de plazas vacantes en las escalas respectivas, y previo reconocimiento por parte de la Escuela Nacional de Policía, de los estudios realizados en el extranjero para tal efecto.
-(Así ADICIONADO EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)
+CAPÍTULO IV
+Consejo de Ascensos
+Artículo 21.—Integración del Consejo. El Consejo estará integrado por el Ministro o su representante, el Director General de la Fuerza Pública , de la Policía de Control de Drogas, del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea, de la Dirección de la Escuela Nacional de Policía y de la Dirección de Apoyo Legal Policial o sus representantes por ellos designados en caso de ausencia del titular; y serán convocados por el Presidente cuando así se requiera de conformidad con los casos que sean sometidos a conocimiento de este Consejo, al menos una vez al mes.
+Este órgano de apoyo podrá solicitar asesoría y soporte a cualquier otra instancia de este Ministerio.
+La Dirección de Recursos Humanos fungirá como Secretaría Técnica de éste Consejo.
+(Así reformado por el artículo 1° del decreto ejecutivo N ° 34899 de 5 de noviembre de 2008).
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35149 que lo traspaso del antiguo artículo 19 al 21 actual)

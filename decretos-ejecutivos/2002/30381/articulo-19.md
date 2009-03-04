@@ -1,6 +1,3 @@
-CAPÍTULO IV
-Consejo de Ascensos
-Artículo 19.—Integración del Consejo. El Consejo estará integrado por el Ministro o su representante, el Director General de la Fuerza Pública , de la Policía de Control de Drogas, del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea, de la Dirección de la Escuela Nacional de Policía y de la Dirección de Apoyo Legal Policial o sus representantes por ellos designados en caso de ausencia del titular; y serán convocados por el Presidente cuando así se requiera de conformidad con los casos que sean sometidos a conocimiento de este Consejo, al menos una vez al mes.
-Este órgano de apoyo podrá solicitar asesoría y soporte a cualquier otra instancia de este Ministerio.
-La Dirección de Recursos Humanos fungirá como Secretaría Técnica de éste Consejo.
-(Así reformado por el artículo 1° del decreto ejecutivo N ° 34899 de 5 de noviembre de 2008).
+Artículo 19.—Escalafón de oficiales superiores. El escalafón de oficiales superiores es la lista de elegibles para los nombramientos del Director de la Fuerza Pública, los directores y subdirectores regionales de esta, el Director del Servicio Nacional de Guardacostas y el Director del Servicio de Vigilancia Aérea. Dicho escalafón se conformará con aquellas personas que ostentan el grado policial de comandante, comisionado o comisario, debidamente registrado ante la Dirección de Recursos Humanos.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35149 que lo traspaso del antiguo artículo 17 al 19 actual)

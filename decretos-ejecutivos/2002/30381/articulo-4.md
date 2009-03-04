@@ -1,2 +1,1 @@
-Artículo 4º—Establecimiento de Grados Policiales. Para la asignación de grados policiales de cada dependencia de la Fuerza Pública, se aplicará el modelo denominado "Cálculo del índice de seguridad de las personas", definido en el Anexo Único al presente Reglamento, el cual forma parte integrante del presente reglamento. Este modelo podrá ajustarse tomando en consideración otras variables relevantes para cada región.
-La Unidad Asesora de Planificación Institucional del Ministerio, en coordinación con la Dirección General de la Fuerza Pública, será la encargada de actualizar y aplicar, cada año, o cuando así se requiera, el modelo citado en el presente artículo.
+Artículo 4º— ( Derogado por el artículo 3° del decreto ejecutivo N° 35149 del 04 de marzo del 2009)
