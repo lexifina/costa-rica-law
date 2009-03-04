@@ -1,3 +1,3 @@
-(*) ARTICULO 444.-
-Resoluciones recurribles Además de los casos especiales previstos, sólo se podrá interponer el recurso de casación contra la sentencia y el sobreseimiento dictados por el tribunal de juicio.
-(*) Este artículo fue interpretado por resolución de la Sala Constitucional N° 2002-08591 de las 14:59 horas del 04/09/2002. En el sentido que dicho artículo no resulta inconstitucional, en la medida en que se interprete, a la luz del artículo 41 de la Constitución Política y del Derecho Internacional de los Derechos Humanos, en el sentido de que también procede el recurso de casación de la víctima en contra del auto que ordene la suspensión del procedimiento a prueba.
+ARTICULO 444.-
+Efecto suspensivo La resolución no será ejecutada durante el plazo para recurrir y mientras se tramite el recurso, salvo disposición legal en contrario.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 429 al 444 actual)

@@ -1,8 +1,6 @@
-LIBRO III
-RECURSOS
-TITULO I
-NORMAS GENERALES
-(*) ARTICULO 422.-
-Reglas generales Las resoluciones judiciales serán recurribles sólo por los medios y en los casos expresamente establecidos.
-El derecho de recurrir corresponderá tan sólo a quien le sea expresamente acordado. Cuando la ley no distinga entre las diversas partes, el recurso podrá ser interpuesto por cualquiera de ellas.
-(*) Este artículo fue interpretado por resolución de la Sala Constitucional N° 2002-08591 de las 14:59 horas del 04/09/2002. En el sentido que dicho artículo no resulta inconstitucional, en la medida en que se interprete, a la luz del artículo 41 de la Constitución Política y del Derecho Internacional de los Derechos Humanos, en el sentido de que también procede el recurso de casación de la víctima en contra del auto que ordene la suspensión del procedimiento a prueba.
+(*)TÍTULO VIII
+PROCEDIMIENTO EXPEDITO PARA LOS DELITOS EN FLAGRANCIA
+(*)(Así adicionado este Título por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)
+Artículo 422.- Procedencia
+Este procedimiento especial, de carácter expedito, se aplicará en los casos en los cuales se trate de delitos en flagrancia e iniciará desde el primer momento en que se tenga noticia de la comisión de un hecho delictivo de tal especie. En casos excepcionales, aun cuando se trate de un delito flagrante, se aplicará el procedimiento ordinario, cuando la investigación del hecho impida aplicar aquel. Este procedimiento especial omitirá la etapa intermedia del proceso penal ordinario y será totalmente oral.
+(Así adicionado por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)

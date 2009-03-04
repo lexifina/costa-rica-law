@@ -1,4 +1,6 @@
-ARTICULO 248.-
-Abandono del domicilio El abandono del domicilio como medida precautoria deberá establecerse por un plazo mínimo de un mes, sin que pueda exceder de seis; podrá prorrogarse por períodos iguales, si así lo solicita la parte ofendida y se mantienen las razones que la justificaron.
-La medida podrá interrumpirse cuando haya reconciliación entre ofendido e imputado, siempre que tal circunstancia la manifieste la parte ofendida ante la autoridad jurisdiccional. Cuando se trate de ofendidos menores de edad, el cese por reconcialiación sólo procederá cuando el representante del Patronato Nacional de la Infancia así lo recomiende.
-Para levantar la medida precautoria, el imputado deberá rendir caución juratoria de que no reincidirá en los hechos.
+Artículo 248.- Abandono del domicilio
+El abandono del domicilio como medida precautoria deberá establecerse por un plazo mínimo de un mes, sin que pueda exceder de seis; podrá prorrogarse por períodos iguales, si así lo solicita la parte ofendida y si se mantienen las razones que lo justificaron.
+La medida podrá interrumpirse, cuando haya reconciliación entre ofendido e imputado, siempre que tal circunstancia la manifieste la parte ofendida ante la autoridad jurisdiccional.
+Para levantar la medida precautoria, el imputado deberá rendir caución juratoria de que no reincidirá en los hechos. Antes de levantar la medida, se escuchará el criterio de la víctima, si puede ser localizada. Si se trata de una víctima que está siendo objeto de protección, el fiscal a cargo del caso deberá informar sobre la audiencia a la víctima; para ello podrá coordinar lo pertinente con la Oficina de Atención a la Víctima del Delito.
+Cuando se trate de personas ofendidas menores de edad, el cese de esta medida precautoria solo procederá, cuando se constate la inexistencia de riesgo para la víctima y el representante del Patronato Nacional de la Infancia (PANI) así lo recomiende.
+(Así reformado por el artículo 16 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)
