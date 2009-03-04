@@ -1,0 +1,3 @@
+Artículo 33 bis.-
+Cuando para efectos de investigación, las listas de personas y organizaciones ligadas por el Consejo de Seguridad de las Naciones Unidas con el terrorismo sean circuladas entre las instituciones nacionales o extranjeras, indicadas en los artículos 14, 15 y 15 bis de esta Ley, dichas instituciones tendrán la obligación de revisarlas y reportar a la UIF, del Instituto Costarricense sobre Drogas y al Ministerio Público, si las personas y organizaciones incluidas en las listas poseen recursos o activos en ellas.
+(Así adicionado por el artículo 2°, punto 2., aparte b) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).

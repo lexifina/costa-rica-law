@@ -13,6 +13,7 @@ articulo-12.md
 articulo-13.md
 articulo-14.md
 articulo-15.md
+articulo-15-bis.md
 articulo-16.md
 articulo-17.md
 articulo-18.md
@@ -31,6 +32,7 @@ articulo-30.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
+articulo-33-bis.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
@@ -67,6 +69,7 @@ articulo-66.md
 articulo-67.md
 articulo-68.md
 articulo-69.md
+articulo-69-bis.md
 articulo-70.md
 articulo-71.md
 articulo-72.md
@@ -164,6 +167,10 @@ articulo-163.md
 articulo-164.md
 articulo-165.md
 articulo-166.md
+articulo-167.md
+articulo-168.md
+articulo-169.md
+articulo-170.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
