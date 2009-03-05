@@ -1,0 +1,1 @@
+Artículo 32.—Conformación del expediente de contratación directa autorizada de inspección. Tomada la decisión de adoptar este procedimiento por parte de la Dirección Ejecutiva, se procederá a formar el expediente administrativo de la contratación directa autorizada a cargo de la Proveeduría.

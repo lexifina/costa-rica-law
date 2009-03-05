@@ -1,0 +1,4 @@
+Artículo 16.—Comunicación del resultado de las solicitudes. La notificación de incorporación al registro de elegibles se efectuará por el medio o mecanismo que el Proveedor acredite en el expediente del registro.
+Es a partir de este momento que se hace efectiva la respectiva inscripción, salvo que se trate de los casos de inscripción posterior al llamado que se hace una vez al año; en estos casos es a partir del día siguiente a la notificación de la empresa solicitante, que ésta queda debidamente inscrita.
+Si se dieran solicitudes posteriores, la aceptación o rechazo de las mismas se notificará a la empresa en el lugar señalado para recibir notificaciones.
+La empresa no está obligada a renovar los documentos solicitados para inscripción, si los mismos se mantuvieran invariables. Basta que con nota dirigida a la Proveeduría del CONAVI así lo haga saber.

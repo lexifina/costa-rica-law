@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. El registro de elegibles es el instrumento idóneo para la obtención de servicios de PROGRAMACIÓN, SUPERVISIÓN, SEGUIMIENTO Y CONTROL de los proyectos de conservación vial de la Red Vial Nacional, incluyendo todos los contratos asignados a la Dirección de Conservación Vial.
