@@ -18,3 +18,4 @@ Reglamento de Cajas Chicas Auxiliares
 | 4 | 2004-02-23 | Reglamento 6 (2004-02-23) |
 | 5 | 2006-02-07 | Reglamento 7 (2006-02-07) |
 | 6 | 2008-07-16 | Circular 115 (2008-07-16) |
+| 7 | 2009-03-05 | Circular 197 (2009-03-05) |
