@@ -1,6 +1,0 @@
-Artículo 4º—De la inclusión de la cuota obrera en arreglo y convenios de pago con patronos. Se podrá incluir la cuota obrera en los arreglos y convenios de pago, según las siguientes condiciones:
-a) Para planillas ordinarias, cuando la garantía del arreglo de pago sea una hipoteca en primer grado, cédula hipotecaria en primer grado, o Garantía de Cumplimiento emitida por Bancos del Sistema Bancario Nacional o instituciones públicas, se podrá incluir la cuota obrera por el total del plazo del arreglo.
-En caso de que la garantía sea diferente a las indicadas anteriormente, se podrá incluir la cuota obrera con cualquier otra garantía de las establecidas en el presente reglamento, de la siguiente manera: en las primeras 12 (doce) mensualidades se deberá pagar el total de las cuotas obreras y el resto de la deuda un plazo máximo de 48 (cuarenta y ocho) meses.
-b) Cuando existan deudas por cuotas obreras ocasionadas por el levantamiento de planillas adicionales, se podrán incluir en el arreglo de pago las cuotas obreras con cualquier tipo de garantía establecida en este Reglamento.
-c) En el caso de convenios administrativos, se podrá incluir las cuotas obreras de planillas ordinarias y adicionales.
-Lo anterior según las condiciones que la Gerencia de la División Financiera establezca en el Instructivo que regulará este trámite.

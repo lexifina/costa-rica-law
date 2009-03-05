@@ -1,1 +1,0 @@
-Artículo 5º—De los plazos máximos. El plazo máximo que se otorgará al patrono y/o trabajadores independientes para cumplir con el arreglo de pago formalizado, será de doce años en garantías hipotecarias y cédulas hipotecarias de primer grado; para las demás garantías, el plazo máximo será de cinco años.
