@@ -1,4 +1,0 @@
-Artículo 10.—Cada asociación participante en una exposición deberá nombrar un Fiscal de Raza, el cual no puede ser expositor de esa raza. Estas deberán notificar dicha designación por escrito al Comité Organizador y a la Comisión Nacional de Exposiciones Zootécnicas, como mínimo quince días calendario antes de la inauguración de la actividad.
-El Fiscal de Raza podrá ser fiscal de varias razas siempre y cuando pueda estar presente durante los juzgamientos.
-El Fiscal de Raza deberá estar presente durante todo el juzgamiento * y será quien firme la declaración oficial del Juzgamiento. Este será el encargado de recibir y resolver las quejas que se presenten con relación al juzgamiento de la raza que representa.
-El Fiscal de Raza deberá entregar un informe por escrito con los aspectos más relevantes o anomalías ocurridas durante la exposición al Fiscal General a más tardar quince días calendario después de concluida la exposición.

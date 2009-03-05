@@ -1,3 +1,0 @@
-Artículo 16.—El Comité Organizador deberá nombrar una comisión de recepción de animales, integrada por tres personas, de las cuales al menos una de ellas debe ser médico veterinario colegiado, la cual fijará el horario de entrada y salida de los animales.
-Dicha Comisión deberá recibir todos los animales que ingresen al campo de exposiciones, los cuales deben haber sido inscritos previamente y estar acompañados por un certificado sanitario que cumpla con los requisitos e indicaciones zoo sanitarias contenidas en las disposiciones legales vigentes en la materia.
-De no cumplir con lo anterior o si se encuentran en condiciones físicas inaceptables o inadecuadas, la Comisión de recepción de animales tendrá la potestad de rechazar o negar el ingreso de los mismos.

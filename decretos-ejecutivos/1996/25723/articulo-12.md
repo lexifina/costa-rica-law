@@ -1,1 +1,0 @@
-Artículo 12.—Las decisiones del Fiscal General tendrán recurso de apelación ante la Comisión dentro del plazo de ocho días naturales siguientes a partir de su comunicación. La Comisión contará con el plazo de u(j mes calendario a partir de su recibo para resolver la apelación, la , decisión de la Comisión, que deberá ser motivada, no tendrá recurso alguno.

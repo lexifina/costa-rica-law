@@ -1,1 +1,0 @@
-Artículo 31.—Otras faltas o contravenciones contra las disposiciones establecidas en el presente Reglamento, no previstas en los artículos anteriores, podrán ser valoradas y sancionadas por la Comisión, previo’cumplimiento del debido proceso y el derecho a la defensa.

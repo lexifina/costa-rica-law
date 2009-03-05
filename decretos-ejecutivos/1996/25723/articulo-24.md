@@ -1,1 +1,0 @@
-Artículo 24.—La nomenclatura de toda premiación deberá llevar el nombre de la actividad tal y como fue aprobada por la Comisión, con una breve descripción que contenga como mínimo la raza y el galardón obtenido.

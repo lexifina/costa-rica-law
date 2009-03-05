@@ -1,1 +1,0 @@
-Artículo 18.—El Comité Organizador deberá designar un juez para cada una de las razas participantes en competencia, escogido de la nómina de jueces reconocidos de la Asociación respectiva. El fallo de los Jueces será definitivo e inapelable.

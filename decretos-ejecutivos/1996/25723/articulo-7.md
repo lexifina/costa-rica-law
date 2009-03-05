@@ -1,1 +1,0 @@
-Artículo 7°—La Comisión estudiará las solicitudes presentadas y podrá solicitar cualquier información adicional que considere conveniente. Una vez completo el expediente respectivo la Comisión contará con un plazo de un mes calendario para comunicar por escrito su autorización o negativa a la celebración de la actividad, debiendo motivar su decisión en caso de ser negativa.
