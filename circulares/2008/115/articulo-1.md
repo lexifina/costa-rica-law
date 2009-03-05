@@ -35,14 +35,17 @@ Adquisición de otros bienes y servicios menores con cargo a las partidas 1 “s
 Artículo 3º—Prohibición. Queda prohibido el pago de gastos de transporte, alimentación y hospedaje de testigos, ofendidos, imputados y menores infractores, salvo a quienes por su estado de pobreza y que provengan de lugares lejanos, lo amerite según la tarifa autorizada por el Consejo Superior a juicio del responsable de la Caja Chica.
 (Así reformado en sesión de Corte Plena Nº 07-06, celebrada el 7 de febrero de dos mil seis, artículo XLIV. Tal modificación fue comunicada mediante Circular Nº 29-2006, publicada en el Boletín Judicial Nº 46 del 6 de marzo de 2006).
 CAPÍTULO II
-FUNCIONAMIENTO
+Funcionamiento
 Artículo 4º—Fondo Fijo. Los fondos de las Cajas Chicas Auxiliares operarán por medio del sistema de Fondo Fijo, lo que implica que los encargados de éstos, tendrán en todo momento, la suma total asignada, representada por uno o varios de los siguientes conceptos:
-a. Efectivo.
-b. Depósitos en cuenta corriente.
-c. Documentos originales (facturas, anticipos, liquidaciones, otros).
-d. Solicitudes de reintegro en trámite.
-e. Cheques de reintegro sin cambiar.
-f. Otros comprobantes.
+a) Efectivo.
+b) Depósitos en cuenta corriente.
+c) Documentos originales (facturas, anticipos, liquidaciones, otros).
+d) Solicitudes de reintegro en trámite.
+e) Cheques de reintegro sin cambiar.
+f) Otros comprobantes.
+Cuando el monto del fondo fijo supere la suma de ¢200.000.00 se deberá abrir una cuenta corriente en uno de los Bancos del Sistema Bancario. En el Manual de Procedimientos se regularán todas las actividades para el manejo y control de las Cajas Chicas Auxiliares, y se establecerá, según las características de cada oficina el porcentaje que se mantendrá en efectivo y en cuenta corriente.
+Se autoriza a los encargados de las Cajas Chicas Auxiliares a mantener una diferencia de más o menos en el efectivo, de hasta cincuenta colones, con ocasión de los faltantes o sobrantes debidamente justificados, que por diferencia, en el cambio de cheques y pago en efectivo se produzcan. En caso de sobrantes mayores a la suma supra indicada deberán ser depositados en la cuenta Nº 20192-8 de la Contaduría Judicial.”
+(Así reformado en sesión de Corte Plena 38-08 del 10 de noviembre de 20008, artículo XI)
 Artículo 5º—Autorización del Fondo. El monto del fondo fijo con el que operarán las Cajas Chicas Auxiliares, lo establecerá la Dirección Ejecutiva mediante resolución.
 Artículo 6º—Monto máximo de compra. La suma máxima de compra se establece conforme a la siguiente tabla:
 Monto Autorizado Porcentaje

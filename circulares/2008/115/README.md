@@ -13,3 +13,4 @@ Reforma Reglamento de Cajas Chicas Auxiliares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-16 | la propia norma |
+| 2 | 2009-03-05 | Circular 197 (2009-03-05) |
