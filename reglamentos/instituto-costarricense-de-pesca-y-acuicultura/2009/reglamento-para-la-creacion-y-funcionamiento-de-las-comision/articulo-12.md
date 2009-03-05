@@ -1,0 +1,1 @@
+Artículo 12.—En cualquiera de los casos citados anteriormente, corresponderá a la Junta Directiva del INCOPESCA, determinar si procede o no la separación del cargo. De ser así, procederá a nombrar a la persona para llenar la vacante para el resto del período legal.

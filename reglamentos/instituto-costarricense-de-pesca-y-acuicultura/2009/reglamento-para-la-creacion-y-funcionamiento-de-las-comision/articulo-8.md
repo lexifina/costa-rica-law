@@ -1,0 +1,1 @@
+Artículo 8º—Cuando con posterioridad al nombramiento se compruebe la existencia de alguno de los impedimentos a los que se refiere este inciso, quedará sin efecto la designación del miembro respectivo.

@@ -1,0 +1,1 @@
+Artículo 9º—En cualquiera de los casos especificados en el artículo 7, deberá informarse oportunamente a la Junta Directiva del INCOPESCA, a quien le corresponderá declarar o no la pérdida de la credencial.

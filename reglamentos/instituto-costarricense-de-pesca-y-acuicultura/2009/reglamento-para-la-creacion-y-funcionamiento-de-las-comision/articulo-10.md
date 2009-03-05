@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de las Comisiones Asesoras Regionales durarán en sus cargos cuatro años y funcionarán ad honorem. Serán nombrados en el mes de junio del mismo año en el que se inicie el período presidencial del Gobierno de la República; empezarán a ejercer sus funciones el primero de julio de ese mismo año y podrán ser reelegidos.
