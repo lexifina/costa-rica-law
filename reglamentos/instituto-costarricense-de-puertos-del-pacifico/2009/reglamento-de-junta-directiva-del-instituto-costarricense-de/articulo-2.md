@@ -1,0 +1,1 @@
+Artículo 2º—La Junta Directiva estará integrada por siete miembros que serán de nombramiento del Consejo de Gobierno, conforme a la Ley Orgánica del INCOP y sus reformas, así como lo establecido en la Ley de Presidencias Ejecutivas.

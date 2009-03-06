@@ -1,0 +1,16 @@
+# Reglamento (2009-02-13)
+
+Reglamento de Junta Directiva del Instituto Costarricense de Puertos del Pacífico
+
+- Tipo: Reglamento
+- Número: 3544
+- Fecha: 2009-02-13
+- Ente emisor: Instituto Costarricense de Puertos del Pacífico
+- Publicación: La Gaceta N° 46 del 2009-03-06
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=65003&param2=75753&param3=1 (ficha 65003)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-03-06 | la propia norma |
