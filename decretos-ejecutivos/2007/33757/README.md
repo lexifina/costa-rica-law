@@ -14,3 +14,4 @@ Reforma decreto que Reforma Plan Regional Desarrollo Urbano Gran Área Metropoli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-14 | la propia norma |
+| 2 | 2009-03-06 | SINALEVI (sin norma nombrada) |

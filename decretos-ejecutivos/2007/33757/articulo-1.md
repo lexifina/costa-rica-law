@@ -1,4 +1,5 @@
 (Anulada)
+(Anulado este Decreto mediante resolución de la Sala Constitucional N° 3684 del 06 de marzo del 2009.)
 Nº 33757
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA,
