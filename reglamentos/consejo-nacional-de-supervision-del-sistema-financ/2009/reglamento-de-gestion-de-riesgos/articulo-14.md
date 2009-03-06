@@ -4,7 +4,8 @@ Donde:
 RRCR: Requerimiento por riesgo crediticio
 lRC: Ponderador por riesgo crediticio
 VMi: Valor de mercado del título i
-Para efectos de este artículo, se utiliza el valor de mercado del título, cuando éste sea valorado; de lo contrario, se realiza con base en su costo amortizado. En ambos casos se incluyen los intereses acumulados.
+Para efectos de este artículo, se utiliza el valor de mercado del título, cuando éste sea valorado; de lo contrario, se realiza con base en su costo amortizado.
+(Así reformado el párrafo anterior en sesión N° 777 del 6 de marzo de 2009)
 El ponderador de riesgo crediticio se asigna según la calificación de riesgo otorgada a la emisión o al emisor y el plazo del título:
 CALIFICACIONES INTERNACIONALES
 Plazo | Moody’s | Standard & Poor´s | Fitch | Ponderador

@@ -14,3 +14,4 @@ Reglamento de Gestión de Riesgos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-27 | la propia norma |
+| 2 | 2009-03-06 | Reglamento 777 (2009-03-06) |
