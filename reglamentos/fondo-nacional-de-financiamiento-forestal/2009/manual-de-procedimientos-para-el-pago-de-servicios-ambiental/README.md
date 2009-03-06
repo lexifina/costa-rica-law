@@ -1,0 +1,16 @@
+# Reglamento (2009-01-28)
+
+Manual de Procedimientos para el pago de Servicios Ambientales
+
+- Tipo: Reglamento
+- Número: 1
+- Fecha: 2009-01-28
+- Ente emisor: Fondo Nacional de Financiamiento Forestal
+- Publicación: La Gaceta N° 46 del 2009-03-06
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64997&param2=75751&param3=1 (ficha 64997)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-03-06 | la propia norma |

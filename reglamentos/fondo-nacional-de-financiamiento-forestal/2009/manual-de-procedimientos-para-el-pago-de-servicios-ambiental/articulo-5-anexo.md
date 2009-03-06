@@ -1,0 +1,32 @@
+ANEXO 5
+INSTRUCTIVO PARA ELABORAR EL ESTUDIO TÉCNICO PARA
+PROYECTOS DE PROTECCIÓN DE BOSQUE, PROTECCIÓN DE BOSQUE EN
+VACÍOS DE CONSERVACIÓN, PROTECCIÓN DE RECURSO HÍDRICO Y
+PROYECTOS DE REGENERACION NATURAL
+El suscrito ____________, Nº colegiado ______, En mi calidad de Regente Forestal, con póliza de fidelidad Nº ______, amparado a la Ley Forestal, su reglamentación, sus modificaciones, reglamento de regencias forestales y la normativa vigente. Certifico el contenido del siguiente Estudio Técnico:
+1. Nombre de beneficiarios (as), números de cédula, folio(s) real (es), número(s) de plano, área(s) total (es) de folio(s), uso actual, ubicación administrativa, la dirección exacta de la(s) finca(s) y los colindantes encontrados en el campo.
+2. Número de formulario de regencia, fecha de visita.
+3. Indicar si el área se encuentra en un área silvestre protegida, señalando el nombre de la misma.
+4. Indicar la modalidad y el número de Presolicitud asignado de previo por la Oficina Regional respectiva.
+5. Para proyectos de protección de bosque, no se deberán detallar las áreas de protección, debido a que estas forman parte del área sujeta al PSA. Únicamente, será necesario cuantificar y deducir del área efectiva las áreas ocupadas por caminos primarios y patios de acopio e indicar la ubicación de áreas sujetas a contratos PSA anteriores vigentes. En el caso de espejos de agua (embalses o lagunas sin vegetación) que sobrepasen una hectárea, los mismos deberán considerarse y excluirse del área a compensar.
+6. En proyectos de protección de bosque en vacíos de conservación y protección de recurso hídrico, hacer una descripción de las características particulares de las áreas a someter.
+7. En sitios en vías de regeneración natural en potreros, debe certificarse el estado de la vegetación existente en el sitio y edad estimada de abandono.
+8. Para proyectos de regeneración natural con potencial productivo se debe certificar que al menos se encuentren 1240 brinzales de especies comerciales por hectárea o/y 720 latizales comerciales por hectáreas, dependiendo de la edad de iniciado el proceso de regeneración natural, según lo indicado en el Anexo 15. No se cuantificarán en estos tipos de vegetación, los árboles y palmas remanentes de bosque primario ni tocones con rebrotes múltiples La densidad de árboles remanentes no debe sobrepasar los 5 individuos por hectárea. Además de hacer una descripción de las labores de manejo.
+9. El plano de la propiedad debe estar georeferenciado con al menos tres puntos ubicados mediante GPS con el datum WGS 84 y en formato grados-decimales (GG.dddd). Dos de estos puntos como mínimo deben ser vértices del plano. Todos los puntos GPS, deben de estar a una distancia no menor a 50 metros entre ellos. (deben indicarse en el croquis, las ubicaciones de los puntos y se deben de aportar de forma digital mediante un archivo de puntos shape, en el mismo sistema de coordenadas del croquis, indicando la referencia de cada punto). La información, de los puntos GPS debe estar incluida.
+10. Asimismo, cada Estudio Técnico debe contener el croquis del área a someter a PSA con respecto al área total de la propiedad, indicando el derrotero y la numeración correspondiente de vértices, Debe indicarse el sistema empleado y exactitud del mismo; además debe amarrarse el punto de inicio (punto 1) del área a someter de un punto con coordenadas conocidas El croquis del área efectiva PSA, así como el croquis de la totalidad del plano debe entregarse impreso y en digital.
+El digital debe de cumplir con:
+- El archivo debe ser en formato Shape File de Arcview (polígono), no se admitirán otros formatos.
+- El archivo Shape debe venir nombrado con el número de solicitud asignado por la Oficina Regional (ejemplo, SJ01000108).
+- Se debe presentar un solo Shape que incluya en la tabla de atributos la cuantificación del área, uso (área PSA, resto de la finca) y el número de plano catastrado cuando sea el caso.
+- En caso de existir contratos vigentes, incluir la ubicación de los mismos.
+- El archivo debe presentarse georeferenciado en el sistema de coordenadas CRTM05 (oficializado mediante el Decreto Nº 33797-MJ-MOPT publicado en La Gaceta Nº 108 del miércoles 6 de junio del 2007) o bien en sistema de coordenadas geográficas, datum WGS84 y en formato grados decimales (GG.dddd).
+- Debe ser entregado en un disco compacto (cd).
+11. En el caso de los proyectos de PSA en territorios indígenas el regente deberá proporcionar tres puntos GPS de los vértices de los bloques mayores a 50 hectáreas, en áreas menores deberá aportarse la información de un punto de GPS, en el formato supra indicado.
+12. Las escalas a utilizar para áreas menores a treinta hectáreas deben de ser 1:5.000 a 1:10.000. Para el caso de áreas mayores pueden utilizarse a conveniencia profesional.
+13. Además, el Estudio deberá elaborarse con base al área legal del terreno, es decir la ‘superficie agraria’, definiéndose ésta como el área de una porción de terreno determinada por la proyección horizontal de su perímetro.
+14. Manifestación expresa de la existencia de otros contratos de PSA vigentes indicando el área, ubicación y certificando la cabida de los contratos.
+15. En caso de fincas en posesión o contratos por año vencido, el Regente debe certificar que el bosque fue protegido en los últimos doce meses.
+16. En inmuebles con arrendamientos debe certificarse que las áreas PSA están excluidas de las áreas en arriendo, esto en caso de que sea el propietario del inmueble que solicita el ingreso al PSA. Caso contrario, certificar que los arriendos corresponden efectivamente a áreas PSA solicitados por los arrendatarios.
+17. Solo se admitirán Estudios Técnicos Certificados que se refieran a planos cuyos desplazamientos en la ubicación cartográfica no superen los 500 metros, con respecto a lo indicado en el plano y la ubicación real de la finca. En los casos que supere los 500 metros se deberá adjuntar una certificación emitida por un topógrafo colegiado que indique la ubicación correcta del plano.
+18. En todos los casos, los Estudios Técnicos Certificados deben ser elaborados en papel de seguridad, contener el nombre, número de colegiado y firma del profesional responsable, la fecha de elaboración y con los timbres respectivos.
+Nota: Instalación de letreros preventivos, el rótulo debe de contener la siguiente información: nombre del beneficiario(a), modalidad, área PSA sometida y número de contrato forestal.
