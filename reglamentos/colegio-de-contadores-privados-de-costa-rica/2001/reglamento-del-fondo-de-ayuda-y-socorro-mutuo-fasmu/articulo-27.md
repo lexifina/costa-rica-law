@@ -1,1 +1,2 @@
-Artículo 27.—El producto neto anual del FASMU pasará a engrosar su patrimonio para su fortalecimiento financiero, con miras a mejorar las condiciones de factibilidad en el otorgamiento posterior de nuevos beneficios, previo estudio actuarial aprobado por la Asamblea General de Mutualistas, según el artículo 4° de este Reglamento.
+Artículo 27.—El producto neto anual del FASMU pasará a engrosar su patrimonio para su fortalecimiento financiero, con miras a mejorar las condiciones de factibilidad en el otorgamiento posterior de nuevos o mayores beneficios, previo estudio actuarial que deberá realizarse preferiblemente cada dos años.
+(Así reformado en sesión N° 01 del 8 de marzo de 2009)

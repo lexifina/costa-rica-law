@@ -1,9 +1,7 @@
 CAPÍTULO III
 Del financiamiento
-Artículo 4°—Los recursos económicos del FASMU estarán constituidos por:
-a) El aporte mensual de los mutualistas, cuyo monto se incluirá en los recibos oficiales de Colegio de Contadores Privados de Costa Rica.
-b) El producto que se obtenga de la inversión de sus reservas.
-c) Las donaciones o subvenciones que reciba.
-d) Cualquier otra renta o ingreso que pudiera producirse en su favor.
-En cada ocasión en que la asamblea general de Colegiados Mutualistas, previo estudio actuarial, apruebe mayores beneficios y el correspondiente incremento del aporte, el Consejo de Administración del FASMU estará autorizado para su aplicación.
-Todo incremento en los beneficios regirá al mes siguiente de recibida la nueva cuota establecida con ese propósito.
+Artículo 4º—Los recursos económicos del FASMU estarán constituidos por: El aporte mensual de los mutualistas, cuyo monto se incluirá en los recibos oficiales del Colegio de Contadores Privados de Costa Rica. La Cuota fijada será indexada a través del Presupuesto Ordinario del período siguiente de conformidad con el Índice de Precios al Consumidor.
+El producto que se obtenga de la inversión de sus reservas.
+Las donaciones o subvenciones que reciba.
+Cualquier otra renta o ingreso que pudiera producirse en su favor.
+(Así reformado en sesión N° 01 del 8 de marzo de 2009)
