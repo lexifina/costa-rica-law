@@ -1,0 +1,1 @@
+Artículo 10.—Disposiciones finales. La presente directriz es de acatamiento obligatorio para todos los funcionarios del MEIC. La Dirección de Gestión de Información tendrá la responsabilidad de verificar su cumplimiento en todas las unidades administrativas del MEIC.
