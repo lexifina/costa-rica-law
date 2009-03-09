@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de inciso h) del artículo 9º del presente Reglamento se deberá presentar además de los requisitos establecidos en el artículo 10, los solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General y presentar certificación de nacimiento literal expedida por el Registro Civil donde se demuestre la inscripción de la tutoría.

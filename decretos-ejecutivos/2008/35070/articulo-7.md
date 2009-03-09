@@ -1,0 +1,3 @@
+Artículo 7º—Del permiso de salida permanente. La Dirección General otorgará permisos permanentes de salida del país a personas menores de edad, cuando así lo soliciten los padres en forma personal o el tutor declarado judicialmente, cuya representación se encuentre debidamente inscrita en el Registro Civil.
+Se deberá indicar en el formulario la o las personas que acompañaran a la persona menor de edad, siendo esta información susceptible de modificación en cualquier momento.
+El permiso permanente tendrá una vigencia indefinida, contada a partir de su fecha de expedición y la persona menor de edad podrá salir del país las veces necesarias sin tener que realizar ninguna gestión ante la Dirección General, excepto si se requiere modificar los acompañantes.

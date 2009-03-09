@@ -1,0 +1,1 @@
+Artículo 17.—En el caso del inciso f) del artículo 9º del presente Reglamento, además de los requisitos generales señalados en el artículo 10, los solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General. El poder especial ya debe estar en la Dirección, y cumplir con los requisitos del artículo 22 de este Reglamento.

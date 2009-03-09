@@ -1,0 +1,1 @@
+Artículo 14.—En el caso del inciso c) del artículo 9º del presente Reglamento, además de los requisitos generales señalados en el artículo 10, los solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General y presentar la resolución en firme del PANI.

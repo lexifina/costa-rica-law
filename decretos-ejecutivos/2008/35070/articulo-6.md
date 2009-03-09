@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+De la autorización temporal y permanente
+Artículo 6º—Del permiso de salida temporal. La Dirección General otorgará permisos temporales de salida del país a personas menores de edad, cuando así lo soliciten quienes ejerzan la representación legal, ya sea en ejercicio de la autoridad parental o en virtud de resolución judicial o administrativa donde así se señale. Los padres o representantes legales deberán indicar en el formulario la o las personas que acompañarán a la persona menor de edad, siendo esta información susceptible de modificación en cualquier momento.
+El permiso temporal tendrá una vigencia de 30 días naturales, contados a partir de la fecha de su otorgamiento y podrá ser utilizado para una o varias salidas del país, dentro del período autorizado, cuando así lo soliciten.

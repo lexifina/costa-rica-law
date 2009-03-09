@@ -1,0 +1,1 @@
+Artículo 15.—En el caso del inciso d) del artículo 9º del presente Reglamento, además de los requisitos generales señalados en el artículo 10, los solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General y presentar la autorización debidamente autenticada por el Cónsul de Costa Rica en el país más cercano.
