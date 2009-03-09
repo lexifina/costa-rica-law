@@ -14,3 +14,4 @@ Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-26 | la propia norma |
+| 2 | 2009-03-09 | Decreto Ejecutivo 35193 (2009-03-09) |

@@ -7,4 +7,5 @@ e) Poner a discusión los asuntos, someter a votación las propuestas de los acu
 f) Verificar y declarar el resultado de la votación en cada caso, para lo cual podrá apoyarse en la Secretaría de Actas de la Junta Directiva.
 g) Velar porque los acuerdos, resoluciones, directrices y órdenes de la Junta Directiva cumplan las leyes y reglamentos relativos a su función.
 h) En caso de empate en la votación, ejercer doble voto.
-i) En caso de ausencia o de enfermedad, y en general, cuando concurra alguna causa justa, el Presidente será sustituido por su suplente; en su defecto, por un Presidente ad hoc elegido por votación de dos tercios de los miembros de la Junta Directiva.
+i) En caso de ausencia o de enfermedad, y en general, cuando concurra alguna causa justa, el Presidente será sustituido por su suplente; en su defecto, por un Presidente ad hoc elegido por mayoría simple del quórum de la Junta Directiva.
+( Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo 35193 del 09 de marzo del 2009)
