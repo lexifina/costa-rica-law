@@ -1,5 +1,2 @@
-ARTÍCULO 39.- La Dirección, Subdirección y las jefaturas de los
-servicios técnicos y catastrales, deberán ser ocupadas por ingenieros
-topógrafos y geodestas, con título otorgado por una institución de
-educación superior, debidamente incorporados al colegio respectivo. Todo
-siguiendo los procedimientos establecidos por el Servicio Civil.
+Artículo 39.- Las jefaturas de la Oficina de Catastro Nacional, así como las jefaturas de los servicios técnicos catastrales, serán ocupadas por ingenieros topógrafos y geodestas, con título otorgado por una institución de Educación Superior y debidamente incorporados al colegio respectivo; todo siguiendo los procedimientos establecidos por el Servicio Civil.
+(Así reformado por el Artículo 2° de la Ley N° 8710 de 3 de febrero de 2009).
