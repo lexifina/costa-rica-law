@@ -1,1 +1,0 @@
-Artículo 9º—El presente Reglamento fue aprobado por parte de la Junta Directiva General, mediante acuerdo tomado en el artículo 19 de la sesión N° 7497/2002, celebrada el 18 de febrero del 2002, y rige a partir de su publicación en el Diario Oficial La Gaceta."
