@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese el párrafo tercero al artículo 32 del Reglamento de Facilidades de Capacitación para los Funcionarios del Tribunal Supremo de Elecciones y Registro Civil, cuyo texto se leerá:
+“Tratándose del otorgamiento de permisos de estudio y de becas cuyo costo no supere el monto antes señalado, el beneficiario suscribirá ante la Sección de Capacitación un “compromiso de cumplimiento”, documento en el que constarán los deberes y obligaciones derivadas del otorgamiento del beneficio, así como las eventuales consecuencias de su incumplimiento.”
