@@ -1,0 +1,3 @@
+III. Del trámite de los usuarios externos
+Artículo 19.—Del trámite de las solicitudes de los usuarios externos. Una vez recibida la solicitud enviada por la Oficina Única Institucional de la Dependencia interesada; la Oficina Única Institucional del ICD llevará a cabo un Acta de Entrega; la cual deberá ser suscrita por el encargado de la Oficina Única del ICD y por el Encargado Responsable de la Dependencia beneficiaria.
+El Acta original se incorpora como parte integral del expediente administrativo y permanecerá en poder del ICD y una copia será entregada a la Oficina Única Institucional de la Dependencia beneficiaria.

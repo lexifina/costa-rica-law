@@ -1,0 +1,6 @@
+Artículo 26.—De la rescisión: Los Convenios de préstamo suscritos con servidores internos o de pleno derecho del ICD o las Actas Entrega de los usuarios externos; serán rescindidos y sin responsabilidad para la Administración, en los siguientes casos:
+a) En los casos del servicio de pago de mensualidades correspondientes al uso de telefonía celular, cuando se hayan agotado los recursos destinados a programas preventivos o represivos, consagrados en los incisos a) y b) de los artículos 85 y 87 de la Ley 8204.
+b) Cuando las necesidades que justificaron el préstamo de teléfono celular o línea de comunicación o la asignación del servicio de pago de mensualidades correspondientes a la tarifa por uso de telefonía celular, hayan cesado o variado.
+c) Cuando se modifique la configuración del servicio en cuanto a número telefónico, servicios, entre otros, o cualquier otra que dificulte o impida mantener control adecuado sobre su uso.
+d) En cualquier momento, sea por desaparición de las necesidades de la Institución o por cualquier otra razón que el Consejo discrecionalmente determine, sin que deba mediar justificación de ninguna naturaleza.
+e) Por caso fortuito o fuerza mayor, debidamente demostrado.

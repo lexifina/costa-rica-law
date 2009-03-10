@@ -1,0 +1,10 @@
+CAPÍTULO IV
+De las obligaciones y responsabilidades
+Artículo 27.—Obligaciones de los funcionarios: Serán obligaciones de los usuarios internos, externos y de pleno derecho que utilizan los servicios de telefonía celular las siguientes:
+a) El préstamo de teléfonos celulares o líneas de comunicación propiedad del ICD o servicio de pago de mensualidades correspondientes al uso de telefonía celular, no se considera como salario en especie, ni dará derechos adquiridos, tampoco se considerará un beneficio personal, por lo que el funcionario no tendrá derecho alguno a cobrar ninguno de los servicios antes mencionados como parte del pago por concepto de prestaciones laborales. Dicho servicio podrá ser retirado en cualquier momento, sin responsabilidad para la Administración.
+b) El pago de la tarifa, según lo establecido en el artículo 29 y siguientes de este Reglamento. Para el cobro del excedente, los funcionarios del ICD autorizarán expresamente que se cancele vía deducción automática de la planilla, previo informe de la Unidad Administrativa.
+c) Reportar en forma inmediata y por escrito a la Unidad Administrativo Financiera, para que se haga la reparación correspondiente de cualquier anomalía, desperfecto o mal funcionamiento, en el uso del teléfono celular.
+d) No debe realizar llamadas internacionales de los teléfonos celulares asignados por parte de la Institución, salvo lo establecido en el artículo 29 inciso b).
+e) Cuando exista un excedente no cubierto por el ICD, la institución beneficiaria junto con el encargado responsable y el beneficiario responderán solidariamente al ICD por el monto correspondiente al excedente según lo adeudado, dentro del plazo de 30 días naturales.
+f) Indicar y detallar si lo requerido es para el préstamo de teléfonos celulares o para el uso de líneas de comunicación u para obtener el servicio de pago de mensualidades correspondientes al uso de telefonía celular.
+g) Utilizar el teléfono celular o el pago de servicios de telefonía celular únicamente para efectos relacionados con la atención de labores oficiales propias del cargo.

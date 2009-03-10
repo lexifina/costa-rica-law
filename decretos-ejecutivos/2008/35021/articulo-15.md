@@ -1,0 +1,1 @@
+Artículo 15.—Del trámite ante el Consejo: Una vez vertidos los criterios de las Unidades de Asesoría Legal y Administrativa Financiera, la Dirección General procederá a presentarlos ante el Consejo Directivo, para que este apruebe o impruebe lo solicitado.

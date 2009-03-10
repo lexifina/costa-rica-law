@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: El presente Reglamento se aplicará a todos los servidores del ICD y a las instituciones beneficiarias que cuenten con un Convenio Marco vigente; que soliciten en calidad de préstamo teléfonos celulares o líneas de comunicación propiedad del ICD u obtener el servicio de pago de mensualidades correspondientes al uso de telefonía celular.
