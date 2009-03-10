@@ -1,2 +1,0 @@
-Artículo 5º—Integración. Cada Junta Directiva Local estará conformada por tres miembros vecinos de la zona geográfica en que opera la Oficina Comercial, siendo nombrados por períodos de cuatro años. Cada Junta Directiva Local elegirá de su seno un Presidente y un Vicepresidente, que tendrán las atribuciones inherentes a sus respectivos cargos.
-El gerente de la Oficina Comercial, participará en las sesiones como secretario de la Junta Directiva Local.

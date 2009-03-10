@@ -1,1 +1,0 @@
-Artículo 8º—Dietas. La asistencia puntual de los miembros de las Juntas Directivas a las sesiones les dará el derecho al cobro de dietas fijas, que irán establecidas claramente en los presupuestos anuales del Banco y serán definidas por la Junta Directiva General. Esas serán las únicas remuneraciones que podrán percibir por sus servicios en el desempeño de sus funciones.

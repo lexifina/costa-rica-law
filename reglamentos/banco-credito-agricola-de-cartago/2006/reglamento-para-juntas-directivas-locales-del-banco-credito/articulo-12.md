@@ -1,1 +1,0 @@
-Artículo 12.—Derecho de veto suspensivo. El Gerente de la Oficina Comercial tendrá derecho de veto suspensivo en relación con los acuerdos de la Junta Directiva Local, que en tal caso pasarán a conocimiento de la Junta Directiva General del Banco para su resolución definitiva.

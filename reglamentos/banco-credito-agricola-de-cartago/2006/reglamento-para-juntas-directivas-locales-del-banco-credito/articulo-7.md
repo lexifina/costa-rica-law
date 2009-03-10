@@ -1,1 +1,0 @@
-Artículo 7º—Asistencia de otros funcionarios a las sesiones. Los miembros de la Junta Directiva General, el Gerente, los Subgerentes, el Auditor, el Subauditor y otros funcionarios, podrán asistir en funciones de su cargo, a las Sesiones de las Juntas Directivas Locales, con derecho a voz pero no a voto.
