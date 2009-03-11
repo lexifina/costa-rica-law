@@ -14,3 +14,4 @@ Reglamento para la aprobación de variaciones al presupuesto del Banco Central d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-29 | la propia norma |
+| 2 | 2009-03-11 | Reglamento 5416 (2009-03-11) |
