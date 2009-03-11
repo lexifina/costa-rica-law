@@ -1,0 +1,3 @@
+Transitorio: Aquellos funcionarios que a la fecha de aprobación de este Reglamento mantengan periodos de vacaciones acumulados, deben disfrutarlos en los 24 meses siguientes a la aprobación de este reglamento. El titular de la Oficina de Recursos Humanos o superior jerárquico debe programar las vacaciones de este personal, a fin de que disfruten los saldos acumulados de periodos anteriores y se ajusten a lo dispuesto en los Artículos 5 y 9 de este Reglamento.
+Aprobado por la honorable Corporación Municipal, en su sesión ordinaria Nº 34, celebrada el lunes 22 de diciembre del 2008, bajo el artículo V, inciso a).
+Limón, enero del 2009.

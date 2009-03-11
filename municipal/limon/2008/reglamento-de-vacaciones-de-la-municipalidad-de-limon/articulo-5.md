@@ -1,0 +1,1 @@
+Artículo 5º—Del disfrute de vacaciones. El personal administrativo disfrutará sus vacaciones dentro de las quince semanas siguientes a la fecha en que adquiera el derecho, así como en los períodos de receso oficial de la Institución. En casos justificados y con autorización de su superior jerárquico, y el visto bueno del Alcalde Municipal, podrá acordarse otra fecha.

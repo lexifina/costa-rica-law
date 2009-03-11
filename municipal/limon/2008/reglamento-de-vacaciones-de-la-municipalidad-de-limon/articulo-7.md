@@ -1,0 +1,1 @@
+Artículo 7º—De la terminación del contrato de trabajo. En caso de terminación del contrato de trabajo antes de cumplirse el período legal de cincuenta semanas, con el cual se adquiere el derecho al disfrute de un período completo de vacaciones, se le pagará al servidor un dozavo de las vacaciones que correspondan por cada mes trabajado o fracción mayor de quince días.

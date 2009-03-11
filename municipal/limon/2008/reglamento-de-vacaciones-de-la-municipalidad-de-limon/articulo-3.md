@@ -1,0 +1,1 @@
+Artículo 3º—De los días hábiles. Los “días hábiles” son los días regulares de trabajo que no corresponden al descanso semanal obligatorio, a los días feriados establecidos por el Artículo 147 del Código de Trabajo y a los días de asueto que conceda la Municipalidad de Limón
