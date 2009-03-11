@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 19° del decreto ejecutivo N° 35216 del 11 de marzo del 2009).
 Nº 29279-MINAE-MAG
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA
