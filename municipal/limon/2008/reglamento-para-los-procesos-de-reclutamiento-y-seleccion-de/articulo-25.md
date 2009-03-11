@@ -1,0 +1,3 @@
+Artículo 25.—Nombramiento por inopia. A falta de oferentes que cumplan con los requisitos exigidos por los Manuales Descriptivo de Clases de Puestos para un determinado cargo, de forma excepcional, se podrán nombrar interinamente oferentes que, sin reunir la totalidad de los requisitos, hayan cumplido satisfactoriamente las valoraciones y la evaluación psicológica establecidas en los artículos 17 y 18 del presente reglamento respectivamente.
+El nombramiento de tales servidores será temporal, mientras no haya oferentes que reúnan la totalidad de los requisitos exigidos y sean declarados idóneos.
+En tales casos, el nombramiento deberá ser precedido por un acto administrativo motivado en el que se declare la condición de inopia.
