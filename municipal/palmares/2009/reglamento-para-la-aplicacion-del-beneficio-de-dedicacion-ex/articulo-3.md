@@ -1,0 +1,4 @@
+Artículo 3º—De los objetivos del beneficio. El Beneficio de la Dedicación Exclusiva tiene como principales objetivos los siguientes:
+a) Obtener del servidor municipal su completa dedicación a la función institucional pública no sólo aportando los conocimientos que se deriven de su profesión u oficio, sino también evitando así su fuga hacia otras organizaciones, privando de esta manera a la Administración Municipal de funcionarios idóneos y capaces.
+b) Servir como incentivo motivador a la obtención del más alto nivel académico buscando con ello la superación personal y la profesionalización de los servicios municipales.
+c) Dotar a la Municipalidad del recurso humano idóneo que le permita mejorar significativamente su gestión y así poder lograr un desarrollo local integral en beneficio de los palmareños.

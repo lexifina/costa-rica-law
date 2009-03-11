@@ -1,0 +1,1 @@
+Artículo 10.—Término para resolver la solicitud. La Administración y la Coordinación de Recursos Humanos Municipal deberán resolver la aprobación o rechazo de la solicitud en un plazo máximo e improrrogable de diez días hábiles a partir del día inmediato siguiente del de la fecha de presentación.

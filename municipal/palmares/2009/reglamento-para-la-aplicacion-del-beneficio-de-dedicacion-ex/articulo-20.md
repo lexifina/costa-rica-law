@@ -1,0 +1,2 @@
+Artículo 20.—Vigencia del Reglamento. Este Reglamento rige desde su publicación en el Diario Oficial La Gaceta y los funcionarios que consideren que pueden optar por el beneficio podrán hacer sus solicitudes desde la vigencia de este Reglamento.
+Palmares, 29 de enero del 2009.
