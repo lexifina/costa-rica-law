@@ -1,1 +1,0 @@
-Artículo 36.—Publicación de incumplimientos de los asociados. El BCCR actualizará y publicará periódicamente en el sitio Web del Sistema de Pagos, los incumplimientos de los asociados u otros actos relevantes relacionados con el marco normativo, que afecten la calidad de los servicios que prestan a sus clientes.

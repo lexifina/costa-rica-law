@@ -1,2 +1,0 @@
-Artículo 276.—Recuperación de faltantes. Cuando la ejecución de garantías no sea suficiente para cubrir las obligaciones financieras del deudor, el BCCR debitará el faltante de su cuenta de fondos o procurará su recuperación mediante las vías dispuestas por el ordenamiento jurídico vigente.
-En caso de que el faltante no se logre recuperar, será distribuido proporcionalmente entre los acreedores de acuerdo con el monto de las exposiciones crediticias incumplidas.

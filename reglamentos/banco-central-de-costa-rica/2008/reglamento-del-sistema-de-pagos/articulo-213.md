@@ -1,1 +1,0 @@
-Artículo 213.—Otros usos del numerario. El uso del numerario o su representación gráfica para fines publicitarios u otros no monetarios, deberá ajustarse a las normas que al respecto dicte el BCCR. En ningún caso tales usos deberán inducir a falsificación, timo o cualquier otro tipo de ilícito.

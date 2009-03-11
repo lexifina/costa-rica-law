@@ -1,1 +1,0 @@
-Artículo 116.—Pignoración de valores. Los valores que se pignoren permanecerán inmovilizados en su cuenta y serán liberados cuando cesen las causas por las cuales fueron pignorados, luego de que la entidad responsable de su administración registre la respectiva despignoración.

@@ -1,1 +1,0 @@
-Artículo 371.—Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades, pudiendo hacer un manejo agregado de la misma para apoyar su función de vigilancia y los esfuerzos de modernización del sistema de pagos costarricense.

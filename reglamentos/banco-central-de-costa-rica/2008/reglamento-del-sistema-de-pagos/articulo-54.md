@@ -1,1 +1,0 @@
-Artículo 54.—Tipo de movimientos por moneda. Los movimientos en moneda nacional sobre las cuentas de fondos se efectuarán con dinero efectivo o por los medios electrónicos de que disponen los servicios del SINPE. Los movimientos en moneda extranjera deberán realizarse únicamente en forma electrónica.

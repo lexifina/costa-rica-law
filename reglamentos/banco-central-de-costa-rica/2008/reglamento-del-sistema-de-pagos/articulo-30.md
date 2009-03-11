@@ -1,1 +1,0 @@
-Artículo 30.—Responsabilidad por plazos de acreditación. La obligatoriedad en el cumplimiento de la acreditación al cliente rige desde el momento en que el SINPE reciba la transacción, por lo que la entidad financiera será responsable frente a su cliente por el tiempo que consuman los trámites previos a la recepción de la transacción en el SINPE.

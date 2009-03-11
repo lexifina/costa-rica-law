@@ -1,1 +1,0 @@
-Artículo 229.—Potestad sobre el numerario. El BCCR podrá disponer del numerario que las entidades financieras hayan depositado en las CAN, cuando por situaciones especiales requiera atender necesidades de entidades que no administren CAN o de aquellas que, administrándolas, deban atender demandas extraordinarias de numerario.

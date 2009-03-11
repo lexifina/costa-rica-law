@@ -1,1 +1,0 @@
-Artículo 157.—Incorporación de acuerdos. Los acuerdos que adopte la Junta Directiva del BCCR, en relación con la disponibilidad, forma de negociación y características de los instrumentos de captación ofrecidos, se tendrán por incorporados automáticamente al presente reglamento.

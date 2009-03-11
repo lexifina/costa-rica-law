@@ -1,1 +1,0 @@
-Artículo 183.—Depósito de garantías. Para captar recursos con créditos garantizados, el participante deberá previamente depositar valores en una cuenta de garantía o aportar garantías líquidas mantenidas en el BCCR, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.

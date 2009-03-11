@@ -1,1 +1,0 @@
-Transitorio II.—Obligatoriedad para ofrecer los servicios del SINPE. La obligatoriedad para las entidades financieras de ofrecer los servicios del SINPE a sus clientes rige a partir del 1 de enero del 2009.

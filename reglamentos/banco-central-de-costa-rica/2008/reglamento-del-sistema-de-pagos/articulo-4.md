@@ -1,2 +1,0 @@
-Artículo 4º—Cumplimiento del marco regulatorio. Con su participación en el SINPE, los asociados deben sujetarse a las disposiciones establecidas en el presente reglamento y cumplir con los lineamientos y acuerdos definidos en los libros de la Serie de Normas y Procedimientos.
-Es responsabilidad del asociado conocer las disposiciones del marco normativo, el cual tendrá a su disposición en línea a través del SINPE.

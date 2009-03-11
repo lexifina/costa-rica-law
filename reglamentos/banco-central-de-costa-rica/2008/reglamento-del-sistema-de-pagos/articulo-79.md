@@ -1,1 +1,0 @@
-Artículo 79.—Validación en el destino de los cheques truncados. La entidad destino efectuará el débito al cliente destino con la información electrónica recibida de los cheques truncados y será responsable de todos los aspectos relacionados con las validaciones electrónicas definidas en las normas complementarias del servicio.

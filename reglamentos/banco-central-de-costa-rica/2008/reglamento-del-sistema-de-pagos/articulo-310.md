@@ -1,1 +1,0 @@
-Artículo 310.—Autorización mancomunada. La creación de cualquier ARS, RST, RSP, DDU, consultante o usuario, la asignación o modificación de perfiles o cualquier acción que implique otorgar nuevos derechos de uso de funcionalidades en el SINPE, requiere de la autorización en forma mancomunada de dos responsables de seguridad.

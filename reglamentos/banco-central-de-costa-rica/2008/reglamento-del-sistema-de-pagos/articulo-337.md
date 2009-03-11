@@ -1,1 +1,0 @@
-Artículo 337.—Usos legítimos del certificado. Las partes confiantes deberán utilizar los certificados solamente en aplicaciones de negocio autorizadas y funciones criptográficas apropiadas, tales como verificación de firma digital, encripción y otros detallados en las políticas establecidas en la PC.

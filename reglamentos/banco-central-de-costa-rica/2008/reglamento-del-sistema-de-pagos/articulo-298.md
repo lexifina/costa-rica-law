@@ -1,2 +1,0 @@
-Artículo 298.—Conexión de estaciones de trabajo. Los asociados deberán habilitar, como mínimo, dos estaciones de trabajo para la operación de cada uno de los servicios del SINPE, las cuales deberán estar ubicadas en su casa matriz.
-Las estaciones conectadas al SINPE podrán utilizarse para la operación de todos los servicios que utiliza la entidad, debiendo cada uno de sus usuarios estar autorizados en al menos dos de las estaciones conectadas para un mismo servicio.

@@ -1,1 +1,0 @@
-Artículo 333.—Demostración de la identidad. Es responsabilidad de los solicitantes presentar las credenciales completas y precisas que permitan demostrar su identidad, en el momento que solicite la emisión de un certificado, así como entender y acatar las condiciones de uso y administración del mismo, todo ello cumpliendo con lo establecido en la PC correspondiente.

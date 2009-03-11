@@ -1,1 +1,0 @@
-Artículo 115.—Condiciones para el cierre de una cuenta. El cierre de una cuenta de valores podrá ejecutarse sólo después de que se haya liquidado su saldo y la cuenta no mantenga operaciones pendientes de liquidación.

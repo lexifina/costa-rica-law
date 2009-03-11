@@ -1,1 +1,0 @@
-Artículo 161.—Conciliación de operaciones. Los inversionistas son responsables de conciliar diariamente el estado de sus operaciones y de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

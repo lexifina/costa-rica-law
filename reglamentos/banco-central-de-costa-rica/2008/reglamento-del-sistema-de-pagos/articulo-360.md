@@ -1,1 +1,0 @@
-Artículo 360.—Excepción al derecho de reclamo. Las transacciones de débito realizadas con el respaldo de una domiciliación están sujetas a la aplicación del mecanismo de cobro revertido, no así las transacciones en las que el cliente origen y destino corresponden a la misma persona.

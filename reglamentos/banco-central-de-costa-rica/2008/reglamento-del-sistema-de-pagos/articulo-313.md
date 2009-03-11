@@ -1,1 +1,0 @@
-Artículo 313.—Responsabilidad sobre transacciones. El asociado asume total responsabilidad sobre cualquier transacción realizada por un usuario que haya sido autorizado por sus RST o RSP, así como cuando no pueda operar en el sistema debido a la falta de los RST o RSP requeridos para asignar derechos a los usuarios internos.

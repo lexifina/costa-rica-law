@@ -1,4 +1,0 @@
-Artículo 206.—Categorías de billete. El billete emitido por el BCCR se clasifica en las siguientes categorías:
-a) Nuevo: billete que no ha sido puesto en circulación. Su empaque y unidad de medida son los originales de fabricación.
-b) Circulable: billete que mantiene su tamaño y seguridades originales, así como un adecuado nivel de limpieza y rigidez. Es apto para realizar transacciones.
-c) Deteriorado: billete que por su uso natural muestra signos de deterioro como suciedad, decoloración y flacidez, entre otros. Asimismo, conserva al menos el 60% de su tamaño original, una serie y una numeración. Puede presentar daños como roturas, rayas, sellos, manchas, perforaciones, mutilaciones, textos u otros elementos diferentes de los propios. Fracciones menores al 60% del tamaño original, perderán su valor de curso legal.

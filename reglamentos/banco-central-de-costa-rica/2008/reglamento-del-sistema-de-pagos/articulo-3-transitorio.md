@@ -1,1 +1,0 @@
-Transitorio III.—Obligatoriedad de certificación de usuarios. Todos los usuarios del SINPE deberán estar debidamente certificados para operar en el sistema a más tardar el 1 de enero del 2010. A partir de esta fecha el usuario que no esté debidamente certificado no podrá operar en el SINPE.

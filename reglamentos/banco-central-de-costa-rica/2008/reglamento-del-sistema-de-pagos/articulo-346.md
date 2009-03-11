@@ -1,7 +1,0 @@
-CAPÍTULO IV
-Del ciclo del servicio
-Artículo 346.—Ciclo de operación del servicio. El ciclo del servicio ADA se efectuará de conformidad con las siguientes etapas:
-a) Transmisión de las domiciliaciones electrónicas: La entidad origen envía un archivo con la información detallada de todas las domiciliaciones electrónicas recibidas de sus clientes. Posterior al cierre de esta etapa, cada asociado recibirá un archivo con la información de las domiciliaciones electrónicas que los demás asociados han tramitado para las cuentas de sus clientes.
-b) Intercambio de domiciliaciones físicas: Los delegados de cada asociado intercambian en la reunión de intercambio físico las domiciliaciones físicas correspondientes al archivo electrónico enviado.
-c) Validación y autorización de la domiciliación: La entidad destino valida automáticamente el archivo de domiciliaciones electrónicas con sus sistemas internos. Para cada domiciliación electrónica cuya validación sea exitosa, también valida que la domiciliación física respectiva corresponda con su registro de firmas. Finalmente, registra en sus sistemas internos las domiciliaciones aceptadas.
-d) Transmisión electrónica de rechazos: La entidad destino envía un archivo con la información detallada de todas las domiciliaciones recibidas en las etapas anteriores del ciclo, que resulten rechazadas durante los procesos de validación correspondientes. Posterior al cierre de esta etapa, cada asociado recibe un archivo electrónico con la información de las domiciliaciones rechazadas por los demás asociados.

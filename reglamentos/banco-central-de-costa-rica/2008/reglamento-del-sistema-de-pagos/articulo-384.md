@@ -1,1 +1,0 @@
-Artículo 384.—Vigencia del reglamento. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deja sin efecto el aprobado por la Junta Directiva del BCCR en la sesión Nº 5296-2006, del 20 de setiembre de 2006, y publicado en el Diario Oficial La Gaceta Nº 191, del 5 de octubre de 2006.

@@ -1,1 +1,0 @@
-Artículo 325.—Funciones de los registradores. Los registradores son los encargados de validar la identidad de los suscriptores de certificados, y de tramitar las solicitudes de emisión, revocación, renovación, suspensión o restablecimiento de los certificados, así como su entrega.

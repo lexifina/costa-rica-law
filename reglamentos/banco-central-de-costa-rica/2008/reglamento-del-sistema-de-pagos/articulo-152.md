@@ -1,1 +1,0 @@
-Artículo 152.—Traspasos con cambio de titularidad. Las entidades de custodia sólo podrá realizar traspasos con cambio de titularidad cuando correspondan a operaciones no onerosas y siempre que las mismas se tramiten de acuerdo con el ordenamiento jurídico aplicable.

@@ -1,1 +1,0 @@
-Artículo 303.—Mecanismos de optimización de liquidez. El BCCR implementará en forma paulatina diversos mecanismos de optimización de liquidez, con el fin de liquidar los mercados financieros utilizando la menor cantidad de fondos dentro de un adecuado ambiente de control de riesgos.

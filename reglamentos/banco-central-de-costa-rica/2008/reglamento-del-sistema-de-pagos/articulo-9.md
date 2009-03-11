@@ -1,1 +1,0 @@
-Artículo 9º—Número de referencia de las operaciones. Los asociados tendrán la responsabilidad de asociar un número de referencia a cada una de las transacciones ordenadas a través del SINPE, según el estándar definido en las normas complementarias respectivas.

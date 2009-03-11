@@ -1,1 +1,0 @@
-Artículo 291.—Condiciones de la SAO. La SAO deberá contar con las condiciones físicas y los recursos necesarios que garanticen a los asociados la operación adecuada del SINPE en sus instalaciones, conforme con las especificaciones contenidas en las normas complementarias del servicio.

@@ -1,1 +1,0 @@
-Artículo 28.—Determinación de sanciones. Las sanciones y multas consignadas en el artículo 69 de la Ley 7558 serán determinadas por el Director del Departamento de Sistema de Pagos del BCCR, quien fungirá como órgano decisorio de los procedimientos administrativos.

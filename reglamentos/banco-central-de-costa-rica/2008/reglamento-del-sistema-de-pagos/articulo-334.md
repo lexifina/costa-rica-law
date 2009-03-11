@@ -1,1 +1,0 @@
-Artículo 334.—Medidas de prevención. Es responsabilidad de los suscriptores cumplir con los requerimientos de protección de su llave privada, por lo cual deberán implementar medidas razonables para prevenir su pérdida, acceso, modificación o uso no autorizado.

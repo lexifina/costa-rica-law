@@ -1,1 +1,0 @@
-Transitorio IV.—Obligatoriedad de uso de grabación digital. A partir del 2 de enero de 2009 el Circuito Cerrado de Televisión (CCTV), utilizado por las entidades en las Custodias Auxiliares de Numerario (CAN), deberá utilizar grabación totalmente digital, según se establezca en las normas complementarias del servicio CAN.

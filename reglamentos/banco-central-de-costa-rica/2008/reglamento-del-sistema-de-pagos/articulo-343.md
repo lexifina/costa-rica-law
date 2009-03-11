@@ -1,2 +1,0 @@
-Artículo 343.—Presentación de la domiciliación física. El cliente origen debe presentar la domiciliación física y la domiciliación electrónica ante su entidad financiera (entidad origen), para que ésta a su vez gestione ante la entidad destino la autorización requerida para iniciar el proceso de cobro.
-La domiciliación física y electrónica no será requerida cuando el cliente origen sea el mismo cliente destino.

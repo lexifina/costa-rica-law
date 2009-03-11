@@ -1,1 +1,0 @@
-Artículo 324.—Funcionamiento del certificador del BCCR. El funcionamiento del certificador del BCCR se rige de acuerdo con los lineamientos establecidos en su PC y su DPC, así como por lo que establecen el presente reglamento y las normas complementarias del servicio.

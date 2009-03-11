@@ -1,3 +1,0 @@
-CAPÍTULO V
-De las responsabilidades
-Artículo 134.—Representación de emisores. Los representantes de los emisores son responsables de la suscripción y administración de las emisiones de la entidad que representan, así como de las actividades que contemplen en el acuerdo de representación.

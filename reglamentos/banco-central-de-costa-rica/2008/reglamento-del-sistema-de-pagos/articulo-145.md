@@ -1,1 +1,0 @@
-Artículo 145.—Incumplimiento del archivo de liquidación. Cuando exista una incidencia de valores o fondos, y el horario de operación del servicio finalice sin que el emisor o miembro liquidador responsable la haya atendido satisfactoriamente, el BCCR procederá a decretar el incumplimiento del archivo de liquidación e informará la situación a la SUGEVAL.

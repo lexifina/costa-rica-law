@@ -1,1 +1,0 @@
-Artículo 356.—Prescripción del derecho de reclamo. El periodo para ejercer el derecho de reclamo prescribe a los 100 días naturales de haber sido procesada la transacción reclamada, por lo que a partir de la expiración de este plazo la misma se considera finalizada y no podrá ser sujeta de reclamación en el futuro mediante el SINPE.

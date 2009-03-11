@@ -1,1 +1,0 @@
-Artículo 370.—Suministro de información. Los asociados y las instituciones mencionadas en el presente libro, deberán suministrar la información de conformidad con las especificaciones definidas en la norma complementaria que para esos efectos elaborará el BCCR.

@@ -1,1 +1,0 @@
-Artículo 209.—Procesamiento del billete. Proceso que comprende al menos la verificación de la autenticidad del billete, su conteo físico y su clasificación en una de las categorías establecidas en este capítulo.

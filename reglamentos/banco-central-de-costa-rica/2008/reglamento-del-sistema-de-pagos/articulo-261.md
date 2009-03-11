@@ -1,1 +1,0 @@
-Artículo 261.—Valoración. Los valores aportados en garantía serán valorados diariamente a precios de mercado. Por lo tanto, las emisiones que carezcan de una referencia de mercado sin que razonablemente pueda determinarse su precio por otros medios, no podrán admitirse como garantía.
