@@ -1,0 +1,1 @@
+Artículo 25.—Si un puesto fuere reclasificado o revalorado con una categoría superior, el funcionario administrativo que lo ocupa en propiedad devengará, a partir de las fechas dispuestas en el presente Reglamento, el salario base de la nueva categoría y con el mismo número de anualidades que tenía, ahora valorados sobre la nueva categoría.

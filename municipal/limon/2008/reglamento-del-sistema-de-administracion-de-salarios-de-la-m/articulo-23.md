@@ -1,0 +1,1 @@
+Artículo 23.—Si un puesto fuere reasignado a una categoría superior, el servidor que lo ocupe en propiedad devengará, a partir de las fechas dispuestas en el presente Reglamento, el salario básico de la nueva categoría.

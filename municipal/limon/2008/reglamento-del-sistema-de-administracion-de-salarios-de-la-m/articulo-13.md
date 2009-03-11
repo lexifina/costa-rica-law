@@ -1,0 +1,1 @@
+Artículo 13.—Las reasignaciones de puestos serán provisionales hasta por un período de tres meses. Transcurrido ese plazo, si el Oficina de Recursos Humanos no recomienda variar la clasificación, ésta se considerará definitiva.

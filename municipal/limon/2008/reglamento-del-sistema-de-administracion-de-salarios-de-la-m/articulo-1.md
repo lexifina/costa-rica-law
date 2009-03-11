@@ -1,0 +1,4 @@
+REGLAMENTO DEL SISTEMA DE ADMINISTRACIÓN
+DE SALARIOS DE LA MUNICIPALIDAD DE LIMÓN
+CAPÍTULO I
+Artículo 1º—La Municipalidad de Limón establecerá, bajo la administración de la Oficina de Recursos Humanos, un sistema de administración de salarios, que cubre a los funcionarios administrativos, incluyendo los puestos de confianza así declarados por el Código Municipal o por el Concejo Municipal, salvo los casos en que sean excluidos expresamente del sistema por el Alcalde Municipal. La declaratoria de puesto de confianza, aunque esté en el sistema, eximirá de los trámites de concurso para el nombramiento del funcionario administrativo. Las normas, reglas y disposiciones contenidas en este Reglamento, serán de aplicación obligatoria en todas las acciones que se relacionen con la operación del Sistema de Administración de Salarios.

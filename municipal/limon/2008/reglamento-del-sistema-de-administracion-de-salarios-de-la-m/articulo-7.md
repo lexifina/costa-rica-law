@@ -1,0 +1,1 @@
+Artículo 7º—Las reasignaciones, las revaloraciones y las reclasificaciones que se originen del proceso de revisión integral serán resueltos por el Alcalde Municipal o Consejo Municipal, de acuerdo con el informe que afecto le suministrará la Oficina de Recursos Humanos.

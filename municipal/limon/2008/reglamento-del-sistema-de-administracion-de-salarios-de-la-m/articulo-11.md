@@ -1,0 +1,1 @@
+Artículo 11.—La Oficina de Recursos Humanos, en los casos que estime procedente, tomará la iniciativa de realizar estudios de los diversos puestos administrativos incluidos dentro del sistema y recomendará al Alcalde Municipal la acción que a su juicio corresponda.

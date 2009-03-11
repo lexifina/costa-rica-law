@@ -1,0 +1,1 @@
+Artículo 6º—Las dependencias municipales brindarán las facilidades del caso a la Oficina de Recursos Humanos y entregarán la información que ésta requiera, dentro de las condiciones y los plazos que ella determine, en cuanto a sus funcionarios, las actividades que estos desempeñen y su organización.
