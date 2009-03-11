@@ -1,0 +1,2 @@
+Artículo 5º—Del (la) Contralor (a) de Servicios. La Contraloría de Servicios estarán a cargo de un(a) Contralor(a) de Servicios nombrado(a) por parte del jerarca institucional, el cual será por tiempo indefinido y no podrá recaer en un puesto de confianza. Además desempeñará su puesto sin recargo de funciones.
+Con el fin de lograr el mejor desempeño de sus funciones, la Contraloría de Servicios podrá contar con Subcontralores (as), de acuerdo con las necesidades de la institución.
