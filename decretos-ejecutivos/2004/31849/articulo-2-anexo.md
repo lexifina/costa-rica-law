@@ -94,21 +94,21 @@ Proyectos de Riego de terrenos, cuando no forme parte integral de un proyecto. |
 Zoocriaderos invertebrados marinos. | | | GP | MP | PP
 Zoocriaderos de anfibios para producción de ancas, carne, piel y repoblación | | | GP | MP | PP
 Zoocriaderos de reptiles para carne, piel y repoblación | | | GP | MP | PP
-| | Descripción de la Actividad | CIIU 3 | A | B1 | B2 | C
-C. Explotación de minas y canteras | 10 Extracción de carbón y lignito; extracción de turba | Extracción y aglomeración de minas de carbón mineral, lignito y turba | 1010 | Todas | | |
-Fabricación de briquetas de carbón de piedra, lignito y turba | 1010 | Todas | | |
-Gasificación del carbón en el sitio de extracción. | 1010 | Todas | | |
-11. Extracción de petróleo crudo y gas natural; actividades de servicio relacionadas con la extracción de petróleo y gas, excepto las actividades de prospección | Exploración y extracción de petróleo crudo y gas natural. | 1110 | | | |
-Actividades de servicios relacionadas extracción de petróleo y gas, excepto de prospección. | 1120 | Todas | | |
-12. Extracción de minerales de uranio y torio | Extracción de minerales de uranio y torio | 1200 | Todas. | | |
-14. Explotación de minas y canteras | Extracción, a cielo abierto y subterránea, de minerales metalíferos no ferrosos y ferrosos | 1320 | Todas. | | |
-Prospección y exploración minera. | | Exploración geológica – minera, con uso de maquinaria, incluyendo la perforación de pozos | Prospección geológica con uso de maquinaria, sin perforación de pozos | Prospección geológica sin uso de maquinaria |
-Extracción a cielo abierto (canteras o cauces de dominio público), de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena y grava. (Así reformado por el artículo 13 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | 1410 | Volumen a extraer mayor que 50 000 m3 | Volumen a extraer mayor que 20 000 m3 y menor o igual que 50 000 m3 | Volumen a extraer menor o igual que 20 000 m3 |
-| Extracción subterrránea, de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena, grava y otros. | 1410 | Todas | | |
-Extracción de minerales para la fabricación de abonos y productos químicos. | 1421 | Todas | | |
-Extracción de sal. | 1422 | Todas | | |
-Explotación de minas y canteras de asbetos, abrasivos, asfalto, betún y otros minerales no metálicos n.e.p. | 1429 | Todas | | |
-Extracción de feldespato. | 1429 | Todas | | |
+| | Descripción de la Actividad | CIIU 3 | A | B1 | B2 | C |
+C. Explotación de minas y canteras | 10 Extracción de carbón y lignito; extracción de turba | Extracción y aglomeración de minas de carbón mineral, lignito y turba | 1010 | Todas | | | |
+Fabricación de briquetas de carbón de piedra, lignito y turba | 1010 | Todas | | | |
+Gasificación del carbón en el sitio de extracción. | 1010 | Todas | | | |
+11. Extracción de petróleo crudo y gas natural; actividades de servicio relacionadas con la extracción de petróleo y gas, excepto las actividades de prospección | Exploración y extracción de petróleo crudo y gas natural. | 1110 | | | | |
+Actividades de servicios relacionadas extracción de petróleo y gas, excepto de prospección. | 1120 | Todas | | | |
+12. Extracción de minerales de uranio y torio | Extracción de minerales de uranio y torio | 1200 | Todas. | | | |
+14. Explotación de minas y canteras | Extracción, a cielo abierto y subterránea, de minerales metalíferos no ferrosos y ferrosos | 1320 | Todas. | | | |
+Prospección y exploración minera. | | Exploración geológica – minera, con uso de maquinaria, incluyendo la perforación de pozos | Prospección geológica con uso de maquinaria, sin perforación de pozos | Prospección geológica sin uso de maquinaria | |
+Extracción a cielo abierto (canteras o cauces de dominio público), de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena y grava. (Así reformado por el artículo 13 del Decreto Ejecutivo N° 32734 del 09 de agosto de 2005). | 1410 | Volumen a extraer mayor que 50 000 m3 | Volumen a extraer mayor que 20 000 m3 y menor o igual que 50 000 m3 | Volumen a extraer menor o igual que 20 000 m3 | |
+| Extracción subterrránea, de piedras de construcción, piedra de talla, arcilla, talco, dolomita, arena, grava y otros. | 1410 | Todas | | | |
+Extracción de minerales para la fabricación de abonos y productos químicos. | 1421 | Todas | | | |
+Extracción de sal. | 1422 | Todas | | | |
+Explotación de minas y canteras de asbetos, abrasivos, asfalto, betún y otros minerales no metálicos n.e.p. | 1429 | Todas | | | |
+Extracción de feldespato. | 1429 | Todas | | | |
 Categoría | División | Descripción de la Actividad | CIIU 3 | A | B1 | B2 | C
 C. Explotación de minas y canteras | 14. Explotación de minas y canteras | Plantas de Beneficiado mineral, cuando no sea parte de un proyecto de extracción minera. | | Volumen a procesar mayor que 50 000 m3 | Volumen a procesar mayor que 20 000 m3 y menor o igual que 50 000 m3 | Volumen a procesar menor o igual que 20 000 m3 |
 D. Industrias manufactureras | 15. Elaboración de productos alimenticios y bebidas | Mataderos y preparación de la carne excepto de pescado. | 1511 | GE | ME | PE |
@@ -256,7 +256,7 @@ Construcción y operación de obras portuarias y fluviales para cargar y descarg
 F. Construcción | 45. Construcción | Construcción y operación de obras portuarias y fluviales para carga y descarga de combustibles | | Todas | | |
 Construcción y operación de obras aeroportuarias | | mayor que 1000 m de pista | menor que 1000 metros de pista | |
 Construcción y operación de zoológicos y jardines botánicos. | | | Todas | |
-Intervención de monumentos históricos y arquitectónicos. | | | Todas | |
+Intervención de monumentos históricos y arquitectónicos. | | | Todas, a excepción de las que son tramitadas por, y que van a ser supervisadas por, el Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud. (Así reformado por el artículo 1° del decreto ejecutivo N° 35550 del 12 de marzo de 2009) | | Aquellas tramitadas por, y que van a ser supervisadas por, el Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud. (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 35550 del 12 de marzo de 2009)
 Demolición de edificaciones cuando no forma parte de un proyecto. (volumen de edificación) | 4550 | | Demolición mayor a 5000 m3 | Demolición de menor o igual a 5000 m3 y mayor a 1000 m3 | Demolició n menor o igual a 1000 m3
 Demolición de edificaciones en las cuales se han manejado sustancias peligrosas como parte del antiguo proceso productivo. | 4550 | | Todas | |
 G. Comercio y servicios de reparación | 50. Mantenimiento y reparación de vehículos automotores y motocicletas y otros; expendio de combustibles | Talleres de mantenimiento y reparación de vehículos automotores, y equipo pesado y especial, maquinaria con motores de combustión interna, eléctrica y mecánica, móviles o fijos. | 5020 | | GE y ME | PE |
