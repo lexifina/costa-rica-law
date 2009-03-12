@@ -15,3 +15,4 @@ Reglamento para Otorgamiento de Pasaportes Diplomáticos y de Servicio
 | 1 | 1998-05-26 | la propia norma |
 | 2 | 1998-06-19 | Decreto Ejecutivo 27335 (1998-06-19) |
 | 3 | 2009-01-27 | Decreto Ejecutivo 35086 (2009-01-27) |
+| 4 | 2009-03-12 | Decreto Ejecutivo 35194 (2009-03-12) |
