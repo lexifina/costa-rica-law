@@ -14,3 +14,4 @@ Reglamento a la Ley del Sistema de Banca para el Desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-01 | la propia norma |
+| 2 | 2009-03-12 | Decreto Ejecutivo 35184 (2009-03-12) |
