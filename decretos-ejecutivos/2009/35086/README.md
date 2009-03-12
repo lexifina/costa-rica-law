@@ -14,3 +14,4 @@ Reforma Reglamento para el otorgamiento, uso y control de pasaportes diplomátic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-11 | la propia norma |
+| 2 | 2009-03-12 | Decreto Ejecutivo 35194 (2009-03-12) |
