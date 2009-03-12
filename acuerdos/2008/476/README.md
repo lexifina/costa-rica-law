@@ -14,3 +14,4 @@ Medidas de ordenamiento para el establecimiento de acuerdos que permiten regular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-13 | la propia norma |
+| 2 | 2009-03-12 | Acuerdo 90 (2009-03-12) |
