@@ -10,4 +10,5 @@ Considerando:
 DECRETAN:
 Declaratoria de interés público del primer encuentro
 mundial por los bosques denominado “Chico Mendes”
-Artículo 1º—Declarar de Interés Público el Primer Encuentro Mundial por los Bosques, denominado “Chico Mendes”, que se llevará a cabo en Costa Rica, Centro de Conferencias del Hotel Ramada, Plaza Herradura, del 22 al 25 de setiembre del año 2009.
+Artículo 1º—Declarar de Interés Público el Primer Encuentro Mundial por los Bosques, denominado “Chico Mendes”, que se llevará a cabo en Costa Rica, Centro de Conferencias del Hotel Ramada, Plaza Herradura, los días martes 20, miércoles 21 y jueves 22 de abril del 2010.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35154 del 12 de marzo de 2009)

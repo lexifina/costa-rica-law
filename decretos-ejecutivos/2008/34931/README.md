@@ -14,3 +14,4 @@ Declaratoria de interés público del primer encuentro mundial por los bosques d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-02 | la propia norma |
+| 2 | 2009-03-12 | Decreto Ejecutivo 35154 (2009-03-12) |
