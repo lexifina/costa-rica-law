@@ -1,0 +1,1 @@
+Artículo 4º—Lineamientos Generales. El Superintendente emitirá, mediante resolución razonada, los contenidos del Perfil Tecnológico de las entidades, las condiciones para la ejecución de la auditoría externa y el formato del Plan Correctivo-Preventivo dispuestos en este reglamento y otorgará un plazo prudencial para su aplicación.

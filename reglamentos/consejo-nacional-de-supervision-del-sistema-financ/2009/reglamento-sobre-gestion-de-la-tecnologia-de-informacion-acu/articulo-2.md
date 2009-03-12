@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las disposiciones establecidas en este reglamento son aplicables a las entidades supervisadas por la Superintendencia General de Entidades Financieras (en adelante la “SUGEF”) y al Sistema Nacional de Pagos Electrónicos (SINPE).
