@@ -1,0 +1,1 @@
+Artículo 3º—Es responsabilidad de la Intendencia, velar por el mantenimiento y reparación de los vehículos, para que estén en perfecto estado de uso y conservación y con el suficiente combustible, para lo cual deberá contar con los recursos necesarios.

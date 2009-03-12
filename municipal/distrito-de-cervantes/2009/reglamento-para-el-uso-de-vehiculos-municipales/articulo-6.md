@@ -1,0 +1,1 @@
+Artículo 6º—Cuando el vehículo, sufra algún daño o perjuicio material, por negligencia o imprudencia o dolo del funcionario será responsable por los daños del mismo, ante este Concejo de Distrito, previa implementación del debido proceso a nivel administrativo, o bien porque así lo determinen las autoridades judiciales.

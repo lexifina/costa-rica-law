@@ -1,0 +1,1 @@
+Artículo 5º—Los funcionarios designados para tal efecto, están obligados en todo momento a conducir en forma responsable, cuidadosa, prudente y en estricta conformidad con la Ley de Tránsito y demás legislación conexa.

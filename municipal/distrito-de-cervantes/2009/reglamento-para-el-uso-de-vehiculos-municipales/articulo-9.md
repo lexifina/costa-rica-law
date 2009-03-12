@@ -1,0 +1,1 @@
+Artículo 9º—Queda absolutamente prohibido, usar el vehículo para actividades, que no son propias de la función municipal o que estén relacionadas indirectamente con la misma y será responsable el funcionario, que le de un uso no autorizado, salvo autorización expresa del Intendente, quien será responsable, por la permisión que expida en ese sentido.

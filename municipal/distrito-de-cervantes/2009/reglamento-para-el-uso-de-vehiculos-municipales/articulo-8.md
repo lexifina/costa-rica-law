@@ -1,0 +1,1 @@
+Artículo 8º—Cuando los vehículos, no estén en uso, deberán estar guardados o aparcados en las instalaciones o bodegas destinadas, para ese efecto y para lo cual, el Intendente deberá tomar y girar las directrices y órdenes que al efecto correspondan, para su debida implementación inmediata.
