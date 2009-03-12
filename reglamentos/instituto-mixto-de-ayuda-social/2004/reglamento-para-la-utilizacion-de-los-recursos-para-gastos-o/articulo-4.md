@@ -1,5 +1,5 @@
-Artículo 4º—La Unidad Ejecutora tramitará las solicitudes de adquisición de bienes y servicios y se encargará de recibir y/o obtener la factura pro forma de los bienes y servicios, debiendo acatar lo siguiente:
-a) Para solicitudes de desembolso de ¢10.000,00 a ¢100.000,00 se debe adjuntar una factura proforma.
-b) Para solicitudes de desembolso, por un monto superior a los ¢100.000,00 hasta ¢2.500.000,00, se solicitará tres facturas proforma, con la indicación justificada de la factura elegida por la Unidad Ejecutora.
-En toda solicitud de desembolso, se deben indicar las partidas y subpartidas presupuestarias a las cuales se cargaran los egresos y estas deben contar con su correspondiente contenido presupuestario, y será responsabilidad de la Unidad Ejecutora velar por el cumplimiento de esta disposición, para lo cual llevará los registros y el control necesario, sin perjuicio de los controles que al respecto establecerá BICSA en su calidad de Fiduciario.
-(Así reformado en sesión N° 10 del 16 de junio del 2004)
+Artículo 4°: La Unidad Ejecutora tramitará las solicitudes de adquisición de bienes y servicios y se encargará de recibir y/u obtener la factura proforma de los bienes y servicios, debiendo acatar lo siguiente:
+a) Para solicitudes de desembolso de ¢10.000.00 (diez mil colones) a ¢100.000.00 (cien mil colones) con solo la presentación de la factura original.
+b) Para solicitudes de desembolso, por un monto superior a los ¢100.000.00 (cien mil colones) hasta ¢3.000.000.00, (tres millones de colones) se solicitará tres facturas proforma, con la indicación justificada de la oferta elegida por la unidad ejecutora.
+En toda solicitud de desembolso, se debe indicar las partidas y subpartidas presupuestarias a las cuales se cargaran los egresos y estas deben contar con su correspondiente contenido presupuestario y será responsabilidad de la unidad ejecutora velar por el cumplimiento de esta disposición, para lo cual llevará los registros y el control necesario, sin perjuicio de los controles que al respecto establecerá BANCRÉDITO en su calidad de Fiduciario.
+(Así reformado en sesión N° 5 de 20 de marzo de 2009).
