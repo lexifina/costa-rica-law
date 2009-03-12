@@ -14,3 +14,4 @@ Reglamento para el Manejo del Fondo de Caja Chica del Instituto Costarricense de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-09 | la propia norma |
+| 2 | 2009-03-12 | Decreto Ejecutivo 35225 (2009-03-12) |

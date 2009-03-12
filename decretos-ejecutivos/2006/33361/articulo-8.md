@@ -6,4 +6,4 @@ d) Guardar documentos, efectivo o cheques particulares en el lugar destinado par
 e) Mezclar este fondo con los de otro tipo de actividad.
 f) Efectuar pagos no contemplados en este Reglamento, o hacer sustracciones del efectivo.
 g) Efectuar pagos de gastos de pasaporte para viajes fuera del país, excepto el pago de timbres y otros cánones para salidas oficiales y debidamente autorizadas fuera del territorio nacional.
-h) Aceptar comprobantes de pagos realizados con cargo de una tarjeta de crédito o débito.
+h) (Eliminado este inciso por el artículo 4° del decreto ejecutivo N° 35225 del 12 de marzo de 2009)
