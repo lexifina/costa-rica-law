@@ -1,0 +1,1 @@
+Articulo 6º—Los trabajos de divulgación sobre ciencia, tecnología o innovación que se presenten como candidatos al premio deberán ser seleccionados de publicaciones hechas en medios de comunicación nacionales tales como: periódicos, revistas, televisión, radio emisoras nacionales, cines, y en la Red Internet.

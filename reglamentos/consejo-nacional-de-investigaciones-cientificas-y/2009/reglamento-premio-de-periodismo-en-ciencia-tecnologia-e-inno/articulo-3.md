@@ -1,0 +1,1 @@
+Artículo 3º—El premio será otorgado al (la) periodista o al grupo de periodistas que realicen trabajos de divulgación sobre ciencia, tecnología o innovación, que el jurado designado al efecto califique como el mejor.

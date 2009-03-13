@@ -1,0 +1,1 @@
+Artículo 15.—El jurado podrá otorgar Mención Honorífica al medio de comunicación que se distinga por su labor divulgativa de actividades científicas, tecnológicas y de innovación aunque ningún colaborador suyo haya presentado trabajos durante la convocatoria.

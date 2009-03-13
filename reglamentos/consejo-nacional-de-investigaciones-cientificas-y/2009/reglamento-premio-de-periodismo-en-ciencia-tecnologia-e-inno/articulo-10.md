@@ -1,0 +1,1 @@
+Artículo 10.—El jurado deberá estar integrado al cierre de la convocatoria y emitirá su veredicto en los siguientes tres meses. En caso de de que algún miembro del jurado tenga lazos de consanguinidad o afinidad hasta tercer grado o mantenga relación laboral con alguno (a) del los (las) candidatos (as) deberá inhibirse de emitir criterio sobre el caso en particular.

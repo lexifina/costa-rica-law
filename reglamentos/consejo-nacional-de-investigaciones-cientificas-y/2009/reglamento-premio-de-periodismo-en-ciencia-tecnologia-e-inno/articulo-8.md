@@ -1,0 +1,1 @@
+Artículo 8º—El Consejo Director del CONICIT conformará el jurado a partir de las designaciones realizadas por las respectivas instituciones en el periodo establecido. Si alguna institución no designara a su representante en este periodo, el CONICIT, de oficio, hará el nombramiento correspondiente.
