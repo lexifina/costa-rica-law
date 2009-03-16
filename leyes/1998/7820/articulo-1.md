@@ -3,76 +3,37 @@ O RESTRICCIONES DEL EMPLEO DE CIERTAS ARMAS
 CONVENCIONALES QUE PUEDAN CONSIDERARSE
 EXCESIVAMENTE NOCIVAS O DE EFECTOS
 INDISCRIMINADOS Y SUS PROTOCOLOS
-ARTÍCULO ÚNICO.- Apruébanse, en cada una de sus partes, la adhesión
-de Costa Rica a la Convención sobre prohibiciones o restricciones del
-empleo de ciertas armas convencionales que puedan considerarse
-excesivamente nocivas o de efectos indiscriminados, así como sus
-Protocolos I, II, III y IV. Los textos dirán:
+ARTÍCULO ÚNICO.- Apruébanse, en cada una de sus partes, la adhesión de Costa Rica a la Convención sobre prohibiciones o restricciones del empleo de ciertas armas convencionales que puedan considerarse excesivamente nocivas o de efectos indiscriminados, así como sus Protocolos I, II, III y IV. Los textos dirán:
 "CONVENCION SOBRE PROHIBICIONES O RESTRICCIONES
 DEL EMPLEO DE CIERTAS ARMAS CONVENCIONALES
 QUE PUEDAN CONSIDERARSE EXCESIVAMENTE
 NOCIVAS O DE EFECTOS INDISCRIMINADOS
 Y SUS PROTOCOLOS
 Las Altas Partes Contratantes,
-Recordando que, de conformidad con la Carta de las Naciones Unidas,
-todo Estado tiene el deber, en sus relaciones internacionales, de
-abstenerse de recurrir a la amenaza o al uso de la fuerza contra la
-soberanía, la integridad territorial o la independencia política de
-cualquier Estado, o en cualquier otra forma incompatible con los
-Propósitos de las Naciones Unidas,
-Recordando además el principio general de la protección de la
-población civil contra los efectos de las hostilidades,
-Basándose en el principio de derecho internacional según el cual el
-derecho de las partes en un conflicto armado a elegir los métodos o medios
-de hacer la guerra no es ilimitado, y en el principio que prohíbe el
-empleo, en los conflictos armados, de armas, proyectiles, materiales y
-métodos de hacer la guerra de naturaleza tal que causen daños superfluos
-o sufrimientos innecesarios,
-Recordando además que está prohibido el empleo de métodos o medios de
-hacer la guerra que hayan sido concebidos para causar, o de los que quepa
-prever que causen daños extensos, duraderos y graves al medio ambiente
-natural.
-Confirmando su decisión de que, en los casos no previstos en la
-presente Convención, en sus Protocolos anexos o en otros acuerdos
-internacionales, la población civil y los combatientes permanecerán, en
-todo momento, bajo la protección y la autoridad de los principios de
-derecho internacional derivados de la costumbre, de los principios de
-humanidad y de los dictados de la conciencia pública,
-Deseando contribuir a la distensión internacional, a la terminación
-de la carrera de armamentos y a la instauración de la confianza entre los
-Estados y, por consiguiente, a la realización de la aspiración de todos
-los pueblos a vivir en paz,
-Reconociendo la importancia de hacer todo lo posible para contribuir
-al logro de progresos conducentes al desarme general y completo bajo un
-control internacional estricto y eficaz,
-Reafirmando la necesidad de continuar la codificación y el desarrollo
-progresivo de las normas de derecho internacional aplicables en los
-conflictos armados,
-Deseando prohibir o restringir aún más el empleo de ciertas armas
-convencionales y convencidos de que los resultados positivos que se logren
-en esta esfera podrán facilitar las conversaciones más importantes sobre
-desarme destinadas a poner fin a la producción, el almacenamiento y la
-proliferación de tales armas convencionales,
-Poniendo de relieve la conveniencia de que todos los Estados se hagan
-partes en la presente Convención y sus Protocolos anexos, en particular
-los Estados militarmente importantes,
-Teniendo presente que la Asamblea General de las Naciones Unidas y la
-Comisión de Desarme de las Naciones Unidas pueden decidir examinar la
-cuestión de una posible ampliación del alcance de las prohibiciones y las
-restricciones contenidas en la presente Convención y sus Protocolos
-anexos,
-Teniendo presente que el Comité de Desarme puede decidir considerar
-la cuestión de adoptar nuevas medidas para prohibir o restringir el empleo
-de ciertas armas convencionales,
+Recordando que, de conformidad con la Carta de las Naciones Unidas, todo Estado tiene el deber, en sus relaciones internacionales, de abstenerse de recurrir a la amenaza o al uso de la fuerza contra la soberanía, la integridad territorial o la independencia política de cualquier Estado, o en cualquier otra forma incompatible con los Propósitos de las Naciones Unidas,
+Recordando además el principio general de la protección de la población civil contra los efectos de las hostilidades,
+Basándose en el principio de derecho internacional según el cual el derecho de las partes en un conflicto armado a elegir los métodos o medios de hacer la guerra no es ilimitado, y en el principio que prohíbe el empleo, en los conflictos armados, de armas, proyectiles, materiales y métodos de hacer la guerra de naturaleza tal que causen daños superfluos o sufrimientos innecesarios,
+Recordando además que está prohibido el empleo de métodos o medios de hacer la guerra que hayan sido concebidos para causar, o de los que quepa prever que causen daños extensos, duraderos y graves al medio ambiente natural.
+Confirmando su decisión de que, en los casos no previstos en la presente Convención, en sus Protocolos anexos o en otros acuerdos internacionales, la población civil y los combatientes permanecerán, en todo momento, bajo la protección y la autoridad de los principios de derecho internacional derivados de la costumbre, de los principios de humanidad y de los dictados de la conciencia pública,
+Deseando contribuir a la distensión internacional, a la terminación de la carrera de armamentos y a la instauración de la confianza entre los Estados y, por consiguiente, a la realización de la aspiración de todos los pueblos a vivir en paz,
+Reconociendo la importancia de hacer todo lo posible para contribuir al logro de progresos conducentes al desarme general y completo bajo un control internacional estricto y eficaz,
+Reafirmando la necesidad de continuar la codificación y el desarrollo progresivo de las normas de derecho internacional aplicables en los conflictos armados,
+Deseando prohibir o restringir aún más el empleo de ciertas armas convencionales y convencidos de que los resultados positivos que se logren en esta esfera podrán facilitar las conversaciones más importantes sobre desarme destinadas a poner fin a la producción, el almacenamiento y la proliferación de tales armas convencionales,
+Poniendo de relieve la conveniencia de que todos los Estados se hagan partes en la presente Convención y sus Protocolos anexos, en particular los Estados militarmente importantes,
+Teniendo presente que la Asamblea General de las Naciones Unidas y la Comisión de Desarme de las Naciones Unidas pueden decidir examinar la cuestión de una posible ampliación del alcance de las prohibiciones y las restricciones contenidas en la presente Convención y sus Protocolos anexos,
+Teniendo presente que el Comité de Desarme puede decidir considerar la cuestión de adoptar nuevas medidas para prohibir o restringir el empleo de ciertas armas convencionales,
 Han convenido en lo siguiente:
 Artículo 1
 Ambito de aplicación
-La presente Convención y sus Protocolos anexos se aplicarán a las
-situaciones a que se hace referencia en el artículo 2 común a los
-Convenios de Ginebra del 12 de agosto de 1949 relativos a la protección de
-las víctimas de la guerra, incluida cualquiera de las situaciones
-descritas en el párrafo 4 del artículo 1 del Protocolo I adicional a los
-Convenios.
+1. La presente Convención y sus Protocolos anexos se aplicarán a las situaciones a que se refiere el artículo 2 común a los Convenios de Ginebra de 12 de agosto de 1949 relativos a la protección de las víctimas de los conflictos armados, incluidas cualesquiera situaciones descritas en el párrafo 4 del artículo I del Protocolo Adicional I a esos Convenios.
+2. La presente Convención y sus Protocolos anexos se aplicarán, además de las situaciones a las que se refiere el párrafo 1 del presente artículo, a las situaciones a que se refiere el artículo 3 común a los Convenios de Ginebra del 12 de agosto de 1949.
+La Convención y sus Protocolos anexos no se aplicarán a las situaciones de tensiones internas y de disturbios interiores, tales como los motines, los actos esporádicos de violencia y otros actos análogos que no son conflictos armados.
+3. En el caso de conflictos que no sean de carácter internacional que tengan lugar en el territorio de una de las Altas Partes Contratantes, cada parte en el conflicto estará obligada a aplicar las prohibiciones y restricciones de la presente Convención y de sus Protocolos anexos.
+4. No podrá invocarse disposición alguna de la presente Convención o de sus Protocolos anexos con el fin de menoscabar la soberanía de un Estado o la responsabilidad que incumbe al Gobierno de mantener o restablecer el orden público en el Estado o de defender la unidad nacional y la integridad territorial del Estado por todos los medios legítimos.
+5. No podrá invocarse disposición alguna de la presente Convención o de sus Protocolos anexos para justificar la intervención, directa o indirecta, sea cual fuere la razón, en un conflicto armado o en los asuntos internos o externos de la Alta Parte Contratante en cuyo territorio tenga lugar ese conflicto.
+6. La aplicación de las disposiciones de la presente Convención y sus Protocolos anexos a las partes en un conflicto, que no sean Altas Partes Contratantes, que hayan aceptado la presente Convención y sus Protocolos anexos no modificará su estatuto jurídico ni la condición jurídica de un territorio en disputa, ya sea expresa o implícitamente.
+7. Las disposiciones de los párrafos 2 a 6 del presente artículo no se interpretarán en perjuicio de los Protocolos adicionales adoptados después del 1º de enero de 2002, que pudieran aplicarse, ni excluirán o modificarán el ámbito de su aplicación en relación con el presente artículo.
+(Así reformado por el artículo único de la ley N° 8716 del 13 de febrero de 2009)
 Artículo 2
 Relaciones con otros acuerdos internacionales
 Ninguna disposición de la presente Convención ni de sus Protocolos
