@@ -1,0 +1,1 @@
+Artículo 29.—Refrendo de contrataciones. Los contratos deberán cumplir con el trámite de aprobación interna conocida como “refrendo” por parte de la Unidad Jurídica y Subdirección Administrativa de previo a su ejecución, según corresponda conforme el Reglamento sobre el refrendo de las contrataciones de la Administración Pública, de la Contraloría General de la República.

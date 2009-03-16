@@ -1,0 +1,1 @@
+Artículo 33.—Disposiciones complementarias al presente Reglamento. Corresponde al Director General de Bomberos emitir las disposiciones complementarias para la correcta y eficaz aplicación de este Reglamento.
