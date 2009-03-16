@@ -1,0 +1,1 @@
+Artículo 20.—El incumplimiento de cualquiera de los puntos anotados en el presente Reglamento, será sancionado con una amonestación, suspensión o el despido, de acuerdo con lo que establecen las Leyes laborales conexas. Sin perjuicio de la Ley de Tránsito.

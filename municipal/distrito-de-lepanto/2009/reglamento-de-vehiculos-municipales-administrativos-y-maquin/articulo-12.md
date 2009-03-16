@@ -1,0 +1,1 @@
+Artículo 12.—El Intendente nombrará al responsable de llevar el control diario de kilómetros de los vehículos, así como los Departamentos que las utilizan, al igual que el consumo de combustible por departamento, con el fin de que sirva de base para cualquier estudio interno o externo sobre el uso dado a los vehículos, lo cual debe ser mediante boleta diseñada con ese propósito.

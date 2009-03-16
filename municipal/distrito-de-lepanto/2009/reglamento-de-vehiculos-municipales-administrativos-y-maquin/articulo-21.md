@@ -1,0 +1,1 @@
+Artículo 21.—El presente Reglamento deroga toda disposición de cualquier índole que se le oponga y se presumirá del conocimiento de los usuarios. Cualquier reforma o adición a este Reglamento se deberá realizar mediante acuerdo del Concejo Municipal de Lepanto.

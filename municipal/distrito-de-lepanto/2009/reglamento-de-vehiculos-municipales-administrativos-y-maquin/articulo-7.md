@@ -1,0 +1,1 @@
+Artículo 7º—Los vehículos municipales administrativos y la maquinaria municipal deben estar cubiertos por una póliza contra robo y daños a terceros, y una vez que exista contenido económico para el pago de las mismas.

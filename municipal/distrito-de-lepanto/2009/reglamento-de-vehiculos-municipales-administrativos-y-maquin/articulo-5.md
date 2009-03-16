@@ -1,0 +1,1 @@
+Artículo 5º—Se prohíbe que viajen en los vehículos municipales administrativos y la maquinaria municipal, personas que no sean servidores o funcionarios(as) de la misma, salvo en aquellos casos en que el propósito del viaje o la emergencia lo justifiquen y haya autorización del Intendente Municipal o el Concejo Municipal.

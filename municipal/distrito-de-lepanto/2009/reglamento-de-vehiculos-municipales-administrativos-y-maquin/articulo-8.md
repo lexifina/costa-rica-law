@@ -1,0 +1,1 @@
+Artículo 8º—Todos los vehículos municipales administrativos y la maquinaria municipal deben ser guardados al final de cada jornada de trabajo en el plantel municipal, salvo caso fortuito o fuerza mayor debidamente comprobados de lo cual deberá ser informado por escrito al Intendente, con copia al Concejo Municipal al día siguiente de la eventualidad.

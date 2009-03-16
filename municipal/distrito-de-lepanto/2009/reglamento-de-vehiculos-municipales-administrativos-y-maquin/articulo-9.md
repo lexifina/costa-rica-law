@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que la maquinaria municipal esté laborando en lugares alejados, la misma podrá ser guardado al final de cada jornada de trabajo en el patio de un vecino o en el puesto de la GAR con la debida autorización del Intendente Municipal, transportando a los operadores en los vehículos de la Institución.

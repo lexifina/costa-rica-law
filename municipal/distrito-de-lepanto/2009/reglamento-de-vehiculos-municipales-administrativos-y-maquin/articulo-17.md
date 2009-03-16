@@ -1,0 +1,1 @@
+Artículo 17.—Creación de una Caja Chica. Para proveer la agilidad en estos trámites, se crea una Caja Chica, cuyo monto deberá ser autorizado por acuerdo del Concejo Municipal. Con estos recursos, se cancelarán aquellos requerimientos de respuesta rápida o urgente.
