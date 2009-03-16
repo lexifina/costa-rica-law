@@ -1,1 +1,1 @@
-Artículo 29.—El Instituto Costarricense sobre Drogas y los órganos dotados de potestades de fiscalización y supervisión sobre las instituciones sometidas a esta Ley, con prontitud deberán poner en conocimiento del Ministerio Público cualquier información recibida de las instituciones financieras, referente a transacciones o actividades sospechosas que puedan relacionarse con los delitos señalados en esta Ley.
+Artículo 29.—(Derogado por el artículo 2°, punto 3., aparte a) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).

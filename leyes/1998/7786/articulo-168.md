@@ -1,0 +1,4 @@
+Artículo 168.- Reclutamiento y selección
+Créase, en el Instituto Costarricense sobre Drogas, la Comisión de reclutamiento y selección de personal, como órgano calificador y determinativo en el desarrollo, el análisis, la selección, el nombramiento, la interpretación y la aplicación de criterios de otorgamiento de puntajes, para ubicar, elegir y nombrar a los servidores de dicho Instituto.
+Para los efectos del presente artículo, se entenderá que los funcionarios del Instituto Costarricense sobre Drogas estarán excluidos, únicamente, de los procedimientos de ingreso, selección, promociones y traslados que establece el Estatuto de Servicio Civil y su Reglamento.
+(Así adicionado por el artículo 2°, punto 2., aparte d) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).

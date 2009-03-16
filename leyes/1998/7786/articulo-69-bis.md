@@ -1,0 +1,4 @@
+Artículo 69 bis.-
+Será reprimido con prisión de cinco (5) a quince (15) años quien, por cualquier medio y de manera directa o indirecta, recolecte, oculte, provea, promueva, facilite o de cualquiera otra forma coopere con la recolección o la entrega de los fondos, productos financieros, recursos o instrumentos, en el país o en el extranjero, con la intención o el conocimiento de que estos se utilicen o destinen al financiamiento de actos terroristas, aunque estos no lleguen a ejecutarse, o a organizaciones declaradas como terroristas, de acuerdo con el Derecho internacional, o que tengan fines terroristas.
+El hecho podrá ser juzgado en Costa Rica, sin importar el lugar donde haya sido cometido.
+(Así adicionado por el artículo 2°, punto 2., aparte c) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).
