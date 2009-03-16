@@ -1,0 +1,5 @@
+Aplicación de la Ley penal para actos de terrorismo
+Artículo 6 bis.-
+En los casos de los delitos tipificados en el inciso 4) del artículo 112, los incisos 7) y 8) del artículo 215, y en los artículos 246, 246 bis, 250 ter, 251, 258, 259, 260, 274, 274 bis, 374, 284 bis de este Código, así como en el artículo 69 bis de la Ley N.º 8204, Reforma integral de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, y actividades conexas, de 26 de diciembre de 2001, y sus reformas, se aplicará la ley penal costarricense con ocasión de esos delitos, a las personas respecto de las cuales no proceda la extradición, de conformidad con las normas vigentes.
+Para efectos de extradición, estos delitos no serán considerados delitos políticos ni delitos conexos con un delito político; tampoco, delitos inspirados en motivos políticos.
+(Así adicionado por el artículo 1°, punto 2., aparte b) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).
