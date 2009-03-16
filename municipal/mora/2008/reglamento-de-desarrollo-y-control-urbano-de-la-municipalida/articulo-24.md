@@ -1,5 +1,2 @@
-TÍTULO II
-De los permisos de construcción
-CAPÍTULO I
-Disposiciones generales
-Artículo 24.—Definición. Es la gestión administrativa posterior a la obtención del Visado Urbano, en el que la Municipalidad aprueba y autoriza a todo propietario o su representante legal para realizar obras de edificación o urbanización dentro de una propiedad, siempre y cuando hubiere cumplido con los requerimientos de la solicitud respectiva.
+Artículo 24.—Cuando un fraccionador no cumpla con las anteriores disposiciones el DDCU y Catastro Municipal estarán facultados para suspender el otorgamiento de licencias de construcción, visados urbanos, visado para catastro de planos y certificados de uso de suelo, incluso solicitados por terceros, hasta que la cesión de áreas cumpla con los requisitos establecidos en este Reglamento u otra normativa jurídica vigente.
+(Así adicionado por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009).

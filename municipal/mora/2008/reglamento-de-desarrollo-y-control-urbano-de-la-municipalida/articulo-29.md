@@ -1,1 +1,2 @@
-Artículo 29.—No se permite construir cerca de una pared medianera pozos, acueductos, hornos, fraguas, depósitos de materiales corrosivos o inflamables, establos, u otros que por su uso, resulten peligrosos, nocivos o perjudiciales, sin guardar una distancia mínima de dos metros de dicha pared. Además se requiere el visto bueno del Ministerio de Salud.
+Artículo 29.—La Municipalidad no tiene obligación de dar mantenimiento, ni de prestar servicios a los lotes interiores que enfrenten servidumbre.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 21 al 29 actual).

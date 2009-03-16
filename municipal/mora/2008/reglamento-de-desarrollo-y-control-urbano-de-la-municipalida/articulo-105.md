@@ -1,1 +1,8 @@
-Artículo 105.—La CTA es la instancia encargada para el trámite y dictamen técnico de todo proyecto de urbanización, condominio (residencial y comercial), comercio, servicio o industria de impacto urbano en el cantón de Mora.
+Artículo 105.—Al no haberse producido resolución alguna al término de ese tiempo, el interesado tendrá derecho a invocar el silencio positivo y cancelar los derechos fijados por la Municipalidad. El impuesto de construcción será hasta el 1 % del valor de la obra.
+No pagarán el impuesto las instituciones públicas que con recursos propios ejecuten la obra.
+Los permisos de construcción correspondientes a obras realizadas bajo declaratoria de interés social, tributarán un 0.5% del valor de la obra por concepto de impuesto a las construcciones.
+En el caso de construcciones declaradas de interés social llevadas a cabo por personas indígenas y que la obra se vaya a realizar dentro de la Reserva Indígena de Quitirrisí, se tributará un 0.25% del valor de la obra por concepto de impuesto a las construcciones.
+En el caso de personas que tramiten permisos de construcción con ayudas provenientes del Instituto Mixto de Ayuda Social (IMAS), tributarán un 0.5% del valor de la obra por concepto de impuesto a las construcciones, siendo necesario a dichos efectos la presentación por parte del interesado de la Constancia de la ayuda otorgada por dicha institución.
+Será necesario el permiso para iniciar las obras. Los plazos aquí establecidos rigen para cualquier trámite en el DDCU, salvo en aquellos usos que el procedimiento indique otra cosa.
+La solicitud de Visado Urbano indicará el uso del suelo de la finca y no se interpretará como un permiso de construcción.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 97 al 105 actual).

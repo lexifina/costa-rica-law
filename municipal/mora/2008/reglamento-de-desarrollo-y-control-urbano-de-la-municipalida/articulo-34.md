@@ -1,1 +1,9 @@
-Artículo 34.—Todo edificio o casa de habitación que se construya o esté construida, deberá tener canales o canoas y los tubos necesarios, para recoger las aguas pluviales. Dichas aguas deberán ser descargadas directamente en las vías públicas o desagües particulares previamente diseñados, y su paso por las aceras deberá hacerse bajo el pavimento o ladrillo de la misma, no permitiéndose caídas libres de aguas pluviales sobre la vía pública. Los tubos para el drenaje pluvial sobre la fachada, no podrán sobresalir del plano de la pared en más de diez centímetros.
+Artículo 34.—La Municipalidad no autorizará obras de construcción en los siguientes casos:
+a) Cuando ellas no guarden conformidad por razones de uso, ubicación, retiros, coberturas y además condiciones de zonificación si existieren.
+b) Si el predio de la edificación se ha originado en fraccionamiento sin el visado municipal que ordena la ley.
+c) Siempre que se trate de usar fundos sin requisitos de urbanización o faltos de acceso adecuado a la vía pública.
+d) Si el lote o fracción de éste, tiene cabida o dimensiones menores a los mínimos establecidos de Reglamento de Zonificación del cantón.
+e) En tanto lo vede alguna limitación impuesta por reserva a uso público o declaratoria formal de inhabitabilidad del área, motivada en renovación urbana o protección contra las inundaciones, derrumbes y otros peligros evidentes.
+f) Cuando el área en donde se va a construir coincida con una proyección vial aprobada por la Municipalidad.
+g) Los demás casos que indican la normativa jurídica vigente.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 26 al 34 actual).

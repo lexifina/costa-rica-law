@@ -1,3 +1,2 @@
-Artículo 86.—Número de espacios y normas de diseño. El número de espacios para los parqueos privados depende de la actividad por realizar. Toda superficie de estacionamiento será de materiales que resistan el tráfico pesado y permitan la permeabilidad de la lluvia.
-En el caso de hoteles se exigirá un espacio de estacionamiento por cada tres dormitorios.
-Las normas de diseño y operación están definidas por el Reglamento de Estacionamientos del MOPT, sin perjuicio de la reglamentación que la Municipalidad pueda realizar sobre la materia.
+Artículo 86.—Se prohíbe establecer o erigir cualquier construcción permanente o provisional, cuando con ello se demerite la apariencia tradicional del lugar, se obstaculice el tránsito adecuado de personas o vehículos, o se dañe o deterioren sitios, monumentos, edificaciones o el equipamiento urbano.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 78 al 86 actual).

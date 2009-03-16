@@ -1,1 +1,3 @@
-Artículo 76.—Queda prohibido fijar, pintar o colocar publicidad, fuera de los lugares expresamente autorizados por La Municipalidad, con sujeción a los criterios de la CTA.
+Artículo 76.—Dentro de los Perímetros del Centro Histórico de la Ciudad, podrán ejecutarse obras inmobiliarias, previa autorización de las instancias administrativas correspondientes.
+En los casos en que se trate de construcciones nuevas, demolición, modificación, reparación, ampliación, colocación de anuncios comerciales o aditamentos exteriores, los cuales modifiquen la arquitectura del lugar, implicando el entorno urbano y el paisaje natural, las mismos deberán realizarse respetando las características originales del Centro Histórico, y las regulaciones de este Reglamento.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 68 al 76 actual).

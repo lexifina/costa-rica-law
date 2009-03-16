@@ -1,2 +1,4 @@
-Artículo 60.—Exención del pago de licencia. Los rótulos de interés público, previamente reconocidos por la Municipalidad por cumplir exclusivamente una finalidad pública de provecho evidente para la comunidad, están exentos del pago de la licencia, siempre que no lleven publicidad, salvo en casos expresamente autorizados por la Municipalidad.
-Estos rótulos podrán ser de nomenclatura de calles, avenidas, predios, parques o plazas, placas de ubicación de sitios históricos, placas de homenaje y los rótulos guía para indicación de servicios públicos varios.
+CAPÍTULO IV
+Aguas residuales
+Artículo 60.—Las aguas residuales de cualquier origen deberán recibir tratamiento antes de ser descargadas en ríos, lagos, mares y demás cuerpos de agua; además, deberán alcanzar la calidad establecida para el cuerpo receptor, según su uso actual y potencial y para su utilización futura en otras actividades, según la normativa jurídica vigente.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 52 al 60 actual).

@@ -1,5 +1,2 @@
-Artículo 114.—Los sellos consignarán la siguiente información:
-“Municipalidad de Mora
-Clausurado
-Código Penal Art. 307: Se impondrá prisión de quince días a un año al que desobedeciera la orden impartida por un funcionario público en el ejercicio de sus funciones, salvo que se trate de su propia detención.
-Código Penal 312: Será reprimido con prisión de tres meses a dos años el que violare los sellos puestos por la autoridad sobre una cosa”.
+Artículo 114.—Integración de la comisión técnica administrativa: Será integrada por personal administrativo de los Departamentos relacionados con la prestación de servicios y control urbanístico y tributario: Jefe o Responsable de catastro municipal, Jefe o Responsable de la Administración Tributaria, Jefe o Responsable servicios y obras municipales, Jefe o Responsable del DDCU, Jefe o Responsable del Departamento Legal, Encargado de la Unidad de Gestión Ambiental y Jefe o responsable de la Unidad Técnica de Gestión Vial.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 106 al 114 actual).

@@ -1,1 +1,4 @@
-Artículo 93.—Posterior a la publicación y entrada en vigencia de este Reglamento, los proyectos aprobados tendrán una vigencia de hasta un año natural para llevarlos a cabo de no ser así, el interesado debe tramitar la renovación correspondiente, si aún el proyecto es compatible con los requisitos de zonificación, de lo contrario la licencia expirará.
+CAPÍTULO VI
+Espacios de estacionamiento
+Artículo 93.—Definición. Se distinguen tres tipos de estacionamientos o parqueos; los públicos, que están disponibles para cualquier conductor y necesitan una patente para su funcionamiento; los espacios en las vías públicas, que pueden ser arrendados por la Municipalidad a particulares por cierto número de horas o fracción de estas, por lo cual se puede cobrar un monto por medio de boletas o parquímetros; y los privados, de uso exclusivo por parte de personal o clientes de ciertos establecimiento o instituciones.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 85 al 93 actual).

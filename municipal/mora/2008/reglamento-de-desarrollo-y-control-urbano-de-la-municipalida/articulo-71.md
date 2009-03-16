@@ -1,1 +1,3 @@
-Artículo 71.—Se iniciará en el Centro Histórico un programa de recuperación de espacios públicos donde por cualquier causa se afecte la libre circulación y la imagen urbana.
+Artículo 71.—Requisitos técnicos. Todo rótulo que por sus dimensiones o posición esté dentro de los parámetros del artículo 61, pero que se considere peligroso por las cargas a que esté sometido o por alguna razón de seguridad complementaria, deberá adherirse a los edificios o donde su instalación permita, por medio de anclajes de metal, pernos o tornillos de expansión. No se permitirá que sean clavados a listones.
+En zonas urbanas solo se autorizará el empleo de metal y postes de concreto en el levantamiento de estructuras.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 63 al 71 actual).

@@ -1,1 +1,17 @@
-Artículo 117.—De conformidad con el inciso a) del artículo 89 de la Ley de Construcciones y el artículo 82 del Código Municipal cuando se diere el caso del inicio de una construcción sin el respectivo permiso municipal, se aplicarán los montos económicos establecidos en el Reglamento para el cobro de multas por infracciones a la Ley de Construcciones de la Municipalidad de Mora, aprobado en sesión ordinaria 73-2006-2008, de fecha 17 de setiembre del 2007.
+Artículo 117.—Infracciones. Serán causas de notificación las siguientes situaciones:
+a) Realizar sin permiso de construcción previo, obras para las cuales las Leyes y Reglamentos vigentes exigen la licencia.
+b) Realizar obras amparadas por un plazo vencido.
+c) Realizar obras modificando parcial o radicalmente el proyecto previamente aprobado por la Municipalidad.
+d) Realizar sin la debida protección, obras que pongan en peligro la vida o las propiedades.
+e) No enviar oportunamente a la Municipalidad los informes de datos que se previene en diferentes Capítulos del Reglamento,
+f) No dar aviso a la Municipalidad de suspensión o terminación de obras.
+g) Desobedecer órdenes sobre modificaciones suspensión o destrucción de obras de la Municipalidad.
+h) Hacer uso indebido de la vía pública y acceso a propiedades: carretera, calle pública, camino o servidumbre.
+i) Hacer uso indebido de los servicios públicos alumbrado público, alcantarillado sanitario y pluvial, acueducto, otros.
+j) Ocupar o hacer uso de una construcción sin antes haber dado aviso de la terminación de la obra.
+k) Impedir o estorbar a los Inspectores cumplir su cometido.
+l) No dar cumplimiento a los plazos de resolución previamente dispuestos y notificados.
+m) Por ejercer alguna actividad comercial o industrial sin la licencia o patente respectiva al día.
+n) La inobservancia a alguna citación o audiencia previamente convocada por la Municipalidad con carácter resolutiva.
+o) Cualquier otra infracción tipificada en el ordenamiento jurídico.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 109 al 117 actual).

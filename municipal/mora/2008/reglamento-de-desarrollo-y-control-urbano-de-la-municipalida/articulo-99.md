@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-De las licencias en general
-Artículo 99.—Licencias. Toda obra de urbanización, renovación urbana, construcción, reparación, ampliación, remodelación o demolición que se desarrolle en el Cantón de Mora debe contar con el respectivo permiso o licencia, que se solicitará en el DDCU, así como en las demás dependencias públicas que previamente deban dar su aprobación.
+Artículo 99.—En los centros comerciales planificados, que incluya locales de uso comercial y para oficinas, públicas y particulares, se considerará un estacionamiento por cada cincuenta metros cuadrados (50m2), de área bruta de construcción.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 91 al 99 actual).

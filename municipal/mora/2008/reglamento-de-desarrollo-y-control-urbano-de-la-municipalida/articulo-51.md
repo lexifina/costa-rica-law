@@ -1,14 +1,11 @@
-Artículo 51.—Requisitos para obtener certificado de uso de suelo, disponibilidad de descargas de aguas pluviales y alineamientos para proyectos de urbanización, conjunto habitacional o condominio residencial.
-1. Solicitud de visado realizada en el formulario elaborado por la Municipalidad debidamente lleno y firmado por el propietario del inmueble.
-2. Si el propietario es persona física, copia de la cedula de identidad y si es persona jurídica copia de la cedula jurídica y original de la personería jurídica del representante legal.
-3. Tres fotocopias del plano catastrado, sin reducir ni pegas, debidamente visado por la municipalidad.
-4. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva.
-5. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio.
-6. Certificación de la propiedad o informe registral vigente, no más de un mes de emitido.
-7. Alineamiento fluvial extendido por el departamento de urbanismo del INVU, cuando la propiedad cuente con quebrada, acequia.
-8. Alineamiento según corresponda, el mismo deberá ser emitido por el ente responsable de conformidad como lo indica el capitulo I del presente reglamento.
-9. Un plano topográfico de la totalidad del terreno indicando las curvas de nivel a cada metro mínimo clasificando el terreno conforme a los siguientes rangos de pendientes: hasta un 10% mas del 10% pero menos del 20% mas del 20% pero menos del 30%.
-10. Pruebas de infiltración del terreno elaboradas por un profesional autorizado para tales efectos.
-11. Estudio de capacidad hidráulica del alcantarillado pluvial realizado por un profesional autorizado para tales efectos.
-12. La documentación no se entregará sin la presentación del formulario de trámite emitida por la municipalidad.
-13. Estar al día en el pago de los impuestos.
+Artículo 51.—Requisitos para obtener un permiso de construcción para realizar reparaciones menores en edificaciones existentes: cambios de acabado en pisos, paredes o cielorrasos, reparaciones de techos o instalaciones electromecánicas.
+1. Solicitud de permiso de construcción realizada en formulario elaborado por al Municipalidad, debidamente lleno y firmado por el propietario del inmueble.
+2. Si el propietario es persona física, copia de la cédula de identidad y si es persona jurídica copia de la cédula jurídica y original de la personería jurídica del representante legal.
+3. Copia legible y completa (sin reducciones o particiones) del plano catastrado de la propiedad, debidamente visado por la Municipalidad.
+4. Certificación de la propiedad o informe registral vigente no mas de un mes de emitido.
+5. Cuando se requiera de alineamientos el mismo deberá ser extendido por el ente responsable del mismo de conformidad como se indica en el Capitulo I del presente reglamento.
+6. Descripción de las obras detallando:
+a. Dimensión y ubicación de las obras.
+b. Presupuesto y descripción de materiales y mano de obra.
+7. Estar al día en el pago de impuestos municipales.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 43 al 51 actual).

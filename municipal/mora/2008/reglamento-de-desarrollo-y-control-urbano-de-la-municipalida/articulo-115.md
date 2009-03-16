@@ -1,1 +1,2 @@
-Artículo 115.—La violación de sellos será sancionado conforme al artículo 312 del Código Penal y por toda aquella disposición que resuelva la Administración.
+Artículo 115.—Procedimientos: La CTA mediante evaluación de cada proyecto elaborará y rendirá un dictamen y recomendaciones que deberá ser puesto en conocimiento de la instancia administrativa correspondiente.
+(Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 107 al 115 actual).
