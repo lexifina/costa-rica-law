@@ -15,3 +15,4 @@ Reglamento del Comité de Inversiones de Popular Sociedad de Fondos de Inversió
 | --- | --- | --- |
 | 1 | 2007-04-23 | la propia norma |
 | 2 | 2007-11-19 | Reglamento 224 (2007-11-19) |
+| 3 | 2009-03-16 | Reglamento 257 (2009-03-16) |

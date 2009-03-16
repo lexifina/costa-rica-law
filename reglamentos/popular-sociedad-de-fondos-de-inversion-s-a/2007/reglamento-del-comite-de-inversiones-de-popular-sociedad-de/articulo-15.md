@@ -1,1 +1,2 @@
-Artículo 15.—El Gestor de Portafolio supervisará la compra y venta de valores, vigilando que se encuentren dentro de los parámetros aprobados en el prospecto de cada Fondo de Inversión y las políticas generales aprobadas por el Comité.
+Artículo 15.—El Gestor de Portafolio Financiero supervisará la compra y venta de valores, de igual forma el Gestor Inmobiliario velará por la cartera inmobiliaria en todo lo que respecta, vigilando que se encuentren dentro de los parámetros aprobados en el prospecto de cada Fondo de Inversión y las políticas generales aprobadas por el Comité.
+(Así reformado en sesión N° 257 del 16 de marzo de 2009)
