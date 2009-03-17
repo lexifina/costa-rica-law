@@ -18,3 +18,4 @@ Norma RTCR 100:1997 Etiquetado de los Alimentos Preenvasados
 | 3 | 2004-03-16 | Decreto Ejecutivo 31700 (2004-03-16) |
 | 4 | 2006-04-06 | Decreto Ejecutivo 33117 (2006-04-06) |
 | 5 | 2006-05-16 | Decreto Ejecutivo 33180 (2006-05-16) |
+| 6 | 2009-03-17 | Decreto Ejecutivo 35204 (2009-03-17) |

@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: El artículo 1°, punto 2 del Reglamento Técnico: RTCR 413:2008 Helados y Mezclas para Helados, decreto ejecutivo N° 35405 del 21 de abril de 2009, así como el artículo 1°, punto 2 del Reglamento Técnico: RTCR 412:2008 Crema (Nata) y Crema Ácida y Fermentada (Natilla), decreto ejecutivo N° 35406 del 21 de abril de 2009, establecen que su reglamento técnico se complementa con la presente normativa)
 No 26012-MEIC
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE ECONOMÍA,
 INDUSTRIA Y COMERCIO
@@ -20,7 +21,8 @@ Para los fines de este reglamento se entenderá por:
 2.7 fecha límite de venta: la última fecha en que se ofrece el alimento para la venta al consumidor, después de la cual queda un plazo razonable de almacenamiento en el hogar.
 2.8 fecha de duración mínima (consumir preferentemente antes de): la fecha en que, bajo determinadas condiciones de almacenamiento, expira el período durante el cual el producto es totalmente comercializable y mantiene cuantas cualidades específicas se le atribuyen tácita o explícitamente. Sin embargo, después de esta fecha, el alimento puede ser todavía enteramente satisfactorio.
 2.9 fecha límite de utilización (fecha límite de consumo recomendada) (fecha de caducidad): la fecha en que termina el período después del cual el producto, almacenado en las condiciones indicadas, no tendrá probablemente los atributos de calidad que normalmente esperan los consumidores. Después de esta fecha, no se considerará comercializable el alimento.
-2.10 alimento: toda sustancia elaborada, semielaborada o en bruto, que se destina al consumo humano, incluidas las bebidas, el chicle y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento de “alimentos”, pero no incluye los cosméticos, el tabaco ni las sustancias que se utilizan únicamente como medicamentos.
+(*)2.10 alimento: Toda sustancia elaborada, semielaborada o cruda, que se destina a la ingesta humana, incluidas las bebidas, el chicle y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento de “alimentos”, pero no incluye los cosméticos, el tabaco ni las sustancias que se utilizan únicamente como medicamentos.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009, el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 2.11 por aditivo alimentario: se entiende cualquier sustancia que no se consume normalmente como alimento por sí mismo ni se usa normalmente como ingrediente típico del alimento, tenga o no valor nutritivo, cuya adición intencional al alimento para un fin tecnológico (inclusive organoléptico) en la fabricación, elaboración, tratamiento, envasado, empaquetado, transporte o almacenamiento provoque, o pueda esperarse razonablemente que provoque (directa o indirectamente), el que ella misma o sus subproductos lleguen a ser un complemento del alimento o afecten a sus características. Esta definición no incluye los “contaminantes” ni las sustancias añadidas al alimento para mantener o mejorar las cualidades nutricionales.
 2.12 ingredientes: cualquier sustancia, incluidos los aditivos alimentarios, que se emplee en la fabricación o preparación de un alimento y esté presente en el producto final aunque posiblemente en forma modificada.
 2.13 etiqueta: cualquier marbete, rótulo, marca, imagen u otra materia descriptiva o gráfica, que se haya escrito, impreso, estarcido, marcado, marcado en relieve o en huecograbado o adherido al envase de un alimento.
@@ -47,7 +49,7 @@ En la etiqueta de alimentos preenvasados deberá aparecer la siguiente informaci
 4.2.1.2 Deberán enumerarse todos los ingredientes por orden decreciente de peso inicial (m/m) en el momento de la fabricación del alimento.
 4.2.1.3 Cuando un ingrediente sea a su vez producto de dos o más ingredientes dicho ingrediente compuesto podrá declararse como tal en la lista de ingredientes, siempre que vaya acompañado inmediatamente de una lista entre paréntesis de sus ingredientes por orden decreciente de proporciones (m/m). Cuando un ingrediente compuesto, para el que se ha establecido un nombre en una norma nacional o del Codex Alimentarius, constituya menos del cinco por ciento (5%) del alimento, no será necesario declarar los ingredientes, salvo los aditivos alimentarios que desempeñan una función tecnológica en el producto acabado y los ingredientes que puedan causar reacciones alérgicas a personas con hipersensibilidad de conformidad con el punto 4.2.1.4 siguiente.
 (Así reformado el numeral anterior mediante el artículo 2° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
-4.2.1.4 Se ha comprobado que los siguientes alimentos e ingredientes causan hipersensibilidad (1) y deberán declararse por su nombre:
+(*)4.2.1.4 Se ha comprobado que los siguientes alimentos e ingredientes causan hipersensibilidad (1) y deberán declararse por su nombre:
 (1) La lista de ingredientes y aditivos que puedan causar hipersensibilidad, será actualizada de conformidad a las recomendaciones que el Codex Alimentarius a futuro añadan o elimine.
 - cereales que contienen gluten, por ejemplo, trigo, centeno, cebada, avena, espelta o sus cepas híbridas, y productos de éstos,
 - crustáceos y sus productos,
@@ -58,54 +60,47 @@ En la etiqueta de alimentos preenvasados deberá aparecer la siguiente informaci
 - nueces de árboles y sus productos derivados,
 - sulfito en concentraciones de 10 mg/kg o más."
 Si alguno de los ingredientes o aditivos del punto anterior pudiera estar presente en el producto final aunque sea en forma no intencional y no se menciona en la lista de ingredientes, deberá colocarse luego de la misma una frase que indique claramente la posibilidad de su presencia, por ejemplo: "contiene…", "podría contener…", "podría contener trazas de…", entre otros."
-(Así adicionado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
+(*)(Así adicionado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.2.1.5 En la lista de ingredientes deberá indicarse el agua añadida, excepto cuando el agua forme parte de ingredientes tales como la salmuera, el jarabe o el caldo empleados en un alimento compuesto y declarados como tales en la lista de ingredientes. No será necesario declarar el agua u otros ingredientes volátiles que se evaporan durante la fabricación.
-(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
+(Así corrida la numeración del inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
 4.2.1.6 Como alternativa a las disposiciones generales de esta sección, cuando se trate de alimentos deshidratados o condensados destinados a ser reconstituidos, podrá enumerarse sus ingredientes por orden de proporciones (m/m) en el producto reconstituido, siempre que se incluya una indicación como la que sigue: “ingredientes del producto cuando se prepara según las instrucciones de la etiqueta”.
-(Así corrida la numeración del numeral anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
-4.2.2 En la lista de ingredientes deberá emplearse un nombre específico de acuerdo con lo previsto en la subsección 4.1 (nombre del alimento), con la excepción de que:
-4.2.2.1 Podrán emplearse los siguientes nombres genéricos para los ingredientes que pertenecen a la clase correspondiente:
+(Así corrida la numeración del inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33117 del 6 de abril del 2006).
+(*)4.2.2. En la lista de ingredientes deberá emplearse un nombre específico de acuerdo con lo previsto en la subsección 4.1 (nombre del alimento).
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009, el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N ° 105 del 2 de junio de 2009)
+(*)4.2.2.1 Con la excepción de los ingredientes mencionados en la subsección 4.2.1.4, y a menos que el nombre genérico de una clase resulte más informativo, podrán emplearse los siguientes nombres de clases de ingredientes:
 Clases de ingredientes | Nombres genéricos
-Aceites refinados distintos del aceite de oliva | “Aceite”, juntamente con el término “vegetal” o “animal”, calificado con el término “hidrogenado” o “parcialmente hidrogenado”, según sea el caso.
-Grasas refinadas | “Grasas”, juntamente con el término “vegetal” o “animal”, según sea el caso.
-Almidones, distintos de los almidones modificados químicamente. | “Almidón”.
-Todas las especies de pescado, cuando el pescado constituya un ingrediente de otro alimento y siempre que en la etiqueta y la presentación de dicho alimento no se haga referencia a una determinada especie de pescado | “Pescado”.
-Todos los tipos de carne de aves de corral, cuando dicha carne constituya un ingrediente de otro alimento y siempre que en la etiqueta y la presentación de dicho alimento no se haga referencia a un tipo específico de carne de aves de corral. | “Carne de aves de corral”.
+Aceites refinados distintos del aceite de oliva. | “Aceite”, juntamente con el término “vegetal” o “animal”, calificado con el término “hidrogenado” o “parcialmente hidrogenado”, según sea el caso.
+Grasas refinadas. | “Grasas”, juntamente con el término “vegetal” o “animal”, según sea el caso.
+Almidones, distintos de los almidones modificados químicamente. | “Almidón”
+Todas las especies de pescado, cuando el pescado constituya un ingrediente de otro alimento y siempre que en la etiqueta y la presentación de dicho alimento no se haga referencia a una determinada especie de pescado. | “Pescado”
+Todos los tipos de carne de aves de corral, cuando dicha carne constituya un ingrediente de otro alimento y siempre que en la etiqueta y la presentación de dicho alimento no se haga referencia a un tipo específico de carne de aves de corral. | “Carne de aves de corral”
 Todos los tipos de queso, cuando el queso o una mezcla de quesos constituya un ingrediente de otro alimento y siempre que en la etiqueta y la presentación de dicho alimento no se haga referencia a un tipo específico de queso. | “Queso”.
 Todas las especias y extractos de especias en cantidad no superior al 2% en peso, solas o mezcladas en el alimento. | “Especia”, “especias”, o Mezclas de especias”, según sea el caso.
-Todas las hierbas aromáticas o partes de hierbas aromáticas en cantidad no superior al 2% en peso, solas o mezcladas en el alimento | “Hierbas aromáticas” o “mezclas de hierbas aromáticas”, según sea el caso.
+Todas las hierbas aromáticas o partes de hierbas aromáticas en cantidad no superior al 2% en peso, solas o mezcladas en el alimento. | “Hierbas aromáticas” o “mezclas de hierbas aromáticas”, según sea el caso.
 Todos los tipos de preparados de goma utilizados en la fabricación de la goma de base para la goma de mascar. | “Goma de base”.
-Todos los tipos de sacarosa. | “Azúcar”.
+Todos los tipos de sacarosa. | “Azúcar”
 Dextrosa anhidra y dextrosa monohidratada | “Dextrosa” o “glucosa”
 Todos los tipos de caseinatos. | “Caseinatos”.
-Manteca, de cacao obtenida por presión o extracción o refinada. | “ Manteca de cacao”.
-Todas las frutas confitadas, sin exceder del 10% del peso del alimento. | “Frutas confitadas”.
+Manteca, de cacao obtenida por presión o extracción o refinada. | “Manteca de cacao”.
+Todas las frutas confitadas, sin exceder del 10% del peso del alimento.+ | “Frutas confitadas”.
+Proteína láctea | Productos lácteos que contienen un mínimo de 50% de proteína láctea (m/m) en el extracto seco*
+* cálculo del contenido de proteína láctea nitrógeno (determinado mediante el principio de Kjeldahl) x 6,38
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009, el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 4.2.2.2 No obstante lo estipulado en la disposición 4.2.2.1, deberán declararse siempre por sus nombres específicos la grasa de cerdo, la manteca y la grasa de bovino.
-*4.2.2.3 Cuando se trate de aditivos alimentarios pertenecientes a las distintas clases y que figuran en la lista de aditivos alimentarios cuyo uso se permite en los alimentos en general, podrán emplearse el número de identificación aceptado en la legislación nacional y los siguientes nombres genéricos junto con el nombre específico.
-Acentuador del sabor
-Acido
-Agente antiglutinante
-Antiglutinante
-Antiespumante
-Antioxidante
-Colorante
-Edulcorante
-Emulsionante
-Espesante
-Espumante
-Estabilizador
-Gasificante
-Gelificante
-Humectante
-Incrementador del volumen
-Propelente
-Regulador de la acidez
-Sal emulsionante
-Sustancia conservadora
-Sustancia de retención del color
-Sustancia para el tratamiento de harinas
-Sustancia para el glaseado
-*(Así reformado mediante el artículo 1° del decreto ejecutivo N° 26829 del 9 de marzo de 1998).
+(*)4.2.2.3 Cuando se trate de aditivos alimentarios pertenecientes a las distintas clases y que figuran en la lista de aditivos alimentarios cuyo uso se permite en los alimentos en general, podrán emplearse el número de identificación aceptado en la legislación nacional, y los siguientes nombres genéricos de las clases funcionales o sus sinónimos junto con el nombre específico o aquellos que establezca la Norma General de Aditivos Alimentarios del Codex Alimentarius (CAC/GL 36-1989) en su última versión:
+• Regulador de la acidez | • Incrementador del volumen
+• Ácidos | • Color
+• Antiaglutinante | • Agente de retención del color
+• Antiespumante | • Emulsionante
+• Antioxidante | • Sal emulsionante
+• Espumante | • Sustancia Conservadora
+• Agente endurecedor | • Propulsores
+• Agente de tratamiento de las harinas | • Gasificante
+• Acentuador del aroma | • Estabilizador
+• Agente gelificante | • Edulcorante
+• Agente de glaseado | • Espesante
+• Humectante |
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 4.2.2.4 Podrán emplearse los siguientes títulos genéricos cuando se trate de aditivos alimentarios que pertenezcan a las respectivas clases y que figuren en las listas de aditivos alimentarios nacionales o del Codex Alimentarius cuyo uso en los alimentos ha sido autorizado:
 Aroma(s)y aromatizante (s)
 Almidón(es) modificado (s)
@@ -126,7 +121,15 @@ iii) en peso, para los alimentos semisólidos o viscosos.
 4.5 País de origen.
 4.5.1 Deberá indicarse el país de origen.
 4.5.2 Cuando un alimento se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
-4.6 Identificación del lote. Cada envase deberá llevar grabada o marcada de cualquier otro modo, pero de forma indeleble, una indicación en clave o en lenguaje claro, que permita identificar el lote. Puede usarse la fecha de vencimiento como identificación del lote.
+(*)4.6 Identificación del lote.
+Cada envase deberá llevar grabado o marcado de cualquier otro modo, pero de forma indeleble, un código que permita identificar el lote. Dicho código no deberá inducir a error o confusión al consumidor.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+4.6.1 Cuando se incluya otra información numérica en el envase y la misma pueda inducir al error al consumidor, se deberá expresar con claridad cuál de ellas es el lote de producción, pudiendo utilizar, entre otras, las palabras “Número de lote”, “Lote”, “N de lote” y abreviaturas reconocidas como “Lot”, “L”, “N.L.”.
+(Así adicionado el numeral anterior por el artículo 1° decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+4.6.2 Si se incluye otra información numérica o código en el envase o etiqueta que inicie con la letra “L”, no se permitirá esta letra como indicativo del lote.
+(Así adicionado el numeral anterior por el artículo 1° decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+4.6.3 Si no se puede identificar el número de lote por no cumplir con lo indicado en los apartados 4.6.1 y 4.6.2, las autoridades encargadas de la verificación asumirán que la fecha de vencimiento es el indicativo del lote.
+(Así adicionado el numeral anterior por el decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 *4.7 Marcado de la fecha de vencimiento e instrucciones para la conservación
 4.7.1 La fecha de vencimiento debe ser colocada directamente por el fabricante y no ser alterada ni estar oculta. En caso de que no se indique esta fecha en las condiciones antes mencionadas, el formato podrá ser ajustado y colocado por el importador, según la información técnica del fabricante o proveedor para la indicación de la fecha de vencimiento. Dicha información será aportada por el importador en caso de que la autoridad competente lo solicite.
 4.7.2 Regirá el siguiente marcado de la fecha:
@@ -143,25 +146,55 @@ En ese sentido se permitirá el uso de las palabras “vence”, “caduca”, �
 iii) Esta constará por lo menos de:
 - Día, mes y año para los productos que tengan una fecha de vencimiento no superior a tres meses;
 - Mes y año para productos que tengan una fecha de vencimiento de más de tres meses. En este caso deberá indicarse de la siguiente manera: “Al final de...”
-iv) El día, mes y año deberán declararse en orden numérico no codificado separado por guiones, punto o barra inclinada, con la salvedad de que podrá indicarse el mes con letras, inclusive en forma abreviada en formato de tres letras.
-v) No obstante lo prescrito en la disposición 4.7.1 (i), no se requerirá la indicación de la fecha de vencimiento para:
-- frutas y hortalizas frescas, incluidas las patatas, que no hayan sido peladas, cortadas o tratadas de otra forma análoga;
-- vinos, vinos de licor, vinos espumosos, vinos aromatizados, vinos de frutas y vinos espumosos de fruta;
-- bebidas alcohólicas que contengan 10% o más de alcohol por volumen;
-- productos de panadería y pastelería que por la naturaleza de su contenido, se consumen por lo general dentro de las 24 horas siguientes a su fabricación;
-- vinagre;
-- sal de calidad alimentaria;
-- azúcar sólido;
-- productos de confitería consistentes en azúcares aromatizados y coloreados;
-- goma de mascar;
-- productos específicos que han sido eximidos por los Comités sobre Productos, ya sean nacionales o del CODEX.
+(*)iv) El día, mes y año deberán declararse en orden numérico no codificado separado por guiones, punto o barra inclinada, con la salvedad de que podrá indicarse el mes con letras, inclusive en forma abreviada en formato de tres letras. Además se permitirá el uso de espacios y en el caso de que la fecha se exprese en forma alfanumérica, podrá no requerirse ninguna separació
+(*)(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+(*)v) No obstante lo prescrito en la disposición 4.7.2 (i), no se requerirá la indicación de la fecha de vencimiento para:
+• frutas y hortalizas frescas, incluidas las patatas, que no hayan sido peladas cortadas o tratadas de otra forma análoga;
+• vinos, vinos de licor, vinos espumosos, vinos aromatizados, vinos de frutas y vinos espumosos de fruta;
+• bebidas alcohólicas que contengan 10% o más de alcohol por volumen;
+• productos de panadería y pastelería que por la naturaleza de su contenido, se consumen por lo general dentro de las 24 horas siguientes a su fabricación;
+• vinagre;
+• sal de calidad alimentaria;
+• azúcar sólido;
+• productos de confitería consistentes en azúcares aromatizados y coloreados;
+• goma de mascar;
+• productos específicos que han sido eximidos por los Comités sobre Productos, ya sean nacionales o del CODEX.
 Además de la fecha de vencimiento o caducidad se indicarán en la etiqueta cualesquiera condiciones especiales que se requieran para la conservación del alimento, si de su cumplimiento depende la validez de la fecha.
+(*)(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 *(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33180 del 16 de mayo del 2006).
 4.8 Instrucciones para el uso. La etiqueta deberá contener las instrucciones que sean necesarias sobre el modo de empleo, incluida la reconstitución, si es el caso, para asegurar una correcta utilización del alimento.
-5 REQUISITOS OBLIGATORIOS ADICIONALES
-5.1 Etiquetado Cuantitativo de los Ingredientes
-5.1.1 Cuando el etiquetado de un alimento destaque la presencia de uno o más ingredientes valiosos y caracterizantes, o cuando la descripción del alimento produzca el mismo efecto, se deberá declarar el porcentaje inicial del ingrediente (m/m) en el momento de la fabricación.
-5.1.2 Asimismo, cuando la etiqueta de un alimento se destaque el bajo contenido de uno o más ingredientes, deberá declararse el porcentaje del ingrediente (m/m) en el producto final.
+(*)4.9 Registro Sanitario del producto.
+Debe indicarse el número de registro sanitario de alimentos otorgado por el Ministerio de Salud, el cual debe estar presidido por cualquiera de las siguientes frases:
+R.M.S. xxxx-A-xxxx
+Reg. MS: xxxx-A-xxxxx
+Reg. San.: xxxx-A-xxxxx
+Reg. Sanitario: xxxx-A-xxxxx
+Registro Sanitario:
+Costa Rica: xxxx-A-xxxxx
+Guatemala: xxxx-A-xxxxx
+El Salvador: xxxx-A-xxxxx, etc.
+Nº Registro Sanitario: xxxx-A-xxxxx
+Cualquier otra frase que indique claramente al consumidor, el número de registro sanitario del alimento.
+Nota: En el caso del producto importado, se podrá agregar el número de registro sanitario mediante una etiqueta complementaria.
+(*)(Así adicionado por el artículo 2° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+5 Requisitos obligatorios adicionales
+5.1 Declaración Cuantitativa de los Ingredientes
+(*)5.1.1 El porcentaje de un ingrediente incluyendo ingredientes compuestos (1) o categorías de ingredientes (2), por peso o volumen según corresponda, al momento de su elaboración, deberá declararse para aquellos alimentos vendidos como mezcla o combinación, cuando el ingrediente:
+(1) Para ingredientes compuestos el porcentaje de ingredientes refiere al porcentaje del ingrediente compuesto como un todo.
+(2) 2 Para propósitos de la Declaración Cuantitativa de Ingredientes, categoría de ingredientes significa el término genérico que se refiere al nombre de clase de un ingrediente y/o cualquier término o términos comúnes similares utilizados en referencia al nombre de un alimento.”
+a) Es enfatizado o resaltado en la etiqueta por medio de palabras, imágenes o gráficos;
+b) No está en el nombre del alimento, pero es esencial para caracterizar el alimento y los consumidores en el país en que se vende esperan que esté presente en el alimento y la omisión de la declaración cuantitativa del ingrediente podría confundir o engañar al consumidor.
+Tales declaraciones no se requieren cuando:
+(1) el ingrediente es utilizado para propósitos saborizantes o aromatizantes; o
+(2) normas específicas del Codex Alimentarius relativas a los productos establezcan disposiciones contrarias con los requisitos aquí descritos.
+Respecto a la Sección 5.1.1 (a):
+(3) La referencia en el nombre del alimento, a un determinado ingrediente o categoría de ingredientes no implicará de por sí el requerir una declaración cuantitativa de ingredientes si es que la referencia no conducirá a error o engaño, o no es probable que cree una impresión errónea en el consumidor respecto a la naturaleza del alimento en el país en que se comercializa, porque la variación entre productos de la cantidad del ingrediente o ingredientes no es necesaria para caracterizar al alimento o distinguirlo de alimentos similares.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+(*)5.1.2 La información requerida en la Sección 5.1.1 será declarada en la etiqueta del producto como un porcentaje numérico.
+El porcentaje de ingrediente, por peso o volumen como fuera apropiado, de cada ingrediente, se dará en la etiqueta muy cerca de las palabras o imágenes o gráficos que destacan el ingrediente particular, o al lado del nombre común del alimento, o adyacente a cada ingrediente apropiado enumerado en la lista de ingredientes como un porcentaje mínimo cuando el énfasis es sobre la presencia del ingrediente, y como un porcentaje máximo cuando el énfasis es sobre el bajo nivel del ingrediente.
+Para alimentos que han perdido humedad luego de un tratamiento térmico u otro tratamiento, el porcentaje (con respecto al peso o al volumen) corresponderá a la cantidad del ingrediente o ingredientes usados, en relación al producto terminado.
+Cuando la cantidad total del ingrediente o la cantidad total de todos los ingredientes expresados en el etiquetado exceden el 100%, el porcentaje puede ser reemplazado por el peso del ingrediente o ingredientes usados para preparar 100g de producto terminado.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 5.1.3 La referencia en el nombre del alimento, a un determinado ingrediente no implicará, este hecho por sí solo, que se le conceda un relieve especial. La referencia, en la etiqueta del alimento, a un ingrediente utilizado en pequeña cantidad o solamente como aromatizante, no implicará por si sola, que se le conceda un relieve especial.
 5.2 Alimentos irradiados.
 (NOTA DE SINALEVI: Ver cuadro en la página N° 4 de La Gaceta impresa N° 91 del 14 de mayo de 1997).
@@ -179,10 +212,23 @@ Cuando se empleen designaciones de calidad, estas deberán ser fácilmente compr
 8.1.1 Las etiquetas que se pongan en los alimentos preenvasados deberán aplicarse de manera que no se separen del envase.
 8.1.2 Los datos que deben aparecer en la etiqueta, en virtud de este reglamento o de cualquier otro reglamento nacional o del Codex Alimentarius deberán indicarse con caracteres claros, bien visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra y uso.
 8.1.3 Cuando el envase esté cubierto por una envoltura, en esta deberá figurar toda la información necesaria, o la etiqueta aplicada al envase deberá poder leerse fácilmente a travéz de la envoltura exterior o no deberá estar oscurecida por esta.
-8.1.4 El nombre y contenido neto del alimento deberán aparecer en un lugar prominente y en el mismo campo de visión.
+8.1.4 El nombre y contenido neto del alimento deberán aparecer en el mismo campo de visión.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35204 del 17 marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+8.1.5 Para presentar la información de la etiqueta deberán utilizarse caracteres cuya altura no sea inferior a un milímetro ( 1 mm ), entendiendo dicha altura como la distancia comprendida desde la línea de base hasta la base superior de un carácter en mayúscula, para lo cual se recomienda el uso del modelo básico que se presenta en el anexo B.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 8.2 Idioma.
-8.2.1 Deberán redactarse en idioma español, cuando el idioma en que está redactada la etiqueta original no sea en este idioma, en vez de poner una nueva etiqueta podrá emplearse una etiqueta complementaria, que contenga la información obligatoria en el idioma español.
-8.2.2 Cuando se aplique una nueva etiqueta o una etiqueta complementaría, la información obligatoria que se facilite deberá reflejar totalmente y con exactitud la información que figura en la etiqueta original.
+8.2.1 Cuando el idioma en que está redactada la etiqueta original no sea en idioma español, debe colocarse una etiqueta complementaria o pegatina en idioma español, que contenga la información obligatoria incluida en los apartados 4, 5 y 6 que establece este reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35204 del 17 marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+8.2.2 Cuando se aplique una etiqueta complementaria o pegatina, la información obligatoria que se facilite deberá reflejar totalmente y con exactitud la información que figura en la etiqueta original, no obstante el nombre del producto deberá ajustarse a lo establecido en la legislación nacional vigente y por tanto puede no ser una traducción fiel del nombre consignado en la etiqueta original del producto”.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35204 del 17 marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+8.2.3 Cualquier etiqueta complementaria o pegatina que se adicione a un producto, en ningún caso podrá obstruir la siguiente información técnica de la etiqueta original.
+a. Fecha de vencimiento
+b. Número de lote
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+8.2.4 La presentación de la información que debe contener la etiqueta complementaria o pegatina, deberá cumplir con los mismos requisitos establecidos en los apartados 8.1.1, 8.1.2, 8.1.3, 8.1.4 y 8.1.5 de este reglamento.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
+8.2.5 Cuando la etiqueta original contenga información nutricional esta deberá también traducirse al idioma español conforme con lo establecido en el reglamento sobre Etiquetado Nutricional vigente.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009)
 9 CORRESPONDENCIA
 Este documento es una homologación de:
 ITALIA. Comisión del Codex Alimentarius. Programa Conjunto FAO/OMS sobre Normas Alimentarias. CODEX STAN 1-1985 (Rev. 1-1991) revisada en sus 16º y 19º períodos de sesiones (1985 y 1991), y enmendada en su 23º y 24º período de sesiones (1999 y 2001). (Norma Mundial).
@@ -217,30 +263,20 @@ A.5.1 Deberá controlarse el uso de las siguientes declaraciones de propiedades;
 a) Se podrá indicar que un alimento ha adquirido un valor nutritivo especial o superior gracias a la adición de nutrientes no medicamentosos, tan solo si dicha adición ha sido hecha fundándose en consideraciones nutricionales. Las indicaciones de este tipo estarán sujetes a la legislación que promulguen las autoridades competentes.
 b) Los términos “natural”, “puro”, “fresco”, y “casero”, cuando se utilicen, deberán estar de acuerdo con las prácticas nacionales. El uso de estos términos deberá estar en consonancia con las prohibiciones establecidas en A. 3.
 c) Preparación ritual o religiosa de un alimento, podrá declararse siempre que el alimento se ajuste a las exigencias de las autoridades competentes religiosas o del ritual.
-APÉNDICE B (NORMATIVO)
-DIRECTRICES SOBRE MARCADO DE LA FECHA DE
-ALIMENTOS PREENVASADOS PARA USO DE LOS COMITÉS NACIONALES
-DE NORMALIZACIÓN DE ALIMENTOS
-B.1 FINALIDAD DEL MARCADO DE LA FECHA
-La finalidad del marcado de la fecha es dar a los consumidores una fecha que proporcione información sobre la calidad esperada del producto, suponiendo que el alimento haya estado debidamente almacenado. Esto significa que el marcado de la fecha garantiza una calidad aceptable o la inocuidad del producto.
-B.2 ÁMBITO DE APLICACIÓN
-B.2.1 Tan sólo el marcado de la fecha en claro, esto es una fecha clara e inconfundible que el consumidor pueda interpretar correctamente, designada de acuerdo con de las definiciones normalizadas que se dan a continuación, constituye “Marcado de la Fecha” en el sentido utilizado en estas directrices.
-B.2.2 El mareado de la fecha en código para identificación del lote o cualquier otra finalidad de control no constituye “Marcado de la fecha” en el sentido utilizado en estas directrices. Sin embargo no se excluye el empleo de una fecha en claro, a efectos de control, por ejemplo, para identificación del lote, pero se debe reconocer que dicha fecha no se calificará como “Marcado de la Fecha” a no ser que haya una identificación en claro del tipo de “Marcado de la Fecha” que se define específicamente a continuación , y que el comité nacional o del Codex pertinente haya acordado que dicho “Marcado de la Fecha” es adecuado para el producto en cuestión.
-B.3 DEFINICIÓN DE TIPOS DE MARCADO DE LA FECHA
-B.3.1 fecha de fabricación: fecha en que el alimento se convierte en el producto descrito.
-B.3.2 fecha de envasado: fecha en que el alimento se coloca en el envase en que se venderá finalmente.
-Para algunos alimentos estas dos fechas serán idénticas.
-B.33. fecha límite de venta: la fecha límite dé venta es la última fecha en que se ofrece a la venta al consumidor después de la cual queda un plazo razonable de almacenamiento en la casa.
-B.3.4 fecha de duración mínima (“consumir preferentemente antes de” ): fecha en que, bajo determinadas condiciones de almacenamiento, si las hubiere, expira el periodo durante el cual el producto es totalmente comercializable y mantiene cuantas calidades específicas se atribuyen tácita o explícitamente al alimento. Sin embargo, después de esta fecha, el alimento puede ser todavía enteramente satisfactorio.
-B.3.5 fecha límite de utilización (fecha límite de consumo recomendada) (fecha de caducidad): fecha en que, bajo determinadas condiciones de almacenamiento termina el periodo después del cual el producto no tendrá, probablemente, los atributos de calidad que normalmente esperan los consumidores, después de esta fecha, el alimento no se considera comercializable.
-B.4 INSTRUCCIONES PARA LA CONSERVACIÓN
-B.4.I Además de la fecha, deberán indicarse todas las condiciones especiales para la conservación del producto si depende de ellas la validez de la fecha.
-B.4.2 Siempre que sea posible, las instrucciones de conservación deberán estar lo más cerca posible de la marca que indica la fecha.
-B.5 INSTRUCCIONES A LOS COMITÉS NACIONALES
-B.5.1 Basándose en un estudio sobre la naturaleza del alimento, los comités nacionales determinarán el tipo de Marcado de la Fecha. Deberá considerarse en primer lugar la fecha de duración mínima. Si en opinión de los Comités esta fecha no es apropiada para el producto en cuestión, dichos Comités deberán elegir entre las demás posibilidades indicadas en la sección B.3. En último término, pueden decidir que no se necesita ninguna fecha.
-B.5.2 Si el comité nacional decidiera sobre una forma de Marcado de Fecha diferente de la de duración mínima o, de otro modo, que no es necesaria tal marca de fecha, la Oficina Nacional de Normas y Unidades de Medida debe recibir amplia información sobre la justificación.
-B.5.3 Si el producto no es duradero en las condiciones ambientales normales se decidirá qué tipo de instrucciones de almacenamiento y conservación formarán parte de los requisitos de etiquetado incluidos en las normas. Para asegurar la validez del marcado de fecha que, en este caso depende de la manipulación del producto, se darán también instrucciones adicionales sobre la manipulación adecuada del producto durante su distribución (en el contenedor exterior).
-B.6 PRESENTACIÓN DEL MARCADO DE LA FECHA EN LAS NORMAS NACIONALES
-B.6.1. Cuando el comité nacional decida incluir en una Norma alguna disposición sobre la fecha de duración mínima, deberá aparecer como sigue:
-La “fecha de duración mínima” (precedida de la expresión “consumir preferentemente antes de”), se declarará por medio del día, mes y año en secuencia numérica no codificada, excepto que para los productos con más de tres meses de duración, el mes y el año serán suficientes. El mes podrá indicarse por medio de letras. En el caso de productos que requieran la declaración de mes y año solamente, y el mes a indicarse sea diciembre, la expresión puede indicarse así: “final de (año de que se trate)”.
-B.6.2 Cuando un comité nacional decida incluir una disposición sobre Marcado de Fecha diferente de durabilidad mínima, se declarara por medio del día, mes y año, en secuencia numérica no codificada, excepto que para productos cuya duración se estima más de tres meses, el mes y año serán suficientes. El mes podrá indicarse por medio de letras en aquellos países donde tal practica no confunda al consumidor. En el caso de productos que requieran la declaración de mes y año solamente, y el mes a indicarse sea diciembre, la expresión puede indicarse así; “final de año (año de que se trate)”.
+(*) APENDICE B
+(INFORMATIVO)
+MODELO BÁSICO DE ETIQUETA ORIGINAL O COMPLEMENTARIA
+Ejemplo tomado como base una altura de 1 mm letra tipo Arial 5
+A) Sin información nutricional.
+Nombre del producto Contenido Neto: xxx g
+INGREDIENTES: xxxxxxxxxxxxxxxxxx Xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx xxxxxxxxxxxxxxx | INSTRUCCIONES DE USO O PREPARACIÓN: xxxxxxxxxxxxxxxxxxx Xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx xxxxxxxxxxxxxxxxxxxx
+Elaborado (importado) por xxxxx Registro MS: xxxAxxxx Dirección : xxxxx País de orígen: xxxxx Teléfono: xxxxx Lote: xxxxx INSTRUCCIONES DE CONSERVACIÓN: xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+B) Con información nutricional
+Nombre del producto Contenido Neto. Xxx g
+INGREDIENTES: xxxxxxxxxxxxxxxxxx Xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx xxxxxxxxxxxxxxx | INSTRUCCIONES DE USO O PREPARACIÓN: xxxxxxxxxxxxxxxxxxx Xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx xxxxxxxxxxxxxxxxxxxx
+Elaborado (importado) por xxxxx Dirección : xxxxx Teléfono: xxxxx Lote: xxxxx Registro MS:xxxx-A-xxxxx País de Origen: xxxxx Fecha de Vencimiento: xxxxx | INFORMACIÓN NUTRICIONAL: xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+Cantidad por Porción: ---------------------------------------------------------- Calorías
+%VRN: Grasa total Sodio Carbohidratos total Azucares
+Proteína
+Valor de referencia de nutriente basado en una dieta de xxxxxxxxxxxxxx
+(*) ( Así reformado por el artículo 1° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 y corregido mediante FE DE ERRATAS publicadas en La Gaceta N° 90 de 12 de mayo de 2009, y en La Gaceta N° 105 del 2 de junio de 2009).

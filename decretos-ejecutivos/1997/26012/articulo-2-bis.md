@@ -1,5 +1,2 @@
-Artículo 2 bis. Se permitirá el uso de los términos puro, natural y casero siempre que cumplan con los siguientes requisitos:
-Puro: cuando los productos no contengan aditivos o sustancias extrañas a su composición reconocida o autorizada.
-Natural: cuando los productos no hayan sido sometidos a algún proceso que modifique las características físico químicas autorizadas y reconocida.
-Casero: cuando los productos hayan sido fabricados de una manera artesanal comprobada.
-(Así adicionado por el artículo 2° del DE-260829 de 9 de marzo de 1998).
+Artículo 2 bis. (Derogado por el artículo 3° del decreto ejecutivo N° 35204 del 17 de marzo del 2009 , el cual fue corregido mediante Fe de Erratas publicada en La Gaceta N° 105 del 2 de junio de 2009).
+(Así adicionado por el artículo 2° del DE-26829 de 9 de marzo de 1998).
