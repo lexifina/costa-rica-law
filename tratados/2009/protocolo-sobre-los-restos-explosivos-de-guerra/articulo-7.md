@@ -1,0 +1,4 @@
+Artículo 7
+Asistencia respecto de los restos explosivos de guerra existentes
+1. Cada Alta Parte Contratante tendrá derecho a pedir y recibir, cuando proceda, asistencia de otras Altas Partes Contratantes, de otros Estados no partes y de las organizaciones e instituciones internacionales competentes para hacer frente a los problemas creados por los restos explosivos de guerra existentes.
+2. Cada Alta Parte Contratante que esté en condiciones de hacerlo proporcionará asistencia para hacer frente a los problemas creados por los restos explosivos de guerra existentes, cuando sea necesario y factible. Al propio tiempo, las Altas Partes Contratantes también tendrán en cuenta los objetivos humanitarios del presente Protocolo y las normas internacionales, como las Normas internacionales para las actividades relativas a las minas.
