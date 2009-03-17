@@ -1,0 +1,2 @@
+Artículo II
+Si se cometiere alguno de los crímenes mencionados en el artículo I, las disposiciones de la presente Convención se aplicarán a los representantes de la autoridad del Estado y a los particulares que participen como autores o cómplices o que inciten directamente a la perpetración de alguno de esos crímenes, o que conspiren para cometerlos, cualquiera que sea su grado de desarrollo, así como a los representantes de la autoridad del Estado que toleren su perpetración.

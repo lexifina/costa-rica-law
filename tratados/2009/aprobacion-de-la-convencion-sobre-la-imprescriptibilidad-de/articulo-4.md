@@ -1,0 +1,2 @@
+Artículo IV
+Los Estados Parte en la presente Convención se comprometen a adoptar, con arreglo a sus respectivos procedimientos constitucionales, las medidas legislativas o de otra índole que fueran necesarias para que la prescripción de la acción penal o de la pena, establecida por ley o de otro modo, no se aplique a los crímenes mencionados en los artículos I y II de la presente Convención y, en caso de que exista, sea abolida.

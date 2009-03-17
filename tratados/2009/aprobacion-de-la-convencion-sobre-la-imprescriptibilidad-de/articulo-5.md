@@ -1,0 +1,2 @@
+Artículo V
+La presente Convención estará abierta hasta el 31 de diciembre de 1969 a la firma de todos los Estados Miembros de las Naciones Unidas o miembros de algún organismo especializado o del Organismo Internacional de Energía Atómica, así como de todo Estado Parte en el Estatuto de la Corte Internacional de Justicia y de cualquier otro Estado invitado por la Asamblea General de las Naciones Unidas a ser parte en la presente Convención.
