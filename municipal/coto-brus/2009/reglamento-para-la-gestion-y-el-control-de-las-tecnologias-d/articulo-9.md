@@ -1,0 +1,1 @@
+Artículo 9º—Publicación de la información en la Web Municipal: La Comisión Institucional de Tecnologías de Información será la encargada de coordinar, determinar y tomar las medidas necesarias para la contratación y administración de la Web Institucional.

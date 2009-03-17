@@ -1,0 +1,3 @@
+CAPÍTULO III
+Administración del Software
+Artículo 13.—Custodia de licencias de Software: Todas las licencias de Software, deberán ser resguardadas en la bóveda Municipal y custodiadas por el Tesorero (a) Municipal con el fin de mantener la integridad física de las mismas. Sin embargo, cualquier movimiento ya sea entrada o salida de las mismas, deberá contar con previa autorización emitida por la Comisión Institucional de Tecnologías de Información, en donde se reflejen las autorizaciones y justificaciones del acto realizado, dicho documento deberá contar con la firma de un miembro de la Comisión y del Tesorero (a) Municipal.

@@ -1,0 +1,3 @@
+Artículo 6º—Pertenencia del equipo informático:
+a) Los recursos informáticos asignados a cada usuario, lo será en calidad de herramienta de trabajo y como tal, se encuentran permanentemente bajo dominio y control de la Municipalidad, sin perjuicio del derecho de privacidad de la información almacenada.
+b) Es responsabilidad del usuario acatar los deberes y responsabilidades específicas en el Memorando de entrega de equipo de la Comisión Institucional de Tecnologías de Información, en el cual con la firma del jefe de departamento se dan por aceptados todos los términos incluidos en el mencionado documento.

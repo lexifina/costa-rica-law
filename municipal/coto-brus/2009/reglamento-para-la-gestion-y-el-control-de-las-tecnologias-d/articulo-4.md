@@ -1,0 +1,1 @@
+Artículo 4º—Adquisición de Tecnologías de Información: La adquisición o reparación de equipo tecnológico, así como la actualización y compra del software, se harán con base en las recomendaciones brindadas por la Comisión Institucional de Tecnologías de Información.

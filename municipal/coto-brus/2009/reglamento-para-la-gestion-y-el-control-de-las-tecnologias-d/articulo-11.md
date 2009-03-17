@@ -1,0 +1,1 @@
+Artículo 11.—Manipulación del Equipo Informático: Le corresponde a la Comisión Institucional de Tecnologías de Información brindar una autorización para que se de la configuración, abrir, programar o reprogramar, instalar o desinstalar programas por parte de un tercero, así como del usuario mismo.
