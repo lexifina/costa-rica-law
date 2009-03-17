@@ -1352,10 +1352,7 @@ e) Cambio de razón social del fabricante, formulador o registrante:
 e.1) Documento donde conste el cambio de razón social del fabricante o formulador en el país de origen.
 e.2) En el caso de cambio de razón social del registrante deberá aportar la certificación que haga constar la inscripción registral del cambio.
 e.3) Proyecto de etiqueta y panfleto de cada uno de los productos afectos al cambio.
-f) Ampliación de origen del ingrediente activo grado técnico para un mismo plaguicida sintético formulado del mismo fabricante.
-f.1) Todos los ingredientes activos grado técnico, asociados a un producto formulado, deben estar debidamente registrados.
-f.2) Certificado de registro del nuevo país de origen extendido por el ente oficial competente, en el cual se indique el ingrediente activo grado técnico, concentración, nombre y dirección completa del fabricante.
-f.3) Proyecto de etiqueta y panfleto de cada uno de los productos afectos al cambio.
+f) (Derogado este numeral por el artículo 4° del decreto ejecutivo N° 35312 del 17 de marzo de 2009)
 g) Cambio de sitio u origen para un mismo plaguicida sintético formulado.
 g.1) Documento que haga constar que se mantiene el proceso de fabricación o formulación.
 g.2) Proyecto de etiqueta y panfleto de cada uno de los productos afectos al cambio.

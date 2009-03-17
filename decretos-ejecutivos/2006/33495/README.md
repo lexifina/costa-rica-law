@@ -16,3 +16,4 @@ Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, 
 | 1 | 2007-01-10 | la propia norma |
 | 2 | 2008-10-27 | Decreto Ejecutivo 34911 (2008-10-27) |
 | 3 | 2008-11-21 | Decreto Ejecutivo 34903 (2008-11-21) |
+| 4 | 2009-03-17 | Decreto Ejecutivo 35312 (2009-03-17) |
