@@ -1,0 +1,10 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+MODIFICACIÓN DEL ARTÍCULO 8 REGLAMENTO
+DE LAS JUNTAS DE CRÉDITO LOCAL
+La Junta Directiva Nacional, en sesión 4642 del 19 de febrero del 2009, aprobó en firme:
+“1) Modificar el artículo 8º del Reglamento de las Juntas de Crédito Local, que en lo sucesivo se leerá:
+‘Artículo 8º—Presentación de la Declaración Jurada y Caución. Los miembros de las Juntas de Crédito Local y sus suplentes deberán presentar la declaración jurada sobre la situación patrimonial a la que se refiere el artículo 21 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública así como rendir una caución por la suma de doscientos mil colones, la que podrá consistir en efectivo, hipoteca, prenda, fianza o póliza de fidelidad extendida por el Instituto Nacional de Seguros.
+Los documentos que comprueben la rendición de la caución se remitirán a la Secretaría de la Junta Directiva Nacional, la cual, corroborado su correcto otorgamiento, los remitirá a la Auditoria Interna para que disponga sobre su custodia.
+Si transcurridos quince días hábiles después de la juramentación o vencida la caución la misma no hubiese sido rendida o renovada, la Junta Directiva Nacional comunicará al omiso su suspensión como integrante o suplente de la respectiva Junta de Crédito local mientras no normalice la situación. Transcurrido un mes de la notificación de la suspensión sin que la anomalía haya sido corregida el nombramiento cesará de pleno derecho.
+Igualmente, cesará de pleno derecho el nombramiento del miembro de Juntas de Crédito Local o sus suplentes que omitieren presentar la declaración jurada sobre la situación patrimonial a la que se refiere el artículo 21 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, vencido el plazo a que se refiere el artículo 38 i) de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nº 8422 publicada en el Diario Oficial La Gaceta del 29 de octubre del 2004.
+Rige a partir de su publicación en La Gaceta”.
