@@ -1,0 +1,1 @@
+Artículo 26.—Derogatoria. Queda derogado el Decreto Ejecutivo Nº 33357-MAG-MINAE que crea la Comisión Nacional de Biocombustibles, por haber cumplido este Decreto Ejecutivo con los objetivos planteados.

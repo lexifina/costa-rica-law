@@ -1,0 +1,5 @@
+Artículo 21.—De la adecuación de la organización institucional agrícola para la gestión de biocombustibles. El Ministerio de Agricultura y Ganadería (MAG), adecuará la organización institucional para la gestión de los biocombustibles, mediante la creación del Programa Nacional de Agrocombustibles, conducido por una Gerencia, como un mecanismo especial de apoyo a las actividades productivas con enfoque de agrocadena.
+Este Programa estará adscrito al Despacho del Rector del Sector Agropecuario. A efecto de operar dicho programa, el Ministro de Agricultura y Ganadería, conformará la estructura requerida con personal del Sector Agropecuario, público y privado.
+Entre otras, las funciones primordiales conferidas a la Gerencia, serán:
+a. Orientación, coordinación e integración de los actores públicos y privados, hacia la consecución de alianzas y acuerdos de competitividad.
+b. Promoción de procesos de cambio y de gestión agrícola de los biocombustibles para el desarrollo social y agroambiental de las comunidades rurales, con particular énfasis en aquellas con bajo índice de desarrollo humano.

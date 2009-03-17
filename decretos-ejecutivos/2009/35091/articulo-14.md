@@ -1,0 +1,1 @@
+Artículo 14.—Transporte de biocombustibles. El transporte de biocombustibles o mezclas con combustibles fósiles, deberá sujetarse a los requisitos exigidos por los Decretos Ejecutivos: 24813-MAE, 31502-MINAE-S, 24715-MOPT-MEIC-S y demás disposiciones establecidas por el ordenamiento jurídico para el transporte de combustible derivado del petróleo.

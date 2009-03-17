@@ -1,0 +1,2 @@
+Artículo 10.—Precios de venta del combustible fósil mezclado. El precio de venta del combustible fósil mezclado en los planteles de RECOPE será fijado por la Autoridad Reguladora de los Servicios Públicos. De la misma manera será fijado el precio a los usuarios finales.
+Como parte del servicio público de suministro de combustibles, los prestatarios de servicio público deberán realizar las actividades de limpieza, calibración y mantenimiento de la infraestructura utilizada para garantizar el suministro del combustible según la reglamentación vigente.
