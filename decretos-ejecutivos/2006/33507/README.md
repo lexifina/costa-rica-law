@@ -14,3 +14,4 @@ Reglamento de Salud Ocupacional en el Manejo y Uso de Agroquímicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-08 | la propia norma |
+| 2 | 2009-03-18 | Decreto Ejecutivo 35124 (2009-03-18) |

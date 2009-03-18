@@ -15,3 +15,13 @@ Artículo 4º—Los términos y conceptos utilizados en este Reglamento serán d
 Los fines de la Salud Ocupacional son: Promover y mantener el más alto nivel de bienestar físico, mental y social del trabajador; prevenir todo daño causado a la salud de los trabajadores, por las condiciones de trabajo; protegerlo, en su empleo, contra los riesgos resultantes a la salud por la existencia de agentes nocivos; colocar y mantener al trabajador en un empleo, con sus aptitudes fisiológicas y psicológicas; adaptar todo proceso de trabajo al hombre (artículo 273 Código de Trabajo).
 14. Triple Lavado: consiste en lavar tres veces el envase vacío de cualquier agroquímico. En esta labor, los envases se deben vaciar totalmente en el momento de agotar su contenido; una vez que esté completamente vacío, debe llenar una cuarta parte del envase con agua, ajustar el tapón y agitar enérgicamente. El agua proveniente de ésta limpieza se agregará al tanque del equipo de aplicación, para ser utilizado en la labor prevista para ese tipo de agroquímico. Esta operación debe repetirse dos veces más.
 Se aplicará como medida de seguridad para proteger la salud de los trabajadores que deben manipular los envases vacíos.
+15.—Horas de aplicación: Tiempo efectivo que utiliza el trabajador en asperjar directamente el plaguicida en el cultivo.
+( Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo número N° 35124 del 13 de abril del 2009)
+16.—Jornada de trabajo: Para efectos de los derechos de las personas que realizan labores de aplicación de plaguicidas, se considerarán como tiempo efectivo de trabajo y remuneradas de igual forma que las “horas de aplicación”, todas las actividades que se enumeran seguidamente:
+a) Desde que ingresa al centro de trabajo;
+b) El tiempo que invierte en cambiarse su ropa, por la ropa de trabajo;
+c) Retirar el equipo de protección personal, revisarlo y colocárselo;
+d) Revisar el equipo de aplicación y;
+e) Trasladarse hasta el lugar de aplicación en la finca,
+f) De igual forma al finalizar las horas de aplicación, se debe trasladar al centro de trabajo, descontaminar el equipo de aplicación o dejarlo en el área destinada para este fin, descontaminar el equipo de protección personal y guardarlo en el área destinada para este fin, se debe bañar, dejar la ropa de trabajo para que sea lavada y después podrá ingerir sus alimentos.
+( Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo número N° 35124 del 13 de abril del 2009)
