@@ -14,3 +14,4 @@ Manual de Clasificación de Puestos del Defensor de los Habitantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-25 | la propia norma |
+| 2 | 2009-03-18 | Acuerdo 1456 (2009-03-18) |
