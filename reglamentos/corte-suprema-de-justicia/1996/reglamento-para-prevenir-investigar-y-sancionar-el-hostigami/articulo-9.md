@@ -1,1 +1,1 @@
-Artículo 9º—Causas de impedimento, recusación o excusa del Órgano. Respecto a las causas de impedimento, recusación o excusa del Órgano Instructor, se estará a las reglas del Artículo 31 de la Ley Orgánica del Poder Judicial - salvedad hecha de lo dispuesto en el precepto 212 ídem -.
+Artículo 9º—Causas de impedimento, recusación o excusa del órgano. Respecto a las causas de impedimento, recusación o excusa del Órgano Instructor, se estará a las reglas del artículo 31 de la Ley Orgánica del Poder Judicial -salvedad hecha de lo dispuesto en el precepto 212 ídem-.

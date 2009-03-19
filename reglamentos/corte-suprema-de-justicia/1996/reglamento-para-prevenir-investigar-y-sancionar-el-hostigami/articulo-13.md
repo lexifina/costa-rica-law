@@ -6,4 +6,4 @@ Artículo 13.—Recepción de la denuncia. La denuncia será recibida por el Ór
 5) Enumeración de los medios de prueba que sirvan de apoyo a la denuncia.
 6) Señalamiento de lugar para atender notificaciones.
 7) Lugar y fecha de la denuncia.
-8) Firma del denunciante.
+8) Firma de denunciante.
