@@ -1,0 +1,3 @@
+Artículo 20.- Improcedencia de la solicitud de devolución de tributos y traslado a la Cuenta de Ingresos.
+Cuando una solicitud de devolución de tributos resulte improcedente y una vez en firme la resolución que así lo declare, el Departamento Técnico de la Aduana de Control efectuará los registros en la aplicación informática y enviará una copia a la Contabilidad Nacional.
+Con base en lo anterior y en los reportes que genere la aplicación informática, la Contabilidad Nacional trasladará de la Cuenta de Pasivos a la Cuenta de Ingresos los montos cancelados inicialmente por medio de los DUA de Importación Definitiva modalidad Régimen Devolutivo de Derechos.

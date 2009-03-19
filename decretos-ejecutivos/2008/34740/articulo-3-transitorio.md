@@ -1,0 +1,2 @@
+TRANSITORIO III.- Los beneficiarios del Régimen que fueron autorizados de conformidad con el Decreto Ejecutivo N° 26285-H-COMEX del 19 de agosto de 1997 y sus reformas, deberán actualizar sus registros en los formatos debidamente publicados para la solicitud de autorización del Régimen ante el Departamento de Registro, dentro del plazo de seis meses contados a partir de la publicación de este Reglamento.
+Dado en San Marcos de Tarrazú, a los veintinueve días del mes de agosto del año dos mil ocho.
