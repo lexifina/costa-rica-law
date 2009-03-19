@@ -14,3 +14,4 @@ Reglamento General de Revisión de la Práctica de las Ciencias de la Salud en l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-09 | la propia norma |
+| 2 | 2009-03-19 | Reglamento 8333 (2009-03-19) |
