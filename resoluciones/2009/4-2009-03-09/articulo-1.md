@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº SC-004-2009.—San José, 09 de marzo de 2009
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-046-2009.- Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, en los apartados de Rango de Aplicación y Atinencias Académicas de la especialidad Electrónica.
+DG-050-2009.- Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil a fin de incluir la carrera de Educación con énfasis en Enseñanza Especial y Retardo Mental, Enseñanza Especial y Dificultades Emocionales, Enseñanza Especial y Discapacidad del Aparato Fonador, Enseñanza Especial y Educación del Invidente y Enseñanza Especial y Discapacidad Auditiva, en el apartado Atinencia Académica de la especialidad Formación Profesional subespecialidad Generalista.
+DG-051-2009.- Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil para incluir la carrera de Registros y Estadística de Salud en el apartado Atinencia Académica de la especialidad Registros Médicos.
+DG-052-2009.- Modifica la Resolución DG-55-97 del 5 de junio de 1997, que contiene la descripción de las distintas clases de puestos de los Títulos Primero y Segundo del Régimen de Servicio Civil, las clases de Director de Enseñanza en sus distintas niveles y modalidades, pertenecientes al Título II denominado Ley de Carrera Docente.
+DG-053-2009.- Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil para incluir la Carrera Ciencias de la Educación con énfasis en docencia en la Enseñanza de la Contabilidad, Administración de Negocios, Ciencias de la Computación o Ingeniería Informática, Secretariado Profesional y el Turismo, en el apartado Atinencia Académica de Ja especialidad formación Profesional Subespecialidad Generalista.
+Publíquese.
