@@ -1,0 +1,5 @@
+Artículo 16.—Respaldo de pago por medio de factura comercial. Todo pago por medio de caja chica, deberá cumplir con los siguientes requisitos:
+a) Ser documentos originales, estar timbrados o dispensados del mismo por la Dirección General de Tributación Directa y estar emitidos a nombre de JUDESUR.
+b) Deberá especificar claramente el detalle de la compra o bien recibido, la cuál deberá ser igual o posterior a la fecha en que se entrega el vale. Por ningún motivo deberá contener tachaduras ni borrones.
+c) Si la factura no tiene logotipo por pertenecer el proveedor al régimen simplificado, debe de indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones, así como el número de resolución otorgado por la Dirección General de Tributación Directa.
+d) Las facturas deben de ser firmados por la jefatura inmediata, como requisito de comprobación de la adquisición del bien o servicio, así como el detalle de la adquisición y la firma del solicitante y contará con el visto bueno de una de las firmas autorizadas.

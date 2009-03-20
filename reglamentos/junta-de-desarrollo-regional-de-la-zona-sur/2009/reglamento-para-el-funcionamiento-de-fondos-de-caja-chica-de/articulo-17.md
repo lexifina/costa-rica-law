@@ -1,0 +1,1 @@
+Artículo 17.—Liquidación de adelanto de dinero. Todo adelanto para gastos de caja chica deberá ser liquidado dentro de los tres días hábiles siguientes a su entrega. En caso de que la compra no se realice debe reintegrar inmediatamente la suma recibida.

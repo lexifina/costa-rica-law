@@ -1,0 +1,1 @@
+Artículo 11.—Responsables por el destino de adquisiciones. El destino de los servicios y materiales y suministros adquiridos mediante el fondo de caja chica es responsabilidad de la persona que solicita la erogación del gasto y de la persona que lo autorizó.

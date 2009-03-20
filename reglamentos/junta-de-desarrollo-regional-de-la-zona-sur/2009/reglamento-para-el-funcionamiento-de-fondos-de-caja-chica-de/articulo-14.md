@@ -1,0 +1,4 @@
+Artículo 14.—Requisitos para el adelanto de dinero. Los adelantos de dinero se autorizarán una vez cumplidos los requisitos del artículo anterior.
+Deberá quedar constancia de la entrega del dinero autorizado, la suma entregada en número y letras, el nombre y firma del funcionario que la retiró.
+Las solicitudes de adelanto de dinero para efectuar compras de bienes y servicios se tramitarán por medio de un formulario preenumerado denominado “Autorización de gasto por caja chica Nº…”, en el cual se consignará la fecha, programa, actividad, nombre del funcionario que lo solicita, detalle de la solicitud del vale, monto solicitado, firma del encargado de caja chica, una de las firmas autoriza y firma del funcionario que solicita el dinero. Dicho vale se conservará en caja y será entregado a la persona que realizó la compra, una vez que presente la liquidación del dinero que le fue entregado.
+Una vez realizada la compra deberá presentarse el comprobante correspondiente.

@@ -1,0 +1,1 @@
+Artículo 8º—Administración de fondos. La administración del fondo de caja chica estará a cargo de la Unidad de Tesorería y bajo la supervisión directa del Jefe del Departamento Financiero en lo referente a los procedimientos de compra y de razonabilidad del gasto, quienes velarán por su correcto funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 25.—Derogaciones. El presente Reglamento deja sin efecto al anterior, pudiendo ser complementado, en cuanto a trámites, procedimientos y control interno, mediante instructivo debidamente aprobado por la Junta Directiva.
