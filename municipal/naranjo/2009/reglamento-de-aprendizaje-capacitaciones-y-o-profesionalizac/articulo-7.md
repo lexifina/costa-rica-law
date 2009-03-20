@@ -1,0 +1,6 @@
+Artículo 7º—De la inscripción a las actividades de aprendizaje, capacitación y/o profesionalización no contempladas en el Plan Institucional de Aprendizaje, capacitación y/o profesionalización:
+a. La inscripción a las actividades de aprendizaje no contempladas en el Plan Institucional de Aprendizaje, capacitación y/o profesionalización respectivo, se sujetarán a lo siguiente:
+b. La solicitud de inscripción debe presentarse ante la Oficina de Recursos Humanos a través del formulario elaborado para ese fin, mismo que deberá confeccionar la Oficina de Recursos Humanos y debe venir firmada por el superior inmediato del solicitante autorizando dicha capacitación.
+c. De previo al evento, el personal inscrito para participar en alguna actividad de aprendizaje, deberá firmar la carta de compromiso en el cual se compromete a cumplir con el tiempo de servicio post-aprendizaje, que se indica en la Tabla de Compromiso del Anexo Nº 1, el cual forma parte de este Reglamento.
+d. Las solicitudes de inscripción de las Auditorías Internas serán aprobadas por el jerarca de esos órganos y el costo será descargado de su propio presupuesto.
+e. La contratación de las acciones formativas que se desprendan del Plan de Aprendizaje, capacitación y/o profesionalización de las Auditorías Internas serán tramitadas por la Oficina de Recursos Humanos de la Municipalidad.

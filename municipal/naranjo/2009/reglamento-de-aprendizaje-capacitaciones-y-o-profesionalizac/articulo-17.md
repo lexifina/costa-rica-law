@@ -1,0 +1,6 @@
+Artículo 17.—Del financiamiento para estudios. El financiamiento para estudio se otorgará de conformidad con las políticas establecidas para cada periodo.
+a. La Municipalidad de Naranjo podrá financiar los grados académicos de Bachillerato, Licenciatura y Postgrado en carreras de interés institucional. En el caso de postgrados, la administración deberá revisar semestralmente la designación de lo financiado.
+b. El financiamiento se realizará considerando costos de matrícula, materias, exámenes de grado, seminarios de graduación y/o de investigación.
+c. El financiamiento se otorgará hasta por un máximo del 70% del valor total de los rubros indicados en el inciso anterior.
+d. El financiamiento se otorgará cada año en función de las políticas institucionales y disponibilidad presupuestaria de cada periodo. Por lo tanto, la Municipalidad de Naranjo no adquiere compromiso alguno con el personal de financiar todo el plan de estudios de la carrera. Lo dispuesto en este inciso deberá formar parte del contrato de profesionalización que suscriba el servidor.
+e. La Municipalidad de Naranjo, financiará planes de estudio y especialización en centros de enseñanza pública y/o privados, que cuenten con al menos cinco años de haber sido autorizados por el órgano competente y que la carrera de interés esté debidamente aprobada.
