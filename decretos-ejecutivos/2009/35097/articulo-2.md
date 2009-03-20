@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo 7 del Decreto Nº 32868-MINAE, Canon por concepto de aprovechamiento de aguas, para que se lea de la siguiente forma:
+“Artículo 7º—El caso del uso de agua para el riego de los cultivos de arroz, caña de azúcar, pastos, café y palma africana, por tratarse de cultivos extensivos tradicionales, expuestos a condiciones especiales de mercado, deberán reconocer un monto de 0,12 colones por metro cúbico anual de agua para agua superficial en concesión y 0,16 colones por metro cúbico de agua subterránea en concesión.”
