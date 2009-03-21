@@ -1,0 +1,1 @@
+Artículo 7º—Determinación de los Roles. La Alcaldía fijará los roles correspondientes, que se deben de asumir en cada materia, cuando así proceda, armonizando la continuidad del servicio y la calidad de vida de los servidores municipales afectos a este régimen.

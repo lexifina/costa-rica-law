@@ -1,0 +1,1 @@
+Artículo 6º—Los funcionarios que se acojan al régimen de disponibilidad, podrán renunciar a tal beneficio, comunicándolo a la administración con dos meses de antelación, pero no podrán firmar un nuevo contrato antes de dos años de haber presentado esa renuncia. Si alguien renunciare por segunda vez, no podrá a partir de entonces acogerse a tal beneficio.
