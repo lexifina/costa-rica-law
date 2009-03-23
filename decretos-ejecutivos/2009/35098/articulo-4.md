@@ -1,0 +1,1 @@
+Artículo 4º—MIDEPLAN realizará informes semestrales de seguimiento y control de la ejecución de las principales políticas y proyectos estratégicos definidos en el “PNIP 2009-2010”, los cuales serán presentados al Presidente de la República.
