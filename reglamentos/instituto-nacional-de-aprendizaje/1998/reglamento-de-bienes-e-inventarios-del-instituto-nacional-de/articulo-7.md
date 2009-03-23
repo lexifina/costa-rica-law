@@ -1,2 +1,0 @@
-Artículo 7°—Del movimiento de bienes. Todo traslado, asignación, exclusión, etc., de equipo, mobiliario, herramienta o materiales deberá estar debidamente documentado en los formularios que se elaboren para tal efecto. Esta documentación deberá estar libre de tachaduras, borrones o entrerreglonaduras y deberá ser archivada y custodiada cuidadosamente por el PPCO.
-Será responsabilidad del funcionario quien tiene asignado el bien velar porque se cumpla con la obligación de documentar todo movimiento relacionado con bienes ante el, PPCO o ECB según corresponda.

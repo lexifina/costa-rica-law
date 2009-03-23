@@ -1,3 +1,0 @@
-Artículo 11.—De la modificación y/o mejoramiento de los bienes. Cuando un bien sea objeto de alguna modificación o mejoramiento que incremente significativamente su vida útil se tomará en cuenta lo siguiente:
-La unidad que ordenó la mejora o reconstrucción deberá comunicarlo al encargado del PPCO o al ECB quien determinará si el trabajo requiere capitalizarse y será el responsable de remitir la comunicación a la URM y a la URF.
-Las reparaciones ordinarias que tiendan a la conservación del activo en condiciones normales de servicio, no son capitalizabas, salvo que se trate de reparaciones mayores extraordinarias que tengan por efecto prolongar apreciablemente la vida útil del bien, en cuyo caso, se tratarán como mejoras.

@@ -1,3 +1,0 @@
-Artículo 5°—Del registro de los bienes. Los bienes serán clasificados por la URM por medio del PPCO a efectos de control y por la URF efectos de registro contable. Corresponderá además a la URF llevar *el control de la depreciación de activos.
-La valoración del bien para efectos de registro contable se hará de acuerdo con los principios de contabilidad generalmente aceptados y tomará en cuenta no sólo el monto cancelado para su adquisición, sino cualquier otro gasto directo incurrido por el Instituto, tales como costo de aperturas de cartas de crédito, bodegaje, internamiento.
-Será responsabilidad de cada Unidad Regional la administración y control de los bienes muebles adquiridos u asignados a ella, estas funciones corresponderán al ECB.

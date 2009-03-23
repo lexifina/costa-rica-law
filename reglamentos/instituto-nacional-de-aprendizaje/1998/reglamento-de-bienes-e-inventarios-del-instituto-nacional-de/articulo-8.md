@@ -1,2 +1,0 @@
-Artículo 8°—De la toma de inventarios. El encargado del PPCO definirá el procedimiento de las tomas físicas de inventarios y remitirá en forma anual a cada jefatura, un listado del equipo y mobiliario asignado a los servidores, así como de la herramienta asignada a su dependencia.
-La jefatura tendrá un mes, contado a partir del recibo del listado, para hacer las observaciones que estime pertinentes.
