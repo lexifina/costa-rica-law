@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese los artículos 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19, 20, 21 y 22 del Decreto Ejecutivo Nº 28466-S de 8 de febrero del 2000, publicado en La Gaceta Nº 42 de febrero del 2000 “Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos”.

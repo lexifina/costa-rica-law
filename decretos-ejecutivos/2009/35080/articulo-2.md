@@ -1,0 +1,1 @@
+Artículo 2º—En toda aquella disposición del Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos, donde se mencione al Consejo Técnico de Inscripción de Medicamentos y la Dirección de Registros y Controles, deberá entenderse correctamente Dirección de Atención al Cliente.
