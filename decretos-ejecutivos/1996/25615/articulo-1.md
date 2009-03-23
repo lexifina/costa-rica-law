@@ -1,4 +1,6 @@
+(Derogado)
 N° 25615-MICIT
+(Este decreto fue derogado por el artículo 55 del decreto ejecutivo N° 35227-MICIT del 23 de marzo de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 De conformidad con lo dispuesto en los incisos 3 y 18 del artículo 140 de la Constitución Política, el artículo 28 de la Ley General de la Administración Pública, La Ley Orgánica de la Contraloría General de la República, y en concordancia con el "Manual de Normas Técnicas de Auditoría para la Contraloría General de la República, y las entidades y órganos sujetos a su fiscalización" en ejercicio de sus funciones y otorgadas por ley,

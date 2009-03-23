@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la Auditoría Interna del Ministerio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-21 | la propia norma |
+| 2 | 2009-03-23 | Decreto Ejecutivo 35227 (2009-03-23) |
