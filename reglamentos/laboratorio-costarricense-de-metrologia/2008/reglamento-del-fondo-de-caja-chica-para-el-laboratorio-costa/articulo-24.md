@@ -1,0 +1,1 @@
+Artículo 24.—Cheque de reembolsos. El cheque que se emita para rembolsar el fondo, debe girarse a nombre de algún funcionario de la institución, quién deberá endosarlo. Queda prohibida la emisión de cheques “al portador” o “a caja”.

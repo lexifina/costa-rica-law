@@ -1,0 +1,1 @@
+Artículo 43.—Auditorías al Fondo de Caja Chica. Dirección General del LACOMET, solicitará a la Auditoría Interna incluir dentro de su Plan de Trabajo Anual por lo menos una auditoría durante el año al Fondo autorizado. Lo anterior con fundamento a lo dispuesto en el Reglamento General de Caja Chica y a lo establecido en la Ley de Control Interno.

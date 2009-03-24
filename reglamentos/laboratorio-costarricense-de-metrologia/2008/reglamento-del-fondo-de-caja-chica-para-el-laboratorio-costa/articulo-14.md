@@ -1,0 +1,1 @@
+Artículo 14.—Solicitud de adelanto de fondos. El registro “Solicitud de adelanto de Caja Chica” será prenumerado y deberá contener la fecha, monto, nombre y firma del Jefe del Departamento solicitante del bien o servicio y el visto bueno del Subdirector Administrativo Financiero.

@@ -1,0 +1,1 @@
+Artículo 30.—Monto fijo del fondo. El fondo de dinero designado al Fondo de Caja Chica operará por medio de monto fijo, lo que implicará que el monto total asignado deberá ser igual a la sumatoria del efectivo en caja, más los registros de Solicitud de Adelanto de Caja Chica y las facturas y comprobantes soportes de los pagos efectuados.

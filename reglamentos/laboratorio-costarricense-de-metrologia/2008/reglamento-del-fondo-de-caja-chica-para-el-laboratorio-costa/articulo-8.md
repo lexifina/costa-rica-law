@@ -1,0 +1,1 @@
+Artículo 8º—Del responsable del Fondo de Caja Chica. Por medio de la Subdirección Administrativo Financiera, se comunicará a la Tesorería Nacional, en documento oficial, el nombre y número de cédula de la persona designada como responsable directa por la custodia y operación del Fondo de Caja Chica.

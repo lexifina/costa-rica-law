@@ -1,0 +1,1 @@
+Artículo 23.—Reembolsos de fondos. Los reembolsos a la cuenta del Fondo de Caja Chica se realizarán mediante cheque. En el oficio de Detalle de Reintegro de Caja Chica se deberán acompañar los justificantes respectivos, los cuales deben ser sellados con la leyenda “pagado mediante cheque número _ de fecha .”

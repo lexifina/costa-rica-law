@@ -1,0 +1,1 @@
+Artículo 19.—Datos a consignar en los documentos de gastos. Como medio para verificar que el bien o servicio adquirido se recibió a satisfacción, el solicitante del bien y servicio anotará su nombre, firma, número de cédula y sello de oficina en la parte posterior de la factura comercial.

@@ -1,0 +1,1 @@
+Artículo 12.—Contenido Presupuestario. Toda compra de bienes y servicios o pagos que se realicen por medio del Fondo de Caja Chica del LACOMET, deberán contar con el debido contenido presupuestario y económico, el que será emitido por el Contador General del LACOMET, previo a cualquier adquisición.

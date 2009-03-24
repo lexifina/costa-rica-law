@@ -1,0 +1,1 @@
+Artículo 42.—Responsable del control sobre el Fondo de Caja Chica. El Subdirector (a) Administrativo Financiero será el responsable de establecer, evaluar y mantener un adecuado sistema de Control interno del Fondo autorizado,
