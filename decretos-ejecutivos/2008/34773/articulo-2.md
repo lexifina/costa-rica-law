@@ -1,1 +1,0 @@
-Artículo 2º—Los precios del arroz empacado, que se expenda en distintas presentaciones, mayores o menores a 1 kilogramo, serán equivalentes a los precios por kilogramo señalados en el cuadro anterior.
