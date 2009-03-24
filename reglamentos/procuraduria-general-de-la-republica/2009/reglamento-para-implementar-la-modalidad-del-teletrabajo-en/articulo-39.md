@@ -1,0 +1,1 @@
+Artículo 39.—En caso de determinarse mediante un debido proceso, que las causas de bajo desempeño son atribuibles al teletrabajador, se le aplicará lo dispuesto en el Reglamento y Estatuto de Servicio Civil.

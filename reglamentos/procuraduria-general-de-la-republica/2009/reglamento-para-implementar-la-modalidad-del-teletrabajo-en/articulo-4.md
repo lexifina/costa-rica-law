@@ -1,0 +1,1 @@
+Artículo 4º—Todas las jefaturas y funcionarios relacionados directa o indirectamente con las personas que teletrabajen, deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que persigue y la normativa asociada.

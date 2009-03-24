@@ -1,0 +1,1 @@
+Artículo 9º—Los servidores incorporados al sistema de teletrabajo, deben mantener las condiciones que justificaron su ingreso a éste, así como cumplir con todas las obligaciones y responsabilidades adquiridas. En caso de que surja alguna imposibilidad de mantener dichas condiciones, debe plantearlo ante la jerarquía y ésta ante el ECT para resolver lo que proceda.

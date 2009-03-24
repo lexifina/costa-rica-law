@@ -1,0 +1,1 @@
+Artículo 30.—El teletrabajador debe estar disponible, dentro de su jornada laboral, para atender asuntos referidos a su labor, compañeros y usuarios de sus servicios, ya sea por medio del correo electrónico, teléfono u otro medio.

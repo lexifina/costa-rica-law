@@ -1,0 +1,1 @@
+Artículo 26.—En caso de que las actividades se realicen desde la casa de habitación, el servidor debe acondicionar un espacio físico y, de ser necesario, permitir el acceso para las inspecciones que corresponda.

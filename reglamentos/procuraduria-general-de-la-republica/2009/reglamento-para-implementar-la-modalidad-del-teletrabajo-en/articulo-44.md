@@ -1,0 +1,1 @@
+Artículo 44.—El NI brinda el soporte técnico únicamente a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Se excluye cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software que no sean requeridos para el teletrabajo o para los cuales la Procuraduría no posea licenciamiento.

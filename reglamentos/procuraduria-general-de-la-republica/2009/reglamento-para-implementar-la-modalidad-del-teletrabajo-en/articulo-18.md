@@ -1,0 +1,1 @@
+Artículo 18.—Mantener actualizados los reglamentos y formularios para asegurar la correcta aplicación de esta modalidad de trabajo a nivel institucional y capacitar a las áreas involucradas sobre el tema.

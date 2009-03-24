@@ -1,0 +1,1 @@
+Artículo 14.—La Procuraduría debe darle a los teletrabajadores, los recursos necesarios para facilitar un buen desempeño en sus labores, tales como computadora portátil, materiales y herramientas de oficina, asumiendo los costos en que incurra para lograrlo.

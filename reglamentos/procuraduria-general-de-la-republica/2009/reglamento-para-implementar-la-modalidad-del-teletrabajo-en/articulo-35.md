@@ -1,0 +1,1 @@
+Artículo 35.—El teletrabajador, tendrá un horario flexible, siempre y cuando no afecte el normal desempeño de las actividades de otros compañeros y procesos de trabajo que reciben o entregan insumos a su gestión, y para tales efectos deberá instaurar mecanismos necesarios para establecer la debida comunicación con la institución.

@@ -1,0 +1,1 @@
+Artículo 8º—La Procuraduría se reserva la facultad de aceptar la participación de sus funcionarios/as en esta modalidad de trabajo, dependiendo de la conectividad disponible y otros aspectos que estime pertinentes.

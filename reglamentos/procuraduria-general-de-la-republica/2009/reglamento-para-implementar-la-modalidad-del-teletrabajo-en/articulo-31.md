@@ -1,0 +1,1 @@
+Artículo 31.—Independientemente del lugar donde se desarrollen las actividades a teletrabajar, el servidor debe cumplir con todas las condiciones que establezcan los reglamentos y procedimientos aplicables a esta modalidad.

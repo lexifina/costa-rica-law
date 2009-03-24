@@ -1,0 +1,1 @@
+Artículo 45.—El NI podrá realizar visitas para verificar la existencia de los inventarios de hardware y software propiedad de la Institución asignados al teletrabajador para el desempeño de sus funciones. En caso que se identifique alguna anomalía, se comunicará al teletrabajador y a la jefatura directa para que tome las medidas correspondientes.

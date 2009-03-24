@@ -1,0 +1,1 @@
+Artículo 6º—Cuando un puesto tiene más de un 80% de sus actividades teletrabajables (detalladas en el Anexo 1), el servidor que lo ocupa puede desarrollar el trabajo desde su casa de habitación o centro de trabajo destinado para tal fin, siempre en coordinación con su jefatura.

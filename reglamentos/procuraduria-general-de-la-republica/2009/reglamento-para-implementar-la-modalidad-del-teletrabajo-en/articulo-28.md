@@ -1,0 +1,1 @@
+Artículo 28.—En caso de que se traslade de domicilio, el servidor debe prever todas las acciones necesarias para no interrumpir la ejecución de sus actividades y comunicar a su jefatura con al menos un mes de anticipación. Si el lugar al que se traslada no tiene acceso a la conectividad deberá reintegrarse a su centro de trabajo, mientras no se disponga del acceso requerido.

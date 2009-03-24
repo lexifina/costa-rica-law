@@ -1,0 +1,1 @@
+Artículo 41.—La jerarquía deberá velar porque se mantenga el ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de los teletrabajadores que participan en la modalidad de teletrabajo.

@@ -1,0 +1,1 @@
+Artículo 3º—El ECT es el equipo responsable de planificar, coordinar y desarrollar acciones para la aplicación del teletrabajo en la Institución, así como establecer la normativa y procedimientos requeridos para ello. Le corresponde asesorar a las dependencias internas de la Institución, para la adecuada planificación y desarrollo del sistema de teletrabajo.

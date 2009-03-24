@@ -1,0 +1,1 @@
+Artículo 17.—Administrar la información referente a todos los teletrabajadores en la Institución y coordinar con las áreas involucradas las acciones necesarias para el buen desarrollo de esta modalidad.

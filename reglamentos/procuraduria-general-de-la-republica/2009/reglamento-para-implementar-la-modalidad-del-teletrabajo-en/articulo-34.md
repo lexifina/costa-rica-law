@@ -1,0 +1,1 @@
+Artículo 34.—Los teletrabajadores están protegidos por la Póliza de Riesgos del Trabajo que tiene la Institución, siempre y cuando cumplan con las disposiciones establecidas y procedimientos vigentes para este fin.

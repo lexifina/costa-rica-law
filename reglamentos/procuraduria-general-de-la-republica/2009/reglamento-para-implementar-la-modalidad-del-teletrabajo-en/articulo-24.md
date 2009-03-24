@@ -1,0 +1,1 @@
+Artículo 24.—El servidor que acceda a esta modalidad de trabajo, toma esa decisión con el visto bueno de la Jerarquía, siempre y cuando cumpla con los requisitos establecidos para el ingreso al sistema. (Ver anexo 1).
