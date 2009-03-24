@@ -1,0 +1,11 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+En acuerdo emitido por el Consejo Directivo del Instituto Costarricense de Electricidad artículo 11 del acta firme de la sesión 5865 del 10 de marzo del 2009, se aprueba la modificación a los artículos 7º y 7 bis del Reglamento del Régimen de Pensión Complementaria del ICE, el cual dice:
+MODIFICACIÓN ARTÍCULOS 7º Y 7 BIS DEL REGLAMENTO
+DEL RÉGIMEN DE PENSIÓN COMPLEMENTARIA
+Artículo 7º—Retiro anticipado. Al trabajador que se retire del ICE por un motivo diferente a los establecidos en el artículo 20 de la Ley de Protección al Trabajador, le serán liquidados los aportes de la siguiente manera:
+1. A los trabajadores que ingresaron al régimen con posterioridad a la vigencia de la Ley de Protección al Trabajador, le serán trasladados al Régimen Obligatorio de Pensiones Complementarias, en cuentas individualizadas, los aportes personales debidamente capitalizados y el porcentaje de los aportes institucionales, conforme al inciso c) del artículo 13 de la Ley de Protección al Trabajador, calculado sobre los saldos acumulados al momento del retiro.
+2. A los trabajadores que pertenecen al Régimen con anterioridad a la vigencia de la Ley de Protección al Trabajador, le será devuelto el saldo acumulado al momento del retiro de la cuenta de aporte personal debidamente capitalizado. Se trasladará al Régimen Obligatorio de Pensiones Complementarias, en cuentas individualizadas, el porcentaje de los aportes institucionales conforme al inciso c) del artículo 13 de la Ley de Protección al Trabajador, calculado sobre los saldos acumulados al momento del retiro.
+Artículo 7.BIS.—Liquidación por retiro sin pensión complementaria.
+1. Al trabajador que se retira pensionado por el sistema de seguridad social del país pero, sin derecho a pensión complementaria del ICE, por no cumplir con lo estipulado en el artículo 4º “Derechos de Pensión”, le será devuelto el saldo acumulado del aportes personal, debidamente capitalizado.
+2. Al trabajador liquidado por causa de fallecimiento, sin derecho a la pensión complementaria ICE, se girará el saldo acumulado de la cuenta de aporte personal, debidamente capitalizado al juzgado que corresponda en estos casos.
+San José, 16 de marzo del 2009.
