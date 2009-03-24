@@ -1,2 +1,0 @@
-Artículo 3º—Refórmase el artículo tercero, del Decreto Ejecutivo Nº 34870 del 10 de noviembre del 2008, publicado en el Alcance Nº 46 del diario oficial La Gaceta Nº 221 del 14 de noviembre del año 2008, para que en lo sucesivo se lea de la siguiente manera:
-“Artículo 3º—Se mantiene el precio estipulado en el artículo primero del presente Decreto Ejecutivo hasta tanto se de una nueva fijación de precio máximo de compra del industrial al productor nacional por parte del Poder Ejecutivo”.
