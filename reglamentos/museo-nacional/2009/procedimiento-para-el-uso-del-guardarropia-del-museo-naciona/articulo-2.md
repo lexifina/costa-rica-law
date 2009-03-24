@@ -1,0 +1,1 @@
+2º—El guardarropía es propiedad exclusiva del Museo Nacional. El usuario tiene un derecho de uso sobre un bien de dominio público según lo dispone el artículo 154 de la Ley General de la Administración Pública.

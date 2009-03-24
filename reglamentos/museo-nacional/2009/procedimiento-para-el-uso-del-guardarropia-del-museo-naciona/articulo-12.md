@@ -1,0 +1,1 @@
+12.—En el caso de que el visitante extravíe la llave, sus pertenencias le serán devueltas 24 horas después, para verificar que no se presente ninguna otra persona que reclame las pertenencias. El Encargado de la Boletería deberá sellar, con cinta adhesiva ancha, el gabinete de manera que nadie llegue y retire el contenido.

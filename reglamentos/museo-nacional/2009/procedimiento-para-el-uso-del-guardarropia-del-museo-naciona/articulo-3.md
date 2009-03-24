@@ -1,0 +1,1 @@
+3º—Corresponde al Departamento de Administración y Finanzas, por medio del Área de Servicios Generales, la administración de los apartados, procurando el uso racional y conveniente para el fin del Museo Nacional.

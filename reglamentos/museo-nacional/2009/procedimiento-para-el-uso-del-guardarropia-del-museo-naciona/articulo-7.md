@@ -1,0 +1,1 @@
+7º—En caso de extravío de la llave, el usuario deberá, de forma inmediata, dirigirse a la Boletería y reportar el extravío de la misma. El usuario deberá indicar, lo más exacto posible, las pertenencias que guardó en el gabinete, con la finalidad de poder entregárselas.

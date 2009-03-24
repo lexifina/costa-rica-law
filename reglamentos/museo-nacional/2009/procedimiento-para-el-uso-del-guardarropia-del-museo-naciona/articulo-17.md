@@ -1,0 +1,1 @@
+17.—Al finalizar el día el Encargado de Boletería hará un inventario rápido para verificar que todos los gabinetes cuenten con su respectiva llave, caso contrario deberá notificar al coordinador de Servicios Generales e indicarle al Vigilante anotarlo en la Bitácora.
