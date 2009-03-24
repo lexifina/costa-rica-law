@@ -1,0 +1,8 @@
+CAPÍTULO VI
+De la homologación
+Artículo 16.—Las entidades públicas que opten por homologarse al Sistema de Clasificación y Valoración del Servicio Civil, según la normativa vigente, considerarán los siguientes aspectos y procedimientos:
+a) Elaborar un Manual de Cargos y un Manual institucional de Clases, para lo cual podrán utilizar la Guía Metodológica para la Elaboración de Manuales de Puestos Institucionales de la DGSC, incluyendo análisis de procesos o funciones, productos y servicios, o en su defecto, indicar las variaciones que se hayan adoptado respecto de la mencionada guía, las que deberán estar debidamente justificadas.
+Para la elaboración del manual institucional de clases, se realizará un estudio técnico comparativo de los factores de cada puesto, con los de la clase ancha de referencia del Servicio Civil en la que se propone ubicar, y un análisis de la consistencia de la propuesta con la estructura organizacional y ocupacional existente.
+b) Los salarios propuestos deberán estar referenciados a la Escala de Salarios de la Administración Pública vigente.
+c) Para verificar el cumplimiento de los requisitos establecidos en el presente artículo, el Jerarca Ejecutivo remitirá a la STAP, una certificación sobre el cumplimiento de la normativa señalada en los incisos de este numeral, así como un cuadro resumen de la cantidad y clasificación de los puestos anteriores a la homologación y el detalle de la propuesta, indicando la clase institucional, la clase ancha de referencia y la valoración.
+d) Indicar que se ha cumplido con lo dispuesto en los artículos 10, 11 y 12 de este Decreto.
