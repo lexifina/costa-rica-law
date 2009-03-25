@@ -1,0 +1,1 @@
+Artículo 15.—La Sociedad Civil en su conjunto ejerce una función contralora y fiscalizadora de la labor municipal, para ello, sus organizaciones deberán fomentar el interés de la ciudadanía en estos temas en una forma respetuosa, apegada a la legislación que rija la materia.

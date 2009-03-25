@@ -1,0 +1,1 @@
+Artículo 19.—Estos concejos deberán contemplar mecanismos que fomenten la participación ciudadana, así como la realización de consultas populares dentro de su jurisdicción en aquellos casos relacionados con el desarrollo sostenible de su distrito.
