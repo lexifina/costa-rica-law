@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permisos de operación en el servicio regular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-16 | la propia norma |
+| 2 | 2009-03-25 | Decreto Ejecutivo 35207 (2009-03-25) |
