@@ -1,0 +1,2 @@
+Artículo 2º—Hecho generador del tributo. Constituye el hecho generador de la tasa la prestación efectiva del servicio público de recolección y disposición final de desechos por parte de la Municipalidad, sobre una o varias unidades de uso que se encuentran dentro de un inmueble ubicado en el área de cobertura del servicio.
+Se entiende por unidad de uso o consumo, toda fuente independiente generadora de desechos sólidos dentro de un mismo inmueble, tal como: hoteles, apartamentos, casas de habitación, industrias, locales o establecimientos comerciales, etc.

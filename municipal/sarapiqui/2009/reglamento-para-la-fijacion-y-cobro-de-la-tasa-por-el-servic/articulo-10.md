@@ -1,0 +1,1 @@
+Artículo 10.—Lugar de pago de la tasa. El pago de la tasa por el servicio de recolección de basura podrá realizarse directamente en la plataforma de servicios de la Municipalidad; cajas recaudadoras autorizadas; o bien, a través de depósito bancario a favor de la Municipalidad.

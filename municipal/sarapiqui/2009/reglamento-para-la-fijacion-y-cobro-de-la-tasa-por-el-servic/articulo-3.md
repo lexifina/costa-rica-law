@@ -1,0 +1,1 @@
+Artículo 3º—Sujeto pasivo. Es sujeto pasivo o contribuyente de la tasa, toda persona física o jurídica propietaria, poseedora, ocupante o usufructuaria del inmueble al que pertenezcan las unidades de uso dentro del área de cobertura efectiva del servicio.

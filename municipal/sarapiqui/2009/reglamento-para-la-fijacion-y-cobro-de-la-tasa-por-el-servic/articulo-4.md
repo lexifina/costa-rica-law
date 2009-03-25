@@ -1,0 +1,1 @@
+Artículo 4º—Base imponible. El tipo de actividad a que se destina la unidad de servicio y el peso de la basura generado en el lapso de una semana dentro de los rangos previstos en este reglamento, constituye la base imponible de la tasa por el servicio de recolección y disposición final de basura.
