@@ -74,3 +74,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 59 | 2008-11-03 | Reglamento 5400 (2008-11-03) |
 | 60 | 2009-01-28 | Reglamento 5412 (2009-01-28) |
 | 61 | 2009-03-11 | Reglamento 5416 (2009-03-11) |
+| 62 | 2009-03-25 | Reglamento 5418 (2009-03-25) |
