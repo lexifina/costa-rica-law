@@ -15,3 +15,4 @@ Reglamento sobre Operaciones Especiales para Enfrentar Requerimentos Extraordina
 | --- | --- | --- |
 | 1 | 2008-11-04 | la propia norma |
 | 2 | 2009-01-28 | Reglamento 5412 (2009-01-28) |
+| 3 | 2009-03-25 | Reglamento 5418 (2009-03-25) |
