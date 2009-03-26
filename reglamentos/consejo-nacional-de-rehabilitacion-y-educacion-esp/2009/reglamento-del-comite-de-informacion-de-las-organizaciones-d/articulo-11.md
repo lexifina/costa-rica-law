@@ -1,0 +1,1 @@
+Artículo 11.—El COINDIS se reunirá, en forma ordinaria, dos veces al mes y de manera extraordinaria, cuando sea convocado por su Coordinador o Coordinadora General o por al menos tres de sus miembros titulares.

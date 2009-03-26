@@ -1,0 +1,1 @@
+Artículo 3º—Para garantizar la calidad de la información el COINDIS podrá contar con la asesoría del ente rector en materia de discapacidad y del personal que requiera para tal efecto, el cual será contratado bajo la modalidad de servicios profesionales por el CNREE.

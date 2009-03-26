@@ -1,0 +1,1 @@
+Artículo 10.—El COINDIS formará quorum para sus sesiones ordinarias o extraordinarias con la asistencia de al menos tres miembros. En ausencia del Coordinador o Coordinadora General, cualquier miembro pleno podrá ejercer esa función, en todo o en parte de la sesión correspondiente.

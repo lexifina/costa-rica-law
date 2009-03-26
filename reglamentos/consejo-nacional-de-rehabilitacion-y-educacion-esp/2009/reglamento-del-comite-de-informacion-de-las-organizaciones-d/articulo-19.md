@@ -1,0 +1,1 @@
+Artículo 19.—Para adquirir cualquier tipo de bien o servicio el COINDIS deberá coordinar con el Coordinador(a) del Área de Bienes y Servicios del CNREE, el(la) cual deberá actuar en estricto apego a los procedimientos de contratación establecidos en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—El COINDIS elegirá de su seno un Coordinador o Coordinadora General y un Secretario o Secretaria de Actas. Ambos cargos serán ejercidos durante el período de un año y las personas elegidas, podrán ser reelectas para un solo periodo adicional.

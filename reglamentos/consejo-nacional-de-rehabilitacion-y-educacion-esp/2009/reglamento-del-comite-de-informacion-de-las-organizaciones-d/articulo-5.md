@@ -1,0 +1,1 @@
+Artículo 5º—Los miembros plenos y suplentes del COINDIS serán elegidos por una Asamblea General de Organizaciones de Personas con Discapacidad legalmente constituidas y convocada para tal efecto, la cual será convocada cumpliendo las disposiciones contempladas en artículo 28 del Reglamento de la Ley 7600.

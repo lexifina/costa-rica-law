@@ -1,0 +1,1 @@
+Artículo 18.—Para la asignación de recursos por parte del ente rector, el Comité de Información deberá presentar a más tardar el 31 de julio de cada año, su presupuesto y su plan anual de labores, a la Jefatura del Departamento Administrativo del CNREE, el cual lo elevará a la Dirección Ejecutiva para su análisis y aprobación.

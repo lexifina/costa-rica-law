@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros plenos tendrán voz y voto en la toma de decisiones del COINDIS; los miembros suplentes podrán asistir a las sesiones con derecho a voz pero sin voto. En ausencia de los miembros plenos los suplentes les sustituirán con los mismos derechos y obligaciones.
