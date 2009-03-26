@@ -1,0 +1,1 @@
+Artículo 99.—Cuando el resultado de la evaluación y calificación de servicios anual del o la servidor(a) sea de Regular dos veces consecutivas, se considerará falta grave, por lo que deberá procederse conforme a este reglamento.

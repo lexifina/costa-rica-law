@@ -1,0 +1,1 @@
+Artículo 72.—Una vez programadas las actividades de capacitación y notificadas las respectivas jefaturas y los funcionarios participantes, no se concederá licencia con o sin goce de salario que coincida con el período que se desarrolle la actividad.

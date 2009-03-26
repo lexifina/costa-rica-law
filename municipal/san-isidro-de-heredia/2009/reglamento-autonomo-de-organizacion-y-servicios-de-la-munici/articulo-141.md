@@ -1,0 +1,2 @@
+Artículo 141.—Cuando se presente en caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del o la servidor(a) en vacaciones, podrá pedirse a éste(a) su regreso, sin que ello represente obligación para el o la servidor(a) o represalias en su contra.
+Si está anuente, se interrumpirá el disfrute por todo el tiempo que sea necesario, y al término de la situación que la originó, continuará el o la servidor(a) el disfrute de su derecho.

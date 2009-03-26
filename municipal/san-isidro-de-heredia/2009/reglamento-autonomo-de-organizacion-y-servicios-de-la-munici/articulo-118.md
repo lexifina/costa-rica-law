@@ -1,0 +1,1 @@
+Artículo 118.—Los(as) servidores(as) que fumen deberán hacerlo durante su tiempo matutino de descanso, o durante el período de almuerzo. Queda bajo la supervisión del jefe inmediato el hecho de que los(as) funcionarios(as) no tomen más tiempo ni otros tiempos para el fumado, que el establecido.

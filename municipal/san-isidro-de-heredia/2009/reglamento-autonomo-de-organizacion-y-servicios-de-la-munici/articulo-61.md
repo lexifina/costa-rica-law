@@ -1,0 +1,1 @@
+Artículo 61.—Para los efectos de su aplicación y control, la carrera profesional constituirá un componente del sistema de salarios e incentivos del sistema de administración de recursos humanos del Estado y deberá concebirse estrechamente relacionada con los demás subsistemas que lo conforman.

@@ -1,0 +1,1 @@
+Artículo 27.—Los o las usuarios(as) de los equipos no podrán mantener archivos de carácter personal o de cualquier otro tipo que no se relacionen estrictamente con la función municipal. Para éstos efectos, los o las funcionarios(as) encargados(as) de los sistemas de cómputo de la Municipalidad, podrán realizar revisiones del equipo al azar y sin previo aviso.

@@ -1,0 +1,1 @@
+Artículo 191.—El presente reglamento entrará en vigencia en la fecha de aprobación del Concejo Municipal. Se procederá a reproducir y entregar un ejemplar a cada uno de los(as) servidores(as) municipales, incluyendo al Alcalde (sa) Municipal.

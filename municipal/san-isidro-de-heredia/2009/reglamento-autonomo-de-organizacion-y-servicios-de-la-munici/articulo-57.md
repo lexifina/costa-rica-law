@@ -1,0 +1,3 @@
+Artículo 57.—Para optar al beneficio de la carrera profesional, será de acuerdo con los siguientes criterios.
+Conferidos o reconocidos y equipados por algunas universidades facultadas para ello. Los grados y títulos académicos obtenidos antes de la promulgación de las normas sobre reconocimiento y equiparación de los grados y títulos por parte del CONARE, serán aceptados de acuerdo con las condiciones con que haya valorado y aceptado del Colegio Profesional respectivo.
+Se entenderá por grados y especialidades adicionales aquellos que presentan el o la servidor(a) y que no hayan sido tomados o considerados para otras puntuaciones.
