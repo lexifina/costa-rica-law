@@ -1,1 +1,0 @@
-Artículo 19.—La Auditoría Interna deberá mantener en uso de su unidad un Manual de Procedimientos de Auditoría Interna, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de auditoría aplicables.

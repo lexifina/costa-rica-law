@@ -1,1 +1,0 @@
-Artículo 22.—La comunicación de resultados deberá hacerse por escrito mediante memorandos dirigidos al Regulador General o a los Directores o bien por medio de informes dirigidos a la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 25.—El auditor responsable del informe debe confeccionar un acta de la conferencia final, en la cual resumirá los asuntos más relevantes ocurridos en ella y fijará los compromisos asumidos por los funcionarios responsables. El acta deberá ser firmada por todos los asistentes a dicha conferencia.

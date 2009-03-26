@@ -1,1 +1,0 @@
-Artículo 11.—El Auditor Interno deberá solicitar debidamente justificada a la Junta Directiva, la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de auditoría y en general para el buen funcionamiento de su unidad.

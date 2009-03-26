@@ -1,2 +1,0 @@
-Artículo 6°—El nombramiento del Auditor Interno será por tiempo indefinido y lo hará la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, de quien dependerá y ante quien responderá directamente por su gestión.
-Sólo podrá ser suspendido o destituido de su cargo por justa causa y por decisión emanada del jerarca respectivo, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República, tal y como lo establece el artículo 15 de la Ley 7428.

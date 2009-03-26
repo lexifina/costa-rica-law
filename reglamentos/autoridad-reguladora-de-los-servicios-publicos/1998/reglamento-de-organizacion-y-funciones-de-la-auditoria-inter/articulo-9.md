@@ -1,1 +1,0 @@
-Artículo 9°—El funcionario de la Auditoría Interna que realice una evaluación, será responsable por los hallazgos o resultados que plasme en el informe o memorando que presente al Auditor Interno, así como por la omisión de alguna revisión importante que debió considerar en el transcurso de la evaluación.

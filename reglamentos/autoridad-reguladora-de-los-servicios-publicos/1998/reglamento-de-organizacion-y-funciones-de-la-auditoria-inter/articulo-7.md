@@ -1,1 +1,0 @@
-Artículo 7°—La Auditoría Interna contará con los recursos humanos, materiales, tecnológicos, de asesoría técnica e instalaciones físicas necesarios para el cumplimiento adecuado de sus funciones, las cuales ejercerá con independencia funcional y de criterio respecto del jerarca y demás órganos de la administración activa.

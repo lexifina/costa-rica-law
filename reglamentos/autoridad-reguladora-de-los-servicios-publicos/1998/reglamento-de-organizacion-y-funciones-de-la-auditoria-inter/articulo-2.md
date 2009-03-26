@@ -1,2 +1,0 @@
-Artículo 2°—La Auditoría Interna es parte integral y vital del sistema de control interno de la A.R.E.S.E.P, y tendrá como función principal la comprobación del cumplimiento, la suficiencia y la validez de dicho sistema.
-Corresponderá a la Administración la responsabilidad de establecer, mantener y perfeccionar los sistemas de control, siendo el Regulador General el responsable específico y ante él, el funcionario encargado de cada unidad administrativa respectiva, de acuerdo a lo que establece el artículo 60 de la Ley 7428.

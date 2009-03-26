@@ -1,1 +1,0 @@
-Artículo 28.—El presente Reglamento rige a partir de su publicación y deroga el Reglamento de Organización y Funciones de la Auditoría Interna del Servicio Nacional de Electricidad, publicado en La Gaceta 151 de 10 de agosto de 1993, así como cualquier otra disposición interna que se le oponga.
