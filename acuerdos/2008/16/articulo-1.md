@@ -126,36 +126,35 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2008/2009
 48. Secretarias Ejecutivas asignados a las oficinas de los señores Magistrados (7).
 (7) Sesión del Consejo Superior Nº 3-08 del 15-01-08 artículo, XXXVIII.
 8.7 Excepcionalmente se podrán realizar sustituciones por períodos igual o mayor a cuatro días hábiles a los servidores considerados en la siguiente lista de puestos:
-- Conserjes, siempre y cuando la oficina cuente con tres o menos plazas de este tipo.
-- Auxiliares de Servicios Generales 1 y 2; asignados a la Oficina Administrativa de Tribunales de San José.
-- Notificadores de las Oficinas Judiciales
-- Notificadores y Auxiliares Administrativo 1 de cada Oficina Centralizada de Notificaciones del país.
-- Auxiliar Administrativo 1, puesto 34254 de la Administración Regional de Pérez Zeledón.
-- Auxiliares de Comunicaciones.
-- Secretarias.
-- Oficinistas en funciones secretariales del Organismo de Investigación Judicial (uno por oficina fijo).
-- Psicólogos y Trabajadores Sociales en los despachos de Violencia Doméstica y Juzgado de Familia.
-- Digitador de Estadística.
-- Los Auxiliares Administrativos encargados de la recepción de indicios del Departamento de Laboratorio de Ciencias Forenses.
-- Auxiliar de Servicios destacados en las Subcontralorías de Servicios del Segundo Circuito Judicial de San José, Circuito Judicial de Heredia, Cartago, Primer Circuito Judicial de Alajuela, Circuito Judicial de Guanacaste y Sede Santa Cruz, Primer y Segundo Circuito Judicial de la Zona Atlántica.
-- Personal del archivo administrativo del Segundo Circuito Judicial de San José.
-- Auxiliar Administrativo 1 que atiende la Oficina de Trabajo Social y Psicología del Segundo Circuito Judicial de San José.
-- Auxiliar Administrativo 1 puesto 020266 con funciones Secretariales de la Unidad Administrativa Regional Zona Sur.
-- Auxiliar Administrativo 1 de la Unidad de Citaciones, Localizaciones y Presentaciones del Segundo Circuito Judicial de San José.
-- Los Auxiliares Administrativos 1 que asisten el quinto, sexto y sétimo piso del Segundo Circuito Judicial de San José.
-- Asistente Administrativo 1 (Auxiliar de Bibliotecología) a cargo de la Biblioteca del Segundo Circuito Judicial de San José.
-- Auxiliar Administrativo 1 que apoya al Servicio Médico del Edificio del Segundo Circuito Judicial de San José.
-- Asistentes Administrativos 2, que laboran en la Tesorería del Segundo Circuito Judicial de San José.
-- Auxiliares Administrativos 2, que laboran en la Tesorería del Segundo Circuito Judicial de San José.
-- Los Subcontralores de Servicio nombrados directamente por la Jefatura de la Contraloría de Servicios.
-- Los Inspectores Generales Judiciales.
-- Los Técnicos en Telecomunicaciones.
-- Auxiliar de Servicios Generales 2 puesto 43927 de la Unidad Administrativa Regional Zona Sur.
-- Auxiliar de Servicios Generales 1 puestos 006508 y 006509 de la Unidad Administrativa Regional Zona Sur.
-- Auxiliar Administrativo 1 puestos 047320 y 006321 en funciones de Auxiliares de Comunicaciones en la Central Telefónica de la Unidad Administrativa Regional Zona Sur.
-- (*) (Nota: Mediante Circular N° 204 del 10 de diciembre del 2008, se determinó que se excluya la plaza N° 15820 de Auxiliar Supernumerario 2, de la Sección de Asesoría Legal de la Dirección Ejecutiva , de las plazas que excepcionalmente pueden ser sustituidas por períodos iguales o mayores a cuatro días hábiles)
-- Profesionales responsables de los programas de Abuso Sexual y Penal juvenil en las Oficinas de: San Carlos, San Ramón, Santa Cruz- Nicoya, Liberia, Puntarenas, Grecia, Quepos, Corredores- Golfito, Guápiles, Pérez Zeledón, Cartago y Limón. (Sesión 18-07 del 08-03-07 art. LXIX).
-- Auxiliar de Contraloría de Servicios, sede San Carlos, Puntarenas, y Pérez Zeledón específicamente en los puestos 350052, 103094, 103079.
+· Conserjes, siempre y cuando la oficina cuente con tres o menos plazas de este tipo.
+· Auxiliares de Servicios Generales 1 y 2; asignados a la Oficina Administrativa de Tribunales de San José.
+· Notificadores de las Oficinas Judiciales
+· Notificadores y Auxiliares Administrativo 1 de cada Oficina Centralizada de Notificaciones del país.
+· Auxiliar Administrativo 1, puesto 34254 de la Administración Regional de Pérez Zeledón.
+· Auxiliares de Comunicaciones. Secretarias.
+· Oficinistas en funciones secretariales del Organismo de Investigación Judicial (uno por oficina fijo).
+· Psicólogos y Trabajadores Sociales en los despachos de Violencia Doméstica y Juzgado de Familia.
+· Digitador de Estadística.
+· Los Auxiliares Administrativos encargados de la recepción de indicios del Departamento de Laboratorio de Ciencias Forenses.
+· Auxiliar de Servicios destacados en las Subcontralorías de Servicios del Segundo Circuito Judicial de San José, Circuito Judicial de Heredia, Cartago, Primer Circuito Judicial de Alajuela, Circuito Judicial de Guanacaste y Sede Santa Cruz, Primer y Segundo Circuito Judicial de la Zona Atlántica.
+· Personal del archivo administrativo del Segundo Circuito Judicial de San José.
+· Auxiliar Administrativo 1 que atiende la Oficina de Trabajo Social y Psicología del Segundo Circuito Judicial de San José.
+· Auxiliar Administrativo 1 puesto 020266 con funciones Secretariales de la Unidad Administrativa Regional Zona Sur.
+· Auxiliar Administrativo 1 de la Unidad de Citaciones, Localizaciones y Presentaciones del Segundo Circuito Judicial de San José.
+· Los Auxiliares Administrativos 1 que asisten el quinto, sexto y sétimo piso del Segundo Circuito Judicial de San José.
+· Asistente Administrativo 1 (Auxiliar de Bibliotecología) a cargo de la Biblioteca del Segundo Circuito Judicial de San José.
+· Auxiliar Administrativo 1 que apoya al Servicio Médico del Edificio del Segundo Circuito Judicial de San José.
+· Asistentes Administrativos 2, que laboran en la Tesorería del Segundo Circuito Judicial de San José.
+· Auxiliares Administrativos 2, que laboran en la Tesorería del Segundo Circuito Judicial de San José.
+· Los Subcontralores de Servicio nombrados directamente por la Jefatura de la Contraloría de Servicios.
+· Los Inspectores Generales Judiciales. Los Técnicos en Telecomunicaciones.
+· Auxiliar de Servicios Generales 2 puesto 43927 de la Unidad Administrativa Regional Zona Sur.
+· Auxiliar de Servicios Generales 1 puestos 006508 y 006509 de la Unidad Administrativa Regional Zona Sur.
+· Auxiliar Administrativo 1 puestos 047320 y 006321 en funciones de Auxiliares de Comunicaciones en la Central Telefónica de la Unidad Administrativa Regional Zona Sur.
+· Auxiliar Supernumerario 2, de Sección de asesoría legal puesto 1 5820 que se desempeña funciones de encargada de Archivo Regional. (Esta plaza quedó excluida según /o dispuesto por el Consejo Superior en sesión N° 89-08 del 18 de noviembre de 2008, artículo LX. Comunicado mediante Circular 204-08, publicada en el Boletín Judicial N° 04-09 del 7 de enero de 2009).
+· Profesionales responsables de los programas de Abuso Sexual y Penal Juvenil en las Oficinas de: San Carlos, San Ramón, Santa Cruz- Nicoya, Liberia, Puntarenas, Grecia, Quepos, Corredores- Golfito, Guapiles, Pérez Zeledón, Cartago y Limón, (sesión 18-07 del 08-03-07 artículo LXIX).
+· Auxiliar de Contraloría de Servicios, sede San Carlos, Puntarenas, y Pérez Zeledón específicamente en los puestos 350052, 103094, 103079.
+(Así reformado mediante sesión N° 16-09 del 24 de febrero de 2009, y publicado en El Boletín Judicial N° 80 del 27 de abril de 2009, mediante Aviso 12-09 del 26 de marzo de 2009)
 8.8 La clasificación de “clases anchas” no modifica esta lista de puestos, por lo que para los efectos, debe entenderse que sólo se autorizan los puestos contemplados en los puntos 8.6 y 8.7.
 8.9 Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
 9. Otras disposiciones sobre sustituciones
