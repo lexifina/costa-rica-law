@@ -15,3 +15,4 @@ Reglamento Municipal para el trámite y Adjudicaciones de Patentes Temporales pa
 | --- | --- | --- |
 | 1 | 2000-10-17 | la propia norma |
 | 2 | 2006-10-03 | Reglamento municipal 40 (2006-10-03) |
+| 3 | 2009-03-26 | Reglamento municipal 243 (2009-03-26) |
