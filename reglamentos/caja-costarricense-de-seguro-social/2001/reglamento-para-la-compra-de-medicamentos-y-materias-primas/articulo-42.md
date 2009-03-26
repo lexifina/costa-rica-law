@@ -1,2 +1,2 @@
 DE LA EJECUCIÓN DEL CONTRATO ADMINISTRATIVO
-Artículo 42.—El contratista queda obligado a ejecutar el contrato administrativo de conformidad con el cartel, la oferta y sus complementos el acto de adjudicación, la orden de compra o contrato de la Caja.
+Artículo 42.—(Derogado por el transitorio 1 de las Condiciones Generales para la Contratación Administrativa Institucional de Bienes y Servicios Desarrollada por todas las Unidades Desconcentradas y no Desconcentradas de la Caja Costarricense de Seguro Social, aprobado en sesión N° 8335 de 26 de marzo de 2009).

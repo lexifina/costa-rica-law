@@ -1,2 +1,2 @@
 CONDICIONES PARA OFERTAS DE IMPORTACIÓN
-Artículo 28.—La oferta debe presentarse en original, debidamente firmada. Cuando sea sometido por personas jurídicas en su condición de apoderados, representantes de casas extranjeras, distribuidores exclusivos y otros, adjuntar copia de la cédula jurídica vigente, e indicar las citas de inscripción de la personería de quien la suscribe, según corresponda.
+Artículo 28.—(Derogado por el transitorio 1 de las Condiciones Generales para la Contratación Administrativa Institucional de Bienes y Servicios Desarrollada por todas las Unidades Desconcentradas y no Desconcentradas de la Caja Costarricense de Seguro Social, aprobado en sesión N° 8335 de 26 de marzo de 2009).

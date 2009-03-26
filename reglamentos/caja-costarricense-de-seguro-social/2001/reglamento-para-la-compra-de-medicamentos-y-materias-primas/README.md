@@ -17,3 +17,4 @@ Reglamento para la Compra de Medicamentos y Materias Primas, Envases y Reactivos
 | 2 | 2002-04-04 | Reglamento 7637 (2002-04-04) |
 | 3 | 2003-10-09 | Reglamento 7797 (2003-10-09) |
 | 4 | 2004-04-29 | Reglamento 7853 (2004-04-29) |
+| 5 | 2009-03-26 | Reglamento 8335 (2009-03-26) |

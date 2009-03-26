@@ -1,1 +1,1 @@
-Artículo 47.—Plazo de entrega: toda oferta debe indicar con exactitud el plazo de entrega, en caso de omisión se interpreta que acepta k) solicitado en el cartel.
+Artículo 47.—(Derogado por el transitorio 1 de las Condiciones Generales para la Contratación Administrativa Institucional de Bienes y Servicios Desarrollada por todas las Unidades Desconcentradas y no Desconcentradas de la Caja Costarricense de Seguro Social, aprobado en sesión N° 8335 de 26 de marzo de 2009).
