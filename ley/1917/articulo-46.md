@@ -1,5 +1,8 @@
 Artículo 46.-El Instituto Costarricense de Turismo, mediante el Reglamento que preparará y someterá a la aprobación y promulgación del Poder Ejecutivo, administrará y percibirá los siguientes impuestos, que se crean para que cumpla con las funciones que por esta ley se le asignan:
 a) Un impuesto del cinco por ciento del valor de los pasajes vendidos en Costa Rica, para cualquier clase de viajes internacionales; y
 (El inciso anterior había sido modificado por el artículo 111 de la Ley de Presupuesto Extraordinario No.7015 del 22 de noviembre de 1985, estableciendo “Un impuesto del 8% del valor de los pasajes vendidos en Costa Rica, para cualquier clase de viajes internacionales, y de los vendidos en el exterior que se originen en Costa Rica”. Dicha modificación fue anulada por resolución de la Sala Constitucional Nº 3491-94 del 12 de julio de 1994).
-b) (Derogado por el aparte m) del artículo 31° de la Ley de Simplificación y Eficiencia Tributarias, N° 8114 del 4 de julio de 2001)
+b) Un impuesto del cinco por ciento (5%) sobre el valor de los pasajes cuyo origen de ruta sea Costa Rica, para cualquier clase de viajes internacionales.
+(Así adicionado el inciso anterior por el artículo 7° de la Ley de Fortalecimiento del Desarrollo de la Industria Turística Nacional, N° 8694 del 11 de diciembre de 2008. Anteriormente este inciso había derogado por el aparte m) del artículo 31° de la Ley de Simplificación y Eficiencia Tributarias, N° 8114 del 4 de julio de 2001)
+A cada pasaje solo podrá aplicársele uno de los impuestos mencionados en los incisos a) y b) anteriores, pero no ambos, de manera que no exista una doble carga impositiva.
+(Así adicionado el párrafo anterior por el artículo 7° de la Ley de Fortalecimiento del Desarrollo de la Industria Turística Nacional, N° 8694 del 11 de diciembre de 2008.
 (Así reformado por el artículo 1° de la ley N° 2763 del 22 de junio de 1961)
