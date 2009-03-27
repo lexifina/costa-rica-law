@@ -32,3 +32,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 17 | 2008-10-17 | Reglamento 751 (2008-10-17) |
 | 18 | 2008-12-19 | Reglamento 762 (2008-12-19) |
 | 19 | 2009-03-06 | Reglamento 777 (2009-03-06) |
+| 20 | 2009-03-27 | Reglamento 781 (2009-03-27) |
