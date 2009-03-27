@@ -31,3 +31,4 @@ Reglamento para la Calificación de Deudores
 | 16 | 2008-02-11 | Reglamento 701 (2008-02-11) |
 | 17 | 2008-05-30 | Reglamento 720 (2008-05-30) |
 | 18 | 2008-10-24 | Reglamento 752 (2008-10-24) |
+| 19 | 2009-03-27 | Reglamento 781 (2009-03-27) |
