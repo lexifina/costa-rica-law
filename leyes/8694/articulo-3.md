@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+Constituye el hecho generador del impuesto establecido en la presente Ley, el ingreso del pasajero al país por la vía aérea, mediante boleto adquirido en el exterior. El impuesto será recaudado por la empresa que preste el servicio de transporte aéreo para ingresar al país, en el momento de la venta del boleto. El impuesto será percibido, controlado, administrado y fiscalizado por el ICT.

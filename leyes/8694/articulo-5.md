@@ -1,0 +1,4 @@
+ARTÍCULO 5.-
+La empresa prestadora del servicio de transporte que ingrese el pasajero al país, será la responsable de entregarle al ICT las sumas recaudadas como producto de este impuesto; las entregará en los medios y la forma que el ICT disponga y dentro de los primeros quince (15) días naturales del mes siguiente a aquel en que ingrese al país la persona usuaria del transporte.
+Para procurar la efectividad de esta Ley, el ICT queda autorizado a aplicar el régimen sancionatorio establecido en el título III, Delitos, del Código de Normas y Procedimientos Tributarios, Ley N.° 4755, de 3 de mayo de 1971, y sus reformas.
+En caso de que una empresa prestadora del servicio de transporte no gire, en el tiempo requerido, el impuesto a que se refiere esta Ley, el ICT podrá trasladar a la Dirección General de Aviación Civil, la solicitud de que se le cancele el permiso de operación en Costa Rica.
