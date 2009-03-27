@@ -1,0 +1,1 @@
+Artículo 113.—Identificación de las cuentas de terceros. Las cuentas de terceros se identifican con el nombre y el número de identificación de sus titulares, así como con un código por tipo de inversionista.

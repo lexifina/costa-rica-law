@@ -1,0 +1,1 @@
+Artículo 128.—Confidencialidad de la información. El BCCR deberá garantizar la confidencialidad de la identidad de los propietarios de los valores, de conformidad con las disposiciones establecidas en el artículo 119 de la Ley 7732 y en el Reglamento del Sistema de Anotación en Cuenta, promulgado por el CONASSIF.

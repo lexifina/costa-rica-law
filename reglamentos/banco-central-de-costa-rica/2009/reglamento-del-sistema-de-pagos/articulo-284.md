@@ -1,0 +1,1 @@
+Artículo 284.—Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.

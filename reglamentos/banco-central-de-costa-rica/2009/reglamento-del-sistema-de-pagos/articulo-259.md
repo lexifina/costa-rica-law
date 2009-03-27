@@ -1,0 +1,1 @@
+Artículo 259.—Restitución de la garantía. En el caso de que las exposiciones crediticias lleguen a superar el monto de las garantías aportadas, el asociado deberá proceder con una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar las exposiciones a su cargo.

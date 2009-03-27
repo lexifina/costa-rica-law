@@ -1,0 +1,1 @@
+Artículo 9º—Inscripción como entidad de custodia. Los asociados que se inscriban como entidad de custodia de conformidad con lo dispuesto en el artículo 134 de la Ley 7732, podrán designar un banco para la liquidación de fondos, el cual deberá mantenerse activo como miembro liquidador dentro del Sistema de Compensación y Liquidación de Valores.

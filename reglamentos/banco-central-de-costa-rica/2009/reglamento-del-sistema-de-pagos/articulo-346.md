@@ -1,0 +1,1 @@
+Artículo 346.—Usos legítimos del certificado. Las partes confiantes deberán utilizar los certificados solamente en aplicaciones de negocio autorizadas y funciones criptográficas apropiadas, tales como verificación de firma digital, autenticación y otros detallados en las políticas establecidas en la PC.

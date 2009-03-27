@@ -1,0 +1,1 @@
+Artículo 331.—Funcionamiento del certificador del SINPE. El funcionamiento del certificador del SINPE se rige de acuerdo con los lineamientos establecidos en su PC y su DPC, así como por lo que establecen el presente reglamento y las normas complementarias del servicio.

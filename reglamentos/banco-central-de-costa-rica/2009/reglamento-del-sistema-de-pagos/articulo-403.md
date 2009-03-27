@@ -1,0 +1,1 @@
+Artículo 403.—Vigencia del reglamento. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deja sin efecto el aprobado por la Junta Directiva del BCCR en la Sesión 5368-2008, del 27 de febrero del 2008, y publicado en el Diario Oficial La Gaceta Nº 53, del 14 de marzo del 2008.

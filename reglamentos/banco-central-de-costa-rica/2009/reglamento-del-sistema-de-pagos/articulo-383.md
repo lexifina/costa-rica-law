@@ -1,0 +1,1 @@
+Artículo 383.—Información consultada. Por medio del servicio los participantes podrán consultar los datos e imágenes de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones, conforme con los convenios de intercambio de información que suscriba esa institución con el BCCR.

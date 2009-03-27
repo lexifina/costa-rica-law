@@ -1,0 +1,2 @@
+Artículo 48.—Vigilancia de los sistemas de pago. El BCCR es responsable de la vigilancia de los sistemas de pago de importancia sistémica que operen en el país y desarrollará esa labor con el propósito de promover la seguridad y eficiencia del Sistema de Pagos Costarricense.
+Las entidades que operen o participen en los sistemas de pago de importancia sistémica deberán proveer al BCCR todas las facilidades que éste les solicite, así como cumplir con las disposiciones que les establezca con fundamento en su función de vigilancia.

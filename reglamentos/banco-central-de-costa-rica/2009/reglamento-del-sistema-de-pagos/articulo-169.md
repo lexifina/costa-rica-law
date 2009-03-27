@@ -1,0 +1,12 @@
+CAPÍTULO III
+Del ciclo de la primera ronda de negociación
+Artículo 169.—Ciclo de operación de la primera ronda. Toda negociación de valores a través de una subasta contará con una primera ronda, realizada de acuerdo con las necesidades del emisor.
+El ciclo de operación de la primera ronda se efectuará de conformidad con las siguientes etapas:
+a) Convocatoria de negociación: El emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por tipo de oferta, las reglas de asignación y cualquier otra información que considere relevante para el proceso de negociación.
+El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
+Dentro del ciclo de la primera ronda, y de acuerdo con sus necesidades de captación, el emisor podrá convocar para una misma subasta un tramo competitivo y otro no competitivo.
+b) Recepción de ofertas: Los inversionistas envían sus ofertas de negociación por medio del servicio, desde el momento del anuncio de la convocatoria y hasta las 10:00 a.m. del día de la negociación. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el periodo de recepción de ofertas, proceda con la asignación respectiva.
+El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Una vez cerrado dicho periodo, todas las ofertas se tienen por irrevocables, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
+c) Asignación de ofertas: Las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. La hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados, será hasta las 11:00 a.m. del día de la negociación.
+d) Distribución de ofertas: Luego de cerrado el período de asignación y hasta las 2:00 p.m., los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
+e) Liquidación: Las ofertas que resulten asignadas serán cumplidas irrevocablemente a las 3:00 p.m. del día acordado para la liquidación, debiendo efectuarse la misma contra las cuentas de fondos que los inversionistas mantienen en el BCCR y sobre las cuentas administradas por el servicio Cuentas de Valores.

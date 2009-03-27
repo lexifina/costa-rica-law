@@ -1,0 +1,1 @@
+Artículo 134.—Uso del código ISIN. Cada emisión de valores debe estar identificada con un código ISIN único y será registrada por su valor facial, conforme con la cantidad de valores que la compongan.

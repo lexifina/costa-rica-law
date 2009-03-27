@@ -1,0 +1,1 @@
+Artículo 333.—Obligaciones de los registradores. Las entidades que deseen fungir como registradores, deben formalizar su relación con el certificador del SINPE. Con esto se comprometen a cumplir con todas las funciones y responsabilidades establecidas en la PC y DPC aplicables, en el presente reglamento y en las normas complementarias del servicio.

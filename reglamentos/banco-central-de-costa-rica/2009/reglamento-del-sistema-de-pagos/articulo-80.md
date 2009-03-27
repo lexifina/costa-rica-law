@@ -1,0 +1,1 @@
+Artículo 80.—Intercambio de cheques truncados. Los cheques sujetos al esquema de truncamiento serán intercambiados en los plazos y la forma que en que lo establezca la norma complementaria del servicio.

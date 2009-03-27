@@ -1,0 +1,1 @@
+Artículo 375.—Información de otros sistemas de pago y compensación. En su función relacionada con la vigilancia del Sistema de Pagos, el BCCR administrará la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.

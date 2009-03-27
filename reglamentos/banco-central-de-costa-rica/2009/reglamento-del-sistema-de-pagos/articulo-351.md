@@ -1,0 +1,2 @@
+Artículo 351.—Suscripción de la domiciliación física. Cuando el cliente destino suscriba ante el cliente origen una domiciliación física, es obligación del segundo entregar al primero una copia del documento suscrito.
+En estos casos el cliente origen debe entregar la domiciliación física a su entidad financiera, para que ésta a su vez gestione ante la entidad destino la autorización requerida para iniciar el proceso de débitos automáticos.

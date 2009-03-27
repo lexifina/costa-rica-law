@@ -1,0 +1,1 @@
+Artículo 345.—Validación de la llave pública. Es responsabilidad de las partes confiantes validar o solicitar la validación de la llave pública contenida en un certificado, antes de confiar en el mismo.

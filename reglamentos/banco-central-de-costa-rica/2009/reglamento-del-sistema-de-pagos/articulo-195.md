@@ -1,0 +1,1 @@
+Artículo 195.—Suficiencia de garantías. Las entidades con créditos garantizados en plazo, son responsables de mantener la garantía de conformidad con los requerimientos de cobertura que establece el libro Gestión de Riesgos, del presente reglamento.

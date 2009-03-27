@@ -1,0 +1,1 @@
+Artículo 142.—Horario de funcionamiento. El servicio Liquidación de Mercados estará disponible para el envío de archivos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.

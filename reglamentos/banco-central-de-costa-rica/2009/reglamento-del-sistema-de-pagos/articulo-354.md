@@ -1,0 +1,1 @@
+Artículo 354.—Domiciliación directa. El cliente destino podrá presentar la solicitud de domiciliación directamente a la entidad destino, en cuyo caso debe realizar las gestiones necesarias para que la entidad origen pueda ordenar los débitos automáticos respectivos del ciclo del servicio.

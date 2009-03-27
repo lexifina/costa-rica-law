@@ -1,0 +1,1 @@
+Artículo 215.—Estructura denominativa óptima en circulación. Con el fin de garantizar la circulación equilibrada de las denominaciones que requiera la población, la División de Servicios Financieros definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.

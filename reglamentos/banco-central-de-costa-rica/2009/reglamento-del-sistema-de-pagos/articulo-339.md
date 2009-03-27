@@ -1,0 +1,1 @@
+Artículo 339.—Comunicación de responsabilidades del solicitante. Los registradores, al momento de recibir la solicitud de certificado digital, deben informar al solicitante sobre las obligaciones que le impone el reglamento de la Ley 8454 y las consecuencias de su incumplimiento. El informe debe hacerse al solicitante personalmente.

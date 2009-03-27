@@ -1,0 +1,1 @@
+Artículo 37.—Divulgación de información. El BCCR actualizará y publicará periódicamente en el sitio Web del Sistema de Pagos los incumplimientos en que incurran los asociados con su participación en el SINPE, así como los actos relacionados con el marco normativo que considere relevantes por afectar la calidad de los servicios que prestan a sus clientes.
