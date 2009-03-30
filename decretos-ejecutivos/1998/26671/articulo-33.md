@@ -1,1 +1,0 @@
-Artículo 33.—Toda piscina que incumpla con lo dispuesto en el presente Reglamento y de conformidad con las medidas que establece la Ley General de Salud, podrá ser clausurada temporal o definitivamente según sea el caso, sin que por ello quepa responsabilidad alguna al Ministerio de Salud o a sus autoridades.

@@ -1,2 +1,0 @@
-Artículo 21.—Debe preeverse (sic) un lugar seco y ventilado, con acceso restringido, para el manejo y resguardo de los productos químicos, de donde se sacarán únicamente la cantidad de producto que se necesita aplicar.
-Deben tomarse las precauciones establecidas en el Reglamento de Registro y Control de Sustancias Tóxicas y Productos Tóxicos y Peligrosos y objetos peligrosos, decreto ejecutivo N° 23333-S del 23 de mayo de 1994, publicado en "La Gaceta" No 98 del 6 de mayo de 1994.

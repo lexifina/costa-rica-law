@@ -1,4 +1,0 @@
-Artículo 26.—Para cada piscina de uso público y de uso de conjuntos habitacionales, la administración debe llevar al día una bitácora la cual debe estar firmada en su primera página por el Inspector autorizado, especificando nombre del propietario, la ubicación, las características de las piscinas y sus equipos y la fecha de cada inspección. Además debe anotarse, toda reparación o modificación tanto a la obra civil como de los equipos. Debe llevarse anotado el registro de las reportes de los análisis físico-químico y bacteriológicos del agua.
-Adicionalmente debe tenerse a la mano los instructivos pertinentes de operación y mantenimiento y copia de los planos aprobados.
-La bitácora debe ser legalizada por el Ministerio de Salud.
-La falta de bitácora o no mantenerla al día con los registros de análisis, autoriza al Ministerio de Salud para el cierre de la respectiva piscina.

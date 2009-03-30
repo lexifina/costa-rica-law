@@ -1,2 +1,0 @@
-Artículo 13.—La piscina debe contar con desnatadores, mínimo un desnatador por cada 40 m2 de superficie de agua para limpiar permanentemente la espuma y materia flotante en la superficie del agua. Estos deben colocarse frente a la dirección predominante del viento y contar con sistemas de retención de materias gruesas como cabellos y hojas.
-Si no se usan desnatadores las piscinas deben contar con un sistema de rebosadero de agua.

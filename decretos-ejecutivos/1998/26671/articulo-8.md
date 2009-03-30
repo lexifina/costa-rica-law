@@ -1,1 +1,0 @@
-Artículo 8°—En piscinas de uso público, el número de los vestidores debe tener capacidad suficiente para el número máximo prefijado de bañistas, establecido en el artículo 7° anterior, estar construidos de material impermeable, lavable, no resbaladizo ni absorbente, con pendiente del 1% hacia sistemas de desagüe y mantenerse permanentemente en perfectas condiciones sanitarias.

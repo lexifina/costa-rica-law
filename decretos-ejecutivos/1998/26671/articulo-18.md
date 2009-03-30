@@ -1,1 +1,0 @@
-Artículo 18.—Las piscinas de uso público deben contar con instalaciones para la permanencia de uno o más guardas salvavidas, ubicadas a una distancia no mayor de cinco metros del borde de la piscina y con una altura de dos metros diez centímetros que permitan una visión total del área de piscina y sus aceras.

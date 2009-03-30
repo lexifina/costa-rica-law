@@ -1,1 +1,0 @@
-Artículo 10.—En piscinas de uso público y de uso de grupos habitacionales las duchas deben ubicarse de tal forma que obliguen a los bañistas a pasar por ellas antes de entrar a la piscina después del uso de cosméticos de protección solar.

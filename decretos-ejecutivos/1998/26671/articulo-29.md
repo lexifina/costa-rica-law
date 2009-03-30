@@ -1,1 +1,0 @@
-Artículo 29.—Este Reglamento debe permanecer expuesto en un lugar visible indicando además la capacidad máxima de la piscina y colocados en sitios estratégicos las disposiciones de interés para los usuarios.

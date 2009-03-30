@@ -1,1 +1,0 @@
-Artículo 31.—El funcionamiento de las piscinas será controlado por el Ministerio de Salud por medio de la División de Saneamiento Ambiental y los técnicos en Saneamiento del nivel local. Lo funcionarios del Ministerio cuando se encuentren en funciones de control, tendrán libre acceso a todas las áreas e instalaciones de las piscinas.

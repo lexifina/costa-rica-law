@@ -1,1 +1,0 @@
-Artículo 2°—Ámbito de aplicación: Este reglamento establece las disposiciones a que deben someterse los aspectos sanitarios y de seguridad en los procesos de diseño, construcción, operación y mantenimiento de las piscinas de uso público.

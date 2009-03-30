@@ -1,1 +1,0 @@
-Artículo 15.—Las piscinas con sistema de iluminación interna bajo el nivel de la corona de la piscina, deben contar con una fuente de energía de corriente directa con un máximo de 12 voltios, aprobado por el Servicio Nacional de Electricidad y avalado por el Ministerio de Salud.

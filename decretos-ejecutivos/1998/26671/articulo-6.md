@@ -1,1 +1,0 @@
-Artículo 6°—Toda piscina pública debe destacar en forma clara y permanente a ambos lados de la acera perimetral y paredes, la profundidad mínima y máxima del agua y cualquier cambio de la pendiente del fondo.

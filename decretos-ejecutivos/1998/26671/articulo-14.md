@@ -1,1 +1,0 @@
-Artículo 14.—Por lo menos, el 50% del perímetro total de las piscinas de uso público y de conjuntos habitacionales deben contar con una acera de no menos de un metro veinte centímetros de ancho de material antideslizante, con una pendiente mínima de dos por ciento, hacia el exterior, para evitar que el agua drene hacia la piscina.
