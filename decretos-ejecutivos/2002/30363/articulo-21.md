@@ -1,1 +1,0 @@
-Artículo 21.—Plazo para Interponer la Recusación. Toda recusación debe fundarse en una de las causales expresamente señaladas en éste reglamento, e interponerse ante el Tribunal antes de que haya dictado sentencia, indicando al mismo tiempo las pruebas de la existencia de la causal. Si la gestión no llenare estas formalidades se declarará inadmisible y no podrá repetirse.

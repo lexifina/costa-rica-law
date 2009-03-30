@@ -1,3 +1,0 @@
-Artículo 11.—De las Actas: De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de tiempo y lugar donde se celebró la sesión, puntos de deliberación, el resultado de votación con indicación expresa de los votos salvados y los acuerdos tomados.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación no menor a los dos tercios de la totalidad de los miembros del Tribunal.
-El acta será firmada por el Presidente y el Secretario del Tribunal, y por aquellos miembros que hubiesen hecho constar su voto disidente.

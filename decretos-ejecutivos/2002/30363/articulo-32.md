@@ -1,1 +1,0 @@
-Artículo 32.—Plazo para resolver: El Tribunal emitirá las resoluciones correspondientes, dentro del término de treinta días naturales contados a partir del momento en que el expediente se encuentre listo para resolver. Mediante resolución fundada el plazo podrá prorrogarse por un término igual al anterior.

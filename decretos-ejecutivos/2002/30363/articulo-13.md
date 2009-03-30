@@ -1,2 +1,0 @@
-Artículo 13.—Quórum y votación El quórum para que pueda sesionar validamente el Tribunal en su labor administrativa, estará compuesto por tres de sus miembros. Los asuntos serán resueltos por mayoría simple, excepto cuando se trate de la firmeza de acuerdos de la misma sesión, en cuyo caso se requerirá dos tercios de la totalidad de los miembros del Tribunal. En caso de empate el Presidente tendrá voto de calidad.
-Para el conocimiento y resolución de los asuntos de carácter registral se requerirá la presencia de la totalidad de sus miembros.

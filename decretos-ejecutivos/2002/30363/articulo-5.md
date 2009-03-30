@@ -1,1 +1,0 @@
-Artículo 5º—Personal de Apoyo: El Tribunal contará con el personal técnico y profesional necesario para el cumplimiento de sus funciones y prestación del servicio público, las relaciones de servicio se regularán mediante el Reglamento de Organización y Servicio que emitirá el Tribunal.

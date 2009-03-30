@@ -1,1 +1,0 @@
-Artículo 14.—Libro de votos El Tribunal llevará un libro de votos y un libro de actas, en el cual se consignará el resultado de las votaciones de cada uno de los casos o bien los acuerdos tomados y lo firmarán el Presidente y el Secretario

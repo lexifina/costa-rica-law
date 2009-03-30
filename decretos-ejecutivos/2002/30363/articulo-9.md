@@ -1,1 +1,0 @@
-Artículo 9º—Vicepresidente. El vicepresidente sustituirá al Presidente en sus ausencias temporales, con las respectivas facultades y atribuciones. En caso de renuncia, destitución, incapacidad permanente o muerte ejercerá la presidencia hasta que se nombre un nuevo presidente conforme al procedimiento dispuesto en la Ley y este Reglamento.

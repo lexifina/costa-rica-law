@@ -1,1 +1,0 @@
-Artículo 22.—Tramitación. Admitida la recusación se dará audiencia a el o los miembros recusados a efecto de que indiquen si reconocen o no como ciertos los hechos que alega el recusante, debiendo hacer la correspondiente rectificación si estuvieren referidos de modo inexacto.

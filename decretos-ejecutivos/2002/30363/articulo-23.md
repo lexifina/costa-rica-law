@@ -1,2 +1,0 @@
-Artículo 23.—Resolución de la Recusación. Vencida la audiencia a que se refiere el artículo anterior y habiendo él o los recusados reconocido los motivos en que se fundamenta la causal alegada, el Tribunal resolverá sobre la separación de aquél o aquellos y ordenará la o las sustituciones que procedan.
-Si la recusación fuere declarada sin lugar se notificará al recusante dentro de las 48 horas siguientes, quien podrá interponer el recurso de reconsideración conforme el presente reglamento.
