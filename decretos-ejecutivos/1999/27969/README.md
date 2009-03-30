@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicio del Ministerio de Trabajo y Seguridad
 | 2 | 2002-08-14 | Decreto Ejecutivo 30707 (2002-08-14) |
 | 3 | 2002-11-07 | Decreto Ejecutivo 30864 (2002-11-19) |
 | 4 | 2003-11-25 | Decreto Ejecutivo 31679 (2003-11-25) |
+| 5 | 2009-03-30 | Decreto Ejecutivo 35191 (2009-03-30) |
