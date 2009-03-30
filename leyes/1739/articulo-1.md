@@ -1,0 +1,3 @@
+(NOTA DE SINALEVI: Mediante el decreto ejecutivo N° 35212 del 30 de marzo del 2009, publicado en la gaceta N° 86 del 06 de mayo del 2009, la República de Costa Rica denuncia el Convenio de la Unión Internacional para la Publicación de Aranceles de Aduana, firmado en Bruselas, el 5 de junio de 1890, se dispone comunicar dicha disposición al Gobierno del Reino de Bélgica.)
+Artículo 1º.- Ratíficase la adhesión hecha por el Poder Ejecutivo al Protocolo que modificó el Convenio sobre Unión Internacional de Publicación de Aranceles de Aduana, de conformidad con el Decreto
+Ejecutivo Nº 15 del 15 de octubre de 1953.
