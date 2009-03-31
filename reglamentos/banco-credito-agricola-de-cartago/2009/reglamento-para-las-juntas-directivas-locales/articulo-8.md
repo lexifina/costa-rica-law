@@ -1,0 +1,1 @@
+Artículo 8º—Sobre la relación jerárquica. Las Juntas Directivas Locales dependerán en un todo de las políticas y demás disposiciones que emita la Junta Directiva General. No habrá relación jerárquica en la Junta Directiva Local y los colaboradores de las Oficinas Comerciales del Banco, ni entre el Gerente General y las Juntas Directivas Locales.

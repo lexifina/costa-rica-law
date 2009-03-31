@@ -1,0 +1,1 @@
+Artículo 7º—Imparcialidad de los asuntos que discutan. De acuerdo con los principios que forman la sana administración, los miembros de las Juntas Directiva Locales deben actuar con imparcialidad en la resolución de todos los asuntos que se discutan en el ejercicio de su competencia.

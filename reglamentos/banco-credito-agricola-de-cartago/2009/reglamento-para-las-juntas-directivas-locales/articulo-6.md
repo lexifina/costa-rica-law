@@ -1,0 +1,1 @@
+Artículo 6º—Asistencia de otros colaboradores a las sesiones. Los miembros de la Junta Directiva General, el Gerente, los Subgerentes, el Auditor, el Subauditor y otros colaboradores, podrán asistir en funciones de su cargo, a las sesiones de las Juntas Directivas Locales, con derecho a voz pero no a voto.
