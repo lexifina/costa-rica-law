@@ -5,7 +5,10 @@ En uso de las facultades que les confiere el inciso 18) del artículo 140 de la 
 Considerando:
 I.—Que el Reglamento Autónomo de Servicio del Ministerio de Justicia y Gracia, Decreto Ejecutivo número 26095-J que entró en vigencia el 2 de julio de 1997, fue creado para regular las relaciones de servicio entre el Ministerio de Justicia y Gracia y sus servidores de la Dirección General de Adaptación Social y Administración Central, de conformidad con el ordenamiento administrativo vigente.
 II.—Que es obligación del Ministerio de Justicia mantener en el lugar de la prestación de servicios, condiciones de respeto para quienes ahí laboran, así como tomar las medidas necesarias para prevenir, desalentar y sancionar todo tipo de acto que figure como acoso moral y psicológico en el trabajo.
-III.—Que para precisar y dar mayor claridad en la regulación de esta materia, se torna necesario reformar el Reglamento, permitiendo definir los conceptos de acoso moral y psicológico, los deberes de la Institución para su prevención y el procedimiento a seguir con las denuncias que sobre el particular se presenten. Por tanto:
+III.—Que para precisar y dar mayor claridad en la regulación de esta materia, se torna necesario reformar el Reglamento, permitiendo definir los conceptos de acoso moral y psicológico, los deberes de la Institución para su prevención y el procedimiento a seguir con las denuncias que sobre el particular se presenten.
+IV.— Que mediante oficio número AJ-149-2009 de fecha 25 de marzo del 2009 emitido por la Asesoría Jurídica de la Dirección General de Servicio Civil, se otorgó el correspondiente visto bueno a la reforma efectuada.
+(Así adicionado el considerando anterior por el artículo 1° del decreto ejecutivo N° 35314 de 31 de marzo de 2009).
+Por tanto:
 Decretan:
 Artículo 1º—Agréguese un capítulo XX al Reglamento Autónomo de Servicio del Ministerio de Justicia, para que en lo sucesivo se lea así:
 CAPÍTULO XX
@@ -66,7 +69,8 @@ a) La suspensión provisional del (de la) denunciado (a) , con goce de salario.
 b) La reubicación temporal del (de la) denunciado (a).
 c) La reubicación de la presunta víctima o de algún testigo, previa solicitud suya o de sus representantes legales, cuando exista una relación de subordinación respecto del denunciado o se presuma la continuación de las presuntas conductas de hostigamiento sexual o persecución laboral denunciadas por la víctima.
 Artículo 114.—Notificación a la parte involucrada. Se dará traslado de la denuncia al funcionario (a) acusado (a), concediéndole un plazo de quince días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos. Si el denunciado no ejerce su defensa se continuará con el proceso, hasta el informe final por parte del Órgano Director.
-Transcurrido el plazo de los cinco días hábiles, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+Transcurrido el plazo de los quince días hábiles, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 35314 de 31 de marzo de 2009).
 Artículo 115.—Valoración de la prueba. Para la valoración de las pruebas, se tomarán en consideración todos los elementos indiciarios aportados, dentro de lo que se incluirán todos aquellos que se refieren a las alteraciones provocadas por los hechos que denuncian el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
 El Órgano Director no podrá emitir valoración alguna sobre la vida personal del o la denunciante.
 Artículo 116.—Informe final. En un plazo improrrogable de tres meses, el Órgano Director emitirá un informe que trasladará al Viceministro o Viceministra de la Institución en su condición de órgano decisorio de primera instancia con las recomendaciones disciplinarias que considere aplicables, quien resolverá en definitiva en un plazo de cinco días naturales y comunicará a la Dirección de Recursos Humanos la decisión final, para su aplicación dentro del término de ley.

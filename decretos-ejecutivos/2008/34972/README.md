@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo de Servicio del Ministerio de Justicia y Gracia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-12 | la propia norma |
+| 2 | 2009-03-31 | Decreto Ejecutivo 35314 (2009-03-31) |
