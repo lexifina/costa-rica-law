@@ -1,0 +1,1 @@
+Artículo 6º—Anticipos. Las personas facultadas a utilizar gastos de representación dentro del país, no podrán solicitar anticipos de dinero para la ejecución del gasto. La liquidación del gasto, deberá realizarse en un plazo no mayor de diez días hábiles después de incurrido el mismo.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Estarán autorizados a gastos de representación los miembros de Junta Directiva General, Gerente y Subgerentes Generales, Auditor, Subauditor, Directores de Área y los Gerentes de Centros de Negocios tipo 1, en función de sus cargos.
