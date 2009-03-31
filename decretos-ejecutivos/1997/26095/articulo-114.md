@@ -1,3 +1,4 @@
 Artículo 114.—Notificación a la parte involucrada. Se dará traslado de la denuncia al funcionario (a) acusado (a), concediéndole un plazo de quince días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos. Si el denunciado no ejerce su defensa se continuará con el proceso, hasta el informe final por parte del Órgano Director.
-Transcurrido el plazo de los cinco días hábiles, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+Transcurrido el plazo de los quince días hábiles, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 35314 de 31 de marzo de 2009).
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)

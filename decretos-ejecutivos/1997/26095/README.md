@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz
 | 4 | 2001-10-30 | Decreto Ejecutivo 29935 (2001-10-30) |
 | 5 | 2001-11-21 | Decreto Ejecutivo 30112 (2001-11-21) |
 | 6 | 2008-11-04 | Decreto Ejecutivo 34972 (2008-11-04) |
+| 7 | 2009-03-31 | Decreto Ejecutivo 35314 (2009-03-31) |
