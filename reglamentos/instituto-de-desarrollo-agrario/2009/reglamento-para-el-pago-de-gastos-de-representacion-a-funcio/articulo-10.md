@@ -1,0 +1,1 @@
+Artículo 10.—Normativa a aplicar. Para cubrir Gastos de Representación Institucional en el exterior se regirá por el Capítulo V del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, publicado en La Gaceta Nº 92 del 14 de mayo del 2008.

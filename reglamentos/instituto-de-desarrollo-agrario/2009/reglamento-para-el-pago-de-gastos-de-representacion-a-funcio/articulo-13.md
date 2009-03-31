@@ -1,0 +1,1 @@
+Artículo 13.—Normativa Supletoria. Aquellos eventos que se presenten y que no estén regulados por este reglamento se regirán por la normativa que, al respecto tenga o indique la Contraloría General de la República.

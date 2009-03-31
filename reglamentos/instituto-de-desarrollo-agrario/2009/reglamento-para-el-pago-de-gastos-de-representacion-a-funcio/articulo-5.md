@@ -1,0 +1,1 @@
+Artículo 5º—Naturaleza legal de los Gastos de Representación Institucional. Estos gastos no serán considerados como “salario en especie”, ya que no tienen o no representan una naturaleza jurídica salarial.

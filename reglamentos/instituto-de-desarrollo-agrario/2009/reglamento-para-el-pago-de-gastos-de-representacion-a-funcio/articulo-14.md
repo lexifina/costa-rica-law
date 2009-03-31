@@ -1,0 +1,1 @@
+Artículo 14.—La Junta Directiva. Como máxima autoridad colegiada del Instituto autorizara la o las partidas presupuestarias necesarias para cubrir los gastos de representación institucionales, las que se destinaran exclusivamente para este concepto.

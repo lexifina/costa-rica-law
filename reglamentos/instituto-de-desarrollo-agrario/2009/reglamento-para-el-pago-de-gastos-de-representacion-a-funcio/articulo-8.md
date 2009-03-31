@@ -1,0 +1,1 @@
+Artículo 8º—Autorización de un nuevo giro. No se podrá girar un nuevo giro para Gastos de Representación Institucional, si se tiene pendiente de liquidar otro giro a nombre del solicitante, la revisión y control que estará a cargo del Departamento Financiero, de la institución.

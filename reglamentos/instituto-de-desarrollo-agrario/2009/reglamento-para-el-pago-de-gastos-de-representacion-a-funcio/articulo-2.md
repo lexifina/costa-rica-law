@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones. Para los efectos de este reglamento, se entenderá los siguientes términos según se indica a continuación:
+Gastos de representación: Es aquella suma que se le gira a un funcionario o funcionarios para que puedan atender oficialmente a personas o entidades ajenas a la institución para la que labora o que no sean costarricenses; si la atención se da en el extranjero, deben estar vinculadas con el ente público que representan. Estas sumas están sujetas a liquidación y verificación posterior por las unidades de control interna del IDA.
+IDA: Creado mediante Ley Nº 6735 del 29 de marzo de 1982.
+Jefe de Delegación: Se entenderá el funcionario bajo cuya dirección actúan los demás miembros del grupo, siempre y cuando todos ellos hayan sido nombrados por acuerdo de Junta Directiva o por orden del Órgano Superior del Instituto de Desarrollo Agrario, para representarlo en una misión oficial.
