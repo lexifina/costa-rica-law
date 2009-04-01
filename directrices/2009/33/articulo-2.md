@@ -1,0 +1,1 @@
+Artículo 2º—Las Unidades, Direcciones, o dependencias encargadas de realizar el trámite para el pago de las facturas a los proveedores del Sector Público, realizarán todas las gestiones necesarias para garantizar que se cumpla con lo dispuesto en el artículo 1° de la presente Directriz.
