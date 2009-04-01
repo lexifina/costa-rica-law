@@ -1,0 +1,3 @@
+Artículo 4 bis.- Créase el Fideicomiso para el Programa nacional de renovación cafetalera, como un instrumento de auxilio en el pago parcial de intereses que deben cancelar los productores ante un eventual crédito recibido, a efectos de desarrollar la producción, la renovación, el mantenimiento y la asistencia técnica del cultivo, a los productores de café que participen en dicho Programa.
+Se autoriza al Instituto del Café (Icafé) para que traslade, del superávit acumulado y sus reservas, la suma que sea necesaria sin que ello cause menoscabo a su patrimonio para mantener dicho Fideicomiso.
+(Así adicionado por el artículo 2° de la ley N° 8807 del 26 de abril de 2010)
