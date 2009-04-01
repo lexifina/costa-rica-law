@@ -1,6 +1,6 @@
 # Creación del Fondo Nacional de Estabilización Cafetalera ( FONECAFE )
 
-Ley N° 7301 del 1992-07-02. SINALEVI, ficha 10590: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10590&param2=69426&param3=1>.
+Ley N° 7301 del 1992-07-02. SINALEVI, ficha 10590: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10590&param2=80482&param3=1>.
 
 Publicada en La Gaceta N° 134 del 1992-07-15.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1998-05-06 | SINALEVI | 1992-07-02 |
 | 3 de 5 | 2001-02-08 | Ley 8064 | 2001-01-25 |
 | 4 de 5 | 2007-10-05 | Ley 8608 | 2007-09-21 |
+| 5 de 5 | 2009-04-01 | Ley 8807 | 2010-04-26 |
