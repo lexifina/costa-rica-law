@@ -1,0 +1,4 @@
+Artículo 8º—Son responsabilidades de los Jefes o encargados:
+a) Aplicar los principios de economía, eficiencia, eficacia de la Administración Públicas, así como la sana administración de los recursos públicos asignados, para la programación y autorización de la jornada extraordinaria.
+b) Verificar que las horas extras aprobadas a los funcionarios a su cargo, estén en concordancia con las autorizadas por la Dirección General. En aquellos casos en el que el Jefe por negligencia haya autorizado al funcionario a trabajar horas extras sin contar con la debida autorización de la Dirección General y el contenido presupuestario incurrirá en responsabilidad disciplinaria
+c) Asumir la responsabilidad por aquellos casos tipificados como riesgo inminente, de conformidad con lo señalado en el artículo 2, inciso d.- y el artículo 3 del presente Reglamento
