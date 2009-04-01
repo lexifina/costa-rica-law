@@ -14,3 +14,4 @@ Reglamento del Régimen de Disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-21 | la propia norma |
+| 2 | 2009-04-01 | Reglamento 5419 (2009-04-01) |
