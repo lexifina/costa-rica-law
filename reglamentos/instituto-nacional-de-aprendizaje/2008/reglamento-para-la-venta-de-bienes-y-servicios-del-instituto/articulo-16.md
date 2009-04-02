@@ -1,0 +1,1 @@
+Artículo 16.—De la prestación de servicios. Los servicios tecnológicos serán realizados con el personal técnico especializado, entendido como personal de planta del INA y los recursos materiales con que cuenta cada Centro de Formación.

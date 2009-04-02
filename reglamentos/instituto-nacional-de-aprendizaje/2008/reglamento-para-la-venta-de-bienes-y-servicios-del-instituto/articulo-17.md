@@ -1,0 +1,1 @@
+Artículo 17.—Formalización del servicio. La venta de servicios tecnológicos, será formalizada mediante la suscripción de un contrato de compra-venta por escrito, firmado por la persona encargada de la Gestión de Formación y Servicios Tecnológicos y la persona física o jurídica representante solicitante.

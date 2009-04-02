@@ -1,0 +1,1 @@
+Artículo 7º—Presentación de solicitudes. Las personas físicas o jurídicas, interesadas en adquirir algún bien o servicio, derivados de la función didáctica o Proyecto Tecnológico, debe realizar los trámites necesarios ante el Centro de Formación o su representante.

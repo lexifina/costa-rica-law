@@ -1,0 +1,1 @@
+Artículo 5º—Precio de venta. Los bienes o servicios serán vendidos a precio de mercado o a precio de costo, de conformidad con lo que determine la Comisión Local de Ventas mediante criterio técnico razonado, el que será proporcionado por el Núcleo Tecnológico respectivo.

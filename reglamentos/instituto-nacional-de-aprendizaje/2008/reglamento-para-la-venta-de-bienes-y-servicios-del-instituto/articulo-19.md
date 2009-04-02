@@ -1,0 +1,1 @@
+Artículo 19.—Fijación del precio. El precio de los bienes y servicio tecnológico, será fijado por el Comité Local de Ventas mediante criterio técnico razonado, el que será proporcionado por el núcleo tecnológico respectivo.

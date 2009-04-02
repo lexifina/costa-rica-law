@@ -1,0 +1,1 @@
+Artículo 12.—Procedimientos. La venta y registro de bienes y servicios del INA se ejecutará conforme a lo preceptuado en el “Procedimiento de Venta de bienes y servicios del Instituto Nacional de Aprendizaje”.
