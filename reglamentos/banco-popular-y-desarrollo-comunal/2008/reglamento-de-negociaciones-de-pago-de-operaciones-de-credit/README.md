@@ -14,3 +14,4 @@ Reglamento de negociaciones de pago de operaciones de crédito del Banco Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-11 | la propia norma |
+| 2 | 2009-04-02 | Reglamento 4654 (2009-04-02) |
