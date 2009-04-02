@@ -48,6 +48,7 @@ La Lista de requisitos para el trámite del permiso de construcción será:
 (Así reformado mediante acuerdo N° 627 tomado en la sesión N° 46 del 19 de marzo del 2007).
 11. La Municipalidad reportará este permiso al Departamento de Riesgos del Trabajo del Instituto Nacional de Seguros
 (Así reformado parcialmente por el Concejo Municipal de la Municipalidad de Moravia, mediante la sesión ordinaria No. 118, celebrada el 16 de agosto del 2004.)
+(Nota: La Municipalidad de Moravia mediante acuerdo N° 1842 de la sesión N° 153 del 2 de abril de 2009, acordó agregar como adendum al formulario de requisitos de construcción, que se entrega en la Dirección de Ingeniería y Operaciones de la Municipalidad de Moravia lo siguiente: "...Para obras mayores de quinientos metros, presentar certificación del SETENA de Viabilidad Ambiental, de los Bomberos y de Acueductos y Alcantarillados.")
 CUADRO Nº 1.2
 2º—En visados municipales.
 Certificación de propiedad literal del Registro Nacional. Lo puede solicitar en la Municipalidad a costo del petente y, dos copias del plano catastro de la propiedad sin alteraciones ni reducción.
