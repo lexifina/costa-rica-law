@@ -1,0 +1,1 @@
+Artículo 8º—Autorización de compras. Las compras con fondos de caja chica, serán autorizadas por la Jefatura de la Unidad que requiera el bien o servicio, quien velará porque el objeto del gasto corresponda estrictamente a lo autorizado y verificará la correcta asociación del gasto con las identificaciones que el Banco establezca.

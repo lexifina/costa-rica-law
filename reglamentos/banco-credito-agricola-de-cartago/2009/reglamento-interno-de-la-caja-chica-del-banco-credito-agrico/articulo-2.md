@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Los fondos de caja chica se usarán únicamente en la adquisición de bienes y servicios, menores e indispensables, cuya ejecución es de carácter excepcional o de urgencia, que no se encuentren en el inventario de la Proveeduría y que no correspondan al rubro presupuestario de inversión.

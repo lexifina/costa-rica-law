@@ -1,0 +1,1 @@
+Artículo 3. Responsables. El colaborador que adquiere los bienes o servicios, la Jefatura de la Unidad que aprueba la compra, el Gerente del Centro de Negocios, el Agente del Punto Comercial, el titular de caja chica (Cajero) y el superior de este último.
