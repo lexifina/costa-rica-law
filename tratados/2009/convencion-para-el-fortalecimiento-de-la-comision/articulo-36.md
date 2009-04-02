@@ -1,0 +1,3 @@
+ARTÍCULO XXXVI. DENUNCIA
+1. Cualquiera de las Partes podrá denunciar la presente Convención en cualquier momento después de transcurridos doce (12) meses a partir de la fecha en que la presente Convención haya entrado en vigor con respecto a esa Parte, mediante notificación escrita de su denuncia al Depositario. El Depositario deberá informar a las otras Partes de su denuncia dentro de los treinta (30) días posteriores a su recepción. La denuncia surtirá efecto seis (6) meses después de recibida la notificación por el Depositario.
+2. El presente artículo se aplicará mutatis mutandis a toda entidad pesquera con respecto a su compromiso de conformidad con el Artículo XXVIII de la presente Convención.

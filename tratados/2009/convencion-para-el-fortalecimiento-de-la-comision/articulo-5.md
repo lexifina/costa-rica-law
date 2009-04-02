@@ -1,0 +1,4 @@
+ARTÍCULO V. COMPATIBILIDAD DE LAS MEDIDAS DE
+CONSERVACIÓN Y ADMINISTRACIÓN
+1. Nada en la presente Convención perjudicará ni menoscabará la soberanía ni los derechos de soberanía de los Estados ribereños relacionados con la exploración y explotación, conservación y administración de los recursos marinos vivos dentro de las áreas bajo su soberanía o jurisdicción nacional, tal y como se establece en la CONVEMAR, ni el derecho que tienen todos los Estados a que sus nacionales se dediquen a la pesca en la alta mar, de conformidad con la CONVEMAR.
+2.- Las medidas de conservación y administración que se establezcan para la alta mar y las que se adopten para las áreas que se encuentran bajo jurisdicción nacional habrán de ser compatibles, a fin de asegurar la conservación y administración de las poblaciones de peces abarcadas por esta Convención.

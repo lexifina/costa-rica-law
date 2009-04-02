@@ -1,0 +1,6 @@
+PARTE VII
+SOLUCIÓN DE CONTROVERSIAS
+ARTÍCULO XXV. SOLUCIÓN DE CONTROVERSIAS
+1. Los miembros de la Comisión cooperarán para prevenir controversias. Cualquier miembro podrá consultar con uno o más miembros sobre cualquier controversia relativa a la interpretación o aplicación de las disposiciones de la presente Convención, a fin de alcanzar una solución satisfactoria para todos a la mayor brevedad posible.
+2. En el caso de que una controversia no se resuelva a través de dichas consultas en un período razonable, los miembros en cuestión consultarán entre sí tan pronto como sea posible, a fin de resolver la controversia mediante el recurso a cualquier medio de solución pacífica que acuerden, de conformidad con el derecho internacional.
+3. En los casos en que dos o más miembros de la Comisión acuerden que tienen una controversia de carácter técnico, y no puedan resolverla entre sí, podrán referirla, de mutuo acuerdo, a un panel ad hoc no vinculante de expertos constituido en el marco de la Comisión de conformidad con los procedimientos que ésta adopte para este fin. El panel consultará con los miembros interesados y procurará resolver la controversia de manera expedita sin que se recurra a procedimientos vinculantes para la solución de controversias.

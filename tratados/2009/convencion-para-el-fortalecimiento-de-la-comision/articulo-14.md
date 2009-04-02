@@ -1,0 +1,5 @@
+ARTÍCULO XIV. PRESUPUESTO
+1. La Comisión adoptará cada año su presupuesto para el año siguiente, de conformidad con el Artículo IX, párrafo 3, de la presente Convención. Al determinar el monto del presupuesto, la Comisión dará la consideración debida al principio de la relación costo-beneficio.
+2. El Director presentará a la consideración de la Comisión un proyecto detallado de presupuesto anual en el que se identificarán los desembolsos con cargo a contribuciones contempladas en el Artículo XV, párrafo 1, y aquéllas contempladas en el Artículo XV, párrafo 3, de la presente Convención.
+3. La Comisión mantendrá cuentas separadas para las actividades realizadas conforme a la presente Convención y al APICD. Los servicios que se prestarán al APICD y los correspondientes costos estimados serán detallados en el presupuesto de la Comisión. El Director proporcionará a la Reunión de las Partes del APICD para su aprobación, y antes del año en el cual se prestarán, estimaciones de los servicios y costos correspondientes a las tareas realizadas en el marco de ese Acuerdo.
+4. La contabilidad de la Comisión será sometida a auditoría financiera independiente cada año.
