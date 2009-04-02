@@ -14,3 +14,4 @@ Manual de Aplicación del Reglamento para Contrataciones Exceptuadas de los Proc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-21 | la propia norma |
+| 2 | 2009-04-02 | Acuerdo 0 (2009-04-02) |
