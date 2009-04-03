@@ -4,7 +4,7 @@ A, suscrito el 20 de setiembre de 1985.
 Se adjunta como anexo Noº 1 el texto certificado de la citada resolución y del nuevo Arancel de Aduanas.
 ANEXO "A" DEL CONVENIO SOBRE EL REGIMEN ARANCELARIO Y ADUANERO CENTROAMERICANO ARANCEL CENTROAMERICANO DE IMPORTACION
 NOTA DE SINALEVI: Mediante el decreto ejecutivo No. 33464 de 22 de noviembre de 2006, publicado en el Alcance No. 59 a La Gaceta No. 249 de 28 de diciembre de 2006, se publicó la Resolución No. 180 -2006 (COMIECO-XXXIX), la cual en el punto 1) indica:
-"1. Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Cuarta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 a la presente Resolución, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano."
+"1.Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Cuarta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 a la presente Resolución, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano."
 Por el momento, debido al tamaño del texto de la versión actualizada de la Cuarta Enmienda , no es posible visualizarlo en nuestra página.
 (Modificado por el artículo 1° del decreto ejecutivo N° 33580 del 8 de enero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33588 del 8 de enero de 2007)
@@ -30,3 +30,4 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por el artículo 1° del decreto ejecutivo N° 34902 del 14 de noviembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 34955 del 25 de noviembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35000 del 11 de diciembre de 2008)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35127 del 9 de marzo de 2009)
