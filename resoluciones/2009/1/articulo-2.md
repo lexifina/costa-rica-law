@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT 15-08 del 6 de octubre del 2008, publicada en La Gaceta Nº 207 del 27 de octubre del 2008.
