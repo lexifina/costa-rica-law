@@ -1,0 +1,13 @@
+Nº 35191-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los incisos 3), 18), y 20 de los artículos 140 y 146 de la Constitución Política, y con fundamento en los numerales 24, 25, 27, 28, 59, y 103 de la Ley General de la Administración Pública.
+Considerando:
+I.—Que mediante Decreto Ejecutivo Nº 27969-TSS del 23 de junio de 1999, se emitió el Reglamento Autónomo de Servicios del Ministerio de Trabajo y Seguridad Social; instrumento legal que permite regular las relaciones de servicio y contiene una serie de disposiciones de orden interno para la buena administración del recurso humano.
+II.—Que dentro de las disposiciones de importancia del Reglamento Autónomo se encuentran las normas sobre control de asistencia y puntualidad.
+III.—Que el registro del control de asistencia y puntualidad que se ha utilizado es mediante reloj marcador, sin embargo se ha determinado que este sistema tiene algunos inconvenientes, como el alto costo del aparato electrónico o las consecuencias que genera su desperfecto.
+IV.—Que los estudios realizados por la Dirección de Recursos Humanos arrojan que los funcionarios del Ministerio de Trabajo y Seguridad Social tienen un gran nivel de responsabilidad y la mayoría están exentos de la marca de asistencia; por ser de nivel profesional, ejecutivo y superior, o por estar cubiertos por alguna de las excepciones del registro de marca.
+V.—Que con el fin de motivar y valorar la carrera administrativa de los funcionarios de la Institución y concientizar sobre la responsabilidad laboral, es procedente crear el mecanismo que permita, la supresión temporal de la obligación del control de asistencia y puntualidad a todos los funcionarios de la Institución. Por tanto,
+Decretan:
+Artículo 1º—Adiciónese un párrafo al artículo 28 del Reglamento Autónomo de Servicios del Ministerio de Trabajo y Seguridad Social, Decreto Ejecutivo Nº 27969-TSS del 23 de junio de 1999, que se leerá de la siguiente manera:
+“El Oficial Mayor y Director General Administrativo podrá eximir de la obligación de registrar la asistencia a labores, de todos (as) los (as) funcionarios (as), cuando lo estime conveniente para la Institución. La exoneración del registro de marca de asistencia, se hará por medio de circular general. Esta exoneración no faculta para una asistencia y puntualidad irregular y podrá ser revocada cuando se determine que los (as) funcionarios (as) están irrespetando la obligación de asistir puntualmente a la jornada laboral. El superior jerárquico de cada funcionario será responsable de supervisar la asistencia a lo interno de su Dirección o Departamento.”
