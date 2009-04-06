@@ -1,0 +1,1 @@
+Transitorio II.—Siendo los proyectos de Gobierno Digital de Interés Público, la Presidencia de la República, hasta el 31 de diciembre del 2009, continuará con la ejecución del presupuesto del Programa Administración Superior para la adquisición de bienes y servicios de Gobierno Digital, en estrecha coordinación con la Gerencia de la Secretaría Técnica de Gobierno Digital.
