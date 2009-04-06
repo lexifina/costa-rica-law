@@ -17,3 +17,4 @@ Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de D
 | 2 | 2003-10-13 | Reglamento municipal 41 (2003-10-13) |
 | 3 | 2006-04-24 | Reglamento municipal 17 (2006-04-24) |
 | 4 | 2008-02-21 | Reglamento municipal 4 (2008-02-21) |
+| 5 | 2009-04-06 | Reglamento municipal 14 (2009-04-06) |
