@@ -1,0 +1,1 @@
+Artículo 50.—Emisión de Cheques Individuales. Los cheques que se emitan en las Cajas Chicas o Fondos de Trabajo, deben ser individuales de acuerdo con la solicitud de adelanto o liquidación de gastos correspondientes.

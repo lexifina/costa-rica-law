@@ -1,0 +1,2 @@
+Artículo 20.—Retención Impuesto Sobre la Renta. Es responsabilidad del administrador del fondo fijo del Fondo de Trabajo, retener el porcentaje correspondiente al Impuesto sobre la Renta, en todo pago de una compra que supere el monto exento de retención fijado por el Ministerio de Hacienda.
+En aquellas compras donde se realicen pagos parciales deberá también retenerse el porcentaje correspondiente al Impuesto sobre la Renta, si el total de la contratación supera el monto exento de retención fijado por el Ministerio de Hacienda.

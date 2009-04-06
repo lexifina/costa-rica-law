@@ -1,0 +1,1 @@
+Artículo 4º—Contenido Presupuestario. Es responsabilidad del Director o del funcionario autorizado por este para autorizar adelantos o liquidaciones de caja chica o fondos de trabajo, velar porque estos cuenten con el contenido presupuestario suficiente, a efecto de que el proceso de liquidación se realice en el tiempo reglamentado.

@@ -1,0 +1,1 @@
+Artículo 27.—Devolución de Adelanto. Cuando una gira o una compra de bienes o servicios es suspendida o pospuesta antes de su inicio, el funcionario deberá reintegrar el monto del adelanto recibido, a más tardar el día hábil siguiente, presentando justificación escrita firmada por su superior o quien éste haya designado para tal efecto.

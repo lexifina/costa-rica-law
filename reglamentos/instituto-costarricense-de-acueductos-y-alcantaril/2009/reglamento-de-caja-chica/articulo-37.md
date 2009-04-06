@@ -1,0 +1,1 @@
+Artículo 37.—Reiteración de Faltantes. Cuando en un fondo fijo se presenten faltantes en forma reiterada, el superior inmediato deberá ordenar una investigación a efecto de determinar las causas de esta situación y realizar las acciones que corresponda.

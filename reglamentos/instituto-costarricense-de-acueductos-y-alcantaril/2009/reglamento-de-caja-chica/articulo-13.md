@@ -1,0 +1,1 @@
+Artículo 13.—Ajuste al Fondo Fijo. La Dirección de Finanzas queda autorizada para realizar periódicamente ajustes al monto de los fondos fijos establecidos, de acuerdo al índice de inflación y de los aumentos decretados por la Contraloría General de la República en la tabla de Viáticos.

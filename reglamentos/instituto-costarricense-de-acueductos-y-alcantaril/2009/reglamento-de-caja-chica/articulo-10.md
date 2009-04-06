@@ -1,0 +1,1 @@
+Artículo 10.—Cambio de Valores Personales. Se prohíbe al administrador de un fondo fijo el cambio de cheques de cualquier cuenta personal, toda clase de cambio de valores a empleados o particulares, así como la emisión de cheques a caja o al portador.

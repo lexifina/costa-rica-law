@@ -1,0 +1,2 @@
+Artículo 18.—Pago de Reparaciones de Vehículos. Se autoriza pagar por Caja Chica las reparaciones por concepto de mano de obra mecánicas, eléctricas, llantas y lavado de vehículos; así como la compra de repuestos de vehículos livianos y pesados, según lo establecido en el “Manual de Procedimientos y Funciones para las Unidades que Manejan la Adquisición de Bienes, Servicios y Obras”, o cualquier reglamento que se apruebe en sustitución de este.
+Se exceptúa el pago de lavado de vehículos al funcionario cuyas labores sean propias de “chofer”.

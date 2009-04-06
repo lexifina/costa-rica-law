@@ -1,0 +1,1 @@
+Artículo 49.—Depósito Exceso del Monto Máximo Efectivo. El Administrador de Caja Chica o Fondo de Trabajo depositará diariamente el dinero en efectivo que sobrepase el monto máximo autorizado en el artículo Nº 48.

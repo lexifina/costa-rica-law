@@ -1,0 +1,6 @@
+Artículo 30.—Plazo para Liquidación de Adelanto de Caja Chica o Fondo de Trabajo. El proceso de liquidación de un adelanto de caja chica o fondo de trabajo se debe realizar dentro de un plazo máximo de 7 días hábiles, a partir de la fecha en que recibió el adelanto, distribuidos de la siguiente manera:
+a. El funcionario que recibió el adelanto dispondrá de cuatro (4) días hábiles máximo a partir de la fecha en que recibió el adelanto para presentar el formulario de “Liquidación de Gastos Caja Chica” y la documentación soporte requerida.
+b. El área financiera dispondrá de tres (3) días hábiles máximo para revisar y aceptar la liquidación presentada por el funcionario y solicitar la subsanación de cualquier error o deficiencia en la liquidación.
+c. Este proceso quedará concluido con el acto final de liquidación del funcionario ante el administrador del fondo fijo, dentro del plazo de los 7 días hábiles antes señalado.
+d. El adelanto de caja chica o fondo de trabajo será liquidado por el interesado o en su defecto por quien este autorice por escrito, aportando copia de la cédula del suscriptor del adelanto y de la cédula del autorizado.
+e. En ningún caso podrá hacerse un nuevo adelanto por el mismo concepto (gastos de caja chica) al mismo servidor, si estuviese pendiente la liquidación de un adelanto anterior.

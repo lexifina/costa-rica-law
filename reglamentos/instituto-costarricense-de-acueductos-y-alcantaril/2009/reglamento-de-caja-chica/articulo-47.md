@@ -1,0 +1,1 @@
+Artículo 47.—Saldo de Cuenta Corriente. El administrador del fondo fijo es responsable de llevar el saldo actualizado de la cuenta corriente (movimientos de bancos) y conservar las copias de cheques o talonarios de las chequeras con la información completa para las verificaciones posteriores que correspondan.

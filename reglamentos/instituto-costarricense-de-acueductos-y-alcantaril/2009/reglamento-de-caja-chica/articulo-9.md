@@ -1,0 +1,1 @@
+Artículo 9º—Sobrantes de Caja. En estas cajas se tendrán únicamente dineros, valores o documentos del Instituto y cualquier sobrante que resultare, deberá ser informado y depositado en la cuenta general de la Institución que haya establecido la Dirección de Finanzas para este efecto, a más tardar un (1) día hábil después de que se origina dicho sobrante.

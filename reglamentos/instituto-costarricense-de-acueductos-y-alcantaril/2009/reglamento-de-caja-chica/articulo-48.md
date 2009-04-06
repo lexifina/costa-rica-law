@@ -1,0 +1,1 @@
+Artículo 48.—Monto Máximo en Moneda y en Efectivo. Los fondos fijos que se administren mediante una cuenta corriente, podrán mantener una parte de este en dinero en efectivo, hasta un monto máximo de ¢500.000.00, para realizar pagos que no sobrepasen la suma de ¢15.000,00.
