@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el artículo 4 y el Anexo Único Modelo de Cálculo del Índice de Seguridad de las Personas del Decreto Ejecutivo N° 30381-SP: “Reglamento sobre Grados Policiales y Sistema de Ascenso de los Servidores de la Fuerza Pública.”
