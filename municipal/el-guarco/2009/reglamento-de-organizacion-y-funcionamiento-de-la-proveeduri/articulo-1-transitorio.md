@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio Único: Este Reglamento deroga cualquier disposición administrativa que indique lo contrario a lo aquí dispuesto. Prevalece sobre éste, cualquier normativa de la Ley y el Reglamento de Contratación Administrativa y cualquier modificación a las mismas. Este reglamento fue aprobado en el acta Nº 212 del 03 de marzo de 2009. Rige a partir de publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De las contrataciones de menor cuantía
+Artículo 20.—Determinación: Las contrataciones directas o de menor cuantía, se determinarán de conformidad con la estimación económica de la adquisición de bienes y/o servicios solicitados, de conformidad con los parámetros anuales establecidos por la Contraloría General de la República. A excepción de los trámites realizados por medio de la caja chica, una vez determinada la cuantía del proceso, la Proveeduría Municipal procederá a asignarles un número consecutivo de conformidad con el formato establecido por el ente contralor y a levantar el expediente respectivo, conforme a los lineamientos contenidos en este reglamento, determinando la excepción aplicable al proceso.

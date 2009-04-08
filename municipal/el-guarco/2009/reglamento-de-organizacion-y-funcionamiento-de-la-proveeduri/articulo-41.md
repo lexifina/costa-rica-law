@@ -1,0 +1,8 @@
+CAPÍTULO XIV
+Del uso de medios electrónicos
+Artículo 41.—Fines: Con el fin de promover la eficiencia en los procesos de contratación, la Proveeduría podrá recurrir al uso del sitio web de la Institución, el fax y el correo electrónico, de la siguiente manera:
+a) Podrá recurrir al uso del sitio web institucional, para poner a disposición de los potenciales oferentes, los carteles de las licitaciones abreviadas, públicas y ventas de activos, utilizando un formato que no permita modificaciones. Así mismo, podrá utilizarlo como medio de publicidad de los procesos indicados.
+b) Podrá realizar invitaciones vía fax de la Municipalidad, debiendo dejar constancia impresa de este hecho.
+c) Podrá recibir ofertas en los procesos de contratación directa por la vía del fax municipal, siempre que se deje constancia impresa de la fecha y hora en que los documentos ingresaron y estos estén debidamente firmados por el oferente o su representante. En caso de duda, podrá recurrir a los documentos presentados al momento de la inscripción en el registro de Proveedores, para verificar.
+d) Podrá cursar invitación utilizando la cuenta de correo electrónico asignada a la Proveeduría Municipal, siempre que se identifique claramente el potencial oferente al que se está invitando, se deje constancia impresa del acto de invitación. De igual forma, podrá remitir por este medio, documentos como carteles, formatos y demás documentos relacionados, observando estrictamente el dejar constancia impresa del acto.
+e) Podrá recibir ofertas por medio del correo electrónico asignado a la Proveeduría Municipal, observando los mismos parámetros establecidos en el inciso c anterior.

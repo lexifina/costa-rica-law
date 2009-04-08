@@ -1,0 +1,1 @@
+Artículo 7º—De la inscripción: Un oferente potencial puede inscribirse en cualquier momento al Registro de Proveedores, incluso antes de la presentación de ofertas de un proceso en el cual, le interese participar.

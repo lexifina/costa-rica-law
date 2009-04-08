@@ -1,0 +1,1 @@
+Artículo 18.—Participación de los miembros de órganos adscritos y vecinos interesados: La participación de los citados miembros será con carácter de observadores de los procesos de contratación, debiendo firmar el acta como comprobante de su presencia, si así, ellos lo desean.

@@ -1,0 +1,1 @@
+Artículo 19.—De las ausencias de los funcionarios municipales: Por la naturaleza de los procedimientos de contratación, la no asistencia de los funcionarios municipales a éstos, no implica la nulidad o la presencia de vicio alguno, pero se remitirá informe al Alcalde Municipal, para las posibles sanciones que su ausencia genere.
