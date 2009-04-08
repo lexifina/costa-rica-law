@@ -1,1 +1,0 @@
-Artículo 3º—Observancia del Reglamento. Este Reglamento es de obligada observancia para todos los funcionarios de la Autoridad Reguladora, quienes ejercerán sus funciones y atribuciones atendiendo a sus disposiciones.
