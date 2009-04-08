@@ -1,0 +1,2 @@
+De la Superintendencia de Transporte Público (SUTRANSPORTE)
+Artículo 24.—Competencias. SUTRANSPORTE ejerce la regulación integral, tanto técnica como económica, sobre la prestación de los servicios de cualquier medio de transporte público remunerado de personas, salvo el aéreo. También tiene competencia para la regulación de los servicios marítimos y aéreos en puertos nacionales, servicios de carga por ferrocarril y los servicios postales (al artículo 5 incisos f), g) y h) de la Ley 7593).

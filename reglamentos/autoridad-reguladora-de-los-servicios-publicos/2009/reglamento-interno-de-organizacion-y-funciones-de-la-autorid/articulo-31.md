@@ -1,0 +1,1 @@
+Artículo 31.—De la Dirección General del Centro de Desarrollo de la Regulación (CDR). El Centro de Desarrollo de la Regulación promueve el desarrollo del conocimiento científico en materia de los servicios públicos y su regulación, elabora la normativa regulatoria emitida por la Junta Directiva y realiza la gestión estratégica de los recursos humanos de la institución.

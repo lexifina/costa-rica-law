@@ -1,0 +1,2 @@
+De la Gerencia General
+Artículo 26.—Naturaleza y estructura. La Gerencia General dependerá directamente del Regulador General y proporcionará apoyo en gestiones administrativas y regulatorias a todos los órganos de la Autoridad Reguladora. La Gerencia General es el superior jerárquico de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación así como de las unidades responsables de la administración de la Autoridad Reguladora definidas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 33.—De la Dirección General de Asesoría Jurídica y Regulatoria (DJR). La Dirección General de Asesoría Jurídica y Regulatoria presta asesoría a la Junta Directiva, al Regulador General y al Gerente General, emite opinión y criterios en asuntos de su competencia y es responsable de los procesos judiciales y administrativos de la institución.
