@@ -1,1 +1,2 @@
-Artículo 6º—Se autoriza al Alcalde Municipal, para realizar compras y adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Palmares actúe como parte, hasta por la suma de un millón quinientos mil colones.
+Artículo 6º—Se autoriza al Alcalde municipal, para realizar compras y adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Palmares actúe como parte, hasta por la suma establecida por la Contraloría General de la República en las respectivas tablas para la Contratación Directa.
+(Así reformado mediante acuerdo N° 05 tomado en sesión N° 154 del 13 de abril de 2009)
