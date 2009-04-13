@@ -14,3 +14,4 @@ Indicaciones generales sobre los informes de labores que rinden los jueces suple
 | --- | --- | --- |
 | 1 | 2008-06-04 | la propia norma |
 | 2 | 2008-08-04 | Circular 134 (2008-08-04) |
+| 3 | 2009-04-13 | Circular 24 (2009-04-13) |
