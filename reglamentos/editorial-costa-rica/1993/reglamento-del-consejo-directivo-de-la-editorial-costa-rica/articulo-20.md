@@ -1,1 +1,1 @@
-Artículo 20.—La elección o la destitución del gerente general, y del auditor interno, será decidida únicamente mediante votación calificada de por lo menos seis de los miembros del Consejo.
+Artículo 20.—La elección o la destitución del Gerente General, y del Auditor Interno, será decidida únicamente mediante mayoría absoluta (mitad más uno del total de miembros que integran el Consejo), de acuerdo con lo estipulado en el artículo 21 de la Ley 2366.

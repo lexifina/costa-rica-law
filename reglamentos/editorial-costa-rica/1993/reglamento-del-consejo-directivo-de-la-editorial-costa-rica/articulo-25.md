@@ -1,1 +1,1 @@
-Artículo 25.—Los acuerdos debidamente aprobados, podrán ser revocados una sola vez a solicitud de cualquiera de los directores o el gerente, siempre que la revocatoria se solicite antes de que el acuerdo respectivo quede firme.
+Artículo 25.—Los acuerdos debidamente aprobados, podrán ser revocados una sola vez a solicitud de cualquiera de los directores o el Gerente, siempre que la revocatoria se solicite antes de que el acuerdo respectivo quede firme.

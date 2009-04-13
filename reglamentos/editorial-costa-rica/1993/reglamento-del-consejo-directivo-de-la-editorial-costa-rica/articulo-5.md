@@ -1,1 +1,1 @@
-Artículo 5°—El Consejo Directivo, bajo su responsabilidad, podrá otorgar poderes generales, generalísimos, especiales o judiciales, a cualquiera de sus miembros, al gerente o a cualquier otra persona que lo requiera en razón de su cargo.
+Artículo 5º—El Consejo Directivo, bajo su responsabilidad, podrá otorgar poderes generales, generalísimos, especiales o judiciales, a cualesquiera de sus miembros, al gerente o a cualquier otra persona que lo requiera en razón de su cargo.

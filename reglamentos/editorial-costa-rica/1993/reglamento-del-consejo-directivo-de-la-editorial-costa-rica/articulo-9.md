@@ -1,1 +1,1 @@
-Artículo 9°—El quorum del Consejo estará formado con cinco miembros.
+Artículo 9º—El quórum del Consejo estará formado por la mitad más uno del total de los miembros que señala la Ley 2366 y sus reformas.
