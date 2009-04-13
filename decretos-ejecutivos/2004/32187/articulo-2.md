@@ -1,2 +1,0 @@
-Artículo 2º—Será competencia del Centro Nacional de Farmacovigilancia vigilar el comportamiento de los productos farmacéuticos que se consumen en el país, a través de la notificación que realicen las personas profesionales en ciencias de la salud o los pacientes, de fallas terapéuticas o reacciones adversas de los medicamentos que se prescriben en establecimientos de salud públicos o privados.
-(Así reformado mediante el artículo 1º del decreto ejecutivo Nº 32367 del 6 de abril del 2005)
