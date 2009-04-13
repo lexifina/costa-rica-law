@@ -1,0 +1,1 @@
+Artículo 6º—Objetivo de la dedicación exclusiva: El objetivo de la dedicación exclusiva consiste en que el servidor municipal, se abstenga de ejercer su profesión, en la cual ha sido contratado y que es requisito para desempeñar el puesto, de manera liberal, así como actividades relacionadas, de manera remunerada o ad-honorem.

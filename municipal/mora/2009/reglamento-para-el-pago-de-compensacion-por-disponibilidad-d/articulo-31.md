@@ -1,0 +1,5 @@
+Artículo 31.—Derógase el Reglamento de Dedicación Exclusiva de la Municipalidad de Mora, aprobado en la Sesión Nº 266-2006, celebrada el 2 de enero del 2006, publicado en La Gaceta Nº 15 del veinte de enero del 2007.
+De conformidad con lo dispuesto en el artículo 4 y numeral 13, inciso c) del Código Municipal, el presente Reglamento debe ser publicado en el Diario Oficial La Gaceta.”
+Segundo: Se acuerda no conocer la Moción presentada por la Alcaldía Municipal en fecha 19 de octubre del año 2007, correspondiente a la Modificación Integral del Reglamento de Dedicación Exclusiva de la Municipalidad de Mora, aprobado en la Sesión Nº 266-2006, celebrada el 2 de enero del 2006, publicado en La Gaceta Nº 15 del veinte de enero del 2007, por haber perdido interés actual.
+Tercero: Se acuerda derogar el Reglamento de Dedicación Exclusiva de la Municipalidad de Mora, aprobado en la Sesión Nº 266-2006, celebrada el 2 de enero del 2006, publicado en La Gaceta Nº 15 del veinte de enero del 2007. Acuerdo definitivo.
+Ciudad Colón, 3 de febrero del 2009.—Rosaura Cascante Cascante, Secretaria Municipal.—
