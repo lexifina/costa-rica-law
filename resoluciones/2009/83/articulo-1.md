@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-083-2009.—Dirección General de Aduanas.—San José, a las catorce horas del día diez de marzo del dos mil nueve.
+(NOTA: Mediante Resolución RES-DGA-0112 - 2009 de 20 de marzo del 2009, se comunica que se traslada la implementación del Régimen de Exportaciones modalidad courier en el Sistema de Información para el Control Aduanero (TICA) en la Aduana Juan Santamaría para el 13 de abril del 2009, e informa que las demás modalidades de exportación inician el lunes 23 de marzo de 2009 como se oficializó en esta resolución)
+Considerando:
+I.—Que es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+II.—Que de conformidad con el artículo 2º del Decreto Ejecutivo Nº 32456-H, publicado en La Gaceta Nº 138 del 18 de julio del 2005, el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, el nuevo sistema informático denominado Sistema de Información para el Control Aduanero TICA.
+III.—Que de conformidad con el artículo 4º del Decreto Ejecutivo Nº 32456-H, antes citado, la Dirección General de Aduanas comunicará entre otros, por medios de difusión escrita, el programa de implementación por aduana del sistema informático y las modificaciones, con el fin de que los usuarios del Sistema Aduanero Nacional, en adelante “el Sistema”, tomen las previsiones del caso.
+IV.—Que a efectos de la implementación del Régimen de Exportación en el Sistema TICA, esta Dirección General emitió las resoluciones DGA-155-2008 del 28 de abril del 2008; DGA-165-2008 del 8 de mayo del 2008, y la DGA-167-2008 de fecha 12 de mayo del 2008.
+V.—Que las resoluciones mencionadas anteriormente se encuentran en aplicación a partir del 21 de julio del 2008, en la Aduana de Caldera y entrarán en vigencia en las demás aduanas del país conforme se implemente el módulo de exportación en cada una de una de ellas.
+VI.—Que el Ministerio de Hacienda mediante resolución RES-DGA-053-2009 de fecha 19 de febrero del 2009, comunicó que el régimen de exportación en la Aduana Santamaría utilizando el sistema TICA iniciaría en fecha 16 de marzo del presente año.
+VII.—Que la Dirección General de Aduanas ha considerado importante brindar a los usuarios de la Aduana Santamaría un plazo adecuado para que finiquite las acciones de preparación y aprovechen la capacitación y la divulgación que se está brindado al respecto. Por tanto:
+Con fundamento en las consideraciones de hecho y derecho citadas, la Dirección General de Aduanas traslada la implementación del Régimen de Exportaciones en el Sistema de Información para el Control Aduanero (TICA) en la Aduana Santamaría para el 23 de marzo del 2009.
+Déjese sin efecto la resolución Nº RES-DGA-053-2009 del 19 de febrero del 2009.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
+Desiderio Soto Sequeira, Director General de Aduanas.—
