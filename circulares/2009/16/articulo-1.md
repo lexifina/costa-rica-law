@@ -1,6 +1,7 @@
 CIRCULAR N° 16-09
 ASUNTO: Lineamientos a seguir para el nombramiento en propiedad en las plazas vacantes.
-A LOS SERVIDORES Y SERVIDORAS JUDICIALES DEL PAÍS Y A LAS ASOCIACIONES GREMIALES DEL PODER JUDICIAL
+A LOS SERVIDORES Y SERVIDORAS JUDICIALES DEL PAÍS
+Y A LAS ASOCIACIONES GREMIALES DEL PODER JUDICIAL
 SE LES HACE SABER QUE:
 El Consejo Superior en sesión N° 06-09, celebrada el 22 de enero de 2009, artículo XXXII, al analizar el tema de la gran cantidad de plazas vacantes existentes en el Poder Judicial, concluyó que la realización de un proceso de selección y nombramiento mediante el sistema ordinario de conllevaría un trámite de varios años con pocas probabilidades de éxito el cual no llegaría a satisfacer ni las necesidades institucionales, ni a solucionar el problema de la inestabilidad de los servidores interinos.
 Además que no resulta conveniente para el Poder Judicial como patrono, ni adecuado para la persona, que haya servidores nombrados interinamente en el mismo puesto por períodos prolongados.
@@ -19,3 +20,5 @@ IX.-En los casos de plazas vacantes que requieren examen de idoneidad mental par
 X.-Las disposiciones vigentes sobre periodo de prueba se aplicarán conforme lo dispone el Estatuto Judicial a los servidores y servidoras que resulten nombrados bajo este procedimiento.
 XI-Debido a las constantes solicitudes de traslados que ingresan al Departamento de Personal, cuyo trámite podría afectar a los servidores (as) a quienes les asiste la posibilidad de optar por una propiedad con estas reglas, se suspende el trámite de las gestiones de traslado presentadas al Departamento de Personal o las que a futuro ingresen durante el período de aplicación de este sistema de nombramientos aprobado, con excepción de aquellas que cuenten con el visto bueno de los jefes de oficina donde se trasladará la persona y las que a juicio de este Consejo por interés institucional lo requieran.
 San José, 13 de febrero del 2009.
+(Mediante circular N° 41-09 del 13 de abril de 2009, publicada en el Boletín Judicial N° 79 del 24 de abril de 2009, el Consejo Superior, en sesión Nº 25-09, celebrada el 17 de marzo de 2009, artículo LX, dispuso adicionar a esta circular lo siguiente:
+“... de conformidad con los artículos 33 y 34 inciso a) del Estatuto de Servicio Judicial, los servidores nombrados en propiedad por primera vez deberán cumplir un período de prueba de un año a partir de la fecha en que rige el nombramiento y los propietarios que pasen a ocupar otras plazas cumplirán un período de prueba de tres meses, en ambos casos en los puestos que están siendo nombrados”.)

@@ -13,3 +13,4 @@ Lineamientos a seguir para el nombramiento en propiedad en las plazas vacantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-13 | la propia norma |
+| 2 | 2009-04-13 | Circular 41 (2009-04-13) |
