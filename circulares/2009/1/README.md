@@ -13,3 +13,4 @@ Uso de carátulas "color terracota" (rojo marrón), en los expedientes en los qu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-08 | la propia norma |
+| 2 | 2009-04-13 | Circular 37 (2009-04-13) |
