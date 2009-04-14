@@ -1,0 +1,5 @@
+Artículo 3º—Definiciones. Para los efectos del presente Reglamento se entiende por:
+Sistema de Información sobre Presupuestos Públicos (SIPP): El Sistema computadorizado desarrollado en la Contraloría General de la República que integra la información presupuestaria de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados, que se encuentran bajo su potestad en materia presupuestaria.
+Usuario. Persona autorizada por la Municipalidad de Puntarenas para realizar cualquier tipo de consulta o transacción en el sistema de presupuesto y para la digitación de información en el SIPP de la Contraloría General de la República.
+Identificación de usuario. Nombre con el que se registra una persona en el Sistema de Información sobre Presupuestos Públicos y que se emplea para identificarla particularmente, suministrado por la Contraloría General de la República.
+Clave de acceso. Es la combinación de letras, números y signos que dan acceso, a un usuario en particular, para acceder a las funcionalidades del SIPP; suministrado por la Contraloría General de la República.

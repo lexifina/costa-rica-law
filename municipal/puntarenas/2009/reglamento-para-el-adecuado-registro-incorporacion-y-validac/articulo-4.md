@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria para la Municipalidad de Puntarenas de conformidad con la aplicación de las directrices emitidas en materia presupuestaria por la Contraloría General de la República.
