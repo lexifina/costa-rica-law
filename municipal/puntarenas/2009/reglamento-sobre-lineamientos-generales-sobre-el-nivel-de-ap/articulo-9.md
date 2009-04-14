@@ -1,0 +1,1 @@
+Artículo 9º—Variación del nivel de aprobación presupuestaria externa del presupuesto. El nivel de aprobación externa del presupuesto establecido en este reglamento podrá ser variado por la Contraloría General de la República.

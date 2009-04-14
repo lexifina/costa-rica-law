@@ -1,0 +1,1 @@
+Artículo 12.—Régimen sancionatorio. El incumplimiento injustificado de los lineamientos contemplados en este Reglamento dará lugar a responsabilidades contempladas en la Ley de Administración Financiera de la República y Presupuestos Públicos, La Ley General de Control Interno y las demás disposiciones concordantes.

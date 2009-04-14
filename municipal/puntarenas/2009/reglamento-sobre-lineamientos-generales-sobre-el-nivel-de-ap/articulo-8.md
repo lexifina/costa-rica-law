@@ -1,0 +1,4 @@
+Artículo 8º—Información adicional para la aprobación presupuestaria y la fiscalización.
+8.1. Aprobación presupuestaria interna. El Concejo Municipal debe definir la información adicional que se requiera para verificar el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto sometido a su aprobación.
+8.2. Aprobación presupuestaria externa. La Municipalidad deberá tomar las medidas pertinentes que le permitan atender los requerimientos de información adicional que solicite la Contraloría General de la República en el ejercicio de sus competencias constitucionales y legales.
+8.3. Fiscalización y control. El Departamento de Presupuesto deberá fiscalizar el cumplimiento de lo establecido en el Reglamento para el adecuado registro, incorporación y validación de información en el Sistema de Información sobre Presupuestos Públicos (SIPP) de la Municipalidad de Puntarenas.

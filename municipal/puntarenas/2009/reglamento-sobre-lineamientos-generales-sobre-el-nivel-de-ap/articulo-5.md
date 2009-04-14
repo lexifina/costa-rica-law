@@ -1,0 +1,1 @@
+Articulo 5º—Nivel de aprobación presupuestaria interna. La aprobación presupuestaria interna, se deberá realizar al nivel de detalle que establezcan los clasificadores presupuestarios utilizados en la formulación del presupuesto, correspondiendo al Concejo Municipal definir los ajustes presupuestarios que serán sometidos a su aprobación.

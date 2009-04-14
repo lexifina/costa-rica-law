@@ -1,0 +1,1 @@
+Artículo 10.—Desarrollo de Sistemas de Información. El Alcalde (sa) Municipal deberá establecer las acciones que permitan diseñar, implantar y mantener sistemas para accesar, identificar y registrar información confiable, relevante, pertinente y oportuna de manera que se cumpla con este reglamento.
