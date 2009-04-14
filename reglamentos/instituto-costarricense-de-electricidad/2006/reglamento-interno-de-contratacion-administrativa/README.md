@@ -15,3 +15,4 @@ Reglamento Interno de Contratación Administrativa
 | --- | --- | --- |
 | 1 | 2006-12-27 | la propia norma |
 | 2 | 2007-06-15 | Reglamento 0 (2007-06-15) |
+| 3 | 2009-04-14 | Reglamento 5868 (2009-04-14) |
