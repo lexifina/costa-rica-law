@@ -1,0 +1,1 @@
+Artículo 15.—De la emisión de los Títulos Valores: todos los títulos valores deben emitirse a nombre del Instituto Mixto de Ayuda Social. No se podrá invertir en fondos de inversión. Tampoco se podrá congelar los saldos de las cuentas corrientes.
