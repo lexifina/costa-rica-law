@@ -1,0 +1,2 @@
+Artículo 32.—La Fiscalía del Colegio podrá, en cualquier momento, comprobar la veracidad de la información consignada en los certificados, así como solicitar los respectivos expedientes para su revisión los cuales deberán ser entregados a la Fiscalía en los tres días posteriores a su solicitud.
+(Mediante Fe de Erratas publicada en La Gaceta N° 246 del 18 de diciembre de 2009, se aclara que por error en la aplicación de este artículo, en lo referente a la petición del expediente, queda sujeto a la respuesta a la consulta que se hará a la Procuraduría General de la República.)
