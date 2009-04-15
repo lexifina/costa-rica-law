@@ -1,0 +1,1 @@
+Artículo 8º—El Programa tendrá un Comité Asesor integrado por tres empresarios de trayectoria en el sector productivo que asesorarán el desenvolvimiento del Programa. Sus miembros serán designados por el Ministro de Trabajo y Seguridad Social de una terna que presentarán las organizaciones del sector privado empresarial.

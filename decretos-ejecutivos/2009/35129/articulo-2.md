@@ -1,0 +1,1 @@
+Artículo 2º—El objeto del Programa de Jóvenes Empresarios es fomentar y formar en las personas jóvenes de 18 a 35 años el deseo de convertirse en jóvenes empresarios comprometidos en mejorar su nivel económico y familiar, con responsabilidad social y ética empresarial, para contribuir a bajar el nivel de pobreza y desempleo en Costa Rica.

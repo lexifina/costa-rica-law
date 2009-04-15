@@ -1,0 +1,1 @@
+Artículo 4º—El Programa de Jóvenes Empresarios estará integrado por instituciones públicas y privadas que impulsarán el establecimiento de mecanismos que permitan verificar los logros en términos del mejoramiento de la calidad de vida de las personas jóvenes y la creación de alianzas estratégicas con los diferentes sectores de la vida nacional.

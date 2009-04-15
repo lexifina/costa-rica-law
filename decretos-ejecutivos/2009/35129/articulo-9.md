@@ -1,0 +1,1 @@
+Artículo 9º—Las instituciones participantes prestarán especial atención y destinarán los recursos humanos y financieros, dentro de sus posibilidades, para ejecutar exitosamente el Programa de Jóvenes Empresarios (PROJOVEM).
