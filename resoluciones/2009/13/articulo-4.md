@@ -1,0 +1,1 @@
+Artículo 4º—Transitorio único. Las Comisiones Locales de Corredor Biológico activas a la publicación de esta resolución, deberán ajustarse a la figura de Consejos Locales de Corredor Biológico, dentro del plazo de un año a partir de la vigencia de la presente resolución.

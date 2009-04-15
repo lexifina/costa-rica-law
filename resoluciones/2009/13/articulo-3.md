@@ -1,0 +1,5 @@
+Artículo 3º—De la oficialización de los corredores biológicos en Costa Rica:
+1. Posteriormente a haber cumplido con los requisitos anteriores, el Área de Conservación correspondiente, confeccionará un expediente específico para el corredor biológico. Dicho expediente será resguardado en la oficina del Enlace Regional de Corredor Biológico del Área de Conservación respectiva, dicha copia estará a disposición de los interesados,
+2. La iniciativa del corredor biológico y su expediente deberá ser presentado por parte del Área de Conservación ante el CONAC, para su aprobación y oficialización,
+3. Una vez aprobada la iniciativa de corredor biológico por el CONAC, una copia del expediente certificada por el Director del Área de Conservación, deberá ser enviada a la Coordinación del PNCB para que elabore la resolución administrativa, misma que será firmada por el Director Ejecutivo del SINAC y publicada en el Diario Oficial La Gaceta para su oficialización,
+4. Todo Consejo Local, que haya cumplido con los pasos anteriores y represente un corredor biológico, automáticamente participará dentro de la Red Nacional de Corredores Biológicos de Costa Rica.
