@@ -1,3 +1,5 @@
 SECCIÓN II
 Trasbordo y descarga de carga convencional en Puntos de Control
-Artículo 35.—Casos en que procede el trasbordo de la carga. Cuando se sobrepasaren los pesos máximos permitidos sin contar con permiso especial para ello, o se sobrepasaren los autorizados en el Permiso Especial, deberá procesarse al reacomodo de la carga. Si dicha operación resultare insuficiente para que el vehículo reanude su marcha, deberá procederse al trasbordo del exceso de carga a otro vehículo por cuenta y riesgo del transportista de la carga. Durante ese tiempo el vehículo permanecerá en el lugar que le indiquen los funcionarios del MOPT a cargo de la revisión de pesaje. Lo anterior deberá quedar constando en el acta que se levante al efecto, de lo cual se entregará una copia al transportista, y en el (los) libro(s) de control de labores.
+Artículo 35°.—Prohibición de circulación con sobrepeso. Ningún vehículo automotor podrá circular por las vías públicas terrestres nacionales con un peso mayor al establecido en este Reglamento.
+Estas regulaciones serán aplicables para el transporte de cualquier tipo de carga, incluyendo el transporte de materiales peligrosos o sustancias peligrosas y convencionales.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35208 del 15 de abril del 2009)

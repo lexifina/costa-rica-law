@@ -1,1 +1,1 @@
-Artículo 47.—Requerimientos de los vehículos utilizados para el trasbordo de materias o productos peligrosos. Los vehículos utilizados para el trasbordo de materias o productos peligrosos deberán ser de similar naturaleza y que reúnan las mismas condiciones del vehículo que transporta la sobrecarga.
+Artículo 47.—(Derogado por el artículo 2° del decreto ejecutivo N° 35208 del 15 de abril del 2009)

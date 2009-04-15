@@ -18,3 +18,4 @@ Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones d
 | 3 | 2004-11-14 | Decreto Ejecutivo 32191 (2004-11-14) |
 | 4 | 2006-11-01 | Decreto Ejecutivo 33458 (2006-11-01) |
 | 5 | 2007-04-26 | Decreto Ejecutivo 33773 (2007-04-26) |
+| 6 | 2009-04-15 | Decreto Ejecutivo 35208 (2009-04-15) |

@@ -1,1 +1,1 @@
-Artículo 41.—Custodia del vehículo que no haya efectuado el trasbordo. Mientras del vehículo infractor no se haya trasbordado o descargado el exceso de carga, y durante las operaciones antes dichas, la custodia y cuidado del vehículo respectivo corresponderá al transportista, por lo cual el MOPT no asumirá ninguna responsabilidad.
+Artículo 41.—(Derogado por el artículo 2° del decreto ejecutivo N° 35208 del 15 de abril del 2009)

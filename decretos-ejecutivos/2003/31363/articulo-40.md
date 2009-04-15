@@ -1,1 +1,1 @@
-Artículo 40.—De la autorización para que el vehículo pueda reanudar la marcha. Mientras no se lleve a cabo el trasbordo o descarga del exceso de carga y se compruebe mediante un nuevo pesaje que el vehículo reúne las condiciones apropiadas para reanudar la marcha, esto último no se autorizará, salvo que se presentaren causas de fuerza mayor, como inundaciones, incendio, terremotos o similares.
+Artículo 40.—(Derogado por el artículo 2° del decreto ejecutivo N° 35208 del 15 de abril del 2009)

@@ -1,1 +1,3 @@
-Artículo 71.—Prohibición para la circulación de vehículos de carga y de transporte colectivo de personas con pesos superiores a los máximos permitidos. No se permitirá la circulación de vehículos afectados por el presente Reglamento con pesos superiores a los máximos permitidos, salvo las excepciones señaladas en el presente Reglamento. Igualmente, se prohíbe el transporte de carga en vehículos de transporte colectivo de personas que prestan servicio público en rutas urbanas.
+Artículo 71.—Prohibición para circulación en rutas urbanas de vehículos de transporte público colectivo de personas transportando cargas.
+Se prohíbe el transporte de carga en vehículos de transporte público colectivo de personas en rutas urbanas
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35208 del 15 de abril del 2008)
