@@ -1,0 +1,6 @@
+SECCIÓN XII
+Registro de Proveedores
+Artículo 98.—Registro de Proveedores. El Registro de Proveedores constituirá el instrumento idóneo, en el que se inscribirán las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa del ICE, de manera que se encuentren debidamente acreditados y evaluados de manera integral y particular para un determinado tipo de concurso, en cuanto a su historial, sanciones, capacidad técnica, financiera, jurídica y cualquier otra que resulte indispensable para una adecuada selección del contratista y del interés público.
+El registro se mantendrá en medios electrónicos, el cual será utilizarlo para realizar las invitaciones, recibir ofertas, aclaraciones u otras comunicaciones oficiales, recursos el cual será regulado según la normativa interna del ICE.
+A efecto de mantener actualizados dichos registros, la Administración invitará a los interesados en integrarlo, mediante publicación en la página Web de la Proveeduría o por otros medios de comunicación pública.
+Por economía, eficiencia y simplificación de trámites, el ICE oportunamente dispondrá que sus empresas, y él mismo, utilicen una sola plataforma de compras única y el mismo registro de proveedores. La información que consta en el registro de proveedores es de libre acceso.

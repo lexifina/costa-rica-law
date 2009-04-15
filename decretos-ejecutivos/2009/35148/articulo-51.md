@@ -1,0 +1,2 @@
+Artículo 51.—Presentación. La oferta deberá presentarse por los medios autorizados por la Proveeduría o los señalados en el cartel, sea por medios físicos o en forma electrónica y debidamente firmada. La información técnica y los manuales de especificaciones podrán ser presentados por medios electrónicos debidamente identificados.
+Para una mayor agilidad la oferta de contrataciones directas deberá presentarse mediante los formularios establecidos por el ICE. En los demás casos, el ICE indicará en el cartel si se aceptará presentación de ofertas mediante formularios.

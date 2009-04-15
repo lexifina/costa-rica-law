@@ -1,0 +1,1 @@
+Artículo 126.—Contrato de obra pública. La contratación de obras públicas se hará mediante los procedimientos de licitación pública, abreviada o por contratación directa, de acuerdo con la estimación del negocio, o excepción aplicable según lo dispone la Ley y este Reglamento.

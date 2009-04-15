@@ -1,0 +1,4 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 201.—De conformidad con el artículo 1 y 119 del presente reglamento y con el objetivo de propiciar una gestión estatal eficiente, automatizada y transparente, se declara de interés público y prioridad nacional la ejecución de los proyectos de Gobierno Digital desarrollados por el ICE o la empresa que éste defina.
+El desarrollo e implementación de plataforma de compras única del Estado, en su sentido más amplio, el servicio de compras electrónicas de bienes y de servicios, el registro de proveedores y el catálogo único de bienes y de servicios estará cargo de la Proveeduría del ICE o la empresa que éste defina o cree. Cada administración pública queda habilitada para contratar directamente la prestación de los servicios de la Plataforma en su beneficio.

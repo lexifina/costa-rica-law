@@ -1,0 +1,1 @@
+Artículo 76.—Publicación. La invitación a participar, las modificaciones al cartel y el acto de adjudicación, los concursos con precalificación, y cualquier otro acto se publicarán en la página Web de la Proveeduría.

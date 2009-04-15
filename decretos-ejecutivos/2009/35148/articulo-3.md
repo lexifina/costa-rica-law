@@ -1,0 +1,3 @@
+Artículo 3º—De conformidad con el artículo 10 de la Ley 8660 y el artículo 3º inciso 2) de la Ley 6227, el ICE y sus empresas podrán realizar toda clase de prácticas comerciales, administrativas y financieras que hagan más eficiente y efectiva su gestión comercial. Las empresas del ICE coordinarán con éste, en su condición de casa matriz.
+Asimismo, de conformidad con los artículos 8º, 9º y 10 de la Ley Nº 8660, el ICE y sus empresas podrán facturar en un solo documento, con el desglose correspondiente, todos los servicios brindados por las empresas.
+El ICE y sus empresas podrán informar por medios electrónicos a sus clientes sobre los cambios de los precios, las tarifas o los planes contratados previamente, prescindiendo de publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 202.—De conformidad con el artículo 5º de la Ley Nº 8660, modifíquese la razón social de CRICSA, para que en lo sucesivo se lea Compañía Radiográfica Internacional Costarricense Sociedad Anónima. El Registro Nacional realizará de oficio la corrección indicada.

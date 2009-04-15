@@ -1,0 +1,1 @@
+Artículo 4º—Conforme lo instruya el Concejo Directivo del ICE, el ICE y sus empresas establecerán libremente los precios de los productos y servicios no regulados que provean. La venta de dichos productos y servicios no está sujeta a inopia en el mercado nacional.

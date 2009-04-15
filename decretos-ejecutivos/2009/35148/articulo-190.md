@@ -1,0 +1,3 @@
+SECCIÓN XVIII
+Sanciones
+Artículo 190.—Sanciones. Las sanciones a que se refiere el presente capítulo, son las establecidas en las leyes vigentes en materia de hacienda pública aplicable a la contratación administrativa. No proceden sanciones creadas por decretos, reglamentos, circulares y otros actos administrativos. La aplicación de las sanciones no excluye la imposición de las sanciones que prevé la legislación penal, ni el reclamo de responsabilidades por daños y perjuicios como consecuencia de la misma conducta, y son compatibles con otras sanciones previstas expresamente en las leyes que regulan las respectivas contrataciones administrativas, tales como cláusulas penales y multas.

@@ -1,0 +1,1 @@
+Artículo 66.—Audiencia para descuentos. La Administración podrá otorgar audiencias posteriores al acto de apertura a fin de que aquellas ofertas elegibles, tengan oportunidad de otorgar un descuento a su propuesta. Este descuento será considerado en la calificación de las ofertas. En cada cartel se dispondrá las reglas para la aplicación de descuentos.

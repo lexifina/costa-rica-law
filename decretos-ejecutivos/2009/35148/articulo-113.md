@@ -1,0 +1,1 @@
+Artículo 113.—Contrataciones con Fondos Caja Chica. Las compras para gastos menores que se efectúen con cargo a los fondos de caja chica, se regirán por las disposiciones reglamentarias que al efecto se emitan el ICE y sus empresas, las cuales fijaran los supuestos para su utilización, montos máximos, mecanismos de control y funcionarios responsables de su manejo.

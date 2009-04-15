@@ -1,0 +1,1 @@
+Artículo 16.—Disponibilidad presupuestaria. Las contrataciones que realice el ICE deberán contar con los recursos suficientes para el momento de dictar el acto de adjudicación. Será responsabilidad del funcionario competente que autorizó el inicio del trámite garantizar que se cuenten con los recursos suficientes para hacer frente a las obligaciones contraídas

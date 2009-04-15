@@ -1,0 +1,2 @@
+Artículo 192.—Sanciones a funcionarios. Las sanciones administrativas deberán ser impuestas por el titular del ICE que ostente la potestad disciplinaria, en contra de los funcionarios que realicen actuaciones contrarias a las disposiciones de la Ley de Contratación Administrativa y su Reglamento, así como la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones, y su Reglamento.
+Dichas sanciones consistirán en apercibimiento escrito, suspensión sin goce de salario, despido según las disposiciones de la normativa vigente.

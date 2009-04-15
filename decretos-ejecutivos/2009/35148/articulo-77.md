@@ -1,0 +1,1 @@
+Artículo 77.—Recepción de ofertas. Si no está previsto en el carel, el plazo mínimo para recibir ofertas será de diez días hábiles, contado desde el día siguiente de la publicación del aviso a participar hasta el día y hora de la apertura de las ofertas, inclusive. El ICE indicará en la invitación aquellos casos en los que se recibirá la oferta únicamente en forma electrónica.

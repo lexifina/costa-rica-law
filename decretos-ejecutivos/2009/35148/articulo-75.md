@@ -1,0 +1,1 @@
+Artículo 75.—Supuestos. El procedimiento de licitación pública deberá darse cuando la cuantía alcance el monto dispuesto en el artículo 22 de esta Ley, así como en los procedimientos de cuantía inestimable.
