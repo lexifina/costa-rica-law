@@ -1,0 +1,52 @@
+BANCO NACIONAL DE COSTA RICA
+Para dar cumplimiento a lo dispuesto en la Ley Nº 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, la Proveeduría General del Banco Nacional de Costa Rica, publica el formulario Solicitud Contrato para el Servicio de Buzón Nocturno , detallado a continuación.
+[imagen]
+CONTRATO PARA EL SERVICIO DE BUZÓN NOCTURNO
+El Banco Nacional de Costa Rica, con cédula jurídica número 4-000-001021, identificado como el “Banco” representado por
+___________________________ , ___________________________ , ___________________________ ,
+con cédula de identidad Nº_______________________________________________________ ,
+Profesión___________________________________________________________________________ ,
+vecino de____________________________________________________________________________ ,
+personería inscrita en el Registro Mercantil al tomo___________________________ ,
+folio______________________ y asiento_________________ y_____________ (nombre de
+empresa) con cédula de personería jurídica______________________________________
+inscrita en el Registro Mercantil en el tomo____________________________________ ,
+folio_____________________ , asiento___________________ , domiciliado en__________
+_______________________________________ , representado por_________________________ ,
+cédula de identidad número__________________ , _________________ , _______________ ,
+de Profesión________________________________________________________________________ ,
+en adelante identificado y para efectos de este contrato como el Cliente, acordamos suscribir el presente contrato para el servicio especial de “Depósito Nocturno” en la(s) cuenta(s):
+Corrientes número___________ en r.Dólares .Colones .Euros
+Electrónicas número_________ en .Dólares .Colones .Euros
+Que se regirán por las siguientes cláusulas:
+1._ El Banco proporciona al cliente un servicio especial de depósitos utilizable con preferencia en horas inhábiles, por el cual el cliente pagará la comisión establecida en el Manual de Comisiones de la Dirección Corporativa de Finanzas del BNCR. El Cliente puede depositar dinero en efectivo, (billetes y monedas nacionales y en moneda extranjera solamente billetes) cheques o valores afines, para acreditarlos en su cuenta en este Banco. Para operar este servicio se hace uso de un buzón de fácil acceso, pero cerrado y seguro. Para su uso el Banco suministrará una llave especial al Cliente. También el Banco suple el primer bolso especial para este fin (o el cliente lo confecciona de acuerdo a lo indicado por el Banco), con la siguiente numeración .
+En caso de que el cliente solicite reposición tanto de la llave como del bolso deberá pagar la comisión establecida en el Manual de Comisiones de la Dirección Corporativa de Finanzas del BNCR. Cada bolso cuenta con su candado y llave, cuyo duplicado quedará en poder del Banco.
+2. El Cliente se compromete a hacer uso del servicio mediante los bolsos especiales, donde introducirá los valores del caso, junto con la fórmula de depósito detallada (desglose por denominación en billetes y monedas), adjuntando una cinta de máquina de sumar con un detalle del depósito. El bolso deberá usarse sólo para la cuenta consignada en este contrato.
+3. A partir de las nueve horas de cada día, el Banco abrirá la caja fuerte que contiene los bolsos para esta operación, en presencia de al menos dos funcionarios previamente autorizados por la jefatura correspondiente. De inmediato se procede a dar trámite a los depósitos recibidos.
+4. Es obligación del Cliente retirar personalmente, o por medio de representante debidamente autorizado, el bolso con las copias de los depósitos tramitados.
+5. Para efectos legales, administrativos y de trámite, los bolsos se abrirán y se aplicará su contenido el día siguiente hábil a su depósito en el buzón.
+6. En el caso que el depósito presente diferencia, el Banco queda autorizado para realizar el débito o crédito de ajuste, quedando en ese momento registrado el depósito en la cuenta del cliente según corresponda. Se comunicará de inmediato al Cliente la situación presentada, por el medio indicado por el mismo.
+7. Las partes acuerdan que, para todos los efectos legales y probatorios, el recuento que hiciere el Banco del contenido de los bolsos depositados es el que se tendrá como cierto y efectivo. De tal modo que cualquier diferencia entre el dinero efectivo y el indicado en las boletas de depósito lo asumirá el Cliente, sin que ello implique responsabilidad alguna para el Banco en virtud del recuento realizado por funcionarios designados para tales efectos.
+8. El Banco no asume responsabilidad por atrasos debidos a errores e inexactitudes entre la boleta del depósito y el contenido del bolso. Tampoco le es imputable responsabilidad por los contratiempos ajenos a su voluntad, tales como guerras, paros, huelgas, motines, revoluciones o fallas del sistema o por cualquier otra causa que se origine en caso fortuito o fuerza mayor.
+9. El Cliente asume la responsabilidad por la custodia de los candados, la llave del buzón nocturno y los respectivos bolsos que le sean proporcionados por el Banco. El Cliente se obliga y compromete al uso correcto de las llaves y bolsos, que obren en su poder, así como a que los mismos serán usados solamente por él o por personas debidamente autorizadas por el Cliente, responsabilizándose por su pérdida o mala utilización. Asimismo, en caso de pérdida o robo, deberá reportar al Banco en forma inmediata dicha situación, siendo que en caso de reposición deberá cancelar la tarifa vigente.
+En caso de un uso incorrecto de las llaves por parte del Cliente, el Banco queda relevado de toda responsabilidad.
+10. Este contrato se renovará anualmente de forma automática previo a su vencimiento, no obstante, las partes se reservan la potestad de rescindir el mismo cuando lo consideren necesario, dando aviso a la otra parte con un plazo de antelación, sin que se puedan alegar derechos adquiridos. Por su parte el Cliente está en la obligación de devolver los bolsos y llaves en buen estado, veinticuatro horas después de habérsele comunicado la cancelación del servicio.
+11. Este contrato incorpora las disposiciones reglamentarias establecidas por el Banco actualmente en esta materia.
+12. Este contrato tiene carácter mercantil y se regirá por sus propias cláusulas y en lo que en ellas no estuviere previsto, se atenderán las partes del Código de Comercio y el Código Civil; en su defecto a los usos y costumbres mercantiles.
+13. La duración total del presente contrato es de un año, pudiendo prorrogarse tácitamente si ninguno de los contratantes lo denunciare por escrito con quince días de antelación hasta un máximo de 5 años.
+14. CLÁUSULA ARBITRAL: Todas las controversias, diferencias, disputas o reclamos que pudieran derivarse del presente contrato, o el negocio y la materia a la que este se refiere, su ejecución, incumplimiento, liquidación, interpretación o validez, se resolverán por medio de arbitraje de derecho de conformidad con los reglamentos del Centro de Conciliación y Arbitraje de la Cámara de Comercio de Costa Rica, a cuyas normas las partes se someten en forma voluntaria e incondicional. El conflicto se dilucidará de acuerdo con la ley sustantiva de Costa Rica. El lugar del arbitraje será el Centro de Conciliación y Arbitraje de la Cámara de Comercio de Costa Rica en San José, República de Costa Rica. El arbitraje será resuelto por un tribunal arbitral compuesto por tres árbitros. Los árbitros serán designados por el Centro. El laudo arbitral se dictará por escrito, será secreto, definitivo, vinculante para las Partes e inapelable, salvo el recurso de revisión o de nulidad. Una vez que el laudo se haya dictado y se encuentre firme, producirá los efectos de cosa juzgada material y las Partes deberán cumplirlo sin demora. Los gastos relacionados con el arbitraje y los honorarios de los árbitros serán asumidos por las Partes en igual proporción conforme el procedimiento avance. Los honorarios de los respectivos asesores y abogados serán asumidos por cada Parte.
+15. Para efectos fiscales y tomando en cuenta la índole del contrato, las partes contratantes conviene en que es inestimable.
+16. Para la ejecución del presente contrato, además de lo ya establecido expresamente, se deberá considerar lo siguiente:
+a. Legislación aplicable: Este contrato debe interpretarse y registrarse y regirse de conformidad con la legislación de la República de Costa Rica.
+b. Protocolización: Cualquiera de la Partes podrá comparecer ante Notario Público protocolizar el presente contrato, a poner razón de fecha cierta o a autenticar sus firmas, sin que para ello requiera notificar a la otra Parte.
+c. Acuerdo Completo: Las Partes reconocen que este contrato constituye y expresa el único acuerdo entre ellas en relación con los asuntos aquí referidos. Cualesquiera discusiones, promesas, declaraciones y entendimientos previos han sido sustituidos en su totalidad por el presente contrato y por lo tanto son inaplicables.
+d. Acuerdo Mutuo: Este contrato ha sido el producto de mutuas negociaciones, por lo que cada cláusula ha estado sujeta a consultas y acuerdos entre ambas partes. Cualquier modificación al presente contrato será válida y eficaz en el tanto sea acordada por escrito por ambas partes.
+e. Modificaciones y Renuncias: Cualquier acuerdo de modificación o cambio, prórroga o terminación que acuerden las Partes al presente contrato, sea total o parcial, será válido en el tanto el mismo sea documentado por escrito y suscrito por ambas partes. Cualquier renuncia a los derechos y acciones que se deriven de este Contrato deberá realizarse por escrito y suscribirse por la Parte renunciante. La falta de ejercicio de un derecho o acción no deberá tomarse, por el simple transcurso del tiempo, como una renuncia tácita a tal derecho o acción.
+f. Divisibilidad: Si alguna disposición de este Contrato resultare inválida o ilegal se tendrá por no-puesta, pero la legalidad y validez del resto del Contrato no se verá afectada o limitada por dicha omisión.
+Firmamos en________________________________________________________________________
+a los______________________ del mes de_______________________ del 20____________ .
+Nombre y firma del Cliente
+___________________________________________________________.
+Nombre y firma Jefe autorizado .
+Versión 03/2009
+La Uruca, 30 de marzo de 2009.
