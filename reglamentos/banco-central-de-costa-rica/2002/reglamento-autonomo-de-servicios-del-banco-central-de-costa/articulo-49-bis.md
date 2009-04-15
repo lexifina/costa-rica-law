@@ -1,0 +1,2 @@
+Artículo 49 bis.-Todas las plazas tendrán un código de posición, considerando para ello la estructura organizacional y de puestos de cada dependencia dentro de la Institución. El Departamento Gestión del Factor Humano será el encargado de incluir, modificar o eliminar los códigos cuando existan razones plenamente justificadas, administrativa y jurídicamente, sin perjuicio de los derechos laborales correspondientes.
+(Así adicionado mediante sesión N° 5420 del 15 de abril de 2009)
