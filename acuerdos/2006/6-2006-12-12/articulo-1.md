@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO PROFESIONAL DE PSICÓLOGOS DE COSTA RICA
+(Derogado por el artículo 34 del Reglamento del Colegio Profesional de Psicólogos de Costa Rica para realizar evaluaciones de idoneidad mental para portar armas de fuego, publicado en La Gaceta N° 72 del 15 de abril de 2009)
 MANUAL DE NORMAS Y PROCEDIMIENTOS PARA LA
 ELABORACIÓN DE LOS CERTIFICADOS PSICOLÓGICOS
 DE IDONEIDAD MENTAL PARA PORTAR ARMAS DE FUEGO

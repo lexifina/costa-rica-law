@@ -14,3 +14,4 @@ Manual de Normas y Procedimientos para la Elaboración de los Certificados Psico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-01 | la propia norma |
+| 2 | 2009-04-15 | Reglamento 0 (2009-04-15) |
