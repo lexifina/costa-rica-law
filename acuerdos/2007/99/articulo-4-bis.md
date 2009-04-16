@@ -1,0 +1,2 @@
+Artículo 4 Bis.—Se permitirá la sustitución de embarcaciones con medida superior a los 24 metros de eslora, únicamente en el caso de aquellas embarcaciones que antes de la vigencia del presente acuerdo, se encontraren inscritas en el Registro de Buques de Costa Rica, con licencia de pesca y con una medida superior a la indicada, en cuyo caso se permitirá el mantenimiento excepcional de esa medida sin posibilidad de aumentar la misma.”
+(Así adicionado por el artículo 1° del acuerdo AJDIP-136-2009 de 17 de abril del 2009).
