@@ -1,3 +1,0 @@
-2º—Disposiciones para la aplicación de las materias excluidas de los procedimientos ordinarios:
-a. Los casos de excepción que requieran de la autorización de la Contraloría General de la República serán solicitados únicamente por la instancia que cuente con personería jurídica. En caso de no contar con dicha personería la solicitud ante el Órgano Contralor deberá ser gestionada por medio de la Gerencia de División respectiva.
-b. Los casos de excepción que no requieran autorización de la Contraloría General de la República, deberán ser habilitados previamente por las Gerencias de División o la dirección regional respectiva.
