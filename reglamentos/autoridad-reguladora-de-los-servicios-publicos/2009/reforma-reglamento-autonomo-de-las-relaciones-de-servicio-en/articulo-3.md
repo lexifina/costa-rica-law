@@ -1,0 +1,1 @@
+Artículo 3º—Transitorio I. Los nombramientos de los nuevos funcionarios regulares, se realizarán en el paso “A” de la escala de salario global, hasta tanto estén diseñados y vigentes los parámetros para la clasificación y definición de los requisitos para los restantes pasos.

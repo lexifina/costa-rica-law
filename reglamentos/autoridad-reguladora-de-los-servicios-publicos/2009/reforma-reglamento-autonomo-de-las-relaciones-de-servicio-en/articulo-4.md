@@ -1,0 +1,1 @@
+Artículo 4º—Transitorio II. Los funcionarios que ostenten puestos de Directores o Jefes de Departamento a plazo indefinido, mantendrán sus derechos adquiridos y, una vez que la plaza quede vacante, el siguiente nombramiento se hará con las condiciones y el plazo establecido en este reglamento.
