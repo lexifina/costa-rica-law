@@ -1,2 +1,0 @@
-ARTÍCULO 39: Servicios que utilizan la Tecnología de Espectro Disperso
-Estos servicios se caracterizan por su modalidad de operación que permiten simplificar los procedimientos de gestión de frecuencias, permitiendo mejorar considerablemente la eficiencia del uso del espectro, aliviar la congestión de segmentos del mismo, destinados a punto multipunto. Este servido está destinado a proporcionar enlaces exclusivamente para la transmisión de datos, con terminales fijas o móviles en espacios limitados.
