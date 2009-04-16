@@ -1,0 +1,11 @@
+Nº 35143-J
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en el artículo 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 de ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Siembra, cédula de persona jurídica número 3-002-066269, se inscribió en el Registro de Asociaciones del Registro Público desde el día veintisiete de setiembre de mil novecientos ochenta y cuatro, bajo el expediente Nº 1411.
+III.—Que los fines que persigue la Asociación, según el artículo tercero de sus Estatutos, son: “(…) Artículo tercero: (...) a) Brindar un hogar de transición a jóvenes mujeres de doce a diecisiete años en riesgo social que no hayan cometido delito; b) Procurarles una reintegración más gradual y segura a la sociedad; c) Planear, realizar y difundir programas que propendan a procurar a dichas jóvenes una fuente sana de sustento que les ayude a sentirse útiles a la sociedad, recuperando la confianza en sí mismas y su autonomía; d) Fomentar la armonía, los vínculos de unión y la cooperación solidaria entre las jóvenes beneficiarias, los asociados, la iglesia y las entidades públicas y privadas del país, en procura de alcanzar estos fines; e) Desarrollar campañas publicitarias, cursos y seminarios, así como editar folletos que llevarán como objetivo principal informar a los afiliados sobre las actividades de la Asociación ’’.
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación Siembra, cédula de persona jurídica número tres- cero cero dos-cero sesenta y seis mil doscientos sesenta y nueve.
