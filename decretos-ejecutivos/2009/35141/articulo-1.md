@@ -1,0 +1,33 @@
+Nº 35141-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades que les confieren los numerales 11, 140, incisos 3) y 18) y 146 de la Constitución Política, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Nº 7476 del tres de febrero de mil novecientos noventa y cinco, el artículo 13 inciso i) de la Ley Nº 1581
+Estatuto de Servicio Civil del 30 del mes de mayo de 1953; y los artículos
+28, inciso 2.b) y 112 de la Ley General de la Administración Pública, Ley Nº 6227 del dos de mayo de mil novecientos setenta y ocho.
+Considerando:
+1º—Que los artículos 5 y 6 de la Ley número 7476 del tres de febrero de mil novecientos noventa y cinco, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, disponen que todo jerarca tendrá la responsabilidad de mantener, en el lugar de trabajo, condiciones de respeto para los funcionarios por medio de una política interna que prevenga, desaliente, evite y sancione las conductas de hostigamiento sexual, tomando las medidas expresas al respecto en los reglamentos internos, los convenios colectivos, los arreglos directos o de otro tipo.
+2º—Que en el artículo 5 inciso 2) de la citada Ley se indica que deberá establecerse un procedimiento interno, adecuado y efectivo, para permitir las denuncias de hostigamiento sexual, garantizando su confidencialidad y sancionando a las personas hostigadoras cuando exista causa.
+3º—Que mediante Decreto Ejecutivo número 25271-H, publicado en La Gaceta Nº 133 del 12 de julio de 1996, se dictó el Reglamento Autónomo de Servicios del Ministerio de Hacienda, con el fin de regular las relaciones entre este Ministerio y sus funcionarios.
+4º—Que si bien es cierto, el Decreto Ejecutivo número 25271-H Reglamento Autónomo de Servicios del Ministerio de Hacienda contiene normativa atinente a la conformación del procedimiento interno para permitir las denuncias de hostigamiento sexual, dadas las características propias del derecho como una ciencia social que se encuentra en constante evolución, existen algunas situaciones que se presentan en el marco de las relaciones de servicio entre este Ministerio y sus funcionarios que no fueron contempladas en el texto original del citado Reglamento, y que requieren ser reguladas a través de una disposición expresa para obtener uniformidad en cuanto al trato que reciben todos los funcionarios, ante determinadas circunstancias, siendo necesario que estas situaciones estén contempladas en el Reglamento Autónomo de Servicios, mediante una reforma que lo adecue a las necesidades imperantes en la actualidad.
+5º—Que artículo 13 inciso i) del Estatuto del Servicio Civil establece que entre las atribuciones y funciones del Director General de Servicio Civil se encuentra el dar el visto bueno a todos los reglamentos autónomos de servicio de las dependencias del Poder Ejecutivo.
+6º—Que mediante oficio número AJ-085-2009 de fecha 24 de febrero del 2009, la Dirección General de Servicio Civil ha otorgado el visto bueno a la presente modificación al Reglamento Autónomo de Servicios del Ministerio de Hacienda de conformidad con el artículo 13 inciso i) del Estatuto del Servicio Civil. Por tanto,
+DECRETAN:
+Reforma al Reglamento Autónomo
+de Servicios del Ministerio de Hacienda
+Artículo 1º—Adiciónese dos párrafos al final del artículo 28, un párrafo al final del artículo 36, un párrafo al final del artículo 40 y el inciso 19 al artículo 115 del Decreto Ejecutivo número 25271 Reglamento Autónomo de Servicios del Ministerio de Hacienda, publicado en La Gaceta número 133 del 12 de julio de 1996, para que en lo sucesivo se lean:
+“Artículo 28. —Para los efectos del presente Reglamento y de acuerdo con el artículo 3 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, Nº 7476, del 3 de febrero de 1995, se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
+a) Condiciones materiales de empleo.
+b) Desempeño y cumplimiento en la prestación del servicio.
+c) Estado general del bienestar personal.
+También se considera acoso sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+La prevención del hostigamiento sexual, la divulgación de la Ley y su correspondiente reglamento corresponderá al Departamento de Gestión del Potencial Humano así como las diferentes dependencias que integran el Ministerio. Podrá solicitarse, además, la colaboración y participación de aquel personal de la Institución, que por su puesto o condición, puedan coadyuvar en el proceso de difusión.
+El Ministerio mantendrá una constante información acerca de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, así como de su propia política interna mediante circulares, boletines informativos, panfletos divulgativos u otros medios de información para el personal del Ministerio.”
+“Artículo 36.—El Órgano Director contará con tres días naturales para dictar el auto inicial del procedimiento, en el cual se dará el traslado de denuncia al funcionario(a) acusado(a), concediéndole un plazo de diez días hábiles para que comparezca y se refiera a todos y cada uno de los hechos que se imputan y ofrezca los elementos de prueba de descargo que estime necesarios.
+Si el denunciado(a) no ejerce su defensa se continuará con el procedimiento hasta el informe final de parte del Órgano Director.
+El Órgano Director podrá gestionar ante el Ministro(a) que se ordene, en forma provisional y en cualquier momento, el traslado temporal del denunciado, a otra unidad o departamento a partir de
+la presentación de la denuncia y hasta tanto no adquiera firmeza la resolución o acto final, o la declaratoria con lugar de las eventuales diligencias de despido.”
+“Artículo 40.—Tanto la persona denunciante de hostigamiento sexual como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley Nº 7476 del 03 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.
+Toda Dependencia y todo funcionario del Ministerio de Hacienda, cuya colaboración sea solicitada por el Órgano Director del Procedimiento, para la investigación de una denuncia por hostigamiento sexual, está en la obligación de prestarla. La negativa injustificada del jefe del Programa o del funcionario, será considerada como una falta grave, que da margen para la aplicación del régimen disciplinario, de conformidad con el Título VI del presente Reglamento.”
+Artículo 115—(…)
+19) Cuando el funcionario, sin causa debidamente justificada, entorpezca, obstaculice o no brinde la colaboración requerida durante la investigación de una denuncia por hostigamiento
+sexual.”
