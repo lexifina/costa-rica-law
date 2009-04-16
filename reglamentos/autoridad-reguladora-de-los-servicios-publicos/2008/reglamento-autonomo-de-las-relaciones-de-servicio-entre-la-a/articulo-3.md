@@ -6,7 +6,8 @@ Anualidad: Reconocimiento salarial por cada año laborado en el sector público 
 Ausencia: Inasistencia a un día de trabajo o a una fracción de él.
 Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos, que excluye a sus órganos desconcentrados.
 Ascenso: Paso de una plaza a otra de categoría superior.
-CER: Centro de estudios de la regulación, dependencia de la institución.
+CDR: Dirección General Centro de Desarrollo de la Regulación , dependencia de la institución
+(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
 Clasificación de puestos: Técnica aplicable al estudio de la naturaleza de los puestos, para agruparlos en clases, grados, series y grupos ocupacionales.
 Concurso: Proceso en el que participan candidatos internos y externos a la institución para llenar una plaza vacante, acorde con los perfiles del puesto y las necesidades específicas señaladas en el Manual de actividades ocupacionales y el Manual descriptivo de puestos.
 Consejo de la Sutel: Consejo de la Superintendencia de Telecomunicaciones. Jerarca Superior Administrativo de la Sutel.
@@ -17,14 +18,17 @@ Escala salarial: Estructura de salarios integrada por categorías, ordenadas en 
 Evaluación del desempeño: Sistema que evalúa el desempeño de los(as) funcionarios(as) en sus puestos durante un período determinado y que propicia la necesaria y efectiva comunicación entre los niveles de supervisión y los subordinados, para el oportuno reconocimiento de la labor, para el análisis de las diversas situaciones derivadas del trabajo y para la búsqueda conjunta de soluciones en procura de un mayor nivel de eficiencia.
 Expediente personal: Documentación del historial completo del trabajador sobre su relación de servicio. La información contenida en él es de carácter confidencial y su acceso restringido.
 Funcionario (a): Persona física que de acuerdo con los trámites establecidos haya sido o llegare a ser nombrado por el(la) Regulador(a) General o por el Consejo de la Sutel según corresponda y preste sus servicios a la Institución o, por la Junta Directiva, en el caso del(de la) Auditor(a) Interno(a) y los miembros del Consejo de la Sutel o, por el Consejo de Gobierno, en el caso del(de la) Regulador(a) General y el(la) Regulador(a) General Adjunto(a).
-Funcionario (a) de confianza: Gerente General y todo(a) funcionario(a) que, de acuerdo con el ordenamiento jurídico, pueda ser calificado(a) como tal.
+Funcionario (a) de confianza: Los Asesores, Jefe de Despacho del Regulador General y todo(a) funcionario(a) que, de acuerdo con el ordenamiento jurídico, pueda ser calificado(a) como tal.
+(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
 Incentivo: Reconocimiento al(a la) funcionario(a) por la labor sobresaliente realizada en un período de tiempo determinado, que puede ser de carácter patrimonial o no.
 Institución: Autoridad Reguladora, incluyendo sus órganos desconcentrados.
 Interés público: Expresión de los intereses individuales coincidentes de los administrados y fin esencial de la Institución.
 Jefatura: Funcionario(a) que ejerce autoridad jerárquica formal sobre otros(as) funcionarios(as) de la Institución, para dirigir y controlar las actividades técnicas y administrativas necesarias para alcanzar los objetivos de la unidad bajo su dirección.
 Jefatura inmediata: Jefe directo del(de la) funcionario(a).
-Jefatura superior: El (la) Regulador(a) General, el (la) Regulador(a) General Adjunto(a), los miembros del Consejo de la Sutel, el (la) Auditor(a) Interno(a), el(la) Gerente General, las Jefaturas de Dirección y las Jefaturas de Departamento.
-Jerarca Superior Administrativo: El (la) Regulador(a) General y el Consejo de la Sutel.
+Jefatura superior: El (la) Regulador(a) General, el (la) Regulador(a) General Adjunto(a), los miembros del Consejo de la Sutel, el (la) Auditor(a) Interno(a), el(la) Gerente General, Directores Generales, Directores y Jefaturas de Departamento.
+(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
+Jerarca Superior Administrativo: Regulador General, Consejo de la SUTEL , Superintendente y Gerente General.
+(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
 Junta Directiva: Junta Directiva de la Autoridad Reguladora.
 Ley General: Ley General de la Administración Pública.
 Lista de elegibles: Enumeración de los (las) candidatos(as) elegibles para llenar una plaza vacante.
