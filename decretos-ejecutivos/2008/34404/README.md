@@ -48,3 +48,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 33 | 2009-04-16 | Decreto Ejecutivo 35201 (2009-04-16) |
 | 34 | 2009-04-16 | Decreto Ejecutivo 35254 (2009-04-16) |
 | 35 | 2009-04-16 | Decreto Ejecutivo 35221 (2009-04-16) |
+| 36 | 2009-04-16 | Decreto Ejecutivo 35253 (2009-04-16) |
