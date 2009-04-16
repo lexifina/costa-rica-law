@@ -21,3 +21,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | 6 | 2006-09-04 | Resolución 71 (2006-09-04) |
 | 7 | 2007-01-22 | Reglamento 1 (2007-01-22) |
 | 8 | 2008-04-25 | Reglamento 19 (2008-04-25) |
+| 9 | 2009-04-16 | Resolución 26 (2009-04-16) |
