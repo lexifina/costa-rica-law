@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SAN MATEO
+El Concejo Municipal de San Mateo, informa a todos los interesados que mediante el acuerdo Nº 3, artículo Nº 6 de la sesión ordinaria Nº 115 del 14 de julio del 2008, se acordó aprobar la adhesión de la Municipalidad de San Mateo al Manual de valores base unitarios por tipología constructiva, publicado por el Órgano de Normalización Técnica en La Gaceta Nº 78 del 23 de abril del 2008, para ser utilizados en los procesos de declaración y valoración que se propongan.
