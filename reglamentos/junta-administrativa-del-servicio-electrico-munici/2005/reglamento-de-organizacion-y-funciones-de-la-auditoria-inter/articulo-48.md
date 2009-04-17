@@ -1,3 +1,0 @@
-Artículo 48.—Confidencialidad de los resultados. Será estrictamente confidencial la información que el Auditor Interno y el Personal de Auditoría Interna obtenga en el ejercicio de sus funciones.
-Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la Contraloría General en el ejercicio de su competencia fiscalizadora, ni a la Junta Directiva cuando haya solicitud expresa. De igual manera, se guardará la confidencialidad de la identidad de las personas que presenten denuncias ante la Unidad.
-La Auditoría Interna no deberá hacer comentarios en relación con los procedimientos de trabajo o los resultados obtenidos, sin la autorización de sus superiores.

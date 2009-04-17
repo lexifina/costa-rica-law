@@ -1,1 +1,0 @@
-Artículo 64.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación de la Junta Directiva de JASEC y la Contraloría General de la República de Costa Rica.

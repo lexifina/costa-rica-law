@@ -1,1 +1,0 @@
-Artículo 22.—Responsabilidades. El Auditor Interno es el responsable de velar por el cumplimiento de las funciones encomendadas a la Auditoría Interna, éste tendrá la potestad de delegar autoridad y exigir responsabilidad, excepto en aquellos casos en que su intervención personal sea de carácter obligatorio según designios de la Ley, los reglamentos y los acuerdos del jerarca.

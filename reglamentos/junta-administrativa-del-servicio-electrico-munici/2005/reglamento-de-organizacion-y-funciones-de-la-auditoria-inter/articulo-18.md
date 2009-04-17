@@ -1,1 +1,0 @@
-Artículo 18.—Responsabilidad Administrativa. Los funcionarios de Auditoría Interna enfrentarán responsabilidades administrativas cuando por dolo o culpa grave incumplan con sus deberes y funciones o bien infrinjan la normativa vigente.
