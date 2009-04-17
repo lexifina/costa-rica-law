@@ -1,0 +1,5 @@
+ARTÍCULO 6.- Presentación de contratos de préstamo individual e informes
+El ICE presentará, ante la Comisión permanente especial para el control del ingreso y el gasto públicos de la Asamblea Legislativa, así como ante la Contraloría General de la República, la siguiente información:
+a) Los contratos de préstamo individual que se suscriban en el marco de este Convenio de Cooperación. La presentación de los contratos de préstamo individual debe realizarse dentro del mes siguiente a la suscripción de cada uno.
+b) Un informe anual de las acciones realizadas y el avance físico y financiero de cada uno de los contratos de préstamo individual. Asimismo, se remitirá el informe definitivo de terminación de cada contrato de préstamo individual, en el que se resalten las inversiones y los logros obtenidos como resultado de dicho contrato.
+c) Un informe final de cierre del Convenio de Cooperación, en el que se resuman las inversiones realizadas y los resultados obtenidos a consecuencia de la ejecución total del Convenio.
