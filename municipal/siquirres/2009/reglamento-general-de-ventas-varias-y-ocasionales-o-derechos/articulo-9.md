@@ -1,0 +1,1 @@
+Artículo 9º—Los usuarios de derechos de piso deberán usar los recipientes necesarios para depositar en ellos los desechos de los productos que venden. La violación de esta disposición será motivo de suspensión por tres días consecutivos de venta. La reincidencia dará lugar a la cancelación automática del derecho de piso sin responsabilidad para la Municipalidad.
