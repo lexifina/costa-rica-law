@@ -1,1 +1,0 @@
-Artículo 55.—Deberes de la Auditoría Interna en cuanto a la Valoración del Riesgo. La actividad de Auditoría Interna debe coadyuvar conforme a sus competencias, en la mejora constante del Sistema Específico de Valoración del Riesgo Institucional y los sistemas de control respectivos, fiscalizando la efectividad de los mismos.

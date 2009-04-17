@@ -1,1 +1,0 @@
-Artículo 16.—Requisitos de los puestos. La Auditoría Interna tiene la potestad de definir las cualidades, habilidades, requisitos académicos y profesionales que deberá poseer el candidato idóneo en cada uno de sus puestos, dicho perfil será presentado ante la Junta Directiva quien dará su aprobación para su inclusión en el Manual de Puestos de Institucional.

@@ -1,6 +1,0 @@
-Artículo 26.—Principios. El desempeño de las funciones del personal de Auditoría Interna debe estar basado en los siguientes principios:
-a) Integridad: La integridad de los funcionarios de Auditoría Interna establece confianza y como consecuencia, conforma la base para confiar en su juicio y dictamen.
-b) Objetividad: Los funcionarios de Auditoría Interna deben dar muestras de su objetividad al reunir, evaluar y comunicar información pertinente a la investigación que está realizando. Deben hacer una evaluación equilibrada de todas las circunstancias relevantes de manera que pueda tomar una actitud imparcial, neutral, y libre de influencias tanto por intereses propios como de otras personas.
-c) Confidencialidad: Los funcionarios en Auditoría Interna deben respetar el valor y la propiedad de la información que reciben y no divulgar la misma sin la debida autorización a menos que exista una obligación legal o profesional para hacerlo.
-d) Pericia: Los funcionarios de Auditoría Interna deben reunir los conocimientos, aptitudes y otras competencias necesarias para cumplir con sus responsabilidades individuales.
-e) Independencia: Los funcionarios de Auditoría Interna deben ejercer sus actividades con total independencia funcional y de criterio, respecto a los demás órganos de la administración activa.
