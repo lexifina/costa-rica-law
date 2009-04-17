@@ -1,0 +1,1 @@
+Artículo 6º—Cambio de modalidad de contrato laboral. Cuando las condiciones que dieron lugar a la contratación bajo la modalidad de teletrabajo concluyan, el funcionario prestará sus servicios al MEIC, conforme a las reglas del contrato laboral regular, aplicables a los demás funcionarios del MEIC.

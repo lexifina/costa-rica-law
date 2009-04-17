@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Este reglamento es aplicable a todos los trabajadores del Ministerio de Economía, Industria y Comercio, mismos que realizan actividades que la Institución determine como teletrabajables y donde existan las condiciones tecnológicas requeridas.
