@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Procedimientos de adquisición de obras, bienes y servicios y de selección y contratación de consultores
+Los procedimientos de adquisición de obras, bienes y servicios, y la selección y contratación de consultores que se realicen al amparo del Convenio de Cooperación para el Financiamiento de Proyectos de Inversión CR-X1005, con cargo a los recursos de cada contrato de préstamo individual, e indicados en la sección 10 de dicho Convenio, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional.
