@@ -14,3 +14,4 @@ Código de Ética y Moral Profesional del Colegio de Enfermeras de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-20 | la propia norma |
+| 2 | 2009-04-20 | Acuerdo 21 (2009-03-26) |

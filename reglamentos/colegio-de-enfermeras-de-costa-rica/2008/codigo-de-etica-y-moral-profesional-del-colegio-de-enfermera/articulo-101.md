@@ -1,1 +1,2 @@
-Artículo 101.—Honorarios profesionales. Las personas profesionales en enfermería, en el ejercicio liberal de la profesión, se guiarán por los parámetros y tarifas que establece el Colegio, de conformidad con lo que dispone el Decreto Ejecutivo 33368-S del 09 de mayo del 2006, Reglamento a la Ley Orgánica del Colegio de Enfermeras de Costa Rica.
+Artículo 101.—Honorarios profesionales. Las personas profesionales en enfermería, en el ejercicio liberal de la profesión, se guiarán por los parámetros y tarifas que establece el Colegio, de conformidad con lo que dispone el Decreto Ejecutivo (*) N° 34052-S del 26 de julio del 2007, Reglamento a la Ley Orgánica del Colegio de Enfermeras de Costa Rica.
+(*) (Así reformado por el punto 1 del acuerdo N° 21 del 26 de marzo de 2009)
