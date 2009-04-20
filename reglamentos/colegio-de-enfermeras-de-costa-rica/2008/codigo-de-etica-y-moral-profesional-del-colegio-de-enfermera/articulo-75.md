@@ -1,0 +1,1 @@
+Artículo 75.—Autonomía del sujeto de investigación. La participación de las personas en una investigación es voluntaria, por lo que podrá revocar su consentimiento en cualquier momento durante el proceso de investigación, sin expresión de razones y sin que se derive responsabilidad o perjuicio alguno de su decisión.

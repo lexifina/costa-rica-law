@@ -1,0 +1,1 @@
+Artículo 100.—Deber de las jefaturas de promover el ejercicio ético de la profesión. Las personas profesionales en enfermería, con funciones de jefatura tienen el deber de procurar las condiciones idóneas y promover con su ejemplo y políticas internas el desarrollo ético profesional de la enfermería, tomando en consideración las necesidades de sus subalternos.

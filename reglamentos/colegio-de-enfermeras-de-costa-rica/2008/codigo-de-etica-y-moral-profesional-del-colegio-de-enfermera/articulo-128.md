@@ -1,0 +1,4 @@
+Artículo 128.—Acto de apertura del procedimiento. Contenido.
+1. El procedimiento se tendrá por iniciado con la notificación al disciplinable del acto de intimación que dicte el Tribunal.
+2. El acto de intimación deberá contener al menos: mención sobre la competencia del Tribunal para dictar el acto, identificación de la persona disciplinable, una relación circunstanciada de los hechos que se imputan, el Derecho infringido y los derechos que le asisten al disciplinable.
+3. En caso de que el Tribunal no tenga clara la falta a imputar y haya razones de merito que lo justifique, solicitará a la Fiscalía la realización de una investigación preliminar de los hechos, previo a la apertura del procedimiento disciplinario. La Fiscalía realizará la investigación dentro del término señalado por el Tribunal, sin perjuicio de que le sean autorizadas ampliaciones del plazo, cuando así lo solicite y las razones que expone lo justifiquen.

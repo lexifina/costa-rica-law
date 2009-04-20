@@ -1,0 +1,1 @@
+Artículo 39.—Deber de respeto a la libre elección. Las personas profesionales en enfermería están obligadas a respetar la libre elección para los procedimientos y tratamientos por parte del sujeto de atención.

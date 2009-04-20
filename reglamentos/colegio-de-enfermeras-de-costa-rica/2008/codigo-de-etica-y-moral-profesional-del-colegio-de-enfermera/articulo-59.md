@@ -1,0 +1,1 @@
+Artículo 59.—Deber de investigar. Las personas profesionales en enfermería deben investigar sistemáticamente en el campo de su actividad profesional, con el fin de mejorar la atención de enfermería, desechar prácticas no apropiadas y ampliar los conocimientos sobre los que se basa el ejercicio profesional.

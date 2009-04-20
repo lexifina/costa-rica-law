@@ -1,0 +1,1 @@
+Artículo 50.—Los profesionales se deben a las personas que requieran su atención. Las personas profesionales en enfermería tendrán una vocación de servicio continuo y permanente a favor del interés o las necesidades de los sujetos de atención.

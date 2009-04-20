@@ -1,0 +1,1 @@
+Artículo 63.—Denuncia de instituciones ante el Colegio. Las personas profesionales en enfermería que conozcan de situaciones que afecten negativamente la intervención de enfermería en las instituciones públicas y privadas, donde laboran, deberán denunciar ante la Fiscalía para que esta tome las medidas oportunas.

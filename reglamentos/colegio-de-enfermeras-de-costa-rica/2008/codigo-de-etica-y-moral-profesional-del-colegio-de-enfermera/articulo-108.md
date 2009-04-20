@@ -1,0 +1,1 @@
+Artículo 108.—Apropiación indebida de los bienes del Colegio. Las personas profesionales en enfermería están obligadas a respetar, proteger, custodiar, cuidar y velar por el respeto de los bienes propiedad del Colegio.

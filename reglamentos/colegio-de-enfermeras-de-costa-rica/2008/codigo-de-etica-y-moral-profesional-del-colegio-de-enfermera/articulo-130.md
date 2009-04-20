@@ -1,0 +1,1 @@
+Artículo 130.—Prescripción del procedimiento. En relación con la prescripción y caducidad del procedimiento se estará a lo dispuesto por la Ley General de la Administración Pública y la jurisprudencia administrativa y constitucional.

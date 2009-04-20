@@ -1,0 +1,4 @@
+Artículo 112.—Comunicación de las sanciones de suspensión al empleador.
+1. Una vez firmes las sanciones impuestas por el Colegio, y siempre que estas se refieran a las contenidas en los incisos 4), 5), 6), 7) del artículo 109 de este Código, la Junta Directiva las comunicará al empleador del sancionado.
+2. El sancionado a quien se le ha suspendido temporalmente la licencia, estará inhabilitado para trabajar durante el período de la sanción.
+3. En ejecución de lo anterior, el empleador suspenderá sin goce de salario al profesional sancionado por el tiempo que indica la resolución; salvo que los Tribunales de Justicia competentes ordenen la suspensión de la ejecución del acto mientras resuelve las acciones, recursos e incidentes planteados en esa vía, por el disciplinado en el ejercicio de su derecho de defensa.

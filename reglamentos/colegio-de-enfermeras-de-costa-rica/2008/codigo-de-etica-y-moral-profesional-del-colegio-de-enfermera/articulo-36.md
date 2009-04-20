@@ -1,0 +1,1 @@
+Artículo 36.—Prohibición de participar en torturas, tratos crueles, humillantes o degradantes. La persona profesional en enfermería, no deberá participar en cualquier forma de tortura, tratos crueles, humillantes, degradantes y en general de cualquier método que permita someter a sesiones de sufrimiento a otro ser humano.

@@ -1,0 +1,1 @@
+Artículo 7º—Concepto de personas profesionales en enfermería para los efectos de este Código. Para los efectos de la aplicación de este Código se entenderá por personas profesionales en enfermería a los profesionales que han demostrado tal condición ante el Colegio, por tanto, se les ha otorgado la licencia y se encuentran inscritos en el registro respectivo.

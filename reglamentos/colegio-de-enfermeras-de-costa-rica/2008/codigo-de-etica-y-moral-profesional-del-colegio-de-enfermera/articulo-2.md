@@ -1,0 +1,1 @@
+Artículo 2º—Objeto regulado por el Código. Este Código regula el ejercicio de la potestad disciplinaria del Colegio, en relación con sus colegiados por infracciones a los deberes deontológicos de la profesión de enfermería.

@@ -1,0 +1,1 @@
+Artículo 77.—Deber de observar los principios de la bioética en investigación. Las personas profesionales en enfermería, al actuar como investigadoras, como asistentes de investigación o como expertas que valora críticamente los resultados de la investigación, deben acatar las normas y principios bioéticos recogidos en este Código y en regulaciones conexas.

@@ -1,0 +1,3 @@
+Artículo 67.—Deber de no inducir a los sujetos de atención a recibir servicios de salud cuando por ello hay un provecho económico personal a costa de la idónea atención.
+1) Prevalece la necesaria, la idónea y la adecuada atención de las personas, sobre el interés económico personal y sobre las relaciones económicas entre colegas o con profesionales afines.
+2) La persona profesional en enfermería se abstendrá de referir sujetos de atención o a sus familiares a servicios de cualquier naturaleza en que medie la percepción directa de un beneficio económico para ella por esa causa, si con ello se transgrede el principio anterior.

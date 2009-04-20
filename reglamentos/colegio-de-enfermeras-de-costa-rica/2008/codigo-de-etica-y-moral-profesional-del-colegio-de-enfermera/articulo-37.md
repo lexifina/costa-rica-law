@@ -1,0 +1,1 @@
+Artículo 37.—Deber de respeto a la vida. Las personas profesionales en enfermería tendrán presente que la vida es un derecho fundamental del ser humano y por lo tanto deberán evitar realizar acciones conducentes a su menoscabo o a su destrucción en cualquiera de las etapas de su desarrollo.

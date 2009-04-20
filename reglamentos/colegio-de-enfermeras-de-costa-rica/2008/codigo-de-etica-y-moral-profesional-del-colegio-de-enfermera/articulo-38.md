@@ -1,0 +1,2 @@
+Artículo 38.—Deberes respecto de personas con enfermedades terminales. Las personas profesionales en enfermería aplicarán el enfoque de cuidado paliativo a las personas con enfermedades terminales y prestarán los cuidados con competencia, comprensión y calidez, necesarios para aliviar el sufrimiento de las personas y sus familiares o para afrontar la muerte, cuando esta ya no pueda evitarse.
+En ningún caso las personas profesionales en enfermería podrán proporcionar medicamentos y tratamientos o suprimir estos a un sujeto de atención, con el fin de producir la muerte.

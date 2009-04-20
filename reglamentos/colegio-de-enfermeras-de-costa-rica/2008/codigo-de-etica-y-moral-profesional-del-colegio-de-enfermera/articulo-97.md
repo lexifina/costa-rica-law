@@ -1,0 +1,1 @@
+Artículo 97.—Prohibición de competencia desleal y publicidad engañosa. Las personas profesionales en enfermería en su práctica independiente no incurrirán en prácticas de competencia desleal, ni realizará publicidad profesional engañosa con la finalidad de acaparar clientes.

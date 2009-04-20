@@ -1,0 +1,5 @@
+Artículo 21.—Principio de legalidad y juridicidad.
+1. El Colegio en el ejercicio de la potestad disciplinaria, actuará sometido a las normas y principios contenidos en los instrumentos internacionales sobre derechos humanos aplicables en Costa Rica, la Constitución y las leyes, así como a las disposiciones reglamentarias vigentes, según la escala jerárquica de las fuentes.
+2. Los principios recogidos en las pautas y declaraciones internacionales sobre ética en investigaciones con seres humanos o bioética, serán parámetros de interpretación de las disposiciones sobre la materia contenidas en este Código.
+3. Los principios recogidos en las normas y declaraciones de organismos internacionales de enfermería serán parámetros de interpretación de las disposiciones sobre la materia contenidas en este Código.
+4. Los órganos encargados de conocer en alzada de los recursos interpuestos por las partes en contra de los actos y resoluciones del inferior, revisarán, en cada caso, la regularidad jurídica de las actuaciones de éste.

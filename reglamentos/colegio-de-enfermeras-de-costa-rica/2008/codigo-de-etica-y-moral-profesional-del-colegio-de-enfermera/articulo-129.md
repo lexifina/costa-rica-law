@@ -1,0 +1,1 @@
+Artículo 129.—Requisitos del acto de notificación. Las notificaciones se regirán por lo que establece la Ley de Notificaciones, Citaciones y otras comunicaciones Judiciales, Nº 7637 de 21 de octubre de 1996 y la normativa conexa.

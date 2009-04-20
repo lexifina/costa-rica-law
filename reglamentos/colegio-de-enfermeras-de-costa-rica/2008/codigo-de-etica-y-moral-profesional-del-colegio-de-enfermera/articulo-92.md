@@ -1,0 +1,1 @@
+Artículo 92.—Deber de confidencialidad. Las personas profesionales en enfermería guardarán la confidencialidad de la información sobre las personas con VIH-SIDA, que hayan obtenido con ocasión del ejercicio profesional o fuera de él; con las limitaciones que la Ley y la Constitución establecen.

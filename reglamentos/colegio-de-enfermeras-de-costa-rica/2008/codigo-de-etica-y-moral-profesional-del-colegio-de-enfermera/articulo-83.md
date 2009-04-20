@@ -1,0 +1,1 @@
+Artículo 83.—Deber de abogar a favor de personas menores de edad con necesidades esenciales. Las personas profesionales en enfermería, dentro del ámbito de su competencia, coordinarán con instituciones públicas y privadas para que los niños, niñas y adolescentes tengan adecuada alimentación, vivienda y educación.

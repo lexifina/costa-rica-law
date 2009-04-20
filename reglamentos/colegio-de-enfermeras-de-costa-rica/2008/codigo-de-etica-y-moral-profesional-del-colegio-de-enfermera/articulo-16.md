@@ -1,0 +1,4 @@
+Artículo 16.—Principio de vinculatoriedad del Colegio y sus profesionales a las normas y principios éticos, jurídicos y técnicos que rigen la enfermería.
+1. El Colegio y las personas profesionales en enfermería actuarán con total apego a las normas, principios y deberes jurídicos, éticos, morales y técnicos aplicables a la profesión. Su conducta no debe infringir las normas, principios y valores que dignifican la profesión o que caracterizan a toda persona de bien.
+2. El régimen disciplinario tutela la regularidad ético-jurídica del ejercicio profesional de la enfermería y la satisfacción con objetividad de los intereses públicos en salud y los derechos de las personas que el ordenamiento jurídico protege.
+3. Las personas profesionales en enfermería, en ningún caso podrán alegar desconocimiento o ignorancia de las leyes y reglamentos aplicables al ejercicio profesional de la enfermería, ni de las normas, principios y deberes éticos y morales que lo regulan.

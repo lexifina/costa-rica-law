@@ -1,0 +1,1 @@
+Artículo 134.—Derecho de defensa de sus derechos e intereses. La persona profesional en enfermería tiene derecho a defender ante el Colegio, ante cualquier otra instancia administrativa o en sede judicial, la dignidad, el honor y el prestigio profesional, cuando los considere lesionados por otra persona profesional de enfermería.

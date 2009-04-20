@@ -1,0 +1,3 @@
+Artículo 44.—Independencia profesional. En la práctica pública y privada, las personas profesionales en enfermería son independientes en la planificación, ejecución, supervisión y evaluación de las funciones propias de su perfil de acuerdo con su nivel de competencia.
+En el ámbito de su competencia profesional no se encuentran subordinadas a ningún otro profesional que no sea de enfermería. Sin embargo estarán obligadas a las coordinaciones interdisciplinarias necesarias para la atención integral.
+Deberán rechazar enérgicamente cualquier tipo de presiones que puedan recibir, con la finalidad de utilizar o manipular sus conocimientos o habilidades en perjuicio de los seres humanos.

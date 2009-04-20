@@ -1,0 +1,1 @@
+Artículo 68.—Deber de no aprovecharse de las relaciones con el sujeto de atención para obtener ventajas ilícitas. Las personales profesionales en enfermería les está prohibido aprovecharse de las relación con el sujeto de atención, para obtener ventajas ilícitas tales como: materiales, emocionales, sexuales, financieras, políticas o cualquier otra similar a estas.

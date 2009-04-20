@@ -1,0 +1,1 @@
+Artículo 46.—Deber de confidencialidad. Secreto profesional. Las personas profesionales en enfermería guardarán en secreto toda la información sobre el sujeto de atención que haya llegado a su conocimiento, con independencia de la fuente.

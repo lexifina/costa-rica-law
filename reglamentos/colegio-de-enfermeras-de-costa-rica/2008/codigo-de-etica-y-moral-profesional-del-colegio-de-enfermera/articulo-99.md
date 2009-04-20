@@ -1,0 +1,1 @@
+Artículo 99.—Prohibición de utilizar su posición de poder para hostigar o acosar sexualmente. Las personas profesionales en enfermería no utilizarán su posición de poder, jerarquía, dirección, supervisión, en servicio o en docencia, para hostigar acosar o solicitar favores de cualquier tipo.

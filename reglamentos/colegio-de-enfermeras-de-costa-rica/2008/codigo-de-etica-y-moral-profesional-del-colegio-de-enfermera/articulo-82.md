@@ -1,0 +1,1 @@
+Artículo 82.—Deber de promover la salud y vida digna en el niño y el adolescente. Las personas profesionales en enfermería promoverán la salud reproductiva y sexual para el bienestar familiar, para que los niños, niñas y adolescentes sean deseados, protegidos y cuidados de forma que puedan desarrollarse con salud y dignidad.

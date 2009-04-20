@@ -1,0 +1,1 @@
+Artículo 42.—Deber de calidad científico-técnica en el ejercicio de la profesión. Las personas profesionales en enfermería deben aplicar los conocimientos científicos y técnicos en forma apropiada y de acuerdo a las circunstancias en beneficio del sujeto de atención. Actuarán con la mayor diligencia, pericia y prudencia que el caso requiera.

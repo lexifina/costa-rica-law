@@ -1,0 +1,1 @@
+Artículo 64.—Prohibición de asociarse con personas para ejercer ilegalmente la profesión. La persona profesional en enfermería no debe asociarse, en ningún caso, con personas que ejercen ilegalmente la enfermería, o con profesionales, instituciones o establecimientos de salud donde se practiquen actos ilícitos, que sean de su conocimiento.

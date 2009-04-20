@@ -1,0 +1,2 @@
+Artículo 69.—Deber de no utilizar recursos de instituciones públicas obteniendo ventajas personales. Las personas profesionales en enfermería no deben utilizar los recursos de las instituciones públicas para ejecutar procedimientos o prestar servicios en la práctica pública o privada, con la finalidad de obtener ventajas personales.
+Las personas profesionales en enfermería no cobrarán por los servicios que presten en las instituciones públicas de salud a los sujetos de atención, salvo que el cobro esté debidamente autorizado y reglamentado.

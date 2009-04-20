@@ -1,0 +1,1 @@
+Artículo 88.—Deber de inclusión en los programas de educación la atención integral del adulto mayor. Las personas profesionales en enfermería tanto en servicio como en docencia promoverán la inclusión de contenidos relacionados con la atención integral a las personas adultas mayores, en los planes de formación de recursos humanos en enfermería.

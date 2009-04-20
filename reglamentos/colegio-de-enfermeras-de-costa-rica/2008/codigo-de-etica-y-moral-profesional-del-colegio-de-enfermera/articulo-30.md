@@ -1,0 +1,1 @@
+Artículo 30.—Deber de información a la comunidad. Las personas profesionales en enfermería deben mantenerse informados y comunicar a la comunidad, sobre las medidas preventivas contra los factores de riesgo ambientales, así como acerca de la conservación de los recursos naturales.

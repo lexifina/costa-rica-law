@@ -1,0 +1,2 @@
+Artículo 98.—Prohibición de asumir un cliente en la práctica privada sin consentimiento previo del profesional que lo atiende. Las personas profesionales en enfermería en la práctica independiente, no aceptarán la atención de un cliente que está a cargo de otro colega, sin el previo consentimiento de este, excepto por una causa muy justificada y en caso de urgencia.
+En la contratación de servicios profesionales entre colegas se respetará la legislación vigente en materia de salarios.

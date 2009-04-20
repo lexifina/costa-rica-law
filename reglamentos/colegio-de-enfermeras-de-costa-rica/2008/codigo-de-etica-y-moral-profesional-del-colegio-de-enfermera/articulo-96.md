@@ -1,0 +1,1 @@
+Artículo 96.—Deber de generosidad intelectual. Las personas profesionales en enfermería deberán compartir con los miembros del equipo de enfermería los conocimientos y experiencias que puedan contribuir a la mejor prestación del servicio y al fortalecimiento de la profesión.

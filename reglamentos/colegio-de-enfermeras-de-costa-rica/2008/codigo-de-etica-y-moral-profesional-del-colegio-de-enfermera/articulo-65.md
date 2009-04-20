@@ -1,0 +1,1 @@
+Artículo 65.—Prohibición de prestar su código profesional. Las personas profesionales en enfermería no deben prestar su nombre, código, licencia profesional o títulos a otras personas para que ejerzan la enfermería; ni deben firmar ningún registro o reporte de actos de enfermería que no hayan ejecutado o supervisado.

@@ -1,0 +1,1 @@
+Artículo 107.—Prohibición de obstaculizar o impedir el ejercicio legítimo de las competencias del Colegio. Las personas profesionales en enfermería no obstaculizaran desde ninguna posición que ostente, el ejercicio legítimo de las atribuciones y potestades de los órganos competentes del Colegio.

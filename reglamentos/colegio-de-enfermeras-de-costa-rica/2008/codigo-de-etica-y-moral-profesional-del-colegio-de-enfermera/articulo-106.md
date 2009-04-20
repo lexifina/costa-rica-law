@@ -1,0 +1,1 @@
+Artículo 106.—Deber de respeto al prestigio del Colegio. Las personas profesionales en enfermería tienen el deber de velar y mantener el prestigio profesional del Colegio, que es la institución corporativa que los representa. Los miembros del Colegio deben constituir una sociedad respetada y respetable.

@@ -1,0 +1,1 @@
+Artículo 27.—Principio de beneficencia. Este principio obliga a las personas profesionales en enfermería a procurar el mayor bien posible para la persona sujeto de atención y el de sopesar, en el caso concreto, los beneficios y los riesgos del procedimiento, siempre que su aplicación dependa exclusivamente del ámbito propio de su competencia.

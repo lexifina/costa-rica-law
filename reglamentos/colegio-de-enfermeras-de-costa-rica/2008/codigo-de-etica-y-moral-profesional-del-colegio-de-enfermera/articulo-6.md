@@ -1,0 +1,3 @@
+Artículo 6º—Ámbito material. Límites.
+1. El presente régimen disciplinario sólo rige y resulta de aplicación para todas aquellas conductas que infrinjan las reglas de este Código, los principios éticos de la deontología profesional de enfermería y los deberes y prohibiciones establecidas por el ordenamiento jurídico relacionados con el ejercicio de la profesión; siempre que tales conductas hayan sido cometidas en el ejercicio profesional o con ocasión o en conexión con éste.
+2. No podrá imponerse sanción disciplinaria alguna, con fundamento en esta potestad, a profesionales de la enfermería que se encuentran en ejercicio de funciones distintas a la profesión de enfermería y cuyas infracciones guardan relación con la actividad que desempeñan.

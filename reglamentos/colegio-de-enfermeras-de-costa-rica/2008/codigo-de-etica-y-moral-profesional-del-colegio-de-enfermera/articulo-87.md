@@ -1,0 +1,2 @@
+Artículo 87.—Derecho a la atención con calidad. Las personas profesionales en enfermería, como miembro del equipo interdisciplinario brindarán atención de calidad: oportuna, libre de riesgos, continua, integral, cálida, pertinente y personalizada.
+Promoverá la formulación de políticas de atención de calidad para las personas adultas mayores y fomentará la participación intersectorial en la gestión de salud a las personas adultas mayores.

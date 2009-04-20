@@ -1,0 +1,1 @@
+Artículo 104.—Deber de solicitar colaboración para mejorar la calidad de la atención. Las personas profesionales en enfermería solicitaran, siempre que sea necesario, la colaboración de los miembros de otras profesiones de salud, para asegurar al público un servicio integral y de calidad.

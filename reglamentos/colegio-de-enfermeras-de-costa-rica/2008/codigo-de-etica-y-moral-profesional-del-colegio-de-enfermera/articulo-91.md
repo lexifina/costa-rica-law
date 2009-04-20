@@ -1,0 +1,1 @@
+Artículo 91.—Deber de informar sobre el VIH-SIDA. Las personas profesionales en enfermería deberán brindar información sobre la historia natural del VIH-SIDA. Asimismo informará a las personas con VIH-SIDA sobre el diagnóstico y tratamiento de su enfermedad y las consecuencias de su comportamiento.
