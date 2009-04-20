@@ -1,1 +1,0 @@
-Artículo 29.—En caso de bienes muebles con derechos prioritarios a favor de terceros y otros que presenten obstáculos que dificulten libremente su venta en el mercado la Comisión de Venta de Bienes podrá autorizar su venta sin sujeción a base.

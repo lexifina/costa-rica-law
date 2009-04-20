@@ -1,1 +1,0 @@
-Artículo 15.—Inscrito el bien a nombre de la Institución, la Unidad de Bienes Temporales ordenará dentro de tercero día la elaboración del respectivo avalúo, mismo que deberá ser rendido dentro del plazo máximo de 8 días hábiles.

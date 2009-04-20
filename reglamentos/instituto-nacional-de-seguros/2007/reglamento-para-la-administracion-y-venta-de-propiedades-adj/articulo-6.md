@@ -1,1 +1,0 @@
-Artículo 6º—Cualquier miembro de la Comisión tendrá la facultad de dejar constancia en actas de su razonamiento y decisión, cuando discrepe de las resoluciones tomadas en el seno de la Comisión de Venta de Bienes.

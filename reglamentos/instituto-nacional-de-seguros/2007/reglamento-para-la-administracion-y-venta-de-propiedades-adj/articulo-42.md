@@ -1,1 +1,0 @@
-Artículo 42.—La Unidad de Bienes Temporales, mantendrá un expediente con toda la documentación que evidencie el proceso de gestión y liquidación de los bienes y de la aplicación y liquidación de las utilidades netas producto de la explotación y venta de bienes adjudicados.

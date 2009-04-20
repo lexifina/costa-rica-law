@@ -1,1 +1,0 @@
-Artículo 14.—El monto de las compras de bienes y servicios, que el Instituto realice para la administración de los bienes adquiridos en pago de obligaciones hipotecarias o dación en pago, será cargado al monto de venta de la obligación que origina esa administración.

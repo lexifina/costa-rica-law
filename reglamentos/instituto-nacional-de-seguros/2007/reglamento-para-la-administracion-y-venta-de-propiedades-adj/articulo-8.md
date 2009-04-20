@@ -1,1 +1,0 @@
-Artículo 8º—A solicitud de cualquiera de sus miembros pueden revisarse los acuerdos adoptados por la Comisión de Venta de Bienes. Para ello se enviará solicitud expresa a la Unidad de Bienes Temporales, la que se encargará de transmitirlo a este órgano. La Comisión revisará los argumentos y decidirá lo correspondiente.
