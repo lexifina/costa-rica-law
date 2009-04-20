@@ -1,0 +1,1 @@
+Artículo 5º—Deróguense la División 12 y sus respectivos Grupos y el Grupo 233 del Anexo 1 del Decreto Ejecutivo Nº 34728-S del 28 de mayo del 2008, publicado en el Alcance Nº 33 a La Gaceta Nº 174 de 9 de setiembre del 2008 “Reglamento General para el otorgamiento de Permisos de Funcionamiento del Ministerio de Salud”.
