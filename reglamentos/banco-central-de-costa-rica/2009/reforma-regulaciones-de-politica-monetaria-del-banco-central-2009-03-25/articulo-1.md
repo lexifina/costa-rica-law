@@ -1,0 +1,40 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 5 del acta de la sesión 5418-2009, celebrada el 25 de marzo del 2009,
+considerando que:
+i. El Banco Central de Costa Rica se encuentra en una fase de transición hacia una gestión integral de sus pasivos, que define la estrategia y el marco general de acción a seguir por la Administración y que favorecerá una gestión coordinada y consistente de su endeudamiento.
+ii. La adopción de un esquema monetario basado en metas de inflación sugiere el uso de la tasa de interés como instrumento de política monetaria.
+iii. La intervención activa del Banco Central en el mercado de dinero es un elemento clave para la ejecución de la política monetaria, en un contexto donde la tasa de interés de muy corto plazo es el principal instrumento de política monetaria.
+iv. La apertura a un mayor número de participantes en la subasta de Bonos de Estabilización puede reflejarse en mejores condiciones financieras para la colocación de la deuda del Banco Central.
+v. Ante la entrada en funcionamiento del Mercado Integrado de Liquidez se deben establecer las pautas que normarán la intervención del Banco Central de Costa Rica en dicho mercado de negociación de dinero.
+dispuso tomar los siguientes acuerdos:
+1. Modificar el Título IV de las “Regulaciones de Política Monetaria”, de tal forma que el texto vigente sea sustituido y en adelante se lea de la siguiente forma:
+“REGULACIONES DE POLÍTICA MONETARIA
+TÍTULO IV
+Operaciones de Mercado Abierto
+1. Definición
+Las operaciones de mercado abierto (OMA) son un instrumento de control monetario utilizado por el Banco Central de Costa Rica, con la finalidad de cumplir con los objetivos que el artículo 2 de su Ley Orgánica establece. Estas operaciones consisten en la compra y venta de valores por parte del Banco Central de Costa Rica.
+2. Lineamientos generales
+A. El Banco Central de Costa Rica, podrá realizar operaciones de mercado abierto mediante captaciones o emisión de títulos propios. También, podrá realizar operaciones de mercado abierto en el mercado secundario de valores, mediante la compra o venta de instrumentos financieros de primera clase, de absoluta seguridad y liquidez y de transacción normal y corriente en el mercado. Para ello podrá realizar operaciones de compra, venta y suministro de liquidez con valores propios o del Gobierno, los cuales también podrán ser utilizados como garantía en operaciones de compra o venta a plazo.
+B. Las operaciones de mercado abierto podrán realizarse en moneda nacional o en moneda extranjera.
+C. Las operaciones de mercado abierto podrán ser transacciones a la vista o a plazo. Asimismo, podrán realizarse mediante ventanilla, subastas o, cuando se requiera de una intervención más rápida, el Banco Central de Costa Rica podrá efectuar negociaciones directas.
+D. Se define la Tasa de Política Monetaria como la tasa de interés que cobra el Banco Central de Costa Rica en sus operaciones activas (préstamos) a un día plazo en el Mercado Integrado de Liquidez (MIL), la cual será determinada por la Junta Directiva del Banco Central de Costa Rica.
+La Junta Directiva determinará, también, la tasa de interés de captación a un día plazo.
+Las tasas de interés brutas para las operaciones del mercado abierto a plazos superiores a un día deberán ser las necesarias para captar o inyectar los montos requeridos. Para este fin, la Administración contará con un margen de variación de ±200 puntos base que utilizará de acuerdo a la metodología establecida por el Comité de Gestión de Pasivos y aprobada por la Junta Directiva del Banco Central de costa Rica.
+E. Los títulos valores negociados por medio de operaciones de mercado abierto podrán ser vendidos o comprados a un valor diferente del facial, esto es con premio o con descuento, siempre y cuando el rendimiento de la operación se ajuste a los límites que en materia de tasas de interés dicte la Junta Directiva del Banco Central de Costa Rica.
+F. La Gerencia velará porque la información pertinente acerca de las operaciones de mercado abierto, realizadas por el Banco Central, sea canalizada de manera oportuna y eficaz al público.
+3. Subastas
+A. Cualquier participante que cumpla con los requisitos mínimos que establezca la División de Gestión de Activos y Pasivos tendrá acceso a la subasta de Bonos de Estabilización Monetaria.
+B Los procedimientos y las condiciones operativas para recibir las ofertas de adquisición de títulos bajo este sistema serán establecidos por la Administración del Banco Central de Costa Rica y comunicados a los participantes por los medios disponibles.
+C. La Institución podrá recibir ofertas no competitivas en las subastas de títulos. Se entiende por oferta no competitiva aquella donde no se indique el rendimiento deseado y el oferente esté dispuesto a aceptar una tasa determinada por el Banco Central de Costa Rica. Dicha tasa de interés se establecerá por medio de las metodologías definidas por el Comité de Gestión de Pasivos, aprobadas por la Junta Directiva del Banco Central de Costa Rica y comunicadas debidamente al medio.
+4. Operaciones para el control de liquidez
+A. El Banco Central de Costa Rica participará en el MIL con el objetivo de estabilizar la tasa de interés de corto plazo. La intervención del BCCR en este mercado se dará en “horario bancario” y se hará mediante operaciones cuyo plazo no podrá exceder los 14 días naturales.
+B. El Banco Central de Costa Rica participará en el MIL otorgando crédito mediante operaciones colateralizadas, solamente con las entidades financieras supervisadas y reguladas por la SUGEF, SUGEVAL, SUPEN y SUGESE. Para ello únicamente podrá utilizar como garantía, valores emitidos por el Banco Central de Costa Rica o por el Gobierno que estén en circulación y que provengan del mercado secundario.
+El Banco Central de Costa Rica también podrá realizar operaciones de contracción de liquidez en el MIL con estas entidades y con cualquier otra entidad participante que considere conveniente la Junta Directiva del Banco Central de Costa Rica.
+C. Las garantías aceptadas por el Banco Central de Costa Rica en las operaciones de crédito que se realicen en el MIL deberán regirse por las normas de dicho mercado.
+D. La coordinación de las operaciones de contracción e inyección de liquidez estará a cargo del Comité de Operaciones de Afinamiento de la Política Monetaria.
+E. El volumen transado por el Banco Central de Costa Rica en el MIL estará determinado por las condiciones de liquidez según lo establecido por el Ejercicio Diario de Seguimiento de Liquidez de la División Económica. A su vez, el saldo de estas operaciones deberá estar considerado dentro de los límites establecidos para las operaciones activas del Banco Central con los bancos comerciales.
+F. Las tasas de interés de referencia para las operaciones del Banco Central en el MIL las determinará la Junta Directiva del Banco Central de Costa Rica.
+G. La liquidación de las operaciones se realizará de acuerdo con el procedimiento establecido para tales efectos en la normativa del MIL.
+H. La custodia de los valores objeto de las operaciones colateralizadas la realizará un ente debidamente autorizado por la Superintendencia General de Valores, siendo suficiente los reportes emitidos por el custodio para efectos de registro.
+5. La intervención del Banco Central de Costa Rica en el MIL estará a cargo del Departamento de Operaciones Nacionales de la División de Gestión de Activos y Pasivos, bajo los parámetros definidos por el Comité de Gestión de Pasivos y las condiciones definidas en el Ejercicio Diario de Seguimiento de Liquidez
+El Departamento de Análisis y Asesoría Económica de la División Económica presentará, ante la comisión mencionada en el literal D de esta sección, informes semanales acerca de la situación de liquidez de la economía y hará las recomendaciones técnicas del caso.”

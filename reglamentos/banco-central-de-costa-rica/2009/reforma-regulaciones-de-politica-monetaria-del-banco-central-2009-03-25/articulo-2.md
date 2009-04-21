@@ -1,0 +1,2 @@
+2. Modificar el artículo 11 de las “Políticas Generales para la Administración de Pasivos” para que en adelante se lea de la siguiente forma:
+“Artículo 11.—Mercado de Negociación. Dada la naturaleza del Ejercicio Diario de Seguimiento de Liquidez (EDSL), al que se refiere el artículo 14 de estas disposiciones, el mercado objetivo para el control de la liquidez que utilizará el BCCR será el Mercado Integrado de Liquidez, en el cual las entidades financieras del país concentran la gestión de su liquidez.”
