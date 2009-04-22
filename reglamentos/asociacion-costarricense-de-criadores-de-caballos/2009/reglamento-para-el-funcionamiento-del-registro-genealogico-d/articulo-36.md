@@ -1,0 +1,1 @@
+Artículo 36.—Podrán ser considerados asimismo reproductores de élite, aquellos animales, machos y hembras, que aunque no estén incluidos en el registro de reproductores calificados, hayan tenido descendientes con destacados méritos deportivos en el marco del plan de mejora de la raza.

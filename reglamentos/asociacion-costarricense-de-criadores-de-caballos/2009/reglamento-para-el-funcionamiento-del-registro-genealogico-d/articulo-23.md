@@ -1,0 +1,1 @@
+Artículo 23.—Trascurrido el plazo indicado sólo se aceptarán solicitudes de inscripción siempre que se justifiquen las causas de la demora. La aceptación de una solicitud extemporánea quedará a juicio del Comité del Registro.

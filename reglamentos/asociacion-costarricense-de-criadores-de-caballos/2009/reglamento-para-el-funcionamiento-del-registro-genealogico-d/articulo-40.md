@@ -1,0 +1,1 @@
+Artículo 40.—En el caso de muerte de un producto se procederá a dar la baja del animal, para lo cual su propietario deberá remitir a la Asociación el Pasaporte Internacional y su correspondiente Certificado de Registro para su anulación. No debe olvidad incluir esta circunstancia en su Estado Anual de Bajas.

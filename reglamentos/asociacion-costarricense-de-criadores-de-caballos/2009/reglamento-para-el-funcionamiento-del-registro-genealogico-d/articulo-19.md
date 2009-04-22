@@ -1,0 +1,1 @@
+Artículo 19.—Los criadores o administradores de los establecimientos de cría están obligados a presentar a los inspectores los animales que vayan a ser revisados y todos los datos que aquellos requieran.

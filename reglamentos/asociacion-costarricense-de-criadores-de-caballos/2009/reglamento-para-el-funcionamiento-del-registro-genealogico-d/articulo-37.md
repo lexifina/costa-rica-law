@@ -1,0 +1,1 @@
+Artículo 37.—Serán considerados reproductores de élite aquellos ejemplares sometidos a una evaluación genética que en marco del esquema de selección aprobado para esta raza por el Ministerio de Agricultura. Pesca y Alimentación de España demuestren ser mejorantes y transmitan unas óptimas cualidades a sus descendientes.

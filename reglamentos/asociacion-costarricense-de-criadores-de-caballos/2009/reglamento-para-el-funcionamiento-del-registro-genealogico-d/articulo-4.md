@@ -1,0 +1,1 @@
+Artículo 4º—El Comité de Registro una vez integrado, elegirá de entre sus miembros un Presidente, un Vicepresidente que actuará en ausencia del primero y un Jefe de Registro. El quórum para las reuniones será de tres miembros y se adoptarán los acuerdos por mayoría simple.

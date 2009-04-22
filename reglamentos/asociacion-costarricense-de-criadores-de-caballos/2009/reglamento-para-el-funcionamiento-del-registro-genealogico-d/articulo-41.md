@@ -1,0 +1,1 @@
+Artículo 41.—El cambio de nombre de un producto de Pura Raza Española es posibe. Deberá de ser solicitado a la Asociación y la identificación del animal y verificación de su reseña será realizada por el personal del Registro/Matrícula de España durante la visita de la Comisión de Valoración Básica.

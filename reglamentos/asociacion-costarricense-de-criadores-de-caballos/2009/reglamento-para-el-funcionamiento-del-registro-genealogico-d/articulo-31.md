@@ -1,0 +1,1 @@
+Artículo 31.—La Comisión de Valoración Básica estará compuesta por el Presidente y el Jefe del Registro, por un delegado del Registro/Matrícula de España y por un veterinario debidamente autorizado por la Asociación.

@@ -1,0 +1,1 @@
+Artículo 46.—Todo lo concerniente al Registro, la interpretación de este reglamento y lo no estipulado en él, será resuelto por el Comité de Registro mediante un acuerdo simple, y sus resoluciones deberán de ser notificadas a los usuarios con previa notificación del Ministerio de Producción.

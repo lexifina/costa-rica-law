@@ -1,0 +1,1 @@
+Artículo 9º—El Comité de Registro deberá de llevar un listado de propietarios y criadores de animales de Pura Raza Española para lo cual las personas físicas y jurídicas que deseen ser reconocidas como tales, deben aportar la documentación que les solicite el Comité.

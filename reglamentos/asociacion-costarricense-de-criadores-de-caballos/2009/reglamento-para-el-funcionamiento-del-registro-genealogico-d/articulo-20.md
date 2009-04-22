@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las Inscripciones
+Artículo 20.—Para obtener la documentación de un producto Pura Raza Española dos diferentes procesos tienen lugar. Primero el de su identificación y segundo el de su inscripción en el libro genealógico de la raza. El primero es realizado por el personal autorizado sobre el propio animal que se pretende inscribir, consistente fundamentalmente en su reseñamiento, implantación de un microchip, toma de muestra biológica para determinación del ADN y control de filiación. La inscripción por lo tanto sería el resultado deseado tras el proceso de identificación y filiación.

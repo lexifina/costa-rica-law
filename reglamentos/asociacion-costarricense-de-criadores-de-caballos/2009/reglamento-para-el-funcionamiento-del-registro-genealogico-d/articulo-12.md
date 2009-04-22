@@ -1,0 +1,1 @@
+Artículo 12.—Los ganaderos que marquen sus productos con el hierro de su propiedad y quieran que esta marca sea reconocida y consignada en los libros del Registro deberán facilitar el diseño del mismo.
