@@ -1,5 +1,4 @@
-TITULO IV
-RECURSO DE CASACION
 ARTICULO 443.-
-Motivos El recurso de casación procederá cuando la resolución inobservó o aplicó erróneamente un precepto legal.
-Cuando el precepto legal que se invoque como inobservado o erróneamente aplicado constituya un defecto del procedimiento, el recurso sólo será admisible si el interesado ha reclamado oportunamente su saneamiento o ha hecho protesta de recurrir en casación, salvo en los casos de defectos absolutos y los producidos después de clausurado el debate.
+Efecto extensivo Cuando existan coimputados el recurso interpuesto por uno de ellos favorecerá también a los demás, a menos que se base en motivos exclusivamente personales.
+También favorecerá al imputado el recurso del demandado civil, en cuanto incida en la responsabilidad penal.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 428 al 443 actual)

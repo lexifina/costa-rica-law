@@ -1,3 +1,4 @@
 ARTICULO 448.-
-Audiencia oral Si al interponer el recurso, al contestarlo o al adherirse a él, alguno de los interesados ha ofrecido prueba que deba ser recibida en forma oral o considera necesario exponer oralmente sus alegaciones, o bien, cuando el tribunal la estime útil, este fijará una audiencia oral dentro de los quince días de recibidas las actuaciones.
-Para celebrar la audiencia y la recepción de la prueba, regirán las reglas dispuestas en el recurso de apelación.
+Rectificación
+Los errores de derecho en la fundamentación de la sentencia o resolución impugnadas, que no hayan influido en la parte resolutiva, no la anularán; pero serán corregidos, así como los errores materiales en la designación o el cómputo de las penas.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 433 al 448 actual)

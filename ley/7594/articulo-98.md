@@ -1,3 +1,4 @@
-ARTICULO 98.-
-Facultades policiales La policía no podrá recibirle declaración al imputado. En caso de que manifieste su deseo de declarar, deberá comunicar ese hecho al Ministerio Público para que se reciban sus manifestaciones con las formalidades previstas por la ley.
-Podrá entrevistarlo únicamente con fines de investigación y para constatar su identidad, cuando no esté suficientemente individualizado.
+Artículo 98.- Facultades policiales
+Durante las primeras seis horas, desde su aprehensión o detención, y en presencia de su defensor de confianza y/o defensor público que se le asigne, los agentes del OIJ, en cumplimiento de sus funciones, y respetando las garantías constitucionales y los derechos procesales de los detenidos, podrán constatar su identidad e interrogarlo con fines investigativos.
+Si en un momento posterior, al indicado en el primer párrafo de este artículo, el detenido manifiesta su deseo de declarar o ampliar sus manifestaciones, deberá comunicarse ese hecho al Ministerio Público para que estas también se reciban con las formalidades previstas en la ley.
+(Así reformado por el artículo 16 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009)

@@ -1,4 +1,5 @@
-ARTICULO 298.-
-Archivo fiscal Si no se ha podido individualizar al imputado, el Ministerio Público podrá disponer por sí mismo, fundadamente, el archivo de las actuaciones.
-La decisión se comunicará a la víctima de domicilio conocido que, al formular la denuncia, haya pedido ser informada, quien podrá objetar el archivo ante el tribunal del procedimiento preparatorio e indicará las pruebas que permitan individualizar al imputado. Si el juez admite la objeción ordenará que prosiga la investigación.
-El archivo fiscal no impide que se reabra la investigación si con posterioridad aparecen datos que permitan identificar al imputado.
+Artículo 298.-Archivo fiscal
+Si no se ha podido individualizar al imputado, el Ministerio Público podrá disponer, por sí mismo, fundadamente, el archivo de las actuaciones. La decisión se le comunicará a la víctima de domicilio conocido, quien podrá objetar el archivo ante el tribunal del procedimiento preparatorio e indicará las pruebas que permitan individualizar al imputado. Si el juez admite la objeción, ordenará que prosiga la investigación.
+El archivo fiscal no impide que la investigación se reabra si, con posterioridad, aparecen datos que permitan identificar al imputado.
+La víctima también podrá objetar ante el tribunal del procedimiento preparatorio, los errores, las omisiones o los retrasos que estime han ocurrido en la investigación de los hechos en su perjuicio. El juez dará audiencia tanto al Ministerio Público como a la defensa, por el término de cinco días, y resolverá lo que corresponda. Si la protesta se relaciona con la no evacuación de una prueba, el juez dispondrá lo pertinente, según el procedimiento regulado en el artículo 292 de este Código. La víctima podrá apelar la decisión.
+(Así reformado por el artículo 16 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)
