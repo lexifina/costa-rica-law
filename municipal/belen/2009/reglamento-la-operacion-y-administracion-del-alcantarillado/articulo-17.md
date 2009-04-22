@@ -1,0 +1,1 @@
+Artículo 17.—Memoria de diseño: Toda planta de tratamiento instalada en el cantón, debe contar con una memoria de diseño, de la cual, es necesario presentar copia digital ante la Dirección de Servicios Públicos, Unidad del Alcantarillado Sanitario, de esta Municipalidad.

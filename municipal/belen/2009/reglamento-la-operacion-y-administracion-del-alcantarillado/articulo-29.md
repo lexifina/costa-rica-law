@@ -1,0 +1,1 @@
+Artículo 29.—Aplicación obligatoria de los Índices de Fragilidad Ambiental: Para la aplicación del presente Reglamento, deberá respetarse los alcances contenidos en el Estudio de los Índices de Fragilidad Ambiental y en el Plan Regulador del Cantón de Belén.
