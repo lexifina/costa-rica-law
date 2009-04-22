@@ -1,3 +1,4 @@
 ARTICULO 445.-
-Interposición El recurso de casación será interpuesto ante el tribunal que dictó la resolución, dentro del plazo de quince días de notificada, mediante escrito fundado, en el que se citarán, con claridad, las disposiciones legales que se consideren inobservadas o erróneamente aplicadas y se expresará cuál es la pretensión.
-Deberá indicarse, por separado cada motivo con sus fundamentos. Fuera de esta oportunidad no podrá aducirse otro motivo.
+Desistimiento El Ministerio Público podrá desistir de sus recursos, en dictamen fundado, aun si los hubiera interpuesto un representante de grado inferior.
+Las partes podrán desistir de los recursos deducidos por ellas o sus defensores, sin perjudicar a los demás recurrentes o adherentes, pero cargarán con las costas. Para desistir de un recurso, el defensor deberá tener mandato expreso del imputado.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 430 al 445 actual)

@@ -1,6 +1,4 @@
 ARTICULO 439.-
-Emplazamiento y elevación Presentado el recurso, el tribunal emplazará a las otras partes para que en el plazo de tres días contesten el recurso y, en su caso, ofrezcan prueba.
-Si se producen adhesiones durante el emplazamiento, correrá traslado a las otras partes para que contesten la adhesión en el mismo plazo.
-Luego, sin más trámite e inmediatamente, remitirá las actuaciones al tribunal de alzada para que resuelva.
-Sólo se remitirá copia de las actuaciones pertinentes o se formará un legajo especial, para no demorar el trámite del procedimiento.
-Excepcionalmente, el tribunal de alzada podrá solicitar otras copias o las actuaciones originales. Ello no implicará la paralización del procedimiento.
+Agravio Las partes sólo podrán impugnar las decisiones judiciales que les causen agravio, siempre que no hayan contribuido a provocarlo. El recurso deberá sustentarse en el reproche de los defectos que causan la afectación.
+El imputado podrá impugnar una decisión judicial aunque haya contribuido a provocar el vicio, en los casos en que se lesionen disposiciones constitucionales o legales sobre su intervención, asistencia y representación.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 424 al 439 actual)

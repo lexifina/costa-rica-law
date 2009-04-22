@@ -1,3 +1,3 @@
-ARTICULO 425.-
-Adhesión Quien tenga derecho a recurrir podrá adherirse, dentro del período de emplazamiento, al recurso interpuesto por cualquiera de las partes, siempre que cumpla con los demás requisitos formales de interposición.
-Sobre la adhesión se dará audiencia a las demás partes por el término de tres días, antes de remitir las actuaciones al tribunal de alzada.
+Artículo 425.-Nombramiento de la defensa técnica
+Desde el primer momento en que se obtenga la condición de sospechoso, el fiscal procederá a indicarle que puede nombrar a un defensor de su confianza. En caso de negativa de la persona sospechosa o si no comparece su defensor particular en el término de veinticuatro horas, se procederá a nombrar, de oficio, a un defensor público para que lo asista en el procedimiento. Una vez nombrado el defensor de la persona imputada, se le brindará, por parte del fiscal, un término de veinticuatro horas, para que prepare su defensa para tal efecto. El Ministerio Público, de inmediato, deberá rendir un breve informe oral acerca de la acusación y de la prueba existente.
+(Así adicionado por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)

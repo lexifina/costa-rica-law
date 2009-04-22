@@ -1,3 +1,0 @@
-Artículo 449 bis.—Examen del Tribunal de Casación. El Tribunal de Casación apreciará la procedencia de los reclamos invocados en el recurso y sus fundamentos, examinando las actuaciones y los registros de la audiencia, de modo que pueda valorar la forma en que los jueces de juicio apreciaron la prueba y fundamentaron su decisión. De no tener registros suficientes para realizar esa apreciación, podrá reproducir en casación la prueba oral del juicio que, en su criterio, sea necesaria para examinar la procedencia del reclamo, y la valorará en relación con el resto de las actuaciones.
-De igual manera, podrá valorar en forma directa la prueba que se haya introducido por escrito al juicio.
-(Así adicionado por el artículo 3° de la Ley N° 8503 del 28 de abril de 2006)

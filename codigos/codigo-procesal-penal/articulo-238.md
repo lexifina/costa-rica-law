@@ -1,3 +1,7 @@
-ARTICULO 238.-
-Aplicación de la prisión preventiva La prisión preventiva sólo podrá ser acordada conforme a las disposiciones de este Código, mediante resolución judicial fundada, en los límites indispensables para asegurar el descubrimiento de la verdad y la actuación de la ley. Se ejecutará del modo que perjudique lo menos posible a los afectados.
-La privación de libertad durante el procedimiento deberá ser proporcionada a la pena que pueda imponerse en el caso.
+Artículo 238.- Aplicación de la prisión preventiva
+La prisión preventiva solo podrá ser acordada conforme a las disposiciones de este Código, mediante resolución judicial fundada, en los límites indispensables para asegurar el descubrimiento de la verdad y la actuación de la Ley. Cuando el Ministerio Público estime que procede la prisión preventiva, solicitará al juez correspondiente que convoque a una audiencia oral, en la que se discutirá sobre la procedencia o no de esa medida. Si la persona se encontrare detenida, la solicitud de audiencia deberá pedirse dentro de las veinticuatro horas, contadas desde que el encausado se puso a la orden del juez; la audiencia deberá celebrarse dentro de las cuarenta y ocho horas y la resolución deberá ser dictada dentro de ese plazo.
+Corresponde al Ministerio Público y la defensa del imputado, aportar la prueba en la que fundamente sus peticiones.
+Terminada la audiencia, el juez resolverá sobre lo solicitado. Si contare con medios de grabación, el respaldo de ellos será suficiente para acreditar la existencia de la celebración de la audiencia y de lo resuelto.
+Se ejecutará del modo que perjudique lo menos posible a los afectados.
+La privación de libertad, durante el procedimiento, deberá ser proporcional a la pena que pueda imponerse en el caso.
+(Así reformado por el artículo 16 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)

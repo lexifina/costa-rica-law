@@ -1,2 +1,4 @@
 ARTICULO 455.-
-Suspensión de medidas administrativas Durante el trámite de los incidentes, el tribunal de ejecución de la pena podrá ordenar la suspensión provisional de las medidas de la administración penitenciaria que sean impugnadas en el procedimiento.
+Trámite
+Recibidas las actuaciones el tribunal de alzada, dentro de los cinco días siguientes, decidirá la admisibilidad del recurso y la procedencia de la cuestión planteada; todo en una sola resolución.
+(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 440 al 455 actual).
