@@ -1,0 +1,1 @@
+Artículo 19.—Todo usuario, ya sea residencial, comercial o gobierno, tendrá la obligación de separar los desechos que genere en desechos reciclables y no reciclables. Adicionalmente, deberá separar los desechos reciclables como lo son cartón, papel, plástico, vidrio y latas, de acuerdo a las indicaciones que para tal efecto dará a conocer la Municipalidad.

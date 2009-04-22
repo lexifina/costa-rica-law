@@ -1,0 +1,1 @@
+Artículo 7º—En atención a esta responsabilidad, la Municipalidad deberá regular a través del presente Reglamento, procedimientos de clasificación, recolección, transporte y disposición final y estructura tarifaria para los desechos ordinarios.

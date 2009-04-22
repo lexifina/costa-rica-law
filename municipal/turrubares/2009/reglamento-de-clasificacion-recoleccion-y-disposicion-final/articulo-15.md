@@ -1,0 +1,1 @@
+Artículo 15.—Para variar las rutas, o la frecuencia del servicio previo estudio de la unidad técnica de manejo de desechos sólidos, deberá comunicarse a los usuarios con la antelación suficiente, mediante volantes, carteles, megafoneo, y otros.

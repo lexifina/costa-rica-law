@@ -1,0 +1,1 @@
+Artículo 43.—Se considera como tarifa comercial , la tasa a aplicar a todo aquel patentado que cumpla con lo dispuesto en el artículo 41 inciso b del presente reglamento y en donde el promedio estimado en generación de basura sea superior a 37.50 kilogramos por semana. En la tarifa comercial el factor de ponderación se estimará en 2.5.

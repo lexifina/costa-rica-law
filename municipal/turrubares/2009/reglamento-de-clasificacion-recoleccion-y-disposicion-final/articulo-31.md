@@ -1,0 +1,5 @@
+Artículo 31.—Todo terreno que sea utilizado como Relleno Sanitario debe:
+• Contar con un suelo que reúna características de impermeabilidad, remoción de contaminantes y profundidad del nivel de aguas subterráneas, que garanticen la conservación de los acuíferos de la zona, en caso de que estos existan.
+• Contar con suficiente material para la cobertura diaria de los desechos depositados durante su vida útil. En caso de no contar con material suficiente, se deberán presentar los planos de ubicación de los bancos de préstamo a los que se recurrirá, así como las formas de transporte y almacenamiento de dicho material, para aprobación de la Dirección de Protección al Ambiente Humano.
+• Estar ubicado a una distancia de zonas de inundación, pantanos, marismas, cuerpos de agua y zonas de drenaje natural, que en cada caso definirá la Dirección de Protección al Ambiente Humano.
+• Estar ubicado a una distancia de los centros urbanos, fijada en cada caso por la Dirección de Protección al Ambiente Humano, en un sitio con fácil y rápido acceso por carretera o camino transitable en cualquier época del año.

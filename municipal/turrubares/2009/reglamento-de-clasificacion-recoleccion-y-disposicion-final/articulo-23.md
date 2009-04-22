@@ -1,0 +1,1 @@
+Artículo 23.—Si se solicita con una semana de antelación, el transporte de los desechos sólidos voluminosos se hará por parte de maquinaria municipal, previo pago en la tesorería municipal según tarifa vigente, caso contrario, este será transportado por cuenta y responsabilidad de cada generador.

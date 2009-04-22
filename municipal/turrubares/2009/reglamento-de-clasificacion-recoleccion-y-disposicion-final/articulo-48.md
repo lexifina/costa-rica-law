@@ -1,0 +1,1 @@
+Artículo 48.—En toda unidad habitacional en cuya localización exista una patente y se lleve a cabo una actividad comercial dentro de la misma vivienda de forma tal que genere una cantidad promedio de basura inferior a 20.0 kilogramos por semana, se le cobrará únicamente la tarifa residencial.

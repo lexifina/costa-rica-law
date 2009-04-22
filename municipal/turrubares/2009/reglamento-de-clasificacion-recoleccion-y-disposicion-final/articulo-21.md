@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad estará realizando campañas de reciclaje en zonas residenciales, comerciales, escuelas, colegios, clínicas, Asociaciones Comunales, y otros, para ir educando a los usuarios en el manejo de la basura.

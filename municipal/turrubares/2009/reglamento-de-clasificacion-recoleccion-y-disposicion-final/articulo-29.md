@@ -1,0 +1,1 @@
+Artículo 29.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del relleno sanitario. El incumplimiento a las indicaciones de este funcionario hará al usuario acreedor a una multa, conforme al costo de remoción de los desechos dispuestos en otro lugar.

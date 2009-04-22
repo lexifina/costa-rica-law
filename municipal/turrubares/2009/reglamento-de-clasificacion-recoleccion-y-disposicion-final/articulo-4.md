@@ -1,0 +1,1 @@
+Artículo 4º—Deberán cumplir el presente reglamento toda unidad habitacional, comercio patentado o ente de carácter estatal público o no público, que se encuentren dentro del área de cobertura del servicio de recolección, sea esta municipal o privada, de los desechos municipales, o bien que utilice el servicio de disposición final de desechos voluminosos.

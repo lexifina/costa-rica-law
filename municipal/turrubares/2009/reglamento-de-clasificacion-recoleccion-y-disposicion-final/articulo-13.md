@@ -1,0 +1,1 @@
+Artículo 13.—La frecuencia mínima de recolección de residuos se debe establecer de acuerdo a un procedimiento técnico y se fundamentará en parámetros como la descomposición de la basura, su tipología y composición. Por situaciones especiales de incremento en el grado de desechos y por ser una zona en crecimiento se puede variar la frecuencia a más de dos veces por mes.
