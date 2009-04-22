@@ -1,0 +1,1 @@
+Artículo 5º—En la categoría del deporte y la recreación, se le otorgará tal distinción al ciudadano o persona jurídica que destaque en competencias deportivas o actividades recreativas, a escala cantonal, nacional, e internacional, incluidos los juegos nacionales, y olimpiadas especiales, sea como competidor, organizador, o facilitador.

@@ -1,0 +1,1 @@
+Artículo 6º—En la categoría de cultura, será distinguida aquella persona física o jurídica que sin fines de lucro, sobresalga en actividades culturales y contribuya al aporte de las artes, letras, música y folclore.

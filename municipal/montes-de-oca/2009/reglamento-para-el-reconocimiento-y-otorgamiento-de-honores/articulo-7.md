@@ -1,0 +1,1 @@
+Artículo 7º—En la categoría de servicio comunal será distinguida aquella persona física o jurídica que se destaque por su servicio, desinteresado, serio, responsable, y ejemplar en beneficio del cantón de Montes de Oca.

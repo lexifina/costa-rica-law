@@ -1,0 +1,1 @@
+Artículo 4º—En la categoría de educación se le dará esa distinción al educador o institución educativa, seleccionada sea desde la enseñanza preescolar hasta la universitaria por su labor sobresaliente en el campo de la educación en el cantón. Las Instituciones educativas escogerán sus candidatos por sus méritos, y labor certificada por las autoridades competentes.

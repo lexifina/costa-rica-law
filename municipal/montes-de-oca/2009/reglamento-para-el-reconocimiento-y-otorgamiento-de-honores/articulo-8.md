@@ -1,0 +1,1 @@
+Artículo 8º—Las personas físicas o jurídicas honradas con tal distinción, recibirán un pergamino con un texto que señale el año, la categoría de la actividad premiada, y su nombre, así como que tal reconocimiento lo otorga la Municipalidad de Montes de Oca.
