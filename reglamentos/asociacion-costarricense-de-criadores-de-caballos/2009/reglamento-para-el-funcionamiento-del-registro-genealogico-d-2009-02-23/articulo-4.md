@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de este reglamento se reconocerá al Comité de Registro electo por la Asociación para encargarse del funcionamiento del Registro Genealógico de los Caballos y Yeguas de Pura Raza Española, como el Comité de Registro encargado del funcionamiento del Registro Genealógico de los Caballos y Yeguas encastados con sangre de caballos Pura Raza Española.

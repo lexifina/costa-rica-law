@@ -1,0 +1,1 @@
+Artículo 30.—El cambio de nombre de un producto encastado con sangre de un caballo Pura Raza Española es posible. Deberá de ser solicitado a la Asociación y la identificación del animal y verificación de su reseña será realizada por el personal autorizado.

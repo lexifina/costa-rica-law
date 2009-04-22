@@ -1,0 +1,1 @@
+Artículo 10.—La intención de este Registro no es lograr la purificación del encaste, por lo que sin importar el porcentaje de sangre de caballos Pura Raza Española que posea el ejemplar, siempre será considerado un Encaste por lo que nunca podrá ser inscrito en el Libro Genealógico del Pura Raza Española.

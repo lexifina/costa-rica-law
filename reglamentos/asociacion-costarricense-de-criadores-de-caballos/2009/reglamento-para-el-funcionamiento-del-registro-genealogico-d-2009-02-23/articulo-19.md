@@ -1,0 +1,1 @@
+Artículo 19.—Los criadores y propietarios de animales están obligados a denunciar dentro de los 15 días naturales, después de ocurrido el hecho, los nacimientos de productos no viables, las muertes y las castraciones.

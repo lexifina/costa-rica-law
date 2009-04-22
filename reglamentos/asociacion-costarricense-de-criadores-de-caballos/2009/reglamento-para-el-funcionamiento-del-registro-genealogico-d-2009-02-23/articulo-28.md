@@ -1,0 +1,1 @@
+Artículo 28.—Castraciones. Cuando un macho es castrado, debe reportarse el hecho a la Asociación lo antes posible. Al hacerlo se debe presentar el Certificado de Registro original con una nota indicando la fecha de la operación. La Asociación anotará lo necesario en el certificado y lo devolverá sin costo alguno.

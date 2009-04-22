@@ -1,0 +1,3 @@
+Artículo 9º—El Libro Genealógico de Encastes tendrá los siguientes registros:
+a) Registro de Nacimientos, para la inclusión de todos los productos encastados con sangre de caballos Pura Raza Española que cumplan las condiciones de inscripción a título de ascendencia. No se inscribirán machos enteros, para que un macho pueda inscribirse debe estar castrado.
+b) Registro Principal de Encastes, para todas las yeguas encastadas con sangre de caballos Pura Raza Española de tres años que procedan del Registro de Nacimientos y para todos los machos que procediendo del Registro de Nacimientos, comprueben su castración.

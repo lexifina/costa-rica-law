@@ -1,0 +1,1 @@
+Artículo 24.—Defectos Genéticos. Los animales que presenten los siguientes defectos genéticos deberán tener esta indicación en su Certificado de Registro: Hernias umbilicales; Prognatismo; Agnatismo; Monorquidismo y Criptorquidismo.
