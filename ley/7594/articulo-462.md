@@ -1,5 +1,5 @@
-ARTICULO 462.-
-Ejecución diferida El tribunal de ejecución de la pena podrá suspender el cumplimiento de la pena privativa de libertad, en los siguientes casos:
-a) Cuando deba cumplirla una mujer en estado avanzado de embarazo o con hijo menor de tres meses de edad, siempre que la privación de libertad ponga en peligro la vida, la salud o la integridad de la madre, el feto o el hijo.
-b) Si el condenado se encuentra gravemente enfermo y la ejecución de la pena ponga en peligro su vida, según dictamen que se requerirá al Departamento de Medicina Legal.
-Cuando cesen estas condiciones, la sentencia continuará ejecutándose.
+Artículo 462.—Trámite. El Tribunal de Casación podrá declarar inadmisible el recurso, si estima que la resolución no es recurrible, que el recurso ha sido interpuesto en forma extemporánea o que la parte no tiene el derecho de recurrir, en cuyo caso lo declarará así y devolverá las actuaciones al tribunal de origen.
+Si el recurso es admisible, el Tribunal lo sustanciará y se pronunciará sobre el fondo, aun cuando estime que en su redacción existen defectos. Si considera que estos le impiden, en forma absoluta, conocer del reclamo, le prevendrá a la parte su corrección, conforme al artículo 15 de este Código, puntualizándole los aspectos que deben aclararse y corregirse. Si los defectos no son corregidos, resolverá lo que corresponda.
+Si el recurso es admisible y no debe convocarse a una audiencia oral, ni se debe ordenar la recepción de pruebas, el Tribunal dictará sentencia. En caso contrario, esta deberá dictarse después de la audiencia y una vez recibida la prueba.
+(Así reformado por el artículo 1° de la Ley N° 8503 del 28 de abril de 2006)
+(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 447 al 462 actual).

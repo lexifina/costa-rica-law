@@ -1,3 +1,4 @@
 ARTICULO 470.-
-Derogaciones Se derogan expresamente el Código de Procedimientos Penales, Ley No.
-5377, del 19 de octubre de 1973 y las leyes que lo adicionaron y reformaron, así como cualquier disposición que se oponga o contradiga lo preceptuado en este Código.
+Suspensión de medidas administrativas
+Durante el trámite de los incidentes, el tribunal de ejecución de la pena podrá ordenar la suspensión provisional de las medidas de la administración penitenciaria que sean impugnadas en el procedimiento.
+(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 455 al 470 actual)

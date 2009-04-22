@@ -1,0 +1,3 @@
+Artículo 14.- Deber de colaboración de las autoridades
+La víctima del delito tendrá prioridad en la atención de sus necesidades de atención a la salud o frente a trámites o gestiones en cualquier dependencia del Estado, relacionada con su condición.
+Las autoridades públicas también están obligadas a colaborar con la Oficina de Atención a la Víctima del Delito del Ministerio Público, dándoles prioridad a sus solicitudes relacionadas con medidas de protección o atención para la persona bajo protección, así como a tomar las medidas para que exista confidencialidad respecto de la información relacionada con el cumplimiento de las funciones de esta Ley.

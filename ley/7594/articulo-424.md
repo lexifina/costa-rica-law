@@ -1,3 +1,3 @@
-ARTICULO 424.-
-Agravio Las partes sólo podrán impugnar las decisiones judiciales que les causen agravio, siempre que no hayan contribuido a provocarlo. El recurso deberá sustentarse en el reproche de los defectos que causan la afectación.
-El imputado podrá impugnar una decisión judicial aunque haya contribuido a provocar el vicio, en los casos en que se lesionen disposiciones constitucionales o legales sobre su intervención, asistencia y representación.
+Artículo 424.-Actuación por el Ministerio Público
+El fiscal dará trámite inmediato al procedimiento penal, para establecer si existe mérito para iniciar la investigación. Para ello, contará con la versión inicial que le brinde la autoridad de policía que intervino en un primer momento, así como toda la prueba que se acompañe.
+(Así adicionado por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)

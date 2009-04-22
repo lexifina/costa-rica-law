@@ -1,2 +1,3 @@
-ARTICULO 433.-
-Rectificación Los errores de derecho en la fundamentación de la sentencia o resolución impugnadas, que no hayan influido en la parte resolutiva, no la anularán; pero serán corregidos, así como los errores materiales en la designación o el cómputo de las penas.
+Artículo 433.-Garantías
+Para todos los efectos, especialmente laborales, se entenderá que la víctima y los testigos tendrán derecho a licencia con goce de sueldo por parte de su patrono, público o privado, cuando tengan que asistir a las diligencias judiciales o comparecer ante el llamamiento judicial y por el tiempo necesario para ello. Con el objeto de comprobar la asistencia a tales actos, el tribunal que conoce de la causa, deberá extender el comprobante respectivo en el cual se indiquen la naturaleza del acto y la duración efectiva del trámite.
+(Así adicionado por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009)
