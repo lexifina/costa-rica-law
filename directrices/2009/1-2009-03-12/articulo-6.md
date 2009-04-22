@@ -1,0 +1,1 @@
+Artículo 6º—Es responsabilidad de los titulares subordinados que integran el Consejo Nacional de Concesiones, formular actividades para la administración de dichos riesgos e incluirlos en los Planes de Mitigación.

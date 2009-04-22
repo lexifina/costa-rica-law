@@ -1,0 +1,2 @@
+Obligaciones de los titulares subordinados
+Artículo 8º—Los titulares subordinados que integran el Consejo Nacional de Concesiones están en la obligación de llevar a cabo todas las actividades que componen el SEVRI-CNC, atendiendo la metodología, instrumentos, programación y plazos de presentación que defina el grupo coordinador. Esto no deberá interferir con la obligación del Jerarca y titulares subordinados de cumplir con los artículos 14 y 18 de la Ley General de Control Interno referidos a la Valoración de Riesgos.

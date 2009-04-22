@@ -1,0 +1,1 @@
+Artículo 2º—El SEVRI-CNC tendrá como objetivo general producir información que apoye la toma de decisiones, orientada a ubicar a la institución en un nivel de riesgo aceptable, facilitando el logro de los resultados del Consejo Nacional de Concesiones de manera razonable.

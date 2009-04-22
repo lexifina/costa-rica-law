@@ -1,0 +1,1 @@
+Artículo 9º—Los titulares subordinados que integran el Consejo Nacional de Concesiones serán responsables de promover una cultura favorable y una actitud proactiva de los funcionarios a lo interno de las dependencias que lideran.
