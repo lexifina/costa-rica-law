@@ -1,3 +1,6 @@
+N° 7946
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
 MODIFICACIÓN DE LA LEY DE REFORMA INTEGRAL
 DEL SISTEMA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL, No. 7531
 ARTÍCULO 1.- Modifícanse los artículos 2, 3, 14, 15, 24, 37, 44, 45, 79, 86, 89, 91, 92, 99, 105, 107, 111 y 113 de la ley de pensiones y jubilaciones del Magisterio Nacional, según el texto aprobado por la Ley de Reforma Integral del Sistema de Pensiones y Jubilaciones del Magisterio Nacional, No. 7531, de 10 de julio de 1995. Los textos dirán:
@@ -91,6 +94,8 @@ En la regulación y supervisión del Sistema de Pensiones del Magisterio se apli
 Artículo 115.- Garantía de pago. El Estado garantiza el pago de los derechos otorgados y los que se lleguen a otorgar en el Régimen transitorio de reparto de acuerdo con esta ley.
 Artículo 116.- Exoneración de pensiones. Solo quedarán exonerados de la contribución correspondiente al Régimen de reparto, los derechos por vejez, invalidez, muerte o supervivencia, iguales o menores a dos veces el salario base más bajo pagado por la Administración Pública.
 En caso de supervivencia, la exoneración se aplicará sobre la sumatoria de los montos derivados de un derecho jubilatorio."
+Artículo 117.- Los servidores adscritos a este Régimen, que desempeñen cargos en propiedad en la Administración Pública , tendrán el derecho de percibir, además de su salario, la pensión que les corresponda en razón del fallecimiento de su cónyuge, mientras permanezcan viudos. La presente normativa reforma, en lo conducente, el artículo 15 de la Ley general de pensiones, Nº 14, de 2 de diciembre de 1935, y el artículo 31 de la Ley N º 7302, de 8 de julio de 1992, así como cualquier otra disposición que se le oponga.
+(Así adicionado por el artículo 2° de la ley N° 8721 del 18 de marzo de 2009)
 ARTÍCULO 3.- Derógase el transitorio I del artículo 16 de la Ley de pensiones y jubilaciones del Magisterio Nacional, según el texto aprobado por la Ley de Reforma Integral del Sistema de Pensiones y Jubilaciones del Magisterio Nacional, No. 7531, de 10 de julio de 1995.
 Rige a partir de su publicación.
 Presidencia de la República.- San José a los dieciocho días del mes de noviembre de mil novecientos noventa y nuevo.-
