@@ -14,3 +14,4 @@ Reglamento para el Manejo de los Desechos Peligrosos Industriales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-29 | la propia norma |
+| 2 | 2009-04-24 | Decreto Ejecutivo 35505 (2009-04-24) |

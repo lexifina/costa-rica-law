@@ -42,8 +42,8 @@ El generador del desecho declara que la información en el presente documento es
 Firma y Fecha conforme.
 _____________________________________________________________________________________________________________________________________________
 .Nota Se debe adjuntar al presente manifiesto un certificado que indique como se trataran y eliminarán los desechos(método).
-B. FICHA DE EMERGENCIA
-*
+B. (*)Guía de Emergencia en Caso de Emergencia
+(*)(Así reformado por el artículo 3° del decreto ejecutivo N° 35505 del 24 de abril de 2009)
 A. Información sobre el desecho peligroso:
 Nombre del desecho
 Propiedades físicas del desecho peligroso (densidad, punto de fusión, punto de ebullición, punto de inflamación, punto crítico, volatilidad, coeficiente de difusividad, etc.)
