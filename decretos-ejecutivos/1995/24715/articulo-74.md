@@ -13,7 +13,8 @@ respectiva, según lo requerido por este Reglamento;
 b) Otorgar al expedidor información relativa a los cuidados
 que deben aplicársele al producto, tanto en su transporte
 como en su manejo, y todas las actividades que se estime
-necesario consignar en la "ficha de emergencia";
+necesario consignar en la (*)Guía de Respuesta en Caso de Emergencia;
+(*)(Así reformado por el artículo 3° del decreto ejecutivo N° 35505 del 24 de abril de 2009)
 c) Entregar, además, las especificaciones para el
 acondicionamiento del producto, cuando fuere del caso,
 según lo previsto por la normativa vigente.

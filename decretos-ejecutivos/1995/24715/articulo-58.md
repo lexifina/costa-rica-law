@@ -58,9 +58,10 @@ b) Certificado de calibración, expedido por la Oficina
 Nacional de Normas y Unidades de Medida del Ministerio de
 Economía, Industria y Comercio o por un laboratorio,
 organismo o entidad pública o privada acreditada.
-4) Documento o ficha de emergencia, el que deberá venir firmado
+4) Documento o (*)Guía de Respuesta en Caso de Emergencia, el que deberá venir firmado
 por un profesional regente, ya sea Químico o Ingeniero Químico,
 incorporado al respectivo Colegio Profesional y contentivo de:
+(*)(Así reformado por el artículo 3° del decreto ejecutivo N° 35505 del 24 de abril de 2009)
 4.1 Información sobre el producto peligroso:
 a) Nombre común y apropiado de embarque del producto
 peligroso.
