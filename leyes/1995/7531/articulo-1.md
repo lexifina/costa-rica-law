@@ -8,12 +8,13 @@ Se sustituye el texto de la Ley No. 7268, del 14 de noviembre de1991. En consecu
 "TITULO I
 Disposiciones Generales
 Artículo 1.- Campo de aplicación
-Esta ley regula lo relativo a las pensiones y jubilaciones correspondientes a los funcionarios del Magisterio Nacional.
-El Sistema de Pensiones y Jubilaciones del Magisterio Nacional está compuesto por:
-a) El régimen de pensiones otorgadas al amparo de la Ley No. 2248, del 5 de setiembre de 1958, y sus reformas, excepto la reforma integral realizada mediante la Ley No. 7268, del 14 de noviembre de 1991.
-b) El régimen de pensiones otorgadas al amparo de la reforma introducida por la Ley No. 7268, del 14 de noviembre de 1991.
-c) El Régimen transitorio de reparto, regulado en el Título III de la presente ley.
-d) El Régimen de capitalización de pensiones y jubilaciones, regulado en el Título II de esta ley.
+Esta Ley regula lo relativo a las pensiones y jubilaciones correspondientes a los funcionarios del Magisterio Nacional.
+El Sistema de Pensiones y Jubilaciones del Magisterio Nacional está compuesto por los siguientes regímenes:
+a) El régimen de pensiones otorgadas al amparo de la Ley N º 2248, de 5 de setiembre de 1958, y sus reformas, excepto la reforma integral realizada mediante la Ley N º 7268, de 14 de noviembre de 1991.
+b) El régimen de pensiones otorgadas al amparo de la reforma introducida por la Ley N º 7268, de 14 de noviembre de 1991.
+c) El Régimen de capitalización colectiva de pensiones y jubilaciones, regulado en el título II de esta Ley.
+d) El Régimen transitorio de reparto, regulado en el título III de la presente Ley.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 2.- Derechos adquiridos.
 Las pensiones y las jubilaciones otorgadas por los regímenes mencionados en los incisos a) y b) del artículo anterior, continuarán reguladas por las normas vigentes en el momento de su adquisición, en todos sus elementos, salvo en lo referente a las cotizaciones a cargo de los pensionados, lo cual queda sujeto a lo dispuesto en los artículos 70 y 71 de la presente ley.
 Las pensiones y las jubilaciones cuyos derechos se adquieran durante la vigencia de esta ley, se regirán por lo dispuesto para el Régimen transitorio de reparto o para el Régimen de capitalización, según el caso.
@@ -44,15 +45,16 @@ Cuando la Caja no reciba los aportes correspondientes, dentro del plazo estipula
 SECCION II
 Ambito de cobertura
 Artículo 7.- Ambito de cobertura
-Quedan cubiertas por este Régimen de capitalización todas las personas que se desempeñen en el Magisterio Nacional y hayan sido nombradas por primera vez con posterioridad al 14 de julio de 1992 o hayan nacido el 1o. de agosto de 1965 o en fecha posterior.
-Los funcionarios activos del Ministerio de Educación Pública que, por ocupar cargos a tiempo completo en la dirigencia de organizaciones gremiales, corporativas y sindicales directamente vinculadas con el Magisterio Nacional, hayan disfrutado de licencia sin goce de salario en el ejercicio de esa representación, tendrán derecho a que el tiempo destinado a esa actividad se les reconozca como años de servicio únicamente para efectos de pensión. En ningún caso, ese tiempo podrá exceder de diez años. Al efecto de que este tiempo resulte hábil para adquirir el derecho jubilatorio, esas personas deberán haber cotizado sobre los salarios devengados mientras ostentaron la representación.
+Quedan cubiertas por el Régimen de capitalización colectiva (RCC), todas las personas que se desempeñen en el Magisterio Nacional y hayan sido nombradas, por primera vez, con posterioridad al 14 de julio de 1992.
+Los funcionarios activos del Ministerio de Educación Pública (MEP) que, por ocupar cargos a tiempo completo en la dirigencia de organizaciones gremiales, corporativas y sindicales, directamente vinculadas con el Magisterio Nacional, hayan disfrutado de licencia sin goce de salario en el ejercicio de esa representación, tendrán derecho a que el tiempo destinado a esa actividad se les reconozca como años de servicio, únicamente para efectos de pensión. En ningún caso ese tiempo podrá exceder de diez (10) años. A efecto de que este tiempo resulte hábil para adquirir el derecho jubilatorio, esas personas deberán haber cotizado sobre los salarios devengados mientras ostentaron la representación.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 8.- Profesionalidad
 Por desempeño en el Magisterio Nacional debe entenderse específicamente:
-a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas, públicas o privadas, de enseñanza preescolar, enseñanza general básica, educación diversificada y en las universidades estatales.
-b) El personal administrativo del Ministerio de Educación Pública y de los centros educativos mencionados en el inciso anterior.
-c) Los funcionarios del Instituto Nacional de Aprendizaje que ejerzan actividades docentes regulares y continuas.
-No se entenderá como actividad docente la participación ocasional en charlas, coloquios, conferencias o cursos de capacitación, aunque sean desarrollados o patrocinados por instituciones públicas, educativas o no.
-No obstante lo dispuesto en el artículo anterior, los funcionarios administrativos cuyo nombramiento se produzca después de la promulgación de la presente ley, quedarán cubiertos por el seguro obligatorio de Invalidez, vejez y muerte, creado por la Ley No. 17, del 22 de octubre de 1943.
+a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de carrera docente, en instituciones educativas, públicas o privadas, de Enseñanza Preescolar, Enseñanza General Básica, Educación Diversificada y en las universidades estatales.
+b) El personal administrativo del MEP y de los centros educativos mencionados en el inciso anterior.
+c) Los funcionarios del Instituto Nacional de Aprendizaje (INA).
+No se entenderá como actividad docente la participación ocasional en charlas, coloquios, conferencias o cursos de capacitación, aunque hayan sido desarrollados o patrocinados por instituciones públicas, educativas o no.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 CAPITULO II
 Prestaciones
 Artículo 9.- Contingencias protegidas
@@ -69,14 +71,16 @@ La Junta de Pensiones y Jubilaciones del Magisterio Nacional determinará, segú
 Artículo 12.- Cuantía de las prestaciones
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional determinará el monto de la jubilación, así como los otros componentes del perfil de beneficios, de conformidad con los estudios técnicos actuariales realizados al efecto.
 Artículo 13.- Reglamento General
-Para ejecutar lo dispuesto en los dos artículos anteriores, así como el procedimiento administrativo para su realización, la Junta de Pensiones y Jubilaciones del Magisterio Nacional emitirá un reglamento general del Régimen de capitalización de pensiones y jubilaciones.
-Ese reglamento contemplará necesariamente:
+Para ejecutar lo dispuesto en los dos artículos anteriores, así como el procedimiento administrativo para su realización, la Junta de Pensiones y Jubilaciones del Magisterio Nacional (Jupema), emitirá el Reglamento General del Régimen de capitalización colectiva de pensiones y jubilaciones.
+Ese Reglamento contemplará necesariamente lo siguiente:
 a) Los períodos de espera o calificación para cada una de las contingencias, separadamente.
 b) El número y la calidad de las cotizaciones necesarias para adquirir el derecho a las diversas prestaciones, según las contingencias, separadamente.
 c) La cuantía y la duración de las prestaciones, para cada una de las contingencias cubiertas, separadamente.
-d) El procedimiento administrativo para tramitar las solicitudes de los interesados, el cual, en todo caso, deberá sujetarse a lo dispuesto en la Ley General de la Administración Pública para el procedimiento sumario.
-e) Las reglas sobre la inversión de los recursos del Fondo de Capitalización, las cuales deben garantizar, con estricto apego a la presente ley, las mejores condiciones de rentabilidad y seguridad.
-f) Todos los otros elementos que se consideren necesarios para la correcta administración del Régimen, según lo dispuesto en esta ley, las directrices de la Superintendencia General de Pensiones y la prudencia y la responsabilidad administrativas.
+d) El procedimiento administrativo para tramitar las solicitudes de los interesados, el cual deberá sujetarse, en todo caso, a lo dispuesto en la Ley general de la Administración Pública , para el procedimiento sumario.
+e) Las reglas sobre la inversión de los recursos del Fondo de Capitalización, las cuales deben garantizar, con estricto apego a la presente Ley, las mejores condiciones de rentabilidad y seguridad.
+f) Un cobro por administración, que la Junta destinará única y exclusivamente a la correcta y sana administración del Régimen. Dicha comisión no podrá ser superior al promedio ponderado de comisiones cobrado por las operadoras de pensión complementaria (OPC) en el Régimen obligatorio de pensión complementaria. El monto no podrá ser superior al promedio ponderado de las comisiones vigentes para las OPC. La Junta establecerá, dentro de ese límite, la comisión por cobrar; lo anterior, previo estudio de las necesidades, la proyección de los gastos y las normas de ejecución de presupuesto, con el fin de que se ajuste a medidas de austeridad y control en el gasto. La comisión se tomará de los ingresos por réditos y cotizaciones a que se refieren los artículos 17 y 18 de la presente Ley y pasará a formar parte del Fondo Especial de Administración, establecido en el artículo 107 de esta Ley.
+g) Todos los otros elementos que se consideren necesarios para la correcta administración del Régimen, según lo dispuesto en esta Ley, las directrices de la Superintendencia General de Pensiones y la prudencia y responsabilidad administrativas.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 CAPITULO III
 Ingresos del Régimen
 SECCION I
@@ -85,13 +89,27 @@ Artículo 14.- Cotización obrera y patronal.
 Todos los funcionarios cubiertos por este Régimen, sin excepción, cotizarán el ocho por ciento (8%) del salario devengado y sus patronos, tanto públicos como privados, el seis coma setenta y cinco por ciento (6,75%) del salario.
 (Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 15.- Contribución del Estado y plazos.
-El Estado, en su calidad de tal, cotizará un porcentaje idéntico al que aporta al Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense de Seguro Social, del total de los salarios de los servidores públicos y privados de la educación nacional, que se encuentren dentro del colectivo cubierto por el Régimen de Capitalización. Para realizar el pago correspondiente a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, se establece el procedimiento siguiente:
-a) Para los trabajadores de la educación que presten servicios al Ministerio de Educación Pública, el Ministerio de Hacienda tendrá un plazo improrrogable de un mes para depositar, a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, los montos correspondientes a las cotizaciones obreras, patronales y estatales.
-b) Para los trabajadores de la educación de los otros centros de enseñanza públicos y privados, la Junta de Pensiones y Jubilaciones del Magisterio Nacional remitirá, mensualmente, a la Dirección General de Presupuesto Nacional del Ministerio de Hacienda, una planilla con los nombres, números de cédula, montos salariales devengados y el monto total por cancelar. La Junta de Pensiones y Jubilaciones dispondrá de un plazo improrrogable de un mes para remitir esta información al Ministerio de Hacienda; este último, una vez recibida la planilla, contará con un plazo de un mes para depositar las sumas a favor de la Junta de Pensiones. La Junta de Pensiones y Jubilaciones les fijará a estos centros de enseñanza los plazos máximos para remitirle la información de sus planillas.
-Si el Ministerio de Hacienda no deposita las sumas a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, dentro de los plazos dispuestos en los incisos a) y b) de este artículo, los montos no girados devengarán, por concepto de interés por mora, un porcentaje igual a la tasa básica pasiva a seis meses plazo, calculada por el Banco Central de Costa Rica.
-Igual interés por mora será aplicable a la Junta de Pensiones y Jubilaciones del Magisterio Nacional sobre los montos por cancelar a su favor, en caso de no presentar la planilla correspondiente dentro del plazo ordenado en el inciso b) de este artículo. Las sumas por intereses deberán cancelarse con cargo al tres por mil (3x1000) del Fondo Administrativo establecido en el inciso a) del artículo 107. La Junta de Pensiones y Jubilaciones cobrará, a su vez, igual interés por mora a los centros de enseñanza que no le presenten las planillas dentro de los plazos fijados.
-Todo interés por mora se destinará exclusivamente a fortalecer el Fondo de Pensiones del Régimen de Capitalización. La certificación que emita la Junta de Pensiones y Jubilaciones del Magisterio Nacional, donde consten las deudas a favor del Fondo de Pensiones, tendrá el carácter de título ejecutivo, excepto para los casos en que la Junta haya omitido o atrasado el envío de las planillas correspondientes o las haya enviado defectuosas al Ministerio de Hacienda.
-(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+El Estado, en su calidad de tal, cotizará un porcentaje idéntico al que aporta al Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense de Seguro Social (CCSS), del total de los salarios de los servidores públicos y privados de la educación nacional, que se encuentren dentro del colectivo cubierto por el Régimen de capitalización colectiva.
+Para realizar el pago correspondiente a favor de la Jupema , se establece el procedimiento siguiente:
+a) Para los trabajadores de la educación que presten servicios al MEP, el Ministerio de Hacienda tendrá un plazo improrrogable de dos (2) meses para depositar, a favor de la Jupema , los montos correspondientes a las cotizaciones obreras, patronales y estatales, término que igualmente se aplicará cuando se trate de patronos privados.
+b) Para los trabajadores de la educación de los otros centros de enseñanza, públicos y privados, la Jupema remitirá, mensualmente, a la Dirección General de Presupuesto Nacional del Ministerio de Hacienda, una planilla con los nombres, los números de cédula, los montos salariales devengados y el monto total por cancelar. La Jupema dispondrá de un plazo improrrogable de dos (2) meses para remitir esta información al Ministerio de Hacienda; este último, una vez recibida la planilla, contará con un plazo de dos (2) meses para depositar las sumas a favor de la Junta de Pensiones. La Junta de Pensiones y Jubilaciones les fijará a estos centros de enseñanza los plazos máximos para remitirle la información de sus planillas.
+Si el Ministerio de Hacienda no deposita las sumas a favor de la Jupema , dentro de los plazos dispuestos en los incisos a) y b) de este artículo, los montos no girados devengarán, por concepto de interés por mora, un porcentaje igual a la tasa básica pasiva a seis (6) meses plazo, calculada por el Banco Central de Costa Rica.
+Igual interés por mora será aplicable a la Jupema sobre los montos por cancelar a su favor, en caso de no presentar la planilla correspondiente dentro del plazo ordenado en el inciso b) de este artículo. Las sumas por intereses deberán cancelarse con cargo al Fondo Administrativo establecido en el artículo 107 de esta Ley. La Junta de Pensiones y Jubilaciones cobrará, a su vez, igual interés por mora a los centros de enseñanza que no le presenten las planillas dentro de los plazos fijados.
+Todo interés por mora se destinará, exclusivamente, a fortalecer el Fondo de Pensiones del Régimen de capitalización colectiva.
+La certificación que emita la Jupema , donde consten las deudas a favor del Fondo de Pensiones, tendrá carácter de título ejecutivo, excepto en los casos en que la Junta haya omitido o atrasado el envío de las planillas correspondientes o las haya enviado defectuosas al Ministerio de Hacienda.
+La Jupema queda facultada para inspeccionar a los centros de educación públicos y privados, cotizantes del Sistema de Pensiones y Jubilaciones del Magisterio Nacional, con el propósito de solicitar toda la documentación e información que estime necesarias, para verificar y determinar la cotización que deba enterarse a la conformación de los distintos fondos, con cargo a los trabajadores y el patrono.
+Las transgresiones a esta Ley serán sancionadas en la siguiente forma:
+1) Será sancionado con multa equivalente a un cinco por ciento (5%) del total de los salarios, remuneraciones o ingresos omitidos, según la planilla del último mes reportada a la CCSS , el patrono que no realice el proceso de empadronamiento de acuerdo con el Régimen de adscripción dispuesto en la Ley N º 7531, y sus reformas.
+2) Será sancionado con una multa de dos (2) a cinco (5) salarios base, quien:
+i) Con el propósito de cubrir a costa de sus trabajadores la cuota que como patrono debe satisfacer, les rebaje el salario o las remuneraciones, o bien, altere las planillas que debe reportar con compensación de saldos.
+ii) No deduzca la cuota obrera o no pague la cuota patronal que le corresponde de acuerdo con la ley.
+3) Será sancionado con multa de cinco (5) a ocho (8) salarios base, quien no incluya, en las planillas respectivas, a uno o a varios de sus trabajadores o incurra en falsedades en cuanto al monto de sus salarios, remuneraciones, ingresos netos o la información que sirva para calcular el monto de sus contribuciones a la seguridad social.
+4) Será sancionado con multa de cinco (5) a ocho (8) salarios base, el encargado de pagar los recursos ordenados por esta Ley, que obstaculice, demore o se niegue a proporcionar los datos y antecedentes necesarios para comprobar la corrección de las operaciones.
+En todo procedimiento que pueda culminar con la imposición de una sanción en sede administrativa, se le concederá al interesado el derecho de defensa y se respetará el debido proceso, antes de que el asunto se resuelva. Para calcular el monto respectivo de las sanciones económicas aquí previstas, se entenderá por salario base el establecido por el artículo 2 de la Ley N º 7337.
+Las personas físicas o jurídicas cubiertas por las obligaciones de esta Ley, responderán solidariamente por las acciones o las omisiones en que incurran sus representantes en el ejercicio de sus funciones.
+La acción para demandar el reintegro de las cuotas atrasadas y otros daños y perjuicios ocasionados, prescribirá en el plazo de diez (10) años.
+Para aplicar las disposiciones de esta Ley, la resolución de primera instancia será dictada por la Dirección Ejecutiva y tendrá recurso de alzada ante la Junta Directiva ; para ello, se aplicará lo dispuesto en el título VIII del libro II de la Ley general de la Administración Pública.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 16.- Modificación de las cotizaciones
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá ajustar las cotizaciones de los funcionarios activos asegurados, cuando así lo recomienden los estudios actuariales y previa autorización de la Superintendencia General de Pensiones.
 La cuota patronal sólo podrá variarse con autorización expresa de la Asamblea Legislativa, emitida por ley ordinaria.
@@ -115,14 +133,22 @@ La Junta mantendrá ese Fondo separado, física y contablemente, tanto de su pro
 SECCION II
 Limitaciones a las operaciones de inversión
 Artículo 20.- Inversión
-La Junta de Pensiones y Jubilaciones del Magisterio Nacional, bajo su responsabilidad, invertirá los recursos acumulados en el Fondo de Capitalización, en las mejores condiciones de mercado, que garanticen un adecuado equilibrio entre la rentabilidad y la seguridad de la inversión.
-Artículo 21.- Clases de títulos
-La inversión deberá realizarse en títulos exclusivamente nacionales, tanto de renta fija como de renta variable, inscritos de conformidad con la Ley reguladora del mercado de valores. Sólo se invertirá por medio de las bolsas de valores legalmente autorizadas en Costa Rica.
-Queda absolutamente prohibido a la Junta invertir en títulos de emisores extranjeros, así como colocar todos los fondos o parte de ellos en bolsas de valores extranjeras.
+La cartera de inversiones tendrá que ser compatible con las obligaciones para el pago en tiempo del cien por ciento (100%) de las pensiones de los beneficiarios y el pago de la administración del Fondo. Para estos efectos, podrá invertir los recursos económicos acumulados en el citado Fondo, bajo los parámetros de disponibilidad, mejores condiciones de mercado, seguridad y rentabilidad.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
+Artículo 21. Portafolio de inversiones
+La Jupema , bajo su responsabilidad, invertirá los recursos acumulados del Fondo de Capitalización Colectiva, en las mejores condiciones de mercado, de manera tal que prevalezcan los criterios de seguridad, liquidez y rentabilidad.
+Dicha Junta está autorizada para colocar los recursos del Fondo de Capitalización, en las siguientes posibilidades de inversión:
+a) Préstamos directos personales, a los afiliados a los Regímenes de capitalización y reparto, para microempresas y vivienda conforme a la reglamentación que se emita al efecto. Los préstamos realizados en forma directa o mediante fideicomisos, deberán cobrarse por deducción salarial, en el caso de los afiliados activos; en los préstamos para jubilados o pensionados, la Junta deducirá mensualmente, de los giros de la pensión, las amortizaciones y los intereses respectivos. Cuando se trate de préstamos de vivienda, únicamente se aceptará garantía hipotecaria en primer grado.
+b) Al menos un treinta por ciento (30%) del Fondo, en títulos emitidos por el Sector Público.
+c) En instrumentos financieros emitidos por fideicomisos:
+1) Con entidades financieras, públicas o privadas, para colocar recursos destinados a préstamos personales de microempresas y vivienda.
+2) Con entidades financieras, públicas o privadas, para la participación en el desarrollo de proyectos productivos y de infraestructura de interés nacional o social.
+d) Valores de oferta pública inscritos en el Registro Nacional de Valores e Intermediarios, o en valores emitidos por entidades financieras supervisadas por la Superintendencia General de Entidades Financieras (Sugef).
+En lo referente al inciso a) de este artículo, la Junta de Pensiones deberá realizar anualmente un estudio de esta cartera crediticia según los parámetros de la Sugef , el cual deberá ser aprobado por la Junta Directiva y enviado a la Superintendencia de Pensiones (Supén), para las labores de supervisión. La Junta no estará autorizada a invertir nuevas sumas ni las recuperaciones de esa cartera de préstamos referida en el inciso a), si al día 15 de febrero de cada año, no ha presentado a la Supen el estudio de cartera al 31 de diciembre inmediato anterior.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 22.- Limitaciones por razón de las personas
 La Junta no podrá invertir en títulos emitidos por sociedades o instituciones de cualquier clase, en las que alguno de los miembros de sus juntas directivas también sea miembro de la Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional. Igual prohibición regirá para las inversiones en sociedades o instituciones, de cualquier clase, en las que un miembro de la Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional o sus parientes hasta el cuarto grado por consanguinidad o afinidad inclusive, sea accionista titular de más del cinco por ciento (5%) del capital social.
-Artículo 23.- Limitaciones por razón de la cartera
-La Junta deberá invertir no menos del setenta por ciento (70%) del Fondo de Capitalización, en títulos públicos emitidos por el Estado.
+Artículo 23.- (Derogado por el artículo 5° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 24.- Custodia de los títulos. Los títulos en los que la Junta haya invertido se mantendrán custodiados en una central de valores, autorizada y supervisada por la Superintendencia de Valores.
 (Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 25.- Consecuencias penales
@@ -160,9 +186,10 @@ Artículo 32.- Trámite
 El interesado deberá dirigir la solicitud de traspaso al departamento de personal o de recursos humanos de la institución donde se encuentre laborando. Ese departamento lo excluirá a partir del primer día del mes siguiente al recibo de la solicitud.
 Del acto de exclusión, se enviará copia a la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social, y a la Junta de Pensiones y Jubilaciones del Magisterio Nacional. El Estado procederá a la liquidación actuarial respectiva y enterará, a la Caja Costarricense de Seguro Social, el aporte de cotizaciones correspondiente a quien solicite el traspaso.
 Artículo 33.- Plazos
-El Estado deberá realizar la liquidación actuarial y el traspaso de los aportes a la Caja dentro de los primeros tres meses, contados a partir del recibo de la comunicación de traspaso.
-Cuando proceda el traspaso de cotizaciones, se aplicará lo dispuesto en el párrafo tercero del artículo 73 de esta ley.
-En el caso de que la Caja Costarricense de Seguro Social no reciba, dentro del plazo estipulado en el párrafo anterior, los aportes, tendrá derecho a cobrar intereses moratorios del cinco por ciento (5%) mensual.
+El Estado deberá realizar la liquidación actuarial y el traspaso de los aportes a la CCSS , dentro de los primeros tres (3) meses, contados a partir de que el órgano encargado realice el control de legalidad del procedimiento de traspaso de cuotas, establecido vía reglamentaria.
+Cuando proceda el traspaso de cotizaciones, se aplicará lo dispuesto en el párrafo tercero del artículo 73 de esta Ley.
+En el caso de que la CCSS no reciba, dentro del plazo establecido en el primer párrafo de este artículo, los aportes, tendrá derecho a cobrar intereses moratorios en un porcentaje igual a la tasa básica pasiva a seis (6) meses plazo, calculada por el Banco Central de Costa Rica.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 SECCION II
 Ambito de cobertura
 Artículo 34.- Ambito de cobertura
@@ -401,8 +428,9 @@ Revisiones y revaloraciones
 SECCION I
 Revisión de las prestaciones por vejez
 Artículo 76.- Revisión por reingreso
-El jubilado que reingrese en la vida activa, con percepción de salario a cargo del Estado o sus instituciones, suspenderá la percepción de su jubilación durante el tiempo en que se encuentre activo a excepción, estrictamente, del personal académico al servicio de las instituciones de enseñanza superior estatales recontratados hasta por un máximo de medio tiempo, para programas de posgrado o investigación, de conformidad con los requisitos que cada entidad establecerá al efecto.
-Para lo dispuesto en el párrafo anterior, el jubilado que vuelva a la vida activa deberá comunicar su alta, con copia del acto de nombramiento, dirigida a la Junta de Pensiones y Jubilaciones del Magisterio Nacional, que ordenará suspender las prestaciones durante el tiempo que indique el acto de nombramiento.
+El jubilado o la jubilada que reingrese a la vida activa, con percepción de salario a cargo del Estado o de sus instituciones, suspenderá la percepción de su jubilación durante el tiempo en que se encuentre activo o activa, a excepción, estrictamente, del personal académico al servicio de las instituciones estatales de enseñanza superior recontratados o recontratadas hasta por un máximo de medio tiempo, para programas de grado, posgrado, investigación, o acción social, de conformidad con los requisitos que cada entidad establecerá al efecto.
+Para lo dispuesto en el párrafo anterior, el jubilado que vuelva a la vida activa deberá comunicar su alta, con copia del acto de nombramiento, dirigida a la Jupema , que ordenará suspender las prestaciones durante el tiempo que indique el acto de nombramiento.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 77.- Sanciones
 Si por dolo o culpa suya el jubilado o pensionado por vejez, invalidez o supervivencia, percibe simultáneamente sueldo y jubilación, deberá reintegrar al Estado las prestaciones de jubilación o pensión recibidas ilícitamente, más un veinticinco por ciento (25%) por concepto de cláusula penal.
 Si la devolución no se realiza dentro del mes inmediato posterior a la percepción, el jubilado deberá reconocer los intereses moratorios vencidos, para lo cual se aplicará lo dispuesto en el artículo 1163 del Código Civil.
@@ -471,10 +499,9 @@ Administración del Régimen
 Artículo 93.- Organo competente
 La administración del Régimen estará a cargo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, bajo la supervisión y el control de la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social.
 Artículo 94.- Estudios actuariales
-La Junta de Pensiones y Jubilaciones del Magisterio Nacional ordenará, obligatoriamente, realizar un estudio actuarial del Régimen transitorio de reparto a su cargo, por lo menos cada dos años. De los resultados de ese estudio, informará a los Ministros de Trabajo y Seguridad Social, y de Hacienda, junto con las recomendaciones del caso, dentro de los quince días siguientes a su finalización.
-Si, de acuerdo con las recomendaciones técnicas, se toma la decisión de introducir modificaciones en la estructura del Régimen, tales modificaciones entrarán en vigencia mediante el decreto ejecutivo que, al efecto, se dicte.
-Lo anterior no incluye la modificación de la cotización patronal, para lo cual regirá lo dispuesto en el párrafo segundo del artículo 16 de esta ley.
-La omisión de realizar los estudios actuariales aquí ordenados, se considerará incumplimiento de deberes y acarreará, para los miembros de la Junta Directiva, la responsabilidad administrativa y penal correspondientes.
+La Jupema ordenará, obligatoriamente, realizar un estudio actuarial del Régimen transitorio de reparto a su cargo, por lo menos cada cinco (5) años. De los resultados de ese estudio, informará a los ministros de Trabajo y Seguridad Social, así como al de Hacienda, junto con las recomendaciones del caso, dentro de los quince (15) días siguientes a su finalización.
+La Junta se ajustará al reglamento que dicte al efecto el Consejo Nacional de Supervisión del Sistema Financiero, sobre estudios actuariales de las entidades fiscalizadas por la Supen.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 95.- Las partidas presupuestarias de egresos
 El Ministerio de Hacienda creará, separadamente, las partidas presupuestarias de transferencias del Estado al Ministerio de Trabajo y Seguridad Social, correspondiente a las pensiones en curso de pago.
 Para estos efectos, el reglamento determinará las modalidades de cuentas que correspondan.
@@ -490,14 +517,15 @@ Artículo 97.- Naturaleza de la Junta
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional es un ente público no estatal, con personería jurídica y patrimonio propio.
 Como tal, está sujeta a las normas de la presente ley, así como al ordenamiento jurídico administrativo público y, particularmente, a las ordenanzas, directrices y demás actos vinculantes emanados de la Superintendencia General de Pensiones.
 Artículo 98.- Composición del órgano colegiado
-La administración y el gobierno de la institución, corresponden a una Junta Directiva, compuesta de la siguiente manera:
+La administración y el gobierno de la Institución , corresponden a una Junta Directiva, compuesta de la siguiente manera:
 a) Un representante de la Asociación de Educadores Pensionados (ADEP).
 b) Un representante de la Asociación de Funcionarios Universitarios Pensionados (AFUP).
 c) Un representante de la Asociación Nacional de Educadores (ANDE).
 d) Un representante de la Asociación de Profesores de Segunda Enseñanza (APSE).
-e) Un representante de las organizaciones laborales de las instituciones de educación superior, nombrado de común acuerdo entre ellas.
+e) Un representante de las organizaciones laborales de las instituciones estatales de Educación Superior, comprendidas en el Sistema de Pensiones y Jubilaciones del Magisterio Nacional, cuya finalidad es la defensa de los derechos e intereses de las trabajadoras y los trabajadores, en cuanto tales. El nombramiento se realizará conforme al procedimiento que reglamente la Junta para efectos internos y mediante el mecanismo de elección que las organizaciones laborales establezcan.
 f) Un representante del Sindicato de Trabajadores de la Educación Costarricense (SEC).
 g) Un representante del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 99.- Duración de los cargos.
 Los miembros de la Junta Directiva permanecerán en sus cargos cuatro años y no podrán ser reelegidos.
 Podrán ser removidos de sus cargos por las razones indicadas en el artículo 27 de la presente ley, cuando la entidad que representen así lo determine y solo por causa justa.
@@ -541,17 +569,19 @@ Para atender el ejercicio de sus funciones, la Junta recibirá una comisión por
 Con esta deducción, se constituirá un Fondo Especial de Administración, que deberá llevarse, contable y físicamente, separado del Fondo de Capitalización.
 Este fondo especial será administrado con la máxima prudencia y frugalidad.
 Artículo 107.- Fondo Especial de Administración.
-El Fondo Especial de Administración se destinará en forma exclusiva a lo siguiente:
-a) Pagar las dietas de los miembros de la Junta Directiva , los salarios de su personal y, en general, sus gastos administrativos. Para estos efectos, no podrá destinar más del tres por mil (3x1000), según el primer párrafo del artículo 106.
+El Fondo Especial de Administración se destinará, en forma exclusiva, a lo siguiente:
+a) Pagar las dietas de los miembros de la Junta Directiva , los salarios de su personal y, en general, sus gastos administrativos.
 b) Cubrir las obligaciones de carácter financiero derivadas de los convenios que la Junta celebre con las entidades financieras y sociales del Magisterio Nacional.
-c) Realizar préstamos directos a los pensionados, a fin de que satisfagan necesidades personales, de acuerdo con los reglamentos que se dicten para el efecto.
-d) Realizar préstamos directos a los pensionados, para que financien actividades de pequeña empresa, según los reglamentos que se emitan para el efecto.
-e) Realizar aportes de capital a la Corporación de Servicios Múltiples del Magisterio, para la creación de programas y proyectos destinados exclusivamente a los pensionados del Magisterio Nacional. Los recursos ociosos del Fondo Especial de Administración podrán ser invertidos en valores financieros, con las limitaciones incluidas en los artículos 20 a 25 de esta ley.
-En los tres primeros meses de cada año la Junta Directiva presentará a las organizaciones magisteriales representadas en su seno, un informe público detallado de sus labores, de la ejecución presupuestaria del año anterior con el máximo grado de detalle y del presupuesto vigente.
-(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+c) Realizar préstamos directos a los pensionados y servidores activos, a fin de que satisfagan necesidades personales, de acuerdo con los reglamentos que se dicten al efecto.
+d) Realizar préstamos directos a los pensionados y servidores activos, para que financien actividades de pequeña empresa, según los reglamentos que se emitan al efecto.
+e) Realizar préstamos o aportes de capital a las organizaciones del Magisterio Nacional, para la creación de programas y proyectos.
+Los recursos ociosos del Fondo Especial de Administración podrán ser invertidos en valores financieros, con las limitaciones incluidas en los artículos del 20 al 25 de esta Ley.
+En los tres (3) primeros meses de cada año, la Junta Directiva presentará a las organizaciones magisteriales representadas en su seno, un informe público detallado de sus labores, de la ejecución presupuestaria del año anterior con el máximo grado de detalle y del presupuesto vigente.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 108.- Reglamento de préstamos
-La Junta de Pensiones y Jubilaciones del Magisterio Nacional reglamentará las condiciones que considere básicas para otorgar los préstamos citados en los incisos c) y d) del artículo anterior.
-A tales efectos, el reglamento deberá contener disposiciones sobre los plazos, los montos máximos de crédito por actividad, las tasas de interés -las que no podrán ser menores del doce por ciento (12%), con excepción de los de la Caja de la ANDE-, las actividades por financiar, aportes a la Caja de Ahorro y Préstamo de la ANDE y todas aquellas que, a su parecer, sean necesarias para cumplir con sus objetivos.
+La Jupema reglamentará las condiciones que considere básicas para otorgar los préstamos citados en los incisos c), d) y e) del artículo anterior.
+Para tales efectos, el Reglamento deberá contener disposiciones sobre los sujetos y las líneas de crédito, los plazos, los montos máximos de crédito por actividad, las tasas de interés y la tasa de inflación, así como todas aquellas que, a su parecer, sean necesarias para cumplir sus objetivos.
+(Así reformado por el artículo 1° de la ley N° 8721 del 18 de marzo de 2009)
 Artículo 109.- Deducciones por préstamos
 Cuando se trate de préstamos para los jubilados o pensionados, la Junta podrá deducir mensualmente de los giros de la pensión las amortizaciones y los intereses respectivos.
 Artículo 110.- Uso para cubrir cotizaciones
@@ -595,3 +625,5 @@ Artículo 116.- Exoneración de pensiones.
 Solo quedarán exonerados de la contribución correspondiente al Régimen de reparto, los derechos por vejez, invalidez, muerte o supervivencia, iguales o menores a dos veces el salario base más bajo pagado por la Administración Pública.
 En caso de supervivencia, la exoneración se aplicará sobre la sumatoria de los montos derivados de un derecho jubilatorio.
 (Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 117.- Los servidores adscritos a este Régimen, que desempeñen cargos en propiedad en la Administración Pública , tendrán el derecho de percibir, además de su salario, la pensión que les corresponda en razón del fallecimiento de su cónyuge, mientras permanezcan viudos. La presente normativa reforma, en lo conducente, el artículo 15 de la Ley general de pensiones, Nº 14, de 2 de diciembre de 1935, y el artículo 31 de la Ley N º 7302, de 8 de julio de 1992, así como cualquier otra disposición que se le oponga.
+(Así adicionado por el artículo 2° de la ley N° 8721 del 18 de marzo de 2009)

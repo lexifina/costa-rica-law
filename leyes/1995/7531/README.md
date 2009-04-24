@@ -1,6 +1,6 @@
 # Reforma Integral de Sistema de Pensiones y Jubilaciones del Magisterio
 
-Ley N° 7531 del 1995-07-10. SINALEVI, ficha 22078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22078&param2=23423&param3=1>.
+Ley N° 7531 del 1995-07-10. SINALEVI, ficha 22078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22078&param2=76236&param3=1>.
 
 Publicada en La Gaceta N° 133 del 1995-07-13.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 8 | 1999-12-03 | Sala Constitucional, resolución 5236-99 (1999-07-07) | 1999-07-07 |
 | 3 de 8 | 2005-06-01 | SINALEVI | 2005-06-01 |
 | 4 de 8 | 2006-08-11 | Ley 8536 | 2006-07-27 |
+| 5 de 8 | 2009-04-24 | Ley 8721 | 2009-03-18 |
