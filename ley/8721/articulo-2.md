@@ -1,0 +1,3 @@
+ARTÍCULO 2.-
+Adiciónase a la Ley Nº 7531 y a su reforma, Ley Nº 7946, el artículo 117. El texto dirá:
+“Artículo 117.- Los servidores adscritos a este Régimen, que desempeñen cargos en propiedad en la Administración Pública, tendrán el derecho de percibir, además de su salario, la pensión que les corresponda en razón del fallecimiento de su cónyuge, mientras permanezcan viudos. La presente normativa reforma, en lo conducente, el artículo 15 de la Ley general de pensiones, Nº 14, de 2 de diciembre de 1935, y el artículo 31 de la Ley Nº 7302, de 8 de julio de 1992, así como cualquier otra disposición que se le oponga.”
