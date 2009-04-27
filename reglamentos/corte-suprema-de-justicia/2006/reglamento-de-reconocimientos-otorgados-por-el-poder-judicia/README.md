@@ -14,3 +14,4 @@ Reglamento de reconocimientos otorgados por el Poder Judicial
 | --- | --- | --- |
 | 1 | 2006-09-29 | la propia norma |
 | 2 | 2008-05-02 | Circular 70 (2008-05-02) |
+| 3 | 2009-04-27 | Circular 46 (2009-04-27) |
