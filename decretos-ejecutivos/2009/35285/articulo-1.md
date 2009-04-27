@@ -1,0 +1,12 @@
+Nº 35285-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades que les confiere el artículo 140, incisos 3) y 12) y 146 de la Constitución Política y el artículo 27, inciso 1) y 28 inciso 2.b de la Ley General de Administración Pública.
+Considerando:
+1º—Que el Sistema de la Integración Centroamericana, SICA, fue constituido el 13 de diciembre de 1991, mediante la suscripción del Protocolo a la Carta de la Organización de Estados Centroamericanos, ODECA, o Protocolo de Tegucigalpa, el cual reformó la Carta de la ODECA, suscrita en Panamá el 12 de diciembre de 1962; y entró en funcionamiento formalmente el 01 de febrero de 1993.
+2º—Que el SICA es el marco institucional de la Integración Regional de Centroamérica, y fue constituido por los Estados de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua, y Panamá. Posteriormente, se adhirió Belice como miembro pleno. Asimismo, participa la República Dominicana como Estado Asociado. La sede de la Secretaría General del SICA está en la ciudad de San Salvador, República de El Salvador.
+3º—Que Costa Rica asumirá la presidencia Pro Tempore del SICA, del 01 de julio al 31 de diciembre del 2009, por lo que corresponderá al país ser la sede de la XXXV Reunión Ordinaria de Jefes de Estado y de Gobierno del SICA.
+4º—Que según el artículo 14 del Protocolo de Tegucigalpa, el Ministro de Relaciones Exteriores y Culto será el que presida el Consejo de Ministros de Relaciones Exteriores del SICA y todas las reuniones que se convoquen en el marco de la Agenda Regional del SICA.
+5º—Que la realización de las reuniones preparatorias y la celebración de la XXXV Reunión de Jefes de Estado y de Gobierno del SICA son de vital importancia para los intereses del país en materia de concertación política, cooperación técnica, económica, comercial, cultural y para el fortalecimiento de los procesos de integración en la región, de conformidad con las obligaciones asumidas por la República de Costa Rica en el marco del Sistema de la Integración Centroamericana. Por tanto,
+Decretan:
+Artículo 1º—Se declara de interés nacional la Presidencia Pro Témpore que ostentará Costa Rica en el Sistema de la Integración Centroamericana (SICA), la celebración de la XXXV Reunión Ordinaria de Jefes de Estado y de Gobierno del SICA, así como todas las actividades que realice el Gobierno de la República durante el segundo semestre del año 2009, relacionadas con la organización, preparación y realización de los eventos en la Agenda Regional del SICA.
