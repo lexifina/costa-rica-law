@@ -1,0 +1,1 @@
+Artículo 47.—Errores y omisiones. En caso de que un informe final comunique una información que contiene un error u omisión significativos, el Auditor Interno deberá comunicar la información fehaciente a todas aquellas personas que recibieron la comunicación inicial.

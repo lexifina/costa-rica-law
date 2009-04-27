@@ -1,0 +1,1 @@
+Artículo 33.—Alcance del Programa. El Programa será suficientemente integral abarcando todos los aspectos de la operación y dirección de la Unidad, lo anterior mediante el desarrollo de evaluaciones de calidad del servicio de auditoría, en la aplicación de matrices referidas a la percepción de la actividad de Auditoría.

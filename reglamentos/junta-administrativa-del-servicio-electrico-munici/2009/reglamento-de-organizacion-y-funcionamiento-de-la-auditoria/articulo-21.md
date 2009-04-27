@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del auditor interno
+Artículo 21.—Nombramiento. El Jerarca nombrará al Auditor Interno quien ocupará su cargo por tiempo indefinido, dicho nombramiento se hará por medio de un concurso público promovido por JASEC. Lo anterior de acuerdo con lo previsto en el artículo 31 de la Ley Nº 8292, el artículo 62 de la Ley Nº 7428, así como lo establecido en los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos” emitidos por la Contraloría General de la República y publicados en La Gaceta Nº 236 del 8 de diciembre de 2006.

@@ -1,0 +1,1 @@
+Artículo 14.—Área Administrativa Gerencial. Será la encargada de desarrollar aspectos sustantivos y estrategias, con el fin de diseñar, implementar, evaluar o mejorar constantemente la calidad de los procesos, procedimientos y servicios que le correspondan tales como preventivos y de auditoría.

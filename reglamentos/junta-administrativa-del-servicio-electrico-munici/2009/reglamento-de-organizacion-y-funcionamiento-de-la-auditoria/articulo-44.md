@@ -1,0 +1,1 @@
+Artículo 44.—Discusión previa de los Resultados El Auditor Interno deberá discutir los resultados con quienes tengan parte en los asuntos, previo a su comunicación oficial; en el caso de las relaciones de hechos, se desarrollarán según estime conveniente el Auditor.

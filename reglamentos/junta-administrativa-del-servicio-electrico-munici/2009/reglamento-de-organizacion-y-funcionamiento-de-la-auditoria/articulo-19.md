@@ -1,0 +1,1 @@
+Artículo 19.—Contratación de Recursos Externos. La Auditoría Interna, conforme al Plan Anual de Actividades y los estudios especiales que disponga el Jerarca, podrá realizar la contratación de bienes y servicios necesarios para llevar a cabo tal gestión.

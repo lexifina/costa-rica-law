@@ -1,0 +1,1 @@
+Artículo 4º—Concepto de Auditoría Interna. Es la actividad independiente y objetiva de aseguramiento y consulta desarrollada por un equipo que agrega valor y mejora las operaciones de la Institución; ayudándola a cumplir sus objetivos bajo un enfoque sistémico y disciplinado evaluando y mejorando la eficacia de los procesos en forma proactiva.
