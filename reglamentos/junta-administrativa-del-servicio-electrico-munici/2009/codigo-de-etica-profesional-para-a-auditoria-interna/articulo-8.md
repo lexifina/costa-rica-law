@@ -1,0 +1,1 @@
+Artículo 8º—Liderazgo: El liderazgo que deben ejercer los funcionarios de esta Auditoría Interna consiste en llevar a cabo sus actividades de forma tal que instauren y constituyan compromiso y credibilidad en sus actuaciones ante terceras personas, ajenas a esta dependencia.

@@ -1,0 +1,1 @@
+Artículo 25.—No se debe utilizar las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, la metodología, los sistemas de cómputo, los datos o cualquier otro documento, en negocios o asuntos personales.
