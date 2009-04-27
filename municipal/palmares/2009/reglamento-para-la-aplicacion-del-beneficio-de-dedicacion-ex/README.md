@@ -14,3 +14,4 @@ Reglamento para la Aplicación del Beneficio de Dedicación Exclusiva de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-11 | la propia norma |
+| 2 | 2009-04-27 | Reglamento municipal 156 (2009-04-27) |
